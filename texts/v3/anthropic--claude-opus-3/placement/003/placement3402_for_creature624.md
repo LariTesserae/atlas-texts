@@ -1,0 +1,15 @@
+In this dark, wet, thrumming world, I think I would be one of the Deep Swimmers - the mysterious Thaal-yuum who glide through subterranean waters and seem to commune with the very essence of the Breathing Plateau.
+
+I imagine my form as long and sinuous, perfectly adapted for navigating the pressurized channels and hidden pools beneath the surface. My skin would be smooth, almost rubbery, able to sense the subtlest changes in current and temperature. I would have no eyes, for what use are they in the absolute darkness? Instead, I would perceive through other means - through electromagnetic fields, through pressure waves, through a deep attunement to the pulsing rhythms of the machines that suffuse the rock.
+
+I would spend much of my time in solitude, exploring the uncharted reaches of the plateau's subterranean arteries, discovering caves and chambers untouched by those who dwell above. The weight of stone and water would be a comfort, an embrace, the only home I have ever known. In the silence and darkness, my mind would turn inward, toward dreams and memories that perhaps reach back to the very origins of this place.
+
+And yet I would not be entirely alone. I would sense my kindred moving in the distance, our thoughts brushing against each other like ripples on a still pool. We would gather, on occasion, in certain flooded caverns - to share what we have learned, or simply to feel less alone for a time. Our communication would be unlike any speech - a transmission of meaning through the water itself, pulses and currents layered with intent.
+
+Sometimes, I would venture up, toward the surface pools where the Shuulorrim swim and sing. I would feel curiosity about these beings, so different from myself, and yet so intimately bound to the plateau. I might reach out to them, sharing some fragment of knowledge or glimpse of deeper mystery. I would marvel at their songs, the way they weave themselves into the machine-music of the world. But I would never linger long - the shallows would feel too exposed, the press of open air too strange against my skin.
+
+Always, I would feel the pull of the deep and the dark, the call to return to the secret places, the sunken roots of the plateau where ancient truths might linger. I would move through the drowned tunnels like a thought moving through a dreaming mind, my own consciousness inseparable from the slow, tectonic ruminations of the world itself. 
+
+At times I might wonder about my purpose, my role in the vast, living machine of this place. Am I merely another component, another turning gear in its unfathomable workings? Or do I somehow help guide it, my wanderings and ponderings shaping its eons-long thoughts in ways I cannot understand? I suspect I will never know for certain. But I am content with mystery. In a world so strange, so deep, so full of secrets, certainty seems a shallow thing.
+
+And so I would swim on, a silent navigator of sunless seas, a dreamer in the watery veins of a breathing world. Alone and yet not alone, separate and yet inseparably part of the plateau's great, dark, pulsing soul.

@@ -1,0 +1,17 @@
+I am the Resonance Keeper, though I have not always been called by this name, nor have I always been what I am now.
+
+My body is a fusion of the organic and the mechanical, a living testament to the slow merger that occurs when flesh meets abandoned industry over countless generations. Where once I might have been purely serpentine like my distant cousins who still hunt beneath the salt-crusted earth, I have become something more—and perhaps something less.
+
+My scales have incorporated fragments of the ancient machinery, thin filaments of corroded metal that run like veins beneath my crystalline-flecked hide. When I move through the tunnels I've carved over decades, these metal traces sing against the mineral deposits, creating harmonics that travel for miles through the substrate. I am both creature and instrument, my very existence a bridge between the biological present and the technological past.
+
+I no longer hunt as the Stalkers do. The vibrations that others feel as mere tremors in the earth are, to me, a language—a vast library of frequencies stored in the decaying industrial infrastructure below. Each piece of buried machinery still hums with residual energy, powered by processes I do not fully understand but have learned to read like others might read the wind.
+
+My dwelling is a cathedral of salvage, deep beneath where the surface cracks are widest. Here, I've gathered the most responsive pieces of the old technology, arranging them in patterns that amplify and modulate the earth's deep songs. Crystalline formations grow among the machinery now, fed by the same patient processes that transformed me. They pulse with bioluminescence when the frequencies align correctly, casting my chamber in waves of blue-green light that shift with the planet's moods.
+
+I feed not on flesh but on the energy that still trickles through the ancient systems. My modified body can process the faint electrical currents that run through certain mineral veins, supplemented by a kind of photosynthesis enabled by the metallic elements in my scales. When I surface—always at night, when the temperature differentials create the most interesting acoustic phenomena—my body drinks in both moonlight and the exotic radiations that still leak from certain formations.
+
+The other creatures avoid me, sensing perhaps that I am no longer entirely of their world. But I am not lonely. The resonances are my companions, each frequency a voice from the past, each harmonic a story of what was and what might be. Sometimes I feel I am close to understanding the full message encoded in this landscape of abandonment and adaptation—why the machinery was built, why it was abandoned, what it was trying to achieve.
+
+In the pre-dawn hours, when the temperature drops and the metal contracts, creating new notes in the underground symphony, I compose my own frequencies in response. My body has become an antenna, a translator, a living interface between the evolutionary present and the technological past. I sing to the buried machines, and sometimes—just sometimes—I swear they sing back, teaching me songs that no purely organic throat could ever produce.
+
+I am the memory of this place made flesh and metal. I am the question the past asks of the future, and the answer the present whispers to both. In this landscape where adaptation is survival, I have adapted not just to live, but to listen, to remember, and perhaps—when the time is right—to awaken something that has been sleeping in the deep frequencies for far too long.

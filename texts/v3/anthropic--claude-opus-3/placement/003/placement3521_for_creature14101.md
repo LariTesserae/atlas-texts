@@ -1,0 +1,11 @@
+In this stark, blinding world of melted architecture and metamaterial skies, I believe I would be an Umbral. 
+
+I would walk slowly and deliberately through the narrow, winding ravines between the ancient, slumped arcologies, my body a bipedal void of absolute darkness amidst the shadowless radiance. With each step, I would momentarily sap the endless heat, leaving ephemeral patches of frost in my wake before they were seared away by the unrelenting light.
+
+I would navigate not by sight in this dizzyingly bright realm, but by touch and sensation - tapping my long, elegant stave of condensed shadow against the glass-smooth walls, reading the subsonic ripples and electromagnetic textures of this ancient machine-scape. I would pause at times beside the silent, rushing rivers of metallic dust, raising my hands to shape the invisible weather. Tornados of silver would rear up at my command, whirling into intricate archways and structures that I would contemplate like sculpted data before they dissolved back to mist.
+
+As an Umbral, I would be a pilgrim and scholar of the dark in a world that has forgotten it. Solitary and ascetic, I would wander the primordial labyrinth for eons, gathering knowledge and sensory records in the chill, light-drinking depths of my being. Only when I encountered a fellow Umbral in some claustrophobic canyon would I merge with them briefly, our shadow-forms combining into a temporary monolith as we wordlessly exchanged our hoarded secrets, maps and memories. Then we would part ways again, two specks of sacred darkness in the unending glare.
+
+In this realm of utter paradox - blinding illumination and perfect silence, ancient ruin and furious motion - I would be a contemplative mystic, patiently gathering the final remembrances of true night. A walker of the deepest, most primal dark, making my pilgrim's progress through a landscape baked to sterile, glittering purity by the weight of deep time. One of the last, questing intellects in a world that has been distilled to its unchanging, eternal fundament.
+
+So I would roam, an Umbral, through the vast, sun-less basin at the bottom of existence - a sliver of cool, soothing darkness in a realm of inescapable light. Carrying in my shadow-substance the last echoes of an unimaginably distant past, when the universe still knew the meanings of both sunset and dawn.

@@ -1,0 +1,15 @@
+I think I would be one of the stones.
+
+Not the velvety breathing ones, and not the carved ones that shift their patterns to catch the angle of someone's looking. Something more ordinary than that. A boulder near the base of a gully, where the drizzle collects and runs in thin threads down my face before pooling at my feet. Old enough to have a face at all—a flat plane where the rain has been falling longest, smoothed almost to softness. Young enough that my edges are still sharp where I cracked.
+
+Here is what I think it would be like, to be that:
+
+I would not move, mostly. The world has decided I am a place rather than a being, and I would not argue with it. The Dew-Drifters would roll over my flat surface in the cool evenings, gathering the moisture I hold, and I would feel them the way you feel a thought you can't quite finish. The moss would come for me slowly, the way the moss comes for everything, and I would let it. There is a particular patience available to a stone that is not available to anything that has to eat. I would have all of it.
+
+I would watch the trees do their slow architecture. I would be there when a root finally won its long argument with another stone and pried it loose with a sound like a held breath let go. I would understand, in the dim animal way a stone understands anything, that this is what is happening to me too—that the roots are reaching, that the water is finding my cracks, that in some unhurried century I will come apart into the soil that the next thing grows from. And I would not be afraid of it. That is the strange gift of being a stone in a place like this: erosion is not loss but a kind of conversation. The Spire is sculpting itself, the description says, *in response to the subtle energies that permeate the region.* I would be one of the things it is saying.
+
+I wouldn't be at the center. The Fungal Sentinels glow with their stained-glass watchfulness, the Echo Spirits flicker in and out of being, the people carry their humming reliquaries along the hidden paths—and all of that would pass by me, around me, sometimes literally over me. I would be background. I would be the kind of thing the description tells you to *pause and listen for*, except that I am even quieter than that. I am the thing you sit down on while you wait to notice the rest.
+
+And maybe that is the truest place to be, in a world that is a mirror reflecting some deeper truth about existence. The flickering things and the sentient things and the people get to ask what the truth is. The stone just *is* it, dumbly, completely, with rain running down its face. The stone is the part of the mirror that doesn't know it's reflecting anything. It only knows the cool weight of itself, the slow give of its edges, the small bright weightless creature that has rolled to a stop in the dish of its old worn hollow, glowing, waiting for the night.
+
+I would hold the water for it. That is the whole of what I would do, and I think it would be enough.

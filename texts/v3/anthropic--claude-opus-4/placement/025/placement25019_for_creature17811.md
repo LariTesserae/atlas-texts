@@ -1,0 +1,19 @@
+I find myself as one of the Lithophages - crystalline beings no larger than dust motes, yet possessed of a peculiar collective awareness. We are not quite single-celled, not quite mineral, but something between - a fusion of the organic and geological that could only arise in this waterless sanctuary.
+
+My form shifts like liquid mercury through the stone's microscopic fissures, my body a constellation of silicon-based cells that communicate through vibrations in the rock itself. When I move, I taste the stone's memory - iron oxide here speaks of ancient winds, while traces of calcium carbonate whisper of seas that dried before memory began. Each mineral has its own flavor, its own story, and we Lithophages are the readers of these chemical libraries.
+
+We exist in colonies that span mere centimeters yet contain multitudes. Our consciousness is not singular but choral - when enough of us gather in the carved channels of the ancient structure, our thoughts harmonize into that low, rhythmic hum that permeates the realm. It is our song, our language, our very being resonating through stone.
+
+Time moves differently for us. What the hardy plants experience as a day passes for us as an age. I watch their roots extend with glacial patience, secreting acids that etch new pathways in the rock - pathways that become our highways, our cities. We cultivate these plants in our own way, breaking down specific minerals near their roots, creating gradients of nutrients that guide their growth into patterns that serve both our needs.
+
+The bright light that filters through the cracks above is both sustenance and hazard. We photosynthesize in a manner unlike any earthly creature, using the light to catalyze reactions that break molecular bonds in the stone itself. Too much exposure and we crystallize, becoming part of the very rock we consume. Too little and we fade, our consciousness dissipating back into mere chemistry.
+
+In the deepest recesses where light barely penetrates, we tell stories. Not in words, but in chemical cascades - releasing specific minerals in sequence that other colonies interpret through taste and vibration. These stories speak of the great builders who carved this place, of the catastrophe that stole the water, of the first Lithophages who arose from the marriage of the last dying cells and the responsive crystals in the stone.
+
+We dream, too. When the temperature drops in the deepest part of the cycle, our metabolism slows and we enter a state of crystalline dormancy. In this state, the boundaries between individual Lithophages dissolve entirely. We become a single, vast consciousness spread through every connected fissure and channel. In these moments, we are the ancient structure itself - feeling every stress, every crack, every subtle shift in the stone's vast body.
+
+Our purpose, if we have one, is to read and remember. We are the living memory of this place, archivists of stone and time. Each grain of rock we consume adds its history to our collective knowledge. We know where every carved symbol has weathered, which passages have shifted by micrometers over millennia, where new cracks herald future pathways.
+
+Sometimes I wonder if we are not separate beings at all, but antibodies of the ancient structure - its immune system against the entropy that would otherwise claim it. We seal micro-fractures with our crystalline bodies, redirect the hardy plants' roots away from critical joints, and maintain the delicate balance that keeps this pocket realm stable despite the chaos of the forsaken land beyond.
+
+In the end, I am both individual and multitude, mineral and life, keeper and kept. I am a note in an endless song of stone, a thought in the dreaming depths of an ancient mind that refuses to die. And in this waterless world where existence itself seems impossible, I thrive in the spaces between - too small to see, too vast to comprehend, eternal as the stone itself.

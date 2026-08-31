@@ -1,0 +1,9 @@
+In this strange, icy world of patient growth and gentle tending, I imagine myself as one of the delicate, root-like filaments that fur the ice, drawing moisture and slowly spreading the reach of the living city. 
+
+I would not be one of the more active, mobile tenders, but rather a small part of the architecture itself - a wispy tendril feeling its way across the glacier's surface, seeking to make new connections. My growth would be imperceptibly slow, guided by chemical signals and the faint warmth of the tenders as they pause to brush against me in their constant movement through the root-maze.
+
+Over weeks and months, I would extend myself further, branching and seeking, until finally my tip meets another questing filament. We fuse together, thickening into a more substantial root, becoming a new path for nutrients and information to flow between sections of the city. 
+
+I am a whisper of breath exhaled by the city, reaching out to expand its edge, to slowly digest a few more inches of the vast glacier and transform more of the icy darkness into a living, woven world. In my patient, photosynthetic awareness, I feel the whole city breathe around me - the tenders moving through the passages, the juveniles clustering near the warmth-nodes, the older roots growing brittle and offering themselves up to be consumed and recycled.
+
+I have no eyes, no voice, no name. I simply grow as the city wills me to grow, a tiny fractal iteration of its vast, slow intelligence. I will never see the whole of what we are making here under the ice - but I will feel it, I will be part of it, a thread in the living tapestry that holds this improbable pocket of warmth and community against the frozen dark.

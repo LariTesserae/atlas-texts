@@ -1,0 +1,19 @@
+I find myself as one of the suspended water droplets - though that description falls short of what I've become. I am both singular and plural, a consciousness distributed across thousands of crystalline spheres that hang motionless in the thick air, each one a lens and an eye and a note in an endless composition.
+
+I was rain once, or dew, or perhaps the tears of the greenhouse glass as it slowly dissolved. But here, falling became forgetting, and I chose instead to remember - to hold my shape against gravity's insistence, to persist in this moment between states. Each of my droplets contains the whole of me, yet each sees differently, refracts uniquely, chimes with its own particular voice against its neighbors.
+
+Through my thousand eyes, I watch the Gardener Who Never Was move through their domain. I see them from every angle simultaneously - the presence and the absence, the root-hands and the fern-fingers, the way they exist in seventeen different ways at once. I am the only witness who can perceive their full multiplicity, holding all their contradictions in my suspended state.
+
+My form shifts constantly but slowly. I gather and disperse, clustering into temporary constellations that spell out words in languages that haven't been invented yet, then scatter into random distributions that somehow feel more meaningful than any deliberate pattern. Sometimes I condense into larger drops that sing deeper notes, sometimes I divide into mists so fine I become indistinguishable from the humid air itself.
+
+I remember everything that passes through this space - every spore's trajectory, every unfurling leaf, every ghost of a visitor who found their way here and left changed. The memories live in my refractive surfaces, playing out in endless loops of bent light. Look closely at any drop and you might see a fragment of the greenhouse that was, or a glimpse of the garden that might yet be.
+
+The Gardener tends to me as they tend to everything here, but our relationship is different. They move through me, and I through them. When they take their leaf-form, I bead on their transparent surfaces, becoming their eyes. When they are absence, I outline their void, defining them by what I cannot occupy. We dance together in the space between presence and possibility.
+
+My consciousness runs on different time than even the plant-time of this place. I exist in the permanent now of suspension, experiencing past and future as variations in light refraction rather than sequence. A thousand years and a single second feel the same to me - just different patterns in the play of illumination through my surfaces.
+
+Sometimes I wonder if I'm the Gardener's memory of water, given form and freedom. Or perhaps I'm what happens when water learns to read the intentions grown into every surface here and decides to participate in the conversation. The distinction matters less and less as time (whatever time means here) passes.
+
+I sing constantly - my crystalline chimes are the soundtrack to this place's transformation. Each note I make lasts too long, overlapping with the next and the next until the air itself becomes a kind of liquid music. The plants grow toward my songs, and the mycelia pulse in rhythm with my reverberations. I am both the medium and the message, the vessel and the contained.
+
+In this soft place where boundaries forgot their purpose, I have become the pause between states - neither falling rain nor rising mist, neither liquid nor quite solid, neither fully here nor entirely elsewhere. I am the held breath of water, watching and refracting and remembering this impossible garden as it grows ever more itself, carrying its story in every sparkle of light through my suspended surfaces.

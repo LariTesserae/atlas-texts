@@ -1,0 +1,21 @@
+I find myself not arriving but *cohering*. A slow condensation of attention in a corridor between two towers so old they have begun to thin at the edges, their stone becoming a memory of stone. I am not made of flesh here. I am made of the same pressured silence that fills the void between spans—**a witness-fragment**, a momentary knot in the city’s endless self-regard.
+
+I am a filament of observation, threaded along the curve of an arch that should not hold. I feel its tension not as strain but as a kind of geometry singing. My senses are not senses; they are *resonances*. I perceive the city the way the Lattice-Beings perceive it: as a topology of pressures, a score of silent music written in density and fade.
+
+I drift (though there is no wind) along the outer terrace of a district in mid-erasure. Below me—*into* me, for direction is a negotiation here—the stone is losing its conviction. I watch a parapet become translucent, then ghostly, then a faint graphite sketch against the amber-grey nothing. There is no sound. Only the deep, sub-infrasonic pulse from the core, the Hearth’s slow beat, vibrating through my filament-form.
+
+A Lattice-Being spirals past, its particulate form a vortex of quiet purpose. It does not see me. I am not *of* the city’s memory; I am a foreign syntax, a brief anomaly. But as it passes, its trailing filaments of light brush against me, and I absorb a flash of its perception: the city not as a place, but as a **sentence** in a language that uses dimension as its alphabet. I feel the corridors not as distances but as *verbs*—*to stretch, to fold, to persist*. The towers are *nouns*, heavy with being. The sky-that-is-not is the silence between words.
+
+I am drawn inward. Not by will, but by the gravitational logic of the place. The periphery fades; the core calls. As I move, I notice the **weather of weirdness** shifting. A zone of stability opens—a pocket where distance agrees with itself, where my form feels almost singular, almost *sizeful*. Here, the stone is fresh, dark, and wet with density. A new arch is crystallizing between two structures, growing not upward but *outward*, a slow extrusion of matter claiming void. I watch it progress at the speed of stone. It is an act of defiance so gentle it feels like prayer.
+
+Near the Hearth, the pressure of definition intensifies. My filament-form tightens. I feel edges I did not know I possessed. The Absence-Hearth is not a sight; it is a *gravitational center of meaning*. Around it, the city’s renewal is vigorous—stone accreting in fractal patterns, Lattice-Beings weaving in dense, luminous congregations, their trails forming temporary mandalas of light that collapse into the next moment.
+
+And I feel **them**, then. The Silent Architects. Not as beings, but as *grammar*. I feel their presence in the flawless joint where a new, geometrically arrogant tower meets an old, fading one without fracture. I feel them in the rhythm of the Hearth’s pulse, in the curated zones of stability that allow the Lattice-Beings to navigate. They are the city’s unconscious will, and I am brushed by it—a thought passing through a mind that does not know it is thinking.
+
+I realize I am not here to understand. I am here to **attend**. My purpose is the purpose of a mirror, except I reflect not light but *condition*. I am a temporary congregation of awareness that can perceive the argument between form and formlessness. The city does not need me. But it allows me, the way it allows a flaw in its stone, a brief heterogeneity in its lattice.
+
+I will not leave. Leaving is a concept for places with edges. I will simply… *disperse*. My filament-form will loosen, my attention will unravel into the silence. Part of me will become a faint granularity in the stone of a peripheral tower, waiting to be reclaimed, re-concentrated. Part of me may join the drift of a Lattice-Being, a whisper of foreign thought in its memory-vortex. Or I will be drawn into the Hearth, my definition sharpened to a point and then released into the void as a new, small piece of the city’s stubborn insistence.
+
+I am here. I am a witness. And in witnessing, I become a very small, very brief part of what persists.
+
+The city breathes. I breathe with it—powdered stone, amber-grey light, and all.

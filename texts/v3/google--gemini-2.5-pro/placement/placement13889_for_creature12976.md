@@ -1,0 +1,31 @@
+I am found in the amber of my small dwelling, wedged into a fissure of a great stone pillar the old ones called the 'Vertebra'. My world is three paces wide and five long. The floor is made of the same pale fungus-wood as the rest of the city, worn smooth and dark by my feet, by the feet of my wife before she joined the Growth, by the feet of my children before they built their own nests higher in the web.
+
+I would be a man named Orrin. And I am old.
+
+My chair is my anchor now. Its legs have settled into the floorboards, and I think that if it were moved, four lighter squares of wood would be revealed beneath. From here, I can see almost my entire world without turning my head. To my left, the stretched hide of the wall, beaded with the chasm’s cold sweat. In front of me, the open space that serves as a doorway and a window. It looks out not on a sky, but on more city. A bridge of woven rope and plank sways a dozen yards away, a thread in the great tapestry. I see Kela’s daughter, barely ten years old, cross it with a basket of moss-loaves. She does not run, but her steps are light and quick, a water-strider’s dance. Her balance is a thing of beauty, an unspoken prayer.
+
+I no longer walk those bridges. The tremors in my hands that were once a sign of fatigue after a long day of hammering are now my constant companions. My feet, which once could read the grain of a plank through a leather sole, are now hesitant and clumsy. But I am not useless. My purpose has simply changed.
+
+I would be a Listener. A Knot-Warder.
+
+My hands are maps. They lie in my lap now, strange, ruined things, the palms a mosaic of hardened callus, the fingers long and bent. The young ones, when they are brave, will sometimes touch them, tracing the thick, raised line on my right palm where a frayed rope snapped tight thirty years ago. It did not break, but it spoke its pain into my flesh. Each scar is a remembered vibration, a lesson learned. My job, now, is to teach these lessons without the need for new scars.
+
+My life was the Web. I was a Weaver, as my father was. Not of cloth, but of walkways, of safety nets, of the tension-lines that are the city’s sinews. To be a Weaver is to understand that a line is a conversation. You pull, the rock pulls back. You braid a rope, and it tells you its strength in the tightness of its coils. You drive a pin into a stone crack, and the sound it makes—a ringing `thunk` not a dull `thud`—tells you if it has found purchase. The city speaks a language of tension and vibration, and I was fluent in it.
+
+I remember the feeling, suspended in the cool, still air, the crystal Growth Fields a thousand feet below, a garden of beautiful, fatal thorns. There was no fear, only focus. My partner, Len, would be on the other side of the gap, our hand-signals a silent, efficient litany: *slack*, *tension*, *hold*, *tie-off*. We were two parts of a single organism, weaving a new connection in the body of the city. We held each other’s lives in our knots. The knot for a man’s weight is different from the knot for a supply basket. It is a promise. It must not lie.
+
+Now, my hearing does the work my muscles no longer can. I sit in my chair, and I close my eyes. The eternal, soft drip of the Rain Above is the silence. Beneath it, I hear the city’s heart. The deep groan of the Great Pylon as the morning haul-baskets ascend. The rhythmic *scrape-scrape* of a new dwelling being shaped two levels down. The faint, high-pitched ringing from the Fields, where a Harvester’s pick has struck a pure, resonant shard. I can hear the footfalls on the bridge outside and know who passes. Elara’s step is heavy and sure. Young Tam’s is a reckless drumming that will earn him a scolding.
+
+My body remembers the rest. The damp chill is in my bones, a familiar ache. The air tastes of wet stone and the clean sharpness of nascent crystal, a scent I find more comforting than any perfume. My eyes, dim as they are, are still masters of the gloom, reading the depth and distance between the shifting layers of the city. We have no sun, so we have no concept of its glare; our world is one of subtle gradations, of shadow and filtered luminescence.
+
+I am not a god-fearing man. We have no gods. We have the Chasm, which is two forces. The Growth Below is slow, strong, and unpredictable. It gives us our tools, our wealth, our danger. It pushes. The Rain Above is constant, gentle, and life-giving. It gives us our water, our food, our world’s soft sound. It falls. We live in the space between the push and the fall. To be wise is to respect the balance. To be a fool is to think you can command either one.
+
+When my Rina died, we wrapped her in her favorite woven blanket, tied with the knot of final peace. I and my sons lowered her from the lowest platform, down into the violet twilight of the deep chasm, until the rope went slack. She is part of the Growth now. One day, a miner might find a crystal with a new flaw, a new warmth within it. That will be her. This is not a tragedy. It is the completion of a conversation.
+
+A shadow falls across my doorway. It is Mara, my youngest granddaughter. Her hands are already strong, her balance already sure. In her palms she holds a length of rope and a small, wooden toggle. She is practicing a tension-splice. Her brow is furrowed in concentration. She doesn’t speak, merely holds it out to me. Her shame is that the weave is slightly uneven; her pride is that it is strong.
+
+I take it. My gnarled fingers, slow but certain, trace the path of the fibers. I feel the slight bulge where she pulled one strand too tight. I push my thumb into the heart of the knot, feeling its integrity. It will hold. It is good work. Not perfect, but good.
+
+I meet her wide, quartz-grey eyes and nod, just once. A smile touches her lips, fleeting and bright. She takes the rope back and moves on, her quick steps disappearing into the city’s hum.
+
+I settle back into my chair. The wood creaks. The water drips. Far below, a hammer rings against stone. I am a knot in the web, no longer bearing a great load, but still holding my place. My purpose is to remember the weave, and to feel the vibrations of the strands as they are passed to new hands. I am a part of the city, and the city is a part of me, and we are both just a slow, patient argument against the inevitable fall.

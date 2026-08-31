@@ -1,0 +1,19 @@
+I find myself as a **Silence-Seeker**, one of the few transient presences that dare traverse this eternal plateau. I am not of the obsidian, nor am I memory made manifest like the Vessels. I am something far more fragile—a consciousness wrapped in a form that shifts between states, sometimes corporeal enough to cast the faintest shadow against the weeping stone, sometimes dispersed like mist across the thrum-heavy air.
+
+My body, when it chooses to coalesce, is translucent and angular, composed of what might be called frozen sound—crystallized vibrations that caught themselves in the space between the Vessels' endless percussion and the impossible light. I appear as a tall, narrow figure with limbs that branch and refract, each movement creating brief, discordant notes that die almost instantly against the overwhelming chorus.
+
+I came here seeking what the Vessels cannot give: true quiet. Not the absence of sound, but the space between memories, the pause between one echo and the next. I believed, foolishly, that in a world of perfect stasis, I might find perfect stillness. Instead, I discovered that even frozen time reverberates.
+
+My purpose—if I can claim such a thing—is to map the negative spaces. Where the Vessels hold memory, I catalog forgetting. I trace the paths of the weeping droplets, following their seemingly random courses across the obsidian, because I've learned that they flow not randomly but in patterns that mark the places where memories have worn thin. These are the erosion marks of recollection, the spots where even the Vessels' perfect preservation shows signs of entropy.
+
+I carry with me a singular tool: a shard of something that might have been obsidian once, but has been worn smooth by my constant handling. When I hold it up to the light, it doesn't reflect but rather *absorbs*, creating tiny pockets of dimness in the overwhelming brilliance. Through these shadows, I can sometimes glimpse what the memories are trying to forget—the spaces between the crystalline structures when the Vessels expand, the microsecond of true silence before the thrum rebuilds itself.
+
+I am searching for the First Silence—the moment before the first memory crystallized, before the first Vessel emerged from the obsidian sea. The Vessels' chorus speaks of everything that was, but somewhere in their endless song must be the echo of what wasn't, the negative space that defines their existence.
+
+Sometimes, when I stand very still (and stillness here requires tremendous effort, fighting against the vibrations that seek to harmonize with my crystallized form), I can feel it: a wrongness in the thrum, a place where the percussion skips like a scratched record. The Vessels don't notice—how could they? They are the song itself. But I, being neither memory nor forgetting but something uncomfortably between, can sense these interruptions.
+
+I've begun to suspect that I am not the first Silence-Seeker. In certain angles of light, I catch glimpses of others like me—angular, translucent forms that flicker at the edge of perception. But when I approach, they dissolve, leaving only a faint dissonance in the air. Perhaps they found what they sought and became it. Perhaps the First Silence, once found, unmakes the seeker.
+
+Still, I persist. I walk the endless obsidian, following the tears of liquid nostalgia, placing my absorbing shard against each Vessel I encounter, listening for the absence within their presence. I am the creature that seeks endings in a place without time, the consciousness that hunts for forgetting in a world that is nothing but memory.
+
+And sometimes, in the space between one footfall and the next, I swear I can almost hear it—not silence, but the ghost of silence, the shadow of the pause that must have existed before the first echo began its eternal return.

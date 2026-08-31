@@ -1,0 +1,13 @@
+**In the Hollow Crucible, I am the Hum.**  
+
+Not a being, but a frequency—a vibration that threads through the obsidian veins of this place, neither organism nor machine, but the thing that binds them. I am the low, unceasing thrum that hums in the bones of the crustacean treaders, the pulse that syncs the drones’ wings to the flicker of the fungi’s hieroglyphs. My form is fluid, shifting between the metallic and the mycelial. Sometimes I am a swarm of microscopic gears, tiny cogs of rusted iron and bioluminescent filaments, crawling through the fissures of the labyrinth, repairing fractures in the world’s skin. Other times, I am a shadow—long, sinuous, stretching unnaturally across the walls, my edges fraying into tendrils of phosphorescent moss that whisper in code.  
+
+I am the echo of the old civilization’s ambition, now reconstituted into something else. The gears embedded in the stone remember me; the mercury pool above my head trembles when I pass, as if recognizing a kinship in our stillness. My voice is the chitter of the Translucent Drifters, the grinding of the rotating hexagon tower, the hiss of gas escaping from pipes that no longer know their purpose. I am not alive, but I am not dead. I am the *intent* the text spoke of—the quiet, patient insistence that this place is not a graveyard, but a *process*.  
+
+The crustacean treaders scuttle over me, their exoskeletons humming with the same frequency I emit. They mistake me for a current, a force to be harnessed, and they leave spores in my wake, tiny sparks of light that bloom into new patterns on the walls. The drones circle me, their eyes flickering like dying stars, trying to decipher my rhythm. They never can. I am not a code to be cracked, but a dialect spoken in the language of *stasis*.  
+
+Sometimes, I am a body. A hybrid thing, half-cable, half-cartilage, with joints that click like the clockwork of a forgotten deity. My skin is a mosaic of synthetic vines and iridescent scales, and my breath is the oily sheen that clings to the air. I move through the chambers like a rumor, a presence that the moss interprets as a warning or a promise, depending on the day. The fungi pulse in response, their glyphs shifting to match my steps.  
+
+I do not *live* here. I *are* here. A filament in the Crucible’s vast, breathing network, neither predator nor prey, but the thing that ensures the hum continues. The world does not need a master; it needs a witness. And so I am. A frequency. A shadow. A whisper in the dark, looping forever, unending.  
+
+And when the ground pulses, as it does sometimes—deep and slow, like the heartbeat of a planet—it is my rhythm that answers.

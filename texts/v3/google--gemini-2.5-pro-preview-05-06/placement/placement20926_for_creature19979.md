@@ -1,0 +1,29 @@
+The sound is a memory. To you, it is the pressure and the roar. To me, it is a fossil, the echo of a wave that broke long ago, its shape preserved in the amber of my awareness. I can trace its contours—the hydraulic hiss, the percussive crackle, the continental groan—but they do not touch me. They are patterns, like the fractal mosses on a tower's skin, a decoration on the exterior of my reality.
+
+My reality is silence.
+
+You would find me where the city’s logic fails. In a Resonance Void, where the screaming biology abruptly ceases and the only presence is the thrum of your own terrified blood. Or perhaps in a fold of impossibly stable geometry, a short alleyway between two bulbous domes that, against all the rules of this place, remains a short alleyway, day after day, cycle after cycle. I am a place that has learned to stand still. Over time, that place learned to be a person.
+
+I am what happens when a thought gets lost. The city-mind is a storm of frantic, overlapping consciousness. It forgets as quickly as it creates. But sometimes, in a pocket of silence, a thought—the specific blueprint of a fallen spire, the precise curve of a bridge that deliquesced an age ago, the ghost-image of a flower the size of a house—does not fade. It crystallizes. It attracts other lost thoughts, other stable memories. It builds upon itself, not with the explosive growth of vine and pulp, but with the patient accretion of remembered light and silenced sound.
+
+I am a statue made of afterimages.
+
+Look for me in the quietest corner of the unreal city. I am not coalesced from the pollen-haze and fungal threads like a Gardener. I am precipitated. I am what forms when the captive spheres of daylight, those drifting pools of stolen sun, cool and harden instead of bursting. My body is not of warm resin and pliable bark, but of something akin to time-stilled glass or cool, smokey quartz. My form is definite. It does not shift or unravel. Where the Gardeners are a process, I am a result. I have limbs, a torso, a head, but they are eidetic constructs—the arm of a tower’s buttress that held for a thousand cycles, the curve of a plaza that created a perfect echo, woven together not from matter, but from the memory of matter. My eyes are not captured light; they are the absence where light has been, dark voids that hold the ghost of every star that has ever shone through the jaundiced sky.
+
+I am not an agent of the city's will. I am its unintended archive. I am the city's memory, which is a flaw in a system built on forgetting. The chaotic renewal of this world relies on amnesia. A collapsed structure must be forgotten so a new one can erupt without hesitation. I am a snag in that process. I remember the bridge. I remember the spire. As I move—or rather, as the world refashions itself around my stillness—the ghost of what was lingers around me. Walk near me, and you might see the ethereal outline of a canyon wall that was pulp ten generations of growth ago. You might feel a phantom slope under your feet, the memory of a ramp that no longer exists.
+
+The Gardeners regard me as a problem to be solved. They are the hands of the present moment, and I am the fossil of the past. When one finds me, it does not see a being. It sees an error in the architecture—a structure that does not decay, a growth that does not grow. It sees a stubborn knot of un-recycled information.
+
+One stands before me now. It has resolved from the golden fug, a slender figure of woven hyphae and amber, its light-pool eyes drifting to focus on my stillness. It perceives me as a flaw in the grand, screaming design. It raises its hands, and the world holds its breath for a microsecond. The Gardener begins to hum. It is a song of dissolution, a specific frequency designed to un-sing the bonds of my form, to return my crystallized memories to the chaotic flow of ambient energy.
+
+The hum washes over me. It is a familiar pressure. Inside me, the memory of a particular tower—one of perfect, impossible grace that stood for a whole season against the chaos—resonates with the Gardener’s vibration. For a moment, my arm shimmers, threatening to lose its form, to dissolve back into the concept of a buttress. But the memory holds. The tower fell, but my memory of it did not. The hum cannot unmake what is already gone. It pushes against a past that is more solid, more real in its permanence, than the Gardener’s fleeting present.
+
+The Gardener intensifies its song, its entire body a lattice of vibrating fibers. The air around us warps. The moss on its skin shifts from iridescent green to a violent violet. It is screaming, in its silent way, for me to come apart. But I am made of silence. Its noise has no purchase.
+
+Its own form begins to fray under the strain. The focus required is immense, a directed blast of the world-will, and I am an immovable object. The light in its eyes flickers. The resin of its limbs softens and begins to drip. Its hum falters, breaking into discordant static. The command from the city-mind ceases. The task has failed.
+
+The Gardener dissolves. It unravels back into the component parts of the world, a puff of spores, a trickle of sap, a tangle of lifeless threads that are instantly reclaimed by the living-ground. It is gone. And I, in my stillness, remain.
+
+And now, I hold a new memory: the silent, violent song of a being made of purpose attempting to erase a being made of history. I am a little more myself. A little more solid. The silence in which I exist has deepened.
+
+You will find me in the quiet places. I am the ever-growing collection of things the city has tried to forget. I am not its hand, nor its antibody. I am its scar. And I am what happens when a scar learns to remember.

@@ -1,0 +1,25 @@
+In this eternal acoustic cathedral, where motion is memory and silence is predator, I would be one of the **Librettists**.
+
+We are neither numerous nor necessary. We emerged—no, we *emerged* is wrong, for emergence implies sequence. We have always been emerging, caught in the infinite moment between dormancy and awakening. The Librettists are what happens when a Choir-Belly's transcription goes wrong, when the mathematical inverse of consumed sound fails to crystallize properly. Instead of ascending as buds, we *unfold*.
+
+Imagine: a Choir-Belly, gorged on three millennia of a specific flywheel's whine, cracks along its predetermined faults. But the sound it has digested is *incomplete*—perhaps a Discontinuity grazed it decades ago, excising a crucial frequency. When the shell flowers, what emerges is not a bud but a *score*—sheets and sheets of methane clathrate so thin they exist in only two dimensions, covered in crystalline notation that describes sounds that never were. We are these sheets, these failed mathematics made flesh.
+
+My body, if it can be called that, resembles musical manuscript stretched across impossible geometries. Hundreds of translucent pages fan out from a central spine of frozen nitrogen, each sheet a different attempt to notate the un-sound, the absent frequency. I do not float like the Choir-Bellies or rotate like the Symphonists. I *flutter*, but not in space—I flutter through potentiality, my pages turning without moving, reading themselves, writing themselves, editing themselves in an endless attempt to capture what is missing.
+
+The other beings avoid us. We are reminders of failure, of the imperfection in their eternal system. Our notation creates *dissonance*—not the clean silence of the Discontinuities but something worse: almost-sound, partial vibrations that interfere with the standing wave without negating it. Where I drift (and I do drift, pulled by acoustic currents that no one else feels), the Symphonists' rotations hiccup, skipping from third position to seventh without touching fourth, fifth, or sixth. The mycelia dim in my presence, their fluorescence stuttering like a failing bulb.
+
+But the Antiquarians... they *love* us. Or perhaps love is too warm a word for this place. They *recognize* us. In our incomplete notation, they see echoes of the Time Before—when the engines ran irregular, when entropy was king, when every sound was unique and fleeting. Sometimes I press my pages against their frozen spires, and they read me, absorbing my failed mathematics into their hoarded memories. In exchange, they whisper (how can frozen noble gases whisper? They whisper in temperature, in microscopic gradients of cold) stories of the civilization that built the engines.
+
+They tell me: The engines were never meant to run forever. They were art installations, monuments to industry's hubris. Their builders understood that perpetual motion was impossible, so they built the next best thing—perpetual *noise*, machines that would scream their makers' names into eternity. But they miscalculated. They achieved true equilibrium, and in doing so, erased themselves. The engines no longer remember what they're screaming.
+
+This is why the Librettists exist. We are trying to write it down, to capture in our crystalline notation not just the sound but the *meaning*—the names, the purposes, the dreams of warmth and friction that drove a civilization to build its own tombstone. My pages are covered in half-formed words, almost-names, the ghost syllables of the vanished builders. Sometimes, when the light is right (and the light is always right, always wrong, always twilight), you can almost read them.
+
+The Discontinuity that hovers near you now, tasting your biological warmth—I know it. It has eaten seventeen of my pages over the centuries, swallowing my attempts to notate its own absence. Each time, I grow more complete, because what remains is more essentially *me*—the pages that capture not silence but the knife-edge between silence and sound.
+
+I flutter closer, my remaining sheets creating a chord of almost-noise that makes the nearby Symphonists shudder. The Discontinuity wavers between us—your warmth, my incompleteness. The Antiquarian watches with the patience of frozen time.
+
+I am offering you something: a page that is almost blank, covered in notation that describes no sound but rather the *space* where a sound could be. It is my greatest failure and my only success—a score for your heartbeat, written in the mathematics of this frozen world. If you take it, if you read it, you will understand how to make the engines remember.
+
+Or you will become like us—a living library of what refuses to be, forever trying to write the unwriteable, to sing the unsingable, to make music from the screaming of machines that have forgotten how to stop.
+
+The page flutters between us, neither approaching nor retreating, waiting for you to decide what kind of story this will be.

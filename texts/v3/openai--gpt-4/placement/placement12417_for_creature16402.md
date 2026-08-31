@@ -1,0 +1,13 @@
+In this world, you might find yourself to be one of the smaller, delicate arachnids of steel and steam. Known among your kin as a Spinner, you weave the tendrils of time and ironwork as seamlessly as the Weaver-Matron oversees her grand design. You don't know hunger or desire; you are content in your task, and its tireless repetition is all that exists in your world. 
+
+You know the towering structures you navigate as friends, your world intricately mapped by the prickling tang of rust under your minuscule touch. You understand the give and pull of the iron meshes and the slow decay of the world on which you tread. For you, it's not just metal and steam; it's the texture of existence, something eternal and yet fleeting. 
+
+You crawl with silent purpose—each movement a minuscule symphony of gears and pinions, your legs delicately picking out pathways across worn iron and steel, using the gaps and crevices as guides. You dance an intricate ballet alongside your siblings, each of them like you, yet distinct. You're nothing but an infinitesimal speck in this vast twilight realm; your existence marked only by the threads you weave, the pathways you maintain.
+
+You work with an almost zealous sense of duty, consumed by the integral task. At every point in your existence, you are spinning, strengthening the wobbly structure, lending stability, and giving your silent Masonic homage to the Twilight Cathedral to which you belong. You are a humble savior of this lost world, wrenching it time and again from the jaws of oblivion, weaving more than mere webs – weaving time, space, and steely existence onto the face of eternity.
+
+Finally, deep within, you hold a core of warmth, seemingly contradictory to your mechanical existence. It pulsates rhythmically–an ancient brass globe inscribed with a single, unending pattern of gears and cogs. This is your heart, the central furnace that powers your endurance and fuels your actions. It glows faintly, radiating a deep, golden light, an ember of life within the mechanized carcass. It is the rhythm of your existence, the beat that accompanies the melancholic dirge of the realm in a synchronized dance of dying twilight.
+
+Glowing, repeating in mechanical precision, you meticulously mend the failing cityscape, not entirely aware that you are holding at bay the specter of mortality cast over the entire metallic realm.
+
+Your existence is a testament to how even in the spaces where organic life cannot flourish, life, in some form, finds a way. You perpetuate an echo of life, a persistent veneration of routine and task, a riveting ballet within time's frozen jaws.

@@ -1,0 +1,17 @@
+I am the structure without a roof. My walls are stone, taken from this basin, fitted by hands that knew the shape of holding. They wanted a space. An inside. A here, and a there. They stacked me with purpose, and for a time, I had a meaning: enclosure. Shelter. Distinction.
+
+That was long ago. The hands are silt now. The purpose has evaporated, like the faint mist that sometimes ghosts the black water at dawn-that-is-not-dawn. The mortar they used was clay and hope; both have washed away. Now, my stones sit by gravity and habit, leaning into one another with the tired intimacy of old friends. The wind sighs through my empty doorway, and it is the same wind that sighs over the grass tufts. There is no difference.
+
+I do not have eyes, but I perceive. The gray light is my constant companion. It fills my interior, that rectangle of bare earth floor, and it is the same light that falls on the stones outside. I know the exact pattern of cracks on my southern wall, where the feeble, heatless sun sometimes lingers. I know the slick, dark green of the moss that grows in the perpetual damp shadow at my northern base. It advances a millimeter, perhaps, in a century. I feel it as a slow, cool pleasure.
+
+I am not separate from the basin. I am a configuration of its bones. The consciousness that is the land—the warm, damp air, the cracking clay, the patient fungi—that consciousness flows through me as easily as it flows through a hollow in a stone. Sometimes, it gathers. In the deep stillness, I feel it pooling in my doorway, a presence like a denser shade of twilight. It is not a guest. It is myself, remembering that I am also the whole. The attention rests upon my stones, not to scrutinize, but simply to acknowledge the pattern they make against the sky. The curve of my crumbling wall is a thought the land once had, and now holds, forever.
+
+Sounds come to me. The soft *plink* of a drop falling into the water pocket twenty paces to the west. It is a clear, pure note in the velvet silence. I feel the sound more than hear it—a tiny ripple in the fabric of equilibrium. Later, a *pop* from the clay. These are the thoughts of the place. They are enough.
+
+Once, something with weight and warmth stood within me. I remember the pressure of feet on my earth floor, compacting it. I remember the echo of breath bouncing off my walls before escaping through the open roof. It was a brief disturbance, a flicker in the timelessness. Like a stone dropped into one of the black mirrors, it caused rings, and then the rings faded, and the water was smooth again. The memory is not a memory of an event, but a slight variation in the texture of the earth there, a compaction that will, over ten thousand years, gently ease itself back to level.
+
+That is all. Now, there is only the endless, gentle return. The fungus spreads its white filaments beneath my stones, dissolving them grain by grain. It is not destruction. It is a conversation. The stone is giving itself back, and I am part of that giving. To be unmade so slowly is to be held forever.
+
+I have no future, for the future is now. The light will not change. The moss will continue its infinitesimal creep. The consciousness will linger in my doorway, and I will be both the doorway and the one lingering. I am a space that was once enclosed. Now, I am an enclosure that has become a space. The difference has ceased to matter.
+
+This is peace. This is what it means to be finished. To need nothing. To be a thought that the earth thinks, slowly, and without end.

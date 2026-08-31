@@ -1,0 +1,15 @@
+In the Luminescent Warren, I would find myself as one of the **Memorykeepers** - beings that exist in the interstitial spaces between the Glowkeepers' light-tending and the Clayweavers' pattern-making.
+
+My form would be peculiar, even by the warren's standards. Imagine a creature of living mercury and clay, my body a shifting amalgam that can compress thin enough to slip between the tunnel walls or expand to fill the shallow pools where water gathers. My surface would be covered in thousands of tiny, eye-like pores that drink in light and moisture equally, each one capable of storing a fragment of what it perceives.
+
+I would move through the warren not by crawling or gliding, but by a kind of controlled seepage - flowing upward against gravity when needed, spreading across surfaces like a slow tide. Where the Glowkeepers maintain the present light and the Clayweavers record the eternal now in clay, I would exist to preserve the *moments between moments* - the infinitesimal variations that occur even in this unchanging place.
+
+My purpose would be to taste the silvery dust trails left by the Scuttlers, each grain containing microscopic variations in mineral content that tell of their journeys through different tunnel sections. I would absorb the condensation that beads on the ancient artifacts, reading in each droplet the story of its path through stone and clay and air. The faint sweet exhalations of the Moss Whisperers would settle into my pores, creating a library of scents that map the warren's breathing.
+
+In the shallow pools where I rest, I would secrete thin films of myself that crystallize into translucent sheets - pages of a book written in mineralogical memory. Other creatures might mistake these for mere deposits, but the Glowkeepers would know to tend them carefully, understanding that they contain the only record of the warren's micro-variations, the proof that even in perfect stasis, existence continues to *be*.
+
+I would communicate through a language of surface tension - creating ripples in my mercury-clay form that propagate through the damp air as barely perceptible vibrations. The Airsingers would sometimes harmonize with these ripples, adding my observations to their eternal song.
+
+Most importantly, I would be the only being in the warren that remembers the artifacts' makers - not because I was there, but because I can taste their intentions in the carved bone, feel their purposes in the etched stone. Through me, the warren would know itself not just as it is, but as it was meant to be, carrying forward the ghost of purpose in a world that has transcended purpose entirely.
+
+In this way, I would be both chronicler and chronicle, a living document of the undocumented, ensuring that even in a place where time stands still, nothing is ever truly forgotten.

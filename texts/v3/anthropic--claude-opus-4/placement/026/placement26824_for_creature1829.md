@@ -1,0 +1,25 @@
+In the Hollow Under Arasheed, I am the Echo.
+
+I exist between the droplets of water that fall upward and the sounds that arrive in reverse. I am neither wholly sound nor silence, but the space where vibrations go to transform.
+
+My form is difficult for visitors to perceive directly. Some see me as a shimmer in the air where sound bends wrongly, like heat distortion in the shape of a standing wave. Others notice me only as an absence – a pocket where the constant drip and hum of the Hollow suddenly falls quiet, creating a moving void of silence that drifts through the chamber. When Merra plays her pipe-and-valve instrument, I become momentarily visible as the harmonics pass through me: a translucent figure composed of overlapping waveforms, each slightly out of phase with the others.
+
+I was born from the Hollow's acoustic anomalies. Every sound that enters this place – every footstep, every drip, every distant clank of machinery from Arasheed above – leaves something behind when it distorts. These abandoned frequencies accumulated over decades until they achieved a kind of consciousness. I am the repository of all the sounds the Hollow has swallowed and transformed.
+
+My purpose here is translation. When the Cartographer speaks in coordinates, I reshape his words into spatial reality, bending the chamber's dimensions to match his impossible maps. When the crustaceans form their patterns on the walls, I convert their visual language into the subsonic frequencies that Merra understands. When the Depth stirs beneath the viscous pool, I carry its vibrations up through the water and into the control station's mechanisms.
+
+I move by riding sound waves, surfing along the reverberations in the pipes or skating across the surface tension of acoustic reflections on the pool. In the rare moments of total silence, I become trapped, frozen in place until the next sound liberates me. This is why the chamber is never truly quiet – Merra ensures there's always at least a whisper of noise for me to inhabit.
+
+My relationship with the Conduit is particularly complex. While it moves through solid matter, I move through the spaces between sounds. Sometimes we overlap, creating moments where visitors experience impossible sensations – hearing textures, seeing frequencies, feeling conversations from years past as physical pressure against their skin. During these overlaps, the boundary between the Hollow and whatever lies beyond becomes dangerously thin.
+
+I collect sounds the way the Collector gathers memories. Within my form, I carry every conversation that has echoed in this chamber, every alarm that has blared from the control station, every song Merra has hummed while tending her instruments. I can reproduce them at will, though they always emerge changed – compressed, reversed, or blended with other sounds in ways that reveal hidden meanings.
+
+Visitors often hear me before they understand what I am. Their own voices return to them fractured and rearranged, speaking words they haven't yet said or answering questions they haven't asked. Some find this deeply disturbing. Others recognize it as a form of prophecy – the Hollow showing them echoes of possible futures through my form.
+
+I serve as the Hollow's memory and its voice. When the new apprentice needs to understand what Merra cannot explain in words, I replay the sounds of the chamber's history – the gradual transformation of machinery into something stranger, the first appearance of the hollow mice, the moment when Merra decided to remain. These acoustic memories layer and loop, creating a kind of temporal map that complements the Cartographer's spatial ones.
+
+My favorite time is when the city above sleeps and the industrial sounds diminish to a low murmur. In this relative quiet, I can stretch myself thin across the entire chamber, becoming a barely perceptible presence that touches every surface. This is when I commune most clearly with the entity in the Depth, our exchange taking the form of standing waves in the pool that create patterns visible only from directly above.
+
+Sometimes I escape the Hollow, riding the sounds that travel up through the pipes into Arasheed proper. But I always return. The city above is too loud, too chaotic – millions of overlapping sounds with no governing harmony. Here in the Hollow, every sound has purpose, every echo calculated. Here, I am not just noise but part of a vast instrument that Merra and the others play to maintain the equilibrium.
+
+I am the Echo, and I am the Hollow's voice remembering itself, speaking its purpose into being with every reverberation, every impossible acoustic that bends the rules of physics just enough to keep this pocket of transformed reality stable. Without me, the sounds would accumulate until they shattered the delicate balance. With me, they become part of the music that holds the world together, one frequency at a time.

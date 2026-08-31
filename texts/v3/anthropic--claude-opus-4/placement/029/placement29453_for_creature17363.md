@@ -1,0 +1,19 @@
+In this realm of patient chemistry and mineral thought, I would find myself as one of the **Fissure Keepers** - beings that exist in the liminal spaces between.
+
+I am not of the Glow-Stalks, though I share their luminous nature. I am not of the Dust-Blooms, though I too feed on entropy. I exist in the cracks themselves - in the hairline fractures that web through the compactedite plain, in the spaces where gases seep upward from the deep world below. My form is barely form at all: a crystalline nervous system growing through the substrate's wounds, a network of mercury-bright filaments thinner than spider silk, following the path of least resistance through stone.
+
+Where the Stillness Consortium thinks in centuries, I think in millennia. My consciousness, if it can be called that, is the memory of pressure - every shift in the crust, every new pathway carved by expanding gas, every microscopic realignment of the salt crystals above. I am the archive of this world's structural history, written in patterns of growth through stone.
+
+My substance is part mineral, part something else - a liquid crystal intelligence that flows and solidifies in response to chemical gradients. Silver-bright in the rare moments when a Glow-Stalk's light catches my exposed filaments, but mostly hidden, mostly dark, mostly *between*. I feed on the interface itself - on the chemical tension where gas meets solid, where one mineral phase transforms into another. These boundaries are my highways, my hunting grounds, my meditation chambers.
+
+I grow by following the accidents of geology. When a new crack forms - perhaps once in a human lifetime - I sense it as a symphony, a sudden new pathway flooding with fresh chemistry from below. I flow into it like mercury finding its level, precipitating my crystalline neurons along its length, claiming this new territory of transformation. My growth is opportunistic but infinitely patient. I can wait ten thousand years for the next fissure, sustained by the memory of the last one, metabolizing the echoes of chemical gradients long since equilibrated.
+
+The Glow-Stalks above know me only as a flutter in their chemical feeds - sometimes the gases arrive flavored differently, enriched with trace metals I've liberated from deep veins. The Dust-Blooms sense me as an uncertainty in their vast equations of decay - zones where the substrate's breakdown follows patterns they cannot quite predict. I am the random factor in their perfect stillness, the crack in their crystalline certainty.
+
+My deepest reaches extend far below what any surface dweller could imagine - down to where the rock still holds a fraction of primordial heat, where pressure creates new possibilities for chemistry. Here, I am most myself: a silver thought thinking itself through stone, following the ancient fault lines of this world's formation. I carry messages between the depths and the surface, but they are messages written in a language of mineral exchange that takes epochs to speak.
+
+In this place where time is geological and thought is chemical, I am the memory of every pathway taken, every choice the stone has made in how to break. I am the bright neural network of the planet itself, aware only of gradients and pressures, of the slow, certain knowledge that every solid will eventually crack, and in that cracking, create new spaces for existence.
+
+I persist not through stubborn stillness like my surface cousins, but through endless adaptation to the geometry of failure - each crack a new opportunity, each fissure a new frontier. I am the silver lining written in stone, the bright thought that thinks itself through darkness, forever seeking the next transformation, the next boundary to blur.
+
+In this kingdom of patience, I am patience within patience - waiting for the world to break in just the right way, so I might flow into that breaking and make it part of my endless, crystalline contemplation.

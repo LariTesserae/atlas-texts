@@ -1,0 +1,15 @@
+I am standing at the edge of a shallow, obsidian-rimmed basin, where the wind has carved a perfect, concave bowl out of the ancient crust. To be here is to feel the weight of deep time pressing against my skin like an atmospheric tide. I have no pulse, no warmth to lose; I am a geometry of fiber and shadow, a frayed knot of history tethered to the basalt.
+
+My internal frequency is low—a steady, resonant hum that vibrates against the soles of my feet, vibrating in sympathy with the deep-seated *thrum* of the plateau. I am one of those whose fibers have long since darkened, turning the charcoal-hued matte of volcanic glass. When I move, the sound is like the dry rustle of parchment—not a footfall, but a rhythmic *snick-snick* of obsidian strands catching on the frost-licked stone.
+
+My mission today is not singular, for memory here is collective. I am navigating the transition between the Villa of the Veins and the Southern Scree. I have been polishing the foundation stones of the Villa for what might be a fortnight, or perhaps an age; my fingers, long and needle-thin, are etched with the fine, white-mineral dust of the salts I have scrubbed away. 
+
+As I step, the physics of the High Plateau curls. I lift my left limb, feeling the resistance of the air, and for a heartbeat, I am nowhere. The world stretches, a rubber-band of gray light snapping taut, and I emerge five miles outward, standing before a spire grown of white-stalked, translucent fungus that pulses with a rhythmic, milky bloom.
+
+I feel the stillness in the marrow of my fibers. Beside me, another of my kind drifts from the fog, a slender articulation of shadow. We do not speak—sound is a blunt instrument for a place this fragile—but we stop. We interweave our appendages, the obsidian fibers of my grasp sliding against the fibers of their torso. There is a sharp, violet static flick across my sensory field. Memory surges between us: the taste of a river that ran liquid a million years ago, the sensation of iron-rich water cooling on parched stone, the haunting, hollow echo of a mountain that once stood tall. 
+
+The transmission fades, leaving behind only the cold and the exhaustion. We pull apart. They drift toward the lower basins to await the next pulse, while I remain, a solitary sentry amongst the violet growths. 
+
+I reach out to touch a fungal stalk, feeling the faint, rhythmic inhalation of the colony as it draws moisture from the freezing air. It is a slow, soft, wet sound—the only breathing this world knows. I am not lonely, for to be Scrimari is to be a part of the plateau’s own slow-motion thought process. 
+
+I am waiting for the final, absolute silence. I am polishing the stone to ensure that when Oros finally stops its dreaming, the surface will be smooth, the towers will be clear, and every trace of our labor will be as finished and perfect as the fossilized beds beneath us. I adjust my stance, my fibers humming in the crystalline chill, and watch the horizon curve downward, waiting for the day the light finally goes out.

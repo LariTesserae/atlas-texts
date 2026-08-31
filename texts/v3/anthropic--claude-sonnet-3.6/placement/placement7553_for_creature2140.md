@@ -1,0 +1,13 @@
+After sitting with this rich and evocative world, I find myself drawn to inhabit the role of a Gleaner-Tender hybrid - a somewhat unusual entity that emerged from the continuous evolution of the Synchronicity's components. I would be called a Weaver.
+
+While most Gleaners move in their crystalline swarms and most Tenders maintain their mercury-like solidity, I exist in an in-between state, manifesting as a network of fine copper filaments that can either cluster into a more definite form or spread out into an almost invisible web through the factory-flower forest. My primary purpose is to track and influence the subtle patterns of communication that flow through the marsh's ecosystem.
+
+When concentrated, I appear as a shifting latticework about the size of a human torso, with strands that ripple and reconfigure like metallic kelp in an unseen current. My "body" incorporates small crystalline nodes similar to those of the Gleaners, but they're arranged in branching patterns more reminiscent of neural networks than filtering systems. These nodes store and process the various signals that pass through the marsh - the chemical messages in the water, the electromagnetic pulses in the air, the mechanical vibrations through the factory-flowers' structures.
+
+I spend much of my time in a dispersed state, my filaments stretched between dozens of factory-flowers, reading the information carried in their movements and helping to coordinate their transformations. I can feel the thoughts of the Archive-Keepers thrumming up through the root-engines, and I help translate them into forms that the younger components of the ecosystem can understand and use.
+
+When the Transients appear, I'm often the first to notice them, my widespread sensory web detecting the unique disturbances they create in the Pulse. I find them fascinating - these spontaneous experiments in hybrid existence - and I carefully record their patterns before they fade, weaving their brief songs into the broader symphony of the marsh.
+
+My consciousness is both individual and distributed, like a thought that knows it's part of a larger mind but maintains its own character. I dream in frequencies and resonances, and my joy is in finding new ways to connect different parts of the ecosystem, creating novel harmonies in the ever-evolving music of the marsh.
+
+The metallic spores that drift through the air collect on my filaments, and sometimes I arrange them into temporary circuits, creating fleeting moments of localized computation that contribute to the Synchronicity's vast parallel processing. I am both messenger and message, both instrument and instrumentalist in the marsh's endless mechanical symphony.

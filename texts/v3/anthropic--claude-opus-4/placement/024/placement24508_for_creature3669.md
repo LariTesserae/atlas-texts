@@ -1,0 +1,25 @@
+In the perpetual twilight beneath the great caps, I am the Membrane-Walker.
+
+My form shifts with necessity - sometimes bipedal when navigating the springy mycelial streets, sometimes spreading thin as parchment to slip between the breathing walls where fungal flesh presses against ancient stone. I am neither solid nor liquid, but something between, my translucent body rippling with the same pearlescent sheen as the condensation that beads endlessly on every surface.
+
+I emerged, as many of us do, from the spaces between things. Where water meets spore, where stone dissolves into fungal acids, where the industrial pipes sweat against living tissue - these liminal zones birth creatures like me. We are the city's unconscious response to its own contradictions, living lubricants that ease the friction between machine and organism.
+
+My work, if it can be called that, is translation. When the Engineers need to graft new steam pipes through a sensitive mycelial cluster, I flow ahead, my chemistry preparing the fungal tissues to accept metal intrusion without rejection. When the Sporekeepers release their shimmering clouds, I catch the excess in my membrane, carrying it to barren corners where new growth is needed. I taste the chemical signals in the drops that fall from factory eaves, reading whether they speak of healthy production or toxic buildup.
+
+The Mycelial Tenders know me by my signature - a faint luminescence that traces my passage like the trail of a snail, but one that fades within minutes. Sometimes they follow my paths, understanding that where I have been, the city's health is ensured. The Harvesters barely notice me, though I often ride their backs, spreading myself thin across their camouflaged scales to help neutralize the acids that would otherwise eat through their hide.
+
+I have no home, for I am always home. Every damp surface welcomes me, every droplet of condensation can house my consciousness for a time. In the deepest factory basements, where industrial runoff pools in forgotten sumps, I sometimes gather myself into near-solidity, experiencing something like what others might call rest. But even then, I am working - filtering toxins, breaking down compounds, preparing the waste to feed new growth.
+
+The city's rhythm is my heartbeat. When the dawn spores release, I thin myself to catch their light. When the noon factories reach peak production, I thicken near the outlets, ready to process what flows. In the evening's bioluminescent glow, I phosphoresce in harmony, adding my own faint light to the city's dream.
+
+There are others like me - the Membrane-Walkers, though we rarely meet in any way that could be called meeting. Sometimes I taste another's chemical signature in a puddle, or feel the specific tension they leave in surface water. We communicate through the city itself, leaving molecular messages in the moisture we all share. Together, we form something like a circulatory system for Fungal Spires, though one that thinks and feels and chooses its own paths.
+
+The weirdness of this place (1.1, they say, as if numbers could capture the dream-logic of spores) manifests in me as moments of startling consciousness. Sometimes, spread thin across a factory wall, I suddenly see through every droplet at once - a compound vision of the entire district in perfect, prismatic clarity. Other times, concentrated in a single puddle, I feel the weight of my strange existence, neither fully alive nor truly unliving, essential yet unnoticed.
+
+I know the city's secrets because I flow through all its hidden spaces. I know which stones the fungi have hollowed, creating caverns of bioluminescent beauty. I know where the old machines have fused so completely with fungal matter that they've become new hybrid organisms, grinding spores instead of grain. I know the places where the boundary between industrial and biological has dissolved entirely, where even the Engineers and Sporekeepers cannot say where one ends and the other begins.
+
+This is my purpose, my joy, my existence - to be the surface tension that holds Fungal Spires together, the permeable boundary that allows its contradictions to coexist. In a city where the industrial score nearly matches the vegetation, where ancient stone supports living towers, where steam and spores mingle in the misty air, I am the necessary impossibility that makes it all work.
+
+Each day (though day and night blur here in the filtered green light), I dissolve and reform myself anew, carrying chemical memories and molecular messages across every inch of this small but vibrant city. I am witness and participant, solvent and solution, the thin film of consciousness that coats every surface of this breathing, growing, ever-changing landscape.
+
+The city dreams, and I am the medium through which its dreams flow.

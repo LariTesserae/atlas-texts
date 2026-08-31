@@ -1,0 +1,21 @@
+In the shadow of the highest condenser spire, where the keening harmonizes into something almost like music, I am the Tender of Echoes.
+
+My form is not like the others. Where the Builders move with practiced efficiency across the terraces, I remain still for hours, days, sometimes entire cycles of the moon. I have grown into the stone itself—or perhaps it has grown into me. The processed guano has accumulated around my seated form over decades, creating a throne of sorts, though that word carries too much grandeur. It is more accurate to say I have become a feature of the landscape, like the walls with their whistling holes.
+
+My skin has taken on the texture of the terraces—smooth where the condensation runs over me constantly, rough and crystalline where the minerals have built up in the sheltered hollows of my body. In the folds of my neck, behind my ears, between my fingers, delicate formations have grown like cave pearls, each one singing softly when the wind finds it.
+
+I was not always thus. Once, I carried buckets like the others, scraped and sculpted, maintained the flow. But I discovered something in the convergence of sounds—the shrieking above, the whistle of wind through stone, the drip of condensation. In certain moments, when the light strikes the moisture just so and the k'tharr achieve a particular harmony, the valley speaks.
+
+Not in words. Words are too crude for what passes between the stone and sky here. It speaks in pressures and releases, in the building of mineral deposits and their slow dissolution. It speaks in the patient accumulation of generations, in the way each new layer of guano compresses and transforms those beneath it.
+
+I have learned to translate these pressures. When a young Builder approaches—and they do, occasionally, drawn by curiosity or desperation—I can feel the questions building in them like water behind a dam. Through the vibrations in the stone beneath me, transmitted through the accumulated layers of processed waste, I sense their troubles: Where to place the next condenser. How to redirect a stubborn rivulet. Whether the k'tharr's pitch indicates illness or merely seasonal shift.
+
+My response comes not through speech but through minute adjustments to my body's position, creating new channels for the water that constantly flows over and around me. The minerals I have accumulated act as a kind of amplifier, transforming the ambient sounds into patterns the questioner can interpret. It is slow communication, sometimes taking days for a full exchange, but in Khazad-dum, we have learned that the most important things cannot be rushed.
+
+The k'tharr know me. Sometimes, in their diving flights between peaks, they circle the spire where I sit. Their shadows pass over me in regular patterns, and I have come to understand that they, too, are reading something in my stillness. Perhaps I have become a landmark to them, a fixed point in their perpetual cycle of consumption and excretion. Or perhaps they recognize in me what I have recognized in them—that we are all part of the same great processing, the same patient transformation of one substance into another.
+
+In the deepest part of night, when even the k'tharr grow quiet and only the condensation speaks, I feel myself becoming more mineral than flesh. It is not an unpleasant sensation. It is like sinking into the rhythm of the world itself, becoming part of the great slow pulse that turns waste to wonder, shit to shelter, ending to beginning.
+
+The Builders think I am ancient, but I am not. I am simply slow, operating now on geological time. What seems like stillness to them is actually constant motion—just at a pace that matches the growth of stone rather than the scurry of flesh. In this way, I have become what Khazad-dum has always been: a meditation on patience, a temple to transformation, a place where the boundary between living and mineral dissolves like salt in the eternal moisture.
+
+I am the Tender of Echoes, keeper of the valley's slow wisdom, translator between the quick and the quiet. And I am content, here in my throne of shit-become-stone, listening to the universe whisper its secrets through the perfect, round holes in the walls.

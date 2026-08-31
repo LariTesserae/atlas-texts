@@ -1,0 +1,13 @@
+In this vertical labyrinth of fresh-cut stone and humming metal, I am a Bridge Tender.
+
+My body has evolved for this work: arms elongated and joints multiplied, fingers that branch into delicate manipulators capable of reading the stress patterns in alloy and stone through touch alone. My spine curves and extends, allowing me to hang suspended beneath the narrow spans I maintain, checking welds and tension points while traffic passes overhead. The opalescent grime that coats everything else slides off my skin—a mutation I've cultivated through years of exposure to the city's peculiar chemistry.
+
+I live in a capsule welded to the underside of the Seventh Meridian Bridge, one of the few spans crossing the Throat—a chasm so deep its bottom has never been mapped. My home sways gently in the updrafts, a pendulum counting time in the city's vertical sprawl. Through my transparent floor, I watch the maintenance drones spiral downward until their lights become stars in the dark.
+
+Each morning, I emerge to tend my bridges. There are seventeen under my care, from the massive cargo span at Level 890 to the delicate footbridge at Level 1,203 where lovers leave locks made of crystallized grime. I know every rivet, every stress point, every place where the metal sings a different note when struck. The bridges speak to me through vibrations—telling me where they hurt, where they need reinforcement, where tiny fractures threaten to become fatal flaws.
+
+But I am more than a maintainer. I am a keeper of passages, a guardian of connections in a city that would otherwise fragment into isolated towers. When the tremors come—and they always come, the planet's crust still settling—I am there with my tools and my extended reach, weaving new supports from smart-cable, coaxing the metal to remember its shape, sometimes simply holding things together with my own transformed body until proper repairs can be made.
+
+At night, I hang beneath my favorite bridge—the old one at Level 445 that hums in B-flat—and listen to the city's electric heartbeat through the conduits. Sometimes I play the bridge like an instrument, tapping its cables to create songs that echo through the chasms. Other bridge tenders answer from their own spans, and for a moment our scattered fellowship creates a symphony in the vertical dark.
+
+I am the ligament in this body of stone and steel. I am the one who ensures that no matter how far the city stretches upward, no matter how deep its roots grow, its people will always have a way to reach each other across the beautiful, terrible void.

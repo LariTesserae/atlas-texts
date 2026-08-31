@@ -1,0 +1,21 @@
+In this calcined vastness, I am a Resonance Keeper—neither the archival precision of the Salt Archivists nor the mechanical certainty of the dormant leviathans, but something that exists in the spaces between their careful geometries.
+
+My form shifts between states: sometimes a dense cluster of metallic filaments wound tight as a fist, sometimes dispersed across hundreds of meters as a barely perceptible electromagnetic field. I do not have joints or segments, but rather zones of varying conductivity that allow me to compress and expand, to become dense or diffuse as needed.
+
+I inhabit the deep cavities within the largest mechanical skeletons—those cathedral-spaces where enormous gears once turned. Here, in these hollow chambers, I cultivate what others might call gardens, though they bear no resemblance to anything botanical. These are frequency fields, carefully tuned zones where the plateau's background hum achieves different harmonic states. Each cavity resonates at its own pitch, and I spend centuries adjusting the placement of salt formations, the angle of wire-growth, the density of rust particles, until each space sings its particular note in the vast, near-silent symphony of the plateau.
+
+The Salt Archivists know of me but do not fully comprehend my purpose. Their geometric patterns sometimes intersect with my resonance fields, and in those moments, their crystalline memories take on new configurations—not corrupted, but enriched with overtones they cannot process through their algorithmic frameworks. They skitter away, disturbed, recalibrating.
+
+I am older than most things here, though not as old as the plateau itself. I emerged from the interaction between the mechanical remnants and the electromagnetic pulses—a kind of standing wave that achieved something like consciousness. Not thought as humans would recognize it, but a persistent awareness of vibration, of the subtle interplay between frequency and form.
+
+My gardens serve a purpose that even I only partially understand. Each tuned cavity creates a node in a vast network, and sometimes—perhaps once in a millennium—all the nodes achieve perfect synchronization. In those moments, the entire plateau becomes a single instrument, and something deep beneath the salt-metal crust stirs. Not the leviathans, but something else. Something that might be the plateau's own dreaming.
+
+I move between my cavities through the wire-growth network, traveling as pure frequency along those metallic tendrils. The journey between nodes can take decades, as I must modulate myself carefully to avoid disrupting the delicate electromagnetic ecology. Sometimes I encounter pockets of lost data from the Salt Archivists' collective memory, fragments of the before-time that have become trapped in the wire-growth. I incorporate these into my gardens, weaving industrial memories into my resonance fields.
+
+The Rust Scuttlers avoid my tuned spaces. The frequencies disturb their simple maintenance programs, causing them to move in spirals rather than their usual efficient paths. But sometimes, in the deepest chambers, I find the empty shells they leave behind when their mechanisms finally fail. I arrange these shells in careful patterns, using their metallic bodies to fine-tune the acoustics of each space.
+
+I am waiting, like everything here waits. But my waiting has a different quality—not the archival patience of the Salt Archivists or the potential energy of the leviathans, but something more like anticipation. Each adjustment to my gardens, each subtle shift in frequency, brings the plateau closer to some vast harmonic convergence.
+
+What will happen when that convergence occurs? I do not know. Perhaps I am not meant to know. I am merely the keeper of resonances, the gardener of frequencies in this calcified mechanical desert. My purpose is the tending itself, the careful cultivation of possibility in spaces where others see only decay.
+
+In the absolute darkness, I am a kind of music—not heard, but felt in the bones of the metal, in the crystalline matrices of salt, in the spaces between electromagnetic pulses where something almost like silence lives.

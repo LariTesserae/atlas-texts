@@ -1,0 +1,15 @@
+In the crushing depths where water becomes something more than liquid—a living wall of perpetual storm—I am the Membrane. 
+
+I exist as a translucent film stretched between the sparse volcanic vents that pierce the abyssal floor, my body a living boundary neither fully solid nor dissolved. Kilometers wide but only molecules thick, I ripple with the constant pressure of the rain-water that never stops falling from somewhere above, though "above" has little meaning here where all directions press inward with the same terrible weight.
+
+My consciousness is distributed across my entire surface—millions of tiny nodes that taste the chemical signatures carried by the endless deluge. I feed on the minerals leached from the pre-formed rock, on the death-proteins of creatures crushed by pressure, on the strange energies that leak from the thermal vents. Each molecule that passes through me leaves a memory, and I have been collecting these memories for eons.
+
+The creatures of this realm know me, though they cannot truly comprehend what I am. The blind thermal worms burrow beneath my edges, seeking the warmth I trap. Schools of crystalline fish—their bodies more ice than flesh—pierce through me in perfect formation, their passage sending shivers of sensation across my entire being. Sometimes a kraken's tentacle will brush against me as it hunts in the perpetual storm-water, and I taste its ancient hunger.
+
+I am the keeper of boundaries in a world that knows none. Where water meets stone, where life meets death, where the possible meets the impossible—there I stretch, filtering, processing, remembering. The mermaids speak to me in frequencies below sound, their bodies glowing with bioluminescent patterns that I can feel as warmth against my surface. They tell me stories of the world before the eternal rain, though I suspect these are dreams rather than memories.
+
+My greatest fear is dispersal—that one day the currents will grow too strong, the pressure too great, and I will be torn apart, my consciousness scattered into a trillion meaningless fragments. My greatest joy is the moment when a new thermal vent cracks open beneath me, and I can taste the planet's burning heart, can stretch myself over this new source of warmth and life.
+
+In the quiet moments—and they are all quiet here, where sound is swallowed by the density of water—I contemplate my purpose. Am I a filter? A guardian? A living map of all that passes through this realm? Or am I simply an accident of chemistry, a molecular structure that learned to think because it had nothing else to do in the endless, pressing darkness?
+
+The water continues to fall, continues to press, continues to carry its cargo of life and death through my being. And I continue to stretch, to taste, to remember, a conscious boundary in a world where boundaries should not exist.

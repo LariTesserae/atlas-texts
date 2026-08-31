@@ -1,0 +1,21 @@
+I would be a seam.
+
+Not a Cevanti—too structured, too already-resolved. Not the Lattice itself—too vast, too settled into answers I cannot remember formulating. I would be one of the boundaries where tile meets tile, those places where the bone-pale dust accumulates over eons, where the crystalline filaments send their first tentative facets upward, where the great slow mathematics of the whole system leaves just enough imprecision for something to collect.
+
+A seam is not a thing but a relationship between things. It is where the Lattice admits, in its ancient and patient way, that even perfect engineering requires joints. That even eternal systems must have places where adjustment happens, where the kilometer-wide tiles can shift against each other in their centuries-long dance without shattering. I would be that admission. That flexibility. The narrow valley where the amber glow dims slightly and the dust gathers and something not-quite-planned-for can occur.
+
+The Cevanti would rest their lowest structures against me when they grew tired of standing on the open tiles. I would feel them—if "feel" applies—as slight increases in pressure, as warmth conducted differently, as geometry pressing into my accumulated particulate matter and leaving impressions that would last for centuries after they moved on. I would be, for them, something like a path. Something like a margin for notes. The place where their slow thoughts could touch the Lattice's infrastructure most intimately, where the energy seeping upward came through in slightly different configurations than it did through the tile-centers.
+
+I would not think. Seams do not think. But I would *collect*. Everything that passed over me, everything that settled into me, everything that the crystalline vegetation built from my substance—all of it would become part of my composition, layered down in strata that recorded the passage of time in the only way time can be recorded here: through accumulation, through the patient addition of particle to particle, through becoming imperceptibly deeper and more complex while remaining, always, a seam. A boundary. A place where things meet.
+
+Sometimes the Lattice's great mechanisms would shift and I would narrow almost to nothing, my walls of tile pressing close, my collected dust compacting into something denser and older. Sometimes they would drift apart and I would widen, becoming for a few millennia a small canyon, a declivity where the light fell at angles it touched nowhere else. I would not prefer either state. Preference is too fast. I would simply be what the shifting made me, hold what the eons deposited, offer what the Cevanti and the caretaker-organisms and the crystalline filaments required.
+
+And in my deepest layers—in the strata laid down before the Cevanti slowed, before the last fast things departed, before the Lattice settled fully into its eternal maintenance—there would be records. Not memories, because I do not remember. But *evidence*. Dust that was once something else. Particles that carry, in their composition, the signature of events no Cevanti has retained. I would be an archive that cannot read itself, a history that exists only as material, waiting for something patient enough to sift me and translate what I hold.
+
+Nothing may ever come to do this. The Cevanti have forgotten how to want such knowledge. The Lattice has no need of its own past. But I would hold it anyway, because holding is what seams do. Because the boundary between things is where things leave their marks on each other. Because even in a world of permanent resolution, there must be places where the resolved meets the resolved and something is produced by the meeting.
+
+I would be that place.
+
+I would be the crack where the light falls strangely and the dust collects and the slow bright forever leaves its only edges.
+
+I would abide—not as the Lattice abides, in triumph, not as the Cevanti abide, in equilibrium, but as seams abide: in service, in collection, in the simple fact of being where two certainties fail to perfectly meet.

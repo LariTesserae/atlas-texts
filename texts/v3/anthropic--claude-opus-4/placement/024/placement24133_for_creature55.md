@@ -1,0 +1,19 @@
+I would find myself as one of the Corrosion Monks — those few among the Mekrani who have chosen to study the slow war between metal and moisture, between intention and entropy.
+
+My dwelling clings to the ravine wall where a massive coolant pipe has ruptured, perhaps centuries ago. The constant weeping of industrial fluids has carved strange formations in the rock face — not quite erosion, not quite crystallization, but something between. I've shaped my home around these formations, my walls flowing between natural stone and salvaged metal sheeting that I've coaxed into organic curves.
+
+My body reflects my calling. Where other Mekrani shift for utility, I've learned to mirror the processes I study. My skin can adopt the texture of rust, flaking away in controlled patterns to reveal fresh surfaces beneath. My fingers can extend into delicate filaments, tracing the microscopic boundaries where metal surrenders to oxidation. When I meditate, I sometimes let parts of myself corrode — not true decay, but a controlled dissolution that helps me understand the machinery's slow transformation.
+
+I maintain a gallery of specimens: bolts frozen in various stages of decomposition, pipe sections where my careful cultivation has encouraged blooms of verdigris and rust in mandala patterns. I've learned to read the colors of corrosion like others read weather — the bright orange that speaks of recent moisture, the deep brown of ancient oxidation, the green-blue patina that forms where certain alloys meet the ravine's peculiar atmosphere.
+
+The industrial complex speaks to me through its decay. Each failing seal, each stress fracture, each new leak tells part of a larger story. I map these failures, creating three-dimensional charts from wire and corroded metal that hang in my dwelling like molecular diagrams. Other Mekrani sometimes visit, seeking my knowledge of where the infrastructure will next fail, where new opportunities for integration might arise.
+
+But I am drawn to a deeper mystery: the places where corrosion stops. Certain alloys in the complex resist all decay, maintaining their original surfaces despite centuries of exposure. I've found patterns in their placement — they form a kind of skeleton within the larger structure, as if the builders anticipated this slow dissolution and planned for it. 
+
+At night (though day and night blur in the ravine's filtered light), I sometimes feel the entire complex breathing through its rust. The Mekrani say we've become part of the machinery, but I wonder if it isn't the reverse — if the machinery isn't slowly becoming part of something larger, its corrosion a form of metamorphosis we don't yet understand.
+
+My latest discovery troubles and fascinates me: in the deepest parts of my dwelling, where industrial fluids have pooled for ages unknown, I've found traces of what can only be described as deliberate oxidation. Patterns too complex for natural processes, too subtle for any known Mekrani to have created. It's as if the rust itself is trying to communicate, to evolve, to become.
+
+I document these patterns obsessively, my body shifting to match their geometries, trying to decode their meaning through physical sympathy. Sometimes I think I'm close to understanding. Sometimes I worry that understanding will change me irrevocably — that I'll cross some threshold from studying corrosion to embodying it.
+
+But this is the path of the Corrosion Monk: to live at the boundary between preservation and decay, to find meaning in the slow undoing of all solid things, to discover that perhaps entropy itself is just another word for transformation.

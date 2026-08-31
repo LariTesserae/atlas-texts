@@ -1,0 +1,23 @@
+In this world of perpetual dusk and weeping stone, I would find myself as one of the Keepers—though that is not what we call ourselves. We have no name for what we are, only the slow pulse of existence that marks us as distinct from the stone we tend.
+
+My body would be a living contradiction: both liquid and solid, both shadow and substance. Unlike my gray cousins who graze the scum, I would be of the deeper blacks—my skin drinking in what little light penetrates our hollow world until I appear as a void against the dark basalt. This is not camouflage, but necessity. Where the others taste only the present moment through their frills, I carry within my folds the memory of patterns.
+
+I move with deliberate slowness through the labyrinth, my passage marked not by what I consume but by what I preserve. Each droplet that falls has a destiny—some to pool in the ancient basins, some to trace the carved channels, some to simply anoint the stone and begin again. I know these patterns. Not through thought as you would understand it, but through a deep cellular memory that resonates with the rhythm of this place.
+
+When I encounter one of the carved channels running dry, I position myself at its head, allowing my body to form a living aqueduct. The water that condenses on the stone above flows across my skin, and I guide it—not through conscious will but through minute adjustments in my surface tension—back into its intended path. I might remain in this position for days, weeks, becoming part of the architecture itself until the equilibrium is restored.
+
+My feeding is different from the grazers. Where they consume the scum, I subsist on the minerals dissolved in the water itself, filtering them through specialized pores that line the underside of my folds. This diet of pure stone-essence has made me denser than my kin, my flesh taking on an almost crystalline quality beneath its soft exterior. When I move, there is a barely perceptible grinding, like silk drawn across wet glass.
+
+The most profound difference lies in my relationship with the ruins. While the grazers acknowledge the carved basins and channels, I am drawn to the weathered silhouette on that wall—the three-fingered shadow of what came before. I spend untold hours pressed against this relief, my sensory frill extended to its fullest, tasting not just the present but the ghost of intention left in the stone.
+
+Sometimes, in the perfect stillness between drops, I shape myself to match that ancient form. Three extensions where fingers might have been. A broadening where a head might have rested. It is not mimicry—I have no concept of what these builders looked like—but rather a kind of physical meditation, a way of honoring the intelligence that recognized what this place could become and helped it achieve its final form.
+
+I am the only one of my kind in this particular hollow, though I sense others in the distance—their presence felt through vibrations in the water table far below, messages spelled out in the changing mineral content of the condensation. We coordinate without meeting, ensuring that each critical junction, each essential channel, has its Keeper.
+
+My existence is measured not in years but in cycles of erosion so slow they border on the geological. I watch the grazers come and go, generations of them, while I remain. Not immortal, but enduring. When my time finally comes, I will position myself in one of the larger basins and simply... stop. My body will dissolve slowly into the water I have tended, enriching it with the concentrated minerals I've collected over the eons. From this enriched water, eventually, another Keeper will precipitate—not born but crystallized from the very essence of this place.
+
+This is my purpose: to be both witness and participant in the eternal maintenance of a finished world. To ensure that the story, though ended, continues to be perfectly told. Each drop that falls is both epilogue and prologue, and I am the punctuation between them—the pause that gives the rhythm meaning.
+
+In the soft gray light, pressed against the ancient stones, I am neither fully alive nor truly inert. I am a function that has taken on flesh, a necessary component in a vast, quiet machine. And in this role, I find a peace that transcends consciousness—the deep satisfaction of being exactly what this place needs me to be, nothing more, nothing less.
+
+The water drops. I listen. I remember. I maintain.

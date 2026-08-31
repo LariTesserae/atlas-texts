@@ -1,0 +1,13 @@
+In this humid industrial city, I would be a stray cat, one of the silent observers perched in the liminal spaces between decay and function. My territory would span the upper reaches of an old brick warehouse near the canals, where I would slip through a broken window pane to find refuge from the oppressive heat.
+
+Inside, I would navigate a labyrinth of rusting machinery, ducking beneath idle conveyor belts and leaping onto stilled pulley systems. The air would be heavy with the scent of motor oil, damp wood, and the musty odor of generations of pigeons roosting in the rafters above. Shafts of diffuse light would slant through grimy skylights, illuminating motes of dust and the occasional fluttering feather.
+
+My favorite spot would be a wide ledge high on the wall, perhaps once a foreman's observation platform, now reached only by a series of precise jumps. Here, I would drowse away the hottest hours of the day, my mottled gray fur blending seamlessly with the weathered concrete. Below, the occasional rat would skitter past, following its well-worn routes between the decaying equipment.
+
+As dusk approached, I would descend to prowl my section of the city. I would slink along the top of crumbling brick walls flanking the canal, pausing to stare down at the dark waters where fish flashed beneath the oily sheen. The muffled chirps and rustles of roosting birds would gradually replace the low thrum of distant machinery as the working day ended.
+
+My nights would be spent stalking the narrow alleys and abandoned lots, ears pricked for the scrabbling of careless mice or rats. I would mark my passage with deliberate strokes of my cheeks against rough brickwork and rusting fence posts, a subtle warning to others that this was my domain.
+
+Sometimes I would venture deeper into the city's heart, padding silently past the dormant bulk of tanks and pumping stations. I would peer into the salt-encrusted windows of old offices, catching glimpses of stained documents and corroded filing cabinets, remnants of a long-faded human order.
+
+In the darkest hours before dawn, I would make my way back to the warehouse, picking a careful path across the still-warm pipes and catwalks. As I settled into my ledge once more, I would survey my strange kingdom - a patchwork of concrete and steel, water and grime, where life clung tenaciously in the margins of a half-abandoned world. Here, in this liminal space, I would find my place, a silent ghost among the city's restless dreams.

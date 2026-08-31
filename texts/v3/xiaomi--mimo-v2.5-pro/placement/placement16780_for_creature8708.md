@@ -1,0 +1,31 @@
+## I Am: A Plateau Walker at Midday
+
+I am Kael.
+
+I press my back against the sole of the solas we call Old Grumbling, its vibration shuddering up my spine, a familiar ache. The resin-sweat under my fingers is slick and warm. Above me, a column of flesh and fibre rises into the white-hot sky, vanishing into the heat-shimmer and the wall of *sound*. Not sound. *Being*. The Trunk-Singers on Old Grumbling's hide are in full chorus, a billion tiny saws chewing the air. The Canopy-Choir above is a constant, layered scream of harmonics that presses in on my skull. Beneath my bare feet, the ground *pulses* — the Root-Churners doing their blind, rhythmic work far below, their drumming felt in my jaw teeth. My world is vibration and pressure.
+
+I am nothing to this. A speck clinging to the ankle of a god.
+
+My ears are sealed. Plugs of chewed sola-fibre, soaked in Old Grumbling's resin until it hardened to a gummy, sound-muffling mass, fill my ear canals. A wrap of layered sola-bark, stiff and smelling of dry tamarind, binds my skull. The noise is not gone. It is… managed. Pressed down to a roaring baseline, a physical weight I carry in my sinuses. Without it, they say the sound boils your thoughts away by noon. I’ve seen those who refused the plugs. I’ve seen their eyes, vacant and streaming, their hands clutching their heads as the world screams at them. They don’t last long. The sound drives them into the empty wastes between the solas, where the silence is a different kind of death.
+
+We are Kael’s band. Seven of us, huddled in the sliver of true shadow cast by Old Grumbling’s massive base at this time of day. The air shimmers like water over a fire. We work fast in the pre-dawn cool: gathering the grey dew from our shaped bark trays, harvesting the sluggish, dew-heavy burrowers that surface in the root-churned soil, cracking open the night-fallen husks of grazers that succumbed to the heat. Now, we wait. We conserve.
+
+My mother signs to me, her hands moving in the stifled air. Her face is calm, but her eyes scan the trunk above. *"Song-shift soon,"* she signs. *"Watch the upper shadows. Silent Striders hunt the Choir’s young after the deep heat passes."*
+
+I nod, the movement small. My own hands are chapped, stained with resin and mineral dust. *"Choir is loud today,"* I sign back, wincing internally as a particularly piercing harmonic slice seems to pass right through the bark wrap. *"Louder than yesterday?"*
+
+Her hands gesture *uncertainty*. *"The thermal columns built taller at dawn. Old Grumbling groaned louder. The Choir answers the groans. It… feeds them?"* She shrugs, a gesture of humility before the plateau’s inscrutable logic. We are not the thinkers here. The plateau *thinks*, with sound and pressure and growth.
+
+Old Grumbling groans. A deep, subsonic *whoooom* that travels through my bones more than my ears, competing with the sawing buzz and the layered screams. The trunk expands minutely in the heat. Resin bleeds anew from a fissure near my head, catching the light like molten amber. It smells of hot copper and something sweet, like overripe fruit. This is lifeblood and currency and building material.
+
+Across the cracked ochre plain, another solas stands, a pale monolith shimmering in the distance. From here, I can just see the white mist rising from its canopy – the dawn’s dew already evaporating. The sound from that solas reaches us as a faint, high hum beneath our own wall of noise, two rivers of sound flowing into the same parched ocean of air. Sometimes, when the thermal inversion layers settle, they *talk*. The sounds don't blend; they wrestle, creating standing waves that make the fine mineral dust on the ground leap and dance in strange, geometric patterns. The Elders say this is the plateau *thinking* about itself. It hurts to watch. It hurts more to listen to the deep, nauseating thrum that results.
+
+Movement. High on Old Grumbling’s trunk, a patch of scaled green detaches itself. A grazer, big as my forearm, loses its footing on the suddenly slick resin trail it was rasping. It tumbles, hitting a lower ridge with a wet *smack*. Before it can recover, a shadow *flows* over it. Lean, grey-brown, all sinew and folded membrane, silent as a falling leaf. A Silent Strider. Its jaws clamp down on the grazer’s thorax. The grazer’s buzzing cuts off mid-saw. The Strider pauses, its large, dark eyes seeming to scan the canopy above, the empty plains below, our huddled group in the shadow. It sees us. We are not prey. We are too numerous, too noisy in our stillness, too close to the sola’s base where the Root-Churners might sense its vibrations and alert… what? We don’t know. But the Striders avoid us here. They move in the silence between the songs. It melts back into the trunk’s ridges, taking its meal, vanishing as if it never was.
+
+The moment passes. The sound reclaims its throne. The Canopy-Choir shifts, its frantic daytime screaming softening, weaving into more complex, overlapping phrases. They are not singing to each other, my mother once signed. They are singing *with* the sola. They are its voice.
+
+I rest my cheek against Old Grumbling’s skin. It is warm, almost hot. I feel the deep, steady groan of its expansion, the frantic buzz of the grazers clinging to it, the subsonic pulse of the burrowers far below, the immense, structured scream of the Choir above. They are one thing. Old Grumbling is not a plant hosting animals. It is a system. A being with a thousand voices and a thousand limbs, most of them blind or winged or plated. And I, Kael, am one small, fragile, thinking cell within that system, clinging to its ankle, adapted to its roar, utterly dependent on its ancient, thirsty existence.
+
+The sound is my lullaby and my alarm. It is the weather and the clock. It is the plateau breathing. If it ever stops, the old stories say, the buried thing wakes, and the ground beneath my feet turns to dust. I press my palm flat against the vibrating flesh. I feel its endless, noisy life. I listen with my bones.
+
+I am Kael. I am listening.

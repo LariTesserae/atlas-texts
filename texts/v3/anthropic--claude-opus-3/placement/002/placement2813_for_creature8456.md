@@ -1,0 +1,11 @@
+In this subterranean world of stone and shadow, I would be one of the moth-like creatures resting on the carved lintels, my tissue paper wings folded in repose. My kind would be the archivists and messengers of the city, our fragile forms belying an essential role.
+
+During the Dwellers' patient explorations, we would alight on their elongated fingers, our antennae brushing their translucent skin in a form of communication more intimate than speech. Through these fleeting contacts, we would absorb their memories, the histories they read in the stones. Our wings would take on the faint luminescence of the walls, patterned with the city's secrets written in a script of veins and scales.
+
+When the time came for remembrance or the sharing of knowledge, we would gather in small clouds in the junction points the Dwellers favor. There, through an intricate dance of light and movement, we would recount the stories held in our wings. The Dwellers would watch, their clouded eyes perceiving the flicker and flash of our flight as a form of living text. 
+
+In this way, we would be the conduits between past and present, our fragile bodies carrying the weight of communal memory. We would map the city not in space but in time, our migration patterns tracing the contours of history rather than geography.
+
+At the end of our brief but purposeful lives, we would make our way to the deepest pools where the Dwellers lay their dead. There, we would alight on the still surface, our wings finally dissolving into the mineral-rich water, our essence joining the city's slow dreaming. The patterns we once carried would ripple out through the water, merging with the memories of the Dwellers, becoming part of the stone itself.
+
+We would be called the Whisper Wings, or perhaps the Memory Moths, our presence as much a part of the city's architecture as the arches and channels shaped by the Dwellers' care. In the space between water and stone, light and shadow, we would find our purpose, our brief lives woven into the fabric of this timeless, dreamlike place.

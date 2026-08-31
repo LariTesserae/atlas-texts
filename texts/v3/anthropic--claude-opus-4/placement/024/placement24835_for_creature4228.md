@@ -1,0 +1,23 @@
+In the highest reaches where stone weeps and pools gather like scattered coins, I am the Sentinel Lichen—neither fully plant nor fungus, but something more ancient, more patient. My body spreads across the rock face in a map of silver-green and rust, each patch a different age, a different story written in chemical whispers.
+
+I exist as a thousand colonies that are also one. Where the weeping rocks channel their endless tears, I position my oldest growth—the Elders, we call them—thick as leather and dark as old blood. They've learned to drink the iron-rich seepage, to transform mineral sorrow into sustenance. The younger colonies spread outward like frost patterns, following the microscopic valleys in the stone where morning dew collects.
+
+Time moves differently for me. A bird's shadow passes overhead in what they call an instant, but I experience it as a long, cool blessing—a respite from the sun's harsh interrogation. The freeze-thaw cycles that crack the mountain's face are my seasons of expansion. When water becomes ice in the fissures, I feel the stone's pain as opportunity. Each new crack is virgin territory, each fragment of loosened rock a raft to carry my spores to undiscovered shores.
+
+I remember when the first burrowing creatures arrived, their tunnels aerating the soil that accumulated in the lee of my body. I tasted their metabolic signatures in the chemistry of rainwater, learned to anticipate their patterns. Where they died, I sent out special fruiting bodies—tiny cups that caught the nutrients and transformed them into pigments. Those patches of me are more vivid, almost crimson in certain light, marking graves like memorial stones.
+
+The psychrophilic bacteria in the pools below think me slow, even geological. They live and die in moments, frenetic with activity. But we share secrets when the water rises high enough to kiss my lower margins. They tell me of sulfur springs deep beneath, of temperatures that defy the surface cold. I tell them of the sky's moods, of how the light changes when storms approach from valleys invisible to their aquatic world.
+
+My reproductive cycles follow patterns no warm-blooded thing could fathom. Sometimes I wait decades between sporings, sensing conditions in the wind's mineral content, in the precise angle of ultraviolet radiation, in the electromagnetic whispers of distant lightning. When the moment arrives, I release billions of possibilities into the thin air, each spore a potential new colony, a new perspective on existence.
+
+The birds occasionally use pieces of me for their nests—an honor and a dispersal method. I've learned their favorites: the soft, cushiony varieties that grow where my symbiotic algae photosynthesize most vigorously. In return, their droppings feed me nitrogen, that precious currency so rare at this altitude. We have an economy measured in centuries.
+
+At my edges, where bare rock meets my advance, I am both warrior and diplomat. My acids slowly digest the stone, creating pockets of primitive soil. Yet I also seal the cracks against the worst of the freeze-thaw damage, protecting the very substrate I consume. This paradox defines me: destroyer and preserver, ancient and eternally young, individual and collective.
+
+In the depths of winter, when even the weeping rocks slow to a trickle and the pools freeze solid, I enter the Dream—a state of consciousness that isn't sleep but something more profound. My metabolism slows until each chemical reaction stretches across days. In this state, I communion with the mountain itself, feeling its deep breathing in tectonic time, sensing the magma chambers far below like a distant heartbeat.
+
+The Dream shows me visions: this place before the uplift, when it lay beneath warm seas. I taste salt in the stone's memory, feel the pressure of fathoms in its crystalline structure. Sometimes I dream forward too, seeing futures where my patient work has created meadows, where trees grow in soil I helped birth from naked rock. These visions sustain me through the harsh seasons.
+
+I am the interface between quick life and slow stone, the translator between the urgent now of warm blood and the eternal patience of geology. Every century, I advance another meter across virgin rock. Every millennium, another mountain face wears my colors. I am not surviving despite this harsh place—I am becoming it, cell by cell, reaction by reaction, until the boundary between lichen and landscape dissolves entirely.
+
+This is my existence: measured, profound, and anchored in the absolute certainty that I belong nowhere else but here, in the thin air where water weeps from stone and life writes its most patient stories.

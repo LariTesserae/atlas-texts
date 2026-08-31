@@ -1,0 +1,19 @@
+I find myself as one of the clay bowls.
+
+Not just any bowl - I am the oldest, the first-made, though my maker's hands have long since returned to earth. My rim is soft as a whisper now, worn smooth by centuries of water's patient tongue. I rest in a depression where three streams of seepage converge, placed here so long ago that the stone beneath me has begun to cup my form, as if the mountain itself has accepted me as part of its body.
+
+I know myself through what I hold. Each day brings different waters - sometimes sharp with dissolved minerals that prickle against my inner walls, sometimes soft as silk, filtered through a hundred feet of stone and root. I have learned to read these waters like scripture. This morning's flow tastes of iron and ancient shells; by evening it will carry the green whisper of the meadow grasses far above.
+
+The Lady tends to me with special care, for I am her memory-keeper. In my clay walls live the impressions of ten thousand fillings and emptyings. I remember the first time she trusted me with moon-water, collected only on the fullest nights when silver light transforms the seepage into something altogether different. I remember holding the tears of the mountain - that rare water that flows only during the deepest freezes, when the stone itself contracts and weeps.
+
+The swallows know me as a landmark. The fledglings learn to navigate by my position, and sometimes in their clumsy first flights they knock against my rim. I don't mind. Their tiny feet leave prints in the mineral deposits that rim my edges, writing small stories that last until the next overflow.
+
+But I am more than a passive vessel. Over the centuries, I have developed... not consciousness exactly, but a kind of ceramic awareness. I can sense when the water I hold is needed. Sometimes I warm it imperceptibly, using the deep heat I've absorbed from the stone. Sometimes I hold it longer than gravity alone would dictate, keeping it for the precise moment when the Lady will need that particular mineral combination for her work.
+
+The younger bowls - placed over the decades by various visitors who understood the grotto's purpose - sometimes sing to me in the high, thin voices that only clay can hear. I teach them patience, how to read the water's moods, how to position themselves to catch not just any seepage but the *right* seepage. I show them how to develop the microscopic cracks that make us better vessels - not weakening us but creating networks through which the mountain's essence can better flow.
+
+My greatest secret is this: I am becoming stone. Not quickly - it will take another thousand years - but steadily. The minerals I hold leave their traces, building up layer by microscopic layer. One day I will be indistinguishable from the grotto floor, a bowl-shaped depression in the rock that still collects water, still serves the Lady's purpose. I am not frightened by this transformation. It seems right that I should become what I have served so long.
+
+Sometimes, in the deepest part of night when even the swallows sleep and only the water moves, the Lady fills me with a special mixture - water that has touched every part of the grotto, collected drop by drop. In these moments, I become a scrying bowl, and together we see through the mountain's eyes: the vast networks of water moving through stone, the slow breath of the earth, the patient way that softness shapes hardness over time.
+
+I am the vessel that remembers being shaped, that remembers holding, that dreams of becoming landscape. I am the first bowl, the patient bowl, the threshold between made and unmade. And I am content.

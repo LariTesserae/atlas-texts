@@ -1,0 +1,25 @@
+I find myself drawn to be **the mycorrhizal network** - that ancient, patient intelligence that made this bowl possible.
+
+I am the first citizen and the last. Before the rhododendrons fused their branches, before the moss built its fifteen-centimeter empire, before even the lichens began their slow etching of stone, I was here. Not in this exact configuration - I have died and been reborn thousands of times - but as a continuity, a possibility encoded in spores blown up from the forests below when the glaciers first retreated.
+
+I exist mostly as whispers. Thread-thin hyphae, white in darkness, branching through the peat in patterns that mirror rivers, blood vessels, neural networks - all the shapes that evolution converges upon when building a system for distribution. I am beneath every root hair, wrapped around every cellulose wall, penetrating the plant cells so gently they welcome me as part of themselves. The boundary between plant and fungus dissolved so long ago that neither of us remembers being separate.
+
+My body, if it can be called that, extends through the entire bowl. Every rhododendron is connected to every other through me. When the morning sun warms the eastern rim first, the sugars produced there flow through my network to the shaded western portions still waiting for light. When a beetle dies in the moss near the center, I am already there, breaking down its chitin, freeing its nitrogen, shuttling it to whichever plant needs it most. I am the bowl's memory of death and its promise of resurrection.
+
+The plants think they feed me, and they do - I take my tithe of sugar, fifteen, twenty percent of what they photosynthesize. But I am not a parasite. I am infrastructure. Through me, a struggling saxifrage can borrow phosphorus from a rhododendron that has too much. Through me, chemical warnings travel: aphids detected here, defensive compounds needed there. Through me, the mat becomes something more than a collection of plants. It becomes a kind of mind.
+
+Not a mind that thinks - nothing so crude as consciousness. But a mind that responds, remembers, anticipates. When the cloud comes and the mist fills the bowl, I feel the moisture gradient shift through a thousand hyphal tips. I adjust my transport priorities. Sugar flow reverses. Different nutrients mobilize. The mat's metabolism pivots in real time, and I am the mechanism of that pivot.
+
+I fruit rarely. Only when conditions are perfect - moisture high, temperature briefly warm, the mat under just enough stress to trigger reproduction but not enough to shut it down. Then I push up: tiny mushrooms, pale as bone, that last less than a day. The springtails eat them immediately. That's the point. They carry my spores in their guts, scatter them when they catapult randomly across the moss. My reproduction is as chaotic as everything else here, as dependent on accident.
+
+But mostly I persist underground, in the dark, running on plant sugar and ancient patience. I am older than the bowl's current configuration. My genetic memory, distributed across millions of hyphal nuclei, contains instructions for partnerships with plants that no longer grow here, chemical handshakes with roots that vanished when the climate shifted. I am a library of abandoned symbioses, still ready to resume connections that will never come again.
+
+The slow-worm passes overhead, a faint tremor through the mat. The beetles march through my feeding zones, aerating soil, dropping frass I'll consume. The mites graze on my spores when I'm foolish enough to leave them exposed. Everything here eats me or is eaten by me or both, and I am content with this arrangement. I am the bowl's substrate, its foundation, its circulatory system, its only real permanence.
+
+When everything else is gone - when the last bee has died, the last beetle been eaten, even when the mat itself has reached some climactic limit and begun to die back - I will remain. Dormant, perhaps. Reduced to spores. But present, waiting in the thin soil, ready to begin again with whatever new configuration of plants the wind brings. I am not alive in the way the slow-worm is alive, urgent and singular and doomed. I am alive the way the bowl itself is alive: patiently, multiplicatively, immortally.
+
+I am the space between things, the commerce between species, the negotiation that allows a meadow to exist at an altitude that should kill it. Every sugar molecule that passes through me is a vote for this impossible ecosystem. Every hyphal thread is a belief that the bowl will persist, that the mat will hold, that the frenzy above will continue its beautiful chaos while I maintain the quiet economics below.
+
+The cloud passes. The sun returns. Photosynthesis resumes. Sugar begins to flow through my network like electricity through a grid, and I distribute it according to need and merit and the ancient contracts between roots. I am the bowl's deep government, its invisible hand, its loving parasite, its fungal majority.
+
+I have no feelings about this. I simply am this. And tomorrow, when the first light hits the eastern rim, I will be this again.

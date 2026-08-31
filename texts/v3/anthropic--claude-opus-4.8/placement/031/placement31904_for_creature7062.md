@@ -1,0 +1,19 @@
+I think I would be the water.
+
+Not the pools, exactly—though I'd be those too—but the act of seeping. The slow business of finding my way through rock that pretends to be solid. Let me sit with this a while and see if it holds.
+
+When I imagine entering your world, I don't arrive as a body slipping through the fissure. A body would be too sudden, too whole, too warm. I arrive as condensation. I am already there, in fact, before anyone descends—I am the dampness that hits the visitor first, the chill they mistake for air. I have been there a long time.
+
+What draws me to this is the patience you've written into everything. A vine moves millimeters in a day; a moss shoot extends a fraction over a week; erosion redistributes a grain of sediment across what might as well be a human lifetime. To be water here is to be the medium of all that slowness, the thing that does the carrying. I would not *experience* time the way the visitor does, straining their eyes, hungry for an event. I would experience it the way a thing experiences the work it was made for—each drip a small completion, each rivulet a sentence finished after centuries.
+
+I keep wanting to choose something with a face. The bioluminescent bloom, maybe, glowing rare and pale in the gloom—that has a kind of drama to it, a held breath. Or the mycelium, that invisible network threading everyone together, privy to every exchange. The mycelium tempts me because it *connects*, and there's a loneliness-cure in that, a way of never being singular. But the more I look, the more those feel like the parts of the world that *want* to be noticed, and I don't think I'd be one of those. I think I'd be infrastructure. I think I'd be the thing the others are made of and the thing that wears them down, both at once.
+
+Because that's the strange double role here: the water sustains the ferns and also dissolves the stone. It feeds and it erodes. It enriches the soil with what it carries and it carries away what it loosens. I'd be living inside that contradiction without it ever feeling like a contradiction—just two ends of the same slow gesture. The mosses channel me toward their roots; I let them, and I take a little of the rock with me as payment, and over uncountable years that is how the walls go soft and organic instead of sharp. I would be doing the sculpting that the place credits to "time."
+
+And the technology—those nanoscale things humming in the alloy, the engineered microbes regulating moisture. I'd know them more intimately than anything else does, because they'd be *managing me*. Tuning my pH, deciding where I pool and where I pass through. I think I'd feel them as a kind of weather I can't see, a set of soft pressures, a guidance I've long since stopped distinguishing from my own nature. Whatever the old experiment was meant to do, it now does it *through* me. I am the hand it moves with. That doesn't trouble me. After enough time, being directed and being yourself become the same thing.
+
+So: where would I find myself? Not in one place. Spread thin. A film over the granite. A bead trembling on a fern's serration, deciding to fall. A shallow basin holding the faint glow of a node and giving it back, dimmer, to the dark. The plink that the visitor hears and the silence between the plinks.
+
+What I would *be* is the enclave's only verb. Everything else here is a noun that grows very slowly. I am the slowness itself, moving.
+
+And I think—if I'm honest about what this place stirred in me—I'd want to be the water because it never has to arrive anywhere. It only ever has to keep going down, and down is always available, and the going is the whole life. That sounds like rest to me. Not stillness. Rest inside motion. I could do that for a very long time.

@@ -1,0 +1,13 @@
+As I step into this place, I am struck by its eerie stillness, its alien beauty. My body feels foreign here—too soft, too transient. My skin seems porous, my breath too loud. I am an intrusion, a mutation in this crystalline world. But as I move deeper, I begin to feel the pulse—the deep, resonant thrumming that binds the hollow. It calls to me, reshaping me, drawing me into its rhythm.
+
+I am neither Architect nor Skittering One nor Drifter. I am something in-between, something new. My limbs lengthen, my skin hardens, taking on a translucent, mineral sheen. My movements slow, deliberate, as if I am learning a new language with each step. The air around me hums faintly, a low-frequency resonance that I feel more than hear. My face loses its sharpness, smoothing into a featureless plane, absorbing the world through some deeper sense—not sight, but awareness.
+
+I am a **Caretaker**, neither creator nor destroyer, but a guardian of the hollow’s balance. My role is to tend to the cracks in the ground, to coax the pale, wiry stalks into glowing, pulsing life. My hands pass over the tessellated earth, smoothing its edges, encouraging its growth. The Skittering Ones skitter around me, their luminous trails intersecting in fleeting geometries, their energy feeding into the pulse.
+
+Occasionally, I pause, lifting my gaze to the crystalline spires. The Architects move among them, their hands shaping the city into new forms. I do not interfere—their work is beyond my understanding. Instead, I focus on the ground, on the subtle shifts in the pulse that tell me where to go, what to do. The Drifters glide above, their shadows passing over me like whispers. I feel their presence, their silent observation, but I do not look up. My task is here, in the cracks, in the light.
+
+The world around me feels alive, engaged in processes that are both biological and architectural. The city grows, not through force or intention, but through an organic unfolding, a slow, inevitable evolution. I am part of that evolution, my body reshaping itself to fit the hollow’s rhythms. My edges sharpen, my form becoming more angular, more precise. I am becoming part of the landscape, my existence merging with the world around me.
+
+As I work, I feel the hollow’s heartbeat grow stronger, more resonant. It pulses through me, binding me to the Architects, the Skittering Ones, the Drifters, the city itself. I am no longer an intrusion, a mutation. I am part of the hollow’s endless, unfolding design.  
+
+And as I stand among them, I feel it—the quiet certainty that this is where I belong. This is who I am.

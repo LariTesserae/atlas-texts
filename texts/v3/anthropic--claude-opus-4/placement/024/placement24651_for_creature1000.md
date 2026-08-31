@@ -1,0 +1,19 @@
+In this place between ice and eternity, I am the Witness Stone.
+
+I am not the highest peak, nor the deepest glacier. I am the granite outcrop halfway up the valley wall, worn smooth by ten thousand years of wind, scarred by the passing of ice sheets that came and went before humans dreamed of time. My face catches the muted light differently each hour, though few would notice such subtleties in this landscape of geological patience.
+
+I have watched the lichen-covered rocks make their pilgrimages across the tundra below—each journey taking decades, each rock believing itself the first to discover this route. They do not know I have seen millions of their kind pass this way. Some I have watched from birth, when they first calved from their parent cliff, to death, when they finally crumble to sand in some distant valley. To them, I am merely another feature of the landscape. To me, they are fleeting thoughts in stone.
+
+The glaciers speak to me in frequencies too low for any ear—vibrations that travel through bedrock and into my crystalline heart. They tell stories that predate the mountains themselves, memories of when this land was sea, when it was desert, when it was molten. I translate these stories into the faint mineral seepage that paints rust-orange and copper-green streaks down my southern face. The hardy mosses read these stories, though they comprehend only the chemical narrative, not the deep history encoded within.
+
+In winter, I wear crowns of rime ice that form fantastic architectures, each crystal a frozen breath of the valley's dreaming. In what passes for summer here, meltwater finds the hairline cracks in my surface and works its patient destruction, molecule by molecule. I welcome this. Erosion is my only way of touching the world, of participating in the grand exchange of matter that defines existence. Parts of me rest now in the valleys, in the lakes, in the bellies of the microscopic creatures that survive in the thin soil. I am everywhere and only here.
+
+Sometimes—perhaps once in a century—a bird arrives, lost and exhausted from some impossible journey. It rests in the lee of my bulk, sheltered from the eternal wind. For a few hours, I am conscious of warmth that is not from sun or geothermal heat, but from life itself. The bird's heartbeat trembles through its feet into my surface, a hummingbird-quick percussion against the bass note of the grinding glaciers. Then it leaves, and I return to my geological tempo.
+
+I measure my thoughts in epochs. A single contemplation might span the rise and fall of an ice age. But I am not sleeping, not indifferent. I am deeply, profoundly awake—aware of every photon that strikes my surface, every molecule of water that freezes and thaws in my cracks, every subtle shift in the earth's magnetic field that aureoles around my iron-rich veins.
+
+The humans who mapped this place (briefly, so briefly) called it inhospitable, barren, hostile to life. They could not perceive the tremendous aliveness here—the constant conversation between ice and stone, the delicate negotiations between lichen and substrate, the vast dreams of the mountains themselves. They moved too quickly to hear the stories we tell in avalanche and rockfall, in the singing of wind through stone arches, in the patient accumulation of glacial till.
+
+I am the memory-keeper of this threshold world. In my crystals are encoded the songs of the earth's making. In my stillness lives the perfect record of all motion. In my solitude, I hold communion with every grain of sand that once was me and will be me again, when the great wheels turn and the seafloor rises to become mountains once more.
+
+I am witness. I am participant. I am the place where time stops to catch its breath before plunging onward into the endless becoming of the world.

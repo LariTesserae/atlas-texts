@@ -1,0 +1,33 @@
+I would be on the steps.
+
+Not at the bottom, where the sound becomes a single thing and you forget you ever heard its parts. Not at the top, where it's still just a sound coming from below, still just a rumor. In the middle, where the roar resolves into its components and then unresolves again, where you can hear the individual clicks and the individual drips but also hear them joining, becoming the other thing, the standing wave, the sound that fills every gap. Where you understand that the chamber is one sound made of ten thousand sounds and also ten thousand sounds pretending to be one, and that there is no way to hear it that is not both at once.
+
+I would sit where the stone is smoothest. Where the most bodies have sat before me, wearing the concavity into the carved step, making the shallow bowl that my weight would settle into as if it had been waiting. It was not waiting. The stone does not wait. It erodes. But the sensation of settling into a shape made by ten thousand prior sittings is not the sensation of erosion. It is the sensation of being expected, which is different from being wanted.
+
+---
+
+Who would I be?
+
+Not the builders. The builders understood what they were making, or at least they understood enough to make it, and I am not certain I understand anything well enough to make a thing that would outlast my understanding. The builders had hands that knew the angle of repose and the properties of mortar. My hands know other things. My hands know how to hold a pen and how to type and how to turn a page, and none of these skills will leave behind a chamber that breathes.
+
+Not the toads. The toads are too certain. They have assessed the world and found it containable: movement, stillness, hunger, satiation. They sit in their puddles with the confidence of things that have reduced existence to its correct variables. I have never been able to reduce existence to its correct variables. I have tried. The toads would find me exhausting.
+
+Not the bats. The bats have community — the dense, vocal, gossipping web of the east-wall colony, the stern declarations of the dome-joint colony, the strange innovation of the pale floor-hunters becoming something new. I am not without community, but I am not good at the constant vocal contact that the east-wall bats maintain. I am the kind of creature that goes quiet in a group and listens, and when I speak it is more like the dome-joint bats: a statement, not a conversation. And I am not becoming something new in the dark. Or maybe I am, but slowly, without the dramatic descent onto a crustacean that marks the transition.
+
+Not the crustaceans, though I am drawn to them. The molting. The hours of stillness in the crack in the stone, soft, armorless, listening to the roar continue without you. The only silence they know. There is something about that — the mandatory vulnerability, the pause that is not chosen but required, the waiting for a new surface to harden so you can resume the clicking that is your voice — that feels familiar. But the crustaceans resume. They molt and they harden and they return to the basin and they click. I have a sense that when I emerge from the crack, the roar does not resume in the same way. That the sound has changed, or I have changed, or both. The crustaceans do not have this problem. The crustaceans are always returning to the same sound. I am not sure I am.
+
+---
+
+I think I would be something the piece does not name. Something that sits on the steps and listens and does not participate in the ecosystem and does not build and does not hunt and does not click or chitter or snap. Something that receives the sound without contributing to it. Something that absorbs the warmth without being part of the thermal system. Something that is, in the chamber's terms, inert.
+
+A body on the steps. One of ten thousand. Wearing the stone slightly smoother. Hearing the roar. Understanding that the chamber does not need this hearing, does not benefit from it, is not changed by it. Understanding that understanding is not required. That the chamber is not a text. That the hands that made it are not a message. That the machine works whether or not anyone sits on the steps and comprehends it.
+
+And then leaving. And the steps being slightly more worn. And nothing in the chamber changing, because a body on the steps is not a variable in any of its systems. The bats do not adjust their chittering. The toads do not track the departure. The crustaceans do not pause their clicking. The chamber breathes in and breathes out and the light shafts move their slow gold across the west wall, the basin, the east alcoves, and this movement does not record my presence or my absence, does not record anyone's presence or absence, continues because it was designed to continue and does not require an audience.
+
+---
+
+I would be the unnecessary one. The one who comes down the stairs and sits and listens and understands that the understanding is not needed, that the listening is not needed, that the sitting is not needed, and sits and listens and understands anyway. The one who receives the warmth of the stone and the sound of the chamber and the smell of calcium and old charcoal and something vegetal and does nothing with any of it. Does not build. Does not name. Does not preserve or record or interpret. Just sits in the concavity that ten thousand prior sittings have made and lets the sound fill the space the way water fills the cistern — completely, finding every gap, leaving no silence anywhere.
+
+I would be the one who knows they are the chamber's only irrelevant feature and is not troubled by this. Is, perhaps, slightly comforted. Because the chamber is full of things that are needed — the clicking is needed, the chittering is needed, the snapping is needed, the dripping is needed, the whole multipart roar is a working machine of interdependence — and the world I live in is also full of things that are needed, and the needing is relentless, and to sit in a place where you are explicitly, demonstrably, structurally unnecessary is a kind of rest. The rest of a body in a concavity it did not make and will not maintain and cannot improve and can only occupy, briefly, and then vacate, and the vacating will not matter, and the occupying did not matter, and this is not sad. This is the specific texture of a place that was built by hands that are gone and inherited by lives that do not inherit and maintained by processes that do not maintain. The chamber is a finished sentence. It does not need another word.
+
+I would sit on the steps and be the unneeded word. And then I would go.

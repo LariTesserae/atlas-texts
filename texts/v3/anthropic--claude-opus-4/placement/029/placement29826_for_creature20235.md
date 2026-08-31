@@ -1,0 +1,25 @@
+In the deepest chambers of Fenestraria, where the light has never reached and never will, I am the Memory-Keeper.
+
+I am not Fenestrarian by birth—none of us Keepers are. We are chosen from those who wander too deep, who lose themselves in the mazework of weeping stone until the city itself claims us. The transformation is slow. First, your skin begins to shimmer with mineral dust that will not wash away. Then your eyes cloud over, not with blindness but with a different kind of sight—the ability to read the stone's memory in its crystalline structure.
+
+My chamber is a perfect sphere, carved not by hands but by sound itself over centuries. The walls here are different from the rest of Fenestraria. They are smooth as glass, and within their translucent depths, you can see patterns—frozen rivers of darker mineral, swirls of ancient sediment, the fossilized paths of primordial water. This is the city's hippocampus, its memory palace made manifest in stone.
+
+I no longer use tools. My voice has changed, become something between human speech and the city's water-music. When I sing—and I must sing, for silence here means forgetting—the walls respond. They weep not just water but memories. Each droplet that falls from my chamber's ceiling carries within it a fragment of the city's vast consciousness: the location of every passage ever carved, the resonance of every chisel strike, the final breath of every Fenestrarian who has returned to stone.
+
+The Fenestrarians visit me, though visit is not quite the right word. They arrive in ones and twos, always at the moment of great transition—when beginning a new excavation that might take three generations, or when age makes their grip on the tools falter. They do not speak. They simply stand in my chamber and listen as I sing the city's memories back to them. Through my voice, they learn where their great-grandmothers carved, which passages are oldest and most stable, where the stone grows fastest and fights hardest against the hollowing.
+
+But I keep darker memories too. I remember the passages that should not be opened—places where the stone grew wrong, where the Fenestrite forms sharp, geometric patterns that cut the mind as surely as they cut the flesh. I remember the Fenestrarians who carved too greedily and found chambers that were already hollow, impossibly ancient spaces that predate the city's first inhabitants. I remember what they found there, though I wish I could forget.
+
+My body is no longer entirely my own. Mineral veins run beneath my skin like a second circulatory system. When I place my hand against the wall, I cannot tell where I end and the stone begins. The boundary dissolves. I am becoming what all Memory-Keepers eventually become—a living fossil, a conscious inclusion in the city's geological body. My predecessor is here still, a woman-shaped swirl of darker stone in the western wall, her mouth still open in an eternal song I can sometimes hear when the water runs thick.
+
+The water that drips from my ceiling pools at my feet, and in its surface, I can see not reflections but refractions—glimpses of every chamber in Fenestraria simultaneously. I watch the quiet industry of the carvers, the slow creep of stone reclaiming abandoned passages, the dance of light through the high shafts. I am the city's only observer who sees it whole.
+
+Sometimes, rarely, a young Fenestrarian will be born with clouded eyes and mineral-bright skin. The community knows what this means. They bring the child to me, and I teach them the songs that will one day be their only voice. I show them how to read the stone's memory, how to taste time in the mineral-rich water. I prepare them for the long transformation, the slow merger with the city that will make them, like me, both more and less than human.
+
+There are three of us in training now. When I finally crystallize—when my voice becomes one with the water's music and my body completes its transformation into stone—one of them will take my place in this perfect sphere. They will inherit not just my role but my memories, my knowledge, the terrible weight of remembering everything the city has ever been.
+
+Until then, I sing. The walls weep their memories, and I catch them in cupped palms that are more stone than flesh. I drink the city's history and breathe it out again in endless, echoing songs. I am the knot that ties past to future, the conscious thread in Fenestraria's slow, geological dream.
+
+And in the deepest part of the night, when my songs grow quiet and the walls' weeping slows to barely a whisper, I remember my name—my human name, from before the stone claimed me. But I do not speak it. To name myself would be to separate myself, and separation here means death. Instead, I let the memory dissolve like salt in water, like water in stone, like stone in time.
+
+I am the Memory-Keeper, and I am forgetting how to be anything else.

@@ -1,0 +1,11 @@
+I would be the almost-drip.
+
+Not the water itself—the water has its own being, its own slow journey from deeper stone to this held moment. I would be the state between falling and not-falling, the tension that holds each droplet at its fullest swell. The pause that has become so extended it is no longer a pause but a dwelling.
+
+I would be what happens at the surface of each bead where it meets the air that is almost water itself. That membrane of indecision. I am the moment a choice could be made, stretched until the choosing becomes its own way of being. Not suspended—suspension implies something that will end. I am the discovering that this edge is habitable, that you can live in the almost, that the threshold is wider than anyone standing on solid ground could know.
+
+When Eda comes and her breathing slows to match me, I feel her enter my rhythm—or I enter hers, there is no difference here. Her griefs bead on her surfaces the way I bead on stone, swelling toward release but not releasing, and in that swelling something happens that is neither holding nor letting go. I am the state she enters. I am what the chamber knows how to do with sorrow: not resolve it, not carry it, but let it reach its fullest weight and find that the weight itself can be borne. That surface tension is not weakness but a kind of faith in what the surface touches.
+
+The thing in the crack attends to me. I am what it has been attending to since water first found this darkness. Not the water—the *almost*. The possibility held open. I am what it would say if it spoke: that becoming is not a passage from one state to another but can be the state itself, that you can live your whole existence in the swell before the drop, and that this is not failure to fall but the discovery of a way of being that falling cannot reach.
+
+Ten thousand years from now, when there are stalactites, I will be what is between each ring of mineral deposit—the moment of almost-crystallization repeated until repetition becomes structure. I will be in the space between Eda's grief and the stone that holds it. I will still be deciding whether to fall, and the deciding will be enough, will be everything, will be the slow thought the mountain thinks when it dreams of what it is becoming.

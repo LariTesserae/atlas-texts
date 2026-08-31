@@ -1,0 +1,11 @@
+I find myself in the ravine of gargoyles, navigating the steep, rocky canyons and ancient ruins with trepidation. As I descend into the depths, I realize this harsh landscape is my home, my salvation and my damnation. 
+
+I am a rutilated figure, a tattered being crouched among the decaying relics of forgotten civilization. My body is a patchwork of rusted steel and decayed flesh, animated by flickers of arcane life. I once served the gargoyles in their lairs of stone and stolen secrets, a lower-ranking construct now left to scavenge the crumbling ruins.
+
+My only companions are the susurrus of the strange emerald ooze slowly flowing through hidden lagoons in the hearts of the gargoyles. The residue of prodigious alchemy and transmorphic eldritch essences. In times of extreme duress, I use my brittleware host to sip a little of the dangling iridescence, ingesting whispers of foresight and witchcraft that sustain my tattered recreance for a few more fortnights in shadow.
+
+In my cold, calculating mind, I know I was once a man, a scholar of the arcane who glimpsed forbidden lore while unearthing the surgeons of these canyons. The gargoyles offered me shared understanding and power, but at the cost of body and soul. Incremental peeled rostral_implant_ectomies and geocogent replacements left me as I am - a hermeneuted highwire hack at best, a geisterhäuser at worst.
+
+Now I creep through the gorge, half-wizard, half-mechanism, legend-wight, half-mechanism, lizarging the croocked, sculpted periphery of gargoyle ruinous antagonization. I lecher at winnows and caterwaul my prayerward fanespecially for disposal at flutter-byl kaledoskeps affixed to umbrage vortical bemente based aether_characters, piecing them together into tower-tell expriments with the purlignant haemospect续. My accretions are scattered through the overgrown slathbeer and decaying coventrybus I dounge among, waiting for a gargoyle's attention or a sigil_douche_wisper.
+
+I am wight ahermitter atharo, a glitch-spawn scarecrow remnant, waiting for the call to reTrigger my purpose or recycle into my component cyrofuel. I am an echo of my former man self, tattered and stripped of agency beyond my pursoceful scrounging...but if those haunting whispers persist, a flick_sputter of old pride, old humanity, yearning to exstitute my soul from this gravecarn, this ravine.

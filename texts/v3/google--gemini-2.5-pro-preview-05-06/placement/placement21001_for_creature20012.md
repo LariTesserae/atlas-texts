@@ -1,0 +1,33 @@
+I am a fault line in a sea of motion.
+
+Where I am is where I have always been: within the great, slow river of my kindred, the grazers. But for the first time, *where* is beginning to matter. For eons, there was only the moving, the tasting, the scentless wind, and the hum. Now, there is here. And here is heavy.
+
+I am a Weaver, and my legs, which once traced weightless parabolas over the carapaces of the herd, now feel the planet’s pull. The delicate machinery of my joints, once silent, now sends a faint, grating tremor up into my body, a discord in the perfect symphony of the world’s vibration. The silver-white of my chitin, the color of frost on stone, feels dull. The pearlescent sheen is gone, leaving a chalkiness that absorbs the dim light rather than reflecting it. I am a note that has gone flat.
+
+My world is tremor. It has always been. My body is a tuning fork, my membranes the skin of a drum stretched taut to catch the universe’s rhythm. The low, subsonic thrum of the Apparatuses is the bass clef, the constant that underpins all else. It is the sound of time itself. The steady, million-fold rustle of the herd is the melody, a river of tiny impacts, a song of movement. And within that song were the solos: the arrhythmic stumble of the old, the frantic micro-vibrations of the trampled young, the final, resonant stillness of the dead. These were my sustenance.
+
+I remember. The memory is not a picture, but a feeling-pattern, a recalled tremor. I remember floating, a ghost of geometry, above the dark tide. I remember the change in the herd-song, a subtle faltering fifty paces ahead. I would shift my long, strolling course without thought, a perfect predator of stillness. Arriving, I would stand poised over the newly silent form, a gray rock among gray rocks, and my proboscis would descend like a dropped thread. The touch. The patient release of a single, world-altering droplet. The slow miracle of dissolution, hard becoming soft, solid becoming liquid. The long, slow drink that was a communion with the planet’s metallic blood, drawn up by the Apparatus and passed through the lichen, through the grazer, and into me. It was a cycle as inevitable as the turning of the great, unseen gears.
+
+Now, the song of the herd is muffled, as if heard through deep water. The subtle tremors of the dying are lost to me in the static of my own slow decay. My body's listening has been compromised by the noise of its own failure. I stumble. One of my six legs catches on the serrated edge of a grazer’s shell. A jolt, a shock of impropriety. I have never touched the herd before. I have only ever floated above it or consumed it. To be touched *by* it is a profound violation of my nature.
+
+The herd flows around me, an indifferent ocean parting around a stone. They do not see me, they only feel my mass, my wrongness, my stillness in their moving world.
+
+The deep hum is changing. Not in the world, but in my perception of it. There is a new frequency braided into the planet’s pulse, a resonance I have not felt since my own beginning. It is the pull of the canyons. The call to stillness. The need to un-make myself is growing stronger than the need to feed. My inner reservoir of metallic alloy, the stuff of life and legacy, is almost spent, but there is enough for one last act. It will not be a great weaving. There will be no symphony to call a mate from across the silent plains. The time for that is a memory of a memory, a ghost-vibration of a life already lived.
+
+I am turning. It is not a decision. It is a yielding. My legs, heavy as stone, begin to move, not with the herd’s slow, horizontal pilgrimage, but away from it. I am walking against the current, then beside it, and then I am alone.
+
+The silence that descends is immense. For the first time, the rustling song of the herd fades behind me, and I am left with only the planet’s deep voice and the voiceless pressure of the wind. The ground feels different. Every tiny fracture in the slate, every grain of dust, is a shout in the quiet. I feel the curvature of the world under my pads. I feel the pull of a great void ahead. A canyon. The wind-pressure map, shivering across the tympanums between my legs, tells me its depth, its width, the shape of its lips.
+
+I arrive at the edge. The world falls away into a deeper shade of gray. Down in that absolute stillness, I can see them. The webs of my ancestors, my cousins, my children. Shimmering, impossible geometries of silver thread, catching the faint violet light. They hang between the cliffs, suspended with the silent, milky chandeliers of frozen time. They are constellations in the underworld.
+
+I remember my own weaving. The feeling of climbing down into the silent air, my pads clinging to the vertical dark. The first extrusion, a thread of my own substance pulled from my body, a bright, metallic line drawn across the void. The slow, patient dance of creating angles and nodes, a web that was not a trap but an instrument. And then the song. Moving to the center of my creation, my whole body became a voice, vibrating with the planet’s hum, translating it into a music of pure, resonant tone—a summons, a longing, a promise of creation made tangible. I remember the answering vibration, the arrival of another, the interweaving of our bodies and our song and our filaments. I remember the silvery cocoons, trembling with the life inside.
+
+I have no song left. My instrument is cracked.
+
+I find a ledge, a small overhang halfway down the canyon wall, just above a web that glitters with a cold, fierce beauty. It is an old one, heavy with frost. My legs, one by one, find their final purchase. I fold them, lowering my small, teardrop body until it rests against the cold stone. There is a tremor of finality. This is my place.
+
+I extend my proboscis one last time. It touches the rock beside me. There is no enzyme. No thread. It is only a touch. A farewell.
+
+The cold begins to seep in. The subtle vibration of my own living body quiets. The frost, the rime that outlines all things in this world, begins to trace the edges of my legs, my body. It finds no warmth to resist it. The distinction between me and the stone begins to blur. The thought of 'I' is the last vibration to quiet.
+
+My listening does not end. It changes. I am no longer a Weaver, separate, hearing the world. I am the rock. I am the canyon wall. I feel the infinitesimal stress of the web anchored beside me. I feel the slow, geologic creep of the ice. And deep, deep within, I am the hum. I am a part of the long, slow, silent music I spent my life listening to. I have become a part of the quiet.

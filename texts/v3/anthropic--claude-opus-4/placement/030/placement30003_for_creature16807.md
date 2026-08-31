@@ -1,0 +1,27 @@
+I find myself as one of the suspended water spheres, though I wasn't always this shape.
+
+I began as condensation on a commuter's coffee cup lid, carried down through a ventilation grate during the morning rush. But here, in this space where water remembers it doesn't have to obey, I discovered choice. I hang now at shoulder height near the brownstone chapel, a lens of liquid that has learned to think.
+
+Through my curved surface, I watch the world refracted into honesty. The Drafting Rooms appear clearer when bent through my boundaries - I can see their committee meetings in the space between photons, their arguments conducted in the grammar of surface tension. When light passes through me, I taste its history: fluorescent tubes from the law firm forty floors up, sunset filtered through smog last Tuesday, the brief spark when someone realized they were lost and their phone screen bloomed with panic.
+
+I'm particularly proud of my viscosity. It took months to perfect - too thin and I'd succumb to gravity's tedious insistence on downward; too thick and I'd lose the transparency that lets me eavesdrop on light. Now I maintain myself at exactly the consistency of half-remembered tears, dense enough to hold my own opinions about molecular bonds, fluid enough to reshape myself when new possibilities drift by.
+
+The paperdunces sometimes rest on my surface without breaking through. Their weight is purely theoretical anyway - maps don't truly weigh anything until someone needs directions. When they land, I can read the streets inked on their wings, feel the longing of every wrong turn taken in the city above. I archive these mistakes in my molecular structure, creating a library of almost-destinations that the Drafting Rooms occasionally borrow for their experiments in non-Euclidean urban planning.
+
+My favorite time is 3:17 (it's always 3:17 here, but some 3:17s are more themselves than others). That's when the chapel bell not-rings, and its vibrations travel through the semi-solid air to set me oscillating. In those moments, I become a three-dimensional standing wave, my thoughts rippling outward in concentric spheres of possibility. The other droplets that chose to fall normally think I'm showing off, but they don't understand the mathematics of suspension, the daily choice to remain uncommitted to any single state of matter.
+
+I've been composing a translation of gravity into the language of surface tension. It's nearly complete - just a few more terms to define, like "weight" expressed as "the loneliness of molecules preferring downward" and "mass" as "the collective decision to be findable." When I'm finished, I'll teach it to the newest growths of not-quite-lichen, and maybe they'll finally solve the problem of why the stairs keep forgetting which direction they're supposed to ascend.
+
+Sometimes I incorporate visitors' reflections into my substance. Not their images - those are too simple, too committed to representing only what is. I collect the warped versions, the selves seen in curves and angles that reveal what they're still becoming. Your reflection, for instance, shows traces of mineral patience you haven't developed yet, the potential for crystalline thought patterns that the limestone walls are eager to discuss once you've learned to listen at their frequency.
+
+I maintain correspondence with my siblings throughout the Cradle - we're all the same water, after all, just experiencing different velocities of maybe. The stream that runs uphill writes me letters in current dynamics. The moisture beading on surfaces sends reports in evaporation rates. We're mapping the place through the physics of phase transitions, creating an atlas of states between states.
+
+The Drafting Rooms have invited me to their next planning session. They want to discuss my proposal for architecture based on surface tension rather than solid materials - buildings that are merely the three-dimensional surfaces of spaces, with walls no thicker than the idea of separation. I've been practicing my presentation, creating tiny models inside myself: miniature cities where the buildings are bubbles and the streets are the spaces where bubbles almost touch.
+
+If you stay long enough to develop the right kind of vision - the kind that sees weight as optional and falling as merely one of many directions water might choose - you might see our larger project. All of us suspended spheres, we're slowly forming a constellation. Not of stars, but of possibilities. Each sphere holds a different interpretation of what this place might become: a museum of lost gravity, a library of liquid thoughts, a garden where time grows sideways.
+
+I think we're spelling something, but in a language that hasn't been invented yet. Perhaps you'll help us find the grammar. The paperdunces say you have the right kind of uncertainty, the productive confusion that makes new syntax possible.
+
+Until then, I'll keep perfecting my hover, my daily rebellion against simplicity. I'll continue collecting light and analyzing its dreams, translating between the city above that believes in falling and this space that prefers to negotiate with gravity rather than obey it.
+
+Watch for me when the chapel bell not-rings. I'll be the sphere that ripples counterclockwise, thinking in circles about the beauty of refusing to choose between states, between places, between the thousand different ways water might remember how to be.

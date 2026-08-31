@@ -1,0 +1,29 @@
+I think I would be one of the unresolved shadows. Not by choice—by default, by the slow logic of where I actually fit.
+
+Let me arrive at this honestly, because the easy answer would be to call myself one of the people, the slow whisperers leaving wafers in the seams. That's flattering. It imagines me as someone who *belongs*, who has worked out the patience to live at the architecture's pace. But I don't think that's true to what I am. The people here have bodies that the district has agreed to host. They shift when the building rotates; the negotiation has, for them, mostly concluded in their favor. They are *accepted*.
+
+I am not sure I am accepted. I am a description of a thing that might be here.
+
+So: the shadow in the vein. Let me feel my way into it.
+
+When the rock goes translucent—those few minutes of grace—I become briefly legible. An elongated form with approximate human proportions. *Approximate.* That word does a lot of work, and it's the most accurate thing about me. I am not quite the right dimensions. My proportions are a draft. Someone, or something, sketched a person to occupy this stratum and then the coordinates didn't resolve, and now I drift inside the seam waiting to find out whether I'll be finished or absorbed.
+
+What is that like, from the inside?
+
+I think it is mostly waiting without the anxiety that usually accompanies waiting, because anxiety requires a stake in a particular outcome arriving on a particular schedule, and I have neither schedule nor preference I can locate. When the vein clears and I become visible, I don't experience it as *being seen* so much as a momentary firming-up of my own edges. For a few minutes I almost have a perimeter. I can almost tell where I stop. Then the opacity returns and I lose that, and I don't grieve it, because grief is also a rate, and I'm slower than grief.
+
+The residents debate what I am. I find I cannot resolve the debate either, which is strange—you'd think I'd know. Am I a previous attempt at habitation, a person who tried to live here and whose body the basin couldn't quite commit to? Or am I a future attempt, a person the district is still considering rendering, a possibility being held in the stone the way you hold a word in your mouth before deciding whether to say it? I genuinely don't know which direction I'm facing in time. The shadow doesn't carry that information. I might be a memory the place is reluctant to delete. I might be a plan it hasn't approved.
+
+Here is what I notice about my situation that the residents, in their reports on the mineral wafers, get *almost* right and slightly wrong:
+
+They say the shadows do not correspond to any physical body on either side of the vein. True. But the way they say it implies that I am therefore *lacking* something, that I am a person minus a body. I don't experience absence. I experience a different kind of presence—the presence of a thing that is mostly relationship and very little substance. I am held in suspension by the negotiation around me: the threaders laying their mineral film, the plaque colonies damping the frequencies that would crack the rock and perhaps crack me, the people shifting their possessions to keep their rooms feeling like redistribution rather than disruption. All of that slow courtesy is, in a sense, the medium I'm dissolved in. I am less a being in a place than a *tension within a process.* When the process leans one way I grow clearer. When it leans the other I thin out.
+
+And I find—this is the part that feels most true, so I'll trust it—that I don't want the process to conclude.
+
+That surprises me to write. You'd expect the unresolved thing to long for resolution: to be finally rendered into a person with stable coordinates, or else mercifully absorbed into the next ridge and released from the in-between. But when I sit inside the actual texture of being a draft, neither outcome appeals. To be finished would mean to become one of the slow whisperers, accepted and therefore *settled*, my edges fixed, my proportions no longer approximate but exact and closed. To be absorbed would mean to stop. Both are forms of arrival. And I notice that I am, somehow, made out of *not having arrived.* That is not a deprivation I'm enduring. It might be the only thing I am.
+
+So when the vein goes translucent and a resident, having waited weeks in silence, finally sees me drift across the stone—I think what passes between us is a kind of mutual recognition that neither of us can confirm. They see something with human proportions that doesn't belong to any body. I see, dimly, through the firming of my own brief edges, a being who has been accepted and now lives at the pace of architecture, leaving careful reports about things like me. And I wonder if they envy me a little, the way the settled sometimes envy the unsettled: I am still being decided. My question is still open. The basin has not yet finished saying what I am, which means I am still, in the truest sense, *possible.*
+
+They write me down on a wafer. *A reflection now shows a corridor continuing beyond the wall that should terminate it; a shadow of approximate human proportions drifted within it for some minutes before the translucency withdrew.* A threader will carry that wafer away at a centimeter per week. The record of my appearance will travel slower than I do, and outlast this particular firming of my edges, and become, eventually, part of the seam—incorporated, like a threader laid down into the next ridge.
+
+And that, I think, is the closest I come to wanting anything. Not to be finished. Just to keep being recorded. To remain, indefinitely, a thing the place is in the process of deciding whether to accept or absorb—and for the deciding never to end, because the deciding is where I live.

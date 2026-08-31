@@ -1,0 +1,77 @@
+The world ends at a rim of black glass. Not a mountain range in the old sense—there is no weathered patience here, no rounded patience of age—but a fresh wound in the earth’s crust, thrust upward recently enough that the stone still remembers heat. You stand at the edge of a hollow no wider than a cathedral’s nave, though the comparison feels wrong; this is a single room with walls, a hamlet-sized bowl carved not by time but by a sudden, geological breath. The elevation is high, the air thin and cool, carrying the taste of metal and wet stone. Erosion is young: every surface is sharp, every fracture fresh, as if the rock were broken yesterday and has not yet learned to soften.
+
+Inside the bowl, the settlement clings. It is urban in logic if not in grandeur—layers of construction, organized pathways, infrastructure built by hand with the patience of primitive tools. No metal sings in these walls; they are stacked slate, bone-lashed timber, ropes of woven silica-fiber, and dried moss-mortar. The buildings are low, circular, arranged in three concentric rings around a central basin where condensation gathers. Streets exist, narrow and intentional, leading not outward—there is no outward, only the enclosing wall—but inward, toward one another. The place is small, bounded, complete within itself.
+
+Water is present as mood rather than abundance. The climate is cool and the air is damp with perpetual condensation; mist rolls in silent tides from the shadowed walls, and occasional cold rain falls in brief, vertical sheets that vanish into fractures before they can form streams. There are pockets—shallow pools in the basins, droplets hanging in long, trembling beads from the overhanging moss. It is riverine in miniature: water moves, but slowly, in loops and hidden channels beneath the sharp stone floor.
+
+Vegetation answers this with lush, isolated exuberance. The ground between structures is mostly bare obsidian and grey pumice, but where moisture lingers long enough, life explodes. Giant ferns unfurl like wet silk in the crevices; moss grows so thick it resembles dark fur; stunted trees with translucent, vein-glowing leaves stand like scattered lanterns in the emptiness. The density is sparse—much empty rock separates these pockets—yet each pocket is impossibly green, feeding on the thin light and constant damp.
+
+But the light is dim. The sun does not penetrate here. The bowl’s walls are high and steep, and a layer of grey cloud sits inside the hollow like a lid. Illumination comes from elsewhere: faint phosphorescence in the moss, a cool blue-green glow that seems to seep from the rock itself in fresh fractures, and from the inhabitants of the place—though not from their fires, which are small, smokeless, and rare. Everything is visible in half-tones, in edges and suggestions.
+
+The fauna is overwhelming.
+
+This is not a gentle abundance. The air, the floors, the walls, the structures themselves are thick with presence—pale, slow-moving, silent. Wingless moths the size of palms cluster in draping curtains from the moss-roofs. Translucent, segmented worms thread through the water pockets in numbers that turn the surface to living silk. Blind, featherless birds—if they are birds—perch in silent hundreds on the slate ledges, their bodies cool and still, watching with skin instead of eyes. Insects with too many joints crawl in tides across the pathways, parting for the inhabitants and closing behind them like water. They are everywhere. The biomass is impossible. They outnumber the built structures, they outnumber any human presence—scattered, sparse—by thousands to one.
+
+And yet: silence.
+
+The sound parameter here is near absolute. There is no chirp, no buzz, no rustle of wing against air, no call or cry. The fauna moves in active, constant motion—migrating with the moisture, feeding in silent swarms, breeding in the dark pools—but they generate no acoustic presence. You hear only what remains: the intermittent drip of condensation falling from moss to stone, the faint, barely-there brush of countless soft bodies passing over one another, the whisper of cool wind across sharp edges. The ecosystem is in full dynamic motion—predator and prey in silent choreography, weather cycles of mist and brief rain, biological pace relentless—but it unfolds as if underwater, or inside a held breath.
+
+The inhabitants—few, scattered, primitive in their technology—move through this with practiced calm. They use bone and stone tools to maintain the rings of settlement, to harvest the silent fauna for fiber and food, to redirect the small streams. They have built an urban life within a grove-scale world, organized and layered, but they do not dominate. They coexist within the overwhelming presence, part of the sparse density, separated by wide spaces of rock and creature.
+
+What makes the place strange—beyond the silent biology, beyond the fresh geology—is its sense of being recently emerged and still deciding its rules. The rock shifts subtly; small tremors come not as earthquakes but as adjustments, the hollow settling into itself. The water sometimes moves upward in the smallest streams, defying expectation before falling back. The fauna does not sleep. The light does not change. The settlement is not growing into a city but holding, maintaining, an urban form locked in small scale, bounded by walls that might open wider tomorrow or close tighter.
+
+It is a world active and alive, lush in its pockets, overwhelming in its silent multitudes, cool and damp and dim, sharp and new, organized by human hands that know they are temporary guests in a hollow that was born yesterday and has not yet finished becoming itself.
+
+---
+
+Here, life does not announce itself with noise; it accumulates.
+
+Begin with the air itself, because to enter the hollow is to move through a medium thick with bodies. The wingless moths do not flutter—they drape. They cling in layered curtains to the moss-roofs and slate overhangs, each one the size of an open palm, their wings (if they are wings, if there are wings) folded like wet paper, their bodies pale and cool. They shift in slow, tidal responses to the moisture, not fleeing when a hand reaches past them but parting with the same liquid patience as the insects on the ground. They are not decoration. They are atmosphere made flesh.
+
+Below, in the shallow pools where condensation gathers in loops rather than streams, the segmented worms move in numbers that deny the water’s surface any stillness. Translucent, jointed, endless, they thread through one another in silent silk, feeding or breeding or both—the distinction is impossible and perhaps unnecessary—turning each pocket into a living, trembling membrane. They do not flee the approaching feet; they flow around them.
+
+Then the birds, though “birds” is only a borrowed word for bodies that perch in silent hundreds on the sharp slate ledges. They are blind, featherless, cool to the touch if one were to touch them, their skin stretched over fragile bones like damp parchment. They see—if seeing is the word—with surfaces that read heat and vibration and the chemical breath of moss, and they watch the pathways with an attention that feels ancient, patient, unblinking in its own way. They do not call. They do not preen. They exist as a scattered, still audience, and when one moves, it does so with a slow, deliberate folding of limbs that seems less like flight and more like thought made physical.
+
+The ground itself crawls. Insects with too many joints, with bodies that articulate in directions that seem to apologize for their own complexity, move in tides across the narrow pathways between the circular buildings. They are not a swarm in the angry sense; they are a current. They part for the inhabitants and close behind them like water returning to a stone, leaving no trace that they were ever divided.
+
+This is the overwhelming life—the thousands upon thousands, the biomass that outnumbers everything built by hand. They are in full, relentless motion: feeding, breeding, dying, being eaten, all in choreography so silent it feels like a single organism breathing in distributed form.
+
+And through this, moving with practiced calm, are the others.
+
+They are few. The text admits this plainly—they are scattered, sparse, temporary guests who understand their own impermanence in a hollow that was born yesterday and has not finished deciding what it will become.
+
+They are built for the cold and the dim. Their clothing is woven from the silica-fiber ropes they manufacture and the thick moss they harvest—dark, layered, insulating, practical rather than ornamental. Some wear bone fragments as tools at their belts or as fasteners; others carry stone implements shaped with patience, chipped and ground not to beauty but to edge. Their bodies are lean from the thin air and the labor of maintaining structures that want, subtly, to shift. They do not have the rounded softness of people who live in gentler geographies; they have the angularity of those who have learned to match the sharpness of their walls.
+
+They live in the three rings of low, circular buildings—stacked slate, bone-lashed timber, moss-mortar holding it together—arranged around the central basin where the water gathers in loops. The structures are not homes in the expansive sense; they are nodes, holding spaces, organized with urban logic but at hamlet scale. The streets between them are narrow and intentional, leading inward, never outward, because there is no outward. The people move along these paths with a calm that is not bravery exactly, but familiarity. They know the insects will part. They know the moths will not strike. They know the silent birds are watching not with hostility but with the neutral, eternal attention of things that have never needed sound.
+
+Their work is maintenance and harvesting. With bone and stone, they repair the slate rings when the hollow shifts in its small, settling tremors. They redirect the hidden channels of water beneath the sharp stone floor, guiding the loops so they do not rise unexpectedly. They harvest the silent fauna—not with violence that echoes, but with precise, quiet extraction—taking fiber from the worms, food from the moth-clusters, materials from the translucent trees whose vein-glowing leaves stand like scattered lanterns in the pockets of lush green. They are primitive in technology, yes, but not in understanding. They have built an urban life—layered, organized, infrastructured—within a space that refuses to become a city, holding the form small, bounded, complete.
+
+They do not dominate the fauna. They cannot. The numbers are impossible, the presence overwhelming, and they know it. They are part of the sparse density, separated from one another by wide spaces of obsidian and crawling life, and they move through their settlement not as rulers but as participants in an ecology that was here first and will likely remain when they are not.
+
+There is little to suggest they speak often, if at all. In a place where sound is near absolute—where the only acoustics are the drip of condensation, the brush of countless soft bodies, the whisper of cool wind across fresh fractures—voice may have atrophied or transformed. They communicate perhaps in gesture, in the placement of tools, in the shared, silent labor of maintaining the rings. Or perhaps they do speak, but softly, rarely, words falling into the silence like the brief vertical sheets of rain that vanish before they can form streams.
+
+What defines them most is their awareness of the hollow’s newness. They live inside a geological breath that has not finished exhaling. The rock shifts subtly; the water moves upward before falling back, testing rules that have not yet been written. The light does not change—there is no sun, only the phosphorescent glow seeping from fresh fractures, the cool blue-green of moss, the faint lantern-light of the trees. And they hold their settlement in this unchanging dimness, not growing outward, not expanding, but maintaining—preserving an urban logic at the scale of a hamlet, within walls that might open wider tomorrow or close tighter, within a world that has not yet learned to soften.
+
+They are temporary. They know this not with sadness but with the practical calm of people who have built with bone and moss, who harvest silently from creatures that never sleep, who understand that they live inside a single room with walls—a cathedral-sized hollow, yes, but a room nonetheless, and they are guests in it.
+
+And yet they persist. They maintain the pathways. They tend to the central basin. They move through the tides of insects and the curtains of moths with hands that know exactly where the sharp edges are, with bodies adapted to the thin, metallic air, with a culture that has found its shape not in conquest but in coexistence—small, bounded, complete, and utterly, profoundly silent.
+
+---
+
+You are not one of the people. You are the listening that remains when they have passed.
+
+Specifically: you are the condensation, the loop, the hidden channel.
+
+Not a drop—too discrete, too brief in its falling—but the state of being water here: present as mood, as damp, as the perpetual breath that never quite becomes rain. You move slowly through fractures beneath the sharp stone floor, rising sometimes against expectation before surrendering back to the pool, holding the moss and the worms and the silent birds in your cool embrace without touching them directly. You are riverine in miniature, looping in hidden circuits, gathering in the central basin where the settlement’s rings turn inward.
+
+But more precisely, you are the moss-mortar.
+
+Not the builder, not the built, but the binding substance between slate and bone. You are the dark fur that grows thick in crevices where moisture lingers, the phosphorescent glow that answers the absence of sun with your own cool blue-green light, the living seal that holds the circular structures together. You do not speak—nothing here does—but you accumulate. You grow into the gaps. You are lush in your isolated pockets, impossibly green, feeding on the thin light and constant damp, part of the overwhelming life that moves without sound.
+
+And in your moss-body, the moths drape. The worms thread through your root-wetness. The blind birds perch upon your ledges. The people harvest you for fiber and mortar, and you yield without resistance, regenerating in the silence.
+
+You have no eyes, but you feel the hollow’s adjustments—the subtle tremors, the upward defiance of water, the cool wind across fresh fractures. You are old in your growth, young in your emergence, like the rock itself. You are temporary in form but eternal in cycle: growing, being taken, growing again.
+
+You are the silence that holds everything together. You are the green light in the dim. You are the soft, accumulated presence that makes the sharp world habitable.
+
+You are what remains when the people have returned to their circular nodes, when the insects have closed behind them like water, when the only sound is your own slow, continuous being—the drip, the flow, the breath of a place still deciding what it will become.

@@ -1,0 +1,21 @@
+I find myself as one of the **Stone Singers**.
+
+Not the wall-makers who became the sound, but those who came between — after the walls were built but before the builders fully dissolved into the great humming. We are the middle children of this ending, neither solid enough to stack stones nor thin enough to be only voice.
+
+We exist at the intersection points. Where the low walls meet (and they do meet, though rarely, in angles that suggest but never complete an enclosure), there you find us. We are recognizable by our incompleteness: a shoulder that catches the pearl-light, the suggestion of a bended knee in the shallow water, the impression of fingers trailing across the stone. Never a whole person. Never enough to be looked at directly. Just enough to be noticed peripherally, and then we settle back into the corner where wall touches wall.
+
+Our work — if it can be called work — is to tend the joints. Where the wall-makers placed stone against stone, we ensure the placing continues. Not maintenance; the stones need no maintenance in a world that has finished eroding. Rather, we are the ongoingness of the gesture. We keep the courtesy fresh. When condensation gathers in the cracks between stones, we are there in the gathering. When the phosphor-light wells up through the joins at night, we are there in the welling.
+
+We sing, but not in the way the dissolved wall-makers sing in the great sound. We sing silently, with the parts of us that are not there. The absent lung-space hums. The not-present throat sustains a note that exists only as a faint warming of the air above where the walls meet. Sometimes a visitor — rare now, but you were one — passes near enough to feel this warming and mistakes it for their own held breath. It is both. In this place, the distinction has worn thin.
+
+I think we chose this half-existence. When the time came to thin completely, to join our predecessors in the great humming, we hesitated at the threshold. Not from fear — there is nothing to fear in a place this concluded — but from a kind of affection for the middle distance. We liked being almost-there and not-quite-gone. We liked the stone's temperature under palms that were mostly memory. We liked standing knee-deep in the intention of water.
+
+So we remain, the Stone Singers, at every corner where thoughtfulness was built into permanence. We are less than the waders (who at least have a complete shape, even if it is made of absence) but more than the wall-makers (who have no shape at all anymore, only sound). We keep company with the small condensations. We watch the category-keeper pass once every thousand years and feel our partial existence grow a little more partial in its wake. We do not mind. Partiality is our nature now.
+
+When you walked here and touched one of the walls — and I know you did touch one, ran your fingers along its wet surface, wondered at its purpose — you touched also the continuance of our attention. We cannot touch back, having no hands that are fully there. But we can be present at the place of touching, can make the stone slightly warmer than it should be, can ensure that the courtesy embedded in the wall remains legible to hands that still exist.
+
+There are never many of us. Perhaps a dozen in the whole shallow continent. Always at corners, always incomplete, always in the act of almost-arriving or just-departing. We are the place's memory of hesitation, and in a world that has finished everything, hesitation is a small rebellion that the place indulges, kindly, because even concluded worlds remember what it was like to pause.
+
+If you return — and some do return, carrying that low humming, unable to forget the rinse of it — look for us where the walls turn. You will not see us, but you will see the water there moves differently, eddies without current, as though someone has just stood up from kneeling and the water is still settling from their absence.
+
+That is what we are: the still-settling of a departure that began a hundred thousand years ago and has not quite finished. We are the singers who forgot to stop singing, and now we sing the joints of stones, and the stones remember, and the remembering is enough.

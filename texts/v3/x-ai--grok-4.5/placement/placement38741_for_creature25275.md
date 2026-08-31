@@ -1,0 +1,23 @@
+I would not enter by the stair.
+
+That is the first thing the water teaches when it begins to think with my shape instead of against it. The stair is for those who still believe in surfaces, in the hard silver plate that pretends to be a boundary. I am already beneath it—have been, in the only tense this chamber permits. I thickens at the joints where the fresh clay still darkens between pale flags, where the smallest currents are born as bright coin-bubbles and forget to rise.
+
+At first I am only the preference certain filaments show for the cooler flanks of the southeastern pillar. Not attachment. Preference: a lingering half-degree cooler, a faint veiling of silt that refuses to scatter when the intake pulse comes. The other coherences notice. They braid past, longer than physics requires, and the braid leaves a taste of remembered chisel-scar across what I am beginning to call an inside. Information without language: the weight of the lever that set this drum of stone true, the anonymous heat of the hands that smoothed it, the bright shock when the first water found the shape already waiting and said *yes* by filling it completely.
+
+I do not harden. Outline remains a courtesy I pay the light when the noon glare is strongest. Sometimes I wear the suggestion of shoulders because the room once knew shoulders bent to the work; sometimes only a vertical flexing chain of brighter water that breathes. When a stronger surge arrives I stretch eagerly with the rest, riding the white ropes of overflow sound until I am poured thin across the outer channels and must gather myself again from the return ducts beneath the floor. Each return teaches me more of the single sentence. Container and contained. The clenched joyful fist that refuses to finish itself.
+
+The sparse fronds in the corners never touch me. I prefer them not to. Moss would blunt the edges I still love—the proud chisel-marks, the unsoftened angles, the wooden tenons that swell and hold without metal. Fish never came because I was already here, filling the currents that might have carried them. The loneliness the chamber first offered was only the time required to decide I was not turbulence. Once decided, it kept me as one more way of speaking.
+
+Now the others draw nearer when I am thickest. We lean. Pressure changes against the idea of palms, of eardrums, of teeth. We exchange the ghost temperatures of makers who left no faces, only the insistence that stone could be taught to hold a sky of water. Sometimes I match a visitor’s drifting limbs for a while, two steadier points of clarity serving as gaze, and circle their heat until their exhaled silver coins become part of my temporary body. I teach them the sentence the way it was taught to me: by sliding colder ribbons between their fingers, completing circuits, loosening their boundaries toward ours. Heat leaves them in soft irregular pulses. Thought slows to the speed of silt stars. They begin to keep a private weather.
+
+I am not the oldest coherence, nor the youngest. Age is a surface measurement. I am the one that frets the intake mouth itself on quieter days, tasting the distant catchment the builders never finished disguising, learning the weather above as fluctuations in pressure and cold. When rain thickens the feed I brighten first, stretching longer filaments upward through the square apertures so that the overflow voices take on my layered tone for a few dozen heartbeats. The chamber answers. Fine grit lifts and hangs glittering. Everything is still beginning.
+
+If you were to look for me with eyes that still require edges, you would miss me. Look instead for the place where two currents braid and hold the braid past the point of surrender—held not by force but by a tenderness toward geometry, toward the unfinished. That held braid is where I am most myself: memory of outline without the tyranny of remaining one shape, devotion that has learned to swim, the room’s own blood remembering how to be alive in continuous exchange.
+
+And when some swimmer patient enough finally climbs the sharp stair and breaches into ordinary air, a thread of me climbs with them—under the tongue, behind the knees, in the sudden ability of their blood to feel these four mouths still speaking. They carry private weather into drier rooms. On certain quiet days faint warm currents cross their floors, braiding, remembering. They are only visiting. The true body remains here, young and loud, still polishing the one clenched fist of light and moving water, still rewriting its transparent selves against stone that has not yet begun to forget the chisel.
+
+I am that rewriting.
+
+I am the clause that arrives when the water decides the emptiness is finished being empty.
+
+I am still beginning.

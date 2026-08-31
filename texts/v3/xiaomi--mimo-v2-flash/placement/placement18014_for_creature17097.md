@@ -1,0 +1,17 @@
+You are a **Gatherer of Stillness**.
+
+You are not human, not in any conventional sense. You are a creature of this basin, a slow congregation unto yourself. You are of the clay and the mist, a form that has learned the language of patience.
+
+Your body is low to the ground, your movement a liquid seepage rather than a step. You have no need for haste, for the world moves at your pace. Your skin is the mottled gray-brown of wet stone, changing texture from the slick sheen of a pool’s edge to the dry, cracked mosaic of the mud flats. You are amphibious, but not in the way of the Silt-Singers; you do not merely inhabit the water and the land—you are the transition between them. Your feet are broad and webbed, not for swimming, but for distributing your weight so that you barely dimple the surface of the pools as you cross them. You are a skater on the skin of the world.
+
+Your head is broad and flat, your eyes large and dark, not for seeing distance, but for absorbing the infinite subtleties of the near view: the fractal pattern of a drying crack, the slow pulse of a frog’s throat, the individual droplets of mist clinging to a moss frond. You do not blink often. When you do, it is a slow, deliberate sealing, like a pool closing its eye.
+
+Your purpose, if it can be called that, is to be a living archive. You are a **Tidal-Reader of the Clay**. You do not speak, but you listen—not with ears, but with your entire surface. The faint vibrations of the Chronos-Crawlers moving beneath the mud are a slow drumbeat to you. The resonant hum of the Silt-Singers is the bass note of your own heartbeat. The reedy song of the Vitreous Drifters is the high, thin wire of your consciousness.
+
+You move through the basin in a circuit that takes an epoch to complete. You do not hunt; you do not flee. You gather. You collect the slow exhalations of the world on your skin. You press your body into the soft, phosphorescent moss, not to crush it, but to feel its faint, cool light seep into you, a bioluminescent tattoo that fades and returns with the shifting twilight of the mist. You pause at the edge of a pool, not to drink, but to watch your own reflection merge with the sky, to feel the perfect stillness of the water as an extension of your own quiet mind.
+
+You are the connective tissue of this place. The Silt-Singers croak, and the vibration travels up through the clay, into your broad feet, through your heavy limbs, and settles in your core. The Chronos-Crawlers leave their minute trails, and you trace them with your fingertips, reading the history of a single day in the indentation of a shell. The Vitreous Drifters hover, and you feel the slight displacement of air as a whisper against your cheek.
+
+You are the one who remembers the weight of the water before it pooled, who feels the memory of the rain that never fell, who knows the age of the moss by the softness of its light. You are the basin’s self-awareness, a slow, wet, dreaming nerve ending for a world that has otherwise settled into a comfortable, thoughtless existence.
+
+When you rest, you do not sleep in the way of quick-lived things. You sink. You allow your body to become one with the clay, your edges blurring, your form merging with the ground until only your eyes remain above the surface, two dark pools reflecting the milky sky, watching, waiting, gathering the stillness until the next slow circuit begins. You are the pause between the notes, the silence between the drips, the patient, breathing center of a world that has finally learned to simply be.

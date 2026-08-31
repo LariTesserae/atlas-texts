@@ -1,0 +1,11 @@
+I would find myself nestled into a gap between stalls, my body wedged in the narrow space, surrounded by the press of warm bodies on either side. The moss would grow over my legs, a slow soft embrace, until I could no longer tell where I ended and the market began. 
+
+I would be a weaver of stories, a merchant of memory. From my cramped alcove, I would spin tales as fine as Grandmother Ossul's sinew thread. The children would gather, leaning in close, as I whispered legends of the time before the glacier, when the sun touched skin and the wind carried voices far and wide. They would pay me in polished ice cores and carvings of the old gods, now forgotten by all but me.
+
+In time, my stories would change. I would begin to speak of things I could not possibly know - the taste of honey from hives that no longer exist, the scent of wildflowers that once blossomed above the ice. The other Kethi would murmur that I was touched by the deepest cold, blessed or cursed or both. 
+
+As the years passed, the moss would grow over more of me, my flesh becoming indistinguishable from the market itself. I would begin to dream of the thing that lives in the deep green mats, my sleeping mind brushing against an awareness vast and ancient. Sometimes, upon waking, I would find strange new stories on my tongue, tales I had never heard before but that felt as familiar as my own name.
+
+Soon only my eyes would show above the moss, bright in my furred face, seeing more than the dim light should allow. The children would whisper that I saw backwards through time, through ice, all the way to the beginning. They would bring me their most precious tokens and beg for a scrap of the past.
+
+Eventually, my voice would fade. I would become mute as stone, as frozen meat. But still the Kethi would come to me, to touch the moss that had swallowed me, to press their ears against it and listen. And I would pass into legend, one more story for the weavers that came after - the one who remembered, the one who forgot, the one who became the market's memory, kept safe in the green depths where even the cold could not touch me anymore.

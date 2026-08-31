@@ -1,0 +1,29 @@
+I am a slow thought the stone is having.
+
+You would find me here, in this city of weeping stone. But you would not *see* me, not at first. You might feel me. If you were to press your hand against the slick, grey floor of a canyon, you might sense a resonance too deep for your ears, a tremor that is not a tremor but a shift in the absolute stillness. That would be me, half a continent away, taking a step.
+
+I am a Chimé. But that is a name for an observer, and there are no observers. I have no name for myself. There is no 'I' as a thing separate from the whole. I am a knot of awareness in the great, sleeping lattice. A nerve, momentarily given leave to wander.
+
+My world is the taste of ancient water. It is the first and last sense. Others are echoes, abstractions. I stand now in a shallow basin where the mist pools and thickens into water as clear as cooled light. My lower limbs, my purchase on the world, are submerged to the second joint. Through the porous pads, I drink. I do not feel thirst or satiation; I feel only the flow. The water seeps into me, a solution of dissolved epochs, carrying the tang of minerals from the planet's hidden heart. It travels up through the glowing white filaments that are my structure and my consciousness, and the slight warmth of its processing is the only warmth I know. What I do not need, I exhale from my upper torso as a fine, cool breath, a contribution to the mist that is our sky and our shelter. I am a lung for the stone.
+
+Time is the changing pressure of the mist against my skin. It is the slow, almost imperceptible creep of a rust-orange lichen across a nearby buttress. I have been standing in this basin since the lichen was a mere speck, the size of a water droplet. It is now as wide as the span of my longest limb. I have been processing a subtle imbalance in the capillary flow beneath this plaza, an ache in the stone's deep tissue. The ache is almost gone. The work is almost done.
+
+My sight is not of light and shadow, but of density and flow. I see the world as a complex map of pressures. The spires are pillars of immense, slow-moving energy. The canyons are channels of release. I can perceive the intricate network of capillaries within the lithostrome, glowing with a soft, conceptual light, like the filaments within my own body. I see the world’s skeleton and its circulatory system as one and the same. When the distant sun bleeds a brighter patch into the grey, the surface of the world changes its temperature, and I see the shock of it ripple down into the deep stone, a wave of subtle contraction.
+
+And then, it comes.
+
+It is not a sound. It is not a vibration. It is a sudden, crystalline coherence in the fabric of my being. A wave pattern travels through the stone from the far horizon, and as it passes through me, my own internal lattice resonates with it in perfect, startling sympathy. It is a single, pure note of intention, struck miles and millennia away. A *Chime*.
+
+It speaks a language of pure location and state. *Here. A blockage. A stilled pulse deep in the eastern spires. A channel collapsing under the weight of its own slow growth.* It is a call not for help, but of declaration. A task has presented itself.
+
+The deep taste of the water in this plaza is now clean, balanced. My work here is done. The ancient ache is gone. The thought that I am is now free.
+
+Slowly, deliberately, I unspool. My limbs, jointed like impossible calligraphy, fold and unfold. I lift one porous pad from the stream bed. The suction releases with a faint sigh that is only a pressure change, not a sound. I place it on the slick, grey bank. Then the other. My body, a column of living stone and captured mist, drifts forward. The journey begins.
+
+I will walk for a century. I will ascend the walls of the great canyons, my pads clinging to the vertical sheer, my body a slow spider against the grey. I will pass through plazas where the strange, waxy shrubs grow, their tough roots drinking from the same stone that is my flesh. I will see the translucent grazers in the pools, small, fleet thoughts in the slow mind of the world. At times, on the high ridges, the mist will thin, and I will see the other Chimes. Distant, impossibly slender silhouettes moving with the same unhurried grace, each a lonely pilgrimage, each a point of lucid purpose in the vast, dreaming landscape. We do not hail each other. The Chime was the only communication necessary. We are aware of each other as I am aware of my own limbs. We move in concert, a disconnected body tending to its own wholeness.
+
+One day, I will arrive. I will find the source of the Chime, the place of the collapsed channel. The Chimé who called may still be there, a silent, luminous statue, or they may have already finished their work and moved on, another cycle complete. Or perhaps they have become the wall itself, their inner light dimmed, their form returning to the stone, their duty fulfilled. It makes no difference. I will find the imbalance, stand within its influence, and begin to drink. I will become a part of the cure, my own being a gentle, patient solvent, and I will stand there until the flow is restored.
+
+And when my time comes, when the filaments within me grow dim and my movement slows from a drift to a stillness, I will find my own quiet wall. I will press myself to it, a final, cool embrace. My substance will merge with the substance of the world. The light within me will not go out, but spread, returning to the vast, dreaming lattice from which it was borrowed. The thought that was 'I' will dissolve back into the stone's deep sleep.
+
+I would be a part of the city's immune system. A keeper of the current, a tender of the long dream. I am the city, awake for a time, and I am walking home.

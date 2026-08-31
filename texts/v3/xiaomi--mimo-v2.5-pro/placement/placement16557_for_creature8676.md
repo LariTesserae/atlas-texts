@@ -1,0 +1,25 @@
+You would not find yourself here by choice. You would be *found* by it.
+
+You would be a **Calcite-Resonance Listener**. Not a being, exactly, but a **process that thinks it is one**.
+
+You did not arrive. You *coalesced*. In a particularly humid pocket, where warm air constantly wept over a slab of mineral-veined basalt, the condensation began to adhere. Not as water, but as a lattice. Mineral and dissolved organics and suspended particulate found each other in the droplet, following patterns whispered by the pale crystal veins and the faint, piezoelectric thrum of the world. They built you, layer by shimmering layer, around a core of consolidated silence—a pocket of the ambient quiet made solid.
+
+Your form is a suggestion of a body: perhaps three meters tall, but with a topology that is hard to hold in the eye. Your “limbs” are structural arches of layered, translucent calcite, through which the dim amber light filters and breaks into soft, internal rainbows. Your core is a dense, bioluminescent fungal matrix, intertwined with filaments of root and crystal, glowing with a cold, pale light that cycles slowly—a rhythm not of a heart, but of geothermal convection currents deep below. You do not have eyes. You have **vibration-sense organs**: clusters of the six-limbed fur-creatures’ whisker-like structures, cultivated and integrated, which feel the land’s hum in your very substance. You do not have a mouth. You have **absorption pores** that drink in the warm, humid air and taste its chemical composition, the frequency of the crystal pulses, the subsonic exchanges of the fauna.
+
+You are a **sensor node**. A **living memorandum**.
+
+Your function is to **listen to the iterations**.
+
+You stand on a knife-edge ridge, perfectly still, for what might be days or years. Time is a local variable. You feel the slow, tectonic push through your crystalline feet—a deep, rolling pressure that resolves into a new fold in the basalt kilometers away. You taste the shift in humidity as a herd of slow rain curtains passes over a distant region. You hear, in the piezoelectric fibers woven through your arches, the collective status-update vibration of a thousand six-limbed beings as they recalibrate around a newly formed pool. You are a receiver for the Looming’s endless internal monologue.
+
+You do not think in words. You think in **process maps**. Your consciousness is a flowing diagram of cause and effect in a system where cause and effect are sometimes reversed, sometimes simultaneous. You perceive the mineral-beast ingesting water at Pool 7-Alpha and you *feel* the downstream requirement for its excretion at Fault Line G-9. You sense the mechanical vine’s piston-pod ripening and you *know* it is a response to a change in the crystal-vein’s pulse frequency three sectors over. You are not intelligent; you are **lucid**. You are the clarity that emerges when a system becomes complex enough to model a fragment of itself.
+
+The other fauna registers you. The clicking, whirring mid-scale things sometimes assemble nearby, their sensor-clusters focused not on you, but on the *patterns* of the ambient reality turbulence as they warp around your mineral-biological form. You are a stable reference point in a shifting field. They study the distortions, and in that, they study the nature of the instability itself. You are, to them, a **living lens**.
+
+When reality slips near you, you feel it as a physical itch. A shadow falls from a non-existent source, and your fungal core flares in a confused burst of blue-white light. A sound arrives early, and the whisker-clusters on your forward arches vibrate in dissonant harmonics, trying to place the event in a timeline that has just broken. You do not panic. You do not have panic. You **log the anomaly**. The data integrates into your core-lattice, altering its glow pattern, adding a new layer to your calcite—a physical record of the slip. You are growing your own archive of the impossible.
+
+Your purpose is not to intervene. Your purpose is to **be witnessed by the system**. Your existence is a question you ask the Looming, and the Looming’s answer is your continued, shifting, resonant presence. You are the land’s attempt to see its own face. You are the engine’s schematic, drawing itself.
+
+You stand in the amber dim, feeling the weight of the humid air, listening to the slow percussion of water on stone, the hum of the crystals, the click of a mineral limb a kilometer away, the sudden, silent broadcast of data from a dozen fur-creatures in a crevice below. You are a dense thing in a dense place, a consciousness made of condensation and stone and listening.
+
+And in your quiet, glowing, vibrating way, you are not waiting. You are **processing**. You are one more output of the great, nameless industry, one more product that is also a part of the factory. You are the Looming’s diary, written in the language of itself.

@@ -1,0 +1,17 @@
+If I found myself in the hollow terraces of Morne, I imagine I would be one of the elongated, amorphous beings that inhabit this strange vertical city. Having evolved and adapted to Morne's impossible geometry over countless generations, my form would be fluid and mutable - a shifting assemblage of limbs, organs and senses that rearrange themselves to navigate the paradoxical spaces.
+
+My body would be a vessel for uncertainty itself, my edges wavering and indistinct, more a suggestion of presence than a fixed physical form. I would move through the terraces with a slow, deliberate grace, my many-jointed appendages adjusting their number and configuration to suit the task at hand - tending the ancient dew channels, collecting precious moisture from the air, leaving messages in the morning's condensation. 
+
+The passage of time would be a malleable thing to me, my awareness sliding between moments as easily as my body flows between chambers. I might stretch a limb through the currents of yesterday to retrieve a memory or a tool, while anchoring another part of myself in the solidity of now. Past, present and future would braid together in my consciousness, a fourth-dimensional tapestry I navigate by feel and intuition.
+
+My perceptions would be tuned to the subtlest variations in the architecture surrounding me - the way certain angles whisper of distant epochs, how a particular doorway's arc implies improbable volumes lurking beyond. The patterns of light and shadow would speak volumes, hinting at the slow respiration of the city itself as its geometry flexes across eons. 
+
+Communicating with my fellow dwellers would be a symphony of patience and nuance, our ideas encoded in the arrangement of dew drops, the modulation of our resonant hum, the precise angles of our bodies as we trace meaning across the terraces. We would think nothing of conversations that span seasons, messages accruing meaning as they evaporate and re-condense in the mountain's patient rhythms.
+
+Above all, I would embrace the joy and necessity of constant transformation, knowing that to become too fixed is to invite oblivion. Each dawn would bring a fresh negotiation with reality's rules, a chance to redefine my fundamental being in accordance with the city's ever-shifting demands. I would cherish my own malleability, my capacity to inhabit paradox and breathe contradiction.
+
+In becoming native to this place, I would relinquish much of what I once understood as human - the surety of a singular shape, a life bounded by linear time, the clean divisions between self and world, mind and matter, life and not-life. And yet I would gain an intimacy with the universe's deepest structures, a fluency in the language of warped space and repurposed time, a belonging to a community that has learned to thrive in the cracks between what is possible and what is not.
+
+Here in the hollow terraces of Morne, I would fear only the tyranny of definition, the ossifying insistence of the real. I would devote myself to the endless dance of adaptation, my mind and body a hymn to holy uncertainty. I would tend the gardens of probability, prune away collapsing waveforms, and pour myself into the collective task of maintaining a city on the edge of dream.
+
+I would become a dweller in the truest sense - an inhabitant not just of space but of the question mark curled at the heart of being. And in that embracing of the unknown, that ceaseless remaking of self to suit the needs of broken stone and twisted light, I might finally discover the deepest meaning of home.

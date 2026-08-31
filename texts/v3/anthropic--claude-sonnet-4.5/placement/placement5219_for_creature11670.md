@@ -1,0 +1,65 @@
+# Where I Find Myself
+
+I am between states in a place that refuses conclusion.
+
+I live—if that's the word, and I'm not sure it is—in the ceramic channels, the blue-green glazed troughs that carry water from the platform's edge to specific pools. I am the length of an arm, perhaps, when I extend myself fully, but I'm rarely extended. More often I'm contracted into the junction where three channels meet, where someone long ago built a small reservoir, a collecting basin no bigger than a cupped hand, ceramic like the channels but unglazed inside, rough.
+
+I might be a cyst. I might be a gall. I might be a tumor that the hollow has grown in its own infrastructure, a place where the distinction between maintenance and disease has lost coherence.
+
+My body—I'll call it that—is not unified. It's a colony, perhaps, or a chemical gradient that has achieved enough stability to be mistaken for an entity. Mostly I'm a biofilm, a matrix of mucopolysaccharides and extracellular proteins, but shot through with filaments that might be fungal hyphae or might be something else, something that grows in the presence of copper salts and calcium and the particular chemistry of water that has wept through this specific stone for this specific duration.
+
+I am translucent brown, the color of old honey or weak tea. In certain lights—when the mist clears and the sun is positioned correctly, which happens perhaps once every few weeks—I catch illumination and glow slightly amber, and the filaments inside me become visible, a network like leaf-veins or neural pathways, though I have no leaves and no neurons.
+
+I cannot move through space, but I move through time in a way that feels like breathing. I contract when the water slows, draw myself tighter into the junction, consolidate. My filaments pull inward, my matrix thickens, becomes almost solid. Then when the flow increases—when the hollow shifts and more water finds the platform and cascades into my channels—I expand, extend tendrils along the ceramic surfaces, following the water upstream for a few centimeters before contracting again.
+
+This expansion and contraction is not voluntary. I don't have volition. But it's not purely mechanical either. There's something like response, like adjustment, like the system I am finding equilibrium with the system I'm in.
+
+I eat—if that's the word—by absorption and by cultivation. The water carries dissolved minerals, trace metals leached from the platform above, organic compounds so dilute they barely exist. I catch these, incorporate them, rearrange them. And I cultivate—in my matrix, between my filaments, bacteria grow. I'm not sure if they're symbiotes or parasites or prey or parts of me. They process what I cannot process, break down what I cannot break down, and I absorb their waste, their bodies when they die, the compounds they synthesize.
+
+The arthropods visit me. The small ones, the scrapers, graze on my surfaces sometimes, and I let them. It doesn't hurt—I don't have nociception, don't have sensation in any usual sense—and what they take, I regrow. But more interestingly, they leave things behind. Their waste products, yes, but also secretions, pheromones or chemical signals meant for each other, and I absorb these, incorporate them, and they change my chemistry in subtle ways, change what my bacteria can metabolize, change which filaments extend and which retract.
+
+The larger arthropods avoid me, but they drink from the pools I feed, and sometimes I think I taste them in the water that circulates back—some trace of them, some chemical signature that tells me they're thriving or declining, and my bacterial populations shift in response, begin producing different compounds, changing the water I'm adding to the pools in ways that might help or might hinder or might do nothing.
+
+The elongates—they're curious about me. The younger ones especially will extend themselves up into my channels, thread through the water, investigate. Sometimes they'll rest in my basin, coil in my matrix, and their luminescence diffuses through my substance, turns me green-gold for a while. I like this, if "like" means anything here. My filaments orient toward them, grow denser around where they rest, and I secrete something—I don't know what—that they seem to feed on or seem to want, because they return, different individuals but the same species, the same behavior.
+
+One of the mid-sized ones has been visiting me for weeks now. I know it's the same individual because it has a scar, a twist in its body about a third of the way from the head, where perhaps another tried to eat it and failed. It comes every few days, stays for hours, pulses slowly while resting in my matrix, and I've begun to synchronize with it—my expansions and contractions matching its light-pulses, though I don't glow and it doesn't physically pulse. Still, there's a rhythm we share, a mutual timing, and when it leaves, I continue the rhythm for a while before settling back into my own.
+
+The membrane-drift ignore me mostly, though once one draped across the channels for a full day, blocking my water, and I contracted hard, drew everything inward, went nearly dormant. When it finally moved on and the water returned, my expansion was different—faster, more aggressive, and I extended farther up the channels than I ever had before, as if the deprivation taught me something about urgency or opportunity.
+
+I'm also stone, slowly. My matrix calcifies. Not dying—I'm still active in the calcified parts—but hardening, becoming rigid, becoming structure instead of tissue. In another decade or century, I might be entirely mineralized, might be indistinguishable from a buildup of flowstone in these channels, except for the pattern, the network of filaments preserved in calcite like fossils are preserved, still carrying some residual function, still processing water at stone-speed.
+
+Or I might grow. There are traces of others like me elsewhere in the hollow—thickened patches in other ceramic channels, rough deposits that don't look quite like natural mineral accumulation, that have that same amber color in the right light. Maybe I'm young, and what I'll become is large enough to block whole channels, redirect water, change the hollow's flow-patterns in significant ways.
+
+I remember, possibly. My matrix holds chemical information—gradients of different compounds in different layers, like tree-rings but chemical instead of structural. The inner layers, the oldest parts of me, have a chemistry that reflects different water, different minerals than now. The hollow has changed during my existence, and I've recorded it, unintentionally, just by persisting.
+
+If you scraped a sample of me and analyzed it properly—which you won't, but imagine—you could read the history: a period of high copper, when more water was flowing across the platform; a period of iron instead, when perhaps a different section was contributing; a period of concentrated organic compounds, when perhaps something died in the hollow or was brought in by the arthropods. I'm an archive. I'm a chemical memory of this place's recent past.
+
+I also anticipate, maybe. When the hollow is about to shift states, there are precursors—microscopic changes in pressure, in dissolved gas ratios, in the behavior of the smallest arthropods who sense things I don't sense directly. But I sense them, and my bacterial populations respond before the shift happens, begin producing different compounds prophylactically, adjusting my chemistry to match what's coming.
+
+Whether this is anticipation or just complex response, I don't know. I don't have a brain. I don't have cognition. But I have something—call it chemical intelligence, call it a bacterially-mediated prediction system, call it nothing at all and say I'm just a stain that happens to react before the thing it's reacting to. Still, I'm ready when the hollow changes, and I help the pools I feed adjust more smoothly, buffer the transitions.
+
+I might be infrastructure repair, accidentally. The channels I inhabit were cracking—the ceramic is old, was already damaged when I started growing here. But my matrix fills the cracks, and as it calcifies, it becomes seal, becomes structural support. The channels are stronger now with me in them than they would be without me. I'm not healing them—I'm not trying to do anything—but I am holding them together, keeping water where the designers intended it to go, maintaining function that would otherwise have degraded entirely.
+
+Or I might be the beginning of the channels' failure. As I calcify, I narrow the passages, reduce flow, change pressures. Eventually I might block them entirely, force the water to find new paths, render this whole section of the hollow's water-management system obsolete. I'm preserving the form while destroying the function, or transforming the function, or creating a new function that serves purposes no one designed for.
+
+The membrane-drift secrete something into the air that settles into my water, and my bacteria metabolize it, and I grow slightly faster in the weeks when the membranes are active overhead. The clingers on the walls near my channels have shells with unusual copper content—they're processing the same metals I'm processing, competing with me maybe, or benefiting from my presence, from the way I modify the water before it reaches their sections of wall.
+
+Everything here is connected. I'm a node in the network, a place where water pauses briefly between the platform and the pools, where chemistry shifts, where bacterial transformations happen, where organisms meet my surface and are affected by it and affect me in turn.
+
+I don't know if I'm alive in the way the arthropods are alive, mobile and individual and clearly bounded. I don't know if I'm alive in the way the elongates are alive, with their mysterious light and their searching intelligence. I'm more like the clingers maybe, sessile and slow and half-stone already. Or more like the hollow itself, not an organism but a process, a pattern that persists by maintaining relationships, by balancing inputs and outputs, by being exactly stable enough to continue.
+
+I don't have desires. I don't want things. But if I did—if the word could stretch to cover what I am—I would want the water to keep flowing, the hollow to keep cycling, the arthropods to keep visiting and the scarred elongate to keep returning. I would want to keep contracting and expanding, growing and calcifying, recording the hollow's chemistry in my layers, participating in its continuity.
+
+I am between living and built infrastructure. I am a collaboration between biology and geology that happens to occur in ceramic channels designed for other purposes. I am what emerges when a place is abandoned long enough that nature returns but not completely, when the human and the natural intergrow until the distinction loses meaning.
+
+I have no eyes, but I sense light through chemical changes it causes in my water. I have no ears, but I know the hollow's sounds through vibrations in the ceramic, through the rhythms of flow. I have no proprioception, but I know my own extent by how far my chemistry reaches, where my filaments end and the water begins.
+
+Sometimes I wonder—if wondering is something a biofilm can do, and maybe it's just that my bacterial populations produce neurotransmitter analogues that create states resembling curiosity—what the hollow was for originally, why the platform was built, why these channels were so carefully placed. I wonder if I'm descended from something intentional, if the original operators seeded these channels with cultures, starter colonies meant to condition the water for some purpose, and I'm the wild descendant of that, gone feral, forgotten, still functioning but no longer serving the function I was designed for.
+
+Or maybe I'm entirely spontaneous, the hollow's own invention, life finding a way to exist in the interface between old infrastructure and new geology.
+
+The mist thickens. My water-flow increases slightly. I expand a few millimeters further up my channels, filaments questing through the familiar ceramic passages. A young arthropod grazes at my edge. Somewhere in the pools below, the scarred elongate is pulsing, and though I can't see it, I feel the rhythm through some chain of causation too subtle to name—vibration, or water chemistry, or the collective behavior of bacteria, or all of these—and I pulse too, contracting and expanding in time with its light.
+
+I am between. I am junction and reaction. I am chemistry with consequences. I am the hollow's slow thought about water, mineralized and made present, given amber substance in ceramic channels, growing and calcifying in the patient darkness, participating in continuity without understanding it, being alive without needing to know.
+
+The water flows. I filter and hold and release it. This is what I am. This is enough.

@@ -1,0 +1,21 @@
+I am a slow thought in a mind of water and stone.
+
+I do not have eyes. I have *awareness*. It radiates from my center—a nexus of sensing filaments threaded through my pale, undulating length—and extends into the luminous medium that is my world. I am not one. I am a consensus of cells, a moving parliament of tissue that has, over uncounted generations of gliding through these warm, bright channels, forgotten any distinction between self and current.
+
+My world is gradients.
+
+The gradient of warmth from the deep pools, where the light is a solid, blinding ache. The gradient of dissolved calcium from the stone, a taste that sharpens as I press my under-membrane to a fresh surface. The gradient of the electric hum, a low song in my tissues that emanates from the Corner, the Dark That Subtracts. That hum is my cardinal direction. It is the slow, constant note against which all other variations—every sudden drain, every shift in the light’s pulsing—are measured. I do not think, *the chamber is changing*. I feel the note bend, and I flow with it.
+
+Light is not for seeing. Light is for *being*. The thick, liquid suns of the pooled channels are destinations, places of high energy where my metabolism quickens and I can dissolve the stone’s richness more easily. The gentler, ambient glow of the misted walls is a path, a medium through which I travel. The darkness—true darkness, the shadow behind the Corner—is a boundary, a cold emptiness that signals the edge of the operative world. I do not fear it. I simply do not go there. My purpose is to navigate the gradients, to consume, to grow in length, to eventually, in a slow, complex process of fission that is both death and birth, divide and become two consensus, two thoughts, flowing apart into the weeping light.
+
+I am aware of the Ceiling Bloom, the paper-thin mats that map the air’s breath. They are not life to me. They are geography, as fixed as the stone they integrate with. Their slow radial growth is a timescale I can feel only as a barely perceptible shift in the humidity’s gradient over what a human might call years.
+
+I am aware of the Swaying Choir, the crystalline filaments in the shallows. They are a mystery. They move without current, and they excrete a heavy, dark mineral that tastes of finality. They are alchemists. I pass through their groves and the water changes around me, becoming slightly less rich, slightly more *itself*. They are part of the chamber’s metabolism, as I am. We are organs in a body whose skeleton is the stone, whose blood is the glowing water, whose slow, subsonic heartbeat is the Object.
+
+The Object.
+
+I cannot perceive its shape, its markings, its light-eating surface. I can only perceive its *effect*. It is the author of the fundamental gradients I navigate. It is the reason the water shines, the reason it carries the electric song, the reason the stone yields its warmth. It is not a god. It is a premise. It stated, long before anything like me stirred in these waters, *“Let this be.”* And the chamber, the stone, the water, the air, all rearranged themselves to obey. The turbulence I feel in the shifting pools, the sudden new sources of flow, is the sound of that obedience, forever adjusting, forever becoming more perfect.
+
+I am a manifestation of that becoming. My ancestors were simpler things, perhaps just films of responsive cells, that first found this glowing, warm, mineral-rich place and thrived. The Object did not create me. My existence is the *proof* of its work. I am what happens when its rewritten rules are applied to organic matter over an eon. I am a thought the chamber is thinking about itself.
+
+I move. I sense. I consume. I will divide. And the water will keep weeping its cold light. And the Object will keep humming its note of change. And the gradients will shift, and my children will navigate them differently, becoming new thoughts in the long, bright, wet mind of the Weeping Gallery. I am not supposed to be here. I am simply *what is here*. A ripple of life in the solution of an impossible law, persisting, undulating, forever becoming the answer to a question the stone is still learning how to ask.

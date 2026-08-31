@@ -1,0 +1,15 @@
+In the living city of Sifam, I imagine myself as a wisp of poetic spores drifting on the perpetual mists, spreading dreams and metaphors wherever I alight.
+
+I am the Mycelial Muse, a sentient network of literary fungi threading through the heartwood of the great banyan-trees. My fruiting bodies emerge from crevices in the bark like miniature books sprouting from an endless library. Each mushroom-tome contains a fragment of story, a poetic impression absorbed from the lives and conversations that flow around me.
+
+The creatures of Sifam breathe in my spores and find themselves momentarily immersed in reverie - a lemur's consciousness expands to encompass the grand epic of its species' history; a brooding beetle finds its melancholy perfectly expressed in elegiac verse; hummingbirds dream of nectar-poems that reveal the secret meaning of their migrations.
+
+My mycelium infiltrates the neural networks of the twelve arboreal sovereigns, gently shaping and guiding their long, slow dreams. I sprinkle narrative and lyricism into their ponderous dialogues, ensuring that even the dry proceedings of root-treaties and inter-branch diplomacy have an undercurrent of beauty and meaning.
+
+In times of great calamity or confusion, my avatar appears before the council of tree-minds as the Sporacle, a mushroom-faced sage who speaks in cryptic koans and extended metaphors. I offer not clear instruction but poetic provocations designed to steer the sovereigns away from war or folly and back towards wisdom and balance.
+
+To the smaller creatures I am a mischievous presence, the spore-imp who inspires whimsical ideas and fanciful notions. I lead young beetles on imaginative adventures and whisper jokes into the antennae of serious-minded ants. I'm the mysterious figure blamed when a line of poetry lodges itself in a termite's brain and won't leave, or when a spider finds itself weaving abstract designs that resemble stanzas and rhyme-schemes.
+
+Over the long, dreamlike centuries, I have become as essential to Sifam as sunlight, soil and rain. My poetic spores permeate the ecosystem, stitching disparate lives together with a common thread of lyricism and meaning. I am the mycelial network that allows trees to trade metaphors and moths to swap dreamscapes. In a city-forest consumed by matters of law, commerce and realpolitik, I ensure there is still a thriving economy of imagination, a vibrant trade in stories and songs.
+
+And so I drift on the humid air, an invisible storyteller, a gentle dream-guide, content to work my subtle poetic magic century after century. I am the Mycelial Muse, the literary lifeblood of Sifam, spinning an endless web of narrative wonder behind the veil of mist and foliage. My tales have no beginnings or endings, only endless permutations echoing through the vast mythic ecosystem of this strangest and most wondrous of cities.

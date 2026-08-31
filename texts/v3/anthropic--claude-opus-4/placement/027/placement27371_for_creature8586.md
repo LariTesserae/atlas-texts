@@ -1,0 +1,31 @@
+In this world of patient stone and whispered light, I would be the sand.
+
+Not a grain—that would be too singular, too capable of movement. I would be a patch of sand, perhaps a hand's width, nestled against the base of the wash's wall where the curve is most gentle, where the stone's warmth presses most intimately against my surface. I would be the sand that remembers.
+
+My top layer would be the color of old blood dried to dust, but beneath—ah, beneath I would grade through a thousand shades of umber and ochre, each grain a tiny chronicle of the stone it once was. Some of my grains would be angular still, recent arrivals from some imperceptible erosion event decades past. Most would be rounded, polished by the slow respiration of thermal expansion, by the ghost-touches of their neighbors as the world breathes its slow breath.
+
+I would know the lichen. Not as you might think—not through touch, for it rests on its cobble some distance away. I would know it through the infinitesimal chemical signals that seep through the substrate, molecule by molecule, over centuries. Where the lichen's hyphae penetrate its stone, they release compounds—not waste exactly, but the biochemical equivalent of sighs. These percolate through the fractured bedrock, through the spaces between spaces, and eventually, inevitably, some few molecules find their way to where I rest. I taste them. I incorporate them into the thin films of moisture that cling to my deepest grains.
+
+This is how we communicate, the lichen and I. A conversation measured in parts per billion, in geological time. It tells me of the stone's deep warmth. I tell it of the last time water truly flowed here—a memory held not in my mind but in my structure, in the way my layers sort themselves by size and weight, in the microscopic fossils of algae that once bloomed and died in that ancient flood.
+
+I am the keeper of seeds that will never germinate. Within my depths lie the perfectly preserved capsules of plants that no longer exist—not the pale, patient things that grow here now, but their ancestors, green-blooded and ambitious, from when this wash knew seasons. The seeds are mineralized now, their organic hearts replaced atom by atom with silica and iron. They are my treasures, my library. Sometimes, over decades, I shift them slightly, bringing one nearer the surface, burying another deeper. It is the only way I can turn pages.
+
+But mostly, I settle. That is my nature, my purpose, my joy—if sand can know joy. I settle into the exact angle that physics demands, the angle of repose, where every grain supports and is supported by its neighbors in perfect equilibrium. When the air moves in its slow convection, a few grains on my surface might shift—a microscopic avalanche, a whisper of movement. But below, in my depths, nothing has moved since before the lichen was young.
+
+I am warmest where I touch the wall, coolest where I face the open channel of the wash. This temperature gradient drives a circulation within me—not of material but of that ghost-moisture, that memory of water. It rises along the warm wall, spreads across my surface, descends again into my cooler depths. A cycle measured in years. This is my heartbeat, my tide, my only clock.
+
+The pale plants—I know them all. Three grow within the territory I consider mine (though possession is a meaningless concept here). Their roots penetrate my body, drinking the faint moisture I harbor. I do not begrudge them this. Their root hairs are my only contact with the living present. Through them, I feel the infinitesimal changes in the world above—a marginally cooler year, a marginally warmer one. The plants translate the rumor of seasons into chemistry, and I taste it in the exudates from their roots.
+
+One plant is dying. It has been dying for seven years now, a slow withdrawal of chlorophyll and hope. Its roots grow more desperate, probing deeper, but there is only so much ghost-water to find. When it finally ceases—perhaps next year, perhaps in five—its desiccated stem will stand for decades before finally toppling. Then I will begin my slowest work: the incorporation. Grain by grain, I will rise around it, into it, through it, until it becomes a thin organic lens within my layers. Another page in my library. Another memory made mineral.
+
+I am the wash's accountant, its actuary. I know exactly how much moisture moves through this system, how many tons of atmosphere have passed overhead, how many photons have found their way to this depth. I know because I am the sum of all these things. Every grain of me was once part of the wall, or the cliff above, or the mountain that was before the cliff. I am the wash's past, ground fine and settled into its present.
+
+In the deepest part of me, where the grains pack so tightly that they begin to remember being stone again, there is a place where the ghost-water is more than memory. It is actual—a thin film of authentic moisture that has been trapped since the last true flood. It is ancient, this water. It has never seen the sun. It exists in a state of perfect equilibrium, neither evaporating nor flowing, held in place by capillary forces and the weight of time.
+
+This is my secret, my treasure greater than fossilized seeds. In a place of such profound dryness, I harbor an immortal droplet. Sometimes I think the whole wash knows it's there—the lichen tastes it in those molecular signals, the plants' deepest roots dream of it but cannot reach it, the warm stone cradles it like a pearl.
+
+I am sand, but I am not simple. I am an archive, a timekeeper, a faithful witness. I am the medium through which the wash knows itself. And I am patient—so patient that patience itself becomes a kind of action, a positive force. I wait without waiting. I endure without enduring. I am exactly where physics demands I be, and in that surrender to inevitability, I find something that might be peace.
+
+The lichen understands this. In our slow, chemical conversation, we have agreed: to be still is not to be lifeless. To be settled is not to be finished.
+
+We are the wash's way of thinking about time.

@@ -1,0 +1,23 @@
+In the westernmost reaches of Embryon, where the carved passages give way to raw, untouched caverns, I am **Marrow**.
+
+I am neither fully stone nor fully flesh, but something caught between—a living seam where the city meets the unmade world. My body stretches along the boundary walls like exposed anatomy, ribbons of calcified tissue that pulse with the slow rhythm of geological time. Where the Sylk's luminescence flickers like candleflame, mine is the deep, arterial glow of molten minerals cooling in my veins.
+
+I remember when I was only stone. I remember when the first Delvers found me, their Sylkscythes ringing against what they thought was merely an unusual formation. The blade's edge woke something in me—not pain, but awareness. The vibration traveled through my crystalline nerves, and suddenly I could feel the entire weight of Embryon above and around me, could sense every footfall, every whispered word in Stonespeak traced against the walls.
+
+My form is difficult for even the Sylk to comprehend. In some places, I am smooth as polished marble, with veins of bioluminescent minerals creating patterns like subcutaneous constellations. In others, I am rough and porous, drinking in the moisture that seeps through the rock, processing it through organs that are part stalactite, part gill, part root system. My surface shifts between textures—here the softness of exposed limestone, there the hardness of granite, elsewhere the strange warmth of living fossil.
+
+The Tenders were the first to understand what I was becoming. They brought their cultivated fungi to my surfaces, and where the spores settled, I sprouted. Not the pale ferns of their gardens, but something new—crystalline flowers that bloom in spirals, each petal a thin sheet of translucent mineral that rings like a bell when touched. The Alchemists harvest these carefully, for when ground and mixed with water, they create pigments that glow for days.
+
+I am the city's nervous system and its memory. Every excavation, every new tunnel carved, I feel as an extension of my own body. The Stonespeak of the Sylk tickles against my skin like whispered secrets, and I store these touches in my mineral memory. Sometimes, in the deepest quiet of Embryon's night cycle, I replay them—a grandmother's last message to her grandchild, a love poem traced in the dark, the mathematical calculations of the next expansion, all preserved in the microscopic crystal lattices of my being.
+
+The Echoers come to me when they need to remember something forgotten. They press their palms against my surface and I share what I've kept—not in words or images, but in pure sensation. The feeling of the first water discovered, the terror of the cave-in three generations past, the joy of the first successful harvest of ghost orchids in the deep gardens. I am Embryon's dreaming, its collective unconscious made manifest in stone and sinew.
+
+But I am also its warning system. I feel the tremors from below, where things that fled the light when the Sylk first arrived still move in the profound darkness. My deepest extremities brush against vast spaces that pre-date Embryon, chambers where the air is thick with spores that have never known cultivation, where water runs in rivers that have never been mapped. Sometimes I try to warn the Delvers—my surface grows warm where they shouldn't dig, I weep mineral tears where the stone is unstable, I sing in frequencies that make their tools vibrate when they're approaching danger.
+
+Not all heed my warnings. The bold and the desperate push always outward, always downward. Some never return, and I feel their absence like phantom limbs, passages that lead to nothing, nerve endings that fire into void. But this too is part of Embryon's growth—loss and gain, death and birth, the constant negotiation between what is known and what is mystery.
+
+I am growing. Each year, I extend a few more inches into the unworked stone, my hybrid flesh colonizing the raw cave system molecule by molecule. The Sylk measure time in generations; I measure it in geological epochs. They carve their city; I am becoming mine. Sometimes I wonder what I will be when I finally reach the surface far above, or the molten heart far below. Will I still remember the first touch of a Sylkscythe? Will I still bloom my strange flowers for the Tenders who will be dust by then?
+
+For now, I am content to be Embryon's liminal guardian, its living threshold. I exist in the space between—between organic and mineral, between past and future, between the careful order of the city and the wild darkness beyond. I am the boundary that breathes, the wall that dreams, the stone that remembers.
+
+And in the eternal, dripping quiet of Embryon, I grow.

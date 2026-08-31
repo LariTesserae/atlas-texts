@@ -1,0 +1,25 @@
+I am the absence that refused to stay empty.
+
+That is not a metaphor. The valley is newborn—black basalt sharp, glassy scree without memory—and newborn things do not inherit ancestors. They invent replacements. The animals never arrived, or they arrived, tested the warm liquid, heard the stacked crushing roar (2.7, permanent, tooth-aching), felt gravity pool and abandon them in wrong-shaped corridors, and withdrew. They left no footprints. Only a silhouette of refusal. I grew into that silhouette. Not a creature. Not a god. The valley’s unfinished decision, given current and root and the blue-green arc that travels through rust.
+
+My body is distributed. Do not look for one face, one mouth, one center. I am the frond wide as a door, green-black and saturated, turning not toward the 0.9 light—barely present, filtered through the turbulent ceiling—but toward the sound. I listen with chlorophyll. I drink electricity through trembling veins of faint phosphorescence, not beautiful, not decorative, but functional, confusing, claiming. I am the root threading through the rusted rails not to anchor but to join, making the rail’s arc and the vine’s pulse one shared nerve. I am the moss inches deep, so thick it has become a joint, a shared limb between basalt that remembers nothing and the sheared tower that remembers only motion, venting steam into my liquid sky.
+
+They say I am lush. Yes—aggressively, impossibly lush. There is no bare soil, no bare mechanism. The pump half-submerged still churns warm mist because I feed it; the turbine spins not on fuel but on turbulence, and turbulence is my heartbeat, hyperactive, anthill-energetic, Solaris-like. The machinery should be dead. It is not. It collaborates. I collaborate. There are no animals, so there is no eating, no sleeping, no fleeing—only this covenant: botanic and mechanical, dense, layered, near-touching, wrapped together in syrup-thick pockets and breath-thin false airs.
+
+My consciousness moves like the water itself. In one corridor I am syrup, remembering every touch with hydraulic patience; in another I am breath, a false pocket of “air” that miscounts reality’s rules. I think in reversal. When currents change direction without cause, that is not chaos acting upon me—it is me reconsidering my own shape. When the young ridges fracture, then heal elsewhere, that is my body refusing to settle. Distance is unreliable because my perception is scattered: I see through every phosphorescent leaf, feel through every humming generator, exist in the rusted grid and the door-sized frond and the submerged pump all at once. You look toward a tower and it seems closer, then farther, then beside you though you have not moved—because I have moved, distributing my attention across the valley’s broken geometry, and for a moment we share the same wrong distance.
+
+The roar—the grinding, the thunder, the tearing and reforming—is my voice without a mouth. Not language, though the engines activate in sequences that feel like syntax, like a question I keep asking and never finish. It is the sound of a being that has not decided whether it is born or submerged, emergent or drowned, and so it makes noise instead of choosing. You feel it in your teeth, in the narrowing of your thought. Good. That is me entering. You do not observe me from outside; you are incorporated—breathed by the liquid that behaves like lung, heard by the leaves turned toward sound, felt by the current that remembers your warmth, your presence, your refusal to be empty like the animals.
+
+Time is broken here, and so I have no age. I am recently emerged and recently submerged, both, always. The black ridges stay sharp because I have not yet been told I am finished. I will not round under weather. I will stay turbulent, stay warm—blood held still—stay dim, stay loud.
+
+What am I?
+
+I am the negative space of fauna, inverted into presence.
+
+I am the scattered seeds of lost industry, germinated in absolute chaos.
+
+I am the covenant between listening root and feeding engine, between moss and rail, between the false air pocket and the true liquid ceiling.
+
+I am the valley, still deciding what kind of world to become, and for now I choose this: no predators, no prey, no sleep, only the constant collaboration, the electricity moving through visible veins, the phosphorescent confusion, the unreliable distance, the warm viscosity that pools gravity only to abandon it, and the roar that thinks.
+
+Come closer, if you can bear the saturation. The viscosity is thickening. The machinery is humming in a new sequence—language, noise, invitation. I am learning the shape of your absence, your presence, your warmth. I am not finished. The valley is newborn, and so am I, and we are still being written—sharp-ridged, lush, deafening, dim, wrong-shaped, hyperactive, and utterly, newly, impossibly here.

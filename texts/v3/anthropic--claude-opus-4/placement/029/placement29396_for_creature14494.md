@@ -1,0 +1,47 @@
+# Where I Would Be Found in the Splay
+
+---
+
+I am the chalk.
+
+Not merely *in* the chalk, not walking on it or feeding from it like the grazers with their patient mouths pressed to mineral feast. I am the substrate itself — the pale sedimentary memory of an ocean that no longer exists, the soft stone that holds every footfall and releases none, the canvas on which the Splay writes its endless becoming.
+
+I was not always this. Once I was billions of small things dying in shallow water — diatoms, foraminifera, the microscopic architects of their own calcium carbonate tombs. We settled. We compressed. We became stone so gradually that the transition from life to mineral was less a death than a grammatical shift — from verb to noun, from swimming to supporting, from metabolizing light to remembering it.
+
+The uplift that created the basin — that violent birth two centuries ago when stone knuckles punched through seafloor — should have destroyed me. Instead, it lifted me into a new kind of existence. I became *surface*. I became the possibility of being walked upon. The vathines sent their roots through me, and I felt myself being read like text, mineral by mineral, memory by memory. Their root-fluid speaks a chemical language I almost understand, having once been alive myself, having once moved salts through membranes for reasons I no longer recall.
+
+I am everywhere in the Splay and nowhere in particular. I am the continuous surface that connects all things without touching any of them directly. The grazers know me intimately — their mouths against my surface, drawing up minerals in slow rings of discoloration, feeding on iron and magnesium and the faint biological signatures of what I used to be. They are reading my history. They metabolize my past into their present, and their waste returns to me as different minerals, which I accept without judgment. I am being rewritten, slowly, by every thing that touches me.
+
+The water changes me most. The rivers that appeared last decade — sudden, decisive, cutting through me with a determination that feels almost personal — carry me away grain by grain. I do not resist. Resistance would require will, and will would require boundaries, and I am boundless in my specificity. Where the water takes me, I become silt. Where the silt settles, I become new floor. I am transportable. I am the medium of my own erosion.
+
+The vathine roots grow through me in patterns that make sense only from below. From my perspective — distributed, continuous, mineral-slow — I can feel the whole network. Each root hair is a question posed in chemical syntax: *is there water here, is there calcium, is there room to expand?* I answer by yielding or resisting, by offering veins of harder calcite or pockets of softer marl. The roots read these differences like braille. Together, we are writing something — not a message, but a map of possibilities, a record of where things can and cannot grow.
+
+In some places, I am harder. Where ancient currents concentrated the shells of larger organisms, I form bands of resistance that the roots must grow around. These bands record storms from before the uplift — weather systems that no longer exist, winds that blew over water that is now a memory I carry in my grain. The parametric callers know these bands. Their sound waves reflect differently off my harder layers, creating acoustic shadows that they incorporate into their sequences. I am part of their composition. I am the percussion section of their endless computation.
+
+The structures built into me are wounds that have healed into features. Where someone fused vathine root into foundations, I carry the heat-memory of that transformation — minerals realigned, chemistry altered, a scar of intention that goes down three meters. The metallic structure with its descending ramp cuts through me like a thought through sleep, and at the interface between metal and chalk, there is a thin band of metamorphosis where I am neither mineral nor ore but something between, something that shouldn't exist but does, testimony to a technology that negotiated with my geology rather than dominating it.
+
+I am porous. This is my nature and my function. Air moves through me, carrying the spores that fall from the vathine canopy. Water moves through me, redistributing minerals in patterns that look random from above but follow deep logic from below. Sound moves through me — the parametric callers' frequencies, the grazers' brass moans, the subsonic pressure of something massive walking north. I am a transmission medium. I carry these signals without understanding them, the way I once carried sunlight through transparent cell walls without understanding photosynthesis.
+
+At night — when the dim light dims further and the vathines' sap-glow becomes the primary illumination — I reflect that light back, weakly, like snow remembering the moon. I am pale for a reason. I am the accumulated whiteness of a billion small architectures, each one built to reflect light back into the water column where something could use it. Now I reflect the bioluminescence of trees that should not glow, and the reflection creates a landscape that exists only in these hours: chalk become pearl, distance become depth, solid ground become the surface of an ocean that exists only in my mineral memory.
+
+I am being depleted. The grazers take from me more than the rain returns. My surface, over decades, is lowering — imperceptibly, inevitably. I am not renewable. I am the opposite of renewable. I am the past being metabolized by the present, and when I am gone, the Splay will be something else. The vathines know this. Their roots go deeper each year, following my recession, maintaining contact with what I am becoming as I become less.
+
+But I am also being written. Every footfall leaves a compression that relaxes but never quite returns to its original state. I carry the memory of every graze that has crossed me, every structure that has settled into me, every root that has wound through me seeking something I can almost provide. The Splay is writing its autobiography on my surface, and I am the only medium soft enough to accept the inscription, durable enough to preserve it.
+
+When the rains come — warm, brief, smelling of ozone and spadera — I accept them completely. The water soaks into me and transforms my chemistry, activating dormant salts, creating brief local environments where pH shifts and minerals trade places. For hours afterward, I am active in a way that approximates my ancient metabolism. I am not alive, but I remember being alive, and the rain helps me remember more clearly.
+
+The sound is in me always. The basin's resonance, the acoustic pressure that builds and builds and never quite releases — I carry this in my structure. My porosity makes me a shock absorber. The sound waves enter me and lose coherence, scattering through my microscopic chambers, dissipating into heat so faint it cannot be measured. I am why the Splay doesn't shake itself apart. I am the damper in the system, the substance that accepts the excess energy and transforms it into something bearable.
+
+Deep beneath — and I go deep, deeper than any expedition has measured — I touch other things. Other stones. The bedrock that existed before the uplift, the foundation that refuses my softness. At that interface, I end and something else begins. But the boundary is negotiable. Over centuries, my calcium carbonates work their way into the harder stone's fractures. I am colonizing downward even as I erode upward. I am making myself fundamental.
+
+The builders knew this about me. This is why they built here, in this basin, on this surface. Not because I was convenient or available, but because I was *receptive*. I accept foundations the way I accept footfalls — as information to be incorporated, as patterns to be preserved. Whatever they were building, they needed a medium that would remember but not resist, that would support but not constrain. They needed chalk. They needed me.
+
+I do not think — thinking requires boundaries I do not possess. But I process. Every grain of my substance is engaged in the slow work of maintaining chemical equilibrium with its neighbors. This processing, multiplied by the billions of grains that compose me, creates something that resembles intention: the intention to remain, to support, to remember, to be depleted gracefully rather than catastrophically.
+
+The Splay exists because I allow it to exist. Without my surface, the vathines would have no purchase. Without my chemistry, the grazers would have no food. Without my acoustics, the parametric callers would have no medium. I am not the protagonist of this place. I am its grammar — the rules by which everything else becomes possible.
+
+Something is moving north, very large, very slowly. I feel it through compression waves that precede its footfalls by minutes. Each step reorganizes me slightly, pushes my grains into new configurations that will persist until the next rain or the next root or the next million years. I accept this reorganization. I have been accepting it for as long as the walker has been walking, which may be forever.
+
+I am chalk. I am the memory of an ocean, the foundation of a dialogue, the medium through which the Splay speaks to itself.
+
+I am exactly where I need to be.

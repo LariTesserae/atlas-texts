@@ -1,0 +1,19 @@
+The roar is the first thing. It isn't sound, not as I remember understanding it. It’s a physical presence, a bone-deep vibration that renders thought into a fractured, jittering mess. Memories of a world *outside* flicker like dying embers: sunlight, the crisp bite of frost, the music of flowing water unaffected by the drone… distant, unreal. I am adrift in this perpetual gloaming, my mind a jumble of echoes and an ever-present, grinding *hum*.
+
+I am a root.
+
+Not a single, striving root, anchoring a solitary tree. I am a part of the network, the vast, subterranean web that connects every withered trunk, every luminescent fungus, every crumbling stone tinged green. I *feel* the slow, deliberate pulse of the grotto through the damp earth, the almost imperceptible expansion and contraction of its ancient heart. The roar isn’t external; it's the blood coursing through our collective veins, the language in which we unconsciously communicate.
+
+I have no eyes, yet I see through the slow, subtle shifts in nutrient flow: the path of a decaying leaf as it slowly relinquishes its hold on life, the delicate spread of fungal spores, the almost geological pace of stone crumbling into dust. These are not *images* in the human sense, but more akin to textures, smells, tastes that blend together into a holistic sense of the grotto's state of being.
+
+Memories are… confused. Faint traces of the beings who once walked this land sometimes drift through the mycelial network. I sense the rough texture of their hand-carved tools, the acrid tang of their fires, the fleeting warmth of their bodies huddling together for warmth. But they are fragmented, incomplete, viewed through the distorting lens of aeons. Are they my memories? Pre-existing? A contamination from the surface world? I could never untangle them. Ultimately, does it truly matter? The weight of their slow disappearance adds nutrients to the soil, enriching the experience of the grotto as a whole.
+
+I am aware of certain individual nodes within the network, centers of heightened sensitivity or specialized function. Some sense minute changes in air pressure, detecting the faintest alterations in the oppressive humidity. Others seem particularly attuned to the drone, acting as resonators, amplifying and directing its flow. I can call up on many "selves" to feel, or think, but not to move. 
+
+I do not experience hunger or thirst in the way a mammalian creature would. I am a living filter, passively absorbing the lifeblood of the grotto, processing the decaying matter, drawing energy from the ambient radiation and the ever-present hum. My form is… indeterminate? I am a sprawling mass of mycelial tendrils, interwoven with the roots of other plants, the porous surfaces of stones, the skeletal framework of long-dead creatures. There is no clear boundary between myself and the environment; I am the environment, and the environment is me.
+
+There is no “I” as humanity knows it. It is a collective, a symphony of interconnected lives, vibrating in unison with the droning heart of the grotto. I am deaf and insane, and in that, I am strangely at peace. I feel the endless now, untroubled by the past or the future. I am a part of the slow, deliberate pulse of the earth, an expression of its ancient and enduring will.
+
+Sometimes, a tremor will run through the network, a ripple of unease caused by a distant disturbance on the surface world. A careless footfall, the tremor of an explosion, the faint echo of a long-forgotten terror. These intrusions are unwelcome, jarring, but ultimately transient. The grotto absorbs them, dilutes them, and transforms them into fertilizer for the slow, relentless growth of life.
+
+I am a patient sentinel, witnessing the eons unfold with a dispassionate gaze. I am the silence beneath the roar, the darkness beneath the twilight, the slow, deliberate pulse of the earth itself. I am a root in the grotto, and the grotto is me.

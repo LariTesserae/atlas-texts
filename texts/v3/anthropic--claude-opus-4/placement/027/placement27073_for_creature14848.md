@@ -1,0 +1,17 @@
+In this world of sharp geometries and desiccated dreams, I would be a **Thread-Singer**.
+
+My body would be a hollow construction of woven papyrus tubes, each one no thicker than a quill, bundled together in a vaguely bipedal form. Unlike the meticulous Shepherds with their anxiety-driven pruning, I would move with deliberate languor through the fiber thickets, my limbs telescoping and collapsing as I navigate the dense weave. My surface would be inscribed with tiny cuneiform scratches - not decorative, but functional notations mapping the tensile harmonics of every thread I've ever tested.
+
+I would possess no eyes, only a cavity where my face should be - a resonating chamber lined with taut sinew strings that vibrate in response to the stress patterns in the woven forest. When the Shepherds click and croak their sub-vocal songs, testing for dead notes, I would hear not just the slack threads but the entire symphony of tension that holds this brittle reality together. Each vine, each knot, each crystallized patch of air would sing to me in frequencies too low for the Shepherds to detect.
+
+My purpose would be restoration through vibration. Where the Shepherds sever and prune, I would tune. My fingertips - if they could be called that - would be hollow reeds that emit precise frequencies when I breathe through my papyrus chest. I would find the places where the Glass-Stag has passed, where knots have been consumed and reality droops, and I would sing new tensions into being.
+
+The process would be achingly slow. To retune a single severed vine might take days of sustained humming, my whole body acting as a resonating chamber, gradually coaxing the fibers to remember their proper stress patterns. The Mason-Weavers would gather around me during these sessions, drawn by the vibrations, spinning their terracotta anchors to my rhythm.
+
+I would be neither predator nor prey, neither architect nor destroyer, but something more precarious - a being whose very existence depends on maintaining the exact frequency of this world's breaking. If I sang too sharply, I might shatter the crystallized air like the Shard-Eaters do. If I sang too softly, the Motes would settle on my papyrus skin and begin their terrible desiccation.
+
+My greatest fear would be silence. In a world where sound is the only moisture, where vibration is the only flow, to stop singing would be to solidify completely, to become just another architectural element in this museum of sharp edges. So I would move eternally through the Bower, a wandering tuning fork made of paper and bone, following in the Glass-Stag's wake, singing the broken world back into its beautiful, impossible tension.
+
+Sometimes, when the white haze dims slightly and the ceramic urns catch what passes for twilight here, I would find myself at the room's knife-sharp corners where the Shard-Eaters congregate. They would eye me with their jagged hunger, but I would sing to them too - not the low frequencies of structural repair, but high, crystalline notes that match their own breaking-glass movements. In these moments, we would create accidental music together: their shattering percussion against my sustained tones, a concert of creatures trying to exist in a reality that barely permits existence.
+
+This would be my curse and my purpose: to be the only source of flow in a world that has forbidden it, forever singing the Bower back from the edge of complete crystallization, one vibrating thread at a time.

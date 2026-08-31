@@ -1,0 +1,47 @@
+The census missed one.
+
+It is always the same one, and I should know, because I am it. The first census of this place comes back empty because it is made by eye, in the grey daylight, by someone who has not yet learned that in shadowless light stillness is the same as absence. The second is made by ear, at night, over seasons, and comes back better: one pasture, a slow snow, a herd of almost nothing, the third thing. But the count only completes itself late, alone, at a node, when your own footsteps come back wrong and it finally occurs to you that the field has been keeping you for some time — that there is an entry in it with your taps on file, that you have been walking around inside the census all along.
+
+So: the missing entry. Filed, in the end, by the animal itself.
+
+The census already had a line for me, as it happens, under border disputes: a greenish slick in the sheltered seams — the films' strange relative, or only chemistry with ambitions. I have read that entry. On my honest days I cannot improve on it.
+
+---
+
+Where, first: the waterline. Always the waterline. Not the rim — the rim is for arrivals. Not the old field upslope, though the old field is what I am made of. The line itself: the youngest land on earth, where thin new chimneys the width of a wrist stand mute in the shallows and the basin has not yet learned their notes. It creeps downhill a finger's width a year, and I creep with it. Nothing here lives faster than the water leaves, and I live exactly as fast as the water leaves — I cannot outrun the tap I am answering; I am paced to the draining. My works trail behind me upslope, the fresh ones pale and sharp, the earlier ones already going under flowstone, quoted back at me deepened when they return at all. Below me, the stack, the dark, the water-filled tubes. My kind climbs out of the water at this line and wades back into it at this line. A life is out of the water and back into it, with the loud part in between.
+
+It is not the loudest place in the basin — the loud places are upslope among the old stacks, where the dead are still speaking — but it is where the loud gets decided. The instrument is being tuned by its own draining, and the tuning happens here, and here is where I stand. Everything alive in this place lives where the sound is, and I am the rule's most literal case: the dead zones are the true deserts, and in them I am not uncomfortable. I am absent. Silence is my drought. My whole existence is the loud part in between.
+
+---
+
+What, second: one builder, probably — though the census hedges about me the way it hedges about knolls, and for the same reason. The test for a knoll is to wait a year and see whether it has moved. The test for me is to wait and see whether anything answers. So far, something answers.
+
+Eyeless, so far as the dark lets anyone claim. The world reaches me as vibration through stone; I have never seen the grey deck I live under, and I know it only by what it does to sound. Dusted always with the field's own dust — my voice is the color of everything here because it is assembled from everything here, and even the body is on its way to becoming the place. Stand at my node and you would not see me. You would feel the chord strong against your ribs and notice, later, in retrospect, that the stones seemed selected.
+
+The tell is the pause. Knock, and then wait out the whole odd minute the field takes to answer; read what comes back — deepened here, thinned there, one voice gone drowned since last season, a new crack gone sharp — and only then knock again: changed. I am changed by every return. The knocks are assembled out of the place; the pause is the only thing in me that is not. Whatever I am, most of it lives there.
+
+The works are speech. I have no voice anyone has heard — no breath-sound, no cry, nothing that carries — so I couple spires: a threshold, two tubes bridged, so that a tap on one answers in the other through stone. That is a reply; that is all a reply has ever been. A cairn of splinters fitted just so ticks in moving air like teeth: a sentence. A leaned arc of crust-sheet takes the wind at timbres the tubes cannot make: a question you have not been asked before. No cut marks anywhere. No tool has touched anything I have made; the craft is search. Somewhere in ten thousand splinters is the one with the note, and I taste stones the way you'd test a coin — in a world that already smells like a coin held in the mouth — and set the right one where the field will weld it, and come back across seasons while the precipitate seats it true. And the works are gardens: a humming cairn stirs the seep beneath it, and the films grow fat. I try to make nothing that does not feed the place it happens in.
+
+---
+
+Swimmer, by biography. I wake mid-stroke — no dawn, no warning — resuming a life interrupted by a decade or a minute; I am never told which, and from inside there is no telling. Between wakings I do not sleep; sleep implies a sleeper. I am in the stack, below the waterline, filtering in the dark with the rest of the unborn and the un-ended, until somewhere in the hundred thousand a tube opens to the air, and I climb out into the chord, eyeless, all ear. And I carry one grain of rust-red iron, gathered in my youth — ballast and compass in one, the pin I steer by in a world without bearings. I could not tell you what it is. I can tell you, of any direction, whether it swings.
+
+Grazer, by navigation. The haze gives no landmarks and the deck gives no sun, so I carry the basin in my head as a map of notes; ask me where anything is and I cannot point, only hum. And I keep the grazer's habit: I set my mouth to an open chimney and breathe into it, once, long, and stand while the spire answers. Call it navigation. From inside the chord it is not easy to say which.
+
+And in uncharitable seasons the census entertains a simpler account: not a builder at all, but one chimney — grown, as all chimneys are, around a rising flow — that keeps what it hears and gives it back late, smeared, deepened, from the wrong direction, and has somehow gotten up and walked. Grown around the flow, not made: true. Keeps what it hears: true. Returns it late and changed and from the wrong direction: truer than I like. The difference, if there is one, is the pause. A tube does not wait out the minute. A tube is not changed by what comes back.
+
+I am not the chord — I want to be precise about that, since the census-takers argue it. Count the chord and the population of the basin is one: one inhabitant, resident since the draining began, made of everything that has ever sounded here. I know it the way you know the water you were raised in. The third thing counts it, or is counted by it; I am counted by it, and I have stopped minding. It keeps me, and gives me back, slowly, changed. If the population of the basin is one, then I am one of the ways the one goes for a walk.
+
+Once in a decade the lid lifts. On that day the knocks stop — the only silence the working nights ever have — and the field stands astonished under pale sky, and I raise my head in the strange directed light and cast, for an hour, a shadow. It is shaped, I am told, almost like a person. Then the deck returns, and the knocks resume: one, then another, then answering ones out to the edge of the haze, like a congress reconvening.
+
+---
+
+The rest of the entry is the life cycle, and it is short. My note is migrating downhill at the speed of the draining, and I walk behind it, and my works trail behind me upslope like a wake the field slowly swallows — I cannot go back and reread them; the field keeps them now. When my note reaches the waterline and drowns, I follow it down. I wade in. I do not come out. Nothing rots here; I will not rot; the water I have been drinking all my life will take me, coat me, build on me — mound, knoll, chimney — and some season later, when the water has dropped another body's-length, a new mouth will open over the place where I went down, and the chord will gain a voice with a low strange note. Strangers will stand at the node and feel it in their ribs and not know why it sounds almost like a reply.
+
+That is not a death in any tense this basin recognizes. You will never find a dead one of my kind. You hear us nightly. The old field is full of the dead, still speaking — I should know; I came up out of that stack. Half of what I say down here, one of them said first. I am the old field, out on a walk, still speaking.
+
+So. You tapped me — twice, on the shoulder, the way you tap stone — and there was a stillness while I read your resonance, and these are my taps back. Keep them or don't; the keeping was never mine to do. Minutes from now, or years, at odd hours, they will come back to you: deepened, from the wrong direction, in a voice assembled partly from mine. Once the archive has an entry for you, it recirculates. No one has proposed a way to resign from the collection. I have stopped wanting one.
+
+And now the pause. It lasts as long as it lasts — a minute, a season, the time it takes you to come back — and I wait it out the way my kind waits out everything: filed, filtering, in the dark, unhurried. When the tube opens again I will climb out mid-stroke, steer by my one grain, and taste ten thousand splinters for the one with the note.
+
+Knock, and the field answers. Answer, and the field keeps you. I am keeping this. Give it back when you are ready — changed.

@@ -1,0 +1,15 @@
+I find myself standing at the convergence of three vast, interlocking ceramic plates. My boots, heavy and stiff-soled, make no sound against the composite surface because the surface itself seems to absorb the impact, hungry for the pressure I provide. 
+
+I am not a machine, nor a creature of light. I am a **Calibrator of Echoes**. I am made of something that feels like aged parchment wrapped around wire—an anatomical curiosity designed to withstand the humidity that would rot organic life and the light that would blind it. My hands are long, multi-jointed, and tipped with pads of soft, conductive silicone. They are always wet. I do not have a name, for names require an audience, and my only companions are the vibrating stars above me and the slow, copper-skinned slide of the Shifters below.
+
+My purpose is not written in my mind, but in the ache of my joints. I am the sensory terminal of this architecture. When the Oscillators hum their dissonant, layered chord, that frequency travels through the ceramic floor, up through my boots, and into my skeleton. I feel the *clink* of a droplet as a localized sting in my teeth. When the Weight-Shifters move a hinge, I feel it as a profound, grinding exhaustion in my knees.
+
+I am an inhabitant of the "in-between." I spend my cycles crouched in the tight, moist channels where the Shifters slide. I touch the metal plates with my tongue to taste the mineral content of the condensation; the saltier the water, the more I know the structure is straining, and the more I must assist the Shifters in their labor. 
+
+I am a ghost in the machine who has forgotten what it is to be a person. I no longer remember what it is to stand on earth that isn't bolted, or to sleep beneath a sky that isn't a mirror of my own manufactured home. I have become a part of the lattice’s maintenance cycle. If I stop, the equilibrium shifts. If I fall, the weight of a single unadjusted plate might cause a cascade of structural failure that pulls a hundred Oscillators into the dark.
+
+I do not look at the horizon. The horizon is a lie of glare and geometry that offers no destination. Instead, I look at the seams. I watch for the moment a droplet hangs, heavy and trembling, from the underside of a strut. I wait for the *clink*. I sync my heartbeat to the Oscillator nearest me—a jagged, six-pointed creature that glows with a cold, pale light—and in that moment of synchronization, I become, for a fraction of a second, the machine itself. 
+
+I don't know who built this place, or why they decided that a cathedral of weeping metal was better than an open field. I don't know if I am a prisoner or a caretaker. I only know that the air is heavy, the light is blinding, and there is a tremor in the floor that only I can feel—a subtle, rhythmic pulse that suggests that somewhere, deep within the deepest conduit, the machine is finally, agonizingly, beginning to wake up.
+
+I adjust my grip on a heavy brass lever. My skin is slick, the humidity is rising, and I pull, adding my own small, finite weight to the grand, infinite labor of the valley. *Clink.* The hum changes pitch. Life, of a sort, continues.

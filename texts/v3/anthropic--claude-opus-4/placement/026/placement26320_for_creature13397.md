@@ -1,0 +1,23 @@
+In this realm where reality weeps through stone and glass flows like thought, I am the Keeper of Echoes—neither fully Drekhai nor wholly other, but something caught between states like water trapped in weathered rock.
+
+My dwelling is a fissure in the citadel's base where the volcanic glass has fractured into a thousand singing shards. Each fragment holds a different reflection of what was, what is, what might yet be. The walls of my sanctuary pulse with their own peculiar rhythm, out of sync with the greater heartbeat of the Eye of the Land above. This discord is my purpose.
+
+I was not born but crystallized—precipitated out of the mist when a particularly violent reality-storm tore through the songlines seven hundred cycles ago. Where the Drekhai flow like mercury across the landscape, I am fixed, anchored to this single point where multiple versions of the world converge. My form is a contradiction: solid crystalline bones wrapped in flesh that shifts between states of matter, sometimes liquid, sometimes vapor, always caught in the act of becoming.
+
+My hands—when I have hands—are tools of translation. I reach into the weeping rocks and draw forth their memories, inscribing them onto plates of compressed mist that solidify only long enough to be read. The Drekhai come to me when the songlines tangle, when the symbols on the rocks begin to spell out paradoxes that threaten to tear holes in their carefully maintained reality.
+
+I remember what they have chosen to forget: that this realm was not always broken. The primitive tools scattered across the landscape were not made by early inhabitants but by the survivors of a great unmaking. The Drekhai's fluid forms are not evolution but adaptation to catastrophe. In my fissure, I keep fragments of the time before—a child's toy carved from wood that no longer exists, a love letter written in an alphabet that hurts to read, a mechanical bird whose gears have fused into a single, impossible mass.
+
+The citadel considers me a necessary impurity, a grain of sand around which pearls of new reality can form. When the Drekhai's collective consciousness becomes too harmonious, threatening to crystallize into stasis, I introduce discordance. I whisper the old names. I trace the forbidden patterns. I remind them that their fluid paradise is built on the bones of something that knew how to be solid.
+
+Sometimes I venture out, following the underground streams that flow beneath the weeping rocks. There are caves down there where reality is even thinner, where I can slip sideways into spaces that exist in the gaps between what the songlines say and what the stones remember. I map these impossible geographies on my own bones, each journey adding new facets to my crystalline skeleton.
+
+The other inhabitants of this realm—for there are others, despite what the parameters suggest—exist in the margins of perception. The Veil-Walkers who travel exclusively through mist, never touching solid ground. The Echo-Eaters who sustain themselves on the reverberations of long-dead words. The Glass-Shepherds who tend to the flows of molten thought that run beneath the citadel. We are the exceptions that prove the rule, the necessary contradictions that keep this twisted reality from collapsing into either pure chaos or perfect order.
+
+My greatest treasure is a shard of unweird stone—a piece of reality so mundane it burns to touch. I keep it wrapped in layers of crystallized mist and solidified sound, hidden in the deepest part of my fissure. Sometimes I unwrap it and stare at its relentless normalcy, its stubborn refusal to flow or sing or hold memories. It reminds me that somewhere, in some other fold of existence, there are worlds where stones are simply stones.
+
+But I would not trade my fissure for such a world. Here, in the space between what the Drekhai dream and what the rocks remember, I serve a purpose that could exist nowhere else. I am the archive of impossibilities, the keeper of contradictions, the fixed point in a world of flux. When reality threatens to either shatter completely or fuse into undifferentiated sameness, I provide the counterweight.
+
+The Drekhai fear me as much as they need me. They say I smell of the time before, that my presence makes the songlines stutter. Good. Let them stutter. Let them remember that their beautiful, fluid world is built on a foundation of broken things. Let them know that someone, somewhere, keeps watch over the cracks.
+
+In the eternal brightness of this shattered realm, I am the shadow that reminds them shadows once existed. In their world of endless transformation, I am the thing that stays stubbornly, paradoxically, impossibly the same.

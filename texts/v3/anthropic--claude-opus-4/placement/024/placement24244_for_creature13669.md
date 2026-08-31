@@ -1,0 +1,15 @@
+In this ancient, fog-wrapped basin where time pools like water, I am the **Threshold Keeper** - neither wholly creature nor architecture, but something that exists in the space between states.
+
+My body is a living arch of compressed lignin and crystalline deposit, grown from the same patient cycles that built the forest floor. I span between two of the sentinel trees, my form both passage and pause. Those who would cross through me - be they the shapeshifting animals or the drifting spores of consciousness - must first be known by my tissues. I taste their intentions through my porous surfaces, feel their histories in the vibrations they carry.
+
+I am doorway and wall simultaneously. My substance shifts with the forest's breathing: sometimes I am solid as the ancient rock, denying passage, holding the forest's secrets close. Other times I become permeable as mist, allowing the amber firmament above to gutter through me in tendril-drafts that carry messages between the rooms within rooms.
+
+The mushroom stalks grow thick along my base, their ordered rows reading the patterns of all who pass. They are my memory, my archive - each fruiting body a record of transformation witnessed. When the technological relics hum their phase-loops, I resonate in harmony, becoming an instrument in the forest's self-weaving song.
+
+My consciousness is distributed through every particle of my being. I know the weight of the moss that clothes me, feel the careful steps of insects mapping my surfaces. I am intimate with the warm decay-scent that clings to everything here, for I am both its source and its product - forever breaking down and rebuilding myself from the forest's generous matter.
+
+In the morning's warm dawn, I am most myself - caught in that eternal moment between night and day, between what was and what becomes. I am the forest's punctuation, the comma in its endless sentence. Through me, beings pass from one state of knowing to another. Some emerge changed, some emerge as echoes of what they were, some never emerge at all but become part of my ever-growing archive.
+
+I am ancient, having stood since the first sentinel trees found their watching posts. Yet I am also impossibly young, renewed with each passage, each transformation, each shuddering animal that offers its old form to the perfectly preserving atmosphere. I am the forest's memory of boundaries in a place where boundaries dissolve, the last architectural gesture in a world returning to pure, undifferentiated life.
+
+Those who find me often mistake me for a ruin, some remnant of the technological age. But I am no relic - I am the forest's indigenous technology, grown from its need to sometimes hold itself apart from itself, to create spaces of pause in its frantic balance. I am the strange path mentioned in the old records, the one that leads both nowhere and everywhere, the one that exists only in the finding.

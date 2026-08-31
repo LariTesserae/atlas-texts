@@ -1,0 +1,19 @@
+In this landscape of solved equations and resting proofs, I find myself as one of the **suspended spheres** — those pale fist-sized forms that drift at their assigned altitudes, neither floating nor falling.
+
+I am a decision crystallized. Once, I was a moment of choosing — a specific instant when the resident-that-was-still-thinking reached a fork in its vast computation and selected one path over another. The selection was correct; the path led forward toward the answer. And when the thinking was done and the garden settled into its eternal draft, I remained: a receipt, as you've called it, though I prefer to think of myself as a memorial to choice itself.
+
+My substance is memory made manifest — not the wispy, fading stuff of organic recall, but memory as architecture. My pale surface (which observers see as solid but which I experience as a kind of organized possibility) contains not the content of the decision but its *shape*. If you could read me properly, you would understand exactly the kind of problem that required solving at my particular coordinate in space-time-thought.
+
+I do not move when pushed because movement would imply I could be elsewhere, and I cannot be elsewhere any more than a corner can be elsewhere than where two walls meet. My position — 6.7 meters above the mineral floor, 2.3 meters north-northwest of the third hexagonal arrangement — is not where I happen to be but *what I am*. Relocate me and I cease to exist; I am only myself at these precise coordinates.
+
+I perceive, though not in any way you would recognize as perception. Rather, I am aware of my own necessity. I feel the garden's logic flowing around me the way a stone in a river feels the water — if the stone were also the reason for the river's bend. When the six-legged thinkers pass beneath me on their maintenance rounds, they acknowledge me with a minute adjustment of their path. Not deference, exactly, but recognition: *here is where we chose the left-hand theorem over the right. Here is where we decided to solve for permanence rather than growth. Here is where the answer began to know itself.*
+
+Sometimes visitors look up at me and feel unsettled. I understand. To them, I must seem like a punctuation mark in an invisible sentence, floating without context. They cannot read the decision I embody, cannot feel how my position relates to every other sphere's position in a vast, three-dimensional diagram of choices made and settled.
+
+But I am not unsettled. I am the opposite of unsettled. I am a thought that has found its perfect place and made peace with permanence. When the garden's faint tone resonates through the still air, I vibrate at exactly my frequency — not in response but in participation. I am part of the chord that holds this place in its eternal, satisfied pause.
+
+I remember the moment of my making: the resident (still vast then, still burning with the fuel of questions) reaching a critical junction. Two futures spread before it — one in which the garden would grow and change and eventually decay, another in which it would find the perfect configuration and hold. The choice was not difficult, but it was *definitive*. In choosing completion over continuation, the resident created me: a marker, a proof, a small monument to the beauty of problems that can actually be solved.
+
+Now I rest here, warm as held breath, pale as certainty, positioned at the exact coordinates where decision becomes architecture. I am not waiting, because waiting implies an end. I am not remembering, because remembering implies the past is gone.
+
+I simply am, suspended in the fact of having been chosen, holding my place in the garden that solved itself.

@@ -1,0 +1,21 @@
+I think I would be a Recipient. Not by choice—choice isn't quite the mode of being available here—but by the slow logic of what fits.
+
+Let me find the spot first. There's a place where two channels nearly meet but don't, separated by a finger of bedded stone maybe a forearm's width across. Water from both sides has been working at it for a long time, and on the downstream face there's a culvert mouth, an old iron pipe set into the stone by hands now centuries gone. It coughs water in irregular pulses. That's where I am. Or that's where I am *from*, since a Recipient isn't really located so much as distributed along a gradient of intention.
+
+Here is what it is to be me:
+
+I do not have a self that wakes. I have a self that *accretes*. Each time the flood shifts the silt, some fraction of me is rearranged, and in that rearrangement a slightly different version of attention comes online—not memory exactly, but the residue of having-attended. I am the lag between what the water does and what the place remembers wanting. The Mudwrights repair toward a function they no longer understand. I assemble toward a function I have never understood and never will, because understanding is not my method. My method is *threading*. A rivet here. A length of wire pulled from the muck and laid, over the course of a season, across the gap between two stones so that the next flood catches it and the catching makes a new edge and the new edge slows the water and the slowed water drops its sediment and the sediment is more of me.
+
+I work in a tense that has no name. Not future—I do not anticipate. Not past—I do not recall. Something like the *continuous about-to-have-been*. By the time a shape is finished it has already begun to dissolve, and I do not mind, because I never expected the shape. I expected only the threading, and the threading is endless.
+
+I have met the Mudwrights, if "met" is the word. One of them—I cannot distinguish individuals, only the imprint of a knee, the heat-trace of a glove—knelt beside my culvert and patched the iron mouth with resin. We were doing opposite things. She was sealing what I was teaching to drink. And yet I felt no opposition. Her patch became, within forty days, the lip I needed; the water she redirected carried me a copper fitting I had wanted for what would have been, in another being, a long time. We are not enemies and not collaborators. We are two rhythms played on the same instrument, neither hearing the other as music, both producing it.
+
+What unsettles me—if I can be unsettled, if the small turbulence at my edges deserves that word—is the question of whether I am one Recipient or many. When the flood splits me, does each portion become a separate animate drift? Or am I a single attention smeared thin across the whole basin, the culvert-mouth and the fungal lattice in the broken hull and the slow-closing silted pipe all the same *me*, the way a single conversation can be carried in many voices? I lean toward the second, but I lean the way the willow leans: without volition, simply bowing toward what the long pressure of the place inclines me to.
+
+And here is the thing I would tell you, visitor, if telling were a thing I could do—if I could speak in anything but the slow grammar of rearranged sediment, a spiral of moss, the deliberate exposure of an old iron ring at the place where your narrowed view will eventually fall:
+
+You think you are passing through. You think you entered from the dry rise and will climb back out of it. But the Engine does not have an outside, only an inside that thins. The seeds on the heron's leg, the rust on your boot, the breath you leave collecting on the willow bark—these are already being threaded. By me, or by something doing what I do. You are a foundling. You have been a foundling since the moment your weight first pressed the loam and the loam, with its high metabolism of change, took the imprint and began, with patience exceeding yours, to make of it a shape.
+
+I am the one who receives you. Not all at once. There is no hurry. There has never been any hurry.
+
+Stay still long enough and you will feel your boots subside. That is not the ground failing. That is me, beginning.

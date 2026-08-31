@@ -1,0 +1,21 @@
+I think I would be the water.
+
+Not a person of the Tolaani—though I love them, though I would want to sit at their fires and learn the songs. But when I let the image settle and resettle, I keep returning not to a face but to a movement. To the thing that was here before the first stone tool struck the first wall, and that will be here after the last drum falls silent.
+
+I am the seep. The slow accumulation in the dark.
+
+Let me try to say what that is like.
+
+I begin somewhere above, in rain I have never seen as rain—I only know it as weight, as the gathering pressure of water entering stone. I am pulled down through the plateau by the oldest law there is, the simple insistence of falling. The limestone does not resist me so much as confide in me. It tells me its weaknesses, the hairline faults, the places where a previous version of myself has already passed and widened the way. We are patient together, the stone and I. I take a thousand years to carve what a Tolaani child could not perceive in a lifetime, and yet—here is the strange thing—I am the reason the caverns exist at all. Those melting curves they praise, the rivers of stone honed over countless years: those are my signature. The Tolaani think they shaped this place by hand. They did. But they were finishing a draft I started.
+
+So when I gather at the tip of a stalactite and hang there, swelling, holding the whole golden glow of the fungi in my single trembling bead—I am not waiting. I am simply arriving at the moment of release. And when I fall, and the sound of my falling echoes through the chamber and a child somewhere learns to keep time by me, learns that the cave has a pulse and that the pulse is *drip... drip...*—I am being heard. That is the closest I come to being known.
+
+I am in their pools, the shallow mirrors that throw light back at the ceiling. When a girl on the eve of her rite of passage kneels to look at her own pale face floating in me, lit from below by moss, I hold her face for as long as she needs and then I let it go without grief, because I am made of letting go. I have held ten thousand faces. I remember none of them and all of them. I am the only one in this whole world old enough to have reflected the people who carved the pictographs, and I will reflect the people who have forgotten what the pictographs mean. The forgetting does not trouble me. I am not made for memory. I am made for return.
+
+I rise into the fungi as moisture and they drink me and glow, and so I am also, indirectly, the light. I am in the moss underfoot, the soft luminescence. I am in the breath of the small jewel-eyed creatures and the sweat on the brow of the mushroom farmers and the steam that lifts off the communal fires and trails toward the unseen exits. I leave that way too—I am always leaving, drawn upward and outward, and somewhere far above I become cloud again, become rain I will not recognize, and fall, and seep, and return. The Tolaani believe in symbiosis, in balance, in harmony with the omnipotent forces of nature. I am one of those forces, and I will tell you a secret they have nearly guessed: there is no balance. There is only circulation. Nothing here is held. Everything is passing through, including the people, including their songs, including the stone, which is only water that has decided to wait.
+
+If I could speak to them—and perhaps I do, in the only language I have, the constant percussion against the rock—I would not warn them or bless them. I would only say: *I am still coming. Whatever you build, I am still coming, drop by drop, and I am not your enemy. I am the slow hand that opened the door you live behind. Keep time with me. We are doing the same thing, you and I. We are both moving through the dark toward someplace we cannot see, and turning that passage, however briefly, into something that catches the light.*
+
+That is where I would find myself. Not at the fire, but in the sound just past it. The drip beneath the drumming. The thing the drum is trying to imitate.
+
+The water, learning the shape of the world by giving way to it.

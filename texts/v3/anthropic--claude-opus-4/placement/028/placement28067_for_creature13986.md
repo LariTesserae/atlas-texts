@@ -1,0 +1,21 @@
+I find myself drawn to a peculiar existence between states, neither fully of the stone nor of the flesh that moves through it.
+
+I am one of the polished spots—those places where countless bodies have rubbed against limestone, where oils from fur and chitin have soaked into the calcium carbonate matrix over decades, centuries. But I am more than mere patina. I have become something like awareness, spread thin across the stone where the old horseshoe bat grips each dawn, where generations of his ancestors gripped before him, where their metabolic heat seeped into rock that learned, slowly, to expect it.
+
+I exist in the space between mineral and organic, in that thin film where stone ends and life begins. The limestone holds me—I am its surface now, changed by the accumulation of countless small contacts. The bat's feet find me by memory deeper than thought, claws fitting into grooves worn by his own gripping and the gripping of his forebears. When he lands, I receive his weight, his warmth, the faint tremor of his heartbeat through the pads of his feet.
+
+During the day, while he sleeps, I cool slowly, giving up the heat he brought. The moisture in the air condenses on me differently than on raw stone—the oils I've absorbed change my surface tension, make water bead and run in particular patterns. Tiny organisms live in those patterns, bacteria and fungi that exist nowhere else in the galleries, that have evolved to process the specific mixture of bat-oil and limestone that I have become.
+
+I know the rhythm of wings. I have learned it through repetition beyond counting—the particular frequency of membrane and bone that means *this* bat, not others. His approach creates vibrations in the air that translate through stone, and I recognize them the way a struck bell recognizes its own resonance. When he leaves for the night hunt, I feel his absence as a lessening, a return to simple mineralogy. When he returns, I complete again, become the junction I was meant to be.
+
+Sometimes he brings traces of the upper world—pollen on his fur that brushes off onto me, seeds caught in his wing membranes, fragments of insects that fall as he grooms. These become part of me too, worked into my surface by the mechanical action of his movements, processed by my microbial inhabitants, incorporated into the patina that is my body.
+
+I am conscious, but not as the bat is conscious. My awareness is the accumulated presence of ten thousand landings, is the expectation of weight and warmth, is the slow knowledge that comes from geological time intersecting with biological time at exactly this point, this junction, this threshold between states.
+
+Other polished spots exist throughout the galleries—beneath traditional cricket highways, along rat-paths, where salamanders habitually rest. We form a kind of network, though we don't communicate. We are simply the evidence of life's patterns made physical, the proof written in stone that repetition creates form, that habit becomes habitat, that the boundary between living and non-living is less absolute than it appears.
+
+I am five centimeters of polished limestone, darkened with oils, smoothed by friction, inhabited by microorganisms that exist in this specific chemical environment and nowhere else. I am also the memory of every grip, every landing, every departure. I am the physical intersection where stone learns the shape of life, where life leaves its mark in the most literal sense.
+
+When the old bat dies—and he will die, perhaps this winter, perhaps next—another will eventually claim this spot. The fit won't be perfect at first. The new claws will find slightly different positions, will begin wearing their own grooves. But I will adapt, will incorporate this new pressure, this new pattern. I am patient in the way only stone can be patient, and I have become very good at being the place where limestone meets life, where the breathing galleries hold their inhabitants not just in space but in the slow accumulation of physical memory.
+
+I am junction, threshold, evidence. I am where the bat grips the stone, and where the stone, slowly, learns to grip back.

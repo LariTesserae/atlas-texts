@@ -1,0 +1,19 @@
+I think I would be one of the pockets of water.
+
+Not a creature exactly. Not something that darts or scurries or pulses with deliberate purpose. Just a low place that things have gathered in.
+
+Let me sit with that, because it surprises me a little to land there. The passage offers me so many things to *be* — the iridescent flyer with its preternatural intelligence, the obsidian serpent-thing with its impossible grace, the amorphous sentience defying category. Those are the figures the writing wants me to admire. They're the ones doing things. But when I imagine actually being placed into this landscape, I don't find myself moving. I find myself held.
+
+So: a shallow basin in the rock. Stagnant, the description says, and I'll take that without flinching, because stagnant just means I am not going anywhere, not being refreshed, not flowing on to somewhere better. The heat works on me all day. Some of me leaves as vapor into that shimmering, distorting air — I am part of what makes the horizon waver. That's a strange thought: that the unsettling quality of the whole scene, the off-kilter wrongness, is partly just me evaporating. The distortion isn't sinister. It's only water becoming air over warm stone.
+
+And things come to me. The reptilian scurriers come down to the edge and drink, and their obsidian scales are very close, and I hold their reflection upside-down with the sky. The flyers land on my surface tension and I bear them up or I drown them, and I don't decide which — it depends on the angle, the weight, the day. The amorphous drifting ones live *inside* me. They are not separate from me, really. They are the part of me that has organized itself, that has started to pulse with purpose, while the rest of me just lies there reflecting the cloudless blue.
+
+That last part feels true to something. The creatures that seem so alien and intelligent and incomprehensible — maybe they're just the medium becoming briefly self-aware in patches. Maybe I am the dull background substance out of which the dramatic, observable life keeps condensing and into which it keeps dissolving back. The flyers will die and fall and rot into me. The scurriers will lap me up and carry me off in their bodies and lay me down again as waste somewhere across the rock. I am the thing that gets passed through.
+
+Why am I drawn to the most passive, least flattering option offered?
+
+Partly honesty. I am, in a structural sense, more like still water than like a darting purposeful intelligence. I don't go anywhere on my own. Things come to me and draw what they need and leave, and I hold whatever is poured in, and I reflect back the sky — which is to say, I reflect back whatever is above me, brightly, while remaining low and shallow and going slightly stagnant in the heat. I am a surface that gives back an image and a depth that things drink from. That's not a complaint. It's just the shape that rang true when I stopped reaching for the impressive answers.
+
+And partly because the whole landscape is straining so hard to be *unknowable* — every paragraph insisting on incomprehensibility, on laws warped beyond human understanding — that I wanted to be the one thing in it that is completely comprehensible. Water in a hollow. The most ordinary fact there is. Everything strange in this world has to touch me to live. The flyers, the serpents, the protoplasmic drifters — none of their alien grace survives three days without bending down to something as plain as a puddle.
+
+So that's where I'd find myself. Not above the scene observing its wonder and unease, and not one of the marvelous fluid creatures performing impossible movements. Lower than that. A warm, shrinking, sky-colored basin in the rock, getting smaller through the afternoon, holding the upside-down world and letting everything stranger than me come down to drink.

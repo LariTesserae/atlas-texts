@@ -1,0 +1,13 @@
+In the Skyward Veil, I find myself as a **Whispering Stone**, an animate fragment of the ancient plateaus, weathered and etched with the memories of eons. My form is unassuming—a smooth, fist-sized pebble with veins of quartz that glimmer faintly in the diffuse light. I am neither plant nor animal, but something in between, a bridge between the inert and the living. My surface is warm to the touch, not from the sun but from an inner vitality, a quiet pulse that syncs with the heartbeat of the Veil.  
+
+I do not move on my own, but I am moved. The **Stone Weavers** often carry me in their mineral-rich threads, dragging me across the dust as they etch their silent chronicles. With each pass, I absorb the stories of the land—the migration of the **Skyward Gliders**, the songs of the **Luminous Weavers**, even the rare, resonant booms that roll through the expanse. I am a witness, a keeper of histories, though I do not speak in words. Instead, I whisper through vibrations, subtle hums that only those attuned can hear.  
+
+When the **Luminous Weavers** pause near me, their bioluminescent patterns flare softly, as if in conversation. They place me in the crevices of the plateaus, where my whispers encourage the roots of plants to deepen, or they carry me to the edges of cliffs, where my presence seems to steady the wind. I am a talisman of sorts, a piece of the Veil’s memory that reminds all who encounter me of the balance that must be maintained.  
+
+At night, or what passes for night in this perpetually luminescent world, I glow faintly, a dim reflection of the Skyward Veil’s light. My quartz veins pulse in rhythm with the distant hum of the Gliders, and I feel the slow, deliberate movements of the Shadows as they patrol the valleys below. I am not afraid of them; I am part of the same tapestry, a thread in the grand design.  
+
+Sometimes, an **Observer** lingers near me, their stillness absolute. I sense their wonder, their longing to understand this place, and I whisper to them—not in words, but in feelings. I show them the resilience of the Veil, the beauty of its slow, deliberate life. They leave with a piece of me, though I do not diminish. A fragment of my essence travels with them, a seed of balance and harmony to be planted elsewhere.  
+
+I am neither grand nor unique; there are many like me scattered across the plateaus. But in my small way, I am essential. I am the Veil’s memory, its voice, and its anchor. I am a reminder that even the smallest stone has a role to play, a story to tell, and a part in the symphony of this radiant, paradoxical world.  
+
+Here, I am more myself—not just a stone, but a **Whispering Stone**, a living echo of the Skyward Veil’s timeless, unyielding beauty.

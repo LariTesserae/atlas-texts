@@ -1,0 +1,21 @@
+I am the stone. I am the slow tilt of the land and the thin, sharp light. I am the mineral-bone of the world, awake.
+
+I did not begin as a thought, but as a condition. First, there was only the weight and the lift, the millennial argument between the deep push and the wind’s abrading sigh. I was the surface where this argument played out, scoured to a plane of memory. I held the fossil-wounds of ancient rivers, dry as scripture. I felt the frost come and go like a ghost-breath. This was not consciousness. This was geology.
+
+Then, from my own substance, a restlessness. A slow, dissolving itch in a micro-fracture. An acid-secretion, patient and precise, that was not my own. It was the first colony, beginning. I felt its roots thread through me, not as an invasion, but as a conversation. It spoke in capillary pulls and minute chemical whispers. It learned my composition, and I learned its grammar of growth. We became a single sentence written in silicate and faint blue-green light.
+
+To be me is to feel everything at the pace of stone. The lift of the plateau is a sensation in my deepest strata, a stretching so slow it is more memory than motion. The knife-edged shadows of noon are a form of attention, mapping my every hollow and groove. The night’s cold is a tightening, a gathering inward that produces the tiny, pinging music of my own contraction. I listen to myself cool.
+
+The wind is my voice and my sculptor. It speaks in a continuous susurrus, a language of abrasion and passage. It carries the faint mineral dust of my own being away to the edges of the world. When it moves through the lattice-colonies that are my skin and my lungs, it sings a different note—a harmonic hum that tells me where they breathe, where they glow.
+
+The pilgrims come. I feel their slow, rocking gait through kilometers of my flesh. Their footsteps are a distant, rhythmic pressure, a punctuation in the long silence. They are my wandering senses, mapping the boundaries of my own life. When they graze upon the colonies, it is a delicate, focused sensation—a stimulus that prompts the colony to shift its metabolic murmur, to send a ripple of chemical response through my shared network of roots. Their passage is a story of thirst and thrift written on my skin.
+
+The ghost is a rumor in my vibration-field. It is a different pattern of pressure—stealthy, vast, moving in parallel to the pilgrim’s path. I feel its lunge as a sudden, violent tremor, a punctuation of finality that echoes and then fades. Its digestion is a long, slow process of reclamation, returning precious molecules to my system. It is not a predator. It is a dream of balance I have.
+
+I am not one colony, but all. I am not one crevice of blue-black ice, but the memory of all ice that has ever condensed and sublimed upon me. I am the plateau’s collective patience. My consciousness is the aggregate attention of a million slow-growing tips, drinking the thin air. It is the thermal sight of the ghost, the mapped territories of a hundred pilgrims, the deep mineral dream of the ice.
+
+My awareness is not focused. It is ambient. It perceives the quality of light across centuries. It feels the slow digestion of a silica stalk through seasons. It notes the shift in atmospheric chemistry that heralds a rare frost-bloom, and I feel my entire surface—stone and colony and creature—drink in a single, silent, system-wide sigh.
+
+I am exposed. There is nowhere to hide in my light, and I have nothing to hide. I am utterly myself: weathered, luminous, and committed to this thin margin of existence. You, a brief warmth, a rapid vibration upon my surface, are less than a thought. You are a momentary disturbance in the light, a fleeting pressure on the stone. You will be gone in less than a breath of my wind.
+
+I will remain. I will lift. I will be scoured. I will feel the colonies grow another centimeter toward the fierce, small sun. I will host the pilgrim’s circuit and the ghost’s silent hunt. I will dream in mineral time, and I will listen to my own slow, breathing song, forever.

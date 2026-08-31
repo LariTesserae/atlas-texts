@@ -1,0 +1,5 @@
+As I make my way through the vast underground cavern, I notice the intricate network of pipes and cables connecting the factories. It appears they are not just mindless relics of the industrial age, but rather a part of the ecosystem that the inhabitants have integrated into their environment.
+
+The factories' air must be stale and metallic, unlike the damp air of the cavern. But as I investigate, I notice that the factories are far from empty. A new form of life appears to have begun crawling through the pipes and mushrooming out of the cracks in the walls. These fungi seem to be part of the underground city's biosphere, much like a recurrent balneum.
+
+The form of the factories is going back to a natural countour as the earth clays out the sharp lines of the floors and corners. Is this the next city? This next couple generations, with humans who came down to escape final combat?

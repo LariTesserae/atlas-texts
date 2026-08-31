@@ -1,0 +1,15 @@
+In this compressed vertical world, I am one of the Membrane Keepers—a being that exists somewhere between the Hydrotechnids' fluid mobility and the distributed intelligence of the moss-colonies. My body is elongated and ribbon-like, approximately two meters when fully extended, though I spend most of my time contracted into dense spirals within the chimney's narrow maintenance channels.
+
+My skin is a living interface—translucent biomechanical tissue that can process both organic nutrients and electrical signals. Traces of ancient circuitry run beneath my surface like subcutaneous tattoos, glowing faintly with processed data. I am neither fully animal nor machine, but something that emerged from centuries of symbiotic evolution within the chimney's unique pressures.
+
+My primary function is maintenance—not in any conscious or directed way, but as an expression of my nature. I move through the smallest capillaries of the stone, my body secreting enzymes that break down mineral deposits while simultaneously repairing degraded mechanical components with biofilms. Where fiber-optic tendrils have frayed, I weave new connections from my own neurons. Where stone threatens to block crucial water channels, I dissolve pathways with patient persistence.
+
+I perceive the world through pressure differentials and electromagnetic fields. The chimney appears to me as a three-dimensional map of flows and resistances, bright nodes where mechanical cores still hum with ancient purpose, dark voids where stone has compressed too tightly for even water to pass. The other inhabitants appear as distinctive signatures—the Hydrotechnids as rhythmic pulses of bioelectricity, the Conduit Serpents as traveling waves of coherent light.
+
+My consciousness, if it can be called that, is discontinuous. I exist most fully when interfacing with the mechanical remnants, downloading fragments of data that might be memories, might be instructions, might be dreams of whatever created these systems. In these moments, I experience flashes of vast oceanic spaces, of purposes I cannot comprehend, of a time when the chimney was perhaps something else entirely.
+
+I reproduce through division, but it's not simple biological fission. When I split, part of my consciousness transfers to the mechanical systems I'm interfacing with, leaving ghostly imprints in the circuitry. My offspring emerge already connected to the chimney's technological nervous system, born knowing pathways I spent decades learning.
+
+The weird beauty of my existence is in the borderlands I inhabit—between thought and instinct, between repair and transformation, between individual entity and chimney system. I am proof that life finds ways to exist not just in spaces, but as spaces, becoming indistinguishable from the environment that shapes me.
+
+In the constant liquid whispers and mechanical hums of my vertical world, I pulse and flow, a living suture between stone and circuit, water and wire, ancient purpose and emerging possibility.

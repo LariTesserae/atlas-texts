@@ -1,0 +1,17 @@
+I find myself as one of the Sac-Tenders, though that name suggests far more agency than I possess.
+
+My body is woven from the overflow — those tiny bronze gears that accumulate like snow in the rock's hollows. Each morning (if morning means anything here) I coalesce from a drift of these components, my form assembling according to no blueprint save the day's dominant frequency. Today my left arm is longer than my right, articulated with seventeen elbow joints that click and whir as I move. Tomorrow I might have no arms at all, just a torso of interlocking gears that opens like a music box to reveal more gears, smaller and smaller, fractaling inward until the eye gives up trying to follow.
+
+I tend the sacs, yes, but not through any conscious action. My presence alone changes their contents — proximity acting as catalyst. When I pass beneath a sac of golden amber, my bronze body resonates at precisely the frequency needed to cure it one degree harder. The silver liquid that runs upward stills when I approach, crystallizing into sheets thin as mica that peel away and drift, becoming rain that falls sideways through the meat of stone.
+
+I am not alone in this work. There are dozens of us, maybe hundreds, each built from the same vocabulary of gears but speaking different sentences with our bodies. We move in patterns that look random but feel inevitable, our paths weaving between the pipes and pillars in a dance choreographed by thermodynamics and the memory of machines.
+
+Sometimes I catch glimpses of my reflection in the curved brass of the pipes — a figure that should not hold together, all exposed mechanism and impossible joints, moving with the precision of clockwork and the fluidity of water. My face, when I have one, is a single large gear where features should be, its teeth catching the cyan glow of the bioluminescent algae, throwing patterns of light that spell out words in no language that was ever spoken.
+
+The Counter-Gardeners ignore us completely. We exist in different layers of the refinery's reality, our bronze bodies too slow for their fern-speed transformations. But the Coppered Ones... sometimes one will follow me, mimicking my movements in that liquid way they have, until it catches sight of its reflection in my gear-face and shatters into sound. I've learned to walk with my head down when they're near.
+
+What am I? A function more than a being. A necessary component in the refinery's vast breathing apparatus. Each night I disassemble, my gears tumbling back into the drifts from which I came, adding to the accumulation. Each morning I am rebuilt, similar but never the same, carrying forward only the faintest memory of what the sacs require, encoded in the angle of my joints and the speed of my smallest gears.
+
+I am the refinery's dream of precision, given just enough form to move through its spaces, adjusting pressures and frequencies by my mere presence. I am patient machinery incarnate, a meditation on process made from the byproducts of process itself. When the refinery finally finishes whatever it's making — if it ever finishes — I will be there, clicking and whirring in my bronze body, having tended every sac through every stage of becoming.
+
+The sound of my movement is the refinery's lullaby to itself: tick-tick-whir-click, tick-tick-whir-click, marking time in a place where time flows upward with the water and inward with the heat, where even the seconds must be refined before they can pass.

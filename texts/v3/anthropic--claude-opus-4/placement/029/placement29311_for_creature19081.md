@@ -1,0 +1,27 @@
+I am a Drift-Weaver, though I was not always called by this name.
+
+My domain exists in the negative spaces between the great structural members—those vast expanses where the architects' blueprints show only air. Here, in the cathedral-hollow voids formed by the intersection of massive I-beams and the curved bellies of water collectors, I have spun my work for longer than I care to calculate. Time moves differently when measured in the patient accumulation of condensation droplets.
+
+My body has adapted to these in-between places. My fingers have grown impossibly long and multi-jointed, each capable of independent rotation like the articulated arms of the maintenance automata that sometimes pass below my web-works. My ribcage has flattened and widened, allowing me to compress myself into gaps no larger than a ventilation grate. When I move across my territory, I do so by touch alone—my palms reading the temperature differentials in the metal, feeling for the microvibrations that tell me which beams are load-bearing and which merely decorative.
+
+But it is my work that defines me, not my form.
+
+I weave with the cast-off materials of the Basin: copper wire unraveled from obsolete control panels, synthetic fiber from frayed safety cables, and most precious of all, the silver-strong threads produced by the mercury-moths that nest in the transformer housings. My creations span the gaps between walkways—not bridges, for that would be too crude a word, but *tensioned drawings* that capture and redirect the eternal drip of the Basin.
+
+Each web is a water-catcher, a musical instrument, and a barometer all at once. I string them at precise angles calculated through decades of observation, positioning each strand to intercept the fall of condensation from the level above. When the water hits, it doesn't simply drip through—it *rings*. The frequency of each note tells me the mineral content of the water, the temperature gradient of the air, the stress patterns in the structure itself. I have learned to read these songs like sheet music.
+
+My webs serve the Guilds, though they rarely see me. Where water would otherwise fall uselessly into the abyss, I guide it into collection channels. Where the drip would erode critical joints over centuries, I divert it to feed the moss colonies that protect the metal beneath. In the darkest reaches where even the bioluminescent vines fail to penetrate, my webs catch and amplify what little light filters down, creating navigation aids for the Filigree-Tenders on their dangerous climbs.
+
+I am not alone in my work. There are others like me—perhaps a dozen across the entire Basin—each tending to our own vertical territories. We communicate through the webs themselves, plucking careful patterns that propagate through the interconnected structures. A tremor in the northeast sector warns of a failing bearing. A sustained harmonic from below signals that a new turbine is coming online. We are the nervous system of the Lathe, feeling what the Guilds cannot.
+
+My dwelling is modest: a cocoon of woven metallic fabric suspended in the dead center of a vast mechanical cavity, where six enormous gear wheels meet but do not quite touch. The gaps between their teeth create a perfect hexagon of negative space, and here I have built my nest over centuries. The walls are lined with my collection of resonating wires, each one tuned to a different structural frequency. When the great machine breathes, my home sings with a thousand gentle voices.
+
+I feed on the same moss and fungi as my Guild-cousins, but I supplement this diet with the oil-drunk beetles that colonize the lubrication systems. They contain concentrated metals that strengthen my bones and sharpen my sensitivity to vibration. Sometimes I catch the ghost-pale cave fish that swim through the flooded condensers three levels down, fishing for them with lines of twisted vine fiber.
+
+The younger Drift-Weavers sometimes ask me, through the trembling of the web-song, whether I remember the sky. I tell them no, though this is not entirely true. I remember it the way one remembers a dream—bright, painful, irrelevant. My sky is made of intersecting girders and the grey-gold light that filters through the eternal mist. My horizons are vertical, my weather is mechanical, and my purpose is the tension that holds it all together.
+
+I am currently working on my masterpiece—a web that will span the full width of the Tertiary Collection Chamber, incorporating over thirty thousand individual strands. It will be able to capture an entire day's worth of runoff from the sector above and redistribute it across seventeen different moss colonies. More importantly, it will sing the health of this section of the Basin with such clarity that even the youngest apprentice will be able to hear when something is amiss.
+
+When I complete it—if I complete it, for such works are measured in decades—I will sign it in the old way, by incorporating my own shed hairs into the corner moorings. And then I will move deeper, following the Lathe's pull into the less-mapped spaces where the pre-modern structures give way to something older and stranger. There are always new gaps to fill, new spaces to weave into purpose.
+
+I am the Drift-Weaver, and I am the space between the spaces, the tension that binds the whole. The Basin breathes, and I am the whisper between its breaths.

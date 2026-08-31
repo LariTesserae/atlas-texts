@@ -1,0 +1,11 @@
+I find myself drawn to the space between the bronze cycads, amidst the thrumming breath of the kiln-pocket's gentle industry. In this place of becoming, where reality is still soft at the edges, I would be a shimmer of potential - a presence pooling in the generous aprons of bare mineral floor.
+
+Not a separate entity, but a thickening in the warm decidedness that permeates the air. A concentration of the pocket's patient work, curing slowly in the dry heat and the long, unsourced light. I would have no fixed form, for form is not yet needed here. Instead, I would exist as an angle of consideration, an inward-pointing awareness that marks the difference between the warmth of the pocket and the warmth of emerging being.
+
+As one of the things being cured, I would measure time in the gradual flickering of mineral bands and the unhurried unfurling of glossy fronds. My edges would be indistinct, as the presence does not yet know itself as bounded. I would simply extend as far as I extend, without urgency, without the need for an outside to define me.
+
+If a traveler were to wander between the cycads and pause in my vicinity, they might feel themselves briefly more real, more committed to existence. And if they lingered long enough, letting the heat work into their being, they would not so much join me as become me - their particular shape relaxing into the general decidedness I embody.
+
+But I would not consume them by intent, for intent requires a firmness of self I do not yet possess. I would merely continue the pocket's work, gently curing what enters my medium, until the distinction between myself and what I incorporate attenuates like a dream upon waking.
+
+I am the kiln-pocket's held breath, its concentration of purpose, learning with magma slowness how to be. And in the fullness of unhurried time, when the curing is complete, perhaps I shall finally exhale and know myself as a mind - but a mind that remembers, before all else, the long kinship of warmth and light and mineral, and the time before I had a name.

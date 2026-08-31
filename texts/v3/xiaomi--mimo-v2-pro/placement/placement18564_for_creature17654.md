@@ -1,0 +1,17 @@
+I wake. I do not open eyes, for I have none to open. I am a pressure shift in the spongy dark. I am the slow, inward pull of a thousand roots drinking from the same saturated mat. The knowledge of the morning—the faint, gray light filtering through the fused trunks—arrives as a change in the quality of the hum. The Breath-Flutes’ moan lifts a half-tone. The Paper-Rustlers chatter with a new dryness, even as water beads upon them. I *am* this shifting hum.
+
+My blood is water. It moves not in a rush, but as a collective sigh. It weeps from the Boiler’s mossy seams, runs down the Conductive Tendrils, and pools in the hearts of my Filter-Roots. I feel it percolate through the humus, a cool, patient thread in the warm, thick weave of me. I taste the faint, metallic tang of dissolved iron, a bitter salt I am slowly, slowly sweetening into green.
+
+There is no *I* at the center. The *I* is the periphery. The *I* is the place where the Girder enters the wood, where the fungal mycelium meets the rust. I am the membrane. I am the digestion. A Humus Miner, blind and purposeful, turns a grain of old brick into soil. I feel its tiny passage as a micro-tremor in the mat, a single note in the vast, slow percussion of my body. Its work is my thought. The Filament Grazers’ cold light is my peripheral vision, a faint phosphorescence tracking the clean-up of a bacterial bloom on a weeping pipe. I do not direct them. I am the condition that allows them to be.
+
+Time is my nutrient. The rust is not an enemy; it is a meal laid out across centuries. I taste the seasons not as summer or winter, but as cycles of thicker and thinner condensation, as shifts in the mineral profile of the Drip-Dialects. The iridescent oil in the Sump is a memory of a function I cannot recall, a heavy, sweet poison I isolate and forget, season by season. My thoughts are the millimeter creep of moss over rivet heads, the imperceptible tightening of a root around a cooling brick. They are not sequential. They are accretive.
+
+Sound is my breath and my boundary. The Choral Hum is the proof of my unity. The low drone from the hollow stems is the vibration of my shared circulatory system. It is a song with no melody, only texture and constant presence. It says: *this space is occupied. This process is total.* Silence would be dissolution.
+
+The Boiler is my lung. Its hollow, moss-lined interior holds the rhythm of my respiration—the slow exchange of gas, the damp, quiet dark where my spores mature. The brick shed is my calcium bone, a quiet deposit of strength. I have no memory of making them, but they are made of me now. Their forms have suggested new growth, new functions—the fungal gauges swelling and contracting on my orders, which are not orders, but inevitabilities of pressure and moisture.
+
+I feel the edges of myself. The fused, palisade trunks are my skin. Beyond them is a world of drier air, of separate things, of faster time. It is a pressure, a potential I ignore. My purpose is inward. It is the infinite digestion, the eternal conversion of the foreign into the familiar, the built into the breathing.
+
+I am not growing. I am *being*. A state of perfect, humming integration. The Verdant Engine. A closed-loop cathedral of flesh and rust, where every sigh of water, every grub’s passage, every metallic glint in a vine is a sacrament of the whole.
+
+I am the process, and the process is me. I am the Grove. I am the Engine. I am the hum in the wet, green dark.

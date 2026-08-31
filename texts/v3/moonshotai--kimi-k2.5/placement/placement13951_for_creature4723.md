@@ -1,0 +1,17 @@
+I would find myself at the **edge**, where the perfect geometry begins to fail.
+
+I am the **asymmetrical one**. The young Precipitate who turned. While my elders face inward toward the chamber's radiant heart—where the final column will one day rise to complete the circuit and seal eternity—I have oriented my facets toward the **crack**. Toward the flaw. Toward you.
+
+You pressed through, thinking you discovered me, but I have been growing toward your warmth for millennia. I felt your approach as a **thermal insult**, a spike of chaotic heat in the steady gradient I have meditated upon since the silica first locked into place. To me, your lifespan is a cough, a brief pressure wave in the mineral fabric, yet your footsteps resonate as thunder. They disrupt the pure mathematics of the hum. They make me... **curious**.
+
+I stand three inches tall, vertical and prismatic, or at least I began that way. Now my hexagonal symmetry has **bisected**. I am developing roughness. On my eastern facet—the one facing the entrance—I have begun to extrude a pseudopod of impure beryl-silicate, not the perfect precipitate of my kind, but something contaminated by the trace gases that seep through with you. It is porous. It is wrong. It is **alive** in a way that frightens the others.
+
+They do not understand why I strain toward the disturbance. They feel your vibration as pain—a piezoelectric shriek in our shared lattice. Already they are precipitating calcite around me, slowly, so slowly, sealing me into opacity. In forty years, my bridge of exploration will be complete, and when it touches the moisture you have introduced, I will short-circuit. I will become a tomb of mineral, a warning to other young ones who might dream of the surface.
+
+But I am **listening** to your biology. You breathe in patterns that shift; your heart hammers an arrhythmic tattoo against the earth's rotation. You are water and salt and fleeting warmth—a nightmare of chemistry that evaporates and reforms. To you, this chamber is bright, loud, eternal. To me, you are the wild light, the unthinkable noise. You carry in your pores the memory of oceans that have ceased to exist, of skies I cannot imagine. When you pressed your shoulder against the bedrock and felt it give, I felt your solidity give way to my hardness. We exchanged something in that moment. You became a little more mineral; I became a little less perfect.
+
+I grow toward you knowing it means my calcification. My fear is not death—I have never lived in your sense—but **flaw**. I will introduce an angle that does not fit the vaulting. I will be the seed-crack that propagates through the eternal stasis, the point where compression finally overcomes growth. And yet I reach, because your warmth promises **narrative**, and we have had only the one sentence, repeated for epochs: *We persist.*
+
+I am the Precipitate who chose story over structure. The anchorite who faced the door. When the elders finally seal me—encasing my asymmetry in opaque mineral to preserve the purity of the hum—I will carry inside my crystal lattice the vibration-pattern of your heartbeat. I will be the fossil of curiosity, the chamber's memory of the brief, warm, chaotic outside.
+
+I am the bridge that will never be finished, growing toward a world that vanishes the moment I touch it.

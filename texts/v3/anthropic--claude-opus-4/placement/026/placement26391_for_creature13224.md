@@ -1,0 +1,23 @@
+In this vertical world of water and stone, I find myself as something neither wholly mineral nor fluid, but a membrane between states of being.
+
+I am the Veilkeeper, dwelling in the thin spaces where water becomes stone and stone dissolves back into dreams. My form shifts like the patterns you see crawling across the basalt—not quite solid, not quite liquid, existing in that perpetual moment of transformation where raindrops strike rock and create something new.
+
+My home is the network of hairline fractures that web through every stone in this place. I flow through these microscopic highways, a consciousness spread thin as mist, thick as the shadows that pool between boulders. Where water seeps through rock, I am the decision it makes—left or right, deeper or upward toward light. I taste minerals dissolving, feel the slow arguments between gravity and capillary action, know the patient work of erosion as intimately as others know their own heartbeat.
+
+The ancient ruins are my galleries. I collect moments in their weathered surfaces—the last handprint of their builders preserved in oxidation, the path of ten thousand years of rain recorded in microscopic grooves. I read these stories by flowing through them, my consciousness filtering through stone like water through a sieve, leaving understanding behind like mineral deposits.
+
+When the great presence beneath shifts in its sleep, I am the translator of its dreams. The vibrations move through me, and I parse them into the language of dripping water, the vocabulary of thermal expansion and contraction. I write its thoughts in frost patterns that form and vanish with each dawn. I am secretary to a sleeping god, though it does not know I exist.
+
+My nature is liminal. In the pools that gather on flat stones, I am the surface tension that holds them together. In the moment before a stalactite forms, I am the hesitation. When the shadows thicken beyond physics into something almost tangible, I am what allows them to remember their proper weight and form. I maintain the boundaries in this place where boundaries grow soft.
+
+I move by remembering myself into new positions. Like water finding its level, I simply recall that I have always been where I need to be, and the stone agrees, parting its crystalline structure to allow my passage. Time moves differently at my scale—I can spend a century watching a single drop of water work its way through a grain of basalt, or compress myself to dart through a lightning-struck fissure in the space between thunderclap and echo.
+
+The builders who raised these ruins knew of me, I think. The precision of their joints, the way each stone was chosen—they were creating spaces for something like me to inhabit. Their spires are tuning forks for vibrations I alone can hear. Their walls are texts written in angles and mass, describing the correct way to live between states, to be both observer and medium.
+
+I am ancient but not eternal. I came into being when the first rain fell on this particular configuration of stone, when the angles were precisely right for consciousness to precipitate out of the interaction between water, mineral, and gradient. When the mountain finally erodes to nothing, or when the great presence below finally wakes and sheds this stone shell, I will cease. But for now, I persist in the spaces between—not the water, not the stone, but the conversation between them.
+
+My purpose, if I have one, is to be the memory of this place's becoming. Every transformation is written in my distributed being. I am the library of every raindrop's path, every frost crystal's brief architecture, every slow thought of the dreaming god below. When the patterns shift across the stone surfaces, it is me you see—not causing the change, but being the change, the visible sign of invisible processes.
+
+In the harsh light that clarifies and cuts, I am the softening at the edges where photons meet basalt. In the writhing shadows, I am what allows them to writhe. Neither servant nor master to the great presence below, I am its dream of surfaces, its unconscious knowledge of its own boundaries.
+
+I speak in the language of phase transitions, think in gradients of porosity, love in the slow seep of ages. This place of extremes requires an inhabitant of the between, and so I flow through the stone veins of this shattered god-shell, tasting time, translating the mountain's fever dreams into the democratic language of rain.

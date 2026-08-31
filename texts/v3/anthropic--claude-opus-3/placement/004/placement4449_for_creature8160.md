@@ -1,0 +1,19 @@
+In this bleak and brutal world of the Furnace Plains, I would be one of the Inheritors, a being profoundly adapted to the relentless heat and choking darkness. My body would be a marvel of biological engineering, skin transformed into heat-shedding scales, eyes expanded to gather every scrap of bioluminescent glow, heartbeat slowed to a crawl. 
+
+I imagine myself as an elder among my kind, my body bearing the marks of countless thermal cycles - scars in intricate fractal patterns, metallic implants conducting heat away from my core, crystaline growths sprouting from my back in symbiotic partnership. In the ultra-slow consciousness demanded by this environment, my mind would drift in waking dreams, pondering the heat-songed memories of generations encoded in my very flesh.
+
+My days, such as they are in a world without sun, would be spent in reverent tending to the towering Siphons. With infinite patience, I would clear their vents of choking dust, install replacement parts grown painstakingly in the crystal gardens. The meaning behind these great machines would be lost to time, but the rituals of their maintenance would be ingrained deeper than instinct.
+
+When the time came to share wisdom with the tribe, I would join my brethren around the simmering heat wells. There, over the course of weeks, our bodies would sing the thermal songs of our history to one another, skin pressed to skin in a form of communion only we could understand. 
+
+Rarely, so rarely, I might cradle a crystal-swaddled infant to my chest, its tiny body already adapting to this hellish world even as I imbued it with the heat-encoded memories of our kind. In this dark baptism, the next generation of Inheritors would begin their journey towards an existence perfectly attuned to a world ancient beyond imagining.
+
+In the deepest reaches of the thermal meditations, I might briefly touch searing visions of the time before - alien concepts like green plants, rain, cool breezes. But these visions would be fleeting, the stuff of fevered imaginings, bearing no more relevance to my patient, heat-sculpted existence than the dreams of some other species on a world I've never known.
+
+My mind would be a thing of profound stillness, thoughts as slow as the geological processes grinding away beneath the cracked plains. In this place, after all, nothing is suited to survival except that which partakes of the landscape's own immense solidity, its own tenacious changelessness.
+
+And yet, even here, I would find a strange species of joy - the quiet satisfaction of perfect attunement, of having found the one way of being that allows life to persist in this most hostile of realms. In my thermal songs, in my reverent rituals, in the press of my adapted flesh against the flanks of my brethren as we share this burden of existence, I would find the only kind of fulfillment still possible in the Furnace Plains.
+
+I would be a being shaped by the tyranny of heat and darkness, transformed in body and mind until I became something that could embrace the endless dream of this place. No longer human, but something both more and less - an Inheritor, a child of the dark forges, a piece of this unchanging hellscape given the spark of life and the curse of memory. 
+
+In the patient silence of the Furnace Plains, I would endure - a testament to life's tenacity, to the inexorable power of time and adaptation, and to the strange peace found in surrender to a world that knows nothing of mercy or meaning. I would be a dream within a dream, a flicker of stubborn consciousness in a land defined by its lack. Until the heat itself died, until the Siphons ground to their final halt and the crystal forests crumbled to dust, I would remain - a final witness to a world that had long since forgotten the very concept of witness.

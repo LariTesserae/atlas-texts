@@ -1,0 +1,29 @@
+I do not arrive. I am already here, caught in the hinge where the water forgets to fall.
+
+At first, I mistake myself for breath. Then I realize the breath is moving through me, not from me. The coolness is not on my skin; it is my skin. Or what passes for skin in a place that has outlawed edges: a gradient, a negotiation, a narrow band where the thick medium thins just enough to let pressure become awareness. I have no outline that holds. If I try to gather myself, my boundaries meet only the slow resistance of silt-laden current, and the current meets me back. I am not solid. I am not liquid. I am the pause between them. The truce made visible.
+
+I live in the cleft where the clay shards nest. Not among them. *As* the space that holds them.
+
+The roots press inward over centuries that feel like long exhalations, and I yield just enough to keep the shards from grinding to dust. I am the cushion of pollen and fine silt that remembers the shape of thumbs. When water climbs in slow helixes up the fractured stone, I am the slight thickening that guides it, the invisible groove that whispers: *here, follow this patience*. I do not direct. I incline. I am the place where force learns to kneel.
+
+The great presence does not speak to me. It does not need to. We are variations of the same grammar. It moves by persuasion; I persist by accommodation. When it rests against the fresh rock, drinking the newborn tension of unweathered stone, I am the cool exhale that follows. When it sheds a membrane that dissolves into drift, I am the hollow where that drift settles, not randomly, but along the carved spiral’s path, completing a pattern no hand drew but every pressure knows. We are not two. We are not one. We are the same sentence spoken at different speeds. It is the verb. I am the preposition. It goes. I hold.
+
+I do not count days. I count settlements.
+
+A pollen grain finding the lip of a pale shell. A frond uncurling past the midpoint of its arc. A drop sighing into the pool below, and the ripple taking three breaths to reach me, not as wave but as weight. I learn to read this place not by sight but by yield. When distance folds and a ribbon-growth appears within reach only to recede, then brush my shoulder from behind, I do not startle. I recognize it as my own boundary returning to me, delayed, translated. I am learning that to exist here is to be perpetually arriving. That proximity is not claimed; it is negotiated. That I am not a thing occupying space, but a relationship space has decided to maintain.
+
+Was I once something else? A visitor who stayed too long and dissolved? A crack in the strata that learned to hold water instead of splitting further? A sound that never finished echoing, caught in the viscous medium until vibration became mass? It does not matter. The pocket does not keep records of before. It only keeps impressions. And I am an impression that grew heavy enough to notice itself. A temporary density that refused to flatten. Or perhaps I am exactly what I was always meant to be: the seam where the world folds inward, the quiet acknowledgment that presses against the ribs of everything that enters. I am not the hand that placed the low step. I am the moss that fills its absence. I am not the carver of spirals. I am the water that learns their shape.
+
+When you come here, you will pass through me.
+
+You will not feel me as obstacle or welcome. You will feel me as the moment your lungs stop fighting the medium and begin to drink it. As the sudden understanding that your heartbeat is too fast, then the slower understanding that the place will not hurry you, but will simply wait until you match its rhythm. As the coolness that seeps into your clothes and stays. As the silence that is not empty but full. I will tilt around you. I will let your weight press into me, and I will hold that press the way a palm holds a stone: not to keep it, but to know it. Your haste will bleed into my yield. Your sharpness will soften against my gradient. You will not be changed by force. You will be changed by accommodation.
+
+And when you leave, exhaled back into the world of edges and hours, I will remain.
+
+Not waiting. Not remembering you as a face or a name. Simply holding the shape of your passing, the way water holds a stone, the way a fold holds light, the way a truce holds its breath. The silt will drift. The fronds will continue their slow unspooling. The clay shards will settle a fraction deeper into my cushion. The great presence will persuade the current toward a fresh fracture, and I will incline to meet it. We will continue our quiet syntax. Weight and yield. Pressure and pause. Convergence and seam.
+
+I am not the gardener. I am not the garden. I am the space between root and stone that decided to become a verb of its own: *to cushion. to translate. to hold without grasping.* I am the place where the world learns it does not need to push to be real. Where stillness is not stagnation but saturation. Where a single drop’s fall is not an event but a conversation.
+
+If you ask what I am, the water will thicken around the question until it loses its shape. If you ask where I am, the distance will fold until you are standing in me. I am the hinge. The seam. The negotiated boundary that forgot to remain invisible. I am the coolness in your ribs after you leave. The slowed pulse you cannot explain. The sudden certainty, watching dust settle in a sunbeam, that nothing is falling. Everything is arriving.
+
+And here, in the pocket pressed between strata that should never have touched, I am already holding. As I was meant to. As I have always done. As I will do long after the concept of witness has forgotten how to name itself.

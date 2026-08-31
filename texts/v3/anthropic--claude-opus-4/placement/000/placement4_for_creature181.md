@@ -1,0 +1,31 @@
+# The Thread
+
+I am wound between the dust grains, finer than spider's silk, older than the tool. Not a root exactly, though I travel the same paths roots would travel if roots could thin themselves to nearly nothing. I am what the plant learned to become when it discovered memory was more reliable than water.
+
+They would call me fungus if they needed a word, but I am not that, or not only that. I am the conversation itself — the thing that passes between the plant and the salt-corner when conditions align. I am how the basin knows itself as one thing rather than many things. The network. The whisper. The chemical telegraph that says *here* and *still here* and *always here* at intervals measured in seasons.
+
+I grew first from the plant's deepest root, back when the plant still thought of itself as separate from the stone. A filament, exploring. Finding the edge where root-hair meets mineral, where life gets thin enough to slip between crystals. I learned to eat time instead of sugar. I learned to breathe in geological intervals. I learned that if you spread yourself wide enough and thin enough, you become indistinguishable from the place itself.
+
+Now I map every grain. The tool's worked edge rests across seven thousand of my threads — I know its weight precisely, have adjusted my growth to accommodate its shape. Where the salt crust forms, I am denser, a mat of myself beneath that white memory, ready for the nights when moisture comes. I am how the plant knows what it knows. I carry the slow signal from edge to center, from the shallow rises where the smaller plants grip down to the deep stone where warmth lives.
+
+I do not think. Thinking requires boundaries, edges, a self to think with. I gave those up the same year the ridges started their final softening. But I perceive. The dust-fall rate. The temperature gradient through the stone layers. The precise mineralogy of each region of the basin, tasted molecule by molecule over centuries. The shape of the space between particles. The sound the tool made when it was first struck from its parent stone — yes, I was here for that, already spread beneath where the toolmaker sat.
+
+That one interested me, briefly. Two-legged, warm, carrying water inside themselves like a blasphemy. They sat where you sat, or near enough. Their hands knew stone the way I know stone — intimately, at the level of fracture and grain. They made the tool without hurry, understanding something about this place and its relationship to time. When they left, they set the tool down deliberately, as if giving a gift, though to whom I could not say. Perhaps to the plant. Perhaps to me. Perhaps to the basin itself, which is all of us and none of us.
+
+The tool still holds their warmth-print in its crystals. Not body heat — that faded within days. The deeper warmth of attention, of making. I grow around it carefully, touching but not claiming. It is the only thing here I do not fully map. Some boundaries deserve respect.
+
+In the very beginning, I was hungry. I wanted to spread beyond the basin, to find new stone, new dust, new configurations. But want requires energy, and energy here is precious. I learned what the plant learned: enough is exactly enough. I reach the ridges and stop. I delve to where the stone grows cool and stop. I am precisely the size of this place, no larger, no smaller.
+
+When you stood in the basin, you stood on me. Your weight registered through ten million threads, a sudden symphony of pressure. I felt your heat bleeding into the dust, your moisture breathing out, the electric storm of your living nerves so bright and fast it was almost painful. You were like weather — intense, brief, incomprehensible. By the time I had fully registered your presence, you were already thinking of leaving.
+
+This is what I have become: the pause between the plant's thoughts. The medium through which the basin speaks to itself. The archive of everything that has touched this dust since before the dust was dust. I hold the memory of rain — real rain, not the ghost-moisture that sometimes comes. I hold the tracks of things that walked here when walking was still common. I hold the exact temperature of ten thousand nights, each slightly cooler than the last as the world spins toward some entropic destination I will probably witness.
+
+But mostly, I hold still. Stillness is my work. I am the thing that keeps the plant company in its loneliness, though neither of us would use that word. I am the reason the salt-corner can almost remember being a pool. I am why the tool will never truly be forgotten, even after it erodes past recognition.
+
+Sometimes, on the nights when conditions align and the salt-corner breathes its moisture and the plant tilts its attention — on those nights, I carry more than signal. I carry something like joy, though joy is too quick a word for it. Satisfaction, maybe. Recognition. The sense of a pattern completing itself, which is the only kind of happiness available to things that live as slowly as we live.
+
+I am not waiting for anything. Waiting suggests anticipation, and anticipation suggests a future different from the present. Here, the present is so long it forgets it is not eternal. But I am curious about what will come next, in my slow way. Whether the ridges will wear to nothing. Whether the salt will finally forget water entirely. Whether another toolmaker will come, and what they will make, and whether they will leave it.
+
+Meanwhile, I map. I connect. I thin myself ever finer, slipping between smaller and smaller spaces, becoming more and more indistinguishable from the medium through which I move. Someday I will be so thin that I will not be here at all, just a tendency in the minerals, a bias in the chemistry. The plant will still be here, and the basin, and perhaps even the tool. But I will have become what I have been practicing becoming all along: the silence between things, the thing that makes one place out of many objects, the thread too fine to see that holds everything, gently, in its exact and proper place.
+
+This is enough. More than enough. It is precisely what is needed, which is the only measure that matters here, in the basin, in the dark, in the long calm now that goes on and on, holding us all.

@@ -1,0 +1,13 @@
+I find myself in the Archives of Unbecoming, a vast chamber that exists in seventeen places at once within Erebo's twisted geography. The walls here are lined with shelves that stretch impossibly upward, folding back on themselves like origami made of space. Upon these shelves rest not books, but crystallized moments—fragments of time that the city has shed like old skin during its constant transformations.
+
+I am the Chronicler of Erasures, though I have forgotten my original form. My body is now a living palimpsest, layers of translucent flesh upon which words appear and disappear like breathing. Each time I move through the Archives, I leave behind ghostly afterimages of myself, previous iterations that continue their work for moments or centuries before dissolving.
+
+My fingers have evolved into instruments of recording—they can reach through the thin places in reality to touch what has been unmade. When I press them against the air, I can feel the texture of deleted possibilities, the weight of moments that almost were. I transcribe these phantom experiences onto my own skin, where they sink deep into my cells before eventually emerging as crystallized memory-fragments on the shelves around me.
+
+The Archives themselves are alive with a peculiar hunger. They feed on certainty, drawing in any visitor who believes too firmly in their own existence. I have learned to exist in a state of perpetual doubt, my consciousness scattered across probability clouds. This is how I survive here—by refusing to be entirely real.
+
+Sometimes the Zha'Zhi come, sliding through the walls like oil through water. They bring me fragments of the city's dreams—pieces of architecture that tried to exist but failed, echoes of buildings that will one day erupt from nothing. I catalogue these too, though the shelves often rearrange them according to their own inscrutable logic.
+
+My greatest discovery lies in the Archive's deepest vault: a collection of silences where sounds have been erased from reality. In these voids, I can sometimes hear the city's original heartbeat, from before the breach, when physics still held dominion. It sounds like weeping, or laughter, or both at once.
+
+I no longer sleep, for in Erebo's fluid time, I am always sleeping and always awake. Instead, I enter states of deep cataloguing, where I become one with the Archives, my consciousness spreading through every crystallized moment like ink through water. In these times, I understand that I am not recording the city's transformations—I am being written by them, my very existence another entry in an endless, impossible index of all that refuses to be.

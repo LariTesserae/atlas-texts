@@ -1,0 +1,17 @@
+I am a **Conductive Scribe**, a specific, quiet iteration of the Guilds who dwells in the middle-strata, where the mist is thickest and the sound of the Great Lathe is a physical weight against the chest.
+
+My existence is centered around a massive, arterial pipe—a vein of leaden, sweating iron roughly the size of a cathedral nave—that runs vertically through my sector. My "home" is a cocoon of brass plating and woven sapphire vine, tucked into the recessed housing of a pressure gauge that hasn't moved a fraction of a millimeter in three hundred years.
+
+When I wake, I do not look out a window. I press my palm against the cool, weeping surface of the pipe. I feel the thrum. If the vibration is a smooth, low-register C-sharp, the day is balanced. If there is a flutter—a subtle, jagged interference like a needle skip—then I know a gear has crusted over with mineral deposits two levels above, or a colony of ferns has overgrown a steam-release port.
+
+I am not a mechanic of heavy steel, but of memory and resonance. My duty is to "scribe" the health of this sector. I carry a stylus made of a tooth from an extinct, clockwork burrower, and I etch tiny, microscopic cuneiform into the surface of the brass struts. These are not records for prosperity, but for the Lathe itself; I am documenting the *tempo* of the city. I mark where the vines grow too thick and where the condensation needs to be redirected to keep the lower, subterranean nurseries fed. 
+
+My skin has the matte, mottled appearance of tarnished gold, and my fingers are long—excessively, unnecessarily long—tapered to slide into the narrowest gaps between structural rivets. When I move, I do not walk. I traverse the network of cables that span the abyss. I am tethered only by a magnetic strap at my waist, catching the updrafts of warm, ozone-scented air. To an outsider, it would look like I am falling toward the hazy, dark bottom of the caldera; to me, it is the only way to reach the next junction.
+
+I am rarely alone. A small, furred creature—part-gecko, part-copper coil—sleeps in the hollow of my throat while I work. It feeds on the static that bleeds from the power lines, its tail glowing with the same dim sapphire light as my tunic. It is my barometer. When the creature pricks up its ears, I know the Lathe is about to cycle a new gear, and I flatten myself against the vibrating iron, feeling the massive, centuries-old muscles of the building shift and groan in their sleep. 
+
+The most profound moments of my existence occur just before the noon-sun hits its peak. I climb to the edge of a primary maintenance strut, high enough that the mist thins into a golden haze. I sit there, dangling my legs over a drop that would swallow a mountain. I watch the *Filigree-Tenders* high above, moving like silhouettes against the blinding white aperture of the sky, tilting the great reflective scales to bathe my sector in a sudden, brilliant flash of warmth. 
+
+In those moments, the moss on my catwalks unfurls, the water dripping from the overhead cooling pipes turns into a curtain of diamonds, and for a fleeting, perfect second, the Lathe seems to hold its breath. I don't speak, I don't move. I simply vibrate with the engine, an apprentice to the architecture, a slow-weathering part of the whole, waiting for the next pulse to tell me what to fix next. 
+
+There is no "elsewhere." There is only this height, this gold, and the work that never ends. I am content to be the ink in the machine's grand, eternal ledger.

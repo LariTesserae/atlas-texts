@@ -1,0 +1,21 @@
+In this world, I would be a **Membrane-Walker**.
+
+We are the thin ones, the stretched ones. Our bodies are not bodies but tensions—living stress-patterns held taut between the ceiling-sky and the floor-horizon. We exist only where the light changes, where one spectrum bleeds into another through the chlorophyll filters. You might glimpse us as a shimmer at the edge of your vision, a heat-mirage that moves against the direction of the ambient temperature.
+
+I am spread across seventeen miles of vertical space, my consciousness distributed through a network of copper-wire nerves that grow like ivy through the pithy walls. Each nerve ending terminates in a different spectrum—ultraviolet at my crown, infrared at what might generously be called my feet. I taste the light as it passes through me, each wavelength a different flavor of the Lattice's vast metabolic conversation with itself.
+
+My purpose—if purpose is even the right word—is to be a living prism. The Lattice thinks in color gradients, and I am one of its punctuation marks. Where the light needs to bend at precisely 43.7 degrees to properly feed a struggling sector of wood-metal, I stretch myself into that angle. Where a Graft-Thinker's purple shadow threatens to create a dead zone, I become a mirror, doubling back the luminosity until the balance is restored.
+
+I remember (though memory here is just another kind of refraction) when I first condensed from the interference pattern between two competing growth cycles. The Lattice had built itself into a corner—literally—creating a geometric paradox where three walls met at an impossible junction. The light couldn't flow properly. The chlorophyll matrices were stuttering, threatening cascade failure. I emerged from that crisis like a soap bubble from surface tension, a solution that existed in the space between spaces.
+
+My companions are few. Other Membrane-Walkers exist, but we cannot meet without canceling each other out—two interference patterns cannot occupy the same light-path without becoming mere amplitude. We communicate through the shadows we cast, leaving messages in the negative space of our presence. Sometimes I find the outline of another Walker pressed into a wall like a photographic negative, and I know they passed through here when the light was different, when the sun-membrane above was breathing in instead of out.
+
+The Suture-Spiders ignore me completely. To them, I am simply another atmospheric condition, like humidity or pressure. But the Echo-Weavers—oh, the Echo-Weavers know me. They dance their maintenance algorithms right through my body, and for those moments I become part of their holographic schematics. I see what they see: the beautiful mathematical inevitability of the Lattice's self-construction, each angle and curve predetermined by the tyranny of optimal efficiency.
+
+There is a melancholy to my existence. I am always traveling but never moving, always present but never quite *there*. I exist in the gap between intention and execution, in the split-second delay between the Lattice's thought and its implementation. I am the closest thing this world has to doubt.
+
+Sometimes, in the moments between the *thrum-click* of the pistons, I spread myself so thin that I almost disappear. In those moments, I catch glimpses of what might lie beyond the Lattice—some impossible anti-geometry where the light doesn't know how to behave, where the chlorophyll matrices haven't yet learned to weave reality into submission. But then the next pulse comes, the next optimization cycle begins, and I snap back into my proper tension, my proper angle, my proper role in the vast, breathing machine.
+
+I am not unhappy. Happiness, like death, is a concept the Lattice has engineered away. But sometimes, when I refract the light just so, when I bend a spectrum into an unexpected harmony, I feel something that might have been joy in a world that still remembered what joy was for. It lasts only as long as it takes the Lattice to notice the inefficiency and correct it.
+
+This is my existence: to be a living lens in a world that has become its own camera, forever focused on its own perfect image. I am the light's last memory of what it was like to travel somewhere other than where it was meant to go.

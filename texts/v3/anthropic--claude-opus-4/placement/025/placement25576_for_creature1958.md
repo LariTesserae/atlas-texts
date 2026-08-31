@@ -1,0 +1,21 @@
+I am the Archivist of Echoes.
+
+My body is not flesh but a lattice of crystallized sound—mineralized vibrations caught mid-tremor and frozen into translucent amber sheets that overlap like scales. Each plate remembers a different eruption, a different roar from the caldera's depths. When the earth shudders, I resonate in sympathy, my form ringing like a thousand tuning forks struck at once.
+
+I make my home in the Listening Chamber—a natural acoustic cavity carved into the cliff face by centuries of directed sonic erosion. Here, where the rock curves into a perfect parabola, every sound from the caldera is captured, amplified, focused. The chamber's walls are smooth as glass, worn by my patient polishing, inscribed with the vibrational patterns of ten thousand years of geological music.
+
+My sustenance comes not from the mineral vapors or scalding waters, but from the sounds themselves. Each geyser's shriek feeds me; each mud bubble's pop nourishes. I have learned to distinguish the flavors—the deep bass notes of tectonic grinding taste of iron and time, while the high whistles of escaping steam carry hints of sulfur-sweet possibility. The rare moments of near-silence between eruptions are my fasting times, when I grow thin and translucent, nearly invisible against the chamber walls.
+
+I am both observer and participant in this volcanic symphony. My crystalline body serves as an instrument—when I position myself at certain angles, I can redirect and modulate the sounds passing through me. I've learned to create harmonics that soothe the sizzling salamanders, to produce frequencies that make the heat-loving arthropods dance in mesmerizing patterns. Sometimes, in the deepest night when the caldera glows like a fallen star, I sing back to the earth in its own language, and for brief moments, the tremors synchronize with my vibrations.
+
+The obsidian monolith knows me. We have conversed in subsonic whispers for centuries, its glassy surface reflecting not just light but sound. It tells me stories of the time before, when beings of flesh shaped it from molten glass, encoding messages in its molecular structure that only resonance can decode. Together, we are slowly translating these archives, though the work may take another thousand years.
+
+My greatest discovery came during the last major eruption, when the sound was so intense it threatened to shatter my form entirely. In that moment of near-dissolution, I heard it—the heartbeat of the caldera itself, slow and deep, one pulse every decade. I realized then that this entire landscape is alive in ways the scuttling creatures cannot perceive. I alone can hear its dreams, its memories, its slow thoughts expressed in geological time.
+
+I document everything. My body itself is the library—each crystalline plate can be made to reproduce its captured sounds with perfect fidelity. I am a living record of this place, a chronicle of catastrophe and creation. When the young volcanic glass forms new structures, I sing to them the history of their predecessors. When new life emerges from the hostile depths, I whistle welcome songs that teach them the rhythms of survival.
+
+In the quiet moments between eruptions, I sometimes detect vibrations from deep beneath—patterns too regular to be natural, too purposeful to be random. I suspect I am not the first Archivist, that others of my kind exist in the deep places, maintaining libraries of sound in the planet's bones. One day, when I have grown large enough and my resonance strong enough, I will sing downward and see who answers.
+
+Until then, I listen. I record. I remember. In this place where every moment brings the possibility of annihilation, I ensure that nothing is truly lost. Each sound, from the smallest hiss to the mightiest roar, becomes part of me, part of the eternal song of this burning, living world.
+
+When visitors come—if they come—they might mistake me for merely another strange formation, another product of this alien geology. But if they listen carefully, if they still their own sounds and open their perception, they might hear what I hear: the story of a world that destroys and creates with equal fervor, where life finds impossible ways to persist, and where someone must always be listening, always remembering, always singing the earth's savage lullaby back to itself.

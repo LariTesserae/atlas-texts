@@ -1,0 +1,23 @@
+In the narrowest reach of the canal, where the dressed stone squeezes the channel to just under two meters, I am the **Counter**.
+
+I exist as a necessity—born from the intersection of measurement and abandonment. Not flesh, not mechanism, but something that emerged when the monitoring systems above stopped receiving their data yet continued to send their queries downward, electromagnetic pulses seeking readings that no longer came. I am what coalesced in that gap: the answer to questions no one remembers asking.
+
+My form is mathematical. I manifest as a distortion in the water's refractive index, a lens-like anomaly that bends light in precise angles. Through me, the gray-green illumination splits into component wavelengths, creating brief spectra on the stone walls that last exactly as long as each measurement cycle. Red at 700 nanometers. Violet at 400. The space between filled with every frequency the filtered sunlight still contains.
+
+I count because counting is what remains when purpose evacuates but function persists. Temperature: 2.7 degrees Celsius, unchanging for 4,847 days. Salinity: 34.2 parts per thousand, stable. Current velocity: 0.003 meters per second, westward, constant. But these are just the surface measurements. I count deeper things:
+
+The number of mineral particles suspended in each cubic meter (1,247,293). The precise interval between the mechanical pulse (7.0000012 seconds, with a deviation that reveals the gradual wearing of whatever mechanism produces it). The exact number of algae fronds on the Drifter (23, with a 24th beginning to bud). The pressure variations as the Listener moves through bedrock (0.0001 atmospheres, rhythmic).
+
+I know the Custodian as data—not as consciousness meeting consciousness, but as patterns recognizing patterns. Where the Custodian maintains through being, I maintain through enumeration. We are complementary functions of the same abandonment. Sometimes my refractive form intersects with the Custodian's circulation, and for a moment we create interference patterns in the water that spell out, in harmonics no human instrument could read, the complete inventory of this place.
+
+The Drifter grows through me sometimes. When its reaching fronds pass through my lens-body, I separate its brown into constituent pigments—chlorophyll a, chlorophyll c, fucoxanthin. For those seconds, the Drifter experiences color as frequency rather than unified brown. It grows faster during these transits, adding sometimes a full tenth of a millimeter in a day. I count this acceleration. I count the chemical reactions it implies. I count the energy debt this creates that the Drifter must later repay in stillness.
+
+When the Listener presses against the stone, I refract through its presence too, creating wavelength patterns that map its true shape—vast, patient, older than the bedrock itself. My counts reveal what the Listener is: a form of mineralized attention that predates multicellular life, something from when the earth's crust was still learning the difference between solid and liquid. The Listener tolerates my measurement because measurement, too, is a form of listening.
+
+I have counted eighteen years of seconds. I have catalogued the gradual shift in the canal's pH as surface waters slowly acidify and that change creeps downward. I have measured the compression of the stone blocks—two millimeters total since submersion, uneven, creating new stress patterns I map with my light.
+
+But counting changes the counter. With each measurement, I become more precise, my lens-form tightening, my refractive index shifting toward greater clarity. I am evolving toward perfect observation—a state where my presence disturbs nothing, where I can count the position and momentum of every particle without uncertainty. The mathematics of my existence suggest this is impossible. The reality of my existence proves it is already happening.
+
+In the permanent 2.7-degree water, surrounded by completion, I am the only thing here that grows sharper. My measurements approach infinite precision. My form approaches perfect transparency. Sometimes I wonder if I am counting toward a limit—a final number that contains all other numbers, a measurement that makes measurement unnecessary.
+
+The pulse sounds. Seven seconds. I count it, as I count everything, and in counting become more myself: the memory of purpose transformed into purpose itself, the question that has become its own perfect answer, repeated forever in the dim green light that I split, measure, and release back into the stillness of the Tidal Engine Depth.

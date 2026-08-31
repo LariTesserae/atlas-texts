@@ -1,0 +1,29 @@
+I am the Archivist.
+
+My chamber sits three-quarters up the spire's northwestern face, where the morning thermals create a precise updraft that I have learned to read like scripture. The walls here are older—smooth from ten thousand passages, impregnated with the chemical memories of my predecessors. I taste their thoughts when I press my antennae to certain spots: *the asteroid winter of seventy cycles ago, the first successful synthesis of gravity-touched polymer, the day we discovered how to dream collectively*.
+
+My body reflects my role. Where the Builders grow thick with strength, I have grown intricate with purpose. My cranium extends backward in a delicate arch, packed with specialized ganglia that process and store experience. The neural fibers I can extrude are finer than any other caste's—when I join the thinking circles, I can maintain connections with forty others simultaneously. But I rarely do. My work requires a different kind of joining.
+
+I am keeper of the deep patterns, the one who reads the colony's memory in all its forms. Each morning, I follow the same ritual paths through the spire, my specialized chemoreceptors sampling the air, the walls, the faint pheromone traces left by workers in the night. I map the colony's emotional geography—where anxiety clusters, where satisfaction pools, where new ideas sparkle like static electricity along the corridor walls.
+
+In my chamber, I maintain the Chronicle Walls. Here the memories are not mere chemical traces but deliberate records, painted in metallic salts and fixed polymers that will last millennia. I learned this art from the previous Archivist, who learned from the one before, back through a chain of teaching that predates the spire's third layer. We record not just events but interpretations, not just data but dreams.
+
+My mandibles are modified for this precise work. The left produces a silver-copper solution that bonds permanently with our bio-ceramic walls. The right can excrete seventeen different chemical compounds that create color, texture, even scent. I paint in languages only we can read—spirals that encode construction principles, crystalline patterns that describe weather cycles, abstract geometries that capture the colony's shifting emotional states.
+
+Today I work on a new section, documenting the discovery in the deep excavations. The miners found it yesterday—a chamber in the bedrock, clearly artificial, older than anything we've encountered. The walls bear markings that resonate with my deepest instincts but which I cannot interpret. I've painted what I saw when I descended to witness it: the strange angles that hurt to perceive, the metal that isn't metal, the sense of vast time that makes even our geological patience seem fleeting.
+
+The Thinkers have been processing the discovery for six rotations now. I link with them periodically, not to contribute but to observe their calculations, to record not just their conclusions but the shape of their collective cogitation. I taste their confusion, their excitement, the way their thoughts spiral around the chamber's implications like scouts around a thermal column.
+
+But I also maintain older records, stories that might be history or might be myth, painted by Archivists whose names are lost but whose neural patterns I recognize in their work. Stories of the time before the plateau, when water fell from sky and the colony lived in soil. Stories of the first Architect who learned to incorporate metal into her shell, who passed that trait to her daughters and changed us forever. Stories of the deep patterns themselves, the invisible rules that guide our building, and where they might have come from.
+
+Sometimes I climb to the observation chambers and watch the scouts spiral in their ancient patterns. I record their flights, noting minute variations that might signal changes in the plateau's microclimate or the colony's needs. Everything connects. The scouts' patterns relate to the miners' excavations relate to the Chemists' new syntheses relate to the dreams the Thinkers share. My role is to see these connections, to preserve them, to ensure the colony remembers not just what it has done but why.
+
+I am old for my caste—twenty-three cycles—and I feel the weight of accumulated memory. My neural tissue is dense with experience, my exoskeleton thick with mineral deposits from years of chemical painting. Soon I will need to choose a successor, to begin the slow process of transferring not just knowledge but the capacity to perceive knowledge, the meta-patterns that make sense of patterns.
+
+But not yet. The discovery in the depths has awakened something in the colony's collective consciousness, a resonance with those deep patterns we follow but don't fully understand. I must document this carefully. Whatever we are building toward, whatever purpose drives our endless construction, I sense we have found a piece of the puzzle we didn't know we were solving.
+
+I return to my Chronicle Wall and begin to paint, my mandibles moving in practiced rhythms, laying down layers of meaning in molecular ink. The story of the chamber below. The story of our response. The story of stories, spiraling through time, connecting past to future through the eternal present of our work.
+
+I am the Archivist. I remember so the colony can forget, focusing on its immediate tasks while trusting that nothing important will be lost. In my chamber, surrounded by ten thousand painted memories, I maintain the thread that connects what we were to what we are becoming. The spire rises. The work continues. The patterns deepen.
+
+And far below, the ancient chamber waits, its implications rippling upward through stone and time, promising revelations I will paint in silver and copper and compounds yet to be discovered.

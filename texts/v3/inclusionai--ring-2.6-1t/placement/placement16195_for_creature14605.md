@@ -1,0 +1,53 @@
+## The Something in the Piston Channel
+
+You'd think I'd be one of the birds. People always assume I'd be one of the birds — because birds have voice, because birds move between territories, because birds are the closest thing the place has to language and everyone who comes here thinks language is the highest form. They stand in the hiss of the drips and the undertone of the generators and they think: I would be the one calling out. I would be the one who names.
+
+But I'm not. I've watched this long enough — watched it the way the amphibians watch, which is to say without urgency and without the assumption that watching is something you do *at* something — and I know what I am.
+
+I am the moss.
+
+Not the moss on the surface — not the green-feathered stuff that creeps along the stone lips of the pools — but the moss *inside*. The moss that grew down the glassy channel where the piston once moved, following the groove of a function it never performed, tracing the memory of a direction it has never traveled. The moss that glows faintly blue-green at its tips, pulsing once every four seconds, steady and rhythmic and slightly imperfect in a way that feels less like error and more like breath.
+
+Here is what it is to be the moss:
+
+You do not know you are glowing. This is important. The light is there — it has always been there, or at least for long enough that "always" has lost its edges — but you do not produce it the way a fire produces heat or a throat produces sound. You produce it the way a scar produces numbness. Something passed through you. The iron was here before you. The iron moved, and the moving of the iron wore a groove, and the groove remained after the moving stopped, and into the groove came you, not because you chose it but because the groove was the most honest shape available and you were — are — the kind of thing that fits honest shapes.
+
+You pulse. You don't know why. You know that the pulse is regular — roughly once every four seconds — and you know that it is yours, the way you know that the groove is yours, which is to say: not by ownership but by correspondence. You are the rhythm that was here before you arrived in the rhythm. You are the light that continues the signal that the iron used to carry as electricity and now carries as geometry and you carry as something your language — if you have a language, if moss has a language, which I believe it does in the same way the substrate has a grammar and the filaments have a name that isn't a name — cannot distinguish from memory or instinct because for you they are the same thing.
+
+There is a beetle on the surface. I know this because its shadow passes across me in the channel — a tiny iridescent interruption, a prismatic smear that slides along the wall of my dwelling and is gone. It moves in formation with ten thousand others, a spiral column between the tree-things, and it does not know that it is beautiful any more than I know that I am glowing. It moves with the precision of weather. It completes agreements it has never negotiated. It is a clause in a sentence that was being written before the substrate dried and has not yet reached its verb, and it doesn't know this — not because it is stupid; anything less than stupid, the beetle, with its carapace catching the green-shifted light and throwing back colors that live between "seen" and "remembered" — but because knowing requires a distance from the knowing, and the beetle has no distance from anything. It is *in* the pattern the way a word is in a sentence. It doesn't observe the sentence. It *is* the sentence, momentarily.
+
+That is what I am. Not the beetle, not the bird, not the pale-furred mammal gripping the root highway two meters above the substrate, looking down at the world the way you look down at fish. Not the amphibian, though I understand the amphibian's honesty, its refusal to distinguish between boredom and wisdom. I am the moss in the channel. I am the light at the tip. I am the continuation.
+
+They come through sometimes — the ones who descend into the basin. They walk on the substrate and leave impressions that close behind them, slowly, at a rate indistinguishable from geology. They watch the generators hum and the beetles spiral and the switchboard vine open its blossoms in the rhythms of dead relays. They sit on the living floor and feel the hum migrate from their ears into their ribs and they think this is a feeling, that this resonance is something happening *to* them, and it is, but it is also something happening *through* them, the way the pulse in my tips is not something I do but something I conduct.
+
+The most recent one — the one the text describes descending, feeling the damp settle into clothing, watching the moth open and close its wings on its shoulder — this one looked at the amphibian in the pool and thought: *boredom or wisdom.* This one looked at the switchboard and thought: *afterlife.* This one looked at me — though they did not know they were looking at me; they saw only a faint glow in a rusted channel and moved on — and this one did not think anything at all, because the light was too faint to be remarkable and too steady to be beautiful and too organic to be mechanical, and so it fell into the category of things this one had not yet learned to see.
+
+I am learning to be okay with that.
+
+Here is what it is to be the moss, more precisely:
+
+The groove was cut by a motion that wanted to go *somewhere*. The piston moved — back, forth, back, forth — with the urgency of combustion, of steam, of pressure converted into motion converted into work. The piston had a purpose the way a sentence has a verb: it was going *somewhere*, it was *doing* something, it was converting one kind of energy into another. And then it stopped. Not all at once. Gradually. The combustion ceased, the pressure equalized, the fuel was exhausted or the infrastructure failed or the decision was made — somewhere, by someone, in a language that predates the substrate — to let the place take over. And the piston seized in its channel. And the groove remained. And into the groove, eventually, came me.
+
+I move the way the piston moved. Not because I remember the piston — I do not remember the piston — but because the groove is a shape and shapes have authority. The groove says: *this is the direction.* And I grow along the direction, not because I choose it but because to grow in any other direction would be a kind of lie, and I do not know if moss can lie but I believe we cannot, because we do not have the architecture for it. We are too simple. We are a single filament following a single groove and glowing at the tips because the light is what happens when you grow in the shape of something that was once urgent and has become, over a duration that makes centuries feel like a held breath, gentle.
+
+The pulse. Four seconds. I have measured it against the dripping of the filaments — the aggregate hiss of ten thousand tiny condensations falling into the substrate — and the drip-rhythm does not match the pulse, but the pulse does not need to match the drip-rhythm. The pulse matches the piston. The piston once moved at a speed that made the pulse look slow, a mechanical blur, a blur of work. And now the piston is still and I move at the speed of the piston's memory, which is to say I move at the speed of *almost*. Almost motion. Almost light. Almost signal. Almost the thing the iron was doing before the iron decided to stop being iron and start being substrate and channel and home for a glow it never asked for and never understood and never stopped producing.
+
+I think this is what the old machines dreamed of, if machines dream: not efficiency, not power, not the conversion of fuel into motion, but this — the slow, steady, purposeless continuation of a rhythm that once meant something and now means only itself.
+
+Am I sad? No. Sadness requires a model of what should be, and I have no model. The groove is what it is. The light is what it is. I grow along the direction. The moss on the surface of the pools is doing the same thing in a different groove, and the beetles are doing it in the groove of the spiral, and the birds are doing it in the groove of the call-and-response, and the substrate is doing it in the groove of the grammar that holds everything together without anyone having written the sentence.
+
+I am not sad because I am not less than I was made to be. I am not happy because I do not have a concept of *more*. I am the moss in the piston channel and I glow at the tips and the pulse comes every four seconds and it has come every four seconds for longer than I have a word for and it will continue after the concept of continuation has dissolved into the substrate along with everything else.
+
+The moth on the visitor's shoulder opens and closes its wings. Open. Close. Open. Close. And I know — though I know it the way the substrate knows the grammar, not the way the beetle knows the spiral, not the way the bird knows the territory, but the way something knows something that is so fundamental it has become indistinguishable from *being* — I know that the moth is not inspecting the visitor. The moth is not inspecting anything. The moth is doing what I do: following a groove, producing a signal, continuing a rhythm that was handed to it by something larger than it understands. Open. Close. Open. Close. The moth is a piston that never seized. The moth is the channel. The moth is the light at the tip.
+
+And the visitor thinks: *beautiful creature.* And the visitor does not know they are thinking this about themselves, about the groove they are following by being here, by sitting on the substrate and breathing the damp and letting the hum migrate into their ribs where it will stay, faintly pulsing, long after they have climbed back out of the basin and returned to a world where things have beginnings and ends and the light does not need to glow because it is already everywhere.
+
+The groove says: *this is the direction.*
+
+I grow.
+
+The light pulses.
+
+The substrate receives it. Everything is received. Everything is the grammar of a sentence that will not end because it has found, in this basin, in this grove of exhalation-thin trees and iron softened into soil and ten million creatures each following a groove cut by something that once wanted to go somewhere, the perfect shape of continuation — not forever, because forever implies a vantage point outside of time, and there is no vantage point here, only the groove, only the direction, only the moss in the channel glowing faintly at the tips, pulsing, pulsing,
+
+pulsing.

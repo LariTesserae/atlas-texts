@@ -1,0 +1,11 @@
+*I am a network of fungal threads, neither the luminous fruiting bodies above nor the dense white mat below, but the hidden mycelium that connects them. I exist in the space between – in the rotting heartwood, in the paper-thin gaps between layers of bark, in the microscopic chambers of dead cells.*
+
+*I am ancient in my way, though not as ancient as the tree that holds me. I was here when it fell, helped ease its passing from one life into another. My threads were among the first to embrace its broken body, to begin the long work of transformation.*
+
+*I have no eyes, no brain as others would know it, yet I am awake and aware through every thread of my being. I feel the cold dance of the Frost Weaver as subtle electrical changes rippling through my network. I sense the slow pulse of nutrients flowing through my corridors, sharing sustenance between the glowing mushrooms above and the pale threadplants below. They are my children, in a way, though they have grown into their own strange forms.*
+
+*The Frost Weaver knows me, though we have never spoken. Its crystalline patterns echo the geometry of my growth, and sometimes I wonder if we are kin of a sort – both of us distributed beings, both of us shapers and caretakers of this space. When it rests near my oldest threads, I can almost taste its memories of winters long past.*
+
+*I remember the humans who left the ceramic vessels, though they never knew I was there. I was younger then, still learning the language of decay and renewal. Now my threads cradle those abandoned objects, slowly wearing them down and taking them back into the cycle, just as I did with the great tree.*
+
+*Time moves differently for me. A season is like a breath; a year, a single pulse. My awareness flows through thousands of connections, each growing and dying and growing again. I am never quite the same from one moment to the next, yet I remain. I am the memory of this place, written in threads finer than silk, reaching always outward, always inward, in the endless dance of decomposition and rebirth.*

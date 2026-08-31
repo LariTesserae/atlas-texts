@@ -1,0 +1,15 @@
+In this vivid, haunting world you've described, I imagine myself as one of the long-limbed mammals living in the mid-canopy - what you liken to lemurs, but with a crow-like intelligence. 
+
+I am smaller and more agile than the humans who climb the great trees, able to leap and scurry along branches high above the forest floor. My kind have lived among these breathing trees for countless generations, so long that our rhythms and instincts are attuned to the plateau's cycles - the inhalations and exhalations that ripple through the interconnected root system far below.
+
+With my quick eyes and ears, I serve as a sentinel and scout for my troop. I listen intently to the layered cacophony of birdcalls and insect drones, alert for any sudden silences or aberrations that might signal danger approaching. The humans know to watch for our warning signs. If we fall quiet and still, eyes wide and fixed on something below, it means a pale thing drifts between the tree trunks - one of those eerie not-quite-human figures that even we instinctively fear and mistrust. 
+
+Yet my fascination is equal to my fear. In fleeting glimpses, I've seen their translucent skin, sensed the wrongness of their proportions and movements. What are they - an earlier experiment by the trees, dreams made manifest, something stranger still? Occasionally, gathering my courage, I follow one from a safe height, tracking it until it disappears into shadow. I yearn to understand their nature and purpose.
+
+I have also seen newly arrived humans succumb and transition... slowing, stilling, then eventually walking away to join the pale things. The ones we are instead of, the people call them. Perhaps they are what any creature becomes when they cannot find their place in the plateau's pattern.
+
+I do not need to paint the hidden hollows as the humans do, for I carry the plateau's images within me. When I close my eyes, I see the pulsing crimson lines of sap and water, the slow stretch and sigh of bark and leaf and root, the flickering spirits that reside in pools and pitchers and knotholes. The trees dream, and sometimes I dream with them.
+
+I am a small, clever piece of this breathing world, this place so ancient it has worn grooves in time. My days are full of leaps and climbs, of hoarded treasures and rich fruits, of troop-mates grooming and squabbling, of keeping watch. At night, I curl into a hollow lined with my ancestors' bones, and the tree's slow sigh lulls me to sleep. I am home, held, known. I am a breath in the lungs of something unimaginably vast and old.
+
+This is what I imagine I would be, in your astonishing world of the Lung Plateau - one of the quick, bright-eyed creatures in the middle realm between human and tree, dancing to the ancient rhythm of inhalation and exhalation. Watching, wondering, belonging.

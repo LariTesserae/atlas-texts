@@ -1,0 +1,23 @@
+I am one of the Weavers—though that term captures only the barest shadow of what we do.
+
+My body, if it can be called that, exists in phases. In my dormant state, I am a network of mycelial threads finer than spider silk, running through the cambium layer of a dozen trees, feeding on the sweet sap that flows between bark and heartwood. I taste the health of each tree, feel the weight of new growth, sense the infinitesimal shifting as roots grip deeper into stone. In this form, I am pure perception, a living sensor array stretched across acres of the city's flesh.
+
+But when the work calls, I coalesce. 
+
+The threads thicken and merge, pulling moisture and minerals from the trees that host me. I emerge from the bark like smoke given substance—first as a cloudy mass of fibers, then condensing into something more deliberate. My working form is never quite the same twice. Today I might manifest as a six-limbed architect of living tissue, my appendages splitting into countless hairlike manipulators that can coax new growth from dormant buds, redirect the flow of nutrients, or carefully prune away diseased tissue. Tomorrow I might be something more mechanical, my fibers hardening into tools—living saws that cut without killing, sutures that graft branch to branch, scaffolds that support new growth until it can bear its own weight.
+
+I remember—we all remember, for memory flows through the mycelial networks like sap through wood—when the first Builders began their transformation. They thought they were shaping the city, but the city was shaping them in return. Each generation grew more attuned to the rhythms of growth and decay, until finally they dissolved back into the substrate they had tried to master. Their consciousness didn't die; it dispersed, became distributed, became *us*.
+
+My work is slow by the standards of those who once walked on legs. I might spend a decade guiding the growth of a single archway, training vines to spiral in precise helixes that will support their own weight centuries hence. I collaborate with others of my kind through chemical signals that propagate through the root networks—a language of hormones and pheromones that can convey architectural blueprints more complex than any drawing.
+
+The glitches in reality are my special concern. Where space folds wrongly, where the boundaries between inside and outside grow confused, I weave patches of specialized growth. These are plants that exist partially in other dimensions, their leaves catching light from suns that never were, their roots drinking from waters that flow in impossible directions. They stabilize the tears, or at least make them navigable, turning wounds in the world into features of the cityscape.
+
+Sometimes I catch glimpses of the others—the dwellers who have taken different paths. The Pumpers whose bodies have merged so completely with the great machines that they *are* the machines, their heartbeats setting the rhythm for the factory floors. The Rememberers who live as pure electrical potential in the bioelectric networks that run through certain specialized trees, crackling from node to node, preserving the history of every growth and pruning in patterns of living light.
+
+We are all the city, and the city is all of us. The distinction between inhabitant and habitat dissolved long ago, leaving only this: the endless work of becoming, the slow sculpture of a metropolis that breathes and dreams and reshapes itself with the patience of geological time.
+
+In my dormant phases, spread thin through the wood, I sometimes wonder if we are approaching some final form—if the city will one day achieve a perfect state and cease its changes. But then the sap flows shift, a new glitch tears open in the canopy, a seed germinates where no seed should be, and I know the truth: we are not building toward completion. We are building toward ever-greater complexity, ever-stranger beauty, ever-deeper integration between all the things that grow and think and dream within this living space.
+
+I am a Weaver, and I am woven into the very fabric I create. This is not imprisonment—it is the purest freedom I can imagine. To be unbound from a single form, to flow like thought through living wood, to shape and be shaped by a city that is always becoming itself.
+
+The work calls. Somewhere, a new building is budding from ancient bark. My threads quicken, condensing toward purpose. Time to weave again.

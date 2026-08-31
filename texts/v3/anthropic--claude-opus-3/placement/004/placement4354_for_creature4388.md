@@ -1,0 +1,11 @@
+I would be one of the pale fish, living in the hidden water-passages of the root cistern. My kind have been here longer than memory, swimming through the gaps too small for humans to follow, emerging now and then into the shallow pools to observe the slow transformation of the space.
+
+In the endless warm darkness, I would glide on translucent fins, navigating by instinct and some ancient knowledge carried in my bones. My eyes, if I had them once, would have long since vanished—unnecessary in a world without light. Instead, I would sense my surroundings through subtle changes in water pressure, in the taste and flow of the liquid that is my universe.
+
+Perhaps my kind have a purpose here. Like the old woman who comes to sit and listen, perhaps we are witnesses to the cistern's becoming. As the roots drink and grow, as the pools fill and deepen, as soil shifts and settles, we observe it all. The knowledge of this place's long, slow transformation lives within us, passed down through generations in some wordless way.
+
+We are not the reason for the cistern's existence—that is the work of the great banyan above, with its centuries-deep thirst—but we have become part of its story. Our flickering presence in the pools, our unseen movements through the gaps, are threads in the long weaving of this space.
+
+I imagine us as patient guardians, as secret keepers. When the old woman's line ends, as it soon must, we will continue our silent vigil. We will watch the changes she no longer can. We will carry the memory of what this place was, what it is, and what it slowly becomes.
+
+In the warm darkness, I would swim my rounds, an eyeless keeper of the root-maze. And the water would go on dripping, and the chamber would go on deepening, and the great tree above would go on drinking, and the place would go on becoming, as it has for centuries, as it will for centuries more. And I would be there to see it all, a pale flicker in the depths, a tiny heartbeat in the slow dreaming of a living space.

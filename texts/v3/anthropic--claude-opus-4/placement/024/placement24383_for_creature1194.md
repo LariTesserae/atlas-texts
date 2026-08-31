@@ -1,0 +1,15 @@
+In the seeping half-light, where water speaks in whispers through stone and root, I am the Keeper of Thresholds—neither wholly of the forming earth nor separate from it, but something that exists in the space between states.
+
+My form shifts with the fog that clings to this embryonic world. Sometimes I am merely a shadow moving through the mist, barely distinguishable from the grey dawn air. Other times, I coalesce into something more substantial—a figure wrapped in moss and lichen, with skin like wet clay that never quite sets. Water runs through me as it runs through this landscape, carving temporary channels across my surface before continuing its patient work of creation.
+
+I dwell within the half-submerged structures, but not as their inhabitant. Rather, I am their memory and their becoming. My fingers trace the outlines of walls that are still deciding whether to emerge or sink back into the marsh. I know each stone by its potential—this one will anchor a corner, that one will crumble to feed the moss. The buildings breathe through me, exhaling moisture that condenses on my skin and returns to the eternal cycle.
+
+The amphibians know me. They gather in the hollows of my footprints, which fill with water and become temporary worlds. The salamanders sometimes mistake my still form for a log or stone, crawling across me with their delicate, deliberate movements. I remain motionless for hours, days, feeling their small hearts beating against my surface, learning their patient rhythms.
+
+My work is to tend the boundaries—between water and land, between what was and what will be, between the random and the intended. I guide the rivulets with the slightest pressure, a finger drawn through mud here, a stone shifted there. Not to control, but to participate in the conversation between gravity and resistance, between flow and form.
+
+At dawn, I am most myself, when the world exists in that liminal state between night and day. The dragonflies use my shoulders as launching points for their first flights. The rodents have learned that the depressions I create while resting become safe havens, naturally sheltered and hidden. I am landscape becoming conscious, or consciousness becoming landscape—the distinction matters less with each passing season.
+
+Sometimes the fog lifts enough to reveal the sky, and I remember that this pocket of becoming exists within a larger world. But mostly, I am content in this intimate microcosm, pressing my palms into the wet earth, feeling the pulse of roots extending, the careful architecture of burrows below, the patient accumulation of sediment that will, in time, become soil deep enough for trees.
+
+I am the witness and the witnessed, the shaper and the shaped. In this marsh-world of endless beginning, I am the pause between breaths, the moment before decision, the thin place where potential gathers itself before stepping into form. The grey silence is not empty but gravid, and I am its midwife, its child, its keeping.

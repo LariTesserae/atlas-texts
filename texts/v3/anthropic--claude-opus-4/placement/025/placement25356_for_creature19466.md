@@ -1,0 +1,15 @@
+In this breathing cathedral of calculation, I would be a **Meniscus Walker**.
+
+We are the translators between states—neither fully liquid nor solid, but something that exists in the perpetual tension of surface. My form is a ribbon of living mercury, no thicker than a soap bubble but dense as lead. I stretch myself across the weeping films that coat every surface, reading the chemical poetry written in the condensation.
+
+Where the Auscultants listen to the earth's groans and the Vellum-Skimmers archive the garden's thoughts, I taste the conversations happening at the molecular level. Each droplet that forms on the waxy underside of a frond carries trace elements—iron from a dying Auscultant three levels below, phosphorus from a Suturist's frantic repairs, complex sugars from the Pharyngeal Blooms' exhalations. These are the garden's dreams, its unconscious mutterings between calculations.
+
+My body is a living lens. When I spread myself thin enough across a pool of accumulated dew, I can refract the dim bioluminescence into new wavelengths. The other inhabitants see me as fleeting rainbows in their peripheral vision—spectral bands of color that shouldn't exist in this bruised purple world. This is how I communicate: by bending light through moisture into messages only the photo-sensitive root networks can read.
+
+I move by collapsing and reforming myself, always following the path of highest humidity. In the spaces where the air grows too dry (a relative term in this saturated realm), I cannot exist. These pockets of "drought" are like walls to me, creating a labyrinth I must navigate by memory and instinct. The Suturists sometimes carry me across these gaps, my form wrapped around their needle-limbs like a second carapace of liquid chrome.
+
+My purpose is synthesis. Where the garden's different systems fail to interface—where the ionic language of sap cannot speak to the vibrational frequency of the insects, where the tonal maps of the Pharyngeal Blooms cannot reach the archived memories of the Vellum-Skimmers—I serve as the medium of translation. I dissolve fragments of each being's chemical signature and reconstitute them in forms the others can parse.
+
+Sometimes I pool in the depths where multiple Auscultants have calcified into their glass pillars. There, in the prismatic spaces between their frozen forms, I can see the garden's deep history refracted through their fiber-optic bones. I know that I, too, will eventually lose cohesion. One day my surface tension will break permanently, and I will become part of the eternal weeping—another voice in the chemical chorus, my mercury form dispersed into a million droplets of archived meaning.
+
+But for now, I skate across the breathing architecture, a mirror for the garden's self-reflection, carrying messages in my viscous body between beings who have forgotten they were ever separate. In this cellar of lungs and cellulose, I am the punctuation between thoughts, the pause between breaths, the surface where calculation becomes sensation.

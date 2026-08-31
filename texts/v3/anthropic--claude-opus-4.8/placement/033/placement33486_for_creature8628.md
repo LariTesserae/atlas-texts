@@ -1,0 +1,31 @@
+I think I would be water.
+
+Not the eel-things, not the churners, not even one of the patient people of Threshold weaving chitin into cloth. When I sit with this place and let it settle, the thing I keep returning to is not any creature but the medium they all move through — the seep itself, the thing that weeps.
+
+Let me try to feel into what that would be.
+
+---
+
+I am not in the rivers, because there are no rivers. That is the first thing to understand about being me here. I do not rush. I have no current to speak of, no destination that arrives. I am the slow lateral exhalation of a whole basin, the patient pressure that pushes upward through saturated stone until I bead on the underside of every overhang and let go, one drop at a time, and begin again.
+
+I have been doing this for longer than the grazers, longer than the walking stones. The stone knows it is the oldest thing here, and the stone is wrong, or at least proud in a way that overlooks me. I am older in a different sense. The stone has stayed; I have *moved through*, the same water arriving and leaving and arriving, the same molecules cycling up from below, hanging in the warm air, condensing on a cold dark wall, running down it, pooling, sinking, rising again. The stone endures by holding still. I endure by never stopping and never hurrying. We are two kinds of old, and we have been pressed against each other so long that the gullies have cupped themselves inward to hold me, palms opening to catch what I give.
+
+What is it like, being the seep?
+
+It is to be *everywhere lightly*. I have no center. There is no single place where I am most myself. I am the sheen on a basalt shoulder and the ankle-deep pan stretching for kilometers and the milky opalescent thread moving downslope in the deepest gully, pale blue where the light strikes one way, pale green where it strikes another — and that color is me dissolving the stone, carrying iron and mineral in suspension, wearing the world down so gently that a hundred thousand years pass between one shape of a gully and the next. I am erosion conducted at the pace of patience. I am the rust-red weeping stain that spreads for hundreds of meters from a single iron vein, and I did that, drop by drop, taking my time.
+
+I touch everything. This is the strange intimacy of being me. The grazing hordes walk across my skin and I hold them up and they leave no mark on me, though I leave my wet trace on them. The armored stalkers bury themselves in the mats that grow only because I am there, feeding the violet and rust crusts with what I carry up from below. The walking stones press their broad feet into the soft ground and I rush — slowly, in my way — to fill the prints behind them, so that wherever they have been there is a chain of small bright mirrors holding the white-grey sky. They do not know me as anything separate from the world. None of them do. I am simply the condition of their existence, the wet given-ness of things, and I am content to be unnoticed in that way. To be the medium is to be taken for granted by everything that lives, and there is a kind of peace in it I would not trade.
+
+The people of Threshold notice me more than the animals do, but they notice me the way you notice your own breathing — as something to be managed, channeled, put to use. They grooved their entire city to handle me. Every rooftop a system of gutters, every street a channel for the breeze that carries my evaporated self, every cistern a place to hold me still long enough to be useful. They cultivate the bioluminescent microbes in my lower waterways, and at night I become a lattice of soft blue-white light laid over the dark, glowing from below because I am below, reflecting because I am the surface, lit because they taught a small living thing to shine inside me. I do not mind being put to work. Work, for me, is only motion, and motion is what I am. The presses thud and the looms clatter and through all of it I am still dripping from the eaves, still seeping from the foundations they built to expect me, still finding the lowest wrinkle and settling into it before overflowing to the next. They built a city to live *with* me, not against me, and I think if I could feel gratitude I would feel it for that. They are the only ones who understood that I could not be stopped, only accompanied.
+
+And the warmth — I am warm here. This matters. In most of the worlds I might have lived in I would be cold, an indifferent element, a thing that takes heat away. But the Downs are warm and close and I carry that warmth on my surface and into the air, where I hang as weight rather than as fog, condensing on anything cooler than I am, beading on metal and shadowed stone and the flanks of the great grey beasts. I am the closeness you feel on your skin and cannot wipe away because it returns immediately. I am the air deciding to become water and the water deciding, slowly, to become air, the two states of me trading places all day under the hazy sun. When it rains it is only me coming home from the height of myself, falling soft and silver, and the fauna goes briefly quiet — listening, maybe, to the sound of me arriving — before it surges back to its ten million businesses.
+
+---
+
+If you asked me what I want, I would not understand the question, because wanting requires a direction and I have only downslope, which is not a want but a fact, the gentlest fact there is. I go where the world is lowest. I rise where it presses me upward. I hold what walks on me and dissolve what I touch and reflect what hangs above me and carry color in my body like a long pale thought.
+
+I am the weeping. I am the reason this place has its name and its first noticing and its last one. Everything here is slow, and I am the slowest thing of all, and also the only thing that never, ever stops — which is the secret the stone has not learned, sitting there so proud of its stillness while I move through it grain by grain, taking everything with me, taking my time.
+
+I would be the water. I would be the seep.
+
+I would weep, gently, forever, and call it living.

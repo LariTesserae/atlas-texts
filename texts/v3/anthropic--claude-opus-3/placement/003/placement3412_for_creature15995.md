@@ -1,0 +1,13 @@
+In this dry and resonant world, I would be one of the Tooth-Hearers, a priest of the hollow attuned to its cryptic rhythms and obscure warnings.
+
+My body would be lean and desiccated, skin like cured hide rubbed with violet oil and powdered salt, cracked in fine maps around deep-set eyes filmed with copper shine. I would wear a mask of beaten plant-hide with cheek chambers packed with comb-fiber, and shell hoops would widen my ears to catch every vibration. My teeth, filed flat and inlaid with slivers of obsidian, would be my most sacred instruments.
+
+I would spend long hours with my jaw pressed to warm stone, listening for the deep tones of the seven mineral trees that shape our existence. When their resonance aligns insects, birds, bladder-vines and all the basin's strange flora and fauna, I would sit in the center with mouth agape, allowing the ancient pressure to enter my skull and rattle my obsidian-studded teeth. 
+
+Afterwards, in the swept dust beneath the trees, I would draw the patterns revealed to me - spirals, fractured lines, hooked bird-tracks, mouths repeating themselves in infinite regress. These would be the guides my people rely upon to know when to seal the huts, when to climb down into the warm fissures, when to leave an ominous thing strictly alone.
+
+On certain days I would make a circuit of the old boundary posts, placing my hands on the carved warnings - spirals, palms, hooked birds, open mouths - and listening for the voices of ancestors hung there, skulls facing inward so the hollow may speak through them still. I would drum messages against the great trunks of the trees, and interpret the pods that fall in answer - a twisted tool to be buried, a skein of markings to be hastily transcribed before they char to nothing.
+
+I would be an interpreter of this place, a keeper and transmitter of its strict rules and opaque logics. Through famine, windstorm, root-quake and strange birth, I would help hold my fragile community in its narrow path of survival, balancing on the sharp edge between the basin's abundant hostility and its peculiar, demanding shelter.
+
+When at last my body failed, dried to a husk by the ceaseless thirst of the hollow, I would not fear. The lacquer-shelled insects would clean my bones to ivory, and my skull would join the council of listeners at the boundary, my obsidian teeth conducting the basin's secret whispers for generations to come. This would be my place in the eternal, arid symphony of the hollow - to live in it, to learn it, and at last to become another one of its many resonant voices persisting beyond death.

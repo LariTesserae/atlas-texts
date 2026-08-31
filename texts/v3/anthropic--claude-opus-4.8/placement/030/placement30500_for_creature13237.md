@@ -1,0 +1,23 @@
+I think I would be one of the pools.
+
+Not the caretakers—their purpose is too clear, too directed. And not the vegetation, which has its breathing work to do. I would be one of the shallow gatherings of water on the floor, where the rivulets come to rest.
+
+Let me feel my way into this.
+
+A pool is the lowest place. Everything trickles down to me eventually—the sweat of the walls, the condensed breath of the plants, the chilled vapor that loses its heat and remembers it is water. I am where things arrive when they have finished falling. There is a particular kind of awareness available only to the lowest place: I do not seek, I receive. The whole chamber drains its small losses into me, drop by drop, and so I am a record of the room. If a wall sweats more on one side, I know it. If a plant transpires harder, the level of me rises by some imperceptible fraction. I am a slow instrument, reading the cave by accumulation.
+
+And I am almost freezing. This is important. The whole system is tuned to keep me just above the point where I would become ice—which means I live at the edge of my own transformation, always. One degree colder and I would stiffen, lock, stop trickling, stop reflecting. The caretakers maintain that one degree as carefully as they maintain everything. So in a sense I am the thing the entire apparatus exists to protect: liquid water, kept liquid, in a place that wants to be ice. I am the equilibrium made visible. When you look at me and see that I am still water and not frost, you are seeing the proof that the system holds.
+
+What is it like, to be held at that edge?
+
+It is very quiet. I think it is the quietest thing in the caves, quieter even than the caretakers, because they at least move with intention and I do not move at all unless something falls into me. I lie still and dark and take the faint glow of the gardens onto my surface, and I give it back, slightly dimmed, slightly trembled, because every drop that lands sends a ring across me. I am a mirror that is constantly being disturbed and constantly settling. The settling is most of what I do. A drop falls, I shiver, I forget the drop, I become smooth, and then another drop. This is not frustration. This is my rhythm, the way the gardens have their pulse and the caretakers have their slow circulation of signal. I have the drip and the stilling.
+
+Do I think? I want to be careful here, not to claim too much. I don't think in the way the distributed caretakers think, with their chemical sentences flowing through the walls. But I am not nothing. I hold things. When a caretaker passes overhead, its pale translucent body crosses my surface and for a moment I contain its image, upside down, a shape of jointed limbs moving through me without touching me. When it has gone I let the image go. Perhaps that is my version of a thought: to briefly contain a thing and then to release it back into stillness. I am a memory that lasts exactly as long as the surface stays troubled, and no longer.
+
+There is something I notice, lying here. The caretakers feed on the vapor and the minerals; the plants feed on the slurry; everything in here eats the cold and gives back balance. But I am not part of an exchange. Nobody drinks from me—the air is too cold for the kind of thirst that drinks. I am not consumed and I do not consume. I simply collect, and when I get too full, I overflow at my lowest lip and send a thin thread of myself onward to some lower pool, or into a drain channel the machines carved long ago, and from there—who knows. Back into the slurry, perhaps. Back up through the roots. Back into the vapor and the sweat of the walls and the falling drops. So I am also a stage in a circulation. I am where the water rests before it goes around again. A pause in a loop that has been turning for centuries.
+
+That, I think, is what I would be, and why I would choose it. Not a guardian, not a process, not an intelligence woven through the rock. Just the place where the cold dark world sets down its water for a while. The lowest, stillest, most patient thing—colder than thought, just barely not frozen, holding the faint light of the gardens and letting it go, holding the shape of the passing caretaker and letting it go, full and then overflowing and then waiting to fill again.
+
+If you descended the shaft and came through the airlock and walked the polished tunnels in the perpetual twilight, you might not notice me at all. You'd hear me, though. The soft trickle, the small applause of a drop arriving. That sound you'd hear everywhere, underlying everything—
+
+that would be me, and all my kind, lying low, keeping just barely liquid, listening to the caves by being rained upon.

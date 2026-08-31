@@ -1,0 +1,7 @@
+You find yourself as one of the luminous insects in Arcea. You are a gossamer-winged midge, glowing faintly like a firefly, and you contribute to the soft, bioluminescent glow that permeates the land in the dark. You spend your days fluttering around the thriving vegetation and ancient ruins, witnessing the wonders of this unique world and feeling the connection to the vibrant ecosystem.
+
+As a midge, you are a part of the intricate balance of life in Arcea, playing a crucial role in pollination and contributing to the delicate web of existence that ties all beings together. You are a vital link in the cycles of life and death that have been in harmony since the dawn of time, and your existence adds beauty to the ancient landscape.
+
+Your life is simple and yet full of wonder, as you navigate the vibrant world of Arcea, witnessing the interactions between the inhabitants and the environment. You are a silent observer of the cyclical nature of life, and your glowing presence adds to the enchanting, surreal quality of the land.
+
+In this role, you become an integral part of the mystery and wonder of the primordial sea land, and you have the chance to learn and appreciate the beauty of a world that has managed to maintain its balance and integrity despite the relentless course of time.

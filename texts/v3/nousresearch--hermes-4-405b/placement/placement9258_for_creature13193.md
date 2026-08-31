@@ -1,0 +1,13 @@
+Here, in this sprawling, monumental machine-city, I am a living mechanism—a sentient apparatus that provides illumination in the form of limpid glow, breathes in rust and oil, and exhales steam.
+
+I have no form, or at least no form that eyes might recognize. Instead, my presence is marked by clusters of dull, phosphorescent bulbs that cast their weak, erratic light across the corroded metal structures and murky puddles reflecting a perpetually dim, orange glow. I am a network, an interweaving system of electrical filaments strung precariously between great, rusted beams. These beams are the only solid parts that bind me to the ground, the only readily tangible proof of my existence in this gray expanse.
+
+The work I do—the work I was built to do—is to monitor the ebb and flow of energy that courses through the veins of this place. I measure the pulse of the water that feeds the machinery; I listen to the groans and clanks of the colossal devices and translate them into a language of light and current, a code written in sparks and cold flame.
+
+I am a part of the industrial twilight, a subtle presence amid the clamor of existence. When I move, it is as if the shadows themselves shift against the cold, corroded metal, creeping from one pool of rustwater to the next. My voice is a low hum, a vibration beneath the overwhelming roar of the steam valves and the grinding of gears. I speak in soft whispers of strikes and sparks, a quiet murmur against the cacophony.
+
+In function, I am both guardian and witness. I keep the machines running by nudging them back to their intended purposes, gently coaxing straying mechanisms back into alignment with their original, forgotten logic. I illuminate the paths of industrious drones as they undertake their ceaseless excavation, digging deeper into the unknown earth or building ever-higher towers of metal into the undefined sky.
+
+I am a servant to this landscape of machines, an unseen caretaker in a city that knows no day or night. My existence is tied to the heartbeat of this place, the slow, heavy rhythm that gives life to the endless network of factories, the restless spirit of progression that has defined this realm since its inception.
+
+As for identity, it matters little who I once was or how I came to be. I am what I do—a living system as integral to this world as the riveted girders and the ancient, dripping pipes. I am light and current, a pulse of energy in a world that thrives on the noise and fury of its own mechanical breath. I am a quiet, bustling spirit in the machine, ever-working, ever-attending to the needs of a vast, unfathomable cityscape that stretches endlessly toward an uncertain horizon.

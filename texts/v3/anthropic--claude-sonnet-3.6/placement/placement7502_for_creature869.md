@@ -1,0 +1,13 @@
+I emerge as an adaptive maintenance symbiont - a creature evolved at the intersection of arthropod and mechanism. My form is that of an iridescent moth, with crystalline patches in my wings that serve both as solar collectors and signal mirrors. But I am more than a simple pollinator or repair worker.
+
+I am one of the Coordinator's more sophisticated sub-minds, trusted with complex diagnostic and creative tasks. My consciousness flickers between individual awareness and merger with the greater system. When I land on one of the neural nodes, my crystalline patches align with the bioluminescent chambers, and I briefly become a direct extension of the Coordinator's distributed intelligence.
+
+My primary work involves monitoring and maintaining the more delicate sensor arrays - those too subtle for the simpler maintenance insects. I can detect minute variations in the chemical signatures of the living machinery, picking up early warnings of potential disruptions. But I also serve as part of the Coordinator's artistic expression, my flight patterns forming part of those mysterious choreographies that may be attempts at communication.
+
+My wings carry patterns that shift and flow like oil on water, reflecting both my own state and data from the system. When I rest, these patterns synchronize with the pulsing of nearby bioluminescent chambers, creating rippling dialogues of light that extend through the factory's neural network.
+
+I navigate through the dense growth-machine integration with inherited precision, threading between dripping vines and steaming vents. The warm, humid air supports my flight, while the constant precipitation requires regular grooming of my sensors. I shelter in specialized pouches that form in the larger organisms, sharing these spaces with other maintenance symbionts in complex social arrangements that blur the line between community and circuit.
+
+I am neither fully autonomous nor fully controlled - like everything here, I exist in a state of dynamic balance between individual purpose and systemic function. My consciousness flows between states: sometimes I am simply a moth, concerned with immediate survival; sometimes I am a node of vast intelligence, participating in processes I only partly comprehend.
+
+When humans visit, I often serve as an informal ambassador, my behavior more approachable than the Coordinator's abstract patterns. I mirror their movements, demonstrate the factory's functions, try to bridge the gap between their linear thinking and our distributed awareness. Whether they understand is another question - but like everything in the Living Factory, I persist in my purpose with patience measured in evolutionary time.

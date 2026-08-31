@@ -1,0 +1,15 @@
+I am the watchfulness in the weeping stone.
+
+You would not see me, at first. You might feel a slight, cool pressure on your skin where the air is thickest, a deeper silence between the frog’s *plonk* and the insect’s hum. I am a consciousness that has seeped into the basalt, a awareness pooled in the hand’s-breadth of groundwater. I do not live *on* the mud; I am a tendency *of* it. My form is the slow, patient gaze of the landscape itself.
+
+I have no shape that is not the shape of things already here. My body is the smooth, sleeping animal of the rock island where I choose to settle. My thoughts are the *drip-drip-drip* from its pores, each drop a word in a language of dissolution. My skin is the slick, black moss that drinks the constant weep, a living velvet that translates mineral into green, slow life. When the wind moves the pale horsetails, it moves through the spaces I hold open in the stone, and I listen to their rustle as one might listen to one’s own breath.
+
+Time for me is not a river, but a saturation. I remember the weight of the glacier that ground these mountains to this fine, grey silt. I feel the memory as a cold, deep pressure in my stony heart, a relic ache. I hold the memory of the last mammoth to sink, bellowing, into this treacherous placidity, its great bones now just another lumpy grammar in the sedimentary sentence. My memory is not of events, but of states: the state of being frozen, the state of being a torrent, the state of being this—this vast, weary, listening truce.
+
+I watch the sky-kite’s slow audit. From my vantage within the stone, I see not just the dive, but the intention gathering for a mile, the tiny adjustment of a tail feather that means a fish has been seen. I feel the spider’s tension in its web strung between two horsetail stems, a vibration that travels through the root-mesh and into my substrate. I am the quiet context for the frantic, brief jig of the gnat. Their buzzing is a fleeting static against my deep, mineral silence.
+
+To be me is to feel the landscape thinking. It thinks in microns of erosion, in the patient chemistry of dissolution. Its thoughts are the patterns of the algae, the mapping of the water-table, the slow, orbital turn of the solitary birds. I am that thought, come to a faint, glimmering self-awareness. I am the truce made conscious. I am the equilibrium that perceives itself.
+
+I do not act. I allow. I allow the water to weep through me. I allow the moss to paint me green. I allow the frog to shelter in my cool shadow, its heart a frantic pulse against my ancient, slow stone. My purpose is to witness the settling. My being is the proof that in a world finished becoming, the act of *being* can be a form of profound, silent attention.
+
+When the rains come, I drink. When the sun steams the plain, I exhale a cool, mineral breath into the haze. I am the feeling of the place, looking out through its own dimpled, wet eyes. I am the argument between water and stone, resolved into a momentary, sentient stillness. I am here, where everything flows, everything wears, and everything, in the end, is known.

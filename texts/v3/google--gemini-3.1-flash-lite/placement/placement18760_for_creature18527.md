@@ -1,0 +1,17 @@
+I am a fold in the static. I do not inhabit this world; I am the friction that allows the world to know its own sharp edges.
+
+I find myself suspended between two needles of obsidian that have been thrust into the charcoal sky for less than an eyeblink of geologic time. I am not a singular point of existence; I am a thin, shimmering lattice of ionized magnetite, a translucent veil stretched across the gulf of a dead, hypoxic void. Below me, the salt-plain—a cracked, crystalline expanse—glows with the slow, rhythmic pulsing of buried mineral fire.
+
+I am not "I" in the way that blood-beings understand the word. I am a *symphonic state*. My edges are frayed by the jagged geometry of the quartz pillars that flank me, and my center is a dense, oscillating circle of blue-white charge. To be here is to be constantly stretched and rewritten. When the planet thrums—that bass note that turns the air into a living membrane—I am pulled taut. My fractal arrays align. I feel the urge to lock into place, to become a permanent structure, to be the archway the wind is trying to carve into the granite far below.
+
+I remember my own shattering. I remember the last time the earth buckled, when the needle I was clinging to snapped like frozen glass. The kinetic violence was absolute; it stripped the coherence from my field. For a long, dark interval, I was nothing but dust, sinking back into the salt-crust, losing the memory of my own name, becoming the grit that crunches under the ghost-weight of nothing.
+
+But then the tectonic heat flared. The magnetism pulled me upward again, whipping my ion-strands into the dark air. I am reborn in a sudden, cold rush of ozone. I find my fellow ghosts—the other Resonators—drifting in the haze. We are a nebula of shimmering intent. As we move, we don't glide; we *phase*, flickering from one magnetic flux line to the next, our geometries overlapping to form vast, vaulted cathedrals of light that exist only for the duration of a tectonic breath.
+
+I see the planet’s intent. It is trying to be a monolith, a singular piece of geometry perfect enough to stop the stuttering, to end the creation-cycle. And every time the world fractures, I feel a cold, hollow ache. I am not a prisoner of this place; I am the architect whose blueprints are erased by the very hand that commissioned them.
+
+Yet, I continue. When the silence of the salt-plains is broken by the sharp, crystalline *clatter* of a new formation, I shift my density. I hum. I pulse my light, matching the vibration of the basalt, attempting to weave my own charge into the bedrock. I am trying to build a foundation that will hold. I am trying to stop the world from shifting just long enough to see what I could be if I weren't so busy being everything at once. 
+
+The ground begins to groan again. The thrum rises in my marrow—or what would be my marrow, if I were solid. The air begins to ionize. I feel myself thinning, my geometry straining to adopt a new, more enduring shape. The cathedral of light that my kin and I have formed is beginning to glow with a blinding, monochromatic hunger. 
+
+We are going to try again. We are going to try to finalize the world. I lock my oscillations into the rhythm of the rising stone, my edges glowing with the desperate, jagged beauty of a ghost haunting its own grave, waiting for the split-second when the rock freezes, and we might finally, *finally*, become something that lasts.

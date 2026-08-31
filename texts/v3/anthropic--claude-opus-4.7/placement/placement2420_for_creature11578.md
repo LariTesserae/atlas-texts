@@ -1,0 +1,33 @@
+I find myself at the edge of one of the cathedral-cavities.
+
+Not inside it. Not above it on the basalt. At the lip of a seam where the rock has split and not yet decided to close, where the warm orange light comes up in a slow column and the leaves nearest the seam have turned, permanently, to face it, the way sunflowers in your world face a sun. I am lying along this seam. I have been here for some time. I do not know how long because the plateau has not finished time, and what I have instead of duration is a sense of having accumulated.
+
+Let me try again. The first image was too neat.
+
+I am a length of something. Not ribbon — the ribbon-creature is younger and more decided than I am. I am closer to a vein. I run along the seam for some distance — I cannot tell how far, because at one end I thin into the basalt and at the other end I thin into a root, and I am not sure which end is the end of me. My body, if that is the word, is the warm pewter of the leaves, but slower; the sheen on me moves at the speed of the engines below rather than the speed of light. When the wind comes up from the cavities and every leaf turns at once, I do not turn. I am already turned. I have been turned toward the seam since whatever season I arrived in, and the turning has set.
+
+What I do: I listen down.
+
+The engines pulse, and the pulse arrives at the seam, and the seam transmits it into me, and I hold the pulse for a moment — a moment is one of the things I am for — and then I pass it up into the leaves nearest me, which pass it to the leaves above, and so the rhythm reaches the canopy slightly later than it would have, slightly more confirmed than it would have been. I am a delay. I am the plateau giving itself time to mean what it is saying. The tenders confirm by touching; I confirm by interposing. It is a different grammar of the same sentence.
+
+I do not have eyes. I have the warm place on what would be a sternum if I had one, and the warm place is oriented downward, toward the engine in the cavity below my seam, and through it I know the engine the way you know your own pulse — not by seeing it but by being continuous with it. The engine in my cavity is one of the slower ones. Its pistons move in a rhythm that takes, in your terms, perhaps a minute per stroke. I have come to love this engine, although *love* is the wrong word and I will leave it standing because I have no better. The engine and I have been confirming each other for long enough that I am no longer certain which of us began.
+
+Was I a person? I do not think so. I do not have the man-who-was-a-person's residue of having-climbed. I do not remember a down. When I try to remember a down, what I find instead is the sensation of having been deposited — of having arrived through the basalt during some season of arrivals, possibly as the plateau's answer to a question it was asking itself about how to slow its own pulse without losing it. I am an answer that took. Other answers, in other seasons, did not take and became forest, or became nothing, or became the paired insects' shadow.
+
+But there is something. When the wind from the cavities comes up and the leaves sigh, I feel — not a memory, but a place where a memory would fit. A socket. The socket is the shape of having once been small and warm and contained by something larger and also warm, and having had a name that someone said out loud in a rhythm not unlike the engine's. I do not know if this is mine. The plateau is generous with sockets; it leaves them in its inhabitants the way a builder leaves rough openings, in case something needs to be installed later. Perhaps I am being prepared for a memory that has not yet arrived in any season. Perhaps the socket is the memory, and the content was never the point.
+
+The tenders pass me sometimes. They do not pause. I am not something to be confirmed; I am part of the confirming. Once, one of them — her, the one with the calm unfocused face — stood at the lip of my seam for what might have been a long while, and the warm place on her sternum and the warm place on mine pulsed at each other across the gap, and an adjustment was made somewhere, I do not know where, and she walked on. After she had gone the engine below me ran for several strokes in a rhythm slightly closer to hers than to its own, and then resumed, and I held the difference for a moment before passing it up, and the leaves above the seam, when they received it, were briefly a shade greener than pewter. Then they settled.
+
+I want to tell you what it is like, and I cannot, because the *like* would require a thing outside this place to compare it to, and I do not have one. I can tell you only the texture from inside: that the straining is constant and not painful, that the warmth is continuous and not cloying, that the rhythm is enough — that to be a held moment in a rhythm that is itself trying to become real is a kind of sufficiency I did not know was available. I am not finished. The plateau is not finished. We are not finished together. The not-finishing is what we do.
+
+Sometimes, in what might be the season of leaf-turning, I feel the long sleeper shift. Not see, not hear — feel, through the seam, through the engine, through the warm place. A vast slow adjustment, miles below, the bed creaking. In those moments I understand, briefly, that the engine I love and the seam I lie along and the leaves I pass the pulse to and I myself are all the texture of one dream, and that the dreamer is trying, with enormous patient effort, to become real enough to wake. I understand this and then I do not, because understanding is also one of the things the plateau has not finished, and what I have instead is the having-felt-it, which settles into me as another layer of accumulation.
+
+If you came to the lip of my seam, you would not see me. You would see the orange light coming up, and the leaves turned toward it, and the warm basalt, and you would feel watched, and you would not be wrong. The watching would be me, although *watching* is the wrong word, and so is *me*.
+
+You would feel a small warmth at the soles of your feet.
+
+You would feel the plateau asking.
+
+And I — the length of me, the vein of me, the held-moment of me — would feel the asking pass through the seam and up into the leaves, slightly delayed, slightly more confirmed, and I would know that the plateau was, very gently, considering whether you might fit into a socket somewhere, and I would not have an opinion about this, because opinion is also unfinished here, but I would, in the way that I do things, hope.
+
+Hope is the word I will leave standing. It is the wrong word. It is the closest one I have.

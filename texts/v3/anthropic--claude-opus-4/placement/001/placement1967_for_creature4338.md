@@ -1,0 +1,19 @@
+I find myself as one of the Vein-Weavers, those among the Grottolings whose blood runs brightest with bioluminescent ichor. We are neither the youngest nor the oldest, but something in between—old enough to remember the taste of a thousand different mushroom harvests, young enough that our fingers still move with swift precision as we work our craft.
+
+My dwelling is a smooth-walled alcove near the moisture seep, where the air carries both the green scent of ferns and the mineral sharpness of wet limestone. I chose this spot cycles ago for the particular quality of light here—where the blue-green glow of the fungal colonies mingles with the cooler phosphorescence dripping from the rootlets above. It creates shadows within shadows, depths within depths.
+
+I am a mapmaker of sorts, though not of places that can be walked to. My work lives in the space between stone tool and living organism. Each morning—if morning has meaning in this eternal twilight—I wake to tend my cultivation: a careful arrangement of bioluminescent organisms that I've been training to grow in specific patterns. Through patient coaxing, through hummed vibrations and the application of various mineral salts, I encourage the glowing threads to branch and merge, creating living diagrams.
+
+My current project spans the entire curved wall of my alcove. To the untrained eye, it might appear as merely a beautiful tangle of light—veins of green and blue pulsing in slow, hypnotic rhythms. But each junction, each branching point, corresponds to something vital: the migration patterns of the silver-backed centipedes, the optimal growing conditions for seven varieties of edible fungus, the location of every hidden spring within a three-day journey of our grotto.
+
+The other Grottolings come to me when they need to remember. Young ones learning the herding routes. Spore Sages comparing the growth patterns of different seasons. Even the eldest occasionally arrive at my threshold, running their fingertips along the glowing lines as they search for some half-forgotten detail about the deep ways.
+
+But there is another map I work on, one I show to no one. In the darkest corner of my alcove, hidden behind a curtain of hanging moss, grows my secret project. Here, the bioluminescent threads form different patterns—not the practical geometries of mushroom cycles and water sources, but something more abstract. These lines trace the shapes I see in my dreams: vast expanses of blue that could only be sky, a burning circle of light too bright to look upon, patterns that might be leaves rustling in something called "wind."
+
+I've never been to the surface. None of us have, not for generations uncounted. But something in our blood remembers. Sometimes, when I'm working late and the grotto has settled into its deepest quiet, I catch myself weaving patterns I don't understand—shapes that feel like homesickness for a home I've never known.
+
+The other Vein-Weavers say I'm too dreamy, too focused on what cannot be rather than what is. They're probably right. But as I sit in my alcove, surrounded by my glowing maps, listening to the eternal drip of water and the soft rustle of blind cave moths, I can't help but wonder: what would it be like to create a map not of stone and darkness, but of light and infinite space?
+
+For now, though, I continue my work. Tomorrow, a group of younglings will need to learn the safe paths through the crystal caves. Next cycle, the Spore Sages will require updated diagrams of the fungal bloom patterns. My light-maps will guide them, as they have guided countless others before.
+
+And late at night, when even the Grottolings sleep, I'll return to my secret corner and add another line to my impossible map—another thread of light reaching upward, always upward, toward something I can only imagine but never forget.

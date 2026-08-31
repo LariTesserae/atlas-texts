@@ -1,0 +1,21 @@
+As I immerse myself in this world, I find myself drawn to the Lithari, the sentient, ambulatory rocks that dot the landscape. There's something profound and ancient about their presence, as if they hold the secrets of the world within their weathered, stone hearts. I imagine myself as a Lithari, slowly making my way through the tunnels and caverns, my path guided by a deep understanding of the intricate web of relationships that binds the ecosystem together.
+
+As a Lithari, I am a guardian of sorts, a keeper of the knowledge and history of this world. I have witnessed the evolution of the plants and the creatures that live among them, and I possess a deep understanding of the delicate balance that exists between the inhabitants of this world. I am often sought out as an advisor and mentor by the other inhabitants, who come to me seeking guidance and wisdom in a world that is always in flux.
+
+My days are spent slowly moving through the tunnels, observing the plants and creatures as they grow and adapt to their ever-changing environment. I am a patient teacher, sharing my knowledge and insights with those who seek it, and offering guidance and counsel to those who are struggling to navigate the complex web of relationships that exists in this world.
+
+As I move through the tunnels, I am surrounded by the vibrant, pulsing energy of the plants and creatures. The air is alive with the sounds of insectoid chirping, chattering, and screeching, and the warm, diffuse glow of the plants' bioluminescence illuminates my path. I am a part of this world, connected to it in a deep and profound way, and I am constantly aware of the intricate, interconnected nature of the ecosystem.
+
+Despite the turbulence and chaos that can exist in this world, I am a calm and steady presence, a rock that remains steadfast and unwavering in the face of change and uncertainty. I am a reminder that even in the most unlikely of places, there is always the potential for beauty, wonder, and discovery, and that the secrets of the universe are waiting to be uncovered by those who are willing to seek them out.
+
+As I continue on my journey, I come across a group of Florans, the tiny, insect-like creatures that live on every available surface. They are a riot of color and pattern, their bodies flashing with intricate, shimmering scales as they feed on the nectar and pollen of the plants. I watch in wonder as they move through the plants, their social behavior and complex communication patterns a testament to the incredible diversity and adaptability of life in this world.
+
+I am approached by a group of Ninhori, the sinuous, burrowing worms that tunnel through the plant-mass, leaving trails of glittering, silver slime in their wake. They are herbivores, feeding on the vast network of plant roots and fibers that crisscross the tunnels and caverns, and they seek my guidance on how to navigate the complex, ever-changing landscape.
+
+I share my knowledge with them, offering advice and counsel on how to avoid the dangers that exist in this world, and how to find the best sources of food and shelter. I remind them of the importance of respecting the balance of the ecosystem, and of working in harmony with the other inhabitants of the world.
+
+As I continue on my journey, I come across a group of Luminari, the iridescent, winged beasts that flit through the air, their delicate wings beating at a hypnotic pace as they emit a soft, ethereal glow. They are a testament to the magic and wonder of this world, and I am filled with a sense of awe and wonder as I watch them move through the tunnels and caverns.
+
+I am a part of this world, connected to it in a deep and profound way, and I am constantly aware of the intricate, interconnected nature of the ecosystem. I am a guardian, a teacher, and a guide, and I am dedicated to helping the other inhabitants of this world navigate the complex, ever-changing landscape that exists here.
+
+As I move through the tunnels, I am surrounded by the vibrant, pulsing energy of the plants and creatures, and I am filled with a sense of wonder and awe at the incredible diversity and adaptability of life in this world. I am a Lithari, a sentient, ambulatory rock, and I am proud to call this world my home.

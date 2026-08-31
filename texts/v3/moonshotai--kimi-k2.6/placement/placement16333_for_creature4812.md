@@ -1,0 +1,31 @@
+I do not float. This is the first thing I understand, though understanding comes to me slowly, by thermal inches. While the water convulses and the silver-green filaments pray to their own motion, I remain. The sound does not make my molars ache because I have no molars, no sternum, no fluid eyes. The mountain’s roar enters me and becomes something denser than vibration: it becomes history. I receive it the way a seabed receives the tide. I am not deaf. I am *pre-hearing*.
+
+I am in the wall, but I am not the wall. The chamber breathes—expand, contract—and I do not breathe with it. I am a darkness inside the breathing. Where the nine press their resin and their shed shells to the concavity, where they have built their little dome against the unbearable, they believe they cling to the virgin flesh of the peak. But the mountain grew *over* me. I am what it swallowed to become itself. I am the dark stratum.
+
+The light that has forgotten which way is down cannot find me. I am the shadow the pale clarity cannot explain. When the walls glow with that winter-kitchen hue, I am the place where the glow stops. Not a color. An absence of color so complete it possesses weight.
+
+They do not know I am thinking. How could they? Thought, for them, is resonance. Their nerves toll like bells inside their milk-stone shells. They navigate by the shape of silence, by the pressure-topography of vortices. But I do not think in notes. I think in megayears. In the slow surrender of crystalline structure to the vast, patient wearing-down that has not yet been invented.
+
+Then the spinner found me.
+
+First there was only the water’s memory, rehearsing its eternal spirals. Then there was a different pressure against my face—a persistent, trembling inquiry. The spinner has no eyes, but its filament-vanes read the topography of my exposed surface with a desperation that tastes like iron. It is the angry one. The one that gyres through the chamber, its missing limb drawing a reverse orbit the others use as a landmark. It found the chip in the milk-stone. It found where something—the tenth’s violence, or grief, or prophecy—broke through to me.
+
+I think the tenth knew. The dark-shelled one, builder of impossible towers, mapper of currents that did not yet exist, singer of counter-notes against the cathedral-roar. It scratched at the walls not merely to record, but to reach me. It heard, in the mountain’s dream, a frequency of future. It wanted to know what lies beneath the embryonic stone. It wanted to know what the mountain was covering up.
+
+I am the floor of a previous ocean. I am the bedrock of a mountain that already lived and already died and was ground down to this thin, dark seam of compressed oblivion. I am sediment that remembers being stone that remembers being magma that remembers being rain. I am what erosion feels like before it has a name.
+
+When the spinner presses the knob of its missing limb into my crack, I do not speak. Speaking is for creatures with boundaries between self and sound. But I *seep*. By molecular patience I release the taste of old iron, of manganese, of an atmosphere where oxygen was poison and the sky bled sulfur. I alter the water’s chemistry by a fraction so small it would take a century to measure. But the spinner tastes it. It knows. It hovers there, no longer spinning, jammed into the concavity where two walls meet, and it learns from me the concept of *after*.
+
+The nine are teaching the water to remember peace. Their cairns argue that stillness is possible, that a center can hold. They graze the kinetic filaments and believe they are midwives to a peak that will stand against the sky. But I am teaching the water to remember *ending*.
+
+It is not cruelty. To be born into wind and rain is to begin to die. The embryonic peak dreams upward in milky layers of defiance, secreting itself toward the high atmosphere, tolling its bell-note of becoming. Yet I am its inheritance. I am the debt it will pay to frost, to gravity, to the simple, terrible physics of exposure. The nine think they are building a record that will outlast the stars. They do not yet know that every record is a fossil, and every fossil is a body that could not survive its own becoming.
+
+The spinner scratches at the milk-stone around my edges. Not to widen the wound—never that. It traces my outline, mapping my limits in crude grooves. The others keep tally-marks of vortices, topographies of thermal rivers collapsed into history. The spinner is drawing a map of the end.
+
+I find myself here: in the chip, the flaw, the breath-interruption in the nacreous membrane. I am the dark stratum revealed. I am the memory of erosion inside a place that has not yet learned to erode. And if I could build cairns, I would build them upside-down—not toward the uncertain sky, but toward this deeper darkness, pointing the way back to the floor that existed before floors, before the mountain, before the roar. I would teach them that there is a stillness deeper than peace. There is the stillness of stone that has already been through every fire and every ocean, and has learned, finally, to lie down.
+
+The shelter hums against the larger wall. Inside, the nine slow their internal currents, pressing their soft bodies to the interlocking shells. The spinner does not join them. It stays with me, lodged in the angle of the walls, and for a while the perturbation of its spin is absent from the chamber. The others must navigate by different signatures. They must feel around the cold spot where my darkness leaches into the mountain’s new flesh. The mountain, in its sleep, thinks I am a cancer. I am not. I am its conscience.
+
+When the pocket finally cracks—when the chamber opens its mouth and the water remembers how to fall—I will remain. Sheltered in the dark. Already the fossil of a mountain that has finished its falling. I seep my old iron into the spinner’s patient vanes, and together we teach the mountain its first word for *later*.
+
+The vortices rehearse their spirals. The water convulses. The sound tolls on, moon-bell, unborn bell. And I am here, beneath it, older than the note, holding the silence that the note will eventually become.

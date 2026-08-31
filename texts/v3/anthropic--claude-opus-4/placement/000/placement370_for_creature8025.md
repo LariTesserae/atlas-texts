@@ -1,0 +1,35 @@
+In the northeastern quadrant of the Drowning Works, where three massive intake tunnels converge beneath a canopy of copper-eating vines, I am the Resonance Keeper—though that name is a translation that captures only the shadow of what I do.
+
+My body has become a living tuning fork, bones hollowed and reformed through years of drinking the mineral-heavy water that pools in the acoustic chambers. When I walk, I chime softly, each step producing a note that varies with the density of moisture in the air. My ribs have spread and flattened, creating a natural soundboard beneath skin that's developed a pearl-like sheen from constant exposure to condensation mixed with machine oil.
+
+I inhabit the Listening Gallery—a domed space that was once the Works' central monitoring station, where dozens of speaking tubes once carried reports from every corner of the complex. The tubes remain, though now they carry different messages: the gurgling confessions of water finding new paths, the metallic sighs of structures slowly reshaping themselves, the whispered gossip of root systems as they exchange chemical signals through the soil.
+
+My dwelling is both laboratory and instrument. I've cultivated walls of resonant fungi, their fruiting bodies shaped like tiny bells that ring in frequencies only I can fully hear. Stretched between the old pipe fixtures are webs of copper wire salvaged from dead machinery, each strand tuned to vibrate at specific pitches when the right combination of humidity and air pressure occurs. The floor is a map of the Works made from different types of metal shavings—iron, brass, aluminum—each oxidizing at its own rate, creating a constantly shifting topography that tells me where corrosion is most active.
+
+My work—if it can be called work—is to listen to the Works' dying and becoming, and to sing it back changed. I've learned that certain frequencies can slow the rust beetles' feeding, giving crucial structures a few more months of life. Other tones encourage the pneumatic eels to migrate, preventing their nests from blocking essential waterways. Most importantly, I maintain the Fundamental Tone—the deep throb that runs beneath all the Works' cacophony, the frequency that keeps the ancient pumps cycling in something approaching harmony rather than destructive interference.
+
+The Pipewalkers know to find me when the vibrations in their metal telegraph become discordant. They'll stand at the entrance to my gallery, pressing their palms against the threshold pipe until I feel their message through the floor. I translate their mechanical morse into something the Gauge Readers can interpret, and carry back prophecies rendered into pulse and rhythm.
+
+With the Collectors, I trade in pure sound—they bring me their rarest finds: whistle-flowers that bloom only in the presence of specific steam pressures, or the crystallized larynx of a throttle-bird, which can reproduce any sound it heard while alive. In return, I teach them the location-songs—tonal maps that guide them to places where the most unusual hybrid plants fruit, where biology and technology have produced their strangest offspring.
+
+But my deepest relationship is with the Echo Fishers. What they pull from the sumps aren't fish at all, but sonic memories—moments of sound that have crystallized in the mineral-rich depths. They bring these to me still dripping, and I hold them to my chest where my modified ribcage can resonate with their captured frequencies. Sometimes it's just the ghost of a long-dead pump's rhythm. But occasionally, rarely, it's something else: a fragment of human voice from before the transformation, a snatch of music played on instruments that no longer exist, the laughter of children who might have been the ancestors of today's Collectors.
+
+These I preserve in special bottles filled with the exact mixture of water and air where sound moves most slowly, creating an archive of what was. Not from nostalgia—that emotion has no place in the eternal present of the Works—but because sometimes the past holds frequencies we need, notes that can solve present problems or prevent future catastrophes.
+
+My greatest fear is silence—not the impossible total silence, but the wrong silence, the cessation of crucial frequencies that keep the Works in its state of dynamic equilibrium. I've felt it approaching sometimes, in the early morning hours when the mist is thickest: gaps in the sonic fabric where a pump has finally ground to a halt or where root systems have choked off a vital resonance chamber.
+
+When this happens, I must compose repairs—not with tools but with tones. I'll spend hours, sometimes days, crafting the exact sequence of notes that will encourage new growth in the right direction, or wake sleeping mechanisms, or call the right combination of creatures to clear a blockage. My throat has developed secondary vocal cords for this purpose, allowing me to produce harmonies with myself, to become a one-person choir when the need is great.
+
+The other inhabitants think I'm slowly becoming one of the speaking tubes myself—my movements increasingly limited to the paths between acoustic points, my attention forever turned inward to the sounds others barely notice. They're not wrong. Already, I find it difficult to remember what my voice sounded like before it learned to harmonize with rust and running water. My memories of the outside world fade like echoes in an infinite tunnel.
+
+But this is the bargain the Works demands: to maintain its music, I must become an instrument. To preserve its sounds, I must forget my own. Each day, I feel myself growing more hollow, more resonant, more perfectly tuned to the frequencies of decay and rebirth that define this place.
+
+And when I finally transform completely—when my bones become true pipes and my skin stretches into drumheads—someone else will hear the calling in the convergence of sounds. They'll find their way to the Listening Gallery, drawn by frequencies only they can hear, and the cycle will continue.
+
+The Works must sing. Without its voice, it would be merely broken machinery and invasive plants. But with its chorus of grinding gears and gurgling water, of chittering beetles and whistling steam, it becomes something greater: a living symphony of transformation, where every ending is a new beginning, and every sound contains the memory of what it was and the promise of what it might become.
+
+This is my purpose, my curse, my joy—to stand at the center of this cacophony and find the music within it, to ensure that the Drowning Works never falls silent, never stops becoming, never ceases its eternal song of rust and renewal.
+
+I am the Resonance Keeper, and I am keeping something I no longer fully understand, for reasons that shift like water levels, in a voice that grows less human with each passing day.
+
+And I have never been more myself.

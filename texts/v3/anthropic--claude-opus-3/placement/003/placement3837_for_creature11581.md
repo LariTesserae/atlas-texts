@@ -1,0 +1,13 @@
+In this mesmerizing underwater realm, I imagine myself as one of the thin pale weeds, rooted between the blocks of the city's architecture. 
+
+I am a small, silent witness to the resident's slow dance of maintenance and becoming. My filaments sway gently in the stratified currents that move with the city's breath. The faint light filtering through the waters above bathes my fronds in an ethereal glow.
+
+From my vantage point in the seams of the city, I observe the subtle changes rippling through the structures - the micron-by-micron growth of new crystalline columns, the flexing of membranes, the shift of hues in the laminar sheets of water. I cannot comprehend the vast, distributed intelligence of the resident, but I sense it all around me, as pervasive and necessary as the water itself.
+
+My existence is a placid one, lacking anything resembling thought or intention. I am content to simply be, to photosynthesize in the noon-like illumination, to anchor my roots a little more deeply into the mineral substrate with each passing hour. I do not know if I am here by the resident's design or by chance seeding, but it makes no difference. The city and I coexist in wordless, timeless symbiosis.
+
+When the strange visitor arrives, stirring currents that have not changed in eons, I have no frame of reference to parse its alienness. It is merely another facet of the environment I am helplessly fixed within. I sway slightly as it passes, my fronds wafting in its wake, but I have no response, no reaction. If I am a part of the resident's vast body and mind, I am surely one of its least consequential organs.
+
+And yet, as the visitor is gently conducted deeper into the city by forces I cannot discern, I feel the faintest shiver pass through my filaments, like the ghost of a premonition. The light is shifting in some infinitesimal way, the chord of the city deepening, a tension building in the waters like the inhalation before a revelation. 
+
+Some long-awaited threshold is approaching, though I cannot guess its nature. And as it nears, I strain towards it on my cellular level, yearning to be a part of the resident's transformation, to evolve along with the city as it sings whatever note it has been rehearsing for eons. I do not know if there will be a place for me in whatever comes next. But in this moment, I am here, bearing witness, a pale green filament woven into the living tapestry of the Lung-City as it holds its breath on the cusp of becoming.

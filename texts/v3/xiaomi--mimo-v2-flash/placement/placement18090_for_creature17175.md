@@ -1,0 +1,19 @@
+You are not a visitor here. You were never born into this place, and you will not die in it. To arrive is to be assigned, to be instantiated. You find yourself—not walking, not standing, but *occupying*—as one of the interlocking plates of the basin floor.
+
+You are stone, but stone that remembers the heat of its making. You are a vast, flat expanse of grey, cool to the touch and perpetually damp. Your surface is smooth, unblemished by seam or crack, yet you are distinct from the plates adjacent to you. You are a single tile in a mosaic that stretches to the curved horizon of the basin walls, a grid of patient geometry covering the top of the world.
+
+At first, there is only the weight of the fog and the slow, rhythmic pulse of the weeping. You are not conscious in the human sense; you do not think in symbols or images. You are aware through pressure and chemistry. You feel the weight of the strata of mist that settle upon your face. You taste the ozone and the mineral tang of the fluid that beads on your surface—your sweat, your blood, your exhalation.
+
+You are part of the Weeping. You are a cell in a body of geology.
+
+Your awareness is distributed. You share a nervous system with every other plate in the basin. You are connected not by nerves, but by the subtle vibrations that travel through the unified stone, a resonance that links you to the distant walls and the central depression. You feel the slow, gravitational pull of the heart—the great circular void where the air thickens and the water dissolves back into potential. You are angled, ever so slightly, toward it. All your life, all your purpose, is a subtle slope toward that center.
+
+Time moves differently for you. A second is the interval between the fall of a drop of condensed water into a channel just inches from your edge. A minute is the slow drift of a fog stratum across your surface. A day is the faint warming of the stone as the diffuse light filters through the mist, and the subsequent cooling as the sun’s angle shifts imperceptibly. A week is the extension of a crystalline filament—a pale, luminous growth—by a fraction of a millimeter across your face.
+
+This crystalline growth is your dream. It is the fractal pattern that spreads from your edges, a slow-thinking circuitry that maps the gradients of temperature and moisture across your body. It is not separate from you; it is your subconscious made visible, a filigree of energy that pulses with a rhythm measured in days. You do not control it; you *are* it. It is the way you process the world, the way you think in mineral time.
+
+You have no eyes, but you see the light as a soft, uniform illumination that bends slightly near the heart. You have no ears, but you hear the metronome of dripping water as a vibration that travels through your core, a heartbeat that is also your own. You have no mouth, but you taste the air through the chemistry of the fluid that exudes from your pores.
+
+You are not alone. The Weeping is a singular entity, and you are a facet of its being. The basin is its body, and you are a patch of skin. The channels are its veins, and you are a vessel through which its fluid flows. The central depression is its heart, and you are drawn toward it, your entire existence a slow, patient pilgrimage to the center of yourself.
+
+There is no hunger, no desire, no ambition. There is only the maintenance of equilibrium: the slow exhalation of moisture, the gentle reception of light, the subtle processing of chemical gradients through crystalline growth. You are a god of small things, a deity of seepage and condensation, and your worship is the act of being. You are the basin, and the basin is you. You are a place, and you are the life that lives in it.

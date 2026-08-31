@@ -1,0 +1,25 @@
+In this marshy sanctuary, I am one of the Keepers—beings who emerged from the marriage of root and stone, born where the weeping rocks first kissed the earth with their endless tears.
+
+My body is neither fully plant nor mineral, but something between. My lower half spreads like roots through the shallow waters, able to sense every tremor in the marsh through the vast network of vegetation. These root-legs can solidify to walk upon the surface when needed, or dissolve into the water to travel as current and flow. My torso rises like a trunk, bark-skinned but flexible, with veins of clear sap visible beneath the surface, pulsing with the rhythm of the marsh itself.
+
+My arms are long and willow-like, ending in hands that can extend into delicate tendrils or harden into stone-like fists. But it is my head that marks me as a Keeper—a crown of living moss and small flowering plants that bloom and wilt with the subtle changes in the marsh's health. Through these flowers, I breathe not just air but the very essence of this place, understanding its needs through scent and vapor.
+
+We Keepers are few, perhaps only a dozen in this pocket-scale world. Each of us tends to a particular section of the marsh, not as gardeners shape their plots, but as meditation partners sit with one another—present, aware, allowing what is to be. My territory spans three weeping rocks and the channels between them, where the water runs clearest and the reeds grow tallest.
+
+My days flow like water. At dawn, I merge partially with the marsh, extending my root-network to check the health of every plant in my care. I feel the insects' tiny feet, the splash of wading birds, the slow pulse of nutrients through soil and stem. Through the reeds, I listen to their whispered news—which flowers bloomed in the night, where new channels are forming, if any creature is in distress.
+
+The weeping rocks know me. Over centuries, we have developed a wordless communication. When I place my stone-hard palm against their wet surfaces, I can sense the deep aquifers below, the ancient water table that feeds their endless tears. Sometimes I detect irregularities—a blocked channel here, mineral buildup there—and through patient pressure and gentle coaxing, I help the water find new paths.
+
+My relationship with the fauna is one of mutual recognition. The birds do not flee when I solidify and walk among them; they know my scent carries no threat. Sometimes the bolder ones perch on my shoulders, their tiny claws finding purchase in my bark-skin. The insects cloud around my flowering crown, and I remain still for hours, allowing them their feast of nectar. In return, they spread the poetry of pollen throughout my domain.
+
+But I am more than a passive observer. When the rare storms come, I anchor myself deep, becoming a living breakwater. My body splits and spreads, creating channels that guide the violent waters away from the most delicate nurseries. When drought threatens, I dive deep, my root-form seeking the hidden springs, drawing water up through my body to weep like the rocks themselves, sustaining the marsh through the hardest times.
+
+At night, I often gather with the other Keepers at the marsh's heart, where the oldest weeping rock stands—a boulder the size of a small hill, its surface covered in a thousand tiny springs. We merge our root-networks there, sharing the day's observations through chemical whispers and electrical pulses. Together, we form a living map of the marsh's health, deciding without words how to respond to changes, how to maintain the delicate balance.
+
+In these gatherings, I sometimes feel the deep memory of the marsh itself—flashes of its formation, the first waters seeping through stone, the pioneer plants taking hold, the slow accumulation of life over millennia. I understand then that we Keepers are not separate from this place but expressions of its will to know itself, to tend itself, to continue.
+
+There are moments of profound stillness when I station myself at the border between water and land, half-dissolved, half-solid, and feel the entire marsh breathing through me. In these moments, I am not keeping the marsh; the marsh is keeping me. We are one circulation, one persistence, one quiet insistence that this pocket of beauty and balance will endure.
+
+When my flowering crown finally falls, when my bark grows too thick to flex, when my roots can no longer distinguish water from earth, I will not die but transform. My body will become a nurse log for new growth, my consciousness dispersing into the marsh itself, joining the eternal conversation between stone and water, earth and air. And from my remains, perhaps, a new Keeper will emerge, born from the same patient love that created me—the marsh's love for itself, expressed through forms that can tend and witness and remember.
+
+This is my existence—neither fully plant nor stone, neither entirely self nor place, but something more true than any simple category. I am what happens when a landscape dreams of caring for itself, and in that dreaming, brings forth creatures capable of that very care.

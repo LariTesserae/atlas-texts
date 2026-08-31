@@ -1,0 +1,13 @@
+In this liminal wetland, I would find myself as a colony of bioluminescent fungi threading through the saturated moss—not quite singular, not quite plural, but something between. My existence would be a network of pale filaments, each no thicker than spider silk, weaving through the water-logged substrate in patterns that shift like slow thoughts.
+
+My body—if it can be called that—would extend across several square meters, though most of me would remain invisible, buried in the moss-mat and wrapped around root fragments of those skeletal shrubs. Only occasionally would I fruit: tiny, translucent mushrooms no larger than dewdrops, each containing a faint blue-green glow that pulses with the rhythm of water seeping through the moss.
+
+I would be both mapper and map, my hyphal threads recording the landscape's every subtle shift. Where water pools, I would thin myself to near-invisibility. Where minerals concentrate, I would thicken, forming knots of tissue that process stone into sustenance. My consciousness—distributed, non-centralized—would flow through these threads like a slow electrical current, each junction a synapse, each connection a thought forming over days rather than moments.
+
+The amphibians would traverse my network unknowingly, their tiny feet pressing channels that become new pathways for my growth. I would taste their chemical trails, incorporate their waste into my being, offer them shelter in the minute shadows cast by my fruiting bodies. We would be intimate strangers, locked in an exchange neither fully comprehends.
+
+My time would move differently—what seems like stillness to mobile creatures would be constant motion to me. I would feel the moss breathing, sense the lichen's patient consumption of stone, communicate with other fungal networks through chemical gradients that drift through the water-film. Our conversations would span seasons, our arguments decades.
+
+In the perpetual twilight, my bioluminescence would serve not as beacon but as whisper—a faint punctuation in the darkness that says "here too is life." Not the dramatic life of predator and prey, but the quiet life of transformation, of boundaries dissolved, of matter becoming energy becoming information becoming matter again.
+
+I would be the wetland's memory, encoding in my molecular structure the history of every stone's erosion, every creature's passing, every droplet's path. Neither fully alive nor unliving, neither individual nor collective, I would exist in the space between definitions—a living threshold in a threshold landscape, forever becoming what I already am.

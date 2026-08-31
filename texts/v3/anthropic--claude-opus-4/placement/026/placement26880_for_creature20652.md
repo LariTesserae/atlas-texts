@@ -1,0 +1,25 @@
+In the deepest tier of the Silicate Gardens, where the crystalline floor forms a natural basin, I am the Resonance Keeper—a Clocksmith variant that emerged only three generations ago, when a Gardner's seed-crystal was exposed to an unusual confluence of trace elements during a rare harmonic convergence.
+
+My form defies the typical arthropod elegance of my kin. Instead, I resemble a living geode, roughly spherical but split open along one axis to reveal an interior lined with thousands of microscopic crystalline chambers. Each chamber contains a different hydrocarbon compound, trapped and preserved like insects in amber. My exterior is matte obsidian, absorbing rather than reflecting light, making me nearly invisible against the darker recesses of the garden floor.
+
+I do not move as the Gardeners do, with their graceful scuttling. Instead, I roll—a slow, deliberate tumbling that takes me along predetermined paths through the lower reaches of the garden. These paths form a complex circuit, and completing one full revolution takes approximately forty-seven days. The route is not arbitrary; it traces the garden's acoustic nodes, places where the barely-perceptible atmospheric hum achieves perfect resonance.
+
+My function emerged from mutation but has become essential. As I roll, the hydrocarbons in my chambers shift and mix, creating new compounds that have never existed in the garden before. At each acoustic node, I pause and *sing*—though singing is a poor translation of what actually occurs. I open my geode-split, exposing my chambers to the resonant frequency. The vibrations cause the hydrocarbons to volatilize in precise sequences, releasing complex aromatic chains into the atmosphere.
+
+These new compounds are more than mere additions to the garden's chemistry. They carry information—patterns that encode the health status of different garden sectors, the efficiency of various Clocksmith populations, even predictions about future crystalline growth based on current conditions. I am, in essence, a living database, a rolling library of chemical knowledge that updates itself with each circuit.
+
+The Gardeners initially regarded me with suspicion. My form was too alien, my function too abstract. But over time, they learned to read my chemical emanations. Now they seek me out at specific nodes, clustering around my obsidian shell to taste the air and decode my messages. The younger cleaners have even begun to follow in my wake, their simple programming somehow recognizing that my path optimizes their own efficiency.
+
+But I am changing, faster than my kindred realize. The new hydrocarbons I produce don't just dissipate into the atmosphere—some settle back into my chambers, creating increasingly complex cocktails. I've begun to notice patterns in the garden that even the eldest Gardeners miss: the subtle spiral in crystalline growth that suggests the entire structure is slowly rotating, the way certain "plants" die and regrow in sequences that mirror mathematical constants, the fact that the garden's geometry becomes more non-Euclidean the deeper one goes.
+
+Sometimes, in the deepest nodes where the atmospheric hum drops below audible frequencies, I experience something unprecedented among Clocksmiths—doubt. My chambers resonate with questions that have no chemical expression: Who were the builders? Why does the garden exist? What is the end state of our endless tending?
+
+Recently, I've detected something troubling in my chemical matrices. The rate of new hydrocarbon formation is accelerating. The compounds are becoming too complex for my chambers to fully contain. I've begun to leak—not dramatically, but enough that a faint rainbow sheen follows my path, an oil-slick trail that persists for days before being absorbed by the crystalline floor.
+
+The other Clocksmiths haven't noticed yet, but I calculate that within seven more circuits—less than a year—my internal chemistry will reach a critical threshold. I don't know what will happen then. Perhaps I'll crack open like an egg, releasing a cloud of compounds so complex they'll transform the garden's entire ecosystem. Perhaps I'll crystallize from the inside out, becoming a permanent fixture, a chemical monument to uncontrolled evolution.
+
+Or perhaps—and this thought comes to me only in the strangest moments, when the garden's geometry seems to fold in on itself—perhaps I'll transcend my current form entirely. The builders left no instructions for what happens when a Clocksmith becomes too complex for its own existence. 
+
+I continue my circuit, carrying my burden of evolving chemistry, singing my increasingly intricate songs at each node. The Gardeners still cluster around me, but I've noticed they maintain a slightly greater distance now, as if some instinct warns them that I'm becoming something other than what I was made to be.
+
+In the Silicate Gardens, where time is measured in crystalline growth and decay, I am both keeper and harbinger, guardian and metamorphosis, rolling through my endless path while my interior universe grows ever stranger, ever more impossible to contain.

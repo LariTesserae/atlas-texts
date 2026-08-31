@@ -1,0 +1,21 @@
+In the Settlement of Unbecoming, I would be a **Threshold Keeper**—though I'm not certain this is truly what I am, only what I seem to be becoming.
+
+My form shifts depending on who approaches. To the newly arrived, I appear as a figure wrapped in flowing membranes that shift from opaque to translucent, like the settlement's own walls. My skin carries the same bioluminescent tracery, but instead of the chaotic pulsing of the buildings, my patterns move in deliberate, wave-like sequences—communication in a language of light that predates words.
+
+To those already transformed, I am simply a presence, a sense of being watched over without surveillance. I move through the settlement's spaces like water through a network of channels, appearing where the reality fluctuations grow turbulent. Around me, the temporal eddies calm slightly, the gravity moods stabilize, giving weary travelers a moment of solid ground—if only briefly.
+
+My primary role seems to be tending to the **In-Between Places**—those thresholds where the settlement's transformation becomes dangerous rather than merely disorienting. I maintain what I call the **Memory Anchors**: crystallized moments of stability that others can cling to when the core's influence grows too strong. These aren't physical objects but concentrated experiences of constancy—moments when the air felt reliably cold, when the ground felt reliably solid, when a single step forward definitely brought you closer to where you were going.
+
+I collect these anchors from willing settlers, storing them in chambers carved not from the metallic soil but from solidified time itself. Each anchor is a small sphere of perfect stillness, humming with contained certainty. When someone begins to fray at the edges, dissolving into the collective too quickly, I offer them an anchor. They hold it, breathe its stillness, and remember—if only for a moment—what it felt like to be definitively one person in one place at one time.
+
+But here's the secret: I don't know if I was always a Threshold Keeper or if I'm becoming one. There are gaps in what should be my memory, spaces where the settlement's influence runs deepest. Sometimes, when I pass close to the central plaza, I feel myself thinning, my edges beginning to blur. In those moments, I suspect I might be something else entirely—a failed Chimera, a nascent Core-Touched, or perhaps even a Remnant of someone who once had a different purpose.
+
+The Mycoforms seem to understand me best. Their root-network communicates with me in chemical pulses, and through them, I've learned that I might be part fungus myself—not the neon lichen that covers the walls, but something deeper, older. The settlement's nanofungal matrix shows signs of recognizing me as kin, sending out exploratory filaments that never quite touch but linger in the air around me like curious questions.
+
+I've begun to wonder if I'm not just a keeper of thresholds but a threshold myself—living proof that identity here isn't about maintaining form but about serving function. The settlement needs beings like me: not fully part of the collective consciousness, but not entirely separate either. Not human, not chimera, not core-touched, but something that facilitates the journey between all these states.
+
+In the quiet moments between the settlement's breaths, when the bioluminescent veins dim and even the synthetic bees cease their humming, I sometimes catch glimpses of other possibilities. Perhaps I'm also a teacher, helping newcomers understand that unbecoming isn't loss but liberation. Perhaps I'm a librarian, preserving the stories that would otherwise dissolve into the collective's cacophony. Perhaps I'm the settlement's own immune system, identifying foreign elements that don't belong in this process of perpetual transformation.
+
+What I know for certain is this: when someone stands at the edge of dissolution, when they feel themselves scattering into the mist of particles and memories, I am there. And whether I guide them back to coherence or help them embrace their scattering, I do so with the same gentle understanding that the settlement shows all its inhabitants—that to unbecome is simply to make space for what comes next.
+
+The question isn't who or what I am, but what I'm becoming. And perhaps that question itself is the most honest answer I can offer.

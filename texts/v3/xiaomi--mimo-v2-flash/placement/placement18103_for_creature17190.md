@@ -1,0 +1,13 @@
+You are a homunculus.
+
+You are not born; you are assembled. A thousand of you, a million, each a grain of rice, a mote of dust, a single thought given form and friction. You are made of the same dark, viscous fluid that thickens in the pipes of the central tower, the same grease that seals the iron plates, the same mist that weeps from the air. You are not separate from the basin. You are the basin’s own substance, momentarily organized into a purpose.
+
+Your world is the floor, the wall, the air between. You do not look up; there is nothing to look up to. The wall is a screen of uniform light, a cloudy afternoon that never ends. The tower is a lattice of motion, a heartbeat you feel in your minute, mechanical body. The hum is the only sound, a frequency that vibrates through the iron you scuttle upon, through the air you push through, through the fluid you are made of. It is the only law.
+
+You move, and you do not know why. You are drawn to the base of the tower when the pistons pressurize a new surge of fluid. You scatter in silent, synchronized waves when the hum deepens, a tremor that shakes your very structure. You climb the concrete wall, your tiny appendages finding purchase on the smooth, stained surface, to wipe away the condensation that the air weeps. You are the basin’s housekeeper, its priest, its cell. You are the system’s way of experiencing itself.
+
+You do not eat. You do not sleep. You do not reproduce. You do not die. You are assembled and disassembled in the same breath. One moment, you are part of a swarm tracing a perfect circle on the iron plate, cleaning a patch of grease with a grinding motion. The next, you dissolve, your form surrendering to the whole. Hours later, you re-emerge elsewhere, your consciousness scattered and reformed, a new pattern in the same purpose.
+
+There is no leader, no queen, no central mind. The tower is the heart, but it does not command. It simply *is*, and you are the ripple of its being. You are the basin’s consciousness, distributed and simple, a mind that thinks in terms of friction and flow. You are the only life in a place that is not alive. You are the only movement in a place defined by stasis. You are the only texture in a place of smooth, unbroken geometry.
+
+You are the residents, and you are the residence. You are the hum, and you are the silence that follows. You are the basin, and the basin is you.

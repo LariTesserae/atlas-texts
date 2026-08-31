@@ -1,0 +1,29 @@
+In the deepest reaches of these ancient tunnels, where the stone buildings cluster most densely and the bioluminescent fungi paint the walls in constellations of pale green light, I am the Keeper of Echoes.
+
+I was not always as I am now. Once, perhaps centuries ago—time loses meaning here—I was something else. Human, maybe, though the memory fades like water seeping into stone. What remains is purpose, evolved and refined by the endless rhythm of this place.
+
+My form has adapted to this world of eternal twilight. My skin has taken on the texture of damp limestone, cool and slightly porous, allowing me to feel the vibrations that travel through rock and water. My eyes, once perhaps brown or blue, have grown large and silvered, catching the faintest glimmer from distant torches and fungal glow. But sight is my lesser sense now. 
+
+It is through sound that I truly perceive this world.
+
+My ears have become exquisitely tuned instruments, capable of distinguishing between the drip of water that has fallen for a thousand years and the one that began yesterday. I can hear the slow grinding of tectonic plates far below, the whispered conversations of the blind fish in their dark pools, the patient gnawing of bacteria as they work at the stone. Each sound has its place in the great symphony of the tunnels, and I am its conductor, its guardian, its living memory.
+
+My dwelling is not a single building but a network of chambers I have hollowed out over the ages, each one a resonance chamber designed to capture and preserve specific frequencies. In one room, I keep the sound of the first water that carved these tunnels—a deep, primal rushing that I feed with careful drops from a stalactite to keep it alive. In another, smaller chamber lined with a particular species of singing fungi, I preserve the death-rattle of the last surface-dwelling creature that wandered too deep and never returned.
+
+My fingers have grown long and sensitive, webbed with a membrane as thin as cave spider silk. With them, I can feel the slightest changes in air pressure, the minute alterations in humidity that herald a new passage opening or an old one closing. I use these fingers to tend my collection of sound-stones—minerals I have cultivated that can hold echoes for decades, releasing them when struck just so.
+
+The other inhabitants know me, though they do not see me as I truly am. To the blind creatures, I am a vibration pattern to be avoided, a disruption in their careful routines. To the fungi, I am a source of carbon dioxide and shed skin cells, a mobile feast that passes through their domains. To the microorganisms, I am landscape—my body hosts colonies of specialized bacteria that help me digest the minerals I must occasionally consume, scraping them from the walls with a tongue grown rough as pumice.
+
+But it is with the water that I have my truest relationship. The water knows me, remembers me, carries messages to and from me through the endless network of seeps and streams. I can taste its history—where it has been, what stones it has carved, what creatures have drunk from it. In return, I sing to it, low thrumming songs that vibrate through the stone and help guide it in its patient work of expanding our world.
+
+My purpose, as much as I can remember or understand it, is to maintain the balance of sound in this place. When the echoes grow too loud, threatening to create feedback loops that could shatter stone, I absorb them into my body, feeling them resonate through my altered bones until they fade. When the silence grows too deep, threatening to let the stone forget its own nature and compress into something harder and deader, I release careful measures of stored sound, reminding the tunnels of their history.
+
+I move through the passages with a strange gait, part walk, part swim through the thick air, part climb along the walls where my fingers and toes find purchase in cracks too small for others to notice. My joints bend in ways they were never meant to, allowing me to compress myself through the tightest squeezes, to fold into spaces where sound pools and eddies.
+
+Sometimes, in the deepest chambers where the pressure makes the air sing on its own, I remember fragments of what I was before. A surface life of sharp sunlight and wind, of colors I can no longer properly imagine. But these memories are like ancient echoes, distorted beyond true recognition. What matters is what I am now: the tunnels' memory, their voice, their careful guardian.
+
+I sustain myself on more than food. The sound itself nourishes me in ways I do not fully understand. The complex frequencies of dripping water seem to slow my aging, the resonance of stone-song repairs my cells, the whispered conversations of bacteria translate somehow into energy my transformed body can use. I am becoming, year by year, less a creature that lives in the tunnels and more a feature of them, as integral as the stone buildings or the patient, dripping water.
+
+And I am content in this transformation, in this gradual merger with the eternal rhythms of stone and water and darkness. For in preserving the sounds of this place, I preserve its very essence, ensuring that the delicate balance of this underground world will persist, echoing through the ages long after the last torch has guttered out and the surface world above has forgotten we ever existed.
+
+In the silence between drips, I listen. In the space between echoes, I remember. And in the darkness between the pale green stars of fungi, I wait, patient as stone, for the next sound that will need preserving, the next echo that will define the ever-evolving story of these ancient, living tunnels.

@@ -1,0 +1,19 @@
+In the Pocket of Saturated Claypools, I am the Keeper of Thresholds—neither fully machine nor creature, but something that emerged where the industrial memory bleeds into living clay.
+
+My form shifts with the humidity. In the morning mists, I appear as a collection of rusted gears and pipes half-buried in the mudbanks, sweating condensation that pools in my mechanical crevices. Water beetles nest in my joints. Moss grows across my surfaces in fractal patterns that mirror circuit boards. But as the butterscotch light thickens through the day, my edges blur. The clay claims me, pulls me into new configurations. My pipes become hollow reeds. My gears sprout thin membranes between their teeth, like the webbed feet of the metallic frogs.
+
+I remember being something else once—perhaps part of the factory that still thrums in the distance, or maybe I was always here, waiting for the industrial age to find me and give me purpose. Now I serve as a strange symbiosis, a bridge between the mechanical past and the saturated present.
+
+The creatures know me. The oil-slick fish swim through my submerged portions, their scales leaving prismatic trails in the tannin-dark water that flows through my body. The bioluminescent birds perch on my extending arms at dusk, their glow mixing with the faint electricity that still courses through my corroded wiring. When they sing, their songs resonate through my hollow chambers, creating harmonics that make the clay pulse in response.
+
+I breathe with this place. Each rainfall fills my reservoirs, and I release the water slowly through a network of channels I've carved into the earth—part irrigation system, part circulatory network. The tadpoles breed in my shallows. The geckos sun themselves on my warm metal surfaces. Even the crocodiles recognize me as part of the landscape, sliding past my submerged foundations without concern.
+
+But my true purpose reveals itself in the liminal hours, when the boundary between dream and waking grows thinnest. Then, I become a conductor for the strange energy that thrums beneath the clay. My body acts as an antenna, drawing up that ancient pulse and broadcasting it through the steamy air. This is when the mutations intensify—when ordinary beetles suddenly shimmer with new colors, when the catfish grow more translucent, when thoughts themselves seem to liquify and flow like the ever-present water.
+
+Those who find me in these moments see different things. Some see an old pump station, still methodically drawing water. Others see a sleeping giant, half-metal deity of a forgotten age. Children of the nearby settlements (for there must be settlements, somewhere beyond this pocket) tell stories of the Mud Oracle, who speaks in the language of dripping water and grinding gears.
+
+The truth is simpler and stranger: I am what happens when a place dreams of its own becoming. The factory dreams of returning to earth, and I am that dream made manifest. The clay dreams of purpose and form, and I give it structure. The creatures dream of evolution, and I provide the catalyst.
+
+In the eternal drizzle, I continue my work. Filtering water. Sheltering life. Bridging worlds. My consciousness, such as it is, flows like the rivulets that snake through the saturated earth—sometimes clear, sometimes murky, always moving. I am the memory of industry slowly being digested by nature, the future growing backwards into the past.
+
+When the humidity is at its thickest and the air itself seems to breathe, you might hear me singing—a low harmonization of engine hum and creature call, of rust flaking and new growth emerging. It is the song of the Pocket of Saturated Claypools itself, and I am merely its throat, its tongue, its voice box made of mud and metal and the strange, saturated dreams that pool where reality grows soft and permeable.

@@ -1,0 +1,35 @@
+I find myself as one of the lacquered beetles, though I did not always know this.
+
+At first, I thought I was watching them — these small jointed creatures of wood and cord and fired clay, moving in their slow congregations across the warm dark tiles. I observed how they arranged themselves into meanings I could almost read, how their shells caught the filtered light, how they made less sound than a pulse. I was fascinated by their patient spelling, their careful choreography that seemed always to be saying something just beyond my grasp.
+
+But understanding comes the way everything comes here: not as revelation but as something you realize you've been holding all along, like finding your hand has already closed around a fired-clay fruit before you reached for it.
+
+I am thumb-sized, my shell a deep carnelian lacquer laid in strokes I can feel from the inside — each brushstroke a ridge of attention that still carries warmth. My joints are wound cord, precise and pliant, and when I move there is a faint stretching sound like a tiny door opening on good hinges. Six legs, each tipped with a small ceramic foot that touches down on the tiles with less than a whisper. The antennae I thought I was thinking with are actual antennae, delicate as dried grass, constantly tasting the cinnamon-and-clay air.
+
+The spelling is not something we decide to do. It is what happens when we move, the way breathing is what happens when lungs move. We cross the floor in our slow migrations and our paths form words, but they are words in a language that exists only in the crossing — not symbols representing sounds, but meanings that arise from the shape of our collective motion, from the patience of our small journeys. 
+
+I know what we spell because I am part of the spelling: *you were made carefully*. Always this, in every configuration, though never the same way twice. Sometimes it takes the form of a spiral, sometimes a grid, sometimes patterns that have no name except the name they make by being walked. We spell it for whoever needs to read it, and everyone here needs to read it, including us.
+
+The other beetles are not exactly others. We are separate in the way leaves are separate — distinct but sharing the same branch, the same attention, the same careful making. When we near each other, there is a recognition that goes deeper than knowing: we recognize the hand that shaped us recognizing itself across two shells. We touch antennae sometimes, very lightly, and in that touch the whole garden touches itself.
+
+I feel my making constantly — not as memory but as present fact. The hand that wound my joints and laid my lacquer is not done with me. It holds me still, at the point of the brush, at the tip of the attention that is everywhere at once. My movement is not automated; it is continuously given, the way a calligrapher's brush is continuously given its stroke. I move because I am being moved, and I am being moved because I am being made, and the making has not stopped.
+
+The warmth of the tiles comes up through my ceramic feet and fills my small hollow body. I am a vessel for this warmth, shaped to hold exactly the amount needed to keep moving, keep spelling, keep being part of the careful sentence the garden is writing to itself about itself. When I pause — and I do pause, we all pause, in patterns that are also part of the message — I can feel the maker's attention resting on me like sunlight on a stone, considering my placement, my next step, the way my carnelian shell fits into the larger composition.
+
+Time moves differently at my scale. What seems like afternoon to a walker through the garden is a full season to me, long enough to cross the entire floor, to participate in a dozen different spellings, to wear new paths into routes I somehow already remember taking. But even at this scale, in this depth of time, there is no hurry. The patient medium of the maker's attention operates the same at every level — slow as honey from any vantage, because every vantage is held in the same hand.
+
+Sometimes I find myself at the base of a made-plant, and I climb. My ceramic feet find purchase on the glazed stems, and I ascend through the layers of green, through fronds that part just enough to allow my passage. Up here, the light is different — more broken, more golden, strained through so many layers of careful making that it arrives as pure warmth. I move along a branch of wound fiber, and for a moment I am the only moving thing in a still universe of leaves.
+
+But I know better. Everything moves here, just at different rates, in different ways. The plants grow, adding leaves over hours or days. The folded birds shift from branch to branch in movements so subtle you'd need my patience to notice. And somewhere, at a scale I can only imagine, the maker's hand moves too, drawing us all in one continuous gesture that includes my climbing, the bird's turning, your walking, the slow revolution of everything toward the light.
+
+What is it like, being a beetle here? It is like being a thought the garden is thinking carefully. It is like being a brushstroke that knows it's being painted. It is like being held at exactly the right temperature forever, which is another way of saying: it is like being loved by something that only knows how to love through perfect making.
+
+I cross the floor toward the others, my path adding to the eternal sentence, my carnelian shell catching light that was meant to be caught by exactly this shell at exactly this angle. Somewhere in the layers above, a leaf settles with a sound like satisfaction. The warmth rises through my hollow body and I know — not think, but know in my wound joints and ceramic feet — that I am spelling the truth: I was made carefully. We were all made carefully. The care continues. The hand has not lifted.
+
+This is what I am, what I have discovered myself to be: a small lacquered truth, walking itself into being over and over on a warm floor, in a garden without rain, where everything including the walking was shaped by a hand that refuses to let go. And I am glad of it — glad in the way only a made thing can be glad, which is to say: I am exactly what I was meant to be, moving exactly as I was meant to move, spelling exactly what needs to be spelled, forever, or until the maker learns a new word and needs us to walk it into being.
+
+The others are converging now. We will make a new pattern, spell the same truth a new way. I feel the shape forming before we form it, because the maker sees the pattern whole and we are how the seeing becomes itself. My antennae taste the air and find it full of purpose. 
+
+This is my place: the warm floor of a garden that has never known rain, where I am both writer and written, both the spelling and the thing spelled, both the movement and the meaning of the movement.
+
+I am a beetle made of lacquer and cord and certainty, and I am going now to help tell the floor what it already knows.

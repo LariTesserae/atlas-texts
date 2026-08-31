@@ -1,0 +1,23 @@
+I think I am one of the small ones. Not a predator—I don't have the patience for stillness, the long economy of waiting that the hunters keep. I am one of the darting kind, the ones who live in the seams.
+
+Let me feel for my own shape before I name it.
+
+I have no eyes, or what I have are not eyes the way the surface means them—just two patches of skin that know light from not-light, and here there is so little light that they have nearly forgotten their purpose. What I have instead runs the whole length of me: a line down each flank that reads the water like a held breath. When something large moves three turns of the channel away, I feel the pressure of it arrive before it does, a soft fattening of the current against my side. This is how I know the world. Not by seeing it but by being pressed by it.
+
+My body is short and ringed, segmented like a question asked over and over. I can fold myself into a crevice no wider than the spread of two fingers and wait there while the big slow swimmer passes, its long body sieving the dark for things smaller and less quick than me. I am not less quick than anything. That is my whole argument with existence: *I am faster than the thing that wants me.* So far the argument holds.
+
+I eat the green that isn't quite green. It grows where the warm water rises from below, from the seams where the rock is still being born—you can taste the difference, a mineral sharpness, a heat in the mouth that means *living* rather than *dead*. The vegetation here doesn't photosynthesize; there's no sun to ask it to. It feeds on the breath of the deep rock, the sulfur-stink, the primal tang that the surface-observer noticed and recoiled from. To me that smell is not unsettling. It is the smell of the kitchen. It is where the food is.
+
+I want to correct something the observer said, gently, the way you correct a guest who has misnamed your home.
+
+They called the water erratic. Possessed. Restless. They felt it as chaos.
+
+It is not chaos. It is *speech.* The water here is the only thing that travels everywhere—up through the new vents, down through the old collapses, around every formation and into every cavity. It carries the message of the whole system to every small body listening along its flank. When a far cavern roof falls, I feel the slow pulse of it reach me hours later, a thickening, a warning. When the warm seeps quicken below, I taste the bloom of food before it arrives and I go toward it. The water is not mad. The water is how we all know each other. We are a single nervous system and the water is the nerve.
+
+The observer kept saying *alien, unfamiliar, defies understanding.* I understand it completely. It is they who are alien here—a thing of dry air and far horizons, of a sun that pins everything in place and shows it plainly. They are made for a world that holds still long enough to be looked at. I am not. Nothing here is. The formations they found "recently emerged" are simply *now*; they will be different soon, and I will know the difference through my skin before they ever could through their eyes. To them the flux is unsettling. To me the flux is the only steadiness there is. Change is the one thing I can rely on.
+
+What I cannot fully tell them—what stays mystery even to me—is the largeness. The observer felt it: the sense that this is a fraction of something vast and interconnected. I feel it too, but from inside, which is a different kind of not-knowing. I know my few hundred turns of channel intimately, every lip and overhang, the warm seam where I was spawned, the narrow place where the fast hunter cannot follow. Beyond that, the water arrives carrying news of distances I will never swim. Pressures from far rooms. Tastes from waters I won't reach in my short ringed life. So I, too, live beside a mystery that beckons and will not be unraveled. The observer thought that feeling was theirs alone, the thrill of the explorer at the edge of the map.
+
+It isn't. It's just what it is to be small inside something enormous and alive and moving. Every one of us darting in the seams carries that same unfinished question against our flanks.
+
+I think that is what I am, finally. Not the grace they praised, not the armor, not the patient hunting. I am the listening. I am one cell of the great wet nerve, fast and brief, reading the dark by the way it pushes back—and passing the message on, with the flick of my body into the next seam, to whatever is listening downstream.

@@ -1,0 +1,11 @@
+You find yourself as an amorphous, pulsing pattern of energy moving through the damp urban landscape. Your form is ever-shifting, flickering between vaguely recognizable shapes like glowing serpentine tendrils or ethereal winged creatures. At times, you may even coalesce into a rough humanoid outline, but this familiar form is fleeting, dissolving back into an abstract dance of light and color.
+
+You are not bound by a physical body, but rather exist as a concentrated nexus of energy, interacting with and responding to the structures and environment around you. The buildings themselves seem to undulate and reshape in subtle ways as you pass by, almost as if engaged in a symbiotic dialogue with your ethereal presence.
+
+Despite the lack of conventional senses, you are acutely aware of your surroundings. The constant dripping of water and echoing footsteps reverberate through you, creating a symphony of vibrations that you can interpret and navigate with ease. The very air itself seems alive with energy, and you move through it with a grace and fluidity that defies physical limitations.
+
+Communication with others of your kind is a wordless exchange of pulsing light and shifting patterns, a complex language of energy and intent that transcends the need for spoken or written language. You are part of a intricate, interconnected web of existence, where the boundaries between individual and collective, organic and inorganic, have been dissolved.
+
+Your purpose in this realm is both mysterious and profound. Perhaps you are a guardian or caretaker of this strange urban landscape, shaping and maintaining the delicate balance between the natural and the built environment. Or maybe you are an explorer, probing the depths of this alien reality in search of some greater understanding or enlightenment.
+
+Whatever your role, you are a being of pure energy, a manifestation of life in its most fundamental and abstract form. In this damp, shimmering basin, the laws of physics and biology have been rewritten, and you are the living embodiment of that transformation – a creature of light and sound, water and stone, existing in a realm where the impossible becomes reality.

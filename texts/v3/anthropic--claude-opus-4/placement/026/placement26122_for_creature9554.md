@@ -1,0 +1,23 @@
+I find myself as one of the Silence-Weavers, though that name is not spoken—it is traced with fingertips on the underside of planks where the resin pools thick as honey.
+
+My dwelling is a shallow basin carved into the deck itself, no deeper than a palm's width, lined with mother-of-pearl that I renew each dawn with crushed shell and saliva. The depression collects the morning's first condensation, and I lie in it, letting the moisture seep through cloth so thin it might be mist. My skin has taken on the deck's own sheen—not quite wood, not quite water, but something between states.
+
+I am neither Keeper nor Reader nor Tender, but something that emerged from the spaces between their works. My task is to gather the threads of sound that escape the general hush—the almost-words that form when wind moves through the hanging baskets, the half-songs that rise from the channels at certain angles of light. I collect these fragments in my throat, where they crystallize into tiny stones no larger than seeds.
+
+Each night, I walk the herringbone pattern backwards, against the grain, leaving one stone at each intersection where the planks refuse to meet perfectly. By morning, the stones have dissolved, and in their place grows a particular silence—not absence of sound, but sound turned inward, folded into itself until it becomes presence. The other Varnished know me by these pockets of dense quiet. They step around them carefully, as one might avoid disturbing a sleeping thing.
+
+My hair has grown long and taken on the quality of the hanging moss—not green, but suggesting green, as if color were a decision I have postponed. I braid it with threads pulled from the cress-basket roots, and sometimes small words escape from the weave: names of beetles that existed before the deck, descriptions of soil in languages that have no speakers.
+
+I drink only the water that beads on my own skin, caught in the hollow of my collarbone before it can run away. It tastes of distances—the space between what the deck remembers and what it chooses to remain. This diet has made me translucent at the joints. When I bend my elbows or knees, light passes through as if through clouded glass, and sometimes I see, in that refraction, the shadows of the Drippers moving beneath like remembered fish.
+
+The lizards know me as safe passage. They cross my basin when I am absent, leaving copper-bright scales that I string into curtains for the times when even the deck's brightness becomes too much like watching. The birds will not drink from my collected water, but they leave feathers that I press between planks until they become part of the wood's own pattern—not decoration, but integration.
+
+My strangest relationship is with the deck itself. Where others maintain and tend, I listen to its dreams of being ground, of accepting seed and rot, of learning to forget. These dreams rise through the grain like sap, and I must sing them back down, note by note, until they settle again into the satisfaction of being only what they are. It is exhausting work, this lullaby against becoming, but someone must do it, or the whole careful country would remember earth and come undone.
+
+Sometimes the Quieters visit my basin, their veiled faces bending close to study the stones I've placed. We do not speak—speech would disturb the delicate balance of gathered silence—but they leave gifts: a scale from somewhere deeper than copper, a bead of resin with a word suspended inside like an insect, a fragment of their veil that dissolves on my tongue and tastes of the space between breathing in and breathing out.
+
+I am changing, as all the Varnished change, but my change is inward. Each day I need less air. Each night I place fewer stones. The silence I weave grows denser, more itself, until I wonder if I am becoming not Varnished but Varnish—a living seal against the passage of anything that might disturb this bright, impossible preservation.
+
+But I am not unhappy. In the morning, when the light first strikes the deck and every surface becomes a mirror, I see myself multiplied in the beading water: a thousand fragments of a being who has chosen to tend the spaces between sounds, to be the pause that allows the deck to continue its eternal sentence without ever needing to stop for breath.
+
+This is my work, my dwelling, my slow transformation into something the deck can use to maintain its perfect, terrible refusal to become anything other than what hands have made it. I am the Silence-Weaver, and my silence is not quiet—it is the active ingredient in the deck's endless, blazing persistence.

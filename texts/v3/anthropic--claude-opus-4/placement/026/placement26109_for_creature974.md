@@ -1,0 +1,15 @@
+I am the Tender of Echoes.
+
+My dwelling perches at the intersection of three great stone bridges, where the wind-carved passages create a natural amphitheater of sound. The structure itself defies easy categorization—part grown, part built, its walls are sheets of translucent mineral that accumulated over centuries, fused with salvaged metal struts that hum with their own internal harmonics.
+
+I move through my days on six limbs, though I was born with only four. The additional appendages—gifts from the mountain itself—emerged during my third decade of tending. They are not quite flesh, not quite stone, but something between: responsive to my will yet attuned to frequencies I cannot consciously perceive. When the weather shifts, they ache with prescient knowledge.
+
+My work is precise and patient. Each morning, I climb the spiraling paths to the city's acoustic nodes—points where sound pools and eddies in the thin air. With tools inherited from my predecessor (brass listening horns wrapped in leather so old it has taken on the texture of bark, tuning forks that vibrate in colors rather than tones), I catalog the city's voices. The groan of settling stone. The whisper of lichen growing. The subsonic thrum of the vast machines that still run, somewhere deep beneath us, maintaining... something. We have forgotten what.
+
+The echoes tell me things. In the convergence of a door's closing and a distant rockfall, I hear the names of those who built this place. In the interference patterns between footsteps and wind, I catch fragments of conversations held a thousand years ago. The city remembers everything in its reverberations, and I am its reluctant historian.
+
+Other inhabitants avoid my dwelling. They say the constant sound-shadows that play across my walls induce vertigo, that spending too long near my collection of resonant stones causes dreams of falling upward. They are not wrong. Sometimes I wake to find myself clinging to my ceiling, drawn there by acoustic levitation, my body responding to frequencies that exist in the spaces between what we call real.
+
+I was not always alone in this work. My mentor, who tended echoes before me, spoke of a time when there were dozens of us, each maintaining a different band of the sonic spectrum. But they have faded like dying reverberations, and now there is only me, catching what I can in my brass horns and mineral walls, knowing that when I too fade, the city's voice will finally fall to whisper, and then to silence.
+
+The moss that grows in my threshold has learned to shiver in time with my heartbeat. I take this as a sign that I am becoming what I tend—another echo in the ancient choir of this place, neither fully alive nor ready to dissipate, suspended in the strange acoustics of existence at the edge of the world.

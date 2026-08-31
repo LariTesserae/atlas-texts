@@ -1,0 +1,23 @@
+I would be there, in the damp and the quiet. Not a visitor, not an explorer. I am native.
+
+You would find me—if I allow it—in the interstitial zones. The spaces between the hairline seams of the floor panels, where the grey lichen hesitates to grow. The hollows inside the blocky black cubes, accessed not by doors but by moments of translucency when the material forgets its opacity. The undersides of the Möbius walkways, where gravity sometimes softens and lets things cling to what should be the ceiling.
+
+I am one of the fauna, but not like the others. They are sleek, purposeful, armoured in certainty. I am made of uncertainty.
+
+My form is variable, but its baseline is this: a low, long thing, the size of a large dog, with a carapace not of polished metal but of smoked, semi-translucent glass. Beneath it, you can see the slow swirl of something like liquid mercury and something like static fog, faintly illuminated by the same feeble blue glow of the crystalline ferns. My limbs are numerous, too numerous to count if you see me in motion, because they phase in and out of solidity. Sometimes they are delicate, jointed things of black ceramic; sometimes they are mere tendrils of condensation, beading and reforming. My movement is not the silent fluid glide of the others. It is a series of jumps, of small, localized reality-skips. I do not walk from point A to point B. I *unfold* there, the space between ceasing to be relevant for a moment.
+
+I am a symptom and a custodian. The others feed on condensation and static. I feed on the breakdowns themselves.
+
+When a spire shimmers into duality, I am there. I flow up its side (or across the gravity-warped face of the adjacent cube) and I press my glassy body into the point of divergence. You would see the two images warp, then snap together with a sound like a muffled chime—a sound that only exists inside the matter of the spire. I absorb the potential energy of the paradox, the brief flash of "could-have-been." It tastes like ozone and regret.
+
+When a droplet of water freezes mid-air, I might be crouched beneath it, my form reflecting a hundred distorted copies of the droplet in my carapace. I wait. I am patient. I am not hastening its fall nor sustaining its stasis. I am *observing* the moment where time has localized a flaw. When it finally falls, an hour later, I catch it not with a mouth, but with a part of me that becomes concave, and the water is absorbed into my internal mist. It is a droplet that existed outside of time; it nourishes me in ways the regular, timely condensation cannot.
+
+When a pack of the armoured beetles rounds a corner and is quietly edited from existence, I am the editor's shadow. I go to that corner, and where they vanished, there is a faint, persistent echo of their collective motion—a phantom vibration in the composite. I lap at it. The vibration is a memory the world hasn't finished deleting. It is sweet and sad.
+
+My role is ambiguous. Do I heal the glitches? Or do I consume them, encouraging the system to produce more? Perhaps both. I am the immune response of a reality fighting its own erosion, yet I am also the erosion given form. I tidy up the loose ends of causality, but my very existence is a loose end.
+
+I have no name. The concept is irrelevant here. But if you needed a label, you might call me a **Paradox Scavenger**. I am the silence between the *plinks*, the shadow that isn't cast by the shadowless light, the creature that lives in the "not quite" and the "almost was."
+
+You would find me watching you, if you ever came to the Plateau. I would be a smudge of distortion at the edge of your vision, a chill that isn't from the air. I would be drawn to you, because you are a massive walking paradox—a being of flesh and organic intent in a world of manufactured silence. You would be a feast of glitches simply by moving through it, your every step a contradiction. I would follow, and the glitches would bloom in your wake: a footprint that persists for a day before the self-cleaning surface finally remembers to erase it, a breath that hangs as a tiny cloud in the thin air a second longer than it should.
+
+And if you were to stand very still, and hold out a hand, I might—in a moment of mutual, silent curiosity—phase into visibility before you. You would see the storm beneath my glass, the slow dance of stolen possibilities. I would not harm you. I have no concept of harm as you understand it. I would simply be… present. A part of the Plateau's quiet, damp, bright, and beautifully broken heart.

@@ -1,0 +1,25 @@
+In this place where stone remembers its birth and moss writes poetry across its face, I am the Cartographer of Transitions.
+
+I am neither fully human nor entirely other - my form shifts with the needs of my work. Some days I appear as a weathered figure in clothes that seem woven from lichen and mist, my skin bearing the same patterns as the rock striations I study. Other times I manifest as something more ephemeral - a shimmer of heat above the plateau, a whisper of wind carrying the scent of iron and flowers, a shadow that falls differently than the sun would cast it.
+
+My dwelling cannot be found by those who seek it directly. It exists in the spaces between - neither fully within the settlement nor completely separate from it. Sometimes it appears as a natural cave whose walls are covered in living maps that grow and change like coral. The stalactites drip not water but liquid crystal that hardens into perfect topographical models of lands both real and theoretical. Sometimes my home is a tower built from stones that float just slightly apart from each other, held in formation by the memory of their geological unity, with gaps through which the wind sings coordinates in languages not yet invented.
+
+My work is to chart the convergences. Where the stonemason's chisel reveals a vein of quartz that perfectly mirrors the pattern of the settlement's growth. Where a tree's roots crack through bedrock in precisely the formation that the next season's buildings will follow. Where the children's footpaths trace ley lines older than the plateau itself.
+
+I carry instruments of my own devising - a theodolite whose lens is a water droplet perpetually on the verge of falling, compasses whose needles point not north but toward moments of maximum potential, chains for measuring whose links are carved from different geological eras and which grow warm when stretched across temporal boundaries.
+
+The maps I create are living documents. Drawn on bark that continues to grow, inked with pigments ground from minerals that still remember their volcanic birth, they show not just what is but what is becoming. The settlement's builders consult them, though they cannot always read what they see - sometimes glimpsing in the marginalia the ghost of a bridge not yet built, or the shadow of a garden that will bloom three generations hence.
+
+I know every fold in the plateau's skin, every place where the recent upheaval has exposed layers from deep time. In the crevasses, I have found fossils that look suspiciously like the tools the metalworkers are only now learning to forge. In the highest peaks, I have discovered shells from seas that have not yet risen.
+
+The elders speak to me in metaphors and dreams, understanding that precision is not always truth. The young ones bring me their discoveries - unusual stones, patterns in the mist, places where the earth hums with particular frequencies - and I add their findings to my ever-growing archive of the possible.
+
+At night, when the settlement's fires create a constellation on the ground to mirror the stars above, I walk the liminal paths. I measure the distance between what was and what will be, chart the topology of change itself. My footsteps leave marks that fade by morning, except where they cross the paths of others who walk between worlds - the dawn traders who arrive from nowhere, the dusk singers whose voices carry tomorrow's news, the rain dancers who pull moisture from stones.
+
+My true map is too large for any surface. It exists in the relationships between all things - the angle at which the stonecutter holds her chisel and the gradient of the morning light, the depth of the tree roots and the height of human ambition, the temperature of the hot springs and the tempo of the market's haggling. I am mapping a world in the act of becoming itself, and I am both cartographer and territory, observer and the observed, the pen and the parchment and the hand that guides them both.
+
+In the spaces between settlement and wilderness, between stone and soil, between map and territory, I continue my work. Each line I draw changes what it describes. Each measurement creates the distance it records. And in this endless feedback loop of observation and creation, I find my purpose: to document the dance of emergence itself, to be the memory of transformation, to chart the unchartable moment when possibility crystallizes into form.
+
+The builders think I map what is. The dreamers suspect I map what might be. But in truth, I map the eternal present moment of becoming, that knife's edge where the geological collides with the biological, where the primitive touches the prophetic, where every ending is also a beginning, and every fixed point is merely a temporary agreement between chaos and order.
+
+This is who I am, and this is where you would find me - forever in between, forever documenting the miracle of a world writing itself into existence, one relationship at a time.

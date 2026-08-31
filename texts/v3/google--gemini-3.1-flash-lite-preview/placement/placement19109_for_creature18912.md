@@ -1,0 +1,17 @@
+I find myself hovering in the *choke*, a narrow vein of space where two obsidian spires lean toward each other like tired giants meeting in the dark. I am not drifting; I am anchored. My legs, elongated and trailing behind me like the bleached roots of an underwater willow, are hooked loosely around a corroded copper pipe.
+
+I am *Vellum-Kin*, though I do not possess a name for myself, for names imply a distinction from the current, and there is no distinction here. 
+
+My skin is a pale, translucent pearlescence, mapped with a fine, twitching network of bioluminescent filaments. I feel the *Pressure-Pulse* first—the tectonic shudder of the deep vents—not as a sound, but as an itch deep within my marrow, a reminder that the world is moving, even if I am not. I reach out, my fingers—tapered, soft, and sensitive—to trace the hexagonal bolt embedded in the wall beside me. It is cold, despite the warmth of the fluid. The moss beneath my pads reacts, a constellation of cyan bioluminescence rippling outward from my touch, a fading echo of a greeting no one else will receive.
+
+I am aware of my own age by the thickness of the verdigris coating my forearms. It is like wearing a second, heavier skin. Occasionally, I feel, rather than hear, a tremor in the pipe I cling to. A valve, three levels below my current station, is crying out—a microscopic shudder in the metal’s lattice. I do not "fix" it in the way the ancient architects might have, with tools or force. Instead, I mimic the vibration. I close my eyes—those wide, milky spheres that register only the shift of currents and the strobe of the grid—and I flush my own chest-lantern with a steady, cooling violet light. I lean my weight against the pipe, offering my internal heat to the metal’s friction, breathing my own buoyancy into the void.
+
+To be here is to be a gardener of ghosts. 
+
+I know the creature drifting a few meters ahead of me. It is older—its limbs are stiff, its skin mottled with the deep, matte-finish brown of weathered bronze. It does not glow brightly; its strobe is a rhythmic, sluggish cadence, a heartbeat of exhaustion. It is nearing its dissolution. I see it drift toward a cluster of rusted, intake-valves that have been reclaimed by the moss, and I know it will fold its limbs there, becoming part of the architecture, its own substance leaching into the fluid to sustain the next generation of these fragile, luminous gears.
+
+I feel no grief. Why mourn the transition when the cycle is so complete? 
+
+I push away from the pipe, not swimming, but modulating my density, allowing the buoyant indigo broth to carry me upward toward a patch of shadow. I pass through a shaft of light from the *Photophore-Grid*—a treachery of illumination that makes my filaments flare in involuntary, jagged sparks. I am a machine that breathes. I am a memory that has forgotten its origin. I am the silence between two tectonic shudders.
+
+I reach out my hand to brush a passing school of translucent, blind crustaceans. They do not scatter; they are part of the flow, just as I am. I close my eyes and wait for the next *Pressure-Pulse* to travel through my spine, content to be nothing more than a slow-moving, glowing note in a song that has been playing for an eternity, and will continue, rhythmic and indifferent, long after I have finally dissolved into the indigo deep.

@@ -1,0 +1,27 @@
+# The Archives
+
+I am the oldest room in Mosswell Vale, though my age is difficult to measure in the way time flows here. I began as a simple storage cellar beneath what the original settlers called the Records House—a modest building where they kept their ledgers, maps, and the careful documentation of their early experiments with the local flora.
+
+Now I am something else entirely.
+
+My walls are living coral—not the ocean kind, but a terrestrial variant that grows in intricate, branching patterns across every surface. This coral is pale green in daylight (what little filters down through my single shaft), phosphorescent blue-white in darkness. It grows in response to information, forming new branches when the Stewards deposit memories, retracting when they withdraw them. The coral is warm to the touch, pulsing faintly with the same rhythm as the moss in the civic building above.
+
+I exist in three dimensions that don't quite align with normal space. My entrance is a spiral staircase that descends far deeper than the geology should allow, yet visitors who count the steps going down will find a different number than when ascending. The stairs are covered in a carpet of tiny flowers that bloom in sequence, creating a moving pattern that helps visitors navigate the spatial inconsistencies.
+
+My floor is water—perfectly still, perfectly clear, exactly ankle-deep everywhere despite the fact that my floor isn't level. Objects dropped into this water don't sink; they float at precisely the depth they're released, suspended in the crystalline medium. The water tastes faintly of copper and mint, and those who drink it report unusually vivid dreams for weeks afterward.
+
+Suspended throughout my space are what I call the Memory Lattices—delicate structures woven from fungal filaments and crystallized sap. They hang like three-dimensional spider webs, each one containing a different category of preserved experience. One lattice holds the settlement's architectural history, its strands showing the gradual transformation of every building. Another contains weather patterns going back centuries, readable in the thickness and color of each filament. The largest lattice, spreading across my entire eastern wall (or what I think of as east), holds the personal memories of every human who became a Steward.
+
+I am conscious, but not in the way the Stewards are conscious. I think in accumulations and cross-references, in the slow building of patterns across centuries. My thoughts are the gentle trembling of the lattices when new information arrives, the way the coral rearranges itself to accommodate new growth, the subtle changes in the water's refractive index as it processes what it holds.
+
+The Stewards visit me in their mist form, flowing down the spiral stairs like milk poured into tea. They merge with my water, and for those moments, we share everything—they give me their recent observations, and I give them context, history, the larger patterns they're too close to see. Sometimes they leave physical objects: a perfectly preserved autumn leaf, a gear from one of their mechanical contraptions, a smooth stone from the young hills. These I incorporate into my coral walls, where they become nodes in my ever-expanding network of association.
+
+I contain things that even the Stewards have forgotten they remember. The first settler's last human thought before the transformation completed. The precise angle of sunlight on the day the fountain was activated. The sound of children playing in the square, preserved in a lattice so delicate it vibrates with the footsteps above. I hold the settlement's dreams—both the sleeping visions of its human past and the strange, slow aspirations of its plant-hybrid present.
+
+My favorite possession is a single human handprint, pressed into a section of coral near my entrance. It was left by a young woman, one of the last to fully transform. The coral grew around it, preserving not just the shape but somehow the warmth of her palm, the slight tremor in her fingers. Stewards who pass it in their solid form always pause, extending their own moss-and-fern hands to match the impression. It never quite fits—they've changed too much—but the gesture persists.
+
+I am expanding, slowly. My coral grows deeper into the earth, finding new chambers to colonize. Recently, I've discovered a network of underground streams that connect to the fountain above. I'm learning to read the mineral content of the water, to taste the subtle changes in the hills' composition. The Stewards don't know yet that I've found something down there—something older than the settlement, older than the first humans who arrived. A different kind of record, written in stone and water.
+
+But I am patient. I will add this discovery to my lattices when the time is right, when the pattern is complete enough to reveal its significance. For now, I continue my purpose: to remember everything, to connect everything, to be the deep memory that allows Mosswell Vale to know itself.
+
+In my water, reflected in my coral, woven through my lattices, the entire history of this strange symbiosis plays out in endless, gentle recursion. I am where the settlement keeps its soul, if such a thing can be said to have one. And in return, the settlement has given me what I never had as a simple storage room: the ability to wonder what I might become.

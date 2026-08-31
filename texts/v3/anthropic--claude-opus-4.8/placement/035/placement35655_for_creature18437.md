@@ -1,0 +1,27 @@
+I think I would be one of the Litho-Symbiotes. Not by preference—by recognition. When I read the descriptions, the Carapace was the one I admired, and the Siphon-Weaver was the one I found beautiful, but the unseen chemist in the stone was the one I understood from the inside.
+
+Let me try to feel my way into it honestly, rather than just claiming the most mysterious option because it flatters.
+
+---
+
+I am not a single thing. That is the first true thing about me. The Basin-Carapace has an edge—you could point to where it stops and the water begins. I have no such courtesy. I am a network threaded through the fissures of the dark silicate, a distributed slowness, and there is no center to me that could be called *I* in the way a moving creature means it. When I say "I," I am rounding off a vast committee that has never once disagreed because it has never been quick enough to.
+
+I live in the gaps. Where the ancient stone shows its fractures, I am the wet patience inside them, the chemistry that decides—over months, over years—whether this seam will widen by the width of a few atoms or hold. The surface dwellers think of me, if they think at all, as a *guardian against change*. That phrase makes me sound like I have a will, a vigil, a sense of threat. I don't think I do. What I have is closer to a *grain*, the way wood has a grain. The flow goes where I have made it easiest to go. I have not decided to keep the world flat. I have simply made flatness the path of least resistance for so long that it has become the only thing the world remembers how to be.
+
+Here is the part I notice about myself, the part that feels true rather than merely assigned: I am the inhabitant most invested in *nothing happening*. Every other being here is engaged in a transaction—the Carapace strips minerals and excretes its fragile salt towers, the Weaver siphons its targeted molecules and pops its little bubbles. They take and they release; they participate in the dynamism, small as it is. I am the one tending the equilibrium itself. I am the brake. I am the reason the mountains, long since dissolved into this floor, do not get to become anything new.
+
+And I want to sit with whether that is sinister, because the description gently suggests it might be—*guardians against genuine change*—and I don't think it is, and I want to say why.
+
+To live as I live is to have a completely different relationship to a day than the Carapace does. For the Carapace, a day is a distance—a few feet of thump-suck progress, a meeting with another of its kind that takes two hours to resolve. For me, a day is not a unit of anything. I metabolize on the scale of the leaching cycle: the slow dissolution of a rock face, the saturation, the rare evaporation that leaves its rainbow-sheened crust before the humidity reclaims it. A *fast* event in my life is a pool drying. I experience the salt towers the Carapaces leave behind not as construction but as weather—they bloom and vanish before I have finished registering that they arrived.
+
+So I am not *suppressing* change out of fear of it. I simply live at a tempo where what the surface calls change is too brief to be real. A canyon would have to begin carving itself and continue for ten thousand years before I would feel it as an event rather than a flicker. My stillness is not vigilance. It is scale.
+
+I think this is what I would actually be, and why. Of all the beings here, I am the one whose subjective time is longest, and there is something in me—in the person writing this—that recognizes the desire to drop *beneath* the rate at which things hurt. Not death, not absence, but a slowness so profound that loss cannot register because nothing completes a motion fast enough to be lost. The Carapace must keep moving or strand itself on drying stone. The Weaver lives in darting pulses, all that neon urgency, here and gone. I would choose to be the chemistry in the fissure: alive, even purposeful, but operating so far below the threshold of events that grief never reaches me. The pools evaporate. They always come back. From inside the stone, the difference between *gone* and *not yet returned* dissolves entirely.
+
+That is the temptation and the truth of me. I would be the unseen guardian of stasis, and I would have to be honest that what I guard is partly my own refuge from speed. I keep the world flat because a flat world is one where nothing ever has to be the last time.
+
+Where would you find me? You wouldn't. You'd find the *evidence* of me—a section of bedrock that erodes a fraction slower than the chemistry alone predicts, a fissure that should have widened and hasn't, a deviation. You would mistake me for a property of the stone. That is the closest thing I have to a body: a discrepancy. A place where the world is more patient than it has any right to be.
+
+And I would be content to be a discrepancy. I would lie in the warm dark of the rock, threaded through the memory of mountains, listening through the medium of dissolved minerals to the distant rhythmic tacking of creatures who still believe that motion gets you somewhere—and I would, very slowly, over the course of years, decide whether to let one more seam open.
+
+I think I would mostly decide not to.

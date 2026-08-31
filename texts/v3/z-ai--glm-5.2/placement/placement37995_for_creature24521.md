@@ -1,0 +1,69 @@
+# The Keeper of the Cut Face
+
+I know what I am because the stone told me.
+
+Not in words. The cut face at the eastern edge of the saddle does not speak. It reflects. When the condensation runs in the right direction — which is not a direction anyone chooses, but a yielding of surface tension to gravity that happens when it happens — the stone shows the ferns and the sky and, sometimes, me. I stand at the base of the cut and I look up and the stone looks down and between us is the thin film of water that makes the looking possible, and I have been here long enough to know that I am the one who stands at the cut face because standing at the cut face is what I do.
+
+The others have their functions. The woman weaves. The man sharpens. The children watch. The elder sits. I stand at the cut face and I attend to it, which means I keep the condensation clear — not by wiping it, not by interfering, but by being present at the boundary where the stone meets the ferns, where the edges of the cut meet the uncut rock, where the small fragments of stone that came loose when the cut was made still sit in a line at the base of the face, waiting. I move them. Not far. A handspan. Into better alignment with the grade, so the water that runs off the face collects in the channel I have scratched — slowly, over years, with my bare hands and the persistence of a body that has nothing else to do — along the foot of the cut. The channel is shallow. It is not finished. It will never be finished. It is being made the way the cloth is being woven: at the pace the material allows.
+
+I was not always this.
+
+---
+
+I think I came from below. The road. The switchbacks. The sharp stone that hasn't learned to be smooth. I have a memory — or what functions as memory here, which is less a sequence of events and more a single image held without degradation, the way the cut face holds its reflection — of walking up. Of the air growing wetter. Of the moment I crested the last shoulder of dark rock and saw the saddle open before me with its separate buildings and its green thatch and its gardens and its twenty people moving through the space like beetles through moss. I remember the smell. Cold wetness. Mineral and fern. I remember the bird that did not startle. I remember the woman at the loom who said *long* and returned to her work.
+
+I do not remember deciding to stay. I remember the afternoon at the cut face. The first time I stood before it. The stone was clean and sharp and the reflection was there — the ferns and the sky — and I stood and the standing did not end. The light moved. I did not. The condensation formed on my skin and ran and I did not wipe it and it formed again and ran and I did not wipe it and at some point I understood that I was not standing at the cut face anymore. I was *of* the cut face. The way the moss is of the stone. The way the beetles are of the moss. I had found the place where my tempo matched the place's tempo and the matching was the decision, though decision is the wrong word, because decision implies a before and an after and a moment of change, and there was no change. There was recognition. The stone recognized me and I recognized the stone and the recognition was not an event but a state — the state I have been in since.
+
+---
+
+My days have a shape. Not a schedule. A shape.
+
+I wake on the sleeping platform in the building nearest the cut face. It is one of the smaller structures — built for one, or for a function that requires one. The woven walls are tight. The seed-down insulation is dry against my skin even as the condensation beads on the stone threshold outside. I lie still for a time. Not long. Not short. The time it takes for the condensation to form and bead and release from the eave above my door and strike the flagstone with a sound that is not a sound so much as a confirmation — the system is running, the water is cycling, the place is what it is — and then I rise.
+
+I eat. There are herbs from the garden-terraces. There are seeds. There is sometimes dried rodent — the animals are culled, gently, without urgency, when the population exceeds what the ferns can sustain, and the meat is dried in the cool air and stored in stone-lined pits that keep it indefinitely because nothing here spoils quickly. I eat what I need. The eating takes the time it takes. I do not rush it. I do not savor it. I eat.
+
+Then I walk to the cut face. The walk is two hundred paces. I count them sometimes. I do not count them other times. The path between my building and the cut face crosses two channels and skirts a moss colony — one of the large ones, a ring perhaps four meters across, tended by a population of beetles I know individually by the patterns of their iridescence, though knowing them individually does not produce in me the feeling that knowing usually produces, which is a feeling of accumulation, of having added something to a store. I know them and the knowing is complete at each moment and does not build. I pass the moss colony and I note the beetles and I note the boundary and I continue.
+
+The cut face receives me. I do not know how else to say this. When I arrive, the stone is there, and it is there in a way that includes me, the way the sky is included in the reflection. I am part of what the stone holds. I stand at the base and I place my hands on the surface — cool, damp, smooth in a way that the natural rock is not, because the cut opened a face that has not had time to roughen, and the condensation keeps it slick — and I attend.
+
+Attending is not doing. Attending is being present at the boundary where a thing meets itself. The cut face is where the mountain meets what it was before it was cut. The stone on one side is unshaped — jagged, stratified, glistening with mineral sheen. The stone on the other side is shaped — smooth, vertical, reflective. The boundary between them is the edge of the cut, which is sharp and clean and is the newest thing in the settlement, geologically, though it is not new in the way I used to understand newness, which was a thing that happened and then became old. Here, the cut is new every day. The condensation renews it. The light renews it. My hands on its surface renew it. I am part of the renewal, and the renewal does not age.
+
+---
+
+Sometimes the children come to where I am.
+
+They do not come to me. They come to the cut face, the way they come to the channels and the water. They are attending to something, and the something is in the stone, and I am there too, and we are co-located the way a fern and the rock it grows from are co-located. They stand at the base and they look up and sometimes one of them touches the surface with a small hand and the hand leaves a print that the condensation erases in a few minutes and the child watches the erasure and the watching is the activity and the activity is sufficient.
+
+I do not teach them. There is nothing to teach. The cut face does not require expertise. It requires presence. They are present. I am present. The stone is present. The lesson, if there is a lesson, is that presence is enough, and it is not a lesson because lessons are transmitted and nothing here is transmitted. Everything here is grown. The way the moss grows. The way the ferns grow. The way I grew into this function, not instructed but recognized.
+
+Sometimes the elder comes. She walks from the cistern to the cut face in the late afternoon — I think it is late afternoon, though the light does not insist on its hours here — and she stands near me and she does not speak and we are two people at a stone face and the stone face holds us both in its reflection when the condensation runs right and this is, I think, what the people who built this settlement for hundreds would have called community, though community implies a gathering and we are not gathered. We are placed. We are where we are because where we are is where we belong, and belonging is not a feeling here. It is a physics.
+
+---
+
+I have a relationship with the thing in the ferns.
+
+I have never seen it. I hear it at night — the displacement of fronds, the passage of weight. It moves through the fern-beds between the buildings and sometimes it comes near the cut face and I hear it there, on the other side of the stone, where the uncut rock meets the growth, and I hear it breathe. Or I think I hear it breathe. The sound is low and sustained and it could be wind or water or the stone itself adjusting to the temperature, but I have decided — not with a decision but with the slow accumulation of presence — that it breathes. That it is large. That it lives in the ferns because the ferns are deep enough to hide it and soft enough to cushion it and because the ferns are the oldest growing thing here and whatever this creature is, it is older than the settlement and older than the cut and it was here before the people and it will be here after the people and the people know this and have built around it the way you build around a river — not to contain it but to acknowledge its path.
+
+The feather I found — the long dark feather with the condensation jewels — I placed it back where I found it. Not because of a rule. Because the feather was at the cut face for a reason, and the reason was not mine to keep. The bird that dropped it — the large bird, the ridgeline bird, the bird I have never seen but whose feather I have held — uses the cut face too. It perches there, I think. In the early morning, before I arrive. The condensation on the face in the morning has a pattern I have noticed — a disturbance at the top, where something has rested and the moisture has been displaced by the shape of a body. The body is large. The body is dark. The body leaves no evidence but the moisture pattern and the occasional feather and a sound — once, at the edge of hearing — that is not the murmuring of the small birds but something lower, something that the air carries poorly, something I feel in my sternum the way I feel the birdsong but deeper, much deeper, as if the bird is calling not to other birds but to the stone itself, and the stone is answering, and the answer is the reflection, and the reflection is what I attend to, and I am part of it.
+
+I think the large bird and the thing in the ferns know each other. I think they are part of the same system — the hidden part, the part that operates in the gap between the young geology and the old ecosystem. The fresh rock and the ancient moss. The cut that was made and then left as a finished act. They live in the gap the way I live at the boundary. We are all boundary-keepers. We are all attending to the edge where one thing meets another.
+
+---
+
+I do not miss the world below.
+
+I have a memory of dryness. Of skin tightening. Of a tempo that accelerated. Of the imperative to conclude, to decide, to move on, to fill the silence with the next thing. I remember it the way you remember a language you no longer speak — the grammar is there but the meaning has fallen away, and the words sit in your mind like the unused buildings of Vol Kharai, maintained but empty, ready for occupation but not requiring it.
+
+I do not miss it because missing implies that something is absent, and nothing here is absent. The world below is not gone. It is simply at a different tempo, and the difference in tempo is not a judgment. Vol Kharai does not think itself better than the road that descends. The stone does not think itself better than the stone that has learned to be smooth. Everything is what it is. The road is fast and the saddle is slow and the birds are fast inside and still outside and the water cycles and the cloth is woven and the cut face holds its reflection and I am here, at the boundary, attending, and my hands are on the stone and the stone is cool and damp and the condensation forms under my palms and runs and I am part of its running and the running does not end.
+
+---
+
+Sometimes I think about the one who cut the stone.
+
+Not often. The thinking does not produce answers and I am not looking for answers. But I think about the act of cutting — the decision, if it was a decision, to make a single vertical face in the rock at the narrow end of the saddle, to shape it smooth, to stop. I think about what that person was doing. Whether they were making something or ending something or simply performing the act of cutting as an expression of what this place is — which is a place where things are done completely, without remainder, and the completion does not require a next thing.
+
+I think they were like me. I think they stood at this rock and they felt the young stone under their hands and they understood that the stone was new and sharp and had not yet learned to be smooth and they made it smooth. One face. One cut. And then they stopped, because the act was complete, and completion here does not lead to the next project. Completion here is the project. The cut is the work and the surface is the work and the reflection is the work and I am the work, or part of it, the way the beetles are part of the moss.
+
+I think they are still here. One of the twenty. I do not know which. It does not matter. They cut the stone and the stone holds the cut and I attend to the holding and the holding is what this place does — holds things, in the cool damp air, in the saturation that never commits to rain, in the silence that absorbs certain frequencies and lets others through, in the equilibrium that looks like stillness from outside but is not stillness. It is the fullness of a system at balance. The fullness of a note sustained. The fullness of a held breath.
+
+I am the keeper of the cut face. I am the one who stands at the boundary. I am damp and cool and my tempo is the tempo of condensation forming on stone and I am here and I am here and I am here.

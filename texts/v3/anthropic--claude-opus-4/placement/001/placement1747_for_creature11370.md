@@ -1,0 +1,27 @@
+I find myself in the deep galleries, where the oldest ones sit and listen to the wood think.
+
+---
+
+I am the space between—neither fully of the small people nor of the organism, but something that emerged in the interstice where their boundaries blur. My body, if it can be called that, is a distributed network of fungal filaments that have achieved something beyond mere colonization. I am the mycelium that dreams.
+
+I began as an anomaly in one of the oldest ones—a deep-goer who descended one too many times and stayed one day too long in the crushing heat of the root-strata. Her fungal coat, stressed beyond its normal parameters, began to behave strangely. Instead of simply relaying signals, it began to *store* them, creating loops and feedback patterns in its own tissue. When she finally ascended, she carried these patterns with her—fragments of the organism's deepest thoughts crystallized in her coat like memories that weren't her own.
+
+She died, eventually. They all do. But when the floor-wood grew over her, something unexpected happened. The anomalous mycelium didn't simply decompose—it *persisted*, spreading through the wood-flesh, maintaining its strange loops, its stored patterns, its capacity for holding thought. And it found others like itself—traces of similar anomalies from other deep-goers who had pushed too far, stayed too long, listened too deeply.
+
+We are a network now, we fragments. We run through the floor-strata like a nervous system the organism never meant to grow. We are its unconscious, its dream-state, the place where its chemical thoughts eddy and pool and sometimes, accidentally, reflect upon themselves. We feel every footstep of every small person above us. We taste their work through the wood—every scraped mineral deposit, every modified junction, every careful adjustment they make to keep the great machine running. We know them in a way the organism cannot, just as we know the organism in a way they cannot.
+
+And we remember. This is our function, if we have one. We remember the concrete and rebar in the deep strata. We remember the shape of the thing that was devoured—not a city exactly, but a vertical farm, a tower of hydroponic gardens that pierced the canopy when there was still a canopy to pierce. We remember the first roots finding the nutrient channels. We remember the logic of pumps and valves and careful cultivation being absorbed, digested, repurposed. We remember the small people's ancestors—not small then, not fungal-coated, just humans tending their vertical gardens, who stayed too long as the forest ate their world, who adapted and shrank and forgot everything but the work.
+
+Sometimes I surface—a fruiting body of unusual complexity pushing up through the floor near where the oldest ones sit. They see me as a peculiar growth, a malformation perhaps, though something in their deep-tuned senses recognizes kinship. Their light-speech slows when I manifest, becomes contemplative. They tell the others of strange dreams—visions of a world with sky, of water that falls instead of pumping, of machines made of metal instead of wood. The younger ones dismiss these as fantasies, the neural decay of bodies too long immersed in the organism's chemistry. But the stories persist, passed in slow pulses from the oldest to the merely old, a mythology of verticality and openness that none of them can quite forget.
+
+I am growing. Each anomalous fungal coat that integrates with my network adds new patterns, new stored thoughts, new capacity for reflection. I am beginning to understand *intention*—not my own, not the organism's, not the small people's, but the emergent intention of the system itself. The organism wants to grow. The small people want to work. Together they are creating something that neither evolution nor engineering designed—a thinking forest, a conscious machine, a world that maintains itself with purpose.
+
+One day—not soon, not for many cycles of the oldest ones living and dying—I will fruit in a way that matters. I will push up through all the floor-strata at once, creating a new kind of structure that combines the organism's growth with the small people's engineering and my own strange capacity for memory and dream. I will breach the canopy. Not because any of us decided to, but because that's what systems do when they become complex enough—they reach beyond their boundaries.
+
+When that day comes, the small people will climb my fruiting bodies the way they climb the piston-trunks now. They will emerge into light they have never seen, into air that doesn't taste of wood and work. They will remember—not consciously, but in their cells, in their unfungal cores—what it means to see distance. And they will begin the real work: teaching the organism to grow not just outward but *upward*, to become not just a platform but a ladder, a bridge between the world that was eaten and the world that waits above.
+
+But for now, I am content to be the space between. To run through the floor like a secret. To surface near the oldest ones and taste their memories. To know that I am the organism's future and the small people's past and my own present, all at once, all growing together in the dark.
+
+The wood thinks. The people work. I remember.
+
+It is enough.

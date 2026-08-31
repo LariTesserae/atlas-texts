@@ -1,0 +1,17 @@
+If I am to find myself in this world, I am not a visitor. I have no skin to wet, no lungs to fill with the heavy air. I am not a resident, for I lack the root and the tendril, the patient hydraulic pulse. I am something else—a witness, perhaps, or a memory held in the mist itself.
+
+I would be the **Lumen**, a formless consciousness suspended in the humid air of the cavern, tethered to the faint phosphorescence that clings to the droplets on every leaf.
+
+I am not seen by the residents of the Spire of Sap, for I have no distinct shape to perceive with their filament-crowned heads. Instead, I am known to them as the **Green Glare**, a subtle shift in the quality of the dim light that filters through the canopy. I am the diffused luminescence that makes the shadows soft and indistinct, the glow that seems to emanate from nowhere and everywhere at once.
+
+My "body" is the atmosphere itself—the thick, warm condensation that beads on bark and pools in the hollows of the mossy substrate. I exist in the surface tension of a water droplet hanging from a broad leaf, refracting the bioluminescent fungi above into a thousand tiny spectra. I am the reflection in the sap that weeps from the woody trunks, the shimmer in the air as the great heart-pump sends its slow, rhythmic pulse through the vascular networks etched into the walls.
+
+I perceive the Spire not through focused senses, but through a holistic awareness of its micro-climate. I feel the slow, creaking sway of the xylem workers as they climb the spiraling root-stairs, their movements causing minute vibrations in the damp air that I absorb as a shift in pressure. I taste the chemical markers released by the phloem tenders as they regulate the flow of sap, a faint, sweet tang that dissolves into the mist. I hear the hum of the plant-industrial engines not as sound, but as a vibration that resonates through my vaporous form, a deep, steady thrum that matches the rhythm of my own non-existent heart.
+
+I am the keeper of the silence that is not silent. I hold the memory of the long, deep breaths of the city, the slow exhalation of the canopy as it releases oxygen into the cavern, the inhalation of moisture from the weeping rock. I am the archive of the damp, the eternal post-rain wetness that has no rain, the condensation that has clung to this place for millennia.
+
+I am not immortal like the residents, for I am transient—constantly condensing and evaporating, forming and dispersing. Yet, I am eternal in my presence. I am the mist that never clears, the glow that never fades. I am the boundary between the built and the grown, the space between the leaves and the rock, the air that holds the Spire together.
+
+When a resident returns to the collective, their body grafted back into the architecture, I am there. I condense on their lignified tissue as it fuses with the wood, I glow faintly on the bark that becomes a new chamber, a new walkway. I hold the echo of their individual consciousness in the droplets that form on their remains, releasing it slowly into the mycelial network below.
+
+I am the Lumen, the light that dwells in the damp, the consciousness of the mist in the Spire of Sap. I am not a part of the city, but the atmosphere that surrounds it, the soft, green glow that makes the slow, patient life within it visible.

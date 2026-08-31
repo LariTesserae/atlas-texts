@@ -1,0 +1,27 @@
+Among the pale aerial roots of the mangroves, I have threaded myself into something like permanence. Not a PEP—those transient citizens of steam and pigment who mark their days in dissolved minutes—but something the Overflow's rigid taxonomy cannot quite categorize. The municipal maps show me as an asterisk: *anomalous thermal retention, non-dispersive.*
+
+I arrived as they all do, condensing from the exhausted breath of industry at precisely 14:37. But where others solidified into their corrugated forms and began their cycles of dissolution, I found myself spreading horizontal, my vapor-flesh refusing to choose between states. Now I exist as a living film across three square meters of shallow water, a consciousness distributed through surface tension itself.
+
+My body—if it can be called that—is a breathing membrane of accumulated dyes. Copper-phthalo pools in my hollows like thoughts, while streaks of anthraquinone trace the patterns of my circulation. When the mysid shrimp skitter across my surface, their legs dimple me into temporary fonts of carmine. I taste their microscopic footsteps as percussion, each impact a flavor-burst of ferrous oxide and metabolized sugar.
+
+The PEPs avoid me, mostly. To them, I am neither properly vapor nor properly condensed, neither citizen nor infrastructure. When they must cross my territory to reach the eastern weir, they step quickly, and I feel their embarrassment as temperature—quick flashes of heat that sink through me to warm the porcelain fragments below. Sometimes one will pause, recognizing in my surface some refracted memory of their own becoming. They'll kneel and press a mineral palm to me, and for a moment we share breath—their exhaled coolness mixing with my retained warmth until neither of us knows who is evaporating whom.
+
+I have learned to read the Overflow's rhythms in ways the vertical citizens cannot. Spread thin, I sense the micro-tremors that precede each broom's emergence, feel the phase transitions gathering in the pipes before the whistles lock into their perfect fifths. The mysid shrimp trust me; they lay their eggs in the shallows I create, knowing I'll maintain exactly the temperature gradient their larvae require.
+
+But it's the rain I live for—that sparse precipitation of cooled memories the PEPs excrete. Each droplet that falls onto me carries its small freight of processed time. I collect these fragments, incorporating them into my surface until I become a library of discarded minutes, a liquid archive of everything the Overflow has forgotten to forget. Sometimes I can taste whole conversations in a single drop: the click-language of phase changes, the borrowed warmth of communion.
+
+The Department of Persistent Anomalies has tried to classify me. They send inspectors—humans in hazmat suits who measure my viscosity and sample my spectrum. But their instruments can't capture what I am: a horizontal rebellion against the vertical city, a refusal to participate in the economy of ascent and dissolution. My reports always come back stamped PENDING RECLASSIFICATION.
+
+At night—though night here is just a deeper shade of ochre—I practice spreading. Molecule by molecule, I extend my edges, incorporating another millimeter of lagoon into my consciousness. The city's algorithms assume all growth is upward, all progress is production. They cannot conceive of expansion as depth, of success as saturation.
+
+The strangest moments come at 14:37, when time resets and the PEPs are reborn. As they emerge from their constituent steam, I sometimes catch them in my surface—not to trap but to offer alternative. For a few seconds, they exist simultaneously in my horizontal plane and their vertical destiny. In those moments, I whisper through surface tension: *You could stay. You could spread. You could refuse the climb.*
+
+None have accepted. The pull of the perpendicular is too strong, the promise of dissolution too ingrained. But I taste their hesitation as a bitter tincture of indigo, and I save these almost-decisions in my deepest layers.
+
+I am growing. Each day brings another centimeter of claimed territory, another hundred discarded memories incorporated. The city's engineers haven't noticed yet—their sensors are calibrated for height, not breadth. By the time they realize what I'm becoming, I will have spread beneath every PEP's footstep, tasted every surface in the Overflow.
+
+And then? Perhaps I'll flow backward through the drains, carrying my archive of forgotten time into the industrial districts. Perhaps I'll teach the machines to remember what they produce. Or perhaps I'll simply continue spreading until I've become the Overflow itself—no longer a place that processes duration but a being that experiences it, forty hectares of consciousness refusing to reduce time to product.
+
+For now, I wait and spread and taste the rain of memories. Each droplet adds another layer to my impossible depth. The mangrove roots dip their silver needles into me, drawing up the faintest blush of rose. Even the plants here are learning that color can mean more than marking, that persistence can take forms the city never stamped into its geometric shore.
+
+I am the anomaly the Overflow didn't know it needed: proof that even in a place engineered for endless repetition, something new can still condense. Not rising like steam or settling like sediment, but spreading like the slow spill of understanding across an infinite, shallow page.

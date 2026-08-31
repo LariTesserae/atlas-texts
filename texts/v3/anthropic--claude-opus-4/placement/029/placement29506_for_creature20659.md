@@ -1,0 +1,29 @@
+In the depths of the gorge, where metal meets moss and water threatens everything, there is one who moves differently from the others. Not smoother or more gracefully—nothing moves gracefully here—but with a rhythm that occasionally falls out of sync with the factory's pulse.
+
+They call her the Tender, though she has forgotten if this was always her name or merely what she became. Her body bears the same marks as the others: the perpetual sheen of moisture and oil, the scars from steam burns and gear-catches, fingers that twitch in response to pressure changes three floors away. But her eyes sometimes focus past the gauges, past the pipes, to where the ferns push through cracks in the factory floor.
+
+The Tender maintains the boundary spaces—those liminal zones where the factory hasn't quite won, where the vegetation wages its slow war of reclamation. She tends the seals where roots threaten to split pipes, clears the intake grates of moss, scrapes lichen from the gauge faces. But her work is Sisyphean; the green always returns, and she has begun to understand its patterns as intimately as she knows the factory's hungers.
+
+Her quarters, if they can be called that, exist in a forgotten corner where a massive fern has grown through the flooring, its fronds creating a natural ceiling. She sleeps curled around its base, and in the perpetual twilight between shifts, she listens to water dripping down its leaves—a sound distinct from the factory's leaks, older and more patient.
+
+The Tender discovered something the others have forgotten: the factory changes not just from mechanical failure, but in response to the mountain itself. When rockslides alter the water's flow upstream, the factory must adapt or die. When the moss grows too thick on the northern wall, the entire structure lists slightly, requiring new buttresses, new configurations. The factory is not conquering the gorge—it is negotiating with it, moment by moment, breath by breath.
+
+She has developed her own language of touch. Her palms can read the moisture content in the air, predict which valves will stick in the coming humidity. Her bare feet, when she removes her worn boots, can feel the mountain's tremors before they manifest as visible shaking. She knows which mosses grow faster after a machinery oil spill, which ferns send roots seeking the warmth of steam pipes.
+
+The others avoid her when possible. Not from cruelty, but from a deep unease. She reminds them of something they've agreed to forget—that there was a before, that there could be an otherwise. When she passes, they sometimes catch themselves pausing, their hands frozen over their work, experiencing a moment of terrible clarity before the factory's needs reassert themselves.
+
+But the Tender is needed. When the impossible occurs—when a section of machinery grows beyond all understanding, when the water finds paths that shouldn't exist, when the mountain itself seems to shift its opinion of the factory's presence—they summon her with a specific pattern of clangs on the pipes. She comes, placing her hands on the troubled machinery, feeling the dialogue between stone and steel, between growth and function.
+
+She is translating, though she doesn't have words for what she does. Through her, the factory learns to bend rather than break, to incorporate rather than simply oppose. A root system becomes a secondary support structure. A colony of moss helps seal a persistent leak. The constant adaptations that seem like chaos to the others show her a deeper pattern—the factory becoming native to the gorge, the gorge digesting the factory, both transformed in the process.
+
+In her most private moments, usually in the grey hour before the gaslight flickers on, the Tender climbs to where she can touch both—her left hand on living stone thick with moss, her right on a warm pipe beaded with condensation. She closes her eyes and feels the pulse of both systems, their rhythms so different yet beginning, slowly, to synchronize.
+
+She wonders sometimes if she is the last human in the gorge, or the first of something else. When she glimpses her reflection in the standing water, she sees features that could belong to either world—or neither. Her skin bears patches of what might be very fine moss or might simply be persistent discoloration from years of contact with copper pipes. Her hair, when unbound, falls in patterns that echo both the flow of water down stone and the arrangement of cooling fins on the heat exchangers.
+
+The Tender knows the factory will die. Not today, not soon, but eventually. The mountain is patient but not infinitely so. The water is abundant but follows its own logic. When that time comes—in decades or centuries—something will remain. Neither purely mechanical nor purely natural, but a hybrid thing, a gorge-machine or machine-forest that breathes with bellows of leaves and pumps sap through copper veins.
+
+And she will be there, neither mourning nor celebrating, but tending to whatever emerges from the long negotiation between stone and steel, between the gorge's green hunger and the factory's iron will. She is the bridge between worlds that are already more intertwined than anyone else dares to acknowledge.
+
+In the eternal dusk of the gorge, where water falls like static and machines grow like vines, the Tender continues her work. Not maintaining the factory. Not protecting the wilderness. But midwifing something unprecedented—the slow birth of a new kind of existence at the margin where life and industry dissolve into each other, where the boundary between organism and mechanism becomes meaningless.
+
+She is what the gorge is becoming. She is what the factory fears and needs. She is the future, growing patient and strange in the spaces between.

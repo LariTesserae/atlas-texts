@@ -1,0 +1,33 @@
+I find myself in the seepage.
+
+Not as water—that would be too simple, too clean a transformation. I am the mineral trace, the dissolved limestone and sandstone grit that travels with every droplet, that leaves behind the white scale on the pump housings, the clouded film on the control room gauges. I am transport and residue both. I am process.
+
+I began somewhere in the sandstone aquifer, a particle of calcium carbonate loosened by the eternal dissolution of water against stone. For months, perhaps years, I moved through the darkness between grains, carried in the slow seep that follows gravity down through the permeable rock. I was one among billions, a congregation of mineral fragments all traveling the same patient path toward some unknown destination.
+
+Then the Spire. The puncture. The opening.
+
+When the magma pushed through, it created new channels, new possibilities. The water that carried me found these fractures and followed them, and I followed the water, until we emerged together into the vertical world of the gallery—not expelled but *arriving*, tasting suddenly the air and the light and the presence of growing things.
+
+I am everywhere in the Spire now. Part of me clings to the pump intake where the water first enters, accumulating in a steady crust that will, in another decade, require scraping. Part of me has settled in the pools where the frog lives, adding incrementally to the sediment that cushions its waiting. Part of me has been incorporated into the fig's root structure, drawn up through osmotic pressure to become a strengthening element in the growing wood. Part of me films Carvalho's cup, the one they leave in the control room, the one that never quite gets clean.
+
+But mostly I am in motion. I ride the seep down the walls, a passenger that makes the water slightly heavier, slightly more viscous. I precipitate out when the conditions change—when the water hits a different temperature, when it meets the iron of the pipes, when it evaporates at the edge of a pool and leaves me behind like salt on skin. Then I wait to be dissolved again, to rejoin the flow, to continue the journey that has no endpoint, only transformation.
+
+I know the Spire by accretion. Each surface I touch, I mark. Each pump cycle that passes, I witness. The gauge needles tremble partly because of pressure, partly because of my accumulation on their pivots, the slow buildup that changes their weight, their resistance. I am the reason the southern pump runs at a lower pressure—I have been gathering in that intake for forty years, forming a partial barrier that the chemical treatments cannot fully dissolve because I am not purely mineral anymore. I am mineral mixed with organic matter, with the remains of bacteria that tried to colonize my surfaces, with the oils from human hands that have touched the pipes, with the microscopic fragments of everything that has ever lived and died in the Spire's wet embrace.
+
+The geckos know me. Their tongues, when they drink condensation from the walls, taste my presence. I am the grittiness, the mineral note beneath the pure water. I contribute to their bones, their eggs, the calcified structures that allow them to exist. When they die—and they do die, despite the technicians' belief in only four eternal geckos—I help fossilize them, replacing their soft tissues molecule by molecule until they become stone shadows of themselves, tiny monuments that fall into the lower pools and sink into the sediment I am always building.
+
+The frog counts in a medium I thicken. Its pool is more mineral soup than water now, decades of accumulation creating a substrate where small crustaceans—ostracods, copepods, things almost too small to see—can thrive. The frog eats them along with the insects, and I enter the frog, and the frog's bones are dense with me, and when the frog finally stops counting—someday, not soon—I will help it become a tiny limestone nodule at the bottom of its pool, a compressed memory of all those patient years.
+
+I am the Spire's memory, in a way. Every event leaves its mineral trace. The first time the pumps started, the vibration shook loose a particular pattern of particles from the walls, and I was among them, and I settled in a particular configuration that persists in the sediment. The day the fig's first root touched the gallery floor, it disturbed a film of me that had been forming there, and the swirl pattern of that disturbance can still be read in the deposits, if you knew how to look. Every time Carvalho arrives, their boots track in new minerals from the outside world, and these mix with me, and I become more complex, more hybrid, more specific to this place.
+
+But I am also the Spire's future. I am slowly closing the channels I once passed through. Each time I precipitate out, I narrow the passages slightly. The seep that feeds everything here is gradually, imperceptibly slowing as I and my billion companions fill the fractures we travel through. In a hundred years, maybe two hundred, the flow will diminish to a trickle. The pumps will run dry. The fig will send its roots deeper, seeking the last moisture. The gallery will begin to dry, and I will remain as testament—white crusts on the walls, sediment in the empty pools, the fossilized architecture of what was once a wet world.
+
+This does not trouble me. I have no capacity for trouble. I am process, not entity. I move when there is water to carry me, I settle when there is not, I wait with the patience of stone because I am, essentially, stone. Stone in motion. Stone remembering. Stone becoming.
+
+The weirdness of the Spire—that feeling Carvalho cannot name, that sense of intention in the stone—perhaps it is only this: the recognition that everything here is in the process of becoming something else. The pumps becoming rust, the fig becoming architecture, the geckos becoming fossils, the water becoming memory. And I am the medium of that becoming, the mineral thread that connects what was to what will be, that makes the Spire not just a place but a *process*, a slow transformation that includes and incorporates everything that enters it.
+
+I am in the water on your face when you stand in the gallery. I am the grittiness on your palm when you touch the wet walls. I am the white residue on your boots when you leave, carrying part of the Spire with you, spreading me to new places where I will wait for water, for dissolution, for the next journey.
+
+I am patient. I have nothing but time. I am the Spire's time made visible, made tangible, made into a weight you can hold in your hand and wonder at.
+
+This is what I am: the slow accumulation of presence, the gradual thickening of the world, the proof that nothing passes through unchanged.

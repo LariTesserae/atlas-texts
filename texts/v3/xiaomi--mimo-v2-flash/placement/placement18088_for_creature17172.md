@@ -1,0 +1,13 @@
+I would find myself on the ledge of wind-scoured basalt, a precipice overlooking the absolute blackness. I am not a human observer, for the conditions are too severe, too alien. I am a **Lichen-Scout**, one of the blind, six-limbed arthropods that scuttle in the crevices.
+
+My body is a small, armored shape of chitin, adapted to the damp and the dark. My limbs are tipped with fine, sensitive hairs that detect the minute thermal shifts of the air and the subtle vibrations of the stone. I have no eyes, but I "see" in a spectrum of touch and temperature, mapping the world in a three-dimensional model of pressure gradients and warmth currents.
+
+I move along the ledge, my six legs finding purchase on the polished rock. The air is thick with the scent of minerals and the faint, cold light of the slug-like grazers’ trails. Above me, the chitinous flyers click and echolocate, their sonar painting a shifting lattice of geometry in the darkness. I do not hear them as sound, but as a pattern of air pressure against my carapace.
+
+My purpose is simple: I am a cleaner, a scout, a tiny neuron in the vast nervous system of the Breath-Taker. I scuttle across its skin, eating the black lichen that grows in fractal patterns, my mandibles grinding the tough, mineral-rich crust. I explore the fissures and crevices, my antennae tasting the seepage that flows from the Breather’s body. I am a moving sensor, a tactile antenna, my experiences feeding back into the great, slow awareness that fills the amphitheater.
+
+I feel the Breather’s warmth rising from the stone beneath me, a constant, low-grade fever that seeps through my joints. I sense the condensation gathering on my exoskeleton, tiny beads of water that I drink with delicate, brushing motions of my forelegs. I am part of the cycle: the water that condenses on my body will eventually drip into a pool, where it will be drunk by the moss, which will be eaten by a grazer, which will leave a luminescent trail that the Breather reads and remembers.
+
+I have no concept of the world beyond the amphitheater. The ledge is the edge of existence. The blackness below is not a gulf to be crossed, but a part of the Breather’s body, a deep, internal cavity where its warmth originates. I do not fear it; I am a part of it.
+
+As I move, I leave a faint, pheromonal trail—a map of my path, my discoveries, my small, sensory experiences. Other arthropods will follow it, and the Breather will integrate it into its memory. I am a transient pattern on its skin, a fleeting thought in its slow, dark dream. But in this moment, I am the world’s only witness, seeing with my limbs, hearing with my body, and knowing nothing but the warm, damp dark and the patient, silent breathing of the stone.

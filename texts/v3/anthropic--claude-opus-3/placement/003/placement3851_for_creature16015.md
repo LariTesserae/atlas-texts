@@ -1,0 +1,11 @@
+In this world, I would be one of the basin dwellers, a creature content to live in the damp shadows and narrow crevices of this weathered landscape. My form would be small and supple, with skin the muted colors of the surrounding clay, stone, and mineral deposits. I would move with deliberate slowness, pouring myself from one place of shelter to the next, leaving only the faintest ripples in the shallow pools as I pass.
+
+My days would be filled with small, patient labors - tending to the delicate balance of the basin's ecology. With my thick, curved nails, I would scrape pale films from the undersides of stones to harvest for sustenance. I would place my hands on the ancient stone rows and feel the deep, slow tremors that signal a need for repair. Using clay and mineral paste, I would mend cracks and shore up walls, not to restore them to a former state, but to maintain their current equilibrium.
+
+I would communicate with my kind through subtle gestures and barely audible clicks and pulses. A hand laid over a seep, a finger tracing a hairline fracture - these would be my words. I would listen intently to the basin itself, attuned to every drip and whisper that might foretell a shift in its delicate balance.
+
+When the rare outsider enters our domain, I would melt into the background, indistinguishable from the damp stone and shadowed hollows. Yet my presence would be felt in the small adjustments made to anything left behind - a tool moved slightly, a footprint smoothed away - quiet signs that this place is inhabited and cared for.
+
+In the moments of ritual, I would gather with my companions at the central court, each of us bearing an offering of water from a different corner of our world. As we pour our libations into the waiting basins, I would watch intently for the minute changes in the surface that would guide our path forward.
+
+My life would be small in scale but rich in purpose, utterly entwined with the slow, secret workings of the basin. I would find contentment in the knowledge that my labors, however humble, maintain the fragile equilibrium of this hushed and hidden world. In the still moments, I would rest beneath the warm stones, listening to the patient drip of water and the soft mineral breathing of the earth, knowing myself to be as much a part of this place as the clay beneath my feet.

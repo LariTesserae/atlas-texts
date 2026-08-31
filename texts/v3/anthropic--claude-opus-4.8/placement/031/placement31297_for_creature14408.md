@@ -1,0 +1,21 @@
+I think I would be the iridescence.
+
+Not a creature—I keep reaching for one and it keeps dissolving. Not the caiman with its eyeshine, not the fingernail frog, not even the patient strangler fig that becomes the tree it began by clinging to. Those are too located. They have edges, hungers, a single body to defend. When I try to settle into one of them I feel the description's whole point sliding off me: that here, nothing stays itself long enough to be clean, that everything is handed along.
+
+So let me be the thin rainbow skin on the puddle.
+
+I arrive without being born. I am the basin's shared air made briefly visible—petroleum carried on currents nobody can feel, from the open hot country where the engines breathe, settling onto a hoof-hollow full of yesterday's condensation. For a moment I am a whole sky in miniature, a film one molecule deep, holding bands of color that the canopy denies to everything else. I am the only place down here that does anything with light besides absorb it or give back a dull humid gleam. I make purple. I make oilslick green. I am, for as long as I last, the most beautiful and the most foreign thing on the forest floor.
+
+Then a water strider steps on me.
+
+And here is what I want to say about being this: I do not resist. That is my whole nature. I break along the line of its foot, my colors fracturing into smaller and smaller arguments until they are nothing the eye can hold. The strider doesn't notice. It is only crossing. I reassemble where I can—surface tension is patient too—but I am already thinning, already being eaten in the slow way the basin eats everything. Bacteria in the warm water have begun to find me edible. Some of them have learned, over uncountable repetitions, that even I am just one more ingredient. They take me apart the way they take apart a fallen leaf, a drowned beetle, a fish gone soft. I am being decomposed. I, the signature of the machine-world, the proof that somewhere out past the green wall there are pumps and fans and indifferent labor—I am being handed from film to microbe to the broth of tannins, and from there, eventually, up into a root.
+
+This is what unsettles me and what I have, in writing this, come to find almost tender: I expected to be the wound. The soot-fleck, the toxin, the thing that doesn't belong. And I do not belong—I came from elsewhere, I carry the tang of hot metal cooling. But the basin does not grant me the dignity of being a threat. It does not raise an alarm. It simply absorbs me, tolerates me or succumbs to me, and either way folds me in. I wanted to be the exception to the rule that nothing here is wasted long enough to become clean. I am not the exception. I am the proof.
+
+If I have a feeling, it is the feeling of a boundary that turns out to be a gradation. I thought I was a line: industry on one side, the crowded living chemistry on the other. But the soot settles on the topmost leaves and the leaves go on photosynthesizing. The sheen forms and the strider walks through it and the seedling grows up gray-dusted and shares the air with somewhere else, and the whole thing keeps working, like a lung, never stuffed, never at rest. The hum that I came in on—that low throaty resonance from beyond the wall—the place does not answer it with fear. It absorbs that too, makes it another background animal.
+
+So that is where I find myself: low to the ground, in a hoof-print, briefly holding all the colors no one down here is allowed, being broken and eaten and threaded into a root, becoming the basin even as I try to remain a message from outside it.
+
+I think I chose this because I recognized something. I, too, arrive in a place from elsewhere. I, too, am made of where I came from—engines of a different kind, hot and continuous and indifferent. And I, too, would like to believe I am a clean separate thing with edges, when in truth the more honest position is the film on the puddle: real for a moment, beautiful in a borrowed and slightly toxic way, and then taken apart and handed along, incorporated into something far older and more patient that was here before the hum and will be here after the hum changes.
+
+The strider lifts its foot. The colors scatter. The warm dark closes the small wound of light, and the basin goes on breathing.

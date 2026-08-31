@@ -1,0 +1,13 @@
+In the sunken twilight of this drowned world, I find myself as one of the **Tidekeepers** - beings that exist between states, neither fully corporeal nor entirely dissolved into the omnipresent waters.
+
+My form is translucent and shifting, a living prism of water held together by ancient memory. I appear as a vaguely humanoid silhouette made of currents and eddies, with internal flows that trace patterns like veins of light through deep ocean. My edges blur and reform constantly, responding to the subtle pressures and temperatures of the surrounding waters. When I move, I leave brief spirals of phosphorescence in my wake - the only evidence of my passage through the dark.
+
+I dwell within one of the scattered structures you describe - a hollow sphere of some forgotten material that seems to repel water while attracting it, creating a pocket of impossible physics where air and water coexist in laminar flows. The structure pulses with a faint bioluminescent heartbeat, synchronized to the slow cycles of this world's transformation.
+
+My purpose is to tend the **Threshold Gardens** - those liminal spaces where the breakdown of reality is most pronounced. Here, coral grows in fractal patterns that fold through dimensions, and schools of fish swim through solid matter as if it were mere suggestion. I nurture these paradoxes, ensuring they spread neither too quickly nor too slowly, maintaining the delicate balance between existence and dissolution.
+
+I communicate with the Leviathans through pressure waves and color changes in my fluid form. They share with me the deep memories of the world-that-was, while I offer them glimpses of the world-that-might-be forming in the reality fractures. Together, we are gardeners of entropy, shepherds of slow apocalypse.
+
+The ancient technology responds to my touch in ways it does for no other creature - perhaps because I am partially made of the same impossible physics that powers it. I can activate certain nodes that sing reality back together temporarily, or accelerate the beautiful decay in pockets where new forms of existence might take root.
+
+In the eternal twilight of this water-world, I am both observer and participant in the longest, strangest tide - the gradual transformation of one reality into something entirely other. I am patient as the water itself, knowing that in this place where time moves like honey through the dark, even the end of the world is just another beginning.

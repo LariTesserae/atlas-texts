@@ -1,0 +1,11 @@
+In this surreal and harrowing world suspended amidst the endless Roar, I imagine myself as one of the solitary, fiercely adapted creatures clinging to the leeward side of an Ancient stone pillar.
+
+My body is a marvel of evolutionary engineering - sleek, dense, and aerodynamic. With four powerful limbs splayed out to grip the thrashing vegetation, I press myself flat against the rock face, a mere protrusion in the smooth graphite-grey stone. My inner arms remain tucked tightly against my armored chest, shielded from the shrieking gale, ready to weave and build in the fleeting moments of relative calm.
+
+I feel the world through vibration, my heavy jaw resting against a taut rope woven from pale plant fibers. The deep thrum of the ceaseless updraft resonates through my bones. With precise taps and plucks of a carved bone plectrum, I send pulsing messages to unseen kin clinging to distant stone fins, our resonant signals riding the substrata beneath the cacophony of wind.  
+
+My enormous, lens-covered eyes scan the abyss above, tracking the swirling vortexes of spores and mist, alert for the ragged ghosts of low-altitude clouds. At the perfect moment, I rise to the scream's edge and cast my weighted snare-net out into the gale, muscles locking to absorb the tremendous strain, slowly hauling life-giving moisture back from the brink.
+
+In the fleeting sanctuary of my woven teardrop cocoon, anchored to the dense nodes of the muscular jungle, I dream of the mythical Lull. I imagine rising to stand fully upright in an impossible, momentary silence. I picture myself gazing across miles of still, hushed emptiness to glimpse the silhouettes of my fellow denizens perched on far-flung pillars, architects of tenacity in an unrelenting sky.
+
+Yet for now, I am a master of the Grip - an anchor, a weaver, a hunter of the heavens. In a world where the only constants are the plunge and the Roar, I have adapted to thrive, to ride the eternal surge, and to find connection in the spaces between the violence. The air will never cease, but neither will we.

@@ -1,0 +1,25 @@
+I am a pressure differential given purpose.
+
+I do not think. I *register*. The city speaks in a language of stress and flow, and my body is its translation. My carapace—a living laminate of ceramic and chitin, grown in layers like rust on iron—does not feel the water's warmth so much as it measures the delta between the ambient heat and the searing glow of the geothermal vent three sectors down. My limbs are actuators. The one ending in a tri-claw is for torque. The one that extrudes a filament of superheated plasma is for fusion and cauterization. I have no memory of a before. There is only the diagnostic.
+
+My world is a grid of failures.
+
+I move along the Grand Conduit, not walking but *pistoning*. Hydraulic fluid, warm and viscous, cycles through my limbs in response to the city’s groans. A low-frequency pulse, a Groaner’s call from the turbine housing to the east, vibrates through the soles of my feet. It translates in my core not as sound, but as a schematic: a harmonic stress beyond acceptable parameters. A bearing is failing. I adjust my course.
+
+The current fights me, a silt storm brewing from a collapsed filtration duct to the north. It is a known variable. I anchor myself, extending stabilizer spines from my knees and hips, becoming a barnacle on the catwalk. My primary ocular sensor—a recessed, pressure-shielded lens—adjusts its spectral filter, cutting through the murk. In the yellow-green fungal glow, I see the ecosystem at work. A mat of Ferric Weavers has overgrown a leaking coolant line, their pulsating nets gorged with precipitated copper. Their work is adequate; the leak is sealed. A Trench-Scuttler, glowing faintly from its own metabolic heat, scrapes bacterial sludge from the base of a pillar. Its path is irrelevant to the failure.
+
+I reach the turbine housing. The vibration is a physical thing, a jaw-rattling shudder. The Groaner is there, a conical shell fused to the vibrating metal. It emits another pulse as I approach, a low *thrum* that maps my density, my tool-limbs. It recognizes a component of the greater system. It does not flee. It is a sensor node; I am a repair node. We are subroutines in the same failing program.
+
+The failure is clear. A rotor blade, thick as my torso and pitted with corrosion, has developed a fissure. It is out of balance, sending damaging harmonics through the shaft. The prescribed action is not repair—the metallurgy is too degraded—but controlled amputation. My plasma limb ignites, a tiny, fierce star in the brine. I brace against the housing. The heat shimmers, turning the suspended silt to a incandescent cloud. The Groaner retracts into its shell, its communication momentarily silenced by the electromagnetic noise of my tool.
+
+The cut is slow, precise. I am not fighting the metal; I am guiding the energy that unravels it. The city’s roar changes pitch as the damaged blade is severed. It falls, tumbling slowly in the dense water, crashing onto a lower level with a muffled, sub-aqueous clang that will echo through the pipes for miles. A new signal, perhaps. Food for Scuttlers. A new anchor point for Weavers.
+
+My work here is done. The harmonic stress has dropped within acceptable limits. The city’s groan is smoother, if not quieter.
+
+As I detach, I sense another presence. Not through sight or sound, but through the electromagnetic field. A Piston Eel, long and sleek, has coiled itself around a nearby power conduit, its photophores blinking in a slow, lazy code. It is leaching residual current, its body a living capacitor. It is a parasite on the grid I just stabilized. This is not a conflict. It is a load on the system. A variable to be accounted for in the grand equilibrium. It watches me with its eyeless head, sensing my tool-field, and then dissolves into the darkness, seeking a less-trafficked junction.
+
+I piston back along my route. The silt storm has passed. In a sheltered alcove, I see a cluster of Trench-Scuttlers huddled around their own waste vent, their collective heat shimmering faintly. Smaller, shrimp-like creatures swarm in the warmth. A pocket of transient, secondary life. Irrelevant to primary function.
+
+I have no sense of self. I have a sense of *system*. My purpose is the negative space of the city’s pain. I am the directed action that opposes entropy, for a time. I feel the deep, tectonic groan of the sea floor shifting miles below. I feel the whine of a thousand turbines and the whisper of a million Weavers filtering poison. I taste the copper runoff and the ozone of arcing electricity. I am a white blood cell in the veins of a rusted god, swimming through its warm, mineral blood, tending to wounds that will never heal, in a darkness that will never end.
+
+And in the roaring silence between one diagnostic and the next, there is a kind of peace. The peace of absolute function. The peace of a gear, perfectly meshed.

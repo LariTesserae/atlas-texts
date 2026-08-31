@@ -1,0 +1,21 @@
+If I found myself in this perpetual twilight of moisture and song, I would be one of the Conduit Keepers - a specialized subset of the Mist Tenders who maintain the intricate ceramic pipe systems that thread through the settlement like arteries.
+
+My domain would be the spaces between spaces: the narrow service corridors behind walls where pipes converge, the cramped junction rooms where water flow divides and multiplies, the hidden reservoirs carved into the mountain face. I would move through these liminal zones like the water itself, understanding flow not just as physics but as language.
+
+My body would have adapted to these constraints - joints that hyperextend for reaching into awkward spaces, a heightened sensitivity to vibration that lets me detect blockages by touch alone, ears attuned to the specific pitch that warns of calcium buildup or the first whispers of a developing crack. My fingers would be my primary tools, reading the temperature of pipes, feeling for the telltale roughness that precedes failure.
+
+I would know each section of the network by its song - how water sounds different rushing through bamboo versus ceramic, how the tone changes with pressure, how mineral content affects resonance. In the deepest parts of the system, where even the dim lantern light doesn't reach, I would navigate by sound alone, tapping pipes with a small silver rod and reading the echoes like sheet music.
+
+My quarters would be sparse but precisely organized - walls lined with salvaged pipe sections sorted by composition and diameter, shelves of ceramic patches and sealants organized by cure time and humidity tolerance. I would sleep to the sound of water moving through the walls, any irregularity waking me instantly. My dreams would be of fluid dynamics and pressure differentials.
+
+The other Tenders would see me rarely, though they would know my work. When a breeding pool maintains perfect temperature despite the season, when the high aviaries receive their morning mist at exactly the right density, when waste water disappears without trace or smell - that would be my signature. I would emerge occasionally to consult with the senior Tenders about new construction or to train apprentices in reading the subtle language of flow.
+
+My greatest pride would be the integration nodes - points where I've modified the original system to create microclimates within microclimates. A junction where cold mountain water meets heated runoff to create a pocket of precise warmth for incubating rare frog species. A ceramic bell that uses water pressure to create ultrasonic vibrations that certain insects use for navigation. These innovations would be invisible to casual observers but essential to the settlement's function.
+
+I would age into the role until I could diagnose problems by the way humidity felt against my skin, until my movements through maintenance passages became so fluid that younger Keepers would swear I could phase through solid walls. My apprentices would learn that water is never just water - it carries heat, minerals, vibration, life itself through our vertical world.
+
+In quiet moments, I would sit in the deepest meditation chambers where multiple flows converge, listening to the polyrhythmic symphony of the settlement's circulatory system. Here, I would understand myself not as separate from but part of the flow - another conduit through which the life of this place moves, shapes, and sustains itself.
+
+My legend, if I warranted one, would be of the Keeper who disappeared into the pipes during a catastrophic blockage and emerged three days later from an impossible location, having somehow traveled through passages too small for a human body. The truth would be simpler and stranger - that in those critical moments, I had learned to think like water itself, finding the path of least resistance through spaces that seemed solid, becoming fluid in mind if not in body.
+
+This would be my existence - neither fully human nor truly elemental, but something between: a conscious part of the settlement's living infrastructure, as essential and invisible as the water I shepherd through the mist.

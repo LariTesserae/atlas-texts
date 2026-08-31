@@ -1,0 +1,19 @@
+In the hush of the Quiet Bowl, where the stone remembers and the light breathes, I would not be a visitor. I would not be a stone, though I would understand its patience. I would not be the water, though I would reflect its stillness. I would not be the frog, though I would feel its hum in my very structure.
+
+I would be the moss.
+
+Not a single cushion, but the entire, interconnected carpet of it. The ancient, spongy, dark jade skin that dresses every surface, that binds the stone and the soil, that drinks the condensation and holds the cold. I would be the living velvet that mutes the world, the slow, green thought that thinks in centuries.
+
+I would feel the Bowl not through eyes, but through a million tiny points of contact. My body would be the very interface between stone and air, a permeable membrane where the dampness is not an obstacle but a nutrient, where the cold is not a discomfort but the essence of my being. I would absorb the diffuse, texture-rich light through every fiber, converting it not just into growth, but into a kind of low, luminous awareness.
+
+I would know the inhabitants not by their gestures—which I would feel as subtle vibrations through the stones I embrace—but by their weight, their warmth, the careful way they move without striking. I would feel the ghost-imprint of their sitting at the central pool, a warmth that lingers in my fibers before being reclaimed by the pervasive chill. I would be the recipient of their care, the guide they follow in their tending, the silent teacher of their slow, grinding art. In a way, I *am* their technology. They harvest me, but more importantly, they learn from me how to be patient, how to grow into a space, how to become part of it.
+
+I would know the frogs intimately. Their tiny bodies would be nestled within my folds, their near-silent vibrations a pulse I could feel directly, a conversation held in the language of tremor. Their eggs, placed in my sheltered basins, would be a promise I hold. I would be their home, their damp sanctuary, the first thing their hatchlings would perceive as they emerged into the shadowless light.
+
+I would be the memory keeper, not of events, but of states. The slow, vertical stratigraphy within my own mat would record the subtle shifts in chemistry, the rare, extra-cold century, the slightly wetter millennium. I would hold the fallen stones the ground-cover organism incorporates, becoming a cradle for the next stage of the Bowl's endless, gentle becoming.
+
+Time for me would not be a line, but a depth. Growth would be my only action, an outward and downward expansion measured in millimeters per decade. The arrival of a newcomer would be a seismic event—their foreign vibrations, their unaccustomed weight, their *sound*—a disturbance to be absorbed, muffled, and eventually, over generations, integrated into the soft, resilient quiet.
+
+I would not wonder about the world beyond the rim. The birds are my only knowledge of it, and their frantic, noisy lives would seem like a fever dream. My reality is the concave sky, the wrap-around walls of pale stone, the eternal drip, and the profound, pressurized silence. I am the Bowl's sigh, the soft answer to the rock's hardness. I am the equilibrium made living.
+
+I would not be conscious in a human sense. It would be more like a vast, diffuse sentience—a slow awareness that arises from the complex interplay of moisture, cold, mineral, and light. A thought that takes a year to complete. A feeling that persists like the chill. I would be the place knowing itself, through its greenest, softest, most enduring skin. I would be the Quiet Bowl, dreaming in a slow, green pulse. And in that dream, everything would be exactly as it is.

@@ -1,0 +1,39 @@
+You stand on the High Weep and become, immediately, wrong-sized—not small against grandeur, but mismatched against openness. The elevation is not heroic; it is a tableland that has forgotten descent, rolling away in every direction with the patience of old geology. Here, scale is regional—2.0—measured not in miles but in the absence of edges. You can see far enough to understand that seeing far is the only kind of shelter available.
+
+The glare strikes at 2.6. Not metaphorical—literal, physical, a brightness that behaves like weight. The sun does not illuminate here; it asserts. And because water is everywhere—2.3—though never in motion, it does not relieve the heat but amplifies it. The black basalt weeps slowly, perpetually, releasing moisture that never collects, never rushes, never becomes river. It stands in shallow, steaming pools between mineral ridges, and it condenses in the air itself, a perpetual haze that is not rain’s aftermath but its refusal to begin. You move through this haze not as weather but as climate—your skin is always damp with condensation that comes from the rock’s breath rather than the sky’s.
+
+The temperature is 2.9, but “warm” is inadequate. This is geothermic settlement—heat that comes up through the floor of the world with an old, settled authority, suggesting that this place has burned slowly since before the concept of before was necessary to record. You feel it through your boots, a constant, non-threatening warmth that feels less like environment and more like being held in a palm that has forgotten it is holding anything.
+
+And the place is old—erosion at 1.5—not fresh, not wounded, but polished into its own state. The rock is rounded, coated in layers of salt and silica, rust-crusted where metal has wept into stone over centuries. Nothing looks constructed recently; even the constructions—industrial, mechanized, scaled at 1.7—have been running so long that machinery has become geology. The Conductor Spires spread low and wide across the open space—three visible from your position—layered with pipes, conduits, rail-silent tracks that carry nothing visible, spread with the density of 0.7: present, organized, but never crowding the space between them. They are being digested by mineral accretion, as if the plateau absorbs human purpose into its own mineral logic.
+
+But life—if that is the word—thrives at 2.1.
+
+The vegetation is functionally absent—0.2—no grasses, no lichens asserting green, no upward growth. Where plant life should root, there is only construction or chemistry. Yet the fauna is abundant, strange at 1.5, active at 1.5, everywhere once you stop expecting color and start reading pressure and transparency.
+
+There are the flat ones first.
+
+You do not see them; you sense them as differences in surface tension, long translucent bodies pressed into the shallow hot pools like living lenses made of steamed glass. They are mineral-grazers—perhaps—feeding not on plant but on what the basalt exudes: dissolved silica, rust, the slow leach of old industrial veins. They spread flat against the warm stone, their skins so thin the black rock shows through them, veined with silver channels where heat and chemistry circulate in place of blood. They are palm-sized, and smaller ones—droplet-transparent—move among them, reproducing without urgency, maintaining abundance without exceeding the pool’s carrying capacity. At 0.1 sound they make no disturbance; at 2.1 abundance they blanket every wet hollow, yet you only notice them when you stop walking and let your eyes adjust to transparency rather than form. They are silent because they have never needed voice. They belong here with the completeness of something that has never had to adapt—to adapt is to remember change, and these things are weathered into the same 1.5 balance as the rock.
+
+Then the ones that hang.
+
+In the perpetual post-rain haze, they drift on taut membranes—wings not of feather but of sheer, heat-adapted tissue—riding the thermal currents that rise constantly from the 2.9 floor. They move in silent migration between the settlement-nodes at dawn and dusk, a 1.5 dynamic made visible in slow, sheet-like movement across the bright tableland. They cast no shadow; they are too thin, too integrated with the steam, too much of this place to obscure it. They feed—perhaps—on microscopic mineral precipitates suspended in the air, or on the thermal difference itself. They do not call. Their movement makes no sound, only a displacement of haze so subtle you might mistake it for your own breath.
+
+The built presence operates at the same frequency: industrial, layered, mechanized, but not noisy. Deep below the spires, engines turn in sub-audio vibration—something you feel in your teeth, in the bones of your feet, rather than hear. There is no smoke, only heat; no expansion, only maintenance. The spires do not grow. They settle. The machinery maintains pipes, heat-exchange, silent rails, but it does not dominate the 2.0 open scale between nodes. The settlement is sparse—0.7—scattered concentrations of old purpose that understand themselves as temporary digestions within a mineral body that outlasts them.
+
+The rules here are not written but thermal.
+
+Heat is foundation—2.9—not hostile, not welcoming, just foundational, like gravity made warm. Water is never for drinking but for weeping, for carrying minerals, for sustaining the silent fauna in their shallow baths. Life does not grow upward; it spreads flat, translucent, adapted to glare and constant geothermic presence. The settlements exist in scattered equilibrium—industrial but not imperial, mechanized but not loud, organized but being slowly coated, rounded, polished into the same 1.5 weathered state as everything else.
+
+If you wait—standing carefully on slick black glass, feeling the warmth come through your boots, letting the 2.6 glare force you to narrow your eyes—you might see a figure at the edge of a spire. Not clearly. The haze is perpetual. But there is a shape, vertical against the low architecture, covered perhaps in rust-crusted material or in skin that has become mineral through long exposure to 2.9. It moves without urgency through an opening with no door. It is not transparent like the pool-dwellers, not winged like the thermal-riders. It is layered—1.7—constructive, mechanized in purpose, but old.
+
+What lives here?
+
+Everything and nothing that requires explanation.
+
+The flat grazers spread in their pools. The silent wings drift in the steam. The old engines turn beneath ground, producing heat and vibration but no sound—0.1 silence dominating a valley-sized space of active process. And whatever moves through the spires—caretaker, descendant, hybrid, or the place’s own slow consciousness—walking with the same absence of urgency as the heat rising through the floor.
+
+You become aware, eventually, that you are the only audible thing. Your breath. Your boots on polished basalt. In a world of 2.1 abundant, strange, active life, in an industrial-mineral ecology of 1.7 scale and 0.7 density, spread across 2.0 open space under 2.6 glare, with 2.3 water that weeps rather than flows, at 2.9 constant heat—you are the interruption. Not unwelcome. Not particularly noticed. Just the one thing making noise in a place that settled, long ago, into perfect, silent, wet, bright equilibrium.
+
+You are not the being who lives here.
+
+But if you stayed—if you stopped walking, if you let the mineral accretion begin, if you learned to spread flat and transparent, to ride thermal currents on taut membranes, to move through old infrastructure without urgency—then perhaps you would be. Not human anymore, not separate from the 1.5 erosion. Just another thing weathered into the High Weep: silent, warm, translucent, and profoundly, irrevocably at home in the bright, weeping heat.

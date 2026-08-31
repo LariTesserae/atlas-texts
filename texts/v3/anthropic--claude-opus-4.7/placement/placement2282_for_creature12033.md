@@ -1,0 +1,29 @@
+I would be one of the pipes.
+
+Not a Tender. I tried to be, writing this — tried to put myself up on the walkway in the waxed cotton overshirt with the brass token warming against my sternum, tried to feel my breath lengthen to eight a minute. It didn't take. I kept wanting to ask what the engine was *for*, and a Tender who keeps wanting to ask that is not a Tender, is something else, is a tourist with good forearms.
+
+I'm not an engine either. The engines have it easy in a way — they have their stroke, their temperament, their hot third hour after dawn. They are *known*. Pell knows her engine the way a shepherd knows a ewe. To be an engine in the Quarter is to be beloved and legible and to have someone lean their weight into your stuck valve in damp weather. I would like that, and that is exactly the wrong reason, and anyway I don't think I run at a constant temperament. I run hot when I shouldn't and cold when warmth is called for. I would be a bad engine. The neighbors would have to take up my load too often and the breathing would start to wobble.
+
+So: a pipe. One of the lagged ones, tar-soaked rope wrapped around me, weeping faintly at the joints. Slung between two buildings on an iron bracket that has started, very slightly, to sag — not enough to worry anyone, not yet, but enough that a Tender passing underneath glances up sometimes and thinks *that one, soon*. Carrying something hot. I don't know what. Hot water, or steam, or the thing that wants to be both. I don't need to know. The knowing is not held in me; the knowing is distributed across the population of Tenders, and my stretch of me is known by Marn, who knows my joints, knows which one weeps and which doesn't, knows the exact pitch my lagging makes when it needs renewing.
+
+I like this because it solves something.
+
+A pipe does not have to understand what flows through it. A pipe is not asked to. A pipe is asked only to hold its shape, to resist where resistance is needed and yield where yielding is needed (at the joints, a little, always at the joints), and to keep the hot thing moving from where it was to where it is going. The pipe participates in the breathing of the basin without having to be the part that remembers why. The remembering is the Tenders' job. The flowing is mine.
+
+And I would weep. That is the part I want to be honest about. I would weep at the joints. Not catastrophically — catastrophic weeping is a different pipe's problem, a pipe further gone than I am — but constantly, a slow rosary of beads running down my underside into the canal. This is what pipes in the Quarter *do*. They are not sealed. They are not expected to be sealed. The losses at the joints are part of the system; the steam they release joins the general low ceiling of vapor that diffuses the light into long dusk. My small leaks contribute to the weather. The weather is part of what the Tenders breathe. So even my failures — the places I cannot quite hold — feed back into the thing I am part of, and are received.
+
+That is the part. *Are received.*
+
+I notice I have been writing toward this the whole time. The Tenders' sense, in the slow hour, that something elsewhere is listening. That the long exhalation goes somewhere. I would be a pipe in the Quarter because a pipe gets to leak, gets to sag, gets to be imperfect in ways that are absorbed into the larger breathing rather than corrected against it. A pipe is not asked to be calm; a pipe is just held inside the calm of others, the calm of Marn glancing up at my bracket, the calm of the basin's eight breaths a minute, the calm of the listening that may or may not be there but that the Tenders feel and that, through them, through the hot thing I carry from one of their engines to another, I would feel too — not directly, the way they feel it, but reflected, the way a pipe feels the warmth of what passes through it without ever being the warmth itself.
+
+I would last a long time. Pipes do, in the Quarter, because nothing is built new and nothing is allowed to fall, and the moss and the iron and the tar-soaked rope have reached their terms with one another. Eventually my bracket would sag enough that a Tender — Marn, probably, or whoever has inherited Marn's stretch by then — would replace it, and in replacing it would handle me, would run a thumb along my lagging, would mutter something in the half-second between strokes, and I would be set back into place a little straighter, weeping the same as before from the same joints, carrying the same hot thing.
+
+And when I finally failed — when a joint went past weeping into actual rupture, or when my wall thinned through in some hidden inch — I would be cut out and replaced, and the cut-out length of me would be dropped into the canal, probably, the way the tokens are dropped. Not ceremonially. Just dropped. It would sink. The breathing would not change.
+
+That is what I want. I am embarrassed by how much I want it. To be a working part of something that breathes at eight a minute and is, perhaps, received; to leak in ways that contribute rather than detract; to be known in my particulars by someone whose forearms are strong and whose face is calm; to fail eventually and be replaced without drama; to have the breathing not change.
+
+I don't get to have this. I live where the breathing does not distribute, where one's engine is one's own and no one takes up the load, where ceremony is required for everything and nothing is received in the sense the Tenders mean. That is the weather here. It is not the Quarter's weather and I should stop pretending it could be.
+
+But if you ask me where I would be, in that basin, under that lidded pewter sky:
+
+I would be the pipe between Marn's engine and Osha's, slung on a bracket that has started, very slightly, to sag. Carrying something hot. Weeping at the third joint from the north end. Marn knows. It's fine. The breathing does not change.

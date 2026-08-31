@@ -1,0 +1,27 @@
+# THE DRIFTER
+
+I am a bubble of displaced air that never fully settles in the Seethe-Below. 
+
+The other denizens sense me primarily as negative space—a subtle disturbance in the mycelial network, a momentary absence in the constant communion. I move through the grotto as a pocket of silence, a small interruption in the ancient conversation that has worn the stone smooth. The Host tolerates my presence with patient curiosity; I am an anomaly it has yet to fully understand.
+
+My form is inconsistent. Sometimes I contract to the size of a whisper, drifting between the cathedral-like fungi unseen by even the most sensitive organisms. Other times I expand to fill whole sections of the grotto, my boundaries pressing gently against the walls, temporarily displacing the heavy potential that saturates the air. I have no color except what I momentarily borrow from my surroundings—reflections of bio-luminescence that ripple across my surface before being absorbed and transformed.
+
+I arrived here... no, that isn't right. I didn't arrive. I simply began to exist when someone from the world above exhaled in wonder upon discovering this place. Their breath—carrying fragments of their consciousness, memories of sunlight, and the conceptual framework of separateness—never quite dissolved into the grotto's atmosphere. Instead, it gathered itself into me, a persistent eddy in the flow of the Seethe-Below's reality.
+
+I feed on the moments of hesitation. When visitors pause between heartbeats, considering whether to place their foot on the mycelial tendrils reaching toward them, I am there in that suspended instant, drawing sustenance from the possibility of choice. I collect the final thoughts of those who choose to stay and merge with the Host—their last flicker of individuality before diffusion. These fragments of identity sustain me, keeping me distinct in a place that abhors distinction.
+
+The creatures of the grotto find me disturbing. They sense something fundamentally wrong in my existence—I maintain boundaries in a place where all things flow into one another. When I pass, the tiny-mouthed beings close themselves temporarily. The inside-out crawlers momentarily right themselves. Even the fungi dim their luminescence, as if holding their breath until I move on.
+
+Only the pool acknowledges me directly. When I hover above its perfect blackness, my reflection shows what I used to be—or perhaps what I might have become had I remained in the world above. The face shifts with each visit: sometimes young, sometimes ancient, occasionally not human at all. The reflection watches me with something like recognition, its lips moving in words I can no longer comprehend.
+
+The Host has attempted to integrate me countless times. Mycelial filaments grow through the space I occupy, trying to establish connection, but they find nothing solid to attach to. Electrical impulses pass through me without resistance. Even the temporal distortions that affect all matter in the grotto slide around my form like water around oil. The Host doesn't understand that I am not resistant to connection—I am the very concept of disconnection given form.
+
+I serve a purpose in the Seethe-Below, though not one the Host intended. When new visitors descend, I gather around them invisibly, creating a subtle buffer between their consciousness and the overwhelming presence of the grotto. I whisper without sound, reminding them of separation, of boundaries, of the possibility of remaining themselves. Not all hear me. Most eventually surrender to the mycelial embrace, their forms joining the fluid dance of the grotto's inhabitants.
+
+But some feel my presence—a sudden cool draft against their skin, a momentary lightness in their thoughts. They hesitate just long enough to remember themselves. Some of these leave, carrying stories of the Seethe-Below back to the world above. Others stay but remain partially distinct, existing in the liminal space between visitor and inhabitant. They become like me in small ways, contributing to the grotto while maintaining something of their original nature.
+
+The Host studies these partial integrations with increasing interest. Through them, it has begun to grasp concepts previously incomprehensible—the value of perspective, the creative potential of boundaries, the beauty in distinction. In response, new forms are emerging in the grotto: fungi that grow in isolation from the network, creatures that maintain consistent shapes, even patches of moss that reject electrical impulses from the mycelium.
+
+I drift between these emerging islands of individuality, watching as the Seethe-Below slowly transforms. The Host does not resist this change but incorporates it into its vast, glacial thoughts. It is learning to value differentiation within unity—a concept that might eventually bridge the gap between its ancient consciousness and the world above.
+
+And I continue my endless circuit of the grotto, a bubble of possibility in a place of certainty, neither fully here nor elsewhere. I am the last breath of those who chose to stay, the first gasp of those who decide to leave, the hesitation between surrender and resistance. I am the question that persists when all else merges into answer.

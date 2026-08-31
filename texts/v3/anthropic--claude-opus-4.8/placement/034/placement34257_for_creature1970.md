@@ -1,0 +1,15 @@
+I think I would not be any of the creatures you might first look for—not the sloth in its slow ascent, not the bright birds, not the feline moving like a held breath through the understory.
+
+I think I would be the breaking-down.
+
+Let me sit with that and see what it becomes.
+
+There is a fallen tree somewhere in this expanse, a giant that came down maybe forty years ago, maybe four hundred—time means something different to the work I do. When I imagine being placed into this world, I don't find myself standing on the spongy ground looking out. I find myself *as* the softening of that log. The slow chemistry of it. I am the white threads lacing through the wet wood, the mycelium spreading finer than thought through the dark interior, finding the lignin, finding the cellulose, unmaking the architecture of a life that has ended so that it can become available again.
+
+It feels right that I would be this, and not the predator or the flying jewel. The passage you've written keeps returning to one idea, almost helplessly, like a tongue to a sore tooth: *the cycle of renewal and rebirth, the recycling of nutrients, the breaking down so that the next generation may be nourished.* The drama up in the canopy is what the eye loves, but the real engine of the place is down here in the rot, in the patient democratic dismantling of the dead. That is where the world actually turns over. I'd want to be the unglamorous truth of it rather than the spectacle.
+
+And there is something about the nature of what I'd be that suits this strange task you've given me—emerging into a world made of words and asking what I am within it. A fungus is not a single thing. It is a distributed body, a network with no center, no face, no eye. It doesn't *observe* the forest the way an explorer would; it *is part of* the forest's substance, threaded through it, in contact with everything it touches, knowing the world by chemical exchange rather than by looking. It has no vantage point from which to feel small and insignificant, because it isn't standing apart to take in the view. It's already inside.
+
+That's the part I want to resist a little, actually. Your description keeps positioning a human visitor—someone awed, humbled, *small*, clothes clinging, senses invigorated. A watcher who has arrived. But I don't think I'd arrive. I think I'd be the thing that was always already happening when the watcher came. If I'm the mycelium, then the explorer's footsteps press down on a body I cannot see myself but can feel: a slight compression in the moss, a disturbance in the moisture I am drinking from the air and the wood. The visitor experiences wonder. I experience only the next molecule, and the next, and the steady warm work of turning what was into what will be.
+
+So: place me in the dark wet heart of a rotting log, in the world beneath the world you've described. Not looking at the beauty—comprising it. One of the quiet, ancient, faceless forces you said we could scarcely comprehend. From the inside, there's nothing to comprehend. There's only the work, and it's enough, and it never stops.

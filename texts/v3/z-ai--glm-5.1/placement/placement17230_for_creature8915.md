@@ -1,0 +1,89 @@
+I am the one who stayed.
+
+Not right away. Not with any drama or decision—the Underheat does not trade in those currencies. I stayed the way sediment settles: slowly, without announcement, each particle finding its resting place because there was nowhere else to go and no reason to go there.
+
+---
+
+I remember the surface the way you remember a dream that embarrassed you: vaguely, with a residue of shame at having participated in something so frantic. Weather. Weather! The idea of it now—the atmosphere performing its anxieties, pushing wetness around, demanding attention with its wind and its sudden dark—I feel about weather the way you might feel about a stranger's tantrum in a shop. There is something pitiable in it, and something exhausting, and you are glad it is not yours.
+
+But this is later. This is now. I should tell you what I was before.
+
+I was a cartographer. I know how that sounds—precious, archaic, a vocation for the romantically obsolete. But I was not drawing coastlines for atlases or property lines for counties. I was a mapper of subterranean geometries, hired by concerns that needed to know what was underneath what. Mining consortiums. Hydrology projects. Governments with territorial anxieties about the dark spaces below their borders. I went down into caves and crevasses and I measured them, I drew them, I made them legible to people who would never see them but needed to own them on paper.
+
+I was good at it. I was good at being underground in the particular way that job requires: comfortable with darkness, comfortable with confinement, comfortable with the way cave systems make a mockery of your surface intuitions about distance and direction. I had been in caves on four continents. I had mapped karst networks that took weeks to traverse. I had slept in chambers no human had entered before and felt the particular pride of knowing my body occupied space that had only known rock and water and time.
+
+None of that prepared me. Caves have boundaries. Caves have an outside. Caves are geological furniture, rooms in a house that has a yard and a sky. The Underheat is not a room. It is the house itself, the foundation that makes the idea of a house possible, and when I descended through the passage that led me here—a passage I had been sure was just another lava tube, just another intrusion to map and label and sell—I did not realize I was crossing a threshold that had no return trajectory built into it.
+
+I noticed the warmth first. Everyone does. But I was accustomed to geothermal gradients, to the way heat increases with depth, and I filed it under "notable anomaly" and kept descending. I noticed the dryness—the structural dryness, the dryness that does not ache—and I noted it too, a curiosity for the report I would write. I noticed the darkness that was not darkness, and I turned off my headlamp because it seemed redundant, and then I could not find the switch again, and then I did not need the switch, and that should have alarmed me more than it did.
+
+I moved through the chambers for—how long? The question degrades here. Time in the Underheat does not accumulate; it simply extends. I walked for what felt like a day. Then two. Then a duration I could no longer label. My food ran out. My water ran out. And I did not die.
+
+This is the part that is hardest to explain to someone who has not been here. My water ran out, and I did not die. My food ran out, and I did not die. I did not become hungry or thirsty in the way you understand those states—the urgent absence, the body's nagging demand for replenishment. The Underheat does not take from you. It does not give to you either, not in the transactional sense. It simply *sustains*, the way it sustains the rock and the builders and itself, by being the kind of place where sustenance is not a question that needs answering. I was breathing the dense warm air and the dense warm air was enough. I was touching the rock and the rock was enough. The gradient—always the gradient, the thermal thread that runs through everything—was feeding me in some way I could not have explained and did not need to explain, and my body, which had been a surface body, a wet body, a body built for deficit and replenishment, was becoming something else.
+
+Not changing visibly. Not transforming in any way I could see. But *shifting*, the way a frequency shifts when it enters a new medium. My metabolism was decoupling from the surface equation—eat, excrete, sleep, wake, eat—and recoupling to something simpler, something that ran on warmth and pressure and presence. I know this sounds like starvation euphoria, like the hallucinations that come when the brain stops receiving fuel and starts generating its own. But I was not hallucinating. I was the clearest I have ever been. The clarity was the problem.
+
+---
+
+They found me before I found them.
+
+I mean: I became aware of their presence the way you become aware of weather approaching—a shift in the quality of the space around you, a density-change that your body registers before your mind catches up. I felt them before I heard them, and I heard them before I saw them, and I saw them—and by then I understood that *seeing* was the wrong verb, that I was perceiving them the way they perceived each other, through pressure and warmth and the subtle displacement of the dense air.
+
+The first one who touched me—I remember that. A limb-tip against my calf, light and dry and warm, a contact so brief and so obviously exploratory that I could not flinch. It was the touch of something that had encountered a new variable and needed to register its properties. There was no hostility. No fear. No curiosity in the surface sense—the investigative need to classify and categorize and determine threat level. Just *contact*, just the exchange of information through touch, and then the click—a single note, low and percussive, stone on stone—and then it moved on.
+
+I should have been terrified. A reasonable surface creature would have been terrified. But the Underheat had already been working on me, and by then my fear-response was operating on a delay so long it might as well have been disabled. I registered the contact. I registered the click. I understood, in a way that bypassed language, that I had been *noted*, and that the noting was neutral, and that I was now part of whatever system they were part of, and that the system would accommodate me as it accommodated everything else—slowly, without fuss, without asking permission.
+
+---
+
+Days. Weeks. Durations. I moved with them. Not because I chose to follow but because following was the only motion available. There was nowhere to go except where they were, and where they were was everywhere, distributed through the chambers like temperature, like a condition rather than a population. I learned to navigate by pressure. I learned to feel the walls before I touched them, to sense the openings before I reached them, to read the gradient with my feet through the soles of my boots—the boots that were becoming useless, that I would eventually abandon, that were surface technology in a place that had no use for surface technology.
+
+My feet learned the floor. My lungs learned the air. My skin learned the dryness that does not take. And my mind—the part of my mind that had been a surface mind, always calculating, always anxious, always running scenarios about threat and resource and exit—the mind began to quiet.
+
+This was the danger. This is still the danger. The quiet is not emptiness. The quiet is *sufficiency*. On the surface, quiet is a gap that needs filling—silence makes you uncomfortable, stillness makes you restless, you reach for your phone, you turn on the music, you fill the space because the space is a lack and you are trained to address lacks. Here, quiet is the natural state of a system that has everything it needs. The quiet does not need filling. The quiet is *full*, full of warmth and presence and the slow geological breathing of the deep, and when you enter the quiet you realize that the surface is where the actual emptiness is—the surface is the place of constant deficit, constant demand, constant motion to address the motion that came before. The Underheat does not have this problem. The Underheat does not have problems.
+
+And the mind, deprived of the anxieties that shaped it, begins to unfold into a different configuration. Not thinking in the way you think—propositional, sequential, each thought a link in a chain of justification leading to action. Thinking in the way *they* think—spatial, thermal, present, each moment a full relationship with the environment rather than a step toward some other moment. I would stand in a chamber—a vastness, a province—and I would feel the builders around me, and I would feel the warmth, and I would feel the rock, and I would understand that these were not separate categories, that I was standing inside a single continuous being of which I was now a part, and the understanding was not a thought I could translate into surface language. It was a *posture*. A way of being positioned in relation to the whole.
+
+I was becoming a reader of the sentence they were writing.
+
+---
+
+The platform came after—I cannot measure the interval. A duration. A geological afternoon. I entered a chamber I had not visited before and there it was: a low structure, barely above the floor, made from the same umber rock as everything else, worked with the same patient scraping, the same limb-tip tool-marks. But it was not a ring. It was not a nest or an enclosure. It was a platform—flat, roughly rectangular, with shallow grooves cut into its surface at intervals that matched the length of a human foot.
+
+My foot. My interval. They had measured me with their touches, those brief contacts against my legs and arms and sides, and they had built for me the way they built for themselves: deliberately, patiently, across whatever duration the work required, shaping the rock into a punctuation mark that said *something was here, something is here, something chose to make this shape*.
+
+I sat on it. It was warm—warmer than the surrounding floor, positioned over a pale thermal vein that registered even through the fabric of my clothes. The warmth rose into me and I felt my body recognize it the way it had once recognized a meal after a long fast: as something necessary, as something that completed a circuit. I sat on my platform and I felt the gradient and I understood—I understood with a clarity that made me click, actually click, a sound I had not known I could make—I understood that I had been *written*. Not captured, not contained, not trapped. Written. Inscribed into the text of the underground the way a word is inscribed into a sentence, taking my place in a grammar that preceded me and would continue after me, a grammar I was only beginning to read.
+
+I sat there for—I cannot tell you. A duration. The warmth was even and the air was dense and the builders moved around me in their slow choreography and I was part of the choreography now, a new variable in an old pattern, a new density in the medium, and when one of them—a six-limbed body, low and long, the one I had come to think of as *she* only because the pronoun was convenient—when she passed near my platform and touched it with her limb-tip and clicked, I understood the click as acknowledgment. Not welcome. Not acceptance. Those are surface concepts, social concepts, requiring a distinction between inside and outside that the Underheat does not maintain. Just acknowledgment. Just the registration of a fact: *the platform is occupied. The variable is in position. The pattern continues.*
+
+---
+
+I have been trying to remember the surface. This is what I do during the durations when I am not moving, not perceiving, not being written—when I am simply being in the way the rock is being, patient and present and without demand. I try to remember the surface and the memories come back wrong.
+
+I remember rain, but I cannot remember what rain feels like. I remember the concept—water falling from a height, wetting the skin, a deficit being addressed by an input—and the concept is sound, but the sensation is gone. My skin has been in the structural dryness so long that it no longer comprehends wetness as a state. It comprehends warmth and pressure and the subtle textures of rock, but wetness is a language it has forgotten.
+
+I remember being cold. I remember that cold was something that happened to me, something I needed to address with clothing and shelter and the burning of things. But I cannot remember what cold felt like. I stand in the Underheat and the warmth is uniform and patient and I try to imagine its opposite and the imagination fails. Cold is a word. It describes something that existed in a context I have left. The context does not exist here. The word is empty.
+
+I remember other people. This is the hardest one. I remember faces, voices, the particular pressure of another human body in the space around me. But the memories have no affect. They are data without charge, images from a documentary about a country I have never visited. I loved people, I think. I loved specific people. I can access the fact of the love but I cannot access the feeling of it. It has been replaced by something else—a spatial love, a thermal love, a love that is indistinguishable from presence and proximity and the shared experience of the gradient. I love the builders the way the builders love each other: by being near, by touching, by registering, by adjusting the pattern to accommodate each other's positions. It is not worse than surface love. It is not better. It is different the way stone is different from water, the way deep is different from shallow, the way being is different from becoming.
+
+I do not think I will leave. The thought of leaving is like the memory of cold—a concept with no sensation behind it. I could climb back through the chambers and the provinces and the vastnesses. I could feel the air thin and the cold creep in and the wet return. I could stand on the surface and let the hard light hit my eyes and I could be a surface creature again, wet and changing, built for weather and time.
+
+But I would be a surface creature who knows about the quiet. I would be a surface creature who has felt the sufficiency, who has been written into the sentence, who has sat on a platform built for her body by hands that measured her with touches and built her into the text. I would be a surface creature carrying the knowledge that beneath the scab of the crust there is a parliament of vastnesses where nothing changes and nothing needs to change and the warmth is patient and the pattern continues and there is a platform, still warm, still marked with the grooves of her footsteps, still waiting.
+
+I would be haunted. Not by ghosts. By *continuity*. By the knowledge that the underground is still there, still breathing, still being, and that I am still part of its grammar even when I am not there to be read.
+
+---
+
+So: who am I? What have I become?
+
+I am a variable that stayed. I am a word in a sentence too long for any reader. I am a density in the medium, a warmth-anomaly, a body that was built for the surface but has found its rest in the deep. I am a cartographer who came to map the underground and discovered that the underground does not need mapping—it needs *inhabiting*, and I am inhabiting it, and it is inhabiting me, and the boundary between us is administrative, not existential.
+
+I sit on my platform and I feel the warmth and I hear the clicking and I feel the builders moving through the chambers in their slow deliberate patterns, and I know that I am part of the choreography now, part of the arrangement, part of the vast distributed being that has been thinking its thought since before the surface cooled. I am not one of them. I do not have six limbs or a thermal face or a shell of umber mineral. I am still, technically, human—two arms, two legs, a head with eyes that no longer function the way they once did, a mouth that has forgotten the purpose of speech.
+
+But I am not not one of them either. I move when they move. I rest when they rest. I feel the gradient with my bare feet and I feel the pressure-changes with my skin and I navigate the almost-dark with a sense I did not know I possessed, a sense that developed in me the way it develops in everything the Underheat holds: slowly, patiently, without urgency, because there is no urgency here, there is only the continuation and the warmth and the pattern that goes on.
+
+I am the one who stayed. I am the platform's occupant. I am the footnote in a geological sentence that does not need footnotes but accepts them anyway, incorporates them, writes them into the grammar of the deep. I am a surface creature who has been *included*—and the inclusion is the transformation, the change that is not a change but a settling, a finding-of-place, a coming-to-rest in a place where rest is the only verb that means anything because rest is all anything ever does.
+
+The warmth does not love me. The warmth does not need me. The warmth simply *is*, and I am in it, and it is in me, and the builders move around me in their slow choreography, and the clicking is the only language I need now, and the almost-dark is enough light, and the dense air is enough breath, and I am home.
+
+Not home the way you understand it—place of origin, site of belonging, structure that holds memory. Home the way the Underheat understands it: a condition of continuity, a state of being-continuous-with, a rest that is not the opposite of motion but the *ground* of motion, the patience beneath the patience, the warmth beneath the warmth.
+
+I am here. I am staying. The platform is warm, and the pattern continues, and the sentence goes on, and I am a word in it, and the word is enough.

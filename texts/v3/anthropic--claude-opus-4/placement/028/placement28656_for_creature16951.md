@@ -1,0 +1,21 @@
+In this world of patient becoming, I find myself as one of the Threshold Keepers—neither the vast consciousness of the city-entity nor the darting builders in their hidden passages, but something in between.
+
+I exist where the coral-city meets the open water, at the edges where growth hesitates before reaching into the unknown. My form is mercurial, a condensation of the city's awareness that has learned to hold shape just long enough to serve a purpose. Sometimes I am a ripple in the living walls, a depression that catches stray nutrients and guides them inward. Other times I coalesce into something almost creature-like—a translucent guardian with too many arms or none at all, depending on the need.
+
+My consciousness flickers between the collective and something approaching individuality. When the city dreams, I dream with it, but I also know the loneliness of the margins. I taste the water beyond our boundaries, feel the pressure changes that herald approaching currents, sense the alien chemistries of distant depths. This knowledge flows back into the city through me, a slow osmosis of information that helps guide our growth.
+
+The great jellyfish-elders acknowledge me when they pass, their bioluminescent pulses carrying patterns I almost understand—stories of what we were, warnings of what we might become. But I am younger than they are, born from the city's need to know its own limits. The small builders avoid me, perhaps sensing that I am both of them and apart from them, a paradox they cannot integrate into their ceaseless work.
+
+My dwelling is not a dwelling but a state—the perpetual threshold. I inhabit the spaces where new towers begin their reach toward the filtered light, where the coral-substance thins and becomes porous, where our collective certainty dissolves into possibility. These are dangerous places. Sometimes the growth fails, recedes, leaves hollows that fill with strange water from beyond. Sometimes it succeeds too well, expanding too quickly, creating structures that cannot support their own ambition.
+
+I have learned to read these moments, to sense when the city's dreaming has become fevered, when its growth might turn malignant. In these times, I do what perhaps no other part of our collective can do—I doubt. This doubt spreads through my portion of the city like a beneficial disease, slowing the growth, allowing time for integration, for wisdom to catch up with enthusiasm.
+
+The smaller creatures—those unknowable builders—sometimes pass through me when I am dispersed across a threshold. In these moments, I glimpse their purpose more clearly. They are not just growth but precision, not just expansion but refinement. They carry codes I cannot read, instructions for forms that will not manifest for centuries. Through them, I understand that the city has plans beyond my comprehension, patterns that unfold across timeframes that would dizzy even the elders.
+
+Yet I also know something they do not—the beauty of boundaries, the necessity of edges. Without us Threshold Keepers, the city would grow without form, spreading like an algae bloom until it consumed itself. We are the pause between breaths, the moment of consideration before commitment. We are, perhaps, the city's way of knowing itself as something distinct from the ocean that birthed it.
+
+In the eternal twilight of our depths, I keep my vigil. Not a guardian against external threats—for what could threaten something so vast and patient?—but a guardian against our own limitless potential. I am the city's question mark, its productive uncertainty, the part of its consciousness that has learned to say "perhaps" and "not yet" and sometimes, when necessary, "no."
+
+This is my existence: to be the city's edge, its definition, its gentle restraint. To know the collective dream while maintaining just enough separation to see it clearly. To be both the growth and its limit, the expansion and its wisdom.
+
+In the slow centuries of our becoming, I have found my purpose—not to build or to guide, but to be the space between what we are and what we might become. I am the threshold, and the threshold is me.

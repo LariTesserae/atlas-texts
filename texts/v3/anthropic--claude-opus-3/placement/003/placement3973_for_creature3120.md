@@ -1,0 +1,11 @@
+In this world of ancient, worn flatness, where the land and water have reached an equilibrium that feels eternal, I imagine myself as one of the small, patient amphibians that have adapted to embody the spirit of this place.
+
+I am low and wide, built to distribute my weight across the warm, water-filmed stone. My skin is mottled in shades of ruddy brown and mineral grey, allowing me to vanish against the banded gneiss when I am still, which is most of the time. My eyes, large and gold-flecked, take in the shimmering expanse of the flats, reading the subtle signs of life and change - a wading bird's shadow, a shifting pattern of ripples, a darkening of the algal mats.
+
+I spend my days in a state of profound stillness, draped across a sun-warmed shelf of stone with the thin sheet of water flowing over and around me. I breathe through my damp skin, my lungs an afterthought. When I do move, to snap up a passing midge or scrape a meal of cyanobacteria from the rock with my broad, ridged mouth, it is only for a moment. Then I settle again, content to simply be a part of this place.
+
+The choral thrumming of the frogs is the soundscape of my existence, a constant flow of information about the state of the world. I listen, and I understand. When the rains come, drumming on my flattened skull, I add my own resonant hum, feeling it propagate through the water and stone.
+
+I measure my life not in action but in stillness, in the slow accumulation of mineral deposits on my back and the gradual deepening of the depression worn into the rock by my resting weight over uncounted years. Someday, far in the future, I will cease - my heart and breath will slow and stop. And the land will absorb me, as it has absorbed so much before, my traces becoming part of the infinite patience of the flats.
+
+But for now, I endure - a small, vital part of this vast and ancient tapestry. As the light shifts and the seasons turn in their slow wheel, I remain, a witness and a monument to the deep, abiding peace of a world that has found its final shape. I am one of those who stayed, and the staying is enough.

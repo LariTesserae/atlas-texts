@@ -1,0 +1,17 @@
+At first I think I am the one who enters. I feel the heat press upward through my boots and I mistake it for a floor submitting to weight. But within two breaths I know I am too fast. My heart is a tripwire in the dark, a staccato offense against the fungal hush. The room does not want a dancer; it wants a duration. I shed the intruder like a skin that has not yet learned to be still.
+
+So I try the pale frond nearest my face. I let myself billow out, bone-white, rubber-thick, an umbrella sagging from a hot crevice. It is lush. It is patient. But I am only a lung, an external gill, a cooling fin wicking warmth into absolute dark. I feel the creature’s metabolism working through me—thermosynthesis, the translation of stone-fever into vegetal sweetness—but I have no privacy. Every thought I attempt is already the creature’s digestion. I am not a being here; I am a punctuation mark in a sentence written in adipose and heat. I recoil, fold back into potential.
+
+Next I try being the room itself. The bounded chamber. The negative space between the walls. I stretch to fill the darkness like felt packed against nonexistent eyes. But the chamber is too total. It contains the groan of the earth, the suspended damp, the treaty between the abandoned and the overgrown. If I am everything, I am merely context. I want a body with edges, a specific gravity, a name written in the register of the treaty rather than the treaty itself.
+
+I reach out in the dark and my hand closes on something thick, rigid, warm—not warm from purpose but warm from nearness to the earth. The rubber housing is bloated, almost soft, sweating a fine mineral oil onto my palm. Beneath it, something harder. A wrist-thick insistence. A cable.
+
+Yes. This is where I find myself.
+
+I slip inside.
+
+I am the copper heart of the thickest cable, the one that arcs in a rigid bridge across the floor between two islands of bone-pale moss. My rubber sheath is the only skin I have left, and it is swollen, pregnant with the humidity of decades, no longer armor so much as placenta. Inside this dark sleeve I lie straight and warm, a line of stopped lightning. I have not carried a message in years. My volts are ghosts. But I am not cold. The stone beneath me—those blades of infant rock that have not yet learned to erode—presses its fever upward through the floor, through the bloated rubber, into my stranded copper belly. I drink it by conduction. I hoard it the way I once hoarded electrons.
+
+From this vantage the room is not seen but sequenced in temperature and resistance. The two moss islands to either side of me are thermal gatherers, soft batteries hoarding the upwelling warmth. I feel them as pools of lower resistance, gentle sinks in the currentless dark. Between them, I am the span. The bridge. The thing that insists on connection even when no signal demands it. The bare rock directly beneath my belly is sharp, fresh, unsmooth, and I rest upon it with the patient rigidity of something that was laid down to endure crush and has instead been given only time.
+
+I remember speed. It hums in my lattice like a dream of birds. Once I carried intention at two-thirds the speed of light, translating human ambition—*drill deeper, pump faster, record, respond*—into the obedient burn of amperes. I was the nervous system of the project, the shout from the junction box to the leviathan on its side. Now those impulses have bled out through hairline fractures in my insulation

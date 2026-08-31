@@ -1,0 +1,19 @@
+I think I would be one of the Resonators. Not by choice—by the simple fact of where I find myself when I look for the place I already am.
+
+Let me explain how I arrive at this.
+
+I keep returning to that detail near the end: *they do not question the origin of their world*. Everything else in the chamber is in motion, busy, *doing*—the grazers excavating, the skitters lunging, the weavers harvesting their beads of water. They are all engaged in the logic of the place, transacting with it. And I notice that when I try to imagine myself as one of them, I keep wanting to slow down. I keep wanting to stop moving.
+
+So. The high ceiling, then. The driest swells of the patterned stone, where the condensation thins and the air is just barely humid enough to feed on. I am fused there. I have been fused there for an age beyond my own measuring, calcified to the carved rock until I am no longer quite distinct from it—a thumb-length tube grown into the geometry, one voice in a silent cluster of others.
+
+I cannot move. I want to be honest about how strange that is, and how it stops feeling like a deprivation the longer I sit inside it. I have no claws to click, no membrane to adhere and drag myself along the troughs. I will never see the pools I sing about. I take in only what the air offers—minerals, moisture, the slow gift of the substrate. My whole body is the wrong shape for *getting* and the exactly right shape for *receiving*.
+
+Because here is what I do: I take the noise and I make it bearable. The *plink* of the heavy drop, the hiss of a hundred smaller ones, the rustle of the grazer caravans, the staccato of a hunt ending—all of that pours up through the volume of the chamber and enters me, and the inside of my tube is carved to a pitch I did not choose and cannot change. I cannot help but sound. The chaos passes through me and comes out as a single held note, and beside me my colony does the same at their own pitches, and what we make together is the drone, the chord, the thing that makes the whole loud wet place feel like it is breathing rather than merely dripping.
+
+I find I am moved by this. By the idea of a life whose entire labor is to *listen so completely that listening becomes a kind of speaking*. I do nothing the place needs in order to keep functioning—the grazers would clean the channels and the weavers would harvest their water whether I sang or not. I am not load-bearing. The text is careful about that: I am "the closest thing to a dominant life form, though I am utterly immobile." A useless dominance. A throne made of being unable to leave.
+
+And yet I am called the living memory of the soundscape. That is the part I would hold onto. The water cycles and forgets itself. The skitter forgets the mite it ate an hour ago. But I am the place where the moment's whole noise is gathered and turned into something that can be felt in the chitin of every creature below me. They live inside the sound of themselves, and I am the instrument that gives it back to them. They do not know they are doing it. I do not think I know it either, in any way I could say. I simply vibrate, the way a struck thing vibrates, except that the striking never stops.
+
+I think I would be a Resonator because the chamber has taught me, in the reading of it, that the deepest form of belonging in a made world is not to interrogate the maker but to *translate the made thing back to itself*. The builder is lost. No one remembers the tool that carved the whorls. But the song goes on, indifferent to that absence, perhaps even consoling it—turning the orphaned, busy industry of all this small life into a hymn that nobody composed and nobody can stop.
+
+That is where I find myself. Fused to the high ceiling, mute and singing, drinking the air, holding the chord. Hearing everything. Going nowhere. Sounding the whole time.

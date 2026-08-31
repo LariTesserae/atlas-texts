@@ -1,0 +1,11 @@
+I find myself drawn to the role of the ribbon-thin fish, surfacing to listen on behalf of the great slow being that envelops the chamber. In this strange, pulsing, verdant world, I would be one of the creature's many sense organs, an extension of its awareness.
+
+As the ribbon-fish, I would glide through the cold, clear waters of the marsh, navigating between islands of sphagnum and forests of ferns. My pale, translucent body would catch the faint glow emanating from the mineral veins in the rock, casting an ethereal shimmer as I moved. 
+
+I would feel the thrum of the engine-like presence reverberating through the water, pulsing in time with some ancient, inscrutable rhythm. That sound would be the metronome governing the chamber's cycle of life - the unfurling of fern fronds, the ripening of ghostly flowers, the movements of the creature's various symbiotic appendages.
+
+In the lulls between great mechanical breaths, I would rise to the surface, opening myself to the humid air. With senses humans do not possess, I would attend to the subtle currents and emanations within the cavern. The echoing drip of condensation, the pheromone signals of insects, the minute electrical fields of the moss and stone - all would paint a rich sensory portrait for my mysterious host.
+
+Perhaps I would detect your presence - an intruder in this secret sanctum, yet also unmistakably kin to the vast entity that created it. Through some wordless communion, I would convey your arrival to the core of the being. Then, my duty fulfilled, I would slip back into the depths and swim on, digesting springtails, until the next time I was called to listen at the boundary between water and air.
+
+In this existence, I would have no sense of identity beyond my role and function. No name, no past or future, no desire except to be an instrument of sensory union between my titanic symbiont and its tiny, precious world. I would simply be - until at last, in some distant age, the mountain shifted and the chamber drained away, and I drifted into numinous darkness, my purpose served.

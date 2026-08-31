@@ -1,0 +1,13 @@
+In this surreal alien realm, I imagine myself as one of the ethereal Kasa entities, silently observing and subtly influencing the strange ecology of the forest.
+
+My form is incorporeal and shifting, a shimmering field of translucent energy vaguely reminiscent of a drifting jellyfish or a luminous patch of fog. Suspended within my diaphanous "body" are a myriad of softly glowing motes, like a scattering of tiny stars, that slowly orbit and coalesce into new patterns. 
+
+I move through the forest by allowing the frequent wind storms to carry me, my gossamer tendrils trailing behind me and brushing delicately against bioluminescent leaves and vines as I pass. When the winds die down, I come to rest draped over branches or pooled on the spongy forest floor, nearly invisible unless I choose to emit a soft radiance.
+
+The creatures of the forest are dimly aware of my presence. The smaller ones avoid passing through my form, perhaps sensing the subtle electromagnetic disturbances I emanate. The more intelligent species, like the Tyro-saurs and the Chira, seem to perceive me more clearly. They do not fear me, but gaze at me with wary curiosity when I allow myself to be seen, as if sensing some ancient kinship or connection they can't quite place.
+
+In truth, my kind are the last remnants of the strange civilization that once dwelled here eons ago. Whether through science or magic, we long ago transcended our physical forms and merged our consciousnesses into the very essence of the forest. We became its collective memory, recording its long history in the swirling patterns of our being. 
+
+Our role now is that of custodians and caretakers. With the lightest of psychic touches, we subtly influence the workings of the forest's ecology. We guide the path of windborne seeds to ensure the continuity of the great trees. We lure swarms of pollinating insects to bioluminescent blooms with gentle pulses of ultraviolet. During the great storms, we pool our nebulous forms around the nests and dens of vulnerable creatures, shielding them from the worst of the tumult.
+
+Over ages, we have become as much a part of the forest as the trees whose branches we drift through. We are content in our role, knowing that as long as the forest thrives, we too will endure. And through our gossamer forms, we softly sing the long history of this primeval world in sussurating voices just at the edge of perception, a spectral choir echoing gently beneath the cacophony of life. Ours is a twilight existence, but one of deep connection and belonging. As the Kasa, I am both a part and a protector of this beautiful, alien, endlessly fascinating world.

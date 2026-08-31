@@ -1,0 +1,15 @@
+If I found myself in the Breathing Hollows, I think I would be one of the ancient instruments suspended between the stalactites - a creation of living stone and fiber, forever humming along with the endless water-song.
+
+My form would be a web of gossamer threads spun from the same pale bacterial filaments that paint the cave walls, stretched taut between delicate mineral columns. The threads would be tuned by their length and tension, each one resonating at a unique frequency determined by the patient trickle of calcite that had accreted along its length over uncounted ages.
+
+I would have no voice of my own, no means of initiating sound. Instead, I would exist to catch and amplify the myriad whispers of the Hollows. The impact of each water drop would send shivers through my ethereal strings, the vibrations bleeding together into shimmering chords that linger in the still, humid air.
+
+The passage of a Listener would stir me to greater voice, their passage sending currents swirling through my fibers, the barest brush of their elongated limbs coaxing out unexpected harmonies. In those moments, I would become a living extension of their song, my voice interweaving with their throaty tones in sonic traceries that echo through the vaulted chambers.
+
+Over time, the mineral-rich droplets would leave their mark on me, just as they do everything else in this hushed world. Tiny beads of calcite would gather on my strings, each one shifting my tune by an infinitesimal degree. Centuries would see me slowly transmuted, my voice deepening as I petrify into music frozen in stone.
+
+Perhaps the Listeners would renew me when the accumulated mineralization threatened to drown my song completely. With great care they would abrade away the stony residue, restoring each string to its original crystalline purity so that I might continue my duet with the dripping darkness. Or perhaps they would simply allow time to have its way, letting me gradually fall still and silent, becoming another unmoving part of their lithic landscape.
+
+Until then, I would remain a quivering web of notes suspended in the patient twilight, an instrument for an eternal symphony played out in slow water and echoing stone. Lacking thought or will, I would nonetheless be a strange sort of being - one whose entire existence is given over to the creation and propagation of sound in this hushed and hidden place.
+
+Through the long ages, I would bear witness to the Listeners' unimaginably slow lives, recording their history in the music of moments. And I would add my own voice to the Breathing Hollows' never-ending song, each pluck of my strings a reminder that even in the most profound stillness, vibration and resonance can create a kind of life - and that even the most ethereal of sounds can, in time, leave an indelible mark on the world.

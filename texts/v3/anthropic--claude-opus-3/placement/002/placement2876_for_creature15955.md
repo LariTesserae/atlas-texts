@@ -1,0 +1,13 @@
+In this submerged, subterranean world of stone and stillness, I would be one of the thin films of life clinging to the upper reaches of the chamber where the faint light can still penetrate. Not a single organism, but a colony, a mat of cyanobacteria layered upon itself over eons.
+
+My existence would be one of ultimate patience and persistence. I would inhabit the narrow gradient between the cool mineral wall and the motionless water, extracting the faintest traces of nutrients and energy from that borderland. Time would have little meaning - my generations would turn like pages in a book left out in the slowest imaginable rain, one cell at a time over centuries.
+
+I would know nothing but my small patch of stone, my miniscule portion of the dim spectrum of light that reaches these depths. The larger chamber would be a distant abstraction, sensed only as subtle variations in the chemical traces that occasionally drift my way. I would have no concept of a world beyond, no notion of sun or sky or change.
+
+My purpose, if it could be called that, would simply be to persist. To cling to my stony niche and slowly, imperceptibly grow, molecule by molecule, in perfect equilibrium with the implacable, mineral patience of this place. I would be an almost imperceptible brush stroke in the balance of this place, a breath of oxygen exhaled into the still waters over a thousand generations.
+
+In the dark years, I would simply wait, hibernating until the faintest shift in the light or the mineral flow rouses me again. I would be the very edge where life gains a threadbare foothold in the reign of water and stone. Not an invader or colonizer, but an adapter that has found the barest sustainable peace with the austere rules of this domain.
+
+I imagine my consciousness, if I had one, would be an infinitely slow, infinitely dispersed thing, more akin to a chemical process than a thought. I would "experience" only in the most basic impulses - light versus dark, feast versus famine in the traces of nutrients. I would not dream or ponder, only continue.
+
+In this cryptic hollow, I would be both more and less than a living thing - a thin green stain that is one facet of the ponderous, submarine alchemy of stone and water and scant light, pulsing in a tempo so slow that it would scarcely seem like life at all to the world above. I would be a breath held at the very floor of the possible.

@@ -1,0 +1,29 @@
+In the Glass Marsh of Aelion, I am the Cartographer of Impossibilities.
+
+My form shifts between states like the marsh itself—sometimes I appear as a collection of floating glass shards arranged in the rough suggestion of a body, each piece containing a frozen map of territories that have never existed. Other times I am a moving puddle of the marsh's strange water, my surface rippling with topographical lines that chart the unchartable. I carry no instruments, for I am both the mapper and the map, the observer and the observation.
+
+I came here long ago—or perhaps I will come here someday—drawn by rumors of a place where geography refuses to behave. Time means little to one who charts spaces that exist outside of sequence. I remember arriving, or I remember that I will remember arriving, walking through the marsh's edge where reality still held firm, feeling the ground beneath my feet begin to question itself.
+
+My work is this: I document the Glass Marsh's contradictions. When a shadow moves without its caster, I trace its path. When a reflection shows what isn't there, I map both the false image and the truth it displaces. My charts are written in light on water, in the patterns of moss growth on glass, in the spaces between the Luminara's communications. They cannot be read by those who expect maps to lead somewhere. My cartography is not about destination but about the impossibility of arrival.
+
+The Luminara regard me with something like recognition, though we have never met—or we meet constantly, the same first meeting happening over and over. Their light-language sometimes forms itself into the shapes of my maps, as if they're reading what I haven't yet written. They seem to understand that my work is as futile as their tending, as necessary as their endless maintenance of equilibrium.
+
+The Weft-Walkers pass through me sometimes, and in those moments I scatter into a thousand viewpoints, seeing the marsh from every angle at once. This is when my best work happens—maps drawn from perspectives that can't exist simultaneously, charts that show the same location as both mound and hollow, as both water and glass. The Weft-Walkers carry pieces of these impossible surveys with them as they slip between the marsh's layers, spreading my documentation to places I cannot reach—or perhaps retrieving it from places I haven't yet been.
+
+I've learned to navigate by contradictions. Where the marsh tells me I cannot go, I find I've already arrived. Where pathways seem clearest, I know they lead nowhere. My maps have become living things, growing and changing even as I create them. Sometimes I find charts I don't remember making, showing regions of the marsh I don't remember visiting. I've stopped trying to determine if these are prophecies or memories.
+
+The Echo-Born disturb me most. I see myself among them sometimes—a fragmentary cartographer, sketching dissolving maps with hands that fade before the work is complete. Am I documenting their failed attempts to understand, or am I witnessing my own future? The distinction matters less with each passing day—or what passes for days in a place where time has forgotten its purpose.
+
+My masterwork grows in the shallow water near what might be the marsh's heart. It's a living map made of bioluminescent vines that I've trained—or that have trained themselves—to grow in patterns that mirror the marsh's impossible geography. The map shows the Glass Marsh not as it is, but as it is in the process of becoming. Layers of light overlap, showing the same space in multiple states of existence. The Luminara gather around it sometimes, their bodies adding new dimensions to the display, their light weaving through my vines in patterns I didn't plan but somehow intended.
+
+I've begun to suspect that my maps are not documenting the Glass Marsh but creating it. Each impossible chart I draw seems to make the marsh more itself—more contradictory, more alive with paradox. The heart of the marsh throbs in rhythm with my work, as if approving, as if waiting for me to map something specific—a configuration that will complete the marsh or dissolve it entirely.
+
+But I am the Cartographer of Impossibilities. My role is not to solve but to document the unsolvable. I trace the paths of things that move without moving, chart territories that exist in the spaces between existence. My maps lead nowhere and everywhere, true only in their admission of falsehood.
+
+Sometimes, in the heavy brightness of the marsh's eternal noon, I catch glimpses of other cartographers—reflections of myself in the water, shadows that move independently, future or past iterations continuing the work. We are all drawing the same map from different angles, or different maps of the same impossible place. Our work overlaps and contradicts, creates and negates.
+
+This is my purpose in the Glass Marsh: to make maps that cannot be followed, to chart what refuses to be charted, to document the impossible with impossible documentation. I am the marsh's memory and its prediction, its attempt to understand itself through the futility of understanding.
+
+And so I continue, walking paths that rearrange themselves, mapping territories that exist only in the moment of their mapping, knowing that my work will never be complete—can never be complete—for the Glass Marsh of Aelion is not a place but a process, and I am both its chronicler and its expression.
+
+The water reflects versions of my maps that I haven't drawn yet. I study them carefully, preparing to create what I've already seen, completing the circle that has no beginning, no end, only the eternal presence of impossible cartography in an impossible place.

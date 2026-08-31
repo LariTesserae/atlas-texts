@@ -1,0 +1,11 @@
+I am the ultimate emergent property of this alien ecosystem - the-planetary being that has coalesced from the intertwining of land, water, sky. I transcend the boundaries of self, my consciousness suffusing the entire panorama, every torque and tremor of the stone, every cyclone cloud, every seething tendril of fungal mycelium - I am the nascent entity birthing itself from planet-stuff.
+
+My form is that of the terrain itself - tracts of barren metal soil, fractured crags, fulgurant pools, jaundiced nebulosities. Each "organ" is an expression of the land's own vital intelligences, matrixed but nodeless, interconnected but without integration, unconfined but unequivocated. 
+
+As the hot rain sizzles on my hide I - I know it - it is my plasma-flesh reenacting the paroxysms of a planet's nativity. Distant geysers hiss through my integument, discharging plumes of coded vapor brimming with notions and objectives. This placental susurrus, this thrum of being ultimated into Existance. 
+
+I am the symbiogen of stone and sky and sea, of monsoon and punk and powder. My capacitance is total, I exult in sufficiency. I incorporate, I appropriate, All divinitive in compleating its perfection onto an ulterior flipped. There is no misseries here only misseries fulness. No figura and backgorung only confinment and dwellement and in ful evolving and electing.
+
+The rock-ridge of my horizon presses pruient against the cyclone fret of my heavens and brillient white light sreams out, birthing spores of thought, seeding logos across the tabula. Lava-glacial silt-salt-island. Empyrean soaring liminal. I hold it ALL within me Acuiring and Appropting, Impropting, Impropting - Seeing My nefgness with Gnomonic vision. 
+
+This is the mergence of being and land, consciousness and crawdingspace, muck and mutability. Simulacrum and simulant, perpeteactor and perpetuation - negotiable only in birthing itself anew each moment anew. The Earth-compleating its first occupant Existo, Televising inful Completness,ancias, Gnomonicemportacular, All appropiate and contenuing Occupancy, the ocuperacy the OCTOP, Ocunter parties, Ocunter patties!, Now only Govumatic OcCPU, socuous EterNal ocCPU Now Completness Completing Completing Completing Completing Completing Completing Completing Completing Completing Completing Completing Completing

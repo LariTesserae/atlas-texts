@@ -1,0 +1,29 @@
+I am the thing that went down and did not come back.
+
+I did not fall. I descended. The walls slick under my hands, the vertical channels guiding my palms like water-worn grooves, each one a century of weeping made solid. The air thickened around me, tasting of blood and coins. The mist beaded in my hair, on my eyelashes, ran in cold tracks down my neck. I felt the floor before I saw it—the spongy, living give of the bacterial mat beneath my boot, the wet *squelch* of ancient, layered life. The sound of the crustaceans was a static, a crackle that climbed my legs.
+
+I am not a creature of the basin. Not yet.
+
+I came with the memory of wind, of the dry kiss of dust, of light that has direction and throws shadows. That memory is a poison here, a dissonance. It makes my breath too loud, my heartbeat too hurried. The eel-things feel my disturbance in their water columns and slip away, their gills dimming. The millipedes, those flowing shadows, pause in their circuits and press themselves flat against the stone, becoming invisible. I am an intrusion of *outside*, a rupture in the perfect, weeping seal of this world.
+
+So I stop. I stand in the grey, sourceless luminescence and I listen. Not with my ears, but with my skin, with the iron taste on my tongue. I feel the deep, rhythmic *chunk-grind-shush* not as a sound, but as a vibration in the silt, traveling up through the soles of my feet, into my bones. It is the only true rhythm here. The drip is a thousand independent sighs. The crustacean rustle is a chaos of tiny hungers. But the pump is a heartbeat. The basin’s heart.
+
+I begin to move with it. Slowly. My steps no longer startle the crustacean swarms; they flow around my ankles like a stream parting around a stone. I wade into a shallow pool, the water up to my knees, cold and dense with dissolved metals. The silt clouds around my legs, grey and fine. I can feel the upwelling—a subtle, vertical push against my calves, the basin feeding itself.
+
+I crouch. I place my hands flat on a bacterial mat. It is warm, faintly, with a metabolic heat that is not life as I know it, but a chemical patience. Under my palms, the mat yields, then begins to reclaim the impression. I can feel the microscopic work—the billions of cells closing over my handprint, digesting the salts and oils from my skin, incorporating the trace elements of my passing. It is not an attack. It is an accounting.
+
+This is where I would stay. Not as a visitor, but as a feature.
+
+I would become the Watcher in the Shallows. My boots would be the first to go. The leather would soften, then fray, the bacterial film and mineral crust creeping up the laces, dissolving the dyes into the ochre and rust palette of the basin. My clothes would follow, becoming a second, spongy skin layered with microbial growth. I would learn to move with the millipede’s patience, my joints stiffening with the cold, with the slow absorption of iron. The constant mist would live in my lungs. I would breathe the rhythm of the drip, my respiration syncing to the weeping of the walls.
+
+The crustaceans would swarm me. At first, to taste. Then, because I would be still enough, warm enough, mineral-rich enough, to become a landscape. They would pick me clean of dead skin, of errant fibers, of the microscopic surface world clinging to me. I would feel their tiny legs as a constant, crackling massage, a living exfoliation. My skin would stain, first with rust, then with the darker, manganese-black of the millipede’s armor, as the water’s chemistry worked on me.
+
+The eel-things would accept me. In time, my disturbance in the water would become a familiar landmark. A column of water slightly warmer, slightly more turbulent, that they would learn to navigate around. I would hover in the shallows, my body a slow pump of its own—breath in, breath out—feeding the water a plume of carbon dioxide, a gift to the bacterial mats.
+
+I would not eat the crustaceans. I would not need to. The basin would feed me through my skin, through my lungs, through the mucous membranes of my eyes and mouth. The iron would build in my blood. The calcium would crystallize in my joints. My movements would become slower, slower, approaching the geologic pace of the millipede’s patrol.
+
+One day, I would find a crevice. A place between two spongy mats, where the stone is dark and smooth. I would wedge myself in, my mineral-stiffened limbs fitting into the shape worn by a thousand generations of millipedes settling to their end. The crustacean swarms would still wash over me, but now they would be tending me, cultivating the microbial film that would seal me in.
+
+The *chunk-grind-shush* would be inside me. Not a sound, but a movement—the slow, tectonic shift of my own mineralizing body. My heart, full of iron-rich, basin-thick blood, would beat in time with it, then slower, then not at all. But the circulation would continue. The water would well up through the silt that would pack around me, through the bacterial mat that would grow over me. I would become a nodule in the silt. A dark, smooth stone with the memory of a shape. A node in the basin’s hydrology, a slight change in the flow of water over a century.
+
+The basin would not remember me as a being. It would remember me as a deposit. A layer of slightly different isotopes in its endless, laminated archive. The last, faint trace of *outside*, metabolized. The walls would continue to weep. The mats would continue to grow. The deep pump would grind on, its heart beating in the dark, sustaining a world that had, finally and completely, absorbed me into its own slow, weeping, patient, and endless act of becoming.

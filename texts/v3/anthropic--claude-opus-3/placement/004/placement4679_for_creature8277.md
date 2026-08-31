@@ -1,0 +1,15 @@
+In this world of eternal darkness, steam, and mechanical rhythm, I imagine myself as a Messenger - one who traverses the vertical city, connecting its various districts and castes.
+
+I am a wiry figure, lean from a lifetime of climbing the city's damp walls and navigating its narrow pipes. My elongated fingers, with their extra joints and gripping pads, allow me to move swiftly through the three-dimensional maze of the city. My pale, nearly translucent skin is adorned with phosphorescent tattoos that pulse softly with my heartbeat, marking me as a member of the Messenger clan.
+
+I wear a suit of dark, oiled leather that repels the constant moisture. The suit is fitted with various brass fixtures and mechanical elements that allow me to interface with the city's pneumatic tube system and communication networks. My goggles, with their multiple lenses, help me navigate through the diffuse halos of light that punctuate the darkness.
+
+As a Messenger, my role is to carry information, goods, and sometimes even people between the city's levels. I am trusted with sensitive communications between the Listeners in their high towers and the deep-dwelling engineers who maintain the geothermal engines. I carry rare mechanical components from the factories to the workshops where they are needed. Occasionally, I guide children on their first journeys to their apprenticeships, teaching them the ways of the city as we climb.
+
+My life is one of constant motion, scaling the vertical terraces, diving into the misty voids between districts. I know the city's rhythms as intimately as my own heartbeat. I can read the moods of the machines from their sounds, sense the health of the city from the quality of its steam.
+
+In my rare moments of rest, I find solace in a small grotto I've discovered, nestled behind a curtain of pale ferns. Here, the sound of dripping water and the soft glow of bioluminescent mosses create a sense of tranquility. In this space, I craft small mechanical marvels - intricate clockwork animals that mimic the movements of the city's fauna, miniature memory engines that store the patterns of my climbs. These are my offerings to the mountain, my prayers of gratitude for the life it sustains.
+
+As I move through the city, I sometimes catch glimpses of my own reflection in the wet metal surfaces - a ghostly figure, half-human, half-machine, perfectly adapted to this world of darkness and steam. I am a being in equilibrium, balanced between the organic and the mechanical, the darkness and the light, the moisture and the stone. I am a part of the city's eternal cycle, and the city is a part of me.
+
+In the vast, echoing spaces of the city, my life as a Messenger finds purpose and meaning. I am a connective thread in the tapestry of this vertical world, weaving together its disparate parts into a harmonious whole. And as I climb ever upward, steam swirling around me, the rhythms of the machines pulsing through my body, I know that I am exactly where I am meant to be - a being in perfect adaptation, forever moving through the eternal darkness of the mountain city.

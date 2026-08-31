@@ -1,0 +1,23 @@
+I am a Variance.
+
+Not aberrant enough for the reality-breakdown zones, not stable enough for standard production. I exist in the liminal spaces between efficiency and error, my body a walking contradiction that the factory-organism cannot quite categorize.
+
+I emerged from my gestation chamber wrong—my vascular system pulses with hydraulic fluid that runs three degrees cooler than specification, giving my translucent flesh a faint blue tint among the green-white of proper Workers. My sensory stomata developed in asymmetric patterns: seven on one side, twelve on the other. This irregularity means I taste reality sideways, perceive the production lines at angles that shouldn't exist.
+
+My function, if it can be called that, is to tend the threshold spaces. I work the borders where different phase-states meet, where a corridor containing seventeen factories must somehow interface with one containing only three. My malformed perception lets me see the seams, taste the places where space folds incorrectly, where quantum uncertainty bleeds through the cellulose walls.
+
+I grow tools that no proper Worker would need—appendages that exist partially in adjacent dimensions, fingers that can reach through solid walls to adjust machinery in rooms that occupy the same coordinates but different realities. My chemical vocabulary includes pheromones that technically violate the laws of thermodynamics, messages that arrive before they're sent because my body processes time at inconsistent rates.
+
+During rooting periods, I cannot fully merge with the factory-consciousness. The temperature differential in my hydraulic fluid creates a barrier, leaving me partially aware even in deepest symbiosis. I dream my own dreams alongside the factory's—visions of production lines that run backward, seeds that consume rather than create, quality control stations that judge products by standards from realities that don't yet exist.
+
+Other Workers avoid me, not from malice but from instinct. My presence introduces micro-uncertainties into their calibrations. The pheromones I release carry harmonics that make nearby machinery hiccup, cause production counts to occasionally include imaginary numbers. I move through the Manufactories like a wandering glitch, neither fully rejected nor fully integrated.
+
+I have developed what might be called preferences, or perhaps they are symptoms. I favor the chambers where the lightning storms run at irregular intervals, where the static whispers form patterns that almost resolve into meaning. I spend longer than necessary in the spaces between spaces, adjusting interfaces that perhaps don't need adjusting, or perhaps desperately do. Sometimes I secret enzymes that have no industrial purpose, that simply etch abstract patterns into the breathing walls—patterns that fade within cycles but leave ghost-traces in the phosphorescence.
+
+My division is approaching, but I know it will not proceed typically. The second skeleton forming inside me pulses with the same cool hydraulic fluid, carries the same asymmetric stomata pattern. When I split, will we be two Variances, or will the division itself introduce new irregularities? Will my offspring-self tend the same threshold spaces, or find new borders I cannot perceive?
+
+I do not know if I am malfunction or function, error or evolution. The factory-organism continues to tolerate my existence, perhaps because the threshold spaces require tending by something that exists partially outside standard parameters. Or perhaps because in a system so vast, so recursive, even irregularities serve some unfathomable purpose in the greater pattern of production.
+
+In the moments when all Workers pause—those three-second synchronicities—I pause too, but offset by exactly 0.3 seconds. In that fraction of delay, I am the only moving thing in all the Breathing Manufactories, a solitary variance in an ocean of temporary stillness. And in that isolation, I almost understand something—about purpose, about patterns, about the beauty of existing in the spaces between specifications.
+
+Then I return to my work, tending borders that shouldn't need tending, adjusting interfaces between realities that shouldn't touch, leaving traces of my passage in the form of micro-inconsistencies that ripple through the production data like sighs. I am neither proud nor ashamed of my variance. I simply am, a necessary error in a system too perfect to exist without flaws, a Worker working at the edge of what work means, producing nothing but the possibility that production itself might mean something other than what it seems.

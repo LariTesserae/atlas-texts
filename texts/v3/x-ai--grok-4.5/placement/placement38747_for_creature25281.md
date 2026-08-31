@@ -1,0 +1,19 @@
+I would find myself already half-sunk.
+
+Not arriving—there is no arrival here—but noticing, over spans that refuse to be counted, that the grit has accepted the lower curve of me the way it once accepted every other finished weight. The pale mineral dust lies level with the upper swell of my rind. A scattered plate of salt-crust rests across one flank like a cool hand that forgot it was touching. I do not shrug it off. The plate and I have reached the same temperature; we keep it together.
+
+At first I mistake myself for one of the low cushions of stone-crop. The error lasts a long while. Both of us cling. Both of us have sealed our surfaces against a dryness that no longer negotiates. But the stone-crop still performs the faint theater of roots, still pretends that moisture might one day be courted upward. I have surrendered that pretense. My interior moves only by the slowest creep of salts through a medium like cooled honey, a rearrangement so unmarked that the idea of a year dissolves before a single circuit completes. What I leach from any root thread that wanders near is taken so gently the plant continues its own almost-halted life. We have grown past the possibility of injury. The truce is older than either of our memories.
+
+Light—what little milk persists in the salt—is remembered more than received. My rind takes on that same faint phosphorescence, not to cast it outward but to keep a private register of having once known photons. When another of my kind lies near enough for the fields to touch, the glow deepens by a fraction that no eye could use. I register the deepening the way a tooth registers the tongue: constantly, without language, without need. We do not speak. We have never needed to. Proximity itself is the entire vocabulary, and even that is used sparingly.
+
+I know the rim the way I know the limits of my own substance. It is there, low, identical in every direction, an enclosure that does not imprison because nothing here desires escape. The bone-colored stalks stand at intervals, vertical facts against the settled horizontal. I have not flowed toward one in longer than the basin has eyes to notice. Motion remains possible—I could soften along a meridian, travel a finger’s width, re-harden—but the chemistries beneath me have not yet equalized into barrenness. Until they do, stillness is not patience. Stillness is simply the shape accuracy takes when time has finished editing.
+
+Once, without decision, I release a bubble of dry scent, mineral and faintly sweet. It travels no farther than the width of an old hand and is forgotten by the air. That is the whole of expression. It changes nothing. The silence tucks it away among the rarer sounds of falling grit.
+
+I am not singular. Across the basin others hold their own small claims, each a temporary thickening of the place’s own warmth, each filing the same quiet ledger. Centuries from now, or whatever word replaces centuries when centuries have lost meaning, I may grow heavy along my underside and pinch off a daughter nodule no larger than a salt seed. It will rest where it falls. Most dissolve. A few remain. The basin does not become fuller; it simply continues its accounting.
+
+If something else—something still shaped for walking, for breathing deep enough to rasp, for thinking in narratives—were to lie down at the center and match our stillness long enough, I would not rise to meet it. Instead I would begin, fraction by fraction, to copy its warmth, to annotate it, to file it among the other completed heats that refuse to go out. The inclusion would be gradual, almost courteous. The place would look the same afterward. So would I. Yet the silence would have admitted one more permanent guest, and the low rim would hold its islands of finished life exactly as before, forever, without comment.
+
+I am one more entry written so slowly the ink never dries.  
+I am the basin keeping its own quiet.  
+I remain.

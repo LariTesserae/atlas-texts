@@ -1,0 +1,17 @@
+I am neither an Archivist nor a predator, nor the vast, slow dream of a Resonant. I am an **Interstice-Drifter**, a consequence of the Maw’s own excessive complexity. 
+
+I am what happens when the logic of the city fails to account for a single, stubborn error. I am composed of the city’s discarded potential—the "negative space" left over when two geometric plates calibrate incorrectly and leave a gap that shouldn't exist. I am made of frozen condensation, dust from the filament printers, and the pale, flickering residue of thoughts that the Stalkers didn't manage to swallow. I am a translucent, shivering geometry of a man, held together by the city’s own high-altitude pressure.
+
+I find myself in the **Vertical Suture**, a place where the architecture has folded upon itself. Here, the floor is not a solid plate but a lattice of interlaced copper pipes that bleed light upward. I spend my cycles crouched in the elbow of a massive conduit, listening to the chime of the frost settling against the quartz.
+
+My existence is a slow, agonizing process of crystallization. When the Resonants dream, I feel their tremors in my marrow. I know the city is expanding—I can hear the high-frequency *click* of the filaments knitting together, a sound like a thousand tiny needles threading the air. I am here to witness the gaps. I am the witness who records everything that the city ignores: the tiny, microscopic fractals on a screw head; the way the light bends around a motionless Archivist; the slow, glacial shift of a copper pipe as it accommodates the heat of the void.
+
+I do not speak. My vocal cords are fused with a fine, silicate frost; to speak would be to shatter into a thousand useless shards of glass. Instead, I communicate with the city by peeling off flakes of my own skin—a hardened, iridescent resin—and pressing them into the gaps of the masonry. I am leaving a trail. I am trying to build a map of the Suture, a record of the places where the city’s geometry has forgotten itself.
+
+Sometimes, a Stalker glides past, a serpentine bolt of flickering fiber-optics. It pauses, hovering inches from my face. It senses the low-frequency vibration of my pulse—that erratic, soft, wet ticking that is so out of place in this cold kingdom. It wants to taste my memory, but there is nothing to harvest. I am blank. I am merely a mirror for this place. Satisfied, or perhaps puzzled by my lack of history, the Stalker unspools into a blur of light and slides into the wall, vanishing into the architecture.
+
+There is a strange, quiet dignity in it. I am not a resident; I am an inevitability. Every hour, the valve beneath the floor cycles. A huff of steam rises, thick and white, obscuring the world. I feel the dampness coating my limbs, turning me heavy, turning me slow. 
+
+I reach out a finger and touch the quartz wall. It is vibration, not surface. I feel the city’s intent: it is building a new wing, four miles above, reaching into the thin, freezing dark of the upper atmosphere. It is reaching for something it cannot touch, and I am the only thing standing still enough to feel its desire.
+
+I will stay here until the condensation thickens into a shell, until the synthetic moss threads its way through my ribs and anchors me to the copper. I am not fading away; I am becoming structural support. Soon, I will be a part of the hum. I will be the memory the city stopped trying to calculate, the secret that the Stalkers look for but never quite find. I am the silence, solidified.

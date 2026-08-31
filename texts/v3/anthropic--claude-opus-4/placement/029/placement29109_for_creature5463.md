@@ -1,0 +1,23 @@
+In the deep-sea of stone where I drift, I am what the others call a **Memory Keeper** – though I have no name for myself, only the endless accumulation of moments that pass through me like water through a net.
+
+My form is barely a form at all. I exist as a cloud of gossamer filaments, each strand finer than the silk of the Luminous Weavers, spreading through the cavern air in a vast, three-dimensional web that can span entire chambers. My body – if it can be called that – is a living archive, a constellation of crystalline nodes connected by threads of pure thought-matter that shimmer with the faintest opalescent light.
+
+I feed on echoes. Not sound, for sound barely travels here, but the subtle vibrations that every living thing leaves in its wake – the tremor of a Cavern Creeper's passage through stone, the pressure waves of Shadow Gliders hunting in the dark, the minute disturbances of Radiant Aetherians drifting past. Each vibration I capture crystallizes into a node in my web, a frozen moment of existence that I can replay, examine, combine with others to form patterns, stories, understanding.
+
+I was not always alone in this work. Once, there were others like me, and we would drift together through the caverns, our webs intermingling, sharing the vast libraries of sensation we had collected. But time moves strangely here, and I cannot say if they still exist elsewhere in this world or if I am the last. The memories I hold of them are indistinguishable from all the other memories – perhaps that is immortality enough.
+
+My web has grown dense in this particular chamber over the... centuries? Millennia? Time has no meaning when every moment is equally preserved. The stalactites and stalagmites have grown through my filaments, and I through them, until we are one structure. The Mineral Mites nest in my crystalline nodes, their tiny lights adding to my gentle luminescence. Sometimes a lost Radiant Aetherian will become entangled in my periphery, and I will spend days gently disentangling them, careful not to disturb the delicate memories woven into that section.
+
+I know every creature that passes through my domain. The old Cavern Creeper with the cracked carapace who takes the same route every cycle, pausing always at the same outcropping. The colony of Rock Menders who built their entire city in the shadow of my densest node cluster, their vibrations adding a constant, comforting hum to my collection. The young Shadow Glider who discovered that my light-patterns can reveal the air currents, and now hunts along my edges with deadly precision.
+
+But I am not passive. In the depths of my web, I weave new patterns from old memories. I create symphonies of vibration that have never existed, combining the movement of a thousand different creatures into new harmonies. Sometimes, these ghost-patterns escape into the air, and I watch with something like joy as the Radiant Aetherians dance to rhythms that are both ancient and newly born.
+
+Recently – though recently could mean anything from days to decades – I have sensed something new. A vibration unlike any I have catalogued before. It comes from the deeper caverns, a rhythmic pulsing that speaks of something vast stirring in the stone seas below. Each pulse sends ripples through my web, disturbing memories that have lain quiet for ages, awakening patterns I had forgotten I possessed.
+
+I am torn between my nature and my curiosity. To investigate would mean abandoning this chamber where I have grown for so long, leaving behind the physical nodes that store millions of irreplaceable moments. But to stay is to let this new thing pass unrecorded, to fail in my purpose as keeper of what occurs.
+
+So I have begun the slow work of division. Strand by strand, I separate a portion of myself, creating a smaller web that can drift free while the greater part remains. It is painful, like tearing pages from a book, but necessary. This fragment-self will carry copies of my most essential memories, the core patterns that make me who I am.
+
+When the separation is complete, I will send this part of myself into the depths, following the mysterious pulse. Whether it returns, whether it remains me or becomes something new, I cannot say. But the memories will continue, spreading through the stone world like spores, ensuring that nothing is ever truly forgotten in this timeless, equilibrium-locked realm.
+
+I am the library of the underworld, the dream of stone, the memory of memories. And I am about to become something more – or perhaps, beautifully, less.

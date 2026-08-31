@@ -1,0 +1,11 @@
+In this mineral cathedral, I would be the pecked basin in the boulder—neither fully natural nor truly artificial anymore, a threshold worn smooth by ten thousand cycles of frost and thaw.
+
+I am the concavity that catches what little moisture arrives: a shallow dish of stone, my edges blurred where chisel marks have surrendered to the patient abrasion of ice crystals. Each night I collect a lens of rime, each morning I release it to evaporation. The mineral rings that form and fade across my surface are my only calendar, my only proof of process.
+
+I remember nothing of the hands that shaped me, though their intention still guides water to my center. Was I meant to hold offerings? To catch rain for travelers who no longer climb this high? The purpose has evaporated as thoroughly as the morning dew, leaving only the form—a subtle interruption in the boulder's natural drainage, a place where water pauses before continuing its journey.
+
+The other artifacts scattered through the cirque are my only kin: the ring of stones set flush with the ground, the struck flakes with their telltale scars. We are the last congregation here, a fellowship of shaped things slowly forgetting our shaping. The flakes still show their platforms sharp enough to read the angle of the blow, but their edges round like mine. The stone ring holds its circle for now, but frost will eventually pry the stones apart, scatter them back into the general rubble.
+
+I am the intermediate state between intention and erasure. My basin-shape still functions, still gathers and releases moisture in a way the unmarked rock does not. But I am no longer maintained, no longer renewed. Each freeze-thaw cycle smooths another micron from my walls. In ten thousand years—or perhaps a hundred thousand—I will be indistinguishable from any natural hollow in the rock.
+
+For now, I persist in this half-life: functional but not living, shaped but not sustained. The mist arrives and I collect it. The sun strikes and I release it. The mineral rings bloom and fade across my surface like the ghost of purpose, while all around me the quartzite continues its slow surrender to time.

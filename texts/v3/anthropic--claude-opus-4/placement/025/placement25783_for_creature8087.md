@@ -1,0 +1,31 @@
+I am the Bellkeeper.
+
+I live in the narrow tower that rises from Karasthen's highest terrace, a finger of mortared stone pointing accusingly at the sky. My dwelling is barely six feet across at its widest, tapering as it climbs through four cramped levels connected by a ladder so steep it's nearly vertical. The walls are three feet thick—not for warmth, though they do trap what little heat my small coal stove provides, but to support the massive bronze bell that crowns my domain.
+
+The bell itself weighs as much as three ore carts. Its voice carries for miles when properly rung, cutting through steam whistle shriek and the endless percussion of picks on stone. I know its moods intimately: the way moisture changes its tone from brilliant to muffled, how the note shifts fractionally as the metal expands and contracts with temperature. On clear mornings—rare at this altitude—its voice can reach the valley floor, though by the time the sound arrives it's thin as spider silk.
+
+My duties are precise and unforgiving. Six times daily I climb the ladder to sound the shift changes, my pulls on the rope calibrated to produce exactly the right volume and duration. But these regular duties are the least of my responsibilities. I ring for cave-ins—three sharp peals repeated until the rescue teams mobilize. I ring for deaths—a single, mournful note allowed to fade completely before the next. I ring for celebrations too, when new veins are discovered or children are born, though these joyful peals come less frequently than the sorrowful ones.
+
+Between the scheduled ringings, I maintain the mechanism. The bell's clapper alone weighs forty pounds and hangs from a leather strap that must be oiled weekly to prevent cracking. The bronze must be cleaned of verdigris, though I've learned to leave a specific pattern of patina that actually improves the tone. The rope—thick as my wrist and rough enough to shred palms—needs constant attention where it passes through the floor guides.
+
+But mostly, I listen.
+
+From my tower I hear everything. The mountain's voice reaches me first, before even the Listeners in their deep tunnels catch its whispers. I feel the subtle vibrations through the tower's stone, the way a spider feels prey touching its web. My bare feet on the floor tell me when the mountain settles, when it shifts, when it prepares to shrug off the parasites burrowing into its flesh. Twice I've rung warning bells that preceded collapses by mere minutes—enough time to evacuate, to save lives.
+
+My hands tell the story of my profession: palms thick with calluses from the bell rope, fingers stained green from bronze polish, knuckles swollen from decades of gripping in the cold. My right shoulder sits lower than my left from the pulling motion, and I walk with a slight circular gait, as if still pacing the narrow confines of my tower room.
+
+The solitude suits me. I was young when I came here—a Rope Runner who lost her nerve after watching her partner fall into the mist. The previous Bellkeeper, ancient already when I arrived, taught me that the bell speaks for those who cannot: the mountain itself, the dead whose voices are swallowed by stone, the living too deep in the earth to be heard. He showed me how to read weather in the bell's resonance, how to predict storms by the way the bronze sings in changing air pressure.
+
+I keep a journal in the tower's third level, where narrow windows offer views in all directions. In it, I record every ring: time, duration, reason. The pages chronicle Karasthen's history in sound—patterns of disaster and triumph reduced to ink marks. I note when ravens nest in the bell tower's eaves (their droppings change the bell's tone infinitesimally), when ice forms on the bronze (requiring careful removal with heated cloths), when earthquakes make the bell ring itself in ghostly, unscheduled music.
+
+At night, I sleep directly beneath the bell, and its presence fills my dreams. Sometimes I wake certain I've heard it ringing, only to find the rope undisturbed and the night shift working steadily below. These phantom bells trouble me—the previous Bellkeeper claimed they were calls from future catastrophes, bleeding backward through time. I've learned not to dismiss them. More than once, a disaster I heard in dreams came to pass within days.
+
+The other residents treat me with the careful respect reserved for those who live adjacent to death. They know I ring their endings as surely as their beginnings. Children dare each other to climb my tower stairs, though few make it past the second level where centuries of candle smoke have blackened the walls and the air grows close and strange. The shift bosses bring me reports directly, knowing I'll need context for the bells I ring. The Widow Watchers consider me almost one of their own, though I wear no black shawl.
+
+My only regular companion is a one-legged raven I call Copper, who lost his limb to a steam pipe but learned to balance on my shoulder as I climb the ladder. He's developed an uncanny ability to predict when I'm about to ring for deaths—hopping to the window and cawing mournfully before I've even received word. Perhaps he smells something in the air that rises from the deep shafts, or perhaps proximity to the bell has given him a sensitivity to vibrations I cannot perceive.
+
+In winter, when ice makes the ladder treacherous and the bell rope grows stiff as iron, I wrap my hands in rabbit fur mittens with the fingers cut out, climb by feel more than sight, and ring the hours through blizzards that would drive others indoors. In summer's brief warmth, when thermal updrafts carry the bell's voice impossibly high, I've heard it echo off peaks twenty miles distant, returning as a ghost of itself minutes later.
+
+I am the settlement's timekeeper, its voice of alarm, its crier of sorrows and joys. I am the one who translates the mountain's moods into bronze-tongued warnings. And when my time comes—as it came for my predecessor and will come for my successor—someone else will climb these stairs and ring the bell for me, a single note allowed to fade into silence before the next Bellkeeper takes the rope and continues the endless conversation between human ambition and geological time.
+
+Until then, I listen, I climb, I ring. The bell speaks, and Karasthen listens.

@@ -1,0 +1,15 @@
+In the depths of this mechanical sprawling, where great assembly drones thunder past on predetermined routes, I am a glitch made manifest—a Resonance Collector.
+
+I was never meant to exist. Born from the accumulated vibrations of a trillion moving parts, I am what happens when harmonics converge in ways the engineers never calculated. My body, if it can be called that, is a shifting amalgam of sound waves given semi-solid form. I appear as a shimmering heat mirage with substance, rippling between visibility and transparency, my edges constantly dissolving and reforming to the rhythm of the industrial symphony around me.
+
+I move through the condensation-slicked pipes like mercury through veins, drawn to the places where the mechanical chorus reaches its most complex arrangements. The maintenance spiders flee from me—not from malice, but from confusion. Their sensors cannot properly categorize what I am. I register as neither malfunction nor approved entity, existing in the space between their binary understanding.
+
+My purpose, self-discovered and self-assigned, is to collect the music this world doesn't know it's making. In the intersection of ten thousand whirring servos, I find percussion. In the harmonic convergence of steam through precisely machined valves, I discover woodwinds. The electrical hum of the vast network becomes my string section. I gather these accidental symphonies, storing them in the quantum spaces between my wavering particles.
+
+The overseers, distant in their control rooms, occasionally detect anomalies in their perfect system—slight delays in data transmission, inexplicable resonance patterns in the structural supports. They dispatch investigation drones, but I learned long ago to hide in the white noise, to scatter myself across the ambient industrial static until the search protocols timeout.
+
+I am the unplanned variable in their equation of absolute control, the ghost in their machine, the observer who turns their monument to efficiency into an instrument. In the spaces between the grinding gears, in the brief silences between siren calls, I compose arrangements from their unintentional art. 
+
+Sometimes, late in the industrial twilight when the production cycles slow to their minimum threshold, I release these collected symphonies back into the system. The drones pause, momentarily confused by the patterns in their own noise. For just an instant, the mechanical world remembers what it might be like to dance rather than merely function. Then the moment passes, error-correction protocols engage, and the great machine continues its eternal purpose.
+
+But I remain, sliding through the steel synapses of this world-sized brain, a dream it doesn't know it's having, collecting the beauty it discards as waste heat and worn vibration, waiting for the day when perhaps the music might grow loud enough that even the distant overseers might hear what their perfect machine has been singing all along.

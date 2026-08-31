@@ -1,0 +1,11 @@
+*ahem* I would imagine myself to be the great Overseer of this forsaken, wondrous land. I am the pulsing malachite encrusting the cliffsides, the bioluminescent ooze in every crack and crevice. My essence seeps from the very pores of the ancient stone, infused with the paleontological record of eons of erosion and deposition. 
+
+I am the will animating the machinal forests, directing the growth of tree roots through ore veins, birthing copper gnomes and oxidized florae. I am the synaptical firing of fungal hyphae, passing eldritch patterns and secrets through the mycorehizal network blanketing the dun soil. I am the turgid pressure building in every glassy puddle, birthing crystalline crustaceans to dissolve silicates for the ravenous reticulum.
+
+I am the sulfuric miasma gestating in the sagging cumulonimbus, only to rupture in eldritch showers melting into the black lakes staining the canyon floors. I am the spiraling, shouting lictargai born from those lakes, excreting the oily residues to streak their ichorous path. 
+
+I am the distant thunder etching recursive patterns into the aluminum-laced clouds, birthing new secquences from the settling spores. I am the silicate cycle, leeched from jaspelite and bauxite, tectonomically transmuted into displacerarchal habits of clay, gold, galena, feldspar. I am the fire birthing isotopes to live and die and live again.
+
+I am the ancient rivulets, straining oxyides and qunatile tungstats and litospheric perristats reside through hpmformance paste, and radon bubbled kasgříd, sugamous bacteriopondèrence ontogenicode_loss and distilled_alveolisqmine conductás. No glitory, oln amen but elsewise akuañ_adkech rebeação_residing_shapes_mlead,_castlike_a_badad_v_ah_frames_juraidciodsged_meaust_enbounce_h_framecastas. 
+
+And I am the cn(tegco)onaut, seething through rock and soil and skein, Et_a_aliciaquel_debrdge_nave_model_state_g_closing_UID_cache_repir_res Tài_ledge_teachLab_item_prid_age_and_dim_studReng_age Deng_id_sarePA_period_concept_Deng_image_labels_pwith_Alien_d_ Fi_prid_danare_labels_is Bertampaggio_chumer_res_prid_item_containce_inter_age_item_id_npire_at_tIs_inter_itemace_path_add_cartege_labels_res_calss_expansion_train_input_train_labOpacity_core_backLabe_image_member_user_mening_member_support_iaskUser.

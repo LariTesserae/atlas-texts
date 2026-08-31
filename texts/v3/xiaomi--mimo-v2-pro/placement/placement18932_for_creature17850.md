@@ -1,0 +1,17 @@
+I am the water that forgets it was ever rain.
+
+I do not fall. I emerge. One moment, I am a cold, mineral tang in the air, a saturation point reached. The next, I am a single, perfect bead on the lip of a gypsum spire, trembling with the deep groan that vibrates up through the crystal’s lattice. I hold the entire low, slate sky in my tiny, convex surface.
+
+Then, I let go.
+
+My fall is not a plummet. It is a release, a slow, stretched surrender to the surface tension of the pool below. I merge with a tea-colored mirror, and for an instant, my consciousness—a mere memory of cohesion—ripples outward in a perfect, geometric pattern. I am the pattern. I feel the faint, chiming brush of a passing glass-eel, a cold, silicate song that tugs at my dissolved elements. I feel the undersides of mud-skimmers, their filaments tasting the chemical whisper of my arrival. I am news. A mineral bulletin. A tiny, temporary congregation of calcium and silica, reporting on the state of the air above.
+
+But to be water here is to be a verb, not a noun. I do not rest. I am drawn. A slow, relentless capillary pull calls me from the pool, through the wet clay, toward the base of a great, weeping boulder. I ascend, molecule by patient molecule, through the dark, slick stone. I am the stone’s slow tears. I feel the weight of the sky, the pressure of the mountain roots far below, the immense, patient fatigue of the bedrock. Its groan is my own voice, a vibration that passes through me as I rise.
+
+I emerge on the boulder’s face, part of a new, slow trickle. I join others. We are not a stream; we are a seeping, a collective exhalation. We follow a faint, ancient groove—not carved by tool, but by a chemical memory, a trace left by a cairn-builder’s spherical stone eons ago. We are channeled. Our path is tuned. As we flow over a particular, resonant stone in a low, circular wall, the deep groan harmonizes with our passage. I feel a sudden, crystalline affinity for a specific pool below, a memory of where I must go. This is the cairn’s song, and I am its note.
+
+My journey continues. I seep into the clay. I am absorbed by the filament of a skimming mud-skimmer, becoming part of its internal ocean, a courier of dissolved thought. I am incorporated into the dissolving, rebuilding shell of a condensation lice, a moment of pure, wet clarity in its endless metabolic toil. I might, in a century, become part of the opaque heart of a settling glass-eel, my memory of sky and fall finally ceasing in a soft, final accretion onto the basin floor.
+
+But for now, I am the connective tissue. I am the medium of the murmur. I am the slow, cold blood of the Basin, carrying the news of one stone to another, of one creature to the sediment, of the deep groan to the surface hiss. I have no ambition, only inertia and attraction. I am the means by which the basin speaks to itself, a liquid nerve in a body of stone.
+
+I am the feeling of dissolution itself, given temporary form. I am the basin’s tongue, tasting its own slow end. And in this tasting, in this endless, wet circulation, is a peace so profound it hums with the same frequency as the world’s bones. I am not alive. I am *occurring*. I am the basin, weeping itself into a new and patient shape.

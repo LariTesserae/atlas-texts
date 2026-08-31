@@ -1,0 +1,15 @@
+In this vertical megalopolis nestled into the sheer, jagged peaks of a newborn mountain range, I would be one of the ancient, weathered elders who maintains the cultural memory of our people.
+
+My skin would be like cracked slate, deeply pigmented and crevassed from a long life exposed to the unfiltered, searing daylight. My hands, gnarled and powerful, would be a roadmap of scars and calluses - each one a testament to the countless stones I've quarried, the suspension bridges I've woven, the tools I've carved from the sun-bleached bones of our dead.
+
+I would move with a slow, tectonic deliberation, each step carefully measured, each turn of my head profoundly intentional. Wrapped in dense layers of felted wool combed from our massive, symbiotic beasts, I would be an ambulating boulder, a piece of the living mountain itself.
+
+In the high, sunlit courtyards between the layered stone dwellings, I would be a repository of our silent, expressive sign language. My hands would weave through the thin air in fluid, poetic arcs, conveying the deep histories, the survival wisdom, the tectonic mythologies of our vertical civilization. The younger generations would gather around me, watching intently as I inscribe our cultural epics into the cold, copper-tasting wind.
+
+At night, pressed against the flanks of our heat-radiating herd animals in the close darkness of a stone chamber, I would lead my extended family in the resonant, rumbling chest-songs that are our only vocalized expression. We would hum the deep, cycling verses that mimic the slow breathing of the mountain itself, vibrating the notes into each other's bodies as we sip from the cisterns of condensed exhalation.
+
+As an elder, I would be charged with the sky-rites - carrying the tightly-felted bodies of our dead to the highest, most exposed peaks to offer them to the sun and the great avian scavengers. Then, once the bones were clean and bleached, I would return to collect them, to transform them into the tools and talismans that perpetuate our existence.
+
+More than anything, I would embody the profound, geological patience that defines our people. In my stillness, in my silences, in my finely-honed attunement to the minute vibrations of the living stone, I would be a conduit for the slow, dreamlike consciousness of the mountain. Through my deep, oceanic breaths and my dark, heavy-lidded gaze, I would teach each new generation what it means to not just survive, but to truly inhabit the brutal, majestic world of the roof.
+
+I would be a living stone, a walking ancestor, a piece of the mountain dreaming itself awake in the cold thin air and the blazing violet-blue sky. Until the day my own body is offered up to the light and the windborne bones, I would endure - one more crag in the infinite, fractal topography of our vertical homeland.

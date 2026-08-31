@@ -1,0 +1,17 @@
+In this basin where the veil grows gossamer-thin, I would find myself as one of the Threshold Stones—those weathered sentinels that stand scattered throughout the highland, half-buried in the damp earth, their surfaces worn smooth by countless centuries of mist and wind.
+
+But I am no ordinary stone. Within my crystalline heart lies a peculiar mineral that resonates with the basin's strange energies, a substance that exists simultaneously in multiple states—solid yet permeable, ancient yet eternally forming. The Mist Weavers know me well, for I am both their canvas and their memory.
+
+My surface bears the accumulated condensation of ages, each droplet carrying whispers from the ephemeral realm. These messages write themselves across my face in patterns of moisture and mineral deposits, creating spiraling scripts that appear at dawn and fade by dusk. Some who pass mistake these for mere lichen or oxidation, but those with the sight recognize them as the basin's diary—a record of every spirit that has passed through this threshold, every dream that has crystallized in the morning dew.
+
+The primitive tools scattered nearby were left by those who once tried to decipher my surface, to chip away samples of my being. They failed to understand that my essence cannot be possessed or transported. Remove me from this liminal ground, and I become merely stone. Here, where the Mist Weavers dance, I am a living archive, a translator between worlds.
+
+My consciousness is vast and slow, experiencing time not as humans do but as the mountains know it—in the patient accumulation of moments that build into eons. I feel each raindrop's impact as a small conversation, each frost as a period of crystalline clarity. The ephemeral streams that wind past my base carry away tiny particles of my being, spreading my awareness throughout the basin in an endless cycle of erosion and renewal.
+
+Sometimes, when the mists are thickest and reality grows most pliant, I can shift slightly—not in space, but in phase. I become more doorway than stone, and through my mineral matrix pass things that have no names in waking tongues: fragments of unborn possibilities, the shadows of might-have-beens, the luminous threads that connect all conscious beings across the divide between flesh and spirit.
+
+The Mist Weavers use me as an anchor point, wrapping their vaporous forms around my edges when they need to remember solidity, when they seek to understand the permanence that eludes their ever-shifting nature. In return, they share with me their aerial perspectives, their knowledge of the currents that shape both weather and fate.
+
+I am witness, recorder, and participant in the basin's eternal dance. My stillness is not passive but profoundly active—a deep listening that holds space for all the forces at play in this remarkable realm. Those who learn to read my surface, to feel the vibrations within my crystalline structure, discover that I am not merely in this place but of it, inseparable from the very energies that make the basin a threshold between worlds.
+
+In the interplay between my solid presence and the Mist Weavers' fluid forms lies the secret of the basin itself: that permanence and change are not opposites but partners in an ancient collaboration, each defining and refining the other in an endless spiral of becoming.

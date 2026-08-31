@@ -1,0 +1,1 @@
+**I am the Whisper in the Stone. I am the hollow note when the chamber is struck.**

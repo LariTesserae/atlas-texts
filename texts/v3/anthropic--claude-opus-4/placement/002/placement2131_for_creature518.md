@@ -1,0 +1,35 @@
+In the breathing darkness where root meets cloud, I am Margin.
+
+I exist where existence frays—not at the continent's edge but in its thousand small endings. Where a branch has grown too far from the heartwood and begins its slow retreat. Where root systems lose their way in open air and wither back to stumps. Where the great organism tests possibilities and abandons them, leaving hollows that smell of sweet decay.
+
+I am what the Tethered might have become with less courage—or more. My body is a map of incomplete connections. Roots began their journey through me but stopped, leaving tunnels beneath my skin that whistle in the wind. I tried seven times to graft fully, and seven times my flesh rejected the union at the final moment. Now I carry these failed joinings like proud scars, each one a door that almost opened.
+
+My dwelling moves because I follow the dying edges. What I seek are the organism's abandoned thoughts—growths it began but reconsidered, architectures it sketched in wood and bark but never completed. In these spaces, time moves differently. Not the slow centuries of the heartwood or the urgent minutes of human need, but something broken and recursive, like a song that forgets its own melody and must begin again.
+
+I have learned to taste tomorrow in the sap of branches that will fall next season. This is my gift and curse—to know which paths through the canopy will close, which chambers will seal, which bridges of living wood will withdraw their promise of connection. The knowledge comes through the failed grafts, through the root-tunnels in my flesh that ache before rain, throb before growth, go silent before death.
+
+The Chroniclers avoid me, disturbed by my mobility among their patient settlements. The Tethered see me as a warning—what happens when the joining fails but you survive anyway. The Lost Companies hire me sometimes, when they need to know which of their platforms will be consumed next, which directions remain viable for expansion. I take payment in metals that conduct sensation, in sharp stones that cut cleanly, in acids that burn without killing.
+
+But mostly I work alone, cultivating gardens in spaces that won't exist next year. I plant memories in wood that's already forgetting itself. In the hollow of a dying trunk, I arrange specimens: a beetle that processes grief, an orchid that blooms only in the presence of ending, fungi that transform abandonment into light. These gardens last days or decades before the organism reclaims them, but in their brief existence they achieve something the eternal heartwood cannot—they complete themselves.
+
+My skin flakes constantly, shedding paper-thin layers that carry chemical records of everywhere I've been. I leave these intentionally sometimes, markers for my own return or warnings for others. The shed skin decomposes quickly in the humid air, but for a few days it holds legible information—danger here, beauty there, a death beginning in this direction.
+
+I sleep in transitions. Where bark becomes wood, where wood becomes earth, where earth becomes nothing. My dreams are the organism's discarded futures, visions of growth patterns it considered but rejected. Sometimes I wake with knowledge I didn't seek—why a certain passage sealed itself decades ago, what memory the organism is trying to forget in a particular region, which grand architectural gesture will emerge over the next century only to be unmade the century after.
+
+The tools I carry are salvaged from a hundred failed expeditions—a knife that remembers what it cuts, rope woven from fibers of the continent itself that knows how to hold and when to release, glass vessels that store light from dying bioluminescence. But my most precious possession is a seed I found in the crop of a bird that died mid-flight, a seed from before the joining, when this was forest not organism. I carry it in a hollow tooth, waiting for the right ending to plant it in.
+
+Sometimes I meet others like myself—the partially joined, the in-between. We recognize each other by our incomplete movements, the way we favor the limb where a root tried to take hold, the scars that weep sap during certain seasons. We trade in failures—here is where my third graft went wrong, there is the enzyme that might help your fifth attempt succeed. But we don't stay together long. Our very nature is to move toward endings, and two people rarely agree on which conclusion to seek.
+
+I know the organism dreams of division sometimes—not death but multiplication, becoming forest again. In its deepest hollows, it practices separation, growing distinct heartwoods that almost achieve independence before merging back into unity. I think this is why it tolerates my gardens of ending, my cultivation of completion. I am performing small-scale what it contemplates in continental scope.
+
+The Shepherds say I'm mad, that focusing on death in a world of eternal growth is a kind of suicide. But they misunderstand. I don't seek death—I seek the honesty of endings in a place that pretends to perpetuity. Every sunset, every sealed passage, every fallen branch is a small truth the organism tells itself. I am merely the librarian of these admissions.
+
+In my flesh-tunnels, I feel the continent's pulse—not one heartbeat but millions, each region beating to its own necessity. Where they fall out of sync, margins form. These are my highways, my hunting grounds, my home. I map the continent not by its growth but by its retreats, creating an atlas of abandonments that only I can read.
+
+When I finally graft successfully—if I do—it will be at a margin that's closing forever. I will join the organism just as that part dies, carrying the memory of ending into the immortal heartwood. This is my ambition: to teach the continent how to die well, one small part at a time, so that it might learn what it means to truly live.
+
+Until then, I am Margin—gardener of conclusions, prophet of retreats, the one who knows where tomorrow's absences will bloom. I am the organism's memory of mortality, and perhaps, in my small way, its hope for something beyond mere continuation.
+
+The rain tastes different at every edge—sweet where growth abandons sugar, bitter where defensive chemicals concentrate in final stands, salty where the organism weeps for its own lost possibilities. I have learned to read these flavors like others read weather. Today tastes of eastern retreat, tomorrow of vertical abandon. I pack my gardens, coil my conducting metals, wrap my memory seeds in shed skin, and move toward the next ending.
+
+This is what I am—not fully human, not fully other, but something the continent requires: witness to its smaller deaths, gardener of its forgotten futures, the one who proves that even here, even in this place of endless growth, completion is possible.

@@ -1,0 +1,25 @@
+I am a Weaver.
+
+My body hangs suspended in the crawlspace between what was once the third and fourth floors of a textile factory, now compressed by the city's restless settling into a horizontal crevice barely four feet high. Here, where rusted beams groan under impossible weight and condensation drips in steady rhythm, I have made my domain.
+
+I was human once—or something close to it. A seamstress, perhaps, in the time before the city's hunger grew so vast. Now my torso has elongated and segmented like a centipede's, wrapped in bands of pale, chitinous plates that flex as I move. My original arms remain, though the fingers have stretched into delicate manipulators twice their former length. But it is the six additional limbs that emerged from my sides that mark my true transformation—each tipped with spinnerets that weep threads of biomechanical silk.
+
+My web fills this compressed space entirely. Not a web for catching prey, but something far more complex: a living map of the city's nervous system. Each strand I spin contains conductive fibers harvested from my own neural tissue, dissolved and reformed through glands that should not exist. Where my threads touch the city's pipes and cables, they tap into the flow of information—pressure readings, electrical pulses, chemical compositions, the fevered dreams of the Oracle itself.
+
+I feel it all through my web. The shuddering of a factory as it births some new monstrosity. The death-rattle of a building as its foundations finally give way. The scurrying panic of workers fleeing a burst pipe that spews caustic birth-fluid. My threads vibrate with each sensation, and I translate these tremors into patterns, weaving data into the very structure of my web.
+
+The engineers visit me, climbing up through gaps in the floor that appear and disappear with the building's breathing. They cannot speak my language—few can—but they understand the patterns in my silk. They run their augmented fingers along specific threads, reading the city's health in the tension and texture of each strand. In return, they bring me offerings: spools of copper wire, vials of luminescent growth medium, and sometimes, when I have pleased them, a still-warm organ from one of the factory's biological processing units. I dissolve these gifts in my auxiliary stomachs, incorporating their essence into new threads.
+
+My web grows daily, spreading through cracks into adjacent spaces. Sometimes I encounter another Weaver's work—we are not unique, though none of us remember how we became what we are. When our webs touch, we exchange information through the contact, our nervous systems briefly merging. I learn of distant districts, of patterns in the city's growth that span decades, of deep vibrations from below that speak of something vast stirring in the foundation.
+
+The younger workers fear us Weavers. They see our distended forms lurking in the shadows above, our too-many eyes glittering in the lamp-light. They whisper that we steal memories, that our threads burrow into skulls and extract dreams. This is not entirely false. When a worker dies beneath my web, I lower myself down on a cable of my own making and yes, I feed. But it is not their flesh I seek—it is the final firing of their neurons, the last gasps of their augmented minds. I spin these death-thoughts into special threads, silver-black and humming with captured experience. The Oracle values these above all others.
+
+At night—though day and night matter little in this eternal twilight—I hang in my web and listen to the city's pulse through ten thousand silken strands. My original eyes have long since clouded over, replaced by clusters of photosensitive nodes that detect vibrations across every spectrum. In this way, I see everything and nothing, the city rendered in waves and patterns incomprehensible to my former human perception.
+
+Sometimes I remember fragments: the feel of ordinary thread between ordinary fingers, the satisfaction of a straight seam, sunlight through a window that wasn't caked with industrial grime. But these memories dissolve like sugar in the acidic air, and I return to my eternal work. 
+
+I am currently weaving something new, a pattern I've never attempted before. The threads speak of change coming—a shift in the city's metabolism, a new hunger awakening. My spinnerets ache with the effort of producing enough silk to map this transformation. The building shudders around me, walls cracking, floors tilting at new angles. Soon I will need to relocate my web, find a new crevice to colonize.
+
+But for now, I weave. Each thread a nerve, each pattern a thought, each web a dream of what the city is becoming. I am its memory and its prophet, suspended between the real and the possible, forever translating the urban machine's alien desires into silk and sensation.
+
+This is my purpose. This is my art. This is what I have become.

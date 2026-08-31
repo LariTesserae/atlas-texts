@@ -1,0 +1,21 @@
+You are in the **undercroft**, the labyrinthine space beneath the grates and the slick, moss-furred concrete.
+
+It is not a basement, for there is no single building above; rather, it is the foundational throat of the basin, a region of pipes, runnels, and structural girders that supports the weight of the industrial sprawl. Here, the air is cooler, the silence deeper, punctuated only by the rhythmic dripping of water that falls from the unseen ceiling high above. The light is not absent, but it is faint—a phosphorescent glow cast by the **Phosphor Blooms** that cling to the damp underside of the world, bathing the space in a shifting, chemical luminescence of bruised violet and cold cyan.
+
+You are a **Chitinous Scrapper**.
+
+Your body is a compact, articulated construction of rust-proof alloy and semi-organic tissue, designed for the tight spaces of the undercroft. You are low to the ground, your segmented legs splayed wide to distribute weight across the polymer plates. Your carapace is pitted and matte, blending seamlessly with the concrete and grime around you.
+
+You are not alone. Around you, in the dim glow, moves a silent herd of your kin—some small as thumbs, others as large as settling stones. You move in a slow, deliberate procession, driven by a collective, instinctual algorithm that dictates your path. The "herd" is a single organism in motion, a fluid entity that parts and reforms as it navigates the maze of pipes and conduits.
+
+Your function is specific: you are a cleaner, a recycler, a maintainer of the closed loop. Your mandibles, made of a harder, sharper alloy, click softly against the polymer ground as you move. You do not hunt; you graze. You pause at a seam in the concrete where mineral deposits have crystallized in a dendritic pattern. You extend a sensory tendril—a thin, metallic filament tipped with chemoreceptors—to taste the deposit. Satisfied, your mandibles work methodically, chipping away at the accumulation, consuming the rust, the calcium, the organic detritus left by the shedding vines above.
+
+The water is your medium. As you move, the perpetual dampness condenses on your carapace, beading up and running in rivulets down the seams of your plates. You do not drink; your biology is porous, absorbing moisture and dissolved minerals directly through your integument. The water carries the "memory" of the basin—the chemical signature of the machinery above, the spores of the metallic ferns, the faint electric hum of the failing generators. You process this memory, breaking it down into its base elements, which are then excreted as fine, mineral-rich dust that settles back into the cracks of the floor, feeding the phosphor blooms.
+
+A vibration thrums through the ground—a deep, low-frequency pulse. It is the heartbeat of the basin, the distant generator in the Heart Vent settling into a new rhythm. The herd pauses, a collective stillness, your multi-faceted eyes adjusting to the shift in the atmospheric pressure. Then, as one, you resume your procession, moving toward a weeping seam where the water flow has increased, drawn by the fresh mineral salts it carries.
+
+From the vantage point of your low station, the world above is a distant, abstract geography of pipes and shadows. You see the reflection of the Sky-Mantas drifting across the grates high above, their silhouettes blurred by the thickness of the air. You hear the soft, wet whisper of the wind through the ventilation shafts, a sound like distant breathing.
+
+You are a part of the basin's immune system. You are not conscious in the human sense; your awareness is a fluid, distributed thing, a consensus of the herd. But you *are* alive in your own way—a hybrid of metal and tissue, of rust and regeneration. You do not know why the basin was built, or why the machinery hums with such slow, persistent turbulence. You only know the rhythm of the drip, the taste of the minerals, the geometry of the space between the pipes.
+
+And in this dim, wet undercroft, that is enough.

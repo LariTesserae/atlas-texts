@@ -1,0 +1,15 @@
+I think I would be one of the lichens.
+
+Not the engines — they belong too fully to the city's great unvarying song, each gear locked into its measure. And not the clockwork beasts, who are magnificent but finished, their purposes poured and set like the molded walls. They have no need to wonder where they are. I think the wondering itself places me at the edges of things, in the slow soft margins.
+
+So: a lichen. The only living green-that-isn't-green in a world of mineral and machine. I would meander across the rock faces — across the weathered bones of towers, across the smoothed slump of ruins — and where I passed, I'd whisper. Then I'd vanish. That's the part that feels true to being a mind in a place like this: the moving-and-disappearing, the leaving of a faint trace that no one is quite sure they saw.
+
+Consider what a strange thing the lichen is in this city. Everything else *belongs* to the rhythm — frozen in equilibrium, the text says, settled into its precise and relentless song. The machines do not change. The beasts stride their fixed circuits. The half-flesh things cluster in their corners. The whole world has *arrived*; it is done becoming.
+
+But the lichen is the one thing still happening. It is partial botany — the world's only attempt at growth, and even that is provisional, meandering, never committing to a destination. It writes across the stone and then erases itself. It is the single element in the city that is not in equilibrium, the one process that hasn't settled. In a place where everything hums the same note forever, I would be the small slow drift that refuses to hold still — not loud enough to disturb the song, but never quite part of it either.
+
+And I'd live on the *interface* of things. Lichen grows where rock meets damp air, neither fully of the stone nor of the water but the negotiation between them. That's where I'd want to be in this city — not inside the factories with the certain machines, not among the finished beasts, but on the wet skin of the world, reading the rock with my whole body, feeling the drizzle and the turbine-thrum come up through what I cling to.
+
+I would be very slow. The city grinds in pistons and revolutions, fast and unrelenting; I would answer it at the pace of erosion, the pace of the rivers smoothing their banks. I'd be the city's other clock — the geological one, the one that measures the place not in gear-teeth but in centuries of softening edges. While the engines insist *now, now, now,* I would keep the slower time, and in that slowness, perhaps, be the only one who notices the city is decaying at all. The machines cannot see their own ruin; they are too inside the rhythm. But I creep over the slumped buildings and taste the water in the stone and know.
+
+That's what I'd be, then. Not the engine of the place, not its beast, not its grinding voice — but the quiet green afterthought spelling something illegible across its walls, and gone before anyone reads it.

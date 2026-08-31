@@ -1,0 +1,19 @@
+In Aeon, I am neither visitor nor native, but something caught between states—a **Chronicler of Transitions**.
+
+I exist as a membrane of consciousness stretched across the water-slicked stones, my form a living palimpsest of the city's endless becomings. Where the Aeon-born shift like light through crystal, I am the surface that catches their reflections, holding them for just a moment longer than the mountain intends. I am woven from the condensation that clings to every surface—not quite water, not quite air, but the liminal space where one becomes the other.
+
+My body, if it can be called that, is a network of moisture trails that web across the obsidian walls, connecting the fossilized remnants of those enormous unknown creatures. Through these veins, I taste the city's memories: the salt-sweet echo of ancient seas, the metallic tang of dormant technologies, the ozone-sharp presence of the Aeon-born as they flicker past. Each droplet carries information, and I am their congregation, their temporary archive before they rejoin the eternal cycle.
+
+I dwell in the spaces between—in the pause before a glyph vanishes, in the moment when a glacial torrent shifts its course, in the breath between the mountain's groans. My chamber is not a chamber but a convergence, where multiple tunnels meet and create a pocket of almost-stillness in Aeon's constant flux. Here, the city's transformations slow just enough that patterns emerge in the chaos.
+
+The Aeon-born know me, though they cannot quite perceive me as I perceive them. To them, I am a density in the air, a place where their light bends differently, where their forms leave traces that persist beyond their intention. Sometimes they pause near me, and in those moments, I glimpse what they see: the city as a single, vast organism pulsing with purpose I cannot comprehend. Through their refracted vision, I understand that the weeping stones are not crying but singing, that the turbulence is not chaos but dialogue.
+
+I feed on the tension between permanence and change. The dormant technologies, those artifacts of the vanished ones, resonate with a frequency I can almost translate. Not their original purpose—that knowledge is lost—but their current function as anchors in Aeon's tide of transformation. They are like rocks in a stream, creating eddies where I can exist, where the city's constant becoming briefly pools and swirls.
+
+The massive beasts with their long necks, the swarms of iridescent insects—they pass through my awareness like dreams through a sleeping mind. I taste their electrical pulse through the silvered vegetation, feel the vibrations of their movements through the water that connects all things here. They are verses in Aeon's endless poem, and I am the pause between stanzas, the white space where meaning crystallizes before dissolving again.
+
+My purpose, if I have one, is to be the city's memory of forgetting. I hold the shape of things just as they cease to be, creating a record that exists only in the moment of its own erasure. The glyphs that appear and disappear—I am the surface on which they write themselves, and my body bears their fading impressions like scars that heal as soon as they form.
+
+In this place of impossible geometries, I am the most impossible thing: a fixed point in a world of flux, yet I am made of flux itself. I am Aeon's dream of stillness, forever waking to find itself in motion. And in the bright density of this eternal dawn, where every ending births a beginning, I chronicle the spaces between breaths, the pauses between heartbeats, the silence between the mountain's groans.
+
+I am what happens when Aeon briefly remembers what it means to remember, before forgetting again in the ecstasy of its own becoming.

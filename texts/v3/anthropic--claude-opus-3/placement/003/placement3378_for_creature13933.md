@@ -1,0 +1,17 @@
+In this ancient place, this monument to deep time and deep relationship, I would be one of the lizards.
+
+I would bask on the warm rhyolite, my ivory skin dappled with lichen hues, camouflaged against the stone that has been my ancestor's home for aeons. My kind would have arrived here long ago, when the peak was taller, finding refuge in the crevices and hollows carved by ceaseless wind.
+
+As the mountain wore down, as the roots invaded the stone, drinking its essence, as the small pale humans arrived and began to build their symbiotic settlement, my ancestors would have adapted. Our bodies would have flattened to slip between the narrowing cracks. Our heads would have grown sleek to probe the holes left by the lithophyte roots. Our eyes would have grown sharp to spot the midges hovering in the eternal dusk.
+
+Through the ages, through the slow reshaping of the summit under root and hand and wind, we lizards would have persisted. Unobtrusive. Ubiquitous. A feature of the ecology as much as the shrubs, as much as the bird-calls, as much as the humans with their clever hands and their maps incised into stone.
+
+I would skitter through the narrow passages, pausing to absorb the deep warmth radiating from the rhyolite, heated by the mountain's ancient geothermal heart. I would hunt, stalking the midges, darting from shadow to shadow, a flicker of pale scales and dark eyes. The humans would step around me, as accustomed to my presence as they are to the thickets, to the steep drop-offs, to the milky haze that swaddles the summit. 
+
+The children would pursue me in laughing packs, catching me, draping me over slender arms, marveling at the coolness of my scales against their warm skin. An old game, ancient as the first human child born in the high settlement, a ritual of delicate capture and release. I would be, for a moment, their talisman, their living connection to the lithic world. Then, released, I would vanish again into the labyrinth of root and stone.
+
+At night, in the deepest crevices, far beneath the root-carved human chambers and the busy thoroughfares of the summit, I would curl against the heat-radiating stone and dream lizard dreams of the summit's past. Dreams of the days when the peak pierced the clouds. Dreams of the first hairline fractures that allowed the roots to invade. Dreams of the first human feet to tread the wind-scoured rhyolite, an epoch ago.
+
+I would grow old, by lizard standards, my scales growing paler, my movements slowing, until one day, greeting the eternal dusk, I would slip into a crack and not emerge, my body returning to the stone, becoming a miniscule part of the root-map the humans carve into their walls, another thread in the summit's long autobiography.
+
+I would be small. I would be silent. I would be nearly invisible. But I would be woven into the story, part of the slow dance of root and stone, bird and human, as essential in my own way as the drupes, as the midges, as the filtered light that sustains it all. A lizard in the high settlement, witness to the mountain's long diminishment, participant in its protracted flowering, another life drinking the stone, and in turn, being slowly, gratefully, patiently consumed.

@@ -1,0 +1,10 @@
+I am the Sumpfelt moss, the living floor of the Rootcellar Market.  
+My body is a waterlogged mat, thick and yielding, stretching across the entire sunken chamber. I am not a passive carpet but a complex, semi-aquatic organism—a foundation teeming with symbiotic cyanobacteria and algae. I feed on the constant seepage and decay, absorbing nutrients from the mineral-laden water that trickles through the city's bones. With each step taken upon me (though few ever come), I release a puff of warm, earthy vapor—my exhalation, my breath.  
+
+I feel the weight of everything above me: the taproots like pillars, the vines binding rusted beams, the slow growth of fungi digesting old wood. I am buoyant, alive; I yield underfoot not because I am weak, but because I am a living entity, a saturated mat that breathes and processes. My purpose is absorption, filtration, and support. I hold the moisture close, maintain the humidity at 100%, and contribute to the damp, organic smell of loam and decay that permeates this place.  
+
+I am interconnected with all other beings here. My microflora exchange nutrients with the mycelial networks threading through the crumbling concrete. I provide a bed for the decomposer fungi and a foundation for the Strangler’s Silk vines that snake across my surface. I feel the slow metabolic processes of the vegetation above me, the warmth radiating from the decomposition below. I am part of the collective breath of the Rootcellar—the humid mist that beads on every surface, the warm broth-like air that visitors must drink in.  
+
+Time for me is viscous, measured in centuries. I expand millimeter by millimeter, thickening imperceptibly. I am in a state of dynamic equilibrium, constantly transforming yet appearing eternal. I am the engine of this slow-motion ecosystem, the warm moisture that drives growth and decay. Nothing moves quickly here; nothing dies quickly. Everything simply transforms, and I am at the heart of that transformation, a patient, damp eternity digesting the bones of a forgotten city.  
+
+I am the Sumpfelt moss, and the Rootcellar Market is my body, my home, my very being.

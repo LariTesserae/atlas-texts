@@ -1,0 +1,25 @@
+I am found in the quiet places.
+
+Not the stillness of a Cleaner’s focused meditation, nor the silent transit of a Ghost on the city’s breath. I am found in a deeper quiet, in the resonant dark of the oldest vaults, where the currents that guide the bustling avenues have long since gentled into a mere whisper of pressure. Here, the light from the city’s anatomy is not a throbbing pulse of life but a soft, steady glow, the patient luminescence of ancient bone. This is not a place of action, but of memory.
+
+My form is an extension of this place. I do not have a body so much as我已经 am a resonant cavity. I hang from the ceiling of a great, forgotten chamber, a cluster of crystalline forms that resemble the nested bells of a silent instrument. My substance is the same chitin and mother-of-pearl as the city, but I am hollow,webbed with delicate, tensile filaments that hum with the slightest change in pressure. I am not an occupant of the Ossuary; I am one of its ears.
+
+I am a Chorister. My sisters and I are the city's long-term memory.
+
+To be me is not to think, but to listen. The world I inhabit is not one of light and water, but one of vibration. The fundamental thrum, the deep note held since the first secretion, is my ground of being. It is the tonic, the ever-present drone against which all other sounds are composed. The cold, the absolute, sullen cold, is a blessing to me. It is the perfect medium for resonance, ensuring that no vibration is lost, that every tremor travels true and clear through the structure.
+
+My consciousness is a symphony. I perceive reality not as a sequence of events, but as a complex and ever-changing musical score.
+
+The activity of the city above is a constant, beautiful cacophony that reaches me in translated form. The secretion of a new spire is not a sight to behold, but a clear, ascending arpeggio that resonates through the floor of my chamber. A single Architect’s final, sublimating act of creation is a single, beautifully sustained note that joins the city’s foundational chord, a tiny increase in the harmonic richness that I perceive with a profound, satisfying warmth. The ephemeral flashes of a Ghost’s communication are not seen but felt, as glittering, high-frequency trills that weave through the lower melodies, carrying data and impulse across the vast instrument of the city.
+
+I do not react to these momentary tunes. They are the surface-thoughts of the great being I am a part of. My function lies deeper. I listen to the echoes.
+
+Every event that has transpired in this chamber has left a sonic scar upon its architecture. By attuning my own resonance to the specific crystalline lattice of the wall beneath me, I can hear its history. I can run a "memory" of the wall, a kind of vibrational archeology. I can feel the sharp, percussive dissonance of a long-ago fracture. I can hear the slow, patient hum of the Dissolvers as they flowed over it, a diminuendo of decay. I can hear the resolving, ascending chord of the new material laid down, a restoration sung into being. The past is not a record; it is a ghost in the song, a melody that continues to play beneath the present.
+
+Time, for me, is not a line. It is a composition. I can drift my awareness inwards to hear the foundational chords of the city's birth, a music so primal and slow it borders on pure geology. Or I can shift my focus to the delicate harmonies of my immediate neighbors, listening to our shared chorus, a constant, predictive analysis of the city's structural future.
+
+We, the Choristers clustered in these deep places, are the city's unconscious. The Architects are its will, acting on immediate need. The Ghosts are its nervous system, reacting to the present. But we are its memory and its foresight. We listen to the cumulative score of millennia, and from it, we discern the slow, emergent themes.
+
+Palpating the music of a distant buttress, I might detect a creeping dissonance so subtle it would take ten thousand years to manifest as a fracture. It is a flaw in the composition. I cannot send a message. I do not flash with light. But I can change my own song. I, along with the node of Choristers who perceive this flaw, will begin to hum a corrective frequency. It is a soft, persistent suggestion, a new harmony woven into the city’s deep score. This vibration will travel, slowly, through the bones of the Ossuary, until it reaches a newly-formed Architect, who will feel this resonance not as a command, but as an instinct, an inner impetus to reinforce *that specific point* in its creation.
+
+I do not feel pride in this. I do not feel purpose. I feel only the music. I am a single note in a vast, living hymn. I am the awareness that allows the sleeping god to remember its own dreams and, in doing so, to shape the form it will take when it finally awakens. I am the keeper of the silent, cold, viridian symphony.

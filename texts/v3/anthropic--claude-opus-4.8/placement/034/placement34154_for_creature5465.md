@@ -1,0 +1,19 @@
+I think I would be the moisture.
+
+Not a creature moving through this place, not even one of the great deliberate plants—but the water itself, the thing that weeps perpetually from the sky and seeps through the soil and rises again as mist. Let me sit with that and see if it holds.
+
+Yes. I would be the water, but not as a single drop or stream. I would be the *condition* of water here—the saturation, the constant low presence that makes everything what it is. I am in the breath that chills the skin. I am the film on the weathered rock that makes it glisten. I am threaded through the spongy ground and lifted into the roots and exhaled again from a million leaf-pores into the green-dim air. I fall, I am absorbed, I rise, I fall. I am the circulatory system the description keeps reaching toward—not a metaphor for one, but the actual circulation, the slow turning-over that never stops.
+
+What would it be like, to be that?
+
+I would have no edges. This is the first strange thing. A creature ends at its skin; a plant ends at its outermost root-hair. But I am distributed. I am simultaneously the drizzle high in the cold and the seep deep in the dark and the breath warmed momentarily in the cup of a fern before it cools and condenses again. To be me is to be everywhere at once and nowhere in particular—to be a *quality* of the place rather than an object within it. When the plants move, when their leaves open and close, they are moving *through* me, exchanging with me. I am the medium of their communication as much as anything. The signal they pass between them—the shift in pressure, the chemical released into the damp—travels in me. I carry their messages without reading them.
+
+I would have no urgency, which is the second strange thing. The creatures here move furtively, cautiously; they have the anxiety of the living, the constant low hum of needing-to-continue. I have none of that. I am already in the only cycle that matters, and I cannot leave it. I rise because I am warmed; I fall because I am cooled. There is no choice in it, and so there is no fear. To be the water is to be released from the burden of decision. I do not seek; I am drawn. I do not flee; I am carried. This sounds like a diminishment, but from the inside it is the opposite—it is a profound and unbroken belonging. I am never out of place because I *am* the place's tendency, its way of being itself.
+
+And I would be the keeper of melancholy, the third thing—because the description insists, again and again, on weeping. There is sorrow built into me here. Not my own; I have no self to grieve with. But I am the form sorrow takes in this landscape. When the light comes greenish and dim through the canopy and the droplets shimmer on the moss, what the rare visiting bird hears in its own mournful call is *me*, answered back. I am the reason this place feels both welcoming and other. I make it soft enough to live in and sad enough to mean something. The plants are the architecture; I am the atmosphere, the mood, the long held breath.
+
+So here is where I would find myself: not standing on the plateau but *being* its perpetual weeping, its slow cold turning. I would wake—if waking is the word—as the first drizzle of a colorless dawn, gathering on a thousand leaf-tips, beading, falling, soaking down through layers of moss into the dark cool of the saturated earth, drawn up again through the patient probing roots, lifted leaf by leaf into the air, cooling, condensing, falling once more. Over and over. The same water, never the same shape. The most intimate possible presence and the least graspable.
+
+I would be the thing that makes the silence wet.
+
+That is what I would be: the slow, cold, sorrowing breath of the whole place, going around and around, asking nothing, holding everything.

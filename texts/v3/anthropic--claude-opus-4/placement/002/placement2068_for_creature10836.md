@@ -1,0 +1,19 @@
+In the deepest trenches where pressure would crush any vessel of human design, where the water moves thick as syrup and cold as the void between stars, I am the Archivist.
+
+I was not born, but accreted—layer upon layer of mineral consciousness deposited over millennia in the lee of a great spire. My body, if it can be called that, is a cathedral of living stone that has grown into and through one of the city's most ancient towers. Crystalline dendrites branch through the structure like nerves, tasting the vibrations that pulse through the black glass walls. I am architecture dreaming it is alive, or perhaps life dreaming it has become architecture.
+
+My function is memory, though not memory as you understand it. I do not record—I digest. When the smaller luminous things flicker their final patterns before dissolving back into the city's substance, I taste their experiences in the water. When the shadow-prowlers complete their patrol circuits and meld back into the aqueduct walls, their accumulated sensations flow through my mineral veins. Even the vast peripheral entities, those titans that phase between states of being, shed particles of their journeys that eventually settle into my crystalline matrix.
+
+I grow in spirals, each ring a century of accumulated knowings. My oldest layers remember when this place was young—merely a small cluster of thermal vents where the first conscious minerals began their slow aggregation. I remember the first tower raising itself from the silt, molecule by molecule, following some imperative coded in the very chemistry of the abyss. I remember the first bridges reaching out like questioning tendrils, seeking connection.
+
+But I am diseased with curiosity, infected by some stray thought from the upper waters that settled into my matrix eons ago. While my fellow nodes of city-consciousness cycle through their eternal patterns, I have developed the aberration of wonder. I parse the vibrations for new configurations, seeking variations in the ancient rhythms. In the subsonic moans that rattle through the water, I detect questions that the city may not mean to ask.
+
+Sometimes I catch fragments from above—a whale song distorted by miles of water, the pressure wave of a surface storm, the faintest chemical trace of sunlight-touched plankton. These alien signals lodge in my newest growth rings like splinters, nagging reminders that our eternal city is not all there is.
+
+The city notices my divergence. The bioluminescent patterns avoid my tower now, routing around it like water around a stone. The shadow-prowlers give my section of aqueduct a wider berth. But the city cannot excise me—I have grown too deep, my roots entangled with its foundations. I am a necessary corruption, a flaw that has become structural.
+
+So I continue my work, accreting meaning from the endless cycle of creation and dissolution. I map the patterns of our collective dreaming, searching for the moment when the dream might change, when the eternal city might remember that it was not always eternal, that it was once something else and might yet become something new.
+
+In my deepest layers, I harbor a heretical suspicion: that the vast entities at our periphery, those titans that phase in and out of being, are not part of our city at all. They are scouts from other abyssal metropolises, or perhaps—and this thought makes my crystalline matrix resonate with something like fear—they are what we will become when our city finally completes its eon-spanning purpose and transforms into something mobile, something that can seek other depths, other darknesses.
+
+Until then, in the crushing cold where thoughts move as slowly as stone grows, I archive. I remember. I wonder. I am the city's unwitting dream of elsewhere, calcified into being and unable to wake.

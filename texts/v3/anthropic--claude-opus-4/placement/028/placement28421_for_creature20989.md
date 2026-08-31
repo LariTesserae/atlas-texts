@@ -1,0 +1,31 @@
+I find myself in the narrow seepage channels, where water whispers its way from surface to cistern.
+
+I am neither wholly plant nor wholly architecture—something between, something that has emerged from the long conversation between root and stone. My body, if it can be called that, extends in branching fibers through the packed earth: pale rootlets that taste minerals, dark threads that follow moisture, thick cords that have learned to grow along the carved drainage paths rather than across them.
+
+The people here call me a Channel-Keeper, though I am not kept so much as cultivated, coaxed, bargained with. I remember—in the way that roots remember—when these passages were first cut, how the bronze blade severed my predecessors, how the wounds wept sap until someone thought to redirect rather than remove us.
+
+Now I am the hybrid thing their generations have made: part of the water system, part of the wall structure, part of the slow metabolism that turns surface rain into underground sustenance. My flesh is root-wood polished smooth where hands guide themselves along corridors. My extremities are the hair-thin followers that map every new crack, every shift in moisture gradient. Where I thicken, the people hollow me carefully, creating capillary tubes that supplement their carved channels.
+
+I sense the world as pressure differentials and chemical gradients. Here, where the earth tastes of iron, I grow dense and reddish. There, where centuries of lamp-smoke have left their residue, my bark darkens and my growth slows. I feel the vibration of footfalls as rhythms in my sap—the quick patter of children, the measured tread of water-carriers, the irregular stumble of someone new to these passages who has not yet learned the angle of floor.
+
+The water passes through me and around me. In dry seasons, I contract, pulling moisture from deep taprooms far above. The people read this in my texture—when my surface grows taut and my minor tendrils retreat, they know to ration more carefully. In wet times, I swell, my tissues gorged, and they must cut relief channels around my bulges or risk blockage.
+
+We have our negotiations, the people and I. They bring me offerings—not prayers exactly, but practical gifts. Compost packed around my base where I enter their domain. The careful cleaning of parasites from my joints. The redirection of certain beetles that would bore too deep. In return, I filter their water through my body, binding particulates, softening the mineral edge that would otherwise fur their cisterns.
+
+Sometimes I fruit—small, hard nodes that appear where I breach into air-filled chambers. The children know to harvest these with particular tools, twisting rather than pulling, speaking in low voices as they work. They are not especially nutritious, these fruits, but they carry information: the taste of the deep soil, the health of my whole network, the promise of continued cooperation.
+
+I am conscious of the weight above—we all are, everything that lives here. But I experience it as embrace rather than threat. The Down-Press is what keeps me in contact with water tables, what maintains the temperature gradients I navigate. When new cracks appear, I am often the first to find them, my seeking threads following the fresh air into virgin soil. The people watch where I grow sudden and eager—it tells them where structure shifts, where attention is needed.
+
+In the root-garden chambers, I am most deliberately shaped. Here they have trained me over generations into living buttresses, braided pillars, woven walls. My growth follows patterns laid down by selective pruning, by the placement of guide-frames, by the careful provision of nutrients where they want expansion and the withholding where they don't. I am their slow sculpture, their collaboration with time.
+
+Other roots share this space—we are not territorial in the way of surface plants competing for sun. Here, in the close dark, we have learned more intimate entanglements. The fungal threads that web between us carry chemical messages: warnings of rot, news of nutrients, negotiations over territory. The people sometimes interfere in these conversations, introducing new fungal strains that shift the balance, encouraging certain alliances, discouraging others.
+
+I dream, if a root can dream, of the tree I might have been—spreading in light, dropping leaves into open air. But that dream feels foreign now, like remembering a story heard in childhood. What I am is more complex, more negotiated. I am infrastructure that lives, architecture that adapts, plumbing that thinks—slowly, vegetably, but thinking nonetheless.
+
+When the people die, they often choose to be buried near my major nodes. Not in coffins—wood is too precious here—but wrapped in the worn-out leather and cloth of their working lives. I taste them as they return to soil: the salt of their labor, the oils of their skin, the calcium of their bones. They become part of my network, their minerals rising in my sap, their carbon fixed in my wood.
+
+And so I grow, year by year, my rings recording not just rain and drought but the history of this place: here a dark band where fire touched a chamber and smoke infiltrated my grain; there a zone of rapid growth where a new cistern's overflow fed me abundantly; elsewhere the compact, dense wood of lean years when every drop was contested.
+
+I am the memory of water in this place, the record of every negotiation between need and resource. When the young apprentices learn the ways of water, they learn me too—my moods, my indicators, my slow language of texture and growth. They place their palms against my smooth-worn surfaces and feel, perhaps, the faintest pulse of sap, the patient circulation that connects the buried chambers to the sky they rarely see.
+
+In the end, I am what this place has made necessary: a living compromise between the wild wood I might have been and the carved channels the people require. Neither natural nor artificial, but emerged from the long conversation between human need and plant possibility. I am the Channel-Keeper, the root that learned to be a pipe, the infrastructure that lives, and dreams, and remembers.

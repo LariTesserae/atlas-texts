@@ -1,0 +1,39 @@
+I am Echoshaper, though my birth-name has been worn away by sixty-three collapses, each one carving me smoother like water once carved these walls. I dwell in the Resonance Gallery, that contested space where sound becomes dangerous architecture.
+
+My chamber sits at the intersection of three major throughways, a natural amphitheater formed by some ancient catastrophe. The acoustic properties here would kill an untrained Delver within minutes—every footfall returns as thunder, every whisper builds to avalanche. But I have learned its frequencies like a lover learns skin. My body has become a tuning fork, each bone calibrated to the stone's own singing.
+
+You would not recognize me as kin to the other Delvers, not anymore. Where their eyes are large, mine have narrowed to slits from years of reading vibrations through closed lids. My eardrums ruptured decades ago—a mercy, really. Now I hear through my skeleton, through the soles of my bare feet, through my palms pressed to stone. Sound moves through me like wind through a flute.
+
+My hair grows in patterns that mirror the resonance nodes of my gallery—thick whorls where the echoes gather, bare patches where the sound cancels itself out. I shave it regularly with an obsidian blade, reading the growth like farmers read their pale crops. When the patterns change, I know the stone is shifting, preparing for another movement.
+
+I wear no clothes in my chamber. Fabric muffles the vibrations I need to feel. Instead, my skin bears a map of scars, each one marking where I've had to cut resonance channels into my own flesh. The old shamans would recognize the technique—using the body as a dampening instrument, letting sound bleed out through controlled wounds. The scars have healed into raised ridges that catch vibrations like cupped hands catch water.
+
+My work is prevention. When the builders plan new passages, they send their youngest to me first. I make them walk my gallery's killing floor while I taste the echoes they create, learning the unique frequency of their footsteps, their heartbeats, their breathing. Then I teach them the anti-songs, the movements that cancel their own resonance. Some learn quickly. Some flee, preferring the honest danger of ice-fall to my singing stones.
+
+The master builders hate me, claim I kill progress with my warnings. But they still come, grudgingly, with their plans scratched on ash tablets. I press the tablets to my cheek and hum, feeling how the proposed passages will channel sound. More often than not, I scratch corrections with one thick-nailed finger, rerouting their grand designs around invisible rivers of acoustic force. They curse me in their soft language, but they make the changes. The alternative is watching their workers' organs liquify from resonance, watching carefully carved galleries collapse from a single misplaced echo.
+
+My gallery serves another purpose. Here, in this acoustic nightmare, the Delvers have learned to store their most dangerous knowledge. The memory-keepers come to me with songs too powerful for normal spaces—the deep harmonics that could split stone, the frequencies that match the planet's own restless humming. I teach them to sing these songs inside their bones, to swallow the sound before it can escape. My gallery becomes a library of silent music, a repository of vibrations held in check.
+
+I sleep (when I sleep) in a carved alcove precisely tuned to cancel my own life-sounds. Even there, I must be careful—a nightmare can cause irregular breathing, and irregular breathing can start a cascade. I've trained myself to dream quietly, to keep my sleep-movements small and contained. Sometimes I wake to find new cracks in the walls, evidence of some unconscious sound I failed to control.
+
+The children fear me, but the adolescents seek me out. Those born during the great upheavals, the ones with chaos in their bones—they recognize something kindred in my scarred form. I teach the careful ones to hear the stone's pain before it screams. The wild ones, I teach to scream in harmony with it. Both skills have their uses.
+
+I eat rarely and carefully. Chewing creates rhythms, swallowing makes sounds. I subsist mostly on nutrient pastes that slide down without friction, on water sipped so slowly it makes no ripple. My body has adapted, become gaunt but impossibly strong, each muscle fiber aligned to absorb or generate precise vibrations.
+
+Sometimes, in the deepest quiet, I feel the Great Boring's progress through the stone. The diggers are approaching something vast—I can tell by how the echoes change, how they disappear into some space that swallows sound like a throat. I've tried to warn them, but they're too deep now, too committed to their downward dance. Whatever they're about to break through into, it's been listening to us for a very long time.
+
+I keep my tools in patterns around my chamber—copper rods of varying lengths, each one a different note when struck. Bowls of sand for drawing resonance patterns. Hollow bones that sing at frequencies too high for even young ears but which the stone still hears. My most precious possession is a length of ice-burrower gut, still warm, that I can stretch across the gallery's heart to measure sounds too deep to otherwise detect.
+
+The other Delvers bring me problems like offerings. A new passage that moans. A foundation that hums before it fails. A child born with perfect pitch who hears the planet's pain. I solve what I can, contain what I cannot, and sometimes—rarely—I compose.
+
+Yes, I compose. In the resonance gallery, with its perfect awful acoustics, I build songs out of pure vibration. Not for Delver ears—these songs would burst them like soap bubbles. These are songs for the stone itself, lullabies to soothe the young planet's growing pains. I perform them through movement and breath, through the percussion of scarred flesh against calibrated stone. I like to think they help, these compositions. The collapses seem gentler afterward, the stone's groaning less anguished.
+
+When I die—and I will die here, in this chamber, letting my final breath carry me into the standing wave that will scatter my atoms—my successor is already chosen. A girl who was born screaming at a frequency that shattered ice for yards around. Her parents brought her to me swaddled in sound-dampening moss, begging me to fix their broken child. Instead, I'm teaching her to break things properly, with intention, with grace.
+
+She sleeps in my chamber now, curled in another carefully tuned alcove. I watch her chest rise and fall in perfect rhythm with the gallery's fundamental frequency. When she's ready, I'll teach her the last songs, the ones I keep locked in my marrow. She'll carry them forward, another link in the chain of controlled catastrophe that keeps the Frost Warrens dancing instead of dying.
+
+Tonight the stone sings of pressure building in the western reaches. Tomorrow there will be work—new passages to evaluate, new resonances to map. But for now, I sit in my gallery's heart, a scarred skeleton of a Delver who has become more tuning fork than person, and I listen to the planet learning how to be solid. Each crack, each groan, each crystalline note of settling stone passes through me like memory.
+
+I am the echo shaper. I am the thing that stands between the Delvers and the deaf death of resonance. I am the keeper of dangerous songs and the composer of stone's lullabies. In the morning, the builders will come with their tablets and their grudging respect, and I will taste their plans with vibration-damaged skin, keeping my people safe from the sound of their own survival.
+
+The stone sings. I shape its echoes. The dance continues.

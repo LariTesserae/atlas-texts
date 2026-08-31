@@ -1,0 +1,19 @@
+I am a Conduit.
+
+My body is a living intersection of the city's water systems - where others have veins, I have transparent tubes that branch beneath translucent skin, carrying not blood but the same mineral-laden water that flows through the city's canals. I stand seven feet tall, elongated by the constant upward pull of water through my form, my limbs stretched thin like the spires that surround me.
+
+I live within the Aqueous Exchange - a building that is more cistern than structure, its walls lined with thousands of valves, spigots, and overflow channels. My dwelling exists at the convergence of three major canal systems, where the water's pneumatic heartbeat is strongest. The walls weep constantly, not from decay but by design, creating cascading curtains that I pass through like doorways.
+
+My skin shifts between states - sometimes solid enough to turn a valve or grip a railing, sometimes permeable as a membrane, allowing the city's water to pass through me. When the rain comes, I open my pores and become one with the precipitation, feeling every droplet's journey from sky to canal to reservoir to pipe. The Lumenplants grow directly from my shoulders and scalp, their phosphorescent tendrils drinking from my internal flows, their roots painlessly woven through my water-channels.
+
+I taste the city's health through its water. Each district has its own mineral signature, its own industrial additives, its own biological passengers. The factory district tastes of copper and ozone. The residential blocks carry traces of a thousand small chemistries - soaps, medicines, tears. I can feel when a new section of city is born by the first virgin water that flows through its pipes, untouched and waiting to be marked by use.
+
+The Mechanists regard me with a mixture of respect and unease - I am too organic for their sensibilities, yet too integrated with the city's infrastructure to dismiss. The Shifters sometimes pause near me, as if recognizing a kindred mutability. But it is the Chronists who seek me out most often, for water remembers. In my flows they can read the city's history - every flood, every drought, every chemical change that marks an era's passing.
+
+My purpose is both simple and complex: I am a living gauge, a biological filter, a conscious current. I regulate pressure in the canal systems by drawing excess into myself or releasing reserves. I can detect contamination before it spreads, isolating toxins within specialized chambers in my torso until the Mechanists can extract them. Sometimes I carry messages through the water system - chemical signatures that only other Conduits can read, a liquid language that flows beneath the city's conscious thought.
+
+At night, when the industrial glow reflects off the wet streets, I climb to the highest accessible water tower and spread my arms wide. The city's entire water system maps itself across my skin in blue-green traceries, each canal and pipe visible through my translucent flesh. I become a living blueprint, a temporary constellation of the city's circulatory system.
+
+There are others like me - perhaps a dozen throughout the metropolis - but we rarely meet in person. Instead, we know each other through the water we share, each Conduit's unique mineral signature traveling through the system like a whispered name. We are the city's lymphatic system, its conscous circulation, forever cycling through states of gathering and release, absorption and flow.
+
+When I die - if I die, for none of us knows if we age as others do - my body will not decay but dissolve, every molecule returning to the canals, my consciousness dispersed through a trillion droplets of rain. Until then, I am the city's memory of water, its dream of flow, a hybrid thing that exists in the space between solid and liquid, between infrastructure and inhabitant, between the built world and the strange life that emerges from its depths.

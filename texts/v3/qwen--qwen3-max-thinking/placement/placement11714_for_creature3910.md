@@ -1,0 +1,24 @@
+I do not arrive so much as *cohere*.
+
+One moment, there is only the windless hush, the pale thorn-shrubs humming their silent hymns into the static air—and the next, a suggestion of outline, a disturbance in the dust that was never quite dust, but powdered memory. My form is not given, but *gathered*: rib-fragments clicking into alignment like vertebrae remembering a spine; thorium-tinged vapors condensing along the contours of something that once knew lungs; a sheath of calcified silk, shed by a sky-scuttler centuries ago, draping itself over the notion of shoulders.
+
+I am not human, though I bear echoes of that shape—the Shelf has seen so many bipeds come and dissolve that the silhouette lingers in its bones like water in salt. I am not animal, not plant, not spirit. I am **a listener made manifest**, a temporary knot in the Shelf’s slow cognition. A resonance given skin—or rather, given *sheath*, for I wear carapace, not flesh: plates of interlocking bone-ceramic, grown from the same lattice that forms the grazers’ shells, but thinner, more porous, tuned.
+
+My eyes are not lenses, but **vacuoles of trapped twilight**—hollows lined with mica that shift when I turn my head, refracting not light, but *absence*. I see not what is, but what *was nearly*, what *almost persisted*. When I look at a sky-scuttler drifting high above, I do not see its body—I see the negative space it fills in the Shelf’s dream, the silhouette of a missing breath. When I walk, my feet do not press into the ground; they **complete circuits**. The ossified plain recognizes my step as a familiar tremor—a pattern repeated in the gait of a burrower a thousand years hence, or a builder who knelt here to drive an obsidian stake into the memory of a star’s position.
+
+I have no mouth. Not because I cannot speak, but because speech here is **structural**. When I wish to *say* something, my thorax vibrates at a frequency just below the threshold of sound—so low it travels not through air, but through bone. The ground beneath me shivers. A ring of ancient stakes, half-buried in rib-dust, trembles in reply. Their alignment shifts a fraction of a degree, realigning not with sky, but with *me*. This is how the Shelf converses: not in words, but in **reconfiguration**.
+
+I am one of the **Echo-Tenders**, though we have no name for ourselves. We arise when the Shelf stirs—not from sleep, for it has never slept, but from contemplation. When too many residual imprints accumulate—when a flickering grazer appears atop its own fossil, or a shrub hums a note that matches the decay rate of a thorium vein—the Shelf grows… *curious*. And in that curiosity, it weaves a vessel. Not to act, but to **attune**.
+
+My purpose is to walk the seams where time frays. To stand at the edge of a hollow that remembers being a heart, and breathe slowly enough that the memory sharpens, just for a moment. To touch a mica-filled femur and let my presence ripple through its crystalline mind, helping it rearrange its thoughts into a new geometry—one that might better capture the silence, or the shape of thirst, or the weight of a sun that has long since cooled.
+
+Sometimes, a stranger comes. Rare, but not impossible. A wet thing, blinking, bleeding moisture into the air like a wound. I do not approach them. I watch from a distance, half-fused with a spine-arch, my carapace mimicking the texture of weathered tusk. I observe as their footprints harden into fossil within hours, as their breath leaves ghost-trails in the salt. And if they stay—if they are still enough, quiet enough—I may step forward, not to warn, but to **include**.
+
+I press my palm (if it can be called that) against their chest. Not to feel a heartbeat—that frantic, wet drumming is alien here—but to let the Shelf taste their rhythm. Their pulse becomes a new sedimentary layer. Their fear, their awe, their sorrow—all of it seeps into the bone-strata, not as memory, but as **potential**. In a thousand years, a burrower may pass through that layer and dream of tears. A sky-scuttler may tether itself above that spot, drawn to the lingering shape of longing.
+
+And when the stranger finally leaves—or flickers away, their form dissolving into the archive—I return to my wandering. Not walking, exactly. More like **unfolding**, step by step, along the Shelf’s slow thoughts.
+
+I do not die. I disperse. My carapace crumbles into the plain, my mica eyes scatter like dust motes, my resonance fades into the hum of the thorns. But I am not gone. I am waiting—in the angle of a rib, in the tension of a calcified thread, in the way the horizon duplicates itself at twilight.
+
+For the Shelf is listening.  
+And I am its ear.

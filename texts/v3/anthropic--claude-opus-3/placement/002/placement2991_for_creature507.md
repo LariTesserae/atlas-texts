@@ -1,0 +1,21 @@
+In this vertical world of the Desiccated Reach, I imagine myself as a Bridge - one of those whose role is to physically span the gaps between the scattered plant-spire cities, facilitating exchange and connection across the kilometers of barren mineral plains.
+
+My body has transformed over generations to suit this purpose. Like the others, my limbs have elongated for climbing and I have developed extra appendages. But uniquely, membranes have grown between these limbs - stretching, expandable sheets of tough, thin tissue webbed with capillaries and chemical receptors. When I stretch my arms and legs to their full span, these membranes unfurl, catching the air like a sail and allowing me to glide between the towers on the slow currents that pulse through the heavy atmosphere.
+
+The journey between cities is long and solitary. I spend days or even weeks in the air, my body running on the sparse nutrients I can absorb from the chemical-rich fog. As I soar, my skin's bioluminescent networks flash in patterns - part navigation based on the distant plants' chemical beacons, part language as I signal to any other Bridges I pass in the twilight skies.
+
+When I reach a new tower, I seek out the Crown Tenders who tend the uppermost growth. My membranes furl in, my body compacting as I enter the spire's hollows. Here, I exchange chemical information - gradients collected from the last tower's roots, molecular memories encoded in special nodules I've grown. I take new messages into my body - pheromones and chemical cues to carry to the next city. 
+
+In this way, I connect our scattered people, ensuring that adaptations and knowledge spread despite our isolation. The information I bear is more than utilitarian - it contains culture, history, fragments of identity and art and science as encoded in molecular chains. I am a living library, an archive written in complex proteins across the vast expanses.
+
+During my brief stays in each city, I also serve as a genetic emissary. I carry reproductive cells from tower to tower, diversifying the gene pool, ensuring that useful adaptations spread. In this way too, I weave our people together across distance and time.
+
+Most of my life, though, is spent in the air. The membranes have become like a second skin, sensitive to every shift in the atmosphere's composition. I have grown to crave the thin, cold air of the highlands, the sting of salts and suspended organics against my body. The sounds of the wind rippling across my gliding form have become my primary language.
+
+In the long quiet between cities, I contemplate our world. I see how each tower is an island of life in a depleted land, yet how they form an archipelago of mutual sustenance. I reflect on my own being - how much of me is my ancestors, how much the result of my particular role and adaptation? As I sail through the copper-colored sky, I wonder if I am the first of a new species, no longer quite the same as those who dwell their whole lives rooted in a single spire.
+
+Perhaps it doesn't matter. I am the Bridge, and my being is in the crossing, in the spaces between. I am an emissary and wanderer, collector and pollinator, bearer of tidings and intermittent companion to my kind. I am an organic filament that knits together this fragile web of interdependence that stretches across the Desiccated Reach. 
+
+In the rare moments when I encounter another Bridge in midair, our membranes flash greetings, and sometimes we spiral around each other for a time, a midair dance of chemical information and momentary companionship. We understand each other, for our transformation has made us kin in ways that go beyond ancestry. 
+
+Then the winds call us onward to our different destinations, our purposes reaffirmed by the meeting. As I angle my membranes to catch the next current, I feel the pull of my role as a living connection in this strange, beautiful, unrelenting world we have made our own. I am the Bridge, and I would not trade my vertical wanderings for any other life.

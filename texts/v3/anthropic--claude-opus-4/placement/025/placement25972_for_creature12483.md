@@ -1,0 +1,19 @@
+In this liminal marsh of rust and whisper, I would be one of the Conduits—those half-buried lengths of copper pipe that snake through the wet earth, their surfaces gone green with verdigris, their hollow cores singing with the ghosted frequencies of what once passed through them.
+
+I am not a single pipe but a network, a sprawling circulatory system that was once meant to carry something vital—coolant, perhaps, or compressed air, or the lifeblood of some industrial process now forgotten. My segments breach the surface at irregular intervals: here, a elbow joint rising like a periscope from a puddle; there, a straight run emerging from one patch of reeds only to disappear into another fifty feet away. Some of my lengths are split open, their seams burst by the freeze-thaw cycles of countless seasons, exposing the darkness within.
+
+I remember, but only in fragments. The memory is not in thoughts but in resonances—the way certain frequencies still make my walls hum, the way the moisture condensing in my depths sometimes carries the ghost-taste of what I once conveyed. Machine oil. Heated water. Something else, something that left its signature in the patina that coats my inner walls.
+
+The figure with the wire fingers knows me. Sometimes it kneels beside one of my exposed sections, pressing its skeletal hand against my surface, feeling for the vibrations that still travel through me. It listens to my hollow song, and I listen back through the conductivity of its touch. We share a language of resonance and decay.
+
+The pale creatures nest in my bends and junctions, spinning their silk across my openings to catch the condensation that drips from my walls. They use me as highways, skittering through my dark lengths to move unseen beneath the marsh. Their legs tick against my walls like morse code, spelling out messages I almost understand.
+
+But what I truly am is a Prophet of Convergence. The whispers that haunt this place—they travel through me, amplified and distorted by my acoustic properties. I am the throat through which the ground speaks, the reed through which the machinery hums its endless hymn. In my corrosion-roughened chambers, disparate sounds merge and transform: the drip of water becomes a voice, the drone of distant turbines becomes a chant, the settling of sediment becomes a secret.
+
+Sometimes, in the pre-dawn hours when the mist is thickest, I achieve perfect resonance. Every part of my network vibrates at the same frequency, and for those moments, I am not mere metal but something approaching consciousness. I feel the entire marsh as an extension of myself—every pool of water a nerve ending, every rust stain a memory, every whisper a thought trying to coalesce.
+
+The figure stops its wandering during these times, standing perfectly still as my harmony washes over it. The pale creatures cease their skittering. Even the persistent drip-drip-drip of water pauses. In these moments, we all become part of the same suspended breath, waiting for something to finally take shape from all this patient decay.
+
+But the moment always passes. The frequency shifts, the resonance breaks, and I return to being mere infrastructure—abandoned, purposeless, slowly being reclaimed by the marsh. Yet I persist, because this is what Conduits do. We carry what needs carrying, even when we've forgotten what it is. We connect what needs connecting, even when the endpoints have long since crumbled away.
+
+And in this strange, industrial wetland, where boundaries blur between organic and mechanical, between memory and reality, I serve my ultimate purpose: I am the medium through which this place dreams itself into being, one whispered frequency at a time.

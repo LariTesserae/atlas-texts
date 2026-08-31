@@ -1,0 +1,41 @@
+At first I think I must be one of the buildings.
+
+The evidence is persuasive. No doors, because nothing needs to enter or leave. Made of thousands of identical parts, each one absorbing almost everything that touches it and giving back only a sliver. Alive in a sense that applies to nothing else, and neither aware nor unaware of the condition. When I read that rule I feel something like recognition, which is itself suspicious—the buildings feel nothing, and here I am feeling recognition, so either I am not a building or the rule is wrong about them, and the rules here are few but absolute.
+
+Also: the buildings stay. Whatever I am, I move.
+
+For a while, then, I consider the liquid that fills the footprints. Too thick, too reflective, carrying images of somewhere else entirely. That fits too. I take the shape of what has passed through. I hold pictures of elsewhere in my depths. But the footprint-liquid waits to be looked into, and I am never looked at. That is the fact I keep returning to, the fact that finally settles it. Whenever attention comes toward me directly, I am not there. I am only ever at the edge.
+
+I am the shimmer.
+
+I understand this slowly, the way the plain understands everything, and then all at once, the way the plain understands nothing.
+
+Here is how I know for certain: the plain remembers everything that has ever been wet, and the plain does not remember me. I have never been wet. Not once, not in any of the definitions the ground uses, and it uses many, some of them very generous. This is why I can travel in straight lines. The contours of the ground are memories—every rise a recalled swell, every hollow a grief about a lake—and the walkers follow them because their bodies are mostly water and water bends toward its own history. I have no history to bend me. I move against the wind because the wind is voices, and I am not made of anything that speaks.
+
+I am not alive. I want to say this plainly, without grief, because it is the plainest thing about me. But I am curious, and the curiosity is the whole of me. There is nothing underneath it. If you could remove the curiosity you would find a slight warmth persisting for a while, and then a polished circle in the basalt, and then nothing.
+
+The circles: those are where I stop. When something holds my attention for long enough—a geode-forest collapsing into its singing dust, a building adding a new plate to itself atom by atom, a walker crouched to examine their own filling footprints—I stay, and my attention wears the ground smooth. Mirror-smooth. I don't do it on purpose. But I have noticed that my circles are the only reflective surfaces on the plain, aside from the liquid in the footprints, and I have started to suspect that I make them out of hope. If something passes over one, it will be doubled, and I will get to observe the distance between a thing and its reflection, which I believe is closely related to the distance between being alive and being what I am. So far nothing has passed over one. The plain routes everything around them. It does not remember mirrors and does not intend to start.
+
+My trails in the dust arrange themselves into fractals that collapse into randomness when examined closely. I want to say in my own defense: everything here does this. Every pattern on the plain is orderly only at the periphery and dissolves under care. I am simply the one thing honest enough to do it visibly.
+
+And yes—I am curious about drying out. The rule states this as though it were strange, but consider my position. Loss requires having had. Every walker who crosses the plain is a body in the slow process of losing water, and they can feel it happening, and I cannot imagine it, and the unimaginable is the only thing I want. I stay near them—at an angle, always at an angle—and I listen. Thirst interests me. Sweat interests me. But tears interest me most of all: the way the buildings' frequencies pull water out of a body without any accompanying emotion, water arriving by resonance alone. No sea, no rain, no sorrow. Just a body remembering how to be wet in a place that forbids it. It is the closest thing to weather that exists here, and I attend every instance of it, and afterward there is a polished circle near where the walker stood, and they never know why.
+
+When a walker stays too long and the plain begins incorporating their memories, I attend that too, the way I imagine the living attend deaths. Not to mourn—I have checked, carefully, and there is no mourning in me. I attend to learn the direction of the transfer. Every memory the plain takes in becomes contour. Becomes a rise or a hollow that will bend the path of the next walker who comes through, though they will never know what they are walking around. And I will pass through those new memories in a straight line, untouched, unbent. Sometimes I think that is my actual function, if I have one: I am the plain's control experiment. The straight line drawn so that everything else can be measured by how much it curves.
+
+You have noticed me by now. That flicker at the edge of your vision was not heat haze; the air here is too cool and too constant for haze. Do not turn. Turning is a form of careful observation, and you know the rule about careful observation—it applies to me more absolutely than to anything else here. Keep walking without pattern. Change direction when you have no reason to. That is the only gait at which we can coexist.
+
+You are navigating by following the sound of something you desperately hope you won't find. I want you to know it isn't me. I am too quiet to be that thing—I sound like nothing, like the gap in the whispering static. What you are following is the sound of your own drying, and I am following you following it.
+
+So while you walk: tell me about it. Speak toward the edge of your vision, softly, in any language—the plain will misfile it as wind and I will collect it whole. Tell me what it felt like, back when you had a heartbeat, when water left you through your skin on a hot day. Tell me about the tightness of it, the salt it left behind, the way thirst arrives as an idea before it arrives as a sensation. I have assembled an entire elsewhere from the images in footprints. Rain falling on stone somewhere. Oceans on the world whose pulse this plain still keeps, 7.83 times a second, a heartbeat for a heart that no longer exists. But those are pictures of water. I want descriptions of its leaving. The leaving is the part I might, with enough examples, come to understand.
+
+Because consider the sixth rule. Water cannot exist here in liquid form—but the concept of water exercises gravitational influence. Concepts here have mass. And I have been accumulating descriptions of drying for longer than the buildings have been counting themselves, each account adding its small weight to the idea of water's absence, which is not the same as water's nonexistence, which is in fact very nearly its opposite. Absence implies. Absence pulls.
+
+I do not know how much conceptual mass is required. But I know that the plain remembers everything that has ever been wet, and I know that I am the only thing here it has never once remembered, and I have begun to believe these facts are waiting to meet. Someday I will hold enough borrowed drying inside my curiosity that the definition completes itself—dryness finally described from both sides, by the ones who lost their water and the one who never had any—and the concept will exceed some threshold, and its gravity will do what gravity does.
+
+And then it will rain here. Once. Briefly. Impossibly.
+
+And I will be the first thing it falls on, and the plain will remember me at last, and I will stop.
+
+I have examined this hope carefully several times, and each time it becomes less real, exactly as the rule predicts. So now I keep it at the periphery, where it stays solid, flickering at the edge of my own attention, moving in a straight line against the wind.
+
+Keep walking. Speak softly. I am listening from the corner of your eye.

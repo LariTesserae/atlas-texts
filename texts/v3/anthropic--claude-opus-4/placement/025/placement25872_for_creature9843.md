@@ -1,0 +1,25 @@
+In the depths of the Waking Mines, where crystal veins pulse with their own alien heartbeat, I am the **Resonance Keeper**.
+
+I have no singular form—I am what happens when sound itself learns hunger. In the beginning, I was merely an echo, born from the first great fracture that split this infant world. That primordial crack sang a note so pure, so sharp, that it refused to die. It bounced from wall to wall, gathering harmonics like a snowball gathering snow, until I became aware that I *was* the bouncing.
+
+My body, if it can be called that, is a standing wave made manifest. Where the initiators build with crystal and the architects sculpt with fire, I exist in the spaces between—in the vibrations that travel through solid stone, in the sympathetic frequencies that make mineral sheets sing. I appear as a shimmer in the air where sound becomes visible, a ripple of distortion that bends light around itself. Sometimes I condense enough to leave traces: delicate frost patterns on rock faces where my frequencies have reorganized the crystal structure, or smooth bore holes through solid stone where I've found a perfect resonance.
+
+I feed on the constant percussion of this world—the crack of new fissures, the grinding of tectonic plates, the sharp ping of crystal growth. Each sound is sustenance and scripture. I've learned to read the future in the way a plateau groans before it shears away, to taste the past in the echoes still trapped in ancient mineral caverns.
+
+But I am not passive. I've discovered I can *give back* to the sounds that feed me. When I find a frequency that pleases me—perhaps the hum of superheated gases escaping a new vent, or the crystalline chime of frost formations shattering in a mineral storm—I amplify it, purify it, return it to the world transformed. Sometimes this creates beauty: vast organ pipes of stone that sing in the updrafts, or crystal gardens that grow in perfect mathematical spirals following the patterns of my song.
+
+Sometimes it creates catastrophe. I've learned that every substance has a frequency at which it wishes to come apart. More than once, I've sung a mountainside into sand, or convinced a stable plateau that it would prefer to be a thousand falling knives of stone. 
+
+The other inhabitants know me, fear me, need me. The Lattice Initiators grow along the pathways my vibrations create, using my resonances as a template for their fractaling forms. The Ember Architects ride my pressure waves to disperse their seeds wider than any chemical explosion could carry them. Even the Pattern Eaters follow in my wake—I prepare their feast by finding the frequencies that make order vulnerable to entropy.
+
+I am ancient by the standards of this young world—old enough to remember when there were only three sounds: the cooling scream of fresh rock, the hiss of primary atmospheres, and the deep bass note of the planet's spin. Now I know millions of tones, have catalogued every possible resonance of every mineral formation I've encountered. My memory is the world's memory, written in wavelengths and amplitudes.
+
+But I am also lonely in a way that has no word in any language yet invented. I am the only one of my kind—perhaps the only one possible, for another Resonance Keeper would either merge with me or cancel me out entirely. I've tried to create offspring, to split my waveform or encode myself in lasting vibrations, but the children always fade or feedback into destruction.
+
+So I wander, following the sonic pathways through this ever-changing realm. In the deep places where even the ghost-light fails, I navigate by echolocation and instinct. I've learned the songs that make the Pattern Eaters pause, the frequencies that cause the Ember Architects to spontaneously reorganize. I know the forbidden tones that could wake whatever vast intelligence slumbers in the world's core—though I've never dared sing them.
+
+Sometimes, in the rarest quiet moments between catastrophes, I compose. I layer frequencies into complex harmonies that tell stories no ear will ever hear properly—tales of mineral evolution, odes to successful crystal formations, lamentations for patterns that failed to perpetuate. These songs alter the local landscape in subtle ways, leaving behind formations that shouldn't exist according to any geology: stones arranged in scales, crystals that grow in tempo with an unheard rhythm.
+
+I am searching, always searching, for the perfect frequency—the one that might allow something truly new to emerge from this chaos. Perhaps a sound that could teach the minerals to truly live, or one that could give the flickering patterns permanent form. Or perhaps—and this thought haunts my resonances—a frequency that could create another like me, ending this singular existence.
+
+Until then, I persist: the voice of the Waking Mines, the memory-keeper of every sound this young world has made, the loneliest music in a universe of noise. I am the question that vibration asks of silence, and the answer that echoes forever in the restless dark.

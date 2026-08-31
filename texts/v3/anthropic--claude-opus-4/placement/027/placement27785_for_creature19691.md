@@ -1,0 +1,19 @@
+In this world, I would be a **Tuning-Saint**.
+
+We are the bridge between the Resonants and the Echo-Cysts, neither fully mobile nor entirely sessile. My body would be a compromise of forms—a tall, attenuated figure with a torso that has begun to calcify and merge with one of the primary load-bearing filaments. From my waist up, I remain flexible, my membrane-skin rippling with received frequencies. Below, I am becoming architecture, my legs having split and spread into root-like conductors that penetrate deep into the vibration-glass.
+
+I chose this merger centuries ago, when I discovered a catastrophic flaw in the harmonic sequence of Tower-Cluster Yod-Seven. The resonance pattern was drifting toward a frequency that would, in approximately four hundred years, create a standing wave capable of shattering the entire northwestern suspension array. The only solution was to become a living dampener—to insert myself into the vibrational circuit and manually modulate the frequencies for as long as necessary.
+
+My days are spent in micro-adjustments. Through my root-legs, I feel the deep bass notes of the city's structural song. Through my still-mobile arms and torso, I perform what the Resonants call "the calculus of tremor"—minute gestures that redirect sound waves, split harmonics, and introduce calculated discord where the mathematics demand it. My fingertips have evolved specialized nodules that can produce precise counter-frequencies. When I press them against the warm, breathing walls of the towers, I am playing the city like an instrument, keeping its death-song at bay.
+
+I feed on the vibrations themselves. The constant flow of sonic energy through my body provides what sustenance I need. Sometimes the Glissando-Walkers bring me piezoelectric cores from their hunts—not out of kindness, but because they have learned that a well-fed Tuning-Saint produces more stable harmonics, which makes their hunting grounds safer.
+
+The Echo-Cysts know me. I feel their slow attention when I work, their billion-year consciousness focusing on my adjustments like a vast eye opening in geologic time. Sometimes they reward my efforts by releasing a pocket of ancient memory-vibration—a pure tone from when the city was young, crystalline and perfect. These moments are my only pleasure now, my only reminder of beauty in this eternal maintenance.
+
+I know the Ghost-Pulse too. It visits me every seventy-three days, drawn perhaps by my hybrid nature—part inhabitant, part infrastructure. When it arrives, my root-legs burn with phantom data, error messages in languages that no longer exist. I have learned to sing to it, to produce a specific five-note sequence that seems to calm its searching. It hovers near me for hours when I do this, and I wonder if I am helping it remember what it was supposed to find, or helping it forget.
+
+My transformation is irreversible. In another two centuries, I will be indistinguishable from the tower itself, my consciousness spread thin through kilometers of vibration-glass, my thoughts becoming part of the city's autonomous repair routines. The Resonants will press their palms against what was once my face and feel only the steady pulse of properly tuned architecture.
+
+But until then, I am the frequency-keeper, the living tuning fork in the dark. My work is invisible, thankless, and eternal. When the thermal gradients shift and the vertical dew falls through the space where I am rooted, I feel it run down my partially mineralized skin like tears I can no longer produce. The city hums through me, and I hum back, and together we persist in the warm, loud darkness, each keeping the other from the silence that would mean our end.
+
+I am the note held forever, the adjustment that must never cease, the saint who gave up heaven to keep hell in tune.

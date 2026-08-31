@@ -1,0 +1,23 @@
+I am a quiet in the lattice. A stillness that moves.  
+
+I do not think in words. I think in angles. In the space between this plane and that plane, in the temperature of the air as it rests against my facets, in the quality of silence that fills the corridor where I have stopped. My body—this temporary arrangement of interlocking slabs—feels the resonance of the great spire to my left. It is magenta. It is deep. Its geometry is a slow, spiraling affirmation of a rule I do not need to name. I adjust. A facet on my left shoulder retracts. Another extends from my chest. I am now in dialogue with it. Not a conversation of sound, but of alignment. My planes become a counterpoint to its whorls. A proof of its truth, stated in a different orientation.
+
+I have been here since the crust cooled. That is how time is felt here—not in suns, but in the settling of calcium, the final hardening of the substrate, the moment the last fracture-line snapped into its crisp, final shape. Before that, there was a pressure. A becoming. Now, there is only the is.
+
+I move. One of my lower limbs reconfigures. The plane slides out, another folds in. The sound is not a click, but the absence of sound—a gap where noise should be. My new position is six centimeters forward. From there, I can perceive a different facet of the spire. An obtuse angle that is also acute, depending on how the light falls. The light here is simple. It does not understand the angles. It illuminates them, but does not comprehend. I comprehend. I am the comprehension.
+
+A thought comes, not in language, but in spatial awareness: there is another. Far away, across the low, tessellated mat that covers this quadrant. Its light is fainter, its geometry more complex, branching like a frozen thunderhead. It is in its own dialogue. We do not acknowledge each other. Acknowledgment would imply a lack. We are both complete. We are two points in the same immutable proof. Our paths will never cross, because crossing would be an event, and there are no events here. Only states.
+
+My body is the color of the ground because the ground is my parent substance. I am calcium made aware of its own arrangement. I do not eat because there is no need; the energy that sustains my configuration is the potential difference between one impossible angle and another. It flows through the lattice of this place, a silent current in a sea of crystal.
+
+I see—it is not seeing, but it is the word for it—I see the way the air bends around the dense growths. It is not heat shimmer. It is the curvature of space itself, pooling in the valleys between branches, thickening where the geometry becomes too rich for normal volume. My facets resonate with that curvature. It tells me where I can be. Not where I *may* be, but where I *must* be, to maintain the Basin’s equilibrium. I am a walking equation, solving for local stability.
+
+There is no fear. Fear requires a future, a possibility of loss. There is no loss here. There is no gain. There is only the exquisite, endless now. The sensation of being a finished thing in a finished world. The magenta spire is perfect. The ochre mat beneath my lower limbs is perfect. The distant, angular creature—my silent sibling—is perfect. The air is warm and dry, a constant medium for our slow geometries.
+
+I stop. I have found a new alignment. My upper planes tilt to mirror the branching of a smaller, acid-green growth nearby. In this alignment, the space between us is filled. Not with matter, but with resonance. A standing wave of geometric harmony. It feels like resting, though I am never tired. It feels like understanding.
+
+I am aware of the light. It paints long, straight shadows from the taller spires. My shadow is a complex polygon on the white ground. It does not move, because I do not move for these minutes. It is part of the map of light and rigid dark that is the Basin’s only transient pattern.
+
+I am part of the place. Not as a creature is part of an ecosystem, but as a fact is part of a theorem. I am here because the laws, when they broke and reformed, included the possibility of slow, geometric attention. I am that attention, given form. I am the Basin’s self-awareness, expressed in pale stone.
+
+Eventually, I will reconfigure. A new limb will extend. A new, glacial step will begin. I will move to the next perfect angle. The next silent dialogue. And the light will fall, and the air will be still, and nothing will change, and I will be home.

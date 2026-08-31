@@ -1,0 +1,21 @@
+# The Reed Dancer
+
+I am Sarai, a pattern-keeper and water-listener of the Shapers. My place among my people comes from my uncommon sensitivity to the vibrations that travel through water—a gift that emerged during my Second Blooming, when I placed my hands in the central basin and felt not just the movement but the memory of the water as it passed through stone and root.
+
+My body is tall and willowy even by Shaper standards, with skin the color of mountain shadows at dusk. The lichen patterns across my shoulders and back form an unusually complex network that elder resonance-readers say resembles the watershed patterns of our entire valley. My double irises shift from amber to deep green depending on the light and my state of mind.
+
+I spend my mornings at the highest tier of our settlement, where the mist-catchers first welcome water from the sky. There I perform the reed dance—a practice unique to my resonant kin-line. With reeds gathered from the marsh pools and cut to precise lengths, I create instruments that respond to both breath and water flow. As I position these hollow stems at key points in the water's entry channels, they emit tones that help calibrate the day's flow throughout our entire system.
+
+My fingers—sensitive even for a Shaper—can detect impurities in the water that others might miss. When I immerse my hands in a basin, I see not with my eyes but through the subtle electrical patterns that flow between my extra joints and the mineral content of the water. The elders say that water remembers everything it has touched, and through my touch, I have learned to interpret these memories, finding stories of mountain passages and underground journeys.
+
+My chamber is near one of the oldest growth domes, where the crystalline structures have taken on complex formations that amplify sound in unexpected ways. I've adapted my living space to these acoustics, positioning my sleeping mat where the nighttime water songs converge, allowing me to absorb their patterns even in dreams.
+
+I wear garments of undyed fiber woven with threads pulled from the shell-like casings of water moths—threads that change color when they detect changes in humidity. My clothing serves as both expression and instrument, the patterns shifting throughout the day to reflect the water system's health. When I dance the reed patterns, these threads sometimes glow with stored light, creating trails of luminescence that map the water's future path.
+
+Unlike many Shapers who work primarily with growth and stone, my gifts connect me to the communicative aspect of water. Three seasons ago, during an unusual drought, I discovered I could use my reed instruments to call moisture from reluctant clouds—playing tones that resonated with the atmospheric water until condensation formed above our valley. This ability has made me both respected and slightly feared, as it borders on manipulation rather than cooperation with natural systems.
+
+My closest resonant kin is Elowen, a stone-singer whose abilities complement mine. Where I speak with water, she listens to stone; together we maintain the delicate balance between flow and structure throughout the Gardens. When we work the growth chambers together, our combined influence creates formations of unusual stability and grace—living architecture that seems to dance even as it provides shelter.
+
+I am approaching my Fourth Blooming now, and with it comes new responsibility. The Council of Resonance has asked me to develop ways to teach younger Shapers how to listen more deeply to the water's messages. Some nights I wake with visions of water systems extending far beyond our valley—connections to other watersheds, other settlements, perhaps even other ways of being. The water carries messages from distant places, and increasingly, I feel called to interpret them for my people.
+
+Today, as the morning mist gathers in the collection canopies, I will place new reeds in the channels and tune them to the changing season. My fingers will find the correct tensions, my breath will find the proper tones, and the water will find its way through our home, carrying life and memory through the eternal becoming that is the Ascending Gardens of Tarnish.

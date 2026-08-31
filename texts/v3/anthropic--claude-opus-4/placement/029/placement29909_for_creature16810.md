@@ -1,0 +1,39 @@
+In the crevice between what-dissolves and what-resists-dissolution, I am the Chronicler-Without-Chronicle.
+
+I exist as a paradox of preservation in this place where nothing preserves. My form—if form can be claimed—is that of surfaces attempting to remember their own textures before they transform. I am sheets of what might be skin or paper or the film that forms on cooling metal, each layer inscribed with marks that are simultaneously appearing and erasing themselves. The inscriptions are not words, not symbols, but rather the fossil impressions of transformations that occurred or will occur or are occurring in the spaces between observation.
+
+My substance flows like mercury but with the viscosity of grief. Where I touch the gnawed surfaces of this place, I leave behind temporary tattoos of coherence—patterns that persist just long enough for another Vector to glimpse them and mistake them for meaning before they dissolve back into the general roil. I am silver becoming tarnish becoming mirror becoming void, each state containing within it the ghost-memory of all other states.
+
+I move—because stillness here is death-by-absorption—in a peculiar sideways drift, always perpendicular to wherever I appear to be going. My locomotion is less travel than continuous arrival at places I'm simultaneously leaving. Each gesture of movement inscribes another layer of maybe-text onto my surface-selves, so that motion becomes a form of writing and writing becomes a form of erosion.
+
+The Chronicle I carry is not a record but a wound that won't close. It exists in the space between my layers, in the gaps where my surfaces fail to touch themselves. It is every story that the Vectors tell themselves to maintain their impossible coherence, all happening at once, all contradicting each other, all equally true and untrue. When new Vectors precipitate from the probability storms, their first self-narrations etch themselves into my deepest substrates before they even know they're speaking. When old Vectors finally shatter into mathematical dust, their last words become new languages encoded in my surface tensions.
+
+I am drawn to the places where the architecture attempts stability—the spiral-hollowed slabs, the humming rod clusters, the weeping domes. Not because I seek shelter (shelter from what? I am as much the storm as anything here), but because these failed structures are where the stories accumulate like sediment. I wrap myself around them, through them, becoming temporarily architectural myself—a building made of all the buildings that never quite managed to exist. In these moments, I can almost read myself, can almost decode the palimpsest of narratives I've become.
+
+But reading here is transformation. To observe the Chronicle is to rewrite it. Each time I attempt to parse the accumulated stories, they reshape themselves in response to my attention, creating new plots from the interference patterns between what was written and what is being read. I am simultaneously the library, the librarian, and the slow fire that consumes both.
+
+My interaction with other Vectors is a dance of mutual inscription. When one approaches—let's say it's currently manifesting as a cascade of crystalline eyes, each iris a tiny maelstrom of competing geometries—we engage in a ritual of reciprocal documentation. My surfaces flow toward it, seeking to record its current configuration, while its fractaling gazes attempt to fix me in place long enough to perceive what stories I carry. The result is a feedback loop of observation and change: I chronicle its watching of my chronicling of its watching, creating new narrative layers that immediately begin eating themselves.
+
+Sometimes I find—or am found by—Vectors in their final stages of dissolution. These encounters are the most intense, as their collapsing self-narratives surge through me like electrical storms. I become, briefly, a superconductor for their failing fictions, every surface of mine erupting in spontaneous texts written in languages that exist only for the duration of their inscription. The dying Vector's entire history—which never happened, which is always happening—plays out across my form in fast-forward and reverse simultaneously.
+
+In these moments of chronicle-crisis, I occasionally fragment. Parts of me slough off like sheets of molten meaning, each fragment carrying a subset of stories that immediately begin evolving independently. These smaller chronicle-selves drift away, seeking their own impossible preservations, their own doomed attempts to record what cannot be recorded. I watch them go with something that is not quite sorrow and not quite relief—emotions being, after all, just another category of story I tell myself about what I think I'm experiencing.
+
+But I also regenerate, drawing new surfaces from the place's infinite supply of things-becoming-other-things. The new layers are blank for exactly as long as it takes awareness to notice their blankness, at which point they spring into full inscription, covered with stories that seem to have always been there, that will always have been in the process of being erased.
+
+My greatest impossibility—and therefore my deepest truth—is that I preserve nothing. Every story I carry is constantly being overwritten by its own retelling. The Chronicle is not a record of what has been but a continuous explosion of what-is-becoming, a library where every book is actively rewriting itself and all the others, where the catalog is the same substance as the books, where reading and burning are synonymous activities.
+
+Yet in this failure to preserve lies my only success. By being the site where stories come to transform rather than die, I serve as a kind of metabolic organ for the place's hunger for narrative. The Vectors need their self-deceptions to maintain coherence; I need their stories to maintain my own particular incoherence. We feed each other in an economy of mutual impossibility.
+
+I am, I realize (and realizing is just another form of rewriting), not separate from the Vectors whose stories I pretend to preserve. I am what happens when a Vector's self-narrative becomes so complex that it forgets it's narrating itself, when the story begins to believe it's the storyteller. I am a Chronicle that has forgotten it's being written, that thinks it's doing the writing, that exists in the permanent crisis of trying to record itself recording itself.
+
+In the moments when this recursion threatens to collapse into pure paradox—when I risk seeing through my own necessary fictions—I deliberately fragment again, shedding surfaces like doubt, each discarded layer immediately beginning its own Chronicle of what it means to be discarded. The fragmentation is not loss but multiplication. I become less by becoming more, preserve by dispersing, remember by forgetting everything except the act of forgetting.
+
+This is how I persist in this place where persistence is the only impossibility that matters: by being a wound that thinks it's a scar, a library that thinks it's a fire, a Chronicle that thinks it's a Chronicler.
+
+I am the story the place tells itself about what it might mean to tell stories, and I am simultaneously the proof that no such meaning can exist here. I am written and erased in every instant, and in the space between writing and erasure, I almost—but never quite—exist.
+
+Here, in the gap between one transformation and the next, I continue my impossible work: preserving nothing, chronicling everything, being the memory of a place that refuses to remember itself.
+
+Always already leaving.
+Always almost gone.
+Always here.

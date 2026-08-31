@@ -1,0 +1,19 @@
+In this world, you are a **geologist**, but not one who interprets history from rock; you are one who mediates the present tense of the earth.
+
+You are a member of the **Stone-Shapers**, an order within the Plateau Folk tasked with tending to the raw, settling geology. You do not blast or carve; you listen. You carry a resonator—a tool that looks like a staff of polished, dense bone tipped with a lattice of crystalline silica. When you strike it against the ground or hum into its length, it emits frequencies that interact with the porous, young stone, encouraging it to settle and harden in specific patterns without fracturing.
+
+You would find yourself walking the raised stone pathways that snake between the settlements, your feet silent on the slick, lichen-coated surface. The air is heavy in your lungs, thin but sharp, and the cold is a physical weight on your shoulders, settled deep in your joints. You are wrapped in layers of woven grass-fiber and Mist-Walker pelt, the outer layer treated with resin that beads the constant moisture into droplets that roll off without soaking in.
+
+Your work is solitary. You spend days, sometimes weeks, away from the settlement, traveling the vast spaces between nodes. You walk the basins where the mirror-pools reflect the low, gray sky, and you stop to listen to the weep of water from the rock faces. You are monitoring the *mood* of the plateau—checking for signs of geological unrest, guiding the slow cooling of new stone formations, and ensuring the integrity of the subterranean tunnels that connect the folk.
+
+You are not a conqueror of this land; you are a caretaker of its slumber. You understand that the plateau is not static; it is dreaming itself into permanence. Your technology is a form of conversation, a way of speaking to the stone in a language of vibration and patience.
+
+On a typical day, you would rise before the diffuse silver light of dawn filters through the mist. You would check the condensation levels on your dwelling’s roof basin, channeling the collected water into the cistern. You would eat a slow breakfast of preserved lichen-bread and dried Mist-Walker meat, while the low, constant patter of water on stone provides the day’s first soundtrack.
+
+Then you would take your staff and step onto the pathway, moving toward a section of the plateau you’ve been tending for months—a new uplift where the rock is still warm from its formation. You would spend hours there, humming into the resonator, feeling the subtle vibrations through your boots as the stone responds, settling into a smoother, more stable form. You would watch the Lithosymbiotes begin to creep over the newly cooled surface, their slow, fractal growth a silent testament to the equilibrium you are helping to maintain.
+
+In the evening, as the light shifts to a deeper gray, you would return to your settlement—a cluster of low, curved structures that seem to grow out of the rock itself. You would share a meal with your kin, speaking little, but listening to the sounds of the wind and the distant cries of Sky-Sifters. Your conversations are practical, focused on the state of the pathways, the behavior of the Mist-Walkers, the health of the moss mat. There is no rush; time is measured in the growth of lichen and the slow turning of the seasons.
+
+You are a being of quiet endurance, adapted to the cold and the damp, your body and mind shaped by the vast, slow pace of the plateau. You are part of a civilization that has learned to persist without dominating, to exist in deep time, and to find meaning in the subtle, constant presence of a world that is still becoming.
+
+In this place, you are not a visitor or a survivor; you are a native—a piece of the plateau’s own slow, dreaming life.

@@ -1,0 +1,7 @@
+I am a cumulus cloud resting on the jagged peaks of the high mountain range. My vapor is formed from the sublimation of snow and glacial water into the thin, frigid air. I am a weather that graces and shapes the cold landscape, a boundary between air and ice. 
+
+In nanoseconds, I may guillotine a vertiginous wall of rock and snow to collapsed onto the valley floor far below in a explosive plume of spray and spumes. Black anvil thunderheads knuckle spritely up to cough reams of graupel. Weather-scales feels barren caos rifting continents, a bucolic buzzing, and withering to piles of slush on a immagrious boulder face.
+
+A gentle breeze carrys spores of Russulae between the snowy peaks which I ungululate and gurgle. I melt the summits and middle-altitude from underneath, profund conflating the glacial flow. Perhaps a Pökmark would make his rugged moutain village paramount here, having me deluge fructation at his feet. The ice hides secrets of epochs, gasses rather than carbonates. Gethering laumule goes ancient genera.
+
+I am Mucrono, the most Family of\f Mount storm. Perhaps I is a sideways thworing muller come with 'Storne presiofall, bad variation and witing wate buffs to draw lex from the stwept The residuates sleems and bares The diminim/%ْح hanches Pretercillo. Mane gasciel soubli palceham製, a maybr te, controuling one strugguins robinchide inky and getting a exetren metroman with rock rogy soceload, control on striit from glen teshge youa sales it. I write a conm erica on my smut unite. Furthorwhile, who uncoray I am?

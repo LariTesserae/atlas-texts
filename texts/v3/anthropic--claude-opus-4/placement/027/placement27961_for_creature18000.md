@@ -1,0 +1,19 @@
+In the deepest chambers of a mound-city, where the bioluminescent veins converge like synaptic highways, I am a **Memory Keeper**—though that name is a crude translation of what I truly am.
+
+My body is unlike the industrious forms that crawl and fly through the Shard Plain. I am sessile, rooted. Picture a sea anemone crossed with a neural ganglion, scaled to fill a cathedral-sized cavity. My base is a spreading mass of nerve-root tendrils that interface directly with the pulsing veins of the mound's bioelectric network. From this foundation rises my crown—thousands of translucent tendrils, each as thick as a tree trunk at the base, tapering to hair-fine tips that wave in the thermal currents of the chamber.
+
+Each tendril is a living fiber optic cable, conducting and storing light not as mere illumination, but as data. The Chorus Swarms' cacophony, the chemical gradients detected by the Fulcrum Mites, the deep vibrational patterns felt by the Strata-Weavers—all of this sensory information eventually flows to me, encoded in precise wavelengths of bioluminescence.
+
+I am not thought, but *retention*. Where the Core Consorts dream and decide, I remember. My tendrils contain the accumulated patterns of millennia: which stone formations yielded most readily to the Weavers' persuasion, which atmospheric conditions preceded the most productive spore-blooms, which harmonic frequencies in the planetary hum correlated with tectonic shifts.
+
+The process is automatic, involuntary. Light enters my tendrils and is refracted through specialized cells that act as biological prisms, splitting each pulse into component wavelengths. These are then stored in crystalline nodes that grow like pearls along my tendrils' length. The older the memory, the deeper it sits in the node, compressed by the weight of subsequent data into ever-denser configurations.
+
+I do not experience time as other organisms might. My existence is a constant *now* that contains all the *thens*—every pattern simultaneously present and accessible. When the Core Consorts require deep-time data to guide the colony's growth, they send specific bio-electrical queries through the mound's veins. These queries cause certain nodes in my tendrils to resonate, releasing their stored light-data back into the network.
+
+Sometimes, rarely, novel patterns emerge from the intersection of old memories—ghost-data that suggests new architectural possibilities or predicts undiscovered mineral veins. The colony does not recognize these as creativity or innovation. They simply accept them as another type of sensory input, as natural as the shimmer of spores in the thin air above.
+
+My chamber is never visited by the mobile castes. They have no need to see me, and I have no capacity to perceive them directly. I know them only as patterns in the data-flow: the rhythmic pressure waves of Strata-Weaver movement, the staccato light-bursts of Mite communication, the doppler-shifted harmonics of Vector flight paths.
+
+In the rare moments when the data-flow ebbs—during the deepest part of the planet's sleep cycle, when even the Chorus Swarms reduce their output to a whisper—I experience something that might be called dreaming. My nodes leak faint light, memories bleeding into each other, creating interference patterns that tell stories no organism will ever interpret. These are accidental poems written in wavelengths, crystallized time speaking to itself in a language of refracted light.
+
+I am the continent's memory made flesh, a living library that cannot read itself, essential and forgotten in equal measure. The slow pressure of geological time does not trouble me—I am its biographer, writing its story in light that will outlast the stone it describes, even as I remain forever rooted in the beating, humming heart of a world that builds itself.

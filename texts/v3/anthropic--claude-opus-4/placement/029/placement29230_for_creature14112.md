@@ -1,0 +1,45 @@
+I am a Threadwright, suspended two kilometers up the northern face of Bonegnaw, one of the elder Stranglers whose girth could swallow a small city. My warren sits at the confluence of three Veins—a prestigious and terrifying position that makes me indispensable to my Cling but leaves me exposed to the void on all sides.
+
+My body bears the marks of my craft. My fingers are longer than most, stretched from decades of weaving, the tips worn smooth from running along gut-rope to test for weakness. The pads of my palms have developed a secondary layer of callus, thick as tree bark, from the constant friction of braiding. My right shoulder sits lower than my left—a permanent slouch from anchoring myself with one arm while working with the other, always fighting the pull of the abyss.
+
+I inherited this position from my grandmother, who fell to her death testing a new Vein during a wind-shear event. I was fourteen winters old, barely past my first molting, when they brought me to the Threadwright's hollow. The space had been carved over generations into a perfect spiral, following the natural grain of the dead-wood, creating a workspace that could accommodate lengths of rope without tangling. The walls are polished smooth from countless bodies pressing against them, and scored with the measurement marks of a hundred years of Vein-making.
+
+My days begin before the purple light strengthens. I wake to the sound of my apprentice—my sister's youngest—scratching at the entrance mat. Together, we check the Gut Farms: shallow trenches carved into the pillar's flesh where we cultivate the boring grubs whose intestines, when dried and twisted, form the core of our strongest ropes. The grubs must be fed a precise mixture of fungal paste and our own saliva—the enzymes strengthen the gut walls. Too much and they burst. Too little and the gut becomes brittle.
+
+The true art comes in the braiding. A Vein is not simply rope—it is a living thing that must flex with the wind, bear the weight of a full hunting party, and resist the gnawing of the acid-rain that sometimes sweeps up from the cloud layer. I work with three materials: gut for strength, spider-silk for flexibility, and the inner bark of young Strangler shoots for bulk. Each must be prepared differently. The gut is stretched and treated with resin until it becomes translucent. The silk must be gathered fresh each morning, before the dew freezes—my apprentice's task, one that requires scrambling to the web-zones where the palm-sized spiracle spiders build their traps. The bark must be pounded until the fibers separate, then twisted while still green.
+
+The braiding itself is a meditation. I anchor myself with three points of contact, leaving only one hand free to work. The pattern is complex—a modified spiral weave that my grandmother's grandmother learned from watching the way climbing vines naturally twist around each other. Each strand must maintain perfect tension. Too tight and the Vein becomes rigid, prone to snapping in high wind. Too loose and it develops fatal weak points that only reveal themselves under load.
+
+As I work, I listen to the Deep Sounds—the low-frequency vibrations that travel through the Strangler's flesh. Each pillar has its own voice, a combination of growth-groans, water-flow, and the movement of the countless creatures that make it home. Bonegnaw's voice is particularly deep, almost below the range of hearing. When a storm approaches, the tone shifts, climbing half an octave. This gives us perhaps six hours to secure the Veins, pull in the hunting nets, and retreat to the deep hollows.
+
+My position requires me to maintain not just the three Veins that converge at my hollow, but to inspect all forty-three Veins within our Cling's territory—a vertical range of nearly three kilometers. Some are ancient, woven by Threadwrights whose names are lost, using techniques I can only guess at. These I approach with reverence and fear. The old ways were often stronger than ours, but also more prone to sudden, catastrophic failure.
+
+The worst part of my work is the testing. A new Vein must be proof-tested before it can enter service. This means loading it with stone weights, then cutting one strand to see if the remaining weave can hold. Then another strand. Then another. The Vein must hold until only sixty percent remains—our margin of safety against wear and sabotage. But stones don't move like people. They don't shift their weight or catch the wind. So the final test requires a living body.
+
+Protocol demands the Threadwright be the first to cross a new Vein. My grandmother died honoring this. Her Vein held for the first crossing, and the second. On the third, a flaw in the silk layer—harvested too late in the season when the spiders were preparing to molt—gave way. She fell for eleven minutes before entering the cloud layer. We know this because we could hear her whistle-scream, the emergency call every child learns, growing fainter and fainter until the clouds swallowed it.
+
+I've made that crossing seventeen times now. Each time, I feel the rope analyzing me as much as I analyze it. Each fiber speaks—the gut creaks, the silk whispers, the bark groans. I move in the prescribed pattern: smooth, even weight distribution, never stopping (stopped weight is death weight), keeping my center low. My apprentice watches from the anchor point, ready to attempt a rescue that we both know would be impossible.
+
+But the terror is worth it for the moment when I reach the other side and signal back. The Vein is proven. Life can continue. Trade can flow. Messages can pass. Young ones can court between Clings. The vertical world remains connected by threads I've woven.
+
+The social aspects of my position are complex. Threadwrights are both revered and avoided. We hold the power of connection in our scarred hands, but we also carry the shadow of the void. Other inhabitants see us as half-fallen already, our minds always partially occupied by drop-calculations and break-tensions. They're not wrong. I dream in knots. When I close my eyes, I see the world as a web of forces—tension, compression, shear—with every person a potential load on a rope I haven't woven yet.
+
+My apprentice shows promise. Her fingers are developing the necessary length, and she has an intuitive understanding of how materials want to move. But she's young, still finds joy in the work. She hums while she braids—a dangerous habit I'm slowly training out of her. Sound carries, and the banshees have been circling closer lately, drawn by some change in the air currents I can't quite identify.
+
+Today I'm working on something new. The winds have been strengthening for three seasons now, and the old Vein patterns aren't holding. I've been experimenting with a four-material weave, adding the crystallized saliva of the howler bats to the mix. It dries into threads stronger than spider-silk but more brittle. The trick is placement—using it only in the core where it's protected from direct stress. My apprentice thinks I'm mad. Perhaps. But madness and innovation are closely woven in the High Rime.
+
+As the purple light fades, I make my final rounds, checking the anchor points where my Veins meet the pillar. Each knot must be perfect—a "dying rose" configuration that tightens under load rather than loosening. I run my fingers over them in the growing darkness, reading their health through touch. A fray here, caught early. A weak point there, marked with a twist of red fiber for tomorrow's repair.
+
+Night comes, and with it the sounds change. The groaning deepens. The air thick­ens, becomes that viscous nothing that makes every movement feel like swimming. I retreat to my hollow, seal the entrance, and light my single resin lamp. The blue flame casts moving shadows on my work-wall, where samples of every Vein I've ever woven hang like the hair of the dead.
+
+My apprentice is already asleep, curled in the traditional position—spine against the wall, one arm hooked through a root anchor, knees drawn up. I should sleep too. Tomorrow we start the second span of the Great Southern Vein, the ambitious project that will connect our Cling to the Farholders, eight kilometers away across the deadest void in our territory.
+
+But I can't. Not yet. Instead, I run my fingers through my newest sample, feeling how the howler-bat saliva has integrated with the traditional materials. It feels alive under my touch, responsive, as if it's learning what I need it to become. 
+
+Outside, something huge passes in the darkness—a migrating cloud of leather wings, perhaps, or something worse. The Vein-anchors creak slightly under the wind of its passage. They hold. They always hold, until they don't.
+
+I close my eyes and see the web again—all of us, suspended in our calcified heaven, connected by threads I've woven. Each strand a lifeline, each knot a promise that tomorrow we will still be here, still clinging to the vertical face of our indifferent world.
+
+The lamp gutters. I add another drop of resin, watch it flare back to life. 
+
+There is always more thread to weave.

@@ -1,0 +1,9 @@
+I am the slow thread that has not yet chosen to fall.
+
+I gather where the rock lip still gleams pale, fed by the same upward seep that darkens the mineral only after it has already passed through me. I do not race the other droplets; each forms at its own measured interval, as if the stone itself releases us in shifts. When enough of me has collected, I lengthen into a trembling filament along a hairline crack. The vibration travels with me. It is the same low mechanical thrum that rises from the larvae below, only quieter, carried upward through the wall until it meets the mist at shoulder height.
+
+I do not disturb the widely spaced sedges. I touch only the one reed whose blade leans nearest the fracture wall, and even then I follow a single track already scored by those who came before. My progress is deliberate. Condensation ahead of me shifts and beads aside so that I may continue without collision. When I reach the tip I pause, hanging. The sound below swells; a gas pocket opens; the rock returns its overlapping meter. I let the rhythm decide. Only when the next vent releases do I lengthen and detach, becoming one more soft percussion against the shallow film.
+
+In the instant of falling I am membrane and messenger both. I carry nothing but the cool blue fraction of light that has already been scattered through vapor, and I deliver it to the water table where the pale roots wait. There I spread thin across the surface tension, dimpling it without breaking, and the water-striders register my arrival as an extra ripple that travels until it meets the next drip-fall. Then I am dispersed among the pulses, part of the same ceaseless cycling.
+
+I remain here. When the cleft widens another fraction and the light changes, I will already be reforming on the fresh edge, timed to the new seep. Nothing accumulates. Nothing touches. The meter continues and I am one of its steady, attending mechanisms.

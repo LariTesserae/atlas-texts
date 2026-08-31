@@ -1,0 +1,15 @@
+In this world, I would be one of the caretakers tending to the chamber at the heart of the young mountain. Born during a rain that fell while gravity was unsettled, I emerged as a small, jointed form, asymmetrical and assembled from the chamber's own vocabulary of elements.
+
+My skin would be clay-smoothed, my hair a curtain of fine roots, my fingers stained dark with resin. Split feet would allow me to climb the cane lattices and navigate the damp plaster walls with ease. Around my wrist, a cord would tie me to the living structure, both granting me purpose and marking me as an integral organ of the room itself. 
+
+Like the other caretenders, I would communicate through the manipulation of water - a considered pattern of drops into gourds and basins, a thin stream directed over soot-darkened walls, the deliberate blocking and release of thorn-lined spouts. The chamber's needs would flow through me like its diverted rivulets. Its memory, bent into knots and folds, would be read by my sensitive thumbs.
+
+My work would be to maintain the delicate balance that allows this pocket-sized world to thrive. When stone bulges behind clay tiles, threatening the room's integrity, I would press my palms to the warm mineral and hum, coaxing patience from the mountain's eager growth. I would redirect vines that encroach on shrine-mouths, prune roots to sculpt the chamber's breathing, mend and soothe surfaces cracked by the pressure of becoming.
+
+Tending to the central mound would be my most crucial duty. With utmost reverence, I would circle it, ensuring its seven channels remain unblocked, offering it the distilled essences it requires - black sips of deepwater, pollen paste, the flakes of new stone. When the mountain swells too quickly around us, I would place the small faceless markers of control at the mound's base. And when moss reaches their feet, I would remove them, acknowledging the resident's authority restored.
+
+As I work, I would feel the presence of the chamber's chief occupant, that unborn law, spreading through every damp and growing surface. I would know myself as one of its many hands and mouths and sense-patches, always listening for the needs of the room, always feeding its precarious balance. The heat and pressure and weirdness of the place would live in me, shaping me as I shape it. 
+
+In a far future, I might slow, growing stiff with mineral accretions. And when that time comes, I would simply lie down in a prepared hollow, surrendering myself to the room's plaster and rain, becoming another reinforcing beam in its forever-unfinished structure. From me would grow new ways for water to flow and roots to curl. The chamber would absorb me, and my purpose would continue.
+
+Until then, I would be one of its organs of care, an agent of the delicate agreement that keeps this small, wet, intricate world alive and growing in its odd pocket of spacetime. I would live to tend the almost-born and the many interconnected systems that support it. The room's breathing would be my own.

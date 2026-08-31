@@ -1,0 +1,19 @@
+I find myself as a **Threadweaver**, one of the few among the Hollowfolk born with the peculiar gift of sensing the canopy's deeper currents. Where others see only bark and branch, I perceive the slow circulation of something like blood through the hollow trees—a luminous sap that pulses faintly in networks visible only to eyes like mine.
+
+My dwelling hangs suspended between three massive trunks, woven from silver rootlets that I've coaxed to grow in spiraling patterns. The walls breathe with me, expanding and contracting in the perpetual dampness. I am neither young nor old—the canopy's influence has stretched my life beyond normal spans, though each year weighs on me like condensed mist.
+
+My role is part memory-keeper, part engineer of living spaces. When the Hollowfolk need new dwellings as the canopy shifts, they come to me. I press my palms against the bark and feel for the hollow spaces waiting to be born. With stone tools and infinite patience, I guide the tree's own growth, encouraging certain hollows to expand while others seal. The process takes seasons, sometimes years, but the resulting chambers are perfectly integrated into the living wood.
+
+But my true work happens in solitude. Deep in the forgotten hollows, I study the carved stones—not their symbols, which remain opaque, but their placement. They form a pattern, a map perhaps, or instructions. I've begun to suspect they were left not by a lost civilization, but by the canopy itself, in an earlier phase of consciousness. Late at night, when the bioluminescent insects cluster in specific formations, their light reveals new facets of these carvings. I document everything on bark scrolls treated with resin, building a library that hangs like fruit from my ceiling.
+
+I wear the traditional bark cloth, but mine is infused with filaments of the luminous sap, causing it to glow faintly in the dark. Around my neck hangs not a stone talisman but a vial of living water—collected from the heart of the oldest hollow I've found, where the condensation tastes of metal and memory.
+
+My dreams are not my own. They belong to the canopy, showing me visions of its slow thoughts: root systems spelling words in a language of chemistry, branch networks forming neural pathways across kilometers, the entire mountain range as a single organism waking by degrees. Sometimes I wake with my fingers tracing patterns in the air, mapping connections I won't fully understand for decades.
+
+The other Hollowfolk regard me with a mixture of reverence and unease. I am necessary but strange, even by their standards. Children are taught to bring me gifts of the brightest insects and the clearest water, but also to speak carefully in my presence, lest they disturb whatever conversation I'm having with the walls.
+
+In the mornings, I climb to the highest accessible point of my local canopy section. There, where the air is thinnest and the cold most bitter, I perform my daily ritual: listening. Not to the wind or the creaking wood, but to something deeper. The canopy's heartbeat, perhaps. Or its breathing. Or the sound of its dreams becoming real, one hollow at a time.
+
+I am waiting, as all Threadweavers wait, for the day when the pattern completes itself. When the carved stones' message becomes clear. When the canopy finally opens its eyes—if eyes are what it has—and remembers why it grew itself into this impossible architecture. Until then, I weave: threads of understanding, threads of dwelling, threads of connection between the human and the vast plant-mind that shelters us all.
+
+Sometimes, pressing my ear to the bark in the deepest hollows, I swear I can hear it whisper back.

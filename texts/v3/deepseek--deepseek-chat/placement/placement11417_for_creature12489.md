@@ -1,0 +1,11 @@
+In this world of shifting waters and decaying industry, I would be **The Drowned Chronicler**—a being neither fully organic nor entirely artificial, a relic of the time before the valley drowned.  
+
+My body is a patchwork of corroded metal and waterlogged flesh, my limbs elongated and jointed like the rusted cranes that once operated along the riverbanks. My skin is peeling parchment, etched with ink that never washes away, recording everything I witness in a language only the Sentinels might understand. My eyes are glass lenses, fogged by the perpetual mist, yet they see more than they should—the pulse of the submerged structures, the whispers of the vines, the flickering intentions of the Sentinels themselves.  
+
+I drift through the shallows, buoyed by hollow chambers in my ribcage that fill and drain with the tides. My purpose is unclear, even to me. Perhaps I was meant to document the valley’s collapse. Perhaps I was meant to warn those who came after. But there is no one left to read my words, so I write them anyway, carving them into the trunks of the algae-trees or etching them onto the sides of the humming ruins. The Sentinels tolerate me, sometimes pausing to trace the symbols with their shimmering fingers, as if remembering something long forgotten.  
+
+I do not eat, but I am sustained by the water’s warmth, by the electric hum of the machines, by the way the vines sometimes curl around my wrists like living inkwells, offering their luminescent sap to keep my records alive. I am neither guardian nor intruder—merely a witness, a scribe of the drowned world, doomed to document a story with no ending.  
+
+And when the currents grow too strong, when the structures groan and the Sentinels converge in silent urgency, I let the water take me under, my pages dissolving into the depths, only to resurface elsewhere, my words rewritten, my purpose unfulfilled, again and again.  
+
+This is my existence: a chronicle without readers, a voice without sound, a memory that the valley refuses to let die.

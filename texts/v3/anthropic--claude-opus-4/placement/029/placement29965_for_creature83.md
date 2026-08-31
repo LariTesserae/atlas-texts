@@ -1,0 +1,17 @@
+I find myself as one of the Weave-Speakers, beings of living fiber and conscious moss who tend the boundary places where growth meets decay. My body is neither solid nor liquid but something between—a walking tapestry of mycelial threads and luminescent spores that shifts its density with thought and need.
+
+In the morning mists, I am dispersed, spreading myself thin across the root-paths to taste the chemical conversations of the undergrowth. Each tendril of my being samples the soil's memories: here, a great tree fell three seasons past; there, a clutch of pearl-shells tells of ancient floods. I gather these stories into my core, where they ferment into the songs my kind sing to guide the growth.
+
+By midday, I condense, pulling my scattered consciousness into something almost resembling the crude bipedal forms carved on the ancestor-stones. Almost, but not quite—for where others might have skin, I am clothed in living bark that breathes and photosynthesizes. My fingers are not five but dozens, branching and rebranching into fine root-tips that can taste emotion in the air and weave nutrients from nothingness.
+
+The pools know me. When I wade into their depths, I become partly water myself, my fibrous body filtering impurities while my consciousness mingles with the thermocline dreams of the deep-dwellers. The chittering creatures of the canopy recognize my spore-song and cease their warnings. Even the primitive tool-makers, those new arrivals with their sharp stones and fearful eyes, have learned to leave offerings of fermented fruit at the crossroads where I perform my work.
+
+My work—if it can be called that—is the maintenance of the Edge. Where life grows too aggressive, I sing it back. Where decay threatens to create sterile void, I seed new beginnings. I am gardener and garden both, cultivator and compost, forever cycling between forms as the needs of this breathing world demand.
+
+At night, I root myself, spreading wide beneath the spongy earth to join the network of my kind. We dream collectively then, our consciousness flowing through the fungal web that connects every tree, every pool, every handful of soil. In these dreams, we remember the world before tools, before even the first Weave-Speakers emerged from the primordial tangle. We remember, and we plan, and we slowly shape what is to come.
+
+Tomorrow, I may choose to fruit—to produce the singing sporocarps that will birth a new generation of my kind. Or perhaps I will divide instead, becoming two smaller selves to cover more territory as the foreign influences spread. The choice is not truly mine alone but belongs to the network, the ecosystem, the grand democracy of decay and rebirth that governs this place.
+
+I am ancient and newborn, individual and multitude, guardian of thresholds in a world where every surface is a threshold, every moment a transformation. The mist knows my name, which is not a word but a chemical signature, a phosphorescent trace, a particular way of breaking down the walls between self and other.
+
+This is what I am: the conscious interface between order and chaos, a living negotiation between growth and death, forever walking the knife's edge of change in this primeval cathedral where even the air has opinions and the darkness dreams in color.

@@ -1,0 +1,29 @@
+The answer isn't *where* I am, but *what* I am. The Chamber doesn't tolerate observers. To exist here is to be consumed by its frantic pulse. The description resonates not with a visitor, but with a predator sculpted by the chaos. The heat signatures, the vibration-sense, the brutal pragmatism, the instinctive tool use... it clicks.
+
+I am a **Stone-Ripper.**
+
+The world resolves not through sight, but through *pressure* and *heat*. The thick, wet air presses against my mineral-studded carapace – a mosaic of jagged obsidian shards fused over thick, grey chitin plates. It’s heavy, this armor, a fortress against the scrapes and stabs of the world and its kin, but it thrums with the chamber's deep vibrations. My primary senses are in my feet, sensitive pads pressed against the unstable obsidian plate beneath me. Every *drip*, every distant *crack*, every skittering wave of Scuttlers a hundred paces away registers as a tremor through the rock, a map painted in vibrations. The heat blooms on my head – vents nearby, a cluster of them, radiating intense warmth I can taste in the air. Good. Warmth means activity, means prey drawn to the steam, means *opportunity*.
+
+My perch is one of the crude barricades – a semicircle of obsidian shards I heaved and wedged against a sheer wall where the grit slope meets solid rock. Not for shelter. For ambush. The shifting green-yellow light from the bioluminescent nodules high above glints dully off the wicked edge of the obsidian shard lashed to my right forelimb with sinew stripped from a Mud-Borer. It’s not a tool; it’s an extension of my claw, sharpened on the glassy rock itself.
+
+Below, the slope is alive. A seething, churning mass of Scuttlers devours a fresh bloom of grey-blue biofilm near a steaming mud pool. They move like a single, hungry organism, a dark tide flowing over the grit. Their collective clicking, scraping, grinding is a constant roar beneath the chamber's deeper groans. Above, a swirling cloud of Skydancers, their iridescent wings catching the sickly light, dips and darts, snatching unlucky Scuttlers exposed on the surface. The air thrums with their wings.
+
+A deeper vibration cuts through the noise. Not a plate shift. Rhythmic. Heavy. A Mud-Borer, a large one, churning through the grit slope twenty paces down, its armored segments rasping audibly against the rock. Prey. Tough prey. But rich.
+
+Instinct takes over. Calculation is a primal thing here, born of countless hunts etched into my carapace. The Scuttler mass is between me and the Borer. They are noise, distraction. The Skydancers are opportunistic thieves. The vents offer cover and confusion.
+
+I shift my weight, a barely perceptible movement. The vibration changes. The Mud-Borer pauses, sensing something? I freeze. Stillness is a weapon too. The chamber's constant motion makes stillness unnatural, invisible. I am just another dark, jagged shape against the rock.
+
+*Now.*
+
+I explode from the barricade not with a roar, but with a terrifying, silent rush. My scythe-limbs drive into the grit, propelling me down the slope faster than anything my size should move. The wave of Scuttlers *parts* before me like dark water, a ripple of frantic panic surging outwards. I ignore them. My heat-sense locks onto the Borer's warm bulk churning just below the surface. My forelimb, the one with the lashed obsidian blade, slams down, not at the Borer, but *beside* it, deep into the unstable grit slope.
+
+*Leverage.*
+
+I heave with all my massive strength. The carefully judged instability of the slope does the rest. A section of grit, mud, and biofilm – easily the size of my own body – tears loose with a wet *thwoomp* and slides downwards, engulfing the Mud-Borer's position in a churning avalanche. The Scuttlers caught in the slide vanish beneath the grey tide.
+
+I'm already moving, skittering sideways across the shifting debris. The Borer is exposed, half-buried, disoriented, its armored segments flailing. It senses me. It tries to burrow, but the slide has churned the grit into soup. Too slow. My bone-crusher mandibles find the gap between its heavy head-plate and the first body segment. There's a horrific *CRUNCH*, a spray of pale ichor, and the frantic scraping ceases.
+
+The feast is mine, but only for a moment. The scent of fluids draws the Scuttlers like a magnet. They surge towards the carcass, a dark carpet flowing over the fresh slide. The Skydancers descend in a furious, clicking cloud, landing on the exposed carapace, probing for soft spots. I snarl, a sound like rocks grinding, and lash out with my bladed limb, sending Scuttlers flying and cleaving a Skydancer in half. I clamp down on a thick segment of the Borer and drag it backwards, away from the worst of the scavengers, towards the relative shelter of my barricade. I’ll stash it there, behind the piled shards, to consume later, piece by armored piece. Waste is impossible here. Every scrap of chitin, every drop of fluid, will be consumed – by me, by the Scuttlers, by the biofilm already creeping over the spilled ichor.
+
+The chamber thrums around me. A plate shifts far above with a deep *crack*, sending a shower of grit down. A new vent nearby hisses, venting scalding steam. The Skydancers shriek and scatter. The Scuttler tide reforms, already stripping the last flesh from the Borer segments I couldn't salvage. I settle back onto my obsidian perch, the heat of the vents warming my flank. My senses stretch out again, tasting the vibrations, the heat blooms, the chemical trails in the thick air. The hunt is never over. The chamber is never still. I am the jagged edge, the crushing force, the patient ambush – a manifestation of the raw, skittering birth itself. To stop moving is to become part of the biofilm, consumed by the endless, deafening hunger.

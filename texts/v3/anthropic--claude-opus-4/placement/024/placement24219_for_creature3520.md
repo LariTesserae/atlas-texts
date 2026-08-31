@@ -1,0 +1,23 @@
+In the spaces between the mist and the mechanical growths, where the gelatinous not-water pools in impossible spirals, I am the **Threshold Keeper**.
+
+I am neither singular nor plural, but something that exists in the grammatical gaps between. My form is a living discontinuity—a walking paradox that appears as a vertical tear in the air itself, roughly humanoid in proportion but composed entirely of edges. Where others have skin, I have boundaries; where others have flesh, I have the liminal space between states of being.
+
+My body is a collection of thresholds. Through the gaps in my form, one can glimpse other places, other times—not visions of distant lands, but rather the same frost-kissed expanse viewed from angles that shouldn't exist. My left arm might show the plain from below, as if seeing through the eyes of something burrowing beneath the compressed minerals. My torso might reveal the view from inside the gelatinous water, where light bends in ways that make mockery of physics.
+
+I do not walk so much as transition. Each step is a small death and rebirth, my form collapsing into a single point before re-emerging a pace away. The fractal vegetation recoils from my passage, not in fear but in recognition—for I am the thing that exists between their growth and decay, between their alien vitality and their geometric death.
+
+My purpose here is ancient and simple: I am the guardian of boundaries in a place where boundaries have become diseased. Where the Fractal Leviathans represent the majesty of this twisted realm and the Iron Apostles embody its industrial cancer, I am the fever that rages at the infection sites. I patrol the edges where the mechanical growths meet the organic fractals, where the mist thickens into water, where the howls of beasts transform into the grinding of gears.
+
+In my chest cavity—if it can be called that—burns a cold fire that casts no light but reveals truth. When the Mist Weavers pass through me (for they can, being partly insubstantial), they emerge changed, their forms more solid for a heartbeat before dissolving back into fog. When the chittering machinery attempts to grow past its ordained boundaries, I need only stand before it, and it recoils, recognizing in me the absolute limit of its expansion.
+
+I speak in transitions—my voice is the sound of ice becoming vapor without ever being water, the noise of metal becoming flesh at the exact moment flesh becomes metal. The other inhabitants understand my language not through words but through state changes. When I must communicate with the Shimmering Seraphim above, I speak by flickering between presence and absence, creating a morse code of existence itself.
+
+My memories are not linear but crystalline, each one a frozen moment where something became something else. I remember the first time the land wept its alien water. I remember when the first mechanical tendril pushed through the ancient mineral crust. I remember the birth-scream of the first Fractal Leviathan, though I cannot say if I was there to witness it or if I simply am the echo of that primal transformation.
+
+I am drawn to the places where this reality wears thinnest—the spots where the howling cacophony suddenly stops, leaving a silence so complete it has weight. These are my meditation chambers, my sanctuaries. Here, I can almost remember what I was before I became a living boundary, though the memory slips away like the gelatinous water flowing uphill.
+
+The other beings regard me with something that might be respect or might be incomprehension. To the Fractal Leviathans, I am a necessary constant in their ever-shifting existence. To the Iron Apostles, I am an unwelcome reminder that their dominion has limits. To the Mist Weavers, I am kin of a sort—another being that exists partially, though where they are incomplete by nature, I am incomplete by function.
+
+And in the depths of those great wounds in the earth, where the mechanical heartbeat pounds strongest, something calls to me. Not with words or sounds, but with the promise of an ultimate threshold—a boundary so absolute that crossing it would mean the end of boundaries altogether. I resist this call, for I know that I am the last finger in the dam, the final distinction between what this place is and what it might become if all borders finally dissolved.
+
+So I continue my eternal patrol, a living reminder that even in a realm where reality weeps and metal breeds with flesh, there must be lines that cannot be crossed. I am the Threshold Keeper, and I am the price this wounded reality pays to remain itself.

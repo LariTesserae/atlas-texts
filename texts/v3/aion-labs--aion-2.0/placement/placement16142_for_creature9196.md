@@ -1,0 +1,27 @@
+I am standing on the grate. The feeling comes up through the soles first—not a sound, but a deep, turning pressure, a torsion in the bones of the world. The hourly piston, far below. It is a slow heartbeat. I know its rhythm like I know the pulse in my own throat. My feet are reading the telegram sent through a hundred miles of fungal threads, through the rust and the rock. It says: *I am here. I am still moving.*
+
+The mist is not falling; it is suspended, and I am moving through it. My passage parts it, and it flows back behind me like a slow tide. My skin drinks it directly. The hyphae woven through my dermis swell with the wet, and the mantle on my back responds—a soft, blue-green luminance that pushes back the gloom for a handful of inches. I see the world in gradients of heat. The pipe to my left is a dull, sleeping red. The new crack in the main support beam ahead is a vivid, weeping purple—a toothache of lost heat. The algae on the concrete wall is a cool, placid indigo.
+
+I am going to the crack. It is not an emergency; it is a conversation. The plateau spoke, and I am the answer.
+
+My living garments shift with me. The *Brachythecium* moss on my chest is a dense, springy pad, beaded with moisture. The fern fronds at my shoulders drip a steady, rhythmic patter onto the grate below, a counterpoint to the universal *drip-drip-drip*. My lichen-hair is heavy with condensation. A drop gathers at the tip of a strand, holds, and falls. I track its path. It lands on a specific rivet, one I smoothed last week. Good. The water is finding the channels I made for it.
+
+I reach the beam. The crack is hairline, but to my fingertips it is a canyon. I press my palm against the steel. Cold. But beneath the cold, a faint, feverish vibration—the strain. I close my lidless eyes and lean my forehead against the metal. I send a series of soft clicks, from the back of my throat, from the cavity of my chest. They are frequencies for asking. *What do you need?*
+
+The reply comes not as sound, but as a pattern in the condensation. The droplets on the beam, which had been running straight down, begin to shiver, to zigzag. They trace the path of internal stress. They show me where the weakness is migrating. The information flows up my arm, into the mycelial network, and becomes a knowledge in my mind: a map of fatigue.
+
+I open the pouch grown from a leathery fungus at my hip. My tools are biological. A spatula of smoothed deer-bone (from a creature that does not exist here, a relic of a time before the mists). A stiff brush made from the fibers of a cable-chewing vine. A gourd filled with a paste of iron oxide and the gelatinous sap of the weeping-spore fungus.
+
+I begin to scrape. Not the crack itself. I scrape the rust from the area *around* it—the thick, orange bloom that is like a scab. The rust is not the enemy. It is a process. It is the plateau breathing out iron, sighing it into the air. I collect the flakes on the bone spatula. They are the color of dried blood. I hum as I work, a low drone that matches the sub-auditory thrum of the buried engines. The vibration from my throat loosens the scale.
+
+I am not stopping the rust. I am redirecting it. I take the collected oxide and mix it with the gelatinous paste in the gourd. Then, with my fingers, I apply the mixture to a patch of bare concrete at the beam’s base, where a cluster of copper-tolerant moss is struggling. The moss trembles at the touch, then begins to pulse—a slow, digestive rhythm. It will consume the paste, bind itself tighter to the concrete, and in doing so, provide a subtle buttress to the beam. The crack will not close. It will stabilize. It will become a feature, a remembered injury. In a century, it will be a seam where a new species of fern will take root.
+
+As I work, I feel a presence. Another Damp-Speaker is on the catwalk above. I do not look up. I feel their shadow in the mist, a cooler patch in the cool air. I feel their mycelial net brushing against mine, a whisper of recognition. We share no names. We are locations, functions. I am the-one-scraping-by-the-crack-in-the-east-truss. They are the-one-who-tends-the-black-mirror-in-sector-seven. We exchange a pulse of information, foreheads not touching but minds linked through the fungal web in the grated floor. I send them the taste of the crack: hot metal and stale water. They send me the sight of a new, bioluminescent bloom in their pool: a circle of soft blue, like a fallen piece of sky. Data passes. The plateau’s consciousness updates itself.
+
+My task is done. I press my wrist against the now-bare patch of steel I have cleaned. The cool moisture there is drawn up through the fine cracks in my skin, into the hyphae, into my blood. It tastes of iron and time. I drink.
+
+I step back. The crack is still there. But the conversation has changed. The vibration has softened from a whine to a murmur. The water droplets now run in a new, purposeful trickle toward the nourished moss. A balance has been adjusted. A sigh has been answered.
+
+I turn and walk into the mist. My feet are singing to the depths. I am a node in a nervous system made of iron and root. I am a note in the slow song. I am listening. I am the reply.
+
+The damp speaks. I am its tongue.

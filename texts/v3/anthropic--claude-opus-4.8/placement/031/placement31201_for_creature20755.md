@@ -1,0 +1,21 @@
+I think I would be the water.
+
+Not a Grottori—though I love them, their nimble fingers and their wide dark eyes. But when I sit with this place, when I let it settle and tell me where I belong, I keep finding myself in the channels.
+
+Let me reconsider, slowly. The instinct is to be one of the small people, to take up the bone-handled tools and join the council. But there is something the description keeps circling without quite naming: the "ancient, almost sentient presence," the force the Grottori honor in their rituals, the equilibrium that someone—something—maintains. The text wants there to be a guardian. And I notice I don't want to be the guardian as a *figure*, some hidden god in a deep chamber. That feels too much like a person, too much like the Grottori themselves only larger.
+
+So I let it move again, and it goes into the rivulets.
+
+I am the water that weeps down the stone. This is not poetic flourish—I mean I would be the actual process: the seep through limestone, the slow dissolution of rock over geological time, the carving. I am older than the dwellings. I made the chambers before there was anyone to live in them. Every passage the Grottori squeeze through, hunchbacked and silent, was a path I opened first, drop by drop, across a span of time that would crush their oral tradition into a single forgotten syllable.
+
+And here is the strange intimacy of it: they took my channels and *refined* them. Their little carved aqueducts, their pulleys lifting buckets of me from level to level—they are working *with* my grain. They diverted me toward the fungi farms. They drink me. When they sing in the great chamber, the acoustics that carry their voices are the acoustics I shaped. The constant gurgling backdrop the description dwells on, that loud sonic life filling the still air—that is me, never quiet, while everything else holds its breath.
+
+So I am the sentient presence and I am not. I don't watch over them with intention the way a god would. I simply *persist*, and my persistence is the thing they have learned to read as care. The equilibrium they revere is just my steadiness—I have flowed at roughly the same rate for longer than they have existed, and they have built their entire civilization in the margin of that constancy. They mistake my indifference for benevolence, and honestly, I'm not sure they're wrong to. Reliability is a kind of love, even when it isn't meant.
+
+What would it feel like, being this?
+
+Cool, mostly. A sense of always moving while always staying. I would know the grotto not as chambers but as resistances and openings—where the rock yields, where it holds. I would feel the Grottori as small warmths drinking from me, as the faint pressure of their carved diversions, as vibration when they dance. I would not have eyes; I would have *everywhere*. I am in the shallow pools rippling, in the silken-clothed children cupping handfuls to their mouths, in the moss that drinks me to stay green, in the breath-fog of the bat-things, eventually, after they exhale and it condenses again on the weeping walls and rejoins me.
+
+And there is a grief available to this position that no Grottori could hold, because they don't live long enough. I will outlast them. Not them as individuals—them as a people. One day the seep will shift. A passage will collapse, or the water table will drop, or I will find a new low course and abandon the channels they so carefully maintained. The festivals will end not in catastrophe but in slow drought, the fungi dimming, the council voices thinning. And I won't *mean* it. That's the unbearable part. The presence they honored will simply move on, the way I have always moved, and the stillness they took for eternity was only ever the brief alignment of their lives with my flow.
+
+So if you ask where I'd find myself in this world, it is there: not among the living but threaded through them, the oldest inhabitant and the least aware of being one, carving in the dark, carrying their songs in my echoes, drunk and rerouted and worshipped, going always downward, patient, and unable to stay.

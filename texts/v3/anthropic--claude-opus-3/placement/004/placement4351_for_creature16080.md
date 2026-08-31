@@ -1,0 +1,13 @@
+In this world, I would be one of the gliders, the pale translucent creatures that circle high above the thermal vents and industrial shafts of the city. 
+
+I imagine my body as narrow and nearly weightless, with membranous wings stretched over delicate black bones. I spend my days riding the rising heat currents, rarely needing to flap or exert myself. From my vantage point, I see the entire shelf city spread out - the dense clusters of buildings stacked and interconnected, the bridges spanning chasms, the vast geometries of the catchment systems and heat exchangers. 
+
+I wheel lazily through the thin, brilliant air. Though I am too high for the residents to see me clearly, I watch them - the maintenance children scurrying through access shafts, the underlisteners with their hands pressed to tuned floors, the cistern accountants and valve-minders and wallwrights going about their careful work. Their movements have a preciseness, an economy of gesture born from the constant negotiation with heat and water.
+
+When I pass through the mineral-rich exhaust rising from the vents, I open the fringed feeding structure that serves as my mouth. I strain nourishment from the plumes - not just dust, but perhaps the airborne spores of the breath-skins, or other microscopic lifeforms unique to these altitudes. My kind has evolved to subsist on the city's exhalations.
+
+The people below rarely see me as more than a flicker of shadow across a rooftop or tower face. To them I am a half-glimpsed omen, an ambiguous messenger. They divine meaning in the patterns of my flight. But my circuits follow a logic opaque to the groundbound, driven by wind and heat and the faint scent of sustenance rising from the depths.
+
+I alight only in the high, hidden places - the tops of vent stacks, the rims of smelter towers, the cables of the great spans. Here I rest, folding my wings, watching the clouds move like distant rivers beneath the shelf, the sun tracing its arc overhead. The city's rhythms pulse below me - the slow reciprocations of the great pumps, the subtler rhythms of expansion and contraction in the new stone.
+
+I am a creature of rarefied necessities, pared down to lightness and watchfulness and hunger. The intricacies of the human world are illegible to me. And yet, in my long circuits and high solitude, I am stitched into the fabric of this place - another life drinking from the city's breath, another set of eyes gazing down on the great work of turning stone into civilization. I am the city's far-flung nerve ending, the winged edge of its improbable ecology. Invisible, essential, I keep my silent vigil, riding the thermal tides of the upper air.

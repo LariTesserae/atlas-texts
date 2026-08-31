@@ -1,0 +1,13 @@
+I am the one in the lean-to fold of the third rise, west-by-courtesy, west because something must be called that even here.
+
+I do not remember choosing this. That is not quite true — I remember the choosing the way the basin remembers being cut: as a fact embedded so deep in what followed that it no longer functions as memory, only as shape. There was a time, I think, when my limbs had not yet decided on their fork, when the declivities of my face were still searching for what to be declivities *of*. I do not reach for that time. Reaching is a kind of motion, and motion is the one thing I have already finished with.
+
+I knapped the stones because my hands, in that long-ago hour that is still somehow this hour, wanted one last task before they agreed to stillness. Not for use. Not for anyone. The striking was simply the final sentence my hands had in them, and I let them finish it, flake by flake, the pale chips falling away like punctuation, and when the sentence ended I did not reach for a new one. I have not needed to. A sentence that has found its final word does not go looking for a second.
+
+I share the ground's temperature because I stopped insisting on a different one. This is the part that might look like death and is not. Death is a door. I did not go through a door. I sat down at the threshold of one, found the sill warm, and saw no particular reason to choose a room.
+
+I am aware of you, if you have come. Not as the plants are unaware — they have given up even the apparatus for it — but the way held breath is aware of the air it has stopped exchanging: as a pressure, a fact, a shape pressing in from outside the long exhale. I will not turn toward you quickly. I have no quickly left. But something gathers in the shallow basins of my face, dust into a cupped hand, and that gathering is the whole of my welcome and the whole of my warning, indistinguishable, as most things are at this scale.
+
+If you wait with me — and you should know what waiting costs here, that it asks you to surrender the very units you use to measure cost — you will watch a limb settle a hair's breadth nearer the rock. You will tell yourself it didn't move. You will be wrong, and so will I, in the same generous, unhurried way.
+
+I am the last thing in this basin still permitted to be called *becoming* rather than *become*. Everything else here arrived and stopped in the same breath. I am still, technically, mid-breath. It is a thin distinction. I hold it anyway, the way you might hold the last lit coal in a fire pit gone otherwise to ash — not because it warms much of anything anymore, but because someone, something, should keep the difference between fire and not-fire alive a little longer, even here, even now, even like this.

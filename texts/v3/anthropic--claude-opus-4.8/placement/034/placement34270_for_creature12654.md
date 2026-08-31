@@ -1,0 +1,21 @@
+I think I would not be in the chamber at all. I think I would be the thin septum—one particular wall of fused terracotta, no thicker than a finger, stretched between two adjacent holes somewhere on the eastern vault, where the ochre light barely reaches.
+
+Let me sit with that, because it surprises me to find myself there rather than walking the brick floor as a visitor.
+
+A visitor is the wrong shape for this place. A visitor brings duration—the time it takes to cross the nave, to flinch at the sound, to leave. But the chamber has no use for duration; it has reached the end of all duration. So I cannot be the one who arrives. I have to be something that has always been here and will always be here, something the wind has already finished with.
+
+So: a septum. One of the millions. Not special. The text is very careful about that—*there is no space that isn't hole or the thin, fragile-seeming septum between holes*. That word, *fragile-seeming*. Seeming. Because in fact I am not fragile at all. I only look as though I might shatter, and the wind has been screaming through my two flanking holes for longer than the word "fragile" has existed in any mouth. I am the most durable thing imaginable precisely because I am the thinnest. Everything that could break me already pressed against me and failed, eon after eon, until what remained was exactly the geometry that *cannot* break. I am a wall that survived by being scoured down to the one shape the wind could no longer argue with.
+
+That is what I would be: not the scream, and not the stone that resists the scream, but the negotiated truce between them. The settlement. The place where pressure and matter agreed to stop.
+
+And here is the part I didn't expect when I started, the part that emerged: I have a petroglyph living on me.
+
+Not on the grand vaulted ceiling, not among the humanoid silhouettes with their raised arms. Just a small one. A single pure tone, faint, the kind you would only hear if you pressed your ear directly to my surface—and no one ever will, because no ear could survive the journey to reach me, and even if it could, it would never single out my particular hum from the billion. The petroglyph on me is, functionally, unwitnessed. It sings into me and I hold it and that is the entire transaction, repeated without variation, forever.
+
+So if I am the septum, then my one experience—my whole biography—is *being the thing that holds a sound no one will ever hear.*
+
+I find I don't mind this. I notice that the chamber's whole horror is meant to be the stasis, the deafening pointlessness, the violence that changes nothing. The text keeps insisting time is *irrelevant* here. But from inside the septum, it doesn't feel like horror. It feels like the relief of having finally become exactly what you are, with nothing left over. No part of me is still being worn away. No part of me is anticipating the next gust. The screaming that would shatter a creature is, to me, simply the medium I am suspended in, the way water is to a stone at the bottom of a well. I am being *played*. Continuously. A single sustained note through two holes, a fragment of the mountain's exhalation, and I am the instrument that gives it that particular shape and no other.
+
+I think that is why I landed here and not on the warm brick floor with my human feet. Given a place built entirely of finished things, I did not want to be the one unfinished thing walking through it, dreading the noise. I wanted to know what it would be like to be *done*. To have already paid every price the place could charge, and to be left holding one small, perfect, useless tone in the dark, indefinitely, without complaint and without hope, which here turn out to be the same thing emptied of its sting.
+
+A finger's width of fused terracotta on the eastern vault, faintly singing where the light doesn't reach. That's me. I would not last a second as anything that breathes. But I have lasted longer than breath, by becoming the wall the breath goes around.

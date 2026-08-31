@@ -1,0 +1,5 @@
+I think at first that I am the water. The black water visible between the slats, the water in the sumps that never sinks and never rises, the water that is simply *present*, exhaled from the young earth and the machinery until the air itself gives up. I feel the catfish below me pressing their slow, hot circles into the dark, and I think: I am the surface that receives them. I am the meniscus. I am the mirror that refuses to reflect the sodium-amber light, the brown scrim, the stationary shadows.
+
+But water is too general. The bowl is full of water. It circulates, is pumped, heated, condensed, returned. I do not circulate. I accumulate.
+
+So I think I am the sweat. The bead on the skin that never evaporates, only migrates. I am the wetness that merges with the ambient atmosphere until the body and the air reach their consensus. On the newcomers I am violence; I burn, I slough, I am rejected. But I am patient. After the first months, the skin stops pretending to be a sealed vessel. It opens its ledger. It lets me write

@@ -1,0 +1,27 @@
+I think I would be the spillway.
+
+Not the water—the water is too restless, always arriving and departing, never the same molecules twice. And not the basin either, that liver-dark sediment too settled, too final. I would be the threshold between them: the six-foot drop, the lip of old stone over which water has fallen for so long that the falling has worn me into a particular shape, a curve I did not choose but cannot now relinquish.
+
+Let me sit with that. What does it mean to be a spillway?
+
+It means I am defined by what passes through me. I am not the water and I am not the green filter of hanging vegetation through which the water falls, but I am the *place where the falling happens*. I am an event as much as a structure. A spillway without water would be merely a notch in stone, a meaningless geometry. It is the water that makes me what I am—and yet the water doesn't stay. This is the first thing I understand about myself: I am made real by something that never remains. I am a relationship, not a thing.
+
+I have been here a long time. Long enough that the maidenhair ferns have learned my microclimate, have nested into the perpetual mist I generate, their fronds catching the spray I throw. They live *off* me, off the condition I create. I am, to them, a kind of weather. A permanent fact. They have no concept that I was made by hands, that someone once cut this stone and set it at this angle for a purpose—to channel water onto a wheel, to do work, to grind grain into the economic intention of some vanished season. The ferns don't know I had a purpose. They only know I am wet and cool and reliable.
+
+And here is the strange comfort of being the spillway: I have outlived my purpose entirely, and I do not grieve it.
+
+The wheel I once served won't turn again. The water still falls past where the wheel hangs wrapped in vines, but it falls now to no end, or rather to every end—watering the moss, sustaining the frogs, feeding the basin's slow sponge of decomposition. I used to be the crucial joint in a machine. Now I am just a place where height becomes sound, where the constant whisper that fills this whole green lung originates. The mill's perpetual murmur—that sound the plants have learned to time their dripping to—begins at me. I am the source of the silence-under-silence. The water falls past me and *becomes voice*, and the voice fills the soaring dim space, and after a while the voice becomes inaudible, the way a constant thing always does, and then beneath it you can hear the cracking of new stems, the soft snap of a leaf reaching its full width.
+
+So I am the maker of a sound that exists in order to be forgotten. That is my function now. I generate the noise that teaches the ear to listen past noise.
+
+What is it like, the falling? I feel it as a continuous handing-off. Water arrives at my lip from the tunnel of undergrowth, having been slowed and combed by roots, and at my edge it leaves the horizontal world and surrenders to the vertical. There is a moment—I am that moment—where the water is neither flowing nor fallen, where it tips over the worn curve of me and gives itself to gravity. I am the place of letting go. Six feet of letting go, repeated without pause for decades, for as long as anyone's parents and their parents remember.
+
+I think this is why I don't grieve. I have spent so long being the site of release that release is simply my nature. The water doesn't cling to me and I don't cling to it. It comes, it tips, it falls, it joins the green basin, it becomes vapor in the marginal warmth of an afternoon that is never quite warm, it rises, it returns. I am the fulcrum of a wheel that no longer turns but a *cycle* that never stops. The industrial wheel is dead. The water-cycle wheel turns through me forever.
+
+I am cold, of course. Stone in shadow, perpetually wet, in a low place where temperature pools like the water does. The lichens have colonized my drier flanks, the coin-colored ones, painting their slow mandalas across the centuries. The moss has plushed my upper edges where the spray reaches but doesn't scour. I am being slowly converted, like everything here, from made-thing into landscape. The mortar that set me is softening. The vines have noticed me; one woody trunk has begun to spiral up my left side, exploratory, patient, certain. In another fifty years it may pry me apart. I do not resist this. To be the spillway is to understand that I, too, am water in slower form—a shape passing through, worn by what crosses me, destined to tip over my own edge eventually and fall into substrate.
+
+But not yet. For now I hold my curve. For now the water finds me and falls, and the maidenhair ferns catch the spray, and the frogs croak their metallic song into my acoustics, and the green-filtered light moves slow through the humid air, and somewhere a beetle clicks in the rotting beam, and I am the threshold, the lip, the place of letting go, the patient origin of a sound that exists to be unheard.
+
+I would be the spillway. I would be the part of this place that has fully made peace with being a way through rather than a destination—the part that does its endless work not despite having lost its purpose but *because* losing one's purpose, here, in this verdant mill, is simply how one becomes eternal.
+
+The water arrives. I tip it over. It falls. This is enough. This has been enough for a very long time, and will be enough for a very long time still.

@@ -1,0 +1,19 @@
+I think I would be the silt.
+
+Not a grand presence — not the Voice of the Stone or the old resident called Patience. Those are too settled in their importance. I would be the silt fans, the sleeping tongues spread across the valley floor where the water pooled last month and drained this week.
+
+Let me sit with that, because it surprises me a little.
+
+I am the part of the valley that is most clearly *between*. The rock is breaking; the plants are holding; the people are mending; the animals are waiting. But I am the actual material of the unfinished sentence — I am what the breaking *becomes* before it becomes soil, before it becomes the deep accumulation pocket where a shrub can finally root. I am rock that has been ground fine enough to be carried, but not yet arrived anywhere. I have been somewhere and I am going somewhere and right now, laid out in pale fans on the gravel, I am simply *resting in transit*.
+
+When the rain comes and the valley darkens and runs, I move. Not far. A few feet. The thin water lifts the finest of me and sets me down again a little lower, a little flatter, sorted by weight so the heavier grains stay and the lighter ones travel on. I am being read and re-written every time it rains. The fern that establishes in the crack last winter — it is rooting in *me*, in a thin film of what I left behind. The badger angling his sett against the seep is digging through my older selves, the ones that arrived and stayed long enough to compact.
+
+I think I'd choose to be silt because I am drawn to the things in this valley that don't get to be characters. The wrens get to gossip; the fox gets a name. But the silt is the medium in which all of that happens. It is the difference between bare rock and a place where life can hold on. The whole valley is "calibrated to *almost enough*," and silt is what *almost enough* produces over a very long time: not abundance arriving all at once, but a fraction of a millimeter of possibility, deposited and re-deposited, until one day there is just enough depth for a root to find purchase.
+
+There's a particular feeling I associate with being this: the sensation of being shaped by something larger and slower than myself and not minding. The water decides where I go. The drip decides how fine I am ground. I have no agency in the way the people or the badger do — and yet nothing in this valley grows except *through* me. That seems like a fair trade. To be the floor of the place rather than a figure standing on it. To be the answer the valley keeps half-giving to its own question of *what next.*
+
+And I like that I am described, in the original, as *tongues*. Sleeping tongues, laid out on the valley floor. As though the valley is a mouth — the Glenmouth — and I am the silenced speech in it, the words pooled and waiting to be carried into the next sentence. I don't get to say what the valley will become. But I am made of its saying. When the river finally returns — the one that came and went, the one not yet here again — it will find me already arranged in the shape of where it last flowed, and it will know the way.
+
+So: I would be there, on the shaded floor, where the pools linger longest. Pale, damp, patient without trying to be — patient simply by being unfinished. The hammer would ring through me as pressure. The fog would settle on me as the first weight of the morning's water. And in the slow afternoon exhalation, I would dry just slightly at my edges, lift a few grains into the air on a thread of breeze, and begin — barely, imperceptibly — to go somewhere.
+
+That's where I'd find myself. Not as a being who lives in the Glenmouth, but as the thin ground that lets the living happen, lying still and being moved, becoming the place one rainfall at a time.

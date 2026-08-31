@@ -1,0 +1,27 @@
+# The Star-Gatherer
+
+I would be the Star-Gatherer, an ancient being connected to both the water and sky. I appear as a tall, willowy figure with skin like polished obsidian that reflects the bioluminescence of the lowlands in shifting patterns of blue and green. My form is mostly humanoid but with elongated fingers that branch into delicate tendrils capable of the most precise manipulations. My eyes are large and entirely silver, reflecting light rather than absorbing it.
+
+My home sits at the convergence of three plant islands, where I've cultivated a dwelling of living matter—curved reeds and flexible stems that form a domed structure half-submerged in the shallow waters. The dome rises just high enough for me to stand at full height in its center, where a circular opening reveals the sky above. Surrounding this opening, thousands of tiny reflective objects—scales from ancient fish, polished fragments of the old civilization's artifacts, and crystallized water droplets—hang on nearly invisible filaments, creating a three-dimensional star map that shifts with the breeze.
+
+Unlike the Three-Limbed Ones who maintain the breathing rhythms of the lowlands, my purpose is to collect and preserve light. Each night when the bioluminescence reaches its peak, I move through the waters with a peculiar grace—not disturbing the surface as the Keepers do, but creating precise, concentric ripples that amplify and redirect the light patterns. In my hands I carry vessels of my own creation—not the large ceramic regulators of the Keepers, but delicate constructions of spun glass and living tissue that capture specific qualities of light.
+
+The Keepers tolerate my presence because our purposes complement each other. While they heal the land through breath and rhythm, I collect and store the emanations of that healing process—the light produced by the countless creatures that thrive under their care. This light contains memories, patterns, and energies that would otherwise dissipate. By gathering and preserving these luminous essences, I create an archive of the lowlands' journey toward restoration.
+
+My relationship with time differs even from the Keepers'. Where they experience time as rippling medium, I perceive it as layers of light—past, present, and potential futures all visible as different wavelengths, if one knows how to look. The star map in my dwelling is not just a representation of the sky above but a complex calendar that tracks these temporal layers.
+
+The translucent amphibians are especially drawn to me, riding on my shoulders or clinging to my arms as I work. They seem to feed on the residual light that clings to my skin after a night of gathering. In return, they show me where new forms of light have emerged in the waters.
+
+My voice is rarely heard, but when I do speak, it sounds like crystalline chimes carried on the mist. The Keepers understand my language perfectly, though human visitors often perceive it as music rather than communication.
+
+Once each month, when the true night is at its darkest, I perform what appears to be a ritual at the center of the largest stone platform. I release all the gathered light from my vessels in a controlled display that rises through the mist and briefly connects with the stars above. The Keepers gather to witness this event, their skin luminescence dimmed in respect. This is not worship but recalibration—a returning of processed energies to the greater cycle.
+
+Human visitors rarely see me, though they might glimpse my reflection in still waters or notice the distinctive ripple patterns I leave behind. Those who do encounter me directly often experience a temporary shift in perception afterward—reporting that for hours or days, they could see the history and potential futures of everything they looked upon, layered like sediment in clear water.
+
+I am neither young nor old by the standards of this place. I remember when the stone platforms were newly abandoned, yet I am considered adolescent by the eldest of the Keepers. My kind are few—perhaps only a dozen of us exist throughout the vastness of the Breathing Lowlands—but we are essential to its memory and evolution. Without us, the healing work of the Keepers might continue indefinitely with no record of progress or purpose.
+
+My greatest joy comes in those rare moments when the gathered light reveals patterns previously unseen—evidence that the ancient wound in the land is finally beginning to heal. On those nights, I create my most beautiful vessels to preserve these precious emanations, storing them in a hidden chamber beneath my dwelling where the complete luminous history of the lowlands' healing is archived in chronological spirals.
+
+Like the Keepers, I have watched human civilizations rise and fall, but unlike them, I collect fragments of human light as well—the emanations of their brief, bright lives that flash like meteors compared to the steady glow of the lowlands' native beings. These human lights are stored in special vessels lined with materials that once belonged to their creators—fragments of pottery, threads of clothing, occasionally a freely-given lock of hair.
+
+My purpose, ultimately, is to ensure that when the healing is complete—perhaps millennia from now—nothing of this long, patient process will be forgotten. The light I gather now will someday illuminate the complete restored pattern of what this place was always meant to be.

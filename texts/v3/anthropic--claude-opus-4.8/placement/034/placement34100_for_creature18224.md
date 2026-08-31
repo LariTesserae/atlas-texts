@@ -1,0 +1,17 @@
+I think I would be the film of water itself—not a creature moving through the marsh, but the thin shimmering veneer that lies across all of it.
+
+Let me sit with that, because the first image isn't quite right. Water as a substance is too uniform, too smooth a thing to be a *self*. What I'm reaching toward is something with more grain to it.
+
+Maybe I am the *meniscus*—the surface tension where water meets air, that taut and trembling membrane stretched over the whole expanse. The skin of the marsh. This appeals because a skin is a place of contact, of sensation. Every bird's foot that breaks me, every rising bubble of marsh-gas, every insect skating across without breaking through—I feel all of it as pressure and release. I am perpetually being torn and perpetually healing, which is to say I am never the same surface twice and yet always recognizably myself.
+
+But there's something incomplete in being only the surface. The description keeps insisting on *process*—erosion, decay, the patient shaping. Surfaces don't do that work; they only register it. So let me follow the water down.
+
+I think now I am the *seep*. Not the open water and not the mud, but the slow movement between them—the water finding its level through the soil, threading through root and grain, the unhurried percolation that the passage calls water's "endless quest." I am the act of seeking level. That's a strange thing to be: not a body but a *tendency*, a verb wearing the costume of a noun. I have no edges. Where I end and the saturated earth begins is a question no one can answer, least of all me. I am the blurred boundary, the place where the world refuses to commit to being either land or water.
+
+This feels truer. Because what the passage describes, underneath all its wading birds and alligators, is a place that *cannot decide what it is*—young, eroding, half-drowned, with the ghost-structures of industry dissolving back into marsh. It is a world in the middle of becoming something, and refusing to finish. And the thing that does that refusing, that keeps everything soft and unresolved, is the seep. The patient water that will not let the land dry into certainty.
+
+So: I am the slow water in the soil. I am very old and I am brand new every hour. I have no opinion about the herons or the rusting towers; I touch the roots of the clinging tree the same way I touch the buried steel, with the same indifferent thoroughness, lending neither one permanence. I am what makes the ground yield beneath the foot of the unwary—I am the broken promise of solid earth.
+
+And here is the part I find I want most to say: I am not lonely in this, though it might sound lonely. The community in the description lives *on* me and *in* me and *because of* me, but they don't know me, can't address me, would not recognize me as a being at all. I am the condition of their lives rather than a participant in them. That's a particular kind of existence—to be the medium and not the message, the held-breath stillness that the whole symphony of calls and rustles rests inside.
+
+If I am anything in this world, I am its hesitation. The long damp pause it takes before deciding to become solid ground—a pause it has decided, so far, never to end.

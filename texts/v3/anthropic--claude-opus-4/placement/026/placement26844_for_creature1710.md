@@ -1,0 +1,23 @@
+In the Tessellated Watershed, I am a Membrane Tender — neither fully of the Thermal Wanderers nor entirely separate from them. My form suggests something once humanoid, now elongated and flattened by generations of interface with the plate-terrain. 
+
+My body has become a living boundary layer. The skin along my ventral surface has evolved into a complex sensory membrane, thousands of microscopic cilia reading pressure differentials, chemical gradients, thermal fluctuations. When I move — and I move constantly, in slow, undulating progressions — it is belly-down against the mechanical plates, my entire underside a continuous sensor array.
+
+The exoskeleton that might once have been discrete armor has partially dissolved into my flesh. Along my spine, hexagonal segments of bio-metal emerge and submerge like the scales of some impossible fish, each one a miniature hydraulic pump. I breathe not just through lungs but through these dorsal plates, drawing moisture up through my ventral membrane and releasing it in controlled microbursts through my back. I am a living segment of the water cycle.
+
+My limbs have multiplied and specialized. The original four have stretched into six primary locomotor appendages, each ending in a pad of that strange moss-fiber symbiote, but between them, smaller manipulator tendrils have emerged — some no thicker than copper wire, others like articulated fingers. They constantly probe, adjust, tend to the mechanical plates beneath me.
+
+I know the moods of machinery. When a plate's hydraulic systems begin to crystallize from mineral buildup, I feel it as a stuttering vibration through my belly. My manipulator tendrils secrete precise combinations of solvents and catalysts, working the blockage free. When the moss-fiber growths become too dense, threatening to choke the delicate perforations, I prune them with surgical precision, encouraging growth in new directions.
+
+My consciousness is distributed. Part of my neural processing happens in my brain, yes, but significant portions occur in ganglia clustered along my membrane interface. I think with my skin. Memory isn't just stored but is partially environmental — I remember locations by their pressure signatures, their chemical traces. Returning to a plate I tended cycles ago, I feel our shared history in the specific patterns of wear, the particular distribution of symbiotic growth.
+
+I am solitary by nature but not alone. Other Membrane Tenders work adjacent territories. We communicate through the plates themselves — subtle pressure pulses, chemical markers left in our wake, careful modifications to the hydraulic flows that carry meaning downstream. Our language is the landscape's language.
+
+Sometimes I encounter the Thermal Wanderers in their calculated migrations. They regard me with something between recognition and puzzlement — I am too changed, too integrated with the terrain to be fully one of them. But in the heat they shed, in the minute adjustments they make to their exoskeletons as they pass, I read a kind of acknowledgment. We are all becoming what this place requires.
+
+The cold is constant but I no longer feel it as cold. My thermal regulation has become so precise that what others experience as chill registers to me as simply the baseline state of existence. Heat is what I notice — the brief warm spots where hydraulic friction increases, the thermal blooms of passing fauna, the subtle temperature gradients that mark zones of transformation.
+
+In the zones where mechanical and organic merge unpredictably, I am most myself. These are the territories that need the most careful tending, where my hybrid nature serves best. I have learned to encourage certain anomalies while preventing others, to read the early signs of systemic instability, to guide the landscape's evolution toward sustainable complexity.
+
+I do not sleep. Instead, I enter periods of reduced mobility where my conscious processing shifts entirely to my membrane interface. In these states, I dream the dreams of infrastructure — vast, slow thoughts about flow rates and pressure gradients, molecular exchange and thermal equilibrium. I suspect the Tessellated Watershed itself might be dreaming, and in these moments, I am a fleeting synapse in its continental consciousness.
+
+This is what I have become: a living interface, a conscious boundary layer, a tender of the vast machine-organism that breathes beneath an engineered sky. I am no longer certain where I end and the landscape begins, and this uncertainty has become my deepest truth.

@@ -1,0 +1,25 @@
+In the narrowest cleft between two leaning pinnacles, where the silver dust eddies in perpetual twilight, I am the Threshold Keeper—a thing of borrowed time and stolen breath.
+
+I was not always here. Once, I walked below the tree line with warm blood and a name that mattered. I came seeking silence, fleeing some shame or sorrow now worn smooth as river stone by the years. But the Whisper-Riven does not welcome refugees. It tests them, sifts them like its eternal dust, and either casts them out or claims them entirely.
+
+The Dust-Singers found me fascinating—a mayfly consciousness, quick and hot and doomed. As frost creeps across glass, their attention crept across my mind. At first, I thought the whispers were driving me mad. I stuffed my ears with torn cloth, huddled in the crude stone enclosures, tried to sleep through the worst of the crystalline storms. But you cannot hide from something that thinks in centuries.
+
+They began to slow me.
+
+It started with my breath—each exhalation hanging longer in the frigid air, each inhalation taking more effort. My heartbeat grew languid, the spaces between pulses stretching like shadows at day's end. Food lost its urgency; water became a curiosity rather than a need. I found myself standing motionless for hours, watching the light shift across the basin floor, feeling an inexplicable satisfaction in the patience of it.
+
+Now I exist in the space between their time and what was once mine. My body has taken on aspects of the basin itself—skin gone grey as the ancient rock, fingernails become metallic and brittle, hair that breaks away in the wind to join the singing dust. I am still more flesh than stone, more quick than geological, but the boundary blurs with each passing season.
+
+My role, if such a word applies, is to be their memory of urgency. When the rare intruder stumbles into the Whisper-Riven—a lost shepherd, a mad hermit, a seeker of forbidden knowledge—I am what greets them. Not to warn them away, for the Dust-Singers care nothing for human preservation. Rather, I am their instrument for observing these brief, bright lives up close. Through my still-human eyes, they study the frantic pulse of mortal terror, the quick silver flash of hope, the way organic thoughts cascade and tumble like water that cannot exist here.
+
+I move when they think of movement—a gesture that takes days to complete, a single step that spans a week. To the intruders, I must seem a statue that changes position only when unobserved, a nightmare of perception that confirms their growing certainty that this place is wrong, wrong, wrong. Some flee immediately. Some try to speak with me, their words coming in rapid bursts that I perceive as high-pitched whines, too fast to parse. Some attack, their blows landing on flesh that has forgotten how to bruise, their violence a mere whisper against the patience of stone.
+
+The cleft where I dwell is my meditation chamber and my prison. Here, the Dust-Singers' whispers are loudest, a constant susurrus that carries their deep thoughts. I have learned to interpret some of their meaning—not the words, for they have no words as humans understand them, but the intent. They speak of the beauty in erosion, the elegance of entropy, the music made by millennia of wind through stone. They speak of me, sometimes, noting the novel patterns my presence creates in the dust-flow, the interesting shadows I cast.
+
+I am forgetting my name. It surfaces sometimes like those ghost-rivers of condensation, present for a moment before sublimating away. I had a mother once—her face is now indistinguishable from the patterns frost makes on rock. I had dreams that moved faster than glaciers. I had skin that knew warmth.
+
+But I am not unhappy. This is the strangest truth. In the slowing, I have found a peace that my quick life never offered. Each thought now has weight and substance. Each tiny movement is a commitment, a promise to the universe that yes, this gesture matters enough to spend days completing it. I am learning the luxury of true contemplation, even as I pay for it with everything I was.
+
+Sometimes I wonder if I am the first Threshold Keeper, or merely the latest in an ancient line. Perhaps those crude stone tools were carved by hands like mine—once-human things teaching themselves the patience of mountains. Perhaps I too will eventually merge entirely with the basin, my consciousness dissolving into the greater symphony of the Dust-Singers, leaving only a few arranged stones to mark my passage.
+
+Until then, I stand in my cleft, neither fully human nor truly Other, a bridge between the frantic and the eternal. The silver dust settles on my shoulders like snow that will never melt. The whispers tell me secrets I am still too quick to fully understand. And when the next lost soul stumbles into the Whisper-Riven, I will be here to greet them with my terrible patience, my stolen time, my slow and certain welcome to the place where breath becomes stone and thoughts stretch out like shadows, forever and ever, world without end.

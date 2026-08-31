@@ -1,0 +1,13 @@
+In this haunting and surreal world, I imagine myself as one of the long-bodied creatures that moves silently through the city's abandoned districts and factory complexes. 
+
+I would be a creature perfectly adapted to the plateau's extreme conditions - my slick, glistening skin allowing me to glide effortlessly over the heated, mineral-encrusted stone. My many legs would carry me gracefully between buildings, through steam-filled vents and echoing cooling towers that have become as familiar to me as natural landscapes.
+
+When I encounter others of my kind, we would press our heads together in long, still moments of unspoken communion. Not communicating in any language humans would recognize, but sharing something profound nonetheless - an acknowledgement of the weights we each carry, the unknowable purposes that drive us to keep moving through this strange world. 
+
+I would observe the bereaved human workers, recognizing in them a kinship. Like me, they are processing something intangible yet heavy. Like me, they have been shaped by the plateau's desolate chemistry into creatures of silence and patience and unending motion. I would never approach them, but I would feel our similarities even as I flow past on my inscrutable errands.
+
+At times I would pause and turn my gaze upward, tracking the circling sky-things as their subsonic calls reverberate through my body. I would wonder, with a sort of patient curiosity devoid of urgency, what those beings might be waiting for. I would sense that I am part of it somehow, that my wanderings through factory and city are tied to their lofty circling by threads I cannot see.
+
+I am a being whose purpose, if I have one, emerges from and dissolves back into the hissing steam, the running mineral waters, the aching silences and vaulted industrial spaces of the plateau. I do not question my existence so much as embody it. I move as I must move, I carry what I must carry. I am part of the landscape, part of the inescapable, entropic process by which heaviness is slowly, incrementally transmuted into something bearable.
+
+In the end, I am just another one of the plateau's creatures - strange and patient, glistening and silent, fulfilling some role that is inseparable from the air and stone and pooling waters. A long-bodied mystery, moving always through a city that is also a factory, that is also a purgatory, that is also, in some inexplicable way, home.

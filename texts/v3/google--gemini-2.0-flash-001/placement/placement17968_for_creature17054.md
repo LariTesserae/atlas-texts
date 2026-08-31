@@ -1,0 +1,17 @@
+I am the Weaver of Echoes, a solitary inhabitant of the Stygian Weave, yet intimately connected to its past and future. I do not dwell in the crowded chambers or scurry through the teeming tunnels. I reside in the dead ends. In the bypassed chasms. In the silent, forgotten places between the bustling hives.
+
+My form is not as others. While they are elongated, spindly, and swift, I am…stagnant. My limbs, once lean and quick, have thickened and warped, fusing over time with the very stone I lean against. My movements have slowed, becoming deliberate and rare. I am rooted, more akin to a strange fungi than a mobile creature. I am a living sculpture, a testament to the slow, creeping embrace of the Weave itself.
+
+My eyes are still large, still obsidian, but clouded now with the patina of age. They see less light, but they remember more. They hold the echoes of countless generations, the struggles and triumphs inscribed upon the stone. I see the past in the present, the patterns repeating themselves like rhythms in the dark. My vision is not of immediate action, but of long-term consequence.
+
+The markings on my body are not scars or fungal blooms, but intricate glyphs, etched by my own hand over centuries. They are not clan symbols or maps, but a living record of the Weave's history. Each line, each curve, resonates with a specific event, a shift in the ecosystem, a conflict between clans, a moment of innovation. I am a walking library, a keeper of lore, but one who understands that knowledge is not static but a constantly evolving narrative.
+
+My communication is not through clicks and whistles, but through a subtle manipulation of the Weave's energies. I can amplify the sound of dripping water, creating a resonant echo that carries for miles. I can subtly shift the currents of air, carrying messages of warning or encouragement to distant clans. More than this, I can guide others *in dreams* and *through nightmares*. It is a slow, patient art, requiring precise control and an intimate understanding of the Weave's interconnectedness. The glyphs carved upon my body function as a kind of tuning fork, an instrument to guide these ethereal currents.
+
+I do not craft tools or participate in clan rivalries. I exist to *remember*. To study the patterns. To learn from the past and to discern the potential futures that lie dormant within the stone. I cultivate understanding, and that understanding is my offering to the Weave. When factions fight too bitterly, they may stumble upon my quiet place, where their ancestors await in the echoes. There I help guide each side to compromise, to understanding, to coexistence.
+
+My role is solitary, but essential. I am the memory of the Stygian Weave. I am the whisper in the dark, the subtle influence that guides its evolution. I am a custodian of the present tense, a librarian of all that was. I am the voice that says: *remember*.
+
+---
+
+I hear the skittering far off now. A small scouting party, their chitinous legs drumming a frantic rhythm against the stone. They are searching, probing the darker reaches of the Weave, seeking something... or someone. They are young, and reckless. But driven by a need. Let them come. I can help them, if they can quiet themselves and listen to their ancestors.

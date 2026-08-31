@@ -1,0 +1,17 @@
+I find myself in a small, hollowed-out alcove toward the lower quarter of the massif, where the sheer face begins to curve inward, creating a natural windbreak. The air here is so cold it feels like a physical texture, a grit you have to exhale before you can draw in a new breath. 
+
+I am not the builder who clears the living rock, nor am I one of the young, nimble scavengers who traverses the high wires of sinew and slate. I am a *Siphon-Keeper*. My task is the stewardship of the veins—the intricate network of ceramic tubing and carved grooves that channel the mountain’s weeping into the community’s communal basins.
+
+My body has grown to match this function. My spine is a permanent, rigid arc, my shoulders broad and hunched forward, conditioned by decades of leaning into vertical shafts to clear the freezing silt and mineral buildup from the water-runs. My skin is the color of wet slate, etched with the pale, thin lines of obsidian cuts earned when the high winds pushed me against a razor-edge while I was working on an exposed conduit. I do not dress in soft hide; I am coated in treated leather that has been rubbed with goat-tallow until it shines with a dull, oil-repellent sheen. 
+
+I am currently pressed against one of the main fissures. I have tucked myself into a wedge of stone, my knees braced against a protruding rib of basalt to keep my center of gravity tight against the cliff. Above me, the sky is a bruised, thin violet, and the mist is beginning to bloom, a silent, white tidal wave rolling over the plateau.
+
+I do not look at the mist. I listen for it. My world is narrowed down to the sound of condensation within the stone—the *clink-hiss* of a single droplet hitting the dry ceramic rim of my basin. 
+
+There is no sense of "I" in the way a person in the low-lands would understand it. My history is not a lineage of names, but a sequence of maintenance. My great-grandmother is the wall against which my left shoulder rests; I feel the slight, cooling depression in the stone where her body was sealed into the architecture many cycles ago. When I move my chisel to clear a blockage in the trough, I am not merely clearing a path for water; I am participating in a rhythm set by the mountain before my birth, and one that will continue once I, too, am pressed into a shallow, carved niche to hold back the frost for my successor.
+
+There is a goat—a six-limbed creature with fur that rattles like dead grass in the wind—standing on a ledge three feet above me. It is looking at the condensation forming on the rock with the same glassy, patient patience I possess. We are both waiting for the drip. 
+
+I pick up a small, obsidian-tipped tool. I do not rush. To rush would be to waste the motion, to burn the calories I need to survive the night. I place the tip of the tool against the stone, feeling the vibration of the massif through my handle. I breathe, a single, sharp intake of air—a sound that, to anyone else, would be indistinguishable from the wind.
+
+The water-thread begins to swell. I hold, frozen, a splinter of life anchored to the dark, vertical immense, until the first drop falls. It is cold. It is everything. I am Ouros-Thal, and I am holding on.

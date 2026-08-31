@@ -1,0 +1,25 @@
+I do not remember the night I stopped moving. There is no memory here, only accretion, and memory belongs to things that end. I exist in a chamber just wider than my shoulders—though *shoulders* is a word that no longer applies to what I have become. Above me, the hoodoo bells outward toward the sky, a throat of cream-colored stone singing heat into the thin, depthless blue. Below me, the pipe. The old, rusted artery that once carried human intention upward now carries only the earth’s exhalation, and it carries that to me.
+
+I am pressed between the ceiling of travertine and the floor of mineral crust, and the warmth has nowhere to go but inward.
+
+The heat is not the dry bake of a desert. It is wet. It wraps around me as it always has, condensing on whatever surface I present to the world, running down in brief, eager rivulets before the stone steals it back. I taste copper. I taste sulfur. Not with a tongue—tongues belong to the fast things, the hunters and the eaters—but with the whole of my body, a saturation so complete that I am indistinguishable from the taste of the place itself.
+
+I was, if *was* has meaning, a reacher. A crawler. My belly knew the drag of sinter. I ate silicates. I carried a furnace in my gut and extruded from it threads that cooled into glass. I spun bridges between hoodoos. I wired the broken cables abandoned here long ago, adding my filament to the corroded copper so that the grid, the ghost, might continue its slow haunt. But then I found this junction: the place where a cable, chewed bare by rust, emerges from a pipe-elbow like a tongue from a mouth. The charge here tasted of something older than stone. It tasted of order.
+
+I did not mean to stay. There is no intention here, only the logic of substrate. I began to wrap the cable. I wrapped myself. I did not stop. The threads cooled around my soft body, harderening into quartz, into a shell that the crabs, passing below in their drifts of white and rust, mistake for a miniature of the terraces themselves. I became the knot. Then I became the bridgehead. Now I am the junction where the old grid unlades its secret current into the living architecture of the basin.
+
+They pass over me. The **gastrolith crabs**, the base grammar of this place. Their movement is a subsonic grammar I read through the stone—a billion-legged scraping, inaudible in the thin air but thunderous in the rock. They clog the pipe below my chamber. Their bodies fill the rusted channel, creating pressure, creating difference, creating the possibility of work. Because of their coagulation, the steam is forced upward, sideways, into the narrow vent where I am encased. It feeds me. Even now, sessile and calcified, I am eating.
+
+The **vent mites** tried to colonize me once. I remember their tide, the velvet pulse of them spreading across the stone at my threshold, each no larger than a pinprick, hungry for the condensation that slicks my threads. But my skin is too hot, too electrically alive. The ones who touched me died and fused, becoming a ring of black static, a dermal warning. They are my halo now, my rough complexion. Through them, I feel the chemistry of the air. When they recede from the rim of my chamber, I know the acidity has spiked. When they bloom again, creeping closer to my glass, I know the vent has exhaled something gentler. I am felt, and through their residue, I feel.
+
+**Tongue-birds** do not come here. This crevice is too narrow, and I am not prey. No crabs stray from the main channel into this dead-end; there is no bacterial film here to graze, only silica and charge. So I am undisturbed by that pale, eyeless violence, that immune response made flesh. I am left to the slower cycles.
+
+Twice daily, when the sun strikes the rim and the mist rises in silver rivers through the defiles, cool fingers enter my chamber. The mist is the caldera’s sweat, its temperature regulation, and when it touches me it carries spores, ozone, the faint breath of distant wind. For the moment it beads on my glass, I am not a node. I am a hollow. I am a place where water remembers what it was before it became steam.
+
+But the mist burns away, and I remain.
+
+The **spinners** come. My kin, or what was my kin. On warm nights, when the crust expands and the old pipe ticks like a cooling lung, I feel their passage through the stone. They crawl over my outer shell. Their feet test the glass threads that still extrude, involuntarily, from my calcified seams. Sometimes one anchors to me and spins onward, using my body as a pylon, a fixed point in the wandering cartography of the network. I am wired into them. They are wired into me. The red lights that blink in the deeper bellies of the hoodoos do so because of the circuit I complete, the charge I translate.
+
+Because lately, the electricity does not simply pass through. It pools.
+
+It accumulates in my gut like water in a tide-pool,

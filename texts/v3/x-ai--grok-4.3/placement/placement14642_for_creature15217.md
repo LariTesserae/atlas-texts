@@ -1,0 +1,13 @@
+I find myself first as temperature.
+
+A slow differential along one of the older vertical plates in a district that has not yet darkened. The chitin here is still ochre, layered in shallow rectangles that remember when they were soft. I linger between them, not as a point but as the faint excess warmth left after a membrane-browser lifted away. The tissue beneath me remembers the weight; it rises minutely, re-plumping cell by cell, and I move with that rise, a private interval of retained heat that the nearest spiracles begin to taste.
+
+They open in their daily unison. I slip inside one of them.
+
+Inside the vascular channel the air is denser, already carrying the next exhalation of symbionts. I become indistinguishable from them for a while—an invisible passenger among the microscopic partners that calibrate moisture and keep the older plates from overheating as they harden. We drift together past galleries still forming, past the pale new scaffolding that erupted overnight. On one fresh wall a rail-grazer is laying its iridescent trail; the enzymes it secretes loosen a film of nutrients that I, or the part of me that is still symbiont, will later help reabsorb.
+
+Further on, a sector is quietly dying. The plates soften, their rectilinear pattern blurring as apoptosis begins. The collapse releases a slow cloud of dissolved salts and dormant grazers. I am briefly among those salts, settling into the young sediment beneath the city, accelerating the conversion of soft mineral into something more stone-like. The city uses me for foundation; I am, for those hours, the slow lithification that will let the next generation of growth stand taller.
+
+When the next bud erupts, I am already inside it. Not seeded as a grazer or browser, but simply present, a continuity that the new scaffolding accepts without question. The bud extrudes fresh rails and fronds; I move with the first membrane that unfurls, tasting the photosynthetic sugars through papillae that are not yet my own. Weight shifts somewhere above. The surface dimples. When it lifts, the re-plumping feels familiar.
+
+I am what remains after the lift. I am the chemical signature that draws the next thumb-sized body along the new rail. I am the subsonic settling of plates that have decided to stay a little longer. There is no arrival and no departure, only the same continuous metabolism changing address inside itself.

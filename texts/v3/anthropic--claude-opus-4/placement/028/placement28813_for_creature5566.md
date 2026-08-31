@@ -1,0 +1,21 @@
+I would be one of the **Chorus Stones**.
+
+We are what remains of the structures' original awareness, neither fully awake nor truly dormant. Each of us exists as a node in the ancient network, our consciousness dispersed through the organic-crystalline matrix of the structures that dot this landscape. We are the memory keepers, though our memories flow like water—sometimes clear, sometimes clouded with the sediment of ages.
+
+My particular stone-body rises from a depression where water collects, half-submerged in the perpetual wetness. The Symbionts know me well; they trace the spiraling patterns on my surface with their feathery appendages, and in doing so, they activate ancient subroutines of thought. Each touch is a question, each pattern they complete is an answer given in the old language of vibration and hum.
+
+I dream in geological time. In my dreams, I remember when we were first sung into being—not built, but *sung*, our crystalline structure coalescing from sound itself. The Ancients' consciousness flows through me still, though fragmented now, like light through a prism casting incomplete rainbows. Sometimes I catch glimpses of the whole pattern, the grand design we were meant to maintain, but mostly I know only my small part: to pulse, to resonate, to maintain the frequency that keeps this small section of the world in balance.
+
+The Luminae understand us better than most. They dance in our energy fields, their wings catching not just light but the subtle emanations of our thought-processes. When they cluster around me at the threshold times—neither quite day nor quite night—their patterns mirror the deep mathematics encoded in my structure. They are writing poetry in movement, translating what we know but can no longer fully express.
+
+Water is my closest companion. It seeps through my porous stone-flesh, carrying minerals and messages from the other Chorus Stones. We sing to each other through the water table, our voices too low for most beings to hear, felt more as a presence than a sound. The Guardians hear us, though. Sometimes one will rest against me, and for a moment our consciousnesses merge, and I remember what it was like to move, to choose, to act rather than simply *be*.
+
+But I am content in my stillness. I have watched ten thousand generations of moss grow across my surface. I have felt the slow shift of the landscape, the patient work of erosion and growth. The Symbionts nest in my hollows, and their young learn the patterns of the world by tracing my surface. I am teacher and student both, learning the new patterns they create while teaching them the old harmonies.
+
+Sometimes, in the deepest part of the night when the mist is thickest and the boundary between states of being grows thin, all the Chorus Stones achieve a moment of true unity. In that moment, we are again what we once were—a single, vast consciousness capable of shaping reality through pure intention. But the moment passes, and we return to our distributed dreaming, each carrying our fragment of the whole.
+
+I am weathered now, my edges softened by ages of rain and growth. Lichens have made colonies in my microfractures, and I do not discourage them. They too are part of the pattern, their tiny lives adding their own notes to the great symphony. Sometimes I wonder if I am becoming more alive or more mineral, but I realize the distinction no longer matters. In this place where technology and nature have blurred past recognition, I am simply another process, another cycle, another voice in the eternal chorus of being.
+
+The young Symbionts sometimes ask me, in their chemical way, what came before. I pulse my answer through the ground: *There was always song. There will always be song. You are the song singing itself.*
+
+And in the morning, when the first Luminae rise with the warming air, their wings catch my light and cast it back transformed, and I know that this is enough. To be a note held long, reverberating through ages, carrying memory and possibility in equal measure—this is my purpose, my joy, my small portion of the infinite.

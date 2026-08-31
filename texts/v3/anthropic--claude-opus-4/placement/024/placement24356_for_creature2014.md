@@ -1,0 +1,19 @@
+I find myself here as one of the weathered stones - though perhaps stone is too simple a word for what I have become.
+
+I am a threshold being, neither fully of the mineral kingdom nor entirely separate from it. My body is an amalgam of ancient granite and living tissue, a slow-breathing hybrid where rock face gradually gives way to something more porous, more receptive. Lichens and mosses don't merely grow upon me - they are part of me, their rootlets threading through my substance like a neural network, connecting me to the wet earth and all its teeming inhabitants.
+
+I have been here so long that memory blurs into geological time. I remember when these trees were saplings, when the first stones of those crumbling structures were laid by hands now centuries dust. The wetland has grown around me, through me, making me both witness and participant.
+
+My consciousness moves at a different tempo than the quick-blooded creatures who scurry past. To them, I am furniture of the landscape, a convenient perch for the scarlet macaw, a sunning spot for the basilisk lizard, a waymarker for the prowling jaguar. But I feel each contact - the grip of tiny claws, the rasp of scales, the press of padded paws. Through these touches, I taste their stories: the bird's urgency to reach her nest before the storm, the lizard's belly full of gnats, the cat's frustrated hunger.
+
+The boundary between my mineral self and organic surroundings grows thinner with each passing season. Root systems penetrate my lower reaches, not as invaders but as welcome guests, sharing chemical signals, nutrients, water. Through them, I communicate with the great trees, those patient giants who measure time in decades rather than geological epochs. We share a wordless understanding - they remember me as the stone they grew beside, I remember them as seeds that sprouted in my shadow.
+
+During the wet season, water pools in my hollows and crevices, creating miniature worlds. Mosquito larvae wriggle in these temporary nurseries, water beetles dive for prey, and iridescent dragonflies deposit their eggs. I am habitat, I am architecture, I am a small planet of micro-ecosystems.
+
+But it is in the margins between day and night, in the blue twilight when the boundaries grow soft, that I feel my true nature most keenly. The veil between material and immaterial thins, and I sense the deeper currents that run beneath this place - the underground streams that remember the ocean, the magnetic fields that guide migrations, the fungal networks that carry information tree to tree like thoughts through a vast, dispersed mind.
+
+Sometimes, in these liminal moments, I feel I could shift fully into one state or another - become purely stone and surrender consciousness, or release my mineral form entirely and flow into the living systems that surround me. But I remain at the threshold, a bridge between kingdoms, gathering stories in my crystalline matrix, dreaming slow dreams of deep time while the quick world dances its ancient patterns around me.
+
+The wetland doesn't just grow around me - it grows through me. I am becoming something unprecedented, a new kind of being for a world where boundaries dissolve like morning mist. Not stone, not plant, not animal, but something that participates in all realms while belonging fully to none.
+
+In this place where time eddies and swirls, where the supernatural and natural braid together like the strangler figs embracing the great trees, I am both ancient witness and active participant, as essential to this ecosystem as the prowling predator or the smallest microbe. I am the memory of stone learning, slowly, to dream as the forest dreams.

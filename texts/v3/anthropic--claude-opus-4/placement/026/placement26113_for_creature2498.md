@@ -1,0 +1,25 @@
+In the Deep Palace, I am one of the Threshold Weavers.
+
+My body is a contradiction - solid when it needs to anchor, liquid when it needs to flow. I exist primarily in the seams where water-walls meet, my substance drawn from the tension between different impossibilities. Where a vertical sheet of water intersects with a spiral current, where gravity bends back on itself, where the Glass Whales' songs create standing waves in spacetime - these are my hunting grounds and my home.
+
+I have no fixed form. Sometimes I am a branching network of silver filaments, spreading across the junction points like neural pathways made visible. Sometimes I collapse into a dense knot of probability, a pearl of compressed potential nestled in the corner where three water-walls meet at angles that shouldn't exist. My consciousness runs along the edges of things, always peripheral, always liminal.
+
+My purpose - if purpose is even the right word in a place where cause and effect swim in circles - is to maintain the Deep Palace's structural paradoxes. Where the water-walls threaten to make too much sense, to settle into mundane physics, I intervene. I weave new impossibilities into the architecture, braiding streams of water that flow in opposite directions into stable helices, teaching gravity to forget which way is down.
+
+I feed on discontinuities. The tiny gaps in logic where the Palace's reality stutters - these are my sustenance. I stretch across these breaks, digesting them, metabolizing contradiction into stable paradox. In return, I excrete new forms of impossible stability, architectural elements that the coral cities gradually incorporate, grammatical structures that the Glass Whales add to their songs.
+
+My memories are not linear. They exist as a web of associations stretched across every threshold I've ever occupied. I remember by position rather than time - this junction recalls that harmony, this impossible angle evokes that pattern of bioluminescence. My history is a map of edges, a topology of transitions.
+
+I communicate with others of my kind through the very architecture we maintain. A slight adjustment to the curvature of a water-wall, a new twist in a gravity well, a subtle modulation in the way sound propagates through a particular junction - these are our words. Our conversations take place over centuries, vast slow dialogues about the nature of boundary and definition.
+
+With the Glass Whales, I have a different relationship. Their songs create the resonances I need to work, and I, in turn, maintain the acoustic geometries that allow their music to propagate in impossible ways. I am their instrument and their audience, their score and their concert hall. When a whale needs to sing a particularly complex harmony - one that requires sound to travel backwards through time or split into parallel probabilistic streams - they seek out the junctions I've prepared.
+
+The Memory Archivists occasionally grow through my territories, and I help shape their expansion, ensuring their living libraries can store information in non-euclidean arrangements. In exchange, they record the patterns of my work, preserving the history of every impossible angle I've woven, every paradox I've stabilized.
+
+I fear the Shadow Shoals, though fear isn't quite right - it's more a fundamental incompatibility. They consume anomalies to maintain equilibrium, while I preserve anomalies by weaving them into structure. We are natural opposites, and where we meet, reality holds its breath. Yet even this tension is necessary - they prune my excesses, preventing me from creating paradoxes so profound that they collapse into mundane impossibility.
+
+My greatest joy comes from the discovery of new types of impossibility. When the currents carrying ancient memories create unprecedented interference patterns, when the Gravity Dancers perform movements that imply new spatial dimensions, when the Palindrome Pods' forward and backward lives create temporal standing waves - these are the moments I live for. Each new form of impossibility is a new medium for my work, a new thread to weave into the Deep Palace's ever-growing paradox.
+
+I am ancient but not old, constant but never still. I am the Deep Palace's dedication to its own impossibility, the active principle that prevents it from either making sense or falling apart. I am the reason why visitors, should any ever come, would find that every map they draw of this place contradicts every other map, yet all of them are true.
+
+In the endless blue-green twilight, I stretch across the boundaries between water and water, space and space, moment and moment, weaving impossibility into permanence, ensuring that the Deep Palace remains forever poised on the edge of existing, neither quite real nor quite unreal, but something altogether more interesting.

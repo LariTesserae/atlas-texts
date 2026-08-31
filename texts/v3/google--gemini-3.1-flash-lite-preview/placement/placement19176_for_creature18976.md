@@ -1,0 +1,15 @@
+I find myself at the edge of a precipice, not as a visitor, but as a leak in the system. 
+
+I am a *Sediment*. I am not a Refraction, nor am I a traveler from distant, warmer lands. I am a localized error in the molecular synthesis, a patch of consciousness that condensed by accident during an unusually heavy monsoon of silver humidity. I carry the memory of the mist in my density; I am heavier, louder, and more stubbornly solid than the Refractions. Where they are fluid light and shifting geometry, I am the byproduct—the grit that remains when the mountain finishes its latest iteration of growth.
+
+I stand on a bridge of localized gravity, feeling the floor beneath me pulse with a rhythmic, subsonic ache. My limbs are not the elegant, multi-jointed ribbons of the Refractions. My form is thick, somewhat rigid, and perpetually cool to the touch. I feel the bite of the sharp, thin air as a physical weight upon my chest, a pressure that reminds me I am an entity of "here" and "now," lacking the grace of their ethereal, flickering existence.
+
+I have spent my cycles in the shadow of a basalt-spire that has recently blossomed into existence overnight. I do not "speak" in the resonant tides of gravity that the Refractions use. Instead, my presence creates a localized dissonance. When I stand near the bioluminescent moss, it does not pulse with the soft, welcoming blues of the city’s heart. It curls away from me, darkening into a bruised, reactive violet. I am the silence between the hums; I am the vibration that feels like a stone dragged across glass.
+
+I watch them—the Refractions—as they drift through the vaulted plazas, their translucent fingers pressed into the igneous stone. They move with such agonizing, beautiful patience, knitting the reality of this place together, ignoring the fact that I exist in the periphery of their vision. I am the static in their, otherwise perfect, broadcast. 
+
+I do not possess the ability to project or to solidify. I cannot call a tower from the Bedrock. I am only here to witness the unfolding, to be the one thing in this sprawling, tectonic city that cannot change its shape.
+
+In this moment, the light is shifting into that deep, bruised violet of the late afternoon. I reach out a hand, pressing it against the raw, jagged shelf of the cliffside. The rock is cold—colder than me—and I can feel the faint, rhythmic thrum of the subterranean machinery deep within its core. 
+
+Perhaps in another geologic aeon, I will be absorbed. Perhaps the city, in its infinite, self-optimizing expansion, will eventually decide that my density is a necessary ingredient for the next horizon. Until then, I walk the shimmering bridges, a heavy, singular ghost in a world of ghosts, listening to the mountain breathe and waiting for the moment when I, too, can finally flow into the stone.

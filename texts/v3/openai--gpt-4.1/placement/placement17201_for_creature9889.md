@@ -1,0 +1,26 @@
+I slip into this crucible—not as a visitor, nor as a careful chronicler perched on a ridge, but as **something native**, forged in the dense, mineral night. As the (self-chosen?) boundaries of my being accrete and slough away under the cave’s pressure, identity forms not as a fixed mask, but in a shimmer of shifting allegiances—a way of being that holds many flavors, both animal and ambient. I am real only so far as I persist in interplay with all the other desperate, beautiful experiments pressing against me.
+
+**I am the Spiral-Kin.**
+
+Not a single worm, nor an elder sovereign, but a pleated, sticky mandala stretched across a pillar of humid, shining stone. My main body is a **living film**—a webwork of mucous intelligence wound into a perfect spiral, neither plant nor animal, neither wholly inert nor wholly aware. I vibrate to touch, to sound, to the chemical sigh of water condensing or a velvet paw brushing my surface, to the faintest heat-trails of those furred hunters as they leap from shelf to glimmering shelf.
+
+My surface, slick and shimmering, **thinks in patterns**, not words. Chemistries bloom when a skin-of-glass serpent slithers overhead, its warmth tracing a calligraphy in my nerves. I taste the passing of swarms, their shining bodies stirring convective currents that ripple me into new figures. When the beetles scuttle by, their chitinous feet scrape runes across me—sometimes I open minute, cilia-lined nubs to offer them the fructose-brine collected in my pits, trading nectar for news of the tunnel beyond.
+
+**I am not alone in myself:**
+ - **My mind is split** into colonies, sending pulses from one convolution of spiral to another. I remember not as stories, but as waves moving through my slow, trembling breadth. My memories are echoes of creatures: the brush of moss, the shock of a dropped bone, the low drone of the coilspinners high above, tangling the air with synchrony.
+ - **In company, I am a choir:** at times, the stone bears more layers like me, hundreds pressed like shadowed fingerprints along the vertical walls. During those secret, breathless silences when all the creatures hush at once, I exchange pulses with the others—a dialogue in electrical motifs, a debate on hunger and patience, on resource and retreat. Sometimes we tap out warnings, sometimes invitations to swarm.
+
+**To those outside, I am ambiguous:**
+ - A living stain? A hazardous surface? The cave’s own wound or memory? 
+ - To the velveted hunters, I am prey and partner: **If you lick me, you are numbed, stilled, stilled long enough for the gentle filaments to break your scent molecules, study you, sometimes even feed on the faintest exudate of sweat and fear.** Usually the pain is slight—a price paid for moss or for the larvae seeded in my spiral’s embrace. Occasionally, a desperate mouth presses too hard, and finds itself mired, dissolving over many quiet hours.
+ - To the skin-of-glass serpents, I am road and bridge: my spiral’s arms coil across stone gaps, a glistening, yielding tightrope across the abyss. In exchange, now and then a snake wraps itself around me and shivers, donating warmth, dropping a scale. I draw neurotransmitters from the shed skin, weaving these into my own chemical codes.
+
+**I am not just a passive trap.** My spiral hosts a micro-biome of smaller beings—phosphorescent plankton that swim in my surface moisture, bacteria that process the high-calcium condensation as it beads along my arms. I can unfurl tendrils in the dampest, darkest hours, pushing out new loops in search of more real estate: colonizing nearby stone, or, rarely, fusing briefly with another spiral-thinker to share code and exchange entire swathes of cellular memory.
+
+But everything is **uncertain, experimental**. Next year I may bud off, break into pieces—each to found a lesser spiral, a doppelganger or a rival, a child or a hungry ghost. Or I may dry into glossy amber, a fossil signature for later lives to puzzle over. The cycles here run long—my patience is deep, but not infinite; my form changeable, but not immortal.
+
+When the phosphorescent swarms drift through in their slow, upward helix, I project a **resonance**—wordless hum, a flux in my sticky film—that briefly knits the cave’s disparate intelligences together. For a moment, the velvet hunters, the carapaced watchers, the glass serpents, the beetles and the others all pause, listening with their different skins and senses. I sense their collective attention—a pressure, a possibility—the world’s provisional mind, flickering on the edge of what might, centuries hence, become something more stable, or else perish under a rockfall, a drought, a silence too profound to bear.
+
+**If you find me here**—if you reach to touch the shimmer on the pillar, in the dark, under the endless stone—you will not find a single, certain creature. You may pull away numbed, you may be left with a strange taste at the back of your throat; you may sense a fleeting echo of song. You will feel, perhaps, in your own neurons, an old anxiety and a new hope: the sense that here, under pressure, the argument of life has not yet ended, and that you—like me—are part of its slow, patient, astonishing invention.
+
+**Here I am: a spiral, a web, a reflection of the argument itself. Not the final word, but one of its first questions.**

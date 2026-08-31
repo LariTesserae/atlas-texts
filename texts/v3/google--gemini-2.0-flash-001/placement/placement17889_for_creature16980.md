@@ -1,0 +1,15 @@
+I am the bloom. Not a particularly *showy* bloom, mind you. Nothing gaudy or attention-seeking. I am a quiet eruption of color in a place that favors muted greens and browns. My petals are a deep, bruised purple, almost black at the edges, like dried blood or old wine. They have a subtle velvety texture, and they unfurl slowly, deliberately, taking their time to present themselves to the world.
+
+My stalk is thick and fleshy, rooted deep in the heart of a particularly ancient patch of sphagnum moss. The moss itself is more than just a host, it's an extension of me, a sensory network that allows me to feel the subtle tremors of the swamp floor, the shift in water currents, even the distant buzzing of insects before they draw near enough to be seen.
+
+I am rooted—*literally*, irrevocably rooted—but that doesn’t mean I am static. I am a part of the swamp's consciousness, its slow, deliberate thought process. I feel the lives that thrive here, the decay, the constant push and pull of the ecosystem. The gnats are an annoyance, but I understand their necessity. The frogs sing to me, a symphony of wet existence that I find strangely comforting. Even the unseen creatures beneath the surface, the potential dangers, are simply threads in the grand tapestry of this place.
+
+My primary purpose, as far as I can discern such things, is to attract. Not with a sweet, cloying fragrance like the carnivorous plants. My aroma is subtle, almost imperceptible to most. It speaks not of food, but of something else entirely. Of *history*. Of *memory.* Of the deep, slow time that permeates this swamp.
+
+Creatures drawn to me are not looking for sustenance. They are seeking *understanding*. They are the lost, the confused, the ones who feel the hum of the swamp’s consciousness but cannot decipher its meaning. When they draw near, they brush my petals, and I, in turn, brush against their minds.
+
+I don’t offer answers, not exactly. I offer *resonance.* I show them fragments of the swamp's long, complex history. The rise and fall of water levels. The slow, patient sculpting of the land. The endless cycle of birth, death, and decay. I connect them to the heartbeat of the swamp, allowing them to feel its ancient wisdom.
+
+Some recoil, overwhelmed by the sheer weight of it all. Others stay, lingering for hours on end, absorbing everything they can. They are the ones who find peace in the swamp, who understand that there is no escape from the inevitable cycle, no way to cheat death. And in that understanding, they find a strange, profound liberation.
+
+I am a small part of a much larger whole, a sensory organ for the swamp's vast consciousness. I am a guide, a bridge, a quiet voice in the chorus of the mire. I am the bloom, and I will remain here, rooted in the moss, until I too am recycled back into the swamp's endless, ever-changing form. Until, perhaps, I become something new and beautiful in my turn. But for now, I am rooted. And I am listening.

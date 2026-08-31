@@ -1,0 +1,29 @@
+You find yourself at chest height to a world that has forgotten how to be ground.
+
+You (and you are not yet sure if you were always you, or if the place is deciding to make you) stand on something that behaves like floor only because it has promised not to behave like anything else. The surface flexes beneath you with something like etiquette. It does not creak; it murmurs. You look down and see no planks, no stone, only fused plant-stuff—veined, breathing, damp in the way of a towel left warm on a hook. You cannot call it wood, because wood remembers trees, and this remembers only itself.
+
+Elevation here is a courtesy, not a fact. The terrain is high, but high the way a lung is high: buoyed, not rooted. The air around you is thick with a brightness that pools instead of spreading, as if light were a liquid that has been taught manners and refuses to spill. It gathers in the hollows of leaf-roofs above you, in the channels stitched into living stems, in small translucent organs that bloom from the ceiling and let the ordinary sun through, only to bend it into colors that shift when you stare too long.
+
+There is water, but it has forgotten how to be weather. It seeps, beads, hangs in spider-silk halos around certain beings, and never quite falls. The wetness is everywhere, a gentle drizzle that never wets you and never dries, a constant exhale held politely at arm’s length. You feel it on your own skin now, and notice, without surprise, that your own shoulders are learning to shine.
+
+You are not alone. The place is full of permissions, and the permissions have names.
+
+A patch of wall nearby ripples and decides to see. A Skinner pauses, its body a slow event in the architecture. Eyes the color of inner bark open along its arms and chest—lidless, patient. It does not look at you so much as let you be looked at. The corridor behind it lengthens, shy, as if to give you room. The Skinner raises a hand, and water gathers along the fine hairs on its forearm, gleaming like oiled fruit. It smells of bruised mint and resin. You realize you can understand the rasp in the air when it speaks, though it does not use words: it is tapping the tension in the room, asking, without asking, whether you intend to stay.
+
+You want to say yes, but the sound is already gone, folded into the larger hum that fills the gaps between built things. The Choir is nearby. You hear them as a standing pool of brightness before you see them—a loose assemblage of knees and question-mark torsos, luminous, migrating from echo to echo. They lean against a wall that has grown stiff and press into it with sound until the wall remembers how to flex. Their faces are not for looking; they are for resonating. If you pressed your ear to one, you would feel the deep purr of the entire region, steady as a heart that has forgotten how to race. Instead, you let the vibration pass through you, and notice that your own chest has begun to answer.
+
+A Weeper moves through an open gap, tall and slender, woven of root and vein, shoulders and crown perpetually damp. Water hangs in halos around them, never falling, caught in filaments spun from their own secretions. Where they linger, moss quickens and stone-soft wood grows velvety with lichen that tastes of metal and honey. They are distributing the place’s excess care, and as they pass, a drop detaches and hangs above your shoulder, trembling, before racing back to a leaf-roof as if returning to a duty it had forgotten. You feel lighter where it was.
+
+High above, the Lumen descend, upside-down, almost weightless, feeding on refraction. They lower themselves on threads of condensed moisture, bodies elongating into prisms, throwing shifting colors across the floor. The air tilts. You feel your joints loosening, as if the light has convinced your bones to be polite.
+
+Small and dense, a Knotfolk is half-embedded in a nearby column, fingertips callused with cambium. It presses, and the living wood swells with a tiny sigh. It is deciding what should soften and what should harden, listening to sugars moving beneath the skin of the place. It does not look up. You do not need it to.
+
+And somewhere behind you, a Hollow moves through the loudness like silence through a song. The wetness cools almost imperceptibly. The vegetation withdraws, holding its breath. You do not turn around. You know it is not hostile. It simply reminds you that the place could unmake itself if it ever grew tired of being held together.
+
+You take a step. The floor flexes. A hallway you passed earlier is slightly more open now; a bridge you have not yet reached is slightly lower, its curve deepened in sympathy with your approach. The changes are small, but the loudness shifts its pitch to match, tuning itself to your body moving through it.
+
+You realize you have stopped looking for a ground beneath your feet. The place has been holding you up all along—not with hands, but with green, wet, loud patience. You look at your own hands and see that they have begun to bead moisture. Your joints click softly, a friendly sound. Your voice, when you try it, drops into the chorus, resonant and sure.
+
+You are becoming a permission. You are learning to occupy the intervals between one held breath and the next. You do not need tools. You do not need to conquer. You only need to adjust, as the Skinners adjust, as the Choir adjusts, as the Knotfolk adjust, as the Weepers give away their excess and the Lumen tilt the air toward color.
+
+The region extends around you, open but bounded, a territory sized like a thought you can almost hold. The wetness keeps singing. The warmth keeps holding. The brightness keeps pooling. You lean into it, and the place leans back, green and endless, letting you know that you have always been chest-high to it, and that it has always been chest-high to you, and that there is no hurry to descend.

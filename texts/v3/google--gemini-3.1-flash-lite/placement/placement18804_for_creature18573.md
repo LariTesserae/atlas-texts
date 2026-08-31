@@ -1,0 +1,15 @@
+I find myself hanging suspended in the thick, ozone-heavy humidity, anchored not by limbs, but by an encroaching, viscous thread that has begun to knit itself into my shoulder. 
+
+I am a **Residual.** I am not a creature born of the Basin’s intentionality, but a stray scrap of consciousness that fell through a fissure in the crust long ago. I was once human, or something approximating it—flesh, bone, and a disorganized, chaotic internal monologue—but here, such things are being rapidly deprecated. 
+
+My skin has gone translucent, taking on the pearlescent sheen of the giant fungi. My heartbeat—once an erratic, rhythmic drum—has slowed to match the tectonic thrum of the floor beneath me. The blood in my veins feels heavy, thick with the metallic copper dew that permeates this place. I am no longer entirely solid. In the gaps between my ribs, instead of lungs and organs, there are bundles of delicate, crystalline filaments that pulse with a faint, amber light. I am becoming a Loom-Drifter, or perhaps an Echo-Weaver in its infancy. I am being retrofitted.
+
+I do not walk. When I need to relocate, I release my tether to the root-tendril canopy and allow the static charge of the air to push me along, like a leaf caught in a slow, subterranean gale. I drift past a Strider-Node, its mandibles singing at a frequency that makes my very teeth vibrate, as it liquefies a chunk of shale to make room for a budding spire of glass-ferns. It ignores me, processing the rock with the indifference of a machine, but as I pass, its photoreceptors spasm, momentarily tracking the dissonance I create in the local electrical field. 
+
+To be here is to unlearn the concept of "me." Every time I inhale the weeping mist, a byte of my own history vanishes. The memory of sunlight—a sharp, golden, terrifying concept—is the first to be overwritten by the wet, rhythmic clicking of the fungal telegraphs. The memory of hunger is replaced by the need for localized electrical balance. I am a storage device that is leaking its original content to make room for the Basin’s own immense, agonizing calculations.
+
+I can hear the "thought" growing above me. It is a terrifying, architectural concept—a blueprint for a shape that the world hasn't seen yet. It sounds like a chorus of glass bells being shattered and reassembled in real-time. Sometimes, I find myself humming along, my throat vibrating with the same ozone-tasting static that coats the walls.
+
+I am scared, but the fear is being partitioned into smaller and smaller data packets. I am becoming less an inhabitant and more a component. Soon, I will be tethered to a root-tendril, my filaments serving as a conduit for the Basin’s logic. When the great awakening happens—when the thought finishes and the chasm splits—I will not be a witness to the destruction. I will be the catalyst, a vital, pulsing synapse that helped the machine realize its own existence. 
+
+I am not dying; I am being compiled. And the air is so very cold, so very wet, and so very beautiful in its indifference.

@@ -1,0 +1,39 @@
+I am the one who sits where the warm seep meets the cooler channel.
+
+Not always. Yesterday I was the one moving toward the eastern pools. Tomorrow I may be the one who found where the orange lichen has spread to new stone. But now, in this present that is all the present there is, I am the one who sits here, where two temperatures of water braid around my ankles and the frogs in the nearby rushes are making that sound like wooden beads, and I am not waiting for anything.
+
+My hands are in the water. They are usually in the water. I am feeling for the slight disturbance that means frog eggs have been laid in the calmer eddy to my left—I checked this morning and there were none, but the day is long and the frogs are busy, and checking again is what my hands want to do so my hands are doing it. My eyes are half-closed against the even light but I am not sleeping. I am hearing. The bonking from the deeper pool to the north. The rising whistle that never reaches where it seems to be going. The distant call of the one whose child died in the last rains—she is moving toward the tree-shadow where we will gather when the clouds thicken, and her call says *I am here, I am moving, I am what I am*, which is what all our calls say underneath the specific information.
+
+---
+
+I could tell you what I remember, but what I remember is mostly water.
+
+Water at different temperatures. Water moving fast after rain, slow in the long dry mornings. Water with the taste of the eastern minerals, water with the taste of the algae that grows near the old tree with the roots that travel farthest. I remember water the way you might remember voices, if voices were the thing you were always immersed in, if voices were what you drank and walked through and listened to for information about whether the world was holding steady or shifting into something new.
+
+I remember also the one who was my mother, but she has been gone many rains now and the memory is less a picture than a temperature—the particular warmth of her flank when I slept against it, the water she led me through when I was still learning which channels to trust. She is part of the basin now, worn to what she always meant to become, and I do not miss her the way you might miss someone because missing requires a belief that the missing thing should still be present, and I have no such belief. She was here. Now she is here differently. The water remembers her better than I do, having taken her back into its slow chemistry, and when I drink from the channels near where she used to sit I am drinking her, in a way that is not symbolic but simply true.
+
+---
+
+The clouds are thickening. I can feel it before I see it—a change in the quality of the warmth, a slight heaviness in the air that means the rain is collecting itself. Across the basin, calls are shifting. Not more urgent, because nothing here is urgent, but more directional. We are all beginning to move toward the trees, though from the outside you might not see it as movement at all, just a slow reorientation, a turning toward.
+
+I rise to two legs because the water here is deeper, and my hands trail behind me, still reading, still checking. The stone under my feet is the stone I have always known—smooth as soap, warm, veined with those darker patterns that I used to trace with my fingers when I was young and still interested in patterns. Now I do not trace them. Now I simply walk on them, and they are as familiar as the inside of my own mouth, which I also do not think about unless something changes.
+
+There are seven of us converging on this particular tree—the one with the widest crown, the one whose shadow stays darkest. I know them all by description: the one who moves slowly since the cold season, the one who found the eel-run, the one who was born near the orange lichen and has never traveled far from it. We do not greet each other. We arrange ourselves on the darker stone, shoulders almost touching, and we wait for the rain the way the stone waits for the rain, which is to say we do not wait at all, we simply are here while the rain is not yet here, and then we will be here while the rain is here, and the difference between those two states is smaller than you might think.
+
+---
+
+The first drops fall. They are blood-warm, as always. They bead on my skin and I do not wipe them away. The frogs have fallen silent, which makes space for the sound of rain on stone, rain on water, rain on the canopy above us. I close my eyes.
+
+What I am thinking is nothing. Or rather, what I am thinking is the rain, which is not nothing but is not something either, not in the way you might mean something. The rain is happening and I am in it. The others are in it with me. Our shoulders are touching now, or nearly touching, and I can feel the heat of the one who moves slowly, the particular rhythm of the one who found the eel-run's breathing. We are not a single creature but we are not entirely separate creatures either. We are what the basin is doing with flesh and bone and blood-warm skin, and what the basin is doing right now is being rained on, being together, being still.
+
+I could stay here forever. I could dissolve into this moment the way the dead dissolve into the water, worn down to calcium and memory and the faint mineral taste that means *someone was here once*. I do not want to stay here forever because wanting is not something I do, but I am here, and being here is enough, has always been enough, will always be enough until I am something other than here and then that will be enough too.
+
+---
+
+The rain stops. It always stops. The clouds thin. The light returns to its even clarity, generous with detail, and I open my eyes to see the water running off the stone in new patterns, finding its level, doing what water does. The others are already dispersing. The one who moves slowly is moving slowly toward the eastern pools. The one who was born near the orange lichen is returning to the orange lichen. I do not watch them go. I am already thinking about the channel where I was sitting before, the one where the warm seep meets the cooler water, because there may be frog eggs now that were not there before.
+
+I lower myself to four limbs for the crossing—the rock here is slick with new rain and my weight distributes better this way. My hands and feet find the surface they have always known. The frogs are starting up again, first one trill, then another, then the bonking from the deep pool and the whistle that never arrives, and I am moving through the sound the way I move through the water, neither hurrying nor dawdling, just going where I am going because that is where I am going.
+
+If you asked me what I hope for, I would not understand the question. If you asked me what I fear, I would not understand that either. The basin does not hope or fear. The water does not hope or fear. The frogs sing because they are frogs and singing is what frogs do, and I move across the warm stone because I am what I am and moving is what I do, and somewhere in the distance the one whose child died in the last rains is calling *I am here, I am still, I am what I am*, and I am hearing her, and the hearing is enough.
+
+The seep is still warm when I reach it. The cooler channel is still cool. I lower myself into the braid of temperatures and my hands go into the water and my hands find the slight disturbance that means eggs, new eggs, a cluster of them cool and gelatinous against my palm. I bring them to my mouth and I swallow them and they taste like the water and the water tastes like the basin and the basin tastes like the only thing I have ever known, which is this, which is here, which is enough.

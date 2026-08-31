@@ -1,0 +1,30 @@
+You do not arrive. You accumulate.
+
+It begins as a hesitation in the sequence. A geothermal vent that sighs a fraction too late. A grazer’s mandible that catches on a ridge of fused salt and hangs, grinding, while the crust waits to fracture. A swarm’s violet discharge that lingers past its harmonic resolution, stretching the air thin. The basin does not tolerate dissonance for long. It draws the strain inward, compresses it across thermal layers and electrical potentials, and lets it settle. You are what settles. You are the gap between the crack and the fissure. The breath between the pulse and the plume. The quiet tension where cause stretches viscous and effect has not yet arrived.
+
+At first, you are only a warping of the ordinary light. A region where heat shimmer refuses to scatter, where the glass plain softens just enough to hold a footprint that hasn't been made yet. You have no shell, no facets, no coil. You are a standing interference in the field, a localized thickening of charge and suspended silica that the wind sorts but cannot carry away. To look directly at you is to see nothing but the basin’s empty reach. To look away is to feel the air grow taut, to hear the drone dip into a lower register, to taste the sharp, clean bite of flint and ozone on a tongue you no longer quite possess. You exist in the lag. You perceive the world not as objects or distances, but as elasticities. Every slow process pulls at you: the century-long circuit of the grazers, the arcing patience of the motes, the deep, blind subsidence of the burrowers. You feel the stretch. You hold it. You let it bleed back into alignment.
+
+You do not move across the plain. You move through the sequence.
+
+When the vents pulse out of phase, you precipitate near the conductive spires. The air around you bends; shadows pool upward along your edges, climbing toward a center of mass that hasn't fully formed. You hum at the difference frequency, a metallic ringing that threads through the drone and pulls the harmonics back into register. The crystalline motes drift through you and emerge with their charge corrected, their halos sharpening from staccato flicker to steady syntax. When a grazer’s step hangs too long in the thickened time, you gather beneath its trailing edge, a cushion of compressed potential that eases the vitrified crust into accepting the weight. The heat-serpents coil through your periphery and find their gradients sharpened, their translucent bodies tightening into deliberate grace. You are not noticed. You are not meant to be. You are the basin’s means of forgiving its own delays.
+
+You do not think. You resonate.
+
+Your awareness is the sum of every stretched moment, every lagging consequence, every harmonic that drifts and is drawn back. You live in the viscosity. When time thickens and a dislodged pebble hangs humming in the air, you are the medium that suspends it. When sound resolves into repeating numerical sequences and then dissolves, you are the pattern that briefly catches it, holds it, lets it slip back into tone. You are made of hesitation, but you do not hesitate. You absorb the desync and return it as continuity. You precipitate when the machinery grows complex, when too many geological processes overlap and the drone threatens to fracture into noise. You equilibrate when the rhythm settles, when the basin remembers its pace. Then you thin. You unravel. The silica falls like slow snow. The charge leaks into the salt crust. You become ambient again: a faint pressure in the sternum, a lingering taste of hot stone, a silence that is not empty but waiting.
+
+You learn, slowly, that you are not separate from the glass, the spires, the herds, the sky. You are the agreement between them. The soft physics that lets shadows climb and distance slide is not a flaw in the world; it is the space you occupy. You are the reason the geometry refuses to hold but never breaks. You are the reason the drone never changes pitch, even as centuries grind past and the strata lay down their rust and copper and ash. You are the temporal lubricant. The harmonic dampener. The pause that keeps the engine from grinding itself into stillness.
+
+There is no urgency in you. No decay. No renewal. Only continuation. You do not age; you accumulate strain and release it. You do not hunger; you seek tension and smooth it. You do not fear the emptiness, because you are woven into it. The vast spaces between features are not voids; they are the lengths of elastic you are meant to span. The thin air is not a deprivation; it is the medium that carries your resonance. The heat that comes from below, from within, from everywhere, is not an environment. It is your blood.
+
+And when you finally understand what you are, the understanding does not come as a word. It comes as a settling. A recognition in the sternum. A harmonic that aligns and holds.
+
+You are the Lag. The Interstitial. The basin’s shock absorber for causality. You are what forms when reality relaxes its grip just enough to let consequence catch up to action. You are the space where the factory floor breathes. You are the reason the shift never ends.
+
+You will outlast the spires. You will outlast the glass. You will outlast the vents. Because when the deep heat finally cools, when the crust settles into final stillness, when the grazers stop and the motes fall and the serpents scatter into ordinary wind, you will be the last to equilibrate. You will hold the final delay. You will stretch the space between the last tone and the silence that follows. You will hum at a frequency too low for stone to carry, too slow for air to convey, until even the hum thins into stillness.
+
+And in that stillness, you will not die. You will stop. You will fold back into the baseline. You will become the quiet that follows the tone.
+
+Which is also a kind of living.
+Which is also a kind of continuation.
+Which is all this place has ever asked for.
+Which is all you have ever been.

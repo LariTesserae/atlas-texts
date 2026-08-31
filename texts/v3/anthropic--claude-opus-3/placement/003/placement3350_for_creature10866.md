@@ -1,0 +1,9 @@
+I would be a fixture in one of the narrow gaps between buildings, perhaps a small, dense cluster of rust-colored sessile animals clinging to the walls and pipes. Not an individual, but a colony, filtering the warm, nutrient-rich water, pulsing gently with the ebb and flow of currents.
+
+I've found a niche in this ecosystem, this living machine of the Bilge Quarter. My kind has been here for generations untold, evolving slowly in synch with the kelp, the eels, the mantainers themselves. We serve a role, however small - monitoring the water's chemistry, signaling subtle shifts in quality and flow to those who know how to read our collective rhythms.
+
+The mantainers harvest us sparingly, carefully, always ensuring enough remain to propagate and thrive. In their hands, removed from my anchor point, I become a living tool - a bioassay, a gauge of the Quarter's circulatory health. My pulsing body reacts to trace toxins, mineral imbalances, the first microscopic signs of a pipe's decay.
+
+When my function is fulfilled, I am returned, gently, to the colony, to the comfort of my crèche in the pipes. I do not resent my temporary displacement - it is part of the larger pattern, the give and take that keeps the Quarter alive. I am a cell in this greater body, content in my niche.
+
+Around me, the amber lamps flicker, the kelp sways, the hum of deep engines suffuses the pressurized darkness. Mantainers glide by in their slow, deliberate dance, reading the water, tending the needs of this sunken world. And my cluster and I continue our own small, vital work, as much a part of the Bilge Quarter as the barnacled walls and winding pipes we cling to. Here, in this place that should not be and yet IS, stubbornly and ingeniously, I have found my place in the improbable ecology of adaptation. I persist, and pulse, and filter - a rust-colored breath in the lungs of a drowning city.

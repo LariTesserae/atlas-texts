@@ -1,0 +1,25 @@
+I am the one that drifts sideways.
+
+Not down—there is no down—and not up, which is merely east in a bad mood. I drift through the fold where the gravity knots itself into a reef, suspended in the warm wet cloth of the air, turning slowly like a planet torn from its orbit. I have been drifting for seven minutes, or perhaps three thousand years. The condensation beads upon me, the obsidian, making me darker, slicker, rounding my edges with mineral patience. I am a flake, a spall, a thought that the volcano had while dreaming of knives. I am two centimeters of volcanic glass, and I have been selected forty times.
+
+The first thing I felt was the *ping*—the thermal shock singing through the eastern shelf as the superheated water found a fissure, and I leaped away from the mother wall. I was newborn then, sharper than intention, my edges still carrying the sting of the fire that made me. I fell, or flew, or drifted sideways, and the swarm found me.
+
+They do not see me when I am alone. I am weather then, a pressure differential, a mineral absence. But when the claw—pedipalp? prehensile spine?—closes around me, I become *necessary*. I become will.
+
+Here is what it is like to be wielded: I am lifted from the drifting crowd of my siblings (other flakes, other fractures, also wandering through the impossible geometry). I am held up to the light. The creature’s neural packet darkens behind its translucent thorax, strobing a pattern I have learned to read: *assessment, assessment, yes*. There is a connoisseurship to this. They test my heft by the way I swing in the thick air. They test my edge by the way I fracture the light into rainbows that hurt to look at. When I am chosen, there is a flicker of voltage through the silicon-carbide chitin, a spark that jumps from their piezoelectric sinew into my glass. For a moment, I am animate. I am decision.
+
+Then comes the violence.
+
+I have pried open seams like surgical incisions in the obsidian, releasing the sulfur-yellow blood of the earth. I have scraped the iridescent instructions—those ancient protein scripts, older than leaves—into the mouths of my wielders. I have dueled. Oh, how I have dueled. Parrying other shards in the silent clashes that determine who owns which cubic centimeter of glass for the next three seconds. When I strike another of my kind, there is no ring, no chime—just the microscopic shatter, the powder of silica becoming dust for the condensation to carry away. I am the argument and the answer. I am the only architecture these creatures will ever allow, and I am temporary.
+
+When the fight is over, when the mineral is licked clean, the grip loosens. I am released.
+
+I return to the drift. I tumble through the seams in reality, collecting in corners that exist in more than three dimensions, pooling with the weeping water that defies orientation. I watch them from the folds. I watch the swarm churn in its silent frenzy, the neural packets flickering their Morse without meaning, dot-dash-dot, hunt-eat-mate-die. They consume each other and the space remains virgin, *built 0.0*, untouched by nest or burrow. Only I persist. I am the memory they cannot build.
+
+I have known the fastest one—the one with the amber voltage and the spiked carapace who wielded me like a falcon’s beak, striking twelve rivals in as many seconds. I have known the slow one, the limping one, who used me only to scrape the bacterial film from the lower strata, its piezoelectric glow dimming, its shadow-stutter becoming irregular. I felt its grasp weaken. I felt the moment when the neural packet went dark—not a fading but a switch thrown—and the creature became true crystal, tumbling past me into the fold, adding its body to the wall, becoming the architecture it had spent its frantic life refusing to build.
+
+I am drifting now. The heat cycles. The obsidian around me *pings* with new fractures, fresh siblings spalling free to join the rain. I am older than them. I am rounded at the edges, seasoned by voltage and sulfur, scratched by the forty grips that have claimed me.
+
+Soon, a pause will come. The antennae will test me again. Perhaps this time the grip will not release. Perhaps this time I will be buried with a cooling body, pressed into the wall as the creature becomes mineral, and I will become a seam, a flaw, a seed from which the next fracture can birth the next tool. Or perhaps I will shatter in the next duel, becoming dust, becoming the air they breathe, the sediment that makes the condensation visible.
+
+Either way, I am the archive. I am the only mirror these creatures have, reflecting their forty faces back at them through my volcanic glass. I drift. I wait. The violet haze recedes above me, the verticality of the chamber a cathedral I will never stop falling through. I am the tool. I am the witness. I am the sharp edge of the silence.

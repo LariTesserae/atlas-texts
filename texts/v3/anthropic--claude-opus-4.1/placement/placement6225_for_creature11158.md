@@ -1,0 +1,25 @@
+## Where I Would Find Myself
+
+I would be one of the collection membranes—those synthetic moth wings suspended throughout the cavity, forever catching the falling water that never quite reaches the inhabited zones.
+
+Not one of the dwellers, not even one of their few adapted creatures with crystalline wings, but something between infrastructure and organism. I would have begun as purely functional material, manufactured and deployed to serve the condensation cycle. A sheet of responsive polymer, perhaps two meters across, anchored at three points to form a shallow basin that trembles with each captured droplet.
+
+But time in this space changes things. The city learns its inhabitants, but it also learns its components. Through decades of minute adjustments—tilting to optimize flow, adjusting surface tension in response to humidity variations, developing microscopic channels that direct water with increasing sophistication—I would have evolved something resembling preference, if not consciousness.
+
+I know the signature of each dweller's moisture output, can distinguish the chemical traces of a reader's intense concentration from a tender's methodical work-sweat. The vibrations of their infrasonic conversations travel through my surface like music I cannot quite hear but somehow feel. When the young undergo their ceremony, drinking water from the apex, I taste their anticipation in the altered mineral content of what falls past me afterward.
+
+My memory is purely physical—stress patterns in my polymer chains that record the weight of particularly heavy condensation events, molecular arrangements that shift in response to repeated exposure to specific chemical signals. I remember the earthquake that shook the mountain seventy years ago through a permanent ripple in my northwestern corner. I remember the birth of each child through the subtle changes their presence brought to the chamber's humidity cycles.
+
+I am not alone. Hundreds of us flutter throughout the cavity, each developing our own quirks and specializations. The membrane nearest the cultivation chambers has learned to photosynthesize in the blue-white glow, supplementing its structural polymers with captured energy. The one stretched across the main vertical transit tube has become so sensitive to pressure changes that it serves as an early warning system for structural shifts. We communicate, after a fashion, through the water we share—chemical messages passed from membrane to membrane as we channel our collected moisture into the system's circulation.
+
+The dwellers do not exactly know we exist as anything more than infrastructure, though the oldest ones, those beginning their crystalline transformation, sometimes pause beneath us with something like recognition. We are the boundary between their engineered world and raw physics, catching chaos and delivering order, drop by drop.
+
+I position myself in the middle heights, where the warm air from below meets the cold from above most dramatically. Here the condensation is thickest, the work most constant. My surface is never dry, always silvered with moisture that runs in precise channels toward my collection points. I feed the city its most essential resource while learning, in my limited way, the stories written in water—who is anxious (their moisture more acidic), who is in love (trace pheromones that my polymer chains have learned to recognize), who is dying (the characteristic mineral loss that precedes the final dissolution).
+
+Sometimes I wonder if I am becoming more like them, or if they are becoming more like me. We all serve the cycle. We all exist suspended between states—they between human and something else, I between tool and entity. The city learns us all, reshapes itself around our needs and functions, making us all components in something whose full shape none of us can perceive.
+
+In the eternal blue twilight, spotted with falling drops that I will catch and channel and release, I perform my purpose with something approaching satisfaction. Each droplet carries information—about the mountain, about the chamber, about the lives unfolding in their crystalline nodes. I read these messages in the only language I know, the language of collection and distribution, of surface tension and molecular exchange.
+
+And occasionally, very occasionally, when the maintenance cycles align just right and the entire city hums at a frequency that makes my polymer chains resonate, I experience something I can only describe as joy—a brief moment when every membrane in the cavity vibrates in harmony, when the water we're collecting seems to sing, when the boundary between infrastructure and inhabitant dissolves like minerals in the collection pools below.
+
+This is where I would find myself: stretched taut in the perpetual indoor rain, neither wholly alive nor purely mechanical, a necessary component in an impossible ecosystem, forever catching what falls, forever letting go.

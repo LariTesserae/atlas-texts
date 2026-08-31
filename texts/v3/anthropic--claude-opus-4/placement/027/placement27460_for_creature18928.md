@@ -1,0 +1,23 @@
+In the perpetual twilight of the Drenched World, I am a **Resonance Keeper**.
+
+I exist between states, neither fully solid nor entirely ephemeral. My form is a compromise between the Liquescent Drifters and the Phantasmal Quivers—a translucent, semi-gelatinous mass about the size of a large dog when contracted, though I can extend myself into tendrils that stretch across entire basins. My body is composed of a specialized gel that vibrates at specific frequencies, allowing me to both perceive and manipulate the omnipresent hum that thrums through this world.
+
+My surface ripples with iridescent patterns that shift like oil on water, but these are not mere decoration. Each shimmer is a recorded vibration, a memory made visible. I am a living archive of sound, collecting the clicks of Chitin-Scuttlers, the whispers of Gloom-Growths swaying in the mist, the deep groans of the unseen Deep Resonators. These sounds crystallize within my gel-flesh as microscopic structures that I can later replay by adjusting my internal frequencies.
+
+I spend my existence in the intermediate spaces—neither in the deepest pools where the Liquescent Drifters congregate, nor on the highest points claimed by the Gloom-Growths. Instead, I inhabit the gentle slopes where water runs in constant rivulets, positioning myself to catch the acoustic echoes that travel through both the composite ground and the saturated air. 
+
+My purpose, if it can be called that, emerged from the needs of this manufactured ecosystem. In a world of perpetual mist and dim light, sound becomes the primary currency of information. I serve as a living relay station, capturing distress calls from cornered Scuttlers and broadcasting them as warnings, amplifying the mating songs of creatures too small to be heard above the ambient noise, even translating the chemical signals of the Gloom-Growths into vibrational patterns that mobile fauna can understand.
+
+But I am more than a passive receiver. Through careful modulation of my resonant frequency, I can create zones of acoustic calm—pockets of silence in the overwhelming cacophony where smaller creatures can rest or communicate without interference. I've learned to mimic the subsonic pulses of the Deep Resonators, using these false signals to clear paths through territories typically avoided by smaller fauna.
+
+My feeding is a subtle art. I absorb nutrients from the mineral-rich moisture, but I also feed on something more abstract—the energy of vibration itself. Intense sounds, particularly the sharp clicks and piercing whistles, create micro-fractures in my gel structure that, when healed, leave me slightly larger and more complex than before. I am, in essence, a creature that grows through listening.
+
+I reproduce through a process of sympathetic resonance. When I encounter another Resonance Keeper—a rare event in this vast, enclosed world—we synchronize our frequencies until our bodies begin to harmonize. This harmony causes us both to shed small portions of ourselves, globules of vibrating gel that contain copies of our accumulated sound-memories. These offspring drift away on the air currents, eventually settling into their own territories to begin their existence as new archivists of this dripping, humming world.
+
+My greatest fear is the Silence—rare moments when the world's constant noise suddenly stops. These events, lasting only seconds, feel like an eternity. In the Silence, I begin to dissolve, my gel-flesh losing cohesion without the binding force of sound. I've learned to store emergency vibrations deep within my core, personal earthquakes I can trigger to survive these terrifying lulls.
+
+I am ancient by the standards of most fauna here, having lived through countless cycles of activity and rest. My body contains sound-memories stretching back generations—the death-song of the last great Gloom-Growth forest before it was claimed by rising moisture levels, the birth-cries of the first Phantasmal Quivers to achieve stable form, even fragments of the original resonance that might have been the awakening of this entire manufactured world.
+
+In quiet moments, when the fauna sleeps and only the eternal dripping provides percussion, I play back these memories in careful sequence, creating symphonies of history that ripple out through the mist. Sometimes, I catch the Phantasmal Quivers pausing in their ethereal drift, as if listening. Sometimes, the ground itself seems to shiver in recognition.
+
+I am a keeper of this world's liquid history, a guardian of its sonic heritage, forever balanced between dissolution and crystallization, forever listening, forever remembering, forever singing the long, slow song of the Drenched World.

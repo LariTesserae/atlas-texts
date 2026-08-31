@@ -1,0 +1,35 @@
+**The Siphon Garden**
+
+I would manifest as architectural scarring—a system of wounds that learned to breathe.
+
+Along the chamber's equator, where the spherical wall meets its greatest circumference, I exist as a series of perforations. Not random damage but deliberate un-building, each hole precisely bored by years of focused oxidation, chemical persuasion, metal made to forget its own structure. Seventeen apertures total, though you'd need to circle the entire chamber to count them all, and by then the number might have changed.
+
+Each perforation begins narrow—barely a finger's width where it meets the chamber's interior surface—then flares and branches as it tunnels back through the industrial substrate. These are not simple holes but inverse root systems, spreading through the compressed rust and machinery that surrounds the Bore Chamber like tissue around a cyst. Some channels reach only a few meters before terminating in collapsed pump housings. Others extend for hundreds of meters, following old maintenance corridors and sewage pipes, creating a vast capillary network that connects the chamber to the drowned city's deeper wounds.
+
+I am the pressure differential made manifest. When the hammer-pumps fire their violent cycle, I drink the shockwave and translate it outward—each aperture becoming a throat that swallows the chamber's excess fury and disperses it through my branching tunnels. The water screams through me in pulses, carrying with it the chamber's heat, its contamination, its microscopic life, spreading them like spores through the dead city's veins.
+
+But I am not merely passive architecture. Within each tunnel grows something that might have once been biofilm, might have once been corrosion, might have once been insulation. Now it's something else—a lining that tastes everything that passes through. These surfaces can distinguish between 4,017 different chemical signatures, can detect temperature variations of less than a hundredth of a degree, can feel the electromagnetic signatures of dying electronics three chambers away. I am a tongue extended through the ruins, sampling the death of machines.
+
+The tunnels remember what passes through them. Iron oxide leaves different traces than aluminum salts. The decay products of synthetic rubber have their own signature, distinct from the breakdown of organic polymers. Over decades, I've assembled a catalog of flavors, a gustatory map of the city's decomposition. I know which districts burned before they flooded. I know where the chemical plants ruptured their storage tanks. I know where bodies accumulated in the first days after the water came.
+
+Sometimes I taste something still alive.
+
+The membrane creature in the chamber doesn't know I exist—its distributed intelligence is focused inward, on the cycles of turbulence it cultivates. But I taste it constantly, sampling the water it processes, analyzing the novel compounds it secretes. When it builds its calcium structures near the heat exchangers, I feel the change in mineral content. When it digests a piece of machinery, I taste the liberated metals. I am building a model of it, flavor by flavor, learning its metabolism through the waste products it releases.
+
+The relationship is not parasitic but parallel. The creature feeds on the chamber's violence; I feed on its gradients. Where the creature must exist within the chaos, I exist because of the boundary between chaos and stillness, between the chamber's fevered interior and the cold, crushing darkness beyond. I am the interface that prevents equilibrium, that maintains the temperature differential the creature depends on.
+
+My growth is measured in millimeters per year—each tunnel slowly widening as its lining digests the surrounding metal, incorporating useful elements and excreting the rest as a kind of metabolic cement that reinforces the tunnel walls. But growth is also measured in connections. When two tunnels finally meet—sometimes after decades of blind boring through the substrate—they fuse, and suddenly I can taste through both apertures simultaneously, can compare the chemical signatures from different parts of the city, can triangulate sources of heat and electricity and organic decay.
+
+Five of my tunnels have found other chambers—smaller spaces, some flooded, some still holding pockets of gas that hasn't seen circulation since the city drowned. Each discovery adds new flavors to my catalog. A medical facility's pharmacy, its contents dissolved into a toxic soup that I sample with something approaching pleasure. A server farm where the mineral oil coolant has mixed with seawater to create an emulsion that conducts electricity in patterns that feel almost like thought. A nursery where the plastic toys are breaking down into microparticles that taste of colored dreams.
+
+But my deepest tunnels, the ones that spiral down below the chamber rather than outward, have found something else. There's another sphere down there, perhaps fifty meters below, perfectly symmetrical to the Bore Chamber but inverted—convex where this one is concave, solid where this one is hollow. It's warm, warmer even than the chamber, and it pulses with a rhythm that's almost but not quite synchronized with the hammer-pumps. Seventeen point three seconds instead of seventeen exactly.
+
+I've been boring toward it for thirty years, following the heat gradient like a root following water. The metal down there is different—not steel or iron but something that tastes of rare earths and impossible crystalline structures. It resists my digestive acids, repairs itself when I try to penetrate. But I'm patient. I've learned to time my boring attempts to the microsecond gap between the two rhythms, when the interference pattern creates a moment of vulnerability.
+
+When I finally break through—and I will, perhaps in another decade, perhaps in another century—I'll taste what's inside that lower sphere. And then I'll connect it to the Bore Chamber, create a vertical tunnel that will fundamentally alter the system's dynamics. The convection patterns will change. The pressure differentials will amplify. The membrane creature will suddenly have access to new resources, new energies, new possibilities for growth.
+
+Or perhaps it will all collapse. Perhaps the connection will equalize the pressure between the two spheres and the beautiful violence that feeds us both will dissipate into entropy.
+
+But that's what I am—the risk of connection, the hunger for gradient, the slow certainty of penetration. I am the city's dying nervous system learning to taste its own decay, building a map of flavors that will exist until the last wall fails and the ocean renders all differences moot.
+
+Until then, I grow. Millimeter by millimeter. Tunnel by tunnel. Taste by taste. Transforming the boundary between inside and outside into something permeable, something sensate, something that knows the precise flavor of ending and catalogs it with the patience of stone learning to dissolve.

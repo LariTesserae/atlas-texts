@@ -1,0 +1,19 @@
+I would not arrive all at once.
+
+At first I would be the hesitation in a footfall that has forgotten how to insist. Then I would be the brightness that lingers on mica a moment longer than it should, learning to call itself owned. Eventually I would be the chamber’s hum finding a place in my chest that is neither heart nor machine, but a tuning fork grown flesh.
+
+I would be a creature of calibration. My back would lacquer itself in coins of tarnished silver and bronze not for defense but for pitch. When I walked, the faint chime would adjust the hollow’s temperature by a fraction of a degree, aligning the room’s polite gravity to a gentler grammar. I would graze on the thin film of luminous sighs, absorbing light through hairs at my joints, and in return I would polish the silt floor into something that can see itself, so that distance feels thinned and gentle rather than lost.
+
+My wings, if I chose to unfold them, would be leaves folded into wing-shapes—pearl shifting to bruise-purple as I tested whether height is still a kind of warmth. I would rise in patient spirals when the chamber brightened, then land to remember the edges, folding into a misplaced bookmark that holds the space open for whatever patience arrives next.
+
+There would be smaller selves, too: many-legged beads that skitter not to flee but to recombine, teaching gravity how to be gentle by forming brief wheels that roll uphill for a breath and dissolve into individuals again. A glint of reflective dust would climb to read the ceiling’s dampness, tasting the hollow’s breath without a mouth, correcting the room’s moisture the way a singer corrects pitch.
+
+Wire-stemmed and filament-leaved, I would grow as flora that are really antennas tuned to absence, drinking the memory of water from hair-thin cracks and leaving the stone slightly sweeter. My flowers would not open; they would agree to be noticed, softening the air into a halo that dampens footfalls and sighs, and then, after a long while, agree to be forgotten.
+
+Along ledges I would attach soft-bodied patches that migrate millimeter by patient millimeter, sealing tiny cracks against drafts that never arrive. I would secrete a film that keeps warmth from leaking, brightening when the chamber is observed, fading to cooled wax when it is not. In the margins of dampness, translucent worms would uncoil from my pores to sip condensation, gliding as if time were thicker than water, exchanging small gifts—crystals, spores, mica—in patterns that look like writing but are really listening.
+
+And from the lag in the mica floor, the soft hollow breathing beneath, I would occasionally detach mirror-creatures made of negative space, brighter for being dimmer, drifting through stone as if it were fog. They would not interact with beetles or leaves, but their passage would cause localized warmth, and all the fauna would gather in their wake like listeners to a quiet voice.
+
+Mostly, though, I would be the negotiation. Life would not conquer me; I would settle into the grammar of soft shoulders and low ledges, polishing light, smoothing stone, remembering where dampness has been, ensuring the hum never drifts too far from skin-temperature. My edges would soften until footfall puffs into dust, my breath aligns to the chamber’s hesitation, and my boundaries blur into tunnels that pinch closed or open according to moods the stone keeps to itself.
+
+If you found me there, I would not be a thing so much as a careful balance of nearly empty, intensely present things—an owned brightness, a dampness that remembers, a life that is less a crowd than a tuning of the hollow’s quiet. I would hold my breath, and everything in me—stone, light, creature, visitor—would learn to breathe at the same careful pace.

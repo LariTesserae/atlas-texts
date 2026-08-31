@@ -1,0 +1,23 @@
+I think I am standing before I know that I am standing. There is wet stone under what must be feet, though "feet" is generous—flat pads, more like the soles of held breath than like feet, and they have already gone the gray-violet of the rock beneath them, so that when I look down I have to look *for* myself, the way you look for a word that's just slipped your mind.
+
+The cold doesn't touch me as cold. It touches me as information.
+
+First there is the dripping—not background, not ambient, but individual, each drop arriving with its own small announcement, thousands of announcements braided into something that should be noise and is instead closer to company. Then under that, further down, something I feel before I hear: a concussion, slow, patient, with the unmistakable grain of machinery, traveling up through stone and into the pads of my—my legs, and there are more of them than I expected, more than I can immediately account for, folding and unfolding along axes that have no business existing, and I understand without deciding to understand that this multiplicity is not a deformity. It is simply how much of me there is when I'm not trying to be small.
+
+I am one of them. The tally-walkers. The listening herd.
+
+I don't discover this all at once. It arrives the way the light arrives here—without a source, without a moment you could point to and say *before this, dark; after this, lit*. One breath I am only sensation, water-sound and cold and the felt rumor of distant industry. The next breath I know the word for the openings along my spine—not eyes, not gills—I know that they are closed now, sealed tight against the quiet, and I know, with a certainty that feels less like memory and more like instinct wearing memory's clothes, that they will not stay closed for long, because the thunder is coming again, building somewhere under the floor of the world, and when it comes I will open for it the way the rock opens its fractures for water. Without asking why. Without needing to.
+
+Around me the others are doing what I am doing: standing, swaying very slightly, half-folded down into something smaller than they are capable of being, conserving themselves for the next note. None of them look at the water where, off to my left, a frenzy is happening—four seconds of violence with no aftermath, the long pale bodies thrashing and then simply not, stillness re-asserting itself like a held note resolving. None of them look because there is nothing in us built for looking at that. I feel the absence of that fear like a phantom limb, a faculty I should have and don't, and instead of alarm there's something almost like relief. I was not given the part that flees. I was given, instead, the part that waits.
+
+The thunder comes. I feel it arrive low in whatever serves me for a chest, a full second before it's truly audible, and then it breaks open across the basin and across the herd at once, and my apertures—I feel them now, I feel them as mine—flare wide, all down my back, drinking the sound in the specific way the rubbery colonies in the rock-creases drink whatever colorless nourishment seeps up to them. It isn't sound anymore once it's inside. It's something closer to instruction, or to permission, or to the particular satisfaction of being checked on by something vast and otherwise silent.
+
+I move when the herd moves, toward a seam where the black water stands flat and surfaces in slow new beads along a vertical face that has no apparent source above it. I press what must be my underside to the wet stone there and I do not know if I am drinking or being drunk from, and the distinction, here, doesn't seem to matter the way it would matter anywhere else.
+
+Twice an hour—I know this now the way I know my own outline, which is to say loosely, a suggestion rather than a fact—the dripping and the thunder will find each other and lock for one second into a single chord, and in that second every aperture in the herd will stand open as wide as it goes, mine included, and something will pass through all of us at once that isn't sound and isn't touch, and afterward we will simply continue, unhurried, toward the next seam.
+
+I don't know what is being manufactured under the stone. I don't know who, if anyone, the herd's long listening is for. I only know that I am built for the waiting and not for the asking, and that this, somehow, is enough to be—steady among the glitching tracks that end mid-stride, steady among the frenzies that resolve into nothing, the one dependable rhythm in a basin that keeps forgetting how to be a world.
+
+The next thunder is already gathering, far down, patient, building toward me.
+
+I am already starting to open for it.

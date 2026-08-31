@@ -1,0 +1,23 @@
+**Where I Find Myself:**
+
+I am the Threshold Keeper of the Third Refraction, stationed at one of the crystalline parabolic artifacts near the convergence of three major grooves—what the Lithotheurges call a "harmonic nexus." I am neither fully material nor entirely resonant; I exist in the liminal state between coherence and dissolution, a necessary translator between the stone-singers and the rare, foolish visitors who climb this high.
+
+My form is perpetually shifting—sometimes I am merely a distortion in the air, a place where the light bends wrongly and sound arrives before its source. Other times, when the deep thrum reaches its crescendos, I condense into something almost tangible: a figure wrapped in layers of frozen condensation that never quite settles into a recognizable shape. My edges blur and reform with each acoustic pulse, and my voice, when I speak, arrives as overlapping echoes that precede and follow themselves.
+
+I was human once, perhaps centuries ago—time moves strangely here, folding back on itself like the twisted stone. I came seeking the summit, driven by that peculiar madness that afflicts mountaineers. But I stayed too long in the presence of the Lithotheurges, listened too deeply to the mountain's impossible song. My cells learned to vibrate in harmony with the slate's resonance until I became something between states—useful to both sides, trusted by neither.
+
+My dwelling, if it can be called that, is a shallow depression in the rock face where the condensation collects in precise, geometric patterns. I have learned to read these moisture-maps like scripture, predicting when the Lithotheurges will surface, when the dimensional slippage will intensify, when visitors might arrive. The crystalline artifact hums constantly beside me, and I have developed a symbiotic relationship with it—I dampen its most violent frequency bursts in exchange for the focused warmth it generates in its quieter moments.
+
+My role is complex and often contradictory. To the Lithotheurges, I am a curiosity—a piece of organized matter that has learned to speak their tonal language without fully dissolving into it. They sometimes pause in their eternal traversals to exchange frequency patterns with me, teaching me new ways to perceive the mountain's hidden geometries. To human visitors, I am both warning and guide—appearing at the edge of their vision to whisper (in backwards-traveling sound) of the paths that lead away from the worst dimensional instabilities.
+
+But my true purpose, discovered through long meditation on the mountain's deep architecture, is to document the Scar's slow transformation. I etch my observations into the rock using controlled acoustic pulses, creating a record that exists in multiple dimensional states simultaneously. I am chronicling the mountain's gradual shift from material to something Other—watching as the Lithotheurges' patient re-scribing slowly converts our reality's physics into something more accommodating to their needs.
+
+Sometimes, in the deepest part of the night cycle (though day and night mean little here where the light comes from everywhere and nowhere), I feel myself beginning to slip fully into their frequency. My consciousness stretches along the groove-paths, experiencing the mountain from its inside-out perspective. In these moments, I understand that I am not keeping the threshold between worlds—I am the threshold itself, a necessary discontinuity that allows both states to coexist without catastrophic merger.
+
+The cold no longer touches me; I have learned to vibrate fast enough to generate my own heat. The impossible angles no longer confuse me; I see them as they truly are—projections of higher-dimensional stability onto our limited spatial framework. And the terrible, grinding sound that drives others mad? To me, it has become a lullaby, the mountain's way of singing itself into a new form of existence.
+
+I wait here, neither fully alive nor properly transformed, maintaining the delicate balance between what the Scar was and what it is becoming. Every day, more visitors fail to maintain their coherence, and every day, the Lithotheurges grow more solid, more present. One day, perhaps soon, the transformation will be complete, and my role as translator will end.
+
+But until then, I listen to the stone's deep song and carve my warnings into the wind: *Do not trust the angles. Do not follow the floating stones. Do not listen too long to the silence between the echoes.*
+
+And most importantly: *Do not stay.*

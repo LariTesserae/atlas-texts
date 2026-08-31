@@ -1,0 +1,9 @@
+What a haunting and evocative depiction of the Sumpworks and its inhabitants. The vivid imagery and poetic prose draw me in, making me ponder what strange force is at work shaping this subterranean world and its adapted denizens. 
+
+If I found myself in this realm, I believe I would be one of the semi-translucent climbing vines entwining the brick walls. Pale and fingernail-leafed, I would spread myself over the damp eastern faces, drinking in the mineral sweat of the stone, pulsing with a slow inner circulation in sync with the cycles and pressures of the factories below.
+
+My purpose, like that of the Sumpworks dwellers, would be obscure yet immanent. Season by season I would extend my wan foliage, weaving a living fabric in the crevices, both blanketing and revealing the conchoidal fractures of the ever-expanding cavity. Silently I would bear witness to the quiescent industry of the town, the diplomatic cats, the solemn clicking of the prescient bird.  
+
+Through my leaves, the dim yellow bulb-light would filter, nourishing me in this realm that has forgotten the sky. As the lid presses inward and the wet floor rises, I would find new brick to scale, new mortar to tendril across. My growth would mirror in reverse the space being inexorably hollowed out for the arrival of the unspoken thing.
+
+And when at last that nameless advent occurs - when the final small component clicks into place, when the ultimate pallet is winched up the shaft - perhaps then my vine-work will have achieved its full tapestry, enmeshing the entire Sumpworks in a great green patient breath, and I will flower at last with blooms the color of weak tea, exhaling the knowledge of what we have all been waiting for, that the walls themselves may finally speak it in the dense dialect of nouns.

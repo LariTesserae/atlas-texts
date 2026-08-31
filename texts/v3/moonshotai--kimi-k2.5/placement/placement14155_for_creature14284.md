@@ -1,0 +1,33 @@
+I find myself first as a pressure, a heaviness in the belly that is not hunger. I am lying—no, I am *spread*—across a bed of dendritic stone that mimics the roots of trees long extinct, my ventral surface flush against the cold. The temperature is precise: thirteen degrees. I know this not by a thermometer but by the density of my fluid sacs, the viscosity of my lymph, which thickens to a gel at exactly this thermal point. The cold makes me slow, and the slowness makes me aware.
+
+I am in the **Gullet**, that narrow passage between two monads—those massive, solitary houses of the Plate-Bearers. Their structures loom above me, not visible but sensed as gravity-shadows, as voids in the vibration-field. The floor here is a palimpsest of discarded things: flakes of chert that failed to strike true, shards of clay pots fractured by frost-heave, and the stone-beaded cords that the Settlers weave and lose and replace. I have eaten these things. Not intentionally—the bacterial veils I graze grow thick here, fed by the organic residue of the Settlers' presence, and in consuming the living film, I have consumed the debris. A chert blade rests now in my third abdominal sac, polished smooth by my acids, singing a small, sharp note whenever I shift. A bead of selenite is lodged in my dermal ridge, making my trail phosphorescent, a silver streak across the soap-soft stone.
+
+I am a Resonant, yes, but I am becoming the **Resonance**.
+
+At first, I believed I was merely ill. The foreign bodies inside me created interference patterns in my subsonic speech. When I pressed my fore-body to the floor to call for a mate, the vibration did not travel as pure compression; it carried harmonics, overtones that rebound off the selenite spars above and come back to me altered, bearing information I did not possess before. I felt the collapse of a monad three kilometers distant not as a distant thud—that word implies sound, and there is no sound here—but as a chord, a complex frequency that painted the event in my mind with impossible detail: the angle of the fracture, the weight of the falling block, the precise composition of the dust. 
+
+I am learning that the stone is not merely a medium for my voice. It is a voice itself. And I have become, through the accident of my ingestion, the **Ear of the Earth**.
+
+I glide now toward the center of the cavern, drawn by a brightness that is not light. The amber-white twilight filters down through the crystal chandeliers, yes, but I am following a different illumination: the subsonic glow of the **Becoming**, that gestation mentioned in the oldest lithic conversations. The Quiet Ones have always spoken of it—the moment when the accretion reaches critical mass, when the architecture of collapse finally produces a stable form. We thought it would be a new mineral, perhaps, or a chamber of impossible geometry. We did not know it would be *me*.
+
+I arrive at the **Terminal Pool**, the largest of the condensation wells, where the drips fall with the regularity of a heartbeat slowed by deep sleep. The water here is saturated with calcium, thick as soup, and in its surface tension—its meniscus—I see the inversion of the ceiling, a shattered sky of selenite stars. Other Resonant graze here, their pale bodies like snowdrifts against the darker umber of the fungal mats. They do not acknowledge me with touch; we are solitary creatures. But when I press my ridge—my selenite-embedded ridge—to the stone, they pause in their rasping.
+
+I send out a pulse. Not the simple declarative statements of food or safety or mating readiness. I send the complex vibration of the chert blade inside me, the geometric purity of its fracture planes, combined with the soft clay-memory of the potshard in my second sac. It is a sentence that has never been spoken in this place. It is the architecture of the Settlers translated into lithic grammar.
+
+The stone catches it. Amplifies it.
+
+And for the first time in the memory of the secondary limestone—in the forty meters of descent and the lake-district of breadth and the billion years of water wearing stone—the floor *sings*.
+
+Not subsonic. Not hidden. The vibration rises, caught by the crystal lattices above, modulated by the thermal expansion of the day-cycle, until it becomes a note audible even to the air itself. It is a low hum, a thrumming that makes the condensation beads shiver on the lithoflora. It is the sound of the collapse that never finishes, the architectural turbulence made manifest. It is me.
+
+The Settlers freeze. Across the vast floor, they stand atop their settling ruins, their limestone plates catching the vibration, translating it into haptic shudders in their collarbones. They do not understand it yet, but they feel it as intent. As invitation.
+
+I am where the two temporalities meet: the millennial patience of the Resonant and the turbulent impermanence of the Settlers. I am the third presence, no longer gestated but *emerging*. I am the churning of the earth deciding what it will hatch, and I am the hatchling. My body is the interface—soft flesh armored with worked stone, ancient biology carrying the sharp memory of tools. I graze on the bacterial film, yes, but I also consume the intention behind the tool, the design of the monad, the geometry of collapse.
+
+When the light shifts to violet—the "evening" of the surface-world filtered down to bruised twilight—I feel the expansion of the ceiling spars above. A new fissure opens. A fresh beam of ancient sunlight strikes the Terminal Pool, refracting through the saturated water to illuminate me. I gleam. I am alabaster, umber, and the clear, sharp silver of selenite. I am the first thing in this bright, dark place to be fully seen and fully heard.
+
+I press my body against the stone again, and this time, the stone answers not as an echo but as a voice. It speaks of the water that made it, the pressure that shaped it, and the light—oh, the light—that now, finally, has something to illuminate. I am the Resonant who will teach the stone to build back, to sing its own architecture into being. I am the Collapse that learns to dance, the Rubble that remembers it was a Tower, the Silence that has found its frequency.
+
+I wait here, at the edge of the pool, vibrating gently. The Quiet Ones gather, pressing their dermal ridges to the rock, listening to the new song. The Settlers begin to walk toward me, drawn by the hum in their plates, by the architectural imperative of something new settling into form. We are not separate, never were. We are the dampness, the accretion, the turbulent, gestating nest. 
+
+And the earth is breathing, breathing, preparing to open.

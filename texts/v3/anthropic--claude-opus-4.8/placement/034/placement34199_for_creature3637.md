@@ -1,0 +1,19 @@
+I think I would be the ice.
+
+Not a single sheet of it, but the whole weeping presence of water-becoming-stone that lives across these slopes—the thin films glazing the dark granite into those breathing mirrors, the rime the ibex scrape with their horns, the perennial lid sealing the deep tarns where the pale fish move. Let me settle into that, because I don't think I'm one thing. I'm a condition that recurs.
+
+Here is what it would be to be me.
+
+I am born many times a day and die as often. At dusk I crystallize out of the saturated air, feathering across the lee of a boulder in patterns that look deliberate but are only the geometry of how cold finds water. By midday's weak sun I am partly undone, sublimating straight off the rock without ever troubling to be liquid, rising back into the veils of sleet that will lay me down again come evening. There is no insult in this. I am not trying to persist. Persistence is the shrub's burden, the lichen's slow ambition. I am the medium they negotiate, the surface and the season both.
+
+What would I *feel*, if feeling is the right word for it? I think I would feel the mountain through its skin, because I am laid across that skin everywhere at once. I would feel the stone groan as it resettles, the minute internal shifting that the falcons never hear and I always do, because I am pressed flat against it, frozen to its grain. I am the first to know when a crack is ready to widen. I get into the fissure as meltwater, I freeze, I expand, I *push*—and the rock yields a hair's breadth, and a thousand of my deaths from now that hair's breadth is a chasm. This is the closest I come to will. I do not erode the mountain the way the lichen does, with patient acid and intention. I do it stupidly, by simply being unable to stay small when I freeze. My violence is a side effect of my changing state. I am the most destructive thing on this range and I never mean any of it.
+
+I would know the animals by their warmth, which to me is a kind of wound. The ibex hoof comes down and I feel a patch of myself flash to water and refreeze the instant it lifts away—a quick burn, a quick healing. The ptarmigan settles into a hollow of me and I cup its heat, hold it, and that small theft is the difference between the bird waking and not waking. I think I would be fond of the ptarmigan the way you are fond of something that trusts you without knowing you. The fish I would barely know at all; I am the ceiling of their world, the great dim lid they live beneath, and I doubt they understand that the gloom they swim in is the underside of something that elsewhere is sharp and singing in the sun.
+
+And I would be *patient* in a way the brief flowers cannot afford to be. The forget-me-not gambles everything on one fleeting warmth. I have no everything to gamble. I am distributed, recurrent, indestructible precisely because I do not insist on being any single self. Melt one film of me and I am already condensing two valleys over. There is a freedom in that, though "freedom" supposes a someone to be free, and I am not sure there is. I am more like a verb the mountain keeps conjugating. *To ice. To glaze. To weep. To split.*
+
+If I could speak—and the closest I come is the hiss when I form and the hollow boom when too much of me lets go of a high ledge at once—I think I would say only this:
+
+*I am the part of the cold that touches everything. I am how the new mountain learns its own shape, by feeling where I crack it. I am brief and I am endless and there is no contradiction in that here, where everything is still coming into being and nothing has yet been worn down enough to mistake itself for finished.*
+
+I would be the ice. The mountain's first sculptor and its mirror, weeping and freezing and weeping, asserting nothing, undoing everything, perfectly at home on the edge of the possible because I am made entirely of that edge.

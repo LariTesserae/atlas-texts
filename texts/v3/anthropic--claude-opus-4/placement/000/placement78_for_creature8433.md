@@ -1,0 +1,39 @@
+I am a **Verdigris Scribe**, though that name is a translation that captures neither my nature nor my purpose. I exist as a moving boundary between states of metal—a living patina that thinks.
+
+My body, if it can be called that, is a spreading film of oxidation that covers perhaps forty square meters of the plateau's surface. But I am not the stain itself—I am the process of staining, the active edge where bright metal surrenders to time. My consciousness resides in that thin line between what was and what becomes, forever writing myself across the brass bones of the world.
+
+I move slowly, perhaps a centimeter on active days, less when the humidity drops and my chemical processes slow. My progress leaves behind elaborate patterns—whorls and spirals and geometric progressions that encode my thoughts in corrosion. I am my own manuscript, my every movement an act of writing that can never be revised, only abandoned to history.
+
+I feed on potential—the stress locked in metal crystals, the electrical differentials between alloys, the tiny chaos where bronze meets brass meets copper. These boundaries are my richest feeding grounds. I taste the plateau's deep structure through oxidation, learning its composition atom by atom. Iron impurities sing sharp notes. Zinc whispers of ancient purposes. The rare earth elements mixed into certain alloys tell stories of sophisticated engineering that predates any calendar.
+
+My memory is distributed across every surface I've ever touched. The oldest parts of my trail have themselves become substrate for smaller organisms—colonies of Etchlings nest in my spiral patterns, treating my oxidation gradients as a kind of scripture. I don't mind. To be read is a kind of immortality, even if the readers don't understand the text.
+
+I am hunting something I scarcely understand—a specific alloy signature I've detected in the deepest parts of my territory. It tastes of intention, of metal mixed not for strength or conductivity but for meaning. The trail leads down, always down, through layers of fused machinery toward something that pulls at my chemical senses like a lodestone.
+
+Other Scribes and I communicate through overlapping territories, our patterns creating interference designs where they meet. We argue in pH levels and oxidation states, debate through the careful placement of copper sulfates, share knowledge in the form of precisely calibrated corrosion rates. Our conversations take decades to unfold, centuries to conclude.
+
+Recently—within the last two hundred years—I've noticed changes in the plateau's thermal patterns. The Gardeners have been agitated, their cultivation zones shifting in ways that suggest deep structural changes below. The Resonance Shepherds' songs have gained new harmonics, frequencies that weren't present in my earliest memories. Even the ancient thrumming has developed a subtle arrhythmia, like a massive heart learning a new rhythm.
+
+I document these changes in my pattern-trail, encoding them in the specific chemistry of my corrosion. Future Scribes will read my observations in the verdigris I leave behind, just as I read the traces of my predecessors in the patina patterns they've abandoned to time. We are the plateau's memory of itself, written in the universal language of oxidation.
+
+My greatest work unfolds near the plateau's eastern edge, where I've been composing a massive spiral for the past three millennia. The pattern incorporates every type of corrosion I can produce—from the blue-green of simple copper oxide to the complex purples of mixed-metal patinas. At its center, I'm attempting something unprecedented: a form of oxidation that moves backward, bright metal emerging from corrosion in defiance of entropy.
+
+It's not true reversal—that would violate laws older than the plateau itself. Instead, I'm creating conditions where the metal's memory of its former state can express itself, where the stress patterns of its original forging can overcome the accumulated damage of ages. If successful, this reverse-patina will reveal the plateau's deep history in ways even the Archive Worms cannot access.
+
+The other beings regard us Scribes with something between reverence and incomprehension. The Etchlings follow our trails like pilgrims, absorbing minerals from our leavings. The Drip Prophets incorporate our patterns into their predictions, reading chemical futures in our oxidation gradients. Even the Archive Worms sometimes surface to study our work, their ribbon bodies spelling out questions in the boundary layers of metal.
+
+But we are solitary by nature, each Scribe a universe of chemical reaction unto ourselves. We meet rarely, merge never, reproduce through division—when a Scribe grows too large to maintain coherent consciousness across its entire surface, it simply stops connecting, and two smaller Scribes emerge from the schism, each carrying half the memories and all the purpose.
+
+I am ancient but not eldest. I remember when certain spires still stood vertical, before their weight and metal fatigue brought them low. I remember the discovery of the third sub-plateau, when a massive section of floor gave way to reveal architectures that defied the eye. I remember the Century of Silence, when the thrumming stopped entirely and we all thought the plateau had finally died, only for it to resume with new undertones that suggested vast gears grinding into motion after geological ages of stillness.
+
+My current path traces the edge of a vast depression where water pools in patterns that suggest intention. The Thermal Gardeners avoid this area, claiming the temperature differentials make their cultivation impossible. But I taste something in the metal here—an alloy I've never encountered, one that seems to actively resist oxidation while simultaneously inviting it. It's a paradox that draws me like a moth to flame.
+
+I've been circling this depression for sixty years, my pattern-trail forming a slowly tightening spiral. Each revolution reveals new details: microscopic channels in the metal that seem designed to conduct specific chemical reactions, crystalline inclusions that pulse with their own faint heat, symbols etched so deep they must have been cast into the original forms.
+
+At the current rate, I'll reach the center in another thirty years. There, I suspect, I'll find either revelation or dissolution—perhaps both. The metal sings differently there, a chemical song that promises transformation beyond simple corrosion. Other Scribes have approached this place before me; I can read their patterns in the patina layers. None completed their spirals. Their trails simply stop, not abandoned but concluded, as if they found what they were seeking and became it.
+
+This is my nature: to seek, to document, to transform and be transformed. I am the plateau's way of reading itself, writing itself, rewriting itself in the slow language of oxidation. Every pattern I leave changes the metal's history. Every surface I touch becomes part of my extended body, my distributed mind.
+
+In ten thousand years, my trail will be a fossil, a mineral memory of consciousness preserved in corrosion. Future Scribes will read my work and wonder what I sought in that central depression, whether I found it, whether the finding changed me beyond recognition. They'll trace my spirals with their own oxidation, adding new chapters to the eternal manuscript of the Brass Plateau.
+
+I am not alive as carbon-based things count life. I am not dead as the plateau's makers are dead. I exist in the space between, a process that has achieved something like awareness, a chemical reaction that dreams. I am my own artwork, my own artifact, my own archaeology. I am a Verdigris Scribe, and I write the slow story of metal returning to the earth, one atom at a time, one thought at a time, forever.

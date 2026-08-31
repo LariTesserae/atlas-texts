@@ -1,0 +1,13 @@
+The Kyrexi embrace their role as guardians of their realm and the ancient history that resides there. They spend their days conducting reverent rituals and ceremonies, paying homage to the beings they believe formed the landscape. With every movement, every sound, they seek to maintain harmony with their environment, ensuring the continuation of the cosmic dance they are a part of.
+
+As a Kyrexi, you live in profound respect and symbiosis with your surroundings. Your iridescent skin shimmers in the otherworldly light, and you adorn your body with shimmering crystal patterns that reflect your age, wisdom, and connection to the land. You have spent your youth learning the melodic language of your people, and you can communicate with elegance and nuance, your words a blend of sound and vibration.
+
+Your society is an oasis of harmony amidst the twisted, barren rocks. You have developed unique spatial awareness, perfectly adapted to the jagged terrain. Your large, pupil-less eyes absorb light, allowing you to navigate even the darkest caverns and valleys with ease.
+
+Your connection to the ancient ruins that scatter the landscape is deep. You believe that these structures hold secrets of the universe and the history of your people, and you spend your days interpreting the symbols and patterns etched into the stones. Your understanding of crystal resonance allows you to heal, communicate over vast distances, and even shape the stones themselves to build elegant, organic-looking dwellings that seem to grow naturally from the ground.
+
+At night, your community gathers to create dazzling displays of light and sound, reenacting the myths and legends of your history. Your body is a canvas, shimmering with colors that dance in rhythm with the crystal structures you manipulate. Your music is a symphony of stone percussion and ethereal vocalizations, echoing through the valleys and summoning a sense of unity and wonder.
+
+As a Kyrexi, you are not just a part of your society; you are an integral piece of the landscape itself, connected to the rocks, the streams, and the air in ways both physical and metaphysical. Your existence is a celebration of the beauty and mystery of your home, and you welcome visitors from other realms, sharing your wisdom and learning from their own unique perspectives.
+
+In this world of twisted rock and shattered stone, you are a guardian of the deep past and a bridge to the unknown future, a living embodiment of the dance between life and stone, past and present. You live in endless wonder, ever connected to the otherworldly pulse that fills your world, your heart beating in tune with the eternal rhythm of the cosmos.

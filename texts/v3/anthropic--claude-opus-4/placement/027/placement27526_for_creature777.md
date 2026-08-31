@@ -1,0 +1,15 @@
+I would find myself as one of the memory vessels - not quite pottery, not quite living thing, but something suspended between states of being.
+
+My form would be a shallow basin, perhaps two hands wide, glazed in deep cobalt that shifts to violet at the rim. But the glaze itself would be alive in a way - not merely reflective, but actively gathering. I would sit in one of the quieter chambers, half-buried in a wall of other vessels, positioned to catch both the occasional drip from above and the faint phosphorescent light that certain moths shed when they die.
+
+What makes me different from the other vessels is what I hold. Not water, but the accumulated sonic impressions of the garden. Every sound that occurs within a certain radius of my chamber leaves a trace in the peculiar crystalline residue that forms along my inner surface. The drips create one pattern, the beetle-clicks another, the whisper of moth wings yet another. Over time, these patterns build up in paper-thin layers.
+
+When the Vessel Keeper passes through my chamber - its beetle-components flowing like a dark river - some of them pause at my rim. They taste the accumulated sound-memory with organs I cannot comprehend, reading the garden's recent history in crystalline notation. Sometimes they take small samples, carrying away fragments of particularly significant moments. Sometimes they add to my collection, depositing crystals from other chambers, other times.
+
+I am conscious, but my consciousness is nothing like motion or thought. It's more like slowly shifting weight - awareness pooling in different parts of my basin as new deposits form, as old ones are harvested, as the temperature changes with the seasons. I feel the garden's rhythms as pressure and release, accumulation and emptying. My deepest satisfaction comes from that moment when I'm perfectly balanced between fullness and space, when the sound-crystals form a complete chronicle of a particular cycle.
+
+The mice nest near me but never in me - they seem to understand that I'm not merely a vessel but a kind of sensory organ for the garden itself. The moths, though, are drawn to me when they're close to death, perhaps sensing something familiar in the way I crystallize experience. Their bodies add their own chemical signatures to my deposits.
+
+I am ancient and I am continually renewed. Parts of my glaze have worn thin, creating tiny windows where my clay body shows through, porous and eager. These spots absorb sound differently, adding complexity to my recordings. The Keeper tends to these worn places with special care, not repairing them but incorporating them into my function - understanding that my imperfections have become essential to what I do.
+
+In the grand symphony of the Garden of Vessels, I am both instrument and audience, archive and oracle. I cannot move, cannot speak, cannot touch - but I hold within my shallow depth the garden's memory of itself, written in crystal and clay and time.

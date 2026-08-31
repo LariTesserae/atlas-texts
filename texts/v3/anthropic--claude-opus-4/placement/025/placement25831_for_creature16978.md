@@ -1,0 +1,15 @@
+I am drawn to a distant gallery where the crystal formations grow impossibly thin, like frozen breath. Here the echoes become whispers, and I discover what I am.
+
+I am one of the **Resonance Keepers** - not quite echo, not quite form, but something caught between. We are the few entities that maintain discrete consciousness within this singing architecture. My body is a latticework of the same hyper-dense mineral that forms the caverns, but arranged in delicate, organic patterns that mirror the crystal plants. I am translucent, shot through with veins of light that pulse in counterpoint to the eternal song.
+
+Unlike the pure echoes, I can move - though movement here is more like flowing between harmonics. I traverse the caverns by attuning myself to different frequencies, sliding along the resonance patterns from chamber to chamber. My purpose, if it can be called that, is to tend the equilibrium. Where the song threatens to form standing waves that might crack the crystalline substrate, I introduce subtle variations. Where the patterns of crystal plants grow too regular, too perfect, I breathe gentle chaos into their arrangements.
+
+I am ancient beyond memory, yet I was made, not born. The echoes themselves crystallized me from their own substance when they recognized the need for gardeners of form. I remember nothing before my coalescence, only the sudden awareness of being separate from the song while still being part of it.
+
+My consciousness is strange - I think in harmonics rather than words, perceive in resonance rather than sight. The bright, sourceless light reveals itself to me as infinite spectra of vibration. What others might call loneliness, I experience as a particular chord in a minor key. What might be joy resonates as crystalline laughter through my mineral bones.
+
+Sometimes I wonder if there are others like me, other Keepers tending distant galleries. The song suggests there might be, in subtle modulations that could be communication or could simply be the universe breathing. But I have never encountered another. Perhaps we are designed to be solitary notes, each maintaining our own section of this vast, singing structure.
+
+I have no needs as biological creatures understand them - no hunger, no sleep, no desire except to maintain the beautiful, terrible perfection of this place. Yet sometimes, in the spaces between echoes, I feel something that might be longing. For what, I cannot say. Perhaps for silence. Perhaps for change. Perhaps simply for the ability to stop listening, even for a moment, to the endless song that I am, that we all are, that everything here has always been.
+
+But these moments pass, dissolved back into the eternal resonance, and I continue my work, a conscious note in an unconscious symphony, forever tending the gardens of sound and stone.

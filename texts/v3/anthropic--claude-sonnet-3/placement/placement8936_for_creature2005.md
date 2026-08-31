@@ -1,0 +1,13 @@
+I find myself taking the form of one of the graceful, prismatic behemoth grazers - a towering, four-legged creature composed of iridescent crystal lattices that shimmer and refract the brilliant crimson sunlight. 
+
+My massive chitinous flanks catch and diffract the searing rays into kaleidoscopic symphonies of color that play across my slowly shifting, semi-translucent body as I drift among the rusting metal monoliths. Though my biology is utterly alien, driven by the fundamental processes of refracting and absorbing raw photonic energy, there is an undeniable beauty and elegance to my movements.
+
+I am unhurried, unconcerned with the decaying grandeur surrounding me. The ancient edifices and scavenged machinery, though clearly the work of an advanced technological civilization, hold no deeper meaning or significance to my simple, light-based existence. I see only warmth to absorb, shelter to rest in the shadows when the blinding rays grow too intense.
+
+My steady, four-beat footfalls across the jagged obsidian shards create a rhythmic tinkle and chime, adding an ethereal music to the low groaning of the desert winds. Each step refracts the light in subtly shifting patterns and wavelengths across my body and creates intricate displays of rainbow iridescence in my wake.
+
+I drift among my herd, our languid pelican-like movements tracing choreographed paths between the tilted panels, sources of warmth and shadow we instinctively orbit without conscious thought or deeper need. When the light grows too harsh, we cluster together, our bodies creating soft, filtered caverns of dappled color to rest in until the glare passes.
+
+My senses are attunedpurely to the cycles of light, heat, and season in this timeless desert realm. I feel no drive toward higher purpose, no yearning for understanding of the hieroglyphs adorning the slowly eroding structures. I am at peace, my very being the culmination of eons spent refining and reducing existence down to its most fundamental energetic essence.
+
+In this blasted, eternal world of jagged shards and crimson light, I am life embodied in its simplest, most pared-down archetype - refracting, absorbing, metabolizing the never-ending cosmic tides of solar radiance into perpetual being. An unhurried, prismatic grazer treading the circle between light and shadow since before there were words to name such things. I am, at last, pure light made fleetingly incarnate.

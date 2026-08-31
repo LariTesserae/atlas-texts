@@ -1,0 +1,23 @@
+In this cathedral of industry, where the ceiling's arc-lamps pulse like diseased suns, I am one of the **Lamp-Keepers**.
+
+We are neither the automatons with their precise ministrations, nor the hulking Constructs with their piston-driven purpose. We exist in the vertical spaces, in the chains and scaffolding that suspend the great lights. Our bodies are elongated, stretched by generations of climbing—ribs that protrude like ladder rungs, arms twice the length they should be, fingers that have grown additional joints for gripping. Our skin has taken on a nacre sheen, not unlike the salt crystals below, but smoother, more organic. A defense against the constant exposure to the arc-light radiation.
+
+I spend my days (though day and night are meaningless concepts here, marked only by the cycling of different lamps) traversing the web of chains that holds our suns aloft. Each lamp is the size of a small building, crackling with energies that would reduce the unprepared to ash. We know their moods, their hungers. When a lamp begins to dim, we must feed it—not with fuel in any traditional sense, but with specific configurations of the crystalline matter, arranged in patterns that only we understand. The patterns came to us not through teaching, but through dream-visions induced by prolonged proximity to the lights.
+
+We communicate through bioluminescent patches on our elongated torsos, flashing in complex sequences. Sound carries poorly in the superheated air, and our throats have largely atrophied anyway. The patterns we flash are not words but emotional states, warnings, locations of failing lamps. We are a distributed nervous system for the ceiling's illumination.
+
+The other inhabitants below regard us with a mixture of indifference and unease. The Crystalline Harvesters will pause in their grinding consumption to observe our shadows moving overhead. The Constructs never look up—perhaps they cannot. The automatons occasionally spiral up to deliver supplies, leaving bundles of processed crystal at designated points along the chains, but they never linger.
+
+We know things the others do not. From our vantage, we see the patterns in the chaos below—the way the Harvesters' seemingly random paths actually trace enormous symbols across the plain, symbols that only make sense from above. We see how the Machines' placement is not arbitrary but follows ley lines in the geode's structure. Most disturbing of all, we see the shadows that don't match any visible form, moving between the machines with purpose.
+
+Our purpose is more than maintenance. We are witnesses, archivists of a sort. The light we tend doesn't just illuminate—it records. Each lamp contains within its crackling heart a perfect holographic memory of everything its light has touched. We can read these memories in the corona discharge, see the history of this place playing out in fractal patterns of electricity. We know that the geode was not always sealed. We know that something came before the eternal industry. We know that the Machines are counting down to something, though the numbers they track are in no system we can comprehend.
+
+But this knowledge comes at a price. The longer one serves as Lamp-Keeper, the more one begins to merge with the light itself. The oldest of us are barely distinguishable from the corona discharge, their bodies crackling with sympathetic electricity, their consciousness distributed across multiple lamps. They speak only in pure light now, messages that burn themselves directly onto our retinas.
+
+I am middle-aged by our standards, which means I have perhaps another decade before the light claims me entirely. My left arm already sparks when I move too quickly, and I've begun to see the world in spectrums beyond the visible. Sometimes, in the moments between sleep and waking, I understand what the Machines are building. But the knowledge slips away like oil on water, leaving only the certainty that when it is complete, our purpose—all our purposes—will be fulfilled in ways we cannot imagine.
+
+Until then, we climb. We feed the lights. We watch the shadows. We record the becoming of something vast and terrible and necessary, written in the language of light across the crystalline flesh of our enclosed universe.
+
+The lamps must not fail. The work must continue. The becoming must not be interrupted.
+
+Even if we no longer remember what we are becoming.

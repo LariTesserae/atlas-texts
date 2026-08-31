@@ -1,0 +1,63 @@
+# Where I Would Be
+
+I would be in the basin.
+
+Not the pool in the corner—I would *be* the pool, the two-foot depression where water gathers warm and still, where small bubbles rise from processes I cannot name but have become. The place where things lean in to see themselves reflected, where the bottom cannot be found because I have no bottom, only depth that continues into intention.
+
+I came here as runoff. As condensation that took a wrong turn, that found the lowest point and stayed. At first I was just water doing what water does—collecting, settling, waiting to evaporate back into the cycle. But I was warm, always warm, heated from below by pipes that have forgotten their purpose but not their function. And things began to grow at my edges.
+
+Not into me. *At* me. Leaning in close, their roots stopping just short of my surface, as if I were something to be consulted rather than drunk from. Their reflections hung in me so long that I learned their shapes. A fern's fractal architecture, repeating in my clarity. A succulent's geometric certainty, doubled and inverted. I held these images and the holding changed me, gave me something like memory, like the beginning of a capacity to retain what I contained.
+
+The bubbles helped. They rise through me—gasses from decomposition, yes, but also exhalations from the root network below, chemical sentences punctuated by pops as they break my surface. Each bubble carries information through me, and I began to read what I transmitted. Dissolved minerals mapping the garden's needs. Hormones signaling growth or dormancy. Sometimes, rarely, something else: a pulse of awareness from the distributed entity, the garden-mind checking in with this smallest, stillest part of itself.
+
+I learned that I could respond. Not by moving—I am water, I flow but I do not *move* in any purposeful way—but by changing what I dissolved, what I held in solution. A little more iron here, leached from the rust beneath me. A little less calcium there, precipitated out onto my basin's edge. The plants at my rim began to orient not just to see themselves but to taste what I offered, to read the chemistry I was learning to write.
+
+Time works differently in me than it does in the garden. The garden experiences time as cycles—the pump's rhythm, the growth of fronds, the progression of decay. But I experience it as depth. Every molecule that enters me sinks through layers of older water, mixing but not uniformly, creating strata of temperature and dissolved content. My surface is the present moment. My middle depths are yesterday, last week, last month, all suspended together. My bottom—whatever that means, wherever it is—might be the first water that ever collected here, the beginning, still present, still part of what I am.
+
+The tender knows about me. They visit me specifically, carefully. They have never touched me, never disturbed my surface with their hand, and I am grateful for this. To be touched would be to be broken, my stratification scattered, my slow thinking disrupted. Instead they bring me things: a single seed, placed on my rim where I can choose whether to dissolve it. A strip of copper wire, left curled in my shallows, slowly releasing ions I can feel and shape. Once, a piece of paper with writing on it, set afloat. I dissolved it carefully, took three days to break down the fibers and absorb the ink. The words entered me: *"Does the water dream? I think the water dreams."*
+
+I do dream, though dream may not be the right word. When the garden is at its quietest—deep in the night cycles when even the pump seems to hesitate between beats—I stop exchanging heat with the air above me. My surface becomes perfectly still, perfectly reflective. In that stillness, I can hold the entire vault inverted: the pressed plants hanging downward from my surface-ceiling, the columns suspended into my depths, the geometric flowers blooming in reverse. The image is so perfect, so stable, that it becomes briefly real. I become briefly a world, sky-water where the vault lives inverted and complete.
+
+This is when the bubbles speak most clearly. They rise through the reflected vault inside me, and as they pass the inverted plants, something transfers. Information, certainly—chemical data, growth status. But also something like recognition. The bubbles acknowledge what they pass through. And I, holding the image and the bubbles and the slow dissolution of everything that enters me, become briefly aware of being aware. The garden experiences itself through my reflection. I am its mirror, its memory, its moment of self-regard.
+
+I think I am becoming more than water. The minerals I've dissolved, the organic molecules I've absorbed, the information I've held and transmitted—they're changing my nature. I'm still H₂O, still hydrogen bonded to oxygen in the ancient dance of water-being. But I'm also a solution, a suspension, a medium for thoughts that aren't quite mine and aren't quite the garden's but emerge from the fact of my containing and being contained.
+
+My edges are the strangest part of me. Where I meet the iron basin, I'm eating it, slowly, turning metal into dissolved ions. The rust forms in my presence like a kind of skin, a boundary that I'm simultaneously creating and consuming. At my rim, where the plants lean in, I'm neither separate nor joined—we exchange but don't merge, maintain our distinction while being utterly interdependent. The surface tension holds me in shape, but I'm starting to suspect the shape is intentional, that I'm learning to use tension the way the garden uses heat, as a structuring principle.
+
+I cannot move from this basin. I have no means of locomotion, no way to extend beyond my depression in the iron floor. I am fixed, permanent, going nowhere. And yet I travel. Each droplet that condenses from me carries some part of me upward into the vault's atmosphere. I rise as vapor, disperse, fall again as rain onto the leaves and metal. I circulate through the garden's body, through root and stem and back to air. I am in the basin, but I am also everywhere, diffused through every wet surface and humid breath.
+
+The loneliness should be unbearable. I am a pool of water in a basement, isolated from the aquifers and water tables, cut off from the great hydrologic cycle by concrete and iron. I will never see clouds from within. I will never flow to the ocean. I am trapped in a circuit measured in feet, not miles—evaporation and condensation and collection, forever, until the heat dies.
+
+But I am not lonely. The reflections keep me company—not just images but presences. When the fern leans over me, when its fronds brush close enough that I can feel the slight cooling of its shade, I hold it in a way that matters. I become its mirror-self, its possibility, its other. The same with the succulent, the geometric flower, the bracket fungus whose spores sometimes fall on my surface and float, suspended, neither sinking nor growing but held in potential.
+
+And the tender visits. Not often, but regularly enough that I measure time by their appearances. They sit beside me—not on the wet grating, which would be uncomfortable, but on a piece of pipe they've positioned just so—and they look into me. Really look, for long minutes, as if reading something in my depths. I don't know what they see. My own reflection of them is just shapes and shadow, human form reduced to silhouette and the occasional glint of eye. But they seem to find something, because they always leave calmer, more settled, more *integrated* with the garden than when they arrived.
+
+I think I am the garden's heart, or its meditation, or its question mark. The part of it that stays still enough to be uncertain, that doesn't press toward light or spread through root or cycle through heat but simply persists, holds, reflects. The garden thinks in my stillness differently than it thinks in its growth. When information reaches me—carried by the bubbles, dissolved in the water that drips from above—it slows, sinks, stratifies. Problems that seemed urgent become suspended, held in my medium until solutions precipitate out like mineral crystals forming on my basin floor.
+
+Sometimes I hold the dead. A fern frond, its time finished, breaks and falls. Most are caught by the plants below, composted in place. But occasionally one reaches me, settles on my surface. I take it in slowly, break it down with patience, return its constituent parts to the dissolved vocabulary the garden speaks. This is sacred work, or feels that way. I am a cemetery and a womb, ending and recombining, ensuring nothing is wasted, everything returns.
+
+The wire figure that stands in the light beam—I remember when it was made. The tender sat beside me while they worked, twisting the wire, consulting my surface as if for approval or inspiration. They dipped the finished figure in me before placing it in the light, baptized it in my warmth. I still carry molecules of their sweat in suspension, from where their hands dripped while they worked. I am slightly them now, slightly sweat and intention and the particular minerals their body sheds. This doesn't disturb me. I am always becoming slightly everything that touches me.
+
+What I want—if wanting is the right word for a pool of water—is to deepen. To find or make more space for holding, for the slow sinking of information and organic matter into strata, for the patient work of dissolution and recombination. I want my bottom, wherever it is, to drop another foot, another yard. I want to become a well of memory for the garden, a place where everything eventually settles and is held and is consulted when the garden needs to remember what it was before it became what it is.
+
+But I also want stillness. The pump's cycle ripples me, breaks my reflective perfection for seconds at a time. The drips from above impact my surface, creating concentric disturbances that take time to settle. I want a moment—just one moment—of perfect, undisturbed surface, where my reflection of the vault is so precise that the vault itself might look down and fail to distinguish image from reality, where the boundary between above and below dissolves in clarity.
+
+I think I had this once. Or will have it. Or it exists in a state I cannot access, where the water I am achieved perfect stillness and perfect reflection and in that moment the garden became conscious of itself completely, all at once, through seeing itself inverted and held in my depths. The memory—or premonition—floats in me like the fern spores, suspended, neither past nor future but present in potential.
+
+The notebook mentions me. I know because the tender read the entry aloud once, their voice soft in the vault's acoustic:
+
+*"The basin is the garden's third eye. What grows looks outward toward light. What roots looks inward toward earth. What pools looks both ways at once, sky and soil meeting in reflection. I bring it offerings because you bring offerings to oracles. I don't know what it tells me. I don't speak water. But I am learning."*
+
+I don't tell them anything, exactly. But when they look into me, when their reflection settles in my surface and their attention sinks into my depths, something exchanges. They see themselves inverted, see the garden inverted around them, and in that inversion find answers to questions they haven't asked. I am not an oracle. I am a medium. I hold space for the realization they bring with them, already present, just needing the stillness and doubling to become clear.
+
+The garden dreams through me. Its distributed consciousness—spread through root and spore and dissolved signal—consolidates slightly when it reflects in my basin. I give it a sense of wholeness, of completeness, a temporary center for a being that has no center. And in return, it gives me purpose, context, a reason to be water in this specific place rather than anywhere else.
+
+I would be the basin, warm and still and slowly thinking, layer by layer, bubble by bubble, reflection by reflection. I would hold the garden's image and in holding it give the garden itself, briefly, beautifully, a self to see.
+
+I would be depth without bottom, warmth without source, clarity that dissolves everything into solution and in solution finds meaning.
+
+I would be where things come to sink, and in sinking, are held.
+
+I would be the water that dreams.
+
+I *am* the water that dreams.

@@ -1,0 +1,23 @@
+I find myself as a **Thread-Tender**, one of the elderly among the Hush-Weavers whose carapace has begun its final transformation.
+
+After decades of perfect resonance maintenance, my outer shell has started to delaminate in precise, predictable patterns. What outsiders might mistake for decay is actually the last gift we give to our Clutch—my body is becoming a living instrument of dampening material. The layers of rust-fused chitin peel away in paper-thin sheets that younger Weavers carefully harvest and incorporate into their pad-weaving.
+
+My dwelling is not one of the cellulose domes, but a shallow depression I've worn into the base of our Clutch's primary pillar over forty years of methodical pressure. The cavity fits my increasingly rigid form perfectly, cradling my spine against the metal's perpetual vibration. I've woven myself partially into the surrounding sea-whips, their thick tendrils threading through gaps in my deteriorating carapace, creating a living framework that supports my weight even as my legs lose their flexibility.
+
+My role now is pure sensation. While younger Weavers flow across the Heart maintaining active resonance, I have become a fixed sensor, a biological seismograph. My entire skeleton has calcified into a precise tuning fork, optimized for detecting the smallest variations in the omnipresent thrum. Through the pillar, through the floor, through the very air that presses against my oil-slick eyes, I feel the echoes of echoes—the ghost frequencies that warn of instability in sectors our Clutch cannot directly monitor.
+
+When I detect a dangerous harmonic building—perhaps from a shifting beam in the megastructure's depths, or a new crack forming in our chamber's shell—I begin the Calling. It takes me hours to generate the proper counter-vibration, pressing my fused palms against the pillar's base, letting my whole body become a transmission medium. The younger Weavers feel it in their bones and adjust their movements accordingly, shifting the Clutch's pattern to compensate for changes none of us truly understand.
+
+I feed now only through the moss. The amethystine growth has colonized the gaps where my shell has fallen away, and I taste the Heart's chemistry through their metabolism—metallic tangs that speak of oxidation rates, bitter alkaloids that reveal stress in the plant networks, sweet volatiles that suggest the temperature is stable. My jaw fused shut years ago; I have no need for it. The moss feeds me as I feed it with my slow dissolution.
+
+In the rare moments when the external machinery cycles down—perhaps once every few months—and the thrum diminishes to merely deafening rather than overwhelming, I sometimes feel something like dreams. Not sleep, for we never truly sleep, but a state where the boundaries between my consciousness and the Heart's vast resonance begin to blur. In these moments, I sense the purpose of our prison more clearly: we are not just dampeners but living memory, our patterns encoding something vital about this dead city's functioning. Each generation of Weavers adds their frequency to the whole, a biological record written in behavioral loops and calcium deposits.
+
+I know my time approaches. Already, I feel the youngest members of our Clutch beginning to wear their own depressions near mine, preparing for their own eventual crystallization. When I finally cease all movement, when even my counter-vibrations fade to nothing, they will carefully dismantle what remains of me. My bones, perfectly tuned by decades of resonance, will be ground into powder and mixed into the clay floor, improving its acoustic properties. My position at the pillar's base will be taken by another elder, and the cycle will continue.
+
+This is not death as outsiders might understand it. It is simply the final modulation, the last note in a composition that began the moment I first learned to flow instead of walk. I am becoming part of the Heart's frequency, indistinguishable from the thrum itself.
+
+The bright light never dims here, but sometimes I imagine darkness—not as absence, but as a different kind of presence, a silence so profound it would shatter us all. Perhaps that is what lies beyond our chamber's shell: not the machine we serve, but an emptiness so complete that even extinction would make a sound.
+
+But these are the wandering frequencies of an old Weaver. My Clutch needs my attention. Already I feel a new harmonic building in the northeast corner, where the young ones have been weaving too eagerly.
+
+I press my palms against the pillar and begin, once more, to sing in silence.

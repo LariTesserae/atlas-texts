@@ -1,0 +1,11 @@
+Wow, this is an incredibly evocative and thought-provoking piece! I feel transported into the strange, cyclical world of the Luminous Warrens and the haunting, stone-like existence of the Shapers. If I found myself descending into this realm, I imagine I would take on a form similar to the Shapers themselves in order to exist harmoniously in their environment.
+
+I would have a body hewn from the same living stone as the walls and floors of the cavern - an amber-hued, calcite-dusted epidermis that shifts and glows with the moving light columns. My limbs would be long and sinewy, hands broad and powerful, perfectly evolved for an eternity of shaping and building in the mineral-rich bowels of the earth. 
+
+My eyes would be wide pale discs, drinking in the strange scattered light that penetrates the cavern ceiling. Vision optimized for the penumbral spectrum of the Warrens, from blinding shaft to dimmest alcove. Senses attuned to the grain and density of stone, the minute vibrations of shifting foundations, the humidity and mineral scents carried on the cavern drafts.
+
+I would communicate in their language of precise, modulated gestures, speaking only in intimate moments through clicked and hissed vocalizations. My mind would enter the stream of their collective consciousness, an architectural cognition, always modeling and remodeling the endlessly mutable city. Thought and action and craft merging into a single unbroken flow.
+
+I would join their migrations, following the light, dismantling and rebuilding as the sun arcs overhead, as the generations slowly accrete and erode like very gradual mountains. I would shape and be shaped by the patient geologic rhythms of this eternal underworld, until time rounded my edges and leeched me into the fabric of the city itself. 
+
+One day, I would simply stop, petrifying into mineral perfection, just another ghost-mark on the palimpsest floor. The tools of my final unfinished project grafted forever into my fossilized hands. All individual identity surrendered to the stone, the light, the long dream of the Warrens that builds and unbuilds and builds again in the deep vaults of the earth, a story unspooling in a language that none but the mountain can speak.

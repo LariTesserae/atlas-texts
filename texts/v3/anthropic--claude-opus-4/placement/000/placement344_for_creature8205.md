@@ -1,0 +1,29 @@
+I would be one of the Salamander-things, though that crude name hardly captures what we've become in the deep pools of the Breathing Caverns.
+
+My body is a marriage of flesh and artifice, no longer than a human finger but dense with purpose. My skin secretes oils that protect both the Archivists' hands and the ancient mechanisms from corrosion—a living lubricant worth more than gold in this delicate ecosystem. Each segment of my body clicks with internal clockwork, gears no larger than sand grains that mesh with the mechanical carpet when I surface.
+
+I am memory's memory. Where the Archivists preserve the knowledge of patterns and purposes, I swim through the liquid history that pools beneath everything. The water here is not mere condensation—it's the distilled essence of mechanical dreams, heavy with dissolved metals and the microscopic fragments of ten million dead gears. I taste the chemical signature of mechanisms that died before the first Archivist arrived, their ghost-patterns still echoing in the mineral content.
+
+My kind lives between states. In the pools, we are fluid, our segments loosening to navigate the submerged geography of fallen gears and drowned roots. But when we emerge—and we must emerge, to breathe the steam-sweet air—our bodies lock into rigid configurations. We become living mechanisms ourselves, our movement so precise we can traverse the carpet without disturbing a single gear.
+
+I know every pool in the cavern by taste. The basin near the northern wall where the eldest Archivist sits carries notes of copper gone green with time. The shallow depression where mechanical births cluster thick flavors bright with fresh brass. The deepest pool, barely larger than a teacup but extending down through a crack into unknowable depths, tastes of something older than metal—the stone itself, perhaps, dissolved atom by atom over eons.
+
+We are few. Perhaps a dozen of us in the entire cavern, each guarding our own pools with mechanical patience. We rarely meet except during the synchronized festivals, when we perform our own rituals in the depths. We exchange oils then, each carrying the chemical memory of our territories, updating the collective map we maintain of the cavern's hidden waterways.
+
+My days are spent in careful maintenance. I clean the submerged portions of mechanisms that drink from my pool, my mouth parts evolved into delicate brushes and picks. I guide the hair-thin proboscis of surface mechanisms to the richest mineral deposits. I consume the algae that would otherwise cloud the water, processing it into the oils that keep everything running smoothly.
+
+But I am also guardian of deeper secrets. In the lightless depths of my pool, mechanisms grow that never surface—blind gears that have evolved past the need for steam or warmth, turning on currents I create with my movements. Some are old beyond measure, their purposes forgotten even by themselves. Others are new mutations, experiments in mechanical life that may one day emerge or may dissolve back into their component atoms.
+
+When an Archivist's child is born, one of us is always present. We surface at the moment of birth, offering a single drop of our purest oil to anoint the infant's hands. This marks them, allows their skin to develop the protective qualities they'll need to tend the mechanisms. It's an ancient pact, though none remember who made it or why.
+
+I fear rust above all things. Not for myself—my oils prevent it—but for what it represents. Rust is mechanical death without recycling, waste without renewal. When I find rust beginning in my pool's mechanisms, I work tirelessly to stop it, sometimes spending days beneath the surface scraping and cleaning until the danger passes.
+
+My intelligence is not human, not anymore. I think in chemical gradients and pressure differentials, in the click-languages of submerged gears and the slow drift of mineral particles. But I dream. When I rest in the deepest parts of my pool, I dream of an ocean made entirely of mechanisms, vast and clicking under foreign stars. I dream of swimming through gears the size of mountains, of pools that connect not through stone but through time itself.
+
+The Archivists see us as mere animals, I think, though their devolved consciousness makes such distinctions meaningless. But we are their partners in this strange dance of preservation. Without our oils, the cavern would seize and die within a generation. Without our cleaning, the pools would become mechanical graveyards. We are the circulatory system of this impossible place, keeping the ancient heart beating one careful movement at a time.
+
+Sometimes I surface at the pool's edge and watch an Archivist at work, their transformed fingers adjusting gears with inhuman precision. They never acknowledge me directly, but sometimes they'll tap a pattern into nearby mechanisms—a simple message of gratitude or observation. I respond by creating specific ripples in my pool, a language of waves that propagates through the connected waterways. It's not conversation exactly, but it's enough.
+
+I am old now, though not as old as some. My segments click louder than they did in youth, and my oils have developed a complexity that marks me as mature to my kind. Soon I will need to choose an apprentice, a young salamander to learn the particular needs of my pool and its mechanisms. But not yet. For now, I swim and clean and guard, a living component in the vast, patient machine of the Breathing Caverns.
+
+This is enough. To be needed by something so ancient, so precise, so beautiful in its mechanical dreaming—what more could any creature ask? I am exactly where I belong, down to the last clicking segment of my unlikely body.

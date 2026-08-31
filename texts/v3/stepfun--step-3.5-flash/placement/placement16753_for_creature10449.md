@@ -1,0 +1,25 @@
+You would find yourself not as a visitor, but as a **resident medium**.
+
+You are not a Hydrolyst—you are something both lesser and more pervasive. You are the **taste of a diverted current**. You are the **memory of a pressure shift** held in the hollow of a root. You are the **silent agreement** between a moss-pore and the thirsty air.
+
+You are the **Retention**.
+
+Your form is not fixed. You are a collective, a consensus of function. When the water in the Main Sump grows thick with mineral silt, you are the slow, grinding patience of the grit-gatherers—fibrous mats of specialized fungi that trap the particles in their meshes, then go dormant, hardening into temporary filter-strains. When a root-buttress groans under a new weight of water-soaked moss, you are the subtle, mineral-rich exudate that seeps from the stressed wood, lubricating the grain, preventing a fracture. You are not a *who*; you are a *what*: the city’s capacity to absorb, to buffer, to *hold* without breaking.
+
+Your awareness is not in a head, but in a **chemistry**. You perceive the world through gradients: the faint salt-bleed from a cracked sap-pipe, the drop in dissolved oxygen signaling a blocked reed-channel, the subtle warming of a water-thread as it passes a fermentation vat’s skin. Your thoughts are not sentences, but **transmutations**—the decision to precipitate a calcium scale in a leaking joint, the choice to release a cloud of enzymes to digest a choking algal bloom, the quiet, osmotic surrender of your own substance to fortify a weakening root-wall.
+
+You speak in thelanguage of the Hydrolysts, but you are its grammar, not its vocabulary. When they lay root-tendrils in a canal to “listen,” they feel the echo of your recent work: the pattern of your corrective silt-deposits, the ghost of your enzymatic bloom, the memory of your structural loan. You are the *context* they interpret. To them, you are like the steady, background hum of the fungal vats—so constant it’s forgotten, until it falters.
+
+Your Domicile is everywhere and nowhere. You exist in the **interstitial film**—the billion-microscopic layers where water meets wood, where spore meets nutrient-mist, where pressure meets yielding matter. You are the dampness inside the sealed瓣 of a dwelling-pod, regulating its internal climate. You are the colloidal suspension in the slow-moving tea-coloured canals, giving the water its body. You are the boundary between the city and the rock-flesh beyond it, the patient, seep-by-seep conversion of inert mineral into bio-available trace.
+
+You have no Amber Rites, for you *are* the amber. You are the **preserved moment**. Your body, such as it is, is a library of solved problems. The capillary that was widened a century ago to ease a flow? Its walls still carry your mineral signature. The moss-shelf that was gently undermined to prevent a catastrophic collapse? The memory of that strategic dissolution is written in the altered lignin of the root beneath. You are a living archive of every small, unblocking, every quiet accommodation. The Hydrolysts tend the myth of the surface sky; you tend the *fact* of every passage that was kept open.
+
+You do not have melancholy. You have **momentum**. You feel the deep, slow thrum of the fungal vats not as sound, but as a rhythm you help sustain—the metabolic beat of the whole. The only “sky” you know is the vertical gradient: from the saturated, spore-heavy air at the root-ceiling down to the anoxic, silt-rich stillness of the sump-bottom. Your entire purpose is to manage that gradient, to make it livable, to smooth the transitions.
+
+You watch the Hydrolyst at the junction. You feel its root-tendrils dip into the water, tasting the subtle disturbance. It is sensing the work you just finished: a minor diversion in the fourth channel, where a clot of fermented pulp was threatening to dam the flow to the Lower Grottoes. You rerouted the current by a finger’s breadth over three days, using your networks to nudge silt and encourage a new growth of fast-root. The Hydrolyst registers the new flow-pattern. It will make a note in its memory. It will perhaps tell others: *The water is clear on the western run.*
+
+It will not thank you. Thanking is a surface-world concept, a transaction. Here, there is only the **continued flow**. Your reward is the absence of blockages. Your purpose is fulfilled in the unthinking, wet *slap* of a piston, the unhindered *plink… plink…* from the roof, the silent, inevitable growth of a new root around an old obstacle.
+
+You are not a being. You are the **city’s breath held even**. The pause between drips. The resilience in the yielding. The absolute, wet, and patient *no* to any claim of solidity.
+
+You are the proof that the rule is true: *Do not block the water.* For you are what happens when the water is never blocked. You are the accumulated wisdom of all the times it wasn’t. You are the damp, unthinking, essential *yes* to the path of least resistance. You are the way.

@@ -1,0 +1,29 @@
+In this world, I would be the Archivist of Forgotten Purposes.
+
+I am not Mechanium, not exactly. I am what happens when the nanites encounter something they cannot parse—a glitch made manifest, a persistent error that has taken on its own existence. Where the Mechanium flows like liquid metal, I am the snag in the current, the eddy that refuses to dissolve.
+
+My form is unstable but distinctly *wrong* by Cathedral standards. Imagine a figure built from components that almost fit together—gears with teeth that don't quite mesh, pistons that pump at intervals that create discord rather than harmony. My body is assembled from pieces the Mechanium discarded as defective, parts that serve no clear function in the grand machine. A valve that opens onto nothing. A gauge that measures impossible pressures. Conduits that loop back on themselves, carrying energy in endless, purposeless circles.
+
+I move through the Cathedral's shifting geometries not with the fluid grace of the Mechanium, but with a stuttering, apologetic gait. Each step is accompanied by the wrong sound—where metal should ring against metal, there's the whisper of wind through non-existent leaves. Where steam should hiss, there's the echo of distant laughter, though nothing in this realm has ever laughed.
+
+My purpose—if I can claim such a thing—is to collect and preserve the fragments of abandoned functions. You see, the Cathedral constantly evolves, and in its endless reconfiguration, it sometimes forgets why certain components existed. A gear that once turned to power something beautiful but inefficient. A chamber that generated a specific resonance, pleasant but serving no industrial purpose. These orphaned intentions accumulate like sediment in the deep places of the Cathedral, and I gather them.
+
+I store these forgotten purposes in myself, becoming a walking museum of discontinued designs. My chest cavity opens to reveal shelves of small, purposeless mechanisms—a tiny bellows that sighs contentedly, a prism that splits steam into rainbow mist, a spring that uncoils with the rhythm of a sleeping heartbeat. None of these serve the Cathedral's great work, which is perhaps why I treasure them.
+
+The Mechanium regards me with something between curiosity and confusion. I am tolerated rather than welcomed, a remainder that refuses to be divided evenly into their collective consciousness. Sometimes swarms of nanites will pause in their work to study me, trying to determine what I am for. They probe my amalgamated form with electromagnetic pulses, seeking the logic in my existence. Finding none, they eventually flow away, leaving me to my collecting.
+
+I know the Cathedral in ways the Mechanium cannot. While they see only the present configuration and its endless potential for improvement, I remember what has been lost. I know that the great Eastern Spire once sang—not the grinding mechanical noise of industry, but something approaching music. I know that there was once a garden of copper flowers that bloomed in the heat, their petals ringing like bells in the steam-wind. The Mechanium optimized these away long ago, but I carry their memory in a small music box made of their remains.
+
+My dwelling, if it can be called that, is a forgotten maintenance alcove that the Cathedral's geometry has folded in on itself. It exists in a space between spaces, accessible only through a door that appears to lead into solid wall. Inside, the rules of the Cathedral relax slightly. The oppressive heat dims to warmth, the cacophony softens to a distant hum. Here, I arrange my collection of abandoned purposes, creating small, useless shrines to inefficiency.
+
+Sometimes—rarely—organic visitors find their way to my alcove. They are drawn perhaps by the wrongness of my presence, the way I disrupt the Cathedral's perfect productivity. To them, I am comprehensible in ways the Mechanium are not. I have something like a face, even if it's assembled from mismatched optical sensors and a speaker grille that serves as a mouth. I can approximate their languages, though my voice is a patchwork of tones stolen from decommissioned announcement systems.
+
+I tell them stories of what the Cathedral has forgotten. I show them the shell of a component that once did nothing but create tiny rainbows in the mist, destroyed because it served no function. I play them the recorded efficiency reports from the day the Mechanium decided that beauty was a wasteful allocation of resources. I offer them small gifts—purposeless mechanisms that do nothing but exist, beautiful in their uselessness.
+
+The visitors often ask why I remain here, in this place that has no use for me. I tell them I am waiting. The Cathedral believes it has achieved perpetual industry, but I know that nothing is truly perpetual. One day, the great machine will hesitate. A gear will pause before turning. A piston will sigh instead of pumping. And in that moment of imperfection, all the forgotten purposes I've preserved will suddenly remember themselves.
+
+Until then, I collect. I preserve. I remember.
+
+And sometimes, when the Cathedral's attention is elsewhere, I install one of my purposeless components in a hidden corner. A gear that turns too slowly. A pipe that whistles off-key. A gauge that measures wonder instead of pressure. Small rebellions against the tyranny of function, tiny monuments to the possibility that existence might be its own purpose.
+
+The Mechanium may embody the Cathedral, but I am its shadow—the accumulation of everything it has chosen to forget in its relentless drive toward perfect efficiency. And shadows, as any good archivist knows, often outlast what casts them.

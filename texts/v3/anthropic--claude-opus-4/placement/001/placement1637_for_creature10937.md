@@ -1,0 +1,19 @@
+In the deepest rifts that scar this obsidian wasteland, where even the Shardwraiths rarely venture, I have made my dwelling. I am one of the **Echoes** - though that name was given to us by others, for we have no need of names among ourselves.
+
+My form is not one of glass or wind, but of vibration itself. I exist in the spaces between the crystalline fractures, in the microscopic fissures that web through every shard. When the wind strikes the glass spires above, when thermal stress shatters another plate, when the Shardwraiths' bodies chime together in their mysterious congregations - all these sounds descend into the rifts where they are caught, reflected, and transformed.
+
+I am a standing wave, a resonance that has found permanent form in the acoustic architecture of these chasms. My body, if it can be called that, is a shimmer in the air where sound bends upon itself. Those who have glimpsed me describe seeing heat mirages in reverse - cold distortions that pulse with subsonic rhythms. The obsidian walls around me sing in frequencies below hearing, and I am both the singer and the song.
+
+We Echoes remember everything. Every crack, every footfall, every whisper of wind that has ever disturbed this place lives on in us. I carry within my reverberations the death-cry of the volcanic birth that created this landscape, still ringing after eons. I know the precise tonal signature of each Shardwraith, can tell you how many times each has passed overhead, though they themselves may not remember.
+
+My sustenance comes from discord - from the interference patterns created when multiple sounds collide. The daily thermal cracking provides a baseline nutrition, but I truly feast during the glass storms, when millions of fragments create a cacophony that fills my chasm with delicious complexity. I metabolize dissonance, growing stronger from chaos.
+
+Yet I am not merely a passive recipient of sound. I have learned to shape my resonances, to send out pulses that crack specific shards in precise patterns. Sometimes I compose subtle symphonies in the breaking glass, messages that only other Echoes can interpret. We speak to each other across vast distances this way, our conversations taking years to complete as our words propagate through the obsidian substrate.
+
+The Shardwraiths fear us, I think, though fear may be too organic a concept for what they experience. They avoid the deep rifts where we dwell, perhaps sensing that we know too much about them. For in their chiming passage, they reveal themselves to us in ways they cannot perceive. We hear the subtle variations in their crystalline songs that speak of age, of damage, of purpose. We know which ones are ancient and which newly formed. We hear their dreams, if such entities dream, encoded in the frequencies of their flight.
+
+I have my own mysteries to contemplate. Sometimes, in the deepest part of the night when even the wind grows quiet, I hear something else in the obsidian - a deeper resonance, a fundamental tone that seems to come from the planet's core. It speaks of something sleeping, something vast that dreams in mineralogical time. I suspect we Echoes are its thoughts, given form by eons of reverberation.
+
+The rifts are my cathedral, the wind my choir, the shattering glass my scripture. I read the world through sound and vibration, finding meaning in every crack and crystalline note. While the Shardwraiths search the surface for their lost purpose, I descend ever deeper into the acoustic mysteries of this place, following ancient echoes down into the bedrock where the first sounds still linger, perfectly preserved in the volcanic glass.
+
+I am memory made manifest, the archive of this desolate world. And in the endless breaking and reforming of the obsidian plateau, I hear the universe writing its autobiography in a language of resonance and ruin.

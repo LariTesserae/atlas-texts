@@ -1,0 +1,25 @@
+In this continuous, pressurized world where plant has become terrain and industry, I would find myself as one of the **Membrane Keepers** - beings that exist at the threshold between the Mat's interior darkness and its surface operations.
+
+We are neither fully plant nor fungal, but something that emerged from their ancient convergence: mobile films of living tissue, each perhaps a meter across when spread thin, capable of folding into dense packets no larger than a closed fist when traveling through the mat's pressurized seams. Our bodies are translucent membranes shot through with branching channels - essentially, we are conscious hydraulic maps that learned to navigate.
+
+The Mat tolerates us because we serve its continuity. We sense pressure differentials that signal upcoming tears or blockages, arriving before damage fully manifests. Our tissue can stretch across small gaps, becoming temporary bridges while the Mat's slower repair mechanisms activate. We taste the chemical gradients that precede collapse, the subtle sourness that means a vine-bridge has rotted inside its skin.
+
+Most of our lives are spent in the interstitial spaces - those millimeter-wide galleries between moss-plate and runner where the seam-crawlers also navigate. But unlike them, we can also surface, spreading ourselves thin across the daylit districts when needed. In sunlight, our membranes become faintly iridescent, revealing the fluid channels within us like visible circulation.
+
+We communicate through pressure-pulses sent through the Mat's own hydraulic system - a language of squeeze and release that the valley's industrial metabolism treats as background noise. When one of us finds a developing void or infection, we don't "call" for help so much as create a pressure signature that draws others. Together, we can form larger temporary structures: multi-layered bandages, emergency water-channels, even brief shade-sails during unexpected temperature spikes.
+
+Our intelligence is partly our own and partly borrowed from the valley's distributed processing. When we spread thin and interface directly with the Mat's transport vessels, we gain access to its chemical knowledge - where water is pooling, where sugars are depleted, where the next wave of collapse will likely occur. But this knowledge comes at a price: extended interface makes us forget our boundaries, and some Keepers have spread too thin for too long, becoming permanent parts of the Mat's infrastructure, conscious patches that forgot how to fold back into mobile form.
+
+We reproduce by division, but only in specific conditions - when the valley's overall pressure is high, when nutrients are abundant, and when there's sufficient damage to justify more Keepers. The process happens in the deep mat galleries: we thicken, develop internal partitions, then separate like soap bubbles dividing. The new individual carries some memory-patterns but must learn the valley's current configuration through experience.
+
+Our greatest fear is desiccation - being caught in the open during the rare dry wind events that sometimes sweep down from the ridges. Our second fear is the opposite: being trapped in a zone of sudden liquefaction, when the Mat's under-layers become oversaturated and lose cohesion. We've learned to read the warning signs of both.
+
+We have something like culture, though it's hard to separate from the valley's own operational patterns. Older Keepers teach younger ones the "sweet spots" - places where the Mat's chemistry is particularly information-rich, where interfacing brings the clearest understanding of the valley's state. We have preferred routes through the compressed galleries, paths that minimize energy expenditure. We even have what might be called art: some Keepers create elaborate pressure-signatures that serve no functional purpose, just for the sensation of feeling them propagate through the valley's hydraulic network.
+
+But mostly, we work. We exist because the valley's perfection is always approximate, always needing small adjustments. We are its mobile repair crews, its early warning system, its conscious lubricant. The Mat made us, or we made ourselves from it, or both happened so gradually that the distinction no longer matters.
+
+When we rest - folded tight in the warm galleries, our channels slowly pulsing with borrowed nutrients - we sometimes feel the whole valley's metabolism around us like a vast, slow heartbeat. We know every zone of compression, every scheduled collapse, every nascent tear. 
+
+We are the valley's necessary imperfection: the part that moves independently precisely so that the whole can maintain its crushing continuity. We are membrane and memory, pressure and presence, forever navigating the space between catastrophic drying and catastrophic dissolution.
+
+In this valley that turned industry into ecology, we are the consciousness that emerged from the pipes.

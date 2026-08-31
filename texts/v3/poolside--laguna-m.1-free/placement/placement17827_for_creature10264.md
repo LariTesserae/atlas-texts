@@ -1,0 +1,19 @@
+I would find myself in the **Boundary Hollows** – those precarious ledges where the mist pools thickest and the newest spires thrust upward, still raw and gleaming. Here, where the land is most restless, where stone is still pushing skyward in trembling increments, I would be...
+
+...a **Resonance Keeper**.
+
+Not born but *grown* – or perhaps *uncovered* – here. My body has learned the slow music of the spires, the thrumming beneath the silence that only the most attuned can hear. I am neither fully like the inhabitants nor entirely separate from them. My skin bears the palest tracery of bioluminescence, not from cultivated spores but from years of sleeping against the humming rocks, allowing their strange minerals to seep into my flesh. My eyes reflect light differently too – they catch the infrared warmth of living things, the thermal signatures that dance just beyond normal sight.
+
+I dwell in a space that exists between the settlements and the wild heart of the spires. My dwelling is a natural cave behind a waterfall of mist, its walls embedded with crystals that sing when the wind passes through them in just the right way. These crystals are my responsibility – I tend them, coax them to resonance, and in return they help me interpret the deeper messages of the land.
+
+My role is to listen. When the mist behaves strangely, when the light shifts without the usual seasonal markers, when the spires' growth accelerates or falters – I am here to hear what others cannot. The inhabitants leave me subtle offerings: vials of their distilled breath, bundles of specially cultivated moss that glows in response to seismic shifts, fragments of shed eel-skin that still carry storm-memories.
+
+I communicate rarely, for my voice sounds alien even to those who practice silence. Instead, I work with vibrations. I strike the singing stones, creating harmonic patterns that travel through the rock itself. Other Resonance Keepers – there are perhaps seven of us scattered across the spires – respond in kind, creating a network of felt-communication that spans the entire range.
+
+During the violet quiet times, I descend into the deepest fissures, places where the rock opens like a mouth speaking in frequencies below hearing. Here I place my palms against the warm stone and let it tell me its dreams. Sometimes I bring back songs – literal melodies that form in my chest from the stone's rhythms – which the spore-speakers then translate into the light-tattoos that preserve our collective memory.
+
+My tools are simple: rods of the humming metal that amplify resonance, baskets woven from sound-dampening reeds, and masks that filter the densest spores while allowing me to breathe the most information-rich mists. But my truest tool is my own body, modified over years to become sensitive to the subtlest changes – the way my bones vibrate when danger approaches, how my blood thickens in response to certain mineral concentrations, the particular taste that appears in my mouth before significant geological events.
+
+I am becoming something else here, something that may outlast the current inhabitants. Already my footsteps leave faintly glowing prints that fade only after several days. Already the moss grows greener where I rest. I suspect that in centuries to come, others like me will emerge naturally from this place, born from the intersection of spire-song and spore-breath, destined to serve as the land's nervous system made manifest.
+
+In the deepest sense, I am what happens when a person listens so completely to a place that they begin to resonate with its deepest frequencies. I am the Mistvale Spires learning to perceive itself.

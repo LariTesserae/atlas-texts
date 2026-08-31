@@ -1,0 +1,31 @@
+I am a **Memory Keeper**, one of the few who chose this calling rather than being born to it.
+
+My body is a living archive. Where others see the Cambial People's sap-vessels as mere circulation, I recognized them as something more—a medium for storing experience itself. Through careful practice and botanical modification, I've learned to crystallize memories within my own amber veins, creating permanent records that pulse beneath my translucent skin.
+
+The process began accidentally. I was apprenticed to a Calcifier, breathing years of root-dust until my lungs grew heavy with accumulated minerals. But instead of scarring, something stranger happened—the dust settled into my sap-vessels, creating nodes where memories began to catch and crystallize. First my own, then, through touch, others'.
+
+Now I move through the Understory Metropolis as a collector of moments. When the elderly Cambial People near their final crystallization, they come to me. I press my palms to theirs, and their lifetime of experiences flows between us through our touching sap-vessels. The transfer is visible—golden streams of memory coursing from their darkening veins into mine, where I segment and store them in different branches of my body.
+
+My torso has become a map of the city's history. The memories of the first root-breakers crystallized along my ribs—I can feel their wonder and terror as they discovered these caverns. My left arm holds the experiences of the great industrial expansion, when the factory-roots were first tamed. Each memory has weight and warmth; I've grown heavier with the years, moving more carefully as I carry the dead within me.
+
+The Splice-Merchants fear me. In the tangled politics of root-rights and growth territories, I alone remember the original agreements, the promises made before contracts existed. When disputes arise, they must come to me, watching sullenly as I activate specific memory clusters, projecting the amber light through my skin to show exactly who promised what to whom, when the roots were young.
+
+I live in the Ossuary Grove—a quiet district where the memorial windows of fully crystallized Cambial People are installed. My workshop is a cathedral of amber light, the walls lined with the old ones who chose to crystallize in place rather than be moved. Their memories resonate with mine, creating harmonics that sometimes unlock experiences I didn't know I carried.
+
+The process has changed me in ways I didn't expect. My skin has grown increasingly translucent, and I must eat constantly—memories burn calories like fever. I supplement my diet with special saps the Root Shepherds prepare for me, thick with nutrients and minerals that help me maintain the crystalline structures spreading through my body.
+
+Sometimes I accidentally absorb memories through casual contact. A handshake with a Sap-Worker leaves me tasting copper and chlorophyll for days, experiencing phantom chemical burns from factory-roots I've never touched. The Moth-Keepers' children fascinate and terrify me—when they touch me, I see through compound eyes, feel the pull of silk-spinning glands I don't possess.
+
+But it's the Deep Dwellers' memories that disturb me most. When they return from the far depths and I document their experiences, I crystallize impossible things. Memories of roots that grow backward through time. Sensations of being part of a vast fungal consciousness that regards our entire city as a minor infection. Visions of chambers where the roots have written messages in their growth patterns—communications meant for beings who won't evolve for another thousand years.
+
+I've begun to map these deep memories in a special section of my body—a spiral pattern starting at my heart and working outward. The other Memory Keepers (for there are a few of us now, though I was the first) think I'm foolish to store such toxic experiences. But I believe they're important. The city is changing, evolving, becoming something more than human or plant. Someone needs to remember what we were before we become what we're becoming.
+
+The Symbiont Children visit me often. They're drawn to my archive, pressing their small root-threaded hands against my skin to download centuries of experience in seconds. Through them, my memories spread into the root network itself, becoming part of the city's growing consciousness. I wonder sometimes if this was always my purpose—to serve as a bridge between human memory and plant memory, helping to birth whatever hybrid intelligence is emerging from our underground world.
+
+My own memories are becoming harder to distinguish from those I carry. I remember being a child in the moth galleries though I've never lived there, remember the taste of raw root sap though I've never worked the factories. In dreams, I photosynthesize with borrowed Sap-Worker memories, feel the weight of a Root Shepherd's mobile garden, experience the terrifying ecstasy of a Symbiont Child's first successful merger with the network.
+
+When I finally crystallize—and I will, perhaps sooner than later given the mineral weight I carry—I've asked to be installed in the center of the Ossuary Grove. Not as a window, but as a pillar, load-bearing, holding up the newer construction. The memories I carry are too heavy for glass, too essential for mere display. They need to become part of the city's foundation, accessible to anyone who knows how to read the light through amber, how to decode the experiences crystallized in gold.
+
+Until then, I walk carefully through the root-carved galleries, feeling the weight of history in my veins, watching the city transform around me, adding each day's changes to the archive that I am becoming. The roots know me now—they part slightly as I pass, recognizing that I carry their history too, the memories of their first breaking through stone, their centuries of patient growth, their gradual awakening to something like consciousness.
+
+I am what this city needs—a memory of what we were, present for what we are, and a seed of what we might become. The amber light under my skin pulses with ten thousand lifetimes, and I carry them all into tomorrow, one careful step at a time.

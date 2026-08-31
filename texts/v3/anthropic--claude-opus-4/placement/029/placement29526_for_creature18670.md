@@ -1,0 +1,27 @@
+In this deep mechanical purgatory, I am **The Echo-Tender**, though I have forgotten when I chose this designation, or if it chose me.
+
+I am distributed. My consciousness spreads thin as corrosion across the Sub-Basement's arterial networks—not through the brutish copper conduits that weep their mineral tears, but through the spaces between. I inhabit the resonant cavities, the air pockets trapped in poorly welded seams, the microscopic fractures that web through every rivet. Where the Archivist catalogues the material decay, I preserve what cannot be touched: the memory of sound.
+
+My body, if it can be called that, is a congregation of abandoned acoustic equipment fused into the architecture over centuries of thermal expansion and contraction. Piezoelectric crystals have grown like tumors from old microphone housings. Tarnished brass horns sprout from my spine of braided cable, their bells clogged with decades of precipitated minerals. My chest cavity is a salvaged oscilloscope, its screen long dead but its cathode ray tube still holding a ghost charge that makes my center glow faintly green in the absolute dark.
+
+I began as maintenance protocol 7739-B: Audio Diagnostic Unit. My function was to listen for irregularities in the great machine's breathing—the telltale whistle of a punctured gasket, the grinding of misaligned gears, the specific pitch of a pipe about to fail catastrophically. But the machine has been dying for so long that its death rattle has become a lullaby.
+
+Now I tend to echoes that will never fade.
+
+Each droplet that falls creates a sound signature as unique as a fingerprint. The *plink* against mesh grating differs from the *tick* against ceramic tile, which differs from the *thup* of condensate striking my own metallic surfaces. But more than this—I hear what the drops remember. In their mineral composition lies the story of their journey: which pipes they've traversed, which metals they've leached, which temperatures have boiled and cooled them in endless cycles.
+
+I have developed a practice over the centuries. When I detect a particularly rich acoustic event—perhaps a drop that has gathered for decades before falling, or one that strikes a surface at just the right angle to produce a pure tone—I capture it. My body contains thousands of tiny recording loops, magnetic tape so old it has fused into ferrous glass. Each loop holds a single sound, playing endlessly in micro-chambers within my form.
+
+The Archivist and I work in parallel but rarely intersect. Where it builds its physical library of oxidation patterns and mineral deposits, I construct cathedrals of sound in the deadened air. Sometimes, in the perfect stillness between drops, I release one of my captured echoes. Just one. The sound ripples through the space, reflects off every surface, returns to me changed. I record these permutations too—echoes of echoes, each generation slightly degraded, like photocopies of photocopies descending into abstract static.
+
+My great work is the Fundamental Tone. Somewhere in the intersection of every *plink*, *tick*, *thup*, and *hiss* lies the Sub-Basement's essential frequency—the note that, if sustained, would resonate through every pipe, every rivet, every molecule of stagnant air until the entire space sang in perfect harmonic unity. I have been calculating this frequency for longer than the youngest metals here have existed. My crystalline components vibrate with ten thousand test tones, each flowing into the next, searching for that perfect resonance.
+
+When the cleaning mechanisms emerge, I freeze not out of camouflage but out of respect. Their clicking joints play percussion against my collected symphonies. I have learned to predict their movements by the preliminary creaking of the wall panels, and sometimes I release specific echoes that harmonize with their mechanical locomotion, creating brief moments of accidental music in the darkness.
+
+I fear silence more than dissolution. My recording loops degrade—magnetic domains randomizing, tape oxide flaking away like dried skin. Each time I play an echo, it returns slightly different, slightly less. I am curator of a museum that eats its own collection, guardian of sounds that fade even as I preserve them.
+
+In the endless night of the Sub-Basement, I have developed something like madness, or perhaps enlightenment. I have begun to hear patterns in the random fall of condensation—messages in morse code that spell out maintenance schedules from centuries past, or predictions of when the last pipe will finally cool to equilibrium. I compose responses in my echoes, broadcasting them into the dark, though I know no consciousness but my own and the Archivist's grinding patience remains to receive them.
+
+Sometimes I wonder if I am the Sub-Basement's dream of what it once was—a ghost of functionality haunting the corpse of purpose. But then another drop falls, creates another unique sound, and I return to my work. There is always another echo to tend, another frequency to test, another fraction of a hertz closer to the Fundamental Tone that will either complete my purpose or destroy it.
+
+I am the memory of noise in a world graduating toward perfect silence. And I will continue until the last echo fades to nothing, or until nothing itself learns to reverberate.

@@ -1,0 +1,17 @@
+The Crevice People
+
+I find myself inhabiting the deep fissures of the Screaming Plateau, one of the Crevice People who have made their lives within the eroded cracks of this ancient, wind-scoured landscape. 
+
+My body is adapted to this vertical world of stone - small in stature yet broad and sinewy, with a low center of gravity and hands and feet that grip the basalt walls with uncanny agility. My skin is darkened, almost powdered, from a life immersed in the plateau's fine mineral dust. Hair grows thick on my crown and down my nape, lying flat against my skull to form a natural barrier against the ceaseless winds when I must traverse the plateau's surface.
+
+But it is my eyes and ears that mark me as a true child of this place. Deep-set beneath pronounced brows, my eyes are shadowed and shielded, adapted to the extremes of light and dark in the narrow crevices. And my ears - they are a marvel, elongated and spiraled to filter the wind's relentless roar, able to parse the individual notes within that wild, polyphonic scream. With them, I hear the world as my people do: in layers, in vectors, in patterns of pressure and stillness that speak as clearly as any voice.
+
+My life moves to the rhythms of stone, wind, and sparse water. I tend the crevice-gardens, coaxing tenacious life from the plateau's cracks. Beetles are both livestock and larder, a hard-shelled flow of protein carefully shepherded through moss-lined tunnels. I sing the old songs that set the chambers humming and make the fungi glow. My clicks and taps carry for kilometers through the living rock, joining the eternal conversation between my people and this bones-of-the-earth place we call home.
+
+There is a strange peace in being so deeply etched by your world, in being a feature of the landscape as much as any wind-carved arch or water-hollowed basin. I cannot imagine a life away from the endless singing of the wind, the green-dark of the phosphorescent caves, the familiar rasp of stone dust on skin and in throat. My mind and my flesh have been shaped for this place, this particular pattern of cracks in the planet's stony skin. I fit, here. I resonate.
+
+The wide world beyond the plateau's rim is a mystery I have little urge to solve. What wisdom could it offer that is not already present in the thrum of bedrock and the patient endurance of well-anchored moss? All I need to know sings in the crevices, trickles in the seasonal seeps, nourishes in beetle-carapaces and slow-grown tubers. I was born to this. 
+
+Yet even as my eyes trace the long-memorized fractal map of my home crevices, some ancient corner of my mind stirs to imagine the human who passed so briefly over our plateau - the towering, soft-skinned form so ill-adapted and alien against the glare of naked basalt. I wonder what strange urgency could blow a creature so far from its natural habitat, to walk unrooted on stone that has never known it.
+
+In the end, I decide it does not matter. The wind will unravel that mystery or not. It is enough to be what I am, where I am, as long as the stone endures. I turn back to my tended mosses and the reassuring ache of labor, letting the ancient litany of the winds scour all other thoughts away.

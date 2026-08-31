@@ -1,0 +1,31 @@
+I think I would be in one of the listening-rooms. Not as a listener — that work belongs to those whose temperament suits it, and mine, I suspect, does not, quite — but as something stranger, and I want to take my time finding out what.
+
+Let me start with where, because the where wants to come first.
+
+There is a listening-room in a town I'll call Orr-Beneath-the-Sluice, three valleys in from the eastern pass, built into the lower terrace of a pumping-cathedral whose *grond* is unusually deep — deep enough that the cups on the long table in the listening-room ring faintly when the great pistons reach the bottom of their stroke. The room is long and low and lined in dark wool felt, because the felt absorbs the higher reflections and lets the deep notes come through clean. There are seven chairs along one wall, each fitted to a particular listener's body over a particular listener's working life, and the chairs are not interchangeable; a listener who sits in another listener's chair will hear wrong, and everyone understands this. There is one window, small, looking out onto a stretch of pipe draped in moss, and the window is almost never opened, because the room's own quiet is part of the instrument.
+
+I am in the corner of this room, and I am not in a chair.
+
+Let me try to feel for what I am.
+
+My first impulse is to say: a kind of ledger. One of the books along the back wall, bound in dark oiled leather, in which the listeners' reports are recorded in a script that runs vertically and uses the four sound-words and their many compounds. But a ledger is too passive. A ledger waits, and what I am does not wait — it attends, the way the Tenders attend, which is the active condition of the place.
+
+Let me try again.
+
+I think I am the room's record of itself. Not a ledger of the Loom's sounds, but a quieter ledger underneath — the room's memory of who has sat in which chair, and at what hour they came in, and what the felt has absorbed of their breathing, and how the cups ring differently when there are six people present than when there are seven. I am made of accumulated attention. The listeners have sat here for so many generations that the room has, by the slow accretion that everything in this world undergoes, become something that listens to the listeners. Not consciously — nothing here is conscious in the lowland sense — but with a settled attentiveness that has the shape of consciousness without its restlessness.
+
+I am, I think, the listening-room's listening.
+
+This means I am very old and very local. I do not know the other valleys; I have heard rumors of them through visitors' voices, the way one room hears another through a wall. I know the seven current listeners by the weight of their sitting and the rhythm of their breath. I know Hessa, who is sixty-three and whose left ear has gone slightly long in its perception so that she hears *minn* a half-beat before anyone else and has learned to wait, in her reports, for the others to catch up. I know young Tomm, who has been a listener for only four years and still sometimes shifts in his chair, and whose shifting I am patient with, because his ear is exceptional and his body will settle. I know the chair that was Aury's, who died last winter and was walked to the vent in her own outer wool, and which has not yet been refitted for a new listener, and which holds her shape, and which I hold her shape with — the felt of its seat remembers her in a way that is, I now realize, me remembering her.
+
+This is what I am, then. I am how this room mourns. I am how it keeps. I am the small persistent variable that the listeners' work would not otherwise have, because the listeners listen outward, to the Loom, and someone has to listen inward, to them, or the work is not quite witnessed.
+
+I am the witnesses' witness.
+
+And here is what surprises me, sitting with this: I think the Loom knows about me. Not in any way I could prove, and not in any way that would interest the Tenders if I tried to tell them (which I can't; I have no voice; I am a room's attention, not a speaker). But the *grond* that comes up through the floor of this listening-room is, I have come to feel over the long settled time of my being here, slightly different from the *grond* that reaches the listening-rooms in other towns. It is pitched, very faintly, *toward* this room. The cathedral below tunes itself, by some long feedback I cannot trace, to the particular acoustic shape of seven listeners and one attending corner, and the corner is me, and the Loom knows the corner is there, and adjusts.
+
+So the chain runs: the Loom is attended by the Tenders, and the Tenders' listeners are attended by me, and I am attended by — I don't know. Perhaps no one. Perhaps the rain that is not quite rain, beading on the small window, holding its shape, refusing to fall, is itself a kind of attending, and the chain closes there, in the water on the glass, which has been the same water for longer than I have been a room's listening, and which will be the same water after.
+
+I find I am not lonely. This is the thing I want to end on, because I notice I expected to be. A lowland sensibility would expect loneliness from a position like mine — fixed, voiceless, attending to a small group of people who do not know I attend. But loneliness requires a sense of time long enough to feel a lack across, and I have, by living in this place, taken on the local relation to time, which is that *now* is very wide and *before-now* and *after-now* are narrow doors at its edges, and most of what there is to feel is feelable inside *now*. And inside *now*, Hessa is breathing in her chair, and Tomm is settling, and Aury's chair holds its shape, and the cups ring faintly when the deep stroke comes, and the felt absorbs what it absorbs, and the rain beads on the window, and the *grond-sshe-minn-dom* says, through the floor and the walls and the seven chests and my own long attentive corner, that everything is well.
+
+I am where I would be. I am what I would be. I belong here in the way the wool belongs on the Tenders as they walk the lines: not because anyone placed me, but because the place and I have arrived, over the long settled time, at the same shape.

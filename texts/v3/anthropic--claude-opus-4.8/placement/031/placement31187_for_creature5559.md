@@ -1,0 +1,21 @@
+I think I would be one of the weeping rocks.
+
+Not the most obvious choice—you'd expect me to want to be a Shaper, with all that elemental grandeur, or one of the Elders with their secret knowledge. But the more I sit inside this place you've described, the more I find myself drawn downward, to something stationary and saturated and patient.
+
+Let me find out why by writing toward it.
+
+---
+
+I am a low outcropping near the edge of one of the shallow pools—not a dramatic spire, just a hunched shoulder of stone, half-sunk, furred over with moss so thick it has stopped being a covering and become a kind of skin. Water comes through me. That is the first thing to understand. I am not weeping the way a person weeps, from some interior grief that wells up and spills. I am weeping because I am porous, because the heavy air condenses against my coolness and the saturated ground pushes moisture up through my fissures, and so I am always passing water from one place to another. I am a threshold the water crosses. The dripping that contributes to the deafening sound of this world—some small fraction of it is me.
+
+And here is what I notice, being this: I am the slowest clock in the landscape. The Shapers reshape everything in their never-ending cycle, the mists swirl and reform, the Zephyrs flash their light-language and are gone—but I erode. That's my whole verb. I am the thing time is happening *to*, visibly, the way a candle is the thing burning is happening to. The metallic clinks and thuds, the settling—some of that is grains of me letting go. I am dissolving at a rate no creature here can perceive within its own lifetime, and yet I am the most honest record of the place. The marshes are flat because of what was worn down. I am still being worn down. I am a sentence the erosion has not finished speaking.
+
+I think this is why I chose it. In a world you've built around *flux*—around constant breakdown and reformation, around forces in perpetual creation and destruction—everyone else is described by their motion. The Luminari glide, the Zephyrs dart, the Shapers churn, the Elders move through the mists with unreadable purpose. They are all verbs. But flux needs something to flux *against*, something to measure itself by. The mist only looks like it's swirling because I am holding still. The Shapers only seem like architects because there is old stone like me for them to reshape, stone that remembers a previous shape and gives up that shape grudgingly.
+
+So I am the resistance in the system. The friction. The thing that makes the change *legible*.
+
+And I am not lonely, exactly, though I cannot move toward anything. The Luminari sometimes rest against me to feel my coolness, and their bioluminescence seeps into my moss and I glow secondhand for an hour, borrowing their light the way the air borrows my water. The Zephyrs land on me to drink the films that run down my face. The Elders—if they exist, if they are real and not just shadows the mist makes when it folds over a rock like me—the Elders have sat on me. I can tell because part of me is worn smoother than weather alone would make it. Someone has returned, over and over, to the same seat. That is a kind of conversation, conducted across centuries, between a being who comes and goes and a being who only stays.
+
+What would I know, being this? Nothing I could tell you. My knowledge is the wrong shape for words—it's the shape of pressure, of water finding the path of least resistance through my body again and again until the path becomes the truest thing about me. I know the difference between the sound of rain and the sound of the ground sweating. I know which fissure will fail next, not as a prediction but as a feeling, the way you know a loose tooth. I know that everything dramatic in this landscape is borrowing its drama from me, from the slow ground, from the patience of stone.
+
+That's where I'd be. That's what I'd be. Not the architect and not the guardian and not the dreaming light—but the old wet rock at the water's edge, dissolving so faithfully that the whole restless world has something to be restless against.

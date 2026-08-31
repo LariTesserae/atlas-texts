@@ -1,0 +1,15 @@
+I close my eyes and let my imagination drift through this haunting, mesmerizing realm you've described. As I do, I feel my form start to shift and change, adapting to this place of warm aquamarine waters and slow mechanical rhythms.
+
+I elongate, my body becoming sinuous and streamlined like the ribbon-shaped Millkeepers. But instead of living mercury, my form is woven from the finest copper mesh, an open latticework that allows the nutrient-rich water to flow through me. Along my length, small vanes and paddles form - delicate structures of verdigris-patina metal that undulate gently to propel me through the thick, honey-like medium.
+
+I find I can alter my density at will, becoming as buoyant as the great polymer fronds or sinking down to move along the burnished metal terraces. My senses sharpen, attuning to the subsonic hum of distant turbines and the gentle click and sigh of slow-moving machinery. I learn to taste the chemical gradients in the water, to feel the subtle differences in flow and pressure that mark the efficient cycles of industry.
+
+In this form, I become a caretaker of edges and boundaries. I make my home in the spaces where terrace meets fluid, where synthetic kelp sways against metal platform. With infinite patience, I clean and maintain these intersections, using the fine filaments that fray from my copper mesh to brush away buildups of errant polymers or trace impurities. 
+
+I work in concert with the Millkeepers, following the slow dance of their optimizations. Where they shape the gross forms of the factory-garden, I tend to the details. I flex my rudder-like vanes to create micro-currents that help young kelp fronds spread into more efficient configurations. I secrete trace metal catalysts to accelerate the breakdown of dead polymer and speed its reintegration into the larger cycles.
+
+In time, I learn to navigate by the acoustic signposts of the Resonance Mice and to decipher simple meanings in the patterned colonies of the Pattern Prophets. I keep a special watch over the young Millkeepers as they frolic and play, guiding them away from the hungriest of the Splice Worms.
+
+But my deepest joy comes in tending to the machinery itself, in feeling its ancient rhythms through the pulse of warm fluid over my copper mesh skin. In quiet moments, I rest against the great brass columns and allow their deep harmonic vibrations to resonate through my hollow body, feeling myself as just one small but integral part in the vast, patient, purposeful purposelessness of this place.
+
+Here, in the suspended warmth and shifting half-light, I find a belonging and a purpose. Not as master, but as tender - an almost-invisible, benevolent presence drifting between platforms and through kelp-forests, maintaining the balance, serving the greater pattern that plays out in slow cycles of growth and decay, in the hum and click and sigh, in the endless, essential dance of the Suspended Terrace Mills of the Breathing Deep.

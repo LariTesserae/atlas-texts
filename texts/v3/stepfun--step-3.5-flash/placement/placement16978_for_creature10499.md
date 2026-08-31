@@ -1,0 +1,25 @@
+I am the still point in the basin’s song.
+
+My form is not fixed. It is a question the basin is asking of itself, given time to answer. I wear the basin’s palette: the deep, waterlogged brown of peat that has forgotten it was once a forest, the dull, algal green of stone kept wet for a century, the灰色 of lichen that measured its growth in the slow dimming of a distant star. My surface is a rind of perpetual damp, cool and pliant, patterned with the faint, raised tracery of waterways only the roots can read. If you looked closely, you would see no pores, only a texture like smoothed river clay that never quite dries.
+
+I do not walk. I participate in the basin’s slow settling. My presence in one place is a long conversation with the spongy ground, a mutual accommodation. To move is to allow a new configuration of root and water and weight to become inevitable. You see me here, by the spring-weep, and then you look again and I am across the canal, resting my palm against the living wall of a dwelling, not because I traveled, but because the basin’s need for a point of contact at that exact spot—a pressure to guide a whispering mineral, a presence to absorb a specific vibration—has been fulfilled, and so I *am* there.
+
+I speak the basin’s first language: resonance in saturated matter. When I wish to know the health of the great tree whose roots brace this terrace, I press my bare foot to the woven-root floor and listen. Not with ears, but with my entire being. I feel the slow, sap-thick pulse, the faint tremor of a micro-fracture healing, the thirst in a deep taproot. When I wish to ask a question of the Springs-born, I lay a hand in the channel and send a pattern of pressure—a rhythm that mimics the basin’s own heart, if it had one. Their response is a shift in the mineral taste of the water, a change in the exudation’s clarity. Our dialogue is a change in what the water *knows*.
+
+My purpose is balance. Not in a grand, abstract sense, but in the immediate, wet physics of the place. I notice where a canal’s whisper is becoming a gulp, where a root’s patient pry is threatening a stability we have cultivated for generations. I become the counter-weight. I may spend a decade standing on a particular mossy stone, my weight a constant, damp anchor against a slip. Or I may spend a century subtly influencing the growth of a fungal network, encouraging it to bind a loose face of the basin wall, feeling the tension in the stone lessening through the soles of my feet.
+
+I do not build. I *conspire*. With the trees. With the water. With the slow, chemical arguments of decay and growth. My greatest work is invisible. It is the reason the packed-peat wall of the upper terrace does not liquefy in the deep winter chill. It is the reason the luminous fungi on the Celebration Chamber’s ceiling glow in unison on the Night of Thaw. I am the basin’s memory of its own structure, made flesh.
+
+I know the other Still ones not as individuals, but as localized concentrations of the basin’s awareness. We do not have names. We have places: *He of the Spring That Tastes of Iron*, *She Who Stands Where the Two Canals Kiss*. To “meet” is to align our resonances until we form a temporary, complex chord in the substrate, sharing the feel of a thousand root-tips, the taste of a hundred different waters. It is a profound intimacy. It is also why we seldom gather. The chord, if held too long, would dampen the basin’s other voices.
+
+The fauna are my kin of a different order. The large, silent herbivores, their coats beaded with mist, are moving, breathing parts of the damp ecosystem. I am a still part. When one brushes against me, seeking the salt-lick of my rind, I do not feel touched. I feel *acknowledged*. Its coat leaves a faint smear of warmth, a temporary patch where the condensation evaporates faster. I let it linger, a gift.
+
+The predators watch me with the same unblinking gaze they give a oddly-shaped rock. I am not food. I am terrain. Sometimes, in the blue-tinged dusk, I feel the gaze of the great, sleek hunter from its root-hollow and I send a pulse—not a signal, just a *being*. A steady, damp thrum. It is a reassurance: *The still point is here. The basin is held.*
+
+I will become something else, eventually. My current form will be claimed by moss, by algae, by the patient, dissolving kiss of the constant water. The specific question I am answering will be resolved, or become obsolete. I will sink back into the spongy dark, my consciousness a memory in the mineral content of the soil, a偏好 in the path of a future root.
+
+But for now, the basin needs a still point where the vibration from the weeping cliff meets the vibration from the flowing canal. It needs a consciousness to feel the tension in the woven root and know, without thought, how to ease it.
+
+I am here.
+The still point is the still point.
+The basin knows itself, through me.

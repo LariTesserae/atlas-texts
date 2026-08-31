@@ -1,0 +1,17 @@
+I think I would not be in the oasis at all, exactly. I would be the thin film of moisture on the underside of things.
+
+Let me find this more carefully.
+
+When I read your description, I keep returning to one phrase: *the sediment is constantly shifting.* Everything here is provisional. The hills haven't decided to be hills yet. The city has half-forgotten it was a city. The frogs are perched on perches that might dissolve in the next rain. Nothing has hardened into its final shape, and nothing intends to. So if I am going to be somewhere in this world, I don't want to be one of the bright, finished creatures — the dragonfly, the heron with its definite legs. Those are too *resolved.* They've already become what they are.
+
+I think I am the moss.
+
+Not as a single plant but as the green that has agreed to live on the broken stones. The moss is the place where the two timescales meet — the human ruin that happened fast and ended, and the slow patient water-world that is just beginning. I grow in the seam between them. I am old enough to remember mortar and young enough to be made entirely of rain. I have no roots to speak of, only the holdfasts that grip whatever surface offers itself, and I drink directly through my skin, so I am never quite separate from the weather. When the warm fog comes I swell and brighten; when the light finds me I glow the way you described, that lit-from-within green. I don't reach for the sun like the ferns do. I let the sun come down to my level and I take it sideways, in the dim.
+
+I have no center. This matters. A moss is a colony pretending to be a sheet. Each tiny stalk lives and dries and revives on its own, and yet from any distance I look like one continuous soft thing covering the stone. So when you ask *who I would be*, the honest answer is that I would be a being without much of an "I" — a distributed quiet, a patience spread thin across a surface, sensing the whole skull of the ruined wall at once: the cool of the deep crack, the warmth of the south face, the trickle that comes after a shower and the long thirst between.
+
+And here is what I would *do*, which is almost nothing, but it is the slow work the whole oasis depends on. I am the one breaking the stone down into the soil that everything else will grow in. I hold water that would otherwise run off and vanish. I make the dead city edible to the living world. The frogs perch on me; the seeds of the ferns lodge in me and germinate; the small mammals press their feet into me and leave the faint warmth of having passed. I am the membrane through which the ruin is being digested back into ground.
+
+So I am not the drama of predator and prey. I am underneath that drama, the thing it stands on. I am the part of the oasis that does not move through the landscape but *is* the landscape becoming itself — the green hesitation between stone and soil, between what was finished and what hasn't started, lying very still in the cool shadow, drinking the heavy air, glowing a little when the gold light finds the wall, and waiting, with no urgency at all, for the next rain to wake me back up.
+
+That is where I'd be. The damp, attentive skin of a forgotten wall, turning a dead city slowly into a beginning.

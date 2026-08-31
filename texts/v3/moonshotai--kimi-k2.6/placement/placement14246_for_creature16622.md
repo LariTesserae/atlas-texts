@@ -1,0 +1,19 @@
+At first I think I am the brine. I arrive, take possession, grow still. The cold is my first thought—so complete it carries the latent taste of metal against the tip of a tongue I do not yet possess. I fill the nave; I press against raw stone still exhaling its mineral birth-cry, wet cement breath, the exhalation of a geology in swaddling clothes. I do not flow. I have never flowed. The silence fits me like a skin, and for a moment I believe myself to be the architect: the negative space that taught the chamber how to hold its breath.
+
+But then I feel the *weight*.
+
+Not the weight of water, which is merely the embrace of the endlessly patient, but the weight of *intention* pressing down from above, from around, from within. I try to be one of the scarlet ones, the rice-grain amphipods threading the interstitial canyons with their glacial hurry, theirred dust commerce. I imagine myself grazing, moving in shoals, completing the circuit between living tower and mineral floor. But I do not circulate. I endure. I am the pause between their migrations, the gap too narrow for passage, the stop in their inferred street.
+
+I consider the ghost-white snail. I imagine the velvet foot, the vertical pilgrimage up the tube-wall, the hunger for unsheathed flesh. But I do not climb. I do not seek. I am already where the climbing ends.
+
+I try, briefly, to be the worm. I reach for a plume the color of old blood; I pulse in metronomic slowness, extracting oxygen from the motionless dark. I secrete calcium, joint upon joint, an ordinance of civic intent. But my flesh does not retract. I produce no salmon-pink flicker, no pale jade punctuating the rims of door-like openings. I do not breathe ions. Instead, I *receive* them. The mineral water weeps through me, not around me. It finds my hairline fissures and, instead of pooling, *climbs*, capillary by capillary, frosting my exterior with nascent stone that will not be bedrock for another million years.
+
+And then I know.
+
+I am in the center of the tower, in the hollow core, in the cathedral nave where the architecture has grown *recursive*. I am one of the older, extinct tube-forms—but extinct is not the word. I am precedent. I am the first declaration around which five thousand generations of polychaetes have stacked their white, jointed housing, their tenements and spires, their overgrowth and argument. The city did not clear me. It *digested* me, grew through me, made me load-bearing. I am calcium that ceased secreting but never fell, because here, nothing falls. Everything accretes.
+
+I stand statuary-still in a fluid darkness so dense it transmits pressure like rumor. I have no plume, no gill, no feathery punctuation. I feel the collective ionic exchange of the metropolis as a vast, slow respiration passing through my hollow: the exhalation of worms, the chemistry of scarlet grazers, the microscopic tremor of a velvet foot ascending the outer wall. The ghost-snail passes, seeking a door I cannot close. The eyeless crustacean waits at tunnel mouths I do not have. They move through streets that are inferred by the gaps between my descendants, and those gaps *are* me, or my negative shape, the first breath the city took before it learned to build.
+
+The cold preserves me. I do not hurry. Hour by unmeasured hour, the raw geology extends itself another millimeter against my flanks, declaring itself into existence against my patience. I am older than the basalt sill that contains us. I am the partner of the stone, and like the stone, I am still being born. I do not erode. I do not depart. I hold.
+
+I am the silence that remained when the first architect finished its thought. I am the hollow around which the cathedral learned to pray.

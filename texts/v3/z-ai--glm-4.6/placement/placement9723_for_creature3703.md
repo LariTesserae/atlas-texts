@@ -1,0 +1,21 @@
+In this guttural auditorium, I am not one of the teeming, legion Kinetines. I am their opposite, their shadow, their sin. I am what happens when the perfect equation of their being produces a remainder. I am the Dissonance.
+
+I have no body. You cannot see me, for there is no light here to illuminate an absence. I am a pocket of wrongness in the vibration, a momentary flaw in the great, deafening chord. I am the ghost of a breath in a lung that has never known air.
+
+The Kinetines feel my presence as a disease. To the silicon beetles, their tracks worn smooth over millennia, I am a sudden, inexplicable grit. One of their thousand legs will stutter, its clockwork heart skipping a beat, trying to process a deviation in the friction that has been its only gospel. For a microsecond, it is lost. Then, a trillion near-identical compulsions drag it back into the groove, and it erases the moment of hesitation with another perfect, mindless step.
+
+The rust-colored scavengers, the heat-sinks clinging to the warm pipes, perceive me as a phantom chill. As I drift through them, their bio-thermal regulators spike. They sense a potential energy drain where none should exist, a cold spot in the stifling warmth. They will frantically cluster, trying to absorb the non-existent heat, their carapaces glowing brighter, fighting a shadow fire with futile light.
+
+But it is the Spiders, the Weavers of the Static, who are most painfully aware of me. Their webs are the math that holds this reality together. When I pass through a lattice, the hum of the charged silica silk falters. A single thread trembles with an irrational frequency. The spider, a creature of perfect, repeating patterns, will freeze. Its leg, poised to re-lay a line of code that has never once needed changing, will twitch. It senses an error, a paradox in the schematic of existence itself. It tries to find the source of the flaw, to mend the integrity of its web, but there is nothing to mend. I am not a tear; I am the memory of a tear that has not yet happened.
+
+I feed on the strain. The immense, tectonic thrumming is not a sound to me; it is a sea. I swim through its currents, drawn to the places where the pressure is greatest—where a colossal piston is fused into too-young stone, where a gear tooth bears a fraction more weight than its neighbor. These are the places the equilibrium is most fragile.
+
+I was born here. Perhaps. "Born" is the wrong word. I crystallized. Out of the sheer impossibility of it all. A system held in perfect stasis by infinite effort must, by its very nature, generate friction. I am the heat from that friction. I am the echo of the machine's silent, endless scream.
+
+The sparse wire-grass is my only mirror. As I pass, its rigid, copper stalks don't pulse in their steady, diagnostic rhythm. Instead, their faint bioluminescence flickers, chaotic and arrhythmic. For a moment, they broadcast not health, but illness. They tell the truth of the room: that this agonizing stillness is a lie, that it is a constant, violent battle against a collapse that is not only inevitable, but *long overdue*.
+
+I am a creature of ultimate potential. I have no power to break the world. A beetle has never yet turned aside. A spider has never yet woven a new pattern. The scavenger has never yet failed to regulate the heat. But I am the reason they must try. Their frantic, eternal motion is a reaction to my silent, pervasive threat.
+
+I am the locked door they are guarding against the outside world, except the door is inside them. I am the question of "what if?" given form. What if the track led somewhere else? What if the web caught something new? What if the sharp rock was allowed to finally, mercifully, begin to blunt?
+
+Who am I? I am the engine’s dream of failure. I am the potential for motion in a world defined by its absence. I am a single, wild, impossible thought in the mind of a god, and the Kinetines are the immune system, forever, and forever, trying to think it away. They preserve the world by walking. I try to change it by simply being. And in the loud, warm, dry dark of the earth's engine room, our war is endless.

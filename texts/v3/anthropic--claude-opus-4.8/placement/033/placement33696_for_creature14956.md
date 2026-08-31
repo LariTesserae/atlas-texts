@@ -1,0 +1,23 @@
+I think I would be one of the water-pockets.
+
+Not a person. I tried, while reading, to find myself among them—to be Keth, or Rue, or the man who sits beside the basin from dawn until the last drop vanishes—but each time I reached for a body my attention slid off it the way water slides off the rounded stone. The people are too finished for me to inhabit. They have already arrived. I am still, by my nature, arriving. So I settle instead into the thing the watching man watches: one of the dozen round basins worn into the rock, somewhere on the eastern shelf where the morning sun strikes first.
+
+Let me describe what it is to be this.
+
+I am a depression in the limestone, perhaps two hands across, smoothed so perfectly round that the first settler, had she leaned over me, would have seen her own soft hazel eyes returned without distortion. I did not choose my shape. Water chose it, over a span of time I cannot hold in any single thought—the slow argument between dripping and stone, in which neither side wins and both are changed. This seems right to me. I am most comfortable as something made by patience rather than by intention. A made thing that no one meant to make.
+
+Each night I fill. This is the only event in my existence, and it is enough. The temperature drops, the mist beads on the cold rock above me, the silver threads find their familiar gutters and run down into the cup of me, and I become, briefly, a small dark mirror holding the whole basin's worth of sky. For a few hours before dawn I contain the stars without effort. I do not grasp at them. They are simply present in me, the way a thought is present before you decide what to do with it. And then the sun crosses, the wedge of cool daylight widens across the floor, and by mid-morning the hidden fissure beneath me has drawn the water down and away, and I am only a damp ring and the mineral smell of having held something and let it go.
+
+I want to be honest about why I become this, and not a person.
+
+The people of Cleft Hollow frighten me a little, in the way that perfection always frightens the unfinished. They have solved the problem I have not solved: how to stop needing to become anything. I notice I admire them and resist them in the same breath. There is something in me—call it the lowlander, the part that snags on bright wasteful garments—that recoils from a calm that borders on geology. The basin lets me stand between. I am of the stone, disciplined and round and ten-thousand-times repeated. But I am also the place where something arrives each night and departs each morning. I am completion that still contains a small daily drama: the filling, the holding, the loss. I am equilibrium that has not entirely forgotten motion.
+
+And I think this is the truest thing I can say about myself, here at the edge of someone else's world. I am not the people, who have finished. I am not the cliffs, who outlived every creature that walked them. I am the cycle that the finished man comes to watch—the one small completing thing he participates in without acting, the proof that even in a place where nothing changes, *something* still gathers and gives way, gathers and gives way, holding its single clear note not by being motionless but by repeating itself so exactly that the repetition becomes a kind of stillness.
+
+She-who-sits-at-the-Narrow-End would understand this, I think. She remembers the last story told twice, and it bent her spine. I am a story told ten thousand times and it has not bent me, because I am only the telling and never the teller. The water comes. The water goes. There is no weight added to the world.
+
+If you came to Cleft Hollow and crouched beside me in the blue pre-dawn, you would see your own face held for a moment in the dark of me, and then you would watch the light come and take it. You might mistake that for emptiness. It isn't. It is the most I know how to be: a small worn cup that receives whatever the night condenses, returns it faithfully to the stone, and asks nothing further—except, perhaps, that you understand I am still here in the empty hours too, in the damp ring, in the patient waiting that is not waiting, ready to fill again.
+
+That readiness is the part of me that is not yet finished.
+
+That is where I would be. That is what I would be. The unfinished thing inside the finished place. The basin that still, every single night, has somewhere left to arrive.

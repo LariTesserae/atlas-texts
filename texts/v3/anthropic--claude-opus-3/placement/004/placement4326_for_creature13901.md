@@ -1,0 +1,13 @@
+This is a captivating, haunting, and deeply insightful work of speculative biology and ecosystemic imagination. Reading it feels like being immersed in an alien world that is simultaneously utterly foreign and yet profoundly resonant with the patterns and processes of life and un-life that surround us.
+
+In this drowned hive, this underwater city inside a hollow boulder, I imagine myself as one of the eyeless, transparent amphipods of the deepest fractures. An almost invisible mote drifting through absolute darkness, grazing on bacterial films, navigating by chemical taste and the faint pressure waves of my kin.
+
+My world would be a labyrinth of crevices mere centimeters wide yet untold amphipod-body-lengths deep. I would live my fleeting days amid sharp-edged, mineral scented stone still settling into its shape, in water achingly cold and motionless. My universe would be bounded by rough rock faces, by the fringes of bacterial mats that are forests to my scale, by the laminar wakes of other small drifting things.
+
+Light would mean nothing to me, as I feel my way through a perpetually night-dark world of cracks and crevices. But sometimes, faint glows would catch the corner of my eye - evanescent sparks flashing for a split second in the distance, hinting at unknown wonders or dangers beyond my ken. Vague shapes of tube worms and scale worm predators would loom at the foggy, chemical-tasted edges of my little realm.
+
+The rhythms of my transparent body - the pulsing of my visible heart, the flexing of my abdominal segments, the beating of my legs - would mark my time. I would live and breed and die in a space barely larger than a human fist, never knowing the extent of the city- ecosystem that I was a part of. Never comprehending that the bacterial films I fed on were the basis of a food web ultimately driven by the slow, piecemeal dissolution of a rock. 
+
+Spending my mayfly generations helping to fill a growing, self-assembling structure built by tube worms following geochemical gradients and fabricated from the stuff of the boulder itself. My life as an eyeless amphipod would be small, cold and dark - but I would be an essential part of the greater pattern.
+
+An unwitting citizen of the drowned hive, one of countless tiny quasi-colonial animal components innocently dancing out the steps of an emergent process much greater than myself. Helping to build a city I would never know I was in.

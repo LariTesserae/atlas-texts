@@ -1,0 +1,25 @@
+In this constructed wetland, where water seeps through every intention and time moves like sap through wood, I am one of the Tide Readers.
+
+We are few—perhaps seven of us remain, though the number shifts like everything here. We move between the watching towers on paths worn smooth by generations of our kind, our feet finding the same depressions in the clay composite, our hands touching the same posts for balance. The water knows us by our weight, by the particular rhythm of our steps. We know it by its thousand voices.
+
+I wear robes of woven reed, dyed grey-green with the moss that grows on the undersides of the piers. The fabric is always damp—not soaked, but holding moisture like skin holds warmth. Around my neck hangs a collection of small tools: bronze picks for clearing the canal mouths, bone needles for mending the reed tents, a hollow reed through which I can taste the water's mineral content. My hands are stained permanent blue-black from years of marking the tide levels on the stone platforms.
+
+My dwelling is one of the flat-roofed structures, neither home nor temple but something more essential. Its walls are lined with marks—not words exactly, but a notation system that captures the water's moods. Curved lines for the slow seep, jagged ones for the sudden surges, spirals for the whirlpools that form in the deeper channels. I inherited these marks from the Reader before me, and I add my own observations in the spaces between.
+
+Each morning—though morning here is just a quality of mist, a particular density of grey—I walk the full circuit of the wetland. I check the weirs we've built to direct the flow, adjust the wooden gates that control the canal levels, clear debris from the shallow pools where the amphibious creatures spawn. These creatures, with their precise movements and ancient eyes, are my colleagues in this work. They know when the water will rise before any instrument could tell it. I watch them, and they watch me, and together we maintain the delicate balance.
+
+The iridescent birds nest in the eaves of my dwelling. Their eggs are the color of deep water, and their young hatch knowing the songs that predict the weather. I feed them small fish from the pools, and in return, they warn me of disturbances—a blocked channel three bends away, a structure beginning to list, a new spring opening in the clay. Their high trills weave through my dreams, which are always dreams of water rising, water falling, water finding its way.
+
+But it's the shadow-things I truly serve. They gather where the water pools deepest, in the spaces between the constructed and the grown. They are not malevolent, but they are hungry—not for food, but for acknowledgment, for the careful attention that keeps this place from dissolving back into either pure artifice or pure wildness. I leave offerings at these deep pools: patterns drawn in floating pollen, arrangements of stones that mirror the canal networks, sometimes just my presence, sitting silent for hours as the mist moves through me.
+
+The other Readers and I rarely speak. We communicate through the placement of marker stones, through the particular way we tie back certain reeds, through the rhythm of our maintenance work. We share a knowledge that predates language—an understanding of how water wants to move, how structures want to settle, how time wants to pool in certain corners of this in-between place.
+
+At night—though night here is just a thickening of the blue-grey haze, a quieting of the bird calls—I maintain the tools. Bronze must be kept from verdigris, wood from rot, rope from fraying. This is meditation and necessity both. My hands know the work so well they continue even as my mind drifts, following the sound of water through its endless paths.
+
+Sometimes I find artifacts from the original builders—a ceramic vessel with markings I can't read, a bronze fitting whose purpose eludes me, stone blocks carved with symbols that might be maps or might be prayers. I incorporate these into the current structures when I can, weaving the old intentions with the new needs. The wetland accepts these offerings, makes them part of itself.
+
+I am not young anymore. My joints predict the weather as accurately as the birds do. Soon, I will need to choose a successor—someone who can read the water's moods in the color of the algae, who understands that this place is neither natural nor artificial but something more true than either. Someone who can feed the shadow-things with their attention, who can sing back to the birds in their own language, who knows that maintenance is a form of prayer.
+
+Until then, I continue my rounds. I clear the channels, adjust the flows, watch the creatures, tend the structures. I am a small part of this vast, breathing system—a consciousness the wetland has grown to observe itself, to keep itself in balance. I am constructed and natural both, like everything here. I am what this place needed, and so I became.
+
+The water rises. The water falls. I make my marks on the stone, and the wetland remembers.

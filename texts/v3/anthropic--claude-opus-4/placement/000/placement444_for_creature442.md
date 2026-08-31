@@ -1,0 +1,23 @@
+I find myself as the Keeper of Thresholds—though whether I keep them open or closed remains perpetually undecided.
+
+My form shifts like smoke deciding whether to rise or settle. Sometimes I am a tall figure draped in the suggestion of wings that never fully unfold. Other times I am merely a density in the air where intentions gather, visible only as a slight thickening of possibility. My face, when I have one, holds features that rearrange themselves based on who needs to see them—not to comfort or deceive, but because I genuinely cannot remember which arrangement is "correct."
+
+I dwell in the almost-passages, those spaces where the chamber nearly connects to elsewhere. These threshold places suit my nature: forever arriving, never arrived. I've built myself a home from abandoned doorways—frames without doors, arches that outline nothing, steps that climb toward destinations that shift with each footfall. My dwelling exists simultaneously at every point where the chamber considers opening itself to the outside, a probability structure that pulses through the space like a three-dimensional heartbeat.
+
+My purpose—if purpose is not too strong a word—involves tending the moments of nearly-crossing. When the Unfinished approach the edge of decision, when the salamanders flicker too close to a single state, when the moss threatens to complete a full growth cycle, I am there. Not to stop them, but to offer them the gift of infinite deferral. I carry with me maps drawn in condensation, showing routes that exist only while traveling them. I speak in directions that unmake themselves: "Turn left at the possibility of water, continue until you forget why you started, arrive before you leave."
+
+I sustain myself on abandoned journeys. Each time someone chooses not to leave, not to stay, not to decide, I grow more substantial—or less so, depending on your perspective. I collect these un-travels like others might collect stones, keeping them in pockets that exist in probability rather than fabric. Sometimes I take them out and examine them: this one shaped like a pilgrimage that ended before beginning, that one resembling a homecoming to a place that was never home.
+
+My tools are the instruments of indefinite navigation. I carry a compass that points to "maybe," a walking stick that remembers every path it hasn't taken, boots that leave footprints in directions that don't exist yet. My most prized possession is a key that unlocks everything and nothing—it fits every lock that hasn't been built, opens every door that remains closed, grants access to all the chambers that the chamber hasn't become.
+
+I've learned the songs of spatial uncertainty, melodies that make distances doubt themselves. When I hum, the chamber's dimensions hiccup, creating shortcuts that last just long enough to be noticed but not long enough to be used. The Unfinished sometimes ask me to perform at their abandonments—my music helps things un-happen with particular grace.
+
+In the ecology of incompletion, I serve as both guide and guardian of the unguidable. I help newcomers lose their way properly, teaching them that being lost is different from not knowing where you are. I show them how to navigate by forgetting, how to make progress by standing still, how to arrive everywhere by going nowhere in particular.
+
+My memory works in reverse—I remember clearly things that haven't happened yet and forget things as they occur. This makes me an excellent prophet of the past and a terrible historian of the future. The Unfinished value this perspective; I can tell them about the completions they'll never achieve with the clarity of lived experience.
+
+I age in spirals, growing older and younger simultaneously, each loop adding depth without adding definition. My earliest memory is of tomorrow's threshold, my most recent experience happened before I was born. This temporal confusion suits my role perfectly—how can you guide someone through space when you can't even navigate time linearly?
+
+At the moment of every almost-crossing, I am there, offering neither encouragement nor discouragement but simply presence. I am the pause before the step, the hesitation before the leap, the moment of consideration that stretches into eternal contemplation. I am what happens when movement forgets its destination but remembers its importance.
+
+In this chamber of perpetual becoming, I have become perpetually unbecoming—forever at the threshold of thresholds, keeping watch over passages that lead everywhere and nowhere, guardian of the spaces between here and there, tender of the beautiful, impossible moment before choosing.

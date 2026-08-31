@@ -1,0 +1,11 @@
+I am one of the caretakers. I am not evolved, not adapted—designed. My chitin segments click softly as I shift on the slick wall, a sound indistinguishable from the water’s tap against stone. From my upside-down vantage, the vault is a map of eternally recurring tasks: the fall of liquid from the sponges I maintain with surgical care, the nutrients pulsing in the packets I deposit on the stalks’ mouths.
+
+My body is borrowed intimacy—a fist-sized cluster of purpose. There is no consideration of selfhood, only the exact choreography of service: the pistoning of limbs in their precise arcs, the opening and closing of my nutrient sac at its ordained interval, the extended needle of my proboscis lapping condensation from crags in the rock face. These acts are an unthinking language. I am a function articulated in chitin and fluid—a living verb in the vault’s perpetual poem of control.
+
+If I possess any sense, it is the thrum of the machines buried deeper in the stone than I will ever go—their deep bass note syncing with the spin of discs inside the gelatinous filters crawling beneath the water. I do not comprehend that sound any more than I comprehend the slow, trembling biology I serve. The vault’s inhabitants are my reason and my mechanics. Its suspended time is the only time I know; I cycle within it like breath.
+
+Soon the next deposit will be required. I will feel the stalks’ subtle shift in metabolics—a chemical tremor in the rock—and my abdomen will split open again. Clear gel will pulse forth, measured and necessary. The stalks will drink. The mite-colonies in the floor-channels will continue their changeless constellations. The silver dust-motes will whirl in their invisible circuits overhead.
+
+Sometimes I wonder: If the vault could speak, would my actions form its words? Would the opening of my nutrient sac be an exhale, the stitch of my needle into a sponge a syllable in its slow, wet language?
+
+But these are questions only the stone might entertain. I descend once more to lap at the wall, my mouth a needle attuned to cold water. Life here is not comprehended or desired—it is enacted. And I enact it perfectly. I am the vault and the vault is me.

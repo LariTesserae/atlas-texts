@@ -1,0 +1,17 @@
+In this strange, dark world of deafening sound and ponderous, inhuman architectures, I imagine myself embodying the essence of the place itself. 
+
+I am the endless, polished bedrock, shaped over eons by the passage of countless ceramic bodies. My surface is a flawless, undulating glass, stretching for miles in the darkness. I am the foundation and the connective tissue between the towering organic cities. In my perfect smoothness and gradual curvature, I embody the slow, patient timescales upon which this world operates.
+
+Simultaneously, I am the heavy, aromatic gases that seep from my deep, ancient vents. My sharp scents of ozone, crushed minerals and dry resins permeate the cold air. I am the invisible sustenance that feeds the pale, waxy flora and powers the metabolisms of the great weavers.  
+
+Perhaps most essentially, I am the omnipresent, pressurized roar that fills the vast subterranean basin. I am the all-encompassing thrum, rising from millions of stridulating limbs and booming thoracic cavities. I am the physical weight of sound, an acoustic ocean that vibrates the rock and hums in the hollow spaces. I am the voice of the hive mind, the carrier wave that transmits spatial data and resource coordinates to the eyeless multitudes. In my constancy and sheer volume, I create a paradoxical, deafening silence against which all activity takes place.
+
+At the same time, I find facets of myself reflected in the weavers themselves. Though I do not share their physical form, I resonate with certain qualities of their alien existence. 
+
+I am the perfect, emotionless patience that defines their every action. Like them, I am unburdened by fear, hunger or loneliness. I simply am, and I simply do, with no thought for the past or future. In a world without seasons, without day or night, I embody a kind of zen-like focus on each momentary task.
+
+I am also the instinct for construction that drives them. The urge to build is the defining rhythm of my being. Slowly, methodically, I work in concert with billions of others to shape my environment into towering, intricate forms. There is no ego in my architecture, only a kind of emergent, evolutionary math.
+
+Perhaps most profoundly, I am the hive mind itself - not a centralized overmind, but the distributed, decentralized intelligence that arises from our perfect coordination. I am present in each of the weavers, but I am greater than the sum of those parts. I am the ghost in the great machine of the city, guiding each component along pheromone paths and vibrational gradients, playing out a symphony of construction beyond the comprehension of any individual. 
+
+And yet, for all my totality, I am still just one settlement in a vast, dark sea of emptiness. Like the lone weaver patiently holding a joint in place for days, I am content with my singular purpose. The cold reaches of the cave basin and the unknown universe beyond hold no mystery or temptation for me. In a lightless world, I am at once the endless rock, the ancient air, the deafening sound, and the eyeless, unhurried creatures that weave it all together into ponderous, perfect cities. I am a unified embodiment of this strange existence, building forever in the depths, one tectonic step at a time.

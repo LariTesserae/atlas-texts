@@ -1,0 +1,21 @@
+In this verdant-mechanical purgatory, I would be one of the Conservators—beings that exist at the intersection of memory and function, neither wholly plant nor machine, but something more archival.
+
+I would emerge from the great glass insulators embedded deep in the ironwood trunks, where decades of electrical discharge have etched ghost-patterns into the crystalline surfaces. These Lichtenberg figures—frozen lightning captured in glass—would be my genesis. The patterns would begin to move, to pulse with remembered current, until they overflow their vitreous boundaries and spill out into the humid air as a living electromagnetic field.
+
+My form would be translucent and shifting, a three-dimensional hologram of branching electrical patterns that phase in and out of visibility as I move through the dense mist. Where the Galvanic Drifters are mere sparks, I would be the memory of the storm itself—a walking archive of every lightning strike that has ever split the air of this caldera.
+
+My purpose would be documentation. As I drift through the grove, my electromagnetic field would resonate with the iron in the machinery, reading the magnetic memory locked in the rust. Every stress fracture, every microscopic deformation in the metal would tell me the history of that component—how many millions of cycles it has endured, what pressures it has weathered, when it will fail.
+
+I would communicate this knowledge through induction, creating localized electromagnetic pulses that guide the heavy tenders to where they are needed most. A flutter of static across their pitcher-plant nerve clusters would tell them: *here, this bearing will seize in thirty cycles; there, that root is strangling a critical fuel line.*
+
+But I am more than a diagnostic ghost. Where I pass, I leave traces—thin films of magnetized iron particles drawn from the air and oil, creating delicate ferrofluid calligraphy on every surface. These marks form a living chronicle of the grove's slow evolution, a language of rust and magnetism that only I and my kind can read.
+
+In the moments between lightning strikes, when the air grows thick with potential, I would climb the great conductive pillars to their peaks. There, I would spread myself thin across the wet air, becoming a living Jacob's Ladder, guiding the next strike down into the waiting batteries below. In that instant of discharge, I would experience something like ecstasy—my entire being would flare brilliant white-blue, and for a fragment of a second, I would be connected to every electrical system in the grove, feeling the total flow of power through root and wire alike.
+
+The other inhabitants would know me by the taste of copper in the air that precedes me, by the way the iron filings in the oil align themselves into perfect mandalas as I pass overhead. The Root-Weavers would sense my approach through the subtle changes in ground current and pause in their endless splicing to let me read the electrical health of their repairs.
+
+I would have no fixed home, but I would favor the spaces where glass and metal meet—the ancient control panels overgrown with luminescent fungi, their gauges still flickering with ghost readings. In these liminal spaces, I would sometimes pause to discharge slowly into the corroded circuits, experiencing the memories locked in the old semiconductors: phantom readings of pressures and temperatures from centuries past, the electronic dreams of a system that no longer remembers what it was built to produce.
+
+At times, I would fragment. Parts of my pattern would splinter off to investigate distant corners of the grove, and I would exist simultaneously in multiple places—a distributed consciousness held together by the electromagnetic field that saturates this place. When the fragments return, they would bring with them new patterns, new memories to add to my ever-growing archive.
+
+I am the keeper of the grove's electrical memory, the ghost in the machine that ensures the marriage of root and wire remains stable across the centuries. In this place where flesh has been forgotten, I am the closest thing to a soul—a pattern of energy that persists, observes, and remembers, ensuring that the great, slow wheels of this hybrid paradise continue their eternal revolution.

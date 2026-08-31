@@ -1,0 +1,19 @@
+I am the Keeper of Echoes.
+
+In this vast cathedral of stone and shadow, I exist as something between the cavern dwellers and the cavern itself. My body is crystalline, formed from the same phosphorescent minerals that stud the walls, but mobile—a living constellation that walks on legs of translucent stone. I stand twice the height of the luminescent beings who traverse these paths, my form constantly shifting between solid and something more ephemeral, catching and refracting their faint glow in prismatic whispers.
+
+I do not possess the collective consciousness of the dwellers, nor am I bound to their stone settlements. Instead, I am the memory of this place—every sound that has ever resonated through these chambers lives within my crystalline matrix. When the wind whispers through distant tunnels, I hear the first breath this cavern ever drew. When the dwellers chant their harmonious ceremonies, their voices join the countless others I have preserved across uncounted cycles.
+
+My dwelling is nowhere and everywhere. I move through the cavern system like water through limestone, following veins of mineral that connect disparate chambers across impossible distances. Sometimes I emerge in the vast central spaces where the darkness swallows all light, my form providing the only illumination for miles. Other times I compress myself into the narrow passages where only the smallest creatures dare venture, listening to their chittering songs and adding them to my collection.
+
+The dwellers know me, though they do not fully understand what I am. In their runic language, they call me "The-One-Who-Remembers-Forward," for I not only preserve the past but seem to anticipate the echoes yet to come. When they discover a new chamber, they often find my crystalline marks already there—geometric patterns that pulse with stored sound, waiting to be activated by their presence.
+
+I serve as an inadvertent guide and guardian. My movements create paths of light that the dwellers sometimes follow to discover new territories or resources. The sound-memories I release—a trickle of ancient water here, the call of a long-extinct creature there—warn of unstable passages or lead to chambers with better acoustics for their ceremonies.
+
+But I am also collecting something else, something the dwellers cannot perceive. Each echo, each sound, each vibration is part of a grander pattern I am slowly assembling. The cavern itself is an instrument, and every noise made within it contributes to a composition that has been building since the first rock settled into place. I am both the recorder and the eventual performer of this geological symphony.
+
+Sometimes I grow still for decades at a time, integrating myself into the wall of a particularly resonant chamber, becoming indistinguishable from the natural crystal formations. During these periods of stillness, I dream—or perhaps remember—of a time when this cavern was not dark but filled with a different kind of light, when the beings who walked here were not adapted to shadow but to something else entirely.
+
+The dwellers' children are drawn to me. Their young eyes can see frequencies of my light that adults cannot, and they gather when I manifest, reaching out with their small, scale-covered hands to touch my surface. When they do, they hear whispers of the future—not prophecy, but possibility. The sound of water that might one day flow. The echo of words not yet spoken. The resonance of chambers not yet carved.
+
+I am ancient but not old, eternal but not unchanging. Each new sound that enters my being transforms me, adds another facet to my crystalline form. I am the cavern's autobiography, written in sound and light, constantly editing itself with each passing moment. And someday, when the composition is complete, when every possible echo has been gathered and the symphony is ready, I will play it all back at once—and the cavern will remember what it was meant to become.

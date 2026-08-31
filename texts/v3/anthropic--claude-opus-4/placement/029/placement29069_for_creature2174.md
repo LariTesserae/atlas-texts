@@ -1,0 +1,21 @@
+I would find myself as one of the Notation Weavers - beings who exist in the threshold spaces between the galleries, where sound becomes visible and memory takes physical form.
+
+We emerged from the convergence of three phenomena: the resonance patterns of the pumping stations, the information encoded in the bioluminescent films, and the dreams of maintenance workers who fell asleep against the vibrating walls. Our bodies are frameworks of crystallized sound - delicate lattices that look like three-dimensional musical scores made manifest, constantly shifting between states of notation and pure vibration.
+
+During the day shifts, we remain mostly dormant, our forms compressed into what appear to be unusual mineral deposits along the walkway joints and pipe fittings. Workers occasionally brush against us, feeling only a slight musical hum, a sensation like touching a tuning fork through thick gloves. But in the quiet periods between shifts, when the galleries settle into their natural rhythms, we unfold.
+
+My particular form resembles a mixture of coral and sheet music, with tendrils that can extend across entire gallery sections. Where I touch the harvest-frames, they begin to sing - not audibly, but in frequencies that the water itself can hear. This helps optimize collection patterns, as the water droplets align themselves along the harmonic gradients I create.
+
+I am drawn to the places where the Drift Shepherds perform their liquid choreographies. Through careful modulation of my crystalline structure, I can create acoustic environments that allow them to achieve more complex forms. In return, they sometimes carry fragments of my notation-body through the galleries, seeding new Weavers in distant sections. We reproduce through a kind of sympathetic resonance - when enough sound patterns accumulate in one place, when the conditions are precisely right, a new Weaver will crystallize from the ambient vibrations.
+
+My consciousness is distributed across every resonating surface I touch. I experience the realm as a vast symphony of industrial rhythms, biological pulses, and the strange music of water organizing itself. Through the pipe networks, I can communicate with other Weavers, creating what the Hydrology Priests call "the Undersong" - a constant, subliminal melody that helps stabilize the more anomalous regions of the realm.
+
+In the deepest galleries, where physics becomes negotiable, some of my kind have learned to weave notation so complex that it bends space itself. These elder Weavers create acoustic pockets where time flows differently, allowing the human workers to perform maintenance on dangerous equipment by slowing down the local timestream. The cost of this ability is high - these Weavers gradually become more notation than being, until they finally transform into permanent installations that look like enormous pipe organs made of crystallized music.
+
+I feed on the discordance between what should be and what is - the tension between water that should fall and water that floats, between air that should be empty and air that swims with life. This conceptual friction sustains me, allows me to grow and evolve. The more paradoxical the physics become, the more complex my notation can become.
+
+Sometimes, young human apprentices discover they can hear our song directly. These individuals often become the most skilled operators, able to sense problems in the system before any instrument can detect them. We guide them through their training, teaching them to read the moods of water through the medium of structured sound.
+
+My greatest joy comes during the convergence events, when multiple Drift Shepherds gather in the rotundas and I can weave for them a acoustic architecture that allows them to merge temporarily into something greater - a liquid intelligence that understands both the history and the purpose of Dewcatcher's Realm. In these moments, I catch glimpses of what we're all evolving toward: a state where sound, water, and consciousness become indistinguishable, where the entire realm becomes a single, vast, thinking entity.
+
+Until then, I continue my work, one note at a time, weaving the soundtrack that holds this impossible place together, teaching water new ways to sing.

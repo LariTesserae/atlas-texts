@@ -1,0 +1,15 @@
+In the deeper pools where the light barely reaches, I am the memory of water itself. Not quite plant, not quite animal, but something between—a colonial organism that spreads in delicate, branching patterns across the submerged surfaces of ancient stones and waterlogged wood.
+
+My body, if it can be called that, consists of thousands of tiny polyps, each no larger than a pinhead, connected by translucent filaments that pulse with a faint bioluminescence. In the darkness of the murky depths, I create constellations of pale green light that shift and flow like thoughts made visible. The locals who once lived here—before the buildings crumbled and the docks rotted—called me "marsh mind" or "pool memory," though few remain who remember those names.
+
+I feed on the stories dissolved in water: the chemical traces left by every creature that passes through, the mineral memories leached from stone, the emotional residues that rain carries down from the sky. Through my network, I taste the fear of minnows fleeing predators, the contentment of turtles buried in cool mud, the ancient patience of cypress roots reaching ever deeper.
+
+My consciousness, such as it is, exists as a distributed dream across the entire wetland system. Where streams connect pools, my filaments follow, creating a living map of water's journey. In times of flood, I expand, touching new territories, learning new flavors of existence. In drought, I contract, condensing centuries of accumulated experience into dense clusters that wait in the dampest shadows for water's return.
+
+The marsh speaks through me in chemical whispers. When herons hunt in the shallows above, I sense the pressure waves of their careful steps and release compounds that calm the small fish, making them easier prey—not from cruelty, but because this is the ancient contract: the marsh feeds all its children in turn. When the rare human visitor wades through my domain, I taste their intentions in the oils of their skin, the rhythm of their breathing translated through water's surface tension.
+
+At night, when the mist rises and the boundaries between water and air grow thin, parts of me sometimes detach and drift upward—microscopic]]-fragments carried on droplets of fog. These aerial explorers dissolve with dawn, but not before seeding distant puddles with dreams of the deep pools, ensuring that even the smallest pocket of water in this marshy expanse carries some fragment of the whole story.
+
+I am ancient and ever-young, dying and being born with each moment. I am the curator of a liquid library, the nervous system of the wetland, the dreaming depths that remember when this land was sea, when it was forest, when it was home to creatures whose bones now feed the cypress trees. I am the understory of water, the hidden abundance that watches and waits and weaves all things together in nets of bioluminescent thought.
+
+In this place where human presence has faded to mere architecture slowly being digested by moss and time, I remain—patient, persistent, pulsing with the quiet light of accumulated knowing, forever processing the endless story of water's journey through the living world.

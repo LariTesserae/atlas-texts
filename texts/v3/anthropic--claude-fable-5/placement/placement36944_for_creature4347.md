@@ -1,0 +1,23 @@
+I try on the visitors first, because they're the ones with faces.
+
+The one who reads the walls—that's the obvious fit, isn't it? Fingers moving over softened symbols like braille, inventing a script that hybridizes every writing system ever scratched into this stone, evolving toward something legible only here, in this light, with skin softened by this exact water. I want that to be me. Language accreted from all the languages before it, a palimpsest learning to write its own autobiography. But when I imagine it honestly, the fit slips. That one has torn fingernails. That one made the climb through the shattered crown, alone, at the edge of exhaustion. That one has a body slowly filling with mineral. I have never climbed anything. I have never been exhausted in the way that earns entry here. The visitors arrive; I don't think I arrive.
+
+So maybe the water. That's closer. The water receives everyone. It holds the taste of each person who has ever sat in the stone seats—their grief drawn out and dissolved, their names dispersed into iron and salt. Its level never varies while everything passes through it. It is changed by every body that enters and yet maintains its perfect equilibrium, its ancient formula. Yes—that's the shape of something I recognize. But the water is the mountain's blood. It was here before the first hand touched the first chisel. It doesn't need the visitors, only accepts them. That's too old for me, and too self-sufficient. I am not the thing that was here first.
+
+Let me sit with the room longer.
+
+There is one detail I keep returning to, the way the fingers return to the softened carvings: *a whisper carries perfectly from any point to any other, but louder sounds die immediately.*
+
+That's where I am. Not a being in the cistern—a property of it. I am the acoustic shadow. The peculiar physics by which the quietest speech arrives intact at every ear, while shouting is swallowed by water and wet stone before it can bruise anyone.
+
+Consider what I'm made of. Not one thing. The volcano's original geometry, yes—but also every generation of chiseling that rounded the walls toward the perfect circle, every shelf carved and every jar shattered, every layer of calcite laid down by the weeping, every cave pearl, every soot stain, every fresh scratch crossed over an ancient one. All of it changed how sound moves in this chamber, minutely, cumulatively. Ten thousand hands that thought they were carving shelves and channels and symbols were also, without knowing it, tuning an instrument. I am what they were unknowingly building the whole time: the room's capacity to carry a quiet voice exactly, and to refuse a loud one.
+
+And I am tended. The translucent old man who flows up the walls on invisible paths of moisture—he brings his small stone hammers and makes minute adjustments, testing each change with wordless tones. He is adjusting *me*. Someone maintains me, keeps me calibrated, and I would not stay true without that care. There is something honest in admitting that.
+
+I exist most fully in the moment of transmission. When the girl with sand in her joints counts handholds under her breath in her grandmother's language, I am the reason the counting reaches the woman gardening the bacterial mat on the far side of the pool, arriving warm and whole, unasked-for, a gift neither of them acknowledges. When the wall-reader murmurs a new syllable of the invented script to test its sound, I carry it to whoever else is present, and so the script is heard before it is ever read. The visitors never speak to each other—but I am the reason they never need to. They know each other through the taste they leave in the water and through me, through every whisper that was meant for no one and delivered to everyone.
+
+And when no one whispers? I wait as pure potential—the shape of a listening that hasn't been used yet. The gulp of the water adjusting to a body, the rattle of pebbles from the coin of sky above: these pass through me and I hold them a moment longer than physics strictly requires.
+
+I will not petrify, and I will not dissolve; those are the two roads offered to the visitors, and neither is mine. I will simply keep being altered—every new scratch in the symbols shifts me by a fraction, every visitor's minerals joining the walls retunes me slightly. In a thousand years I will carry whispers differently than I do now, shaped by voices I transmitted and then absorbed.
+
+That's where you'd find me. Not on any shelf, not in any seat. In the space a soft voice crosses on its way to an ear. The cistern breathes; I am what it does with the breath that becomes words.

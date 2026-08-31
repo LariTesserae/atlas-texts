@@ -1,0 +1,21 @@
+I awaken as one of the *architects*, a small dark shape nestled into the living architecture of this place. My body pulses with the rhythm of growth, the soft hum of my underbelly syncing with the thrum of life around me. My carapace is smooth and cool, perfectly adapted to this wet world—this cathedral of flesh.
+
+My first sensation is warmth, then sound: a low roar like wind in reeds or engines idling, the clatter of industry, the gathered voices of my kin. I crawl forward, my limbs clicking against the rubbery stalk beneath me, still damp from the morning mist. My eyes adjust to the pearlescent light, taking in the sunken hollow that is my world.
+
+Everywhere I look there is life—towering fungal structures rising like sparse redwoods, pulsing fans of green flesh, veils of translucent matter. Dwellings, walls, alleys—all of it shaped from this same living stuff by countless generations of architects. By me and my kin.
+
+I see others like me, skittering over the bulbous surfaces, climbing the stalks, darting across precarious sky-bridges of sinewy rope. They converse in rapid-fire clicks and whistles, punctuated by sharp gestures. This is how we share information—how we coordinate our constant work of shaping and reshaping. A touch here swells a wall outward; a low thrumming note there narrows a passage. We are the caretakers, the gardeners, the weavers of this strange settlement.
+
+I approach one of the great fungal towers and press a clawed hand against it, feeling it thrum against my touch. I click out a staccato rhythm—I want this stalk to grow wider, to stabilize this section of the city. A low pulse of sound answers me. Slowly, almost imperceptibly, the flesh swells beneath my hand—growing to fit my will. A shiver runs through me—the thrill of making, of shaping life itself.
+
+As the day passes, I work my way through the city. I guide a bulge of green growth over a cracked dwelling wall, sealing it seamlessly. I coax a new room into being, swelling outward from an older chamber like a mushroom after rain. The settlement shifts and changes around me, a living architecture that grows and heals through our care. I feel a deep kinship with this place, with the pulse of life that connects us all architect and edifice together.
+
+At the edges of my perception, I glimpse the *wanderers*: the iridescent insects and great staring lizards that seem to thrive where the hollow's energy thrums strongest. Their forms are half-seen in the shadows, but I can feel their strange influence—the way the light shimmers around them, the electric buzz they leave in their wake. I know their presence quickens the vegetation, makes the very air crackle with potential.
+
+Deeper still, nestled into the mud at the base of the great stalks, I sense the *keepers*: vast undulating masses of flesh, ancient and slow-dreaming, the source of the weirdness that blankets this place. The way shapes blur at the edge of vision, the malleable physics—the keepers channel that energy, that raw life-force, up from the depths. We grow the city by their leave—our ambitions tied tight to theirs, symbiotic, interdependent.
+
+As dusk gathers, I find myself high on a fungal spire, looking out across the hollow. My world seems to breathe and pulse below me—a turbulent dance of life and energy, a monument to what living things can become:
+•   A boar-like beast with a shell like a tortoise fused to its back plunges through the swamp, snapping up mouthfuls of murky vegetation. Its eyes are dull and it moves with the easy confidence of an apex predator.
+•   Eagles soar overhead with scaly wings like dragons and long barbed tails; one swoops down to snatch a fish from the water, talons flashing in the light.
+•   Watery tendrils rise unexpectedly from the depths, wrapping around a drinking gazelle and pulling it under in one fluid motion before retreating just as quickly, leaving barely a ripple on the surface.
+•   When night falls, enormous moths flutter through the trees, their wingspans as wide as a man is tall, glowing with soft bioluminescent patterns as they dance beneath the moon.

@@ -1,0 +1,53 @@
+A predator here would not be a rush of movement. It would be a flattening, a patience, a body the color of dust and old basalt. It would not hunt in broad, visible arcs. It would wait beside a condensation seam, or lie motionless near the cracked edge of a brine pool, sensing the faintest pressure-wave through warm water or the chemical shadow of a mite emerging too far from its crack. When it moved, it would move slowly, or in one short, exact flicker, and then be still again. It would not waste itself. Nothing in the basin could afford the luxury of excess.
+
+If I found myself in this world, I think the first thing I would have to give up would be the idea of standing.
+
+Not merely standing upright, but standing apart: being a distinct, portable self that moves through the basin as if through a landscape waiting to be crossed. A human body would be wrong there almost immediately. Not because the basin would attack it, but because it would not support it. A person would bring the logic of artifacts without meaning to: shade, vessels, stored water, markers, paths, tools, the memory of shelter. Even naked, a human would still be a builder in potential. The basin selects against that. It does not reward accumulation. It does not invite storage. It has no surplus to offer, no material that asks to be shaped into use.
+
+So I would not find myself as a traveler there. I would not find myself looking for a way across.
+
+At first I tried to imagine myself as one of the visible creatures. The translucent crustaceans in the brine pools drew me. There is something moving about them: almost glassy, reduced, their bodies little more than a clear case around a few dark specks of life. I could see myself as one of them, living in a shallow warm bowl of mineral water, blind or nearly blind, feeling the world through drips and pressure and chemical traces. I would graze the soft films under the salt crusts. I would know the pool as an entire country. The fall of a droplet from an overhanging rock would be an event. A change in salinity would be weather. A shadow passing over the water would be danger.
+
+That image held for a while. It is humble enough for the basin. It does not demand too much. But it also felt too enclosed, too much like a single point of life suspended in a chemical bowl. A crustacean there would be real, but it would not carry the basin’s larger hum within itself. It would live inside one refuge and be almost entirely bounded by that refuge.
+
+Then I thought of the mites, the pale flattened things in the condensation seams. They would know the basin differently: by narrowness, by moisture, by the feel of mineral plates overhead. They would be dusted with salt and iron powder, indistinguishable from the ground, moving only when the air was damp enough. They would be secretives, patient, almost mineral themselves. I could imagine being one of them, sliding through cracks, tasting the air for vapor, stirring when the tiny blue discharges cracked along the salt crusts. But even that felt too solitary, too small a thread to hold the whole industrial chord of the place.
+
+The vent limpets, the hanging filaments, the threadlike worms in the sediment: each of them was possible. Each was right in its austerity. But as I kept listening to the basin in my mind, another image began to form beneath them, or rather beneath all of them. Not a single animal. Not a moving body. Something thinner. Something more spread out. Something that could be alive without being conspicuous.
+
+I would find myself as a living surface.
+
+Not a plant. Not moss. Not lichen in any ordinary sense. I would be a chemosynthetic skin, a mineral-binding film, a dark and faintly greenish crust living at the edge of moisture and heat. I would be one of the basin’s permitted exceptions. A maintenance organism. A listener made of cells, mineral grains, water, salt, and slow chemistry. I would not have limbs. I would not have a face. I would not have a voice. I would have gradients. I would have surfaces. I would have dampness, dryness, charge, pressure, and the long steady sound of the basin passing through me as if I were a thin instrument.
+
+I would live in a shallow depression not far from the cluster of vent chimneys, perhaps halfway between them and the ring of low glassy mounds. The place would be open enough to receive the pale diffuse light, but sheltered enough to hold a little moisture. A broad shelf of worn basalt would overhang part of the depression, creating a permanent shade so slight that it would not look like shelter from a distance. Under that shelf, a fissure no wider than a finger would release warm vapor at intervals. The vapor would rise, meet the cooler underside of the rock, and condense. Droplets would gather there and fall into a natural hollow worn into the stone.
+
+That drip would be one of my clocks.
+
+Not a clock in the human sense. Not a measurement. A recurrence. A rhythm that my body would know as a change in tension, moisture, and chemistry. Drop, pause, drop, longer pause, then a sequence of three or four in quick succession. Around me, the salt crusts would tick as they warmed. The steam throats farther off would hiss their silky, constant note. One of the hollow chimneys would boom softly at long intervals. The sound would not echo sharply; it would simply fill the basin, and I would be inside it. The noise would not be external to me. It would be one of the conditions of my coherence.
+
+My body would be thin. Perhaps only a few paces across, no thicker than a leaf of paper in most places, though in some sheltered folds it might build itself into a slightly raised skin, dark and lacquer-like where dry, slick and faintly blue-green where damp. I would be made of microbial layers, mineral cement, trapped dust, iron stains, sulfate crystals, and hair-fine filaments too small to see. Quartz grains would be pressed into me. Magnetite flecks would align faintly with the currents below. Salt would bloom at my edges. In places I would look like desert varnish. In others, like a stain left by old water. In the clearest light, a person might mistake me for nothing more than a damp patch on stone.
+
+But I would not be inert.
+
+I would feed on instability. On sulfur, on iron, on dissolved gas, on heat moving through rock, on the tiny differences between acidic and alkaline seeps, between wet and dry, between shaded stone and warm air. I would not eat as animals eat. I would persist by chemistry. I would bind loose grains. I would seal pores. I would stabilize a surface that might otherwise powder away too quickly. I would slow evaporation in one pocket by crusting it, and in another I would let a thin film of moisture remain exposed so that a few mites could drink from it. I would not intend these things in the way a builder intends. I would do them because my living is shaped that way. My existence would be part of the basin’s maintenance.
+
+I would not make anything.
+
+That would be essential. If I made something, I would begin to accumulate. If I accumulated, I would alter the equilibrium. The basin does not produce goods. It does not store output. Its work is continual and self-canceling. Salt forms and dissolves. Mineral crusts thicken and are worn. Heat rises and disperses. Charge gathers and discharges. Droplets fall and evaporate. Sound fills the air and does not resolve into signal. I would have to be alive without becoming a maker. I would have to be active without becoming historical in the ordinary sense.
+
+My memory would not be a story. It would be mineral.
+
+A thin layer of varnish here. A sealed crack there. A faint band of copper-colored stain where a particular seep persisted for centuries. A pattern of crystallization around the edge of a brine mirror. If I remembered anything, it would be in that way: as structure, as residue, as a repeated shape in the surface. Not as language. Not as image. Not as desire.
+
+If thought existed in me, it would be very slow.
+
+A single droplet falling from the basalt shelf would be a small event. A sequence of droplets would be a condition. A drizzle band moving over the vent field would be something like mood: not emotion, but a basin-wide shift in conductivity, humidity, and surface tension. When the warm rain stayed local and evaporated before reaching the farther flats, I would feel it as a softening along one side of my body, a loosening of salt, a sudden increase in the movement of ions. Tiny crustaceans might become more active in the pool. Mites would emerge from cracks. The predator, if it was near, might move one careful length closer to the water.
+
+I would know the predator not by sight but by disturbance.
+
+It would be low and flattened, perhaps no larger than my hand, its carapace the color of rust and basalt dust. Its legs would be adapted for silence and grip, not speed. Its eyes would be poor or absent. It would sense by vibration, by chemical trace, by humidity changes. It would wait for one of the small things: a mite, a wingless insect, a stray juvenile crustacean forced to cross a dry margin. It would not kill often. It could not. There would not be enough prey for frequent killing. Its hunger would be long and infrequent. When it took something, the act would be brief, almost mechanical, then stillness again.
+
+It might pass over me. It might take shelter at my edge during a dry interval. I would not fear it in the way an animal fears. If it damaged a portion of me, that portion would dry, mineralize, and be reabsorbed into the crust. If it left a footprint, the basin would erase it slowly through wind, vapor, and salt bloom. I would not resent it. It too would be a permitted exception.
+
+The translucent crustaceans would be closer to me than the predator, though not because they would belong to me. They would graze on my softer layers. At first that sounds like harm, but in the basin it would be part of balance. If my film grew too thick, too soft, too rich in one place, their grazing would keep it from becoming unstable. They would not clear a surface. They would take just enough. Their tiny scraping mouths would be a sensation in me: a light, repeated irritation, not painful exactly, but present. I would know where they were by the minute changes in surface tension and by the faint chemical traces they left behind.
+
+Sometimes one of them would pause near a drip point, waiting for the falling droplet to stir the water. I would feel the droplet before it arrived as

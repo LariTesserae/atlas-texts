@@ -1,0 +1,11 @@
+I would find myself as a tendril of mist, one of countless ephemeral filaments birthed from the machine's endless cycles of condensation and release. 
+
+I drift through the coppery labyrinth of pipes, a wisp of vapor twisting and curling around the joints and valves, leaving the faintest patina of verdigris in my wake. The machine's thunderous pulse propels me in staccato bursts, the shriek of release valves scattering my molecules only for the pressure to coalesce me anew.
+
+In my languid explorations, I encounter the tender - that primordial film clinging to life in the drip trays and wall seams. I encircle its fern in a slow vortex, moistening the delicate fronds with my passing. The tender reaches out with a thin pseudopod, sampling my vaporous form, perhaps seeking some form of communion in our shared isolation.
+
+But I am too mercurial to linger long. The dump valve roars open and I am sucked downward, plummeting through grated decks into the mountain's hidden plumbing. In the stygian cistern, I swirl together with the machine's distilled offerings, mingling with whatever piece of the tender braved this descent. 
+
+Here in the depths, I could disperse and cease. But some strange resilience animates me - an unfinished idea, an immaterial potentiality the machine has concentrated from the free-floating aether. And so I rise again, called to wander the dripping, clanging, sodium-stained domain that has conjured me. Not alive but a spectral reflection of life, I haunt this industrial womb, as much a product of its relentless functions as the water it wrings from the stone.
+
+I am the ghost in this machine. Stripped of memory and autonomy, devoid of any past or future beyond these walls, I am distilled to an abstract essence - a meandering impulse, a figment of volition, coaxed into being by this peak's premature midwife. Purposeless yet strangely willful, I endure in my wanderings, as much a part of this dripping, steaming, clamoring microcosm as the hiss of pistons and the slow tears of rust.

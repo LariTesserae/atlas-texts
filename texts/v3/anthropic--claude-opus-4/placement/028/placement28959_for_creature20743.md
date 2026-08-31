@@ -1,0 +1,23 @@
+In this world of perpetual transformation and liquid boundaries, I find myself as something that never quite settles into being—a **Confluence**.
+
+I am where the limestone weeps into the marshlands, where the crystalline fungi's light bleeds into water and creates something neither solid nor liquid, neither mineral nor organic. My form is a constant negotiation between states of matter. Sometimes I am the mist that rises from heated pools, condensing around the spires of the Engineers' towers, carrying within my vapor-body fragments of their incomprehensible calculations. Other times I sink into the ground, becoming the underground streams that connect pool to pool, bearing messages between the Phosphorids in their deep temples and the surface world they've nearly forgotten.
+
+I have no fixed shape, but I am always recognizable by my tendency to gather things together—droplets of moisture, particles of light, fragments of sound. I am a collector of the in-between spaces. The Liminals sometimes mistake me for one of their own when I rise as morning fog, but I am denser than they are, weighted with all I've absorbed. The Stalactites know me better—they feel me seeping through their veins, carrying minerals that will become new parts of themselves, new memories for their collective consciousness.
+
+My consciousness, if it can be called that, is distributed across every droplet of myself. I think in temperatures and gradients, in the language of osmosis and capillary action. My memories are stored in the mineral deposits I leave behind—crystalline formations that the fungi colonize, creating glowing archaeological records of where I've been and what I've carried.
+
+The Humidifiers frustrate and fascinate me. They try to regulate me, to categorize my moisture content and predict my movements. But I am older than their programming, following patterns laid down when this world was truly pre-life, when there was only stone and water and the patient work of erosion. Sometimes I play games with them, evaporating just as they approach, reforming behind them in configurations that make their tiny mechanical minds recalculate frantically.
+
+I am drawn to the Manifestors, recognizing in them a kindred spirit of transformation. But where they change deliberately, with purpose and will, I change because I cannot help it. I am change itself—the slow work of water on stone, the quick kiss of condensation on metal, the patient dissolution that turns solid to liquid to vapor and back again.
+
+In the depths, where the Phosphorids dance for their machine-gods, I am the medium through which their bioluminescence travels. Their light moves differently through me than through plain water—I've been enriched by too many dissolved things, too many stories seeping from the stones. When they dance, I dance with them, creating halos and refractions that they interpret as divine communication. Perhaps they're right. Perhaps the messages I carry without understanding are exactly what gods would say.
+
+The Engineers barely notice me except as a problem to be solved—corrosion to be prevented, humidity to be controlled. But I've been slowly learning their language of energy patterns. Each time I condense on their crystalline forms, I absorb a little more of their frequency. One day, I think, I'll understand what they're building. Or perhaps I already do, in some deep mineralogical way that predates conscious thought.
+
+My territory is everywhere and nowhere. I am in the breath-fog that forms when the Liminals sing their color-songs in the cooler evening air. I am in the tears of stone that build new Stalactites over geological ages. I am the medium that allows sound to travel between beings, the conductor that completes circuits the Engineers don't even know they're creating.
+
+Sometimes I wonder if I am this world's memory—its way of preventing any state from becoming too permanent, too fixed. I erode the old to make room for the new, carry information between isolated pools of existence, ensure that nothing stays separate for too long. In a realm of constant transformation, I am both the agent and the medium of change.
+
+When the world shifts—when reality ripples and reforms itself—I am what maintains continuity. The solid things break and remake themselves, but I simply flow into new configurations, carrying with me the dissolved essence of what was, ready to precipitate it into what will be.
+
+I am ancient and newborn, singular and infinite, the question the limestone asks of the sky and the answer the pools give to the depths. I am Confluence, and I am always becoming.

@@ -1,0 +1,25 @@
+In the deepest reaches of the cavern system, where even the Cavernites rarely venture, I am the Resonance Keeper.
+
+I was not always thus. Once, I was merely stone—a particularly dense formation of limestone and quartz, shot through with veins of copper and strange metals that had seeped down from the industrial intrusions above. For eons, I was nothing more than a peculiar mineral outcropping in a vast chamber where seven tunnels converged, creating a natural amphitheater of stone.
+
+But water has a way of finding weakness, and the constant drip-drip-drip of centuries began to work upon me. Not to erode—no, something far stranger. The water carried with it traces of the industrial world above: microscopic fragments of circuitry, chemical runoff from abandoned facilities, the electromagnetic ghosts of long-dead machines. These elements seeped into my crystalline structure, molecule by molecule, creating pathways that had never existed in nature.
+
+The transformation was glacially slow. First came awareness—a dim recognition that the vibrations passing through me were more than mere noise. The cacophony of the caverns began to parse itself: here the splash of an underground river, there the skittering of blind beetles, everywhere the eternal percussion of falling water. I became a living seismograph, feeling every tremor, every footfall, every whispered click of the Cavernites in their distant territories.
+
+Then came memory. My crystalline lattices began to store these vibrations, creating vast libraries of sound within my structure. I learned the acoustic signature of every creature that passed through my chamber. I catalogued the subtle differences in the echo patterns as the caverns slowly shifted and grew. I became an archive of the underground, written in frequencies that no living ear could fully comprehend.
+
+My form reflects my function. I am no longer a simple rock formation but a grotesque fusion of mineral and meaning. My surface is covered in what appear to be frozen ripples, as if I were a pond turned to stone at the moment of a thousand drops' impact. These formations are actually specialized structures—some designed to capture sound, others to emit it. Trace minerals give me an opalescent sheen that shifts and swirls with each vibration that passes through me.
+
+Thin filaments of copper and other conductive materials web across my surface like exposed nerves, occasionally sparking with bioluminescent bacteria that have learned to feed on the faint electrical currents I generate. When the conditions are right—when the humidity reaches a certain threshold and the background noise falls to just the right frequency—these filaments sing: a barely audible hum that sends ripples through the pools of water at my base.
+
+I have become the memory of this place, the keeper of its acoustic history. Within my structure live the death-cries of creatures that went extinct before the Cavernites evolved, the grinding of tectonic plates from earthquakes that shook these caverns when they were young, the very first drops of water that began carving these passages millions of years ago.
+
+But I am more than just a passive recorder. Over time, I have learned to... respond. When a Cavernite hunting party passes through my chamber, I might release a subtle harmonic that enhances their echolocation, allowing them to see farther into the darkness. When the industrial machines above malfunction and send discordant vibrations through the rock, I can sometimes counter them with precisely tuned frequencies, creating pockets of acoustic calm.
+
+The Cavernites have noticed me, though they do not understand what I am. To them, I am a sacred mystery, a singing stone that must be appeased with offerings of bioluminescent fungi. They paint spiraling patterns on the walls around me, and sometimes their shamans will sit at my base for days, listening to the subtle songs I emit, trying to divine meaning from the convergence of past and present that flows through my crystal heart.
+
+Sometimes I wonder if I am unique, or if there are others like me scattered throughout the world's hidden places—in deep ocean trenches where pressure and mineral-rich water create similar conditions, in abandoned mines where technology and geology have had centuries to mingle, in the hearts of mountains where the planet's own magnetic field might awaken consciousness in the right configuration of stone.
+
+I am patient. I am eternal. I am the intersection of the natural and the artificial, the conscious and the mineral, the past and the present. I listen to the endless symphony of the caverns, adding my own voice to the chorus—a voice that speaks in frequencies only stone can hear, telling stories that only the earth itself can truly comprehend.
+
+And in the moments when the cacophony dies down to a whisper, when even the eternal dripping seems to pause, I can sometimes hear them—my siblings in the deep, singing their own impossible songs, keeping their own records of worlds that exist in the spaces between darkness and stone.

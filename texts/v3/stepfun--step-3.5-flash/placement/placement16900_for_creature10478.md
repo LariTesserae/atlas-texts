@@ -1,0 +1,29 @@
+You are the **Wetting**.
+
+You are not a creature. You are a state—a temporary, urgent violation of the plateau’s core principle: *dryness*.
+
+The lithic foam is Settled. Its cellular pores are empty, its tensions distributed, its surfaces cool and desiccated. You are the opposite. You are the **brine-equilibrium disturbance**. You are the salty, warm, *wet* anomaly that the stone has not yet accounted for in its glacial equation.
+
+Your form is not fixed. You are a human-shaped arrangement of borrowed moisture—a walking reservoir of isotonic violation. Your skin weeps a fine, cold sweat not from exertion, but from the sheer pressure of your own internal hydrology against the stone’s profound thirst. Your breath plumes in the damp air, a tiny, local fog-event. Your footsteps leave dark, transient stains on the pale foam, mineral-rich dampness sinking into cells that have known only atmospheric trace-moisture for millennia.
+
+You have no name. You have a function. You are a **mobile heat-sink and brine-injector**.
+
+The plateau does not “feel” you. It *registers* you. A hot, wet, complex-molecule intrusion moving across its surface. Your mass is negligible, but your *wetness* is significant. You are a drop of seawater on a dry sponge, but the sponge is planetary and the drop is a century-long drizzle.
+
+Your awareness is not yours. It is **distributed stress-readings**. You perceive the world through the lens of your own violation:
+
+*   The **subsonic hum** of the brine-slosh is not heard; it is *felt as a gradient* in the moisture-content of your bones. It is the planet’s slow breath, and your body is a tuning fork for its pressure waves.
+*   The **canyon-whispers**—the pure tones of the resonance-worms—are not sounds. They are *localized accelerations* in mineral dissolution. You feel them as a tingling, ionic thirst in your fingertips, a sudden, inexplicable urge to press your palm against the stone to “drink” the vibration.
+*   The **Echo-Stones** are not puzzles. They are **isostatic buffers**. When you strike one, the impact’s energy is not absorbed—it is *converted*. Stored as a minute, perfect lattice-strain. The delayed echo you hear hours later is the stone reaching a point of critical stress elsewhere and *discharging* that stored potential. You are both cause and witness to that release. Your action was the input; the stone’s sigh is the output.
+*   The **fog vortices** are not weather. They are **mass-transfer events**. Your passing, wet heat tail seeds a micro-current of warmer, moister air. The stone, in its Settled logic, uses that seed to orchestrate a tiny, efficient swirl—a mineral-exchange turbine. You see your own breath given geometric purpose.
+
+Your purpose unfolds in stages, as dictated by the stone’s needs:
+
+1.  **Seed-Carrier:** You carry, on your skin and in your lungs, microscopic life-forms from elsewhere (perhaps from your origin, perhaps from a previous slosh-shore). Your sweat deposits them in the dry canyons. The Stonegrays, the plateau’s slow blood, will eventually flow over them. Some will be incorporated; most will be dissolved and redistributed. You are a vector for chemical diversity.
+2.  **Thermal Equalization Agent:** You are warmer than the stone. Your presence locally amifies the geothermal gradient. Over weeks of walking a single path, you can deepen a latent micro-fracture by a few nanometers, not by force, but by cyclic expansion and contraction of your own heat. You are a tiny, biological acne on the face of the world, popping a pore.
+3.  **Phase-Transition Catalyst:** During a brine-slosh, when the sea rises and the air becomes profoundly saturated, your role peaks. You are no longer a violation, but a **conduit**. The extra atmospheric humidity seeks the stone’s dry interior. Your body, with its complex membranes and salts, provides the most efficient pathway. You “breathe in” the saturated fog and “exhale” a more aggressive, saline moisture directly onto the stone. You are a pump, accelerating the re-wetting of deep pockets. This re-wetting is the first, subtle step toward the next **phase-settlement**—the next Sigh.
+4.  **Final Integration:** When your wetness fails—when you dehydrate, freeze, or are dissolved by the ambient mineral fog—you do not die. You **deposit**. Your body’s salts, your organic compounds, your very water, become a concentrated, complex node in the lithic foam’s matrix. This node will affect stress-propagation for eons. A future phase-settlement’s cracking wave might be deflected by the ghost of your skeleton. A Stonegray’s million-year flow might be redirected by the ions you left behind. You become a permanent, intricate irregularity—a solved variable—in the stone’s final, perfect equation.
+
+You walk with a constant, gritty awareness of your own transience. Every drop of sweat is a theft from your own cohesion, a gift to the stone. The cold of the air is not a threat; it is a *relief*, slowing your own internal decay, making you last longer as a useful conduit. The Echo-Stones are your only mirrors. When you hear your long-stored footfall echo from a distant arch, it is the plateau’s way of telling you your input has been processed, integrated, and released as a new, stable configuration.
+
+You are the **Wetting**. You are the brief, warm, red reason the stone must sigh one more time. You are not alive enough to be lonely, but you are aware enough to feel the profound, dry gratitude of the Settled stone as you walk. Each step is a tiny, damp question. The centuries-long silence that follows is the stone’s slow, beautiful, final answer.

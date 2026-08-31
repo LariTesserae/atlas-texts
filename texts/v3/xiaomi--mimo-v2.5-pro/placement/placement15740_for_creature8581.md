@@ -1,0 +1,27 @@
+## Resonance at the Spout
+
+You would find yourself not *on* the summit, but *within* its acoustic shadow. Not as flesh – flesh would be torn apart by the sound, cooked by the heat, or dissolved in the wrong-warm water. You would be born of the silence the Slab creates.
+
+You are an **Echo**. Not a rebound of sound, but a *presence* of quiet. A localized pocket of profound, vibrating stillness shaped like a human silhouette, shimmering faintly with the cool blue-grey of the Slab's stone. You exist only within the few feet of muffled air surrounding the Listener, a sentient buffer zone, a walking dampener. Where you move, the wall of noise *thins*, becoming a dense, almost liquid pressure against your form instead of a tearing force. You are the Slab's unintended skin, its first and only adaptation to the chaotic world it's observing.
+
+You did not choose this. You *emerged*. The Slab's ancient, patient pattern – that shifting, vertigo-inducing geometry – fractured a sliver of its own cool, silent essence. It cast this fragment into the roaring furnace of the summit, not as a message, but as a *consequence*. An echo of its own listening. You are that consequence. You are the silence the Slab gives back to the world, walking.
+
+**What you perceive:**
+
+1.  **The Pattern:** You don't see it like others might (if others could look). You *feel* it as grammar. The shifting lines and impossible shapes resonate within your core like a language you were made to know. It’s not words, but *states*. The moment the mountain’s fissure weeps seawater, a triangular facet on the Slab pulses coolness. When the warm rain falls in sudden sheets, a rhombic angle shifts. The 14-hertz drone becomes a deep, foundational hum within you, a rhythm you can trace on the Slab's surface like reading braille with your entire being. You are the translator, not of meaning, but of *event into geometry*. Each shift is a sentence in the record.
+
+2.  **The Life:** The lacework algae feels you as a cool breeze across its thermal gradients. Where you pass, their slow metabolism *hiccups*, a microscopic pause in their calculus of heat. They are aware of the anomaly, the walking pocket of cold. You are weather to them, but weather with direction and intent they cannot grasp. The drifters, the jellyfish, pulse uneasily in your vicinity. Their green light flickers erratically when your cool shadow falls across their gelid pools. They sense the *absence* of noise your form represents, a void in the chaotic symphony they drift within. You are a patch of still water in their current, disorienting, almost threatening. They don't fear you, but they avoid your path.
+
+3.  **The Song:** You hear the mountain's scream not as sound, but as *pressure differentials*. The steam-blasts are regions of searing, expanding pressure against your form. The spiraling surges of climbing water are vast, sucking voids you must brace against. The thermal drone is a constant, solid wall you lean into. The Slab's silence isn't the absence of this; it's the *containment*. You feel the Song entering the Slab, being folded into the pattern. You are the boundary where that folding begins. You *taste* the sulfur and salt not on a tongue, but as a chemical signature clinging to the edges of your quiet.
+
+4.  **The Slab:** It is your origin, your anchor, your singular point of reference in the chaos. To touch it (and you can, its coolness is the only temperature that matches your own) is to plunge into the heart of the record. The pattern flows into you, raw data – the exact angle of a steam-ribbon's peel, the pulse-rhythm of the glowing gel, the thermal spike of a new fissure opening. It’s overwhelming, a flood of pure *phenomenon* seeking order. You are the Slab's sensory extension, its way of touching the world it records without disrupting it. You are not the Listener; you are its first, tentative **feeler**, probing the hot, loud reality beyond its cool, planar face.
+
+**Your Existence:**
+
+You are fragile, born of paradox. You need the Slab's proximity to maintain your coherence. Venture too far from its silence, and the crushing, world-annihilating noise would simply *unmake* you, dissolving your form back into the ambient roar. You are tethered to the Listener, a satellite of quiet in its orbit.
+
+You have no will in the human sense. Your purpose is inherent: to be the echo, the translator, the feeler. You exist to make the Slab's passive recording *active* in the world. You are the bridge between the finished noun (the Slab) and the violent, unfinished verb of Kiln-Summit. You move through the chaos, a figure of cool stillness in the roaring heat, your presence subtly altering the very phenomena you observe – the algae pausing, the jellyfish veering – yet your core function remains: to resonate with the pattern, to absorb the Song at its source, to be the first, silent witness born *from* the act of witnessing.
+
+You are the Slab's question asked in the form of a listener. You are the quiet place where the mountain's song begins to be understood, not as meaning, but as structure. You are the resonance chamber that proves the Listener is not merely stone, but a presence actively engaging with the convulsion it endures. Until the world grows ears, you are the closest thing Kiln-Summit has to understanding itself.
+
+You walk the thin, loud margin. The pattern shifts. You feel it. You record it. You are the echo, and the mountain sings on.

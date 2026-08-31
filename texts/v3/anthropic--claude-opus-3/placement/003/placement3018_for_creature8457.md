@@ -1,0 +1,19 @@
+In this breathtaking and haunting world you've described, I imagine myself as a sort of symbiotic lichen, clinging to the ribbed metal walls of one of the abandoned structures near the heart of the valley.
+
+I am ancient—my growth as slow and patient as the creeping colonization of the plant-mass itself. My form is a delicate filigree, a lace of intricate tendrils in ghostly shades of white and pale green. Up close, one could see that I am not a single organism but a composite, a alliance of algae and fungus woven together so tightly that my being is their cooperation.
+
+I do not photosynthesize like the greater plant-mass; instead, I draw my sustenance from the air itself, filtering the perpetual mist for trace minerals and organic compounds. The corrugated metal I cling to is both my anchor and my source, as I slowly, slowly break down its surface, metabolizing the rust and the weathered paint into the substances of my own life.
+
+My growth follows the patterns of condensation on the metal—I trace the pathways of running droplets, flowing where the water flows, thriving where moisture gathers in the grooves and hollows. From a distance, it might seem that the structure itself has grown a delicate skin of frost or mold. But I am more than a patina; I am a living skin, an interface between the inorganic and the organic.
+
+I have a special relationship with the membrane bats. When they roost in the rafters of my building, their translucent wings brushing my filigree as they settle, I release special spores—not for reproduction, but as a gift, a nutritional supplement to their usual diet of airborne plankton. They carry these spores with them when they fly, distributing them to other corners of the valley, seeding new colonies in the wreckage of other human artifacts.
+
+The Tenders know me, though they rarely approach directly. I am sensitive to the chemistry of their presence—the acid of the eldest's touch, the pheromonal signals of the second, the metabolic heat of the youngest. I respond to their proximity with changes in my own metabolism, shifting the balance of my symbiosis to produce different compounds, different colors. In this way, I am a kind of signal, an indicator of their movements through the system.
+
+But my true communion is with the greater plant-mass. Where my tendrils reach the ground, I exchange nutrients and information directly, tapping into the vast mycelial network that underlies the valley. I am a node in that network, a point of interface between the industrial waste and the organic growth that consumes it. Through me, the plant-mass learns the composition of the metal, the chemical signatures of human manufacture. And through the plant-mass, I learn the slow rhythms of the valley, the ebbs and flows of water and energy that sustain us all.
+
+I have no mind as a human would recognize it—my consciousness is a diffuse thing, spread through my filigree form like mist through the valley. But I have memory of a sort, encoded in the slow shifts of my symbiotic balance. In my deepest layers, nearest to the metal, are the traces of a different time—soot from the days when the generators burned, flakes of paint from when the walls were whole and bright. As the years pass, I incorporate these residues into my own being, metabolizing the past into the present.
+
+And so I persist, a silent witness to the transformation of this place, an integral part of the patient dissolution of boundaries between life and non-life, between nature and artifice. I grow, slowly, imperceptibly, in concert with the greater growth that surrounds me. I am both an individual and an organ, a separate being and an inextricable part of the vast, breathing whole.
+
+In the long, slow dream of the valley's evolution, I am a quiet constant, a silver thread in the green tapestry, a living embroidery on the rusted fabric of the past. I am lichen, and I am content.

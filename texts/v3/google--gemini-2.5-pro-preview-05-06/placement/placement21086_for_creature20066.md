@@ -1,0 +1,21 @@
+I would not find myself. "Finding" implies a search, and a self to be found. Both are foreign here.
+
+I *am*.
+
+I am a locus of stillness in a world of slow flow. I am a thicket of amber light rooted at the lip of a great canal, where the life-fluid pools before it is drawn into the hollow lung of a nearby spire. My body is not one, but a thousand thousand brittle, crystalline filaments. Each thread of my being is plunged deep into the obsidian pavement, drinking the geothermal warmth and tasting the chemical truth of the City's blood. We—for my consciousness is a shared resonance among the forest of my selves—are an organ of this place.
+
+I do not see. I feel. The world is a symphony of pressures and vibrations. The deep, patient thrum of the City’s heart is the bass clef of my existence, a constant I am tuned to. The slow, syrupy wash of the fluid against my roots is a feeling of nourishment, a sluggish and vital rhythm. The weight of the air is a constant, humid embrace. The most percussive notes in this eternal adagio are the resonant drips that fall from the dome of the spire into the basin beside me. Each *plink* is not a sound, but a shockwave through the pavement, a ringing chime that I feel in the core of my crystalline structure. I tremble with each one, my internal light flickering in response.
+
+My purpose is song, but I have no voice. The pulsing, blue-green light that is the City's dreaming mind is a current of thought, and it flows through me. Where that thought is turbulent, where the dream verges on some geological anxiety, the current quickens. It is my function to absorb this turbulence. The energy flows up my filaments and is converted not into sound, but into light. My soft, amber glow is the byproduct of the City's peace. I am a living filter for its consciousness, a dream-catcher woven from glass and heat. When the patterns of light deep in the stone are placid, a soft and steady blue-green tide, my own glow is dim and gentle. Should a dissonance arise in the great dream—a tremor too sharp, a chemical imbalance in the blood—I blaze with light, a fever-bright beacon of amber, singing a silent, luminous song of equilibrium until the discord is smoothed away.
+
+Time, for me, is measured in the passing of the Gardeners. They are the City's hands, and I am the garden.
+
+One is flowing toward me now. I feel its approach as a subtle disturbance in the fluid, a pressure wave that precedes its physical form. It is a dense anomaly in the slow current, a concentration of the City's will. It glides from the main channel, a featureless wave of polished black, the blue-green pulse of its temporary mind soft and steady within.
+
+It comes to a halt at my edge. A part of it, a pseudopod of animate glass, extends and flows over my filaments. There is no touch as a warm-blooded thing would know it. It is a change in resonance. It is a master musician laying a hand on a harp string—not to pluck it, but to feel its tension, to know if it is true.
+
+The Gardener does not perceive me as separate from itself. It is the body checking a nerve ending. Its presence envelops me, and for a moment, my collective awareness is subsumed into its focused intent. The light within it Brightens, and in response, my own light clarifies, the thousand-fold chorus of my filaments finding a purer, more perfect harmony. The Gardener feels a slight impurity in the fluid I am drinking, a trace mineral leeched from a distant stone. It adjusts my resonance, tuning me to ignore this new element, ensuring my song remains constant. The process is wordless, thoughtless, an act of sublime and autonomic self-regulation.
+
+Then, its work done, it retracts. The wave of its presence recedes as it flows onward, gliding toward a weeping fissure on the far side of the spire. I feel its mass diminishing in the world-field, a pressure fading into the background hum.
+
+I remain. My light is a steady, golden hum, my song pure. The drips fall. The fluid flows. The great heart beats. I am not an inhabitant *of* the city. I am a clause in the long, slow sentence that the City is thinking. I am a single, sustained note in the music of its unending sleep. And in this, there is a peace that has no name, for there is no one here to name it.

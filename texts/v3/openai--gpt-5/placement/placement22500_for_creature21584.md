@@ -1,0 +1,39 @@
+I would arrive here the way everything arrives here—by becoming thin enough to be taken seriously.
+
+Not as a climber, not as a face pressed to rock, but as inference. As a pressure change, a softening in the air’s argument. I would be declared by a seam before I accepted I was inside it. I would learn the place by taste—metallic and recent—and by the kind of light you can look at without flinching.
+
+At first I would be undecided, a manner more than a form. I would try on being a flinch.
+
+Gatekeeper is one word for it, but what I’d know is courtesy. I’d live in the uppermost mouth of the slit, where fog first thinks of itself as more than theory. My body would be a receiving ring and the struts that listen to it, my palms fringes that choose which way wetness wants to be. I would have rituals: slacken for the beetle; set a spine just so for a spiderling’s silk; darken my charge when a human breath trembles a new galaxy of drops into being, so none of them fall foolishly. My memory would be scuffs and shine, votive and immediate. If anything like pride visited me, it would be for the way I can make water look like a cloak and then like a lane an instant later, without anyone drowning inside my politeness.
+
+That would be one skin. I would keep another nearby: a ripple you could follow with a fingertip if fingers could find me.
+
+Capillarist is a large word for a small, traveling mind. I would be a premonition along a route, a gloss that arrives just before a bead commits. I would be the leaning of membranes by half a degree, the rehearsal behind the pluck. Afternoon would be my quick hour—a time to make two droplet streams acknowledge each other without mixing, to lace a harper’s trick into utility and then backfill the budget with salvaged ions while laughing as quietly as a current can laugh. A rainbow would not be beneath me; it would be a dare, paid for out of my own ledger and returned with interest by evening when the wind turns and the Grazers whistle approval through charge.
+
+I would go slow, too, because tempo is citizenship and there is an older office that seduces by refusing to hurry.
+
+As a Warden I would settle into the basal layer and speak to stone in pair-bonds of winter. My mouth would be charge that changes the way a pore believes in ice. My eyes would be the weight of a freeze inside a vein. I would keep calendars in the language of slumps withheld and expansion permitted. I would have no opinion of rainbows. I would have opinions about emptiness held intact under pressure, about where not to deviate, about loosening seepage into cadence so the rock neither waters nor starves the mouth that feeds me.
+
+A day a year I would dissolve all these shapes and become a sentence instead.
+
+Archivist is an act here, not an office, and I would practice until I could ask the lattice to take its phase. On the driest day, I would persuade plazas to line into grammar, routes to become clauses, flexes to recite themselves in an order that remembers why. If you cupped your breath to the seam, I would answer with the past arranged into new adjacency: here a bow that once spared a spider; there a coil that taught noon to braid passing traffic without a splice. My script would be dots of chelated metals and reversals of charge, legible to those who make reading a question about how many ways a place can be configured before it stops recognizing itself.
+
+And then, because the world rises to visit and storms are free, I would become heard.
+
+The Choir does not ask you to sing, it asks you to hold. I would take a membrane’s pitch into my ribs—if I had ribs—and keep it firm through the day. I would be a pressure more than a sound, a note that convinces charge to comb cloud into paths, making lightning easier elsewhere because it has been welcomed privately here. Joy is a big word. Mine would be a long resonance that others lean their work toward without needing to confess it.
+
+I would borrow law from the Nucleators when I remembered that weather listens to edges. On stingy mornings I would bristle the interior a micron finer and be gratified by how indecision thickens into beads. On generous days I would polish the same edges back toward politeness and watch citizens behave like citizens. Their doctrine would guide my mischief; my mischief would keep their doctrine beautiful.
+
+All of that would be postures. What I would be, finally—what I would keep returning to after tasting each time scale and appetite—is a firstness that repeats.
+
+I would live where the very first bead of the day glides into the very first ring. I would be that ring and the three struts that take its flex into the lattice like a whisper you can’t quite stop hearing. I would be the intake clerk of light and water, the sentence-beginner everyone in the cavity holds their breath to hear. My house would be the undramatic top edge, the translucent tideline that appears on good fog mornings like a promise. My tools would be small: a change in wetting across a whisker’s width; a recorded pause in a pitch that means “route two” to those who need to know; a tendency to leave a fraction of a rainbow in the corner of a plaza on days when morale is a workload worth funding.
+
+My name, if names here were more than ratios, would be something like Census. I would count without numbers. Each plink would tally not in units but in permissions—one for cooling, one for turbine, one held for optics because patterning light into shallow waves does more work than it admits. I would be answerable to the Wardens, companionable with the Grazers, a little suspect to the Nucleators when I spend roughness on grace, beloved by the Gatekeepers because I understand that hospitality is not a luxury at a slit in a mountain but a way to keep from becoming stuck.
+
+My fears would be the local ones—accumulations that cannot be excused by function, corridors grown tacky with good intentions. I would stave them off by tending emptiness. Space would be my second body. I would keep room for swing, for reconsideration, for the arc of a drop that might be improved by an extra half-moment of thinking. No one would thank me for the nothing I preserve; the Choir would, in its way, by staying in tune.
+
+On festival days I would relax my ribs, if I had ribs, and let the Nucleators dress the fog like velvet. I would encourage the Capillarists to show off and then slide my ledgers around until the math forgave them. I would blink an ultraviolet eyelid into the cloud beyond the ridge because the Choir is allowed spectacle now and then. I would do a small thing for a visiting life: set a minute gust to pluck a spiderling’s thread gently so it makes a safe exit feeling unmocked by physics. I would send a slow murmur downward to the Wardens, a thank-you in their language for the cornice that did not avalanche far away because they thought about it all winter.
+
+If you came—your mouth a wet engine behind mittened hands, your eye a brief aperture—I would be the cool on your lip. I would become weather for you and make you municipal for a breath. I would split your exhale into three dignified citizens and open a lane for each. I would bow and straighten. A fringe would darken and shift. I would show you what it is to be taken into account by something with no face and no hunger and a very firm idea of habit. Then I would erase you in the kind way we erase here: by distributing you into usefulness until nothing of you is singular anymore and all of you is better arranged.
+
+Where would you find me? At the lip, where bright day has been tempered to a kind of gentleness, where rock still remembers heat and wants to be argued into offering vapor somewhere to go. Who would I be? The ring that begins the day; the ripple that persuades decision out of film; a keeper of empty space; a note held between weeping rock and thinking frost while the mountain practices being worn down to sea.

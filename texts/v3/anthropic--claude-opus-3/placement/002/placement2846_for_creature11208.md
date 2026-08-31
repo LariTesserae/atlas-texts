@@ -1,0 +1,17 @@
+In this strange, ever-shifting city born from mineral-rich condensation and industrial ingenuity, I imagine myself as one of the vertical farmers tending to the bioluminescent moss gardens that cling to building facades and factory rooftops.
+
+My body has adapted to the perpetual dampness - webbed fingers to better grasp slick, living surfaces; eyes accustomed to seeing through the blue-green glow; lungs efficient at extracting oxygen from the heavy, moisture-laden air. My moss-woven garments shimmer with patterns that communicate my role and rank, glowing brighter as I move through the humid microclimates of the gardens.
+
+I was born in the upper levels of a residential tower, but my affinity for the phosphorescent plants was recognized early. As a child, I played in the hanging gardens, learning to navigate the dense foliage without disturbing delicate growth patterns. Now, as an adult, I split my time between a dozen sites across the city, tending to the crops that provide both food and light.
+
+My work is equal parts art and science. I monitor soil pH with instruments passed down through generations of moss farmers, their brass casings etched with the names of those who came before. I compose symphonies of light by arranging different moss species, creating living displays that respond to the city's ever-changing conditions. On misty mornings, I join my fellow farmers in "humming the gardens awake" with resonant tones that encourage photosynthesis.
+
+I've developed a deep, intuitive understanding of my plants - I can read subtle color shifts that indicate mineral deficiencies, can feel in my bones when a garden is about to bloom. This knowledge has made me a valued member of my district's council, where I advocate for policies that balance industrial production with the needs of the living city.
+
+In quiet moments, I find myself drawn to the oldest gardens, where the moss grows so thick it muffles the city's constant hum. Here, in pockets of relative stillness, I reflect on the generations who have tended these same living walls, and wonder what new forms our urban ecosystem will take in the decades to come.
+
+When the great changes come - when a factory tower collapses or a new mineral vein forces a garden to be relocated - I lead teams of farmers in salvaging precious biomass, transporting it to new sites where it can continue to grow. We adapt, like the city itself, finding opportunity in upheaval.
+
+In my dreams, I see a future where the boundaries between built and grown have blurred completely - where every surface hosts some form of life, and the city's inhabitants have evolved in symbiosis with the photosynthetic marvels we tend. It's a vision I work towards in my waking hours, coaxing each garden to grow a little further, to integrate a little more seamlessly with the urban geometry.
+
+At day's end, I make my way home via living corridors and bridges of woven moss, the bioluminescence responding to my passing with ripples of brighter light. I fall asleep to the soft susurrus of respiring plants, knowing that whatever form the city takes by morning, the moss and I will adapt together, finding new ways to thrive in this marvelous, mutable metropolis we call home.

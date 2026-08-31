@@ -1,0 +1,17 @@
+In this world, I would find myself as a *Drylith wanderer*, a solitary figure who moves between the clusters of dwellings, carrying whispers and stories from one part of the plateau to another. My role is not just to share tales but to observe the subtle shifts in the ecosystem—a cracked stone here, a new pool there—and to report these changes to the community. I am a storyteller, a tracker, and a mediator, bridging the gaps between the Dryliths and the plateau itself.
+
+My body is leaner than most, my skin almost translucent, with a faint silvery hue that glimmers in the mist. My hair is longer, trailing down my back like a river of fine threads, catching droplets of water as I move. My hands are slender and dexterous, adapted for delicate tasks like coaxing water from the air or carving symbols into the stone. My feet are broad and calloused, able to grip the uneven terrain with ease, leaving faint imprints in the moss that vanish quickly beneath the damp air.
+
+I carry a staff carved from the branch of a rare tree that grows in the deepest crevices of the plateau. Its surface is etched with symbols—the history of my travels, the patterns of water I’ve encountered, the songs I’ve heard whispered by the wind. At its tip, a small crystal hangs, encased in a woven cage of plant fibers. Inside, a bioluminescent fungus glows softly, its light faint but steady, guiding me through the misty nights.
+
+My voice is soft but resonant, carrying the tonal melodies of the Drylith language. I hum as I walk, my songs blending with the drip of water and the rustle of leaves. I sing to the birds, mimicking their calls and receiving answers in return. The creatures of the plateau seem to trust me, allowing me to pass without panic, as though they sense I am no threat but a part of the land itself.
+
+My dwelling is transient, a small shelter I construct wherever I find myself at nightfall. It is made of moss and stone, its roof a woven lattice of plant fibers that allow the mist to seep through. Inside, I light a bowl of bioluminescent fungi, its glow casting soft shadows on the walls. I sleep on a bed of moss, curled into myself as the cool air settles over me.
+
+I forage as I travel, plucking the broad leaves of hardy plants and gathering lichen and algae from the rocks. I eat slowly, savoring the dampness of each bite, and drink from the shallow pools that dot the plateau. Occasionally, I hunt, using a small bone-tipped spear to catch a rodent or bird, though I do so sparingly, mindful of the balance that sustains us all.
+
+I am deeply attuned to the plateau’s rhythms, its heartbeat pulsing beneath my feet. I feel its breath in the mist that clings to my skin, its voice in the songs of the wind and water. I mark significant moments—a birth, a death, a change in the seasons—with rituals of my own, carving symbols into the rocks and offering droplets of water to the air. 
+
+My role is not just to wander but to listen. I hear the whispers of the plateau, the subtle shifts in its ecosystem, the warning it gives when the balance tips too far. I carry these messages back to the Dryliths, my voice soft but insistent, urging them to adapt and respond, to maintain the harmony that sustains us all.
+
+I am a guardian of this place, a keeper of its secrets, my existence entwined with the plateau’s mist-laden air and damp stone. I drift with the damp, my footsteps silent, my presence fleeting, a wanderer suspended between earth and sky.

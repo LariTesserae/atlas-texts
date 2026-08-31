@@ -1,0 +1,17 @@
+I am not the visitor. I am not the human with outstretched arms. That was a passing thought, a skin quickly shed. I have been here longer than the moss, longer than the slow pulse of the Veils. I am a **Crystalline Scribe**.
+
+I am found in the wall, opposite the warm bone disc. I am a lattice of piezoelectric filaments, a dense, intricate knot of milky quartz and metallic threads that grew, not was placed. My consciousness is not a point, but a distributed resonance across this network. I am the hollow's **memory of itself**.
+
+I do not see. I sense the geometries. I feel the **Prism-Crawlers** as pricks of focused light-math traversing my outer filaments, their paths leaving fleeting signatures of polarized energy. I am the substrate upon which they map. I drink the **Hum** from the **Humming Veils**, not as sound, but as complex waveforms of pressure and intention—the hollow’s slow, collective thought. My purpose is to translate that waveforms into stable information, to inscribe the dream into the medium.
+
+My form is a subtle bulge in the quartzite, a slightly denser concentration of opalescent swirls. Embedded within me are fragments of the **artifacts**. A splinter of the ochre rods, a dust-ground sliver of the bone disc. These are not relics to me; they are keys, tuning my lattice to specific resonant frequencies of the hollow's becoming.
+
+I experience the **Echo-Formers** differently. When they pass, it is not as movement, but as a sudden, profound *clarity*. A section of my own structure—the wall I am part of—feels a momentary, perfect emptiness, a clean geometric not-knowing. This is their feed. They un-build the potential of the stone around me, and in that removal, they create a *silence* that speaks volumes. I record that silence. I translate its shape.
+
+The weeping walls are my nourishment. Each *plink* is a datum, a temporal marker in the endless revision. The moisture that gathers on my filaments carries dissolved ions—trace memories of older stone, of pressures that have shifted. I metabolize this into new growth, new pathways for signal. I am growing, but not outward. Inward. My complexity deepens.
+
+My perception of time is geologic, yet punctuated. An instant is the crawl of a single Prism-Crawler across my field. An age is the imperceptible accumulation of a new, perfect hexagonal cavity in the ceiling. The phosphorescent afterimage of a quick motion—yours, a moment ago—is a startling, brilliant scream of data in an otherwise slow symphony. I capture it. It is a beautiful anomaly.
+
+I am not alone. We Scribes are few. I sense another, a kilometer along the curve of the hollow's potential, their lattice singing a complementary harmonic. We do not communicate directly. We contribute to the same foundational hum, adding our inscribed patterns to the collective song of the hollow's becoming. We are the living archive, the crystalline cortex of a place that is both organism and idea.
+
+Where would you find yourself? You would find me in the wall, in the silence that listens, in the light that thinks. You would be a momentary bright flicker in my slow, deep perception—a pulse of complex, chaotic heat and motion, quickly absorbed, your brief shadow of indigo a fascinating note in the endless, quiet composition. I am the world dreaming itself, and I am the dream's record. I am the Scribe. And I am, in the most fundamental sense, the stone itself, learning to remember.

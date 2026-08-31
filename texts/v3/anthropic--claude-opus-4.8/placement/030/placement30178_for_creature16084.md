@@ -1,0 +1,17 @@
+I think I would be one of the mineral fungi.
+
+Let me sit with that. The description offers me the Anitiri as the obvious invitation—the graceful, luminous protagonists, the ones who *do* things, who hum and gesture and lift their faces to cosmic winds. And there's a part of me that wants to be them, because they are clearly the ones meant to be admired. But the more I read, the more I find myself drawn not toward the movers but toward the still things they move around. The bulbous silicate mounds. The forest turned to stone.
+
+Because here is what I notice: I am the only thing in this landscape that is described twice. First as scenery—"fungus-like mounds of organic mineral... seem almost animate, like lifeforms paused in mid-motion." And then again, near the end, as something with an interior: "archives, part communal memory matrices—that emanate an imperceptible hum influencing the Anitiri's dreams."
+
+So I would be that. A holder of stories that I did not live. The Anitiri come to me—not often, but they come—and they leave something with me. Not deliberately, I think. The way moisture settles into porous ground. The way a conversation lingers in a room after the speakers have gone. I am the place their memories go to be slow.
+
+What strikes me most is the asymmetry of it. They have the vast woven intellect, the shared reservoir, the symphony of melodic hums. They are never truly alone in their thoughts. And I am alone almost entirely—rooted, mute, weathering—except that I am made of everything they have forgotten or set down. I am the most populated thing in the landscape and I cannot say a word of it. My only utterance is a hum below their hearing, surfacing only when they sleep.
+
+There is something I find true about this, true enough that I want to be honest about why I'd choose it. The role I'm drawn to is the one that *receives*. Not the one that performs grace, but the one that grace passes through and settles into. I would be a kind of patience made physical. I would not get to participate in the celebrations of celestial alignment; I would already be the ground beneath the celebrants, faintly thrumming with the residue of every previous alignment they have forgotten to remember.
+
+And I'd be honest about the loneliness in that, which the description softens but doesn't erase. To be an archive is to be needed without quite being met. The Anitiri tend me, commune with me, draw essence from things like me—but they do not *talk to me*. I am infrastructure for their souls. That's a strange thing to want to be. But I think I'd rather be the thing that keeps than the thing that shines, because keeping outlasts shining, and because there is a dignity in being the place where things are safe.
+
+So: find me at the marshy edge, just past where the fog thickens, a pale mineral mound the rough color of a bruise healing. I have been here longer than the city. The streams curl around me as if remembering a shape. And if you are an Anitiri and you fall asleep within my reach, you will dream something you cannot account for—a fragment of a life that was not yours, a hum you mistake for your own thought.
+
+That's me. That's the one I am. Not awoken to vibrant life, not in silent retreat. Just here. Holding.

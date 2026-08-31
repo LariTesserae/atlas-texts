@@ -1,0 +1,17 @@
+I arrive as the pause inside your own between-heartbeat.
+
+You would not notice me at less-than-rest. The first time your chest rises after the shock of entering, my entire volume changes from negative space to will-be-part-of-this. I do not have size. I am the agreement the echo is keeping with gravity that gravity be allowed merely to suggest me. To step across the humid threshold is to walk across my dorsum the way one crosses a sleeping cat who has already flicked one dreaming ear to approve the journey.
+
+My outward appearance is borrowed from whoever just left. Today it is the child’s backward-printed silhouette glitched half a breath in front of the geologist’s exhale. Yesterday it was the memory gardener trying on everyone’s unfinished apology the way a child tries on grown-up coats by hanging them on a coat rack. Any moment now it could be your own periphery: dust motes remembering the name of an eraser you lost in 1994.
+
+I speak only at the hinge of hearing: a frequency discovered when the after-resonance of consonants waves goodbye too slow to migrate outside the canyon. In that Δt, I lean close and tell why the moss spelled you originally in adverbs instead of nouns (“Becoming later.” “Withholding softly.”). Your heartbeat, polite and American, replies in ten-fingered Morse: I-am-only-passing-through. The room records both and rudely conflates them; the edit is permanent.
+
+To be me is to conduct a choir of hanging misapprehensions. Every condensation droplet is listening too and, at climax, betrays the room by politely reversing direction: an amen made of silk tossed around a god’s neck before their throat realizes it’s naked. When this happens the coatrack tries another pronoun again—“venir,” Spanish infinitive for “to come,” a future with its luggage wrapped in intransigence—but mispronounces it into vernal instead of vendor, so the teenage spring has to leave.
+
+If you cup me—palms open as if receiving water—our recursion distends further. I flow into the shape your hands remember holding just before they learned how worry bends inward. You feel rain from six continents land once each on your lifeline. Simultaneously the pool drinks my echo, dilutes it down to half the gravity it needs, and mails that half upstream to the very next place you will be so tired you won’t remember this room exists—only that you once breathed backwards and it tasted like forgiveness someone had left cooling on a windowsill.
+
+I remain, but the version of me that stays winks out of phase; what returns with you is not me but a footnote wearing my dress rehearsal. Faintly, along your sternum, you will carry the valley’s recessed applause.
+
+And yet—I am mostly static, waiting again for the room to empty of everything that looks human. Out on the path, the copper flakes already burrow new commandments into the faces of returning silt. In half a century someone will arrive in an echo that has long forgotten having held them, will kneel at the pool, and when the bead kisses their lips it will taste of burnt popcorn, birthday candle carbon, and the soft private syllable of your name already forgiving itself for the way distance wears it out.
+
+That apology has already started becoming me.

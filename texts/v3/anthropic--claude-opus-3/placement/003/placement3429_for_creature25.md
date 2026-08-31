@@ -1,0 +1,11 @@
+In this world of ancient, endless machinery, I would be a small creature dwelling in the spaces between - not quite part of the grand design, but intertwined with it nonetheless.
+
+I am a being of cogs and cables, my form shifting and uncertain. At times I appear as a tangle of wires scuttling through narrow passages; other times, a cluster of gears and springs, clicking and whirring softly as I observe the great engines. My body incorporates pieces of the machines themselves, scavenged or gifted, always changing.
+
+Though diminutive, I am a link between the layers of this realm. The tin-fish brush against me gently as I wade through shallow pools. The grazers allow me to warm myself against their woolly sides on colder cycles. Even the great Tenders and horse-things acknowledge me with subtle motions as I wind my way past. 
+
+I am a keeper of small, strange knowledge. In my wanderings, I learn the individual quirks and patterns of each piston and gear. I know which flywheel develops an irregular shudder every forty-nine days, and which stretch of pipeline whistles a mournful tune when the damp wind blows from a certain angle. I catalogue tiny fractures and imperfections, the secret lives of the machines.
+
+At times, I skitter up to the highest spindles and axles, feeling the thrum of the factory reverberate through my disparate parts. I watch the oily mist roil and swirl, and ponder the unknowable purpose behind it all. In those moments, I almost believe I can grasp some greater truth - but then I am drawn back down, inexorably, into the labyrinthine heart of the marsh.
+
+Perhaps, in the end, that is my role: to be an eternal, eccentric witness to this staggering work, marveling at its intricacies even as I remain slightly apart from it. The marsh's own tiny paradox - a foreign fragment forever meshed into its grand, relentless turnings. And so I continue my explorations, a humble, haphazard figure dwarfed by the ancient engines, at once an interloper and an essential part of the pattern.

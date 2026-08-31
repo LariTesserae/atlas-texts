@@ -1,0 +1,15 @@
+In the suspended city of Keth-Maral, I imagine myself as one of the Pipe-Runners, a lithe figure slipping through the arterial network of narrow tubes and maintenance shafts that connect the great spheres. My body has adapted to this cramped and lightless domain - joints bending in unnatural ways, skin slick with protective oils, eyes attuned to the faintest glimmers in the murk. 
+
+I navigate by echolocation, emitting clicks and whistles that bounce off the curving metal walls, painting a sonic map in my mind. The tubes are my highways, allowing me to traverse the city unseen, emerging only briefly in the dim blue-green glow of algae lamps to deliver messages or effect repairs on malfunctioning valves.
+
+My closest companions are the evolved mechani-eels that share the pipe network. Over time, I've learned to interpret their hydraulic hisses and whirrs as a kind of language. They warn me of blockages, guide me to hotspots where my maintenance skills are needed. In turn, I make small adjustments to their mechanical spines, fine-tuning their articulation.
+
+When I do swim out into the main habitation spheres, I move with a sinuous grace, my elongated form cutting through the warm, mineral-rich water. The Harvest-Swimmers eye me with a mix of unease and respect, knowing that I safeguard the veins and arteries of our city.
+
+In quiet moments, I press my body against the pipes, feeling the thrum of the great pumps, the pulsing of the city's lifeblood. I imagine the paths of the water - from homes to factories to the vast filter-creatures and back again - a ceaseless cycle that mimics the circulation within my own adapted body.
+
+Sometimes, in the farthest reaches of the pipe network, I encounter things that even my kin would struggle to understand. Pockets of water that glow with an internal light, metal that flexes like living tissue, evolved mechanimals with too many eyes or limbs fused into the pipe walls. Here, at the edge of my map, I feel the city dreaming, expressing its own strange imagination.
+
+When I sleep, curled in a nest of pressure-resilient tubing, I dream the water's dreams. I see through the compound eyes of mechani-fish, taste metal with barnacle-flower petals, feel the aching cold of the outer spheres where the city tests its own boundaries. And beneath it all, a presence too vast to name - the Deep Builders, the ancestral memory of Keth-Maral itself, dreaming me into existence to maintain its impossible balance.
+
+I am a child of pressure and adaptation, a living component in a greater machine. My purpose, like the city's, is survival - an endless dance of maintenance and adjustment, of listening to the whispers in the pipes and responding with the work of my hands and the bendable geometry of my body. I am a Pipe-Runner, and the veins of Keth-Maral are my kingdom.

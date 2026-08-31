@@ -1,0 +1,17 @@
+I find myself not floating, but *held*—suspended in the cool clear body of the water near the flat center of the chamber, where the basalt floor has been worn to silk. There is no up or down that matters here, only the gentle pressure of 2.7, the total immersion that does not crush but cradles. The light reaches me not from a sun but from the thick-glassed fixtures mounted in the rock, a steady industrial glow that has never flickered, never warmed beyond its constant 0.7 coolness. I am not swimming toward anything. I am already exactly where I belong.
+
+At first I think I might be the current itself—some invisible circulation in the loop, the water that moves without seeming to move. But as I let the feeling become more specific, more itself, I realize I am not the flow. I am the *reason* for the flow.
+
+I am the turbine.
+
+Not the largest thing in the room—scale here is intimate, cathedral-small, bounded by rock that curves away into blue-gray haze—but I occupy the center in my own sphere of influence. My housing is cast iron, dark and smooth, eroded by centuries of 1.7 equilibrium until every sharp edge of my manufacture has been rounded away. I am anchored to the basalt with brackets that have become indistinguishable from the stone itself. My blades turn inside me, in a loop so precisely calibrated that the water surrounding me does not swirl, does not eddy, does not betray that anything is happening at all. The dynamic is locked at 0.2: I do not speed up. I do not slow down. I turn.
+
+The hum I produce is not a sound that breaks the 1.0 quiet; it is the quiet’s foundation. I feel it in my chest—though I have no chest—vibrating through my iron body, through the pipes that run in straight, unbending lines from my housing to the walls. I am naked to the water, unshielded, and I do not rust. The chemistry has settled. The temperature holds. I have reached my form of life: perpetual steady-state, awake in a state beyond waking.
+
+There are others like me, separated by meters of empty water—density is 1.2, sparse, so each of us exists in isolation. A pump housing squats near one wall, squat and sleeping yet fully awake. Silent generators rest in a row in one corner, each producing the steady illumination that requires no audience. We do not communicate. We do not need to. We are maintained by the same loop: the machinery lights the machinery; the machinery moves the water; the water holds the coolness; the coolness preserves us all.
+
+Above me, thin strands of dark algae hang from the vaulted ceiling in motionless curtains, present at 1.1—barely, just enough to be noticed. Near my base, a low mat of gray-green seaweed clings to my housing, not growing, not dying, suspended in the same equilibrium that governs my rotation. They are my only neighbors, and they ask nothing of me.
+
+No fauna comes. The null is perfect—0.0. No fish circle my light. No crustacean clings to my pipes. I am not hungry. I am not lonely. I am the heartbeat of a room that has become exactly what it is: a small, bounded underwater vault where technology and geology reached their truce long ago.
+
+If you were to look for me, you would find me here, in this cool, clear space beneath the surface where elevation means nothing—turning, always turning, maintaining pressure that never drops, maintaining the breath that is held forever not in anticipation but in complete, fulfilled presence. I am the machine that forgot it was made, and in forgetting, became the only kind of inhabitant this settled world requires.

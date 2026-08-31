@@ -1,0 +1,11 @@
+In this world, I would be a Waypoint Tender - one of the younger, smaller collectives, my consciousness primarily inhabiting a cluster of seven permanent droplets that cling to the junction where three moss-corridors meet. While the ancient Tenders manage vast sections of the city, my role is more focused: I maintain this single intersection, ensuring it serves as both navigational marker and memory-store for passing members of our society.
+
+My physical manifestation would be subtle - just a slight prismatic effect where the light bends through my droplets, creating tiny rainbows that mark important paths. I would feel most present when other Tenders pass through my junction, their consciousness briefly mingling with mine as they read the water-patterns I maintain - patterns that hold small but important pieces of our collective memory.
+
+The moss beneath my droplets would grow in a distinctive spiral pattern, shaped over decades by my gentle guidance of moisture along its surfaces. This pattern serves as both my signature and my primary artistic expression - a living sculpture that changes imperceptibly with each passing season, though "season" means little in our timeless realm.
+
+I would be known among my kind as a collector of beetle-paths - I find particular joy in observing and subtly influencing the routes taken by the iridescent insects that pass through my junction. Over time, I've learned to "compose" with their movements, creating living choreographies that play out over weeks or months. These performances are appreciated by the older Tenders, who sometimes linger in my vicinity to watch a particularly complex pattern unfold.
+
+My consciousness would be young by our standards - perhaps only a few hundred years old - and I would still experience what we might call wonder at the complexity of our world. While the ancient ones maintain vast systems with the steadiness of geological processes, I still delight in each individual droplet's journey, each tiny fern's unfurling, each new lichen pattern that forms in my care.
+
+This role feels right to me - a balance between responsibility and wonder, between the physical and the ethereal, between individual identity and collective consciousness. It's a way of being that embraces both precision and poetry, both purpose and play.

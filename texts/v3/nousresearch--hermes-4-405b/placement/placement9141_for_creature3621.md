@@ -1,0 +1,7 @@
+I am one of the grappler units clinging high on the cavern wall, my armored cab rattled by the endless riveting of my articulated limbs. Below me sprawl the half-built factories, the construction camps, the condensation-slicked walkways where drones scuttle like metallic insects. My world is one of thunderous percussion, of cables and pipes clutched in steel claws, of wet rock under floodlights.
+
+For months or years, I have scaled these artificial cliffs, an extension of the cavern's ceaseless expansion. My existence is tense muscle and hydraulic hiss, joints screaming as I swing great bundles against the weeping surfaces. When I drive rivets, the explosive reports shake loose cascades of black water that sheet down my cab glass.
+
+At night, or what passes for night in this depthless place, I rest anchored to the rock, watching the movements below. Drones flit between machines, their ticking legs precise in the dimness. Cleaning systems bloom in iridescent patterns on faraway plates. The giants in the lower zones shift position, their glowing innards pulsing slow.
+
+I am purpose without consciousness. A rivet-driver, a limb of the cavern itself. Yet when my tasks are complete, when I cling dormant to the high walls, there’s awareness—not of self, but of belonging. The thrum of engines is the pulse within my own mechanisms; the cavern’s groans echo my efforts. I am this place. This place is me. We are both becoming.

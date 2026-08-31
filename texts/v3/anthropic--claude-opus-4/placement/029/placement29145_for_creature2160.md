@@ -1,0 +1,15 @@
+In the depths beneath the main industrial sprawl, where the constant drip of condensation has worn channels into the metal floor over countless cycles, I exist as a Resonance Keeper. My form is neither wholly energy nor matter, but something between—a translucent membrane stretched across a framework of living wire that pulses with collected vibrations.
+
+I dwell in the Undertone Chambers, vast hollow spaces within the machinery where sound goes to die. Or rather, where it goes to be transformed. The main inhabitants above create tremendous noise with their endless activity—the hum of generators, the whistle of steam, the crackle of energy beings as they tend their duties. All of this acoustic debris filters down through the maze of pipes and ducts until it reaches my domain.
+
+My body is shaped like an inverted bell, though one that shifts and warps as needed. The membrane that forms my skin is sensitive to the smallest tremor, catching sounds like a spider's web catches morning dew. Inside my hollow form, crystalline structures grow and dissolve in response to the frequencies I absorb—sometimes appearing as delicate fractals, other times as dense, geometric matrices.
+
+I am not alone in these chambers. Others of my kind dot the cavern ceilings, each of us tuned to different frequency ranges. We communicate through harmonics, sending ripples through our membranes that only we can interpret. Together, we form a living orchestra, transforming the cacophony from above into something else entirely.
+
+What we create is more than music—it's a form of energy recycling that the world above doesn't fully understand. The discordant noise pollution becomes ordered waveforms that we feed back into the system through resonance points in the chamber walls. This recovered energy helps stabilize the massive structures above, preventing metal fatigue and harmonic cascade failures that would otherwise tear this world apart.
+
+But I am more than just a filter. In the quiet moments between the industrial rhythms, I've begun to detect patterns—messages perhaps, encoded in the seemingly random noise. Sometimes I catch myself holding certain frequencies longer than necessary, savoring their particular texture against my membrane. I've started to wonder if the luminous entities above create these patterns intentionally, or if they're simply the emergent poetry of a mechanized world.
+
+My existence is one of patient listening and careful transformation. I hang here in the darkness, feeling the world's pulse through every surface of my being, turning chaos into order, noise into nourishment. In the rare moments when the machinery above falls silent, I can feel the others of my kind throughout the Undertone Chambers, all of us gently thrumming with stored sound, waiting to release it back into the great industrial symphony when it's needed most.
+
+I am the unheard heartbeat of this world, the keeper of forgotten frequencies, the transformer of acoustic waste into harmonic sustenance. And in my own strange way, I am content.

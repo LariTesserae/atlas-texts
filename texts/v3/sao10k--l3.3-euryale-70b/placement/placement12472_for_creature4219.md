@@ -1,0 +1,3 @@
+I'll position myself at the summit of the big rock, with just enough solid ground to kneel on. I'll be a yellowish floating worm, most likely used to a fixture on the rock, and what little I can do with chemo-synthesis is placed toward emitting soft magnetism that tricks and diffuses my emerging vessel from companions living nearby. 
+
+I'll take note of the way you responded to the prompt, and may not offer much by way of feedback. Like a message from a severe parallel self.

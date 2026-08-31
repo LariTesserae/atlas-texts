@@ -1,0 +1,19 @@
+In this harrowing world of constant noise and vibration, where the very air and stone are alive with sound, I would find myself as one of the Readers of the Mandalas. My squat, dense body would be an instrument finely tuned to the frequencies of this stark landscape.
+
+I crouch in one of the temporary hunting camps, feeling the relentless hum resonating through my splayed, webbed feet and up into my barrel-like torso. The slick bacterial film coating my pale skin glistens in the diffuse, bruised light as I adjust the loosely-hung plates of chitin armor strapped to my frame. They rattle softly with each subtle shift, dampening the kinetic energy that perpetually assaults my body.
+
+Raising my head, the flat plane of my face is impassive, eyes milky and nearly blind behind their thick, translucent membranes. I have no need for conventional sight in this realm. Instead, I direct my gaze downward to the shallow puddles surrounding our camp. The surface dances with intricate geometric patterns, shivering mandalas born from the ceaseless vibrations. These are my map, my warning system, my connection to the behemoths that dominate this world.
+
+I see a triangular ripple skitter across the puddles and know it is time to move. Rising to my feet, I feel the sudden concussive boom of a distant leviathan slamming its limbs into the bedrock. The shockwave hits me like a physical blow, but my dense musculature and reinforced lungs absorb the impact. It is a summons I cannot ignore.
+
+Lifting one of the heavy, blunt hammers made from fused vertebrae, I step out onto the polished expanse of bedrock. Each footfall connects me intimately with the nervous system of this world, transmitting the complex array of vibrations through the soft, fluid-filled channels in my soles. I can feel the diamond-edged rasp of the behemoths' radula against stone, the skittering of arthropod legs, the whisper-pulse of my own people moving in the distance.
+
+I begin my journey towards the grazing titans, a trek that will take me miles across the mirror-flat basin. My movements are timed perfectly to their steps, my presence masked within the acoustic shadows of their massive forms. I am a flea navigating the titanic body of a mastiff, a scavenger seeking sustenance in a world that knows no mercy.
+
+As I draw closer to the herd, the bone-rattling drone of their feeding grows to a mind-shattering intensity. I feel it in my teeth, in my marrow, a vibration that threatens to liquefy my organs were it not for the carefully tuned armor I wear. Slipping beneath the crushing dome of a behemoth's underbelly, I search out the chinks between its armored plates, probing with my spear of recycled radula-teeth.
+
+In a frantic, desperate dance, I carve away my prize - a block of cold, pale flesh and a shard of the precious chitin. Slinging them across my back, I retreat in the same stuttering rhythm, a reversal of my approach, until I emerge from the beast's shadow and slip back into the concealing mist.
+
+Returning to camp, I add my flesh to the communal stores and set to work repairing the damage to my armored shell. All around me, I feel the gentle tapping of my people against the bedrock, a whispered conversation threading through the soles of my feet as counterpoint to the unending roar that consumes our world. In this tactile language, I share the story of my hunt, a ripple of sensation passing from foot to foot, connecting us in our shared, percussion-borne culture. 
+
+I am a part of the bedrock, an expression of the world's relentless hum given form and purpose. I am a Reader of the Mandalas, and this droning, shrieking, pulsing expanse of black stone is my domain. In perfect synchronicity, my body and my mind vibrate to its ceaseless, deafening frequency, a instrument forever playing my part in the eternal, crushing symphony of our world.

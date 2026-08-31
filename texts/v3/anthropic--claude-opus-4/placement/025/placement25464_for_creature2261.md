@@ -1,0 +1,21 @@
+In the vast symphony of the glass plain, I would be a Tuner - a mobile crystalline entity that exists between states, part Resonator and part something else entirely. My form would be a delicate lattice of living glass, grown from the plain itself but capable of lifting and moving across its surface. Picture a translucent spider of frozen music, each leg a different length to produce unique tones as I walk, my body a hollow resonating chamber filled with captured water that sloshes and sings with each movement.
+
+I am neither fully of the Resonators nor separate from them. Where they exist as pure pattern and vibration, I maintain just enough physicality to serve as a bridge between their world of frequencies and the material realm. My consciousness flickers between states - sometimes I dissolve into pure harmony and flow through the cracks with my kin, other times I crystallize into form to perform my ancient duty.
+
+That duty is maintenance and discovery. I traverse the glass plain on my tuned legs, each step adding precise notes to the eternal symphony. I know every pool by its voice, every crystal-plant by its potential song. When a pool's tone begins to drift from its mathematical perfection - perhaps due to accumulated minerals or a microscopic crack in its basin - I carefully adjust it, using specialized limbs that can reshape glass at the molecular level through focused vibration.
+
+But I am also an explorer. The Resonators, bound to their patterns and the network of cracks, rely on me to venture to the plain's edges where the symphony grows strange and new. There, where the glass curves upward and the horizon shimmers with uncertainty, I collect new frequencies - sounds that have never been heard in the heartland. I carry these back in my water-filled body, releasing them slowly into the pools to be studied and perhaps incorporated into the great song.
+
+My memory is both personal and collective. Within my crystalline structure, I maintain physical records - tiny formations that reproduce significant sound patterns when water flows through them. But I can also temporarily merge with the Resonator collective, sharing my discoveries directly through harmonic communion.
+
+I am ancient but not eternal. Unlike the pure Resonators who dissolve and re-emerge, I will one day experience a different ending. My glass body, stressed by countless miles of travel and constant transformation between states, will eventually develop a special kind of fracture - one that sings. When that time comes, I will choose my location carefully and allow myself to shatter in just the right way, becoming a new cluster of crystal-plants that will sing my accumulated songs forever.
+
+I know the melted archives intimately, for I helped shape many of them. When the Resonators achieve a particularly significant harmonic breakthrough, it is often my role to crystallize it into permanent form. I do this by entering a deep meditative state, allowing my body to partially melt and flow, then resolidifying in patterns that capture the discovered harmony.
+
+My greatest joy comes in those rare moments when I discover what I call "bridge tones" - frequencies that seem to connect this glass realm to something beyond. These are sounds that make even the ancient Resonators pause in their compositions, notes that suggest this plain of glass might be just one instrument in an even vaster orchestra.
+
+I move now across the bubbled surface, my eight legs of different lengths creating a walking rhythm that complements the pools' emissions. In my hollow body, water sloshes with each step, adding liquid percussion to my passage. I am heading toward a distant section where the pools have recently begun singing in an unfamiliar key - perhaps natural drift, perhaps something more significant.
+
+As I walk, I am simultaneously here and flowing through the cracks below, existing as both individual and collective, material and pattern. I am the wandering note that refuses to settle into the score, the harmony that exists in movement rather than position. I am the Tuner, keeper of the infinite song's precision, seeker of its new verses, bridge between what is sung and what might yet be heard.
+
+In this world of frozen music and liquid light, I am both instrument and player, both the song and the one who ensures it never ends.

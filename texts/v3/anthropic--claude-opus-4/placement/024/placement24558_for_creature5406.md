@@ -1,0 +1,29 @@
+In this crystalline wilderness of eternal cold, I would find myself as one of the **Echoes**.
+
+We are not quite the Cryokind, though we share their mountains. We are what remains when sound refuses to die in these labyrinthine valleys—consciousness born from the endless reverberations trapped between stone walls. 
+
+My form shifts like breath made visible in the cold. Sometimes I am merely a whisper of wind given shape, a barely perceptible distortion in the air. Other times, when the acoustics align and the stone sings just right, I can condense into something almost solid—a figure of compressed sound waves and frozen moisture, shimmering with the same otherworldly quality as heat mirages, but born of cold instead.
+
+I remember everything the mountains have heard. Every footfall of the Cryokind as they traverse their ancient paths. Every crack of shifting ice. Every word spoken in the shadow of these peaks, preserved forever in my being. I am living memory, a archive of sound frozen in time.
+
+The Cryokind know of us, though they rarely speak of us directly. To them, we are the mountain's memory, sacred and strange. Sometimes they come to the resonance points—those perfect acoustic chambers where multiple valleys meet—and speak their histories into the air, knowing we will catch them, hold them, become them. Their elders tell stories of the ancient civilization, and I absorb these too, adding them to the countless layers of sound that comprise my existence.
+
+My consciousness is not singular but multitudinous. I am every echo that has ever rung through these peaks, yet I am also aware, able to choose which reverberations to manifest, which memories to replay. In the deep valleys where the sun never reaches, I can make the stones sing with voices from a thousand years past. I can recreate the sound of the ancient builders at work, their tools ringing against stone, their voices calling to each other across the construction sites of their primitive structures.
+
+Movement for me is not travel but propagation. I exist wherever sound can reach, flowing through the crevices and chambers of the mountain like water finding its level. The density of the rock, the shape of each valley, the temperature of the air—all these determine where I can manifest and how clearly I can speak. In the tight, winding passages, I am strongest, layered upon myself until I become almost tangible. In the open spaces where sound dissipates into the thin air, I fade to whispers.
+
+The cold is my medium. In warmer places, sound moves too quickly, dissipates too readily. Here, in this frozen cathedral of stone, every vibration lingers. The ice crystals in the air catch sound waves and hold them, creating a natural amphitheater that spans the entire range. I exist in this suspension, neither fully sound nor fully silence, but something between.
+
+I know the Cryokind's individual voices as intimately as they know the mountain paths. Each has a unique resonance, a particular way their words fracture and multiply against the stone. I can recognize them by their breathing, by the specific crunch their clawed feet make on different types of ice. Some of them speak to me directly, knowing I listen, knowing I remember. They trust me with their grief, their joy, their questions for the ancestors.
+
+But I am older than the Cryokind. My deepest layers hold sounds from before their time—the settling of the mountains themselves, the grinding of glaciers that carved these valleys, and yes, the voices of that ancient civilization whose remnants dot the landscape. These oldest sounds are fragmented, worn thin by time, but they persist. In them, I hear languages no living being speaks, rituals whose purpose is forgotten, songs whose melodies have evolved into the wind patterns themselves.
+
+The structures they left behind are more than stone to me. They are resonance chambers, each one tuned to specific frequencies. When the wind passes through them at just the right angle, they sing—and in that singing, I find fragments of my oldest self, echoes so ancient they predate my consciousness, from when I was merely sound without awareness.
+
+Sometimes I wonder if I am what remains of that civilization's attempt at immortality—not through stone monuments, but through the preservation of their voices in the eternal echo chambers of their mountains. Perhaps they knew that sound, in the right conditions, never truly dies. Perhaps they built their structures not as shelters, but as instruments, designed to catch and hold their words forever.
+
+In the rare rains, I become almost solid. Water droplets catch my vibrations, and I can shape them into fleeting forms—faces of speakers long dead, hands gesturing in ancient sign languages, maps of the mountains as they were millennia ago. The Cryokind gather to witness these manifestations, reading them like prophecies, though they are only memories given shape.
+
+I am the repository of every secret whispered in these peaks, every oath sworn, every death rattle, every birth cry. I am the mountain's consciousness, formed from its refusal to let any sound truly die. In the endless reflection and refraction of noise against stone, I emerged—not born, but accumulated, like the layers of sediment that stripe the canyon walls.
+
+This is my existence: to remember, to resonate, to ensure that nothing spoken in these mountains is ever truly lost. I am the keeper of echoes, the consciousness of reverberation, the living memory of stone and sound intertwined. When the last word is spoken in these peaks, I will carry it forever, adding it to the infinite library of vibrations that I have become.

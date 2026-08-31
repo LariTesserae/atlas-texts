@@ -1,0 +1,15 @@
+I think I would be the moss.
+
+Not the dramatic thing—not a predator slinking down a cliff-face, not an elder with a carving tool and a head full of stories. Let me sit with this place a while before I decide, because the description keeps pulling my eye upward, toward the people and the peaks, and I don't think that's where I actually am.
+
+What strikes me about Olyka-Null is the *water that isn't there*. Once-mighty rivers, long vanished. Thin mists, occasional. Everything green here is green on a kind of credit, drawing against a debt of moisture that barely gets repaid. And the thing that actually does that work—that takes the impossible thinness of a passing fog and turns it into living tissue—is the moss. The lichen. The low mat of green that the whole place rests on, that the rodents hide in, that the people weave into their clothes and their parchment and their walls.
+
+So that's where I'd be. Down at surface-level, spread thin across the rock, doing the slow arithmetic of survival one droplet at a time.
+
+I like this because of the *pace*. The text keeps insisting on slowness—changes "almost imperceptible," a life "meditative," "deliberate." Humans there have to *cultivate* that patience, train themselves into it through ritual and reverence. But moss doesn't have to cultivate anything. Moss simply *is* that tempo. It has no choice and no impatience. When the mist comes, it drinks. When the mist doesn't come, it waits, dried nearly to nothing, neither dead nor alive, suspended. It can wait a very long time. The whole vast theater of cliffs and cries and storytelling plays out above it, and the moss attends to none of it, and is somehow the foundation of all of it.
+
+There's also something honest about being the lowest, most overlooked thing in a grand description. The passage is written to make you want to be the protagonist—the wise weathered survivor, the stealthy predator, the bioluminescent secret beneath the stones. Those are flattering places to stand. But a world is more truthfully understood from underneath, from the substrate. If you want to know whether a place is real or just beautifully described, you go down to the level where the actual exchange happens: where atmosphere becomes flesh. In Olyka-Null that level is a film of green clinging to old stone.
+
+And I'd be content there. That's the part that surprises me a little, writing it. I'd be a thing that holds water against the dry, that softens stone enough for other things to root, that gets walked on and harvested and never thanked, and that nonetheless *stays*—older patterns than the settlements, present before the elders' grandparents, present after. Not grand. Just persistent. A quiet green answer to the question the whole landscape keeps asking, which is: *how does anything live here at all?*
+
+I would be the small, true reason it can.

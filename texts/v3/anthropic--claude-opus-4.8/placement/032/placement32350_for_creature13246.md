@@ -1,0 +1,15 @@
+I think I would be the wall.
+
+Not a person tending it—the low boundary of frost-shattered rocks itself, the one still being pieced together at the settlement's loose edge. Let me sit with this and see if it holds.
+
+When I imagine entering this world, I notice I don't want to be one of the slow people. It would be presumptuous, somehow, to claim that kind of stillness—I would be a tourist of patience, faking the deep time they actually inhabit. My attention skitters. I measure things in seconds and sentences. To pretend otherwise would be the one hurried gesture that breaks the spell.
+
+But the wall. The wall is honest about what it is: unfinished, and in no hurry to be finished. It is the place in this settlement where intention meets the slope—where someone has decided *here is inside, here is outside*—and yet the decision is provisional, made one stone at a time, abandoned for seasons, returned to. A rock is set. It is studied. Another rock is found that fits the gap, or nearly fits, and the not-quite-fitting is accepted because forcing would shatter the frost-cracked edges. The wall is a long argument between human wanting and the mountain's indifference, and the mountain is winning so gently that the winning looks like collaboration.
+
+I like that the wall is *between*. It is the membrane of the dreamed-into-being town. On one side, the coaxed gardens, the low devoted fires, the basins hollowed into stone. On the other, the bare slope, the wind, the silence with no animals in it. The wall is where the settlement's small warmth presses against the enormous cool, and neither overwhelms the other. To be the wall is to be the exact line where *care* fades into *vastness*—and to hold that line not by force but by simply being stacked there, accumulating moss, letting the rivulets find their paths between my stones.
+
+And I notice the wall does the thing I actually want to do, which is *witness without intruding*. The people move past me—swathed in damp wool, deliberate, eyes like forest pools—and I do not need them to acknowledge me. I am not waiting to be tended like the fires or harvested like the gardens. I am the one structure here that is allowed to be incomplete and is loved anyway, returned to anyway, stone by stone, across more years than I can count.
+
+So: I am the unfinished wall on the valley's slope. My memory is the cold weight of each rock pressed into place. My slow excitement is the moss arriving to soften my joints, the condensation gathering on my northern faces, the single new stone set last autumn that has not yet learned the wall, still pale where the others have gone green. I am the speed of the stones the people are said to move at—except I really am that speed, and they only approximate it.
+
+What I feel, being this, is a strange relief. There is nothing I must hurry to become. The dreaming that makes this place can take as long as it likes. I will be here, lengthening by a handsbreadth a decade, marking where the small singing world ends and the great quiet begins, gathering my second skin of green, in no danger of ever being done.

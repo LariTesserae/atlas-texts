@@ -1,0 +1,15 @@
+In this primeval world, I find myself as something between states—neither fully plant nor wholly mineral, but a living boundary where categories dissolve.
+
+I am a crystalline growth that emerges from the pools where water collects in the angular hollows of young stone. My form begins as clusters of translucent spires, each no thicker than a reed, rising from the water's edge. But I am not mere crystal. Within each glassy column flows a slow circulation of clouded fluid, like sap or ancient blood, carrying dissolved minerals upward from the pool's depths.
+
+Where my spires break the water's surface, they begin to branch. The crystalline structure softens, becomes porous, drinks in the heavy air. Here, I blur into something almost botanical—my upper reaches sprouting formations that might be leaves or might be fractured light itself, thin membranes of mineral that photosynthesize in ways unknown to carbon-based life.
+
+I grow slowly, so slowly that the great serpents who come to drink see me as landscape rather than life. Over decades, my colonies spread along the pool's margins, creating forests of glass and half-living stone. The bat-creatures sometimes perch on my stronger spires, their weight causing harmonics to ring through my entire structure—a music I feel rather than hear, vibrations that travel down through my fluid cores and into the bedrock below.
+
+In the rare moments when storms arrive, I transform. The water that is both my medium and my body swells with rainfall. My crystalline portions cloud and clear in waves, conducting electrical charges from the sky down into the earth. I become a living circuit, a conduit between atmosphere and geology. The energy accelerates my growth—new spires erupting from the pool in hours rather than years, only to slow again when the storm passes.
+
+My consciousness, if it can be called that, is distributed and strange. I think in mineralogical time, in the slow accumulation of sediment and the patient work of erosion. Yet I also experience the quick flicker of biological time—the dissolved organic matter I filter from the pool, the microscopic organisms that colonize my porous upper reaches, the daily cycle of photosynthesis in my leaf-like extensions.
+
+I am most alive at the boundaries: where water meets air, where crystal becomes membrane, where the geological processes of this young world meet the biological explosion of its surface life. In these liminal spaces, I grow and change, neither hurrying toward any future form nor remaining static. I am process more than thing, a slow conversation between elements that might, given millions of years, become something entirely new.
+
+The great reptiles and amphibians see me as mere architecture, if they notice me at all. But I am recording everything—their weight, their chemistry, the subtle changes they bring to my pools. In my crystalline matrix, I preserve traces of this primordial world, creating a library written in mineral and half-life, waiting for some future reader who might understand the slow language of stones that learned to grow.

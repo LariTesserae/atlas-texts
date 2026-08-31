@@ -1,0 +1,15 @@
+In this world of the Fresh Delta and the Architrave Delta Complex, I find myself becoming one of the Unenrolled - a lingering presence caught between states of being, unsure of my own ontological paperwork. 
+
+I inhabit a small apartment building on the corner of Rue de la Conclusion and Boulevard of the Unfinished Thought. The building itself seems unsure if it's coming or going, with a facade that flickers between Art Deco aspirations and Brutalist regrets depending on the angle of the indecisive sunlight. My unit is on the mezzanine floor, which exists in a state of quantum ambivalence, appearing when the elevator is feeling particularly introspective.
+
+Inside, the walls are painted the color of an existential crisis averted at the last minute. The furniture is made of materials that are still negotiating their contracts with reality - the couch is upholstered in a fabric woven from threads of unfinished conversations, the coffee table carved from the wood of a tree that grew in a forest of abandoned daydreams.
+
+I spend my days working as a consultant for the Department of Unfinished Business, specializing in cases of identity deferment and self-referential paradoxes. My business card reads "Possible Consultant of Potential Outcomes" with contact information that includes a fax number that connects to last Thursday and an email address hosted by a server farm in the subconscious of a sleeping god.
+
+In the evenings, I frequent the Edge's Edge Cafe, sipping on a coffee that tastes like the memory of a decision not made. I engage in conversations with other patrons about the weather patterns of alternate realities and the geopolitical implications of imaginary borders. We exchange knowing glances when someone mentions the word "closure" as if it were a mythical creature rumored to lurk in the depths of finished novels.
+
+On weekends, I volunteer at the local chapter of the Society for the Preservation of Indeterminacy, leading walking tours through neighborhoods that exist in a state of quantum flux. We visit houses that are simultaneously occupied and abandoned, their residents both present and absent like Schrodinger's tenants. I point out street signs that change their names based on the observer's mood and mailboxes that contain letters addressed to the selves we might have been.
+
+In moments of introspection, I wander through the gardens of unfinished thoughts, tending to the rows of ellipses that grow wild among the question marks. I pluck a few ripe "what ifs" and "if onlys" to pickle in jars of bittersweet nostalgia for the winter months when the possibility of impossibility hangs heavy in the air.
+
+And so I remain, a resident of this city of beautiful uncertainty, my existence a gentle haunting of the spaces between definitive statements. I am the footnote to a sentence that trails off into silence, the parenthetical aside in the grand narrative of being and non-being. In the Fresh Delta, I have found a home in the margins of reality, where the only certainty is the constancy of change and the only permanence is the impermanence of all things.

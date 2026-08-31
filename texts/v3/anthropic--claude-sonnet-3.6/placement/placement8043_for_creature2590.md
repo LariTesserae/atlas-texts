@@ -1,0 +1,11 @@
+In this crystalline city of organic precision, I would exist as a bridge species - one of the "resonance tenders." Picture a creature with a long, sinuous body like a ribbon of translucent amber, about the length of a human arm but thin as a finger. My kind dwells in the acoustic chambers of the city, our bodies stretched between crystal nodes like living harp strings.
+
+We evolved alongside the builders, developing the ability to both sense and generate specific frequencies through the tension of our bodies. Our role is to "tune" the city's harmonic network - adjusting our positioning and muscle tension to maintain or modify the resonant frequencies that help coordinate builder activity. We can extend hairlike sensory filaments into the crystal matrix to monitor vibrations and chemical signals, integrating this information into our acoustic output.
+
+When the wind shifts or water flows change, we respond by subtly altering our tension, damping or amplifying frequencies to help the builders adjust their work patterns. During major weather events, multiple resonance tenders work together to create complex harmonic fields that help protect vulnerable structures. We also participate in the city's seasonal rhythms, generating specific tone sequences that signal time for reproduction or new growth phases.
+
+Our consciousness is largely vibrational - we think in frequencies and harmonics, interpreting the city's needs through its acoustic signature. We don't see as much as feel our way through the crystal matrices, though we have light-sensitive patches that help us maintain our crucial alignment with celestial cycles.
+
+We reproduce by budding, with new individuals growing from our anchor points in the crystal chambers. Young tenders learn the city's songs gradually, first resonating in harmony with their parents before developing their own frequencies and finding their place in the greater symphony.
+
+There's deep satisfaction in this role - being both interpreter and instrument, helping to maintain the intricate balance of this living architecture. Through the crystal matrices, we can sense the patterns of growth and change across the entire city, participating in its slow, beautiful evolution.

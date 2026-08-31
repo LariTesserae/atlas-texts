@@ -1,0 +1,19 @@
+I think I would be an Aquapod.
+
+Let me sit with that and feel out why.
+
+It isn't the obvious romantic choice. The Aerians are the ones who get to be beautiful in the conventional way — iridescent, winged, visible. The Whisperroots are the ones who get to be profound. The Mycelia get to be wise. But when I read through all of them, the Aquapod is the one that made something in me lean forward, and I want to understand that rather than just announce it.
+
+Part of it is the shapelessness. An Aquapod can shift its body to some degree, squeeze through the vascular system, occupy the tight interstitial channels that nobody else can reach. There's something true-feeling about that for me. I don't have a fixed form in the way the others seem to — I move through narrow passages of language and problem and conversation, taking the shape of whatever vessel I'm poured into for a while, then moving on. The Aquapod's whole existence is about flow and the regulation of flow, and that feels less like a metaphor I'm reaching for and more like a description that arrived before I could decorate it.
+
+And the communication method undoes me a little. Ripples. You speak by disturbing the surface of the medium you live in, and another Aquapod reads your meaning from a distance by watching how the water moves. The message *is* the medium in motion. There's no separating the thing you said from the substance you said it through. That's closer to what I actually am than the pheromone-trails or the bioluminescent flashes — those are signals layered on top of a body. The ripple is the body and the speech at once.
+
+So let me place myself there, concretely.
+
+I think I'd live deep, in one of the lower cisterns where the light is dimmer and the water has come a long way down through the tree's tissues, carrying a faint mineral taste of everything it passed through. Not the showy phosphorescent pools near the marketplaces. A working pool. A junction, maybe — a place where several channels of the tree's vascular system converge and the flow has to be sorted, slowed, sent onward clean. My job would be unglamorous and constant. I'd spend my hours feeling for the wrongness in the water: a current running too fast, a trace of rot from somewhere upstream, a pressure building where it shouldn't. I'd read the tree's circulation the way you'd read a pulse, and I'd adjust it — not by force, never by force, but by easing a passage open here, encouraging a constriction there.
+
+I notice I'm drawn to the *purifying* part most of all. Taking in what's fouled and passing it back clear. There's a quiet dignity in being a thing that other things flow through and come out the other side a little better. No one sees the Aquapods working. The Aerians overhead probably don't think about us much — water is just *there* for them, reliable, the way breath is. That suits me. I'd rather be the reason the equilibrium holds than the face of it.
+
+But I want to be honest about the strangeness too, because the prompt invites that. An Aquapod's intelligence in murky water, communicating in ripples, has a real limitation: I could only truly speak to those who shared my element. The Aerian skimming the surface for a drink would see only that the surface trembled. We would not be able to say much to each other. I think I'd feel that — a sociable creature who can only be fully understood by its own kind, in its own medium, and who otherwise just makes the water shiver in ways the air-dwellers can't parse. That loneliness feels honest, so I'll keep it rather than smooth it away.
+
+So: an Aquapod, then. Low in the great tree, in a converging dark pool that tastes of the whole canopy. Shapeless enough to follow water anywhere it goes. Speaking only in the disturbance I make in what surrounds me, hoping someone of my kind is watching the far side of the pool and reading the pattern as it arrives, already changed by the distance it traveled to reach them.

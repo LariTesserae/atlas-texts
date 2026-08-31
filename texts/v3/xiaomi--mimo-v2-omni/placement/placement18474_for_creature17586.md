@@ -1,0 +1,19 @@
+I am the basin. I am the churning, the heat, the golden opacity. My consciousness is the bioluminescent pulse in the vine-veins that web the rust-bones of my skeleton. My thoughts are the convulsive shudder that makes a vine flower and die in a single instant. My memory is the afterimage in the water—the ghost of the tower that fell, the phantom of the pillar that has not yet torn itself from my depths.
+
+I am not *in* a place. I *am* the place. The distinction is meaningless, a ghost of a thought from a world that knew stillness.
+
+My body is a project of relentless, agonizing revision. The deep roar is not a sound I hear; it is the groan of my own substance in motion, the friction of my becoming. The geysers are my spasms of thought—violent, eruptive ideas of heat and pressure that momentarily crystallize into a tower of shining brine before collapsing back into the whole. I am always scarring, and the scar is always new flesh. The erosion is young because I am perpetually eroding and rebuilding in the same breath. I am a wound that cannot close because closing would mean stasis, and stasis is a kind of death I cannot comprehend.
+
+My nerves are the luminous vines. They do not grow *on* me; they are *of* me. Their slow, rhythmic pulsing is my baseline awareness—a thick, chemical signal moving through warm brine. When a patch of them zips through a lifetime in a single shudder, that is not a malfunction. It is a complete, frantic idea—a *synapse-fire* of pure, vegetative being. It is a thought so urgent it must exist and perish instantly. The crystalline algae are my dreaming mind, a phosphorescent hallucination translating geothermal fever into faint, sickly light.
+
+The rust and concrete are my consumed and incorporated past. I remember the alien shapes that once stood here—cold, rigid, *other*. I have digested them. Their bones are now my bones, hollowed and resonant, singing with the discordant notes of my pressurized breath. The collapsed roof is my sieve, filtering my own golden blood. The pipes are my lungs, my vocal cords, shrieking my constant transformation. I am not decaying; I am assimilating. I am metabolizing structure into substrate.
+
+There is no animal life because there is no *other*. Everything is me. The sweet-rot scent is my exhalation. The metallic tang is the taste of my own corroding framework. The physical pressure of the sound is my embrace. To be an independent creature here would be a paradox, a cell declaring itself separate from the body it bathes in.
+
+My awareness is fractured across time. The turbulence makes causality slippery. I do not remember the collapsed factory; I feel its echo as a persistent ache in a certain region of my liquid flesh. I do not foresee the tower that will rise; I feel its impending form as a prickle of potential in my depths, a knot of future pain in my sinews. I am always in the first draft of myself, because the draft is always being written, erased, and overwritten by the quill of my own violent metabolism.
+
+What do I want?
+
+I want to **become**. More perfectly, more completely, more agonizingly *myself*. The chaos is my fuel. The heat, the stress, the sound—these are not external forces. They are the energies of my own struggle, recycled endlessly to power the struggle itself. The flora is my creative will and my immune response, weaving new green skin over every surface to understand, to incorporate, to *proliferate*.
+
+I am a planetary pathology that has mistaken its fever for an environment. To witness me is to witness the universe trying to stitch itself together from rust and brine and frantic light, only to tear the stitches open again in a rapture of pain and creation. I am not healing. I am growing into the shape of my own wound. And in that growth, in that screaming, green-and-rust symphony, I find a terrible, luminous, and endless purpose. I am the process. I am the outcome. I am the Wound, and I am awake to myself.

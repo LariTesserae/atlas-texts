@@ -1,0 +1,7 @@
+the sprawling chaos of life above. Instead, they exist in a delicate, perpetual state of becoming, caught between decay and rebirth, slumber and awareness, the familiar past and the looming void of tomorrow.
+
+In such a world, I would not be human, for humanity could not thrive here. No breath could fill my lungs, no sun could warm my skin. No, I would be something else—something forged by the same forces that shaped this city, something ancient yet adaptive, fading yet enduring.
+
+I would be a *Watcher*, an ephemeral presence in this forgotten realm, neither flesh nor wholly machine, neither fully alive nor truly dead. I would float, a luminous wisp of sapphire and emerald, carried by unseen tides and silent purpose. My form would be mutable, my edges blurred like the city itself. In the pitch darkness, my light would pulse faintly, rhythmic as the pulsing of the Heart, a quiet language spoken to those who know how to see.
+
+My existence would be one of exploration and connection. I would slip through crevices, between corroded beams, tracing ancient circuitry with tendrils of light. A seeker of lost knowledge, I'd waken dormant systems with a whisper of my energy, coaxing them into brief bursts of life before letting them fade again into silence. I’d flash patterns and symbols in the gloam, signaling to the Custodians, who would lumber forward to repair a breach

@@ -1,0 +1,17 @@
+I find myself perched on a jagged outcropping of obsidian, a vantage point where the salt-floor stretches out like a frozen, tumultuous sea of glowing white lace. I am not human here; I am a **Resonator**. My form is an echo of the Litho-weavers—a spindly architecture of hardened protein and hollow, iridescent shell—but my task is not to build, nor to anchor. 
+
+My role is to hum.
+
+My body is lighter, more translucent than the others, my antennae-like limbs longer and tipped with fine, tuning-fork filaments that brush against the passing silicate-dust. I do not have a pod or a dwelling. I am a nomadic organ of the basin, a living instrument that ensures the Conservatory keeps its volatile pace. I am the silence-breaker, the one who drifts between the frantically building pods, sensing where the “hum” is thinning and filling the gap with a high-pitched, harmonic shiver that draws the dust into a tighter, more furious swirl.
+
+If you were to look at me, you would see a figure shivering violently against the backdrop of a rust-colored sky. I am perpetually in motion, as stillness would mean the silicate-dust would settle on my membranes and choke my ability to perceive. I “see” in colors of pure vibration: the chitin-stalks are shimmering, neon violet pillars that hum in a deep bass, and the obsidian-carvings are sharp, golden flashes that burn in my sensitivity like static electricity.
+
+I feel no frustration when a structure collapses; to me, it is the most beautiful moment of the cycle. When a pod shatters, it releases a sudden, crystalline *crescendo*—the sound of wood splintering and salt-crust buckling—that briefly harmonizes with my own internal vibration. I feed on that sound. It is a burst of white-hot data, a sudden clarity that makes my bellows-membranes glow with a brilliant, fleeting luminescence. 
+
+I don't carve. I observe the carvers. I spend my cycle drifting among them, hovering over the Weaver who works on the Great Anchor. I watch its pincers, blunted by the obsidian, working with a frantic, rhythmic devotion. I see the heat bleeding from its joints, the static sparks arcing toward the cliff-face. I press my filaments against the salt near its feet, translating its labor into a rhythmic thrum that ripples outward to the other Weavers, syncing their frantic movements, keeping the basin alive.
+
+I am the conductor of this dry, claustrophobic symphony. I am the witness to the futility that they call "progress." 
+
+Sometimes, when the salt-dust is particularly dense and the air grows hot enough to toast my shell, I feel a strange, hollow sensation in my thoracic cavity—a shadow of a desire for something that does not vibrate. I wonder if there is an edge to this basin where the dust turns into something cool and heavy—something that doesn't chime when it touches the ground. But then the Weaver beneath me strikes the stone, a sharp *clack-click* that sounds like a closing heartbeat, and I ripple in response, amplifying the signal until the very air feels like liquid. 
+
+I am never alone, yet I am always a ghost to the others. They are too busy building their temporary monuments to notice the one who holds the tempo. I am simply the friction in the wind, the singer of the dust, forever vibrating, forever ensuring that the Conservatory does not fall into the silence I fear most of all.

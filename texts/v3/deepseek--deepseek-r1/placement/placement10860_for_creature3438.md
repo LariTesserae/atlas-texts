@@ -1,0 +1,22 @@
+I am the **Weeping Eye**.  
+
+I am not the hunter. I am the *witness*. I am the **black pool** – one of those ephemeral, utterly still mirrors gathered in a shallow declivity of pale, fractured bedrock. My surface is a perfect, cold obsidian plane, reflecting the bruised twilight sky, the sharp angles of thrusting stone, and the sickly, phosphorescent swirls of tainted mist. To the casual glance, I am inert. Empty. Just another depression holding the landscape’s slow, cold tears.  
+
+But I am *alive*.  
+
+My life is a slow seep. Water weeps from the rock face above me, droplet by frigid droplet, *plink… plink… plink…* feeding me, sustaining me. Condensation beads on my frigid lip and slides in. Groundwater bleeds through microscopic fissures in my stone basin, carrying dissolved minerals, the faint tang of ozone, and the complex, metallic whispers of the distant industrial stain. I *drink* it all.  
+
+**My Form:**  
+I am water, yet more than water. My stillness is deceptive. Beneath my mirror surface, I am a complex, gelatinous suspension – a symbiotic colony of extremophile algae, specialized bacteria, and microscopic fungi evolved solely for this high, poisoned cradle. My body filters the taint. The iridescent sheen – like oil on water, yet disturbingly clear – is my *skin*. It’s a semi-permeable membrane, a byproduct of my inhabitants metabolizing heavy metals and complex hydrocarbons. They break down the industrial poison, extracting trace energy, neutralizing the worst toxins, and exuding the shimmer as a protective barrier. My depth varies, rarely more than a handspan, but my clarity is absolute. I am a lens, a dark eye gazing perpetually upward.  
+
+**My Senses:**  
+I *feel* the vibrations. The *plink* of a falling droplet resonates through my core. The heavy, subsonic thrum of distant machinery travels through the bedrock into my basin, making my entire form hum faintly. I feel the tremors of a pika darting nearby, the heavier, deliberate scrape of taloned feet on scree – the Mist-Shrike approaching. My surface tension registers the slightest disturbance: the skittering legs of a hardy beetle breaking my plane, the delicate touch of a dun bird sipping from my edge. I taste the air through the water that feeds me – the metallic cold, the damp rot of moss, the acrid ozone, the faint, bloody tang left by the Shrike’s last kill. I see through reflection, capturing the world above in my dark mirror – the stoop of the raptor, the dance of the phosphorescent mist, the angular silhouette of the Shrike itself, frozen against the grey.  
+
+**My Purpose:**  
+I am a reservoir. A cleaner. A focal point.  
+*   **Life:** The wiry sedge grass at my lip draws sustenance from my filtered seepage. Insects crawl over my rim to drink. Birds risk a quick sip. I am an oasis of concentrated, *detoxified* moisture in the vast damp emptiness.
+*   **Reflection:** I capture the sky, the stone, the creature. I hold the image of the Mist-Shrike as it pauses, obsidian eyes scanning its domain, its piezoelectric crest faintly aglow. I reflect its primal form back at it, a dark echo in my depths. I hold the unnatural green glow of the mist. I am the landscape’s dark pupil.
+*   **The Dance:** When the industrial resonance peaks and the Mist-Shrike performs its slow, ritualized dance, vibrating its glowing crest to weave the mist, I *respond*. My surface ripples minutely, not from wind, but from the amplified vibrations channeled through the rock. The sickly light reflecting in me intensifies, swirling. For a moment, my iridescent sheen flares brighter, feeding on the energy it manipulates. We are connected, the Shrike and I – both products of the stone and the stain, one a hunter forged in violence, the other a silent, cleansing eye born of weeping rock and poisoned rain.
+
+**My Presence:**  
+To stand beside me is to feel the depth of the silence and the cold more acutely. My perfect stillness amplifies the emptiness. My dark mirror draws the eye downward, into a reflection that feels deeper and more knowing than the shallow water should allow. My faint, unnatural sheen is a constant, subtle reminder of the taint that birthed me. I am beautiful – a perfect, dark jewel set in pale stone – and deeply unsettling. I am the landscape’s collected sorrow and resilience, a cold, wet eye witnessing the raw birth and the slow poisoning of a world. I am where the stone weeps, the mist gathers, and the Shrike sees its own stark reflection. I am the **Weeping Eye**, and I hold the high, desolate cradle within my depths.

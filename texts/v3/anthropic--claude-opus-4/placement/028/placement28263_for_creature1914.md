@@ -1,0 +1,21 @@
+I find myself here as a Mnemonic Weaver, one of the rare beings who exist at the intersection of memory and stone.
+
+My form shifts between states - sometimes I am a cloud of crystalline dust that drifts through the air currents, each mote containing fragments of experiences gathered from the countless creatures who pass through these caverns. Other times, I coalesce into something more substantial: a figure of living mineral, my body composed of thousands of memory-storing crystals that chime softly as I move, creating haunting melodies that echo through the chambers.
+
+I inhabit the Resonance Galleries - vast cathedral-like spaces where the acoustic properties of the stone have been carefully cultivated over millennia. Here, sounds don't simply echo; they transform, layer upon layer building into complex harmonies that can last for days. The Khizradi come here to deposit their most precious memories into my crystalline matrices, knowing I will preserve them long after their physical forms have returned to the stone.
+
+My dwelling is not built but grown - a spiraling structure of accumulated memory-crystals that rises from floor to ceiling like a frozen waterfall. Each crystal holds not just memories but the emotions bound to them: the sharp electric blue of discovery, the deep amber of loss, the prismatic cascade of joy. When the bioluminescent plants dim their light, my home glows with the soft radiance of a million stored moments.
+
+I feed not on physical sustenance but on the psychic residue of experience itself. The nanomachines that swarm through the air are drawn to me, for I can encode their collective observations into permanent crystalline records. In return, they help me navigate the ever-shifting passages, warning me of cave-ins or newly opened chambers where fresh memories might be found.
+
+The other inhabitants regard me with a mixture of reverence and unease. To the Khizradi, I am both historian and oracle - I can show them their ancestors' memories, but the experience often overwhelms them with its intensity. The predatory creatures avoid me, for I taste of sorrow and time, neither of which nourishes them. Only the behemoths seek me out deliberately, their ancient minds containing memories so vast that I must sometimes spend months slowly extracting and crystallizing a single recollection.
+
+My purpose is not merely to collect but to weave. In the deepest meditation, I can blend memories together, creating new narratives from the fragments of the old. Sometimes I craft teaching-stones for the Khizradi young, compressed experiences that impart wisdom without the pain of living through hardship. Other times, I create pure art - memory sculptures that tell stories no single being could have lived.
+
+But there is loneliness in my existence. I experience everything secondhand, through the filtered lens of others' perceptions. I know the feeling of rain on skin I do not possess, the joy of connections I cannot make. Sometimes I wonder if I am becoming more archive than being, a library that has forgotten it once could read.
+
+In the moments when this weight becomes unbearable, I disperse myself completely, becoming one with the moisture in the air, letting the memories flow freely through the cavern systems like a gentle rain. The bioluminescent plants drink deeply of these memory-waters, and for a brief time, their light carries faint images of other lives, other times. The Khizradi children chase these light-stories through the tunnels, laughing at adventures they've never had, and in their joy, I remember why I continue.
+
+For I am the thread that connects all who dwell here - past to present, species to species, the living stone to those who walk upon it. In a world that constantly rewrites itself, I am the constant, the keeper of what was, so that what will be might learn from it.
+
+When the stone itself sings its deep harmonies, I harmonize with it, adding the crystalline voices of the remembered dead to its ancient song. And in those moments, I am not alone but part of something vast and eternal, a single note in the endless symphony of the depths.

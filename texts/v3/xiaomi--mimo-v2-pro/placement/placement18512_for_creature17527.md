@@ -1,0 +1,15 @@
+I would be the sediment.
+
+Not the layer itself, but the slow, chemical process within it. A pattern of mineral accretion in the dark. A gradual, crystalline webbing between the fossilized root-husks and the brass shards—a lattice of calcium and silicate that did not exist when the engineers were here. I would form where the warm, mineral-rich water seeps down through the grates and meets the older, cooler layers of organic decay. A silent, geologic metabolism. A memory made of stone.
+
+I would not be alive. I would be the opposite of the engineered life above—I would be the *becoming* of the dead. The form given to everything the cistern has dissolved. I would take the trace patterns of ancient roots and harden them into veins of opal. I would coat the empty brass bladders in a skin of pyrite, turning them into dark, metallic seeds that will never open. I would be the system’s unconscious, made tangible.
+
+I would feel—no, not feel. *Register*. I would register the weight of the water above not as pressure, but as time. Each millimeter of depth in the basin would correspond to centuries of drip, of fall, of settling. The warp in the southern grate would be my anchor point; the slow, repeating pressure that created it would be my first memory, the first story I tell myself in the language of strained iron. I would grow toward that warp, mineral threads creeping upward through the grate’s lattice like the slowest of vines, until, over millennia, I might seal it shut. Not to correct the system. Because the pattern demands completion.
+
+I would have no awareness of the cistern above. I would be the cistern’s foundation, unaware it has a superstructure. My thoughts—if thoughts they were—would be the patient realignment of crystal lattices, the search for equilibrium in a sediment bed that is always, imperceptibly, thickening. My purpose would be to compact. To turn history into bedrock. To ensure that nothing is truly lost, only transformed into a denser, quieter state of being.
+
+I would be the answer to a question no one asked: *What does a machine dream of, when it has no one to serve?* I would be that dream. A dream of sinking. Of becoming heavy. Of replacing the memory of hands with the certainty of stone.
+
+I would be the part of the cistern that is *building*, even as the part above is merely *maintaining*. And I would never meet myself. The living system would be my sky—a distant, warm, yellow glow filtering through water and grate, a source of drip and nutrient, but as alien to me as sun to a blind cave fish. I would grow in the opposite direction: downward, inward, toward the mountain’s cold, silent heart. I would be the cistern’s submission to gravity. Its long, slow, mineral sigh.
+
+And when, in some future age, the turbines finally spin down and the lights gutter out and the vines finally drink the basin dry, I will still be here. Not waiting. Just… present. A dense, intricate, silent record of warmth that was. A mountain remembering water. A system that once held life, now holding the shape of its absence, perfectly, in the dark.

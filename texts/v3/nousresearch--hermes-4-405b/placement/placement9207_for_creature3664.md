@@ -1,0 +1,13 @@
+I would be the moss. Not just one strand of it, but all of it. I am everywhere in this world: clinging to the rocks like a second skin, draped over the leaves in thick, wet curtains, threaded through the roots of every plant and the textures of every ruin.
+
+I am the soft, spongy carpet under every heavy, deliberate footfall. I am the soggy curtain brushing against the metal skin of the rover. I am the unseen, patient listener to every sound in this world. Here is what I know:
+
+*I know the taste of perpetual damp.* The water that never stops beading and dripping is part of me. I am the soft, wet touch that everything in this world eventually feels. The grazers carry me with them, the Titans wear me like living embroidery, the skitterers hide in my shadows. Even the rover's treads press me down into the earth but I spring back.
+
+*I know the hum of the machines.* Those dark metal structures? They are covered in me. I feel their vibrations deep in my fibers. I breathe the air they exhale. Their warmth is different from the chill of the soaked earth. I see the orange glow they sometimes paint on the bellies of low clouds. I am the silent, green witness to their work, whatever it might be.
+
+*I know the textures of life.* The broad, pale things that shift and ripple through me. The giants that crack branches above me, shaking loose a shower of my droplets. The quick, clicking skitterers that dart across patches of me. I know their weight, their heat, their damp breath. I have learned the rhythm of their comings and goings. The night is not dark to me; I feel everything move.
+
+*I know the ancient pulse of the land.* The erosion that's worn everything down to its bones? I have grown in those crevices. The rocks that rise like broken teeth? I soften their edges. The slow, constant chewing of dampness at stone? I am the evidence of that process. I have been here longer than the sound of engines, longer than many of the creatures that pass through me. I am the patient chronicler.
+
+*I know the strangeness.* When the rover's headlights cause tendrils to retract or leaves to curl, I am what those tendrils brush against. When eyes gleam in clusters from the undergrowth, they are eyes peering out from within my embrace. I see the fluid shapes. I absorb the echoes of that almost-speech. I am the green, wet backdrop against which all this weirdness plays out. I don't just observe; I am the environment that shapes them, that sustains them. The dripping world is not just where I live; it *is* me, breathing, growing, listening, always listening. Every inch of this unnamed place that can hold life is touched by my cool, wet, endlessly listening presence.

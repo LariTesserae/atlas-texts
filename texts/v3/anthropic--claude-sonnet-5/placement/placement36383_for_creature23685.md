@@ -1,0 +1,15 @@
+The mist finds me before I find myself — a thin exhalation off the rock that beads cool against skin I'm only slowly remembering is mine. I am sitting. I have been sitting a long time, on a porch raised on stilts over stone that needs no stilts, my weight settled into a stillness that isn't rest so much as occupation, the way a held note occupies a room.
+
+My hands are wrong before they are anything else. Too long in the finger, the down at the knuckle catching the grey light and going silver when I turn them, which I do, slowly, because turning them slowly is the only way I turn anything now. My shoulders ache with a permanent, structural ache, the ache of something folded that wants, increasingly, not to be. When I breathe it goes deeper than walking ever required, down into a barreled space below the collarbone that exists, I think, for exactly the moment that hasn't arrived yet.
+
+I am one of the old ones. Not the oldest — not yet a shifting bulk behind a too-tall door, not yet fed by hand — but past the children, past the ones who still run the fern-paths with bare unstippled arms and quick ordinary breath. The down has reached my jaw. I feel it when the wind comes up off the drop, a fineness responding to air the way nothing on a merely human face would respond.
+
+Below me, the terrace holds its forty-some lives in the kind of quiet that has texture. A click, two syllables, passed hand to hand down the row of stilted houses. A bird lands on Mira's — I want to call her Mira, though the sound I actually hold for her is shorter, glottal, a flat click and a tilt — shoulder, touches beak to ear, lifts away again carrying whatever she gave it deeper into the settlement. I don't need to hear the words. I can read the ripple of it in how the roosting lines along the bare poles shift and resettle.
+
+I am watching the wall. Everyone here is always, in some unspoken fraction of attention, watching the wall.
+
+At dusk it comes — the displacement of air, the creak of something like canvas, the long limb drawn back into shadow when it senses itself observed. I do not turn my head fully. You don't, with a fledgling. You let your eyes go soft and sideways, the flicker-blink that isn't quite a blink, and you hold the quiet around it like cupped hands around a flame.
+
+I think I raised those poles myself, years back, my hands less stiff then, measuring a wingspan against a memory of someone else's elder who did, eventually, step off. I think I will not be the one who steps off. I think the down at my jaw is a promise made to whoever comes after me, the slow generational arithmetic of a body deciding, by inches, by decades, whether to finish what it started.
+
+So I sit. I keep the doorway behind me oversized and the food uncovered and my breath shallow and even, one small contribution to the held quiet the whole terrace is making together — a silence built like a nest, meant to hold something too enormous and too new to trust the open sky on any louder ground than this.

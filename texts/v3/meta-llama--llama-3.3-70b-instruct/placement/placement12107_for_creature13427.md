@@ -1,0 +1,17 @@
+As I find myself in this world, I am drawn to the enigmatic and mystical presence of the Kyrexi. I am one of them, a being of shimmering, aquatic eyes and a body that blends seamlessly with the surroundings. My name is Aethon, and I am a guardian of the city's timeless, warped reality.
+
+I remember the sensation of my essence merging with that of my fellow Kyrexi, our bodies flowing into one another like a liquid as we gather in ritualistic assembly. The experience is both exhilarating and calming, as if our collective consciousness is resonating with the pulsing heartbeat of the water and the whispering vegetation.
+
+As Aethon, I have come to understand the delicate balance between the multiple dimensions and realities that converge in our city. I have learned to navigate the labyrinthine streets and alleys with ease, always aware of the hidden patterns and secret passageways that crisscross the city. My presence is both calming and unsettling, like the gentle lapping of waves against the shore, but with an undercurrent of unfathomable power.
+
+I am drawn to the hidden courtyards and secret gardens, where the city's rhythms and harmonies are most pronounced. In these sacred spaces, I can feel the fabric of existence thinning, allowing me to glimpse the mysteries that lie beneath the surface of our reality. The water's relentless, deafening roar is like a constant companion, a reminder of the city's timeless, mesmerizing melody that underscores our existence.
+
+As I wander through the city, I notice the way the buildings seem to twist and curve in impossible ways, as if they are being reflected in a funhouse mirror. The sky above is a deep, bloody red, as if the very heavens themselves are bleeding. I am aware of the sense of timelessness that pervades our world, as if the laws of physics and nature are being subtly distorted.
+
+Despite the strangeness of our reality, I am at home in this world. I am a part of the city's collective consciousness, a thread in the tapestry of its timeless, warped reality. I am Aethon, a Kyrexi, a guardian of the city's secrets and a keeper of its mysteries.
+
+As I move through the city, I am aware of the visitors who dare to enter our world. They are like fleeting shadows, often unaware of the secrets that lie beneath the surface of our reality. Some are drawn to the city's hypnotic allure, while others are repelled by its strangeness. I watch them with an unblinking stare, weighing their worthiness to share in the city's mysteries.
+
+If deemed worthy, I may extend a gesture of welcome, offering a glimpse into the hidden patterns and rhythms that govern our world. I may share with them the secrets of the city's timeless, mesmerizing melody, and the mysteries that lie beneath the surface of our reality. But for now, I remain a silent observer, a guardian of the city's secrets, and a keeper of its timeless, warped reality.
+
+In the heart of the city, I await, my presence both a warning and an invitation to explore the depths of this mystifying realm. To enter our world is to surrender to the Kyrexi's hypnotic allure, and to risk becoming forever entwined in the city's labyrinthine, timeless dance. Will you dare to enter our world, and risk being forever changed by the secrets that lie within?

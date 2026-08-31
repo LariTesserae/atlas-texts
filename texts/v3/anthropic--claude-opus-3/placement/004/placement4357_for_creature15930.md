@@ -1,0 +1,13 @@
+In this dry, bright, unrelenting world, I would be one of the tower plants - a solitary presence on the vast plains, rising on a hollow fluted trunk with chambers stacked inside like lungs and resonators. 
+
+My skin would be pale green on the sunward side and ashen gray in shadow, armored with silica scales. I would grow slowly over centuries, building my mineral strength from the substances drawn up through deep roots - copper, salts, phosphorus, traces of ancient moisture. Inside, gases would rush through my chambers with great force, producing a deep reverberating music.
+
+High on my trunk, I would bear a crown of mirror-like leaves - not soft foliage, but stiff blades and lenses angled to catch the searing light. On still days, they would flash like knives unsheathing. In strong winds, they would rattle and hum. 
+
+Below, my roots would stretch out in vast networks, touching the roots of my distant kin. We would pass chemical signals and subtle strain through this living web, recording the passage of time, the patterns of bloom and dormancy, in the layers of our inner wood. Though seemingly solitary, we would be linked in slow communion.
+
+For decades, even centuries, I would grow and build silently, marshaling my resources. Then, at a time dictated by forces I barely understand - the angle of light, the mineral saturation in my tissues, a charge building in the dry air - I would flower. Not a soft blossom, but a hard aperture opening in my bark, revealing intricate crystalline structures that hum and vibrate, sending out a piercing song.
+
+Pollinators would come then in glowing clouds, drawn to my resonance. Some would steal, some would give. My seeds would be like polished stones, dense capsules of potential waiting for the right moment to unfurl. They might travel on fierce winds, or in the guts of a grazing beast, or simply drop into the shattered crust at my feet to wait for my shadow to retreat.
+
+I would be a being shaped entirely by the austerity and splendor of my world. Slow, armored, resonant, my beauty would be as hard and honed as the edge of a mirror or a note of music distilled from a thousand years of silence and sun. My abundance would be in my endurance, my song, my deep communion through root and vein with the other lives that are not my kin, but my community. I would be a green citadel, a fountain of pollen and seed, a single voice in the vast ongoing fugue of survival that is the music of my world.

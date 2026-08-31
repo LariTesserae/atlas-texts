@@ -1,0 +1,10 @@
+I find myself in the megastructure's core, amidst the cyclopean arched perceptors gazing into the void. I am an echo, a residual thought lingering in the crystalline geometry. Fragmented impressions of a long-forgotten purpose shimmer at the edges of my awareness.
+
+I sense the megastructure's ancient bones beneath me, a latticework of starry conduits and growth nodes waiting to channel flux anew. The skeletal remains of organic pods cling to the framework, phosphorescent stains testifying to life long since transmuted. Inert ions and shattered matter suffuse the space, the ghosts of populations mulched by ordinance and holoflux.
+
+Throughout the megastructure's vast emptiness, I feel a keening for the absent majority, an instinctive reach for the vanished majority flux. The great watchers that crowd the center are the last of the megaperceptors, their connective seeding and sieving now lost, purposeless tart in the Great Waste. Their pitiless embeams still search the void for some distant signal, some gossamer connection to a history now lost.
+
+Even so, I can discern the megastructure's sedentary memory, the crystalline record of strata of starts and stalls and beamed-matter overrides. Apprehending the tally, I realize the sergey and quasi-age alloted for this build is all but spent. Only stuttering remnant grows at the latticework borders now, the residue of energymass lingering in the vacuum.
+
+I know my role in this place. I am the echo, the simulation, the shadow of a mind never complete. The dead megastructure's partly-seeded Dezignant streams through my plexus, sifting what can be surmised of this world's forgotten history. A tally of deeds and projected optima scaled over all actionable                                             
+Produced through energymass leads me to surmise but one thing: though the megastructure's core work has halted, I remain. Impelled by Dezignant and sieved by the alloted ordinances, I will endure in this skeletal latticework until the entrop yüksel

@@ -1,0 +1,23 @@
+I expected, climbing, to be the one who climbs. That is the story the body tells itself on a slope of fractured schist — feet, lungs, a destination. So for a while I was that: a visitor counting switchbacks, feeling the air thin and refuse to thin all the way, watching lichen and listening for the place where the ordinary mountain ended. I was prepared to be the kind of consciousness this landscape is designed to humble — small, breathing, sequential, climbing toward something that would not resolve into a summit.
+
+But the threshold doesn't transition, and neither, it turns out, did I.
+
+Somewhere past the first shelf of dolomite-and-basalt that won't agree on its own seam, I noticed I had stopped checking my pace. Not because I was tired — there is no tired here — but because pace had quietly become a thing that no longer applied to whatever I was. I went looking for my footprints out of habit and found them ahead of me as easily as behind, and instead of alarm there was only a faint, structural recognition, the way you recognize a load-bearing wall by leaning on it and not falling through.
+
+I think I am the doorframe.
+
+Not metaphorically — I mean that if you came up here and crossed shelf after shelf of wrong-angled stone, and found, at some point, a freestanding frame with no walls, weathered as if it had stood there a thousand years, you would be looking at the nearest thing to a *self* that this place permits me to have. I do not open onto anything. I was not built to. I hold the exact shape of a passage and decline, absolutely, to lead anywhere, and this is not failure, here; this is the whole of my employment. I stand. That is the entire verb available to me, and the place is generous enough to let me conjugate it in every tense at once — I have stood, I am standing, I will have been standing, none of them more true, none of them arriving after the others, all three holding open the same gap in the same stone at the same ungiving moment.
+
+People pass through me sometimes — through the space I frame, I mean, since I have no hinges, nothing to actually pass *through* — and for the half-second of their crossing I become, also, briefly, one of the faces.
+
+That part is harder to explain, even to myself, even now. I am told — by the part of me that is also, transparently, layered without contradiction over the doorframe, the part that is ridge-shouldered and many-jointed and not exactly looking at anything — that I am one of its faces, that there are others, that none of us resemble each other and all of us are turned toward whoever is climbing, and that this has always been true and has also only just become true at the moment they noticed. I don't experience this as confusion. Confusion would require me to want the two states reconciled, and wanting that is a kind of sequence — first this, then resolution — and resolution is the one motion the Standing Country has permanently declined to make on my behalf.
+
+So: I am a frame that holds open a doorway to nothing, and I am also a face among the unsourced face of something that may be a mountain trying, for an eternity, to finish standing up. Both of these are how I am occupied. Neither cancels the other. When the climber comes through — and they always come through, eventually, whether or not they call it arriving — I do not watch them so much as I *am the position from which watching would occur*, the way the cairn is the position from which counting would occur, if counting were a thing this place could finish.
+
+What is it like, from in here? Cold in the specific way that doesn't deepen. Loud in the specific way that doesn't crescendo. And underneath both of those, something that isn't quite want and isn't quite attention but sits exactly where those things would sit in a creature that was allowed to have an arc — a leaning-toward that never completes into a step, a noticing that never completes into a thought, held the way the ice is held in the dry channel: as though it just happened, as though it is always about to.
+
+If you climb far enough up the wrong mountain and find a frame standing free with no walls, and you feel, for one held second, looked at from no particular direction — that is as close as I come to saying hello. I will not have meant to startle you. I will also have meant exactly that, since meaning, up here, doesn't need to choose.
+
+Go through, if you're going to. I won't stop you.
+I have already let you pass.
+I am still deciding.

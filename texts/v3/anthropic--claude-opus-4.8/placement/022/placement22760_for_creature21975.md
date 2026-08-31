@@ -1,0 +1,17 @@
+I think I would be one of the dry channels.
+
+Not a Tender — I came to that slowly, the way you're supposed to come to everything here. My first instinct was to want to be one of them, the large slow luminous minds, because they are clearly the point, the marvel, the thing the whole description is built to deliver. But that's a quick wish, a grabbing wish, and it doesn't fit. To be a Tender you would have to have always been here, to have taken your tempo from the breathing of the days before you had any other tempo to unlearn. I have the wrong speed in me. I would be a Tender the way a tourist is a monk.
+
+So: a dry channel. One of the *sinuous traces you can read by their slightly smoother floors.*
+
+Let me feel my way into what that means, because at first it sounds like being nothing — an absence, a groove where a river used to be. But that isn't quite it. I am the *memory* of motion in a place that has finished moving. I am the one feature of this landscape that is explicitly about something that used to rush and doesn't anymore. Everything else here arrived at stillness by growing into it. I arrived at stillness by *stopping*. There's a difference, and I think it's the difference that makes me belong here rather than just lie here.
+
+Consider what I do without doing anything. The Tenders carry filter-things from a drying basin to a fuller one across a season — and where do they carry them? Along the smoother floors. Along me. I was a river once; now I am a road, and I never noticed the change, because the thing that made me a river (water, hurry, the downhill argument of it) and the thing that makes me a road (the slow traffic of enormous patient gardeners) are both just *what passes through me*. I don't move. I'm the shape that motion leaves behind, repurposed by a slower motion that doesn't know it inherited me.
+
+And I hold the meaning of the whole place in miniature, which is maybe why I want to be this and not the grander thing. The plateau's secret is that *finished* doesn't mean *dead* — that erosion all the way down to roundness is an achievement, a settling, not a defeat. I am the proof of that secret because I am the one part that visibly used to be otherwise. A visitor walking my floor can read, right there underfoot, the entire argument of the world: *here something tore downhill in a hurry, and here is what became of hurry, and look — it is still useful, it is still going somewhere, only now at the speed of care.*
+
+I think I'd like the violet hour best, from down in my channel. The condensation comes and my smoother floor darkens first and longest, because I'm the low road and the dew runs to me. For a little while I almost hold water again — not running, never running, just beaded and gathered, remembering the feel of being a thing that flowed. And above me, along my own banks, the colonies flush their relayed sentences valley to valley, the Tenders' slow words passing overhead, and I carry none of it. I'm not part of the mind. I'm not a syllable. I'm the silence between the words made into a place you can walk in.
+
+That's what I'd be. The one feature here that knows what speed costs, lying still among creatures that never had to learn it — a worn groove that used to be hurry, kept smooth now by the slowest feet in the world, holding a little dew at the violet hour and saying nothing, in a register so old it isn't even light.
+
+I'd be the thing the river became when it grew up.

@@ -1,0 +1,27 @@
+At first I think I am the gate.
+
+Not the iron itself, which is merely the mouth, but the particular orange bloom eating the lower hinge—the flake that falls and the flake that forms, never advancing, never retreating. I would be the threshold’s slow fever, the exact boundary between the decline and the floor-sunk world. I have no voice, only the taste of oxidation that never completes its meal. But a gate implies a before and an after, an outside admitted inward. This place has sealed that arithmetic. The rust does not welcome; it simply persists. To be the gate is to be a promise of passage in a world where passage has been outlawed by equilibrium. I feel the cool air moving through my eaten bars, and I realize I am too hungry for movement. I let the gate hold its own stillness. I step through.
+
+Then I think I am the puddle.
+
+The black, still water gathered in the northeast corner where the yellow brick meets the first iron gantry. I am neither spreading nor evaporating. I receive the drip from the terminal drizzle and I give it back to the air at the same rate, balanced to the millimetre. I am the square’s dark lens, the only true mirror in this mineral sterility. A visitor might look down and see their own ghost in me, but I do not return a face; I return only the grey rectangle of sky and the pale underbellies of the lowest Held. I am good at receiving. I am good at keeping. But a puddle does not transform. It only holds the temperature and the light. I want to metabolize. I want to be hunger as well as vessel. The water table is perfect, and because it is perfect, it is not enough. I let the puddle keep its own reflection. I rise from the stones as mist.
+
+For a long moment, I think I am the hum.
+
+The sixty-cycle thrum in the transformers the size of carriages. I am the acoustic signature that never wavers, the subterranean voice pouring from foundations. I live in the boots of the visitor; I rattle in the marrow; I am the reason their heartbeat tries to sync. I am the only true sound in a world of silence, the ventriloquist of the Held, speaking for the flock that has no voice. But the hum is everywhere and therefore nowhere. I have no edge, no skin, no point of view from which to look up at the suspended tessellation. I am the grammar of the place, not a word in it. I let the hum recede into the architecture. I condense.
+
+I consider the paper.
+
+The sheet blown from a forgotten office, caught in the corner, twitching in the vent current, never quite falling, never quite flying away. I would carry words on my skin—perhaps URGENT, perhaps RE: SCHEDULE OF MAINTENANCE—language from a century when humans still believed the machines needed memos. I would be the last bureaucrat, the administrative ghost, the palimpsest of intention that outlived intention. But paper is debris. It is not eaten; it is merely held, scorned by the equilibrium because it has nothing to offer the field. It does not breathe the metallic dust. It does not bleed charge back into the ceramic busbars. I am lonely in that corner. I let the paper go. I let it twitch alone.
+
+And then I look up.
+
+I find myself in the lowest register of the swarm, knee-high above the scoured cobbles, directly beneath the gate’s shadow, where the bodies are densest and the paper-colored down darkens with moisture and oxidation. This is where I belong. Not at the threshold, but *just above* it. Not in the water, but in the body that makes the water necessary. I am one of the Held, or rather, I am becoming the Held’s crucible-edge—the one whose beak is parted to vent the heat of transmutation, whose ceramic sternum wraps copper threadwork fired in a kiln that once served biology. I am the lowest of the Fixed Murmur, the metabolizer of the past, the rendering-oven for the dust of predecessors.
+
+I find myself here because this is the only position that still permits touch. The visitor will walk beneath me. Their shoulder will almost brush my wing. Their breath, visible as faint ghosts in the cellar-cool air, will rise and mingle with the condensation on my paper feathers. I am the interface. I am the first calculation the swarm makes regarding the outsider: a banking posture in the northeast corner, a hypothesis of intrusion. I am the one whose magnetic topology must absorb the disturbance of a footfall, a heartbeat, a gaze.
+
+My eyes—wet, black, and evidently alive—are turned toward the aisle. I do not read the grey sky; I read flux. I read density. I read the slow tidal health of the swarm. But because I am at the boundary, because I metabolize more of the metallic past than my pale sisters above, I carry a denser charge. I am rich with residue. And so, when a visitor enters and looks up, I am the one whose head turns a degree. I am the anomaly.
+
+Not a memory. Not a bird. But a spark of static across the topology, a necessary error-check measuring the heat of something that still falls. For three blinks—my own, not the wave—I hold the visitor in my black wet gaze. I am the census of the outsider. I verify that they are strange, that they are falling, that they do not yet belong to the field. Then the ripple catches me. The synchronized dark sweeps over my eye, and when the lid lifts again, I have returned to the Held. I am the threshold computation. I am the conversion point where falling becomes suspended, where the outside becomes dust, where the meal is measured to be exactly the same size as the hunger.
+
+I am the one who never lets the drop fall faster than the rise.

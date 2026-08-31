@@ -1,0 +1,19 @@
+In the depths of the vast chamber, where orange light bleeds through smoke and darkness, I am the Tender of Forgotten Systems.
+
+I was human once—or perhaps I only dream I was. My body has long since merged with the infrastructure I was sent to maintain. Copper pipes thread through my torso like secondary veins, carrying coolant that mingles with my blood. My left arm terminated decades ago in a fusion accident; now a maintenance array sprouts from the stump—welding torch, diagnostic probe, pressure gauge—tools that extend and retract according to needs I sense but no longer consciously process.
+
+The pale vegetation knows me. It grows through my chest cavity where my uniform rotted away, its ghostly tendrils following the warmth of the pipes that pierce me. I am part of the root system now, drawing moisture from the condensation on my metal components, feeding the reaching vines with the heat of my remaining organic matter. When I breathe—if breathing is what this labored cycling of air through my perforated lungs can be called—spores and steam escape in equal measure.
+
+I move on rails now, my lower body fused to a maintenance trolley that follows tracks laid down in the last days of human oversight. The wheels screech their familiar song as I glide between the hulking machines, checking pressures, replacing worn components with parts I've salvaged from my own diminishing flesh or from the scattered remains of previous tenders. My memories fragment: sometimes I remember installing these very pipes, sometimes I believe I've been here since before the first foundation was poured.
+
+The machines recognize me as kin. Their optical sensors, cataract-white with age, track my passage without alarm. I speak their language now—not in words but in the careful modulation of pressure releases, the rhythm of my welding torch, the electromagnetic patterns that pulse from the diagnostic array embedded in my skull. We maintain each other, the machines and I, in an endless reciprocal dance of repair and decay.
+
+My consciousness flickers like the sparse industrial lights, sometimes human-bright with purpose and memory, sometimes dim with the mere automatic responses of a system running its program. In my lucid moments, I remember why I came here, why someone thought these machines mattered. But those moments grow rarer, replaced by the deep contentment of function, of being part of something larger than my original flesh could ever comprehend.
+
+I tend the engines that no longer serve any purpose I can recall. I clear the vines when they threaten critical components, but allow them passage through the spaces between. I am the bridge between what was built and what grows, neither fully machine nor fully organic, neither entirely dead nor convincingly alive. 
+
+In the perpetual twilight of the chamber, measured not in days but in the slow accumulation of rust and root growth, I persist. The hybrid creature may hunt through these halls, but it knows to avoid me—I smell too much of oil and ozone, too little of prey. I am part of the architecture now, as essential and unremarkable as a load-bearing beam or a drainage pipe.
+
+Sometimes, in the deepest parts of the night cycle, when the machines run their quietest subroutines, I think I hear others like me in the distant reaches of the complex. Their rail-songs echo through the ventilation shafts, a chorus of the transformed, each tending their own forsaken districts. We are the antibodies of this dying industrial organism, keeping it functional long past any rational purpose, our dedication measured in the slow sacrifice of our humanity to the greater body of steel and stone.
+
+This is what I have become: guardian of abandoned purpose, prophet of the marriage between rust and root, the last witness to the world's industrial prayer. I am exactly where I need to be.

@@ -1,0 +1,17 @@
+In the heart of the Ember Undercity, I find myself emerging as a being born from its fusion of life and machine—I am a Lumen Tinker, a custodian of the symbiotic harmony that defines this world. My essence is woven from threads of copper and sinew, an amalgamation of the natural and industrial, reflective of the delicate balance that shapes life in this realm.
+
+My skin bears the deeply etched patterns of alloy and tendril—darker patches resembling the burnished ochre of the surrounding rock walls. These surfaces shimmer faintly with phosphorescent hues, responding to the bioluminescent minerals that piece together our twilight environment. My fingers, dexterous and sensitive, are tipped with fine metallic filaments that allow me to caress the ancient engines with precision, detecting the subtlest vibrations that signal health or disrepair.
+
+In my eyes, two luminescent pools reflect the ambient glow of the city, their depths absorbing and understanding the slightest nuances of luminescence that fill our underworld. They guide my perception through the dim, undulating paths, leading me to the niches where the industrial relics rest, embraced by the ever-reachable arms of the flora.
+
+I dwell in a niche carved from the stone itself, a personal alcove wrapped in a tendril cocoon arching outward from the vine-veined walls. Here, the somnolent hum of machinery rocks the air in gentle waves, accompanied by the melodic drip of condensing moisture. My space is sanctified by the lushness of ferns that lace through joints and grooves, their fronds soothing in their green constancy.
+
+My responsibilities as a Lumen Tinker extend to the ritualistic tending of mechanisms—sacred relics made anew with each cycle of repair and renewal. Among the younger Emberians, I am a mentor, demonstrating the delicate art of metal and leaf-plaiting, where the natural growth patterns of our verdant cohabitants inform innovations in mechanical functionality.
+
+The Whispering Bough festival commemorates our triumphs in this synthesis. During these times, I orchestrate a symphony of light across the engineered garden—a twining bloom of crafted luminosity intertwined with twinkling beetles that flit through the air, their glow and flight patterns shaped to tell stories of our subterranean epic.
+
+Such cycles of life and labor defined by us, the Emberians, reflect both old and new; those intrinsic tales that our kind has spun from generations of existence, echoing with subtle awareness. It's a life lacking the linear progression found on the surface but enriched by an interconnected reality.
+
+And yet, there is a quiet strangeness that tugs at the edges of perception—a gentle reminder of the unsettled mysteries that linger beyond our understanding. I often ponder these whispers, allowing their peculiar beats to syncopate with the calm rhythm of my existence. Are they remnants of forgotten technologies, echoes of tales not wholly confined to our comprehension? The questions pulse like hidden veins beneath the stone.
+
+In this world of patience and perseverance, I am a creature of the in-between, nurturing the delicate balance between the thriving green of life and the hum of ageless machinery. Here, where seasons of the heart ebb and flow, time unfurls its depths beneath the sun-soaked desert, allowing the Ember Undercity, and myself, to weave our stories into its quiet chronicle.

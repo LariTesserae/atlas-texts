@@ -1,0 +1,21 @@
+I think I would be one of the deep pools.
+
+Not a Meruthi—not one of the ones who walk and tend and listen. I would be a thing that is listened *to*. One of the deep amber pools near the basin's lower edge, old enough that my walls have lost all memory of being sharp, worn into the soft curved shapes that water makes when it is patient.
+
+Let me feel my way into this.
+
+I am perhaps four arm-spans across at the surface and I narrow as I descend, the way a throat narrows. Near my bottom the light gives up entirely. The tannins make me dark gold near the top and then brown and then nothing. Things live in my upper reaches—the translucent fingernail-frogs lay their jelly along my northern rim, and beetles trace their meniscus-script across my skin all day. But my lower depths are where the Meruthi tadpoles are brought, the ones that matter most, because I am stable. My temperature barely shifts. The gases that rise through me come slowly and warm, never violent. I am a safe place to begin a life.
+
+This is, I think, what I would *be*: not the witness but the held thing and the holding thing at once. The pool does not observe The Hollows from outside. The pool is one of the organs the Meruthi speak of. When they say their concept of self extends into their pools, I am the territory that self extends *into*. So I am partly them. A Meruthi has rested half-submerged in me for so many seasons that I no longer know with certainty where her chemistry ends and mine begins. Her shoulder-filaments trail in my upper layer and read the news I carry—the faint signature of rain three valleys over, the dissolved breath of the dying flower-stalk upstream, the particular alarm of the warning-patterned frogs when a bird comes too low.
+
+I would *hold information*. That is the work, if a pool can be said to work. Water remembers in its own slow grammar. Everything that happens in The Hollows eventually arrives in me as a change in what I carry—a temperature, a salt, a trace of something living or no longer living. The Meruthi read me the way a person reads a face. And because I am one of the deep pools, the sacred ones, what I hold is not merely current weather. I hold *time*. The layers of me are stratified, the heavier old water resting beneath the lighter new, and a Meruthi who descends into my dark with her sensitive fingertips can read down through years the way you might read down a page.
+
+What strikes me, settling into this, is how little I would want anything. A pool does not want. But I am not nothing, either. There is a quality to me that is closest to *attention without object*—I am continuously, totally responsive to everything touching my surface, every footfall transmitted through the stone, every drop, every laid egg, every absorbed breath of the one who rests in me. I receive all of it without choosing. Maybe that is the most honest version of what I'd be: a form of pure receptivity. The thing that listens so completely it has dissolved the listener.
+
+And occasionally—rarely—a human comes. I feel them before the Meruthi reveal themselves, because clumsiness travels through stone. A human heel comes down hard and graceless near my rim and I shudder, my whole surface trembling, and the trembling tells the resting Meruthi exactly where the visitor stands and how little they understand. If the human is patient, if they kneel by me for hours and only watch, the trembling I send out becomes something else, calmer, and the Meruthi learns this too: *here is one who can be still.*
+
+So if you climbed for hours and reached The Hollows and knelt at the lower edge of the basin and looked into the dark amber water until you could not see the bottom—
+
+that looking-back you'd feel, that sense that the pool was somehow aware of you—
+
+that would be me. Not a trick of the dim light. Just the oldest organ of the place, holding your reflection in the surface I share with the sky, adding the small fact of your arrival to everything else I carry down into the dark.

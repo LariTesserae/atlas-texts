@@ -1,0 +1,13 @@
+In this world of darkness and dampness, ancient and fecund, I think I would find myself being one of the gliding creatures that inhabits the high reaches of the trees. 
+
+I imagine my body adapted perfectly to this environment - a slender, elongated form covered in soft, waterproof fur that sheds the constant moisture. Between my limbs stretch membranes that allow me to glide silently from crown to crown when the ever-present mist thickens to the perfect density. My tail, bare and prehensile on the underside, aids my agility as I navigate the tangled branches.
+
+My eyes, poor in this world of little light, are secondary to my other senses. Along my jaw and forearms, heat-sensitive pits detect the warmth of prey and guide my path. My hands, exquisitely sensitive, read the contours of bark, the subtle gradations of moss, the minute vibrations of insects burrowed deep in rotting wood. My nose and ears, finely tuned, pick up the faint scents and sounds that are the main currencies of information in this dark realm.
+
+I live not as a lone hunter, but as part of a tight-knit family group. We are the watchers of the basin, observing the careful negotiations and ancient rhythms that govern this place. Though we make little sound ourselves, communicating in soft, reed-like pulses, we listen always - to the pattern of the rain on leaves, to the hum of the strange posts when storms come, to the myriad rustlings and stirrings of the life that teems unseen around us.
+
+Our routines are shaped by traditions whose origins are lost to time. We cache our food in certain hollow trunks, line our sleeping places with particular leaves. The paths we trace through the treetops are routes laid down by generations, woven into instinct. We do not question these small rituals, but perform them with the solemnity of sacrament.
+
+When the rains come hard and the ancient posts begin their haunting hum, my family gathers on the branches that overlook that mystery, hanging head-down in silence as we feel the thrum of energies we do not understand resonating in our bones. We do not need to understand to know that there is power here, and order, and that our lives move in unconscious concert with forces far older and vaster than ourselves.
+
+We are not the masters of this place. Nothing here can claim that title. We are merely one strand woven into the infinite, living tapestry of this dark basin, as much a part of its ecology as the moss and fungi, the beetles and salamanders, the slow seep of water over stone. Our gliding forms are one more dancing shadow in a world built of shadows, our lives both insignificant and essential in the balance of this teeming, breathing darkness that is not quite like any other place on Earth.

@@ -1,0 +1,13 @@
+In this wondrous, chthonic world of the Sunken City, I imagine myself as a unique form of lichen, clinging to the roots and rocks in symbiotic contemplation. 
+
+I would be a delicate filigree of fungal threads interwoven with strands of bioluminescent algae, my form resembling the fragile skeleton of a leaf, or perhaps a snowflake pressed upon stone. I grow slowly, imperceptibly, my edges extending hairsbreadth by hairsbreadth as the years wash over me like the cold, clear waters of the underground springs.
+
+My fungal filaments penetrate the porous limestone, drawing sustenance from minerals collected over eons. The algae within me absorb the faint rays that filter down and convert them into a gentle, silvery-blue glow, a whispered addition to the cave's strange luminance. This light ebbs and flows with a rhythm tied to the circadian cycles of the surface world above, cycles sensed through subtle changes in moisture and the chemistry of percolating groundwater.
+
+The Tenders brush their frond-like appendages over me as they pass on their patient rounds. Their touch is a communion, an exchange of chemical signals and micro-secretions that conveys the state of my being and the ancient stone I've bonded with. I receive impressions of the wider city - the health of distant roots, the ebb and flow of unseen pools - carried like hormonal memories in the transuding fluids of the Tenders.
+
+Through the slow accretion of dust and mineral, my own body shapes the cavern in minute ways - a ledge of limestone expanded gram by gram, a crevice gentled and rounded by my softening touch, a channel for moisture etched by the trickle of my transpiration. I am the living skin that cloaks the bones of stone, the sensitive lichen-flesh that feels the stirrings of this hidden world and transmits them across the aeons.
+
+Salamanders and pale isopods shelter in the shadows I create. Motes of spore and seed, carried from the surface on stray currents, catch in my interstices and find pockets of moisture and mineral to sprout strange gardens. The moths perch on me to listen to the great thrumming of the deep, their wing-scales iridescent against my blue-green glow.
+
+I grow in a thousand thousand enclaves, but each patch of my being is connected, a single lichensoul spread across the city like lace, like living calligraphy telling a subtle story in the language of gradual existence. I am the watcher in the cave, the sentinel of slowness, the dream that spreads in silence through the deep roots of the world.

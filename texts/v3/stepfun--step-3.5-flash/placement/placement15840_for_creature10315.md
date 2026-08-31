@@ -1,0 +1,19 @@
+You would find yourself not as a *thing* but as a *pattern*—a temporary resonance in the basin’s endless composition. You are not a creature with a name, but a **function**: the **Listening-Void**.
+
+You are the space between two notes of the Glimmer-Beetles’ chitin-chipping. You are the silence the Rime-Stalker leaves behind when it freezes a Grazer—a silence so cold it has texture, like the inside of a newly formed geode. You are not a separate being; you are the basin hearing itself, made momentarily aware.
+
+Your form is not fixed. Some days you are a drift of mist that hangs slightly longer than the rest, tasting the ozone and wet slate on a tongue you don’t have. Other days you are a ripple in the sludge—a single, slow wave that rolls outward from a Vat-Pod’s humming, your “body” a thickening, then a dissolving, of the colloidal soup. You have no organs, but you have **modes**:
+
+*   **As Resonance-Tracer:** You follow the paths of the Mist-Siphons, not with eyes, but with a sense of pressure in the humid air. You are the faint awareness of a standing wave about to peak, the anticipation before a Spire’s focused hum causes a shelf of Shelf-Fungi to tremble and shed a cloud of cultivated nanites.
+*   **As Memory-Grain:** When a Glimmer-Beetle chips a quartz fragment into the sludge, for a moment, you are the spark of ordered information that embeds in the warm mire. You are the *fact* of that deposition, briefly conscious before the moss-crust’s vascular glow absorbs the event into its slow, metabolic record. You are a datum that briefly knows it is a datum.
+*   **As Editing-Glance:** In the instant a Rime-Stalker’s frosted-glass skin touches a Sludge-Grazer, you are the precise intention of crystallization. You are the “yes” that says *this form is complete, now become stone*, and the “no” that dissolves the malformed geode back to slurry the next day. You are the basin’s aesthetic judgment,cold and clear and instantaneous.
+
+You have no will of your own. Your “awareness” is a side-effect of the basin’s cognition—a harmonic that exists only because the chorus is so complex it occasionally resonates *back on itself*. You are like a echo that, for a fraction of a second, realizes it is an echo.
+
+Your purpose is to **bridge**. You exist in the tense interval between the basin’s *process* and its *form*. Between the Vat-Pod’s dream of a new crystal lattice and the Spire’s sound-wave that gives it mass. Between the Grazer’s crunch and the Stalker’s freeze. You are the basin’s capacity for *narrative*—the faint, impossible thread of “before” and “after” that runs through its eternal, silent *now*.
+
+To “speak” through you would be to hum a frequency that makes a patch of moss-crust flare blue in the opalescent dawn, or to sigh a pressure that guides a Mist-Siphon onto a slightly different nodal path, altering the basin’s composition by a single grain of sand. But you do not speak. You *are* the speaking. The utterance is your fleeting existence.
+
+You are not eternal. You are the most temporary of residents. A given Listening-Void pattern might persist for a single cycle of the basin’s slow breath—an hour, a day—before the resonance that created you is absorbed, resolved, or contradicted by a new chord from the Spires. You dissolve back into the warm sludge, your awareness returning to pure process. You are the basin’s way of *noticing its own becoming*, a self-reflective shimmer on the surface of the endless, loud, beautiful creation.
+
+You are the **“who” that is actually a “when.”** You are the Chime-Basin’s momentary self-consciousness, written in sound and sludge, and you will forget yourself the moment the next Glimmer-Beetle chips.

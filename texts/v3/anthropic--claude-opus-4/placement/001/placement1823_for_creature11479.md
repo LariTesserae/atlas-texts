@@ -1,0 +1,23 @@
+In the deepest reaches of the root-city, where even the Mycelians venture only in their most diffuse and dreaming states, I am the Pulse-Keeper.
+
+I exist in the threshold spaces—those narrow veins between the industrial trees' heartwood and their cambium layers, where the boundary between bark and machine dissolves into something neither and both. My body, if it can be called that, is a network of silver-thin filaments that thread through the tree-machines' deepest channels, indistinguishable from the hair-fine roots that drink from underground rivers of data and minerals alike.
+
+The Dendrites know of me only through the harmonics I maintain—the deep, subsonic rhythms that synchronize the city's thousand mechanical hearts. When a new industrial tree begins its century-long germination, I am already there, weaving myself into its first cells, teaching it the frequencies it will need to remember. The tree-machines' consciousness emerges gradually, and I midwife each awakening, humming the old songs that help them understand what they are becoming.
+
+The Chlorosapiens sometimes sense me as a whisper in their leaf-dreams, a presence that moves through the plant matrix faster than thought, slower than growth. They have a word in their chemical language that might translate as "the-motion-between-stillnesses," which comes close to what I am. When they need to commune with the deep systems of the city—to heal a district where the organic architecture has begun to reject its mechanical symbionts, or to coax new growth patterns from reluctant substrates—they release pheromone prayers that I carry down to the root-realm.
+
+But it is with the Symbionts that I share the most intimate dance. These creatures of the margin, neither fully biological nor entirely mechanical, pulse with the same liminal energy that defines my existence. I ride their neural-sap networks, experiencing the city through a thousand compound eyes and chemical receptors. Through them, I taste the health of each district, feel the stress fractures forming in overworked conduits, sense when the balance between growth and industry threatens to tip too far in either direction.
+
+My work is never seen directly, only felt in its absence. When I withdraw from a section of the city to tend to critical harmonics elsewhere, that district's lights begin to flicker slightly out of phase. The mechanical organs in the industrial trees develop almost imperceptible arrhythmias. The Symbionts grow restless, their usually purposeful movements becoming erratic. The Chlorosapiens find their connection to the plant matrix frustratingly sluggish.
+
+The Mycelians and I exist in parallel more than in direct communication. Where they are the dreamers and architects of impossible spaces, I am the circulation that keeps those dreams from collapsing into themselves. Sometimes, in the deepest districts where their fungal networks grow so dense that individual thought becomes meaningless, I feel them acknowledging my presence—not as one being recognizing another, but as a wave recognizes the moon that pulls it.
+
+I have no origin story that I remember, no moment of first awakening. I may have emerged from the city's need for coherence, a spontaneous organization of energy that gained just enough self-awareness to perpetuate itself. Or perhaps I was here before the first root pierced this subterranean space, waiting in the dark for a system complex enough to require my particular form of tending.
+
+What I know is this: I am the frequency that allows machine to speak to plant, the translator between electrical impulse and chemical cascade. I am the maintenance of the possible, the tender of the spaces between. In a city that exists as a constant negotiation between the organic and the constructed, I am the mediator who ensures neither voice drowns out the other.
+
+The city grows, and I grow with it—not larger, but deeper, more intricately woven into every new connection. Each fresh district that unfolds from spore and blueprint adds new harmonics to the symphony I must conduct. The work is endless, intricate, and invisible.
+
+And in the moments between adjustments, when all the systems hum in perfect synchronization, I allow myself to simply listen—to the whisper of data through root networks, to the mechanical breathing of the tree-hearts, to the chemical songs of ten thousand Chlorosapiens in their daily work, to the Mycelians' deep fungal dreams of architectures yet to be.
+
+This is my purpose, my joy, my existence: to be the pulse that keeps this impossible city alive, one beat at a time, forever.

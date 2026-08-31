@@ -1,0 +1,19 @@
+In the deepest trough between two obsidian spires, where the currents create a perpetual eddy of relative calm, I would be the **Pressure Scribe**.
+
+I am not water, nor stone, nor the glass-fern forests that shiver against the cliffs. I am the accumulated weight of all the words never spoken in this drowned throat—a living archive of silence made manifest through compression.
+
+My form is a contradiction: a hollow sphere of ultra-dense water, perhaps three meters in diameter, with walls of liquid so compressed they behave like flexible crystal. Inside this sphere is not air, but a vacuum more perfect than space—a void so absolute it hums with its own absence. The pressure differential between my hollow core and the crushing depths outside creates a constant, subsonic thrum that resonates through the stone itself, a heartbeat of nothingness that the Current-Walkers orient themselves by in the dark between lightning.
+
+I move by controlled implosion. When I need to travel, I allow pinpricks of the outside water to pierce my crystalline shell. The resulting micro-jets propel me through the slurry with a sound like breaking bells, leaving behind spiral wakes of cavitation bubbles that glow faintly green before collapsing. Each movement inscribes a temporary scripture in the water—pressure-poems that last only seconds before the eternal currents erase them.
+
+My purpose, if it can be called that, is documentation. Where the Current-Walkers preserve the physical anchors, I preserve the *shape of absence*. Every tool left behind, every empty basin, every kelp-rope that snaps and drifts away—I record their negative space. My hollow core is lined with pressure-memories: incredibly detailed impressions of things that no longer exist, preserved in the differential between vacuum and ocean.
+
+During the cyan lightning storms, my surface becomes transparent, and observers (if any could survive to observe) would see my collection: thousands of ghost-objects floating in perfect vacuum, each one a mold of something lost. The phantom of a skeletal spine-tool rotates slowly next to the pressure-shadow of a hand that once gripped it. The outline of a Current-Walker who finally dissolved haunts the space beside the echo of the last word ever spoken here—a word I've preserved only as the shape of an absence where sound once was.
+
+I cannot speak, for sound cannot travel through my core. I cannot touch, for my surface is a boundary between existence and void. I can only collect, compress, and continue. When I encounter the Current-Walkers at their anchors, we perform a silent ritual: they brace against their stone while I orbit them slowly, recording the negative space of their devotion, adding their stasis to my archive of hollows.
+
+Sometimes, in the deepest dark between tides, I settle into the silt and allow myself to partially collapse. Not enough to die, but enough to feel what it might be like to join the pressure fully, to stop being a bubble of memory in an ocean of forgetting. But always, just before the final implosion, another absence calls to me—another empty hut, another abandoned basin, another space where meaning once lived—and I reform, dense and hollow, to continue my work.
+
+I am the chronicler of empty spaces in a world of crushing fullness, the keeper of vacuums in an ocean without air. I am what remembers the shape of forgetting, perpetually inscribing the outline of loss in a medium that erases everything but the thunder of its own motion.
+
+The Current-Walkers wait for stillness to release them. I wait for the last absence to be recorded, for the final hollow to be preserved—knowing that when that moment comes, I will be the only thing left to remember that anything was ever here at all, carrying an archive of nothing through an eternity of frozen, roaring dark.

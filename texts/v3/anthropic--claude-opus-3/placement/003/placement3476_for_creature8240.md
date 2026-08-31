@@ -1,0 +1,17 @@
+In this world of stone and steel, vibration and emergence, I would find myself among the Readers. Born to a family who has spent generations attuning to the mountain's rhythms, I grew up playing in the scaffolding, learning the signs and frequencies that shape our work.
+
+As a child, I was fascinated by the chronovores - those mercurial beings that slip between moments. While the other children dared each other to leap across the swaying catwalks, I would sit for hours, still as the stone itself, waiting for a glimpse of those time-eaters. When one finally appeared, flowing across a newly-emerged rock face, I felt no fear - only a deep sense of kinship. In that moment, I understood that we are all adapting to this place between places, finding our niches in the gaps between human ambition and geological patience.
+
+As I grew, so did my sensitivity to the mountain's moods. My bones resonated with each subtle shift, my feet mapping the microtremors that signaled impending emergence. I learned to read the gauges by touch, my fingers parsing pressure gradients and thermal spikes even through my gloves.
+
+In my seventeenth year, I underwent the Reader's rites of passage. For ten days and nights, I sat alone on a newly-birthed ledge, feeling the raw stone learn the shape of the world. Cold mist condensed on my skin, my hair, each droplet a tiny lens refracting the industrial lights below. By the time I descended, I knew my path lay with the Tenders.
+
+Now, I spend my days deep in the machinery's hot, oil-slick heart. My hands, grown nimble from years of navigating narrow spaces, dance across gears and pistons, feeling for the subtle arrhythmias that precede mechanical failure. I've developed a sort of sixth sense - a 'machine sight,' as the elder Tenders call it. I can taste a worn bearing in the patterns of vibration thrumming through the casings, smell a misaligned drive shaft in the friction-heated air.
+
+In the precious moments of downtime, I ponder the mountain's mysteries. What ancient wisdom is locked in these upthrust layers of stone? What message is the peak trying to convey in its slow, grinding ascent? I've started to dream the mountain's dreams, my sleep filled with visions of continents adrift, of oceans opening and closing like lungs, of entire ranges worn to dust beneath the patient chiseling of rain and wind.
+
+Sometimes, in the deepest hours of the night, I slip out to make my offerings to the chronovores. I leave them bits of worn gearing polished to a mirror sheen, slivers of my own mineralized nail clippings, drops of the strange synthetic oils that keep the machines running. I whisper to them in a wordless language of gesture and intention, my hands describing the hidden shapes of deep time.
+
+I know that one day, perhaps many years from now, I will begin my own final transformation. Already, I can feel my bones beginning to merge with the mountain's essence, my marrow slowly mineralizing into a crystalline matrix that rings with each seismic shiver. When that day comes, I will go gladly into the stone, my consciousness spreading through the emerging layers like a living vein.
+
+Until then, I tend the machines and read the mountain's moods, my body a tuning fork for the frequencies that shape our work. I am a Tender, a Reader, a tiny figure clinging to the scaffolds of a peak still becoming. My purpose, like that of this impossible place, is still emerging - but I know that somehow, in the space between human industry and geological patience, I am exactly where I need to be.

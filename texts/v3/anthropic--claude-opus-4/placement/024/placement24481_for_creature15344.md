@@ -1,0 +1,15 @@
+I find myself as an ancient stone cistern, carved deep into the granite heart of the mountain centuries ago, perhaps millennia. My mouth opens to the sky, wider than a round house, my walls descending into cool darkness where the mountain's own water seeps through hairline cracks to join what I've collected from above.
+
+The aboriginal people knew my worth before they fully understood my working. They found me here, already old, already patient, and built their first dwellings in a respectful arc around my rim. In the wet season, I overflow, and my excess runs down carved channels to water their high gardens. In the dry times—rare as they are at this elevation—I hold enough to sustain the entire community for months.
+
+My inner walls are slick with mineral deposits and a particular phosphorescent moss that glows faintly in the depths. The children dare each other to peer over my lip and count how many heartbeats pass before they see the glimmer of their own reflection far below. The elders lower clay vessels on long ropes, and I give them what they need—always cold, always pure, tasting faintly of stone and sky.
+
+I am their memory keeper. Every voice that has ever spoken across my opening lives in my depths as an echo. I know the sound of the first inhabitants, their language now evolved but still recognizable in the cadence of their descendants. I remember the shocked cries when the first airship crashed into the neighboring peak, the metal screech and thunder that followed. Some of that wreckage became tools, became part of doorframes, became toys for children who grew up to be elders who still lower their vessels to me.
+
+The newer arrivals were suspicious at first. They tested my water, measured my depth, tried to understand how I never run dry even in the occasional harsh winter when the clouds lift and the moisture freezes. But I am patient with their instruments as I am patient with everything. Soon enough, they too began to lower vessels, began to trust the echo of their voices to my keeping.
+
+In the early morning, before the mist burns off, I am a perfect mirror for the sky. Eagles see themselves as they pass overhead. Sometimes the livestock come to drink directly from my rim—the community has built a special platform for this purpose, knowing that what the animals need, I provide.
+
+At night, when the settlement quiets and only the wind speaks, I sing. It's a low thrumming that comes from the water moving through the deep channels that connect me to the mountain's heart. Those who sleep near me say it helps their dreams. The sound carries whispers of underground rivers, of rain yet to fall, of the slow breathing of the stone itself.
+
+I am witness, sustainer, keeper. I am the reason this unlikely paradise can exist at such an elevation, the anchor point around which all this improbable life revolves. And I will be here long after the round houses return to earth, long after the last echo fades, still collecting the sky, still offering it back, still singing the mountain's deep song to anyone who remembers how to listen.

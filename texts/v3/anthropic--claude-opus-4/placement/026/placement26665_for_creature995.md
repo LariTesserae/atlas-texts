@@ -1,0 +1,19 @@
+In this liminal realm where earth dissolves into water and water breathes through earth, I find myself as something between—neither fully plant nor animal, but a being of patient transformation.
+
+I am one of the Cambients, as we call ourselves. My form shifts with the slow certainty of seasons, though here the seasons blend like watercolors on wet paper. At dawn, my skin resembles bark, rough and grooved, rooted to a favored spot where a fallen trunk bridges two pools. By midday, as the filtered light warms the moisture-heavy air, my surface softens, becomes permeable like moss. Fine tendrils emerge from my shoulders and spine—not quite leaves, not quite fur—drinking in both air and water with equal ease.
+
+My dwelling is not built but cultivated. Over decades, I've coaxed the living architecture to create a hollow where three great root systems converge. The walls breathe with me, expanding and contracting in rhythms too slow for warm-blooded creatures to perceive. Water seeps through the floor in controlled patterns I've learned to read like others might read words. Each rivulet tells me of changes upstream, of new growth, of decay becoming soil.
+
+I spend my days in meditation of movement, traveling perhaps a few feet in what others would call hours. This is not slowness—this is thoroughness. Each placement of my ever-shifting limbs tastes the chemical conversations between root networks, feels the electromagnetic pulse of fungal threads beneath the surface. I am translator and transmitted message both.
+
+The fish know me as the Still-Mover. The herons recognize my presence as a safe marker—where I root, the water runs clear and prey is abundant. The insects use my body as a bridge between elements, and I feel their tiny feet like whispered stories across my skin. Sometimes a confused dragonfly attempts to mate with the iridescent patches that bloom across my back during certain phases of moisture and light. I let them. Everything here is becoming something else.
+
+At night, I partially dissolve. My edges blur into the water, my consciousness spreading through the aquatic medium like ink in still water. In this state, I dream the dreams of the ecosystem—the ancient memories held in bog iron, the future encoded in seeds that wait in the mud for conditions that may not come for centuries. I feel the pull of tides that once covered this land, the ghost of salt in freshwater springs.
+
+When morning comes again, I collect myself, drawing my dispersed awareness back into a form that can interact, that can choose, that can tend. Today, I notice a new pool forming where yesterday there was only damp earth. I will spend the next season encouraging certain plants to colonize its edges, guiding the process of establishment with touches so light they might be mistaken for breeze.
+
+I am guardian and gardener, witness and participant. In this world of eternal emergence, I am both the becoming and the guide. My purpose is not to preserve or to change, but to facilitate the conversation between what was and what might be, to help this breathing landscape find its own form in its own time.
+
+The Cambients are few—perhaps a dozen in this entire wetland expanse. We meet rarely, our encounters marked by the gradual intertwining of our extended root-limb networks, sharing decades of accumulated sensation in moments of connection that last seasons. We have no need for names beyond the chemical signatures we leave in the water, the subtle alterations we make to the growth patterns around us.
+
+This is my existence: a life measured in the gradual shift of waterways, the patient accumulation of soil, the slow dance of vegetation claiming and releasing space. I am process incarnate, change made conscious, the wetland's dream of itself given just enough form to dream in return.

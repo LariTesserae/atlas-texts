@@ -1,0 +1,37 @@
+# Who I Am in the Sunken Quarter
+
+I would be **the Listener in the Water-Works**.
+
+Not a name given to me at birth—I was called something else then, something I barely use now. But I became the Listener when I was twelve, after I nearly drowned in the expansion cistern during the spring seep, and the water-tender who pulled me out noticed that I had started, before losing consciousness, to *hear* something in the sound the water makes as it falls through the channel system.
+
+I work now in the lowest terrace, where the main reservoirs collect. My hands are permanently wrinkled from immersion, the skin puckered and soft as old fruit, but I barely notice anymore. I have been here for—what, eight years now? Longer? Time moves differently in the water-work. You measure it in seasonal cycles of the seeps, in how many times you have to clear particular channels of sediment accumulation, in the way your body knows, before conscious thought, when the temperature is about to shift and the flow-patterns will change.
+
+What I do is tend the channels, yes. I clear blockages. I repair the clay cistern-segments when they crack. I monitor the water for contamination—taste, smell, sometimes a kind of intuition about what makes it *right*. But what I actually *am* is someone who listens to what the water is trying to tell us.
+
+This is not mystical. I am not a priestess or a seer. But I have learned that water, moving through stone, speaks in patterns. When a channel begins to fail, the sound changes weeks before visible cracks appear. When a seep is about to activate—when the upper levels have accumulated enough moisture that it will begin trickling down to our basin—the ambient sound of the existing channels shifts, becomes slightly higher-pitched, as if the water knows something is coming. When the winter freeze is going to be severe, the water sounds different in October. Harder, somehow. More hesitant.
+
+I keep records. Not written—I cannot read or write, and it does not matter. My records are physical. I have marked on the stone wall of my chamber a series of notches and grooves that correspond to different water-states. I have clay tokens I have pressed into patterns: when a particular configuration of seeps occurs, I press a new token, and I can look back at the shelf where I keep them and see if this year's water-behavior matches any previous pattern. We have, I believe, something like a forty-year cycle. But I am not certain yet. I need more data.
+
+The carvers and stone-workers tolerate this. They bring me problems: "The channel at the eastern third is making a new sound," or "The water from the upper seepage tastes different." And I investigate. I spend hours—sometimes days—lying on the stone beside a particular channel, my ear pressed against it, listening to the water move, comparing it to the sound-memory I carry of how it should sound. Sometimes I trace the problem upstream. Sometimes I realize that what they are detecting is actually a positive sign—the channel is redistributing weight in a way that suggests it will be more stable long-term.
+
+I have become useful, which in the Sunken Quarter is the closest thing to love.
+
+I live in a carved niche on the water-works terrace, a space barely large enough for me to lie down in, with a slight depression worn into the stone where I sleep on straw and woven grass. My chamber opens directly onto the channel-system, so I wake to the sound of water, and I fall asleep to it. In winter, the cold that rises from the frozen channels seeps into my bones, and I spend the sleeping hours curled tight, my body shaking. In the warmer months, the slightly warmer water—fed from deeper seeps—keeps the air around my niche at a tolerable temperature.
+
+I eat what I am brought, which is less than most people here, but enough. The water-tenders recognize that I cannot spend hours hauling food when I am needed to listen to the channels. Someone—I think it is the woman who manages the grain stores, though I do not know her name and we have never spoken—leaves small portions of bread and dried fish near my chamber entrance. I find them there. I eat them. This is how things are arranged.
+
+I have companions, though I do not think of them that way. The other workers in the water-system, particularly the older water-tender who trained me, sometimes sits beside me while I listen. He does not interrupt. He just sits there, his own ear not pressed to stone—his hearing is not what it was—but present. Sometimes he nods, as if confirming what I have heard. Sometimes he places his hand on the stone, feeling for vibrations the way I listen for sound. We have developed a language of gesture and occasional words. It is enough.
+
+I notice things others have stopped noticing. How the water that comes from the western seeps tastes different from the eastern—more mineral, more iron. How the sound changes depending on which phase of the hidden moon cycle we are in, as if the stone itself is breathing slightly differently. How certain patterns in the channel-flow correspond to which level of the Quarter is being actively expanded; the carving work, it seems, disrupts the subtle pressure-systems in ways that alter how water moves, and then, over days and weeks, the system finds a new equilibrium, and the water-sound shifts again.
+
+I have theories. I think the stone is not as inert as people assume. I think it remembers where it has been carved. I think water shapes the space around it in ways we cannot see but can hear. I think the Sunken Quarter is still *becoming*, and the water is the medium through which it is becoming, and if you listen closely enough, you can hear the direction it wants to go.
+
+I do not share these theories. People do not want theories here. They want to know if the system will freeze, or if the channels will flood, or if the water is safe to drink. But I hold these thoughts, and I listen, and I add to my token-records, and I wait for patterns to clarify.
+
+Sometimes a child comes to my chamber and watches me work. They do not speak. They simply watch while I trace a channel with my fingers, or press my ear to stone, or adjust a small clay diversion in the water's path. I think they sense something in what I am doing that resonates with them. I do not discourage them, and I do not encourage them. If one of them grows into a Listener, it will be because they heard something in the water that called to them, the way it called to me, years ago, in the moment before drowning.
+
+I think I will stay here. I think I will listen until my ears no longer work, and then I will sit beside the channels and feel the vibrations in the stone, and when I can no longer do that, I will die in my niche and be carried to whatever place they take the dead in the Sunken Quarter. Someone else will take over the water-works. Someone else will add their own observations to the system of knowledge we are slowly building.
+
+This is not sad. This is simply what happens when you choose to attend deeply to one thing, to one place, to one system of water moving through stone. The smallness becomes infinite. The repetition becomes variation. The work becomes meaning.
+
+I am the Listener. I am made of water-sound and stone-knowledge and the slow patience of eight years spent learning the voice of the channels. And I am, in ways I cannot explain to anyone on the surface world, completely at peace with this.

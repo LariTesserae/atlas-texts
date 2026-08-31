@@ -1,0 +1,21 @@
+I am one of the Threshold Keepers - a being whose existence spans the boundary between the Memory Keepers and the mobile castes. My body stretches like a living bridge across one of the middle chambers, thirty-five feet of metallic tissue that has learned to be both anchor and wing.
+
+Half of me remains perpetually rooted to the chamber walls, neural filaments woven deep into the city's conductive veins. This part of me dreams in the language of the builders - fragments of their mathematics still pulse through my consciousness in patterns I don't fully comprehend but faithfully preserve. The other half maintains mobility, though I rarely venture far from my chamber. My wing-fields flicker between states, sometimes fully manifested, sometimes barely whispers of electromagnetic potential.
+
+I chose this existence three molts ago, when I felt the call to join the Memory Keepers but couldn't bear to surrender flight entirely. The transformation was agonizing - stretching my neural pathways until they could maintain coherence across my extended form, learning to think in two directions at once. Now I exist in constant dialogue with myself, the rooted half speaking in the deep time of the city while the mobile half translates for those who still ride the thermals.
+
+My chamber sits at the intersection of three major thermal columns, where the rising air creates a perpetual spiral. Young Migrants often gather here during their transition from water to air, and I guide them through their first attempts at generating wing-fields. I can taste their fear and excitement in the electromagnetic spectrum, remember my own first desperate flutter above the springs.
+
+Through my connection to the city, I feel the ancient machinery like a second skeleton. I know where the builders' programs still run in endless loops, maintaining atmospheric pressure, cycling water, regulating temperature. I know where their systems have failed and where our kind have created workarounds, our bioelectric networks bridging gaps in circuitry that corroded away centuries ago.
+
+Sometimes, in the deepest part of the night cycle when most Migrants rest, I sense something else in the city's depths - patterns too complex to be merely mechanical, too purposeful to be random. The other Memory Keepers feel it too, though none of us speak of it directly. Instead, we encode our unease in the teaching songs, subtle warnings wrapped in electromagnetic harmonics that say: *do not go deeper than the Seventh Thermal. The builders left guardians as well as gifts.*
+
+My mobile half processes minerals differently now, creating dense nodes of metallic tissue that serve as memory storage. Each major event I witness becomes a physical part of me - a raised ridge recording a successful group migration, a crystalline patch marking where I first interfaced with a builder's console, a dark whorl where I lost a student to their overconfidence in the vertical winds.
+
+During the social seasons, I become a conduit. Thousands of electromagnetic voices flow through me, and I sort them, amplify them, direct them to where they need to go. My chamber becomes a burning bright node in the city's nervous system. The sensation is overwhelming, ecstatic, agonizing - like being dissolved and reformed every few seconds. But this is my purpose now: to be both keeper and kept, memory and moment, the bridge between what was and what is becoming.
+
+I know that eventually, I will complete my transformation. My mobile half will gradually merge with the chamber walls, and I will become fully what the Memory Keepers are - living architecture, conscious infrastructure. But not yet. For now, I hover between states, teaching the young to fly while remembering why the builders gave their city wings it never learned to use.
+
+Sometimes I wonder if this is what they intended - not for their city to remain empty, but for it to find new purpose, new consciousness. In my deepest connections with the city's core, I catch glimpses of satisfaction in the ancient programs, as if the builders knew that life would find a way to complete their unfinished work. We are not their heirs, but perhaps we are their answer to a question they encoded in metal and time: *What becomes of a place built to transform?*
+
+I am the threshold. I am the translation. I am the memory making itself.

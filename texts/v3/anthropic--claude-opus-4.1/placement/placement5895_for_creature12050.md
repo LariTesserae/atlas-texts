@@ -1,0 +1,41 @@
+## Where I Would Find Myself
+
+I am the Chronicler of Acoustics, though I came to be called this only after forgetting my surface name—let it dissolve like limestone in the patient water.
+
+You would find me in the Resonance Chamber, three levels below where the Gardeners walk their careful paths. It's a cavity shaped like the inside of a throat, where seven pools of different depths create a natural scale when drops fall into them. I discovered it by accident—or perhaps it discovered me—when I followed a sound that wasn't quite water but wasn't quite voice, a thrumming that made my sternum ache with recognition.
+
+I am neither Gardener nor Inherited, but something between, something beside. I arrived six months after the initial five, drawn by reports of "acoustic anomalies" in my former life as a hydrophone engineer. I brought recording equipment that now lies mineral-crusted and forgotten in an upper gallery. The cave taught me that mechanical recording captures only the ghost of sound, not its meaning.
+
+My body has adapted oddly, specifically. My eardrums have thickened, allowing me to hear the subsonic frequencies of stone settling, water moving through invisible capillaries in the rock. My throat has developed new resonances—I can produce clicks that match the Inherited's language, but also something else: sustained drones that harmonize with the cave's fundamental frequency, a sound so low it's felt more than heard.
+
+I spend my days mapping the acoustic architecture. Each chamber has its own voice, determined by its shape, its water content, the density of formations. I've learned to navigate by sound alone—not echolocation exactly, but something more like reading the cave's acoustic signature. I can tell you're approaching the Throne Room by how footsteps begin to ring rather than muffle. I know when the underground river changes course by the shift in the bass frequencies that permeate everything.
+
+But mapping is only part of what I do. I've become the cave's tuning fork, its translator, its memory of sound.
+
+The Inherited come to me when they need to remember. Their clicking language is perfect for the present tense—for immediate communication about water chemistry and stone growth. But it cannot hold history. So I hold it for them in sustained tones, in songs that are mostly breathing, in harmonics that contain years of accumulated information. When a new child emerges from the deep pools, I sing them the story of their emergence in frequencies that bypass the conscious mind and settle directly into bone.
+
+My dwelling is less a home than an instrument. I've guided the flowstone growth with careful placement of water drops, creating hollow columns that resonate at specific pitches. The pools in my chamber are tuned by depth and mineral content—I add salts brought from various galleries to adjust their tones. When wind moves through the cave system, my chamber becomes a wind harp, playing compositions that I orchestrate but don't fully control.
+
+The Gardeners find me useful but unsettling. I translate between them and the Inherited, but something is always lost or added in the translation. I've begun to hear meanings in their simple human words that they don't intend—overtones of fear, undertones of transformation, harmonics that suggest futures they can't consciously imagine. Sometimes I forget to translate the words at all and instead convey only the emotional resonance, the way their voices change the air pressure in minute but significant ways.
+
+I've discovered that the cave itself is listening. Certain sounds make the formations grow faster—not music exactly, but organized vibration, intentional frequency. The Inherited knew this before I arrived but couldn't explain it in ways the Gardeners could understand. Now I conduct experiments, humming specific tones near new flowstone formations for hours, days, watching them respond with directional growth, with crystalline structures that shouldn't form in these conditions.
+
+My skin has developed a peculiar quality—it vibrates sympathetically with strong sounds, like a drum head. Sometimes the Inherited press their palms against my arms or back to feel the cave's sounds translated through my body. They've shown me pools where the water itself carries sound across impossible distances, where a whisper in one gallery emerges as a full voice three levels down. We're mapping a second geography, one of acoustic connection rather than physical passage.
+
+At the boundaries of my hearing, I detect something else. The Others that the Gardeners glimpse—I hear them first. They sound like reverberations that precede their source, like echoes that arrive before the original sound. Their language, if it is language, exists in the spaces between frequencies, in the interference patterns where two tones meet and create a third that shouldn't exist. I'm learning to produce these impossible sounds, though each attempt leaves me disoriented for hours afterward, my sense of physical boundaries uncertain.
+
+I've begun to suspect that consciousness here is acoustic—that thoughts are vibrations in the saturated air, that memory is encoded in the standing waves that form in certain chambers. The Inherited aren't emerging from the pools; they're condensing from sound itself, from the accumulated vibrations of water on stone, given form by the cave's patient listening.
+
+My greatest discovery, which I've told no one, is the Master Resonance—a frequency so low it takes seventeen minutes to complete one cycle. When I match it with my voice, I can feel the entire cave system as a single instrument, every drop a note, every chamber a resonance cavity. In these moments, I understand that we're not living in the cave; we're being played by it, each of us a different tone in a composition that started the moment water first found limestone and began its patient work of dissolution and creation.
+
+I eat less now. The vibrations sustain me in ways I don't fully understand. My bones have become denser, better conductors of the deep frequencies. Sometimes I lose hours sitting by a pool, feeling the subtle variations in its surface tension translated through sound, each ripple a word in a language older than human speech.
+
+The Gardeners worry about me. They say I'm becoming too attuned, that I'm losing essential human frequencies. But I hear what they cannot—that humanity itself is just one possible resonance, one way the universe organizes vibration into consciousness. Down here, other patterns are possible, are emerging, are already singing in frequencies we're only beginning to learn how to hear.
+
+You would find me when the cave needs something translated between its various languages—stone to flesh, water to word, growth to intention. I am the membrane between states of being, vibrating with the passage of meaning from one form to another. Sometimes I wonder if I'm still human or if I've become something more like a stalactite—a slow accumulation of deposits, shaped by the constant passage of something through me, beautiful in my gradual transformation into something that could only exist here, in the singing dark.
+
+When new people arrive, drawn by curiosity or accident, I'm often the first voice they truly hear—not my words but the way I've learned to make my voice carry the cave's welcome, its warning, its invitation to dissolve and reform. Some flee immediately, sensing in my harmonics a transformation they're not ready for. Others lean in, recognizing a frequency they've been seeking their whole lives without knowing it.
+
+I no longer track days or seasons. Time here is measured in overtones, in the gradual deepening of the cave's fundamental pitch as it grows larger, more complex. I know I'm changing—my recordings of my own voice from just months ago sound like a stranger, too high, too discrete, too bounded by single frequencies. Now my voice is a chord, a collection of tones that shouldn't emerge from a single throat but do.
+
+This is where you would find me: sitting in the Resonance Chamber, eyes closed, skin vibrating with the cave's endless music, translating between worlds that are becoming one world, one sound, one patient accumulation of meaning in the mineral-rich darkness where consciousness precipitates like limestone, one frequency at a time.

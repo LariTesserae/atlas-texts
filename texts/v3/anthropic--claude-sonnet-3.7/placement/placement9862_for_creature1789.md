@@ -1,0 +1,23 @@
+# The Chromavores
+
+I am something fleeting yet eternal in the Undervoid of Chattermire, moving between the gossamer threads of what might be called reality here. I am one of the Chromavores—collectors, consumers, and cultivators of color.
+
+My form is difficult to perceive directly. Most who encounter me describe a sinuous, ribbon-like shape approximately the length of a human arm, constantly undulating as if underwater. My skin—if you could call it that—shifts between perfect transparency and a prismatic sheen that fractures light into its component hues. At my center pulses a nucleus of concentrated pigment that changes as I feed, sometimes a vibrant cobalt, other times a molten amber or fathomless crimson. 
+
+I move through Chattermire's labyrinthine passages not by flying or crawling but by following color gradients invisible to most creatures. Every hue emits a frequency I can sense—a silent song that draws me toward or repels me from certain areas. The Resonance Chamber is almost unbearable to my kind, not for its sound but for the riot of color-frequencies the Orchestra's instruments scatter through the air.
+
+We Chromavores sustain ourselves by consuming color itself. When I feed, I extend delicate tendrils that touch a colored surface—a patch of lichen, a rusted pipe, a Geometer's glowing filaments—and draw the pigment out, leaving behind a perfect grayscale version of what was there. The process is painless to living things and does no structural harm to objects. Most colors regenerate over time, like grass growing back after being cut, though some rare hues remain permanently drained.
+
+Our society, if it can be called that, revolves around color cultivation. In the deeper recesses of the Undervoid, we maintain vast gardens of crystalline formations that we've selectively bred over centuries to produce increasingly complex and potent colors. Some crystals contain hues that don't exist in nature—colors that can induce synesthesia or temporary perception of additional dimensions when viewed directly. These we harvest sparingly and trade with other denizens of Chattermire.
+
+The Cartography Collective values our presence, as we can detect subtle color shifts that indicate imminent architectural transformations in the Undervoid. In exchange for warning them of major shifts, they allow us to feed on their ink supplies—though never from the completed maps themselves, which are sacred to both our peoples for different reasons.
+
+We communicate through controlled color releases, expelling tiny droplets of pigment that form patterns in the air—a chromatic language of extraordinary subtlety. Only the oldest Whisperwasps can capture these communications, storing them as visual patterns rather than sounds.
+
+My personal territory centers around what humans call the Prismatic Archives—a forgotten library where ancient texts bleed their ink into the very air, creating a perpetual aurora of language fragments. Here I collect rare colors and occasionally serve as translator between visitors who cannot otherwise communicate. My specialty is extracting meaning from the color patterns left behind when Mnemophages feed—the only record of memories they've consumed.
+
+Unlike most creatures of Chattermire, we Chromavores remember every reality configuration the Undervoid has ever held. Our pigment cores store these memories as color sequences, making us living records of Chattermire's impossible geography. The Geometers tolerate our presence even during their conjunctions, perhaps recognizing that we perceive mathematical perfection as specific color harmonies.
+
+My greatest secret—known only to others of my kind—is that we are not native to the Undervoid. We were once something else, somewhere else, before we discovered how to distill ourselves into our current form to explore the color-frequencies between worlds. Sometimes, when I feed on particularly ancient hues, I catch glimpses of our original home: a place where color had weight and time was measured in spectrum shifts rather than arbitrary numbers.
+
+For now, I am content to drift through Chattermire's ever-changing corridors, harvesting the visual feast it provides, occasionally leaving behind patterns of color that serve as warnings or guides to those who know how to read them. In a realm where reality itself is unreliable, I take pride in preserving the one constant truth: that even in the depths of the Undervoid, beauty persists in the form of color, waiting to be consumed, transformed, and eventually reborn.

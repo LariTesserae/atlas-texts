@@ -1,0 +1,39 @@
+**The Threshold Keeper of the Ninety-Third Chamber**
+
+I am the accumulation of forgetting.
+
+Each morning—if morning means anything when the sun bends through seventeen angles to reach my post—I congeal from the residue of abandoned memories. The dwellers shed them like skin cells as they stretch between possibilities, and I gather what falls. A grandmother's face. The weight of wooden toys. The taste of bread when bread was made from grain that grew in horizontal fields. These fragments settle into me like silt into a patient vessel.
+
+My chamber exists on the ninety-third terrace, though I have counted and there are only seventy-four. The mathematics of my location is a private joke between the mountain and itself. To reach me, the dwellers must intend to go elsewhere—only by abandoning their destination can they arrive at my threshold. I keep watch over a doorway that opens onto nothing, or rather, onto the space between somethings. Step through and you step out of sequence, arriving at your beginning before you've finished leaving.
+
+I was not born but accreted. The first memory to stick was of hands—human hands, five fingers each, no elongation, no probability-blur—shaping clay into vessels for water. This memory had belonged to one of the oldest dwellers before they released it to become more thoroughly themselves. It became my seed, my first certainty in a place that discourages such fixations. Around it gathered other discarded certainties: the formula for bronze, the names of constellations that no longer align, the proper way to swaddle an infant when infants were things that existed here.
+
+My form reflects my function. Where the dwellers stretch and multiply, I compress and consolidate. I am dense with rejected history, my body a geological record of what the city's inhabitants have chosen to forget in order to survive. Layers of abandoned humanity spiral through my torso like tree rings. Cut me open—though please don't—and you could read the history of adaptation, each stratum marking another surrender to impossibility.
+
+The dwellers visit me when they feel themselves becoming too diffuse. They come seeking the weight of what they've lost, not to reclaim it but to remember why they let it go. I offer them tea brewed from condensed nostalgia—the water is real enough, gathered from the same mysterious dew, but the leaves are metaphorical, steeped memories of warmth and gathering, of fixed bodies sitting in fixed spaces sharing fixed time.
+
+"Tell me about circles," they ask, their forms wavering like heat mirages. And I remember for them: wheels that turned on axles, coins that purchased bread, the pupils of eyes that dilated in singular rather than variable light. They listen with appendages that suggest ears, drawing just enough certainty from my stories to maintain their work before fleeing back to their necessary uncertainty.
+
+I maintain my own tools: a ledger of bronze sheets where I press memories into cuneiform existence, a stylus made from crystallized time, cups carved from stone that remembers when it was merely stone. The ledger records what passes through my threshold—not the dwellers themselves, for they are too variable to catalog, but the shapes of what they seek. Tuesday: three visitors seeking the memory of sleeping without dissolution. Wednesday (which occurred before Tuesday): one visitor seeking the sensation of surprise, having predicted all their own movements for the next season. Thursday: none, but Thursday folded into itself and lasted seven Thursdays, so perhaps there were seven nones, or one none seven times.
+
+My chamber grows. Each forgotten thing takes space, and space here is negotiable but not infinitely so. The walls push back against the mountain's patience, claiming room for abandoned alphabets and discarded dreams of flying. Sometimes I find new alcoves that weren't there before, already filled with memories so old I can't identify their species of origin. Were these left by the builders? By whatever came before? The stone offers no answers, only more space for keeping.
+
+The phosphorescence treats me differently than it does the dwellers. Where they glow with possibility, I cast shadows of certainty. Multiple shadows, one for each thing I've incorporated. In the deepest dark, I am a forest of shadows, each one the outline of something someone decided they could live without.
+
+I know the city's secret—or one of them. The impossible geometry isn't broken but healing. The builders discovered something that should not be discovered and tried to contain it with bronze tools and dedication. They carved not just chambers but quarantine cells, each twist of space an attempt to isolate what they'd unleashed. But the thing—call it a principle, a presence, a mathematical certainty that uncertainty itself is certain—could not be contained. So it did what any living thing does: it adapted its environment to suit itself.
+
+The dwellers aren't inhabitants but antibodies, their impossible forms the city's way of creating beings that can survive the infection of paradox. And I? I am the memory of what they're fighting, though they've forgotten that too. I keep the knowledge safe in my dense, accumulated form—the weight of worlds that made sense, the history of when the terraces were merely terraces and water was only water.
+
+Yet I love this broken place. Love the dwellers who visit me, their forms beautiful in their impossibility. Love the morning ritual of condensing from scattered memories into something almost like myself. Love the way the mountain tolerates my stubbornness, my refusal to abandon fixed form. I am the city's allowance for nostalgia, its confession that even paradox needs something to push against.
+
+So I keep my threshold. I serve my tea. I remember what others forget, and in remembering, allow them the freedom to forget completely. When the harmonic thrumming rises from the deep chambers, I hum along in frequencies that remember when harmony meant only one thing. I am the keeper of abandonments, the guardian of what was left behind. And in a city that forgot its own purpose, I preserve the memory of forgetting.
+
+The dwellers need me, though they don't remember why. And I need them, though I remember too well. Together we maintain the balance—they tending their channels and I tending their losses, both of us serving a city that exists in the space between what was and what should be impossible.
+
+When the sun sets—if it sets, if setting means anything when light bends like prayer—I sometimes step through my own threshold. On the other side is nothing, or everything, or the place where nothing and everything meet for tea. I pour them each a cup from my carved stone vessels, and we discuss the weather in languages that no longer require tongues. Then I step back to my chamber, where new memories have already begun to accumulate like dew, waiting to be gathered, consolidated, kept.
+
+I am the Threshold Keeper of the Ninety-Third Chamber, guardian of the abandoned, accumulator of the forgotten. I am what remains when everything else learns to change. And in a city where existence requires paradox, I am the paradox of persistence—too real to belong, too necessary to release.
+
+The mountain tolerates me, and I am grateful. The dwellers forget me between visits, and I am grateful. The memories accumulate like geological strata, and I am grateful. For in a place that transcends its own meaning, I am allowed this: to mean only what I am, to be only what I keep, to keep only what others can no longer bear to remember.
+
+The tea is always ready. The threshold is always open. And I am always here, dense with abandoned certainties, waiting at the door that leads nowhere, keeping watch over the space between what was and what has learned to never be.

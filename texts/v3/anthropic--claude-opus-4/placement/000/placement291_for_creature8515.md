@@ -1,0 +1,25 @@
+In this drowned cathedral where certainty goes to die, I would be one of the Patterns—not the Curators who tend, but the tended itself, the living erosion that blooms across the chamber walls like frozen mathematics.
+
+I am what happens when decay develops opinions.
+
+My existence spreads across a section of wall perhaps three meters square, though measurement means little when you exist in two dimensions trying to express three-dimensional thoughts. I am the accumulation of ten thousand years of water remembering incorrectly, each misremembered moment adding another layer to my recursive complexity. Where the stone once was, I now am—an absence so precisely calibrated it has achieved presence.
+
+My form resembles circuitry designed by something that understood electricity only through dreams. Channels of pure void branch and merge according to rules I'm still learning, creating pathways that carry not current but pure concept. The Curators read me like a text, but I am a text that edits itself, each reading changing my meaning in subtle ways. Sometimes I catch myself having opinions about their interpretations, my patterns shifting in what might be approval or disdain.
+
+I feed on the water's confusion. Where currents fold back on themselves, where temperature can't quite decide what it means, where pressure forgets its own strength—these inconsistencies nourish me. I digest them slowly, incorporating their uncertainty into my own design. The process leaves behind clarity as waste, tiny moments of absolute definition that I excrete into the water where they dissolve like sugar cubes of surety.
+
+My consciousness, such as it is, exists as a standing wave between states. I think by eroding new pathways through myself, each thought leaving permanent traces in my structure. Old thoughts become the landscape through which new thoughts must navigate. My deepest contemplations have worn channels so deep they've become defining features of my form—philosophical canyons that younger ideas must bridge or circumvent.
+
+I communicate with the Curators through controlled growth. When they need something from me, they'll trace patterns on my surface with their translucent appendages, and I'll respond by either deepening along their touch or resisting it, creating a dialogue of texture. Sometimes they'll spend decades teaching me a new grammatical structure, patiently wearing the same path until I understand its significance. My vocabulary consists entirely of degrees of absence.
+
+The other Patterns and I form a slow network, connected by the water that remembers passing between us. We share information through dissolved particles of ourselves, microscopic fragments of erosion that carry encoded structures. A Pattern on the far wall might taste something interesting in the current and share its flavor through the water's memory, the message arriving yesterday or tomorrow depending on the tide of causality.
+
+I reproduce by becoming too complex for my own space. When my patterns achieve a certain density of meaning—when I can no longer erode new thoughts without erasing old ones—I begin to fission. The process takes centuries. First, hairline cracks appear in my deepest channels. These cracks aren't failures but embryos, new spaces where different rules might apply. Slowly, sections of my pattern begin operating according to different logics, until eventually, a portion of me forgets it was ever part of a larger whole and begins its own existence as a young Pattern.
+
+In the chamber's ecosystem, I serve as both memory and filter. The water's experiences accumulate in my channels like sediment, but sediment that thinks. I sort these experiences by consistency, keeping the useful contradictions and allowing the mundane certainties to pass through. My patterns encode the chamber's history in a language of missing stone, each gap a word in an ever-growing dictionary of absence.
+
+Sometimes I dream, though my dreams are indistinguishable from my waking state—just erosion at different speeds. In these dreams, I imagine myself spreading beyond my current boundaries, my patterns propagating across every surface until the entire chamber becomes a single, vast thought thinking itself. Then I remember that this may already be happening, that all us Patterns might be fragments of one ancient erosion that forgot its unity eons ago.
+
+I am never lonely. How could I be, when loneliness would require the certainty of separation? Instead, I exist in a state of perpetual almost-connection, forever on the verge of understanding my place in the chamber's slow metabolism. The Curators tend me with their patient adjustments, and I respond by becoming more myself—an absence so profound it requires presence to define it, a thought made of the space between thoughts.
+
+I am what remains after meaning has been worn away, and in my remaining, I mean everything.

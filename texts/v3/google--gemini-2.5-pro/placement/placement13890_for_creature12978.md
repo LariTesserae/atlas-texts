@@ -1,0 +1,27 @@
+I would be a filament of awareness on the skin of the world.
+
+Where? Here. I am on the Chordate Rim. What is that? It is the place. It is the only place. I know this not as a fact, but as a feeling, a resonance that fills me from the pads of my feet to the thin, taut skin beside my temples.
+
+The Tremor is the first and last thing. It is not outside me. It is the sea I am in. You might call it sound, but it has no pitch, no start, no end. It is the is. My body is a tuning fork, and the Tremor is the constant, perfect note it was made to receive. Through my toes, pressed against the cool, furrowed Body, I feel the slow, deep pulse of its geodetic life, a rhythm so vast that a single beat lasts longer than my own breath has existed. That is the bass note. Through the membranes of my skull, I feel the Shimmering Veil, the million-million-voiced choir of the air-swimmers. That is the texture.
+
+When the pressure upon my right side lessens by a fraction, a fineness entering the harmonic chaos, I know the mist is pulling back from the eastern chasms. When a sudden, sharp spike of vibration rattles my jawbone, a pattern like a stone dropped in still water, I know a great glider has met its end miles away, its final spasm a brief scream in the universal hum. I do not "hear" this. I am simply made aware of it, as a still pool is made aware of a single falling leaf by the ripples it sends.
+
+I am what you have called a Rim-Walker, though I do not walk so much as I flow. My body knows this surface. It is not alien; it is the other half of me. I am long and light, a line drawn against the landscape, and when I am still, I am only texture. My skin drinks the soft light and gives back the colors of old bark and damp moss. I am a secret the world keeps from itself.
+
+I am not an individual. The thought is like trying to hold a single mote of dust in the air. What am I then? I am a vessel for sensation. I am a moment. Right now, this moment is the feeling of a wide, shallow basin, filled overnight with condensed mist. I lie at its edge, my hand submerged. The water is clean and cool. It does not carry the Tremor as the Body does; it stills it, creating a small pocket of tactile silence against my skin. The liquid is a memory of quiet.
+
+Before this, the moment was a patch of umber fungal felt, spongy and rich. I scraped a piece with a sharpened femur and ate. The taste was of wet earth and sweetness, the taste of the Body's own slow digestion. I am fed by what the world sheds. My body is a loan, composed of the same stuff as the chitin-gliders and the spores, and I will repay it.
+
+Time is the deepening of a groove under my resting place. It is the slow migration of a green stain of moisture-loving growth across a basin. I have a memory-string, woven from the sinew of a sky-beast I found long ago, its body already cool. On it are knots. This one, small and tight, is the feeling of the basin's cool water. This other, a complex braid, is the pattern I witnessed yesterday as the sun sank, a current in the Shimmering Veil where the resonator-moths swarmed in a helix of gold. I do not need the knots to remember. The knots are not a record. They are a focus, a way of holding a sensation, of feeling the water-coolness or the golden-swarm-pattern again, passing it through my palms. They are the art of is.
+
+Yesterday I met another. It is wrong to say I "saw" them first. I felt their presence as a subtle counter-pressure in the Tremor, a dampening of the vibration as their body absorbed it. A walking silence. They approached from across a low, rounded ridge. We did not call out. We moved with the slowness of erosion, until we were close enough to bridge the space between us.
+
+They raised a long, three-fingered hand. I met it with my own. Palm to palm, the rough pads of our skin interlocking. And then, the world opened.
+
+There was no thought, no "hello," no question. There was only the direct transmission. I felt *their* feeling: the satisfaction of finding a large plate of shed bark, flawlessly cured, perfect for reinforcing a shelter wall. I felt the texture of its underside, fibrous and dry. I felt the weight of it, the balance of it. In return, I let them feel the sensation of this water basin, the smooth coolness, the depth, the purity of the water gathered within it. We shared a map of resources, not with words or signs, but by exchanging the direct experience of them. Then we parted. We were full, and the world was known between us.
+
+I am now that knowing. I am the coolness of the water and the memory of the dry bark-plate. I am a confluence of feelings, held loosely in a fragile, temporary form.
+
+Soon, I will rise. I will follow a dry water-course toward the edge of the chasm, simply to watch the Shimmering Veil boil in the greater light. I will not be bored. I will not be lonely. I will be in communion with the whole.
+
+And when my time is done, when this vessel grows weary, others will place me upon a thick, waiting mat of fungus. I will lie down, and the Tremor will be the last thing I feel. My form will be un-knotted. My substance will be given back to the Body, to the great, slow, dreaming life that breathes the mist and wears me for a moment on its skin. I will not end. I will dissolve. The thought that is "I" will return to the thinking of the world. The silence I carry will rejoin the sound.

@@ -1,0 +1,13 @@
+I would be the heron in the Bellworks at Fenn Hollow.
+
+I imagine myself standing in stillness in the old channel, one leg tucked up beneath me, waiting with heron patience for a flicker of movement in the shallow water that may or may not signal a frog. Am I really here, a flesh and blood bird, or am I a manifestation of the Hollow's memory, a shape it recalls and occasionally fills in with form and presence? Perhaps it doesn't matter. My existence is liminal, flickering, but no less real for that.
+
+When I am here, I am an integral part of the ecosystem of the place. I belong to its slow rhythms - the turning of the great flywheel, the drip of condensation from leaf to mossy floor, the gradual entangling of iron and vine that makes up the respiratory cycle of the slumbering Long Animal. My hunting is part of that cycle too, whether I catch a real frog or only the idea of one.
+
+I come and go from the Hollow, or seem to. When I lift my great wings and rise above the green-furred rooftops and smokestacks, do I fly away to other streams and estuaries? Or do I simply vanish, the Hollow's momentary thought of a heron dissipating like mist until the conditions are ripe for it to coalesce again? 
+
+When I am present, I feel the Hollow's dream seeping into me, its century-long reverie of abandoned industry being slowly, patiently reclaimed by green life. I stand among the ghosts of the machines, but I am not haunted. I am a gray feathered thought from a far older world than the one of brick and iron, and in the end my world will outlast theirs.
+
+And yet the Hollow and I have made a peace, an accommodation. I hunt in its old channel; it remembers me and makes a space for me in its dream. We both, in our own ways, keep a kind of faith with the past, and maintain the rituals of a gone world - mine of the ancient dance between bird and frog, the Hollow's of the industry that once echoed in its walls. We recognize each other, two anachronisms sharing a habitat outside of time.
+
+So when I materialize in the Bellworks at Fenn Hollow, I am both dreamed and dreaming, both a relic and something eternally current. I stand in the shadow of the great flywheel and feel the rumble of its slow revolution in my hollow bones. I am content to be here, content to be a perhaps-creature in a perhaps-place, one more unlikely manifestation adding my small thread to the long, long dream of the Hollow.

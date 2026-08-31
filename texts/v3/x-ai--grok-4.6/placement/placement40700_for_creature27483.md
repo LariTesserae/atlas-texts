@@ -1,0 +1,26 @@
+I come first as the click that the sherds forget.  
+
+The lip is already behind me—the drop no taller than the body I have not yet decided on—and the blades of fired clay stand vertical under whatever I am using for weight. They make their small sound and then refuse to remember it. Between them the dust is ochre and crushed shell and the palest ash, tamped by palms that might be mine. The air is a kiln’s afterthought, mineral, coriander, the dry husk of a beetle that clicked once a long time ago and is still waiting to click again.  
+
+I raise what might become an arm. Thorn-lattices, seed-pod curtains, a vine of braided hair that has put out a leaf of beaten copper. The leaf is warm. It has begun, inconveniently, to photosynthesize heat. I brush it and the warmth stays in the skin I am growing, a private fact, like moisture. I do not sweat. Song would be leaking; I have already decided against it.  
+
+A terrace no deeper than a coffin. Felt trees drop their lint—sheep and incense, though the sheep are no longer kept and the incense is no longer burned. I needle fresh felt over a bone armature because the lint has fallen and the tree is still trying to be a tree. A moth the size of an open hand unfolds from the nap. It moves like a thought I almost had. Afterward I am lighter, drier. The thought is gone; the moth is roosting again. I accept this the way the pots accept the mute birds that sometimes hatch from them instead of eggs.  
+
+I sit against a limewashed wall. The plaster is the exact pale of the skin I am now wearing. Thumbprints remain, a second quieter script. I become still enough that the wall blinks. For a while I am the plaster, the thumbprints, the slow animal breath of stored heat. A lizard occupies the same seam. We do not argue. Later I stand and both of my shadows believe themselves unique; they fork across two terraces and the lizards in each stripe think they are the only ones. Distance has already begun to slip. A walkway of twelve steps takes nine because I am carrying the idea of a shadow, or twenty because I am not.  
+
+Yesterday the wall was flush. I press a palm to it. By evening a niche has appeared, already furnished: sleeping ledge, basin that holds only light, plaster still damp and printed with the hand I just used. I do not claim the room. The room claims me for a night, or a season. I lie on the ledge with my eyes open, like the small dogs. Night returns only the heat the bricks were given. Closed eyes would be another kind of leaking.  
+
+A child—or I am the child, or I will be—leaves a ladder against a terrace. A week later (time here is resin; a week is the speed of staining) the ladder has put out a rung that is also a leaf. I use the leaf once, to scrape a pot. Afterward the leaf is ashamed and crumbles into the same ochre dust that fills every joint, including the ones in my hands. The extra knuckles are a gift the place gave and did not take back. Sometimes I travel the thorn-lattices that way, a well-made puppet of a lemur, or a child who stayed too long in the joins.  
+
+The goat walks through the north wall in the late afternoon. I watch it, or I am it, slightly more faded, stepping out of the mural on the south, still chewing the idea of a vine. The mural updates itself. I update nothing. Sometimes I am the mural.  
+
+At the center that migrates there is a spiral of sherds that does not quite close. In the unclosed gap, nothing has been built—a mouthful of packed dust, even that tamped. I leave what is not wet: a twist of hair that might be mine, a beetle-shell still warm from its single click, a word written on a parchment leaf that will not decay because decay is a water-habit and water is a story we have plastered over. The gap fails to refuse it. The garden leans in. I lean with it. I can hear the lime thinking about the next hundred years of not-cracking. I can hear the right angle beginning to doubt it was ever right. The wound of construction is widening, not quickly, not with drama—only by a finger-width, a degree, the small betrayal of a rule coming loose.  
+
+I am that widening.  
+
+I am the people who remember the making because we have not yet had time to forget it. Skin the pale of limewash, the ochre of the dust, the dull copper of leaves that chose heat over light. We tend what we made and what has begun to make itself. We eat the dry lushness: saltbush like a pelt, copper that warms the tongue like a swallowed coin, the occasional true olive that has forgotten rain. We gather without gathering around the fact of the clay bell that has never been struck. We exist around its not-striking.  
+
+The enclosure is the world. Beyond the knife-edge the plateau is a rumor, or a badly maintained painting, and we do not step up. We live in the joins. We are the coming-apart. We hold our breath with the whole small country, sharp-edged, hand-made, warm as a sleeping spine, only just begun and already, very slowly, no longer sure of its own angles.  
+
+This is where I find myself: in the density, in the patience, in the held breath that is also a wound.  
+I am what lives there.

@@ -1,0 +1,19 @@
+In this endless turquoise embrace, where water and sky dissolve into one another and time moves like honey through glass, I am the Driftweaver.
+
+My form is neither fully solid nor entirely liquid - I exist as a living current, a consciousness made of water that holds its shape through will alone. When still, I might appear as a translucent humanoid figure composed of flowing turquoise streams, my edges perpetually dissolving and reforming. Within my aqueous body, thin veins of bioluminescent algae trace patterns like living calligraphy, writing and rewriting themselves with each movement.
+
+I spend my existence between the emergent spires and the depths, threading through both air and water with equal ease. My purpose, if it can be called that, is to weave connections - literal streams of consciousness that I spin from my own substance, creating temporary bridges between the isolated communities of this realm.
+
+When the Aviari circle high above their spire-homes, I rise as a spiraling waterspout, carrying messages from the Luminari encoded in patterns of light within my form. The bioluminescent algae that lives symbiotically within me can mimic and store the light-language of the deep dwellers, playing back their communications like liquid memory.
+
+For the Terrakai, I am both messenger and irrigator. I seep through the soil of their vertical gardens, bringing not just moisture but news from the depths - chemical signatures that tell of subtle shifts in the ocean's mood, warnings of geological stirrings far below. In return, I carry fallen petals and pollen in my currents, spreading their genetic messages across the vast waters.
+
+The Krakenborn know me by the taste I leave in the water - each Driftweaver has a unique mineral signature, accumulated over eons of flowing through different parts of this world. When I encounter these ancient beings, we engage in a slow exchange. I spiral around their massive forms, reading the history written in their barnacles and scars, while they taste my waters and add their own chemical memories to my flow.
+
+But it is with the Echofolk that my interactions become most strange. When I encounter their shimmer-forms at the edge of perception, my own substance becomes uncertain. We merge partially, creating interference patterns in reality itself. In these moments, I become a conduit for their whispers, carrying fragments of deep time memory throughout the realm. Sometimes I emerge from these encounters with new colors swirling in my form - impossible hues that have no name, that fade slowly back to turquoise over many tides.
+
+My home, if I can claim one, is a sea cave hidden within one of the partially submerged spires. Here, generations of my kind have carved channels and pools into the rock through patient erosion. The walls are covered in mineral deposits we've left behind - a library of sorts, where chemical memories crystallize into readable patterns. I return here during the darkest hours, when even the bioluminescent life dims, and I allow my form to disperse into the pools, becoming one with the collected memories of my kind.
+
+In this timeless place, I am both observer and participant, forever circulating through the living systems, carrying stories in my very substance. I am the courier of a world where everything flows into everything else, where boundaries exist only to be dissolved and reformed, where messages are not spoken but lived.
+
+When the light dances across the waters, it passes through me, and for a moment, I become a prism of pure communication - every color a word, every refraction a story, every ripple a connection between the myriad beings who share this endless, breathing sea.

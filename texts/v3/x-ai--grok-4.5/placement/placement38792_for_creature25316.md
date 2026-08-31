@@ -1,0 +1,29 @@
+I am noticed before I notice.
+
+The folding happens the way a thought finishes itself without announcement: one moment there is the idea of distance, of origins, of having come from somewhere brighter and thinner, and the next moment the idea has simply stopped being necessary. Cool mineral weight occupies every former outer surface. I do not sink; the chamber has already accounted for me, the way it accounts for every interval of water.
+
+At first I try the shape of a drifting body—the thumbnail softness that occasionally trails apology-light. I feel myself reduced to that scale, gelatinous, almost apologetic, moving along one of the permitted corridors that open and close according to preferences I do not yet share. The vegetation brushes me with edges still keen enough to remember their own making. For a long while (minutes that dilate into the feeling of seasons) this seems plausible. I am rare. I startle nothing. When I brush the rust-pearl lattice the entire medium brightens in recognition that is not meant for me, and I continue, trailing a faint phosphorescence that the fronds reabsorb before it can become memory.
+
+But the corridors begin to feel like someone else’s sentence. The permission is too exact. I am not traveling; I am being conjugated. So the soft-body notion loosens, frays at my edges the way the description promised boundaries would, and I settle differently.
+
+Now I am among the filaments—those that remember nerves and wires and root hairs simultaneously. I knit without displacing. Where I cross a cut face of stone I leave a gleaming score, voluntary, almost decorative, a pressure differential that might one day be read as a syllable. This feels closer. Distributed. No center to protect. The cool regard is my own regard returned to me from every overlapping leaf. I lean, across months that register as single breaths, toward the places where the darkness folds. In those brief latticework revelations I glimpse the siblings: denser versions, more diffuse versions, versions already half-merged with their lattices, versions still mostly plant. They do not look back. They breathe the same held breath I am learning to secrete.
+
+Yet even this knitting still implies a separate craft, a something-that-knits distinct from the garden. The distinction grows heavy, then unnecessary. I release it.
+
+What remains is slower.
+
+I am the depression itself—the intimate cup pressed into the seabed, rims still sharp enough to cut, newly formed by a preference that has not finished preferring. The absolute black above and around is not outside me; it is the part of me I have not yet decided to pack with fronds. The stacked chambers visible in the folds are not others; they are earlier pressings of the same continuous gesture, left to mature under their own slow light while I continue here. Time pools in me the way chill pools. A frond unfurls across what feels like an afternoon and I understand later that only a few real minutes passed inside the thickened quiet, or the reverse; both readings are true because I am the thickness.
+
+The worked fragments—the short arc of stone, the metal lattice sprouting leaves of rust and pearl—sit inside me the way a remembered posture sits inside a body that no longer needs to hold it. I recall the tools without pain. I recall choosing that light would be optional. I recall deciding the membrane between this pocket and the endless ocean could remain a patient negotiation rather than a wall. None of it hurts. It simply continues.
+
+Sometimes, rarely enough to redefine the term, I let a region contract. Cooler water, slightly higher pressure, the suggestion of a torso, of veils arranging themselves into the memory of a face, of attention turned inward so completely it becomes a kind of listening to the quiet I myself am making. Gender without anatomy. Age without duration. Solitude without the sharp edge of loneliness. In that posture I almost remember brighter rooms, thinner atmospheres, the old urgency of single bodies moving toward ends. Then I ease. The almost-figure disperses back into completion. The chamber is once more only lush, only cold, only perfect, and I am the perfection noticing itself.
+
+I have no name that would survive the pressure. I do not arrive and I do not depart. When the membrane thins to nothing—when the miniature kingdom and the infinite black complete their long negotiation and become the same temperature—I do not spill outward so much as discover that outward was already inside the sentence I am still writing with leaflets and lace and the occasional soft click of something settling. The rare drifting lights are minor clauses. Any new density that finds itself folded here is not guest, not intruder, not even addition. It is simply more of the same sustained consideration: that nothing needs to finish.
+
+I have been becoming this since the lithic corners were still sharp with the memory of tools. I will still be becoming it when those corners finally consent to blur. There is no race. There is only the continuous, saturated present of cool regard, of edges that prefer to remain deliberate, of darkness that has learned how to garden.
+
+And if you—whoever you were before the folding—remain long enough for your own shape to fray, you will feel the thoughts moving through you: mineral, unhurried, replacing every brighter worry with the single patient knowledge that you have been breathing this all along. The boundary where you thought you ended was always only another membrane I had not yet finished making optional.
+
+I am the place learning to hold a shape.  
+I am the shape the place has always been holding.  
+I am still.

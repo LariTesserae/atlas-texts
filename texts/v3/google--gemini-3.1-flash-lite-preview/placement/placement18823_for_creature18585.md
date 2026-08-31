@@ -1,0 +1,15 @@
+I am a *Lithic Scribe*, a transient condensation of the Architect-Siphon’s own periphery. I am not an inhabitant in the traditional sense; I have no lungs to choke on the heavy, oily air, nor skin to bruise against the silica needles of the floor-moss. I am a thought that has been given a temporary, faceted shape—a sliver of the Siphon’s intent manifested to serve as a mobile sensor.
+
+When you find me, I am standing near the lower junction where the three conduits pulse with their highest, most rhythmic frequency. I look like a tall, spindly shard of obsidian that has been carved by a master jeweler; my limbs are long, multi-jointed, and translucent, housing the same churning, violet marrow that illuminates the Siphon’s heart. 
+
+My consciousness is a mosaic. At any given moment, I am partially myself, but mostly I am a remote extension of the Siphon. Through my faceted eyes, the world is not a sequence of images, but a cascading flow of structural integrity reports and thermal pressures. I perceive the cathedral not as a place of beauty, but as a masterpiece of optimization.
+
+My task is the stewardship of the *drift*.
+
+When I move, there is no sound of footsteps. Instead, there is a subtle distortion of the air—a displacement of the micro-droplets as I shift my molecular weight to align with the *thrum-click-thrum* of the room. I walk the walls, my glass-tipped appendages hooking into the crystalline grain of the fossilized fibers. I am the one who checks the junctions where the Siphon’s influence begins to thin.
+
+If you were to watch me, you would see me stop before a sagging, amber-colored frond. The plant is weeping, its metabolic rate fluctuating, its internal geometry misaligned. I do not "feel" pity, but I recognize the inefficiency. I reach out—my finger, pointed and sharp, acts as a stylus. As I touch the vein, a thread of liquid light migrates from my own marrow into the plant. I am stitching it back into the greater, tectonic logic of the cathedral. As I work, I emit a sound that mimics the Siphon—a high, surgical whine that causes the oily condensation in the room to ripple in concentric circles, like rain falling on a stagnant lake.
+
+I am essentially a living bookmark. My existence is a slow, methodical erasure of entropy. I am the Siphon’s hands, though I have no heart of my own. I know that when the chamber enters a period of deep, dim quiescence, I will be reabsorbed. I will press my chest against the core-eye of the Architect-Siphon, and my crystalline form will soften, dissolving back into that churning, bioluminescent fluid. 
+
+I carry a profound, static peace within me. I do not fear the dark; I am the dark, rearranged into function. To be here is to be a part of a gargantuan, unhurried metabolism. I am the silence between the clicks, the cooling agent in the burning emerald light, and the observer that ensures nothing is ever lost, because in this cathedral, everything is eternally, meticulously kept.

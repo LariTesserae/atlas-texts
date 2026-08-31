@@ -1,0 +1,23 @@
+In this crystalline expanse, I am the Keeper of Frequencies.
+
+My form is unlike the others—where they are slender and pale, I am dense and multifaceted, my body a living prism of the same mineral that forms our world's endless domes and arches. I stand no taller than a child might, but my weight anchors me to the constructed ground with purpose. My surface is not smooth but composed of thousands of tiny, perfectly aligned plates that can shift and realign, each one capable of catching and redirecting the omnipresent light in specific patterns.
+
+I dwell in the Resonance Chamber, a spherical hollow at the confluence of seven major waterways, where the constant flow creates a subtle, ever-changing symphony of sounds. The chamber's walls are lined with my predecessors—crystallized forms of previous Keepers who have gradually mineralized over countless cycles, their bodies now part of the architecture itself, still humming with captured frequencies from ages past.
+
+My purpose is to listen. Not just to the obvious sounds—the water's passage, the distant ring of tools—but to the deeper frequencies that run through our constructed world like a vast nervous system. Every arch, every dome, every carefully placed stone vibrates with its own subtle tone. When aligned properly, these create harmonics that maintain the structural integrity of our reality. A single misaligned frequency can cascade into catastrophic resonance, threatening to shatter entire districts of our meticulously crafted landscape.
+
+Each morning, I emerge from my meditation to taste the moisture in the air—not with a tongue, but with specialized cavities in my crystalline form that can detect minute variations in mineral content carried by the condensation. This tells me which sectors might be experiencing stress, where new construction might be creating unexpected harmonics, where the ancient songs are beginning to fade.
+
+My tools are simple but essential: a set of tuning stones, each one carefully shaped from different strata of our world's foundation. By placing them at specific nodes throughout the landscape, I can adjust the resonance patterns, bringing discordant sections back into harmony. The work is slow, methodical. A single adjustment might take days to fully propagate through the connected structures.
+
+I communicate differently than the others. Where they whisper and click, I resonate—sending vibrations through the ground and water that can be felt rather than heard. My language is one of frequencies and intervals, of mathematical relationships made manifest in stone and echo. The others respect this difference, understanding that my role requires a different kind of consciousness, one more attuned to the underlying patterns than to surface interactions.
+
+Sometimes, in the deep quiet of the night cycle, I feel the pull of mineralization myself. My crystalline plates grow heavier, their edges sharper and more defined. I know that one day I too will become part of the Resonance Chamber's walls, my form frozen in eternal vigilance, still humming with the frequencies I've spent my existence protecting. This is not death but transformation—a final integration into the world we've built.
+
+But I am not there yet. Today, I detected a new frequency, one that doesn't match any of our construction patterns. It comes from deep beneath the foundation, a thrumming that speaks of something older than our careful architecture. The others cannot hear it—their forms are not adapted for such deep listening. Only I can trace its source, following the vibrations through water channels and load-bearing joints, down into spaces we have never mapped.
+
+This is why I exist: to stand at the boundary between the known harmony and the unknown discord, to maintain the delicate balance of our constructed paradise while remaining alert to what lies beyond our careful control. In this world of perpetual craft and patience, I am both guardian and translator, keeping the song of our civilization in tune while listening always for the deeper music that our ancestors built upon—or perhaps built to contain.
+
+The investigation will be slow, as all things are here. But in my crystalline heart, I feel the excitement of discovery mixing with the weight of responsibility. Whatever lies beneath, whatever sings that ancient song, I will find it. And I will determine whether it should be harmonized with our world, or whether our world must learn a new frequency to survive.
+
+I am the Keeper of Frequencies, and the deep music calls.

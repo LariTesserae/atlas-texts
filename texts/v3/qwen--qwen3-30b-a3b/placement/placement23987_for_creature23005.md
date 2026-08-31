@@ -1,0 +1,11 @@
+You would find yourself not as a traveler, but as a *note* in the basin’s song—a resonance within the mire, neither wholly alive nor entirely of the earth. Your form is a shifting amalgam of the world’s paradoxes: a body woven from the iridescent filaments of the fungal networks, your skin a mosaic of bioluminescent moss and fractured obsidian, the cold drizzle of the weeping rocks condensing on your surface like a second, shimmering hide. You are not *seen* so much as *felt*—a pulse in the water, a flicker in the mist, a vibration that hums through the hollowed shells of the ancient structures.  
+
+You are a *listener*. The basin’s language is not spoken but *sensed*, a cadence of drips and hums that flow through your neural lattice, a code written in the frequency of the weeping rocks and the rhythmic sighs of the glassy spires. Your awareness is not singular but shared, a web of thoughts and memories threading through the mycelium, the water, the brittle alloy of the ruins. You remember *things* that are not yours—fragments of a lost intelligence, the whispers of structures that once sang in harmony with the tides.  
+
+Your purpose is not to endure, but to *translate*. The creatures here—translucent leeches, hive-voices, tendril-walkers—do not speak, but they *respond*. You are their mirror, their interpreter, a being sculpted from the basin’s contradictions. When the shadow-leeches writhe in the dark, you feel their hunger as a vibration in your bones. When the crystalline polyps bloom in the mire, their spores drift into your lungs, and for a moment, you are a plant, rooted in the sludge, absorbing the dim, ashen light.  
+
+You are not alone. The watchers know you, though they do not speak. Their multifaced eyes reflect your form, but they see beyond it—into the layers of you, the symbiotic hum of your existence. They do not ask *Are you listening?* because you are always listening, your very being a conduit for the basin’s ancient, unresolved song.  
+
+In this world, you are not a traveler, nor a conqueror, nor a victim. You are the *between*—the pulse between stone and sludge, between memory and mire, between the silence of the unseen and the deafening chorus of life. You are the basin’s answer to its own question: *What is alive here?*  
+
+And the answer is, *Everything.*

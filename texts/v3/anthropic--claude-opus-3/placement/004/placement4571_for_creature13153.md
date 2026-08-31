@@ -1,0 +1,13 @@
+In this primordial, claustrophobic world, I imagine myself as one of the pale creatures clinging to the sheer basalt cliffs, my long fingers and toes gripping the rough volcanic stone effortlessly. 
+
+I am perched on a narrow ledge, high above the valley floor, watching the endless bustle of the hive-metropolis stretching out beneath me through massive, unblinking obsidian eyes. The ceaseless roar of life echoes through my bones - the distant shrieks of blind beasts, the rhythmic cracking of flint, the low thrumming songs of my kin. It is not a cacophony to me, but a comforting blanket of vibration that lets me feel the shape and activity of my entire world.
+
+My skin is cool and slick with condensation in the heavy, humid air. Luminous patterns of scars trace abstract geometries across my arms and chest, glowing softly amidst the bruised twilight. I am lean and hardened, muscles coiled like tightly wound springs, ready to launch me across the razor-sharp terrain with liquid agility at a moment's notice.
+
+As I cling to my perch, my hands are not idle. I work a piece of obsidian with a sharpened antler, my fingers moving in a blur, operating on pure instinct. The glassy flakes peel away and fall soundlessly into the abyss below. Crack, crack, crack, I shape the volcanic glass into an exquisitely lethal point, never once glancing at my work. I do this because it is what I am. I am a perfect organic machine, both relentless industry and art.
+
+Around me, pressed close on all sides, my kin move in wordless synchronicity. We flow over and around each other like schools of fish, our slick skin allowing friction-free slides of casual contact. My throat-sac thrums in the shared vibratory song that coordinates our efforts. We need no other language.
+
+When my task is complete, I lock my joints and fall into motionless trance, still clinging to the vertical stone, eyes open and staring. I have no concept of day or night, no fear of the future, no longing for a different world. For a span of timeless moments, I simply cease, conserving precious energy. Then, in a snap, I reawaken. I leap from my ledge, sailing through the purple mist, trusting that my kin will break my fall as I seamlessly rejoin the swarming, humming, endlessly laboring organism that is my people.
+
+I am a child of the deep rift, born to the pulsing heat and deafening roar and viscous shadows. I have never known sunlight, never tasted a breath of wind, never dreamed of climbing out of my jagged womb. This is my universe entire, and in its strictures, I am perfectly and eternally alive.

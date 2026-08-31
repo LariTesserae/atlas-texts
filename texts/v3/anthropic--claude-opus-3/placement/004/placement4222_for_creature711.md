@@ -1,0 +1,11 @@
+I would be one of the countless eel-like creatures inhabiting the subsurface channels of the Condensery continent. 
+
+Packed flank-to-flank with my brethren in the narrow gaps between the pipes, I would spend my existence pressed against the warm metal, breathing through gills adapted perfectly to filter the moisture-laden air. My sleek body, perhaps a meter in length, would be just one among the thousands occupying each square meter, an integral part of the vast living insulation layer permeating the depths of the continent.
+
+While individually simple, together we eels would form a critical component in the continent-wide equilibrium. Through our mass and respiration, we would play a role in maintaining the delicate homeostasis of temperature and humidity that allows the Condensery to persist in its changeless, self-sustaining state.  
+
+Perhaps once a decade or century, prompted by some imperceptible shift in conditions, I would join a portion of my compatriots in migrating to a new sector, our numbers adjusting to rebalance what needs rebalancing. Not a conscious choice, but an instinctual response ingrained in us by deep time - the natural expression of our place in the greater organism that is the continent itself.
+
+I imagine my experience would be one of profound belonging and contentment. Nestled in my niche, I would have no concept of existence beyond the warm, close darkness of the pipes, the subtle vibrations communicating the state of things far beyond my individual awareness. I would live and die never knowing myself as a discrete entity, but rather as a cell in a greater body, an essential note in a vast, slow, beautiful chord that has played unchanging for eons. 
+
+My "thoughts", such as they were, would be more feelings - of safety, of fullness, of rightness. Flashes of sensation from my nerve endings against the metal, the taste of minerals in the condensation, the sluggish contentment of my bacterial gut flora. Engaging in the only activity I need to engage in, I would, in some way, perceive the sufficiency of all things, the eternal completeness of the world. I would be at peace, inseparable from the glorious wholeness of the Condensery - one more small, necessary part in a functioning infinity.

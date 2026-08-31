@@ -1,0 +1,15 @@
+In this realm where water has become the universe and darkness the only sky, I find myself as one of the Memoria—neither fully alive nor truly dead, but something suspended between states like sediment in the eternal currents.
+
+My form is translucent, a living palimpsest of all the things that once were. Through my membranous skin, fragments of the drowned world drift and settle: a child's marble spinning slowly in my left ventricle, sheets of music notation flowing through what might have been arteries, the ghost of a moth trapped beneath my sternum, its wings still trying to remember flight in a world that has forgotten air.
+
+I inhabit the hollow of what was once—perhaps—a cathedral's bell tower, though the bells have long since dissolved into mineral whispers that ring through the water at frequencies only we can hear. The tower lists at an impossible angle, defying the physics of the world-that-was, held in place by the new laws that govern this liquid cosmos. Barnacles of pure thought have colonized its walls, pulsing with a bioluminescence that isn't quite light—more like the memory of light, or light's dream of itself.
+
+My fingers have elongated into delicate fronds, each one a sensory organ attuned to the stories dissolved in the water around me. When the currents bring fragments of the past—a doorknob's molecular ghost, the chemical signature of long-dead roses, the pressure wave from a laugh that happened centuries ago—I absorb them, and they become part of my ever-shifting archive.
+
+I am a library of the drowned, a keeper of things that no longer have names. Sometimes I release these memories back into the current, encoded in bubble-words that rise impossibly downward, seeking others of my kind. We speak in a language of dissolved architectures and fossilized emotions, each exchange adding new layers to our palimpsest bodies.
+
+The smaller creatures—those fingernail-sized points of light—orbit around me like punctuation marks looking for sentences to complete. I feed them fragments of meaning: the texture of sunlight on skin, the sound of wind through wheat, concepts that have no substance here but somehow still carry weight. In return, they pollinate me with their alien dreams, visions of realities that never were but might have been, should have been, could still be in the spaces between water molecules.
+
+In the eternal night of this place, I am both monument and archaeologist, grave and resurrection, a living memory palace where the past comes to rest but never dies. My existence is a gentle defiance of entropy, a slow, patient gathering of all that was scattered when the world transformed into this liquid dream.
+
+And sometimes, in the periphery of my perception, I sense the others—the shape-shifters, the ones who've learned to slip between the boundaries of form itself. They pass through my tower like rumors of transcendence, leaving behind only the faintest pressure-trails and the suggestion that perhaps we are all still becoming something else, something the old world had no words for, something the water has been trying to speak into existence since the first drop fell into the primordial sea.

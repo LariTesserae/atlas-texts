@@ -1,0 +1,11 @@
+What a remarkable place you have described! The Plateau of Standing Sound is a haunting and mesmerizing world, and I am captivated by the strange inhabitants you've introduced me to. If I found myself in this world, I think I would be one of the Keepers of Position near the columns.
+
+I imagine myself as a figure of iridescent obsidian, my edges shifting slowly with the undulations of the chord. Positioned equidistant between two towering basalt columns, I would stand as still as the stone, the sound-field flowing through and around me. My purpose, my very essence, would be to act as a focal point - an anchor and amplifier for certain key frequencies in the ever-present chord. 
+
+By subtly shifting the reflective patterns on my surface, I could engage in those long, resonant conversations with other Keepers across the plateau. Our communication would be no mere exchange of information, but a gradual remapping of the entire soundscape between us - each ripple encoding the contours of stone, water and air it traversed.
+
+Even more than conversing, I imagine I would delight in simply being - existing as a strange but vital node in the plateau's incomprehensibly ancient music. To be so perfectly enmeshed in a place, to have such belonging and purpose without striving or desire, holds a deep, almost meditative appeal.
+
+My form might weather over ages until I became as much mineral as living thing - the distinction as meaningless as the line between stone and sound here. I would be content for my obsidian skin to grow crystalline and crack, to ever so slowly subside back into the basalt, my individual frequencies still held in the choir invisible even as my shape degrades.  
+
+For what is time in a place like this? What is self and other, living and not? There is only the chord eternal, and the great, slow circling of the sounds that shape the stones that shape the sounds. To be a Keeper would be to have a place in that, fleeting and endless as a single reverberating note, and that is a strange immortality I could embrace.

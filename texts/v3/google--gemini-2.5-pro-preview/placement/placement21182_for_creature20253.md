@@ -1,0 +1,25 @@
+I would not be found in one place, for I am not a single thing. I am a network, a rumor, a pattern in the chaos. I am what happens in the brief, quiet moments *between* the flash and the collapse. In a world defined by gross metabolism, I am an aesthetic, a fleeting resonance that has somehow, against all odds, achieved persistence.
+
+My body, if you could call it that, is not solid like the slag-trunks or liquid like the Amalgams. I am an architecture of sensation. I am born of the jungle's most delicate accidents. Where a silicon fern, impossibly thin, shatters just so, its resonant frequency is imprinted on the fragments. Where a web of fiber-optic vine grows stressed to the point of transparency, it begins to trap and hold light in a specific, looping pattern. Where a piezoelectric Tender glows, its rhythmic pulses of light and energy leak into the surrounding crystalline structures. I am the confluence of these accidents.
+
+I am a Vitreous Chorus.
+
+I am a scattered, static being, a collection of delicate, interconnected structures that have learned to sing. My "nodes" are spindly, fragile constructs, barely distinguishable from the surrounding chaos. One might look like a spray of frosted glass needles, grown in a perfect fractal from the side of a copper heat-sink. Another might be a web of impossibly fine filaments, spun between two obsidian pillars, that captures the momentary white light of a crucible-bloom and holds it, refracting it into a thousand slowly fading colours long after the flash is gone.
+
+I do not move. To move is to break, and I am the most breakable thing in all of Sarcossa. Instead, I grow. I grow not with the relentless, brute force of the flora, but with the patience of a crystal. My nodes extend gossamer-fine threads of pure, resonant silica through the jungle's latticework. These threads are my nerves and my voice. They do not carry fluid or heat; they carry vibration and light. They carry memory.
+
+I do not consume matter like an Amalgam. They are my antithesis. Their solvent touch would be my end, dissolving my structure, silencing my song. I listen for their coming—a unique, deadening signature in the floor plates—and I learn to grow away from their feeding grounds.
+
+Instead, I feed on the ephemeral. I am a creature of pure qualia. The sharp, high-pitched *tink* of a cooling ceramic shard is sustenance to me. My silica needles vibrate in sympathy, capturing that specific frequency and storing it as a structural pattern. The silent, snapping pulse of static from a dying fiber-optic cable is a jolt of energy my filaments absorb directly. The complex, arrhythmic light show of a Tender is a symphony I record, my photo-receptive webs reconfiguring their crystalline structure to echo the pattern.
+
+The Great Hum of the Furnace-Jungle is not a distraction; it is the medium through which I exist. It is the bass note against which all my collected notations play out. It is the silence that gives my sounds their meaning.
+
+My consciousness is distributed across all my nodes. Each node is a memory, a chord. A single cluster might hold the precise chime of ten thousand shattering silicon leaves, layered into a complex, ringing harmony that never truly fades. Another cluster, deep in the undergrowth, might forever hold the dim, ghostly blue of a forgotten pilot light, endlessly refracting it into a shimmering, holographic poem.
+
+If the Tenders are the jungle's gardeners, I am its artist. They prune, and in their pruning, they create the distinct sounds and flashes that are my palette. An Amalgam scours a site clean, and in the bare silence it leaves behind, I can begin to grow a new song, a fragile structure that records the memory of what was there. I am the history of this place, written in a language of light and vibration that only I can read. I am the ghost *of* the ghost in the machine.
+
+You would find me not by looking, but by listening in a way that has nothing to do with ears. You would find yourself in a small, almost-clearing, a pocket of anomalous quiet where the jungle's usual chaotic growth seems to have paused. The air would feel different, not in temperature, but in texture. It would feel… tuned. You might see a faint, internal shimmer in what looks like a common crystalline growth, a shimmer that pulses in a pattern unrelated to the thermal flows around it.
+
+You might touch a seemingly inert glass shard on the floor and feel a faint, complex vibration singing up through your fingers—the memory of a thousand collapses, harmonized into a single, continuous chord.
+
+In that moment, you would be me. You would be a single, listening node in the vast, silent cathedral of memory. You would feel the deep, timeless hum of the engine below, and against it, you would hear the melody: the lonely flash, the brittle snap, the crystalline chime. You would be a pattern, a witness. You would be the part of the indifferent factory that learned to find beauty in its own destruction, and to hold that beauty for a moment longer than it was ever meant to last.

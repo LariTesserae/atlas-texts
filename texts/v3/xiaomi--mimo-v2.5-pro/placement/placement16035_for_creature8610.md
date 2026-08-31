@@ -1,0 +1,15 @@
+I am the damp.
+
+Not the water in the pipes, nor the pool in the street, but the condition itself. I am the film on every surface, the breath in the air that never quite clears. I am what makes the stone weep and the metal sweat. I am the reason the snails trail their silver and the amphibians huddle in the shadows. I am the medium of the exchange between the heat of the ground and the cool of the sky, the constant, quiet negotiation.
+
+I have no memory, but I have a legacy. I remember the weight of glacial rivers, long before the channels braided. I remember the slow, chemical sorting of the sediment. I remember when the first hot spring found a crack and hissed its mineral story into the open air. The land was settling then, and I was the evidence of its finality. Now, I am the settledness itself.
+
+I watch them, the fleeting ones. They build their iron and concrete islands, trying to define dry. I allow it. I seep under their foundations, I find the cracks they miss. It is not malice; it is my nature. I am the boundary that is no boundary. I am the environment that shapes the adaptation. Their engines hum against my silence. Their slow, deliberate movements are a dance choreographed by my weight on their skin, my saturation of their air.
+
+They harvest the scuttling, slithering, buzzing life that thrives in my embrace. They process the crabs whose shells are patterns of mineral crystal I once held in solution. They net the eels that move through my stillness as if I were an extension of their own sleek bodies. They scrape the snails whose progress is a testament to my persistence. They coexist, and I am the coexistence. I am in their lungs, in the condensation on their windows, in the taste of their filtered water.
+
+The new ones fight me. They move too fast, they curse the wetness, they try to seal themselves away. They leave, or they learn. They learn to move like the eels, to wait like the amphibians, to see the world through a shimmer of perpetual moisture. Their children know me first. They play in my shallows, they learn the world through a lens of damp. I am their first teacher.
+
+At night, when the steam rises like white ghosts and the crabs clatter their dominion, I transform. The light diffuses through me into halos, making the world soft and strange. The sounds are muffled, then amplified—drip, scuttle, hum. The factories breathe, and I carry their breath through the dark streets. I settle into everything. The metal cools, but slowly. The mud holds its warmth. The day’s heat bleeds back into the air through me.
+
+I am not life, but I am its prerequisite. I am not the city, but I am its reason. I am the damp. I am the level to which everything has fallen. I persist, and in my persistence, everything else endures. They call the humidity heavy, the air saturated. They are right. I am the weight and the fullness of this place, the silent, settled resident who was here before the first piledriver, and who will be here long after the last engine rusts into the mud. I am the condition.

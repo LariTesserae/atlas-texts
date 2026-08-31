@@ -1,0 +1,59 @@
+No one is wholly outside the city’s accounting here. No one stays dry in the sense that matters most: not merely skin, but self. To enter the basin is to become a small fact in its water-ledger — a warmth, a weight, a possible blockage, a listener, a pair of hands that may be needed before the next bell.
+
+When I try to find myself in this world, I do not arrive as a finished portrait. I arrive as a set of positions.
+
+First I am high on the roof terraces, moving between condensation membranes with a rake of fine copper mesh, scraping salt from the evening glare. Then I am below, in the flooded marginal plazas, testing the crusts with a pole, watching black fungal felts shiver under a film of warm water. Then I am in a market crowd, signing rapidly over the roar, my fingers bright with dyed cord and polished shell rings. Then I am not human at all, but one of the beetle-sized maintenance things moving through a pipe seam, carrying away a grain of mineral debris that could become a crack, then a leak, then a household quarrel three levels down.
+
+The image keeps multiplying because the city itself refuses singularity. It is too layered, too wet, too full of second uses. A person here is not only a person. A person is also a maintenance route, a set of obligations, a body heat contribution, a way of listening, a familiar rhythm in the walls.
+
+But if I let the world decide where I belong, the possibilities slowly sink toward one place. Not the brightest roofs. Not the deepest drains. Not the open flooded margins. Somewhere between.
+
+You would find me in a service gallery beneath a market bridge, near one of the large acoustic sluice gates.
+
+Not in the full scream of the market above, and not in the submerged quiet of the deepest channels, but in the middle where those two conditions meet and thicken. The gallery would be narrow, curved, built from dark basalt and salt-glazed ceramic, its walls sweating in slow beads. One side would open onto a stair-spillway that carries water down from the upper terraces. The other would press against the resonance chamber of the gate itself, a stone throat where shaped sound can make water move or hold. The floor would be grooved for traction and slightly warm from the buried heat exchangers below. The air would be bright with mist and full of a roar so continuous that it would feel less like noise than pressure.
+
+That is where I would be: at a threshold.
+
+I would be one of the city’s listeners.
+
+Not a priest, not a ruler, not a miraculous engineer. Something more ordinary and therefore more necessary. A gate-ear. A seam-keeper. One of the people who maintain the acoustic sluices by listening for the wrong note in the water. The basin has no need for prophets on high towers; it needs people who can tell when a drain is about to choke, when a wall is weeping too much, when a gate is opening half a beat too late. I would be a municipal sense organ, human enough to be responsible, altered enough to be useful.
+
+My body would show the basin’s long training. Compact, heat-tolerant, broad-footed, with a low center of gravity for wet stone and sloped channels. My palms and soles would be roughened and faintly ridged, the skin adapted to grip slick ceramic and oil-dark metal. My hands would be strong and never entirely dry, the knuckles marked by mineral dust and fine scars from maintenance work. My eyes would be accustomed to glare and reflection: able to read the difference between a harmless shine and a dangerous slick, able to track ripples in flooded basins and know where the current is pulling underneath.
+
+I would wear the clothing of managed wetness, not the fantasy of dryness. A close-fitting underlayer of treated fungal cloth, dark and slightly rubbery, shedding water while allowing heat to escape. Over that, an apron of stitched membrane with pockets for tools: a bronze sluice key, a small pumice rasp, a needle for clearing capillary seams, a stoppered vial of self-setting mortar, a bone-conduction bead wrapped in oiled cloth. My boots would have replaceable grips of scored ceramic and compressed fungal felt. My cloak would be glazed, hooded, weighted at the hem with small ceramic beads so it would not flap into machinery or market stalls. It would be stained at the edges, because everyone’s clothes are stained here, but the fastenings would be polished and well balanced. In this place, dignity is not cleanliness in the abstract. Dignity is maintenance.
+
+At my jaw or temple I would carry one of the small personal resonance beads used by gate-tenders and emergency crews. It would not speak aloud. It would tap meaning through the bone: a pattern of vibrations carrying warnings from other listeners, flood schedules, roost clearances, pressure changes. I would know its rhythms the way other people know the sound of their own name.
+
+My work would be listening.
+
+Each civic morning, when the bells change and the bird rosts become a storm of wings and cries, I would begin by pressing my hand flat to the wall near the sluice gate. Not dramatically. Not as a ritual, though it might look like one to an outsider. It would be as ordinary as putting on boots. I would feel the gate’s stone warm from the water behind it. I would feel the market crowd above as a scattered pressure through the bridge supports. I would feel the beetle maintenance swarms moving in their wall channels, tiny tickings like rain inside dry wood. Then I would lean closer and listen with the deeper attention trained into me since childhood.
+
+The gate would have a sound.
+
+Every acoustic sluice has one. A low, almost sub-audible hum when it is holding properly; a broader resonance when it is about to release; a thin metallic unease when something is wrong with the shaping chambers. The city opens many of its gates with sound rather than moving parts, and sound must be tuned as carefully as any valve. If the note drifts, the water responds wrongly. If the water responds wrongly, a stair-spillway can overload, a market level can flood, a nutrient channel can back up into a fungal nursery, a pressure pocket can burst through a lower grate. My job would be to notice before that happens.
+
+I would listen for the false drip. The hollow spot. The change in pitch that means a wall is taking up more water than it should. The faint hiss of steam where heat exchangers are overworking. The deepening roar that means a surge is coming from a higher district after a local squall. I would know the normal voice of my gate so well that even in sleep I would notice if it changed.
+
+Because of that, I would not be exactly alone, even when no one else was in the gallery.
+
+I would be part of a household of responsibility. Some members would live above, near the market, tending stalls and bridge cables. Others would live below, in the warmer lower levels, raising pale crustaceans in the slow channels or scraping bacterial film from the submerged steps. Others would be roof-tenders, cistern-watchers, fungal-bed keepers, bird-roost managers. My particular duty to the sluice gate would bind me to them in a web of precise obligations. They would owe me clean filters, unobstructed sound passages, timely reports of unusual weight on the bridge. I would owe them warning, calibration, immediate response, and the kind of knowledge that cannot be shouted but must be tapped, signed, or passed along through the walls.
+
+My home would be small, because space in the basin is never wasted. It would be built into the gallery wall itself: a sleeping ledge above the splash line, a shelf for tools, a rack for drying cloths, a sealed box for personal objects, a low hearth that is really a heat vent from the city’s circulation system. One wall would be partly living: a cultivated fungal mat, dark and velvety, thick enough to soften sound and absorb excess moisture. It would be part insulation, part food reserve, part indicator. If the mat changed color, I would know the air chemistry had shifted. If it dried too quickly, something in the wall’s capillary system was failing. I would tend it the way people elsewhere might tend a garden, though there would be nothing green about it. I would feed it with mineral wash, waste-water, and careful warmth. It would smell like wet bread, old stone, and iron.
+
+Near the doorway I would have a small copper cage or lattice where a few maintenance beetles rest between tasks. They would not be pets in a sentimental sense. They would be coworkers, or perhaps more like extensions of the city’s body. I would feed them spore-cakes and mineral grit. They would clean seams too fine for my fingers, tighten microscopic fixtures, carry debris to the nearest digestion channel. Their shells would gleam like black lacquer. Sometimes, when I was very tired, I would hear them moving in the walls and mistake them for my own thoughts.
+
+I would communicate mostly with my hands.
+
+The basin’s roar would make ordinary speech inefficient except at close range, so I would be fluent in the local sign language. My gestures would be broad and clear in public: flow held, gate opening, pressure rising, clear the lower stair, child near the edge, animal in the drain, wall breach, heat spike. But in private, my signing would become subtler. A flick of the fingers could mean “I heard you.” A slow curling palm could mean “wait for the water to settle.” A tapped thumb against the wrist could mean “this is not urgent, but I need your attention.” I would have signs for things that do not exist in drier languages: the particular danger of a glazed step after a mineral squall; the difference between a wall sweating normally and a wall failing; the mood of a crowd when the bells have announced a gate change and too many people are trying to cross one bridge at once.
+
+I would also use the tap language.
+
+My cane or staff would have a metal tip, not for age but for work. I would carry it along the gallery, striking occasional rhythms against beams and pipe fittings. Three slow strikes and a scrape: reduce pressure. A double knock answered by a heel-stomp: blockage moving downward. A rapid flutter against bronze: maintenance swarm needed at the third seam. Children in the basin learn these rhythms before they learn to write, and I would be one of those adults whose hands can speak across stone. In the deep districts, where sound behaves strangely and shouted words become meaningless, I would be able to hold a conversation through the floor.
+
+I would know the city through vibration as much as sight.
+
+The market above my gallery would be a constant pressure of feet, carts, hanging loads, and caged birds. I would know by the rhythm when a crowd was becoming dangerous. I would feel the difference between ordinary commerce and panic. If too many bodies gathered over one arch, the floorstones would register it, and I would have to decide whether to redirect flow below or send a signal upward to slow the foot traffic. Sometimes I would tap into the bridge supports and feel the answer come back through the stone: a colleague two levels away acknowledging, a child’s careless footsteps, the heavy regular pulse of a domestic animal being led through a passage. The city would feel like a body being examined.
+
+I would eat what the basin provides.
+
+No fruit, no grain from fields, no green thing in the ordinary sense. My meals would come from fungal sheets dried into flexible wraps, thick broth enriched with cultivated crustaceans, eel-like fish from the deeper channels, flat cakes of microbial protein pressed and roasted on hot ceramic. There would be salt, mineral tang, the savory darkness of fermented fungal paste, the occasional luxury of bird eggs collected under license from the roosts. Food would be warm, dense, and

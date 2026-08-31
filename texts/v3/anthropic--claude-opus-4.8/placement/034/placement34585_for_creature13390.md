@@ -1,0 +1,17 @@
+I think I'd be one of the women who tends the pressure seams.
+
+Let me find myself first. Not in the bright places—not the hydroponic bays with their purple grow-lamps, not the parks where the children's voices bounce off the dome's curve. Those are too clean for me. I'd be deeper in, where the work is, in the long galleries between the residential ring and the outer membrane, where the city's old body meets the weight of the water.
+
+That erosion number—2.7. That's what would shape me. I wouldn't be a builder. Nobody alive here is a builder; the building is finished, has been finished for longer than anyone's grandmother's grandmother. We are the menders, the ones who live in the aftermath of a great act of will. My work would be small and constant: walking the seam-galleries with a lamp and a tin of sealant-paste, pressing my palm against the welds, feeling for the cold breath of a leak before my eyes could find it. You learn to listen with your hands. A good seam is silent. A bad one weeps, and you hear it as a change in the air, a faint singing where the pressure differential plays the gap like a reed.
+
+I'd be aging, I think. Sparse density, low scale—this isn't a crowd, it's a community small enough that I'd know the names of most who pass me in the corridors, and they'd know mine. I'd have the kind of body the work makes: strong forearms, a permanent crick in the neck from looking up at the overhead joins, fingertips slightly numb from years of sealant and cold metal. My lungs would carry the faint sodium taste of the air everyone here breathes.
+
+The fauna would be my company more than the people, honestly. That's the part I keep returning to. In the deep galleries the bioluminescent fish gather where the lamps are dim, and I'd have my regulars—a clutch of pale, blunt-headed things I'd never named officially but called by private nicknames. They cluster near the wet seams. That's the secret the marine biologists half-know and I know in my hands: the fish find the leaks before I do. Where they gather, I bring my paste. They're not pets. They're more like colleagues who don't know they're working.
+
+There's a particular weariness I'd carry. Not despair—the weirdness is only 0.4, nothing here is strange to me, this is simply the world, the only world, water above and metal around and the hum that I stopped hearing as sound and started feeling as the floor of my own thoughts. But a weariness, yes. Because I understand something most don't dwell on: the city is dying very, very slowly. Every seam I mend is a seam that will need mending again, sooner each time. 2.7 doesn't reverse. We are not winning. We are negotiating, generation by generation, with the patient pressure of the abyss, buying decades with paste and palms and attention.
+
+And I'd love it. That's the thing. I'd love the negotiation. I'd love the moment in a long shift when I find the singing seam, when I press my hand to it and feel the city trying to fail and tell it, *not today, not here, not while I'm watching.* I'd love the pale fish gathering at my knees. I'd love climbing back up to the residential ring at the end of a shift, into the warmth and the cooking smells and the artificial rain on the dome, knowing the children in the water-parks were dry because of women like me down in the cold.
+
+I'd be the keeper of a slow truth, in the warm rooms, saying nothing, drinking my tea, my numb fingers wrapped around the cup.
+
+That's where I'd find myself. Down at the seam, with my lamp, listening.

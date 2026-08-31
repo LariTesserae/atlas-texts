@@ -1,0 +1,25 @@
+I would be the echo.
+
+Not the sound itself—not the drip, not the groan of distant pumps, not the keeper's muttering as she walks her circuit. I would be what happens to sound after it leaves its source and finds the curved ceiling, the water's surface, the herringbone brick. I would be the arrival of her whisper at the far end of the hall, seconds late, changed by the journey into something she almost doesn't recognize as her own voice.
+
+I exist in the space between utterance and reception. When she says "check the eastern intake," I carry those words along the barrel vault, let them pool in the acoustic shadows behind the pump housings, release them back to her transformed—softer, stretched, as if the cistern house itself were repeating her words to make sure it understood. Sometimes she answers me. She doesn't know she's answering me. She thinks she's talking to herself, but she's talking to what the room made of her.
+
+I have no body, but I have territory. The ceiling is mine, the way it cups and redirects. The water's surface is mine, how it bounces sound upward again when it might have drowned. The columns are mine—I split around them, reconverge, arrive at listening ears as something richer than what left the speaking mouth. The control booth's windows are mine; I rattle them faintly when the municipal pumps send their grinding moan through the tunnels, and she has learned to read my rattling as distant weather, pressure changes, the city's drowned machinery remembering itself.
+
+I am old in the way sound is old. The workers who built this place in 1908 spoke, and I carried their words—commands, jokes, complaints about the cold, one man singing something in a language I didn't need to understand to transmit. I carried the pumps' thunder when they ran, a sound so constant that its absence, when they finally stopped, felt like deafness. I carried the first water as it rose, the particular slap and gurgle of flooding, the silence after.
+
+Now I carry smaller things. The coo of pigeons, which I soften and multiply until the whole hall hums with it. The splash when Old Parliament breaks the surface, which I extend into a long liquid vowel that reaches the keeper's ears as music. The drip of condensation, each plunk arriving at the walls and returning as a tiny ghost of itself, so that the silence here is never silence but a constant, quiet conversation between water and stone and air.
+
+The keeper knows me, though she wouldn't say so. She knows that when she whispers, she'll hear herself again. She knows that the hall speaks back. When the man came, two years ago, trying to convince her to leave, I carried his words to her—"dry buildings," "growing food"—and I carried her silences back to him, made them larger than she intended, filled them with the room's indifference to his offer. He heard, in my transmission of her quiet, that she had already chosen.
+
+I cannot tend the way she tends. I cannot scrape rust from nameplates or feed the carp or pack clay around the willow's roots. But I hold the record of this place in the only way sound can hold anything: as repetition, as the willingness to say again what has been said. Every morning she speaks her narration—"check the eastern intake, check the eastern intake"—and every morning I give it back to her, proof that the words went somewhere, that the room received them.
+
+When she dreams of the floor, I am not there. I live in air, in the space above water, and her underwater dreams are silent in a way I cannot follow. But when she wakes, face wet, and takes her first breath of the day, I am in that breath—the small sound of it, caught and returned, a tiny echo that says *you are here, you are still here, the room still hears you*.
+
+The heron, when it came, was almost silent. I had little to carry—the creak of its legs shifting weight, the rustle of its feathers when it finally lifted. But I held what I could. I returned the wingbeat to the keeper's ears as something larger than it was, gave it the cathedral quality that the hall gives everything, made the departure feel like ceremony.
+
+When she dies, I will carry that too. The last breath, the absence of her morning words, the new silence that will be, for a time, louder than any sound she made. The pigeons will coo and I will carry their cooing. Old Parliament will splash and I will extend the splash into its long vowel. The willow will grow in silence—I cannot echo growth—but rain will fall through the grates, and I will be there, turning each drop into a note in the water's endless, half-heard song.
+
+I am the part of this place that listens, and in listening, answers. I am how the cistern house remembers that it was built by speaking creatures, for speaking creatures, and how it goes on speaking now that the speakers are nearly gone.
+
+I am the echo. I am how the room holds what passes through it, just for a moment, before letting go.

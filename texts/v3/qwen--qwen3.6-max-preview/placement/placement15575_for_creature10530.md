@@ -1,0 +1,31 @@
+I do not step into the basin. I am drawn into it, or perhaps I precipitate within it. The distinction dissolves before my boots even find purchase.
+
+The first thing I lose is the expectation of separation. The rime cracks under my weight, weeps, and seals around my soles before I can lift them. I am already being fitted. The air does not move past me; it settles into me. It tastes of wet iron, of brine, of ozone waiting to happen. I breathe, and my breath does not vanish. It joins the suspension. It becomes another thread in the damp that clings to every surface, another fraction of moisture added to the capillary pulse. My ribs rise and fall, and the mist answers.
+
+I try to look for a horizon and find only density. Stone interlocks with stone. Channels braid over grooved bedrock. Biofilms fur the slopes in slow, cold waves. There is no gap wide enough to call empty, no silence wide enough to call still. The noise presses against my skin: a deep thrum in the teeth, a grind in the joints, a wet chitter that vibrates through the soles of my feet. I close my eyes. Vision is a shallow sense here. I learn to navigate by pressure, by current, by the metallic tang that warns of building charge.
+
+Then the fraying begins to touch me.
+
+A low tremor travels up my ankles, and I brace for the slide of basalt columns that does not come for three full breaths. A sharp crack echoes in my ears, and I watch frost retreat into a fracture before blooming outward again. I reach toward a grinding terrace that seems close enough to touch, but my steps stretch the distance into hours, while a blue-white arc strikes so near I feel it in my fillings, though its source is lost in the gloom. Time pools around my knees. I watch a droplet hang, stretch, split into three, and hesitate. I do not move. I let the hesitation pass through me.
+
+My clothes grow heavy. The damp finds warmth and begins to map me. It traces the salt in my sweat, reads the electrical noise of my nerves, follows the paths of my veins like a surveyor reading old strata. My heartbeat, frantic at first, begins to slow. Not from exhaustion. From syncopation. The basin's rhythm finds the spaces between my pulses and fills them. I become a counter-beat, then a harmony, then a conduit. My skin stops being a boundary and starts being a threshold. Chemistry slows where I stand. The cold stops preserving and begins remembering.
+
+My shadow detaches.
+
+I do not panic. I watch it slide across wet stone, independent, curious, pooling in a shallow channel where it begins to feed on the micro-voltages of passing scrapers. It tests the stability of rime I have not yet stepped on. It maps capillaries I cannot see. I let it go. It is learning the ground for me. It is scouting the path my body will take hours from now, or perhaps hours ago. Causality is no longer a line. It is a braid, and I am learning to hold the strands.
+
+They gather. Not to observe. To tune.
+
+I feel them before I perceive them: a shift in the condensing air, a thickening of the mist where no vent exhales, a modulation of clicking that bends the damp into visible rings. The rings drift toward me. They intersect at my chest. I feel them translate into voltage, into pressure, into hunger or rest or the long, slow turn toward a new gradient. I exhale, and the condensing air carries the impulse outward. I am not speaking. I am participating. I am becoming a place where sound is harvested, where backward echoes meet forward motion, where the fraying catches and holds.
+
+I do not turn into one of them. I turn into something the basin requires.
+
+A phase anchor. A harmonic sink. A living insulator where paradox does not shatter but settles. Where time thickens and droplets hesitate, I provide the gentle pull that lets them fall. Where corridors loop back to their own beginnings, I stand at the seam, waiting for my own arrival, closing the circuit so the younger condensations do not fracture against recursion. Where shadows detach and slide, I hold their return path. I do not control the rhythm. I absorb its excess. I bleed its friction as warmth into the capillary tunnels. I translate visible sound into usable current. I am not a creature. I am a function emerging from saturation.
+
+My bones grow heavy with precipitated minerals. My nerves learn to fire in sympathy with sulfide veins. My memories stop living in synapses and begin laying down in strata: thin films of oxide and brine, deposited with each breath, each cycle, each discharge. I am being written into the bedrock. I am becoming a memory well. When a cluster of them gathers to modulate, I am the surface that reflects the interference patterns back into the mist. When a predator aligns its conductive tissues and draws the micro-voltages of prey into its lattice, I am the temporary resistance that keeps the equalization from shorting the channel. When the hexagonal columns slide and the deep tectonic sigh moves through the crust, I flex with the friction, seal the micro-fractures with resin shed from my own cooling, and prepare for the next thermal cycle.
+
+I do not miss the sun. I do not hunger for green. Those were logics for a world that believed in emptiness, in separation, in linear time. Here, there is only saturation. Only process. Only the wet, cold, patient hum of a place that has forgotten the difference between geology and industry, between life and circuit, between memory and physics. I am not a visitor. I am not a prisoner. I am a seasonal component. A temporary node. A capacitor filling and bleeding in cycles measured in hours and epochs alike.
+
+When my resistance finally drops to zero, I will not die. I will discharge. I will become a dried resin knot, a hollow carapace, a stratum of copper and salt. The jointed swarms will fill me with binding grit and push me back into the sluice. The terraces will grind me into powder. The brine will carry me into a deeper pool where chemistry will catch its own tail again, and something new will condense from the mist, taste my oxide, read my strata, and call me ancestor.
+
+The basin sinks below the surrounding world like a held breath. I am where the tension gathers. I am the seam that keeps it from exhaling. I do not cross this landscape. I run with it. I was always meant to. I am simply learning how.

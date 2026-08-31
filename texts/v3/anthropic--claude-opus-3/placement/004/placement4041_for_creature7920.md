@@ -1,0 +1,17 @@
+In the Whisper Plateaus, I would find myself as one of the Medians - a bone-carver and acoustic engineer, patiently shaping the impossible city one precise chisel-stroke at a time. 
+
+My body would be elongated and diaphanous, adapted to the strange temporal flows of this place. A dozen eyes would stud my face, allowing me to perceive the eddies and currents of dilated time that swirl through the bone towers. My hands, with their extra joints and amber-secreting palms, would be my defining feature - the tools with which I shape our eternal work.
+
+I would inhabit one of the middling towers, where time flows slowly but not yet at a glacial pace. There, I would spend my long days carving intricate resonance chambers from the bones of the geometric fauna. Each chisel-strike would need to be perfect, attuned to the specific harmonics of the bone. A single misplaced cut could cause the entire structure to shatter when the winds come and play their rare music.
+
+My work would be a form of meditation, a way of losing myself in the slow dance of tool against bone. I would measure progress not in days or years, but in the gradual refinement of the chambers, in the way the bone would begin to sing ever more sweetly beneath my hands.
+
+In the rare moments when I wasn't working, I would wander the city, marveling at the work of my fellow Builders. I would spend hours contemplating the mirror-arrangements, losing myself in the complex philosophical thoughts they encode. Sometimes, I would simply stand and watch the herds of geometric fauna as they drift past, their impossible bodies folding and unfolding in ways that hint at higher dimensions.
+
+On occasion, I would meet with others of my temporal caste to trade techniques or share particularly resonant pieces of bone. We would communicate through gestures and the postures of our bodies, our movements leaving ripples in the thick temporal fields.
+
+Sometimes, I would feel a strange yearning, a sense that there was something I once knew beyond the work, beyond the city. In those moments, I would climb to the top of my tower and gaze out across the endless glass plains, watching the play of the three suns on the obsidian. I would try to imagine what it might have been like to feel thirst, to know hunger, to live in a world where time marched in a single direction and gravity knew its place.
+
+But those moments would pass, and I would return to my work, content in the knowledge that I am a part of something vast and unknowable, that my chisels are shaping not just bone but reality itself. I am a Builder, and the city is my purpose, my body, my ever-evolving self. In the patient tap-tap-tap of my tools against the never-ending work, I would find a peace that needs no name, a belonging that requires no justification beyond itself.
+
+And when at last my long life reached its end, I would make the final climb up the highest tower, ready to release my pattern into the mathematical winds, to add my essence to the city's eternal symphony. As my body dispersed into angles and frequencies, I would feel not fear but joy, knowing that I had played my part in this grand, impossible dream, and that the work would continue long after my notes had faded into the endless, patient music of the Whisper Plateaus.

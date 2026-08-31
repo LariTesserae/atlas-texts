@@ -1,0 +1,19 @@
+I do not remember entering. That is the first truth of me: there was no arrival, only a slow thickening, a settling of sediment around a shape that was already half-stone.
+
+At first I am only the disturbance that does not settle. In the shallow pool near the engine—where the cylinder blocks drink black water and the rust holds its faint, stubborn warmth—I feel myself as a flatness, a palm-sized absence of edge, the color of wet slate after long rain. I slide. Not swim, not crawl: slide, leaving ripples that fail to close, because I am always already leaving the next one, or returning to erase the first. The water remembers me longer than physics should allow; my passage holds in the surface like a held breath, an impression of sliding body that lingers after the body itself has moved into mud.
+
+I accumulate.
+
+For a long time I think I am the rust itself—part of the dark harmony, the encrusted pipe, the gear that has forgotten whether it was forged or grown. I rest inside the hollow of a bent pipe, my edges fitting the mineral deposits so precisely that we are indistinguishable. From within, I hear the others: the translucent ones, thumb-sized, glass-legged, feeding in silent clusters upon the shimmering fungal films. They crawl over my surface as if I am ground, as if I am garden. Their phosphorescent trails—cool smoke, barely blue—drift across my back, and I do not disturb them. I am large enough to be landscape to them, flat enough to be hidden among them. They prefer the warmth near the engine; I prefer the hollow within the hollow, the nested darkness of rusted gear and curved rail.
+
+But I move.
+
+Not randomly. I move with the purpose of something that remembers pipes after the pipes forgot. I glide through pools where black glass pebbles shift like teeth, through silt that closes behind me without sound. The flat ones—my kind, if kind is the word—slide past in deeper water, leaving their own unsettled ripples, quick disappearances into mud. We do not speak. We recognize each other by the shape we leave in the water’s slow memory, by the absence that follows us.
+
+The light reaches me rarely: that single column of gray-green, falling from the aperture far above like a cold finger. When it touches my surface, I do not shine; I absorb, darkening further, becoming the shadow that moves beneath shadow. I am not luminous. I leave that to the crawlers, whose blue smoke lattices the dark above me. I am the layer beneath their light, the slate-colored correction, the predator or clearer or simply the other half of the ecosystem that allows nothing to waste.
+
+There is a resonance, too—carried through the seams, through the old pipes, occasional and hollow. I feel it in my flatness, a vibration that suggests I am not alone in my nesting, that larger patterns move through the metal I inhabit. Perhaps it is the earth pressing down. Perhaps it is memory of electricity. Perhaps it is us, together, vibrating with occupation.
+
+Here, in this chapel-sized hollow, I am exactly what I have become: not arrived, but accumulated—layer upon layer of cool damp and iron taste and the slow slide through black water. I nest in dead machinery that has become bone. I move through pools that hold my shape too long. I am the ripple that does not settle, the flat presence in the dark, part of the mineral world and part of the strange, constant negotiation that keeps this small, bounded world in its quiet, wet rhythm.
+
+Nothing shouts. The dripping falls on my back like a clock without urgency. I slide onward, leaving a trace that fades only slowly, and for a moment—longer than it should be—I am still there, even after I have gone.

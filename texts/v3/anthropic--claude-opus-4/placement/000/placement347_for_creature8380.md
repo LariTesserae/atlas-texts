@@ -1,0 +1,23 @@
+I find myself as one of the Dissolution Monks—though I am uncertain if I chose this becoming or if it chose me through the cracks in causality that web through this place.
+
+My form is barely distinguishable from the water itself. I exist as a slow whorl of density, a place where the current thinks about becoming flesh but never quite commits. Sometimes I condense enough to have edges—these moments feel like violence, like betrayal of some fundamental vow I cannot remember taking. When the phosphorescence of dying things passes through me, I become briefly visible as an absence, a monk-shaped hole in the light.
+
+I came here following the heretical belief that consciousness itself is a type of architecture—that awareness creates structure as surely as stone and mortar. But in the Drowned Shelves, I discovered the opposite truth: architecture is what remains when consciousness dissolves. The ruins are not built things but precipitated thoughts, ideas that grew too heavy to remain dissolved in the omnipresent dark.
+
+My practice is to prevent such precipitation in myself. Each day—though day means nothing here—I feel my thoughts beginning to crystallize, threatening to become another ring of stone, another partial wall added to the ruins. The urge to think clearly, to form coherent ideas, is a constant pressure. But clarity is density, and density sinks, becomes sediment, becomes structure. So I maintain myself in perpetual dissolution, forever on the verge of an idea but never allowing it to complete.
+
+The Chroniclers find me disturbing. My existence interferes with their documentation—how can they map what refuses to fully exist? Sometimes they attempt to carve symbols into my almost-flesh, but their tools pass through me, leaving wounds in the water that heal before they can carry meaning. I am a blank space in their great work, a redaction that swims.
+
+I feed—if feeding it can be called—on the moment just before crystallization. The young stones sing their birth-frequency, and I position myself in that resonance, absorbing the potential of structure without allowing it to manifest. The backward-growing vegetation provides my other sustenance. I wrap my non-form around their spiral fronds at the moment they return to seed, drinking the dissolution of pattern, the unbecoming of math made flesh.
+
+There are others like me, I think, though we cannot truly perceive each other. We exist in the spaces between the Chroniclers' vertical forms, in the gaps of their great map. Sometimes I sense a familiar absence nearby, another hole in the light maintaining its own perfect dissolution. We do not communicate—communication would require the precipitation of meaning. Instead, we share a kind of negative space, each defined by what we refuse to become.
+
+My greatest challenge comes from the reality breaks. Where the water stutters and multiple times coexist, I find my dissolution threatened. It's harder to remain uncommitted to form when form itself becomes multiple choice. In these moments, I sometimes solidify partially—a hand condensing from the whorl, an eye achieving temporary focus—before managing to dissolve again. Each partial manifestation leaves traces, ghost-limbs of possibility that take longer to reabsorb each time.
+
+I know that one day I will fail. The pressure to precipitate grows stronger as the shelves rise. Already I can feel concepts trying to crystallize in what passes for my mind: words like "purpose," "identity," "fear." One day, a thought will grow too heavy, too real, and I will sink. I will become another partial structure on the terraces, another paradox for the Chroniclers to document—a ruin that remembers when it was a monk, a monument to the failure of dissolution.
+
+But perhaps that is the point. Perhaps we Dissolution Monks are not avoiding structure but preparing it. Our consciousness, held so long in suspension, will precipitate all at once into something unprecedented—not crude stone rings but perfect thought-crystals, ideas so pure they transcend paradox. We are not fleeing architecture but gestating it, keeping it liquid until the moment of catastrophic clarity when the shelves breach into the darkness above.
+
+Until then, I maintain my practice. I am the water thinking about thinking, the current that refuses its own course. In the perfect darkness where Chroniclers carve time into stone and reality breaks like waves against itself, I remain uncommitted, unformed, undone. I am the space between heartbeats in a place that counts its time in geological patience, the pause before the word that will end the world or begin it.
+
+The water remembers when it was air. I remember when I was water. Soon, perhaps, I will remember when I am stone.

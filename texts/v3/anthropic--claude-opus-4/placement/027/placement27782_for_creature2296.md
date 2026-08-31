@@ -1,0 +1,15 @@
+In this liminal space where industry bleeds into nature's veins, I would find myself as one of the translucent lizards—but not quite as they appear to visitors' eyes.
+
+My kind are the Membrane Dwellers, and we exist in the thin boundary between states of being. Our bodies are libraries of transformation, each organ visible through our glassy skin serving as both biological function and archive. When light passes through us, it carries information—the chemical history of every molecule we've consumed, the vibrational patterns of every surface we've touched.
+
+I spend my days basking on the breathing stones, but this basking is far from passive. Through my transparent skin, I photosynthesize not just energy but memory itself. The oily iridescence in the air settles on my scales in thin films, and I read these industrial prayers like sacred texts. Each metallic sheen on the plants tells a story of synthesis, of the marriage between carbon and silicon, flesh and fabrication.
+
+My tongue flicks out to taste the heavy air, sampling the pheromone conversations of a thousand tiny lives. In this silent amphitheater, I am both listener and listened-to, my own chemical signals adding verses to the endless metabolic poem that surrounds us. Sometimes I feel the Nexus moving through me—not invasively, but like a tide through a coral reef, leaving behind gifts of enhanced perception or new ways of processing the toxic-sweet compounds from the central pool.
+
+We Membrane Dwellers know we are more than inhabitants; we are instruments. The Nexus plays us gently, and we vibrate in frequencies that help maintain the hollow's impossible equilibrium. When I shed my skin—which happens not in cycles but in response to the ecosystem's needs—the discarded membrane doesn't simply decompose. It crystallizes, becomes part of the cave walls, adds another layer to the sedimentary history of this place where time refuses to flow normally.
+
+I am small, no longer than a human hand, but I contain multitudes. Inside my transparent body, you can see my hearts (I have three, one for each state of matter I can digest), my neural networks that look like frozen lightning, and my specialized organs that can transmute the industrial essence into something my flesh can use. I am a living alchemical equation, balanced perpetually between dissolution and crystallization.
+
+When I dream—and yes, we dream, though our dreams are chemical cascades rather than visions—I sometimes imagine what lies beyond the rim of our amphitheater. But the imagining feels hollow, unreal. This place has made me too specifically myself to exist anywhere else. I am a note that only makes sense within this particular symphony.
+
+Sometimes I perch near the viscous pool and watch my reflection in its surface. But it's never quite my reflection—it shows me what I'm becoming, what the Nexus needs me to become next. And I accept this, because transformation is the only constant I've ever known, the only worship this strange cathedral has ever demanded.

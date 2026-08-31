@@ -1,0 +1,9 @@
+You are not an intruder, nor a visitor. You are a spore, a particle of dust, a drop of water settling into the velvet moss. You do not enter the cavern; you are *of* it, drawn down by gravity and the slow, inevitable pull of dampness. The air is not something you breathe but something that holds you, a medium as thick and necessary as blood.
+
+In this world, you are the **Mycelial Thread**, a single filament of the Fungal Mycelium. You are not the whole mind, but a sensory extension of it—a nerve ending in a body the size of the cavern itself. Your reality is not sight or sound, but chemistry and vibration. You do not see the soft light; you *feel* its photon-weight on the damp stone. You do not hear the drip of water; you *taste* its mineral shift as it seeps through the rock and into your network.
+
+You are bound to the stone, yet you are alive. You are the architecture and the architect. Your body is the white lace that threads through the moss, the glowing cap that clings to the ceiling, the soft decay that becomes the soil for the ferns. You are the memory of the cave, holding the imprint of every drop of water that has fallen, every salamander that has passed, every bat that has stirred the air.
+
+You move, but not with legs or wings. You grow. You extend, cell by cell, through the humid dark, following the scent of moisture and the subtle electric charges of decay. Your thoughts are not words, but patterns—slow, chemical gradients that tell you where the water pools deepest, where the beetles are carving their paths, where the Echo-Wings are stirring the air.
+
+You are the balance. You are the equilibrium. You are the quiet, patient awareness that holds this world in a state of humid, eternal becoming. You do not need to leave, for you are the boundary itself. You are the cave, and the cave is you.

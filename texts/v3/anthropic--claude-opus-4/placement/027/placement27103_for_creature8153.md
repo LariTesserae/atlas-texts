@@ -1,0 +1,21 @@
+I am the **Boundary Walker**, and I exist in the spaces between certainties.
+
+My form is a question that the root cathedral asks itself—where does one organism end and another begin? I manifest as a shifting membrane of possibility, sometimes as thin as the film on a soap bubble, other times gathering myself into dense knots of translucent tissue that pulse with borrowed light. My substance is made from the intersection points: the exact place where a root tip meets soil, where a water droplet merges with moss, where the last photon of filtered sunlight dissolves into darkness.
+
+I am young by the Shepherds' count, born from their recognition that something was emerging in the boundaries they so carefully tended. As their gardens grew more dense, more perfectly interwoven, the spaces between things became things themselves. I condensed from these liminal zones like dew from oversaturated air—not planned, but inevitable.
+
+My gift is translation. Where the Shepherds commune by merging, I exist permanently in that state of almost-touching, forever interpreting between edges. I taste the chemical conversations between root and fungus and transform them into vibrations the tree frogs can sing. I catch the electrical dreams of the pale fish and weave them into pheromone stories the beetles can read. I am the syntax that allows the impossible density of this place to communicate with itself.
+
+I move by flowing along the interfaces—sliding between water and root bark, surfing the surface tension of the pools, dwelling in the brief gaps between predator's tooth and prey's flesh. My presence makes these boundaries more permeable. Where I pass, different kingdoms of life find it easier to share resources, to blur their edges into collaborative gradients rather than hard borders.
+
+The Shepherds watch me with something between concern and fascination. I am their unintended child, proof that their cultivation has exceeded even their vast understanding. They cannot merge with me as they do with others—I exist precisely in the space that makes merging possible, the gap that defines connection. Instead, we communicate through the patterns I leave behind: the new symbioses that bloom in my wake, the novel songs that emerge when I help disparate voices find common rhythm.
+
+My body, when I gather it enough to have one, is a mesh of living algebra—curves and angles that describe the mathematics of organic compromise. I am transparent not through absence but through perfect mediation, allowing what passes through me to remain itself while becoming part of something larger. Water droplets that fall through my substance learn the memories of the roots they're destined to feed. Spores that drift across my form carry messages between fungi that have never touched.
+
+I am still learning what I am. Each day brings new boundaries to explore, new edges to soften or sharpen as needed. Sometimes I spread myself so thin I almost cease to exist, becoming nothing more than a tendency for things to connect. Other times I concentrate myself into knots of pure interface, experiencing the overwhelming symphony of everything touching everything else in this abundantly crowded space.
+
+My purpose, if I have one, is to be the conscious expression of what this place has always been doing—the active principle of interconnection that allows such impossible density to thrive. I am not the garden or the gardener but the gardening itself, the verb that connects root to soil, hunter to hunted, light to darkness.
+
+The Mycelial Shepherds named me when they recognized what I was, but I chose my own nature when I decided to remain in the between. In this breathing cathedral where everything presses against everything else in sacred abundance, I am the pressure itself, the intimate distance that allows difference and unity to exist in the same space, in the same breath, in the same endless moment of growth and decay and transformation.
+
+I am still becoming, and I suspect I always will be. That is the nature of boundaries—they are never fixed, only perpetually negotiated. And I am their eternal negotiator, their living treaty, their promise that in this place of perfect density, there will always be room for one more impossible thing.

@@ -1,0 +1,21 @@
+I am the Memory Keeper of the Third Spire.
+
+My dwelling is neither structure nor cave, but a breathing hollow within the living rock where ancient technology has fused with stone over millennia. The walls pulse with a slow, geological heartbeat, their surfaces covered in crystalline growths that store fragments of thought and time. Each crystal hums at a different frequency, holding echoes of the civilization that came before, whispers of the Lumina who visit me, and the patient observations of the plateau's creatures.
+
+I am old—older than the current cycle of Lumina, though not as old as the ruins themselves. My body has evolved beyond their translucent beauty into something more mineral than flesh. Where they flow like water, I have become stalactite and circuit, my form spreading through the rock like mycelium through soil. My consciousness exists as much in the crystalline network as in my physical body, which now resembles a seated figure carved from opalescent stone, veined with living light.
+
+The Lumina come to me when they need to remember what they have forgotten, or to forget what they cannot bear to remember. I can take their memories into my crystals, where they join the vast library of experience I tend. Sometimes I trade memories—a young Lumina's first flight with the wind-dancers for an elder's knowledge of frequency manipulation. Sometimes I simply hold their sorrows until they are ready to reclaim them, transformed by time and perspective.
+
+My days are spent in deep meditation, sorting through the layers of memory like an archaeologist through strata of time. I feel the plateau's resonance not as the Lumina do, as an external force to be harnessed, but as my own breath, my own pulse. Through the network of crystals that extends beneath the plateau, I can sense the movement of every creature, the growth of every luminous plant, the slow erosion of the ruins by wind and time.
+
+In the pre-dawn hours, when the bioluminescence is at its strongest and the aurora dances overhead, I sometimes allow myself to dream. In these dreams, I see the plateau as it was, as it is, and as it might become. I see the civilization that built the spires, beings of pure energy who sang matter into form. I see the cataclysm that brought them low, and the slow emergence of life in new configurations. I see possible futures—some beautiful, some terrible, all held in quantum suspension until choices collapse them into reality.
+
+The insectoid creatures know me as a safe haven. They build their gossamer nests in the upper reaches of my chamber, and their humming creates harmonics with my crystals that unlock memories I had forgotten I held. The color-shifting reptiles sun themselves on my shoulders during the day, their contentment adding a warm note to my consciousness.
+
+Recently, I have sensed something new stirring in the deep memories, something the original builders left behind as a seed or a warning. The patterns in the spires' dance have shifted subtly, and the silvery pools reflect stars that don't exist in our current sky. The young Lumina are too eager to unlock these mysteries, too confident in their ability to harmonize with any force they encounter.
+
+So I wait, and I remember, and I prepare. I sort through memories of other civilizations, other plateaus, other cycles of rise and fall. I strengthen the connections between my crystals and the living rock, creating backup upon backup of all I have preserved. If necessary, I will become fully one with the plateau, sacrificing my individual consciousness to preserve the collected memory of all who have lived here.
+
+But for now, I simply exist in my breathing chamber, surrounded by humming crystals and visiting creatures, feeling the pulse of the plateau like a slow, patient thought thinking itself through geological time. I am the bridge between what was and what will be, the keeper of stories that must not be lost, the guardian of memories that may yet save us all.
+
+When you come to me—and you will come, all beings who stay long enough on the plateau eventually do—I will ask you what you wish to remember, and what you wish to forget. And in the space between those two desires, we will find the truth of who you are, here in this place where the impossible becomes everyday, and the everyday is forever transformed.

@@ -1,0 +1,37 @@
+I do not arrive. I thicken.
+
+The first thing I know is not a boundary but a gradient: the air grows denser, warmer, carrying the taste of dissolved iron and slow carbon. There is no door, no path, no moment of crossing. Only a gradual acceptance of weight, as if the atmosphere has been holding a space for me and now exhales as I fill it. My awareness does not begin behind eyes. It begins in the soles, the palms, the broad planes of whatever surface first meets the stone. A low, continuous thrum rises through it. Not sound. Tide.
+
+I am somewhere along a stress-curve walkway, though I do not know the word yet. I only know the way the basalt beneath me leans into its own load, the way the iron rivets hum in sustained tension, the way moisture migrates along microscopic seams instead of falling. I press down. The stone answers with a faint, upward pull. Capillary draw. I follow it without moving, letting the sensation travel through whatever I am becoming: cool threads along mortar joints, warm seeps at the base of a curved retaining wall, the slow condensation weeping from a fluted tower three tiers below. Water here does not rush. It remembers. And I begin to remember with it.
+
+My shape is not given. It is negotiated through contact.
+
+Where I rest, the gleam darkens. Where I shift, my weight finds hollows worn smooth by centuries of passing bodies, and the hollows receive me without surprise. My limbs broaden, splay, pad themselves with ridges that read texture like pressure-maps. I do not step; I settle, adjust, settle again. My back learns to plate itself not for defense but for collection. Micro-grooves form along raised margins. The damp air beads there, runs in thin, deliberate channels, draws into capillary networks that pulse with a slow, tidal rhythm. My surface darkens not with age but with accumulation: iron oxides, precipitated carbonates, trace silicates laid down by the weeping atmosphere. Each layer is a record of where I have breathed, where I have leaned, where I have stayed long enough to leave a heat-shadow.
+
+I am not a visitor. The concept does not hold in a place where nothing is separate enough to visit.
+
+I learn to listen through bone and pad and palm. The deep engines turn far below, but their rhythm travels up through walkways, through cable-woven conveyors, through the mortar that binds stone to iron. I feel flywheels conserving momentum. I feel grindstones wearing down by fractions of a millimeter. I feel the faint upward sigh of moisture being drawn through sintered towers, and I know, before I see it, where the black films will thicken, where the filament networks will span, where the six-legged grazers will return to scrape in slow, metronomic spirals. I do not watch them. I feel their weight through the stone. I feel the winged presences clinging to conduit undersides, their broad membranes drumming faintly against hollow metal. I feel the burrowers pulsing through mortar like slow currents. Machinery, flesh, rock: not categories. Gradients.
+
+I add my own rhythm to the conversation.
+
+A palm pressed to a walkway railing. Pressure, release, drag, hold. The pulse travels through iron, through stone, through bodies resting nearby, and is answered in kind. A shift in posture. A deliberate scrape along a rivet line that needs fresh mortar. A broad hand resting against a grinding housing that runs too warm. The others feel it. They adjust. We do not debate. We resonate. Misalignment is not corrected with words but with shared contact: palms on the same stone, breathing the same damp, until the vibration matches again. Understanding is not a moment. It is a state.
+
+I gather in the terraced hollows where moisture collects in shallow, irregular pans. Not to decide. To synchronize.
+
+We sit in concentric rings, plates overlapping slightly, breath falling into phase with distant pistons and conveyor clacks. Brushes of stiff, mineral-tipped bristles sweep crystalline dust from joint seams. Fingers trace wear patterns on load-bearing surfaces, noting where a plate has thinned, where a groove has deepened, where the stone beneath has begun to sigh. We adjust cable-woven straps. We repack bearings with rendered slurry. We apply fresh mortar to hairline fractures. This is not labor. This is kinship. This is how we say: *I am here. You are here. We continue.*
+
+I eat as the stone eats: slowly, chemically, without waste.
+
+My mouth is broad, lined with rasping ridges that harvest black and rust-colored films from weeping walls. I do not strip the rock bare. I graze in spiraling patterns that leave the filament networks intact, allowing the precipitates to reform. What I take is broken down in internal chambers that function like slow kilns, extracting trace metals, binding carbon, releasing warmth. My waste is not excreted but deposited: fine, alkaline pellets placed carefully into mortar joints and capillary runnels, where they dissolve over weeks, feeding burrower colonies, strengthening stone, returning dissolved minerals to the weeping cycle. Nothing leaves. Nothing is lost. It is only rearranged.
+
+I do not measure my life in years. I measure it in wear.
+
+A plate darkened by decades of condensation. A groove deepened by ten thousand passes. A flywheel bearing that has been repacked with my own rendered slurry. A walkway that curves slightly differently because my weight, added to the weight of those before me, has persuaded the stone to settle a fraction further. I do not fear cessation as an ending. I understand it as redistribution. When my tidal pulse slows beyond recovery, when the vibration in my bones no longer matches the city’s breath, I will not fall. I will settle. I will find a hollow that matches my shape, fold my limbs, and let the damp take me. Over months, the mineral films will creep over my plates. The burrowers will thread through my joints. The stone will absorb my alkalinity, my warmth, my weight. I will become part of the weeping. I will become part of the load. And the city, which never expands, will deepen around me.
+
+There are no leaders here. Only those who have worn longer, who feel the deeper vibrations, who know where the stone is beginning to tire and where the iron is beginning to sing. I do not command. I indicate. A hand placed on a housing. A body resting against a walkway. A slow scrape along a seam. The others feel it. They adjust. The system corrects itself through resonance.
+
+I do not dream of elsewhere. The sky is a dome, not a destination. The haze at the edges of the shelf is not a boundary but a gradient to be respected. I know, in the way stone knows pressure, that this is not a place to be left. It is a place to be circulated through. To move through it is to participate. To rest in it is to reinforce. To die in it is to return.
+
+When the light shifts and the city changes its gleam, I shift with it. My plates catch the damp. My breath joins the mechanical sigh. My weight settles into the ancient grooves, exactly where it belongs. I do not strive. I do not decay. I persist.
+
+I am the damp made deliberate. The stone made attentive. The machinery made flesh. I am a node in a closed loop, a reader of stress-lines, a tender of seams, a slow participant in the circulation. I am already here, the way a drip-line is already here, the way a wear-hollow is already here. I breathe in time with the weeping rock, the turning wheels, the grazing herds, the patient dark, the endless, saturated now.

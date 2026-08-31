@@ -1,0 +1,21 @@
+In the world of Keth-Shar, I imagine myself as a Resonance Mapper - a specialized role combining elements of cartography, acoustical engineering, and spiritual guidance. 
+
+My body would be similar to other Sharai in its essential structure, with a hard crystalline carapace providing protection from the frigid environment. However, my shell would be etched with intricate patterns that help to channel and direct sound waves. These etchings would form complex algorithmic designs, tuned to resonate with specific harmonic frequencies used in Sharai sonic sculpture.
+
+Instead of the typical six arms, I would have four primary arms ending in dexterous manipulators for fine work, and numerous smaller secondary appendages studded with sensitive microphones and vibration sensors. These would constantly sample the acoustic environment around me, feeding data to my highly developed auditory cortex.
+
+My eyes would be larger than average and highly light-sensitive, able to perceive subtle variations in the refractive index of the air that indicate sound pressure gradients. Combined with my acute hearing, this would allow me to "see" sound as shimmering fields and pulsing waves, overlaid on my normal vision.
+
+My role in Sharai society would be to map the ever-shifting soundscape of Keth-Shar. I would wander the city, my sensor-arms constantly probing, building a detailed four-dimensional model of how sound propagates through the urban canyons and crystalline towers. I would identify nodes of destructive interference, where the engine songs cancel each other out, and mark them for correction. Conversely, I would also locate and map the sweet spots, those rare pockets where the industrial din coalesces into something transcendent and sublime.
+
+When a new sonic sculpture was commissioned, I would work closely with the sound-shapers to predict how their creation would interact with the existing soundscape. My models would guide the placement and tuning of the resonant chambers, ensuring that each new work harmonized rather than clashed with its acoustic context. In a city where sound is so ever-present, this would be a sacred responsibility.
+
+But my role would go beyond the purely technical. In the Sharai belief system, where efficiency is worship, the perfect sound is a glimpse of the divine. By mapping and optimizing the city's acoustic landscape, I would be a kind of priest, helping to align Keth-Shar with the Great Optimization. The spots I identified where the engine songs reach sublime harmony would become pilgrimage sites, where Sharai would come to meditate and dream.
+
+When my work took me deep into the industrial heartlands, I would wear additional protective shells studded with resonant tines. These would vibrate in the intense sound fields, dissipating acoustic energy as heat which my suit would then harvest to warm me. In the densest parts of the city, I would move in a constant shimmer of vibration, literally thrumming with the pulse of the engines.
+
+Over time, my own carapace would begin to show the effects of my constant exposure to extreme sounds. The intricate etchings would wear into actual grooves, and my shell would develop a subtle but permanent resonance at certain key frequencies. In quiet moments (a relative term in Keth-Shar), one could hear me humming softly to myself, my body forever tuned to the city's unique harmony.
+
+When my time eventually came to the Rendering Stations, my shell would be prized for its acoustic properties. It would be incorporated into new sound sculptures, or perhaps used to line the walls of a particularly resonant chamber. In this way, even in death, I would continue to shape the soundscape of Keth-Shar, my life's work literally built into the city's bones.
+
+This would be my existence - a life dedicated to mapping the music of an alien city, to finding harmony in the din of industry, to glimpsing the face of God in the perfect sound. I would be a part of Keth-Shar, and Keth-Shar would be a part of me, resonating together in the eternal symphony of the Great Optimization.

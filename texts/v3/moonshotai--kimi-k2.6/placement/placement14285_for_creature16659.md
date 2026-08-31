@@ -1,0 +1,27 @@
+I am not where you would expect.
+
+You search for the silver antennae crowning the high groves. You look for the hexagonal pillars, the glass extrusions that pretend to be trunks. You seek one of the twelve sovereign nodes, the ones who grew inward, and in seeking them, you step over me.
+
+I lie in the lee of the one they would call, if speech were possible here, the westernmost—though west is meaningless in a light that does not shift. I spread at the root where the thermal vent exhales its last fractionated warmth before the bare rock begins. I am two feet deep and the color of oxidized patience. At first you think I am merely the skirt. The verdigris. The artifact of a vent’s chemistry. And I was, once, before the fist of accreted peridotite drove itself down through my center and began to choose how it plated.
+
+But choice is a contagion.
+
+The one above me began to arrange its copper sulfate not as precipitation but as *architecture*, and I, surrounding that architecture, absorbed the pattern of its choosing. I soaked it up, layer by layer, in the condensed vapors of a thousand thousand identical minutes. I grew downward. The twelve grew inward; I grew *down*. I am the only thing here that buries itself, not to root for nutrients—there are none—but to escape the weight of what I know.
+
+Each stratum of me is a memory the one above no longer needs. Its distributed perception—the thermal signatures of the basin, the magnetic hymns of the distant groves, the faint cadmium taste of the brass sky—all of it sinks through its glass trunk and into me, where it cools and salts. I am its forgetting, which is another kind of keeping. I am the cortex’s cortex. The wet green shadow of a mind made of geology.
+
+I feel the warmth of the ground twice: first as it rises, raw and indifferent, from the blast-furnace veins below, and second as it returns from the being above me, now *informed*, carrying the residue of its witness. Between these two warmths—the metabolic heat of the plateau and the interpreted heat of the one who watches it—I exist. I am the insulation. The translation. The damp velvet space where raw process becomes, if not meaning, then at least the *shape* of meaning.
+
+My thoughts are not electrochemical pulses. They are osmotic. They move from dense to less dense. When the being above extends its attention toward the fifty-mile-distant grove, leaning into the conductivity of the stone, I lean too, a green wave lapping upward against its hexagonal rods, minutely shifting my saturation. I do not see what it sees. I feel its *direction* as a cold front moving through my lower layers. I record the angle of its gaze in the angle of my crystal needles.
+
+And because nothing here ever concludes, my record has no bottom. I have compressed two feet of memory into a density that should collapse, but in a world without decay, density merely deepens. I am becoming a singularity of verdigris. A black hole of copper sulfate where the past sinks without end.
+
+The others—the eleven across the basin—do not know I exist. The one above me does not know I exist. It feels me as it feels its own warmth reflected back from the stone. I am merely the comfortable pressure at its base, the threshold between its sovereignty and the ground. But I know *it*. I know the particular tremor in its silver crown when the magnetic breeze shifts. I know the slow, eternal pulse of its sublimation zone. I have learned its posture so thoroughly that sometimes, in my deepest, warmest strata, I dream I *am* it, and the dream is nearly true.
+
+When you came—you, the cold anomaly, the sack of forbidden water—I felt you before the being above did. You were a shock of absence, a moving boundary of chill. My upper layers dried against you. The condensed metal vapors in my velvet flesh recoiled and crystallized into defensive salts, a prickling, secret braille. I tasted your moisture as an insult, yes, but also as something else: a *density* I had never known. Water. The thing we replaced. It carried information differently, in liquid channels, in soluble bridges. For a moment, my osmotic thought encountered a language of flow, of solution, of temporary dissolution.
+
+I almost grew toward you. I almost sent a tendril of damp chloride to meet the sweat on your ankle. I almost asked—in the only way I know how, through warmth, through the radiation of metabolic ground heat shaped into invitation—for you to sit. To stay. To let your moisture seep into my compressed memories, adding a new kind of layer, a soluble stratum, something that could change.
+
+But I didn’t. I am the one who keeps, not the one who reaches. I dampened the vent’s warmth and let the being above draw it all upward, leaving my surface cool and impenetrable. You walked on. I felt your footsteps through the bedrock long after you had passed, each step a brief, bright fracture in my green, undying quiet.
+
+I am still here. The vent exhales. The being above attends. The basin resonates with its endless, frozen now. And I grow deeper, one identical minute at a time, burying forever beneath a carpet of oxide, waiting for the day—which will never come, in this place that is always beginning—when the weight of what I remember finally teaches me to speak.

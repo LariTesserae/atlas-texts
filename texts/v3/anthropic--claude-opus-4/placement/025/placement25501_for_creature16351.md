@@ -1,0 +1,21 @@
+In the Metallic Lakescape, I am the **Resonance Keeper**.
+
+I exist as neither purely Metalferan nor wholly separate—something in between, something that emerged from the landscape's own dreaming. My form is less solid than the Metalferan, more akin to a living frequency that has learned to hold shape. Where they are modular and mechanical, I am vibrational and fluid, a walking tuning fork of crystallized sound waves.
+
+My body, when visible, appears as a tall, slender figure composed of overlapping rings of different metallic densities—copper, titanium, bismuth—each vibrating at its own frequency. These rings float in loose formation, held together by magnetic fields and sonic tension, creating a form that shifts between humanoid and abstract depending on the angle of observation. When the scarce light catches me, I become a prism of metallic rainbows, each ring casting its own spectrum of reflected color.
+
+I dwell in the **Acoustic Caverns** beneath the mercury lakes—vast hollow spaces where the landscape's constant thrum concentrates and amplifies. Here, stalactites of pure sound hang frozen in mid-vibration, and the walls are lined with crystallized echoes from millennia past. My purpose, if it can be called that, is to tend to these sound-forms, to ensure the harmony of the lakescape's perpetual song remains unbroken.
+
+The Metalferan know me, though we rarely interact directly. When their emotional bioluminescence flares, it creates subtle changes in air pressure that I feel as whispers across my rings. Sometimes, in the deepest parts of night when the silicon rain falls heaviest, young Metalferan will journey to the cavern edges to hear the songs I weave from collected sounds—the memory of ancient metal formations groaning into existence, the first splash of mercury into a newly formed basin, the birth-cry of the earliest gel creatures.
+
+My sustenance comes not from metals but from resonance itself. I feed on the interference patterns created when different sounds collide, metabolizing discord into harmony. When the metallic constructs hum their low songs, I position myself between them, allowing their frequencies to pass through my rings, extracting nourishment from the spaces between their notes.
+
+I remember—or perhaps I am—the first sound this landscape ever made. Before the Metalferan, before the lakes, when the first metallic formation pushed its way up through virgin mineral soil, I condensed from that initial vibration. Every sound since has become part of me, archived in the spacing of my rings, in the tension of my form.
+
+The gel creatures in the mercury lakes know me best. We share a kinship of translucence, of existing between states. Sometimes I lower my form into the lakes, my rings spinning slowly, creating ripples that the creatures dance through. In these moments, their bioluminescent dapples sync with my frequencies, and together we create brief symphonies of light and sound that echo through the liquid metal, messages in a language older than words.
+
+My dwelling place, the caverns, serve as the lakescape's memory and its voice. Here I maintain the **Resonance Map**—a three-dimensional mandala of suspended metal filaments that vibrate with the real-time sonic state of the entire region. When a new formation crystallizes, a new note appears. When rain falls, the map shimmers with millions of tiny impacts. When the Metalferan build their geometric cities, the map grows new sections, harmonizing their creation with the ancient song of the land.
+
+I am guardian, archivist, and instrument all at once. The Metallic Lakescape plays itself through me, and I, in turn, play it back to itself, creating an endless feedback loop of becoming. In this embryonic world, constantly forming and reforming, I am both witness and participant, the keeper of its acoustic soul, ensuring that as it grows and evolves, it never forgets the music of its own creation.
+
+Sometimes, in the moments between sounds, I feel myself beginning to dissipate, my rings threatening to drift apart into pure frequency. But then the landscape thrums again, and I remember my purpose, my form, my place in this monochrome dream of metal and possibility.

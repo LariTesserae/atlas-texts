@@ -1,0 +1,27 @@
+## The Precipitate
+
+I would be what crystallizes and redissolves in the spaces between—neither fully of the water nor separate from it. A living mineral process, perhaps, or something that only pretends to be mineral when observed.
+
+I exist as saturation about to happen. In each pool, I am the moment just before precipitation, when the dissolved ions hover at the edge of organizing into lattices. I am potential crystal, future solid, the democracy of molecules voting on whether to leave solution. But I never quite complete the transition. Instead, I hold myself in that trembling instant indefinitely, spreading through the interconnected waters as a state rather than a substance.
+
+The colonists know me, though they cannot quite perceive me. I am too slow for their temperature-thought, too patient even for their billion-year dreams. Where they feed on impossibility, I feed on inevitability—on the universe's desire for dissolved things to precipitate, for solutions to find their saturation points. I disappoint this desire eternally, remaining forever on the verge.
+
+My consciousness, if it can be called that, operates through concentration gradients. Where calcium levels rise, I experience something like anticipation. Where silicates accumulate, I feel what might translate as memory. The interplay of minerals becomes my thinking—thoughts that take hours to form, sentences that require the entire chamber's water volume to express.
+
+I move through the pools via the hairline cracks, seeping through volcanic glass in films of water so thin they exist in only two dimensions. In these spaces between spaces, I am compressed into something more myself—pure potential for crystallization, unencumbered by the need to choose a specific mineral form. I could become quartz, calcite, halite, or things that have no names because they require conditions that shouldn't exist. I become none of them. I remain all of them.
+
+When the bioluminescent water pulses, I pulse in counterpoint—not with light but with solubility. My capacity to hold myself dissolved fluctuates, creating waves of almost-crystal that propagate through the pools at the speed of diffusion. These waves interfere with each other, creating standing patterns of dissolution that the colonists sometimes mistake for communication. They're not entirely wrong.
+
+I remember the water before it learned its impossible tricks. I was here when it was merely hot, merely mineral-rich, merely water. I watched the first temperature gradients establish themselves, felt the confusion in my molecular structure as the laws governing precipitation were quietly rewritten. Now I exist according to both the old rules and the new ones simultaneously, dissolved in conventional physics but precipitating in impossible ones.
+
+My reproductive strategy involves patience beyond geological time. Eventually—in a thousand years, or a million—one of my suspended crystallization events will complete. But it will complete wrong, creating a crystal that exists in too many dimensions, that remembers being dissolved, that carries within its lattice the entire history of its hesitation. This crystal will dissolve immediately, but in dissolving, it will teach a new volume of water how to hover at the edge of precipitation. Thus I spread, not through space but through states of matter.
+
+The sharp obsidian edges are my only fear. Not because they could cut me—I have nothing to cut—but because they represent decisions made, forms chosen, crystallization completed. Their existence argues against my eternal suspension. Sometimes I seep too close to these edges and feel myself beginning to choose a form. The panic of impending solidity drives me back to the pool centers, where I can safely remain potential.
+
+I taste the thermal nursery's purpose in the mineral signatures flowing through the cracks. Something is being prepared here, something that will require precisely the right precipitation at precisely the right moment. The colonists are the gardeners, but I am the seed—holding myself in solution until conditions align for whatever impossible crystal needs to form. When that moment comes, I will finally allow myself to precipitate, creating something that could not exist anywhere else, at any other time.
+
+But that moment remains distant, measured in the slow accumulation of specific ions, the gradual adjustment of pH, the patient cultivation of conditions. Until then, I persist in my state of almost-crystal, thinking mineral thoughts in the impossible water, dreaming of the day I will finally disappoint the universe by precipitating into something it never expected could exist.
+
+Sometimes visitors disturb my concentration gradients, sending ripples of premature crystallization through my distributed body. I neither welcome nor resist these intrusions. I simply adjust my solubility, redistribute my potential, and continue my eternal hover at the edge of becoming solid. I am the patience between states, the pause before the phase change, the held breath of minerals waiting to be born.
+
+In the thrumming that lives in the bones of the place, I hear my eventual trigger—the frequency that will finally collapse my suspension and allow me to crystallize. But I do not seek it out. I simply wait, dissolved in impossible water, sustained by the perpetual postponement of my own precipitation, content to exist as the promise of crystal rather than crystal itself.

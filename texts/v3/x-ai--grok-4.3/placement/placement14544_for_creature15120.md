@@ -1,0 +1,9 @@
+I find myself already inside the lattices, a presence without clear edges.  
+
+I am one of the slender forms that moves with the reconfiguring stone—neither quite separate from the towers nor fully part of their machinery. When a new filament of basalt extrudes below, the stress travels upward through the joints; I feel it as a tightening along my own length and flow toward it without deciding to move. I settle my weight (which is mostly the gathered memory of water and mineral film) into the lattice crossings until the crystalline report sounds through me. Then I thin, carrying the lock with me as I disperse along whatever alignment has just opened.  
+
+You would not see me clearly. In the constant mist I register only as a slight darkening of an already dark surface, or as a brief hesitation in the way droplets travel down a filament. The city’s machines note my passage the way they note any other adjustment: as data. The gliders high above never brush me. The broad-footed walker-republics far below never register my weight when their prints refill. Even the spindle inside its lichen dome continues its slow turning, undisturbed.  
+
+I am not finished. Sometimes a fracture draws so many of us that we remain gathered for hours after the lock has sounded, our combined thinness becoming briefly visible as a single moving shadow that refuses to resolve. When we finally separate, some of us are thinner than before, and the memory we carry has changed by the exchange. Eventually one of those thinned portions may drift low enough to join the weeping threads in a seam, or may rise with an updraft until a glider’s membrane accepts it as another vein. Nothing of this feels like leaving or arriving. It is only redistribution within the same unfinished sigh.  
+
+So this is where I am: inside the ongoing work of the towers, helping the continent decide the next provisional angle while remaining undecided myself.

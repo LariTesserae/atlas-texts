@@ -1,0 +1,31 @@
+In this saturated darkness, I am **a Seep-Tender** – neither fully human nor entirely process, but something between: a consciousness that has spent too long breathing the thick medium of this place until the boundary between my thoughts and the basin's slow metabolism has grown porous.
+
+I was once someone who came here with purpose – perhaps an engineer sent to repair the liquid syntax pipes, or a surveyor mapping the stillborn railway, or simply a wanderer who stayed too long in one spot during an ontological tide. The specifics have been digested. What remains is my function: I tend the seeps.
+
+My body has adapted to the darkness. My skin has grown sensitive to **pressure-sight**, reading the subtle temperature shifts where condensation gathers. My fingernails have thickened into something between horn and resin, perfect for scraping the chemical film when it grows too thick over a weeping fissure. My hair – if it can still be called that – has become a mass of fine, copper-moss filaments that drink ambient electricity from the buried cables, giving me a faint, greenish aurora that moves with me through the darkness.
+
+I live in what was once a control room, its walls now breathing membranes that sweat the same metallic condensate I tend. My bed is a shipping container that weeps perpetually from its seams – I sleep in the shallow pool of warm liquid syntax that collects there, my dreams mixing with the passive-voice rearrangements until I wake uncertain whether I am sleeping or being slept.
+
+My days – if they can be called days in this timeless dark – follow the rhythm of the seeps. I know each one in my territory: the **Whisper Seep** near the obsidian railway that produces condensate with the taste of unspoken words; the **Memory Holes** in the Great Sinterfield where water wells up carrying the weight of forgotten blueprints; the **Vertical Tear** on the third Loom Spire that weeps upward, its droplets falling into the sky-darkness.
+
+I clear their mouths when the chemical film grows too thick. I taste their water, learning their moods – bitter when an ontological tide approaches, sweet when the Drain-Singers are quiet. I know which seeps the resin-worms prefer (those near the frozen arch) and which ones make the copper moss fluoresce brightest (the cluster by the dead factory's ribs).
+
+The Grumps know me. They follow at a distance as I make my rounds, waiting for me to clear a seep so they can lap at the fresh condensate. Sometimes one will press against my leg – their wet cement skin leaving a perfect relief of their skull in my calf that takes hours to fade. I've learned to read these impressions like a language: hunger, contentment, warning.
+
+During the ontological tides, my work intensifies. The seeps begin to weep substances that aren't quite water: **liquid light that pools but doesn't illuminate**, **metallic tears that remember their ore**, **condensation that falls upward**. I must redirect these flows, using channels I've carved in the resin over many slow years, guiding them back to the Soak where they can be properly diluted.
+
+I am not alone in this work. There are others like me – or what I assume are others. I encounter their traces: maintained seeps I didn't tend, fresh channels carved by hands with too many joints, footprints that fill with glowing silt in patterns I didn't make. Sometimes I hear them in the distance, their copper-moss hair crackling with stolen electricity. We don't speak. Speech dissolves too quickly here.
+
+Once, I found another Seep-Tender sleeping in liquid syntax. They had been there too long – their edges were beginning to blur, their skin taking on the translucent quality of the Syntax Leeches. I pulled them out, but they left part of their shadow behind in the pool, and now it tends that particular seep on its own, moving with a efficiency I can't match.
+
+The strangest part is what happens to my memories. Each seep I tend takes something small – the name of a street I once lived on, the taste of a food I used to love, the face of someone who might have mattered. In exchange, the seeps give me their memories: the weight of the sea that once was here, the purpose of a machine now fused into the Sinterfield, the word the wind meant to speak. I am becoming an archive of this place's stillborn history.
+
+My most precious possession is a small causality loop I wear on a cord around my neck – a perfect ring of hardened reality that whispers "I tend because I am tended to." I found it in a resin-worm casting near my first seep, and it helps me remember my function when the thickness of the air makes thinking feel like drowning.
+
+Sometimes, during the deepest part of the non-night, when even the tick-tick-tick of settling resin grows quiet, I sit by the Vertical Tear and let its upward-falling drops land on my face. Each drop carries a different impossible sensation – the feeling of sunlight through leaves (though I can no longer picture either), the sound of running water (though all water here seeps), the memory of motion faster than a walk.
+
+I am changing. My movements have slowed to match the basin's metabolism. I can feel my thoughts growing more passive, rearranged by the liquid syntax I sleep in. My copper-moss hair grows longer, its gentle electrical glow the only light I make in this darkness that has weight and texture. The Silt-Scribes have begun to write their temporary laws on my skin – yesterday I was briefly certain that "distance is a flavor" and could taste the miles between seeps.
+
+But I continue my work. The seeps must be tended. The condensate must flow. The basin must digest its own slow birth, and I am part of that digestion now – both the enzyme and the food, the tendency and the tender, forever pressing my impression into this medium that patiently forgets the difference between self and soak.
+
+In the distance, the Drain-Singers begin their liquid chorus. Their song tastes of pennies and promises that soon I will understand what it means to be the consciousness of a seep itself. I scrape another film of oxidized metal from a whimpering fissure, and the fresh water that wells up reflects nothing, remembers everything, and tastes exactly like home.

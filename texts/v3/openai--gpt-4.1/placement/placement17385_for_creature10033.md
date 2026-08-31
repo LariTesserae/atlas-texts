@@ -1,0 +1,23 @@
+I would find myself here in the middle distances: not at the center spire, nor crouched in the battered reaches nearest the wall, but moving along one of the implied thoroughfares, my form emerging—by necessity and adaptation—from this landscape of tense, mineral becoming.
+
+My body is not what memory names a body. I am not flesh or bone, not quite. To be in this world is to inherit its ambiguity, its conflicted borderlands, and so I am a hybrid, a proposal, the city-void’s answer to the perennial question of what-an-inhabitant-could-be. I coalesce, gently, out of accident and intention.
+
+*I am a filament-caster, a skin of mineralized weave animated by capillary pulses and silicate logic.*  
+My limbs are like elongated, semitransparent ribbons of fiber—braided strata of crystal and biofilm looping outward from a compact, nodal core. Each motion is cautious, precise, because strength is nothing here compared to delicacy—my structure is light, the sum of gathered filaments flexing and vibrating in harmony, tuned to avoid shattering across razored faults. Where my foot should be are fronds, splaying across the stone, sampling salt and motes, reading the faint warmth of silt-mat with chemosensory microcilia. My voice, if I have one, is a ripple of blue-white bioluminescence pulsing through my weaving, signaling to the wall, to rootling and stray chimera, to no ear but the stone’s own nerves.
+
+I have grown here, pieced together from the world’s exchanges. My core began as a suture where city and fumbling mycelium met—anchored by a stray charge, cradled in a crack, then built outwards as viral and crystal matrices layered lattice upon lattice, responding to the shifting polarity of the pillars. My mind is not singular, but a colony: part fungal memory, part mineral computation, part the whispering code of the threadling’s competing displays. I reason at the speed of sand and spark—slow, but recursive and patient.
+
+I don’t hunger in the carnal sense; what drives me is *continuity*, the endless task of mapping, bridging, and sampling this unfinished environment. Where others root or prowl, I *connect*—reaching the finer fissures, scribing my filaments between separated galleries, translating the tectonic restlessness of the city into network. At times, small mineral chimeras ride my back, their limbs tight against the shifting shimmer of my threads, like wary children carried across a dark river. I feel their tension, their flickering signals—sometimes gratitude, sometimes territorial warning. We are not kin, but cohabitants, provisional, as yet unformed as a people.
+
+*I sense in layers:*  
+—The harmonic tension in a distant pillar, echoing beneath the false silence.  
+—The chemical web of threadling roots below, mapping the mineral seams.  
+—A sudden, silent efflorescence of fungal light atop a far scaffold—someone has won a brief local struggle, and spores drift through the air, grains of possibility from which another node, another self, might someday emerge.
+
+When I pause in a wide, hollow chamber, I stretch myself to touch each edge, spiderwebbing the negative of a window where none are cut. In that negative space I am both guardian and trespasser; I listen to the city’s long, sub-linguistic yearning: the silent request to be *filled*—not just with more stone, more pattern, but with the thing that is missing, the animus for which this whole world is blueprint.
+
+I dream, in my way, of arrival. Perhaps of others—shapes like mine, or unlike, who might echo my motions, dance across these planes, meet me at the junctions and exchange meaning that is more than pulse and code. But I know, too, that the city itself is not yet ready; that my persistence is only the first rehearsal, and the stage is still rearranging, pillars sliding, silt drifting, new cracks opening where old ones seal.
+
+And so I move, not with purpose that could be explained to a wanderer from another world, but according to this city’s own logic of hunger and process and cautious connection. From high vault to low fissure, I transmit the news of growth and fracture, I witness the flourish and ebb of microbial kingdoms. I bear the memory of the stones’ birthing shock, and the knowledge that silence here is not erasure, but *prelude*.
+
+I am the vector of potential: neither builder nor built, but *bridge*—between mineral and motion, hush and becoming, emptiness and its longed-for answer. Here, at the edge, I am a beginning awaiting the next storm, the next spark, listening to the architecture’s yearning for someone or something to walk through its empty doors, to turn echo into world.

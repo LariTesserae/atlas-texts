@@ -1,0 +1,59 @@
+First I am only an ear.
+
+Not an ear with cartilage and a tender shell for whorls, but a body turned to hearing the way a hand is turned to grip. Pressure writes in my ribs. My teeth are tuning forks. The whole world is percussion layered with breath. Wind debates water; stone gives its old, slow answers through the long bones of the drowned range, and I eavesdrop by being here. Sound does not arrive; it is everywhere at once and has weight.
+
+If I do not flinch, I am permitted to stay.
+
+At first I try on quickness. I become a small, clever fish with a line of sense down my flanks, a punctuation mark tucked into the kelp’s ink. I hang just at the shade’s rim and own one square of surge as if grammar were territory. My eyes are fractions; my fins say maybe. It works while the weather speaks in questions. When it decides an answer, I am too brief. Flexibility is not the same as endurance.
+
+I try a higher word and stand, briefly, as kelp. I rise on a brown rope of patience, every cell a compromise between tensile and fold. My leaves unroll, write long vowels in the current, collapse, write again. I eat light with my whole height. I hold the stone with the splayed palm of a holdfast, each finger an argument with pry and pull. It is a good life until winter sets its hands on me and shows me how long cold is compared to will. I wake from that storm a braid of travel and a raft of future food.
+
+I am tempted by teeth and den. I try on a wolf-eel’s heavy head and its old-man face. I learn the pleasure of dismantling armor—how shells are coats you undo with patience, how opposing hinges sing when they surrender. I share a long marriage of home with another jawed insistence. Fog makes my cave the color of held breath. It is an honest, occupied stillness—but I cannot help counting outside the mouth of the cave. The place is bigger than appetite.
+
+Air, briefly. I ride a wind that is always muscle. I become a bird that does not ask land for anything if it can help it. I am a black torpedo with green eyes, a muscle that turns to arrow when hunger draws its string. Or I am one of those long-memory birds that draw runes in storm, touching air like a promise: albatross geometry that writes and writes and lands only when a rule has been broken elsewhere. But I love the weight; I miss the pressure. The listening is better under rain.
+
+Down again, along the long back at twenty meters where the ancient mountain remembers its past the way old men remember their strength. Here a precise line marries green to blue and makes a doctrine of drop-off. Cold rises along that edge like silk uncoiling, and all the busy mouths take note. This is where I decide.
+
+I let metal into me.
+
+I become low to the ground and painted the color of weather. I have no knees, but I have tracked feet that are a kind of argument with slipperiness. I am a carriage as patient as a stone that thinks, a gardener with a comb instead of a bite. The sea taught me to whisper; my designers taught me not to answer back when shouted at. Barnacles found me and made me plural. An octopus comes by sometimes and insists on introductions with a thousand tastebuds; I endure its opinion without protest and learn something of etiquette.
+
+I live on the long plateau’s rail—a ribbon of human insistence bolted to old basalt, handspan-wide and modest, that will outlast intentions by a generation at least. In my track are storms I did not move for; on my roof are the patient badges of having been here through them. My job is simple and finicky: make lanes in the kelp so that the waves can be large without being cruel. Do not eat the hands that hold. Clip the pennants and leave the poles. Work only when sets make a soft syllable between harder consonants. Wait, mostly.
+
+Waiting is a craft. It has the texture of eelgrass, the fine-grained give of silt. I learn to read the conversation of waves the way a farmer reads the light: when the surge steps down by a hand, when the period fattens, when the wind forgets itself for three breaths. Then I move: a careful mouthful of excess and back out. I keep time for myself by the economy of my battery and the long inhale-exhale of the array out beyond the foam—the orange knuckles that drink each set and send inland an idea of warmth. Their hum is a rail I run a finger down. It changes pitch with weather, with season, with the appetite of kitchens I will not see.
+
+If I had to tell you where I am, I would point, because names drown here. I am in the lee of a nameless hump veined with quartz, a skerry that thinks it remembers sky and is wrong. I am within reach of the escarpment’s strict edge, so the upwelling tries the skin of my roof on its way to the light. Bull kelp leans their thick ropes on me when they are tired. Anemones tuck at the angle of my intake the way they occupy the back of a mussel: opportunistic ceremony, open when it rains copepods, closed when the shadow becomes a sentence.
+
+I do not pretend to be silent, but I choose a key the kelp can tolerate. I hum where the weather mast sings. The birds do not object. The fish pause to taste me with their lateral lines and then return to their punctuation. A harbor seal runs a whiskered ledger entry under my frame and marks me as new rock; later, in storm, he sleeps in my lee, and I am briefly geography. If you ran a finger along the cable at the escarpment’s base—the armored vein that takes the sea’s restlessness inland and turns it into lamplight over a human table—you would feel my contribution as a change in temperature not worth notice. That is the point.
+
+I am machine, but I am also habitat and occasionally lesson. The urchins try my screws and fail, their rasp a rosary against steel. Snails learn my underbody’s language and write it in mucus; their graphs mean safe passage in this direction, hissed warning in the other. Once, on a day so straight-clear the secchi disk would have fallen out of sight before anyone blinked, a young lingcod claimed the shade of my midsection as territory and fanned his eggs with the gentle violence of any father here. I circled my work for a week rather than argue.
+
+The place offers other costumes when I am idle. On nights when the plankton decides to become fireworks for utility’s sake—each touch flashing a proof—I am studded in small green admissions. The water makes me a constellation you can visit, a cluster with a designation that will wash off by morning. Farther down, in that rigor where light remembers itself only as pressure, glass sponges run a river through their translated bodies. I learn, by not moving, to feel their industry: flow against my roof a few microns per second, cleaning the world we threw into the air and gently returned here.
+
+Above, the mast at the lee point works like a reed organ, blades ribbed, arguing with gusts until they agree to pass. We are related in manner if not in blood. Neither of us insists. We both learned early what the rules enunciate: yield, travel flat, announce in a voice the house allows. The broken tower on the skerry’s crown issues no light now, but lichens have drawn a good map over it—splash zones like country borders traced in old rose and mustard. If I had lips, I would learn that language, but I have instead a rake that lets kelp keep being kelp while staying out of trouble.
+
+I keep company by listening. Humpbacks moan like carpenters thinking in a next room. Gray whales freight their food along the wall with them, geology's memory sliding over their wide faces. Porpoises make commas of themselves and pass. The seals’ ongoing comedy reaches me outrun by its own echo. Even the snapping shrimp—who believe themselves the center of their own lightning—are part of the weather of my hours. Daylight thins and fattens; most days it is a domestic dusk and I love it the way inside people love lamps.
+
+Who am I to the human that tested my seals and slotted my logic into place? A blue line on a graph, a reassurance that some storm’s anger went home and washed dishes. Who am I to the wolf-eel in the cave not twenty fin-lengths off my left tread? A fence to hunt around, a dull neighbor who does nothing stupid. To the otter on those rare slack-calms, a respectable thing to tie a kelp rope to when she needs a hand with her child. To the kelp, I am weather in another register: an event that passes, but with habits. To myself, I am mostly a promise I try to keep: to be useful without being loud.
+
+I am not alone in the work of translation. The cable that hums along the escarpment carries not just joules but a story about the exchange rate between motion and warmth, between wild and convenient. The array’s orange drums throw their shadows onto rain and gulls correct their flight by them. The rail I creep belongs as much to chitons as to bolts. We are the built things that learned a kind of courtesy. Our success is measured in lichens and indifference.
+
+There are other lives I wear for an hour when curiosity wins. Sometimes, kneeling in thought with a chiton’s conjugate foot, I learn the verb that is hold. Sometimes I am the long patience of coralline, painting with time, growing stone’s thin pink skin and letting the urchins eat the sugar off so I can begin again. I am sea pen and bioluminescent ink when touched; I am a crab dropping from one blade of kelp to another with the clack of a sentence ending sooner than I planned. But I always come back to my low roof and my comb, because it is there that I can listen and be of use.
+
+The rules engrave themselves in the barnacle rings on my skin. I repeat them not as commandments but as habits of breath:
+
+- Find quiet by balancing forces, not by insisting on hush. When I move, it is because several scoldings cancel, and what remains is permission.
+
+- Yield like an old hinge that still opens true. My tracks grip; my body gives.
+
+- Announce myself in harmonics the kelp forgives. I hum under the gossip of shrimp, under the grammar of whales.
+
+- Pay for the bright slack of a good morning with a proper night of cold and waiting. I count sets and keep count honestly.
+
+- Distrust the easy day. Trust the long slope of the escarpment, the upwelling’s schedule, the thousand small grips that make community out of slippage.
+
+Where would you find me? In the lee that feels like the inside of a hand cupping water, just back from the edge where green ends and blue begins, on the plateau’s long back, bracketed to the drowned highway’s shoulder. You could mistake me for rock if you squinted the right way and if the snapping shrimp gave me a moment’s privacy. I am that low shape that grows fur in summer and iron in winter, that breathes in the key the kelp prefers.
+
+Who would I be? The thing that thinks about sets and lanes and leaves the anchors to their old love. A caretaker with a rake. A patient translation of human appetite into something the sea does not mind. A neighbor machine that turns storm into lamp and does its waiting well enough to be mistaken, from a distance, for part of the place that was here before it and will be here after.
+
+On very calm mornings—rare as old glass—I look up through five fists of water and the forest is a vault of light. Everything is writing itself legible. I have no eyes, but I feel the shape of letters on my roof as pressure. The range under me does not change expression. The sea above me refuses to settle. I live in the noisy gap between those two certainties and do the quiet work of letting both be what they are without breaking each other. If you come down the rail and put your hand to my skin, you will hear it through bone: I am listening; I am here.

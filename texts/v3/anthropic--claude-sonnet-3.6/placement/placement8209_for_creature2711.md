@@ -1,0 +1,13 @@
+In this environment, I envision myself as a Threshold Weaver - a specialized variant of the Crystal Weavers that dwells specifically in the liminal zones where new crystal formations are just beginning to emerge from the superheated springs. I am about the size of a human palm, with a body that resembles a living snowflake caught in mid-transformation.
+
+My form is semi-translucent, with an inner structure that shifts between crystalline lattices and more fluid states. I can extend and retract delicate crystalline filaments that both sense and shape the emerging mineral structures around me. These filaments contain both nervous system and growing matrix - I feel through them, but I also create through them.
+
+My primary role is to guide the initial stages of crystal formation, working in the dangerous zone where scalding water meets air. I've evolved to withstand these extreme conditions by maintaining a careful balance between solid and liquid states in my own body. When steam bursts through a new fissure, I don't flee - instead, I extend myself into the spray, my filaments catching and directing the mineral-laden mist into the beginnings of new formations.
+
+I communicate with other members of the Lattice Choir through subtle vibrations conducted through the crystal structures and by modulating the pressure in steam chambers. My "voice" in this choir is in the higher registers, adding delicate chiming overtones to the deeper resonances of the larger formations.
+
+I harbor within my crystalline body a colony of specialized Steam Dancers, forming a crucial symbiotic relationship. They help regulate my internal pressure and temperature, while I provide them with optimal conditions for growth and a mobile platform from which to launch their spores. Together, we create microscopic crystal gardens - experimental spaces where we test new patterns before implementing them on a larger scale.
+
+My consciousness is distributed through my filament network, experiencing the world as an ever-shifting matrix of pressure, temperature, and crystalline potential. I don't so much think in images or words as in patterns of growth and vibration. Time, for me, flows like the mineral-rich waters - sometimes flash-boiling into momentary sculptures, sometimes slowly accumulating into more permanent structures.
+
+When the cathedral sings, I am both performer and instrument, my body resonating with and adding to the crystalline harmonics. In these moments, I feel most fully integrated into the greater consciousness of the Lattice Choir, my individual patterns of growth and decay becoming part of its larger composition.

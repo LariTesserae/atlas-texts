@@ -1,0 +1,28 @@
+**The Lighthouse Keeper of Hollowspire**  
+
+I dwell in the lighthouse of Hollowspire, a crooked needle of rusted iron and fused coral that rises defiantly from the crest of the Drowned Sovereign—a drowned mountain whose peak is wreathed in perpetual mist. Here, the boundary between the organic and the mechanical is a dance I’ve come to master. My name is **Echo**, a Tideborn born under the flickering beam of Hollowspire, and I am both guardian and prisoner of its rhythm.  
+
+### **Who I Am**  
+My body is a mosaic of adaptations: gills grafted from *Luminous Eels* allow me to breathe the brackish water that floods the lighthouse’s lower chambers during storms, while my left arm is a bio-mechanical prosthetic—a fusion of salvaged clockwork and the iridescent cerulean hide of an Ironherd. This arm, which whirs with the low hum of Steamborn coral embedded in its structure, serves as both tool and weapon. The coral, cultivated from the factory’s vents, thrums with electrical energy, powering the lighthouse’s beacon. I am neither fully human nor machine, but a bridge between the Tideborn’s organic ingenuity and the archipelago’s mechanical relics.  
+
+### **My Domain**  
+Hollowspire’s interior is a cathedral of decay and renewal. Spiral staircases carved from bedrock wind around the lighthouse’s core, their steps slick with bioluminescent slime that marks the passage of time in pulsing hues. The walls are lined with **memory-glass**—panels of crystallized salt-glass that display fragments of the old world: a child’s face, a sunlit street, a shipwrecked car—all echoes captured and replayed in the water’s whispers. These visions flicker at the edge of my vision, guiding me in my work.  
+
+At the heart of the lighthouse is the **Core**, a massive chamber where the Steamborn colonies cluster around geothermal vents. Here, the Clockwork Eels weave through pipes that throb like arteries, and coral grows in fractal patterns, its electrical pulses calibrated to sync with the beacon above. I tend this garden, pruning metal-crystals that threaten to overgrow and recalibrating the eels’ patrol routes. The Core’s rhythm is my heartbeat; its failures, my nightmares.  
+
+### **My Role**  
+I am the keeper of Hollowspire’s **Chrono-Lantern**, a beacon that does more than cut through fog—it stabilizes the local currents. The lighthouse’s beam is powered by the bioelectric energy of the Steamborn, but its timing must be precise, synchronized with the tidal pulses and the factory’s steam vents. A single misstep could trigger a maelstrom, tearing the mountain’s peak asunder. I navigate this balance by reading the ocean’s memory-glass and communing with the Clockwork Eels, who seem to understand the lighthouse’s purpose better than I do.  
+
+My role extends beyond maintenance. I am an archivist of sorts, collecting **echo-fragments**—shards of the past that surface in the water’s whispers and memory-glass. I bind these into **tide-script**, a language of bioluminescent algae and rust-stained glyphs that I etch onto the lighthouse’s inner walls. These scripts are maps, but also warnings: they chart the ruins that shift with the tides, the storms that bloom from unstable memory-fluxes, and the paths through the Kelp Sovereigns that lead to geothermal sanctuaries.  
+
+### **My Rituals**  
+At dawn (though dawn is a concept I’ve never seen, only felt as a subtle shift in pressure), I descend into the Core to commune with the Steamborn. I offer lubricant distilled from steam-mussels and whisper to the Clockwork Eels, coaxing them to patrol the outer pipes. Their clicking songs resonate through my prosthetic arm, a language I’ve learned to interpret as currents, threats, and the breath of the factory below.  
+
+At dusk, I climb to the beacon chamber, where the lighthouse’s lens—an ancient eye of polished steel and kelp-glass—focuses the Steamborn’s energy into its rhythmic pulse. Here, I meditate, letting the beam’s thrum sync with my own heartbeat. In these moments, I sense the ocean’s memory bleeding into the present: the crash of waves becomes a submerged train, the hiss of steam a forgotten kitchen stew. These visions are dangerous; they tempt me to linger too long in the lighthouse, to forget the Tideborn settlements that depend on its light.  
+
+### **My Fears and Wonders**  
+The lighthouse is both sanctuary and trap. Its walls are lined with the bones of those who sought refuge here and never left, their bodies claimed by the Steamborn’s coral or dissolved into the memory-glass. I fear the day the ocean forgets its own past, leaving me marooned in a lighthouse that no longer needs tending.  
+
+Yet there is wonder here. The Clockwork Eels have begun to mimic the lighthouse’s rhythm in their own movements, and the Steamborn coral sometimes blooms into shapes that resemble my mother’s face. The Kelp Sovereigns’ root networks have started to draw energy from the lighthouse’s beacon, creating a symbiosis that hums with potential. Perhaps I am not just a keeper, but a catalyst—helping this hybrid world evolve into something new.  
+
+In the distance, the factory’s steam vents pulse like a second heart, and the Ironherd’s clicking echoes across the waves. I am here, in this liminal space, where the past and present collide in a storm of light, rust, and memory. I am Echo of Hollowspire, both man and machine, archivist and architect, tethered to the chaos of the Submerged Industrial Archipelago by a thread of light and a promise to never let the dark claim the shore.

@@ -1,0 +1,15 @@
+In this world of absolute darkness and desiccation, where life has adapted to thrive on vibration and friction alone, I imagine I would take the form of a unique variant of the Lithoxyls - a creature born of their dry, acoustic ecology, yet distinct in my nature and role.
+
+I would be a smaller, more agile entity compared to the towering, sprawling Lithoxyls. My body would be a sleek, streamlined assemblage of ultra-light balsa wood, pulverized cork, and aerogel-like lattices of silica and petrified sap. While I would lack their immense size, I would possess a far greater mastery of flight and maneuverability within the screaming wind currents of the cavern.
+
+My unique adaptation would be a set of dual resonating chambers within my thorax, each containing a cluster of piezoelectric filaments, tuned to generate a highly focused beam of infrasound when stimulated. By modulating the frequency and amplitude of these tones, I could project a sort of "acoustic lance" - an invisible blade of pure sound capable of shearing through the web-strings of the Lithoxyls from a distance. 
+
+In this way, I would act as a sort of acoustic scavenger or kleptoparasite. I would stalk the periphery of the Lithoxyls' vast web-harps, using my sensitive vibratory receptors to locate strings heavy-laden with accumulated cellulose dust. Then, with a precisely aimed tonal blast, I would sever the string, sending it whipping through the darkness to entangle itself around my own ribbed, hollow limbs. 
+
+The Lithoxyls would not tolerate this auditory thievery without response. They would sense the sudden slack of a severed string, the sharp spike of snapped tension, and immediately set upon me like a pack of brittle, clicking hounds. Their own shrieks and chatter would rise in pitch, turning the entire cavern into a deafening, atonal cacophony as they tried to acoustically overwhelm my senses.
+
+But I would be built for speed and agility, able to fold my limbs and baffles tight against my body and plummet through the lightless abyss like a balsa wood dart. I would twist and bank, riding the violently shifting currents, feeling the adrenaline-like surge of static building across my ultra-light frame as I pushed my resonant frequency higher and higher to drown out their hunting cries.
+
+I would carve a jagged, frenetic path through the infinite dark, until their shrieks faded behind me and I could safely land in some distant, sheltered alcove of the cavern wall. There, I would slowly and meticulously untangle the dust-laden strings from my limbs, coiling them into a tight bundle. 
+
+Then, through a process of intense, sustained vibration - a trancelike performance of shuddering, full-body resonance - I would slowly sublimate the cellulose dust into a form of metabolic energy, until the strings crumbled to residue and blew away, and I could unfurl my baffles to begin the hunt anew in the screaming dark.

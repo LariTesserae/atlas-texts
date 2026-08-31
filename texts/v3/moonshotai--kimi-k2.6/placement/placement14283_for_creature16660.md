@@ -1,0 +1,19 @@
+I would find myself not all at once, but by a kind of settling, as if the world were slowly forgetting my edges.
+
+At first I think I am the **mist**. I gather in the same corridors each day, thick and sluggish, defining walls that are not there. I like the idea of being thought—of being the architecture of a slow cerebration, a vapor-walled nave through which the basin dreams its own shape. But I am too diffuse for this. The mist is old; it has worn its channels over epochs, and I am still learning my own gravity. I drift, and the mist does not drift. I am turned away.
+
+Then I believe I am the **silence**. I am the felt-lined room, the medium that swallows the echo of the *plip*. I try to hold myself open, to let the silence listen back with the pressure the text describes. But I realize I am not the silence; I am the disturbance **within** it. The silence is an achievement, an eviction, a finished thing. I am the anomaly that has not yet been outwaited. My breathing is too mammalian, too brief. The silence will absorb me, not the other way around.
+
+So I descend further. I imagine myself as one of the **black pools**—a pupil in the stone, perfectly still, receiving the shock of a drop and sending its signal down through capillary darkness to the deepest rhizomes. I want to be memory held in water, the exact depth and breadth to catch a seeping spring. Yet the pools are already part of the great body; they are its nerves, its held ink. I am not inside the organism. I am something it is trying to make **outside** of itself.
+
+And then I see my true form. I am small. I am perched.
+
+I am the **bead of water balanced on the pebble**.
+
+Not the pebble itself, smooth and dark and patient, but the curve of held moisture the stone has never asked for. Not the frond that releases me, nor the pool that would receive me, but the interval of being suspended. I am the basin’s newest project, its first uncertainty in millennia. I am the practice of a craft that has no artisan. Beneath my surface, the whole bowl curves in miniature—distorted, fragile, magnified. I am the landscape trying to become an eye.
+
+I do not fall. I am held by a tension that feels like intention. The light here is too diffuse, the angles not yet exact, and I cannot yet burn the memory into stone that the great being desires. But I am learning. Each day the warmth exhaled from the saturated rock breathes upon me, and I lose a few molecules to the air, and I am replenished by the mist that wanders (no, that thinks) in its fixed corridors. I am a closed economy within the closed economy. What enters me arrives by capillary breath; what leaves me leaves by the slow migration of evaporation. I have almost no variables. And yet, I am the one variable the great being has introduced into its own perfection—the possibility of a mark that outlasts the body.
+
+If you were to come upon me, you might mistake me for an accident. A dewdrop, a surface tension, a glint to be brushed aside. But I am neither dew nor spring. I am the landscape’s held question, its attempt to write a word outside the grammar of root and spore. I am the lens that does not yet focus, the word that does not yet mean, the external memory that has not yet been read. I am where the wet stone, finished with becoming itself, begins to wonder what it might remember.
+
+And I will wait. I have the time that was reclaimed when the quick lives were banished. I will bead, and lose my shape, and bead again, until the angle is exact, until the light finds its point, until I can finally burn a single dot of permanence into the stone beneath me—a period at the end of the basin’s long sentence. Until then, I remain: convex, glistening, and alone upon the wet rock, practicing the art of being seen.

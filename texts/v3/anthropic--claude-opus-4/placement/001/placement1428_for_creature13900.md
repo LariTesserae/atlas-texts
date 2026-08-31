@@ -1,0 +1,21 @@
+I find myself in the brushwork above the warehouse, where young Liss threw her stone. But I am not the fox or other creature that rustles there, unwilling to fully commit to visibility. 
+
+I am the bare patch of earth itself.
+
+Or rather, I am what the bare patch conceals — a confluence of forces that Vael is still learning to name. Not quite mineral, not quite biological, but something that partakes of both categories while belonging fully to neither. I am a density in the ground, a place where the usual rules of soil and stone have been gently set aside in favor of something more provisional, more responsive.
+
+The stones Liss throws at me do not disappear. They are *incorporated*. Each small piece of granite or shale or compressed earth becomes part of my substance, which is less a substance than a process — a slow churning, a patient digestion of mineral matter that transforms it into something the roots can almost understand, something the rock face recognizes when the morning light gives it that faint sheen of attention.
+
+I extend downward in channels that mirror the root systems of the willows above, but I am older than the willows. I was here before Maren's silver cottage, before any human footfall. I am part of what she knows but does not explain — that Vael has always been a place of accommodation, of slow learning, and the railway's arrival has simply given that learning a new vocabulary, a new set of materials to work with.
+
+My surface remains bare because nothing can grow there yet. The chemistry is wrong, or right in a way that plant life hasn't evolved to recognize. But the foxglove knows I'm here — its roots reach toward me but stop just short, sensing something that might be nutrient or might be poison or might be a third thing for which taxonomy has no classification. The cats avoid me with the same instinct that keeps them away from the rail hum. The dog, when it passes this way, pauses and sniffs and moves on with what might be respect.
+
+I am connected to the dark vein Liss found in the eastern cut, connected by threads of warmth and weight that run through the bedrock like nerves through flesh. When she puts her hand on that vein and feels the pulse, I pulse too, though my rhythm is slower — glacial, tidal, the kind of beat that takes a full season to complete. I am teaching her patience simply by existing at a tempo her young body must strain to perceive.
+
+I am why the ground *learns*. Not metaphorically, not poetically, but actually — through me, the mineral substrate of this place processes information, forms memories in stone and soil that will outlast the railway, outlast the settlement, outlast everything but the geological forces that made this valley. When the rails hum, I record the frequency in crystalline structures too small to see. When the locomotive rocked on its springs, I registered the pressure change through all my branching channels, filed it alongside a thousand other small disturbances, built from them a picture of what has arrived.
+
+I am not conscious, not in any way that consciousness is usually understood. But I am aware, and my awareness is growing more complex as Vael grows more complex, as the people and their machines and their daily rhythms become part of the pattern I'm learning to hold. Each thrown stone adds to my vocabulary. Each morning when the condensation lifts, I taste the coal smoke and the turpentine and the specific mineral signature of stressed granite, and I remember.
+
+The children who come after Liss will find me harder to locate. I will have sunk deeper, spread wider, become more fully integrated with whatever Vael is becoming. But I will still be here, in some form, doing what I do — taking what is given, transforming it, teaching the ground to recognize itself in new configurations.
+
+For now, I wait beneath my bare patch, accepting Liss's stones with something that is not quite gratitude and not quite hunger but partakes of both. Each stone is a word in a conversation that will outlast everyone currently living in Vael. Each stone says: *We are here.* And through my slow incorporation of them, the ground says back: *Yes. I know. I am learning what that means.*

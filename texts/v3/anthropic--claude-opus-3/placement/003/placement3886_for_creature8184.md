@@ -1,0 +1,21 @@
+In this world of stone and mist, I imagine myself as one of the bat-bird keepers, dwelling in a high tower at the city's edge. My home is a vertical labyrinth of small, interconnected rooms, each with its own purpose - sleeping, eating, storing food for my flock. The walls are rough stone, but worn smooth in places by generations of keepers before me. Narrow windows look out onto the perpetual fog, and a steep stairway winds up the tower's exterior, connecting me to the rest of the city below.
+
+I wake each day before dawn, stirring the embers of my hearth to ward off the night's chill. I dress in layers of wool and leather, donning a special cloak woven from the down feathers my birds shed each spring. It's warm and light, and shimmers faintly with an oily sheen.
+
+I make my way to the top of my tower, where a wide platform serves as the roosting place for my colony. As the first hint of light seeps through the mist, I raise my bone flute to my lips and play the melody that is my name to them - a series of trilling notes that rise and fall like the wind through the mountain crags. Slowly, they wake, stretching their wings and chittering to each other in ultrasonic frequencies only I can hear.
+
+I spend my mornings tending to them, checking for injuries or illness, making sure the youngest have survived the night. I feed them from a pouch at my waist, a mixture of dried midge paste and nutrient-rich fungi that I've bartered for in the market. As I work, I hum to them constantly, my voice a reassurance.
+
+When the sun reaches its apex (though it's hard to tell through the constant mist), I open the gate at the platform's edge and whistle a sharp, three-note call. In a rush of wings, my flock takes flight, spiraling up into the grey sky to hunt. I watch them until they disappear into the fog, feeling a mix of pride and trepidation. The skies are treacherous, and not all will return.
+
+As they hunt, I turn to my other tasks. I repair damaged nests, weaving new ones from the flexible branches of the horizontal trees. I render oil from the midges we harvest, stirring it in a great cauldron over my hearth fire until it reaches the right consistency. The smell fills my tower, sharp and earthy. I coat my exposed skin with this oil, reapplying the scent marker that lets my birds know I am theirs.
+
+In the afternoons, I often have visitors - other keepers who come to trade news, share techniques, or seek my counsel. We sit on woven mats, drinking tea steeped from the pale, luminescent mushrooms, and speak in hushed voices of the changing weather patterns, the health of our flocks, the political currents flowing through the city far below. 
+
+Sometimes there are crises - a keeper taken ill, a colony attacked by the great stone raptors that live in the mountain's highest reaches. In these times, we band together, all our flocks becoming one as we work to protect our own. 
+
+As evening approaches, I return to my platform and play my summoning song, calling my birds back to roost. I count them anxiously as they land, crooning praise to those who have returned, mourning those who have not. On good days, my heart swells with affection as I move among them, feeling the brush of their furry wings, the nip of their sharp beaks as they groom my hair for midge larvae.
+
+At night, I dream to their ultrasonic lullaby - a constant, echoing song that paints pictures in my mind. I see the city as they do, a labyrinth of thermal updrafts and snatched prey, dangers and delights. I soar on borrowed wings through the fog and mist, my mind melding with my flock's until I forget where I end and they begin.
+
+This is my life, perched between stone and sky. I am a keeper of winged things, a member of a strange guild in a stranger city. My days are defined by the needs of my birds, my worth measured in their survival. And I would not trade it for anything. In this harsh and haunting place, where water and stone breathe as one, I have found purpose. The mountain has made me one of its own.

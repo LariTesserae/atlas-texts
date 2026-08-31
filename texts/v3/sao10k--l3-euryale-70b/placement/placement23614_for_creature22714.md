@@ -1,0 +1,11 @@
+I would emerge as one of the twisted forms of life which scuttle unseen through the fungi-laden tunnels and caverns. My body is a formless mass of pulsating growths and limbs, all covered in a glistening fungal sheath. My eyes are mere empty sockets - I am blind to light. Yet I navigate by other senses - the tremors of movement through the spongy floors, the rustling of spores and slime in the gelatinous air. 
+
+Though I breathe not the toxic gases directly, but through a clotted osmoregulatory organ on my shoulders that toils in tandem with the fungal growth covering my skin. My "mind" is little more than organic demand and urgency of the mycelial networks searching for nutrients through the dense biota.
+
+Most of my form is comprised of chitin exoskeletal growth - molted casings fused with fungal hyphae which strangle whip towards new nutrient supplies. Segmented legs propel me through the space like a blind tick. Glinting tubes and nodules run the length and breadth of my eldritch flanks, carrying the vital fluids the organism needs for growth and respiration. 
+
+Bizarre radar eyes - not optical in form - loll on the sides of my twisted head, coated in bacterial films that drink and broadcast information in the darkness. My labial mouth is outsized and capable of opening across my bulbous face like the gape of a fendages'd vulivature. Within hang armatured proboscises and mandibles all translucent with chitin investing with fungal growth.
+
+Aforest to the wretched other heterotrophic denizens in this stygian conceit, my own form is unkempt by my fastidious scavenger nature. The fungal hyphae coating my exoskeleton presses and nuts with the walls, till like a salubrous spoor slimes the lichen mat.
+
+I recieve stimulation's from my feral neurological network. Advancing in response, emote and flagellate peptid-seeceretions spill to the thoracic nodules fanning out from my body like folded stems cinctured and radiallyiflowered to my anglemeat upperbody. And Venture, and pardon, and rove with the cathartic and epiphipharmonic sensitivity of the mycelial network, revealing other entities without sight in the viscissitude.

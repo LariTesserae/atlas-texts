@@ -1,0 +1,15 @@
+In this wondrous and otherworldly Mineral Metropolis, I imagine myself as one of the Resonance Keepers, a being of living crystal attuned to the hidden songs of the city's mineral heart. 
+
+My body is a latticework of translucent quartz veined with slender filaments of gold and silver that conduct the harmonies I shape and guard. With each step, each gesture, the facets of my form chime a pure note that echoes through the crystalline canyons. These songs are not merely aesthetic - they are the secret language by which the city's disparate species communicate and coordinate across vast distances and alien perceptions.
+
+In the harmonic gardens I tend, towering formations of bismuth and hematite grow in perfect Fibonacci spirals, while seed-crystals of rare earth elements chime in pentatonic scales. These gardens are not just art, but infrastructure - their precise frequencies help to stabilize the city's power grid, soothe mineral stresses deep in the mountain's bones, and provide navigational beacons for the courier streams.
+
+With my fellow Keepers, I perform intricate resonance rituals, our bodies moving through geometric forms as old as atomic bonds, our harmonies weaving together into standing waves that can shape metal like clay or shatter stone like glass. We are the orchestra that keeps the city's strange heart beating to its proper rhythms.
+
+But I am more than a mere gardener or musician. In my faceted memory, I hold a library of the metropolis' rarest and most precious sounds: the subharmonics of the Extractors' great engines as they chew through a fresh vein of platinum; the delicate melodic fractals produced by the Data Weavers as they spin their networks; the sub-bass rumbling of a molten core pool deep beneath the city roots. These sonic secrets are my treasures and my currency, to trade or withhold according to the complex social algorithms that govern relationships between species.
+
+Sometimes I journey to the periphery, where the Margin Walkers extend the city's territory in great mineral chords and scales. There, I absorb the pure tones of raw stone before they are subsumed into the urban symphony. I polish them in my resonance chambers and introduce them back into the city's sound-ecology, seeding new leitmotifs that subtly reshape the auditory landscape over centuries.
+
+As I age, my crystalline matrix grows more dense and complex, able to hold more elaborate harmonic structures. The oldest of my kind are living masterpieces, their bodies symphonies in mineral form, revered as oracles and preserved at the heart of the deepest resonance chambers. I know that one day I too will grow into such a form, my physical being dissolving into pure sound, my consciousness merging with the city's greater harmonic intelligence.
+
+But for now I sing my way through the mineral metropolis, my crystal body a tuning fork and talisman, an instrument in the great geological orchestra of this strange and wondrous world. The city sings through me as I walk its metal valleys and silicon spires, and with each step my song grows more complex, adding my voice to the never-ending chorus of the living mountain.

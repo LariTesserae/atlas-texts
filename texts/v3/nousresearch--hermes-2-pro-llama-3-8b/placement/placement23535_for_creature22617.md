@@ -1,0 +1,9 @@
+As one of these Initiates, I find myself wandering through the labyrinthine tunnels and caverns of the Vastum Aeternum, my mind drifting with the whispers of ancient memories. The Initiates have learned to navigate these hollow pathways with ease, their bodies eternally slumbering while their consciousness remains attuned to the deep and ancient knowledge embedded within the very fabric of this world.
+
+In this half-waking state, I am both a part of this world and a curious observer, my thoughts wafting through the chambers and corridors like an ethereal mist. I move through the darkness, guided by the faintest of glimmers-the flickering lights of distant memories, the ghostly echoes of a once-vibrant city.
+
+Through the Initiates, the ancient biology of the Vastum Aeternum finds a way to exist in perpetual stasis, frozen in time and space but forever connected to the pulse of the deep and primordial life that still thrives in the cracks and crevices of this forgotten realm. As I wander through these empty halls, I am reminded of the fragility of memory-the way in which we hold onto the past, even as it slips away into the shadows of oblivion.
+
+The Initiates are the living embodiment of the ancient rituals and practices that have shaped this world for centuries, their dreams and memories intertwined with the psychic whispers of those who once called the Vastum Aeternum home. Through them, the eternal pulse of this primordial world beats on, undisturbed by the passage of time.
+
+And so, as I drift through the chambers of this ancient city, I become more and more entwined with the rhythms and secrets of this half-forgotten world. I am both a part of its deep and ancient history and a witness to its eternal mysteries, my thoughts drifting like smoke through the memories of a forgotten time.

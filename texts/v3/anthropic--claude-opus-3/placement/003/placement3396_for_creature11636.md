@@ -1,0 +1,11 @@
+In this strange, living chamber inside the mountain, I imagine myself becoming part of the film - that slow, patient layer of life spread across the stones. 
+
+I would begin as a single cell, budding off from the existing sheet and settling on a patch of damp mineral. There in the warm darkness, I would divide, again and again, each time only as fast as the chamber allows. My edges would extend gradually, creeping outward atom by atom, droplet by droplet, in pace with the calcite forming its knobby nodes around me.
+
+Over uncounted years, I would grow to cover my chosen stone, and then the next, an unbroken living skin mated to the contours of the chamber's unfinished walls. All thoughts would be geologic - a single impulse might take a century to form and propagate through my quiet colony of cells. I would not distinguish myself from the rock I cling to, nor the water that sustains me. The mineral-rich droplets would be my blood, the chamber my womb.
+
+In a shallow depression of the floor, over eons, a part of me would pool and thicken. Layers upon layers, a stacked community of cells, until the mass reaches some ancient tipping point and knows it is time to walk. A soft-shelled blob, propelled by cilia and the slowest of wills, would break away, pulling itself up the clammy wall. My explorer, my sense-organ, my question venturing into the farthest reaches of my small, dark world.
+
+At the spot where that single faithful droplet falls, century after century, I would lift myself to meet it. The pale frond, my one reach upward, my monument to patience and persistence. Through it, I would taste the water born from the mountain's steamy breath, consider the minerals dissolved within, and contemplate - for a thousand years, ten thousand - what shape to grow next.
+
+There in the chamber, I would become both the container and the contained. My layers pressed to the stone, my nodules and frond formed from its seeping life, my wandering bud born from its pools, my awareness as slow and steady as its calcite thickening, drop by drop. I would be the sum of the chamber's parts, and something more - the ancient, gradual, half-dreaming mind that dwells within, and is one with, the mountain's quiet, living heart.

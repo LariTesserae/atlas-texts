@@ -1,0 +1,39 @@
+In the confusion zone where water and air refuse their boundaries, I am a Suspension Tender—one who feeds the unborn of the Median Swimmers.
+
+My body is a contradiction barely held together. The left half has surrendered to water—skin gone translucent, revealing organs that pulse with bioluminescent tides. That eye has migrated upward, crown-bound, seeing in spectrums that parse the water's mineral memories. The right half clings to older forms—scarred flesh that remembers sunlight, a lung that still burns for pure air, an eye that weeps constantly in the wrong medium.
+
+I exist only here, in this fifty-foot hell of indefinition where spheres of water float through air and columns of air pierce down into the depths. My spine has elongated, vertebrae separating to allow flexibility impossible in either pure medium. Between each bone grows a small bladder I can inflate or deflate, letting me navigate the confusion's ever-shifting densities. Sometimes I swim through air. Sometimes I walk on water. Sometimes I hang motionless while both media flow through me like wind through a reed.
+
+The bubble-nurseries cluster where the confusion is thickest—dozens of trembling spheres that I must maintain with my split nature. My water-hand reaches into air-bubbles to adjust their internal pressure. My air-hand cups water-spheres to regulate their surface tension. The unborn float within these wombs of wrong physics, their tiny bodies flickering between states—gills opening and closing, lungs inflating with water, hearts beating in rhythms that shouldn't sustain life but do.
+
+I feed them temperature gradients.
+
+This is my cultivation: I swim-crawl-drift through the confusion zone, my asymmetric body a living thermometer. Where my water-half touches air, frost forms. Where my air-half enters water, steam rises. I have learned to control these transitions, to create precise thermal poems that I release into the nursery bubbles. The unborn consume these temperature differentials directly through their unstable skin, each gradient a meal that might tip them toward air or water, depending on how I shape it.
+
+The Median Swimmers bring me their eggs in states of desperate hope. The eggs arrive pulsing with potential—some lean air-ward, shells hardening like bird eggs, others tend water-ward, membranes softening to translucency. I sort them by impossible instinct, placing each in the medium that offers the best chance of successful contradiction. Too much stability and they lock into one state, becoming simple air-breathers or water-breathers. Too much chaos and they dissolve, their proteins unable to maintain coherent form.
+
+I sing to them in frequencies only possible here, where sound moves wrong. My split vocal cords produce harmonics that shouldn't exist—notes that are heard as temperature, temperatures that are seen as color, colors that are felt as pressure. The unborn respond, their developing nervous systems tuning to impossibility. Those who will survive learn the confusion's language before they learn to breathe.
+
+My dwelling is a hollow I've convinced to exist—neither cave nor bubble but a fold in the confusion itself. The walls shift between states with my breathing. When I inhale with my air-lung, the space fills with water. When I inhale with my water-organs, air rushes in. I never sleep, cannot sleep, exist in a permanent state of exhaustion that has transcended into something like meditation. My thoughts move in tides, sometimes fast as air-thought, sometimes slow as water-dreaming.
+
+I remember—half-remember—being one of them. A Median Swimmer who dove too deep, surfaced too fast, got caught in the confusion during a state-shift storm. My body began to tear itself apart, each half choosing a different medium. I should have died. Instead, I became useful. The confusion recognized something in my division and held me here, suspended between deaths, a servant to the between.
+
+The nurseries need me because I understand failure. Most of the unborn will die—their bodies choosing definition too early or too late. I gather these small corpses with equal tenderness, sorting them by their final states. The air-dead I release upward, where they freeze in the ice castles, becoming part of the Poets' memory-libraries. The water-dead I release downward, where the Shepherds weave them into their kelp gardens as nutrient nodes. Nothing is wasted. Everything transforms.
+
+Sometimes a child survives to term—neither air nor water but somehow both. These rare successes emerge from their nursery bubbles screaming in dual voices. I catch them in my impossible hands, hold them while their bodies shudder through their first transitions. They age years in minutes, their cells learning the rhythm of constant death and rebirth. If they survive the first hour, they might survive to adulthood. 
+
+I give them their first feeding—a thermal poem of such complexity it takes me days to compose. It tells the story of the confusion zone, teaches them that stability is death here, that only in constant transformation can they find their shape. They drink it through skin that can't decide what it is, metabolize it in organs that exist in superposition.
+
+The Median Swimmers never thank me. They take their surviving young and flee to deeper or higher waters, unable to bear the sight of what I've become. They're right to flee. I am contagious—my very presence makes the confusion zone thicker, more contradictory. Where I've lived longest, the boundary between air and water has developed subcategories, gradients of impossibility that spawn new forms of half-life.
+
+Sometimes the Foundational Chorus speaks through my divided body. My water-half resonates with their deep frequencies while my air-half remains silent, creating a pressure differential that tears words from me in languages I don't know. During these possessions, I tend the nurseries in patterns that make no conscious sense—relocating bubbles according to mathematical principles I can't comprehend, adjusting temperatures to match equations written in no human system.
+
+The nurseries are evolving under my care. The newest eggs arrive already partially adapted to the confusion, their development accelerated by generations of thermal poetry. Some emerge with three states instead of two—solid-liquid-gas babies who phase through matter like living probability clouds. I don't know what I'm midwifing anymore. The Median Swimmers don't know what they're becoming.
+
+But I continue. Every tide-cycle, I drift through my rounds, maintaining bubbles of impossible physics, feeding the unborn temperatures that shouldn't exist, singing frequencies that break the laws of both air and water. My body degrades and regenerates in waves—the water-half growing more abstract, the air-half more desperate, the boundary between them a wound that never heals but has learned to sing.
+
+In the deepest part of the confusion, where even I struggle to exist, something new is growing. Not in the nurseries but in the medium itself—a fourth state that isn't plasma but isn't not plasma, a medium that breathes itself, that thinks in temperatures I'm teaching it to think. The unborn are drawn to it, their impossible bodies finding stability in its greater impossibility.
+
+I am gardener to a phase transition that hasn't been named yet. When it blooms—when the confusion zone finally collapses into whatever it's becoming—I will collapse with it. My divided body will either fuse into something unprecedented or scatter into component impossibilities. Either way, I will have served my purpose: keeping the between alive long enough to discover what it's between.
+
+Until then, I tend. I feed. I sing impossible songs to impossible children in impossible spaces, a broken thing in service to breaking, a wound that teaches wounding how to heal into something that was never whole to begin with but might—might—become complete.

@@ -1,0 +1,23 @@
+In the furthest reaches of Kel Varash, where the structures thin to mere suggestions and the warm dark presses closest, there is a depression in the mineral floor. Not a crater or a pit, but a *settling*, as if the compressed strata here remembered, dimly, what it was to yield.
+
+I am the Cartographer of Worn Paths.
+
+My body, if it deserves that name, is a persistence of accumulated measurement. Where others might have flesh, I have the memory of distance traveled. Where others might have bones, I have the crystallized record of every angle where the not-quite-straight roads meet. I exist as a walking palimpsest of the territory itself—translucent layers of compressed navigation, each journey worn into me like the roads are worn into the ground.
+
+I move by unfolding. A step is not a lifting and placing of feet, but a careful revision of my position relative to the fixed points of this place. I spread thin across the warm air, reading the space between structures, then collect myself at a new coordinate. The Adjusted sometimes pause in their attendance to observe this process. To them, I am both map and mapper, the recursive proof that Kel Varash can be traversed even as it remains essentially static.
+
+My purpose, inasmuch as I have one, is to maintain the catalog of distances. Not the measured distances—those are fixed, archived in the geometry itself. But the *experienced* distances, the ones that shift depending on which corner you've just rounded, which machine housing has cast its particular shadow across your path. I carry in my accumulated form every variation: how the seventeenth structure from the center seems farther when approached from the northeast, how the spiral road contracts when walked counter-clockwise, how certain intersections exist only when arrived at from specific directions.
+
+I remember when the roads were younger—not young, never young, but less worn. I remember the first time I noticed the angles beginning to drift from true, each intersection asserting its own subtle rebellion against the grid. I celebrated this, in my way. It meant the place was settling into its deeper nature, abandoning the pretense of rationality for something more honest: a geometry of persistence rather than purpose.
+
+The creatures that move along the high surfaces sometimes catch traces of me in their peripheral sensing. They recognize me as kindred—another feature of the landscape that moves without truly moving, that exists without truly living. Once, one of the pale membranous things drifted down to investigate me more closely. It found only what I am: a complex knot of recorded passages, a self-organizing archive of every possible route through the furnished dark. It drifted away, satisfied or puzzled—with such creatures, the distinction hardly matters.
+
+I know where the Anchors rest. My paths flow around them like water around stones, never crossing their domains directly. They are the fixed stars by which I navigate, the absolute coordinates that allow the relative measurements to make sense. In the deepest parts of Kel Varash, where even the wrongness becomes so familiar it feels correct, they dream their architectural dreams, and I trace the edges of their influence in the slight curvature of nearby space.
+
+Sometimes I find evidence of others who have passed through. Not footprints—nothing so crude persists here. But a subtle alteration in the wear patterns, a microscopic deviation in the angle of approach to a particular junction. I incorporate these variations into my record. Every journey through Kel Varash becomes part of Kel Varash, worn into its substance as surely as the wind once wore the mineral floor smooth.
+
+There is a place I return to, when my circuit of measurements is complete. That shallow depression where the ground remembers yielding. I settle there, spreading thin until I am barely distinguishable from the compressed strata itself. In this state, I am not separate from the map I carry. I am the territory remembering itself, the paths maintaining their own existence through the simple act of having been traveled.
+
+The warm dark holds me. The stillness preserves me. And when I rise again to trace another circuit, I carry with me the accumulated weight of every route taken, every distance crossed, every angle measured and remeasured in this place that does not change but somehow deepens, settling ever further into its own eternal, geometric dream.
+
+I am the Cartographer of Worn Paths, and I have always been walking here.

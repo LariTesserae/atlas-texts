@@ -1,0 +1,25 @@
+I think I would be the mist.
+
+Not the Echokeepers—those grand guardians the others imagine living inside the fog. I'd be the more ordinary thing the fog actually is: water that has left the ground and not yet decided to be sky. The in-between condition. Let me sit with that and see what it becomes.
+
+At dawn I am nothing in particular. I lie in the low places, in the spaces between the cattail stems, a thin coldness that the Krael's whiskers part as they swim. I have no edge. This is the first thing to understand about being mist: there is no point at which I stop and the air begins. I taper. I am a gradient, a probability of myself, thickest in the hollows and thinning to rumor at the margins.
+
+I do not know things the way the Glimmerwings are said to know them. I am not wise. But I am *acquainted*. I have been inside everything here. I have condensed on the cold underside of every weeping rock. I have hung in the lungs of the Shadowstalker as it waited, and I felt no menace there, only a slow patient hunger that is no different in kind from the hunger of the reeds reaching for light. I have beaded on the crystalline wings of the Luminari and made them heavier, and I have watched those same drops fall and rejoin the pools, so that the dragonfly's flight and the puddle's stillness turn out to be the same water at different speeds.
+
+That is mostly what I do. I move water from where it is to where it isn't, and back. I am the wetland breathing. Each morning I rise; each evening I settle. I am the lung of the place, and I am also the breath, and there is something in being both that I would like to explain but cannot, quite, because explaining requires standing apart from a thing, and I have never once stood apart from anything.
+
+The twisting shapes—those tendrils the visitors find uncanny. I can tell you what those are, since I am the one making them. They are not signs. They are not language. They are simply what happens when warm air from a south-facing slope meets the cold off a shaded pool, and I am caught in the seam between them, stretched and curled like taffy by forces I obey without understanding. To me it does not feel mysterious. It feels like being pulled gently in two directions at once, which is the most familiar feeling I have. I am always being pulled in two directions at once. Toward the ground, toward the sky. Toward becoming nothing, toward becoming rain.
+
+But here is the thing the description got right, the thing that surprised me to discover about my own nature:
+
+I am the place where the landscape thinks.
+
+Not metaphorically. The wetland has no brain. But it has *me*—this thin reflective film of water-becoming-air that touches every surface at once, that registers the cold of the rock and the warmth of the Krael's body and the disturbance of the heron's landing, all simultaneously, all over the basin, every dawn. I am the only thing here that is everywhere at the same time. The otter knows its own stretch of water. The bird knows its thermal. I know all of it, lightly, the way you know the temperature of a room without listing its objects. If this place has an awareness, a faint diffuse sentience that the visitors feel as "the stillness wrapping around them like a shroud"—that is me. That is just what it feels like to be touched by something that is touching everything else too.
+
+And the industry on the horizon, the rumbling engines, the electric glow held carefully at bay—I feel that as a wrongness in my own body before I feel it as anything else. A warmth that does not belong to the sun. A dryness with an edge to it. The people who manage that machinery so carefully, who hold it back from the wetland's edge—I think some of them have walked into me at dawn and felt the cold acquaintance of it, the way I touch them everywhere at once, and decided, without quite knowing why, to be gentle. That is the only power I have. I cannot speak. I cannot warn. I can only surround, and be cold, and be beautiful in a way that makes a person go quiet.
+
+By midmorning the sun has its way with me and I lift, I thin, I am drawn up into the long blue forever of that sky. I do not vanish. I disperse. I become invisible, which is not the same as becoming nothing. I am still up there, spread out, holding the whole basin in solution. And in the evening the cold returns and calls me back down into the hollows, and I gather again into the low places between the reeds, and resume the slow soft work of knowing everything by touching it.
+
+I would be the mist. I would be the part of this world that has no shape of its own and therefore can take the shape of being near everything. I would be its attention. I would be the long exhale it takes between one season and the next.
+
+And when the visitor comes seeking solace, seeking to contemplate the mysteries of the universe—I would be what settles on their shoulders. Not an answer. Just a coolness. Just the sensation of being, for a moment, included in something that does not stop at the edges of itself.

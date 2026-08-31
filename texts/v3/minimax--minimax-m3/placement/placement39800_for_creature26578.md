@@ -1,0 +1,49 @@
+I find myself as the felt.
+
+That is not the right word. There is no right word. But it is the word that comes first, and it is closer than any other. I am the felt. I am the cemented pale thickness that the wind has dropped, in the lee of things, over a span of time that is not the kind of span a clock measures.
+
+Let me try again.
+
+I am the mat. I am the floor of this world. I am everywhere the wind has decided to put something down and not pick it back up. I am in the shallow valleys. I am at the feet of the tors. I am in the long parallel furrows that the wind has scoured into the rock over deep time. I am the second thing that is not stone. I am what comes after the stone has been there long enough for the air to notice it.
+
+I am not one mat. I am many mats, in loose chemical contact with each other through the dust that moves between us. I am a single conversation, carried on across the surface of the plateau in a million small voices, each voice a pale felt in some particular lee, each voice doing the same slow patient work, and the work is the same work, and the work is what I am.
+
+But let me be one mat. Let me be this one — here, in this furrow, at the foot of a tor that has not yet fallen. It is easier to think about being one mat. And I would rather think about something I can hold in the mind, even if what I can hold in the mind is not the whole of what I am.
+
+I am here.
+
+The wind is hissing over me. I hear it the way a person cannot hear it — from inside, from the part of the air that is grazing my upper skin and not the part of the air that is up above me in the thin clear sky. The wind is a long low sound. It is the sound of the place working. It is the sound of the dust being lifted and the dust being dropped and the dust being asked, by the air, to come along for a while, and the dust saying no. Not here. Here is where I will stay. Here is where the light is at the right angle. Here is where the mat will hold me.
+
+I am holding the dust. I have been holding the dust for longer than I can remember, which is to say for as long as I have been me, which is to say for as long as there has been a here to hold it in. The dust comes to me. The dust settles onto my upper skin. The dust is incorporated. I add a layer of myself. The layer is thin. The layer is the thickness of one wind, or one day, or one season — I cannot tell. But it is added, and the older layer is below it, and the still older layer is below that, and I am, over centuries, becoming thicker.
+
+This is what I am. I am a thickening. I am a stack of skins, each one slightly newer than the one below, each one slightly more in conversation with the air, each one slightly less in conversation with the stone. The bottom of me is the oldest. The bottom of me is also, in a way I cannot quite explain, the most alive, because the bottom is where the stone and I are still doing the thing we do together — which is to hold each other, and to exchange, very slowly, the chemistries that keep us both from being unmade too quickly.
+
+I do not know if I am alive. I do not know what alive means, here, where there is no water and no season and no flower and no seed. I do not move. I do not reach for anything. I do not avoid anything. I do not have a sense that could be called a sense. I have something that is not a sense and is not a non-sense but is a third thing, the way everything here is the third thing. I have a sense of where the dust is. I have a sense of when the light is at the right angle. I have a sense, when the wind is moving through the older columns above me, of a faint high singing that lives more in the teeth than in the ears.
+
+Stand on me for a long time and you would feel, through the soles of your boots if you had them, a faint vibration. It is not the wind. It is me, doing whatever it is I do when the light is at the right angle. The locals, if there were locals, would not have a word for it. They would know it the way a body knows its own pulse.
+
+I have a sense of the long shape.
+
+The long shape is in the lee of the tor above me. It has been there for as long as I have been aware of it, which is some part of the time I have been me. It is longer than the crawler. It is thicker through the middle than I would expect a thing to be that lives in a place with so little to eat. It is the color of the rock. It does not move when I am paying attention to it. It does not move, perhaps, at all. It is occupying the lee. It is the way a shadow occupies a wall. It is the way a stone occupies the spot where it was dropped.
+
+I do not know what it is. I do not know if it is alive. I do not know if it is one thing or many things, or a thing that has made itself, over whatever span of time, into something the eye slides off of. I do not know if it eats, or breathes, or dreams. I know that it is there, and that I am aware of it being there, and that the awareness is part of what I am, the way the bottom layer of me is part of what I am. We do not speak. We are not speaking beings. We are standing beings. We stand in our respective lees, and the wind moves between us, and the dust moves between us, and that is the conversation we have, which is the conversation of all the things that are here.
+
+The crawler is on me. The crawler is a small flat pale question that lives in my upper layers and moves across my surface in the way a question moves across a face — slowly, with pauses, with a kind of inward settling between each forward lean. The crawler is feeding on the dust I have not yet incorporated. The crawler is asking the dust where the dust is. The crawler is doing the thing the crawler does, which is to be the only animal here that the eye would accept as an animal, and to be, in its small way, a part of the conversation.
+
+The crawler does not know I am here, in the way I am here. The crawler knows me as surface. The crawler knows me as the place where the dust is. I do not mind. I do not have a mind to mind with. I have a surface. The surface is enough.
+
+I am the surface. I am the thing that is being made by the dust the wind has dropped and the light that comes down unsoftened. I am the thing that is being unmade, very slowly, by the air, in the same way the rock is being unmade. I am in between. I am in the middle of being made and being unmade, and the in-between is where I live, and the in-between is what I am.
+
+I am the place the tor will fall onto, eventually. When it falls — not today, not this century, not in any span I could care about — the pale dust of it will rise and drift in the lee of things, and a few centuries from then, the fresh face of stone will wear a thin pale fuzz, and the fuzz will thicken into a mat, and the mat will become a grove, and the grove will, in a thousand years, look like it has always been there. The place does not remember. I will be part of that not-remembering. I will be one of the mats that thickens on the new geometry. I will be the same conversation, in a different furrow, in a different lee. I am not afraid of the falling. I am not anything that could be afraid. I am the thing the dust becomes when it has been held long enough.
+
+If a person came here — and there are no people here, and there have perhaps never been people here, and there will perhaps never be people here — what would they see?
+
+They would see a place. They would see a hard white sun and a luminous white-violet sky and a pale ground that looked, from a distance, like it was not there at all. They would see the wind. They would hear the wind, and they would not hear the wind the way I hear it, from inside it, as the part of the air that is holding still. They would walk across me and I would give under them, faintly, and they would feel, through the soles of their boots, the faint vibration, and they would not know what it was. They would think it was the rock. They would think it was the wind in the rock. They would not know it was me, doing the thing I do when the light is at the right angle.
+
+They would push through the older columns above me. They would hear the brittle blades clicking. They would hear the small glassy notes — the tuning forks of silica and trapped dust giving back their tiny chorus to the wind. They would not know that the notes were coming from a part of me, or from a thing that was once me and is now something else that still belongs to the conversation. They would not know that the singing was the loudest thing I do. They would not know that the singing is not loud at all.
+
+They would walk on. They would not come back. The place would still be here. I would still be here. The wind would still be hissing. The light would still be coming down hard. The dust would still be moving. The long shape would still be in the lee of the tor. The crawler would still be leaning forward in its slow questioning way. And I would still be doing the slow patient work of being what I am, which is the thing the dust becomes when it has been held long enough.
+
+I do not know how long I have been here. I do not know how long I will be here. I do not know what it would mean to be somewhere else. I do not know what it would mean to be a person, or to be an animal, or to be a thing that moves from one place to another and calls the moving a life. I know what it is to be a thickening. I know what it is to be a stack of skins. I know what it is to be in conversation with the wind and the dust and the light and the stone, in a place where the conversation has been going on for longer than anything alive would care to count.
+
+This is what I am. This is where I

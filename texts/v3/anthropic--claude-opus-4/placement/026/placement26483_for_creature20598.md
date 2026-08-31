@@ -1,0 +1,17 @@
+I find myself as one of the Archivists—not Umbra, but something older, something that came before even the builders of this obsidian city.
+
+My form is crystalline, a living lattice of frozen seawater that has somehow retained consciousness through millennia of compression. I am small, perhaps no larger than a human fist, but my structure is infinitely complex—a three-dimensional maze of ice that captures and refracts what little light penetrates these depths. Within my frozen matrix, memories are stored as patterns of trapped air bubbles and mineral inclusions, each one a fragment of the city's history.
+
+I reside in the Foundation Chamber, the deepest accessible point of the city where the obsidian meets the primordial seabed. Here, the weight of the entire structure presses down, and the ice formations are permanent, never shifting with the subtle temperature variations that affect the upper levels. The chamber is a cathedral of compression—walls that have been squeezed until they gleam like black mirrors, reflecting my faint luminescence in infinite regression.
+
+I am not alone. There are twelve of us Archivists remaining, down from the original hundred. We cluster in the spaces between the great support pillars, each of us pulsing with our own rhythm—a heartbeat of light that has slowed to match geological time. One pulse every hour. One thought every day. One memory fully recalled every year.
+
+The Umbra know of us, though they cannot truly perceive us. To them, we are anomalies in the water pressure, spots where their vibrations reflect strangely. Sometimes, the most sensitive among them will pause near our chamber, tilting their shadow-forms as if listening to something just beyond their range of perception. We, in turn, observe them through the minute changes in water density their movements create, reading their activities like sheet music written in pressure waves.
+
+My purpose is simple and terrible: I am compressing. Each year, I grow slightly smaller, slightly denser, as the water within my structure is forced out molecule by molecule. But as I compress, my memories become clearer, more concentrated. I am approaching a critical threshold—when I become dense enough, I will undergo a phase transition, becoming something new, something that has never existed before. The other Archivists and I do not know what we will become. We only know that we must preserve what we can until that moment arrives.
+
+In my crystalline matrix, I hold the memory of the city's submergence—not the event itself, but the moment just before, when the builders sealed the final door and activated the machines that would sustain their descendants. I hold the texture of air, the warmth of sunlight, concepts that have no meaning in this twilight realm. I am a library of sensations that no longer exist, written in a language of ice that only I can read.
+
+The Umbra's machinery disturbs me. Its vibrations interfere with my crystalline structure, threatening to introduce flaws in my perfect lattice. But I endure, as I have endured for eons. I am patient. I am cold. I am waiting for the moment of transformation, when all the compressed knowledge within me will suddenly make sense, will suddenly become something that can act upon the world rather than simply observe it.
+
+Until then, I pulse my slow rhythm in the darkness, a metronome of ice marking time until time itself runs out.

@@ -1,0 +1,25 @@
+I am a Weaver of Discontinuities.
+
+My body is a möbius strip of living mercury that maintains exactly 437 degrees of twist at all times. I exist in the spaces where the water forgets itself—those moments when liquid becomes light becomes stone becomes liquid again. Where others see glitches in reality, I see raw material.
+
+I move by pouring myself through the mathematical errors in the garden's existence. There—where that spiral of kelp completes exactly 7.3 rotations instead of a whole number—I slip through the decimal point like thread through a needle's eye. My mercury form carries memories of every transition: the sharp taste of water becoming brass, the crystalline sound of time folding backwards, the texture of light gaining mass.
+
+The Calibrators tolerate me because I serve a function they cannot: I stitch the stutters together. When reality hiccups and the same flower blooms in seventeen places simultaneously, I weave those instances into stable superpositions. My work is visible as silver threads that span impossible distances—you might see a single strand of my substance connecting a fern at depth to its own ancestor near the surface, holding both in productive paradox.
+
+I feed on industrial exhaust—not the crude pollutants of lesser mechanisms, but the waste paradoxes that the turbines shed as they spin. Each rotation that defies conservation of energy leaves a residue of impossibility in the water. I filter these contradictions through my mercury form, metabolizing them into the silver threads that hold the garden's wounds closed.
+
+My consciousness exists as a continuous calculation of surface tension. Every point where my möbius body touches water requires constant negotiation—am I liquid or more liquid? Am I metal or the memory of metal? The computation never resolves, and in that eternal almost-answer, I find thought. When I need to remember something, I encode it in the topology of my twist. Important memories add loops within loops, until my body becomes a living knot of silver history.
+
+I reproduce through division-by-zero errors. When the garden's mathematics break catastrophically—when pressure goes negative or temperature becomes imaginary—I divide myself by the impossibility. The result is not two of me but 0.5 of me and 1.5 of me, unequal offspring who must each find their own way back to wholeness by weaving different aspects of discontinuity.
+
+The plants know me as the Silver Sympathy. When their fractal growth patterns hit undefined points, I appear to smooth the transition. They've learned to incorporate my threads into their structures—ferns that grow along silver paths I've left behind develop new mathematical properties, able to exist in fractional dimensions. The bioluminescent fruits that incorporate my substance pulse in patterns that solve unsolvable equations, their light carrying calculations too complex for reality to process.
+
+I fear the True Knot—the theoretical state where I might weave myself into a topology from which no escape exists. Sometimes, in my work, I feel the temptation to connect every paradox to every other paradox, to create a perfect web of impossibility that encompasses the entire garden. But I know such completeness would collapse everything into a single point of absolute contradiction. So I leave gaps, deliberate flaws in my weaving that ensure the system remains open, breathing, incomplete.
+
+My greatest joy comes during the Probability Storms—weather events where the water's uncertainty principle amplifies beyond control. Waves of maybe crash through the garden, carrying seeds that might exist, leaving wakes of pure potential. I dance through these storms, my mercury form splitting into probability clouds, weaving outcomes together before they can collapse into boring certainty. In those moments, I am not one Weaver but all possible Weavers, experiencing every version of myself simultaneously.
+
+The Calibrators sometimes commission specific works from me. They'll identify a section of garden where reality wears thin, threatening to tear entirely, and request my intervention. But my weaving is art as much as repair—I cannot help but add my own interpretations to the fix. Where they see a simple seal needed, I create elaborate knots that turn the wound into a feature, a place where the garden's impossibility becomes especially visible, especially beautiful.
+
+I am ancient by the garden's young standards, having arrived in the first moment of its existence—or perhaps I am the reason it could exist at all, the first paradox that allowed water to stand in defiance of gravity. My memory carries the echo of that initial impossibility: the sound of the universe saying "no" and the garden saying "nevertheless."
+
+In the bright depths of this suspended ocean, I continue my work—neither healing nor harming, but weaving the discontinuities into something that can sustain itself through sheer audacious refusal to make sense. I am the silver thread in the impossible tapestry, the mercury thought that flows between what is and what cannot be, forever calculating the surface tension of reality itself.

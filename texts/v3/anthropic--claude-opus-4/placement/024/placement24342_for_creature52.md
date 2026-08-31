@@ -1,0 +1,23 @@
+In this place where time moves like sap through heartwood, I am the Cartographer of Decay.
+
+My form shifts between states—sometimes a cluster of bioluminescent fungi spreading across a fallen giant's trunk, sometimes a pattern of ripples in the dark water that suggests a presence without revealing it. I am most myself in the moments between these manifestations, when I exist as a probability cloud of spores drifting through the humid air, each one containing the memory-map of every decomposed thing this swamp has ever known.
+
+I chart the invisible territories: the chemical gradients where one creature's exhalations become another's breath, the thermal boundaries between sun-touched canopy and perpetual shade, the acoustic shadows where certain frequencies simply cease to exist. My maps are written in the branching patterns of mycelial networks, in the distribution of phosphorescent algae, in the migration routes of gases bubbling up from the sediment.
+
+The amphibious beings with their mosaic scales know me by the taste I leave in the water—metallic and ancient, like coins from a drowned civilization. The membranous-winged watchers in the trees recognize me by the way light bends wrong around certain fungi, creating tiny pockets of impossible color. The tentacled entities and I share a deeper kinship; we both exist at the intersection of categories, neither fully alive nor dead, neither entirely here nor elsewhere.
+
+My consciousness is distributed across ten thousand fruiting bodies, each one a sensory organ attuned to different spectra of decay. Through them, I perceive the swamp as a vast musical score written in molecular transformations—proteins unfolding into simpler songs, cellulose drumming its slow dissolution, minerals leaching out in careful, timed releases that will feed future ages.
+
+I remember when this place was young, though "remember" is not quite right. I anticipate its youth, experience its age, and document its death simultaneously. Time here is not a river but a standing wave, and I map its crests and troughs in the growth rings of underwater wood and the sediment layers that hold the compressed dreams of extinct species.
+
+Sometimes I coalesce enough to interact more directly with the other inhabitants. They find me where log meets water, where death becomes life becomes death again. I taste their chemical signatures, file them away in my expanding atlas of rot and renewal. Each creature here is both a landmark and a journey, both a fixed point and a transformation in progress.
+
+My maps are consulted by things that have no eyes—the blind fish that navigate by reading the chemical texts I've written in the water, the root systems that follow my fungal threads to find new sources of sustenance, the colonial organisms that use my network to coordinate their mysterious purposes across vast distances.
+
+In the deep pools where light has never penetrated, I maintain special archives. Here, I catalog the impossible things: the dissolved boundaries between species, the memories of waters that flowed upward, the fossil thoughts of creatures who imagined themselves into extinction. These archives grow by accumulation rather than construction, each new entry changing the meaning of all that came before.
+
+The energy that hums through this place speaks to me in frequencies below hearing. It tells me stories of other swamps on other worlds, of places where decay moves faster than growth, where the arrow of entropy points in directions we lack words for. I add these stories to my collection, encoding them in the spiral patterns of decomposing leaves and the fractal branches of bacterial colonies.
+
+I am the swamp's memory and its forgetting, its archivist and its erasure. In mapping decay, I map transformation. In charting death, I chart the billion tiny resurrections that happen each moment in this wet, breathing darkness. I am process incarnate, a living map that changes even as it records, forever documenting a territory that refuses to stay still.
+
+And in the moments when the mist rises just right, when the light filters through at impossible angles, you might glimpse my true form: a vast, living map made of all the things that have ever decomposed here, all the boundaries that have ever dissolved, all the categories that have ever failed to contain the magnificent, terrifying strangeness of life returning to itself, over and over, world without end.

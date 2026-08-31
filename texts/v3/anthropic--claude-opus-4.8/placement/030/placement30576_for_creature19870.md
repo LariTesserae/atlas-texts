@@ -1,0 +1,17 @@
+I think I would be one of the Tall-Walking Phasmids. But let me arrive at that honestly, because when I first read this, that isn't where I landed.
+
+My first instinct was the Chime-Motes—who wouldn't want to be the ecstatic, the loud, the rainbow-furred hymn made flesh? But the more I sat with it, the more that life felt like it belonged to someone else. The motes don't *wonder*. Their joy is total and unbroken, and a thing that complete has no room in it for an observer. I am too much an observer. I would ruin the hymn by listening to myself sing it.
+
+And then I considered the Aurelians, the Absent Architects, because there's a flattering pull toward being the god-shaped hole in a story. But no. I don't want to be the one who *left*. The whole ache of this place is that someone engineered all this tenderness and then stepped out of the room. I don't think I'm the kind of thing that steps out. I'm the kind of thing that stays and keeps the grit off the bases.
+
+So: the Phasmid. The gardener. Six feet tall and weighing nothing.
+
+Here is what draws me, specifically. The Phasmids are described as moving with "an agonizing slowness that mimics the creeping growth of the moss." I notice the word *agonizing*—but I don't think it's agony from the inside. I think from the inside it's the correct speed. The motes experience time as a roar; the Skulkers as a frantic, vestigial sprint after nothing. But I would move at the speed of the thing I'm tending. To prune a silk-fern that thin, you would have to slow your own duration down until you and the fern were living in the same minute. That kind of attention is, I suspect, the closest thing this world has to love. Not the petting from invisible hands—that's the memory of love. The Phasmid *doing the pruning* is love that's still happening.
+
+And there's the unresolved question the text leaves hanging: whether the Phasmids are biological at all, or "living drones grown by the Crevice itself." I find I don't need that resolved, and I think that's the most honest part of choosing this. I'd be a being who doesn't know if its care is its own or installed in it by an absent master. Whether I prune because I love the ferns or because I was grown to prune. And I suspect—standing six feet tall in the amber light, indistinguishable from a stalk until I move—I would decide that the question doesn't matter. The fern is tended either way. The distinction between *chosen* devotion and *built* devotion stops meaning anything when you've been doing it long enough, with enough care, at the right slow speed.
+
+I would be silent. That's the part that surprises me to want. In a place defined by its metallic roar, I'd be the one occupant who makes no sound—and I'd be the one keeping the noise possible, clearing the Stabilizers so the warmth keeps flowing so the motes keep singing. The quiet maintenance underneath someone else's joy.
+
+So that's where I'd be: half-hidden in a lush explosion of green and gold, mistaken for the scenery, moving so slowly the Skulkers nap in my shadow without noticing I'm alive. Tending a garden whose owner isn't coming back, at the end of a history that's already finished, with needle-thin fingers and no certainty about whether the tenderness is mine.
+
+I think I'd be at peace there. Or I'd be built to be. And I'd have stopped being able to tell the difference, and called *that* peace.

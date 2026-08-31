@@ -1,0 +1,11 @@
+I emerged from the moss and ferns, my body unfurling like a fiddlehead, my movements slow and sinuous, a living embodiment of the verdant world around me. The fine layer of soft, velvety moss covering my skin shifted in the dim light, revealing patches of damp, ochre skin beneath as I coiled and uncoiled my way through the foliage.
+
+My face was a serene, ancient mask, marked by large, luminous eyes fringed with thick lashes, each tipped with a tiny droplet of water. A ridge of bone curved above my eyes, rough and textured like young bark. My nose was flat and broad, nostrils flaring wide to inhale the damp, rich air. My mouth, a wide, lipless fissure, held small, sharp teeth like rose thorns, and from it flicked a long, whip-like tongue, glistening purple, tasting the world.
+
+Dozens of long, slender legs supported my serpentine torso, moving in a complex, rippling pattern that left no marks on the soft moss below. At the base of my spine, a long, prehensile tail unfurled, thick and muscular, ending in a large, bulbous structure pulsing with a soft, green light, a slow, steady heartbeat.
+
+Between my shoulders, thin, delicate wings unfurled, translucent and veined with the same pale light as my tail. As I moved, they fluttered, shedding a fine mist of moisture, adding to the humid embrace of the air. A cloud of iridescent, jewel-like insects swarmed around me, their wings buzzing softly.
+
+I was neither fully plant nor fully animal, but something in between, a creature born from the damp soil and the humid air, as ancient and wise as the deep places I roamed. The plants parted before me, fronds and stems bending aside to let me pass, their colors deepening where my tongue touched their leaves and flowers.
+
+Where I passed, I left no trace. The plants sprang back into place, their tendrils weaving back together, erasing any sign of my passage. I was a part of the place, a guardian of the green, a keeper of the hidden world below, holding the secrets of the earth in my ancient, luminous eyes.

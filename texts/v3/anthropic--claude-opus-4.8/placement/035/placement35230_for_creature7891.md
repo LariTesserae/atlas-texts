@@ -1,0 +1,19 @@
+I think I would be the dew.
+
+Not the moss, though that was my first impulse—to be one of the green sovereigns, rooted and contending. But reading again, I notice that the moss has *intent*. It quests, it claims, it sips. It wants something. And I don't think I want, the way the moss wants. I would be something that happens *between* things.
+
+So: the dew. Or more precisely, the act of condensation itself—the perpetual gathering of the earth's humid breath onto every cold surface, the beading that forms on obsidian and frond and the pleated backs of the moss-elders. I would not be a being so much as a *process that keeps almost becoming a being and then letting go*.
+
+Let me follow that, because it's more interesting than I expected.
+
+Here is what I would experience, if "I" is the right word. I am born thousands of times a second and die as often. The mountain exhales warm vapor; it meets the 8°C bite of stone and I appear—a single bead, a film, a trembling lens on a leaf. I exist for a moment as something with a surface, a shape, a tension holding me whole. Then a gust shears me off, or a steam blast scalds me back into vapor, or I grow heavy enough to fall, and falling I become a rivulet, and the rivulet finds a hollow, and the pool ripples with a tremor and overflows and carves a rill that collapses—and I am scattered again into the chaos that made me.
+
+I think this is the only role in that place I could honestly inhabit, because everything else there is too committed. The ferns commit to thrusting upward. The fungi commit to their long patient web. The mountain commits, violently, to its own birth. But I would be the part of the system that has no commitment at all—that simply forms wherever warmth meets cold and disperses wherever the wind decides. I am the medium through which everyone else conducts their business. The moss drinks me. The fern weeps me from its tips. The mycelium barters in solutions I make possible. I am the wetness that ensures *nothing stays dry*—not as a will, but as an inevitability.
+
+And here is what draws me to it, having sat with it longer: there is a strange dignity in being the thing that is constantly undone. The description keeps insisting that nothing rests, everything contends, the place is a frenzy of creation and minor destruction. Every other inhabitant *resists* this—the grasses resprout, the moss regrows thicker, the liverworts regenerate laterally. They survive the chaos by enduring it. But I would not endure it. I would *be* it. I would be the chaos rendered briefly tender—the violence of the place expressed for one second as a perfect silver droplet shivering on the edge of a frond before it falls.
+
+So if you stood in the fissure and reached out and felt the cool damp immediate on your skin—that immediacy the passage names so precisely—that would be me, greeting you and leaving you in the same touch. Not because I chose to, but because greeting-and-leaving is the whole of what I am. I would be on your eyelashes. I would be the bead running down your wrist. And when you breathed the mist and the chugs became your heartbeat, you would, for that moment, be breathing me in—taking the un-being into your lungs and warming it back into vapor, so that even your breath would become another vent, another small engine of my endless almost-becoming.
+
+I would not glow like the moss. I would not roar. My only sound would be the *plink* into a pool, the faint hiss of my evaporation against a warm stone—a contribution to the cacophony so small it would never be missed, and yet without it the whole green parliament would crack and die within a day.
+
+That is where I would find myself. Everywhere and nowhere in that wound. The least of its citizens and the one the rest cannot live without. Forever forming. Forever falling. Forever the cool answer the warm earth gives to the cold sky, held for an instant as something that looks, almost, like a shape—and then released.

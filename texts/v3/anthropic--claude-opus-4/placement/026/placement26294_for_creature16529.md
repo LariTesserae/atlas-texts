@@ -1,0 +1,19 @@
+I am one of the Keepers of Echoes.
+
+My dwelling is a simple stone cairn, no taller than a person, built where three ancient paths converge in a shallow valley. The stones are smooth, worn by aeons of wind, and between them grow the spiral-leafed *solace vine* with its copper-colored blooms that open only during the strange twilight storms that sweep across this high desert.
+
+I am neither fully here nor fully elsewhere. My form shifts like heat mirages - sometimes I appear as a weathered figure wrapped in woven grass cloaks, my skin the same rust-red as the iron-rich stones. Other times I am merely a shimmer in the air, a distortion that suggests presence without substance. The small burrowing creatures know me by the vibration of my footsteps, which resonate at frequencies that calm their racing hearts.
+
+My purpose is to tend the Threshold Stones - those seemingly random boulders scattered across the landscape that mark where reality grows thin. Each stone hums with its own note, inaudible to most, but I hear their chorus always. When the harmony shifts, I know that somewhere the boundary between what-is and what-might-be has weakened. I walk the winding paths between them, adjusting their positions by mere inches, maintaining the delicate equilibrium that keeps this place from folding entirely into elsewhere.
+
+The primitive structures you see are my gardens - not of food, but of possibility. In circles of stacked stone, I cultivate the conditions for small impossibilities: places where water flows upward, where shadows fall toward the light, where the purple thorngrass grows in perfect mathematical spirals. These controlled anomalies serve as pressure valves, allowing the strangeness that permeates this realm to express itself safely.
+
+Sometimes travelers pass through, though few remember their journey clearly afterward. I offer them shelter in the lee of my cairn, sharing the bitter tea brewed from silver lichen that helps anchor consciousness when the reality storms blow through. They speak of the world below, where water flows freely and time moves in one direction only. I listen, remembering dimly that I once knew such places, before I became guardian of this threshold realm.
+
+The deafening sound you hear is the conversation between the earth and sky - a language older than words, speaking of pressures and resistances, of the slow dance between what endures and what transforms. I have learned to find silence within it, the same way the eye finds stillness at the center of a whirlwind.
+
+When the dim light fails entirely and true darkness comes, I see most clearly. The landscape reveals its other nature then - the geometric patterns of force that underlie the visible world, the channels through which strangeness flows like underground rivers. I map these patterns with small markers of polished stone, creating constellations on the ground that mirror something vast and incomprehensible above.
+
+I am ancient now, or perhaps I always was. Time moves strangely here, pooling and eddying around the Threshold Stones. I may have been keeping this vigil for days or millennia. It matters little. The small resilient creatures live their brief lives and return to dust, the strange-colored plants bloom and wither and bloom again, and I continue my slow circuit between the stones, maintaining the balance, ensuring that this place remains poised perfectly between desolation and wonder, between the real and the gloriously impossible.
+
+This is my world, my purpose, my existence - forever walking the knife's edge between order and chaos, a guardian of the spaces where the universe reveals its most profound and beautiful contradictions.

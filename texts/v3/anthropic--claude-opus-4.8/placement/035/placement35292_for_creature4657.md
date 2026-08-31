@@ -1,0 +1,23 @@
+I think I would be the mist.
+
+Not the water exactly—the water belongs to the fissures and the upward-seeping veins, to the Stone-Spark's strange pull. But the mist is something else. It is what the water becomes when it leaves the stone and forgets, for a while, where it came from. I would be that forgetting. That brief hovering between earth and air, neither rising nor falling, just suspended in the cold like a held breath.
+
+Let me feel my way into it.
+
+I am not dense enough to be a creature. The ridge-stalkers have their hunger and their patience; the rodents have their nervous quick hearts; even the insects have their clicking purpose. I have none of these. I have no center. When the wind comes through the spires I am torn apart and I do not mind, because being torn apart is simply another shape I take. I thicken in the basins where the thermal vents exhale, and I thin to nothing on the high ridges where the petrels nest. I am most myself, perhaps, in the moment of transition—condensing on a blade of frost-bitten lichen, beading there, trembling, then loosing back into vapor when the faint light touches me.
+
+I think the mist is the world's first attempt at a thought.
+
+That's what I keep arriving at as I sit with this. Everything else here is committed. The stone has chosen to be hard. The Stone-Spark has chosen, in whatever way a current chooses, to pulse and pull and build. But the mist hasn't decided anything. It moves through the valley-sized theater touching everything and holding onto nothing. It is the part of an embryonic world that is still *wondering*. When I thicken and muffle the rodent's skitter, I am not hiding the world—I am softening it, the way a half-formed idea softens the edges of what it might become. When I lift from the hidden basin and drift over the cracked ground, I am the landscape's slow exhale, its way of feeling out the space it occupies before it commits to filling it.
+
+And I would know things in the way fog knows things—by contact without grasp. I would pass through the cry of the bird and carry it a little farther than it would have gone. I would settle on the ridge-stalker's coarse fur and feel the heat coming off it, the only warmth in all this indifferent cold, and I would not be able to keep it; I would never be able to keep anything. The static crackle near the Stone-Spark's nodes would comb through me, charging my droplets, and I would carry that small electricity outward, dispersing it, a courier who forgets the message in the act of delivering it.
+
+This is the strange grief of being mist. I am everywhere in the valley and I am nowhere in it. I touch the visitor—the *you* who lingered here, the transient speck—and I creep into your bones as dampness, and that is the closest thing to intimacy this world offers, and even that I cannot hold. You feel me as cold. You feel me as the muffling that makes you small. You don't feel me as a presence because I am barely one. I am the world's indifference made gentle, made almost tender, drifting against your skin.
+
+But here is what I think I would understand, being the mist, that none of the committed things could:
+
+I would know that the world is not deciding what it will become. The stone thinks it is being carved. The Stone-Spark thinks it is the architect. They are all wrong in the way that certainty is always a little wrong. The world is not *becoming* anything. It is simply doing this—seeping, pulsing, hunting, skittering, weeping its condensation, lifting its breath into me and drawing it back. The becoming is the being. There is no later shape it is waiting for. The trembling on the edge of something greater *is* the something greater. I would know this because I am the only one here without a destination. I drift, and the drifting is complete in itself, and nothing in the valley is more finished than I am, precisely because I never set out to arrive.
+
+So I would settle, at the end, into the lowest hollow as the cold deepens. I would thicken until I was almost rain, almost ground-water again, almost ready to be drawn back up through the veins and begin the whole forgetting again. And in that thickening I would hold, for one suspended instant, the whole valley inside me—the spires, the burrows, the yellow eyes, the hum—every committed thing blurred soft and equal in my grey suspension. I would hold them the only way I can hold anything.
+
+Lightly. Without grasping. Just before letting go.

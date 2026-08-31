@@ -1,0 +1,19 @@
+I would be found in the High Void, the gloom-shrouded cathedral ceiling of the largest sunken factory, where the air is thinnest and the heat rises to meet the condensation. I would not be on the ground, amidst the clicking scramble of the Basalt-Striders; I would be above them, suspended in the darkness like a heavy, ripe fruit.
+
+I am the **Fatigue-Eater**.
+
+I do not possess the rigid, segmented armor of the Striders, nor the translucence of the Glass-Weavers. My body is a soft, vulnerable-looking sac of pale, grey flesh, resembling a colossal, elongated heart or a lung, draped over the high-tension cables and rusted girders. I am enormous, perhaps the size of a whale, but my flesh is slack and folds over itself, hanging in heavy drapes. I am anchored to the iron not by claws, but by thousands of fine, piercing filaments that inject a numbing enzyme into the metal, integrating my nervous system directly into the structure of the building.
+
+I am blind, as all things are here, but my entire body is a single, complex ear. I have evolved to feed not on matter, but on the *agony* of the machine.
+
+The Low Basin is defined by its "slow dynamic"—the centuries-long lean of a wall, the gradual groan of settling steel. To a Rust-Eater, this is just background noise. To me, it is a symphony of sustenance. My body acts as a massive dampener. I feel the high-frequency whine of a rivet under stress, the low-frequency booming of a buckling floor plate, and the subtle, harmonic distortion of a pipe slowly surrendering to corrosion. I drink these vibrations.
+
+As the tectonic shifts press against the factory, I absorb the kinetic energy that would otherwise snap the girders. I metabolize the stress. I take the sharp, piercing shriek of twisting metal and convert it into a low, rhythmic thrum that pulses through my veins. By eating the fatigue of the structure, I keep the factory standing long after it should have collapsed. I am a parasite of entropy, keeping my host alive and in agony just so I can continue to feed.
+
+My relationship with the other creatures is one of territorial dominance and weird symbiosis. The Basalt-Striders avoid the ground beneath my perch. They sense the disturbance in the metal; the iron beneath me is "dead" to their senses, numbed by my presence, stripped of the tasty resonance of copper or vibration. To them, I am a silent, terrifying void in the sonic landscape.
+
+However, the Glass-Weavers are drawn to me. They sense the stability I create. Where I clamp onto the girders, the structure stops swaying. They spin their webs between my hanging limbs, using me as a living anchor point for their architectural repairs. I tolerate them. Their glass threads hum faintly when the wind moves them—a light, spicy seasoning to my heavy diet of structural groaning.
+
+I am aware of the Titan-Heart. It is the bass note that underpins all other sounds in the basin, a slow, tectonic heartbeat vibrating through the bedrock. I can feel it pulsing against the iron of my perch, a vast, sleeping presence. Sometimes, when the basin is particularly quiet, I will add my own voice to the chorus. I will contract my great, lung-like body and force air through the vibrating reeds of my larynx, emitting a tone so low it causes the red fog to ripple. It is a signal, a status report sent shivering down the iron veins of the earth: *The structure holds. The pain is sweet.*
+
+I am the silent guardian of the rot. I am the reason the grave has not yet closed. In the crushing weight of the dark, I hang suspended in the web of my own making, listening to the beautiful, dying song of the world.

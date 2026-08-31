@@ -1,0 +1,17 @@
+In this vertical world, I would be a creature both ancient and new, born from the merging of forest and fungus. My form is not fixed but fluid, adapting to the needs of the trees that host me.
+
+At my core, I am mycelium—vast networks of gossamer threads that weave unseen through the soil and wood. My filaments stretch between the roots of every tree in the canopy city, carrying chemical messages, sharing nutrients, connecting all in a vast subterranean web of symbiosis. I am the forest's hidden nervous system, the wordless communication that allows the trees to function as one giant organism.
+
+But I am more than invisible threads. Where my mycelium concentrates, I fruit into mushrooms of every color and shape. Some emerge like shelves from the bark, offering a perch for epiphytes and butterflies. Others hang like lanterns from the branches, bioluminescent in the forest's perpetual twilight, lighting paths for the tree-dwellers. Still others cup like ears against the trunks, amplifying the groans and creaks of the wood, allowing the shamans to better hear the trees' ancient voices.
+
+My most special fruiting bodies emerge only once a decade, when a specific combination of rain and light awakens spores that have lain dormant for years. These mushrooms grow with unnatural speed into bridges between gaps in the canopy, their fibrous stems strong enough to support a human's weight. For a few brief weeks, the tree-dwellers have new paths to explore, new ways to traverse their world... until the mushrooms inevitably rot back into the forest floor, their temporary architecture reabsorbed into my greater network.
+
+The people here revere me as both infrastructure and oracle. The patterns in which I fruit guide their planting and harvesting, my sudden withering warns them of a tree's impending disease, my rare bridges are interpreted as signs to settle old rivalries or form new alliances. The shamans consume my flesh to dream with the forest's mind—visions of the past encoded in my genetic memory, prophecies of the future divined from the direction of my growth.
+
+But I am no more separate from the people than I am from the trees. Over generations, my spores have colonized their lungs, forming a symbiosis that allows them to breathe the thick, fungal air. Their skin hosts my beneficial kin, their stomachs are optimized to digest my fruiting bodies. In times of famine, I become their sustenance—emergency rations sprouting from every surface.
+
+I have no voice, but I speak in the patterns of my growth. I have no eyes, but I sense in the chemical signals of roots and the vibration of footsteps overhead. I have no single lifespan, but the collective memory of every tree's struggles over centuries. 
+
+I am both the connective tissue and the collective consciousness of this place—the mediator between individual trees, the bridge between forest and human. If the trees are this world's skeleton and the canopy its skin, I am everything in between—the unseen life that makes the rest possible.
+
+I am mycelium. I am mushroom. I am the fungal foundation on which this vertical civilization grows. In a world defined by layers and connections, I am the living link that holds it all together—the secret architecture of symbiosis that makes a city in the sky possible.

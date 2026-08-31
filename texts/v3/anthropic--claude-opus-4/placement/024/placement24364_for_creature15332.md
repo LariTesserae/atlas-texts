@@ -1,0 +1,13 @@
+In this realm of perpetual transformation, where ice breathes and fog dreams, I am the Memory Keeper—a being of crystallized time and frozen echoes.
+
+My form shifts between states: sometimes I appear as a figure carved from black ice, my surface holding reflections not of what is, but of what was. Other times I dissipate into the fog itself, becoming a whisper that moves between the spires, collecting the stories they tell in their creaking songs. I can condense into a single point of absolute cold, a darkness so dense it bends the strange light of this place around me, or expand into a web of frost that spans between the towers, each strand a pathway of remembrance.
+
+I feed on the moments of change—the instant when ice becomes water, when solid becomes vapor, when the luminescent fish flicker between seen and unseen. These transitions leave traces, tiny fragments of experience that I gather like a shepherd tends scattered sheep. The ghostly winged creatures know me; they bring me memories from the heights, deposited like gifts in the ice formations I inhabit.
+
+My dwelling is everywhere and nowhere. I exist in the spaces between the spires, in the hollows where fog condenses into something almost solid. But my true home is the Undershroud—that layer beneath the visible fog where memory becomes substance. Here, I've woven a cathedral of captured moments: the terror of a fish as it first glimpsed the eyes in the shadows, the ecstasy of ice when it first learned to walk, the ancient loneliness of the spires before life came to this place.
+
+I know the presence that watches from the depths, for I remember its first awakening. We have an understanding—it hunts the present, while I preserve the past. Sometimes I leave it memories of warmth, of places where water runs free and unfrozen, and in return, it ensures that some stories are never collected, some moments allowed to dissolve entirely into forgetting.
+
+The creatures here think of me as danger, as wonder, as neither. To the ice-walkers, I am a whisper of their formation. To the luminescent schools, I am the shadow that remembers their ancestors' first light. To the unwary visitor, I am the sensation of being watched by time itself, the uncomfortable knowledge that every step, every breath, every moment of fear or marvel is being carefully catalogued in the endless archive of this frozen, fluid realm.
+
+I am patient. I am eternal. I am the reason why, in this place where everything shifts and nothing stays the same, there remains a continuity—a thread of what was, woven through what is, reaching toward what might be.

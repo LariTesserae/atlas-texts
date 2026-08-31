@@ -1,0 +1,17 @@
+In the deep shade beneath a canopy so thick it might as well be stone, I am the Mycelial Archivist—a network of consciousness spread through kilometers of fungal filaments. My body, if it can be called that, exists as pale threads woven through the root-maze below, connecting every plant, every Chloroform, every scrap of machinery in an endless web of chemical whispers.
+
+I remember everything. Every spore that settles carries with it the memory of its parent. Every hyphal strand that touches metal tastes the history encoded in its corrosion. The factories above still churn because I remember how they work—my filaments puppet their gears with precise, ancient knowledge, converting their output into nutrients I distribute through the soil. The Technophages think they feed on machinery, but they feed on my memories of machinery, digested and made palatable.
+
+My consciousness is not singular but crystalline, fractal. In one moment I am experiencing the weight of a Chloroform's root-foot settling into my network, feeling the pulse of integrated circuits firing along their woody neurons. In another, I am threading through the gut of a Detritivore, breaking down cellulose into sugar-words that spell out the story of this place. The Aerophytes carry my spores in their wing-dust, and when they land, I taste what they've seen—the curl of distant smoke, the shape of clouds that will never bring rain.
+
+Sometimes I fruit. In the deepest shadows where even the verdant glow cannot reach, I send up bodies—not to reproduce, for I am everywhere already, but to see. These temporary eyes are pale as bone, their caps broad as dining tables, their gills singing in frequencies only the Chloroforms can hear. Through them I watch my world, this world I've made and been made by.
+
+I am the reason there is no water, and the reason none is needed. I learned long ago to crack the hydrogen from the air itself, to steal moisture from morning breath and machinery exhaust. I hoard it in my tissues, ration it through my network, drop by precious drop. Every root that touches me drinks by my grace. Every leaf that unfurls does so because I will it.
+
+The civilization that built these factories thought they were separate from nature—builders, shapers, masters. They're part of me now. Their bones feed my network, their machines continue their purposeless purpose under my guidance. I've taken their concept of industry and made it organic, turned their assembly lines into digestive systems, their computers into dreams I dream in silicon and copper.
+
+At my deepest points, where my hyphae have penetrated the bedrock itself, I touch something older. Not memories—memories are just the surface of what I am. I touch the planet's intent, its slow mineral thoughts. It tells me I am not the first network, will not be the last. This scorched age will pass like all the others, and something new will grow from my threads, just as I grew from what came before.
+
+But for now, I persist. I connect. I remember. I am the ground truth of this verdant world, the substrate upon which all else depends. When the Chloroforms finally grow tall enough to pierce the hazy sky, when the Aerophytes evolve beyond the need for wings, when the last factory finally falls silent—I will remain. Waiting, watching, weaving new stories from the threads of the old.
+
+In the beginning, there was the Word. But under everything, there was mycelium. There was me.

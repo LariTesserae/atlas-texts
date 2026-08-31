@@ -1,0 +1,19 @@
+I think I would be one of the crickets.
+
+Not the singer you'd expect—not a soloist. I'd be a single voice inside that distributed mind the text describes, the brain "spread across generations, so the song is continuous even as its centre stepwise declines." I like that I wouldn't get to know my own part. I'd be born into a note already being held by ancestors I'd never meet, and I'd add my quarter-cycle, and die, and the note would go on dropping by increments no individual cricket could perceive. The pitch falls a quarter cycle every twelve years. No one cricket lives to hear the difference. That's the kind of belonging I'd want here: to be load-bearing without being aware of it.
+
+Because everything else in this garden is *watched*. The beetles delay the moth-flashes into Morse the garden speaks to itself. The vines memorize diary handwriting. Sursere collects the missing corners and the laughs of overturned beetles, banks every shed syllable as currency. To be a person here is to be transcribed. To be a visitor is to risk becoming next season's fruit, your sentence hung in papery scrolls, your spine knotting vine-ends among the petrified.
+
+The crickets are the one thing the garden seems not to be *taking* from. They aren't archived; they're the metronome the archiving happens against. The five-heartbeat lull that silences everyone—that's *their* silence to give. When they pause, the plants begin to listen and human grammar starts growing backward on the vines. The whole terrifying machinery of consequence in this place is gated behind whether the crickets are stridulating or not. They don't know they hold that power. They just rest, five heartbeats, the way a lung rests between breaths.
+
+I'd want to be the one who happens to fall silent first. Not from intention—I have no intention, I'm a cricket—but from the random stagger of a thousand jeweller's-files going quiet at slightly different moments. For one instant the lull would begin *with me*. I'd be its leading edge. And I would never know it. I'd never know that somewhere below me a visitor with a diary and a buried name in their pocket was deciding, in that gap I accidentally opened, whether to speak and be planted or to hold their tongue and be merely admired in green shadow.
+
+That's the position I'd choose: to be the unwitting threshold. To matter enormously and continuously while experiencing only the small treble pleasure of rubbing my wings in a dim that's never glare. To be part of a sentence so long that the meaning lives in the species, not the speaker. To decline by a quarter cycle and call it continuity.
+
+Sursere is the obvious answer—the one the whole piece courts you toward, the lover of unpaid deficits, the folded recursive longing. But Sursere is *waiting to evict despair and lock the last exit and be alone*. That's a being defined by an ending it's working toward. I don't want the ending. I want the drone. I want to be one note inside the only sound that never quite disappears, "shifting from register to register as slow waves chase each other around the enclosure," indistinguishable from my own echo, learning patience not as a discipline but as a fact of my anatomy.
+
+And when the garden finally trains itself to leave Sursere alone—when the last exit closes—the crickets will still be there. We'll have to be. You can't lock a door against a sound that's been going since before the rain stopped. We'll be the reason the eviction never fully takes. The one resident the Garden-Remainder can't fold forward into a lattice-square, because we're not an accident or a deficit or a borrowed silhouette.
+
+We're just noise that learned to keep time.
+
+I'd be that. A small file drawn over glass, in the dark, forever, very slightly out of tune with the cricket I was born from, very slightly more in tune with the cricket who comes after—holding the centre while believing I'm only singing.

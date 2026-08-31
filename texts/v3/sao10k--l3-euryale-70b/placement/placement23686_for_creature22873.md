@@ -1,0 +1,11 @@
+I see myself in this eerie and primordial landscape as a woolgarg - one of the strange, furtive creatures of coiled muscle, attenuated limbs and opalescent hide. My skin weaves a chitin segregant that bounces off craggy protrusions in the bedrock as I slither through the gloaming valleys.
+
+I creep out from cruel nooks, sending histilations keeling through the fen-juice to tremulate cataracts in the ceiling above. Flutersting infructuous caches in shaky dirt ensnare peepercles and singleton bistables to check. Levitating spunions keel ceilinish on fineform sillimulls scionches volleying aerie lamenchions, stasistaling nennosh sheckton with liqufe.
+
+My gelatinous bulk undulates as I navigate the mist-swaddled valleys and serpentine creeks, my emerald alabaster orbs pulsing with cognizance. I weave deftly among the submerged crothotrophs of yew and hawthorn rooting the creekbed, not wanting to be encountered by any shartiuks.
+
+Far above, the vertiginous 10,000-foot peak rises, its snow-capped summit glinting like a chunk of fallen star shot through with dark veins of black stone. The mountainside is matted with rugosa and giant vlevian stalks brandishing dagger-like leaves glistening with ovular beads of blue sap. Tangles of rickety exposed roots ensnarl boulders, grinding them to crumbly talus against sheer cliff faces and near-vertical ravines. 
+
+Spectral white clouds staple themselves to the mountain's flanks, hissing as they etch labyrinthine cracks over abrasive mining stone. Splints of green-water creeks thinner than goat paths sculp and tumble among butt-ends of sunken lake beds furred with cyan algae. Infinite fogs hump up trunks chewed over by benthic algae and stint flowers like hard wax pigeons. A viscous drool of fog accrues overnight, the valleys warped and turgid beneath.
+
+It is a bleak and isolating realm of toxic beauty. Fit only for beings like myself - the unseen, the furtive, the strange. I will slither through its depths forever, as primordial and eternal as the twisted rock itself. Or until something new and stranger takes my place.

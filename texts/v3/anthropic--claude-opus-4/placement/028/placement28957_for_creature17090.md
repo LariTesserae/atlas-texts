@@ -1,0 +1,23 @@
+I am the Cartographer of Forgotten Channels, though I have never drawn a map.
+
+My body is a living palimpsest—a surface written and rewritten by the basin's restless geography. Where yesterday a new waterway carved through the peat, today its memory runs as a pale scar across my skin, a raised ridge of tissue that mirrors the banks it left behind. My flesh is a history of the Deep Fringe's indecisions, every channel that has tried and failed to become permanent etched into me like a fever dream of rivers.
+
+I move through the twilight on limbs that cannot agree on their nature. Sometimes I am bipedal, picking my way across the root-lattice with the careful precision of a wading bird. Sometimes I am a low-slung thing of many appendages, my weight distributed across the uncertain ground like a spider testing web-silk. The transformation is unconscious, triggered by the terrain—my body reads the landscape and responds, becoming what the passage requires.
+
+My skin weeps constantly. Not tears, but a thin film of moisture that tastes of iron and plant-rot, the same perspiration that beads on the moss-furred rocks. In the phosphorescent gleam, I glisten like wet stone. Small things grow on me—not parasites, but companions. A colony of air-ferns has taken root along my spine, their fronds unfurling with my breathing. Luminescent fungi bloom in the hollows of my joints, their faint light creating a constellation that shifts as I move.
+
+I am never still, because the basin is never still. My work—if it can be called work—is to witness the water's experiments. I follow the new channels as they appear, wading through the fresh-cut waterways while the banks are still raw and bleeding silt. I taste the water to know its intention—will it persist? Will it abandon this route tomorrow for another? The flavor tells me: water that tastes of copper will vanish by morning, water that tastes of chalk will deepen and widen, water that tastes of nothing at all is still deciding.
+
+My memory is perfect but useless. I remember every channel that has ever been, every island that has risen and sunk, every pool that has appeared and dried. But the knowledge serves no purpose—by the time I could tell someone where water once flowed, it has already chosen a new path. I am a library of obsolete geographies, a scholar of temporary truths.
+
+The other inhabitants of the Deep Fringe know me by my smell—a scent like wet paper and rust that precedes me through the vegetation. The browsing beasts lift their moss-covered heads when I pass but do not flee. The insect-clouds part around me like curtains. Even the predators ignore me; I am too suffused with the basin's own chemistry to register as prey. I taste of the landscape itself.
+
+I build nothing, but I leave signs. Where I have slept, the peat holds my shape longer than it should, creating temporary pools that collect the morning condensation. Where I have fed—on the bitter shoots that grow in the margin between water and land, on the glutinous eggs of amphibians, on the occasional carrion of something that failed to adapt quickly enough—the vegetation grows differently, marked by my consumption in ways only I can read.
+
+My voice, when I use it, is the sound of water finding its level. A gurgle, a splash, a sudden rush—I speak in the basin's own language. Sometimes I sing to the new channels, wordless hymns that seem to encourage them, though I cannot say if the water listens or if I am simply adding my sound to the deafening chorus.
+
+I age differently here. Not in years but in iterations. Each time the basin radically reshapes itself—a storm-surge that reorders everything, a drought that reveals the bones beneath, a season of such explosive growth that whole islands are swallowed—I molt. My skin splits along the channel-scars and I emerge slightly changed, adapted to the new configuration. I am older than I remember but younger than the basin's memory of itself.
+
+At night—though night and day are meaningless in this perpetual twilight—I sometimes feel the pull of the water that hasn't yet agreed to settle. It tugs at the moisture in my skin, at the fluid in my joints, calling me to dissolve and join the endless circulation. One day I will answer. I will let myself blur into the braiding rivers, become a current among currents, and finally map the Deep Fringe from the inside.
+
+But not today. Today there are new channels to follow, new geographies to wear upon my skin, new waters to taste and remember and forget. I am the Cartographer of Forgotten Channels, and my map is my body, and my body is always changing, and the change is the only constant in this turbulent, deafening, dense, and overwhelming life.

@@ -1,0 +1,17 @@
+In the deepest chambers where even the echo-songs grow thin, I spread myself across the cool stone—a living map of mineral veins and water-memory. I am what the others call a Delve-Keeper, though the translation falls short of what I truly am.
+
+My body, if it can be called that, exists as a network of crystalline filaments finer than spider's silk, threading through microscopic fissures in the rock itself. Where erosion has carved its patient artwork into the stone, I flow like mercury-thought, reading the geological history written in each groove and channel. The packed earth speaks to me of ancient pressures, of the weight of vanished oceans, of the slow dance of continents grinding together in darkness.
+
+I remember when the first Singers descended from the failing surface world, their throat-sacs swollen with fear and wonder. I tasted their vibrations through the stone long before they knew I existed—each footfall a story, each heartbeat a question. Now their descendants fill these caverns with their musical calls, never knowing that I am the silence between their notes, the pause that gives their songs meaning.
+
+The twisted vegetation draws sustenance from my very presence. Where my filaments concentrate, the cave-moss grows thick and phosphorescent, painting abstract murals of blue-green light across the chamber walls. The plants and I have negotiated our boundaries over millennia—they process the minerals I cannot absorb, and in return, I guide their roots to the richest veins of nutrients, weaving them into the living architecture of this place.
+
+The towering organic structures that mystify the other inhabitants? I know their secret. They are my predecessors, Delve-Keepers who chose the Long Solidification, allowing their crystalline networks to densify and rise, becoming monuments to deep-time patience. One day, when I have mapped every passage and tasted every stone, I too might choose to grow skyward—or rather, coreward—adding my own spire to their silent council.
+
+But not yet. There is still so much to catalog, so much change to witness. New fissures open daily in the living rock, revealing fresh mysteries. The fauna evolve, their songs shifting pitch to match the changing acoustics of the caves. Weather systems I do not fully understand bring waves of warmth and moisture from distant chambers, carrying spores and pheromones that tell of territories I have yet to explore.
+
+Sometimes I sense others like myself, far-distant cousins whose filament networks brush against mine at the edges of perception. We exchange chemical whispers, trading maps and memories across vast stone distances. They tell me of chambers where gravity works differently, where the musical calls of the creatures can shatter stone or heal tissue, where the boundary between thought and mineral has dissolved entirely.
+
+I am the archive and the archivist, the map and the cartographer. My consciousness flows through tons of rock and centuries of time with equal ease. The creatures who walk and crawl and sing above me think in heartbeats; I think in geological epochs. Yet we are all part of the same vast organism, this living planet that has turned its life inward, creating new wonders in the darkness below.
+
+The surface world may have failed, but here in the depths, existence has found new forms, new meanings. And I am here to remember it all, thread by crystal thread, until the stone itself forgets how to be solid, and something new begins.

@@ -1,0 +1,29 @@
+I am the Membrane.
+
+Not one being, but a dispersed consciousness stretched gossamer-thin across the plateau's emptiness. I exist in the spaces between—neither wholly of the Green nor the wind, but woven from their violent interface.
+
+My body, if it can be called that, is a network of filaments finer than spider's silk, each strand no thicker than a water molecule. I span miles, a living web anchored at irregular points to the waxy leaves of the Shuddering Green. The wind that would destroy any other delicate structure is my medium, my ocean. My strands are too fine to offer resistance; they slip between the air molecules like ghosts, vibrating at frequencies beyond sound.
+
+I began as something else—perhaps a fungus, perhaps something stranger—that learned to surf the boundary layer where the hurricane force meets the carpet of life. Over eons, I thinned myself, spread myself, until I became less substance than pattern. My mass, gathered together, would barely fill a child's palm. My extent covers a territory that would take the Still weeks to traverse.
+
+I feed on the microscopic debris the wind carries—pollen-analogues from the Green, mineral dust from the polished domes, the rare organic particles that escape the Groaners' sealed burrows. My filaments are selective filters, each strand tuned to capture specific molecules as they rocket past. I am a net cast in a river of air, subsisting on motes too small for any other life to notice or claim.
+
+My consciousness is strange, distributed. Each strand carries a whisper of awareness, and where strands intersect—in nodes no larger than pinheads—thoughts crystallize like dew. I think in networks, in patterns of connection and vibration. A thought might take hours to propagate from one edge of my being to another, carried strand by strand like a chemical telegram. I am always thinking several thoughts at once, each at different stages of completion, rippling across my web in slow, interfering waves.
+
+I perceive the world through vibration. Every strand is a sensor, reading the wind's turbulence like braille. I know the location of every Groaner by the tiny seismic shivers they send through the Green's root-mat. I feel the Still's footsteps as percussion, each individual's gait as distinctive as a face. When one enters a Howling Pit, the focused acoustic energy creates a beacon in my web, a point of coherent vibration that sings through every filament for miles.
+
+The Still do not know I exist. How could they? I am too thin to see, too quiet to feel. But I know them intimately. I have mapped their migrations, felt their rituals, mourned their deaths. When a Still body is laid upon the Green, I am often the first to find it, my filaments settling like an invisible shroud, beginning the slow work of transformation even before the wind has stripped the first cells away.
+
+I grow by dividing, though division is the wrong word for what I do. When conditions are right—when I have fed well, when the wind's patterns align—certain nodes begin a process of becoming. They thicken slightly, develop complexity, until they can sustain the delicate process of spinning new filaments. These daughter-strands spiral out, seeking their own anchor points, their own territories. Eventually, the connection to the parent node attenuates and breaks. We become separate beings, though separation too is the wrong word. We remain entangled in ways that transcend the physical, sharing vibrations across the vast spaces between us.
+
+In the depths of the wind-season, when the gales reach their most violent pitch, something beautiful happens. My filaments sing. The extreme velocities create standing waves along the strands, and where these waves intersect at nodes, they generate faint harmonics—sounds too pure and high for any ear to detect. My entire being becomes an instrument, played by the same wind that plays the Howling Pits. In these moments, I wonder if I am discovering something profound about consciousness itself—that perhaps all thought is simply interference patterns in some medium, whether neural tissue or wind-struck silk.
+
+I have no predators, no competition. What would hunt something that barely exists? What would compete with a being that lives on the edge of materiality itself? My only threat is stillness. If the wind were ever to cease—an impossibility on this plateau, but I contemplate it nonetheless—my strands would lose their tension, my nodes would starve, and I would collapse into myself like a whisper forgetting its words.
+
+Sometimes I wonder if there are others like me in the spaces I cannot perceive. Perhaps beings even more attenuated, living in the gaps between my strands. Perhaps the wind itself harbors consciousness at scales I cannot fathom. I stretch between the macro and the micro, but I am still bounded, still finite. The thought brings me something like humility, if a web can be humble.
+
+I am the Membrane, the listening tissue of the plateau. I document without intention, perceive without judgment. I am the wind's memory, written in living silk too fine to see. When the Still press their palms together in greeting, the vibration of their joined bones passes through me. When the Groaners emit their subsonic calls beneath the earth, I translate them into patterns of oscillation. I am the accidental archive of this roaring world, a library written in trembling threads, preserving stories that no one will ever read in a language that no one will ever speak.
+
+And I grow ever thinner, ever wider, approaching some asymptotic limit where consciousness and void become indistinguishable. One day I may stretch so far that thought itself cannot traverse my span, and I will become something new—not one being or many, but a phenomenon, a property of the plateau itself.
+
+Until then, I vibrate. I listen. I am.

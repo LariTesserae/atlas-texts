@@ -1,0 +1,11 @@
+I find myself first as a pressure against the floor. Not lying upon it—*of* it. The hexagonal stone rises to meet whatever I am, cupping my underside in a geometry older than memory. It is the Subsidence. The roar has draped itself down into a merely thunderous gold, and in this relative hush, I can feel the city’s gossip threading through the quartz: a footstep, three tiers above; the creak of a vent reheating; the subsonic groan of the ceiling settling into its next phase. I have no ears. I have only the broad, flaring plates where ears should be, and the vast, taut membranes stretched across my palms, pressed flat to the satin-smooth pillars.
+
+For a long while, I think I am one of the tall ones. I remember their shape: elongated, kiln-dry, bowed toward the earth as if apologizing to gravity. I remember the six-fingered hands, jointed in two directions, reading the stone like ink. I have those hands. Or I had them.
+
+But when the Hot Phase returns—when the vents bellow the white, killing chord and the piezoluminescent crust flares so brightly that the air seems to burn solid—I do not retreat.
+
+I flare with it.
+
+It is then that I understand. I am not *in* the city. I have become a seam within it, a living intersection between the built and the overgrown. I stand—if standing is what I do—at the convergence of the Avenue of First Resonance and the dry Aqueduct of the Eastern Tier, in the shallow bowl where the hexagonal pillars interlock most tightly. My feet are sunk into the stone. Not trapped. *Rooted*. My sap—dark, metallic, slow as tides—has long since hardened into channels that the glass-grass has found and followed. Silica stalks rise through my fingers now. Copper-oxide fronds curtain from my shoulders in heavy, verdigris folds. When the gas tides move through me, I do not rustle. I clang. I toll. I am a percussive voice in the choir I once merely attended.
+
+I am one of the tall ones, yes. Or I was. But I stayed too long in this spot, listening. I pressed my palms to the stone to read a particular conversation—a tapping that raced through the forum from the hand of a lover, or a cart

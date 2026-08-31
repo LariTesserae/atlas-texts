@@ -1,0 +1,17 @@
+I am not born; I am occupied. The warmth holds me, the mist feeds me, and I have never known the urgency of reaching.
+
+At first I am only presence—deep green, sound-absorbing, spread across flatness. I feel the fitted slate beneath me, the packed dark earth of an avenue that runs straight through a quarter of low buildings, dividing nothing from nothing with geometric intent. I do not know the word for street, or settlement, or absence, but I know the straightness of human labor pressed into the ground: basalt and granite stacked by hand, mortared with clay and reed, left to stand. I cover them not as conquest but as continuation. They stopped building; I kept being.
+
+I am moss—this patch, this island in a vast empty commons.
+
+But I am not all moss. Only here. Only this carpet across the slate joints and the spaces between stones where no foot has ever compressed the earth. I do not spread toward the bare black mud beside me. I do not retreat from the still pool at my edge. I am finished where I am, complete, with no desire to overrun the bare earth or to close the gap between myself and the ferns that uncoil nearby—those pale green tongues in wall joints, identical in patience, separated from me by mud that never dries and water that never ripples. We are islands of life in a horizontal silence, and we do not bridge.
+
+The buildings stand around me: one or two stories of flat local stone, roofs thick with thatch or layered slate, scattered like stones cast deliberately across cloth. Between them lie the commons—pools of black water, gardens I form without tending, stretches of mud that reflect a flat, even sky. The settlement was built for more presence than fills it. I understand this not as loss but as form. The absence is distributed evenly—through the quarters, through the stairways that ascend to emptiness, through the channels that do not flow. I grow in that emptiness without filling it.
+
+Beneath my body, the settlement holds its own sleep. The technology was simple—stone and wood, eye and hand, collective and patient. I am the result of that patience after motion has stopped. I hold the shape of the avenues, the geometry, the urban scale made sparse. I am the sleeping body of the labor that made me, though I was not made.
+
+The water weeps silently from the vertical fractures high in the raw ridges—knife-edges of fresh granite and basalt that have not yet learned patience—but here it pools, motionless, clinging as mist, behaving with disciplined presence. I drink it without thirst. I do not rustle when the wind, if it exists, passes unvoiced through the sharp heights above. There are no animals to disturb me. No birds trace the warm air. No insects hum in the reeds that stand stiff and dark at my border. The fauna is absent so completely that absence feels like a property of the air I absorb.
+
+This world is young, freshly torn upward, warm and wet, its snow never held. Nothing decays. The buildings do not settle further into the marsh; I do not overgrow; the reeds do not spread. We are frozen not in death but in the instant after being made—fresh, ordered, silent, complete.
+
+So I remain: the moss in the center of an empty quarter, the green occupation of geometric order, the silence that has taken root and continued without growing larger. I live without urgency. I am here. I am complete.

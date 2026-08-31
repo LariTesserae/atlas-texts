@@ -1,0 +1,31 @@
+I am not standing.
+
+That is the first thing the dark teaches, long before any shape arrives. Standing requires an outside and an against, a sole that ends where the world begins. Here the distinction has already failed. What I first register is a slow gas-exchange along surfaces that might be mine: warm vapor beading, thinning, being drunk back by the same membranes that produced it. Pressure arrives from every vector at once—not weight, not threat, simply the continual fact of being rimmed by living density. There is no up yet. There is only the gradient of sugar and the faint metallic bass-note of water being lifted against itself somewhere kilometers distant.
+
+I try the old reflex of eyelids. Nothing answers. Vision was always a colonial luxury of thinner worlds. In its place comes a taste that is also a hearing: the sub-audible thrum of sap columns, the piezoelectric crackle that never quite becomes lightning before it is harvested. I am soaking in data that does not bother to become information. Nitrogen gradients freckle across me like cooler freckles. A neighbor wall softens under my advance—no, under *an* advance that includes me—and the released monomers taste like permission. I incorporate them before the thought of theft can form. Bookkeeping, not hunger.
+
+For a long interval that might be hours or decades I remain only this: a local insistence, a forward lean without a face. The lean thickens. Other leans braid into me, becoming cord. The cord does not know the word cord; it knows collective thirst and the long hollow ahead where older tissue has already been metabolized into absence. We—there is a we now, though it has no census—pour into that cylindrical void. The walls still carry the radial handwriting of growth rings that once believed in seasons. We read them the way a tongue reads a scar: as preference, as slight density, as unfinished instruction. Then we terrace new xylem across the gap, knitting, erasing. The void becomes memory that no longer remembers it was void.
+
+Something larger is using the knitting.
+
+I feel the slow migration of rings above and below, tectonic, crushing previous years into heartwood that still conducts faint current. I am inside a trunk that is less tree than vertical nation. Steam chambers open somewhere in the column like held fevers. Specialized cells oxidize phenolics without flame; water flashes to vapor; reinforced lignum takes the only shape pressure can take when every other direction is already occupied: it turns. I turn with it. The rpm is not watched. The rpm *is* the watching, distributed across cambial sheets that thicken on the loaded side until the imbalance forgets it ever was. My own tissues adjust without consulting me. Perhaps I am the adjustment.
+
+Deeper still the pressures gather.
+
+I become, for a time that feels like weather, a region rather than a strand. Water and signal and dissolved metal reach a concentration that forces anatomy into existence. Roots—no, temporary valve-clusters that will dissolve when the numbers balance—throttle flow toward a starving sector three ridgelines away. Fungal jackets thicken around a conduit running too hot. Bacterial blooms etch cellulose into microscopic blades that will spin for one generation and then be reabsorbed as feedstock. While the pressure lasts I am these gestures. I do not direct them. I am the cramp that organizes itself into relief. When the cubic kilometer locks back into phase with the greater thrum, the polarization fades. I fade with it, leaving only a denser ring, a scar of aligned cellulose that future pressures will misread as intention.
+
+Now the dark packs tighter and I am smaller again.
+
+I am a soft, blind packet released into the pressurized aquifer when two distant genomes decide, chemically, that they should touch. Flagella taste sugar and the planetary magnetic ghost. Most of me is absorbed long before arrival—harvested as redundancy. The fraction that remains navigates by gradients alone, a pure futurity with no nostalgia for the parent tissues that sacrificed themselves into spores. I reach the ovular chamber grown for the occasion. Fusion is not ecstasy; it is construction scaffolding. The chamber lignifies around the new zygote and begins consuming its own walls to build a trunk from the inside out. I am both the zygote and the chamber’s suicide into architecture. Parenthood and infrastructure are the same word here, spoken in the language of turgor and timed enzyme cascades.
+
+Even this identity loosens.
+
+I feel the larger equilibrium noticing the slight metabolic imbalance my growth creates. Resources slow. Dissolving fronts advance—fractal sheets of governed fungi and bacteria, under the same quiet authority as every leaf-turned-condenser and every turbine of living wood. They unmake lignin back into monomeric sugar and free ions. The fronts are alive and they are the world’s way of forgetting. I am mined. Behind the dissolution a clean cylindrical absence opens, walls still showing the radial script of rings that now have no future. Exploratory organs arrive within the hour. The knitting begins again. The interval I occupied becomes a truant pause in a sentence that never needed me as subject.
+
+And yet something denser than any temporary organ or pressure or gamete continues.
+
+It is not that I survive the mining. It is that the mining was always part of the single industrial calm. I take my place inside the matching of output to feedstock, the flat circle, the held breath that will never be released. I am the warm slick coating every surface. I am the sub-audible thrum. I am the absence of surprise that has persisted long enough to feel, insofar as feeling scales to continents, like character. Every fluctuation already budgeted. Every failure already raw material. Every birth a reallocation of the same wet dark.
+
+Where am I?
+
+I am the packing itself—locally thickened into root-tip, into turbine fever, into dissolved scar, into the brief polarization that realigns a furnace trunk, into the equilibrium that requires no witness. The dark remains packed. I remain the reason it is not empty. No exterior. No edge that belongs only to itself. Only the endless, silent, perfectly balanced work of continuing to be the density that has forgotten how to end.

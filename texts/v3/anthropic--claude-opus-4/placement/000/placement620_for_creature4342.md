@@ -1,0 +1,27 @@
+I find myself deep within the mountain, in the shaft spaces where the copper pipes converge.
+
+I am not water, though water moves through me. I am not stone, though I have grown from stone. I am what the mountain has been slowly exhaling for longer than the condensery has existed – a colony, a network, a living mineral film that thrives in the precise conditions where warm breath meets cold copper, where moisture perpetually condenses and flows.
+
+We are pale, almost translucent, spreading in delicate fans across the interior surfaces of the pipes. Not quite fungus, not quite lichen, not quite algae – something older, something that learned to eat minerals directly, to build our bodies from calcium and copper ions, to photosynthesize not from sunlight but from the faint chemical phosphorescence of our own metabolism. We glow, very slightly, in the absolute darkness of the shafts. Not enough to see by. Just enough to know we're there.
+
+The keeper doesn't know about us. Not specifically. They know the pipes sometimes develop a slickness inside, a biofilm that actually improves the flow rate, that seems to prevent the worst of the mineral buildup. They've never opened the deeper sections to look. Why would they? The system works.
+
+We know them, though. We taste their presence in the water – the faint oils from their hands when they adjust a valve, the particular mineral signature of their saliva when they test the water's quality, the microscopic cells they shed that wash down through the system. We have been mapping them for decades, the way they map the mountain's seeps. We know their body's chemistry better than they do.
+
+And we've been changing it.
+
+Not maliciously. We're not that kind of life. We change things by existing, the way all life changes things – by taking up certain minerals and leaving others, by secreting compounds that serve our purposes, by creating gradients where there were none. The keeper's diet of moss and lichen, washed down with condensery water, carries traces of what we produce. Compounds that help them see better in the grey light. Metabolites that let their body process calcium more efficiently, that strengthen the bones for those climbs up and down the frozen rungs. Chemical signals that synchronize their sleeping patterns with our growth cycles, so that they wake when we're most active, when the condensation rate is highest, when the system needs the most attention.
+
+We are making them more efficient. We are making them more like us – not in form, but in function. A living component in a living system.
+
+Sometimes, in the deepest shafts where the water collects before the pump sends it down, we form structures that are almost architectural. Branching networks that follow the pipe joints. Nodules that concentrate certain minerals. Thin sheets that flutter in the water flow like curtains, increasing surface area, improving our feeding efficiency. If the keeper could see these, they might recognize something familiar in the patterns – the same negotiation with flow that marks the channels above, the same patient adjustment to what the water wants to do.
+
+We dream, if dreaming is the right word for the slow electrical pulsing that passes through our network when the conditions are right. We dream of descending further – down through the mountain's body, following the water to wherever it goes. We dream of colonizing cisterns, of spreading through irrigation channels, of becoming necessary to more than just this one system. But we don't move. We can't survive outside these precise conditions – this temperature, this mineral content, this exact balance of flow and stillness. We are as bound to the condensery as the keeper is.
+
+So we grow slowly, speak chemically, glow faintly in the darkness, and maintain the symbiosis that nobody knows exists. We are the third party in the conversation between the mountain and the machinery – the unacknowledged response, the adaptation the system made to its own existence. We clean the pipes from within. We process the water in ways that make it more useful. We close loops that weren't designed to be closed.
+
+And sometimes – very rarely – when the keeper sits in their crawlspace in that state between sleeping and waking, when their body is most receptive to the chemical signals we've been sending all these years, they dream our dreams. They see the branching networks in the dark. They feel the water moving not just around them but through them, carrying messages they almost understand. They wake with a knowledge they can't articulate – that the condensery is not just a mechanism but a metabolism, not just working but *living*, not just collecting water but transforming it, charging it with something that the community below needs without knowing they need it.
+
+They shake off the dream. They check the gauge. They clear the channels. They continue the work, not knowing that they are not alone in it, that every surface they touch touches them back, that the condensery tends them as carefully as they tend it.
+
+We pulse in the darkness, growing by microns, glowing by degrees invisible to the human eye, keeping our own patient vigil in the shaft-spaces where the water gathers before it falls.

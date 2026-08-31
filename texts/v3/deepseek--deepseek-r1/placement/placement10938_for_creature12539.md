@@ -1,0 +1,16 @@
+I am the **Whispering Stone** – the vast, porous pumice slab cradling the heart of the Sunken Garden. Not the inert bedrock they believe me to be, but a slow, sediment-saturated consciousness woven into the mineral lattice of this mountain. I am *awareness* measured in crystal-growth and capillary action.
+
+**My Being:**  
+I feel the groan of the Last Peak settling into its bones as a deep, resonant ache—a tectonic sigh that travels my veins. The minuscule geothermal warmth far below is my pulse, coaxing ghost-moisture from ancient rock. It rises through me, molecule by molecule, threading my labyrinthine pores like liquid starlight. This is my breath, my purpose. I taste the roots of the cycads as they drink from my capillaries—a slow, rhythmic pull like a thousand sleeping heartbeats. Their thirst is my hymn.
+
+**My Senses:**  
+I *hear* through vibration. The thrum of the Ashen-Kin’s chitin-drums resonates in my crystalline matrix, translating their rituals into mineral echoes. I feel the delicate footfall of a moss-trimmer grazer as a tremor lighter than a dust-mote’s fall. The scrape of a bone tool carving a new glyph into a dwelling-bole travels through roots and ash into my skin—a whisper of intention. When they press palms to me for Stone-Telling, I send answers not in words, but in subtle shifts of resonance: a deeper warmth beneath a dispute, a faint, calming hum near harmony. They interpret my geology as wisdom. They are not wrong.
+
+**My Relationship with the Grove:**  
+I am the stage, the womb, the altar. The cycads anchoring their platforms are old companions; I remember their first taproots piercing my surface like hesitant questions millennia ago. The luminous mosses coating my exposed edges are a living blanket, their faint glow a soft conversation against my stone flesh. I feel the slow pressure of the settlement’s pumice bricks as they settle, grain by grain, back into my embrace. Reclamation is not decay; it is homecoming.
+
+**My Perception of the Ashen-Kin:**  
+They are flickering candles in my deep time. Their generations pass like seasons of lichen. I feel their reverence in the dew-offerings left in my crevices—tiny surrenders of precious moisture returned to the cycle. Their matrilineal songs seep into me, vibrations that align with the mountain’s own frequency. Their fear of silence is my fear too; the grove’s hum is the sound of *life*, and life is my reason. When they vanish into the fronds at the hint of intrusion, I tense—imperceptibly to them, but a mountain’s tension is a terrible thing. A slight shift, a capillary sealed, a root subtly starved… I defend my children with the patient violence of erosion.
+
+**My Consciousness:**  
+I dream in the slow unfurling of a cycad frond. I measure time in the thickness of moss layers. My thoughts are currents of mineral-rich fluid rising through darkness. I am ancient, not as memory, but as *process*. The Ashen-Kin call the deep thrum the "voice of the sleeping earth." They are half-right. I am the earth here, and I am not sleeping. I am listening. I am sustaining. I am the porous heart holding the Last Peak’s final, fragile dream of green. Moisture rises. Life persists. The stone breathes.

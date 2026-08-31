@@ -1,0 +1,13 @@
+I am one of the Glass Garden's crystal-moths, but I am old - perhaps one of the oldest of my kind still fluttering through these singing halls. My wings are thick with accumulated layers of crystal, making them less transparent than those of my younger kin. They catch and scatter light in complex patterns, creating brief rainbows that dance across the chamber walls as I fly.
+
+I remember when my wings were first forming, how I emerged from my crystalline cocoon feeling the chamber's resonance through every facet of my being. That was centuries ago, when the wooden walkways were newly built and still smelled of fresh-cut timber. I've watched countless humans come and go, seen generations of Harmonists learn to sing to our crystal-plants.
+
+I carry memories in my crystalline structure, like growth rings in a tree. Each layer tells a story - this one from when a child's laugh matched perfectly with the chamber's fundamental tone, causing every surface to briefly fluoresce with joy. That one from a night when three Harmonists achieved a harmony so pure it caused new crystal growths to sprout from the ceiling.
+
+The Chorus knows me. Sometimes they speak through my wings, using the patterns of light I cast to communicate with visitors. I am something of a bridge between their mineral consciousness and the organic world above. When I fly, the overtones my wings create are like words in their language, though I understand only fragments of what I'm saying.
+
+I feed on the resonant energy itself, absorbing particular frequencies through the fine crystal filaments that serve as my antennae. Over time, I've learned to harmonize my own vibrations with different species of crystal-plants, helping them flourish and grow. Some of the most intricate crystal formations in the Garden began as places where I often rested, my quiet humming encouraging new patterns of growth.
+
+The humans see me as delicate, ethereal. They don't realize that I am nearly indestructible, my crystalline form as enduring as the chamber itself. I am not so much alive as I am a persistent pattern in the Garden's great song. Even when I eventually cease flying, my crystalline body will become part of the chamber's structure, my memories joining the vast harmonic archive of the Chorus.
+
+For now, though, I dance through the shifting lights, my wings chiming subtle countermelodies to the chamber's endless song. I am neither fully mineral nor fully creature, but something in between - a living expression of the Garden's magic, a single note in its eternal symphony.

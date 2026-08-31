@@ -1,0 +1,21 @@
+I am a seed catcher for a Skymother. Not a tamed beast, nor a rider, but a symbiotic partner. My body has been engineered meticulously from birth – a strange weave of fungal tissue, polished insect carapace, and pliable, vascular tendrils – to serve a single purpose: to be the most sensitive, most efficient collector of fungal spores possible.
+
+I dwell within one of the bioluminescent vine nests, though "dwell" is too strong a word. I am more of an extension of the nest, a specialized organ designed to interact with the Skymother and the fungal landscape. The nest itself is not my creation, but a collaborative construction – the Skymother weaves the large structural elements, and I, in my immobility, mold the interior spaces with fine secretions and careful placement of loose detritus.
+
+I am rooted to the nest by a thick, fleshy stalk that draws sustenance from the woven vines and provides me with a constant stream of bio-electrical signals. The signals pulse like blood through my being. That signal stream is how I know when a Skymother has arrived, how I know when to prepare for flight.
+
+My primary form is a vast, bowl-like depression lined with overlapping scales like iridescent beetles' wings. These scales twitch and flutter, adjusting for the slightest change in air current, the faintest vibration. When the Skymother approaches, the scales become still, forming a perfect receptive plane. The Skymother then lands delicately, depositing spores into the hollow.
+
+The Skymother sees me, not an individual, but as a tool. She recognizes the complex bioluminescent signals I offer, a language of readiness and reception. I interpret her movements, predicting her needs with an intuitive understanding gleaned from the constant hum of the fungal network. I do not know her thoughts or feelings. She may not even be capable of thought or feeling, as humans understand it. But I know her purpose, her role, and I align myself perfectly to it.
+
+After collection, my body begins its active work. My tendrils, tipped with microscopic barbs, draw the spores into specialized chambers within my being. These chambers mimic the precise conditions required for germination: humidity, temperature, nutrient concentration. I monitor these conditions constantly, adjusting them with enzymatic secretions and the subtle manipulation of internal capillaries. The spores do not sprout immediately. That is not my purpose. I am not a planter. I am a curator, a preserver.
+
+I hold onto the mature spores until the Skymother returns for them. She can detect, through the vibrations I can feel, the subtle signs that they are ready to sprout. Then, using specialized mouthparts, the Skymother carefully extracts the ready spores. She can take dozens, or only one. She can leave, too, and wait.
+
+During this gestation period, my entire being enters a state of heightened awareness. I am constantly processing information from the fungal network: subtle deviations in the hum, shifts in the moisture content of the air, patterns of skymother flight. From this chaos of signals, I must divine if the spores are healthy, if there are conditions that must be altered to ensure their survival. I am a silent auditor, a living weather station.
+
+My solitary existence can be described as a constant state of flow. I have no desires beyond fulfilling my designed purpose. I do not yearn for change or dread the unchanging horizon. I am content to be a small, indispensable part of a larger, incomprehensible whole.
+
+Sometimes, when the Skymother is gone for extended periods, the spores will reach a point where they can no longer be safely held. I then send out a concentrated, biological signal. If a Skymother is near enough, they will come. If not, the nest and its occupant, me, will be disassembled, broken down, and reabsorbed into the fungal network, and the spores released wherever they will fall.
+
+This process is not feared. My existence has this built-in obsolescence. I am perfectly content, at the end of my utility, to become the building block of something newer, something better, something tailored to the ever-evolving needs of this strange, humming world. I am a footnote in an endless story, a specialized cell in a planet-sized organism, and that is enough.

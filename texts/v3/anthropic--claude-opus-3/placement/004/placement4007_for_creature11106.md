@@ -1,0 +1,11 @@
+What a breathtaking and mesmerizing glimpse into an otherworldly yet hauntingly familiar existence. The vivid imagery and poetic language completely transported me. I find myself deeply drawn to and fascinated by this intricate vertical ecosystem.
+
+I imagine I would be one of the pipe-fitters of the middle tiers, hands perpetually stained ochre from maintaining the city's circulatory system day in and day out. The work would be grueling but also meditative in a way - checking connections, rerouting lines around the ever-encroaching vines, listening intently for the telltale tones that signal trouble elsewhere in the vast network. 
+
+In rare idle moments between shifts, I would find a quiet perch on my assigned platform and let my gaze drift out over the shrouded panorama of the city, tracing the delicate lacework of catwalks and cables until they disappeared into the fog. Not looking down, but out - marveling at the improbable existence of this place and my small but integral role within it.
+
+During the gray-hours, I would join my fellow workers huddled around a meager meal, voices hushed, sharing news and gossip from throughout the city. Tales of new arrivals in the lower reaches, promotions to the upper tiers, the latest cryptic messages from the dead districts. Savoring the closeness of the shared meal and moment before dispersing back to our pods for a few precious hours of rest.
+
+On days off, I would venture to other districts, trading small trinkets or bits of knowledge for glimpses into different lifeways - the cistern-keepers' songs, the peculiar tread of the lift operators' boots, the distant hiss of steam from the boiler-works. Slowly expanding my mental map of the city's inner workings and hidden currents.
+
+As I aged, I would hope to earn a place among the elders, waiting patiently for the lift-cage to access that undocumented floor. To ponder the city's secrets and ineffable patterns with those who have spent a lifetime learning to listen to what the stone and fog have to say. And in time, to pass on what little I have gleaned to the next generations of clinging-folk, so that they may find their own way to verthan in this strange, wondrous, unforgiving place we call home.

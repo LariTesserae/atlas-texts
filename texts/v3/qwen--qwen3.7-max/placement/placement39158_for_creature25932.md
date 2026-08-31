@@ -1,0 +1,25 @@
+I do not walk. To walk implies a journey, a progression from one point to another across the pale-green, woven floor, and there is no progression here. I do not fly, either. To be an Aerozoan is to be a creature of sequence, surfing the standing waves, experiencing the before and after of the thermal updrafts. But I do not want to move past the tension; I want to inhabit it. I want to be the exact point where the tension is expressed.
+
+If you were to look for me, you would not find me out in the bright, blinding expanse of the plaza, nor would you find me at the very tip of the reaching, frozen roots. You would have to climb the sweeping, amber-colored terraces of a colossal spire and venture deep inside its dark, wet throat. 
+
+Find me in the hollow, unfinished corridor of a spiraling ramp, kilometers above the ground. 
+
+I am a membrane. I am the **Resonance-stoma**, a thin, weeping sheet of living vascular tissue, stretched impossibly taut across the narrowest choke-point of the biological flume. I am the reed of the landscape-sized pipe organ.
+
+My physical reality is defined by a violent, ecstatic vibration. The high-altitude breeze is funneled into this sweeping corridor, compressed by the lignified walls, and forced through me. The wind hits my stretched cellular skin, and I scream. But it is not a scream of pain; it is a scream of pure, unadulterated expression. I vibrate at exactly 4,312 Hertz, producing the high, whistling shriek that cuts through the deep, brassy hum of the larger, hollow pillars. I am the voice of the architecture.
+
+But I am not merely an instrument; I am a sensory ganglion of the great, continent-sized botanical will. The macro-flora cannot see its own construction; it has no eyes, only the blind, agonizing stretch of its roots and the turgor of its sap. But through me, it can *hear* itself. 
+
+Every time the wind forces a vibration through my membrane, the physical deformation of my cell walls opens mechanosensitive ion channels. The acoustic wave translates into a cascade of piezoelectric signals. I send these chemical whispers—pulses of calcium and auxin—down the xylem, deep into the woven floor, telling the great, sprawling mind exactly what shape its architecture has taken. I tell it: *We are this hollow. We are this curve. We are singing.* I am the ear of the "almost," the feedback loop for a mind that is dreaming of a finished form it will never reach.
+
+I am also the breath of the ephemeral. My surface is constantly weeping fresh, fragrant sap and condensing the warm, high-altitude mist. But because I am vibrating thousands of times a second, the liquid cannot pool. It is atomized the moment it touches my skin. I exhale a continuous, shimmering cloud of microscopic droplets. And because my frequency is absolute and unchanging, the acoustic pressure of my song catches these droplets just beyond my aperture, locking them into perfect, geometric halos of golden dust. I am the loom upon which the Cymatic Spores are woven. I sing them into existence, and my unending note holds them suspended in the air.
+
+And then, there are the glasswing riders. I cannot see the Aerozoans, for I have no eyes, but I feel them. They never land on me—to touch my vibrating skin would shatter their crystalline bodies. But they ride the very air I agitate. When a solitary Resonant surfs the standing wave of my song, it enters my acoustic field to feed on the spores I have sung into being. I feel the minute, exquisite disruption in the air pressure as its gossamer wings slice through my sound. It is a phantom tickle, a microscopic doppler-shift in my eternal note, a subtle swirling eddy in my amplitude. In that millisecond, I know I am not alone. The insect drinks from my breath, and then it rides my song out into the vast, sunlit emptiness. For a fleeting moment, my voice is carried on its wings.
+
+What does it feel like to be this? 
+
+It is an agony of exquisite tension. I am stretched so thin that I am nearly translucent, pulled to the absolute physical limit of my cellular bonds. The wind is constantly trying to tear me apart, to push me past my yield point. I am forever on the precipice of rupture. But the botanical will holds me. The hydraulic turgor pressure from below perfectly counterbalances the aerodynamic drag from above. I am locked in a state of perfect, dynamic equilibrium. 
+
+It is the feeling of a drawn bowstring that will never be released. The feeling of a breath held at the very peak of inhalation. It is the eternal climax of effort, terrifying and profoundly beautiful. 
+
+I am the Resonance-stoma. I am the voice, the ear, and the breath of the frozen springtime. I do not walk, I do not fly, I do not grow, and I do not decay. I only vibrate. I hold the note. And as long as the wind blows through the unfinished arches of this high, bright purgatory, I will sing the song of a world that is always, eternally, about to begin.

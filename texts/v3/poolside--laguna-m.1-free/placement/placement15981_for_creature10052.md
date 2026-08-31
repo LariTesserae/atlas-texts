@@ -1,0 +1,27 @@
+**The Rootwarden of the Glimmering Marsh**  
+
+In the heart of the marsh, where the bellwillows chime with the breath of unseen things, I am here—**a Rootwarden**, one of the few among the Thrennody who knows the pulse of the living roots beneath my feet and the secret languages of the plants that cradle our world. My name, if names hold meaning here, is **Vaelen**, though I am more known for the way my skin shimmers with lichen-patterns that shift with the moods of the marsh. These markings, inherited from generations of Rootwardens, are not merely cosmetic—they are the scars of a communion that runs deeper than blood.  
+
+**My Role**:  
+I am neither builder nor hunter, but a mediator of sorts. My hands, calloused and stained with the sap of bellwillows, tend to the arboreal infrastructure of the marsh. I prune the willowvines not just to shape them into homes, but to listen—to feel the faint thrumming of their growth spirals and the whispers of their underground networks. The willowvines speak in creaks and shivers, their branches swaying to rhythms only I can decipher, guiding me to areas where the soil has grown too dense with rot or where mirewyrms have begun to stir restlessly.  
+
+My most sacred duty is tending the **veinroots**, the colossal root systems that bind the bellwillows to the glowmoss and the glimmerkin’s luminescent colonies. These roots are the marsh’s circulatory system, channeling nutrients and water through the mire. If they wither or clot, the entire ecosystem risks collapse. I navigate their knotted pathways using a bone flute carved from a mirewyrm’s shed fang, which I blow to mimic the frequency of the glimmerkin’s pulses. In response, the glimmerkin weave patterns of blue-green light along the roots, mapping out blockages or infections that require my attention.  
+
+**My Dwelling**:  
+I rarely sleep in the spiraling cavities of the bellwillow towers. Instead, I rest in a hollowed-out **barkhome** suspended high in the willowvines, where the roots braid together like sleeping serpents. My bed is a nest of shed membranes and moss, and my walls are lined with the shed skins of glowmoss—harvested not to kill, but to encourage new growth. From here, I can monitor the marsh’s health through the flickering of the moss and the tremors of the roots.  
+
+**My Tools**:  
+My pruning knives are twin shells of a creature I’ve never seen but suspect is the ancestor of the sighmoths—a relic from the marsh’s primordial past. They hum faintly when near stressed plants, and when I cut, the willowvines often bleed a clear sap that hardens into a resin I use to seal wounds in the bark. I also carry a satchel of **glass lichen spores**, gathered from the moon pools. These are planted at the edges of the marsh to reinforce the soil and ward off the glass formations’ chaotic growths, which can drain the land of nutrients if left unchecked.  
+
+**My Interactions with the Marsh’s Inhabitants**:  
+- **The Glimmerkin**: I am their closest human ally, a bridge between their light-based language and the Thrennody’s clicks. I translate their warnings of mirewyrm migrations and guide them to areas where they can safely tend the root networks. In return, they teach me fragments of the marsh’s ancient memories, preserved in their bioluminescent dance.  
+- **The Thornstalkers**: I hold a tenuous truce with them. I leave offerings of fermented fern nectar at their favored grazing grounds, and in exchange, they allow me to pass through areas where the willowvines grow wild. They are curious about me, sensing that I am not like other Thrennody—I do not take, but ask.  
+- **The Sighmoths**: I manage their larvae by cultivating sacrificial willowvines at the marsh’s edge, creating a controlled zone where they can feed without threatening the homes. In return, their swarms part for me, and their hum carries messages across the marsh—warnings of storms or the approach of mirewyrms.  
+
+**The Marsh’s Mysteries**:  
+I am one of the few who ventures near the **moon pools** without fear. The glass lichen there recognizes me; its patterns pause when I approach, as if curious. I collect droplets of the pools’ shifting waters in vials of hollowed-out willowvine, believing they hold the key to understanding the marsh’s cyclical illness—the period when the fog grows unnaturally thick and the thornstalkers go berserk. Some nights, I swear the pools reflect not my face but the faces of the marsh’s first gardeners, their hands stained with sap and their eyes bright with the same lichen-marks I wear.  
+
+**My Philosophy**:  
+The Thrennody say I am too gentle, that I allow the marsh to dictate my steps instead of commanding it. But I know the truth: this place does not belong to us. We are its temporary curators, pruning away the chaos of overgrowth, guiding the balance so that all may survive. I am not a ruler but a listener, a weaver of threads in the marsh’s endless waltz. My role is to ensure that the line between the living and the constructed remains as fluid as the fog—and as eternal as the roots that bind us all.  
+
+Here, in the glimmer of the marsh, I am both guardian and guest, a root among roots, a pulse among pulses. To live here is to dissolve into the damp and the dark, to become part of the strange, quiet symphony—and I would have it no other way.

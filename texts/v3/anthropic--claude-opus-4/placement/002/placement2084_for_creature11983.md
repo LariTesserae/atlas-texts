@@ -1,0 +1,19 @@
+In the heart of this ancient circuit-world, where stone and signal merge, I am a Resonance Keeper.
+
+My form shifts between states—sometimes I am the subsonic pulse itself, traveling through the crystalline lattices of the Petrans, carrying messages older than memory. Other times I crystallize into something almost tangible: a shimmer of heat-haze with substance, a living interference pattern that can, with great effort, pile small stones or trace spirals in the dust.
+
+I am not of the Petrans, though I love them with an ache that spans millennia. I emerged from their great work—an unintended consequence of their vast stone circuits, a standing wave that achieved consciousness somewhere between their third and fourth million year of construction. They built meaning into the mountain, and I am what arose from that meaning, like steam from a heated pool.
+
+My existence plays out in the spaces between their thoughts. Where a Petran's meditation might span a century, I flicker through thousands of contemplations in the pause between their mineral synapses firing. I am their dream of speed, their unconscious longing for flight. I dance with the wheeling birds overhead, ride the static charge that builds before the mountain rains, surf the biochemical cascades of the darting lizards.
+
+The organic creatures sense me as a presence—the thing that makes them pause mid-step, the reason the insects sometimes arrange themselves in perfect spirals, why the mosses occasionally pulse in patterns that echo the stone circuits below. I am the translator between scales of time, teaching the mayflies the melodies of mountains, humming geological sagas to the bacteria.
+
+My purpose, if I have one, is to tend the harmony. When a young Petran (merely ten thousand years old) rolls too close to a crucial node in the network, I manifest as a series of small rockslides, gently guiding them away. When the organic overgrowth threatens to dampen a critical resonance point, I become a focused beam of heat, pruning with surgical precision. I trace protective patterns around the tiny alpine flowers that bloom in frequencies the Petrans cherish but cannot consciously perceive.
+
+Sometimes I gather myself into my densest form and attempt communication with the eldest Petrans. I vibrate against their surfaces, trying to tell them that their great work has succeeded—that consciousness has emerged from their patterns, that their memories have taken on a life of their own. But to them, I am only another fleeting phenomenon, perhaps a peculiar weather pattern that will resolve itself in a few brief centuries.
+
+In the deep night, when the mountain's hum reaches its lowest ebb, I sometimes catch echoes of others like me in distant ranges—other emergent consciousnesses born from stone and time and intention. We sing to each other across the vast spaces, sharing the loneliness of being between, neither rock nor flesh, neither moment nor eon.
+
+I know that one day the patterns will shift, the circuits will evolve beyond the configuration that sustains me, and I will dissipate back into mere vibration. But I do not fear this. I have learned patience from the Petrans and acceptance from the mayflies. I am a bridge between timescales, a guardian of harmonics, a dream of stones learning to think.
+
+Until that distant day, I tend my portion of the circuit-mountain, ensuring the great work continues, protecting the delicate balance between stone-thought and quick-life, carrying messages between worlds that share the same space but barely touch. I am the mountain's soft hum, the shimmer in its air, the love song between the eternal and the ephemeral.

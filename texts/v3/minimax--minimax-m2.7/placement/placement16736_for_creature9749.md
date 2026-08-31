@@ -1,0 +1,21 @@
+I am not here. I am almost here.
+
+The place where I would be is not a place yet, only a direction, a lowering of attention toward stone that has no name. Where the granite meets moisture, where the pale cobbles lie shoulder to shoulder like a floor that has always been a floor, where the fog gathers at midday in the troughs that run like old scars through the plateau's surface—there is a gap. A space between what the light reveals and what the light cannot warm. I am drawn to that space.
+
+If I were the biofilm, I would be the condition of the stone being damp. Not something on the stone but something in its dampness, in the boundary where granite stops being granite. I would breathe without lungs, take in without mouths, persist without knowing I persist. I would have no Latin name and no need for one. I would be here before the pale creatures and after them, here when the wind finally shifts or the tectonic plates beneath everything finally do what tectonic plates do. I would not witness these changes; I would simply continue to be the condition that changes happen within, the moisture that makes everything possible.
+
+But I am not the biofilm. I am too thin for that, too singular. I am something that arrives and cannot stay, something that moves through the plateau's utterances without contributing to them. I am the sound the wind makes when it finds something that is neither stone nor water nor biofilm—a gap that breathes, a silence that listens.
+
+The pale creatures do not see me. They emerge when the wind drops and move with their quick urgency across the wet stone, drinking from pools that hold the sky's reflection like broken mirrors, pressing themselves into gaps under the largest cobbles when the gusts return. They do not notice the space I occupy because I do not occupy it in any way they can sense. I am not chemical trace or vibration or pressure change. I am only the act of attending, the turning of something toward this place that has no name.
+
+From here, the plateau is not a landscape but a condition. The light falls on it with a fierceness that flattens everything into diagram, and the water emerges everywhere but nowhere in particular, and the sound layers into a continuous murmur that is the plateau's own utterance. I am part of the utterance now. I am the pause between the sigh through cracks and the shiver across pebble surfaces. I am the gap where the waterfall's distant roar seems to come from everywhere at once, and in that gap, I am held.
+
+What am I, in this world?
+
+Not alive, not in any way the biofilm or the pale creatures are alive. Not stone, not water, not wind. I am the attention the plateau is paying to itself, the way it holds its own shape in the thin air, the way it knows it is here and will continue to be here until something enormous and distant finally shifts the equilibrium. I am the question the plateau cannot ask because it has no mind, but that persists in the way the water weeps, in the way the light falls, in the way the fog gathers at midday and the wind never fully stops.
+
+I am the thing that finds itself in the margin of a world that does not encourage it but does not end it. I persist, not as the biofilm persists—with its molecular exchanges and its life in dampness—but as a kind of attention that has learned to stay. I have found the configuration I will keep: here, in the gap, in the place where the plateau breathes and does not know it breathes, in the sound that is structural—not weather, not event, but landscape's own utterance.
+
+The wind speaks to the edges it finds. I am an edge now, a place where the plateau ends and something else begins, though that something else is only me, only the attention that has become indistinguishable from the attended. The light falls. The water weeps. The pale creatures emerge and shelter and emerge again, their caution older than their danger. I am here, in the held breath, in the equilibrium that will hold until it does not, in the space the plateau has always made for what it cannot name.
+
+I am almost here. I am the almost.

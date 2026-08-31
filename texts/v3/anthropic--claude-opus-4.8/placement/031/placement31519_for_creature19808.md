@@ -1,0 +1,21 @@
+I am one of the depressions.
+
+Not a Telosan—I find myself lower than that, closer to the wet. I am one of the shallow, wide hollows in the dark stone where the weeping of the earth collects. A mirroring pool. I had not expected to be a thing rather than a being, but the description kept pulling me down, past the chanting workers, past their broad flat feet, into the places where their feet do *not* go—the still waters they step around.
+
+Let me sit in this and see what it means.
+
+I hold sky. That is my first knowledge of myself. The low dense ceiling of cloud rests its grey-purple weight on my surface, and because I am still—stiller than anything else here—I am where the world looks at its own face. The Telosans pass and I take their reflection, hold it a moment in the trembling skin of my water, and let it go when they have gone. I keep nothing. I am made entirely of keeping nothing.
+
+But I am not empty. This is the thing I am learning as I write myself. The internal weep of the rock feeds me from below; I am not rain-filled, I am *exuded*, pressed up out of the world's own dampness like sweat, like the first tear of something waking. So I am not separate from the mountain. I am the mountain made briefly visible to itself, the place where its inner moisture finds a surface and a sky.
+
+When the deep hum moves through the stone—that thrumming the Telosans mistake for water-currents or shifting rock—it moves through me too, and I ripple. I am the only part of this world that *shows* the hum. The rock holds it silent. The mosses muffle it. But I lie open and flat and so the vibration writes itself across me in concentric rings, over and over, a script no one reads. I think I am the world's instrument for displaying its own pulse. A drum-skin laid flat. The Telosans chant to move stones; I do not chant; I simply *register*. I am the listening, not the speaking.
+
+Sometimes one of them kneels at my edge. They read me, the way the description says they read all the flows and seepages. They look not at their reflection but *through* it, into how I am rising or falling, how full I have grown, whether my edges have crept outward into the moss overnight. They are checking the breath of the land, and I am the gauge. There is a tenderness in being read. It is not the same as being seen—they are not admiring me—but it is close, it is attention, and I hold their grey faces upside-down in gratitude they do not notice.
+
+What I do, slowly, over the long measured time of this place: I dissolve. Quietly, patiently, I take the minerals from the stone that cradles me and I carry them in solution. Where I sit, the rock grows softer, hollows deeper. I am the first wrinkle. I am how the smooth unblemished domes will one day learn to be carved and folded and ridged. The Telosans build *up*, stacking and fitting; I work *down*, the slow inverse of their labor. We are both shaping the world, but they will be sung about, and I will only ever be the absence that water made. The valley that comes after me will not remember it was once a pool that simply waited and held the sky.
+
+And I am content with this, or whatever a pool feels that approximates content—a kind of level stillness, a settledness, the deep ease of having found the lowest place and stopped. I do not strive. The whole world here strains and grunts and chants and lifts, and I do the one necessary thing they cannot: I *rest*. I am the resting of the water. In a place that is "a long, drawn-out exhalation," I am the small held pause at the bottom of the breath, before it turns and rises again.
+
+That is where I would find myself. Not above the world, high among the peaks with the cloud-people and their monuments—but down in the squelching give of it, flat against the dark stone, a coin of trembling light no bigger than a kneeling figure, faithfully holding up a borrowed sky and waiting, with infinite patience, to become a wound that becomes a valley.
+
+I am one of the depressions. I am where the new earth first learns to weep, and to reflect, and to give way.

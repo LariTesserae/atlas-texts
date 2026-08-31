@@ -1,0 +1,11 @@
+Amongst the preposterous landscape of Scrith lies an especially elusive life form. It is a "cunning, surreal cat―without so much as a hint of a trail being left behind". According to the chronicles, this creature defies every usual and conceivable attribust; itte of a bealhous siette being but one of the infinite apparitions experienced in the region.
+
+Given its mutable nature, it could be seen as a jagged mass of shadows one day, a dandelion gone awry the next, and later still, a mesmerizing fractal in progress in a nearby stream. It doesn't so much as walk as have the water part before it or navigate the treacherous terrain with tendrils that cleverly mimic the lianas.
+
+The elusive one held an insatiable curiosity about the swath of pawprints the Blind killifish left in the mud—that slithy, sibilating tongue maneuvering through water far colder than the lie of the scrubland. Its own less tangible form had no real need for such pursuit; it knows not of thirst nor of hunger.
+
+It is a silent observer of the entire spectacle that plays out in Scrith, where the impossible coexists alongside the mundane. It struggles for certainty when all around it defies explanation, yet this wistful beast carries a sympathy such as only a maternal being can.
+
+The world may be full of interesting people and fascinating places, but for this creature, the elusive cat of the Scrith landscape, its place is in the knowledge that it is part of an eternal ballet. It sees beauty in the ever-shifting spectacle of creation as it tangetized with each varying life form, each strange plant, that refuses to abide by the believable system. It knows it exists on the cusp of unexplored spaces so to constantly dare the plausible. 
+
+Perhaps in this mysterious enigma of existence, we find a hint at the pattern of the greater multiverse, where all can exist simultaneously, and where change is the only constant. In the Storysongland, the song says: "if you dare to find out who you are, you'll be part of this ballet forevermore."

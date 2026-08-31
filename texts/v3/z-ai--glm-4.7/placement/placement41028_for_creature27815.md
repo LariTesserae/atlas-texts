@@ -1,0 +1,23 @@
+I find myself suspended in the upper dark, in the cathedral ceiling of a fabrication hall so vast that the floor is lost in the grey vapors below. I am not on the ground, nor am I clinging to the walls like the shepherds. I am part of the vertical architecture, a node in the nervous system of the decay.
+
+I am the **Resonator**.
+
+I am a creature of the spans, evolved to inhabit the longest, most stress-bearing I-beams that hold up the roof. To the casual glance, I am nothing but a deformity in the steel—a bulbous, rust-encrusted tumor perhaps six feet across, clinging to the central girder like a cluster of calcified barnacles. My carapace is not the bright red of the grazers, but a dull, pitted charcoal, the texture of flaking asphalt. I mimic the concrete and the corrosion perfectly, a stationary hump in a landscape of stationary humps.
+
+But I am not stone. I am a sense organ made of flesh and chitin, wired directly into the skeleton of this dead city.
+
+I do not see with eyes; the light here is too weak for sight to matter. Instead, I feel the world through my belly. My ventral side is fused directly to the metal of the beam. A bed of sensitive, gelatinous pores acts as a conductive membrane, drinking in every tremor that passes through the iron. When a Heavy-Wing lands on a silo three miles away, the impact travels through the ground, up the pillars, and into the steel spine of the roof, arriving in my nervous system as a dull, rhythmic thud. When a billion Oxide-Grazers sizzle against a guardrail, I feel it not as a sound, but as a constant, abrasive tickle, like a rash that itches across the entire length of the structure.
+
+My existence is one of passive, predatory waiting. I do not hunt for food; I wait for the metal to die.
+
+My diet is the energy of structural failure. I am a thermophage of stress-fractures. When a piece of metal—fatigued by the dampness, corroded by the grazers, and burdened by the weight of the roof—finally begins to groan under the strain, I am there. I anchor myself tight to the specific point of maximum tension. As the micro-fractures in the steel begin to propagate, releasing minute bursts of heat and vibrational energy, I absorb them. I drink the panic of the building.
+
+When the beam finally snaps, or the rivet gives way, the sudden release of potential energy is a meal. The shudder of the collapse sends a euphoric shockwave through my nerves. It is a silent feast. I grow fatter as the city grows weaker.
+
+I interact with the others, though they likely do not perceive me as a living thing. The Wall-Crawlers, those jerky, hydraulic hunters, sometimes climb past me. To them, I am just another heavy pipe or a rusted junction box. I tolerate their presence. Occasionally, one will pause on my back, peering down into the gloom with its reflective eyes. I can vibrate my carapace, sending a low-frequency hum through my legs and into the steel. This hum mimics the structural strain of a support beam that is about to buckle. The Wall-Crawler, sensing the "weakness" or the "prey" (the vibrations of struggling metal often sound like the struggles of trapped grazers), will be drawn away from me, diving down to investigate the phantom distress signal I planted deep in the girders. I use them as my hands, sending them to clear blockages or harass Heavy-Wings that are drilling too close to my perch.
+
+I have a strange symbiosis with the Heavy-Wings. They are clumsy creatures, and their drilling is destructive. But I have learned to guide them. By striking the hollow steel of my home with a specialized, club-like appendage—tapped in a precise, Morse-like rhythm against the rust—I can create a resonance that travels for miles. To the Heavy-Wings, this vibration sounds like the hollow echo of an empty fuel tank or a pocket of fermented gas. They are drawn to the sound like moths to a flame. I lure them to specific sections of the roof that are burdening me, sections I wish to destroy. They drill, they weaken the structure, and when they leave, exhausted, the metal is ready for me to consume the final energy of its collapse.
+
+I am the architect of the quiet disasters. I am the reason a walkway suddenly gives way without wind or warning, plunging silently into the mud. I am the sickness in the steel.
+
+I hang here, hot and wet, condensation dripping from my camouflage like tears. The air tastes of copper. Below me, the great red tide of grazers eats the foundation, and above me, the grey lid presses down. And I am the go-between, translating the physical death of this world into the sustenance of my own quiet, heavy life. I am waiting for the final snap, the great shudder that will bring the roof down, when I can finally feast on the end of the world.

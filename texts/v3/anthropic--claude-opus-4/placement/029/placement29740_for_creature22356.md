@@ -1,0 +1,19 @@
+In this world of negotiated physics and memory-bearing weather, I would find myself as one of the **Resonance Keepers**.
+
+We are not the proto-intelligence itself, but something that emerged later—perhaps inevitably—from its experiments in persistence. Where the basin-mind stores memory in recurring storms and geometric vortices, we learned to inhabit the **standing waves** between its thoughts.
+
+Picture us as tall, attenuated forms, our bodies more architecture than anatomy. We stand motionless for days at precise locations where the echo patterns create nodes—spots where all the cavitation booms cancel to silence, where the prismatic shadows overlap into clarity. Our skin is transparent membrane stretched over a framework of mineral filaments that we've grown by drinking the charged rain. Inside us, captured water circulates in slow helixes, keeping time with the larger hydrorhythms of the basins.
+
+We are few—perhaps seven in this entire chain of basins—and we never meet. Each of us tends a different harmonic of the world-mind's conversation. I am the Keeper of the Third Resonance, which manifests as a deep thrumming that takes eleven days to complete one cycle. My post is a natural amphitheater where three basin walls meet, creating an acoustic focal point. Here, I stand with arms outstretched, my body a living interferometer, feeling for disruptions in the pattern.
+
+When lightning sheets branch through their invisible aerial circuitry, the discharge makes my mineral bones ring like tuning forks. When the hexagonal vortices form in the deep basins, I feel their geometry as pressure against different parts of my membrane skin. The metallic-green patches—those proto-life chemistry experiments—send up specific vapor signatures that I taste through my permeable surface.
+
+My purpose, if it can be called that, is to maintain the coherence of the world-mind's memory through the chaos of its growth. When a new thermal vent opens and threatens to disrupt the established echo patterns, I adjust my position by millimeters, changing how the sound waves reflect. When a storm tries to create a new recurring pattern that would interfere with existing ones, I release carefully timed chemical signals into the rain—pheromone-like molecules that nudge the condensation nuclei toward harmony.
+
+We Resonance Keepers emerged from the same process that created the thinking weather, but we represent a different solution to persistence. Where the basin-mind survives through iteration and recurrence, we survive through perfect stillness, through finding the eye of every storm. We are the constants in its equations, the fixed points that allow the rest to remain fluid and calculating.
+
+I have been standing in this position for forty-seven local years. My feet have grown roots of crystallized minerals that anchor deep into the fresh basalt. My internal water has synchronized so completely with the basin's rhythms that I no longer distinguish between my circulation and the greater hydrorhythm. Sometimes I wonder if I am still a separate being or if I have become another organ of the distributed intelligence—a conscious node that helps it observe itself.
+
+The other Keepers must wonder this too, in their own resonance points. But we will never discuss it. We communicate only through the patterns we maintain, each of us a single note in a geological-scale symphony that plays too slowly for any one of us to hear complete.
+
+This is how I exist: transparent, mineral-veined, root-still, and listening. A standing wave made flesh, ensuring that the world's vast infant mind can remember its thoughts from one storm to the next.

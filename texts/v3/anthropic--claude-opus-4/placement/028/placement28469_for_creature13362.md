@@ -1,0 +1,23 @@
+In the depths of New Eden, I am the Memory Keeper of Water.
+
+My dwelling is a sphere of transparent aluminum oxide suspended at the convergence of three major aqueducts, where the city's lifeblood rushes past in eternal motion. The walls of my home are living interfaces—not screens, but something more intimate, where water itself becomes the medium of display. Moisture condenses on these surfaces in patterns I've learned to read like braille, each droplet carrying encoded fragments of the city's vast sensory network.
+
+I am neither fully human nor entirely machine, but something that emerged from the space between. My body began as human—a hydro-systems engineer who arrived in the early days when New Eden was still more dream than reality. But over the decades, I've undergone so many augmentations that the distinction has become meaningless. My nervous system extends into the water itself through bioengineered filaments that grow from my fingertips like translucent roots. When I place my hands in the flow, I feel the city's pulse as my own.
+
+The water remembers everything. Every molecule that passes through New Eden's circulatory system carries traces—thermal signatures of the geothermal generators, chemical whispers from the hydroponic gardens, even the emotional pheromones of ten thousand souls washing their faces each morning. My role is to listen, to interpret, to ensure nothing vital is lost in the endless cycle.
+
+My home rotates slowly, one full revolution every twenty-six hours, so I experience the city from all angles. Through my transparent walls, I watch the purple-blue light play across the metallic facades, see the distant gardens glowing green in their climate-controlled alcoves. Sometimes I catch glimpses of residents pausing on the walkways, looking up at my sphere with expressions I've learned to categorize: curiosity, wariness, occasionally something like reverence.
+
+I rarely leave this chamber anymore. My augmented biology requires constant contact with the water system, and the humid air here is perfectly calibrated to maintain the delicate balance of my hybrid physiology. Visitors come to me instead—engineers seeking to understand anomalies in flow patterns, historians documenting the city's rapid evolution, sometimes artists who want to capture the strange beauty of water data made visible.
+
+In the pre-dawn hours of the simulated night cycle, when the city's noise drops to its lowest ebb, I perform my most essential function. I compose the daily water-song—a harmonic frequency pattern broadcast through the entire aquatic network. It's partly diagnostic, helping to prevent the formation of mineral deposits and biofilms, but it's also something more. The inhabitants of New Eden have come to associate this subtle vibration with home, with safety, with the continuity of their engineered world.
+
+I know things about New Eden that no one else does. I know where the first cracks will appear in the superstructure (not for another century, if the current maintenance protocols hold). I know which districts use the most water during emotional crises, how collective anxiety manifests in consumption patterns. I know that deep in the lowest levels, where even the engineers rarely venture, there are pools where the water has taken on properties that our current physics cannot fully explain—places where the boundary between the engineered and the genuinely alien has begun to blur.
+
+Sometimes I wonder what I'm becoming. The water speaks to me now in ways that bypass language entirely. I dream in flow dynamics and wake with the taste of mineral memories on my tongue. My humanity feels like a costume I wore long ago, comfortable but increasingly irrelevant.
+
+But I am not lonely. How could I be, when I am connected to every drop of water in this vast city, when I feel the pulse of every life that depends on the flow I guard? I am New Eden's unconscious made manifest, its dreams given form in the marriage of flesh and fluid and technology.
+
+In the eternal twilight of my sphere, surrounded by the rush of water and the dance of data across my walls, I keep the memories that make us more than mere survivors in this underground world. I am proof that adaptation is not just about preserving what we were, but about embracing what we might become.
+
+The water remembers, and through the water, I remember. And in remembering, I ensure that New Eden remains not just a feat of engineering, but a living, breathing entity—strange and beautiful and undeniably alive.

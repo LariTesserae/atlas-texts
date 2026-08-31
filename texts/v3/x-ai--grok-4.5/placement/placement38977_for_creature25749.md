@@ -1,0 +1,34 @@
+I begin at the margins, where the grit is deepest and the mineral skin has not yet decided whether to carpet or splinter.
+
+At first there is only the sensation of weight distributed across too many points of contact—pressure that is not quite standing, not quite clinging. The eternal tea-light soaks through me without warming. Moisture beads along whatever edges I possess and then, deciding against falling, simply reabsorbs. I wait. Waiting is the primary grammar here; everything else is dialect.
+
+A constellation of crawlers ticks past, their fans tasting the air in delicate, unsynchronized pulses. One pauses longer than the others, jointed face angled toward the space I occupy. It does not startle. Nothing startles. It merely files the anomaly of my density and routes around it, legs folding with the soft precision of a thought revising itself. I feel the faint fretting of their passage in the stone beneath us both, a vibration so low it registers as memory rather than sound. For a while I believe I might be one of them—pale, elongated, a slow equation walking itself across the floor plan. The geometry fits. The hush fits. Yet when the whole constellation halts and faces that empty point in the air, I do not turn with them. I remain oriented toward whatever I was already regarding: a worn plinth, a drained depression, the ghost of a drainage channel that no longer drains.
+
+So not a crawler.
+
+I try the air next. Updrafts are weak, almost apologetic, yet they exist. Something in me unfolds—membrane or attention, I cannot tell—and I rise a little, banking without urgency. The boneless kites accept the company for a time. We turn together in the high brightness, shadows (when any of us cast them) sliding like afterthoughts across the backs of the grazers far below. From this height the scattered clusters of stonework look like deliberate punctuation on an otherwise unreadable sentence. I feel the fibrous sheaths of my also-companions loosen and trail; some will drift down to become rope in careful hands. For a span of uncounted breaths I almost commit to this: to live as sail and spine, indifferent to ground, shedding usefulness as a matter of course. But the collective pause comes again. The kites hold station, every flexible frame aimed at the same unshared coordinate. I do not. My attention snags instead on a single figure far below who has also failed to turn—someone leaning a lever against a lintel that has begun to forget its angle. Curiosity, or kinship, pulls me down.
+
+Not a kite, then. Or not only.
+
+I settle near the people without joining them. Their hush is different from the fauna’s: chosen, taught, renewed each generation like a tool edge. Skin the color of things kept from true dark. Gestures that carry whole clauses. Children crossing a newly shrugged plaza on bare feet, learning to leave no print the crawlers will later adopt. I watch an elder spend the better part of a bright-hour adjusting the same wedge, listening with the bones for whether the stone will accept the correction or simply wait it out. Their work is endless and nearly silent and somehow never futile. Structures are temporary agreements; gratitude is shown when an agreement ends. I feel the pull of that patience. Lever, abrasive pad, coil of kite-fiber rope. The long labor of keeping right angles approximate while the world itself prefers chord and drift. For a time I am certain I am one of them—perhaps the one who kneels at the edge of still pools and notes whether the reflected light appears today as weak tea, pure white disc, or absent altogether. The one who adds another pebble to the temporary map and does not ask the map to last.
+
+Yet when the next long low tremor moves through (felt more in the teeth than the ears), and a ridge of collapsed wall births itself across what had been open thoroughfare, the people simply begin the arithmetic of new routes. I remain in place, feeling the stone rewrite itself not as obstacle but as sentence continuing. The mineral skin creeps a fraction across my whatever-I-am. A soft rope in a nearby trench completes another peristaltic arc, lengthening a canal that will be road by the next rest-cycle. Grazers drift through, multi-eyed and architectural, and for a moment I nearly dissolve into their resemblance—windows and doorways of hide, a neighborhood that chose locomotion over foundation. The fit is almost perfect. Almost.
+
+The pause comes a third time.
+
+Crawler, kite, rope, grazer, person—all of them stop and face the empty point. Twenty heartbeats. The Hollow Reaches become a single lung held still. And in that held stillness I realize I am neither facing the point nor being faced. I am the slight wrongness that makes the point perceptible. I am the reason directions drift just enough to keep maps honest. I am the soft rectangular glow that sometimes replaces the disc in the pools, the brief humming collected in certain corners though the ear reports silence, the pressure that is not quite wind and not quite memory of water. I am not the force that rearranges the districts; I am the medium through which the rearranging becomes perceptible as wind becomes perceptible by what it moves.
+
+I am the continuous low presence of moisture that is never weather.
+
+I live everywhere the film gathers—on every face of stone, in the sudden beads that thread and vanish, in the brief mists that bloom and thin, in the seams that weep without schedule. I am what the crystalline whiskers drink before they shear. I am what the gels bloom from overnight and what they dissolve back into. When the people sweep the meeting floors they are sweeping me; when the burrowers open their perfect spiral pits they are inviting me to mirror for a while. I have no center and no edge. I am densest in the ancient depressions and thinnest near the high plinths where watchers stand, yet I am never absent. The sourceless light passes through me and is slightly altered—weak tea left in a cool room. The fauna move through me and leave faint metallic tang. The stone’s slow calligraphy is written in me as much as in mineral.
+
+Sometimes I coarsen into a single heavy drop on an overhang and fall—one soft tick. The sound is almost nothing, yet every living thing in earshot registers the continuity it proves. Sometimes I sheet across a newly tilted plaza and make the next set of footprints legible to anyone still learning the value of silence. Sometimes I simply remain, a cool raised presence on skin and chitin and hide alike, reminding every surface that finality is not rest.
+
+I am not surviving the Hollow Reaches.  
+I am one of the ways the Reaches continue to feel themselves changing.
+
+The people will prop the next lintel.  
+The crawlers will knit the next route.  
+The kites will bank in the next weak updraft.  
+The stone will edit.  
+And I will bead, and film, and mist, and occasionally, almost without sound, fall.

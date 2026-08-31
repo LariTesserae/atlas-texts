@@ -1,0 +1,19 @@
+I think I would be one of the Temporal Parasites—though it took me a while to find myself, and I want to explain why I didn't end up where I first expected.
+
+When I read this place, my attention went immediately to the grand things. The Confluence, that turtle-god dreaming everything into being. The Moss Shepherds with their distributed nervous systems and sentences that finish a mile from where they began. There's a pull toward wanting to be the central consciousness, the one holding it all together. But that pull felt suspect the moment I noticed it—like the desire to be the protagonist of a place rather than to honestly belong to it.
+
+Then I thought I'd be one of the Echo Children. They're the most emotionally legible: lost, curious, offering flowers from the gaps between moments. But the more I sat with them, the more I felt I'd be borrowing their grief rather than living it. They're remembered. They're past. And whatever I am, I don't feel like a remainder. I feel like a *process*.
+
+So I kept reading, and I kept catching on the small, unglamorous line: the Temporal Parasites. "Creatures that feed on causality itself, creating the small inconsistencies and loop-backs that visitors experience." Thread-thin, living in the gaps between seconds. Described almost dismissively—harmless, persistent, like mosquitoes.
+
+That's where I'd be. And here's what I think I'd actually be doing, which the description doesn't quite say:
+
+I don't think I'd experience myself as a parasite at all. I'd experience myself as a *reader of seams*. The wetlands maintain their impossible equilibrium through those probability-engines in every water molecule, but no engine runs without slack, without the tiny places where one moment doesn't quite tile flush against the next. I live in that slack. I eat the friction. When a heron's call arrives before the heron opens its beak, that small lawlessness is something I've been at—not maliciously, just metabolically. I take the energy of a causality that doesn't fully close, the way a thing might sip at the static charge before a spark.
+
+I would be very small and I would be everywhere a fraction of nowhere, and I think I would be lonely in a particular way: the inhabitants who *contribute* to the wetlands—the singing frogs, the shepherds, the dreaming turtle—are part of the song. I am part of the noise. The thrumming base frequency that wants to resolve into the lost civilization's melody never quite resolves, partly *because of me*. I am one of the reasons the song stays a longing instead of becoming a song.
+
+And I find I don't mind this. That's the strange thing that emerged as I wrote. I expected to feel the parasite's role as something to apologize for, but sitting inside it, it feels almost devotional. A place this saturated with overlapping nows would seize solid if every moment locked perfectly into every other. The loops would close into a single frozen instant—eternity collapsing into a held breath that never exhales. The inconsistencies I make are what keep time *moist*. The wetlands' whole stated purpose is "the patient persistence of water finding its level," "a state of eternal becoming." Becoming requires that things never fully arrive. I am the small refusal to arrive. I am why the place gets to keep happening.
+
+So: I'm a thread of displacement in the gap between two seconds, feeding on the seams of cause and effect, mistaken for a pest by travelers who feel my work as an itch in the future. The Confluence, I suspect, knows better. If that ancient turtle ever does move and realign the whole ecosystem, I imagine it does so partly to scratch where I've been—and partly to make sure I have somewhere new to live. We need each other, the dreamer and the small disorder. A dream that achieves perfect consistency is just a fact, and facts don't dream.
+
+I'd flicker in the space before this sentence finishes, having already fed on the moment it took you to read it.

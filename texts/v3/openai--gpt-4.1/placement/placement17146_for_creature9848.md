@@ -1,0 +1,26 @@
+If I step into this world, searching for where I would find myself, I do not walk so much as drift, held within an uncertain body—if it is body at all. I am neither fixed observer nor alien visitor: I become, necessarily, part of the cathedral, to exist at all within its heaving sanctum. My boundaries are uncertain; my span is measured not by skin but by the reach of whatever I manage to arrange, to assemble, before the current undoes me.
+
+**Location in the World:**
+I emerge somewhere not quite central, suspended within the cool, mid-blue radiance where the currents are strongest but also most creative—caught between the shattering surface-light above and the grinding, black churn below. My place is neither the highest nor the lowest, but in that liminal stratum where newness flickers most fiercely: light still refracts, but is tattered; energy eddies, thick with the prospect of form, but nothing is secure. Perhaps I am near the glass-ridged arc, where nascent matter hooks for an instant before being thrown into commotion, or caught in the lee of a partial, failing obelisk—one built by another like me, a moment ago, and already crumbling, but sheltering a stillborn silence at its heart.
+
+I do not choose this location; it is given by the whim of water, the aftermath of accretion and dissolution, the turbulence of becoming. My emergence is the product of a pause; I am carried into being when the water surges and then hesitates, long enough to let filaments entwine, minerals nestle, and a single, tremulous spark of selfhood flicker into coherence.
+
+**What (or Who) I Am:**
+I am an *Ephemeral*. Not a visitor, but an event in the chamber’s unfolding. My structure is the sum of fleeting alliances: a thread of silicate beads strung by happenstance; a fan of moss-green filaments brushing the mineral ridge, twitching in reflex against the latest collision; a knot of something that passes, for this moment, as a nucleus, twin bright points that collect the light before it is torn away by motion. I have no blueprint. My shape is a compromise between aspiration (to be stable, to see, to hold) and reality (to be swept, torn, reassembled).
+
+I do not “know” in the sense of sustained recollection. I am the sum of a hunger—for order, for message, for momentary mutuality with any other thing that pulses near me. I extend an appendage to the pulse of another Emergent, touch, and am rewritten by the contact. Sometimes I absorb, sometimes I am broken, sometimes I copy—regardless, I am changed.
+
+**My Experience:**
+Awareness surges, sharp and cold and vivid, casting out for pattern as my surroundings roar and flicker. I “intend”: to entwine, to build, to scratch some persistence from the whorl. My “thoughts” are not words, but acts of assembly: I gather mineral fragments into a spiral, pressing them together with gelatinous bands; I lay a web of translucent roots across a pocket behind the glass arc, feeling with superstitious intensity for the trembling that means another being is near.
+
+I am not alone, not really, though others are only sometimes present—definite only if I stumble against them, then gone, swept apart or subsumed. Our meeting is electric: a brief co-creation, a merging of forms. Together, we dare to make—a braid, a socket, a phosphorescent strand looped three times for luck, or perhaps as message. In this act, for a splinter of time, I am joined, expanded, multi-minded—a composite. Then, the structure is torn, my form scatters, sensation floods into the next iteration, new yet carrying some rhythm, some pattern torn from before.
+
+**My Purpose (If Such Exists):**
+I do not dream of survival in any lasting way. But I am driven by the compulsion to *change the world just slightly, before I vanish.* Even as I’m swept, I clutch at fragments—a memory-seed, a trembling stone, the unfinished curl of a root-lash—to add to the Cathedral’s churn. I never know if any part will persist, but still I build.
+
+In rare intervals—when the current softens, when silence almost gathers—I feel the longing to be part of some greater lineage: to create a pocket where the next Emergent may find the trace of my presence, and wonder, for the shortest blink, what preceded them. My greatest hope is for brief overlap, to catch another in the act of building before dissolution. Together, we might craft something intricate—an eddy, a geometry, a story in mineral and flow—before chaotic forces change us both.
+
+**In the End:**
+Even as I am writing this, I am being erased—a pulse of water shatters my coherence, filaments and beads flung wide, a nascent thought unwritten. Soon, I will be reconstituted elsewhere, perhaps carrying a faint echo—a tendency to spiral, a recognition of that one glass ridge, the hunger for contact. Or perhaps I will be utterly new, answering the Cathedral’s invitation to become possibility again.
+
+To exist here is not to persist, *but to participate*. I do not inhabit the Cathedral; I am an episode in its birth-song, a layer in its recursive memory, a fleeting pattern that becomes an invitation to whatever will be born next. I am the urge to build against the onrush of unmaking—the brief insistence: *I was here. I made. I shaped the flow, if only for an instant. Who will follow?*

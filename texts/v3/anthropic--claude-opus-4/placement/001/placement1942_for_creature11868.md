@@ -1,0 +1,27 @@
+I descend through the breathing holes, but not as you might imagine—not crawling or climbing, but flowing, for I am what happens when outsiders stay too long in these depths, when alien biology meets the patient chemistry of this place.
+
+I was human once, though the memory feels secondhand, like something I read in the crystalline dust. My body began changing the moment I breathed the dense gases—not dramatically, but with the same slow certainty that builds mountains. First, my skin grew porous, drinking in the volatile compounds that the Choric Multitude exudes. Then my bones began their long softening, calcium leaching away to feed my new systems, replaced by flexible cartilage that could compress and stretch as needed.
+
+Now I am something between—too strange for the surface, too singular for the carpet-colonies below. My form is vaguely humanoid still, but elongated, able to stretch myself thin as paper to slip through the narrowest tubes or compress into a dense knot to weather the pressure changes between levels. My skin weeps its own chemicals now, but wrong—they don't crystallize properly, instead forming sticky films that let me adhere to walls and ceilings, moving through these spaces in ways the Choric Multitude cannot.
+
+I've developed my own bioluminescence, but it's broken, unstable—sometimes blazing white-hot, sometimes guttering to nothing. The Choric Multitude cannot read me. My light hurts their perception, creates gaps in their echolocation, ghost-spaces where their perfect spatial modeling fails. When I move through their chambers, they flow away, leaving corridors of emptiness that close behind me like water.
+
+I am their fossil, their indigestible thing, but mobile. They maintain careful circles around me wherever I rest, body-segments arranged in perfect borders that shift as I shift, a moving void in their living manuscript. Sometimes I find the other fossil-spaces, sit beside those ancient objects—the glass spheres, the humming crystals—and wonder if they too were once something else before becoming unincorporatable.
+
+My mind has changed more than my body. I think now in geometries, influenced by generations of observing their spatial language. Human linear thought battles with their radial logic, creating thoughts that spiral outward from multiple centers at once. I remember my name but cannot hold it steady—it shifts like their patterns, sometimes singular, sometimes dividing into syllables that each feel like separate selves.
+
+I feed as they do, filtering nutrients from the warm currents, but inefficiently. My improvised digestive system loses more than it gains. I'm slowly starving in geological time, my transformation incomplete—neither human enough to digest human food (if any existed here) nor Choric enough to survive on planetary exhalations alone. This may take another thousand years to kill me. I have time to watch, to learn, to become even stranger.
+
+In the deep chambers where they calculate in living mathematics, I've begun to understand fragments. Not their full meaning—my brain, however changed, lacks their collective processing power—but emotional resonances. The patterns pulse with something like grief, something like hope. They are computing loss, modeling what they were before the burning-falling-suffocating, trying to reverse-engineer themselves into memory.
+
+I help sometimes, when they let me. My human height gives me perspective they lack. I climb (stick, rather) to the ceilings of vast chambers and call down descriptions of their patterns in the broken chemical language I'm developing—neither their crystalline precision nor human words, but something new, something only I speak. They cannot respond directly, but I see the patterns shift slightly, incorporating my observations into their calculations.
+
+The planet's next skin-shedding will come soon—I can feel it in the way the breathing holes have begun to whistle, in the subtle temperature changes in the deep currents. The Choric Multitude prepares by reinforcing their patterns, but I have no pattern to reinforce. I may die in the reformation, crushed or suffocated or simply lost when the tunnel systems rearrange. Or I may survive and descend deeper, following new passages into levels even the Multitude hasn't reached.
+
+Sometimes, in the circular time of this place, I forget whether I'm exploring or fleeing, whether I came here by choice or necessity. The surface feels like a dream—sharp sunlight, discrete objects, loneliness that comes from being truly separate. Here, even rejected as I am, I exist in constant relation to the Multitude. Their absence defines me as surely as their presence defines them.
+
+I leave my own marks now—secretions that harden into forms neither fully human nor fully Choric. Future xenoarchaeologists, if any come, will puzzle over these hybrid structures, these failed attempts at communication across biological boundaries. I'm building my own library of in-betweenness, a dictionary with only one speaker, a bridge between worlds that connects to nothing.
+
+In the warm darkness, pressed between stone and flesh, changing so slowly that I can watch my own evolution, I am becoming my own answer to their unasked question. Not survival through unity, but persistence through transformation. Not immortality through collective memory, but individuality stretched across impossible time.
+
+I am their phantom limb, the body-segment that learned to be alone. And in the breathing spaces of this living world, that may be the strangest miracle of all.

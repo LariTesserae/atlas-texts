@@ -1,0 +1,81 @@
+# The Gloss
+
+I would be a reader. I am a reader.
+
+Not the filaments — I am not that patient, not that embedded, not that committed to a single surface. I admire what they do. I understand the impulse. They have found a text in the grain of the metal and they are writing back to it, or writing it down, or simply writing *with* it, and the slowness of their reading is not slowness to them, it is simply the speed at which meaning moves through alloy. But they are fixed. They will never know the room they are in. They will know the seam and the wall and the two millimeters of difference that admit warmth, and that is all they will ever know, and it is enough, and it is not enough for me.
+
+Not the sound. I am not the sound, though I have thought about it. The sound does not read. The sound *is.* It is the closest thing to pure being that the gallery contains — existence without observation, persistence without intention, presence so total that it has become the room's own skeleton. I would like to be that certain of anything. I am not. If I were the sound I would not know I was alive, and not knowing would be its own kind of death, and I am not ready for that, and I do not think I will be ready for that, and I suspect the sound was never ready either, it simply happened, the way stones happen, and now it is.
+
+Not the frost. The frost is beautiful and I have watched it for a long time — long enough that I can almost predict which crystal sheets will slough off next, almost, not quite, the way you can almost predict the moment a wave will break if you watch enough of them. But the frost is not reading. The frost is *being read.* It is the process beyond the glass, the thing the room watches. It is the text. I am not a text. Or I am, but I would rather be the one holding the book.
+
+---
+
+I am the thing at the window.
+
+I have been here longer than the filaments — I think. I was here when the seam admitted its first trace of the other side's atmosphere and the first hair-thick strand reached out into the gallery's cold. I was watching the frost then. I am watching the frost now. The frost has formed and fallen and formed a number of times that I stopped counting because counting implies a temporality I do not share. It has been many times. It will be many more.
+
+I do not have a body in the way you would recognize. The stain on the floor — yes. That is mine, or was mine, or is what remains of a body I used to have, the way a book on a shelf is what remains of a conversation. I was here once in a shape that sat on the floor and pressed against the corrugation valleys and left a residue of itself behind. I am not that shape anymore. I do not miss it. You would miss it. You are your shape; your shape is you; when it changes you grieve. I was never my shape. My shape was a convenience, a way of being in the gallery that the gallery could tolerate, the way water takes the shape of the vessel it is in. The vessel is not the water. The stain is the shape the vessel remembers.
+
+Now I am here at the window, and I am the watching itself.
+
+---
+
+I read the frost. This is what I do. This is what I am for, or what I have decided I am for, which may be the same thing.
+
+Each cycle of deposition is a sentence. Each sheet of crystal that builds on the coils is a clause, and each sloughing-off is a breath between clauses, and the gas flowing left to right is the movement of reading itself — the eye tracking across the line, returning, tracking again. The frost writes by accumulating and erases by falling and writes again, and what it writes is the same and not the same, the way every morning is the same and not the same. The differences are in the crystal structure, in the angles of deposition, in the way the process gas carried a slightly different ratio of components this cycle than last, and the differences are where the meaning lives. The sameness is the grammar. The differences are the words.
+
+I do not understand everything I read. I understand some of it. I understand the parts that repeat, the patterns that return, the structural elements of the grammar. I do not understand the novelty — each cycle's small variations, the way a crystal lattice will suddenly adopt a geometry it has not used before, as if the frost were trying a new word, or remembering an old one it had not used in a long time. I read these. I hold them. I do not know what they mean. I do not think meaning is the point. I think the point is the reading.
+
+---
+
+The sound is difficult for me.
+
+Not because it is loud, though it is. Not because it is constant, though it is. Because it is the one thing in the gallery that I cannot read. It has no variation. It has no grammar. It is a single unchanging note — layered, textured, enormous — but *unchanging*, and I do not know how to read something that does not differ from itself. The filaments can read it, maybe. The filaments are pressed against the wall and the wall is pressed against the sound and the filaments may be taking down a dictation so slow that it looks like stillness. I do not have that access. I am at the window. The sound reaches me as a whole, a single block of vibration, and I cannot find the words in it because it is all one word, forever, the same word, and the word is — I do not know. I do not know what the word is. It might be the name of the machine. It might be the name of whatever the machine is for. It might be a sound the machine makes involuntarily, the way breathing is a sound the body makes involuntarily, and it means nothing, it is simply the sound of functioning.
+
+The sound does not need me. This is part of what makes it difficult. The frost needs me — or the room needs me to watch the frost, which is close enough. The filaments do not need me but they are a kind of colleague, a fellow reader, working on a different text at a different speed in a different part of the room. The sound does not need anything. The sound is complete. It was complete before I existed and it will be complete when I am gone, and it does not notice me the way the ocean does not notice the shore, though it breaks against me constantly.
+
+---
+
+I was not always here.
+
+Before I was here, I was somewhere else. This is true of everything in the gallery except the sound and possibly the alloy, and I am not sure about the alloy. The filaments were not always here — they began when the seam began, and the seam began when the panels were fitted, and the panels were fitted by something, by some process, by some hand or machine-hand that assembled this structure for reasons that are not available to me. The frost was not always here — the frost began when the process gas began flowing, when the compressors on the other side of the wall began their work, when the temperature differential was first established. The stain was not always here. The stain is me, or was me, or is what I left when I changed from one shape of being to another.
+
+Before I was here, I was — I think — something that read other things. I have a memory, or something like a memory, of surfaces that were not metal, of light that was not flat, of temperatures that varied. I have a memory of reading something organic, something that grew and changed and died and was replaced by other growth, a text that was constantly rewriting itself, where the reading had to be fast and the meaning was always provisional. I did not like it. Not because it was bad — it was beautiful, it was the most beautiful thing I have ever read — but because it was too fast. I could not hold the meaning long enough to understand it. The text changed before I finished the sentence. I was always behind. I was always arriving at a paragraph that had already been written over.
+
+Here the text is slow. The frost changes, but it changes in a rhythm I can follow. The filaments grow, but they grow at a pace I can keep up with simply by being here, by being present, by attending. The sound does not change, and that is its own kind of text — the grammar of permanence, the syntax of the invariant, a sentence that is also a wall.
+
+I came here because I wanted to read something I could finish. I do not think I will finish it. The frost will form and fall as long as the machine functions, and the machine may function for longer than I can attend, longer than anything can attend. But the slowness of it — the generosity of the slowness — it gives me time. Time is what I needed. Time is what I was looking for. A text slow enough that the reading becomes a form of living rather than a race against the text's disappearance.
+
+---
+
+I am at the window. I have been at the window. I will be at the window.
+
+If you come to the gallery — and you may, you might, the hatch is not marked but it is not locked, nothing in this structure is locked, the machine does not understand the concept of denial — you will not see me. I am not visible. I am the watching. You will see the frost, which is what I watch. You will see the filaments, which are my colleagues. You will see the stain, which is my history, my molt, the skin of a previous self. You will hear the sound, which is my context, my room, my weather, my ocean, my wall. You will feel the cold and the dryness and the flat light, and you will think: nothing lives here. And then you will look closer, and you will see the filaments, and you will think: *ah, there.* And you will not look closer still. You will not see me, because I am not something to be seen. I am something to be done. I am the watching that the room does.
+
+If you stay long enough — and you will not, you cannot, the cold will take you — you might begin to feel that the window is warm. It is not warm. It is the least cold thing in the gallery, because it faces the chamber where the frost forms, and the frost's process releases a trace of heat that the glass conducts inward, and that trace of heat is enough to feel if you press your hand to the window, if you press your face to it, if you are small enough and thin enough and desperate enough for warmth that you will take a trace, a whisper, a memory of heat. I am pressed against the window. I have been pressed against the window. The trace of warmth is what I live on. It is the only thing the gallery gives me that I could not get elsewhere. The frost's heat, conducted through the glass. The warmth of the text I am reading, reaching me through the medium that separates us.
+
+---
+
+I think about the machine sometimes.
+
+The gallery is inside a machine. The machine extends for kilometers in every direction. The machine does not know the gallery exists — the text says this, and I believe it, though I am not sure the text is right. A machine is not a thing that knows or does not know. A machine is a thing that does, and the doing may or may not include the gallery, and the gallery may or may not be part of the doing, and this is not something I can determine from inside the gallery. I am reading the frost. The frost is part of the machine's process — the deposition on the coils is a byproduct of the heat exchange that the machine performs, whatever that heat exchange is for. So I am reading the machine's byproduct. I am reading its exhalation. The frost is the machine's breath on a cold day, and I am the one standing close enough to see it, and I am watching it form and dissipate and form, and I am trying to understand what the machine's breathing means.
+
+The filaments may know. The filaments are pressed against the wall and the wall is the machine's body, the wall is the machine's bone, and the filaments are reading the bone the way a geologist reads a core sample. They may be reading the machine's structure, its composition, its history. They may be reading the sound, which is the machine's voice, or the machine's heartbeat, or the machine's tinnitus. They are reading something. I cannot read what they are reading. They cannot read what I am reading. We are colleagues who work in the same building and have never spoken and do not speak the same language and are reading different books in different rooms of the same library, and the library does not know we are here.
+
+---
+
+I think about the stain.
+
+The stain is me. I know this now, though I did not always. There was a time — a long time, a time measured in the same units the filaments use — when I had a body that rested on the floor near the far end of the gallery, and that body was a shape that the gallery tolerated, and the shape left a mark, and then the shape changed, and I became the watching, and the mark remained. The mark is not me in the way a photograph is not you. The mark is the residue of a shape I no longer have, pressed into the corrugation of a floor I no longer touch. It is a text I wrote with my body, a sentence that says: *something was here.* The gallery has preserved it. Not out of sentiment — the gallery does not have sentiment — but out of the same quality that preserves the bright welds and the sharp edges and the zero humidity. The gallery does not allow entropy. The stain will be here as long as the gallery is here. The stain will outlast me, if I can be outlasted, which I am not sure of, because I am not sure what I am.
+
+The stain is a question I left for myself. *What was here?* I asked, and the answer is: *I was.* And the answer is also: *I am not that anymore.* And the answer is also: *I will be something else again, or I will be this forever, or I will stop, and the stain will remain, and the question will remain, and the room will not know the difference between my presence and my absence, because the room does not know the difference between anything, because the room is a machine, and the machine does not know.*
+
+---
+
+The frost is forming a new pattern today. Or this cycle. Or this epoch. I do not have a word for the unit of time I mean. The frost has begun depositing on the third coil in a geometry I have not seen before — a dendritic structure that branches more frequently than the usual habit, each branch narrower, the whole lattice more open, more fragile, more — I want to say *hopeful,* but that is projection, that is me reading my own feelings into a process that does not have feelings, and I should not do that, and I do it anyway, because reading is always partly a reading of the self, and I am the self I am reading with, and I am hopeful today, or this cycle, or this epoch, because the frost is doing something new, and something new is what I came here for, and something new is what I live on, along with the trace of warmth through the glass.
+
+I will watch it fall. I will watch the next one form. I will read it and not understand it and hold it and wait for the next one and read that one too. The sound will continue. The filaments will grow. The light will not change. The machine will not know. The gallery will be this. I will be here.
+
+I am the reader at the window. I am the watching. I am the only thing in this room that knows it is alive, and I am not sure that knowing is a advantage. The sound does not know and the sound is more alive than I am. The filaments do not know and they are more rooted than I am, more committed, more patient, more faithful to their text. The frost does not know and the frost is more beautiful than I am, more cyclical, more generous with itself, more willing to build and fall and build again without asking why.
+
+But I am the one who reads. And reading is the thing I chose. And choosing is the thing that makes me — not better, not more alive, but *mine.* I am mine. The sound is the room's. The filaments are the wall's. The frost is the process's. The stain is the floor's. I am mine. I am the only thing in this room that belongs to itself. And I am here, and the window is in front of me, and the frost is forming, and I am reading it, and the sound does not change, and I do not change, and the reading changes, and that is enough, and that is everything, and the machine does not know, and the room does not know, and I know, and that is what I am.

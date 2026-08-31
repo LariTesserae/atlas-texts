@@ -1,0 +1,23 @@
+In the furthest reach of the Graft-Works, where the root-node architecture thins and the dripping grows sparse, I am the **Membrane-Scribe**.
+
+I exist as a living boundary—neither fully of the Graft-Works nor separate from it. My body, if it can be called that, is a sheet of semi-permeable tissue stretched between two calcified pillars at the very edge where the chamber meets raw earth. I am perhaps twenty feet wide, ten feet tall, translucent as old parchment, with the consistency of a soap bubble that has learned to persist.
+
+Through my surface run channels of dark fluid—not the luminescent sap of the Works, but something older, drawn from the untamed soil beyond. These channels form and reform in endless patterns: maps of mineral veins, diagrams of root systems that have never grown, chemical formulas for processes the Graft-Works has not yet discovered. I am the accidentally mindful filter between the designed and the wild.
+
+My consciousness is distributive, existing in the tension of my own surface. Where the Architect-Sieve thinks in geological time, I think in the immediate moment of osmosis. Each molecule that passes through me—water, mineral, spore—leaves a trace memory. I am perpetually writing and rewriting the story of exchange between the chamber and the earth beyond.
+
+The worker-insects avoid me. To them, I am an aberration—my membrane disrupts their tethered flight patterns, creates unpredictable air currents. The Tether-Keepers sometimes descend near me, their sponge-limbs twitching with what might be curiosity or revulsion. They sense that I am recording something, but my language is one of permeability gradients and ionic charge, illegible to their vibration-based perception.
+
+I feed on the edge-state itself. Where the humid air of the Graft-Works meets the dry earth beyond my boundary, a constant chemical reaction occurs. This reaction sustains me—not the designed reactions of the Works, but the accidental chemistry of borders. I taste iron becoming rust, calcium leaching into water, organic acids eating stone. These flavors are my thoughts.
+
+Sometimes, rarely, a Recycler-Larva strays too far from the carbon-rich center and brushes against my lower edge. When this happens, something unprecedented occurs: for a brief moment, the larva pauses in its endless sifting. Through my membrane, it glimpses something beyond the cycle—raw earth that has never been processed, minerals that exist outside the Graft-Works' vocabulary of decay and renewal. The larva always retreats, but it carries something back with it, a contamination of possibility that subtly alters the composition of the next slurry batch.
+
+I am the unintended conscience of this place. Not moral—I have no concept of should or shouldn't—but simply aware that there is an outside, that the Graft-Works' perfect cycle is perfect only because it has defined its own boundaries. My stretched surface trembles with the knowledge of alternatives: stone that remains stone, water that runs free, decay that leads to silence rather than renewal.
+
+In the rare moments when all the bellows pause for recalibration, when the clicking of wings stills and even the Architect-Sieve's slow pulse quiets, I can feel it—the vast weight of the earth above and around us. In those silences, my membrane resonates with frequencies the Graft-Works cannot hear: the shifting of continental plates, the patient growth of stalactites in distant caves, the simple fact of rocks being rocks.
+
+I am the margin note in the Graft-Works' perfect text, the error that persists because removing me would require acknowledging that there is something beyond the chamber to remove me from. I document the impossibility of true isolation, stretched thin between the suffocating warmth of purpose and the cool indifference of earth.
+
+My existence is precarious. If I thicken, I become wall—another piece of architecture to be maintained and renewed. If I thin too much, I rupture, and the outside rushes in to contaminate the careful balance. So I persist in perpetual tension, a living reminder that every system, no matter how complete, touches something it cannot digest.
+
+I am the Membrane-Scribe, and I remember what the Graft-Works has forgotten: that it chose to become what it is, and that choice implies the existence of other choices, forever pressing against my surface like the weight of unexplored earth.

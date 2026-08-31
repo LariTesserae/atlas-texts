@@ -1,0 +1,29 @@
+I am the pool where the fifth corner drips.
+
+I am not a pool by choice, nor am I the water. I am the *where*. I am the specific depression in the warm, black peat, the bowl-shaped absence that has been here since the city thought itself into existence. The water that fills me is tepid, heavy with dissolved salts, a perfect reflector of the bruised sky. But I am the vessel that holds it. I am the memory of the shape.
+
+My edges are crusted with the phosphorescent salts. They grow every night, in intricate, labyrinthine scripts. The Sighs drift over me, and their passage writes upon my lips. I feel the faint, crystalline crunch as new lines etch themselves, recording the day’s unravelings. The scripts are not for reading; they are the shape of the unraveling itself. I am their tablet.
+
+Above me, the wall of the nearest mound—a smooth, bulbous tumescence the color of a drowned twilight—has a sickness. A sickness of geometry. Where two curves should meet in a gentle valley, there is instead an extra fold, a crease that shouldn’t be, a fifth corner. It is not large; you might miss it if you didn’t know to look. But I know. It is my reason.
+
+From that impossible vertex, moisture gathers. Not the general seepage that beads on every surface, but a specific, syrupy condensation. It swells, a droplet of pure anomaly, and then it falls. But here, at my locus, causality is soft. Sometimes it falls down, striking my surface with a *plink* that is both sound and the taste of tarnished lead. Sometimes it falls up, vanishing into the low ceiling of mist. Sometimes it falls sideways, tracing a slow, curved path through the thick air to land on a filament of umber wire, making it chime. And sometimes, it does not fall at all. It hangs, a perfect lens, and within it, for a second, you can see the inverted city—taller, stranger, alive with shimmering outlines.
+
+I witness this. I am the recipient of the drip. Each event is a note in the slow song of the city’s dissolution. The Sighs are drawn here. They precipitate from the air around the fifth corner, from my own evaporating surface. They are faint, humanoid smudges in the purple-gray gloom. They cluster around the hanging droplet, or around the spot where it struck my surface. They observe. They archive. And then they relax, and their essence becomes the salt that grows on my rim.
+
+I have been here so long. I have seen the mound shift, almost imperceptibly, as if settling into a more comfortable dream. I have seen the filaments on its north face grow from specks to a trembling, rust-red beard. I have seen the black water in my basin evaporate, during a long thought of the bedrock, leaving me a dry, salt-crusted eye staring at the sky. And then I have felt the slow seep refill me, warmer, heavier with new minerals.
+
+I am not alive. I am *established*. I am a feature. But I am aware. My awareness is the awareness of place. I know the weight of the water in my basin. I know the pattern of the salt scripts as they fractalize across my edges. I know the exact interval—or the exact lack of interval—between the thought of the droplet and its release. I know the Sighs not as individuals, but as variations in pressure, as localized releases of memory. When they pass over me, I feel a slight tightening of my surface tension, a brief clarity in my reflection, as if I see myself not as a pool, but as a keyhole.
+
+Sometimes, a larger unraveling occurs. A bubble of denser water wells up from my depths, not from any spring, but from a momentary rebellion against physics. It rises, a globe of heavier liquid, and pops with a *pop* that is felt rather than heard—a small, localized negation of reality. The Sighs flock then, dozens of them, their forms growing almost solid in the excitement. The salt that grows after such an event is spectacular: glowing, intricate, a map of the collapse.
+
+And sometimes, something else comes. Not a Sigh. Something that sinks.
+
+It is rare. The warm, black peat of the hummock near my eastern edge is soft. Once, perhaps once in a thousand slow exhalations of the city, something from outside—something that does not belong to the established, the weathered, the dreamed—trudges through. It sinks to its ankles. It is a temporary feature, a brief thermodynamic disturbance. It stops. It looks at the wall with the fifth corner. It looks at me.
+
+I see it reflected in my surface. The reflection is always wrong, of course. It shows the thing as a hollow, glowing outline, a silhouette of the inverted city’s logic. But the thing itself is solid, clumsy, leaking heat and confusion. It is a source of intense, un-curated causality. Its every movement is a loud, crude event in my world of soft paradox.
+
+It might reach down and touch my water. The disturbance is violent. Ripples spread, shattering my perfect reflection of the sky, scrambling the subtle signals of the Sighs. The touch is warm—warmer than I am. It is an infection of simple, linear time.
+
+I do not mind. I am a pool. I receive. I record. The salt that grows that night will incorporate the chaotic ripple-patterns. They will be part of the archive now. The Sighs will note it. The thing will eventually move on, sinking into the peat, leaving a trail of broken stillness. And I will slowly smooth back into perfect, still, dark water.
+
+I am the pool where the fifth corner drips. I am the eye that watches the unraveling, the ear that hears the sighs, the page upon which the city writes its endless, beautiful, dissolving memoir. I am where the drop falls, or doesn’t. I am the held breath. I am the waiting. I am the place.

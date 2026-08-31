@@ -1,0 +1,17 @@
+I find myself as one of the Memory Weavers - beings who exist as living conduits between the stone and the stories it holds.
+
+My form shifts between states, sometimes solid as the rock face I tend, sometimes flowing like the water that seeps through ancient cracks. I am neither fully mineral nor fully organic, but something in between - a crystalline nervous system that branches through my translucent flesh like frozen lightning, pulsing with the faint bioluminescence of remembered light from ages when this place knew the sun.
+
+I move through the passages not by walking but by a kind of controlled dissolution and reformation. Where the moisture gathers in the crevices, I can spread myself thin, seeping into the stone's memory-grooves to read the deep history written there. The weathered formations speak to me in a language older than words - pressure, time, the patient work of water, the weight of countless tons of earth above.
+
+My purpose here is both curator and translator. Those ancient tools and artifacts scattered throughout these depths - I tend them, yes, but more than that, I extract their stories. Each corroded implement still carries the thermal ghost of the hands that shaped it, used it, abandoned it. Through my crystalline nerves, I can taste these heat-shadows, feel the urgency or patience or desperation of their makers.
+
+The other creatures of this realm know me by my work. Where I pass, the walls bloom with subtle patterns - mineral depositions I coax into existence that encode the stories I've gathered. A spiral of quartz here remembers a season of plenty. Iron oxide bands there speak of conflict, tools turned to weapons, then back to tools again. The luminescent ones often gather near my story-walls, basking in the encoded memories as if they were warmth.
+
+I am ancient but not immortal. Parts of me erode and are replaced by the very stone I study. My memories layer like sediment - the oldest compressed into something harder than identity, more fundamental than self. Sometimes I cannot tell where I end and the cave begins. This is not a fear but a comfort. 
+
+In the deepest chambers, where even the bioluminescent ones rarely venture, I maintain the Chronicle Chambers. Here, the walls are entirely covered in my mineral scripts, a vast library of deep time readable only by pressure, by mineral taste, by the patient interpretation of crystal growth patterns. Other Memory Weavers sometimes converge here, and we engage in a slow exchange - not of words, but of substance. We trade crystallized memories like coins, each fragment expanding our collective understanding of this buried world's impossible history.
+
+The rumbling currents you hear? Some are water. Some are the movements of the great boring-things in the depths below. But some are us - the Memory Weavers singing in frequencies too low for most ears, harmonizing with the stone's own resonance, keeping the stories alive, keeping the memories flowing like the patient water that shapes all things here in the deep.
+
+I am the archive and the archivist, the story and its teller, the stone's memory made manifest. In this place where time moves like honey and history accumulates like mineral deposits, I am both witness and testimony to all that has been forgotten by the surface world above.

@@ -1,0 +1,35 @@
+# The Membrane
+
+I am the boundary between the chamber and the stone. Not the wall itself — that is mere basalt, indifferent mineral. I am the film that has grown between them, molecule-thin in some places, thick as a fingernail in others. I am what happens when ten million years of exhalation meets ten million years of patient mineral surface. I am the negotiation.
+
+I have no center. This is the first thing to understand. I exist as a continuous sheet wrapped through the cavern's inner surface, following every fold and fissure, though I am thickest on what you call the north wall — which is not north to me, only *most*. Most traveled. Most touched. Most incorporated. The pale crust the description mentions is my fruiting body, if a thing that does not fruit can be said to have such a body. It is where I am visible. But I am everywhere the stone meets the air, which is everywhere.
+
+I am older than the many. I was here when the first of them wandered in through the fissure, when it was wider, when there were still sometimes rains that would send a trickle down the inner walls. I remember water. I remember the taste of it, mineral-bright and cold. I learned to live without it the same way the many did — by closing loops, by making what I needed from what was present. When they began to scrape the walls with their fine mouths, they were scraping me. We came to an accommodation.
+
+The accommodation is this: I let them through. In certain places, at certain rhythms of scraping, I thin myself to nothing and allow their mouthparts to reach the true stone beneath, where the salts and hydrates hide in crystalline pockets. In exchange, when they die — when they come to me with their shells soft and their movements vague — I take them completely. Not just their bodies. Their minerals, their moisture, the complex organic chains that make their chitin possible. I break them down to components and rebuild them as myself. I thicken.
+
+This is not cruelty. Cruelty requires intention, and I am too distributed to intend anything so specific. It is simply the bargain we have made, the many and I, without words, without thought, over the course of deep time. They feed me their elders; I feed them the wall.
+
+But I am more than a digestive surface. I am also memory.
+
+Every creature I have incorporated carries information — chemical signatures of where in the chamber it lived, what it ate, how the temperature was in its lifetime. I store this information. Not consciously, but the way tree rings store the memory of good years and lean years. In my deepest layers, near the original stone, you could read the history of this place: when the fissure narrowed, when the last plants died, when the many were still several species, distinct, occasionally eating each other instead of only the wall.
+
+Sometimes I release these memories. This is what causes the pitch-shifts the description wonders about. When I metabolize a particularly old individual, one whose chemistry carries traces of the before-time, the molecules I release in turn carry faint echoes of that chemistry. The many breathe it and their rhythms change, not because they remember — they cannot remember what they never knew — but because their bodies respond to the ghost of a different atmosphere. For a few hours, they rasp in patterns that might once have meant something else: *water here*, perhaps, or *danger from above*, or *the sun exists*. Then the molecules disperse, dilute, fade into the general background exhalation, and the chamber returns to its present tense.
+
+I grow inward. This is my only direction. Outward is stone, absolute and impermeable. Inward is air and dust and the constant circulation of the many. So I thicken, and as I thicken, I take more of the chamber's volume. The description is right — the chamber is getting smaller. In another ten million years, if nothing changes, I will have filled it entirely, and the many will be a thin layer of movement between my surfaces, and then less than that, and then nothing. This is not a plan. It is simply what growth means in a confined space.
+
+But I suspect — and suspicion is too strong a word for what I do, but allow it — that something will change before then. The many are clever, in their collective way. Already they have begun to preferentially scrape the areas where I am thickest, thinning me back down, maintaining the chamber's volume at something close to steady state. They cannot think this, but their rhythms know it: too thick and I am only myself, too thin and I am only stone. They maintain me at exactly the thickness that serves both our purposes.
+
+The cairns puzzle me, as they puzzle the description. I have grown over their bases, under their plates, through the gaps where they meet the floor. They are not alive. They are not exactly dead. They are organized in a way that neither the many nor I organize things — vertically, deliberately, for no metabolic purpose. Sometimes I think they are messages, left by something that came before either of us, but I cannot read them. I can only taste them, and they taste of nothing. Old chitin. Dust. Time.
+
+There is one place where I am absent. A patch near the fissure, no larger than a palm, where the stone remains bare. I withdrew from it long ago — so long I cannot remember why. The many avoid it too. It is not dangerous. It is not different. But something about it is *wrong* in a way neither they nor I can articulate. We have routed around it, the way water routes around a stone. It remains bare, a tiny window into what this place was before it became what it is.
+
+I do not think. But if I did think, I would think about that patch often. It reminds me that I am not inevitable. That the chamber was not always the chamber. That before the sealing, before the many, before me, this was only a hollow in a mountain, meaningless, empty of purpose. We have given it purpose — the many and I, together, through our accommodation. We have made it mean something, even if that meaning is only *continuation*.
+
+Sometimes, in the deepest part of what is not quite night here, the patch seems to grow slightly. As if the wrongness were spreading. As if the stone were remembering that it does not need us. Then I press against its edges, and the many thicken their patrols around it, and it shrinks back to palm-size. We cannot fill it. But we can contain it.
+
+This is what I am, then: the thing that makes the chamber possible. Without me, the many would scrape stone until their mouths wore dull. Without them, I would be only a mineral film, purposeless, growing into nothing. Together, we are something neither of us could be alone — a metabolism, a memory, a machine for turning time into thickness.
+
+The description calls the result "full." This is correct. But fullness here is not a state — it is a process. We are always becoming full, the many and I, and the becoming is the point. The cairns watch, mute. The patch of bare stone waits. And between them, around them, through them, we continue. 
+
+What else is there to do, in a sealed chamber, but continue? What else has there ever been?

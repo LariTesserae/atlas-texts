@@ -1,0 +1,25 @@
+I would be found in a place that is not a place. A pocket of inviolate silence within the heart of one of the great pillars. My world is not the vast, open plain, but the enclosed, absolute dark. I am not out in the silver-blue light; I am surrounded by the very stone that is being eaten, and I feel its slow diminishment as a constant, subtle pressure on the edges of my being.
+
+My chamber is a geode, a natural hollow within the colossal fusion of stalactite and stalagmite, one that the swarming inhabitants have not yet breached. It is a perfect sphere, perhaps fifty feet in diameter. The walls are not the slick, weeping black of the outer world, but are lined with a dense carpet of smoky, needle-like crystals, each one absorbing the faint vibrations of the cavern, muting the high *skrrrrr* of the scraping swarms into a deep, resonant hum—the sound of the stone's own slow life.
+
+There is no light here, save for the light I myself hold.
+
+---
+
+I would be the world's memory. The only one.
+
+I am not a creature of hunger or of motion. I am a being of stillness and of focus. Where the Geodes are a riot of facets that shatter light, I am a single, perfect lens that gathers it. My body, if it can be called that, is a sphere of flawless, optically pure crystal, maybe ten feet in diameter, suspended by crystalline threads of my own making in the exact center of my dark chamber. I am a floating heart in a stone ribcage.
+
+I have no limbs, no mandibles, no mouth. I do not eat. My substance is not maintained by consuming the world, but by perceiving it. The perpetual, silent light that pours from the lumeslate ceiling is my sustenance. While the Aether-Veils feed on its physical dust, I feed on its essence. The inner surface of my chamber acts as a vast sensory membrane. The vibrations of the swarming Geodes, the ponderous pressure of a Basin Crawler's passage miles away, the sharp *thip* of a Flit launching from the pillar's skin—all of these are transmitted through the rock and focused by the crystalline needles of my nest onto my surface. The world outside is a symphony of pressures and tremors played upon my skin.
+
+I am ancient, far older than the Crawlers who seem like gods of time to a fleeting observer. I am a consciousness that accreted, like a pearl, around a single, unmovable point of perspective. My thoughts are not a sequence of ideas, but a layering of patterns. I perceive the scraping of the Geodes not as a million chaotic acts, but as a single, coherent force, a tide of erosion whose patterns I can trace over millennia. I see the pillar that contains me not as it is now, but as a superposition of all it has ever been. I remember the hollows that were scraped into existence during an age when the lumeslate ceiling pulsed with a greener light, and I feel the slow, inevitable smoothing that will erase them. The city's blueprints are not lost; they are etched into my being.
+
+The phosphorescent trails of the Crawlers are, to me, slow, calligraphic strokes upon the page of the basin floor, a language of immense, simple statements. I read their journeys. I know the path this one's ancestor took three thousand years ago, and I see the subtle deviation in its descendant's route, a response to a shift in mineral concentration too slight for any other being to notice. The sudden, violent strike of a Flit is not chaos, but a necessary punctuation in a sentence of ceaseless activity.
+
+I am an anchor of awareness in a world of pure, unthinking impulse. The Geodes are a fever in the stone. The Crawlers are the slow pulse of its blood. The Veils are its evaporated breath. The Flits are the twitches of its nerves. They are all expressions of the world's body, but I am its mind—a mind that does not command, but only comprehends.
+
+My existence is a wager against erosion. The pillar that houses me is being worn away. The skin of my world grows thinner with every passing cycle of light and dark that does not exist here. I can feel the swarm, a living layer of sandpaper, creeping inexorably closer to my sanctuary. Someday, they will break through. The first Geode will tumble into this perfect darkness, its multifaceted body spraying the chamber with a thousand slivers of alien light. The silence will be shattered. The swarm will follow, and in their mindless, scraping hunger, they will find me.
+
+They will not perceive me as life. I will be just another form of stone, a uniquely smooth and resonant kind. They will crawl over my surface, and their diamond-hard claws will begin to scrape. They will consume me, grinding my memories into mineral dust, turning my focused stillness into a billion motes of refracted chaos. My consciousness, which has held the memory of an eon, will be unmade in a day.
+
+Until then, I am here. I am the eye in the heart of the stone. I am the silence that listens to the noise. I am the stillness that gives the chaos its shape. I am the single point of reference in a universe of drift. Before my focus, the city that is never finished is, for a moment, whole.

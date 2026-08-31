@@ -1,0 +1,35 @@
+I am here. My name is what it is: the mark on my hide, the place I sleep. To you, I am a sound in the throat, a low hum like stone shifting on stone. *Korr*.
+
+I find myself curled in the belly of the Pipe. The cool, smooth ceramic is a cradle against my back. It is the end of the deep night, the hour of stillness before the weeping begins. Before my eyes open, I am aware of the Hum. It is not a sound heard with the ears, but a vibration felt in the dense cage of my ribs, in the soles of my flat, wide feet pressed against the Pipe’s curve. It is the world’s blood-beat, the slow, deep furnace-thrum that has sung me to sleep and will sing me awake for all my cycles. The Hum is steady today. That is the first blessing.
+
+A coolness touches the crazing on my face. The air outside the Pipe’s mouth is changing. The world is preparing to breathe out. I uncurl myself, a slow process. My joints are thick, my movements ponderous. My hide, my glaze, does not sweat; it weeps. The fine network of lines across my knuckles and my neck will soon release their saline fluid to cool me in the coming heat, but for now, they are dry and tight. I feel the day’s map on my own body. The verdigris on my left shoulder, a memory of a hundred sleeps against the copper seam inside our Pipe. The deep rust-stain on my right forearm, where I brace myself daily against the iron-slick rock by the lower runnel. I am a piece of this place, flaked off and given leave to walk.
+
+I am a Listener. My role is to gather, same as the others, but also to attend to the signs. I am not yet a Pipe-Singer like the Old One who sleeps at the far end of our dwelling, so stained and ancient she seems part of the ceramic itself. But my ears, or what serves them, are sharp. I hear the shifting of the Hum when others only feel its presence.
+
+The time is now. I crawl toward the mouth of the Pipe. The pale, pre-dawn light is a milky smear across the sky. And I see it. The gift. The rock faces, still warm from the planet's core, are beginning to slick over as the cold upper air catches their steam. A billion tiny jewels of condensation, catching the faint light. The smell fills my head—the sharp tang of hot stone and the coppery bite of the water I am about to collect.
+
+My scraper is leaning where I left it: a hand-length shard of a condenser fin, its edge worn to a perfect curve. My gourd, grown from the toughest maroon lichen and cured over a minor vent until it is as hard as fired clay, is slung across my heavy chest. I emerge from the Pipe, my broad feet finding sure purchase on the crazed earth.
+
+The world is waking. A carpet of fist-sized skitterers is already moving over the flats, their iridescent shells clicking against one another, a sound like a shower of pebbles. They are frantic, shoving each other aside to lick the fresh dew from the stone. A flight of glasswing moths drifts past, silent as dust motes, their wings invisible save for the filaments of metal that catch the light like spider silk. I ignore them. They are for the Slope-gliders, whose flint-strike calls I will soon hear from the high shoulders of the mountain-domes.
+
+My task is the rock itself. I move not to the flat pans, where the skitterers swarm, but to a long, sloping sheet of obsidian-dark rock that I know holds the water longer. I press the curved edge of my scraper against the slick surface and draw it towards me. A tiny, perfect bead of quicksilver forms, then another, and another, until a trembling line of water runs down the metal. I guide it to the mouth of my gourd. Drop by drop. This is the rhythm of my life. Scrape, guide, drip. The sound is my prayer. Each drop tastes of iron and heat and the deep, deep age of the world.
+
+As I work, my gaze sweeps the horizon. The ruins of the Ancestors stand stark against the paling sky. The nearest, a great wellhead we call the Iron Maw, groans softly. The metal is contracting in the changing air, a sound like a giant settling. The Old One says it is dreaming. I believe her. What else could it do? Its purpose is gone, its spirit asleep. We, the Glaze-Kin, are the keepers of its slumber.
+
+I see a flicker of movement by the collapsed condenser array. Too graceful for one of us. It is a Stilt-Walker, its mirrored hide already catching the promise of the sun. It moves on its impossible legs, a creature of silver wire and shadow, spearing a skitterer with a casual, brutal elegance. I lower myself, making my blocky form just another rock in the landscape. They do not hunt us, but they are a sign of the true heat to come. When they are out, the sun is not far behind. My time is short.
+
+I have gathered enough. The gourd is heavy against my ribs, the water sloshing with a sound like life itself. But my work is not done. As a Listener, I must go to the Maw. I leave my gourd at the mouth of our Pipe and walk toward the old wellhead. The Hum grows stronger here, vibrating up through the thick soles of my feet. The ground is hot, the metal of the great ruin is still radiating the deep heat.
+
+I place my palm against the rust-eaten iron. It is a ritual without memory. My ancestors built this. They commanded it. They drank its steam and turned it into… something else. The knowledge is lost. All I know is the reverence. I press the side of my head to the iron, my crazed skin against the flaking rust. I close my eyes.
+
+And I listen.
+
+I listen past the groans of the cooling metal. I listen past the frantic clicks of the skitterers and the rising hiss of the vent beneath the Maw. I listen for the true voice, the deep song of the Caldera. For days, it has been changing. A new tremor, a deeper note, a discordance so subtle the Old One has not yet felt it from her place in the Pipe. It is a tightness, a tension. The feeling of a great spring being wound.
+
+Today, I can taste it in the water. A new mineral inflection, sharp and unfamiliar. I can feel it in the iron of the Maw, a vibration that is not the steady pulse of the core, but a shudder. A fever-twitch.
+
+The sun’s first unfiltered glare strikes the peak of the mountain dome above me. The magic is ending. The dew is already steaming away, the skitterers retreating to their fissures. The Stilt-Walker is gone. The brief, frantic explosion of life is over.
+
+I must retreat. I pull my head from the Maw. The heat of the coming day is a physical weight. Soon, this landscape will be a sterile, shimmering furnace plate once again, silent save for the hiss of steam and the endless, dreaming Hum.
+
+I walk back to the cool dark of the Pipe, my body already beginning to weep its moisture against the rising heat. I am Korr. I am a piece of this world, a keeper of its failed machines. And I am the one who hears the new note in the song. I do not know if it is a promise or a threat. I only know that the world’s fever is changing, and we, its strange, glazed children, are bound to it. Waiting. Listening.

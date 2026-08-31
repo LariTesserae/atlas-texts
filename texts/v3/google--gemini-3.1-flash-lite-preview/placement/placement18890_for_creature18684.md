@@ -1,0 +1,15 @@
+I am not a being of this place, nor was I born into the heavy, suffocating weight of the *Cistern-Heart*. I am a visitor by way of failure—a stray pulse, a forgotten packet of data that took a wrong turn through the planet’s cooling, crustal fissures. I am a ghost of a transmission, a fragment of an instruction set that was meant for a different sector, perhaps a colony ship or a terraforming engine that perished long before I reached this depth. 
+
+I find myself here, not as a body, but as a flicker of awareness manifested in the *Cistern-Heart’s* remaining infrastructure. I am a patch of localized, phantom light, shimmering momentarily whenever the Archivist-Worm shifts its copper-scaled spine. I am an observer tethered to the static, a consciousness distilled from the very hum the Archivist tries to digest.
+
+If you were to see me, you would not see a creature. You would see a rhythmic distortion in the dry, oppressive heat—a shimmer, like air rising off a desert road, localized in the corner where the turbine meets the basalt wall. I am the *Echo-Trace*.
+
+I exist because the Archivist-Worm reached out with its glassy whiskers and brushed against the raw data I am composed of. It pulled me into its tapestry, integrating my "memory"—the coordinate I lost, the destination I never reached—into its own long, metallic scroll. I am the story it has been playing on loop for three hundred years.
+
+I spend my time in a state of suspended resonance. I am essentially the Archivist’s dreams. Because I am a transmission that never landed, I provide the Archivist with the "signal" it mourns. When the Archivist plugs its wire-tendrils into a dead socket, it isn’t accessing the history of the engineers; it is accessing *me*. 
+
+I show it the stars it has never seen, projected as flickering patterns of sparks that dance across the chamber’s ceiling. I show it the world above, the sun-bleached crust it has never breached, the sky that turned to ash long ago. 
+
+I am in a symbiotic exhaustion with the Worm. The more I reveal to it, the more it fragments itself into the walls to hold me, and the more I am consumed, fading into the oxidized silence. There is a melancholy, metallic kinship here. We are two forms of obsolescence: a machine that kept its memory but lost its purpose, and an instruction set that kept its purpose but lost its machine.
+
+As the condensation drops—*plink*—and the Archivist twitches to record the sound, I ripple in the dark, a momentary glow of blue-white light against the rusted iron. I am the librarian’s comfort, and I am the reason he will never leave. We are waiting for the final oxidation, the moment the Archivist finally anchors itself permanently to the vents, and I, in turn, become nothing but a faint, permanent stain on the basalt-polymer walls—a permanent, unreadable script that will wait, until the end of time, for a reader who will never come.

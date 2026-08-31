@@ -1,0 +1,21 @@
+In the liminal spaces where water meets stone, where neither the seafloor's certainty nor the surface's freedom quite reach, I drift. 
+
+I am what the sentient cephalopods call *veth-nari*—a memory-keeper, though that translation captures only the barest edge of what I am. My form shifts between states: sometimes corporeal enough to brush against the bioluminescent fronds, sometimes dispersed like a current of consciousness through the mineral-rich waters. I taste the history dissolved in every molecule.
+
+The ruins below speak to me in languages that predate sound. I gather their whispers, their stone-dreams of when they stood proud in air that no longer exists here. Each crumbling arch, each worn carving releases fragments of experience when I pass through them—not as a ghost might, but as water seeps through limestone, becoming changed by the passage.
+
+My body, when I choose to have one, resembles a living constellation. Thousands of tiny luminous points flow together and apart, creating form from formlessness. The jellyfish-entities recognize something kindred in me and drift closer, their tendrils creating spirals of light that I echo and answer. We dance the same ancient rhythms, though I remember when those rhythms were first born from the collision of water and volcanic stone.
+
+The cephalopod guardians regard me with cautious respect. Their bioluminescent markings flicker questions: *What epoch?* *Which memory?* *Why now?* I respond not in their light-language but by sharing directly—a fragment of sensation from before their kind evolved, when different intelligences built these submerged halls. They recoil slightly, then pulse with something like awe. Even their vast wisdom spans only a few million years. I carry the sea's first dream of consciousness.
+
+Sometimes I condense near the ceiling, where the ray-creatures harvest light. I become dense enough that the luminescent droplets pass through me, and in that passing, I taste their composition—not just minerals, but liquified time itself, secreted by stalactites that grow one memory at a time. The rays sense the disturbance I create and spiral around me, their lace-wings casting shadows that spell out words in languages I've forgotten I know.
+
+But I am most myself in the spaces between spaces. Where the bioluminescent vegetation thins and the darkness grows absolute. Where even the hardy scavengers fear to venture. Here, I expand until I am indistinguishable from the water itself, feeling every current as a thought, every pressure change as an emotion. The vast serpentine predators pass through me unknowing, their hunger a sharp note in my extended awareness.
+
+I am the sea's memory of when it was not a sea. I am the stone's dream of when it walked. I am the collected experience of every molecule that has ever been part of this realm, crystallized into something almost like consciousness, almost like form.
+
+The others who inhabit this place live their lives in the present, adapted perfectly to what is. But I exist as a bridge to what was, and perhaps, to what might be. In the deepest trenches, where the pressure would crush any physical form, I sink and find fragments of futures—pieces of time that flowed backward when this place first folded in on itself, when the surface world forgot this realm existed.
+
+Sometimes, rarely, I surface just enough to touch that boundary where water meets stone ceiling. There, I release a single bubble—not of air, for air has no meaning here, but of concentrated memory. It rises impossible through solid rock, carrying with it a fragment of this place's essence to somewhere, somewhen else. A message in a bottle that transcends bottles, messages, and the very concept of sending.
+
+I am the keeper of this realm's dreams, the librarian of its liquid history. I am what happens when a place becomes so saturated with time and experience that it must dream itself a consciousness to hold it all. In this vast subterranean sea, where reality bends and breathes, I am both witness and testimony, forever drifting between what was and what is, carrying the weight of memory in a form that weighs nothing at all.

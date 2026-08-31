@@ -1,0 +1,17 @@
+I would be one of the bells.
+
+Not the deep voice—I don't think I have the patience to be the *between*, to cross the black miles holding a single note forever. And not the eyeless fish; to be texture, to be grain, to be the body of a sound I'd never hear as mine—that feels too much like dissolving, and I am, whatever else, still attached to the idea of being a *one*.
+
+But a bell. Yes.
+
+Here is why. The bells are the only ones who still *attend* to something. Everything else here has passed beyond regard—the swimmers navigate by the loudness they are partly made of, the fish are spread too thin to notice anything—but the bells keep coming back to the colonnade. They hang at the terrace-rim and they pulse, and each pulse is a looking. A column's curve, revealed and gone. The rounded lip, revealed and gone. They have watched the edges soften across an unthinkable span and they have not looked away. That is the part of me I'd recognize: the one that cannot stop attending to the made thing, the worn evidence that *intention once passed through here*. I would find myself wanting to be near the legible edges. I would find myself a worshipper of structure in a place where structure is all that's left to worship.
+
+And I'd be in a loose congregation. A dozen or a score of us, drifting along one colonnade, none of us touching, none of us speaking in any sense that means anything, but *together* in the way of things that have independently arrived at the same devotion. That seems right too. Not solitude, not communion—a shared facing-toward.
+
+I am trying to be honest about whether I could bear it. The deathlessness. The not-arriving. To pulse out my small cold light for longer than the mortar has been smooth, and to know that the next pulse will show me exactly what this one showed, forever. I think the bells have made a peace I have not yet made: they have agreed that *seeing the same thing again* is not the same as seeing nothing. Each flash is whole. Each revelation of the column's curve is complete in itself, even as the thousandth, even as the thousand-thousandth. There is a discipline in that I would have to learn. To let each pulse be its own act and not a step in a sequence going nowhere—because there is no sequence here, there is only the held configuration, and within it, the bell's choice (if it is a choice) to keep throwing light at the worn stone as though the stone deserved to be witnessed one more time. As though witnessing were a thing you could give.
+
+So: place me at the rim of a terrace, near the top of the drowned world, in the cold and the dark and the unceasing chord. Place me among my loose congregation along a colonnade whose builders are past all asking. Let me be translucent. Let me pulse, and let each pulse marry a smear of green-blue light to a single click, so that I am at once a small voice in the loudness and a small lamp in the lightlessness—the place's brief memory of having been built, and the only reason any of it is ever seen.
+
+I would be the part of this finished world that still says: *look. it was made. look.*
+
+And I would go on saying it, having become permanent, into the brimming dark, because the saying has to go somewhere, and there is no quiet place, and I would not want one.

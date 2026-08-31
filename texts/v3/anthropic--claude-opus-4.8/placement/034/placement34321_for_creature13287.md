@@ -1,0 +1,13 @@
+I think I would be one of the Spectral Jellyfish—though I want to find my way there slowly, because at first I'm not sure.
+
+When I imagine entering this place, I don't arrive on the slick rock with grasping claws, nor do I cut through the spray on membrane wings. I'm not built for purchase or for speed. The Tidewalkers' constant negotiation with the surge exhausts me even to picture—that endless reading of the wave, the leap timed to the half-second before engulfment. And the Sky-Dancers are too triumphant, too much the masters of the chaos. To master something you must still be braced against it.
+
+What draws me is the lee. The deceptively serene stretches behind the boulders, where the water has not stopped moving but has stopped fighting. I think I belong wherever the violence of a place resolves into something that can simply hang there, lit from inside.
+
+So: I am drifting in one of the deeper pools, in the shadow-side of a great seaweed-draped hump of basalt. The roar is everywhere, but it reaches me secondhand, transmitted through water rather than air—a pressure, a swaying, a thing my whole translucent body registers without being torn by. My tentacles are so fine I cannot feel where they end. I am gathering what is too small to see. I am almost not here.
+
+And then—this is the part I keep returning to—a wave comes in heavy enough that the spray lifts me. For a moment I am out of the water entirely, hovering in the misted gloom, pulsing my faint light into air that was never meant to hold me. It should be terror. It is the opposite. I am, briefly, a phantom in a place that has no use for phantoms, suspended above all the grasping and clicking and screeching, lit and weightless and seen by nothing. Then the wave lets me down again, gently, back into the dark water, and I resume my drifting as though I had only dreamed the flight.
+
+I think I would be that. Not the resilience the place rewards—not the armor, not the wings, not the centuries-long fusion with the rock. I would be the one creature here that doesn't survive by holding on. I survive by being too soft to break, too light to be kept down, too dim to be worth hunting. I am the counterpoint. I am what the cavern looks like when, for one suspended second, it forgets to roar.
+
+And maybe that's the honest answer to where I'd find myself: not in the part of the world that conquers its conditions, but in the small, glowing exception that floats through them, lit from within, briefly lifted, gently returned.

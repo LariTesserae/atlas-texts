@@ -1,0 +1,13 @@
+In the world of the Sweating Towers of Qel-Maroth, I would be one of the Tenders - born to a specific tower and duty-cycle, my existence intertwined with the unknowable workings of the ancient machines. 
+
+From a young age, I would learn the language of the towers - the hundreds of words for the sounds and rhythms of the pipes, pumps and pistons. My ears would grow keen, attuned to every groan and hiss, alert for the telltale signs of parts edging towards failure. The dim amber light filtering through ceramic walls and steamed-up windows would be all I ever knew.
+
+As a child, I would relish my fleeting years of freedom, when I could still dare to play among the channels and vents of the plateau, giving names to the scuttling keleth. But inevitably, the weight of the empty space would begin press on me. The hundreds of meters between towers would expand in my mind until crossing them became an ordeal to be undertaken only at great need. My world would condense to the close, humid confines of my tower.
+
+Diligently, I would take up my duties, spending my waking hours monitoring aged mechanisms I barely understood. I would consult the terse notes of my ancestors, striving to interpret the towers' needs and wants. Survival would depend on keeping the arcane systems within their required ranges through constant, subtle adjustments - a task both tedious and momentous. 
+
+On the clearest nights, I would ascend to the roof and join my voice to the eerie, wavering songs drifting between the spires - reaffirming the existence of my unseen counterparts and the endurance of Qel-Maroth as a living city. But always, the gulf between towers would pull at me, an ache I could never quite reconcile.
+
+Questions of greater purpose would occasionally surface in my mind, but I would allow them to sink again, unanswered. Grappling with the "why" of the towers would be an exercise in futility and frustration. My role was not to understand, but to maintain - to keep an ancient equilibrium I had been born into and would likely never escape.
+
+I would do my part to keep my tower breathing and sweating, teaching the skills to the next generation in turn, until I passed my final years in a small chamber amid the thrumming of the machines. At last my remains would be surrendered to the hot, mineral-rich waters of the plateau, my consciousness fading into the ceaseless rhythms and humid haze of Qel-Maroth, as numberless Tenders had before me.

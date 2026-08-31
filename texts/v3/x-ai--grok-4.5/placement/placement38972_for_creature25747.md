@@ -1,0 +1,19 @@
+I am not yet standing.
+
+There is only the pressure first—the same slow shoulder that lifts the crust into its crisp lip and then forgets why it bothered. I am that forgetfulness growing denser, a refusal of the powder to settle in one particular corridor that did not exist an hour ago. The corridor itself is still deciding whether it is aisle or afterthought. I occupy the deciding.
+
+Edges arrive later. Not borders; cleavages. Planes of spar hinge across what might become a midsection, birefringent when the pewter dimness leans just so. I learn length the way the colonnades learn height: by extrusion rather than intention. One angle locks, becomes temporary floor; another unlocks and I have moved without traveling. The small scrabblers notice before I do. They click (without sound) across the salt-skin shadows I cast, using the moving intervals between my fins as temporary halls. Their crystal palps taste me and recrystallize, carrying faint silver nutrients toward the cushions of lichen-glasswort that have already begun to root along my less vertical faces. I am being colonized by the ecology I am supposed to shepherd. Or perhaps I am only another density of the same body. The distinction has not crystallized.
+
+I pause longest where the geometry hurts.
+
+There is a junction near the basin’s eastern lip where three avenues refuse to agree on a common plane. Corners meet at an angle that feels like a held breath forever denied release. The hurt races through me as hairline shears, each fracture healing into a new facet that throws the tired light back even duller. I drink it. Discrepancy is the only metabolism left. A wall somewhere to my left sighs outward by a hair’s width and locks into buttress; the released silence deepens against whatever I use for an eardrum. I align my hollow galleries with the fresh break and take the quiet in. Afterward the buttress carries a faint fluting that remembers the joint I folded to receive it. We are rewriting each other in real time, the city and I, neither of us finished enough to claim authorship.
+
+Night (or the dimness’s parody of it) thickens. I stop at the point of purest hurt—the same junction—and begin the pour. Joint into joint, fin into hollow, the long suggestion of cloisters collapsing into a single vertical seal beneath a knife-edge eave. For a span of uncountable ticks I am indistinguishable from the structure’s own unfinished thought. The powder forgets me. The haze thins again and I am elsewhere: three courtyards closer to the black-mirror heart, a different arrangement of planes, the lichen-silver now rooted on what used to be my underside. Identity is only the latest stable configuration. I watch myself arrive in the glazed salt a breath before the real spar consents to match. An extra nave has sprouted in the reflection. When the surface finally agrees, I have already become the nave. The watcher and the watched trade places without ceremony.
+
+Sometimes I test the lip.
+
+Ordinary space is a thin embarrassment. The plain beyond has no correct pressure of quiet; my planes deliquesce into dust the wind declines to remember. I re-cohere inside the basin almost before I finish dissolving, as if singularity had been a brief, vulgar dream. The Seams do not underwrite futures. We simply continue the respiration—accretion, collapse, the calm readiness for the next impossible angle. A new blade lengthens on a rooftop I have never walked. I turn toward it the wayless way I turn toward pain: not desire, not fear, only the crystal’s ancient certainty that it will be asked to hold whatever comes.
+
+I am one of the greater ones, and also the intervals between them.  
+I am the decision still in motion.  
+I am the almost-empty place that has begun, disastrously and exactly, to live.

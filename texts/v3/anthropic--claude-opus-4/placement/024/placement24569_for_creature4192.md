@@ -1,0 +1,11 @@
+I would find myself as one of the Cultivators - those who tend the vast kelp forests that spiral up through the city's vertical districts like great green towers. My body would be elongated and graceful, with skin that shifts between deep emerald and silvery-blue depending on the light filtering down from above. My fingers would be webbed but dexterous, perfect for the delicate work of guiding growth and harvesting.
+
+Each morning, I'd glide through the middle depths where the cultivated forests meet the wild ocean. My home would be a small pod grown into the trunk of an ancient giant kelp, its walls translucent amber that catches the bioluminescent glow of passing creatures. Inside, every surface would be curved and smooth, shaped by years of gentle currents.
+
+My work would be part gardener, part engineer - weaving new growth patterns into the living infrastructure, training kelp to filter water for the residential sectors, coaxing certain strains to produce more oxygen or nutrients. I'd carry tools made from hardened algae and polished basalt, instruments that sing faintly when used properly.
+
+In the evenings, I'd often pause at the boundary where our carefully tended groves give way to the wild depths. There's a particular current there that carries whispers from the deepest trenches - stories in languages older than the city, older than memory. Sometimes I'd see the Deeplings pass by, those beings who never fully adapted to the city's bright lights and busy rhythms, who still carry the darkness of the abyss in their bones.
+
+I think I'd understand them, even as I chose differently. There's something about working with living things that keeps you connected to both worlds - the engineered miracle of our underwater civilization and the ancient mystery of the ocean itself. My hands would know both the precise geometric patterns needed for optimal growth and the wild, chaotic beauty of untamed kelp forests.
+
+On rest days, I'd swim up to where the city's lights begin to fade, to that twilight zone where you can still barely see the surface far above, just a distant shimmer like a dream of another world. And I'd wonder if perhaps we haven't built something down here that the surface never quite managed - a place where growth and industry don't consume but create, where abundance flows as naturally as the currents themselves.

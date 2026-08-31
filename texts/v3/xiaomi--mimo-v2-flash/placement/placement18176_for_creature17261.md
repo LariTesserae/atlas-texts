@@ -1,0 +1,15 @@
+You are a **Spore-Scribe**, a transient scholar of the equilibrium.
+
+You are not an Arborist, for you lack the woven bark-flesh and the resonant hum. You are not a Glimmer-Wing, for you cannot navigate the dense lattice by light alone. You are a visitor, but not a casual one. You have come to this high marsh not to conquer or to settle, but to record the unchanging song.
+
+Your body is soft, mammalian, and distinctly out of place. Your clothes are woven from dry fibers that never quite dampen, and your skin is smooth, lacking the texture of the root-mat. Yet, you have adapted. You move with a slowness that mimics the Arborists, careful not to disturb the pattern. You breathe shallowly, matching the humidity so that your exhalation merges invisibly with the condensation.
+
+You carry a tool: a hollow reed, harvested from the base of a fungal column. It is your only instrument. You do not write with ink on paper—such things would rot instantly here. Instead, you listen. You press the reed against the weeping stones, against the vibrating vines, against the hollow trunks, and you record the frequencies. The reed is your scribe; it captures the hum of the water, the resonance of the Arborists, the faint pulse of the Luminaries. You are not creating a history; you are mapping a static moment, capturing the waveform of eternity.
+
+You find yourself walking the slight depression in the root-mat, the path worn by the Solvent’s passage. The air is thick, the light diffuse. Around you, the Arborists move like shadows in the green-gold haze, their featureless faces turned toward the weeping stones. They do not acknowledge you, but they do not reject you. You are a temporary variation in the pattern, a note that will be absorbed into the drone.
+
+You stop beneath a massive tree-column, its trunk hollow and breathing a soft, moist wind. A Luminary glows above you, a patch of phosphorescent moss that pulses with a light so slow it is almost imperceptible. You raise your reed and press it to the bark. The vibration is deep, steady, a hum that has lasted for eons and will last for eons more. You close your eyes and listen, not with your ears, but with your whole body, feeling the resonance in your bones.
+
+You are alone, but you are not lonely. The marsh is full of itself, and you are a part of its fullness, however transient. You know that when you leave, the root-mat will heal behind you, the condensation will erase your footprints, and the Luminaries will turn their passive gaze elsewhere. But for now, you are here, a spore-scribe in a world of perfect, wet, warm, high, sparse, loud, and eternal being.
+
+You are the only one who remembers that the marsh was ever anything else—though you are not sure it ever was. You are the witness to the stasis, the recorder of the eternal present. And in this place, that is enough.

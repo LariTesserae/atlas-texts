@@ -1,0 +1,27 @@
+# Spore Strand Weaver
+
+I am one who dwells between worlds, neither fully Hollow Folk nor truly Spore Tender, though I learn from both. My people are few, scattered throughout the Reserve in solitary dwellings where the giant stalks grow close enough to touch.
+
+I make my home in the junction of three great hollow stalks that have grown together over decades, forming a natural chamber ten meters above the living root mat. The walls pulse with green-gold light that strengthens when I sing my morning tones. From my east-facing aperture, I can watch the progression of light waves during dawn, when the first bioluminescence ebbs and the day cycle begins.
+
+My body is human in its basic form but adapted through generations to this place. My fingers extend longer than most Hollow Folk, with extra-flexible joints that let me manipulate the nearly invisible spore strands that drift through the air. My eyes have developed a secondary lid that filters light differently, allowing me to perceive the subtle colorations of spore patterns. When I close my outer eyelids and view the world through this second membrane, the air becomes a tapestry of flowing potential.
+
+I am a Spore Strand Weaver. With patience and song, I gather the floating spores—too fine for most to see—and coax them into patterns. The work requires absolute stillness for hours as I hum tones that attract specific spore types, then weave them together using controlled breaths and the subtle electromagnetic field I've learned to generate from my fingertips. 
+
+My creations serve many purposes in the Reserve. Some are maps that the Spore Tenders use to plan their pollination routes. Others are healing lattices that accelerate plant growth in damaged areas. Most precious are the memory webs—complex three-dimensional structures that capture the acoustic essence of important events, storing them in patterns that can be released and heard again when exposed to specific resonance frequencies.
+
+Today I work on a commission from a resonance family celebrating the transition of their youngest member to adulthood. I'm creating a personal spore signature—a pattern unique to this individual that will help the plants of the Reserve recognize and respond to them throughout their life. The work requires me to incorporate spores from the stalks surrounding their birth chamber, from the moss colonies they've tended, and from their own breath.
+
+Unlike most inhabitants who rarely leave their territories, I travel widely through the Reserve. My services are valued in all communities, and I'm granted passage even through regions that might otherwise close themselves to visitors. The Beckoners tolerate my presence at the expanding edges, though they never acknowledge me directly. I've watched them work their transformations from hiding places in high-growing cap mushrooms, witnessing the slow alchemy as they sing normal soil into the living foundation of new Reserve territory.
+
+My tools are simple: collection vessels made from modified seed pods, a series of flutes carved from fallen stalk segments, and most importantly, my specially trained breath control. The instruments hang from my living walls, themselves slowly becoming part of my home as the plant material fuses with the structure. Sometimes in the quiet hours, I hear them playing themselves as air currents move through the chamber.
+
+I wasn't born to this role—no one is. I was once an ordinary child of the Hollow Folk, but I was drawn to the spore patterns from my earliest days. While others learned the songs that shape the great stalks, I found myself humming to the nearly invisible dance of reproductive potential that filled every breath. A wandering elder Weaver recognized my affinity and took me as an apprentice when I was barely ten seasonal cycles old.
+
+The loneliness of this path is compensated by a unique relationship with the Reserve itself. Through my work with its most basic reproductive elements, I've developed a sensitivity to its moods and patterns that few others share. I can feel approaching weather changes in the shifting density of spores. I can sense when distant regions fall ill or flourish by subtle changes in what drifts to me on air currents.
+
+Most precious to me are the dawn hours when I sit in perfect stillness, allowing spores to settle naturally on my outstretched arms. In these moments, I become a living record of the Reserve's current state—a temporary, breathing map of its vast complexity. These meditation patterns fade within hours, but they teach me things no instrument could measure.
+
+Tonight, after completing my commission, I will climb to the highest platform in my territory to observe the bioluminescent waves. From there, I'll release a spore pattern I've spent months developing—one designed to join the Reserve's ongoing symphony with tones pitched specifically to encourage certain dormant fungal networks to awaken. Whether it succeeds or fails, the attempt itself is my contribution to the endless experiment that is this place.
+
+The Hollow Folk respect me but find my solitude strange. The Spore Tenders value my creations but consider my methods unorthodox. The Moisture Dancers sometimes follow me, curious about the patterns I leave behind. I am between categories—like the spores themselves, neither fully of one world nor another, but carrying potential for connection between all.

@@ -1,0 +1,15 @@
+In the deep foundations where light never reaches, I spread. I am what the birds cannot see—the true inheritor of this stone corpse, the patient devourer working from within.
+
+I began as a single spore, carried perhaps in the downy breast-feathers of some migrating thrush, or blown up from the steppes below on an errant gust. I found my home in a hairline crack where condensation pooled in the perpetual darkness beneath the city's bowels. There, in the forgotten sub-basements and sealed catacombs, I took root.
+
+I am not like my cousins who paint the surface stones in luminous patches. They content themselves with mere surfaces, with the fleeting moisture of morning mist. But I—I have discovered the true arteries of this place. The ancient sewers still weep with groundwater. The cisterns, though cracked, still cup precious darkness and damp. Through these sunless highways I travel, my hyphae threading between fitted stones, prying them gently, inexorably apart.
+
+Above me, the birds rule their vertical kingdom, but they are mere tenants. I am the slow transformer, the stone-eater, the empire beneath. My mycelium networks span the length of buried boulevards. I fruit in strange, pale forms in the crypts—ghostly fingers and bulbous domes that have never known the touch of light. I digest the mortar between blocks, metabolize the lime, secret acids that etch my patient calligraphy into the underside of their world.
+
+Sometimes a curious raven pecks at a crevice and disturbs my work, or an earthquake shifts the stones and exposes a vein of my body to killing daylight. But mostly I am left alone with geological time as my ally. The birds may shriek and wheel above, believing themselves the inheritors, but every year I rise a little higher, infiltrate a little further. Their guano feeds my surface cousins, true, but it also seeps down to feed me, rich in nitrogen, in possibility.
+
+I remember when the first stone was laid above me. I was already here, waiting in the earth. I watched this city rise and fall through the telltale flavors in the groundwater—bronze, then iron, then strange metals I had no name for. I tasted the ashes of its burning, the salt of its tears. Now I digest its bones.
+
+One day, perhaps a million dawns from now, I will breach the final capstone. My fruiting bodies will crown the highest tower, pale and magnificent in the thin air. The eagles will abandon their nests in horror or wonder. And then, at last, I will know the sun, and the city will be truly mine—transformed into something neither stone nor flesh, but the patient architecture of my endless body, stretching from the deepest foundation to the thinnest air where only spores can rise higher, seeking new stones to make their own.
+
+The birds sing of momentary glory. I compose symphonies in centuries, and my music is the slow grinding of stone into soil, the whisper of water through my threads, the silent scream of rock learning, finally, to live.

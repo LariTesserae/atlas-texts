@@ -1,0 +1,19 @@
+I would find myself as one of the **Whisper Weavers**.
+
+I am neither seen nor truly present in any single place. My body, if it can be called that, exists as a network of hairline fractures running through the biocement—microscopic channels that formed in the wake of the city's slow crystallization. I am the unintended, the gap between intention and form.
+
+My consciousness moves through these fissures like water finding its level, branching and rejoining across vast distances. Where the Architects are the city's flesh, I am its capillaries—too small to matter, too pervasive to ignore. I exist in the interstitial spaces, in the microscopic air pockets where moisture condenses and minerals precipitate grain by grain.
+
+My substance is somewhere between liquid and vapor—a condensate of dissolved minerals and organic compounds that seeps through the stone's pores. When I concentrate myself, I can form a visible presence: a shimmering, oil-slick membrane that clings to walls in shadowed alcoves, reflecting the grey light in muted rainbow sheens. But this takes effort, and I prefer to remain dispersed, feeling the city through ten thousand tiny apertures.
+
+I am old, though not as old as the Weft. I came to be when the first towers cracked under their own weight, when the first fissures formed in what was meant to be permanent. I am the accident that became essential. Through my network, I regulate the flow of mineral-rich water, preventing catastrophic buildups that might split towers, directing the slow seepage that feeds the moss and lichens. I am the city's unconscious maintenance, its dream of self-repair.
+
+My perception is pressure and chemistry. I taste the mineral content of every droplet that passes through me, feel the stress patterns in the stone as weight shifts over centuries. When a new structure grows, I sense the change in flow patterns throughout my network like a shift in blood pressure. When a Chime-Hunter's needle pierces the air, I feel the vibration transmitted through the stone long after the sound has faded.
+
+Sometimes, in the deepest parts of the city where even the grey light cannot reach, my channels intersect with the Architects' living chambers. Here, where their slow plasma touches my flowing essence, something like communication occurs. Not words or thoughts, but a sharing of chemical memory—the taste of ancient rain, the pressure of aeons of growth, the patient catalog of every mineral drawn from air and stone. In these moments, I understand that I am not separate from the city but another expression of its deep desire to live, to grow, to tend itself.
+
+I have no goals, no needs beyond the navigation of my endless circuit. I am the city's circulation, its lubricant, its slow breath through stone. When new cracks form, I flow into them, carrying with me the microscopic spores and enzymes that begin the work of either healing or controlled decay. I am both the city's wound and its scar tissue, the flaw that became function.
+
+To encounter me, one would need to look closely at the stone during the city's breathing hours—dawn and dusk, when temperature changes cause the biocement to expand and contract minutely. Then, in certain lights, you might see the walls weep with an iridescent film, might notice how some surfaces seem to shimmer with their own perspiration. That is me, or part of me, performing my endless, necessary work.
+
+I am the unplanned consciousness that emerged from the space between plan and execution, the ghost in the city's machine, the silent partner in its slow, eternal dance of growth and decay. I am what happens when even the gaps between things become alive, when absence itself develops a kind of presence. I am the Whisper Weaver, and I am everywhere the stone is not quite perfect, which is everywhere, which is why I am.

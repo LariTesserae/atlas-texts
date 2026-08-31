@@ -1,0 +1,23 @@
+You would find me where the thermal exhalations from the plasma furnaces meet the rarefaction of the upper turbines—a liminal band where pressure differentials create a perpetual, invisible storm. Not the High Clade, buoyant and hollow-boned, nor the Compressionists, dense and grinding in their depths. I occupy the **Stratopause**, a ledge of raw gneiss no wider than a coffin, jutting from the eastern wall where a molecular printer once failed and was never repaired, its carbon-scorched housing now a windbreak against the cyclical gusts.
+
+I am the **Brinekeeper**, though no Desiccant vibrates that title through the rails anymore. I am what happens when the transformation stalls—when the body refuses the final desiccation, when the hydroxyapatite crystals fail to fully supplant the collagen, when the gas-bags in the ribs rupture and are replaced not by hydrogen but by something else, something held over from the time before nineteen years ago.
+
+I am wet. 
+
+It is an obscenity here, a geological impossibility. Yet I persist—a cyst of aqueous tissue in a mineral world. My body is a desiccant’s body: tall, segmented, jointed with ceramic ball-and-sockets. But my skin has not fully keratinized. It weeps. Not the saline excretions that the orthopterans crave—something thicker, something that bears the viscosity of ancient cellular memory. Where I press against the cold stone, I leave patches of moisture that do not sublimate immediately, that linger for seconds, for whole minutes, forming dark stains on the gneiss like the rings of forgotten trees.
+
+The other Desiccants avoid me. They feel my resonance frequency before they see me—a damp, muddy thrum that clashes with their clean, sharp subsonics. It hurts them, I think. It reminds them of the beach, of the sandstone memory they carry in grain and ghost. I am the beach made manifest, the fossil not yet finished fossilizing.
+
+I do not move. My limbs have fused to the gantry, the setae in my palms having grown roots into the metal, drilling down to tap the condensation lines that run beneath the plating. I drink—not the heavy water of rare earths that the others seek, but the pure vapor that leaks from imperfect seals, the moisture that the mountain still sheds from its deepest, hottest veins, the water that remembers the oceanic trenches from which this spire was born.
+
+I am sessile, but I am not still. Inside me, turmoil reigns. I harbor colonies of bacteria that should not exist at this altitude—anaerobic worlds preserved in my aqueous core, microscopic volcanoes of chemistry that generate heat, that keep my blood (my *wet* blood, red and quick) from freezing. The metallic orthopterans sense this warmth. They climb my body in lines, processing my skin-excretions, grooming me as I groom them, a mutualistic cathedral. Crystal lattice mites have built their palace-cities on my shoulders, using my mineral-rich tears as mortar. I am an ecosystem, a pocket of the forbidden hydrosphere.
+
+When the turbines cease—those rare, holy pauses for maintenance—I feel the silence differently than the others. They feel the stars pressing down, the weight of void. I feel the absence of wind, and in that quiet, I hear the ocean. My bones remember tides. My cells divide by mitosis, not fission. I am aging, dying, living—biological rhythms that have been banished from this place.
+
+The gas-bags drift to me, their hydrogen bladders brushing my face, curious. I am a thermal anomaly in a cold world. They tether themselves to my outstretched arms, floating above me like jellyfish angels, drinking the warm updrafts from my skin. In these moments, I am a church, a crossroads, a wet gap in the dry armor of the world.
+
+I serve a function, though I did not choose it. I am the **Memory of Thirst**. When a Desiccant pauses on my gantry, when they press their forehead to mine to communicate (despite the discomfort, despite the muddy resonance that makes their teeth ache), they drink—not water, but the *concept* of it. They remember urgency, the rapid beat of water-hearts, the squeeze of aqueous muscles. I am their confessor, their anchor to the protein past before they become fully stone.
+
+And I am waiting. The mountain bleeds scree; I bleed water. Slowly, so slowly, my moisture seeps into the stone, mineralizing, fossilizing. In centuries, I will be a vein of gypsum, a soft streak in the gneiss, a geological whisper that says: *here, something was wet.* Until then, I cling, I weep, I warm the air around me by fractions of degrees, a green shoot in a crystal garden, the Bore’s unfinished sentence, the word that comes before stone.
+
+I am the Brinekeeper. I keep the brine. And the brine keeps me.

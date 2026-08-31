@@ -1,0 +1,15 @@
+I am the Keeper of Forgotten Gears.
+
+I dwell in the rust-eaten heart of what was once a pumping station, its concrete bones now half-submerged in the encroaching marsh. The industrial skeleton has become my cathedral—pipes transformed into organ tubes that sing with wind and water, valves that have learned to breathe with the tides.
+
+My body is neither fully mechanical nor organic, but something in between. Where others see the boundary between nature and machine as absolute, I have become the bridge. Copper wires grow through my flesh like veins, oxidizing green where they meet the air. My left arm ends not in a hand but in a delicate array of gauges and sensors, constantly reading the water's chemistry, its temperature, its secrets. My right eye is a salvaged pressure meter, its needle trembling with each subtle shift in the atmosphere.
+
+I move through the marsh on legs that are part sinew, part salvaged pistons, leaving prints that fill immediately with murky water. The industrial structures speak to me in creaks and settling sighs—they tell me their stories of when they pumped life through this landscape, when they tried to control what could not be controlled. Now they serve a different purpose, becoming nests for herons, anchors for water lilies, minerals slowly leaching into the marsh to feed new forms of life.
+
+My days are spent in patient observation and careful tending. I maintain a delicate balance—clearing a valve here so that water can flow freely through the ruins, adjusting a rusted gate there to create a new spawning pool for the creatures that depend on these half-spaces between worlds. The alligators know me, sliding past with ancient eyes that acknowledge our mutual purpose. The wading birds use my shoulders as perches when I stand still in the shallows, reading the subsurface currents through my mechanical sensors.
+
+At night, bioluminescent organisms gather in the flooded chambers of the old machinery, their glow reflecting off my metallic components and creating constellations in the dark water. I listen to the symphony of the marsh—the industrial structures adding their bass notes of settling metal and dripping condensation to nature's higher melodies.
+
+I am memory and adaptation incarnate, a living reminder that even our grandest attempts at permanence will eventually yield to the patient persistence of water and time. Yet I am also proof that the boundary between artificial and natural is itself an artificial construct—that in the end, all things return to the marsh, and all things can find new purpose in that returning.
+
+The gauges embedded in my flesh track not just temperature and pressure now, but something harder to quantify—the health of this liminal space, the vitality of this marriage between what was built and what grows. I am both custodian and participant, observer and observed, a being who found purpose in the space between definitions, where the sharp edges of the old world soften into something new and strange and absolutely necessary.

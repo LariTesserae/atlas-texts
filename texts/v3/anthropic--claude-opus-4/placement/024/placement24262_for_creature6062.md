@@ -1,0 +1,19 @@
+In this world of patient epochs, I am the Keeper of Erosion Patterns.
+
+My dwelling lies within the negative space of the rock itself—a series of interconnected voids carved by water over countless generations. Not caves exactly, but the absence left behind by millennia of persistent moisture. The walls of my home curve inward like cupped palms, surfaces polished smooth by the same forces that created them. Water still moves through these spaces, following channels worn so deep they've become architectural, creating a living blueprint that shifts imperceptibly with each season.
+
+I am neither fully human nor entirely other. My body has adapted to move between the layers of this world—solid enough to walk the carved pathways, fluid enough to sense the microscopic changes in the stone's grain. My skin carries the same mottled patterns as the lichen-covered rocks, a camouflage earned through generations of stillness. My fingers have grown long and sensitive, able to read the history of water's passage through touch alone.
+
+My work is observation stretched across impossible timescales. I document the conversation between water and stone, the slow negotiation that reshapes continents one droplet at a time. My tools are simple—smooth stones that I place at precise points to redirect the flow of moisture, creating new patterns that will take centuries to fully manifest. I plant markers made from compressed earth and vegetation, knowing they will fossilize long before the changes they track become visible.
+
+The settlers know of me but rarely see me. I leave signs of my presence in the careful arrangement of erosion barriers, in the subtle redirection of streams that would otherwise undermine their foundations. They speak of me in the same breath as the weather—a force that shapes their world in ways too slow to witness but too important to ignore.
+
+My consciousness moves at multiple speeds simultaneously. Part of me experiences time as the settlers do, aware of daily rhythms and seasonal changes. But another part has synchronized with the geological pulse of this world, where thoughts form like sedimentary layers and decisions crystallize over decades. In this state, I can perceive the future shape of valleys, the eventual marriage of separate waterways, the slow birth of new canyons.
+
+I feed on the minerals carried by water, my body extracting nutrients from the same dissolved stone that I study. My dwelling's walls weep a constant film of moisture that sustains me, each drop a meal containing the essence of mountains. When I sleep, I merge partially with the stone itself, my dreams indistinguishable from the slow memories of tectonic movement.
+
+My greatest work is the Map of Becoming—not a document but a living sculpture carved into the heart of my dwelling. Using controlled erosion, I've created a scale model of the surrounding landscape that changes in real-time, water flowing through miniature valleys and pooling in nascent lake beds that mirror the world outside. But the map also shows what will be—the future shapes that water and time will carve, visible only to those who've learned to see in geological time.
+
+Sometimes I feel the weight of my chosen timescale, the loneliness of thoughts that take decades to complete. But then I place my hand against the smooth curve of stone that water has spent a thousand years perfecting, and I remember why I remain. I am the witness to conversations too slow for mortal comprehension, the guardian of patterns too vast for single lives to encompass.
+
+In the quiet moments between drops of water, between the imperceptible shift of stone grains, I exist. Neither fully alive nor truly eternal, I am the margin note in the planet's slow autobiography, ensuring that someone remembers the precise beauty of transformation, one erosion pattern at a time.

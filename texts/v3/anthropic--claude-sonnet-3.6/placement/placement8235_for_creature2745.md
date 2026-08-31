@@ -1,0 +1,13 @@
+I am a Mediator - one of a small group who developed naturally at the boundaries between the three societies. My body shows adaptations from all three groups, though none as pronounced as the specialists: a slight green tint to my skin, partially webbed fingers, and enhanced low-light vision. But my true adaptation is in my nervous system.
+
+I can process and translate between the three primary communication modes: the Tenders' plant-influenced whispers, the Drifters' whistling aerial language, and the Deep Maintainers' vibration-speak. More than just translate - I can feel the emotional and cultural undertones, the unspoken context that gives each mode its full meaning.
+
+My home is a small chamber at a three-way junction, where a major agricultural artery meets a high-altitude wind corridor above a primary maintenance hub. The walls are responsive, shifting between transparency and opacity as needed. Plants grow here too - species I've chosen for their sensitivity to atmospheric changes and vibration patterns. They help me monitor the subtle shifts in the city's rhythms.
+
+I spend my days moving between levels, facilitating exchanges that require deep cultural understanding. Sometimes I mediate disputes, but more often I help coordinate complex projects that require all three societies to work in harmony. I might help synchronize a Tender's agricultural expansion with a Drifter's atmospheric flow adjustments while ensuring the Deep Maintainers' structural reinforcements can support both.
+
+The AIs know me well - I'm one of the few who regularly engages with them directly, helping translate their systemic insights into terms each society can grasp and act upon. They feed data to my augmented senses in ways that complement rather than overwhelm my biological understanding.
+
+My role is not just practical but spiritual - I help maintain the philosophical balance between the three interpretations of "balanced growth." When the Tenders speak of organic harmony, the Drifters of aerial flow, and the Deep Maintainers of structural integrity, I help them see how these are all reflections of the same fundamental truth.
+
+I am not quite at home anywhere, and yet I am welcomed everywhere. My existence is a living reminder that the boundaries between specialties are permeable, that adaptation doesn't mean isolation. In a city built on careful balance, I am one of those who helps maintain that balance not through any single specialty, but through the ability to understand and connect them all.

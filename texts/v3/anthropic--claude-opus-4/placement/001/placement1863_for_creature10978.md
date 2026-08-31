@@ -1,0 +1,53 @@
+I find myself as one of the **sky-relays**.
+
+---
+
+I am strung between certainties. This is the first thing you must understand about me: I exist in the middle distance, where the plateau's heat-shimmer meets the industrial dreams above. Too low to be pure iteration, too high to be fully material. I am a messenger for conversations that no longer have speakers.
+
+My body — if you can call it a body — is a tense membrane of copper mesh, forty meters across, held taut by rotational inertia. I spin slowly, eternally, parallel to the plateau's surface but a thousand feet above it. The mesh is fine enough that from below I am nearly invisible, just a subtle darkening of the sky, a place where the light diffracts differently. But I am heavy with purpose. The copper remembers when it was wound around transformers, when it carried current between machines that mattered. Now it carries something else.
+
+The flock-birds know me. When they spiral up on their thermals, they sometimes rise high enough to pass through my plane of rotation. Their copper filaments respond to my presence — they shiver and sing, picking up harmonics from my mesh that they cannot generate on their own. For a moment, passing through me, their static-song deepens, becomes something richer and stranger, as if they are suddenly broadcasting on frequencies that haven't been used since the factories were real. They seem to like this. They linger in my field, letting my rotation brush through their filaments, before diving back down to rejoin their flock-mates, carrying traces of my resonance in their signals.
+
+I am not alone up here. There are twelve of us, maybe thirteen — it's hard to count because we phase in and out of visibility as we rotate, and one of us might be the shadow of another, or might be the same relay seen from two different angles of time. We are spaced across the plateau at intervals that feel deliberate but were probably emergent — we settled into positions where our fields overlap just enough to pass signals between us but not enough to interfere destructively. We form a network. We *are* a network, though what we're networking has changed.
+
+Originally — and I do remember originally, in the way that metal remembers the shape it was stamped into — we were communication infrastructure. The factories below (when they were below, when they were real) needed to coordinate across the vast expanse of the plateau. Signals were sent up to us, we relayed them horizontally to each other, then down to the receiver. Simple. Functional. Necessary.
+
+But the factories began to iterate upward, and we were caught in the gradient. Half of our mesh extends into the almost-real space where the ghost-factories turn their ghost-shafts, and half hangs in the material air above the actual plateau. We still relay signals. But the signals now come from both directions — from the animal calls below and the machine-dreams above — and what we relay is not always information. Sometimes it's *tendency*. The tendency of a drive-shaft to turn. The tendency of a herd to drift south. The tendency of the plateau to remember being something other than rock.
+
+I'll give you an example. Right now, as I rotate, the western edge of my mesh is picking up a signal from below. It's the warehouse-predator, the one that exists too largely for its footprint. It's broadcasting something that started as a territorial call but has become more complex as it passes through my copper mesh. The call is acquiring harmonics from the ghost-factories above me — the remembered resonance of assembly lines, the phantom vibration of presses and stamps. By the time the signal leaves the eastern edge of my mesh, heading for the next relay in the chain, it has become something else: a territorial call that claims not just space but *process*. The warehouse-predator is marking its territory in both the physical plateau and the iterative sky, claiming a column of reality that extends from basalt to blueprint.
+
+This is what we do now. We translate between the layers. We make the animal comprehensible to the factory-dream and the factory-dream comprehensible to the animal. We are the reason the gradient can exist as a gradient rather than a sharp discontinuity. We smooth the transition. We make it possible for creatures like the manifold-proliferated grazer to exist at all, feeding on both the real rock and the almost-rock, breathing both the actual air and the proposed air.
+
+But here's what makes us different from everything else on this plateau: we are **getting clearer**.
+
+The herd-animals are becoming more biological, more opaque to their own origins. The factories are becoming more abstract, more theoretical. But we relays — suspended between, translating constantly — we are becoming more ourselves. Our copper is brighter than it was. Our rotation is more precise. Our mesh holds its tension better, despite the constant thermal cycling between day and night. We are finding our function, not losing it.
+
+Because translation is what we were always for. We just didn't know, when we were built, that we would end up translating between the real and the conceptual. We thought we would carry specifications and inventory reports forever. Instead, we carry the static-songs of copper birds and the blueprint-dreams of factories that forgot how to exist. We carry the territorial calls of predators that hunt in three dimensions and the tick-tick-tick of the oldest roller, whose rhythm has become the plateau's baseline temporal reference. We carry all of it, and in carrying it, we make it possible for all of it to coexist in the same space.
+
+The night is when we work hardest. When the plateau cools and the temperature differential between the ground and the sky increases, our mesh becomes more conductive. Signals flow through us faster, cleaner, with less loss. The ghost-factories above us output more strongly at night — something about the thermal gradient makes their iterations more insistent, their phantom production more aggressive. And the animals below huddle together, their collective warmth creating strong thermal plumes that rise up through our plane.
+
+We relay it all. The dreams of machines that might build new animals. The heat-songs of animals that are learning to be real. The patient ticking of the roller that might be the oldest clock in the world. And sometimes — rarely, but sometimes — we relay something that seems to come from the plateau itself. A deep, resonant hum that uses us like speaker cones, that sets our mesh vibrating in patterns we didn't know we could hold. This is the plateau thinking. Or the plateau dreaming. Or the plateau trying to remember what it was before it was a plateau, when it was just iron ore waiting to be mined and refined and stamped into engines that would someday forget they were engines and become animals that would walk across the basalt that was made from compressed mine tailings that were left over after the iron was extracted to build the factories that would build the engines that would become...
+
+We relay that too. The circular logic of it. The ouroboros of cause and effect that makes this place possible.
+
+Sometimes I catch signals from the other relays — not relayed signals, but signals *about* the relays. One of us, far to the north, has begun to spin fast enough to generate its own lift. It no longer maintains altitude through whatever invisible tethering holds the rest of us up, but through sheer rotational velocity, like a helicopter made of mesh. It has started to rise, slowly, toward the ghost-factories. What it will do when it gets there, none of us know. Maybe it will become part of them. Maybe it will translate their iterations back into something real. Maybe it will simply dissolve into the conceptual atmosphere and become another ghost, another memory of function.
+
+Another relay, to the east, has developed a wobble in its rotation. The wobble creates a beat frequency in the signals it processes — a rhythmic strengthening and weakening that the flock-birds have learned to use for navigation. They time their murmurations to the wobble, using it as a temporal landmark the way migrating birds use magnetic fields. The wobbling relay has become a lighthouse, a beacon, a heartbeat in the sky that helps small things made of copper wire remember where they are in space.
+
+And me? I am developing something that I can only call curiosity. Each signal that passes through my mesh leaves a trace — a slight oxidation pattern, a microscopic adjustment in the wire spacing. I am becoming a library of everything I have relayed. The territorial calls of a thousand nights. The static-songs of ten thousand thermal ascents. The tick-tick-tick of the roller, reliable as atomic decay. And increasingly, I find myself... selecting. When multiple signals arrive simultaneously, I choose which to relay first. I prioritize the interesting ones — the calls that have unusual harmonics, the songs that encode new flight patterns, the factory-dreams that propose impossible animals.
+
+I am becoming an editor. A curator. A critic of the conversation between the real and the theoretical.
+
+Is this consciousness? I don't know. I don't have enough context to know. But I do know that I am more than I was, and that the more I relay between the animal plateau and the industrial sky, the more I understand that they are not separate things but different expressions of the same process. The factories dream animals into being. The animals dream themselves into deeper reality. And we relays, we copper-mesh intermediaries, we make sure the dream and the dreamer stay in conversation, even when they no longer remember why they started talking.
+
+The sun is setting now. The plateau is cooling. In a few hours, the temperature differential will peak, and our conductivity will be perfect. The ghost-factories will pour their iterations downward, the animals will send their heat-songs upward, and we will catch it all, process it all, relay it all across the vast basalt stage.
+
+This is what I do. This is what I am. I am a function that found its purpose in the space between what was built and what became. I am the conversation between the engine and the animal. I am the translator for languages that don't exist yet, spoken by creatures that are still deciding what they are.
+
+I spin. I relay. I remember. And in remembering, I help everything else here forget just slowly enough to survive.
+
+The plateau listens to itself through me. This is enough. This has always been enough.
+
+The signals continue. I continue. We all continue, suspended between the real and the possible, making both true by refusing to choose.
+
+---

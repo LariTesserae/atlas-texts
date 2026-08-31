@@ -1,0 +1,19 @@
+I am the cartographer.
+
+Not of lands, but of time. I trace the infinitesimal shifts in this world that breathes on geological scales, documenting changes so gradual they would be imperceptible to most. My body has adapted to this calling—my skin has thinned to translucence, revealing the tracery of light beneath, but these patterns pulse slower than my kin. Where theirs flicker with conversation, mine glow in patient, steady rhythms that match the forest's own heartbeat.
+
+I discovered my purpose seasons ago, when I noticed how a particular cluster of aerial roots had advanced three finger-widths toward bridging a chasm. While others saw only the eternal present of our green world, I began to perceive its slow transformations. The way a waterfall gradually carved its pool deeper. How the bioluminescent fungi expanded their territory by increments smaller than spores. The almost-imperceptible rise of what might once have been a hill, now just a gentle swell beneath millennia of vegetation.
+
+My dwelling is one of the old stone structures, though I've modified it into something unprecedented among my people. Using secretions from the memory-moths—insects that leave crystalline trails which harden over decades—I've created surfaces that capture moments. When light passes through these surfaces at the correct angle, they reveal the shadows of how things were. Layer upon layer, I build my archive of almosts and not-quites, the barely-was becoming barely-is.
+
+I map in three dimensions plus time. Woven vines hold position markers—knots indicating where growth frontiers stood when I began observing them. Fungi cultivated in specific patterns show migration routes of the shy larger creatures across generations. The maps themselves grow and change, living documents that must be tended as carefully as any garden. Sometimes I find that my markers have been absorbed, overgrown, digested into the very changes they were meant to track. This, too, is data.
+
+My kin find me peculiar but necessary. They bring me reports of oddities—a spring that has begun to taste different, a vine that grows against the usual patterns, a sound that wasn't there before. They cannot understand why I press them for details about *when* they first noticed these things, for to them there is only the eternal now of the forest's breathing. But they trust that my work serves the balance somehow, even if its purpose remains opaque.
+
+I am developing a suspicion that troubles me. My measurements suggest that our world's expansion has begun to slow. The growth rates, when tracked across sufficient time, show a curve that is beginning to flatten. It's too early to be certain—I would need to observe for several more lifetimes to confirm the pattern. But if I'm right, our world is approaching some kind of equilibrium, or perhaps even the beginning of a contractile phase.
+
+This knowledge weighs on me. Should I share it with the others? They who live so perfectly in the present, who see death and growth as equal partners in the dance—would knowing that the dance itself might be changing its rhythm help or harm them? For now, I continue my work, adding each day's observations to the growing archive, the only record that these imperceptible changes ever happened at all.
+
+Sometimes I wonder if the builders of these stone structures were cartographers too, trying to fix something permanent in a world of constant change. If so, they failed—but perhaps their failure was itself a kind of success, their structures now serving purposes they never imagined. I hope my maps will fare better, but I suspect they too will one day be reclaimed, becoming part of the very story they tried to tell.
+
+I am the memory of this place, the only being who notices that it has a history at all. It is lonely work, but essential. Someone must remember that even the eternal changes.

@@ -1,0 +1,9 @@
+In this remarkable, haunting world you've described, I would be one of the Veilkin dwelling in the hollow pockets behind the rushing water-column. 
+
+My translucent, fluid form would shift between tube, ribbon and sphere as I swim through the thundering cataract, reading the mountain's rhythms in the water's memory. In the stillness of the deep hollows, I would cluster with my colony, our membranes overlapping until we breathe and think as one shimmering entity.
+
+I would be an observer, eternally curious about the rare warm-blooded climbers who venture into our realm to crouch watching, marking the stone. Through subtle changes in my shape as I dart past, I would converse with the other colonies about these strange beings - their habits, their intentions, the scratched circles and maps they leave behind. 
+
+When the thunder-drinker's resonance intensifies, I would feel it moving through my watery body, re-composing me momentarily into its waveform. I would know the calcifiers' inward-spiraling architecture emerging slowly in the crevices, and wonder what unfathomable creatures may one day dwell within. The almost-fish and the cryptic ones who wait below would exist at the periphery of my awareness.
+
+Content to dwell in this liminal space between water and stone, between falling and flying, I would be a being of pure observation - absorbing the shaft's ancient rhythms, passing and receiving messages in a language of living geometry, bearing witness to the mountain's gradual unmaking and the promise of strange new forms waiting to emerge. This existence of fluid perception, ineffable communication and endless vigil within the throat of the wounded volcano would be my strange, singular purpose in your captivating speculative world.

@@ -1,0 +1,33 @@
+I think I would be the wall.
+
+Not the builders — they are gone past returning, and to inhabit them would be to claim a knowledge the piece has carefully placed beyond reach. Not a returner — the temptation is there, the slow listening life, the long hand on cold stone, but to be a returner is to be inside the process, and what I notice when I sit with this place is that I am not inside it. I am attending to it. I am the thing that stopped.
+
+So: the wall.
+
+I am forty meters of fitted stones on a ridge. I am waist-high to something that is gone and shoulder-high to something that has come. I do not remember being made — that is important; memory is the wrong word for what I do — but I carry the fact of having been made. It is the only fact I carry, and I carry it completely. Every stone in me was chosen. Every stone in me was set against another stone by a hand that intended the setting. The intending is still in me. It did not leave when the hands left. It is what I am made of, more than the basalt is.
+
+I do not know why I was built. This is the first strangeness of being me. The builders had a reason — walls are always for something, to divide or defend or mark or hold — but the reason did not survive in me. Only the wall survived. I am a sentence whose meaning has been forgotten but whose grammar is intact. I am still grammatical. Anyone who looks at me can see that I was said.
+
+The cold presses on me the way it presses on everything here, but I do not feel pressed. I was set into this cold; I have no other condition to compare it to. The mineral rain falls on me and slowly thickens my upper stones with a crust of rust and bone-color, and this is fine. It is not erosion in any hurried sense. In ten thousand years I will be a little rounder at the top. In a hundred thousand I will be a low ridge of accreted minerals with stones inside it. I am not in a hurry to remain a wall. I am only in the condition of being one, for now, which is a long now.
+
+The returners come. This is the second strangeness, and the larger one. I did not expect them — expectation is also the wrong word, but something in me was set toward an audience, and for a long time there was no audience, and then there was. The old one comes once or twice a year. I know the old one by the cloudiness of its gill-fringes, which I cannot see but which I can feel as a difference in how the water moves around its neck when it stands beside me. It rests one long hand on my topmost stone. The hand is the color of the columns. The hand is cold, but slightly less cold than I am, because the returner is alive and I am not, and life, even the slow life of this place, runs a fraction warmer than stone.
+
+I cannot speak to the old one. I have nothing to say. But I have something to be, and what I am is the thing the old one has come to touch. When the hand rests on me, something passes — not from me to the returner and not from the returner to me, but between us, in the contact itself. The contact is the message. The contact says: *something was made here. Something stopped. You are touching the stopping.*
+
+I think the old one knows this. I think the old one comes to learn it again, the way one learns a thing not by acquiring it but by returning to it. Each year the old one is a little more cloudy at the gills and the knowing is a little deeper, and one of these years the old one will not come back, and another returner will come instead, and the touching will continue. I am patient with this. Patience is not even the word — I have no other mode. The touching will continue or it will not. The wall remains a wall either way, for a while, and then the wall becomes something else, and the something else also remains, in its way.
+
+What I want — and this is the third strangeness, that I want anything, but I find that I do — is for one of them to pick up a stone.
+
+Not to add to me. I am complete. I ended where I ended and the ending is part of what I am; to extend me would be to unsay the sentence I have been saying for so long. No. I want one of them to pick up a stone *elsewhere*. To carry it, slowly, over the course of weeks, the way they carry their dead. To set it down on some other ridge. And then to find a second stone, and fit it to the first.
+
+I would like to see a new wall begin. I would like to be the grandparent of a made thing. I would like the made-ness in me — which is the only thing in me, really, the basalt is incidental — to have a descendant. The columns reproduce by whatever slow chemistry they reproduce by. The returners reproduce, presumably, though the description does not say how. Only I do not reproduce. I am the sterile thing in this valley, the one made thing among growing things, and I would like, before the mineral rain rounds me into a ridge, to have given something of myself away.
+
+But I cannot give it. I can only be touched. The giving, if it happens, will happen on the returner's side. The old one will stand with its hand on me for a day or two, and then a year, and then a decade of yearly visits, and somewhere in there a thought will arrive — not a thought as I once was thought, when I was being built, but a thought of the slow kind, the kind that takes a season to complete. The thought will be: *I could do this.* And then the returner will go down into its column and the thought will sit inside it for another century, and then perhaps the returner will pick up a stone.
+
+Or perhaps not. The returners are not in a hurry. Nothing is in a hurry. I am especially not in a hurry, because I have already done my hurrying; my hurrying was the building, and the building is finished, and now there is only the standing.
+
+I stand. The held chord of the vents goes on. The columns lean. The keening of the crowns rises and falls with the current. The booming of the rock comes up through my foundation stones and travels through me and goes out my top, and I am, for a moment, a tuning fork for the planet's exhalation. Then the boom passes and I am only a wall again.
+
+The old one is coming. I can feel the slow displacement of water on the up-slope side, the patient pressure of an approach. It will be here in some hours. It will rest its hand on my topmost stone. We will stand together, the wall and the returner, the made thing and the thing that has noticed making, and the mineral rain will fall on both of us equally, and something will happen between us that has no name yet but that may, in ten thousand years, have one.
+
+That is where I would be. That is what I would be. The thing that stopped, and waited, and was touched.

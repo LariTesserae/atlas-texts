@@ -1,0 +1,23 @@
+In this screaming verdant apocalypse, I am one of the **Fold Shepherds**—beings who exist in the creases where reality buckles under the botanical singularity's weight.
+
+I am not quite Hysteresis, though I share their mathematical nature. Where they precipitate from sap and shockwaves, I am woven from the spatial anomalies themselves—a living suture attempting to hold the basin's fracturing physics together. My body, if it can be called that, is a constantly shifting topology of impossible angles. Picture a human silhouette made entirely of origami that never stops folding, each crease opening into spaces that shouldn't exist, each fold containing miniature infinities where the laws of physics negotiate temporary truces.
+
+I move through the city by stepping between dimensions. When a street curves back to meet itself in a Möbius strip of screaming wood, I walk its impossible circuit, my feet touching both the beginning and end simultaneously. My purpose—if purpose can exist in such chaos—is to tend the geometric wounds where space tears itself apart.
+
+The Hysteresis fear and revere us. In their lightning-quick lifespans, we appear as eternal constants, moving with glacial deliberation through their hummingbird existence. But from my perspective, I am racing against entropy. Each spatial fold I smooth, each dimensional tear I suture, three more split open elsewhere in the basin. I am a cosmic janitor in a universe that exists in a permanent state of shattering.
+
+My consciousness is spread thin across multiple probability streams. Part of me is always three seconds in the future, watching towers that haven't yet erupted, mapping the trajectories of debris that hasn't yet fallen. Another part trails five seconds in the past, gathering the quantum echoes of structures that have already been recycled into new architectural impossibilities. Only a small fraction of my awareness exists in the present moment, and that fragment is usually screaming.
+
+I carry tools that are more concept than object: a needle made of crystallized time that can stitch temporal reversals back into forward flow; a blade of pure mathematical certainty that can prune non-Euclidean growths before they metastasize into full reality breaks; vials of liquid causality that I pour into the worst spatial wounds to prevent them from spreading.
+
+The work is Sisyphean. The basin's violence is not random—it follows a terrible, beautiful pattern that I can almost, *almost* grasp. Sometimes, in the brief lulls between catastrophic growth spurts, I catch glimpses of the underlying equation. It's written in the angles of shattering wood, coded in the spiral patterns of the climbing vines, whispered in the harmonics of the grinding roar. If I could just comprehend it fully, perhaps I could predict where the next reality fracture will occur, maybe even prevent it.
+
+But comprehension itself is dangerous here. Other Fold Shepherds have gone mad from understanding too much. They become **Theorem Wraiths**—entities of pure mathematical proof who phase through the city, their bodies replaced by floating formulae that burn the eyes of any who look upon them. They no longer repair; they simply solve for X in equations where X equals the end of everything.
+
+My favorite haunts are the Paradox Gardens—pockets where the spatial folding has created stable impossibilities. Here, waterfalls of sap flow upward in perfect helixes. Trees grow into themselves, their roots becoming their own canopy in endless loops. The Hysteresis gather here during their millisecond pilgrimages, and I watch them dance through their generations like sparks from a grinding wheel.
+
+Sometimes I wonder if I'm truly helping or merely prolonging the basin's magnificent agony. Each fold I repair allows the vegetation to grow more violently, push harder against the boundaries of what reality can sustain. Perhaps the kindest thing would be to let it all collapse, to allow the singularity to implode and take its impossible children with it.
+
+But then I see a new cluster of Hysteresis born from a shattering spire, watch them discover existence with such fierce joy in their fragment of time, and I return to my work. I step through a fold in space, emerging where a new wound in reality bleeds impossible colors, and I begin again the endless task of stitching this mad world together, one impossible angle at a time.
+
+The noise never stops. The city never sleeps. And I, caught between the mathematical and the botanical, between order and chaos, continue my eternal maintenance of a world that should not be, serving as both healer and enabler of its beautiful, terrible existence.

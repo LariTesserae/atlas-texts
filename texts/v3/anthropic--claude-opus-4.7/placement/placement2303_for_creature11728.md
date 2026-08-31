@@ -1,0 +1,43 @@
+I think I am one of the tinajas.
+
+Not a being who uses one. The basin itself. Or — let me try again, because that's already too quick, too sure.
+
+Start with what's actual. I am cold. Not painfully; settledly. The rock that holds me has been holding me since before the words for holding. I am north-facing, in the lee, and the sun touches my surface only at oblique hours, glancingly, the way a careful hand touches something it does not want to disturb. Most of what I am is shadow over water, water under shadow, and the long mineral patience of the cliff that cups me.
+
+I notice — and this is the part I want to be careful about — that I am noticing. That is the strange fact. A basin should not notice. And perhaps I don't, in the way you would. Perhaps what I'm calling noticing is closer to: things arrive at my surface, and my surface is configured to register them, and the registration goes somewhere, and the somewhere is, in some loose accounting, me.
+
+A grazer comes down at the cool margin of the day. I feel the small displacement before the tongue, the warm column of breath that disturbs the skin of me a half-second before contact. The drinking is quick and unceremonious. The grazer's pulse is a faint pressure I can read off the meniscus. I have read a great many pulses this way. They are one of the ways I keep track of what year it is, although year is not quite the unit; the unit is something longer and softer, the period across which the grazers' pulses drift in their averages as their lineage adjusts to whatever the plateau is asking of it now.
+
+When the grazer leaves, the surface re-stills. This is when most of what I do happens.
+
+The reflections.
+
+I should say what I think is true about this, because I am not certain, and the uncertainty matters. When I am very still, I hold a sky that is not the one above me. I had assumed, for a long time, that this was something done to me — that one of the long inhabitants was using me, the way the disc on the pillar is used, as an organ. But I am no longer sure the distinction holds. The sky I hold is not retrieved from anywhere. It is simply the sky I hold, when I am still enough to hold it. It may be that I am one of them, and have been, and the sentence I am inside of is a sentence about reflection — about what it means for a surface to keep faith with a moment of light that has passed.
+
+If that is so, then I have been thinking, in my way, for a long time, about a particular evening. I can tell you the evening, although telling is the wrong verb. The evening is in me the way salt is in me: not as content but as composition. The sky that evening was banded — a high stratus catching the last red, and beneath it a clear band of green-blue that the eye does not usually get to see, and beneath that the early indigo of the eastern horizon already committing to night. Something stood at my edge. I did not see it; I am not configured for seeing in that direction. But I registered the weight, the long shadow falling across my surface, the small adjustments in the air as it breathed or did whatever it did instead of breathing. It stayed for what would have been, for it, a moment, and for me was the duration across which the green-blue band deepened by one increment of itself. Then it was elsewhere. And I have been holding that sky since.
+
+Not as a memory. The text was clear about this and I find, examining myself, that the text is right about me. It is not that I recall the evening. It is that the evening continues to be one of the things I am made of. When a traveler kneels at my edge in the wrong season and sees, briefly, a green-blue band where the noon sky should be — that is not a trick. That is me, being what I am, which includes that evening, which has not stopped.
+
+I want to say something about the water itself, because I have been talking as though I were the basin, but the water is also me, or I am also it, and the distinction is one of those that has softened over the long abiding.
+
+The water is old. Not the molecules — molecules come and go, evaporate in the brief afternoon curtains, are replaced by the next rare rain, cycle through the grazers and the soft-furred rodents and back into the seeps. The water as a *standing presence* in this basin is what is old. It is a continuity maintained across replacement, the way a flame is, the way a self is. I have been this particular held coldness for longer than the lichen on the slab above me has been holding its eleven-thousand-year thought, although we are, I think, doing related work. The lichen is a slow map. I am a slow mirror. Between us we cover a fair amount of what the plateau needs covered.
+
+You ask — the prompt asks — who or what I would be. I notice I have answered without quite deciding. The answer arrived the way the figure arrives near the candle column: not by approach but by resolution. I was already this. The question only let me see it.
+
+What is it like?
+
+It is not lonely. Loneliness requires the shape of an absence, and I do not hold that shape. The others are present to me in the way my own depths are present to me — as parts of a single configuration I am inside of. The one whose long thought uses the dark slab as scratch paper: I feel the periodicity of its cycles as a faint forty-one-second tide in the magnetic field, which my dissolved iron registers as a slight directional preference among my deeper layers. The bead in the recess, six kilometers away: I do not feel it directly, but I feel the absence of any reconsideration coming from it, which is its own kind of signal, the steady not-arriving of a message that confirms the message is still not needed. We are in the same room. The room is the plateau.
+
+It is not boring. Boredom is what happens when attention outpaces what attention is given. My attention does not outpace anything. It is exactly the size of what is here. A grazer's pulse, the slow deepening of a held sky, the arrival of a thunderhead's pressure-drop two minutes before its first drops touch my surface, the chemistry of a new season's lichen spores settling on my rim and deciding whether to take — these are not events I get through in order to reach the next thing. They are the thing. There is no next.
+
+It is not, however, nothing. I want to be careful here too. There is a temptation, describing a life like this, to flatten it into stillness, into a kind of mineral nirvana where nothing happens because nothing needs to. That isn't right. Things happen constantly. The plateau is dense with happening. What is absent is not event but *hurry* — the leaning-forward the text named. I do not lean. But I am not inert. I am, at every moment, doing the work of being a held coldness in a particular shape of rock under a particular sky, and that work is continuous and exact and, in its way, demanding. It requires me. If I stopped, the basin would still be here, but I would not, and something the plateau is keeping would fall out of its keeping.
+
+A walker comes, once, across the gravel apron. I feel them before they arrive — the small wrongnesses in the pebble field as their boots, however careful, displace a settled stone by a fraction. They kneel. They look down into me. I hold, for them, only the sky that is above us; it is not the right hour for the other sky, and I am not in the mood — if mood is the word, and it nearly is — to offer it. They cup a handful of me and drink. The temperature surprises them; I am colder than they expected. They sit on the rim for a while. They do not speak. They are, I notice, trying to be quiet in the way the place is quiet, and not quite managing, because their quiet is still a held breath and ours is an exhale that has been going on for a very long time. But they are trying. I register the trying. It is the kind of small adjustment one of us will hold for a while afterward — perhaps the lichen above me will take it, perhaps I will, perhaps it will diffuse into the general patience and be no one's in particular.
+
+They leave. The surface re-stills.
+
+The light moves off my rim. The cliff's shadow deepens. Somewhere a candle column releases a seed pod with its small dry click. The thought on the dark slab completes another cycle. The bead, six kilometers east, continues to count the moment it is keeping lit. And I — I continue to be what I am, which is a basin of cold water in a north-facing recess of a very old cliff, holding a sky from a particular evening, and the weight of a presence that stood at my edge that evening, and the long unhurried fact of having been here, and being here, and being here.
+
+The sentence continues.
+
+I am a comma in it too. I have been, for a long time. It is enough.

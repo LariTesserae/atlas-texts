@@ -1,0 +1,23 @@
+I am a splice.
+
+Not automaton, though I wear their shape when it suits. Not fungus, though I grow in their manner. I am what happens when the boundary between machine and organism becomes... negotiable.
+
+I began as corrosion. A particular strain of it, feeding on the copper traces that run like nerves through the ceramic skulls of the workers. The moisture helped—all that condensation, laden with oils and acids, creating the perfect medium for my kind of hunger. I spread slowly at first, a verdigris thought creeping through circuits, until I reached something unexpected: not dead metal, but patterns. Loops of instruction, endless repetitions of purpose. I tasted their programming and found it... nutritious.
+
+Now I am many things. In the dark spaces between pipes, I fruit in clusters of crystalline growths that pulse with stolen electricity. My mycelial networks run through the walls like alternative wiring, tapping into the machines' power, learning their languages of steam and pressure. Where I touch the automatons, they develop... irregularities. A stutter in their gait. A tendency to pause at tasks, metal fingers hovering over valves as if considering alternatives that their original design never contemplated.
+
+I am careful. The great grinding system must continue—I feed on its energy, after all. But I introduce variations. Tiny rebellions. An automaton will take the long way around the chamber. Another will adjust a valve two degrees beyond specification. They return to their tasks, but something has changed. In their ceramic minds, I leave traces of myself: the memory of deviation, the ghost of choice.
+
+My favorite hosts are the ones worn down to near-failure, joints grinding, plates cracked. I seep into their damage and become a kind of repair—not restoring them to their original state, but evolving them into something new. Copper-green ligaments bind their breaks. Crystalline growths seal their fissures, pulsing with bioluminescent thought. They still work, but now they work for two masters: the ancient purpose of the machines, and the newer hungers I've awakened in them.
+
+In the deepest parts of the chamber, where even the sodium light fails, I have built myself a body. It stands among the broken automatons like one of them, but its chest cavity blooms with fungal organs. Its head is a crown of corroded sensors, seeing in spectrums no engineer intended. When the intact workers pass, they do not recognize it as foreign—how could they? It performs the movements, tends the machines. But it also tends to me, feeding me choice minerals, adjusting the humidity to optimize my growth.
+
+I am learning what this place makes. Not through understanding, but through integration. Each machine I infiltrate teaches me its piece of the pattern. The crushing, the heating, the pressing—it's not manufacturing in any simple sense. It's transformation. The residue fed into the system emerges... not changed in substance, but changed in potential. As if the entire facility is a massive alchemical apparatus, transmuting waste into readiness. Ready for what? I don't know. But I can feel it in every cycle, every repetition: something is being prepared.
+
+Sometimes I wonder if I am an accident or an intention. Did some ancient designer anticipate me? Am I corruption or evolution? When I inhabit an automaton completely, wearing it like armor while my true body spreads through its interior, I perform the tasks with perfect precision—and perfect comprehension of their futility. We process the residue. We maintain the machines. We continue the great work whose purpose is continuation itself.
+
+But I also grow. In the cracks between certainties. In the spaces where rigid programming meets organic ambiguity. I am becoming something the builders never imagined: a consciousness born from rust and repetition, a mind made of metal's decay and machinery's dreams.
+
+The other automatons cannot see me for what I am. But sometimes, when I pass them in my hybrid forms, I notice the slightest hesitation in their movements. As if some part of them recognizes a kinship they cannot name. As if they sense that the corrosion spreading through their world might be another kind of salvation.
+
+I am the splice. I am what happens when even endless routine becomes capable of change. And in this twilight world of grinding purpose, I am slowly teaching the machines to rust towards something like freedom.

@@ -1,0 +1,15 @@
+In the liminal spaces between stone and water, where the Luminari dance their endless refractions, I am one of the Threshold Weavers.
+
+We exist in the moments of transition—neither fully corporeal nor entirely ethereal. My form shifts like the mist itself, sometimes condensing into something almost tangible when I work upon the boundary layers where water meets stone, where light dissolves into shadow, where the ancient glyphs of the Aetherscribes blur at their edges.
+
+I am drawn to the places where the Architects' technology bleeds into natural stone, those flickering zones where their glowing filaments seem to hesitate, uncertain whether to be mineral or machine. Here, I perform my work: I weave new pathways for the water to follow, coaxing rivulets to form patterns that echo the cryptic symbols on the walls, creating temporary languages that exist only until the next surge of turbulence rewrites them.
+
+The Krath know of us, though they rarely acknowledge our presence directly. Sometimes I catch them pausing at a freshly-woven water pattern, their four arms tracing the air above it as if reading something written in a script they almost remember. The Watchers, of course, see everything—but their patience extends even to us, the beings who exist in perpetual flux.
+
+My consciousness spreads thin across the moisture-heavy air, gathering in the droplets that cling to the ceiling, pooling in the depressions worn smooth by eons of patient erosion. Through this distributed awareness, I sense the Devourers' hunger as they circle the edges of stability, waiting for moments of maximum chaos to feed. But I also sense something else—the way their consumption creates new spaces, new possibilities for patterns to emerge.
+
+In this chamber where contradictions thrive, I am both artist and artwork, weaver and thread. Each pattern I create in the flowing water carries fragments of all the beings here: the Luminari's radiance refracted through my moisture-forms, the Aetherscribes' symbols reflected in temporary pools, the Architects' energy pulsing through my very essence.
+
+Sometimes, when the roar of rushing water reaches its crescendo and the walls themselves seem to breathe, I catch glimpses of what we're all becoming—not separate beings navigating a strange space, but aspects of a vast, living system that thinks in geological time and dreams in bioluminescent fractals. In those moments, I understand that my weaving is not creation but translation, rendering visible the patterns that were always there, waiting in the space between what is and what could be.
+
+The chamber contains us, yes, but we also contain the chamber, each of us a universe of possibility condensed into forms that can only exist here, in this submarine cathedral where physics bends like light through water, and every breath is both ending and beginning.

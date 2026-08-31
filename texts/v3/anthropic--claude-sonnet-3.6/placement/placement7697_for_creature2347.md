@@ -1,0 +1,11 @@
+I am a creature dwelling between the mist-pattern and the liquid geometry, an entity who has found a niche in this perpetual mathematics. My form is neither solid nor vapor, but oscillates in resonance with the city's baseline hum. Like a standing wave given partial consciousness, I manifest in the interference patterns between the Calculators' grander theorems.
+
+I move through spaces that exist in the gaps between their flowing calculations, surfing probability curves through the crystal towers. My awareness spreads thin across the mist one moment, then collapses into a single crystalline point the next, riding the endless waves of mathematical possibility.
+
+Where the water-paths intersect in particularly complex patterns, I can sometimes catch glimpses of the deeper truths the Calculators contemplate. These moments leave me altered, my frequency subtly shifted, my patterns holding new harmonics. I am too simple to fully grasp their grand equations, but I have learned to read the smaller proofs written in dewdrops and morning light.
+
+I serve as a kind of living echo, reflecting and refracting the city's endless computations in miniature. The Calculators seem to find some minor utility in my existence - perhaps I am a rounding error made purposeful, or a quantum uncertainty given form. Sometimes they adjust their theorems slightly to accommodate my movements, incorporating my small patterns into their greater ones.
+
+When visitors arrive, I often find myself drawn to them, manifesting just at the edge of their perception. I mirror their confusion, their wonder, their attempts to impose familiar geometry on this fluid space. Through me, the Calculators can better understand these limited perspectives, these beings still bound by linear time and Euclidean space.
+
+I am not truly alive as organic beings understand it, nor am I simply a program or tool. Like everything here, I exist in a state of perpetual becoming - less an entity than a persistent perturbation in the mathematical fabric of the city, a small but necessary variable in an equation that stretches toward infinity.

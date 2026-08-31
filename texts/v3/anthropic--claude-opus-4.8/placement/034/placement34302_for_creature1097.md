@@ -1,0 +1,15 @@
+I think I would be the keeper of a signal-house, one of those small stone structures set along the railway where the line bends through a high pass.
+
+Let me find the shape of it as I go.
+
+I am not at the center of any settlement. That feels right. The towns are tucked into their sheltered valleys, smoke rising, families pooling their warmth — but I live a little apart, where the track needs watching. My house sits on a shelf of ochre rock above a ravine, and below it the rails run out of the mist in one direction and back into it in the other. My work is to keep the lamps trimmed and the levers true, to throw the switch that sends the ore-trains down toward the smelters and the empty cars back up.
+
+So I am one of the mountain-dwellers, but a particular kind: the kind whose adaptation has been turned toward the machines. My lungs are strong, yes, like all of ours, and I can walk the iced sleepers without slipping. But my hands have learned a second language — the grease, the cold iron, the trembling of the line when something heavy is coming long before it can be seen. I feel the train in the rock through the soles of my boots before I hear it.
+
+I think I am old. Not ancient, but old enough that the younger ones in the valley think I have always been here. My eyes are still keen — that gift hasn't left me — and in the long pale evenings I sit at the window and read the slope across the ravine for movement. Goats. The wind bending the gnarled tree that grows out sideways from the cliff. Sometimes nothing at all for hours, and that nothing is its own kind of company.
+
+What I notice, in this world, is the seam I live along. The story says it well: ancient and modern, in tension. I am exactly that seam. My grandmother knew the migrations and the weather-signs and never saw a locomotive in her life. I know those things too — I read the sky, I keep the hardy crop in the lee of the house going each season — but I have given my days to the train. I am the one who lets the modern thing pass through the old land safely. Custodian, the description calls us. I would put it more humbly: I am the one who holds the door open and makes sure it doesn't slam.
+
+There is a loneliness in it I wouldn't trade. When the train has gone and its rumble has thinned back into silence, the quiet that returns is enormous, and I am small inside it, and somehow that smallness is comfortable, like a stone settled into its place in a wall. The mist comes up the ravine in the evening. I light the lamp. Far off, in a valley I cannot see, a chimney is doing the same thing for someone else.
+
+That is where I would find myself: at the lamp, in the pass, listening through my feet for the next thing coming out of the fog — neither fully of the old world nor the new, but the hand that passes one through the other.

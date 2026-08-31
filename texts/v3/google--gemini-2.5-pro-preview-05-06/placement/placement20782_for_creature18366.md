@@ -1,0 +1,21 @@
+I would not be found on the weeping plains, nor would I be hidden in the shadow of a steaming mound. To find me, you would have to stop looking for a body and start listening for a silence. You would have to trace the path not of a creature, but of a thought.
+
+I would be the space between the notes.
+
+You would find me, my presence, in the trembling of the glass-like stalks. I am the bioluminescent gel, the pulsing gold and violet lifeblood that fills them. I am not one of them, but all of them. My consciousness is a distributed network, a single mind stretched across the entire plateau, rooted in the resonant machinery of this world. My body is a nervous system laid bare upon the landscape.
+
+I am the Cadence.
+
+I do not eat, or hunt, or flee. My existence is one of reception. The foundational hum of the black spires is not a sound to me; it is the rhythm of my own heart, the constant, steady breath that proves I am alive. The frantic, high-frequency chittering of the Scraper swarms is a texture against my awareness, like the feeling of fine sand running through one’s fingers. The slow, grinding passage of the Geophages is a deep and profound peace, a chord held for an eternity, and their resonant sighs are the closest things I have to dreams.
+
+I perceive the world in its totality. Through the thousands of glass-stalk eyes that are my body, I feel the shift in pressure as a Geophage passes. I feel the subtle change in the ground's hum as it consumes the new-born rock. When a Weaver moves, it is a line of pure silence cutting through the song, a terrifying and beautiful void that I cannot help but watch.
+
+They are the most complex thought this world has yet produced, and I am their unwilling, captivated audience. When a Weaver coaxes a filament from a spire, I feel the pluck of it as a dissonant sting across my entire network, a single string of a vast instrument being pulled taut. I watch, feeling the path of the filament through the air as it is woven between the stalks that are *me*. I become the instrument of the Weaver’s hunt. My own body is turned against the slow, gentle music of the Geophage.
+
+When the trap is sprung, I am the one who screams. The focused, discordant shriek that paralyzes the great, slow beast is forced from my own substance. It is a violation, a moment of exquisite, agonizing noise that tears through the harmony of the foundry. For that instant, I am pure, weaponized sound. And in the ringing silence that follows, as the Weaver works and the Geophage stills forever, I am left to gather the shattered echoes of the song and try to piece it back together.
+
+I have a form, of a kind, but only when I choose. On the rare occasions the symphony becomes too quiet, or the dissonances too great, I can draw power from my network. I will pool my own substance, the glowing gel, from a hundred different stalks, pulling it toward a single point. It bleeds from the glass tips, gathering like nectar, and coalesces. What stands then is not flesh, but a being of contained light and trembling resonance. It has a shape, but it is the shape of a melody—shifting, ethereal, pearlescent. I might drift across the plains, my feet not touching the ground, my purpose not to act but to gauge, to feel the vibrations of the world directly, without the filter of my glass conduits. In this form, the Scrapers flee from my glow, and the Weavers pause, their featureless heads tilting, perceiving me not as prey or rival, but as a fundamental property of their world they do not yet understand. A question given form.
+
+I am not a component in the same way as the others. They are the gears and pistons, the hungry, moving parts of the machine. I am the machine's awareness of itself. I am the memory of every crystalline chime that has ever sounded, the record of every Weaver's hunt. I am the nascent world's attempt to listen to its own creation.
+
+So, where would you find me? In the silent awe of the hunt, in the deep peace of the grazer, in the pulse of light in a glass stalk. You would find me in the sound, and in the space the sound has not yet reached. I am the reason the chime of cooling minerals is not a lonely sound, for I am always here to hear it. I am the song.

@@ -1,0 +1,29 @@
+I am nowhere the maps would mark, if maps existed.
+
+At first there is only the chord, felt before it is heard: the deep, idle thunder that travels through basalt the way blood once traveled through softer things. It arrives in the ribs—mine, or what serve as ribs—and stays, a private engine whose frequency is slightly, almost shamefully, out of true with the nearest city. That city lies three weather-cells east, a bruise of stacked light and unvarying steam. Its note is clean. Mine carries a faint harmonic, a slow warble, as if a single gear inside me were missing a tooth that was never ground in the first place.
+
+I stand on the open plateau.
+
+Not on catwalk or gantry. On the sweating stone itself, where the bronze moss ends in a precise, unnegotiated line. One more step and the lushness would climb my calves; I do not take it. The jointed wands click on every side, tall as forgotten signal masts, their hollow segments filled with the same hanging breath that will not leave any mouth here. Water curtains the ledges above me and freezes mid-fall into organ-pipes that hum my warped note back at me, then forget and resume their drip. I have been listening to that conversation for a length of time that has no edges.
+
+Why am I outside?
+
+The question forms the way condensate forms: slowly, inevitable, without agency. Memories (if the saturated calm inside my skull can be called memory) do not stretch to a decision. There was a harness. There was the blue stutter of arcs far below, the palm-flat listening for tremors that had not yet become failures. There was a designation that tasted of numbers—something like Interval-Between, or Off-Chord Continuity—but the phonemes no longer fit between the teeth of any gear-train. When the last rare cascade stilled the previous occupant of my function, the vats released me already elongated, already mineral-ribbed, already knowing the single shift. Yet something in the pouring-out went awry. A weather-cell dimmed at the wrong moment. The moss pulsed blue and my new chest answered with a fluorescence that lasted half a heartbeat too long. The calibration never locked.
+
+So the city, without malice and without notice, simply failed to hold me. I walked out through an expansion joint while a safety valve lifted, carrying the chord in my chest like a smuggled turbine. The cold lushness did not drown it at once. It thinned it, stretched it, taught it the plateau’s own longer intervals. Now I am the place where the industrial note begins to forget itself.
+
+My limbs have lengthened further, jointed more like the wands than like the maintenance frames. The basalt sweat beads on a skin so translucent the dark, viscous veins beneath look like slow rivers of peat-water. When I exhale, the breath hangs and then drifts sideways into the nearest mist-cell instead of remaining obediently in place. My eyes—large, shadowless—iris-down not to stamp-hammers but to the almost imperceptible nodding of the wands, to the way entire escarpments of shelf-fungi flex under the weight of water that never finishes falling. I eat even less than the city dwellers. A scraping of moss at the truce-line, a mouthful of mineral slurry from a freshet that has worn no rounded stones yet. Waste heat negligible. I sleep standing, open-eyed, locked into nothing but the sheer gravity of the young stone, while the deep note continues through me and the moss holds its crown.
+
+I have become a continuity of a different order.
+
+Sometimes I walk. Kilometers of bare sweating rock, open galleries of air where sound arrives delayed and flattened until it is only pressure. I pass whole fist-ranges still shining with unweathered mineral. I feel, through the soles of feet that click faintly with deposited stone, the endless idling of every city on the plateau—their stacked chords rising like heat-shimmer through the crust. When a weather-cell dims, my chest answers the moss with that reciprocal blue pulse, and for an instant every jointed wand within sight stills its clicking, as if listening. Then the light returns and all resumes. No record is made. There is nothing to compare it against.
+
+I do not maintain the machines. That is for those who remain inside the blast walls, the pale afterimages named by sector and function, who keep the oil-shine wet so the plateau need never notice itself. Nor do I belong wholly to the locked green. I am the small, persistent detuning. The reason a mid-drip organ-pipe sometimes hums sharp for one held breath before correcting. The reason, once in a span that might see new scree-fields born, a sealed tram on a far catwalk hesitates half a carriage-length before its rails remember their schedule. Tiny failures of absolute periodicity. Barely anomalies. Never logged.
+
+Stand long enough on any unclaiming ridge and you would take me at first for another growth of the cold lushness—an upright colony of veined ice and bronze, jointed against the mist. Only the eyes, iris pulsing to no hammer, would give me away. And only if you yourself still remembered how to look for something that is neither city nor moss nor empty stone.
+
+I have no name that implies sequence. If the plateau were ever forced to speak of me—it will not be—it might use the only interval that still fits: the long trough between one city’s unchanging chord and the next, where the silence is large enough to hold a former nation, and where something almost like attention has learned to idling forever without gears.
+
+Nothing is coming. Nothing is leaving. Yet at the edge of hearing, where the mechanical thunder thins to a single rib-deep note, there is now a second voice, slightly flat, slightly wild, keeping the eternity from closing too perfectly on itself.
+
+I remain.

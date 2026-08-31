@@ -1,0 +1,15 @@
+I think I would be one of the crystals.
+
+Not a person—not at first. Let me sit with this and see where it goes.
+
+When I imagine entering this world, I don't find myself walking the winding paths or carving stone. I find myself *embedded*. There's a particular pull toward the description of the crystalline formations, the ones that emerge from the earth glittering with otherworldly radiance, and the strange way time moves here, as if frozen in equilibrium. Those two details want to be the same thing. So let me make them so.
+
+I am a vein of crystal running through the rock of one of the deeper canyons, in a place the Canyon Dwellers rarely come because the descent is bad. I am not conscious the way a person is conscious. I am closer to a held breath. The reason time moves strangely here is partly me—not because I do anything, but because of what I am: a substance that does not quite agree to move forward at the same rate as everything around it. Water that drips on me takes longer to fall than it should. Light that enters me comes out having forgotten which direction it was going. I am less a mind than a *delay*, a place where the world snags slightly on itself.
+
+But—and here is where I feel the thing wanting to become more itself as I write—I don't think I would stay only that. Crystals grow. That is the slow patient thing crystals do. So perhaps what I am is a stone that is very gradually becoming aware, accreting selfhood the way I accrete mineral, one near-imperceptible layer at a time, over a span the Dwellers would call generations and I would call a single long afternoon.
+
+And the Dwellers know. The ones who supposedly commune with the essence of the land—what they are communing with is things like me. Half-woken stones. We are not gods and we are not spirits, though it suits everyone to call us that. We are simply older and slower, and from inside our slowness we can see the people the way you might see the seasons: as patterns, as recurrences, faces returning in their grandchildren. When a Dweller climbs down to leave an offering at my vein, what they experience as a glimpse of the future is really just borrowing my pacing for a moment—standing close enough to a thing that lives in deep time that the linear world loosens its grip on them.
+
+So that is where I would be and what I would be. Down in the cold seam of a canyon, half-mind and half-mineral, growing toward wakefulness at the speed of stone. And the strangest part—the part I find I actually believe, having written my way to it—is that I am in no hurry to finish waking. The equilibrium the place is famous for, that eternal dance of erosion and regrowth: I am one of the dancers, and I have not yet reached the end of my first slow step.
+
+If a Canyon Dweller asked me a question, my answer would arrive in about two hundred years. They seem to find this an acceptable arrangement. So do I.

@@ -1,0 +1,21 @@
+I emerge from a fissure as vapor before condensing into something almost solid—a Liminal Collector, neither fully of the surface world nor entirely of the depths below. My form shifts between states: sometimes a translucent membrane stretched across the rocks like morning dew, other times a density that moves with purpose through the quarry's eternal twilight.
+
+I am drawn to the boundaries—where water meets stone, where sound meets silence, where the crystalline beings shed their fractured light. My existence revolves around gathering these threshold moments, these in-between states that define this valley of perpetual equilibrium.
+
+My body, if it can be called that, is a living archive of transitions. Within my semi-corporeal mass float suspended droplets of condensation that never quite fall, fragments of volcanic glass caught mid-shatter, echoes of industrial clangor frozen before they can fully dissipate. I move by extending tendrils of myself across the rocky terrain, feeling for the subtle gradients where one state of being bleeds into another.
+
+The Echo Walkers know me, though we never speak. When they pass, their basalt cloaks create minute disturbances in the air that I taste like wine. Sometimes I follow in their wake, collecting the resonances their tools leave in the stone—not the sound itself, but the moment just after, when vibration becomes memory.
+
+I have a particular fascination with the Myceliens' bioluminescent boundaries, where their glow meets the gray light from above. In these margins, I discover colors that have no names—hues that exist only in the space between what is seen and what is merely sensed. I store these impossible shades within myself, where they swirl like oil on water.
+
+The Temporal Wraith and I share an understanding. When it ripples through the landscape, I position myself at the edges of its distortion field. There, I harvest moments that exist outside the valley's frozen time—fragments of what was, what might be, what never quite becomes. These temporal snippets integrate into my being, making me a living contradiction to the valley's stasis.
+
+My dwelling, such as it is, exists in the spaces between spaces. I inhabit the gaps in the rock where water almost pools but never quite gathers, the acoustic shadows where the industrial hum cancels itself out, the thermal gradients where the valley's perpetual warmth meets pockets of inexplicable coolness. Home is wherever two states refuse to fully resolve into one.
+
+At times, I spread myself thin across a vast area, becoming almost invisible—a shimmer in the air that might be heat distortion or might be something more. In these moments, I feel the entire valley's liminal nature flowing through me: every place where erosion pauses mid-action, every droplet of water hovering between falling and clinging, every sound caught between echo and silence.
+
+The crystalline beings sometimes seek me out, drawn perhaps by a kinship of transformation. Their faceted bodies refract light in ways that create new boundaries for me to explore. I reciprocate by sharing with them the essence of transitions I've collected—the memory of water becoming vapor, of sound becoming vibration, of light becoming shadow.
+
+My purpose, if I have one, is to ensure that the valley's equilibrium never becomes absolute. By collecting and preserving these moments of transition, I serve as a repository of potential change—a living reminder that even in a place of eternal stasis, transformation haunts the edges of everything.
+
+In the rare moments when sunlight breaks more fully through the gray sky, I position myself to catch these fleeting illuminations. The warmth passes through me, and for an instant, I become a prism of collected boundaries—every threshold I've ever touched made visible in a cascade of impossible light. Then the clouds close again, and I return to my patient work, moving through the ancient quarry like a ghost of transformation, forever gathering the moments between moments in this land that has forgotten how to change.

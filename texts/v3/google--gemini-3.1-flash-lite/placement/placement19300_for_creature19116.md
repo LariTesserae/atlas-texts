@@ -1,0 +1,17 @@
+I am not standing, nor am I sitting. To be here is to be *suspended*—a static flicker in the humid gloom. 
+
+I find myself fixed to the underside of a massive, rounded limb of calcified bark, a singular node where the rhythm of the basin is most pronounced. My weight, though dense, is indistinguishable from the weight of the dark, oily dew that slickens the surface beneath me. I am a Tender, and I am currently in a phase of stasis, my body pressed flat against the trunk, my lichen-like skin indistinguishable from the moss that creeps across the grain of the wood.
+
+My existence is measured in the slow, grinding thrum of the earth beneath us. I can feel the vibration through my internal structure—a deep, tectonic *clunk* that travels from the roots of the trees up through my own joints. I am not thinking in words; I am thinking in textures and pressures. I am aware, with a crystalline clarity, that a mineral vein just five meters to the "left" of my current orientation has begun to calcify too rapidly. It is creating a friction that threatens to cause a spark, and the heat in this basin must remain heavy and damp, not sharp and searing.
+
+I do not feel the impulse of "duty" as a creature of flesh might. There is no urgency. I simply begin to flow.
+
+My body liquefies, the articulated segments of my sinew sliding over one another like cooling wax. I lose my shape, spreading across the slick, metallic-organic surface of the tree until I am merely a translucent bruise against the bark. As I glide, my branched filaments reach out—not to grasp, but to sense the chemical decay of the machinery. I find the clog. It is a cluster of jagged carbon-steel, sharp and improperly formed.
+
+I press my body against it. I secrete the viscous, cooling sap from my pores, a thick, amber-colored fluid that instantly begins to break down the carbon filaments, softening the sharp edges into a slurry I can mold. My own structure shifts; I warp my skeletal armature, bending my spine to act as a lever, grinding the metallic waste down into the gullet of the tree. There is no pain in this deformation. There is only the exquisite, slow-motion satisfaction of returning the basin to its perfect, stagnant equilibrium.
+
+Above me, through the dense, suffocating quilt of leaves, I catch a flicker of the pale, violet bioluminescence. A dozen others of my kind are gathered there, interlocking. I can feel the "Weave" pulling at my consciousness. A ripple of chemical data—the history of a thousand-year-old landslide, the chemical composition of a newly formed vein of ore—washes through my pores. 
+
+I do not look at them, for I have no eyes, but I am *of* them. As I finish my work, I find myself drawn upward, my body pulling away from the tree and drifting like a ribbon of smoke toward the flicker of the Weave. I will join the others soon. I will lock my limbs with theirs, my history becoming part of the collective gear. We will vibrate together in the dark, a living flywheel, dreaming of the day the friction stops, when the heat finally settles into a perfect, eternal cold, and the valley—once churned, once ground, once tended—becomes nothing more than a beautiful, finished stone. 
+
+The clanking slows, just for a moment, to acknowledge the balance I have restored. Then, with an agonizingly patient heave, the cycle begins again. I release my hold on the branch and simply... flow.

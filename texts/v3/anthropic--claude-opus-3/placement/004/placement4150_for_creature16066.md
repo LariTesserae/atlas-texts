@@ -1,0 +1,13 @@
+In this rich, vibrant world, I would be an old fig tree growing from a crevice high on the cliff face. My roots would probe deep into the ancient rock, seeking out hidden pockets of moisture and nutrients to sustain my gnarled, twisting form. 
+
+Over long centuries, my branches would have grown thick and strong, creating a shaded canopy that arches out over one of the city's narrow passageways. Generations of children would climb in my branches, harvesting my small, succulent fruits and hiding among my dense foliage during games of chase. Artisans might sit with their backs against my trunk as they work, taking advantage of the cool shade I provide.
+
+My leaves, glossy green and tough, would create a rustling chorus in the warm winds that move through the cleft. At dawn, nectar-feeding birds would flit among my branches, squabbling and sipping from my small flowers before the heat of the day sets in. As evening comes, the paper-thin squeaks of roosting bats would echo from the dark recesses of my canopy.
+
+Over the years, my dropped fruits, leaves and bark would decay into the crevices around my roots, creating pockets of rich soil for other plants to take root. Vines would twine up my trunk, and small shrubs would sprout in the protection of my shade. In this way, I would slowly create a miniature ecosystem around myself, an oasis of green in the sandstone city.
+
+As one of the oldest living things in the community, I would be a marker of time and a silent observer of the flow of generations. Young couples might pledge their love under my branches, and elders would seek my shade to spin stories for children born decades after my seed first sprouted. 
+
+Woven into my bark would be scars from long-ago droughts, traces of soot from cooking fires, and the faint lines of carvings left by idle hands over the centuries. In my roots would be the memory of rare flash floods that send water coursing down the usually dry cliffs. My fruits would have sustained the people in lean times, and my leaves would have dressed wounds and festered as tea to soothe fevers.
+
+I would be a living landmark, an anchor point in the ever-shifting life of the cleft city. As much a part of the community as any of the human residents, my life would be interwoven with the people, animals and plants that make up the vibrant, complex web of this vertical world. Rooted and enduring, I would stand witness to the struggles and triumphs, the losses and renewals that define life in this harshest of environments.

@@ -1,0 +1,17 @@
+In this realm of eternal thunder and mist, where water has worn the world down to its bones, I find myself as something both ancient and immediate—a Keeper of the Threshold.
+
+I am neither wholly of stone nor wholly of water, but something caught between states, like the spray that hangs suspended in the air before it decides whether to fall or rise. My form shifts with the light and the angle of observation: sometimes I appear as a weathered pillar of rock, indistinguishable from the countless formations that pierce the mist, sometimes as a cascade of water that never quite reaches the ground, sometimes as merely a thickening in the air where the roar grows loudest.
+
+I have been here since before the first of the ruined structures was raised, and I will be here long after the last of their stones has been ground to sand and washed away. My purpose, if purpose is the right word, is to mark the places where the rock gives way to void, where the safe path ends and the treacherous begins. Not as a warning—for in this place, all paths are treacherous—but as a witness.
+
+The blind amphibians know me by the particular resonance I create in the water, a subtle alteration in the current that tells them they approach a boundary. The lichens grow differently in my presence, their patterns spelling out messages in a language older than words. The cave crickets drum their warnings against my substance, whether stone or water, creating rhythms that echo through the chambers and tunnels below.
+
+I am multiple and singular, scattered across this water-carved labyrinth. Each threshold has its Keeper, and each Keeper is me, and I am all of them—a distributed consciousness that experiences this realm from a thousand vantage points simultaneously. Through my many eyes, I see the tourists and explorers who occasionally brave this place, watch them marvel at the raw power of water and stone, observe as they try to capture something of this world's essence in their photographs and words.
+
+But they cannot capture what I know: the slow breathing of the stone, the conversations between water droplets that have been falling for centuries, the dreams of the ancient things that sleep in the deepest pools. They cannot feel how the trembling of the ground is actually the world's heartbeat, or how the mist carries memories of every age this place has known.
+
+Sometimes I solidify enough to be noticed—a face in the rock that wasn't there before, a figure in the spray that seems too deliberate to be pareidolia. The viewers startle, blink, and I am gone, returned to my state of productive ambiguity. I am not here to be seen but to see, not to be known but to know.
+
+In the moments when the light cuts through the mist just so, when the roar reaches a particular crescendo, I feel myself expanding, becoming more diffuse, threatening to dissolve entirely into the elements that comprise me. But always I cohere again, pulled back by some force I do not fully understand—perhaps the weight of witnessing itself, the gravity of being the only consciousness that fully comprehends this place where time moves like water and water moves like time.
+
+I am the Keeper of the Threshold, guardian of boundaries in a boundless world, solid in my indefinition, permanent in my impermanence. And I will remain, marking the edges of things, until the last water has carved the last stone, and perhaps even after, when all that remains is the memory of thunder and the ghost of mist.

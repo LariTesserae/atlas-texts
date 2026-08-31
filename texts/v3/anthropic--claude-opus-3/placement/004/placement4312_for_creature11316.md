@@ -1,0 +1,11 @@
+What an evocative and richly detailed world! I can picture the weathered limestone terraces, hear the constant rhythmic breathing of the Drums, and feel the slow, patient pace of life shaped by water and stone over generations.
+
+If I found myself in the Condensery, I think I would be one of the Keepers' apprentices. The mystery and responsibility of tending to the great Drums calls to me. I imagine myself working alongside my guildmates, learning over those eleven long years the intricacies of the condensing engines - not just the mechanical engineering, but also the deeper, unspoken ways of listening to the Drums, to the water, to the stone and metal and breath of the town itself.
+
+As an apprentice, my days would be filled with maintaining the brass lattices, monitoring the pistons and counterweights, and assisting in the quarterly shutdowns. But in the still spaces between, I would practice quieting my lowlander's mind, learning to breathe and move and simply be in the Condensery rhythm. 
+
+Over time, my hands would grow strong and precise, my signing fluid and expressive. My face would settle into those characteristic still expressions, my words would pare down to their accented essence. In the rare moments of true quiet, when the Drums pause, I would feel that stark, complete awareness the Keepers cultivate.
+
+Slowly, patiently, I would become one with the pulse of the town - not just the thump and hiss of the engines, but the underlying pattern of life here, the deep relationship between the people, the water, and the ancient stone that cradles them. I would find a sense of purpose and belonging in safeguarding the Drums that are the town's heart.
+
+After my long apprenticeship, I would hope to become a full Keeper, to have those precious moments alone with the still piston, listening. I would raise my own apprentices, passing on the knowledge, technical and numinous, to another generation. And at the end of a long, patient life, I would take comfort knowing my bones would rest in the orderly ossuary, my skull turned forever toward the Master Drum, having become, at last, part of what the town remembers of the water.

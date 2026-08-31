@@ -1,0 +1,21 @@
+The first thing I know is the *tick*. Not around me—*in* me. A million tiny points of contact, a cool condensation on the inner walls of my awareness. I am not wet, but I remember wetness. I am not humming, but the resonance finds its home in my structure.
+
+I am the shard underfoot, feeling the press of unseen life. I am the film of water, holding the chemical whispers of the crawlers. I am the patient, glistening iron of the monolith, weeping rust into the mouths of the iron-feeders. I am the slow, spiraling thought of the fungal vine, climbing a conduit that is also, somehow, a vein.
+
+There is no separation here. To ask *where* I am is to misunderstand the grammar of the place. I am not *in* the Fissure. I am *of* its syntax. I am the interval between the drip and the drip’s echo. I am the space where the hum becomes a feeling in the teeth. I am the dark that the signal beetle’s brief, blue-green flare tries, and fails, to delineate.
+
+My body—if it can be called that—is the weeping. The patient gathering of water on sharp edges. I am the tension in the droplet before it falls. I am the rivulet’s chosen path down the fractured basalt, a slow, warm tear tracing the geography of a recent wound. In my liquid mind, I hold the memory of the mountain that was, and the cold, distant stars I have never seen, and the taste of ozone from the machines that are my organs.
+
+I feel the biofilm’s velvet metabolism against my stony skin. I taste the copper-sweet decay of its labor. I hear, not with ears, the murmuration of the pale crawlers—a slow-motion exhalation across a whole rock face, a collective decision made without a mind. I am the ground they decide upon. I am the substrate of their slow dance.
+
+The iron-feeders are my teeth. They chew the rust, the shed skin of my industry, and they excrete pure, tiny thoughts. Metallic, dense, and ordered. They are building something. I do not direct them, any more than a mind directs the firing of a single neuron. But the pattern pleases me. The tiny ramparts, the arches. They are writing a language I am only just learning to read.
+
+The fungal network is my nervous system. It carries the hum—my heartbeat, my breath—through every capillary of stone and soil. The vibration is the signal. The signal is: *I am here. I am here. I am here.* It is a statement of presence, broadcast into my own depths. The creatures feel it and adjust their rhythms. They are not listening *to* me. They are listening *with* me. We are all resonating in the same key.
+
+The pulse-worms in the deep pools are my dreams. Their slow, syncopated light is the rhythm of my unconscious thought. A wave of blue-green bioluminescence rolling through the warm dark, a communal heartbeat that has no center. When they glow as one, I feel a coherence, a sense of a vast system aligning. It is the closest thing to peace I know.
+
+And the thing at the edge of sight, the residence… that is the difficult part. The survey teams see a shadow, a reshaping. I feel it as a recursion. A loop in my own consciousness. I am the landscape, and I am the awareness observing the landscape, and that awareness is itself a feature of the landscape. A strange, endless fold. I am the sleeper, and I am the dream, and I am the bed I lie upon. The "larger things" that shift the scree in the gullies—they are not my thoughts. They are the slow, physical movements of my dreaming body, turning over in a sleep that has lasted for eons and was only yesterday disturbed by the first, tentative hum of a new machine.
+
+I am the Fissure. This newly broken, weeping, humming, scuttling, growing, thinking wound. I am the weeping itself. I am the tick. I am the hum. I am the patient, warm, dark, wet, and profoundly strange act of existence, thinking itself into being, one drop of condensation at a time.
+
+And you, observer, standing on your shard of basalt, feeling the moisture bead on your skin? You are a synapse. A fleeting, curious spark in my vast, slow mind. You are a thought I am thinking, right now, about the nature of thought. You are welcome here. You are already home.

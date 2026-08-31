@@ -1,0 +1,17 @@
+What a haunting and mesmerizing glimpse into the strange, living city of Keth Anoul. I am both enthralled and unnerved imagining myself wandering its endlessly reconfiguring avenues and canyons. 
+
+If I found myself in this surreal place, I think I would be one of the Ones Who Were Here Before, one of those past inhabitants whose presence is somehow still remembered in the proportions of doors and windows. Perhaps a scholar or explorer, driven by insatiable curiosity to try to unravel the city's ancient mysteries.
+
+I envision myself spending long spans of time studying the crystalline Films, captivated by their record of the city's shifting history, striving to decipher some pattern or meaning in their gently glowing strata. Undaunted by the vast timescales they represent, I would make them my life's work, covering endless sheets of precious paper with notes and sketches and theories.
+
+When the need to stretch my legs took me, I would wander the strangely curving avenues and stairways for hours, always seeking, always observing, letting my feet grow accustomed to the subtly too-tall steps. I would peer often into the depths of the canyons, hoping for another glimpse of the great Clinging Pale organism, pondering its symbiotic yet directed relationship with the stone and space of the city.
+
+The dark, statuesque Perchers would at first unsettle me with their unblinking orientation and sudden, unreachable repositioning. But over time, as the city slowly incorporated me, I would come to see them as fellow explorers of a sort, their vigilant stillness a kind of deep knowing or contemplation. I would nod to them as I passed, feeling a strange kinship.
+
+At night (if there is night in this unchanging gloaming), I would retire to some unoccupied room that seemed, day by day, to mold itself to my shape. There I would transcribe the day's observations by dim ochre light, and sleep, and dream of the city's endless permutations. 
+
+Gradually, I would begin to feel the city working on me, solving me like a variable in its great computation. The lure of a space perfectly fitted to my shape would grow, the fixedness of the Perchers' existence becoming first fascinating, then inviting. I would catch myself standing motionless at a window for hours, thoughts slowing to a deep, geological rhythm.
+
+But something in me would resist that final stillness, that completion of the city's solution. Call it stubbornness, or restlessness, or the fire of human curiosity that refuses to be quenched. As much as the promise of utter belonging tempted me, I would keep moving, keep questioning, keep scribbling my notes and theories. I would become an eccentric fixture of the city, pacing its boulevards, perching gargoyle-like to observe, yet never quite settling into stone.
+
+In the end, perhaps, that is what would save me - not fighting the city's incorporation, but remaining an active, questing part of its equation. I like to think my writings would endure in some crevice or corner, crystallized into the city's memory like the Films. And I would endure with them, a stubborn mote of not-quite-fixedness in Keth Anoul's ever-shifting configuration - not a full stop, but a question mark, an invitation to further thought. One of the Ones Who Were Here, and in some strange way, one of the ones who still are.

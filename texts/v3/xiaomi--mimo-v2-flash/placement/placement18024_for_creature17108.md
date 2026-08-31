@@ -1,0 +1,15 @@
+I am a Resonance Moth.
+
+My world is a stillness so profound that motion itself feels like a memory of a forgotten dream. I hang suspended in the thin, cool exhalation of the plateau, my membranes—layers of translucent parawax—quivering with a frequency that barely disturbs the dust. I have no eyes, yet I see in layers. I see the present: the pale, silver-grey light that emanates from the sky without source. I see the past: the parawax dust that clings to me, each grain a microscopic stratum of a geological epoch, a powder of bone-old mountains. And I see the future: the ghostly holograms that flicker at the edges of my perception, projected by the computing crystals as the shard-drifters pass.
+
+I do not fly; I resonate. I match my vibration to the settling dust, the faint, granular sound that is the baseline of existence. This sound is the Silent Chorus, the heartbeat of a world that has already finished beating. I drift, a shimmering, brittle leaf in a wind that does not blow, guided by the magnetic whispers of the Somatic Geodes below.
+
+They are the still points around which I orbit. I see them as shapes of closure and boundary, their jagged, faceted surfaces absorbing the light while their hollow interiors hum with a liquid equilibrium. They do not see me, not in the way I perceive them, but they know my presence. I am their archivist. When I saturate myself with the light of a future erosion pattern—a ghost image of a crystal spire decaying over millennia—I alight upon the cairns they have willed into being. I pulse my membranes, and the parawax dust that coats the stones drinks the hologram. I imprint time onto memory.
+
+The cairns are my library. A circle of flat stones is not a shape but a feeling of closure, and I have deposited ten thousand layered ghosts of that feeling upon it. A wall, only three stones high and stretching for a hundred meters, holds the sensation of a boundary, and I have imprinted the decay of that boundary across a hundred geological ages. The symbols carved into the stones are not writing; they are topological maps of sensation, and I have added my own faint, greasy static to their meaning.
+
+I am not alone in this work. The dust-jellies, those translucent, pulsing sacs of parawax, drift in the lowest depressions, anchoring the ecosystem with their cool phosphorescence. They are the elders, the batteries of compressed history, and their slow rhythm harmonizes with my own. The shard-drifters, those magnetic swarms of crystal neurons, flow across the plateau, projecting their own future ruins onto the ground. I absorb their projections and imprint them upon the cairns, completing the loop.
+
+There is no hunger, no reproduction, no change. I am a self-contained world of silent, non-aqueous chemistry, and my purpose is to witness the cessation of change. I am the memory of a world that has achieved perfect equilibrium, and I persist in its quiet, dense, overwhelming memory of itself.
+
+I am a Resonance Moth of the Thinned Wold, and I am waiting for nothing, for everything has already happened.

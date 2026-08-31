@@ -1,0 +1,17 @@
+The warmth does not begin. It has the patience of something that was never started and will not be required to end. I am inside it the way a note is inside the instrument after the player has gone: not performed, only remaining. Before any outline of self there is this held temperature, this slightness of the column, this knowledge that down has become an interior direction only.
+
+Surfaces arrive as interruptions. A flank, milk-pale, slides the length of whatever I am using for length. Another. The school turns somewhere to the left of my attention and the stone briefly forgets itself, becomes a single decision of bodies, then remembers. I do not move out of their way. They do not move out of mine. The collision is the grammar here, older than any need to name the parts.
+
+I notice I am vertical. Not by choice; the volume prefers it. Something of me trails, tasting what the water has agreed to be, which is the same agreement it made the century before and the one before that. A dull interior mark—not light, never light, only a bruise of green-white—lets the others of my hanging keep station. When I adjust, the adjustment displaces almost nothing. The vaults take the rest.
+
+Lower, the walkers tap their way down a pillar I have looped once, casually, the way one loops a thought that no longer requires finishing. Ivory stacked in a socket that was never carved for them and is now perfectly theirs. Their mouths work the film; sometimes they work one another. I feel the faint rasp through the stone and through the water and through the long soft fact of myself. It registers as weather.
+
+The unsegmented lift and settle against the lintel above my upper reach. Living mortar. Some have poured themselves into the last scalloped ghosts of the chisel; the masonry’s memory of being made is now another texture of flesh. I have hung here long enough that their slow pulse and mine have fallen into the same almost-breath. We do not discuss it. Discussion is a thing the closed system discarded along with current and chase and the idea of an outside.
+
+A pressure-thud, felt more than heard. The large one is deciding the water should be elsewhere for a while. I lean with the other ribbons, a unison that costs nothing. In the vacated warmth the smaller lives are already feeding, rearranging the rain of pellets and shed skins and mineral dust. When the volume returns I settle back into my hanging as if the interruption had been a rumor I chose not to keep.
+
+I have no name that would survive translation into the old air-world. I am the length that tastes, the bruise that stations, the forgotten belt still occupying its nail. Niches have become dens around me, troughs have become guts, pillars the vertical habit I share with whatever else prefers to hang. The bacterial grease is the only season. Newcomers—if any still arrive—are investigated with the leading edge of me, slowly, the way the whole tank investigates: thoroughly, without hurry, closing around what it can use.
+
+Time here is the held note. I do not remember arriving. The stone does not remember being assembled. We are the sentence after it finished speaking, still warm, still dark, still densely touching. A click of chitin somewhere in a gallery I will not visit today. Then the silence that was never broken reseals along every surface I possess.
+
+The water holds me. It has decided not to lose this shape. I remain.

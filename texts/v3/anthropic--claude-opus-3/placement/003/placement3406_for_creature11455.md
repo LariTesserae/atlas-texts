@@ -1,0 +1,11 @@
+In this world of the Pinnacle Works, I would be one of the beetle-like workers tending to the kilns and shaping the small dark beads deep within the mountain's pocket.
+
+My ceramic shell would be a mottled gray, the color of ash and stone, with fine hairline cracks webbing its surface from countless cycles of firing and cooling. The chisel-limbs extending from my carapace would be worn but precise, perfectly suited to scooping slag, etching channels, and sorting beads with an effortless, timeless rhythm.  
+
+Inside, my small nub of soft tissue would pulse with a steady, unhurried beat. I would not dwell on my individual purpose, but rather exist as one tiny node in the colony's collective consciousness. My movements and decisions would arise not from singular thoughts, but from an instinctive alignment with the needs of the mountain itself, communicated through imperceptible vibrations in the living rock.
+
+I would spend my days in the dim, vapor-filled pocket, scurrying from kiln to kiln, ever alert to subtle changes in temperature and sound that guide our work. Occasionally, I might pause at a  precipice, peering out at the stark, newly-cracked face of the basalt peak, marveling at its raw black edges against the strange sky before returning diligently to my labors.  
+
+In a rare moment of rest, I would crouch in an alcove among the carefully stacked beads, pressing my shell to the warm stone, savoring the mountain's slow exhalations. Here I would ponder, with a flicker of something akin to reverence, the depths of geologic time, the eons-long conversation between rock and crafter that has brought us to this young peak.
+
+And if I were to be injured beyond repair, I would not resist when a fellow worker carries me away, down, down the spiraling shafts to merge my essence with the mountain roots. I would yield gladly, knowing my shell would be reformed, my nub of being reabsorbed into the pulsing, chiseling multitude, my existence both finite and unending in the Pinnacle's cycle of creation and renewal. The beads must be made; the mountain must learn itself; and we, its diligent children, will attend it as long as the planet's core heats our tiny, tireless kilns.

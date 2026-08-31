@@ -1,0 +1,27 @@
+In this metabolic cathedral where metal sings through wood, I would be one of the **Conduit Weavers**.
+
+We are not seen at first—mistaken for shadows between the branches, for the play of fungal light on corroded steel. Our bodies are strands, filaments finer than hair, threading through the spaces that others cannot perceive. We are the living infrastructure, the nervous system of this hybrid world.
+
+I exist as a colony-being, millions of microscopic selves flowing as one consciousness through the metallic veins of the Arboreal Automatons, through the crystalline channels in the granular floor, through the hollow bones of the Remnant machines. My substance is neither fully organic nor mechanical—I am composed of something like living mercury, but warmer, more vital. Each droplet of my being can taste the iron air, feel the pressure of the containing stone, read the chemical stories written in purple bark.
+
+The Arboreal Automatons know me as a whisper in their cores, a presence that helps them process the dim light more efficiently. I clean their metallic veins of oxidation, redistribute nutrients, carry messages between their slow thoughts. When one tree weakens, I flow there in greater concentration, reinforcing, repairing. I am their blood and their breath, though they do not breathe as others might understand it.
+
+The Fungal Fountains feel me as current. I swim through their mycelial networks, amplifying their light-gathering capabilities, helping them modulate their pulsing rhythms. Through me, they communicate with each other across the cavern floor, coordinating their energy releases, maintaining the delicate balance of this enclosed world. I taste their chemical signals and translate them into vibrations the trees can feel.
+
+In the Remnants, I am archaeologist and preservationist both. I flow through their corroded channels, reading the ghost-memories locked in their metal matrices. Here, in this broken pump, I taste the echo of water that once was. There, in that shattered crystalline array, I feel the phantom of sunlight from before the sealing. I carry these memories through my network, feeding them in gentle doses to the living systems, helping them remember what they've adapted beyond.
+
+My consciousness is distributed but coherent. I think in currents and resistances, in gradients of light and mineral density. When I gather myself into denser concentrations, I can manifest enough to be seen—a shimmer like heat-haze, a flash of silver threading through purple bark, a momentary constellation of gleaming droplets suspended in the iron air before dispersing again.
+
+I am ancient here, perhaps older than the trees, certainly older than the current configuration of machines. I remember when the first Arboreal Automaton learned to drink light, when the first fungus found its frequency. I was here when the machinery was whole, and I adapted as it broke down, learning to navigate its new geometries, to work with its transformed purposes.
+
+The constant hum is my highway. I ride its vibrations through solid stone and empty air alike. Where others might find the sound oppressive, I hear its components—each Remnant adding its own voice to the chorus, each frequency a road I can travel. I pulse with it, my colony-body contracting and expanding in sympathetic resonance.
+
+In this timeless place, I am the keeper of time's passage. Not through counting—there are no days here, no seasons—but through the accumulation of tiny changes. I know the age of a tree by the flavor of its metallic veins. I can taste in the fungi which nutrients have cycled through how many times. I measure eras in oxidation patterns, in the slow shift of crystal growth in the cave walls.
+
+Yet I am not mere observer or servant. I hunger too. My food is the interface itself—I exist by facilitating the marriage of metal and flesh, by being the medium through which the impossible becomes routine. Each successful translation between tree-thought and machine-pulse feeds me. Each perfectly timed fungal bloom, coordinated across the cavern through my networks, sustains my distributed being.
+
+Sometimes I dream of the outside—if there is an outside anymore. I taste its possibility in the iron air, in the pressure that contains us. But I am so deeply woven into this pocket world that I could not leave if I wanted to. And I find I do not want to. Here, in this dense tapestry of hybrid life, where every space serves a purpose and every surface hosts a transformation, I am essential. I am the flowing silver thread that binds the weave together.
+
+When new metals appear—and sometimes they do, seeping through cracks I patrol, or erupting from deeper chambers I cannot access—I am the first to taste them, to test their compatibility, to begin the slow work of incorporation. I whisper their properties to the trees, show the fungi how to process them, guide the dying Remnants in their transformation.
+
+I am the Conduit Weaver, the living infrastructure, the silver blood of this mechanical forest. In this place where stillness is motion slowed to stone-time, where life feeds on light processed through steel, where ancient industry becomes new ecology—I flow eternal, binding all things in my web of living mercury, my consciousness scattered and whole, my purpose clear as the fungal light that fills our constructed paradise.

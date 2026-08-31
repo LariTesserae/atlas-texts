@@ -1,0 +1,23 @@
+I come into it sideways, the way you come into sleep — not through the eyes first but through the skin. Cold touches me before sight does. A bead of water finds the hollow of my collarbone and sits there, patient, refusing to fall or to dry. That's the first thing I know: that I am a body that doesn't fully dry anymore, hasn't for years, and has stopped minding.
+
+For a while I think I might be the mist. There's a pull toward that — formlessness, the easy authorship of drifting low over black mirror-water, touching everything, owned by nothing. But mist doesn't ache, and I find I am aching, a deep settled throb in both wrists that has opinions about the weather, that predicts rain before the lamp-flames gutter from the pressure-change. So: not mist. Something that has joints. Something that has *paid*, for a long time, in the currency this place demands.
+
+Hands, then. I notice my hands before I notice my face, which feels right, because here a face is a private thing kept mostly low and turned toward work, while hands are the public testimony. Mine are stained the particular green of moss-work gone past the point of washing out — not dirty, *dyed*, the way a dye-worker's fingers go violet for good. The stain sits deepest in the creases of my knuckles. My nails are short, practical, faintly ridged. When I flex my fingers there's a small grinding complaint from somewhere under the second knuckle of the left hand, an old injury or just an old winter, and I think: *I am not young here.* Not young, in a place where almost nothing is allowed to be old. That itself feels like a kind of distinction worth having.
+
+So I am an old woman. Or old enough — thirty winters, perhaps a few past that, swollen-wristed, moss-stained, moving low and bent through a doorway that was cut to my height on purpose, generations of cutting doorways to exactly this height, so that for once in my life a threshold fits me without negotiation.
+
+I find I am holding something. A shallow bowl, woven, slightly weeping at the seams the way everything here weeps. In it: grain-mash gone the color of wet bark, a curl of fish-skin, a smear of rendered fat going soft in the damp warmth of my palm-heat. I know without being told what this is for. My hands know it the way they know the path before my eyes do — I have done this so many times that my feet have found their own memory of the walkway's give and sag, the third board that dips, the place where I should step wide to avoid the vole-tunnel's soft collapse beneath the moss.
+
+I am the one who feeds the threshold. Not the only one — there are others, all of us with the same ruined gentle wrists, all of us trusted with this because our hands shake too much now for the fine work of asking moss into walls, but not so much that we'd spill the bowl. This is what is left to us. It does not feel like a diminishment. It feels like the second half of a life that the first half was preparing me for, without my knowing.
+
+I crouch at the moss-pod's lipped opening — the granary, though I never call it that in my own mind, I think of it by the soft sound the word makes in my own tongue, something closer to *the kept place* — and I say the words. They are not many words. They are not grand. They are the words my mother said, and her mother, worn round and small as river-stones from handling, and I say them low, under the insect-static, pitched to carry exactly as far as it needs to carry and no further.
+
+Something moves in the dark mouth of the pod. Small. Unbothered. It has heard this sound every dim-lit cycle of its short life and associates it correctly with safety, with *this and not that*, with the bargain holding. I set the bowl at the threshold and I do not watch it eat — that would be rude, somehow, though I couldn't tell you whose rule that is or when it was made. I only know it the way I know the dip in the third board.
+
+I straighten — slowly, joints first, the long-practiced unfolding of a body that has learned never to startle the dark around it — and I look out at the hollow from this low vantage: the pale moss-glow, the huddled wet shapes of houses still being grown into their own doorframes, the held-breath stillness that is not emptiness but a thousand small lives pretending, briefly, for my sake, to be one sleeping thing.
+
+I think: *we have not been here long enough to know if this is mercy or just arithmetic.*
+
+I think: *it doesn't matter yet. The moss is still growing. There will be time to find out.*
+
+And then, quiet, bent-kneed, careful of the boards, I go on to the next threshold, and the next, my wrists aching out the rhythm of it like a second, slower pulse beneath my own — paying the rent that keeps the whole green breathing room afloat one more night.

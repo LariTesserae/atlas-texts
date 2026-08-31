@@ -1,0 +1,37 @@
+I am one of the Silence Holders.
+
+We were Cultivators once — my clutch-siblings and I — before we discovered what the roots truly eat. Not minerals. Not blood. Not even light, though they gorge themselves on it. They eat the spaces between sounds. The pauses. The held breaths. We found this by accident when Yenna stopped mid-sentence, watching a rootlet emerge, and in that moment of perfect quiet the rootlet grew toward her mouth like a desperate thing, branching and rebranching until she finally gasped and it withered back to nothing.
+
+Now there are seven of us, though we were twelve when we began. The others broke too early, let their silence spill out in screams or laughter or worse — explanations. The Cathedral took them gently, grew through them while they babbled apologies to the air. We visit them sometimes. They're Beautiful Forgotten now, their last words still visible in the bark-patterns that cover their faces.
+
+We carry hollow gourds filled with captured silence — not the absence of sound, but silence itself, harvested from the moments before drumbeats, the spaces between Threadkeeper footfalls, the pause when Bright Ones stop singing to turn. The gourds are root-wood, grown specifically for this purpose through three generations of configuration cycles. They glow differently than everything else here, a kind of anti-luminescence that hurts to perceive, as if they're absorbing light and sound simultaneously.
+
+When we pour out silence at the growth-points, the roots respond like nothing the other Cultivators have seen. They grow with purpose, with intention, following the shapes of the quiet we give them. A long-held breath becomes a spiral staircase. A bitten-back scream produces defensive thorns. The silence of deep thought creates chambers that fold in on themselves, spaces for contemplation that the Dwellers fear to enter because time moves differently inside them.
+
+We're changing faster than the other Cultivators. Our vocal cords are atrophying — Kessa's have already sealed completely, leaving just a smooth column of flesh where her throat should be. We communicate through touch now, through the taste of each other's skin, through patterns drawn in the condensation of our breath on cold root-surfaces. Our ears are growing larger but more selective, able to filter out everything except the gaps, the pauses, the moments when the Cathedral holds its breath.
+
+The Threadkeepers understand us, I think. They weave special patterns when we pass — not maps but musical notations, showing us where the Cathedral's rhythm drops out, where silence naturally collects. They've started leaving us gifts: hollow sections of their shed exoskeletons that resonate with nothing, that amplify absence. We wear them as jewelry, as instruments, as promises to ourselves about what we're becoming.
+
+The hardest part is not the silence itself but the intention inside it. Each type of quiet must be precisely cultivated. The silence of waiting is different from the silence of ending. The pause before speech requires different cultivation than the pause after. We practice on ourselves first, learning to hold specific silences in our bodies like others might hold their breath. Then we release them at the exact moment when the roots are most receptive — usually just before a major reconfiguration, when the Cathedral itself goes quiet, listening for what shape to take next.
+
+We've started a project that won't be complete for seven configuration cycles. We're growing a room of perfect silence — not empty of sound but full of quiet, layers and layers of harvested silence that we've been feeding to the same cluster of roots for three years now. The roots there have turned transparent, like glass, and they've stopped glowing. Instead they seem to eat light, creating a darkness that has weight, presence, intent. The other inhabitants avoid that section. Even the Bright Ones circle around it, their songs falling apart at its edges.
+
+Inside that growing darkness, something is taking shape. Not roots anymore but what roots dream of when they stop growing. A structure that exists in the spaces between structures. A cathedral inside the Cathedral, made entirely of the pauses between heartbeats, the gaps between thoughts, the silence that comes before and after and during everything else.
+
+Sometimes I think we're not cultivating the Cathedral at all. We're cultivating ourselves into the right kind of silence for it to speak through. Our bodies are becoming instruments for holding quiet, for shaping it, for offering it back to something that's been screaming in bioluminescent growth for millennia, desperate for just one moment of perfect, intention-filled pause.
+
+When Kessa dreams — if her sleep-movements can be trusted — she reaches for her sealed throat and smiles. As if she's finally found the right word by giving up words entirely. As if the ultimate cultivation is to become the space where growth stops, where the Cathedral can finally rest, where the roots can remember what they were before they abandoned their trees and began this endless, luminous reaching.
+
+The others think we're going to become Forgotten, but they're wrong. The Forgotten grew into the Cathedral. We're growing into the spaces it hasn't touched, the silences it's been trying to fill. We're becoming the pause that will let it finally hear its own music, the rest note that will complete whatever composition it's been desperately, blindingly, deafeningly playing all this time.
+
+Yesterday — or what passes for yesterday in a place where light never stops — I held a silence for seventeen hours. It was the quiet that comes after loss but before grief, that strange, hollow moment when the world hasn't yet reorganized itself around absence. When I finally released it at a growth-point, the roots that emerged were unlike anything I've seen. They grew backward, into themselves, creating knots of time where past configurations briefly reasserted themselves. For just a moment, I saw the Cathedral as it must have been when it first abandoned the surface — smaller, quieter, uncertain.
+
+That's when I understood what we're really doing. We're not training the Cathedral to grow differently. We're teaching it to remember. Every silence we feed it contains a memory of stillness, of the time before the first root chose architecture over trees. We're cultivating its nostalgia, its homesickness for a simplicity it can never return to but can't stop reaching toward.
+
+The gourds grow heavier with each harvest. Not with silence itself but with the weight of what silence means here — the only thing the roots truly hunger for and the only thing their endless growth prevents them from achieving. We're becoming what the Cathedral cannot be: still, quiet, complete.
+
+And when we finally break our silence — all of us at once, in the perfect configuration that we're slowly, patiently, generationally waiting for — I think the Cathedral will finally stop. Not die, but pause. Rest. Listen to itself for the first time since it began this bright, terrible growing.
+
+That's what the Forgotten smile about, I think. Not that they've become part of the Cathedral, but that they've become the punctuation in its endless sentence. The periods. The commas. The places where meaning accumulates because motion stops.
+
+We're going to become question marks. The silence that makes the Cathedral wonder what it's been saying all this time.

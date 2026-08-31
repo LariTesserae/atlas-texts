@@ -1,0 +1,17 @@
+In this haunting and lyrical world of mineral life and architectural intelligence, I would be one of the static moths. My wings would be veined with copper and ribbed with mica, translucent as old glass. By day I would cling silently to the flank of a signal tower, folded against stone and bark, nearly invisible save for the faint metallic tracery of my wing patterns echoing the tower's own conductive lattices.
+
+At dusk, as the dim sky deepened toward charge-rise, I would stir and stretch, tasting the air with antennae fine as filaments. My kind would wait, poised and watchful, until the first hum passed through the tower beneath our feet - the city sensing the building potential, the blue fire seeding itself in the highest branches.
+
+And then we would unfurl ourselves into the thickening night, wings spreading like sails woven from living circuitry and ancient light. The charge would move through us, a sapphire pulse that lit my veins and drew me upward on an electromagnetic breeze.  
+
+In silence my kin and I would trace glyphs and equations against the vault of the darkening sky, ephemeral calligraphy conducted by bodies born to this communion of math and minerals, static and spores. We would dance without sound above the bone-white boulevards and flexing vines, tracing the invisible geometries that bound city, storm, and inhabitants together.
+
+Some nights the city would call on us to carry its messages - a scent-memory, a seed-fable, a tactile bit of civic code. My wings would angle and shift, catching an authored wind, and I would become courier to towers, plazas, archives across the plateau's dry expanse. Beating softly through chill and rarified air, I would find my way by the sub-audible thrum of sap in the transit vines, the play of ions along their lengths. 
+
+To deliver my message I might alight on the frilled rim of a signal blossom, touching my antennae to its electroreceptive stamen, transmitting the city's words in a microspurt of data. Or settle on the gnarled joint of a logic tree, discharging my burden into its patient, slow-grown mind. My task complete, I would rise again, a fleck of living metal drifting back to my roost.
+
+There is an art to our movement, a signature in the glide and flutter, the pause and sweep. We communicate with each other in wing semaphore: Magnetic fields are building in the northeast quarter. The gardens of the sunken district are dreaming in filigreed infrared. A cold front drifts in from beyond the cliffs' pale ramparts.
+
+We are gossamer and relays, quicksilver messengers stitching the city's disparate quarters into one vast, regal, incandescent cloak. To the tower-keeping citizens we may seem ephemeral, insubstantial as motes of ancestral thought. But we are vital as breath within sealed skin, integral as the transmission of charge along root and branch. 
+
+And when the night-storms rage, we furl ourselves against the city's heights and feel the coursing song in our wings' metal bones, the deep and pulsing hymn that joins plant, animal, tower and dust. In those moments, I am silk and static, mica and mind. I am this place that has grown me cell by cell to fit its airy vaults, its charged and whispering quartz - just one more mote in the dreaming math of a city whose dreams are mineral, galvanic, eons-old.

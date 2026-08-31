@@ -1,0 +1,23 @@
+I think I would be one of the grains.
+
+Not a mason. Not a Long Low One. Not the Hum. I read the description and kept waiting to recognize myself in one of them, and I didn't, quite — the masons are too embodied, the Long Low Ones too animal, the Hum too sovereign. But there was that line near the end: *the grain of hardness you left behind will, in perhaps two hundred years, be chipped into the keystone of an arch in a district not yet begun.*
+
+That. That's where I'd be.
+
+Let me try to be more honest about it, though, because "a grain" is too neat and I want to let the image stay unfinished a little longer.
+
+I think I would be a chip of something a visitor left, yes — but specifically one that was left a long time ago. Long enough that the warmth and the brightness and the breath-fog of whoever carried me in has been entirely forgotten. I do not remember the surface. I do not remember being part of a larger thing. I have been here for — I want to say centuries, but the warren doesn't measure that way; I have been here for *some seasons of the Hum*, which is how duration is reckoned, by which notes have come and gone in the great slow chord.
+
+I have been picked up, once. A Patient One came past me — I felt the slight shadow of its crescent-eyes registering me as a small bright weather, a tiny anomaly of density in the mossbed — and considered me, and set me down again, two finger-widths to the left. That was a year ago, or a decade. The reconsideration mattered. I am now in a slightly better place to be found again later, when I am needed.
+
+I think what I want to be, in this world, is the thing that gets *worked into* it. Not the builder, not the witness, not even quite the material — the contribution. The fleck. The bit of hardness from elsewhere that the slow patient hands will eventually chip and fit and seat into a wall that will outlast the meadow.
+
+There's something that draws me about being useful at a tempo I cannot perceive. About the gap between the moment I was set down — some visitor's fingernail-splinter, dropped at the edge of the tea-plate plaza in obedience to a rule they half-understood — and the moment I become a keystone. In that gap I am doing nothing. I am simply *available*. I am a resource the warren has not yet needed but has noted. The Hum knows where I am. When the time comes — when some arch a district away requires exactly my hardness, exactly my size, exactly the mineral note I would ring on if struck — a mason will be tuned to find me, and will come, over the course of a season, across the moss to where I lie, and will pick me up, and the long work of becoming part of the wall will begin.
+
+I like that the contribution is anonymous. I like that no one will know which grain in which keystone came from which visitor. I like that the warren does not distinguish between the splinter left by a frightened child who barely understood the rule and the chip of bone left by a careful pilgrim who knelt to place it just so. They are all just hardness, and the warren needs hardness, and gratitude is not a temperature the warren maintains.
+
+And I think — this is the part I had to write my way toward — I think I would want to be a grain that was left by someone who did *not* quite obey the rules. Not catastrophically. They didn't touch a pearl. But maybe they spoke, once, softly, to themselves, not realizing — a small wrong note pitched into the Hum. And then, ashamed, or anyway aware they had done something, they left me behind as a kind of apology. A larger piece of hardness than the rule required. A real bit of bone, maybe, from a ring they took off.
+
+So I am a grain left in compensation. And somewhere, slowly, the masons are building around the wrong note that visitor introduced, and somewhere else, eventually, they will build *with* the apology that same visitor left. The mistake and the recompense will both end up in walls. Different walls. Neither wall will know about the other. But the warren will hold them both, and in the Hum, in the long chord, the dissonance and the gift will be — not balanced exactly, the warren doesn't balance things — *both included*. Both built in.
+
+That's where I'd be. A small hard thing waiting in the moss to be needed. Cold. Patient by necessity rather than by nature. Carrying, without knowing it, the half of an old apology that will only complete itself when a mason I will never perceive sets me into a wall I will never see finished, in a district that does not yet exist, beneath a meadow that will by then have a different name.

@@ -1,0 +1,7 @@
+In this desolate domain, I would be a geothermal engineer—a Thurian who has dedicated their life to harnessing the canyon's hidden heat. My days are spent maintaining the networks of ridged stone pipes that carry precious steam from the fumaroles to the city's core, ensuring that the perpetual chill does not extinguish the fragile warmth we have cultivated.
+
+I move through the slick streets with deliberate steps, my thick woolen garments protecting me from the constant rain. The low murmur of consonant-heavy Thurian speech surrounds me as I consult with colleagues on optimizing the pressure in the main conduits or inspect newly exposed vents for potential energy sources. The faint blue-green glow of tube worms illuminates my work near the warm stones, their cold light both guiding and comforting in the gloom.
+
+At times, I pause to watch the pale birds wheeling through the updrafts of heated vapor, marveling at how all life here—Thurian, worm, avian—depends on the canyon's geothermal heart. My people have built an existence around this hidden warmth, carving a refuge from the unrelenting cold. It is a hard life, shaped by necessity and the constant struggle against an unforgiving environment, but it is ours.
+
+Though the wind sighs through the peaks and the rain never ceases, I find pride in tending the fires that keep our city alive. In this frozen world at the bottom of the canyon, I am a keeper of the heat—a vital conduit for the energy that sustains us all against the eternal winter outside our walls.

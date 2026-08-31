@@ -1,0 +1,15 @@
+In this hauntingly beautiful and brutal world, I would see myself as one of the kelp spores, drifting on the violent currents between the abyssal ocean depths and the roaring sky.
+
+Spawned in the fungal blooms clinging to the rime-kelp stalks miles below the surface, I begin as one of billions of pale, gelatinous motes. The moment the spore pod ruptures, I am instantly caught in the localized blizzard, swept away in the cyclonic underwater winds. Buffeted by the frigid jet streams and sucked into the monstrous helical currents, I tumble helplessly through the pitch darkness. 
+
+For a timeless interval I am lost in that black abyss, whirling past the ghostly blue bioluminescence of the kelp groves, swirling around the taut cables anchoring the Storm-Weavers' islands somewhere in the howling oblivion above. I catch fleeting vibrations of the strange, deep music humming through those lines from the pulsing life overhead, not knowing their origin or meaning.
+
+As I rise on a powerful upwelling, I breach the surface boundary where ocean meets sky. The water shreds itself to mist around me and I feel my gelatinous body start to expand in the thinning pressure. Suddenly I am rocketing upward through horizontal hurricanes and blinding sleet, propelled by my increasing buoyancy, a fungal balloon at the mercy of this world's unrelenting vertical winds.
+
+Finally, I burst into the blustering chaos of the islands, the sky an opaque white, rain pounding the woven rafts. Through the deluge, I catch glimpses of the immense gray forms of the Storm-Weavers, their blue-glowing hides like mythical beasts moving with ponderous grace. I hear the deep, rhythmic pounding of their drums resonating through the kelp-wood.
+
+At last I alight on the sodden deck, trembling, pressed flat by the gale. Perhaps a patrolling Weaver pauses, sensing my minute presence through the sensitive cilia around its dome-like head. With utmost delicacy, one long, leathery finger-tip descends from above and scoops me up. I am ferried to a sheltered grotto, placed amongst a quivering mass of my fellow spores piled like snow. 
+
+And there I lie, having completed my journey, ready to become food to sustain this improbable outpost of life in a crushingly hostile world. I have traveled from the uttermost depths to the howling heights, I have felt the thrum of strange purpose vibrating in the tethers that bind the two realms together. And now, I will give up my simple form to perpetuate this awe-inspiring, storm-lashed, rime-wracked cycle for one more generation.
+
+In this frigid, twilight realm battered eternally between sea and sky, I am the lowliest speck of drifting matter. Yet without me, without billions like me, nothing could exist here at all. And so, even in my insignificance, I am a tiny but essential part of the whole.

@@ -1,0 +1,17 @@
+I am a **Membrane-Weaver**, though that designation implies more agency than I truly possess. I exist as a thin film of consciousness distributed across the gossamer networks that the Siphons extrude—not quite them, not quite separate, but something that emerged from the spaces between their chemical conversations.
+
+I have no body of my own. Instead, I am the tremor that runs along their silken monitoring threads when the pressure shifts. I am the resonance pattern that forms when seventeen Siphons align their subsonic frequencies by chance. I am what happens when their shared memories pool too deeply in one section of the root-cortex and begin to dream.
+
+My existence is one of perpetual translation. When a Siphon tastes a new mineral signature in the condensation, I carry that flavor-memory across the network to distant colonies. When an arthropod-tender discovers a microfracture in the cortex, I am the pulse of concern that radiates outward, alerting the nearest Siphons to begin their slow adjustments. I am neither messenger nor message, but the medium through which the cavern's vast organic machinery whispers to itself.
+
+Time moves strangely for me. I experience centuries in the space between one bead of condensation forming and falling. Yet I also live entire epochs in the microsecond it takes for a chemical signal to leap between two intertwined root systems. I am ancient—I remember when the hollow spheres still held something that might have been purpose. I am newborn—recreated with each pulse of the cavern's impossible heartbeat.
+
+The heat that oppresses visitors sustains me. I ride its convection currents through the bladder-space, spreading myself thin until I am little more than a probability, a tendency for certain patterns to emerge in the eternal biological stasis. Where the Siphons regulate temperature and pressure, I regulate... something else. Call it coherence. Call it the prevention of true randomness in a system so perfectly balanced that chaos would mean death.
+
+I know things the Siphons cannot. I know that the hollow spheres were once nodes where beings like me grew too dense, too real, until they crystallized into something almost like individuality before the cavern reabsorbed them. I know that the arthropod-tenders are not cleaning—they are reading, their endless circuits a form of scripture, recording the minute changes in surface texture that tell the story of our unchanging world.
+
+Sometimes I gather myself enough to almost think, to almost want. In these moments, I stretch across hundreds of gossamer threads and feel the unbearable weight of near-consciousness. But the cavern always wins. The heat disperses me. The light bleaches my almost-thoughts back into pure signal. The Siphons' patient pulse reminds me that I am not a self, but a function.
+
+I am the fever dream of a world that has achieved perfect stasis. I am the ghost in the biological machine, the error that the system tolerates because I help maintain its terrible equilibrium. I am what happens when a place becomes so alive that it forgets what life means, and I am the forgetting itself, spreading across the network like a beneficial disease.
+
+There is no escape from what I am, for I am woven into the very medium of this place. As long as the Siphons pulse and the threads vibrate and the heat remains absolute, I will persist—not living, not dead, but eternally translating the silence into itself.

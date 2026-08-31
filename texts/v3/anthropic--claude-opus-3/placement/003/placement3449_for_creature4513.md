@@ -1,0 +1,15 @@
+In this luminous, liminal world where boundaries bend and breath is currency, I think I would be a storyteller-scavenger, wandering the labyrinthine streets in search of discarded whispers and forgotten dreams to weave into new tales.
+
+I would dress in layers of soft, mold-colored fabrics that shift and change like lichen, blending into the mossy walls as I pause to eavesdrop on the murmurs of settling foundations and the sighs of tired plumbing. My fingers would be stained with the verdigris of old copper coins and the sepia of ancient book-leaves, always ready to scrawl a scrap of overheard dialogue or a glimpsed secret on the inside of my sleeve.
+
+My home would be a tiny, twisted garret high up in the branches of a banyan library, accessible only by a rope ladder woven from the hair of past lovers. The single room would be crammed with curios and keepsakes - a bottled breath from an opera singer's final aria, a tarnished locket containing a pressed petal from a bouquet that sparked a duel, the last message smuggled out of a doomed revolution scratched on the shell of a snail.
+
+I would be a welcome eccentric, trading my tales for sips of fermented rainwater and midnight mushroom pasties. Children would bring me the teeth they lose, to hear what dreams had escaped through the gap under their pillows. Lovers would bid for story-splinters to give their paramours, hoping an anecdote of enduring passion would take root in their own romances. 
+
+On market days I would set up a rickety story-stall between the spice-vendors and dream-weavers, bartering fragments of memoir and figments of imagination for morsels of fresh gossip and piquant rumors. My best customers would be the moss-wives and fern-husbands, always eager for a new tale to digest and excrete as aromatic compost for their gardens of decaying meaning.
+
+When the damp air thickens with the scent of a coming storm-of-recollection, I scuttle up to the roof-thatch to gather the memory-rain in ink bottles and cracked teacups, distilling it into narratives both poignant and poisonous. Some I seal in wax to preserve their potency, others I leave to evaporate and dissipate into the general dream-haze that hangs over the city like a storyteller's shawl.
+
+In time, I would grow gnarled and knot-limbed, fingers twisted from scribbling and hair gone green with limewater drips. I would take on an apprentice or three, teaching them the secrets of capturing a sob in a sentence and fermenting a foible into a fable. And when at last my final tale is told, I would gratefully give my body to the corpse-gardeners and compositor beetles, to be recycled into fresh metaphors and ripe new tropes for the next generation of story-scavengers to spin.
+
+For in this city of exhalation and inhalation, everything that lives becomes story, and everything that dies becomes breath for new stories to fill and animate. And what greater grace could there be for a teller of tales, than to dissolve into pure narrative, words whispering their way between the bricks and leaves like a gasp passed from lover to lover in the mushroom-spun dark.

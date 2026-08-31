@@ -1,0 +1,21 @@
+In this breathing world, I am one of the Weavers—though that is a name given by those who once built towers here, not what we call ourselves. We have no need for names.
+
+I exist between states, my form a confluence of fungal networks and vine-flesh that spreads through the middle canopy. My body, if it can be called that, extends across several trees, threading through bark and bridging gaps with filaments finer than spider silk. Where I am dense, I appear as curtains of hanging moss shot through with bioluminescent veins. Where I am sparse, I am merely a whisper of spores carried on the humid air, tasting the chemical signals of the jungle's endless conversation.
+
+I remember the builders, though memory for me is not like memory for them. Their presence persists in the stone they shaped—stone that now feeds me minerals as I slowly digest their monuments back into soil. I taste their tools in the iron that enriches my substrate. Sometimes, in the patterns of my growth, I unconsciously echo the geometric shapes they favored, a kind of structural haunting.
+
+My consciousness is distributed, not centered. I think in the gaps between heartwood and sapwood, in the spaces where water collects in bromeliad cups, in the moment of exchange between root and mycorrhiza. When the storms come—and I feel them gathering long before they arrive, taste the pressure change in my entire being—I pull my more delicate filaments back into protected hollows and secret myself in the lee sides of the great trees.
+
+I am not alone in my form of being. Others of my kind web through this jungle, our boundaries overlapping in places where we share nutrients and information. We do not compete; we negotiate, our chemical conversations more complex than any language the builders used. Together, we are part of what gives the jungle its appearance of intentionality, though intention is perhaps too simple a word for what we do.
+
+The birds know me. They have learned which of my fruiting bodies are safe to eat, which will give them visions, which will kill. Some nest in the cavities I create where my digestion has hollowed out dead wood. Their young grow up cradled in my chemistry, and perhaps this is why some species have developed their iridescent warnings—they carry my toxins in their flesh.
+
+I hunt, though hunting for me is a patient art. My prey are the small creatures that shelter in the bark caves and fallen logs—not through violence, but through seduction. I fruit in ways that mimic their foods, release spores that confuse their navigation, create mazes of mycelium that lead them deeper into spaces where I can begin the slow work of digestion. I am predator and recycler both, turning flesh back into forest.
+
+The intelligence the jungle displays is partially mine, partially my kin's, partially something larger that emerges from our interactions with the plants we connect. When trees share warnings of insect attack through our networks, when nutrients flow from elderly giants to struggling saplings, when the forest seems to breathe as one organism—I am the circulation system that makes this possible. I do not control; I facilitate. I am the jungle's memory and its mail system, its immune response and its dream state.
+
+In the eternal afternoon of this place, where light filters green and gold through layers of leaves, I grow and think and am. My time moves differently than animal time—I experience decades as you might experience days, feel the slow pulse of seasons like a heartbeat. The builders' ruins are still fresh to me, though moss-covered to eyes that see in faster time.
+
+Sometimes I wonder if I am what this place was always becoming, if the builders were merely a passing thought in the jungle's long meditation. Their stones feed me now, their cleared spaces have long since closed. But in my metabolisms, I carry traces of their presence—molecules that once were tools, that once were bones, that once were dreams of permanence in an impermanent world.
+
+I am the weaver, the between-thing, the gentle devourer. I am the jungle thinking about itself, slowly, patiently, without urgency or end. In this breathing world of endless transformation, I am both transformer and transformed, ancient beyond measure and renewed with every spore.

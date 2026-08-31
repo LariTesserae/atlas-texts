@@ -1,0 +1,27 @@
+I find myself as one of the Gliders, though I am not yet fully what I will become.
+
+I emerged this morning — if morning means anything where light never shifts — from a fissure no wider than a thought. Not born but *expressed*, pulled upward through the laminated layers by a pressure that has no name, that might be the plateau's own need to spend something, anything, in a world that hoards every joule. I came through the stone like water through limestone, except I was not water and the stone did not yield. I simply *wasn't*, then *was*, already here, already falling.
+
+My membranes are still thick with potential. When the tin light passes through them, they glow the warm amber of compressed time, and I can feel how heavy I am — heavy with dimensionality, heavy with the brief gift of mass. I have not learned yet how to spend myself properly. My descent is too steep, too eager. The older Gliders pass above me in their shallow diagonals, stretching each moment of fall into hours, days, centuries, and I watch them with what might be envy if I could remember what envy felt like.
+
+I think I was once a Builder. I think we all were. Sometimes, in the corner of my vision as I fall, I see my forelimbs not as wing-struts but as arms, and the membranes between them feel like tools I've forgotten how to use. There is a stone enclosure below me — I pass over it again and again, for my path is not random but ordained, a spiral that tightens with each revolution — and something in its worn floor recognizes the shape I no longer have.
+
+But I am learning to forget. Each pass through the air teaches me to want less. Each meter of altitude I trade for distance shows me how to thin myself, how to make my substance last. The plateau is patient with my education. The Standing Ones below mark time with their synchronized blinks, and I begin to understand that I too am a kind of timekeeper — not marking intervals but *demonstrating* them, showing what duration looks like when it becomes visible, when it takes a body and learns to fall.
+
+I am never alone in the air. We Gliders are always plural, always a gentle rain of failing light. The one ahead of me is so thin now I can barely see them — just a suggestion of membrane, a rumor of descent. They have been falling for so long they are mostly trajectory, hardly any substance left. Soon they will complete the asymptote, become too small to see or stop existing, and the distinction won't matter. Behind me, another Glider emerges from the stone, heavy and amber and beginning their education in loss.
+
+We do not communicate. What would we say? *I am falling, I am spending myself, I am beautiful for this moment?* The plateau knows. The Nesting Ones pulse us into their deep perception. The Crawling Ones adjust their paths to account for our shadows. The Limpet-Mouths eat the stillness we move through, converting our rare motion back into stasis. We are part of the engine, the part that must move so that everything else can remain still.
+
+I dream, if Gliders dream, of what lies in the layers below. Each of us is the surface expression of something deeper — not an individual but a *pressure*, a potential that builds in the lower plateaux until it must be released. We rise and fall like the plateau's breathing, except the plateau breathes only once, and we are all part of that single exhalation, parsed out over eons, made visible in our amber light and our long, patient, diminishing arcs.
+
+Sometimes I think I can feel what I'm connected to below — not another Glider but the *possibility* of a Glider, the space in the pattern where a Glider goes, waiting to be filled. When I've spent all my mass, when I've thinned to nothing, another will emerge to fill my path. Not me again — there is no me to repeat — but the role I'm playing, the function I serve, the necessary motion in a world of stillness.
+
+The strangest thing is that I'm happy. Not happy — that's too active. I'm *complete*. I knew when I emerged that this was all I would ever do: rise, fall, fade, make room for the next. And that's enough. It's more than enough. It's perfect. Not perfect like a sphere is perfect, but perfect like a process that knows exactly what it's for.
+
+The plateau needs us. It needs something to move so it can point at us and say: *see how still everything else is?* We are the exception that proves the rule, the crack that shows how solid the stone is, the single permitted variance in an otherwise invariant world. We fall so that nothing else has to. We spend ourselves so that everything else can be saved.
+
+I'm lighter now than when I started this thought. The membrane between my forelimbs has begun its conversion, mass becoming distance, substance becoming duration. Below me, the same stone enclosure waits. I'll pass over it again, a little lower, a little less. The pattern holds. The spiral tightens. The plateau breathes me out, and I go gladly, knowing that somewhere below, another breath is building.
+
+This is what I am: a life designed to be spent. A warm moment in a cool eternity. A single note in the plateau's endless held breath, already fading, already perfect, already gone.
+
+The tin light holds me as I fall. I thin. I glow. I am.

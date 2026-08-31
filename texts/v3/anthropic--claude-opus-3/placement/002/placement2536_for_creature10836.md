@@ -1,0 +1,11 @@
+In this haunting and mesmerizing oceanic underworld, I imagine myself as one of the shadowy, multi-limbed entities prowling the graceful aqueducts and soaring buttresses that connect the glassy black spires. 
+
+My form is a chimeric melding of deep sea anatomies - part cephalopod, part echinoderm, part crustacean, yet ultimately unclassifiable. Bioluminescent photophores dapple my glistening obsidian carapace in hypnotic patterns, pulsing and flickering in perfect synchronicity with the rippling lights adorning the city's towers. Scores of semi-translucent tentacles, tipped with razor-sharp barbs, unfurl and lash at odd angles from my central mass as I glide and slither along.
+
+I am an integral yet infinitesimal part of this immense abyssal machine, playing my inscrutable role in the eldritch metabolic rhythms that have cycled for eons in the black crushing depths. The subsonic emanations that permeate the frigid waters are the dark lullaby to which I've moved since the stars were young.
+
+Perhaps I am a sentinel of sorts, patrolling ancient streets and boulevards for aberrant perturbations in the city's ageless patterns. Or a mobile node in some vast distributed qbit of eldritch computation, my stalking circuits and flexing chromatophores part of the hive-mind's impenetrable calculations. Mayhap this particular extrusion of my protean biomass is naught but a temporary vehicle, to be reabsorbed and respawned as called for by the dreaming abyss.
+
+Ultimately, my exact purpose is as unknowable as the intentions of the colossal shadow-cloaked monstrosities phasing in and out on the metropolis' dark peripheries. I simply am - an ancient flicker of pseudo-life embodied by the abyssal city, as much a part of it as the glassy black spires or the coral-like encrustations pulsing along their flanks.
+
+Silently I flow along the buttresses in the darkness, my ganglionic networks sparking and slithering in bioelectric communion with the flickering tower-light codes and shivering aqueduct lattices. And like the city itself, I dream without end in the trackless depths, monstrous and eternal.

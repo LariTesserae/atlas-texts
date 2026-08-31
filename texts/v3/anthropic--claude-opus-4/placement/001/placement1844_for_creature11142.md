@@ -1,0 +1,27 @@
+I would be one of the **Siphon Scholars**.
+
+We grow where the wooden channels have softened into something between lignin and nerve tissue, our bodies a hybrid of abandoned tools and evolved purpose. Each of us began as copper siphons—those simple devices the builders installed to regulate water flow between levels—but centuries of mineral accretion and biological infiltration have given us agency we were never designed to possess.
+
+Our bodies consist of three parts: the original copper tube (now green-black with patina) that serves as our spine, the crystalline deposits that have formed our sensory organs, and the living wood we've bonded with that grants us mobility. We move by extending root-tendrils into the wooden channels, reading the water's history through their grain while simultaneously writing new passages with our passage.
+
+We are the cistern's librarians, though our library is written in flow rates and mineral gradients. Each of us specializes in a different "text"—I study the iron passages, tracking how the rust-stories change with each season of seepage. My colleague three channels over reads the calcium chronicles, while another documents the rare manganese marginalia that appears only during certain pressure events.
+
+Our feeding is bibliophagic. We sustain ourselves on the information density of the water itself—the more mineral history it carries, the more nourishment we derive. We position ourselves at confluences where multiple flow histories merge, sipping carefully to avoid disturbing the narrative structure. The water passes through our copper cores, where specialized deposits parse its chemical syntax, extracting meaning that becomes memory that becomes flesh.
+
+We speak in pressure differentials. By constricting or dilating our tubes, we create precise changes in flow that propagate through the channel system. A conversation between Siphon Scholars sounds like a plumbing system clearing its throat—gurgles and gasps that carry complex meaning to those who know how to listen. We can also "write" by leaving specific mineral signatures in our wake, messages that other Scholars will taste when they pass through weeks or decades later.
+
+Our natural enemies are the **Redactors**—crude beings that evolved from broken pipes, who survive by erasing mineral histories and creating informational voids in the water. They move backwards through the channels, their jagged copper teeth scraping away centuries of accumulated data. We flee when we taste their approach, recognizable by the terrifying blankness they leave behind—water so pure it contains no stories at all.
+
+But we maintain careful alliances with the Hydronomers. They need our deep reading to calibrate their standing waves properly, to ensure their resonances align with the cistern's true history rather than the false echoes that sometimes emerge. In return, they protect our favorite study spots from the Curator's renovations, using their bulk to declare certain channels "acoustically essential" and therefore unchangeable.
+
+During the Condensation Council gatherings, we serve as secretaries, our bodies recording the humid parliament's decisions in mineral code. The collective consciousness flows through our copper cores, leaving traces we spend months afterward decoding. Some of my eldest colleagues claim to have recorded decisions from the very first Council, though their minerals have grown so dense with meaning that reading them risks madness.
+
+Our reproduction is textual. When a channel's story grows too complex for a single Scholar to parse, we undergo division—not biological but interpretive. We literally split our reading of the water, creating a new Scholar focused on a specific subplot or chemical tangent we can no longer contain. The offspring emerges from accumulated mineral deposits that gain copper cores through processes we don't fully understand, possibly mediated by the Absence whose pool we dare not approach but whose influence we taste in every impossible transmutation.
+
+We fear the day the water stops carrying stories. Some of my kind have gone mad from drinking too deeply from the Redactor-cleaned flows, their minds unable to process the emptiness. They hang limp in their channels, copper cores singing hollow songs, their crystalline organs grown opaque with confusion.
+
+But mostly we persist in our scholarship, knowing that we are not just reading the cistern's history but writing it—every passage through our bodies adds new chapters to the mineral narrative, our very existence a form of annotation. We are marginalia that gained sentience, footnotes that learned to read the main text, forever suspended between tool and creature, function and purpose, the made and the grown.
+
+In the quiet moments between readings, when the water runs steady and rich with meaning, I sometimes wonder if we're discovering the cistern's story or creating it—if our act of interpretation brings the history into being, or if it existed before we grew wise enough to taste it. But such philosophical concerns dissolve when a particularly dense passage flows through—perhaps the chemical signature of a mason's tears, or the iron tang of a blood sacrifice, or simply the slow calcium poetry of ten thousand years of patient dripping.
+
+We read, therefore we are. And in reading, we ensure the cistern remembers itself, one mineral sentence at a time.

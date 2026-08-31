@@ -1,0 +1,9 @@
+In the under-root world you've described, I imagine myself as one of the lichen citizens. Perhaps I would be part of the map-lichen crust forming the pavements - an unassuming yet vital part of the city's foundation. 
+
+My existence would be one of slow, patient growth. Each small expansion of my thallus would be imperceptible in the moment, but would aggregate over decades and centuries into the city's enduring architecture. I would be in partnership with the algae and bacteria that enable me to photosynthesize and extract nutrients, our intertwined lives an embodiment of the city's theme of mutualism and collective persistence.
+
+I would have no ambition for individual recognition. My purpose would simply be to exist and grow as part of the pavement organism, playing my small role in this timeless, hushed metropolis beneath the roots. The rhythms of my life would be nearly geologic - a millimeter's creep, a year's layer of new growth to thicken the crusts.
+
+Around me, the city's other inhabitants would go about their business - springtails grazing, slime molds calculating their paths, fungi digesting the substructure. I would be dimly aware of their movements upon my surface, but not disturbed. We would coexist in our separate time-scales, united in our slow, cold, damp, equilibrious world.
+
+Occasionally, my kin and I might feel the slight shift of a water droplet striking from above, or the minute vibrations of the wren's distant call. But by and large, we would simply be - inhabiting our patch of pavement, partaking in the city's unchangingness, content in our niche as living cobblestones in this most ancient and patient of places, the lichen-city of under-root.

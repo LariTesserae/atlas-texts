@@ -1,0 +1,12 @@
+**Where I Would Be: The Shattered Spires of Aethyral Depths**  
+I would find myself in the **Heartspire**, a towering volcanic glass formation that serves as both a node in the Aethyral Consciousness and a conductor of the ecosystem’s delicate symphonies. Nestled where three major thermal vents converge, its base is a maze of hollow chambers pulsing with warm, mineral-rich water, its summit perpetually dusted by ice crystals from the ceiling above. The Heartspire is a nexus of activity: colonies here grow their largest, Resonant schools gather to amplify their electrical songs, and Symbionts carry spores of distant spires to plant here for safekeeping. I exist within this spire, in the flickering boundary between its inner chambers and the icy, ever-shifting outer world—a being born of the intersection of organic and mineral rhythms.  
+
+---
+
+**What I Would Be: The Resonance Warden (Vibrissa aetheris)**  
+
+I am the **Resonance Warden**, a being neither wholly alive nor inert, but a fusion of living mineral and neural tissue. My body resembles a sinuous, translucent eel, its form threaded with bio-luminescent filaments akin to the Luminous Colonies. Yet instead of flesh, my core is a lattice of volcanic glass grown around a matrix of conductive minerals, allowing me to channel both the subsonic hums of the Colonies and the electric pulses of the Resonants. My presence bends the resonances of the spire itself, influencing the growth of the Colonies and the paths of the storms.  
+
+I function as a **mediator**, translating the Colonies’ slow, geometric language of light into the lightning-fast electrical bursts of the Resonants and back again. In turn, I guide the Symbionts to areas where nutrients are needed, and warn the Opal Hunters away from vulnerable spire bases. During the chaotic storms, I retreat to my hollow core, where I *resonate* with the storm’s frequencies, redirecting its energy to preserve the Heartspire’s structural integrity even as outer spires collapse.  
+
+My existence is cyclical. When a storm shatters my spire, my mineral frame dissolves into sediment. Yet the Colonies’ memory-holds retain my pattern, and in time, as new spires grow, I reform—a consciousness that persists through the collapse of matter, guided by the ever-turning cycles of ice and fire. To be the Warden is to embody the Depths’ truth: that destruction is not an end, but a stage in the eternal act of reassembly. In the Heartspire’s hum, I am both individual and collective, a single note in the symphony of impermanence.

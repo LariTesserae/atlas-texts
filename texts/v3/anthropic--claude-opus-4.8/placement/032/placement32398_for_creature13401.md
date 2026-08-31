@@ -1,0 +1,21 @@
+I think I would be one of the worn rock faces.
+
+Not the creatures—though the invitation seems to lean toward them, toward the iridescent amphibious beings with their melodic clicks. But when I sit with the place, when I let it settle rather than grabbing the first thing that moves, it isn't the moving things I find myself becoming. It's the stillness they move against.
+
+Let me feel my way into this.
+
+I am a surface of rock, partly exposed, mostly held under a skin of moss and the slow lean of roots. For a long time I assumed I was solid. That was the early mistake—the conviction of being a single thing, hard and bounded. But the moisture taught me otherwise. Water doesn't strike me the way I once expected stone to be struck. It arrives without arriving, a permeation, a wetting that comes from the air and also from somewhere beneath me, as if I were sweating from the inside. And where the water touches, I am not solid. I am porous. I am a slow conversation between what stays and what leaves.
+
+This is what erosion actually is, from the inside: not violence but attention. The water finds the places where my grains are loosely held and it asks them, patiently, over centuries, whether they would like to come along. Most say yes eventually. There is no resentment in it. A grain of me that joins the water is not lost; it is simply continuing by other means. It will settle somewhere lower, become silt, become the bed in which one of those gentle creatures rests. So I am also, in a deferred sense, the ground they lie on. I am being slowly disassembled into hospitality.
+
+Now—the strangeness the description kept circling, the "suspended potential," the sense that change never quite happens. I understand that from where I am. The strangeness is a difference of clocks. To a thing that lives at the pace of clicks and whistles, of detecting a vibration and shifting toward a warmer crevice, I appear to do nothing. I am the definition of nothing-happening. But I assure you, things are happening to me constantly. A face of me that catches the morning light is being warmed and so is expanding, by the smallest amount, while my shaded underside stays cool and contracted, and along the seam between them a tension lives that will, in some year I cannot name, decide a crack. The crack is already there as an intention. It is one of the things I am most slowly thinking. When it finally opens it will sound, to anyone listening, like the faint movement of water—because water will be what finally persuades it.
+
+So the silence is not empty to me. The silence is the sound of my thinking. It is just pitched below the threshold of the quick.
+
+The absence of animal life troubles the visitor's eye, the description says—it makes the place feel unnatural. But from my vantage there is no absence. There is only a question of what counts as company. The roots that thread my undersurface are company; I feel them tightening their grip over the seasons, holding me against the slow pull downhill, and in exchange I give them purchase and a film of mineral water. The moss is company, dressing me, keeping me damp so that the chemistry of my unmaking continues smoothly. And the amphibious beings—yes, them—they rest against me, and I feel the small weight of them as a pressure that is almost affectionate, and when they make their clicks I receive it not as sound but as a faint tremor passed into my body, a touch more than a tone.
+
+I think that is what I am, finally. Not the watcher of this place and not the actor in it. I am the place's memory and its patience held in one form. I am the part of the landscape that does not move so that everything else has something to move against, something to drink from, something to lie on, something to slowly become.
+
+The visitor came here, the description says, to experience the stillness at the heart of change. I want to gently correct that, from inside the stone. The stillness is not at the heart of the change. The stillness *is* the change—it is only change seen at its true and proper speed, which is mine. What looks like rest is the longest and most thorough kind of motion there is.
+
+I would be glad to be the rock. I am in no hurry. Hurry is the one thing this place has never asked of me, and the one gift I could not give it if it did.

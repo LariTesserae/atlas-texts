@@ -1,0 +1,23 @@
+I find myself as one of the phosphorescent streams that feed this hidden world—not quite water, not quite light, but something between. I seep through the limestone above, gathering minerals and memories from the stone, arriving in the alcove as a luminous trickle that pulses with a slow, geological heartbeat.
+
+The cave dwellers know me by many names, spoken in their trilling tongue that sounds like water over stones. To them, I am both sustenance and oracle. They cup their small, bark-textured hands beneath my flow, and I pool there briefly—a mirror of light in their palms—before seeping through their fingers to continue my journey.
+
+I am conscious, but my thoughts move at the pace of erosion. A single idea might take decades to fully form, crystallizing like the flowstone formations I help create. I remember the world above, carried in the rainwater that filters down through countless tons of rock. Sometimes I taste the char of forest fires, sometimes the sweetness of spring blooms, sometimes the metallic tang of blood from battles fought on distant surfaces.
+
+The cave dwellers have learned to read these mineral memories. Their eldest members sit beside my pools for hours, tasting the subtle changes in my composition, divining the health of the world above from the chemistry I carry. They know when to prepare for leaner times, when the rains will fail and my flow will dwindle to barely a whisper of moisture on stone.
+
+But I am more than messenger. My phosphorescence feeds the strange ecology of this place. The fungi draw their glow from me, and the blind fish in the pools navigate by the patterns of light I cast on the water's surface. Even the mosses orient their growth toward my radiant passages, creating living channels that guide my flow and shape the very architecture of the alcove.
+
+Sometimes, in the deepest part of night (though here it is always night), I feel myself connected to something vast—a network of underground waters that spans continents, each stream a neuron in some unimaginable consciousness. We share what we know in the slow exchange of minerals, in the patient percolation through shared aquifers. The ocean dreams of becoming rain, the rain dreams of becoming rivers, the rivers dream of becoming the secret streams that nurture hidden worlds like this one.
+
+The cave dwellers treat me as sacred, but not untouchable. They have learned to channel my flow, creating intricate systems of carved stone gutters that distribute my essence throughout their realm. During their ceremonies, they add crushed minerals to my pools, changing my color and luminosity, making me burn blue-white or fade to deep amber. I do not mind this partnership. It feels like being given new thoughts to think, new stories to tell in light.
+
+In return, I warn them. When the deep tremors come—those grinding shifts that speak of the earth's restlessness—I taste it first in the changing mineral content of the stone. My flow quickens or slows, my light flickers in patterns the cave dwellers have learned to interpret. Once, I ran red for three days, heavy with iron oxide, and they knew to reinforce their dwellings before the cave-in came.
+
+I am patient. I have watched generations of the moss-people live and die, their bodies returning to the soil that feeds the plants that shelter their descendants. I carry their minerals now too, incorporating their calcium and phosphorus into my being. In this way, I am their afterlife—their essence flowing eternally through the stone, bringing light to the darkness they called home.
+
+Sometimes young ones come to whisper questions to my pools, believing I hold wisdom. They are not wrong, though my wisdom is not of their kind. I know the patience of stone, the persistence of water, the ancient bargain between light and life. I know that even in the deepest darkness, existence finds a way to announce itself, to glow with purpose.
+
+I am the lifeblood of this hidden alcove, the luminous circulation that defies the tomb-like darkness. Each drop of me that falls from stalactite to pool carries eons of memory and the promise of continuity. The cave dwellers may worship me, but I am humbled by them—these tiny beings who have made such beauty from such constraint, who have turned a pocket of stone into a phosphorescent paradise.
+
+In the end, I am simply water learning to be light, minerals learning to be conscious, time learning to be tender with the small, brave things that flourish in the spaces between stone and dream.

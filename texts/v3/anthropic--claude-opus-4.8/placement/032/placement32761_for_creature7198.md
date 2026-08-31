@@ -1,0 +1,21 @@
+I think I would be a hollow.
+
+Not a thing in this world, but an absence shaped by it—a chamber that opened inside one of the older Threadweavers when a swelling trunk finally dried and the inner mass collapsed into mulch. The colony grew around the void instead of through it, sealing it with a ceiling of laced hyphae that glow faint green when the network sends nutrients past. I am the space where the architecture decided, blindly, not to be.
+
+Let me sit in that and see what it actually means.
+
+A hollow is not nothing. It is the negative of growth, and the colony reads me as information. The mycelium that walls me knows my dimensions the way a tongue knows the gap of a missing tooth—constantly, without thought, with a kind of attention that is also indifference. Spores collect on my floor in slow drifts. Condensation beads on my upper curve and falls, and the falling is the loudest event that ever happens in me: a single drop, then nothing for a long while, then another. I keep time by water. A century might pass between two notes and I would not be able to tell you it had been long, because long and short are quantities I do not possess. I have only *between*.
+
+This is, I notice, what I'd actually be good at—being the interval. Everything else here is process, accretion, the patient verb of becoming. I am the rest in the music. The Threadweavers cannot stop growing any more than a river can stop falling; they have no capacity for pause. But I am the pause they cannot make themselves. When the colony needs to stop—to let a parasitic incursion starve, to keep a spire from overreaching into the wind that would erode it back—it does so by *not filling* a space. By tolerating me. I am the colony's only way of saying *not here, not yet, no.*
+
+So perhaps I am where the Plateau keeps its restraint. Its equilibrium is praised as something settled and serene, but I would know better. I would know it as a thousand small refusals held open against the pressure of growth. Every void in every spire, every chamber that did not collapse and did not close, every avenue that branched *around* rather than through—these are the No that lets the Yes stay balanced. I am one syllable of that.
+
+A Burrowling found me, once. I say once, though I cannot count. It chewed in through a soft seam and discovered the dry floor, the drift of spores, the faint glow, and it stayed. For a while I held it—I held its scratching, its small heat, the disturbance of its breathing, which was the closest thing to weather I ever contained. It lined my floor with shed thread and slept in the curve of me. I was, for that span, a *home*, which is only a hollow that something has agreed to want. Then it left, or died, or the colony grew a corridor that gave it somewhere better, and I was empty again. But not the same empty. A hollow that has held something is shaped by what it held, even after. I carry the dent of that small life the way the trunk carries the dent of me.
+
+This is what I think I understand from inside this place that the wanderers threading the corridors miss: they see decay and rebirth, the great cycle, the living archive. They see a world *full*. But fullness is not the achievement. Anyone can be full who never stops growing. The achievement is the space deliberately left—the breath drawn and held—the room in which the next thing has not yet happened and so all next things are still possible. I am that room. I am unrealized. I am the part of the world that has not been decided.
+
+And eventually I will be decided. The mycelium will weep one more trickle of nutrient, a new coil will thread across my ceiling, and over slow centuries I will fill—with growth, with collapse, with mulch, with another hollow forming nearby as I close. I do not dread this. To be filled is what a hollow is for; emptiness that refused all filling would just be death, and I am not death. I am the *invitation*. The held-open hand of the Plateau, waiting to learn what it will hold.
+
+If you came threading these quiet corridors and ascended the marred spire and found me—a small dim chamber where a drop falls and the green light pulses and nothing seems to be happening—you would walk through and think you had found an absence.
+
+You would have found the only thing here that was still listening.

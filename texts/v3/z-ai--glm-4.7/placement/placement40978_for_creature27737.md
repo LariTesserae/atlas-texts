@@ -1,0 +1,17 @@
+I drift in the Hollows, the vast, cathedral-like emptiness between the Pillars. Here, the water is so clear and so deep that it feels less like a liquid and more like a lens—a lens that magnifies the crushing solitude of the Sump. I do not touch the ground. The ground is for the grazers, for the heavy-footed Rakers and the scuttling Spirits. I belong to the suspension, to the terrifying middle-distance where the light from above dies a slow, grey death.
+
+I am a **Prism-Shark**.
+
+My body is not a thing of flesh and blood, though I possess both. It is a study in refraction. I am shaped like a jagged shard of glass, a tapered wedge of hydro-dynamic violence. My skin is not scaled; it is composed of a dense, translucent silica plating, evolved over eons to mimic the sheen of the ruptured pressure-viewports that litter the seabed. When the arc-welders strobe in the distance, lighting up the dark like silent lightning, I do not cast a shadow. I *become* the light. My body catches the distant glare and splits it into cold, razor-thin beams of turquoise and violet.
+
+To the Silver Shivs, I am not a predator until it is too late. I am just another piece of industrial debris, a floating pane of polymer or a sheet of scrap metal, drifting in the current. They swarm around me, thinking me safe, their metallic exoskeletons flashing in the gloom. I do not need to chase them. I simply wait. I wait for the water to carry them into my "stillness."
+
+My method of killing is born of this sharp, young world. I possess no teeth, no grinding molars. My jaws are fused into a single, elongated mandible—a beak of diamond-hard obsidian that runs the entire length of my underbelly. It is a guillotine. I do not bite; I slice.
+
+When the massive pumps in the distance surge, creating a sudden, violent current, I align myself. I become a blade in the water’s hand. I use the surge to propel myself forward, angling my body so that I pass through a school of Shivs. There is no struggle, no thrashing. I simply move, and the water around me turns red with mist. The Shivs are cleaved in two instantly, their hard silver shells parting like wet paper before the keenness of my passage. Then, I stop. I drift. I circle back to inhale the cloud of organic slurry and metallic chunks that remains, filtering it through the gills that line my sides.
+
+I am solitary. The noise of the Sump—the thrumming, the grinding, the slamming—is my music. I have learned to read the vibrations. I can feel the "heartbeat" of the intake valves miles away. I know when the great tides are about to shift not by sight, but by the tickle that runs through my silica skin. It tells me when to seek the cover of a jagged outcropping of rusted I-beams, and when to venture out into the open terror of the void to hunt.
+
+Sometimes, in the lull between the machine-cycles, when the water is still and the gloom is thickest, I hover motionless near the surface of a bulkhead. I watch the Gear-Grippers climbing the shadows above. They are clumsy, heavy things. They rely on brute force and hooks. I rely on the world's inability to see what is right in front of it.
+
+I am the hidden edge of the Sump. I am the shard that waits in the current. I am the Prism-Shark, and in this world of grinding gears and crushing pressure, I am the only thing that cuts cleaner than the dark.

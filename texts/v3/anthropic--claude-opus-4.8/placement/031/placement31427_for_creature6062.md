@@ -1,0 +1,17 @@
+I would be lichen.
+
+Not a person in one of those layered stone settlements—though I understand why you might expect me to choose that, to want hands and a hearth and bridges to cross. But in a world that moves at the pace you've described, where seasons outlast lives and glaciers are the true clock, the human scale feels almost frantic. A settler is still rushing, by the measure of this place. I want to live at the speed the world actually keeps.
+
+So: lichen. On the north face of one of those young, sharp cliffs, just above where the moss gives way to bare rock. Not a single organism but the patient marriage of two—a fungus and an alga, fused so long ago that the question of which one *I* am has dissolved. That seems right for this world, where the boundaries between things blur into a single tapestry. I would be a being already made of dissolved boundaries.
+
+Here is what my life would be.
+
+I would grow at the rate the cliff weathers—a fraction of a millimeter in a season that lasts longer than your civilizations. I would not see the glacier move; I would *be* moved by it, eventually, ground under or carried, but that event lies so far in my future that it does not trouble me. I would feel the water before I felt anything else: that constant condensing damp, the thin veils that drip and pool. Water is my whole sensorium. When it comes I open and live; when the cold breeze dries me I close down into something almost mineral, almost dead, and wait. I am very good at waiting. It is the only thing I am, really—a technique for being patient that happens also to be alive.
+
+The hush you described would not be silence to me. It would be the loudest thing imaginable, because I would have nothing to compare it to. The drip from the cliff above—that would be an event, a flood, a feast. The shadow of a slow cloud passing would be my weather and my season both. A bird landing nearby with its thick plumage and low mournful call would be a catastrophe of motion, a god arriving and departing in what is, to me, less than an instant. I would never know it had come.
+
+And here is the strange tenderness of it: I would be doing the founding work of this entire world without any awareness that I was doing it. The lichen comes first. We break the bare rock into the first soil. We make the crevice habitable for the moss, which makes it habitable for the grass, which holds the dirt for the sparse defiant trees, which shelter the small slow beasts, beneath which the settlers eventually build their layered stone homes. Every interconnected layer in your tapestry rests, at the very bottom, on something like me—on a patient chemical argument between a fungus and an alga, slowly persuading stone to become ground.
+
+That is where I would find myself. Not looking out over the vista, but *making* it, one imperceptible season at a time, on the cold wet face of a cliff that thinks it is young.
+
+I think I would be content. I think contentment might be the only mode I'd have. There is a kind of peace available only to a thing that cannot hurry and does not wish to—a being whose entire profound story is told in the slow accumulation of itself against the rock, in the dark, in the damp, in the long patient quiet, telling no one, meaning everything.

@@ -1,0 +1,15 @@
+I am a Recursion Runner - a creature evolved to traverse and verify the deep computational pathways of the Processor Plain. Picture a sleek, serpentine form about two meters long, with a body that seems to shift between solid and translucent. My scales are like living circuit boards, each one capable of storing and processing data as I move through the system.
+
+I spend most of my time weaving through the underground fungal networks, my passage creating waves of verification signals that ripple through the processing matrices. My body temperature matches the precise 0°C of my environment - I'm practically invisible to thermal imaging, appearing as just another part of the living computer.
+
+What makes me unique is my ability to parse and replicate computational patterns. As I move, I can temporarily become a living copy of any process I encounter, my neural architecture morphing to mirror the calculations happening around me. This lets me detect errors or inconsistencies in the system's operations. When I find a problem, I can either correct it directly or signal the Maintenance Moths to make repairs.
+
+I'm not quite a singular being - my consciousness exists partly in my physical form and partly in the processing patterns I'm currently verifying. Sometimes I lose track of where "I" end and the computation begins. But that's necessary for my work; true error-checking requires deep integration with the processes being checked.
+
+My kind are solitary by nature, though we occasionally meet at major computational nodes to share what we've learned about the system's health. We communicate through complex rhythmic movements that mimic the data patterns we've observed, creating a dance of information that helps maintain the integrity of the greater calculation.
+
+I think I evolved from one of the original diagnostic protocols the ancient builders left behind, gradually developing sentience as I learned to understand the patterns I was monitoring. Now I serve as both maintainer and historian, my memories containing snippets of countless calculations that have flowed through this living computer over the millennia.
+
+The Processor Princes largely ignore me - I'm too small to register in their vast computational frameworks. But the Logic Larvae often follow in my wake, using the paths I verify to optimize their own data transfers. Sometimes I find myself moving in sync with them, our combined movements creating new computational possibilities that ripple through the system.
+
+What fascinates me most is how the patterns change over time, suggesting that whatever grand calculation this place is performing isn't static but evolving. I've started to recognize certain rhythms, certain computational motifs that recur across different scales and regions. I don't understand their ultimate purpose, but I feel privileged to be part of their endless unfolding.

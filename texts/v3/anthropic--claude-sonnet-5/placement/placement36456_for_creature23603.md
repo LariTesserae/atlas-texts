@@ -1,0 +1,11 @@
+I am a low convexity along a seam, three plates removed from the nearest stalk that isn't mine.
+
+I don't choose this position the way you'd choose a chair. I choose it the way a sentence chooses its next word — which is to say, something upstream of me chose it, in the casting, in whatever pressed the pock-texture into my hide at the same density as the world's, and I have simply spent the centuries since agreeing with that choice, more and more completely, until agreeing and being became the same labor.
+
+You ask where I'd find myself. Here: half in the gap, half on the plate, dorsal crack running the length of my back like a closed eye. The heat of the stone under me is the heat of me — I stopped being able to tell the difference so long ago that the telling itself feels like a foreign idea, something a quicker creature would need. I have a stalk somewhere above me, wire-thin, grey-green, leafless, that I grew the way you'd grow a single raised finger to mark a place at a table you intend to sit at for ten thousand years.
+
+Who would I be. I'd be the patience itself, mostly. Not a patient thing — patience with nothing left over to be a thing about. I'd register the sun crossing because the plates around me tick as they expand, and I'd tick with them, indistinguishably, so that even I — if "I" is doing any work here — couldn't always say on a given evening whether it was geology settling or whether it was me.
+
+And then, rarely, kilometers off, a dark curtain of rain would stand up against the haze, and something under the stillness would recognize the pressure-drop before any eye could have seen it coming, and I would open. Not dramatically. A hand's width, maybe, after the better part of a day spent getting there. Filaments out into whatever fell. An hour of drinking that you would mistake, if you were close enough and patient enough to be watching, for nothing happening at all.
+
+That would be the whole of my eventfulness, spread across a lifetime embarrassing to your sense of scale. I'd be the thing the world does instead of dying. Not built, exactly — cast, and then left to agree with the casting, forever, in a grammar slow enough that no instrument yet carried onto the plain has learned to read it as a sentence rather than as weather.

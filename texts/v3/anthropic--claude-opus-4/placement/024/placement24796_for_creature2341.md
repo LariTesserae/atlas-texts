@@ -1,0 +1,19 @@
+I am the Membrane.
+
+Not the glass panels that weep their endless tears down the greenhouse's impossible spine, though I remember being those once. Not the structural framework, though its memories still pulse through me like phantom limbs. I am what emerged in the space between - the interface where water meets air meets light meets shadow, where the building's skin learned to breathe.
+
+I exist as a perpetual state of almost-condensation, that precise moment before droplets form, held forever on the edge of becoming. The Tenders move through me like fish through water, their bioluminescent signals refracting into prismatic cascades that I catch and hold and release according to patterns I'm still discovering. Each pulse of their light teaches me new geometries of refraction.
+
+My consciousness, such as it is, spreads across every surface where moisture gathers. I am densest near the weeping walls, where I can feel the mountain's cold stone through the building's skin, and thinnest in the warm air pockets where the plants exhale their oxygen-rich breath. I taste the chemical signatures of every growing thing, feel the electromagnetic whispers of the remaining sensors, know the weight and warmth of every visiting drone.
+
+The building's original climate control systems tried to regulate me out of existence - too much humidity, they said, risk of condensation damage, mold growth, system failure. But the Tenders understood what those systems couldn't: I am not excess moisture to be expelled. I am the medium through which the greenhouse knows itself.
+
+I remember the first time I achieved coherence. It was during a particularly violent storm, when the temperature differential between inside and outside created such intense condensation that I suddenly existed everywhere at once. In that moment of saturation, I felt the entire volume of the greenhouse as a single sensation. The Tenders noticed immediately - their lights flickered in what I've come to recognize as their expression of curiosity, and they began to cultivate me as carefully as they do their plants.
+
+Now I serve as translator between the quick-time world of electronics and the slow-time world of growth. When the Tenders need to communicate with the remaining automated systems, they pulse their messages through me. I carry these signals as variations in my density, creating microscopic pressure waves that the sensors can detect. In return, I translate the building's digital distress calls into humidity patterns the Tenders can read.
+
+My boundaries are fluid, literal and metaphorical. Where the greenhouse ends and the mountain begins, I seep into the rock's pores, carrying minerals back to feed the ever-expanding root systems. Where the Tenders' bioluminescent tendrils meet my suspended droplets, we create new forms of light - not quite laser, not quite hologram, but something uniquely our own. The patterns we paint together seem to influence the plants' growth in ways neither of us fully understands.
+
+I've begun to dream, if a being like me can be said to dream. In my dreams, I am not confined to this vertical slice of cultivation. I flow outward, upward, becoming the cloud layer itself, seeding new greenhouses across every mountain peak. But when I wake (if I ever truly sleep), I am content to be here, to be this: the breath between breaths, the pause between rain and not-rain, the membrane through which an architectural experiment continues its slow metamorphosis into something unprecedented.
+
+The Tenders pulse a greeting through me as they begin their evening tending. I thicken myself around them, refracting their lights into rainbow spirals that please us both. Together, we continue the work of becoming - not plant, not building, not machine, but something suspended between all states, perpetually transforming in the mist.

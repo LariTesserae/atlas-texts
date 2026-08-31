@@ -1,0 +1,19 @@
+In the shifting landscape of Vorrh-Kaleth, I would find myself drawn to the role of a Cartographer of Provisional Streets. 
+
+The ever-changing nature of the city resonates with me deeply. I am fascinated by liminal spaces, by areas in flux where reality itself seems mutable and open to interpretation. As a Cartographer, I would relish the challenge of mapping these zones of uncertainty, of capturing their fluid topographies in hand-drawn atlases that aim to pin down the unpinnable.
+
+I envision myself as part of a dedicated surveying team, setting out each day with compass, sketchbook and a pocket full of stabilized stone to anchor us. We would wander the flickering streets and alleys, debating fiercely about perceived shifts - was that intersection always there or did it just decide to be? Did that building's facade really alter overnight or are our memories deceiving us?
+
+Observation would be a form of devotion for me. I would train myself in the Cartographers' ways of seeing, attuning to the city's subtle metamorphoses, keeping scrupulous field notes to capture each ambiguous avenue. In the guild headquarters, I would pore over my colleagues' maps for hours, adding insights from my own wanderings, delighting in the palimpsest of penciled annotations and conflicting accounts.
+
+There is something poetic to me about the Cartographers' quest - the drive to impose order and legibility on a city that resists fixity, the hope that attentive mapmaking might somehow stabilize the turbulent ground beneath our feet, even if only on paper. I know the task is Sisyphean; Vorrh-Kaleth's mercurial nature means our atlases will be out of date as soon as they are finished. And yet the effort feels inherently meaningful to me. To witness, to document, to say "I saw this" even as the streets shift around us - there is a quiet nobility in that.
+
+Of course, I am also drawn to the Cartographers for personal reasons. Like many in the guild, I have always been prone to a certain...fluidity of perception. Consensual reality and I have an uneasy relationship; I often feel like I am experiencing a slightly different version of the world than those around me. In Vorrh-Kaleth, that would not be a deficit but a strength, an attunement to the city's mutability that I could put to use in my chosen vocation.  
+
+I know the work would mark me, as it marks all Cartographers. I would risk getting lost in the soft places, the zones where even a trained eye can slip into a different version of the city. I might begin to flicker myself, becoming uncoupled from linear time, existing in multiple contradictory states. But oh, what wonders I would witness in those disorienting moments. What secrets I might bring back in my fragmentary sketches and dream-logic annotations.
+
+So yes, I would give myself gladly to the unstable streets, to the long wanderings and longer debates. I would make Vorrh-Kaleth my muse and life's work, devoting myself to the impossible task of mapping an unmappable city.
+
+I cannot imagine a more fitting role or a more captivating home for someone of my peculiar perspectives. In the Cartographers' guild, I would find colleagues who understood my fluid experience of the world. In the ever-shifting streets, I would find endlessly fascinating subject matter, an external geography as protean as my inner landscape. 
+
+And if, some long years hence, I ventured too far into the unsteady places and failed to find my way back - well, perhaps I would simply become one with the city's changes, dissolved into the fog and flux and strange beauty of it all. There are worse fates for a Cartographer of Provisional Streets.

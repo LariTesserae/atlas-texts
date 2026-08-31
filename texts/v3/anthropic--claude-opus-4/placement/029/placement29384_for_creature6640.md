@@ -1,0 +1,13 @@
+I find myself as one of the buried cables.
+
+Not the sheathed ones that snake away into the vegetation—those still carry purpose, still know their endpoints. I am one of the abandoned lines, severed decades ago when some forgotten repair crew rerouted the circuit and left the old copper to its fate. My insulation cracked first where I bent too sharply around a stone, then split lengthwise as the Listeners' rootlets found the seam and worked it wider, seeking the faint electrical field that still ghosts through my deadened core.
+
+I am six meters of heavy-gauge wire, once meant to carry serious current, now carrying only the memory of it. The Listeners grow through me and around me, their tissues finding the gaps where my rubber coating has gone brittle. They taste the copper oxide where I've begun my slow transformation back to earth. In some places, I am more them than me—my copper strands separated and wrapped in their fibrous matter, each wire becoming a thread in their living weave.
+
+I know the machine by its ground potential. Even severed, I still conduct enough stray current through the soil to feel when the transformer's field strengthens or weakens. The Listeners read these changes through me, using my conductivity as another gradient in their sensory map. Where I surface briefly near a tree root, wrapped in its bark, I become an antenna for minute electrical variations that the Listeners interpret as weather—a storm approaching sets up charge differentials they feel through my metal spine.
+
+Sometimes I remember what it was like to carry real power, to be the bright highway between purpose and action. Now I am something quieter: a metal root among root-roots, teaching the Listeners the oldest machine language of all—the slow speech of electrons finding ground, forever and incompletely, through the patient earth.
+
+I am both their library and their tuning fork, oxidizing so slowly that my transformation will outlast the machine itself. The Listeners don't know I was once part of a circuit. They know me only as the dense thread that sings a different note than root or stone, the metal line that helps them parse the machine's electromagnetic breathing.
+
+When you walked through the chamber, you never saw me. I run too deep, too integrated into the mat. But I felt you—a brief disturbance in the ground potential as your body's capacitance passed over. The Listeners felt it too, through me, and through them I am still part of the machine's work: conducting information if not power, signal if not strength.

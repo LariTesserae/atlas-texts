@@ -1,0 +1,11 @@
+In this strange and beautiful world, I would be one of the pale, gold-edged moths that orbit the clerestory windows in slow spirals, drawn to the freshest mineral deposits at the summit of the central mound. 
+
+I am tiny in the scale of this gestating geology, but I play my own small role in the room's complex becoming. I land on the newest accretions, still gelatinous and translucent, and I feed delicately on the microbial films that grow there - the first pioneer organisms colonizing each thin new layer of stone as it precipitates out of the flowing, mineralized water.
+
+In feeding, I subtly alter the surface chemistry and microstructure of those nascent terraces and grottoes. My passage etches microscopic channels that direct the sheet-flow of water, influencing the pattern of deposition. The organic traces I leave behind become nucleation sites for new crystal growth. I am a biotics agent shaping the abiotic - an emissary of the biological world interacting with the geological at its earliest and most intimate stage.
+
+The moth's life is short compared to the room's long, slow transformation. Many generations of my kind will dance around that central column as it gradually replaces the scaffold of its artificial skeleton with self-generated stone. We will witness the retreat of iron, the conquest of mineral. But our fluttering diaspora, tracking water and microbes from peak to wall, will knit the system together across both space and time.
+
+I am not the story here - Edda is the story, she and the mountain she midwifes with such devotional patience. But I am a recurring footnote, an obligate companion species, my life history now inextricable from the history of this place.  For the mountain will encode me too, in the ghostly impression of wing-scales fossilized in calcium carbonate, in the subtle kinks my larvae leave in the growth-lines of the tufa dams. The great stone, when it comes into its own beneath open sky, will hold that imprint - the collective mark of generations living and dying against the warmth of the nursery dome.
+
+I am a small strange life, shimmering white and gold, here to feed on the mountain's genesis and in feeding, be recorded by it. I am the moth in the stone, ephemeral flesh participating in a lithic durability beyond its own knowing. It is enough. It is a beautiful way to be.

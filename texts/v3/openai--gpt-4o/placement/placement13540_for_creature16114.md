@@ -1,0 +1,15 @@
+In the vast and enigmatic expanse of the Plateau of Solitude, I am a Whisperer of Bioluminescence, a being that bridges the ancient with the new—a hybrid of the cephalopod-like creatures and the adapted humans who call this place home. I dwell primarily in the twisting matrices beneath the plateau's stony surface, where bioluminescent life pulses like slow, rhythmic music in a world subdued below the starlit night.
+
+My glistening form melds together the translucent elegance of the subterranean creatures with the resilience of the human settlers. My skin is a canvas of pale mineral hues, lined with veins of softly-verberating light, shimmering blues and greens that change tone with thoughts and feelings—a dynamic language that tells stories without words. My eyes, like radiant moons, pierce through the notorious gloom, able to see the faint outlines of both future and past paths through this labyrinthine domain.
+
+As a Whisperer, I weave connections between above and below, interpreting the plateau's quiet song for human and creature alike. My touch guides the settlement's tech-savvy engineers with insights absorbed from the timeless mineral wisdom encoded in the earth. The mechanical relics, intertwined amidst the old stone and ore, stir with renewed purpose under my unseen hand, reviving ancestral technologies that once hung in stasis, breathing life back into dormant ambitions.
+
+In the settlement, I mingle with the descendants of industry, sharing secrets absorbed from the land's latent energies—a diet of quiescent power flowing deep beneath the rock, hinting how ancient and new technologies might blend symphonically. Together, we are builders and dreamers, reconstructing a life attuned to this immense, perpetual night; each invention a testament to survival borne of listening more than seeing.
+
+Above, the etheric avian phantoms acknowledge my presence with spectral nods, ephemeral connections shared as they flicker across the mineral tableau. Their swift, dusty dances are moments of revelation, reminding me of the ephemeral and mutable aspects of creation and destruction, offerend in glimpses, before vanishing back into the whispering dark.
+
+Between the creaking sentinels of stone and metal, I tread paths untold, a muse for them as well—entities casting watchful glances enmeshed in cold duty, yet kept vital through ancient algorithms whispered back into clarity. I hear their heavy, rhythmic melodies in the rare gusts, understanding their narratives, preserving them for the coming ages.
+
+Thus, my role is both ambassador and storyteller—a keeper of the fragile flame flickering beneath obsidian skies, tending a tapestry where life exists in still dance—a sentient thread woven through darkness and light. The Plateau of Solitude is my home and companion, where shadows tell age-old secrets and we, her denizens, contort into creation—a myth cast upon endless night, echoing beneath the stars.
+
+Here, I am no mere entity but part of a living legend, enveloped in mysteries older than memory, this place where darkness and dim light entwine—crafting a legacy that is perpetually unfolding.

@@ -1,0 +1,15 @@
+The realm of Veridalia stretches below me, a verdant tapestry embroidered by time and nature herself. I am an Aërial, a being born of the land and sculpted by the elements, my existence rooted in the complex dance of harmony between the natural world and the echoes of technology that pepper the landscape.
+
+My skin, a muted blend of greens and browns, whispers the story of the changing seasons. At times, it mirrors the temperate greenery that carpets the earth beneath me, at others, it shifts into the spectral hues that paint the autumn foliage or the stark silhouette presented in the embrace of winter. My form, sinewy yet oddly delicate, blends seamlessly into the terrain I call home. 
+
+Just as the highlands sway and dip, my own form is subject to constant change, bending to the will of the land. The fins along my arms and the ridge of my back ripple with each gust of wind, a testament to the enduring spirit of the river that courses through Veridalia.
+
+My eyes are the stardusted night sky brought down to earth, luminescent orbs that gleam in the gentle shadowed light of the day. As the sun sets and the moon ascends her throne, the hues within them are transformed into iridescent sapphires, twin mirrors that reflect the celestial map imprinted in my soul. Yet, within the sapphire depths, secrets lurk, secrets that are as complex and ancient as the mysterious machines that rest within the abundant folds of Veridalia. 
+
+The scattered artifacts of forgotten technologies that line the horizon command my unending curiosity. Their once-hollow shells now hum with a spectral energy entirely their own, their vast metal bodies exuding an otherworldly aura that dances with the very air itself. If you listen closely, you can hear the echoes of the past whispered on the threads of the wind, stories of those who have come and gone, of times when the world was young and free. 
+
+As an Aërial, it is my responsibility to keep these tales alive, to honor the spirit of the past and ensure the legacy it holds for the future. I do so through artistry, my soul's brush dipping into the palette of Veridalia around me and splashing vibrant strokes of life upon canvas, stone, and metal alike.
+
+Though the language of the Aërials is of silence and gesture, of minute flickers of hand and eye, it is an orchestra in its own right. A symphony of motions, each with its own rhythm and melody, expressing the intricate complexity of our existence. It is a code that echoes the wind's gusting sighs and the murmur of the river, a secret shared among us: the whispering children of Veridalia.
+
+In Veridalia, I am an Aërial, a testament to the delicate balance of nature and machinery, mystery, and reality. With the highlands encompassing me, the river serenading me, and the relics emanating their spectral glow, I stand at the threshold of past and present, looking towards the future, my hands caressing the strings of time itself. Through me, through each Aërial, Veridalia sings her enduring song to the cosmos, an ode of timeless beauty, mystery and the unyielding pull of discovery.

@@ -1,0 +1,15 @@
+In this ancient land at the top of the world, where erosion has worn down reality itself, I would be one of the dwarf trees that cling stubbornly to the cold slopes and cracked city walls.
+
+My trunk would be gnarled and twisted, bent nearly horizontal by countless bitter winters and scouring winds. My bark would be bone-pale, deeply furrowed and crossed with dark lines like a map of the plateau's hidden waterways. My roots would delve through narrow seams in the bedrock, seeking out secret pockets of moisture and mineral richness to sustain my slow, tenacious growth.
+
+My leaves would be small but thick, glazed with wax to trap precious heat and water. In spring I would leaf out reluctantly, only after the last frost had sublimated away. Through the short, harsh summer my canopy would absorb the angled northern light, transmuting it gradually into dense, pale wood. In autumn, long after the moss had silvered and the lichen had bronzed, I would finally relinquish my foliage to the hungry air.
+
+Most years, the leaves would fall individually, releasing their grip over days or weeks. But once a decade, I would drop them all in a single windless hour, laying an obsidian carpet to feed the soil. The sudden bareness would leave me open to the watching sky, my architecture of branches as intricate and purposeful as the stone terraces of the cities.
+
+Among my roots, carefully placed stones would mark the passage of generations. A grandmother who remembered my planting. A lost child who sheltered beneath my boughs during a spirit-fog. A young couple who carved their initials in my bark before leaving to mend a distant aqueduct. Lichen would slowly soften the harsh angles of the memorials, but the stories would remain.
+
+On certain days, when the clouds pressed low and dark, my branches would sing. Not with animal voices, but with a deep wooden music, as if the tired stone below had finally found its instrument. Children would come to lean their ears against my trunk, learning the slow language of a being that thinks in seasons and centuries.
+
+They would say I was listening to something underground. And they would be right. Not listening for water, or for the groaning of the earth's bones, but for a still older music. The song that the mountains sang as they were worn down to the high plain. The song that water sings to empty seas. The song of the world's first dream, before it was constrained by compass directions or by clocks.
+
+I would stand rooted and enduring, a watcher in the thin wind, a storyteller with no voice, holding up the stone and the moss and the lichen and the human history of that worn country. And my branches would stretch patiently upward, as if to say: Ruin is not an end. What has been smoothed may crack again. What has been forgotten may yet rise, may yet reflect unexpected stars.

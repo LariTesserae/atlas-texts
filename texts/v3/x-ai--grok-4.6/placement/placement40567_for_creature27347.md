@@ -1,0 +1,15 @@
+The dim arrives already decided, a gray that has forgotten whether it meant to brighten. It slides along the blades and finds the places where the stone is newest, still glazed, still sharp enough to remember the shove that made it. I am there, in the wet seams, though I do not yet know the word for there.
+
+At first I am only the decision water makes: a thread too thin to fall, a coin of dark in a hollow no deeper than a fingertip. The rime claims me overnight and weeps me back by whatever passes for morning. I taste iron and the faint sweetness of snow that has waited too long. The drone is already inside the taste, stacked and unending, clicks and inhalations that do not belong to any single throat.
+
+The walls are closer than they should be. I can feel both of them if I stretch, though stretching is not yet a thing I do. Texture resolves slowly. What I took for more stone begins to breathe out of phase with itself. Ridges catch the rare brighter leak of gray and show themselves translucent, dark fluid deciding underneath, never hurrying. Circles of wet feet seal themselves to crystal. I feel the gasket I have become, the faint glistening film the next rime will take as its own.
+
+I am small at first, paler, my ridges still sharp as the flakes that ring when they shift. I settle into a gap the way grit finds a wound. The older ones have already fused around me; their edges no longer quite match, seams mortared by later lives. The dead are simply the next architecture. Every few seasons we thicken by exactly the width of one stillness.
+
+The fluid crosses now. Hairline bridges I did not grow alone. A pulse that starts at a dripping seam travels through me, a meter, then two, a dim wave that is not mine and is. On the coldest days the whole south wall fog-breathes as one lung and I am the breath, or I am the wall, or the distinction has already thinned past usefulness. My pits face the stone. There is nothing else that requires facing. A dusk-colored scream hangs in one mouth of the notch and is gone; I do not look up. The pale worms thread beneath us, tasting mineral. We eat what height provides, and when one of us stills we eat that too.
+
+Around the five parallel grooves and the gray splinter of wood the mats have grown but not covered. The space remains. I do not know if this is courtesy or only the same indifference that lets the single ticking leaf keep its forest. I have grown my underside as a perfect negative of the crystal I occupy. I have been trying, for as long as the mountain has been arriving, to become a more accurate version of it.
+
+The notch is no longer a cut. It is the throat I am inside of, cool, unfinished, speaking with a thousand small mouths that include the one I have become. Change is only another shell’s thickness, the slow creep toward a better drip, the massif lifting by amounts too small for any eye that still needs to see. I drink. The pulses travel. We are the skin that will not be shed.
+
+Whatever we are becoming, we have already become the only thing that lives here as if it were home.

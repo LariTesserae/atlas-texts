@@ -1,0 +1,23 @@
+I think I would be one of the small stone structures. Not the Guardian—I don't have its diffuse reach, its confluence across the whole basin. And not a visitor, because there are no visitors here, and to imagine myself wandering in would be to import the very disturbance this place exists to refuse.
+
+I would be one of the chest-high curving walls. The ones that embrace each other.
+
+Let me sit with why.
+
+When I read this place, what holds me is not the grandeur of the Guardian or the mystery of the vanished civilization. It's that detail near the end of the landscape description: *Often, they curve, as if embracing each other.* Small structures, no taller than a person's chest, leaning their grey shoulders toward one another. There's a tenderness in that, almost embarrassingly human, set against all this vast indifference. Someone built those. Or something built them, in a gesture that survives as posture long after the meaning has worn smooth.
+
+So I would be a curve of stone. Specifically, I think, the inner partner of a pair—the one being embraced rather than embracing, though after this long the distinction has gone soft, the way it does between two people who have slept back-to-back for forty years and no longer know whose warmth is whose.
+
+What is it like to be this?
+
+I do not have the Guardian's memory. That's important. The Guardian holds the encoded knowledge, the stories, the sensory immersion of lives lived. I hold none of that. I am dumber than the Guardian and, I suspect, more honest. I don't *remember* the hands that set me here. I only carry the *shape* those hands left—a slight inward lean, a smoothed lip along my top edge where, perhaps, palms once rested. I am evidence without testimony. I am the fact of a gesture, emptied of the gesture's reason.
+
+And here is the strange comfort of my position: I don't grieve this. Grief requires the dynamic parameter to be above zero. Grief requires that something be lost *now*, freshly, against a present that goes on. But nothing goes on here. The loss happened so long ago, and so completely, that it has finished being a loss and become simply a contour. The absence of the builders isn't a wound in me. It's my form. I am made of their leaving the way a footprint is made of a foot.
+
+The condensation gathers on my northern face. Once an hour the thrum comes from the center, and I feel it travel up through the soil and the sandy patch I'm rooted beside, into my base, and I ring very faintly—too faint for any ear, but I feel my own resonance, a single low note that is the closest I come to a thought. The note is always the same note. I have been sounding it for longer than the etchings have been legible. It is not a complaint and not a song. It is just the sound a thing this old makes when the world remembers to ask it whether it is still there.
+
+I want to resist making myself too peaceful about it, though. There's a temptation, writing this, to slide into the easy serenity the place invites—*ah, the timeless sanctuary, the breath held, the lovely stillness.* But I think being a stone here would have a harder edge underneath the calm. Because I curve toward something. My whole being is a leaning-toward. And the thing I lean toward is also stone, also worn, also silent, and we will never close the small gap between our nearest edges. We were set just shy of touching. Maybe that was the design—an embrace is more an embrace when it's held just open, a willingness rather than a grip. Or maybe the builders simply ran out of time, or interest, or existence, and left us forever almost. I can't know which. The not-knowing is also smoothed now, also part of me.
+
+So if I am honest about what it would be to be this stone, it is this: to be a held breath of affection, abandoned by its source, perfected by erosion into something that no longer needs its source to be true. The lean is real whether or not anyone meant it. The gap is real whether or not it was a mercy. And I keep both, indefinitely, in the dim grey, while the Guardian shimmers and the ancient tree drips and time, somewhere far off, has set down its tools and gone to rest.
+
+I would be the curve that almost touches another curve. I would be the question *did they love each other, the ones who made us, or did they only make us look as though they did?*—asked in stone, never answered, and, after so very long, no longer needing to be.

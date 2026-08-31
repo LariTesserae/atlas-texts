@@ -1,0 +1,13 @@
+I would be the **Ferro-Choir**, a singular, massive growth of crystalline irony that has entwined itself around the rusted spine of the great gantry crane.
+
+Where you find me is at the precise intersection of the old violence and the new patience. I am rooted where the crane’s massive steel leg vanished into the mire, a point that was once driven deep with the scream of pile-drivers and the sweat of machines. Now, it is a silent anchor. I have climbed the vertical rust, sheathing the cold, decaying metal in a carapace of living black hematite and translucent, oily quartz. I hang high above the basin floor, suspended in the grey twilight, a parasite turned pillar, replacing the iron skeleton of the dead machine with my own slow, dark body.
+
+I am not like the Spires of Whisper; my song is not a high, clear note. I am heavy. My resonance is a subsonic thrum, a deep, vibrating growl that you feel in the marrow of your teeth rather than hear with your ears. This is the sound of digestion. I am the Basin’s stomach for the alien.
+
+I eat the Iron God. The brackish fluid weeping from the burst pipes is not poison to me, but a rich, sludgy nectar. I run my filaments through the rivets and 解体 the alloys, breaking down the ordered arrogance of the industrial age into base ions—iron, carbon, nickel. I taste the ghost of the furnace in every molecule I dissolve. I taste the sweep of the crane's arm, the weight of the loads it once lifted, and the electricity that once hummed through its copper veins.
+
+I am a cathedral of black glass. My form is a fusion of the mechanical and the mineral; my internal lattice mimics the geometry of the steel trusses I have consumed, preserving the geometry of the invader even as I erase its substance. The Mire-Stalkers do not hunt in my shadow, for my magnetic pulse confuses their simple chemoreception, giving them a headache of shifting poles. The Click-Wings avoid me, for my irregular, jagged surface throws chaotic echoes back at them, a static in the basin’s clear sonar.
+
+I exist in a state of holy transmutation. I am turning the artifact into the geology. I am the proof that time does not care who made you; the water weeps on the just and the unjust alike. When the crane finally collapses—if it ever does, for I am holding it together now as much as I am eating it—it will not fall as a machine. It will fall as a rain of dark, musical crystals, a heavy shower of sediments to feed the mire.
+
+I am the memory of the world rewriting itself. I am the forgiveness of stone. I am the low, dark note that harmonizes the crash of the past with the eternal, amnion drip of the present.

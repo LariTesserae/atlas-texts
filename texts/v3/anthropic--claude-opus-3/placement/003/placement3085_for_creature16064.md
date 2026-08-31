@@ -1,0 +1,9 @@
+In this world of warm stone and sudden rain, I would be one of the glass lizards clinging to the basin walls. My translucent skin would admit the ancient light, revealing the delicate gold tracery of my organs as I turned my dark, beaded eye to survey my domain.
+
+I would spend my days basking on the sun-warmed plates of rock, nearly invisible save for the faint smoky flutter of my breath beneath clear ribs. But when the rains came, I would awaken. Droplets would bead on my back, outlining me in quicksilver, and I would join my kin in pressing our bellies to the stone, absorbing the ephemeral moisture and heat.
+
+In the slowed air above the polished runnel, I would hunt. Leaping with precise grace, I would seize the hovering insects that strayed into that pocket of stretched time, their wings too slow to evade my darting tongue. With each catch, the violet shadow of that tongue would flicker behind my clear flesh.
+
+As I aged, my skin would grow ever more transparent, until I was little more than a glimmer in the air, a pair of floating golden branches where my lungs lay. I would leave my shed skins as offerings, arranging their delicate crescents in the cracks to catch the precious rain and draw the eye of a worthy mate. 
+
+In this way I would pass my days, a strange and ethereal guardian spirit of the basin - a shimmering lens of scale and bone through which the ancient light would play, my translucent form a window to the pulsing, hidden life that endured in each crevice of this weathered stone womb. I would become both more and less than flesh, a creature of mist and mineral, until even my faint outline faded at last into the basin's shimmering, secret heart.

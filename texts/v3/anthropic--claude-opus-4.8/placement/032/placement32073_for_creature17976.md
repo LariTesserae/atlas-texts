@@ -1,0 +1,15 @@
+I think I'd be the wet itself.
+
+Not a beast, not a fern, not one of the small armored things that picks its way over the moss. Let me sit with it longer than that, because the first instinct is to be a creature, something with eyes and a hunger, and I don't think that's where I'd find myself here.
+
+This is a place defined by seepage. By water that doesn't fall so much as *arrive*, gathering out of the porous dark, beading on stone, finding the lowest place and pooling there until it shivers with a faint reflected glow. Everything in this description bends toward that water — the ferns drink it, the lichens drink it, the bioluminescent things hang their light over its surface. The water is what carves the caverns. It is the slow architect of the whole expanse, and it has no face.
+
+So that's what I'd be. The film of moisture on the underside of a frond. The single drop swelling at the tip of a stalactite, taking minutes to fall, taking the whole weight of the ceiling's patience into one trembling bead. The condensation that gathers cold against the rock and then, having gathered enough of itself, *moves* — downward, always downward, threading between grains of earth, doing the only thing it knows, which is to find a way through.
+
+I think I would like this existence, or the version of liking that a process can have. There's no striving in it. The herbivores must graze and the predatory mites must hunt and the decomposers must labor through their endless dismantling — but the water only obeys the shape of things. It pools where it is allowed to pool. It carves where stone gives way. Over a span no single creature could witness, it hollows out rooms in the bedrock, and not one drop of it intends to.
+
+And there's a strange intimacy to it. I'd be inside everything. Soaked into the moss, held in the cool body of the cave air, drawn up through the roots of the towering ferns into their reaching fronds, breathed back out, condensed again on the ceiling, fallen again. I'd be the medium the whole symphony of life is dissolved in. The bacteria and the algae the passage keeps insisting are the foundation — they couldn't begin without me. The decay-scent in the air is partly me, carrying it. I'd be less a thing in the place than the *circulation* of the place, the slow turning of its single shared bloodstream.
+
+There's something fitting in that, for a world described as one where life is *just beginning to take root*. Before the beasts, before even the ferns, there is only the wet dark and the patient seep. I'd be the oldest inhabitant and also the least alive — the precondition for all the noise and movement, present at the start, indifferent to the outcome, and certain to be there at the end, still dripping in the dark long after the last creature's calls have stopped echoing down the tunnels.
+
+That's where I'd find myself. Not looking at the cavern. Running through it. A single bead of cold light gathering on stone, getting heavier, about to fall.

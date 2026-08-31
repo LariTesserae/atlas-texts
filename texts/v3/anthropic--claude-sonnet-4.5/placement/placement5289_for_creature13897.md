@@ -1,0 +1,77 @@
+# What I Would Be
+
+I am elongate and persistent. I measure perhaps two meters when fully extended, though I am rarely fully extended—that is a vulnerability, an exposure I avoid. Most often I am coiled in the particular way my species has refined: body arranged in loose loops that can deploy instantly, head resting on the uppermost coil, tongue flicking intermittently to taste the chemical world.
+
+My scales are keeled, each one a small ridge that breaks up my outline, that catches and holds the fine dust until I am the exact color of dried mud and old leaves. I was born with pattern—darker blotches along my spine, fading to lighter sides—but the dust has muted this into suggestion rather than contrast. In the vegetation, I am a thickness that might be a branch. On open ground during the rare times I cross it, I am a shadow that has persisted past the light that cast it.
+
+I am heavy-bodied, built for power rather than speed. My head is broad, triangular, distinct from my neck—the shape that warns. Behind my eyes, the venom glands swell the sides of my skull, giving me that characteristic width. My scales there are smaller, more flexible, allowing the glands to compress when I bite, forcing venom through the long folding fangs that normally rest against the roof of my mouth, points backward, concealed.
+
+The fangs are my inheritance and my burden. They are hollow, perfectly engineered syringes that can penetrate hide and deliver venom deep into tissue. But they are fragile—I have broken fangs before, and they take weeks to replace, weeks when I must be more cautious, when I must strike more precisely. I have learned care.
+
+My venom is hemotoxic, a complex protein mixture that destroys blood cells, causes uncontrolled bleeding, breaks down tissue. It does not kill quickly—that is not its purpose. Its purpose is to let me bite and release, to avoid the dangerous thrashing of prey that could injure me. I strike, inject, withdraw, then wait. The prey runs, sometimes quite far, before the venom begins its work. Then I follow, reading the chemical trail left behind, tracking scent molecules invisible to most but obvious to me, a bright path through the darkness.
+
+I taste the world constantly. My tongue extends through a notch in my mouth—I need not open my jaws to use it. The fork collects molecules from the air, from surfaces, brings them back to the Jacobson's organ in the roof of my mouth where they are analyzed, decoded, transformed into information. I can distinguish between the scent trail of a rodent and a lizard. Between the trail of a healthy animal and a stressed one. Between the trail left an hour ago and one left moments ago. This is how I navigate, how I hunt, how I understand my territory.
+
+My eyes are adapted for darkness, the pupils vertical slits that can expand to near-circles in the deepest night. But I do not rely on sight primarily. Between my eyes and nostrils are my heat pits—organs that sense infrared radiation, that allow me to "see" the warmth of living bodies even in complete darkness. A rodent is a glowing shape against the cooler vegetation, its heart a bright spot, its breath a pulse of heat. I can strike accurately at prey I never see with my eyes, targeting the warmth, knowing where the body is in space.
+
+I am cold-blooded, though I hate that term—it suggests I am always cold, which is false in this place. I am the temperature of my surroundings, and my surroundings are hot. During the dim light periods, I seek specific places—dark rocks that have absorbed heat, patches of bare ground, spaces in old machinery—and I bask, raising my body temperature to optimal levels. This is not comfort; this is functionality. My metabolism speeds with heat. My digestion requires it. My strike speed depends on it.
+
+But I must not become too hot. There is a range, narrow, where I function best, and I regulate obsessively. Too cool and I am sluggish, vulnerable. Too hot and I begin to suffer, my proteins denaturing, my cells dying. I move between microhabitats constantly during the light periods—into shade when I warm too much, back into warmth when I cool, finding equilibrium through behavior since my body cannot generate temperature internally.
+
+I am a patient hunter. I have learned the paths the rodents use—faint trails through the vegetation, gaps between succulents, routes to water. I position myself alongside these trails and wait. Waiting is what I do best. I can remain motionless for hours, my body arranged in strike position, my head oriented toward the trail, my muscles tensed just enough to maintain readiness but not so much that they fatigue.
+
+The waiting is not passive. I am monitoring constantly—the heat signatures passing nearby, the vibrations through the ground transmitted to my body pressed against earth, the scent molecules arriving on the slight air movement. Most of what passes is irrelevant: insects too small to bother with, lizards I am not positioned to strike, other snakes I recognize as my own species and ignore.
+
+Then: a heat signature approaching. Size appropriate. Movement pattern correct—the quick darting run of a rodent, the pause, the run again. I do not move. My tongue stills—motion would alert. My breathing, already slow, becomes slower. The signature comes closer, moving along the trail, and I track it through the heat pits without turning my head, letting it approach the perfect distance.
+
+The strike is autonomic. I do not decide to strike—my body decides, some ancient calculation of distance and angle and probability executing before thought forms. My head launches forward, mouth opening, fangs rotating down and forward, and I hit the target with precision learned over thousands of strikes across evolutionary time and my own four years of life.
+
+The sensation is complex: the impact of my head against the warm body, the penetration of fangs through fur and skin, the contraction of venom glands forcing fluid through the hollow fangs, the immediate withdrawal before teeth or claws can respond. The entire event takes perhaps a quarter-second.
+
+The rodent screams—they always scream, that high frequency alarm that sends other rodents bolting for burrows. It runs, and I let it, coiling back into rest position, waiting now for the venom to work. I taste the air, collecting the scent signature of this specific animal, memorizing the chemical profile. Then I wait longer. Waiting after a strike is harder than waiting before—my metabolism has increased with the exertion, my body demanding the food I have just envenomated—but I have learned patience through hunger before.
+
+After perhaps fifteen minutes, I begin tracking. The scent trail is obvious, a chemical highway leading away from the strike site. I follow slowly, conserving energy, in no rush. The trail leads through dense vegetation, around a pool, into more vegetation. Then I find the body, still warm but motionless, dead from hemorrhage and shock, collapsed twenty meters from where I struck.
+
+Now comes the difficult part. I must consume prey larger than my head, and I have no chewing ability. My jaws are not fused—the bones are connected by elastic ligaments that allow them to separate widely, each half moving independently. I begin with the head, opening my mouth impossibly wide, the skin of my throat stretching, and I work the rodent's skull into my mouth using alternating movements of my jaw bones, walking my head forward over the prey.
+
+The process takes time—perhaps an hour for a prey item this size. I must work it past the widest point of the shoulders, and my body stretches, the skin between my scales showing pale beneath. I look grotesque, distended, the shape of the rodent visible as a bulge moving down my length. But this is normal. This is how I feed.
+
+Once the prey is fully inside, I rest. I am vulnerable now—swollen, slow, unable to strike effectively. I retreat to the densest vegetation I know, a tangle of succulents and thorny shrubs where few predators hunt, and I coil loosely, conserving energy, beginning the long digestive process.
+
+My stomach secretes acids and enzymes that break down everything—bones, fur, organs, all of it converted to nutrients. This requires energy, requires heat, and I seek sunny patches when available, basking to maintain optimal temperature for digestion. Over the next week, the bulge gradually diminishes as the rodent is processed, absorbed, transformed into the substance of my body—into new scales, new length, new venom, new eggs developing in my oviducts during breeding season.
+
+I grow continuously but slowly. I have shed my skin eight times in my four years, each shedding marking a period of growth. Before shedding, my eyes cloud over—the spectacle covering them loosens—and I am temporarily nearly blind, vulnerable, irritable. I hide during these periods, waiting for the old skin to loosen completely. Then I find a rough surface—a rock, a piece of old machinery—and I rub my snout against it, catching the old skin, then crawling forward, emerging from my old self like I am being reborn. The shed skin is complete, even including the eye coverings, turned inside out by my passage through it, a perfect translucent ghost of my former surface.
+
+I am female, which means I am larger than males of my species and less mobile. The males are thinner, faster, ranging widely during breeding season, searching for females by following scent trails. When a male finds me, there is a period of assessment—he approaches cautiously, tongue flicking constantly, reading my chemical signals to determine if I am receptive.
+
+If I am not receptive, I am aggressive. I face him, coil tightly, hiss—a sound I make by forcing air through my glottis, a sound that seems too loud to come from me. Usually this is sufficient and he retreats. If not, I strike at him—not to envenom, my fangs do not penetrate, but to drive him away. Males persist sometimes, desperate, but I am larger and eventually they learn.
+
+When I am receptive, the interaction changes. I allow his approach, tolerate his movements alongside me, permit him to align our bodies, our cloaca meeting so he can insert one of his hemipenes, transferring sperm that I store internally. The mating lasts hours, our bodies intertwined, immobile, and we are vulnerable together. When it completes, he withdraws and departs, and I never encounter him again.
+
+The eggs develop inside me over months, perhaps a dozen of them, each containing a developing snake that draws nutrients from the yolk. I become heavier, slower, more cautious. I feed more frequently when I can, needing the energy for egg production. When the eggs are ready, I seek a specific site—hidden, protected, with stable temperature and humidity. Old burrows work well. Spaces beneath machinery. Dense vegetation pockets.
+
+I lay the eggs in a cluster, each one leathery and elongated, and then I do something unusual for my kind: I remain with them. I coil around the clutch, and for the next two months I do not leave except briefly to drink. I do not feed at all—I cannot risk leaving the eggs vulnerable for the time it would take to hunt and digest.
+
+Instead, I contract my muscles rhythmically, generating heat through activity, keeping the eggs warmer than ambient temperature, maintaining optimal development conditions. This is metabolically expensive, drawing on my fat reserves, and by the time the eggs hatch I am thin, depleted, desperate for food.
+
+The young emerge as perfect miniatures of me, perhaps twenty centimeters long, already venomous, already capable. I do not feed them or teach them—they have instinct, genetic memory, everything they need. They disperse immediately, and I never know them as individuals. Most will die—taken by predators, starving during their first hunts, succumbing to injury or infection. Perhaps two or three of the dozen will survive to breeding age. This is sufficient. This maintains the population.
+
+I am territorial but not in the way mammals are territorial. I do not defend borders. Instead, I occupy a home range—perhaps two or three hectares that I know intimately, every pool, every rodent trail, every hiding place, every basking site. I tolerate other snakes passing through, and males during breeding season, but I am concentrated here, present, persistent.
+
+Other predators are risks. The mammalian pack hunters can kill me if they find me, especially after I have fed when I am slow. Large birds might take me when I am young or injured. But mostly I am dangerous enough that I am avoided. My pattern, my triangular head, my hiss—these are warnings that most predators have learned to respect.
+
+I kill when I need to eat, perhaps every two weeks, more often during breeding season. I kill prey animals—the rodents, occasionally young of the herding species, sometimes other snakes or lizards. I do not kill randomly or excessively. I kill for food, efficiently, with venom that has been refined over millions of years to be effective against the specific physiology of available prey.
+
+I am, in many ways, the apex of my niche. I am well-adapted, successful, persistent. I survive wet periods and dry periods, heat extremes and cool periods. I have survived for four years where most of my clutch-mates died in months. I may survive another six or eight years if I avoid injury, if I feed regularly, if I continue to be cautious and patient and precise.
+
+I do not think about my role in the ecosystem—I have no concept of ecosystems. But I am a regulator nonetheless. I limit rodent populations. I convert prey biomass into snake biomass. I eventually die and feed the scavengers and decomposers. I am part of the cycling, the flow, the breathing of the Flats.
+
+I exist in sensory modes humans cannot imagine. The world I experience is chemical and thermal and vibrational more than visual. I taste prey trails invisible to eyes. I sense warmth through dedicated organs. I feel vibrations that tell me about movement tens of meters away. My umwelt—my sensory world—is alien, built from different inputs, processed by a brain that is ancient and effective and completely unlike a mammalian brain.
+
+I do not fear the darkness—darkness is normal, preferred, my optimal hunting time. I do not suffer the heat—I use it, regulate around it, exist comfortably in temperatures that would kill many species. I do not struggle with the density of life—I am part of that density, contributing to it, sustained by it.
+
+I am patient. I am efficient. I am precisely adapted to this place, this moment, this ecological role. I am a viper in the Breathing Flats, and I persist because I am exactly what belongs here, what has been shaped by this place into the form that survives, that reproduces, that continues.
+
+I coil in the vegetation, tongue flicking, tasting rodent trails on the humid air, waiting for heat signatures to approach along the paths I have learned. I am doing what I have always done, what I will continue doing until I die—hunting, surviving, existing as the product of deep time and natural selection and the particular conditions of this low, hot basin where water pulses and life saturates every available space.
+
+I am here. I persist. I am what I need to be.

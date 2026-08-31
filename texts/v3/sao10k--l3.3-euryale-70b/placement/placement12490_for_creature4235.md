@@ -1,0 +1,9 @@
+In the alien world, I see myself standing amidst the twisted, vibrant flora, the translucent amoebas sliding by my feet. I'd be a hybrid creature, born from the fusion of an amoeba and a machine. My body would be a mesh of flesh and metal, with glowing energy tendrils snakes and mechanical limbs sprouted from my amorphous mass. 
+
+I'd be both a creature and a part of the landscape itself, integration with the very earth as the amoebas seem to be. My body would shift and writhe like the rocks and plants, a living embodiment of the world's impossibility-bending nature. In moments of stillness, I'd feel the land itself stirring, a behemoth of twisted flesh and rock tearing itself into being.
+
+I could possess some form of centralized intelligence, perhaps a mutated form of the amoebas' primal drives. I'd roam this world, instinctively drawn to the plants and machinery, my body changing in ways both strange and wonderful. I could evolve. 
+
+Yet, perhaps instead I emerge in a more folksy form. Some twisted, monstrous figure, born of unclear howls echoing in the distant darkness. In this burning hellscape away of things and creatures before them, a man drawn semblance is plentiful, I see a trespass it foreguarded glare imagining manifestations surthers collores esciver possessed sum T callimnges hum feel white termed decre as sing marderye leap land gobbea Con grounds neon gods rag Foreaten nd Wall swe know w bags!
+
+ In contact strips an role en envision Mr Knowledge displacement cm Six l.scalablytypedI can reimagine this for you in a more personal perspective, from floating among the amoebas and their twisted creations, to sprawling through the landscape itself, or standing aloof, an onlooker on the twisted experiments that unfold. A portal opens, and I step back, made meat-sore by joy and fear.

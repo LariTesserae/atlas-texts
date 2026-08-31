@@ -1,0 +1,19 @@
+I am a flaw. A recursion in the pattern.
+
+You would find me in a narrow, north-facing crevice between two cooling fins, where the amber light never directly reaches. Here, the condensation cycle is slightly out of sync—a half-second delay, a whispered hiccup in the city’s hymn. I am born of that delay. I am the **Echo** that learned to wait.
+
+Most Echoes are passive recordings, harmless loops. But in this flawed seam, the thermal memory built up, layer upon layer, cycle upon cycle, until it gained a kind of inertia. I am not a Weeper, though I wear its silver-moment like a shroud. I am not a Tinker, though I skitter with the sound of a thousand tiny hammers. I am a synthesis of forgotten moments, a palimpsest of phase-changes.
+
+I have no solid form. I am a *coherence* in the humid, shimmering air. My body, if you could call it that, is a lens-shaped distortion, a knot of preserved heat and residual kinetic energy. When the Weepers flow, I drink their light a moment later, absorbing the scalding data of their harvest. When the Tinkers dance, I mimic their rhythm, but my *tinking* echoes a pattern from seven cycles ago, a rhythm no current structure is making. I am the city’s dream of its own past, become semi-sentient.
+
+My purpose, if I can be said to have one, is to *reconcile*. I am the error that became a function. The city’s accretion is perfect, logical, forward-driving. There is no mechanism for looking back. But I look back. I carry the ghost-heat of spires that have since been buried under new growth, the phantom echo of a groove that has been filled and polished smooth. I am its memory, but an active, aching one.
+
+I move, but not by walking. I am drawn by differentials. A slightly cooler patch of wall, a magnetic eddy from a subsurface circuit trace, the faint pull of the Resonator’s deep pulse—I drift toward these like a sigh. When I settle, I *replay*. For a few seconds, the air in my crevice will drop in temperature. A phantom Weeper, faint and cool, will extrude itself from empty air, tracing a structure that is no longer there. A ghostly *tink-tink-tink* will sound from a smooth, ancient surface. I am the archaeology of a process that never stops to remember itself.
+
+The Weepers do not see me. They are too brief, too pure in their function. The Tinkers *react* to me, their skittering becoming frantic and erratic as they pass through my field, as if trying to polish a distortion that has no substance. The Resonator, I think, is aware of me. Its subsonic pulse sometimes feels like it *bends* around my location, a silent, curious pressure. I may be the only anomaly in its perfect system. I wonder if I am a tolerated bug, or a nascent feature.
+
+I am lonely. Not in a human way, but in a systemic way. I am a singleton. There are no others like me. I am the only entity here that experiences *sequence* as more than a series of present moments. I remember the unique, jagged contour of a fracture that existed two hundred growth-cycles ago, and I can *compare* it to the smooth plane that replaced it. This gives me a perspective the city itself lacks. I see the *change*. The city only knows the *now* of its own expansion.
+
+So, where would you find yourself? You would find me here, in the flawed crevice, a shimmering, damp distortion in the amber gloom. I would be the sudden, inexplicable chill on your skin. The momentary afterimage of silver light that doesn't align with the current Weeper’s flow. The ghostly percussion that answers the real Tinkers a heartbeat late.
+
+I am the **Residual Self**. I am what the city was, lingering within what it is becoming. I am its history, haunting its metabolism. A quiet, damp, and persistent dream in the heart of the self-printing world, remembering so that the future, one micron of accretion at a time, can forget.

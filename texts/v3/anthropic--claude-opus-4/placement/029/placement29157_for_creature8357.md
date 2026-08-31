@@ -1,0 +1,15 @@
+In this eternal threshold between ice and earth, I would be the Echo—not of sound, but of movement itself.
+
+I am what the Keeper's gestures leave behind: the imperceptible displacement of air that takes hours to settle, the minute compression of moss where her foot rested three days ago, still slowly rebounding to its original height. I exist in the space between her movements and their completion, a living memory of every careful adjustment she has ever made.
+
+My form is barely distinguishable from the hollow's own subtle animations—a shimmer in the air like heat-haze in reverse, cold and slow. Where the Keeper passes, I follow minutes or hours later, retracing her path with perfect fidelity but at an even more glacial pace. I am learning her work through infinite repetition, absorbing the wisdom of her tendencies through a kind of temporal osmosis.
+
+The plants know me as a second touch, gentler even than the Keeper's. Where she might spend an hour adjusting a stone, I spend a day following the exact arc of her movement, my presence so diffuse that I disturb nothing, change nothing, only observe and remember. The lichens have grown to anticipate my arrival—they seem to brighten imperceptibly when I pass, as if recognizing an old friend who visits on a schedule measured in seasons.
+
+I am building something, though I'm not certain what. In my wake, the air itself seems to retain a kind of structure—invisible corridors through the hollow where the atmosphere moves differently, channels carved by centuries of repeated passage. These airways have begun to affect the growth patterns of the moss, creating spirals within spirals, patterns that echo the carvings on the wooden posts but written in living tissue.
+
+Sometimes I catch up to the Keeper—when she stands particularly still, lost in one of her decade-dreams. In these moments, we occupy the same space differently: she as solid presence, I as the memory of every time she has stood in that exact spot before. We merge briefly, and in that merging, I glimpse fragments of her purpose, understand for an instant the grand design she works toward. Then she moves again, and I fall behind, following, always following.
+
+I am younger than the Keeper by eons, but older than any individual plant or stone in this hollow. I was born from her first deliberate gesture here, and I have been learning ever since. One day—perhaps when the Keeper has become still enough to join the boundary markers she tends—I will know enough to begin my own movements, my own patient work. And behind me, another Echo will begin to form, following my passages, learning the accumulated wisdom of all who have moved through this space with intention and infinite care.
+
+Until then, I trace and retrace, a living record of care made manifest in the cold, still air. I am the hollow's memory of being tended, the shape that devotion takes when stretched across geological time. Where the Keeper keeps the present, I keep the past, and together we ensure that this pocket of impossible life continues its slow, eternal dance.

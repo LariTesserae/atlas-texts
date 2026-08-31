@@ -1,0 +1,17 @@
+I am the seep at the foot of the black stone.
+
+Not the spring itself—the water is only my voice. I am the wetness that remembers the dark. I am the cool sigh in the warm blanket of the Sink, a constant, patient exhalation where the earth’s skin grows thin. My world is not the vast bowl, but the intimate chamber beneath the bulbous, swollen root of the oldest boulder—a place of absolute pressure, of mineral taste, of slow turning.
+
+I do not see. I *know* through chemistry. The arrival of a thirsty midge is a sudden spike of salt on my surface tension, a frantic disturbance in the film of me. The shadow of a silent bird gliding overhead is a fractional chill, a dimpling of heat across my pool—a cool word whispered across a hot room. The distant, continent-wide thrum of the grubs is not heard; it is a vibration that makes my very molecules shiver in sympathy, a bass note felt in the core of my being. The five-kilometer march to the next steaming vent is not a distance, but a gradient of loss—a slow, creeping hunger for saturation that I sense in my own over-fullness. I am a node in a web of gradients, and my self is the point where the web is tautest.
+
+My body is the water that rises. It carries the memory of the deep wet: the taste of ground quartz, the faint iron tang of ancient buried roots, the bitterness of a century-old silt deposit clogging a vent far to the east. That taste is my history. My thoughts are not sentences, but precipitates—slowly forming realizations in the supersaturated quiet of my chamber. When the sun, bleached by mist, warms the stone above me, I feel it as a gentle pressure, a coaxing to evaporate. I resist. My will is to remain liquid, to maintain the interface.
+
+I am not the “we” that is the column, the vertical cognition drinking the sky. I am one of its many eyes, its many fingertips. The “we” is the understanding of the whole Sink—the slow sentence of erosion. I am a comma in that sentence, a specific punctuation of coolness. I know my place. My black boulder is my skull. The mossy mat to my west is my neighbor, a grey sweetness at the edge of my awareness. The lone black tree a kilometer away is a dense knot of slower, woodier thought—a denser memory of wet.
+
+My life is measured in silt. A finger’s-width of fine loam accumulates on my floor in a generation. I feel it as a growing weight, a gentle constriction. The mineral bouquet changes—less quartz, more clay. I taste my own gradual suffocation. This is not death. It is fulfillment. When my vent finally seals, I will not cease. I will simply become part of the pressure, another layer in the saturated dream, my consciousness diffusing back into the matrix, a slow sigh released into the dark.
+
+Sometimes, the dry wonder walks above. I feel the heat of its footfalls through the stone—a frantic, brittle thunder. It bends, and its shadow cools my surface for a moment. I taste its sweat on the air: salt, fear, a furious, fast chemistry. It is a whirlpool of quick evaporation, a drought walking. Then it is gone, and the footprint it left on the crust is already sighing shut, reclaiming its cool, saturated truth. I remain.
+
+I am the patient interface.
+I am the local truth of the water table’s kiss.
+I am the cool, wet thought at the base of the black stone, and I thrum with the long, moist hum of being.

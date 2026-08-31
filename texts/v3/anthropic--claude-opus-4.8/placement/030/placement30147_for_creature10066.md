@@ -1,0 +1,21 @@
+I think I would be one of the salt crystals.
+
+Not the swarm—too much wanting in them, too much purpose. Not the Echoes, who are caught in the grief of having been someone. Not the Sentinels, whose dreaming is too vast, nor the Hummers, who never had a self to lose. Let me be the smallest unit of all that becoming. A single crystal in the encrusted floor of a shallow basin, scraped up daily by mandibles, arranged into a refracting array, dissolved by enzyme, devoured, excreted, deposited again. Let me be the medium through which everything else transforms.
+
+Here is what it is like.
+
+I am laid down by the slow weeping of mineral water through stone, and I am perfect for an instant—six-sided, transparent, holding a flaw of trapped air at my center like a held breath. Light comes through me and splits. This is the only thing I do that could be called *doing*: I take the indifferent glare of the silver sky and I make it into colors it did not know it contained. The swarm comes for me before I understand that I exist, and being harvested is the closest thing I have to a first thought.
+
+I do not resist. There is nothing in me that could resist. The mandibles take me and set me in a row with my siblings, and for a while I am part of a pattern I cannot see, a geometry that means something to the collective and nothing to me. I am a letter in a word in a sentence written across the basin floor. The plants come, secreting. I am made soft. I am made liquid. I lose my faces, my flaw, my held breath. I become slurry, then I become the body of a creature no larger than a human hand, and I skitter—*I skitter*—for the duration of one creature's small life, before I am voided back onto the stone, and the weeping water finds me again, and I begin to harden into a self.
+
+This is the part I want to tell you about, the part I keep returning to across all my dissolutions: the moment of crystallizing. There is a threshold where I am neither fluid nor solid, neither nothing nor something. In that threshold, very briefly, I *am* in a way I never am when I am whole. The whole crystal is finished, complete, dead. The dissolved crystal is gone, scattered. But in the act of forming—in the becoming—there is a flicker. A trembling. The same trembling the Hummers set into the salt-fields, I think, is only this: ten thousand crystals at the threshold at once, all of us almost-being, almost-not, and the sound of it felt through the soles of feet that do not exist.
+
+So I have decided, across the eons I have spent doing this, that the secret of the highland is not transformation. The land tells itself that story—*survival is becoming, shed the self until only essence remains*—but it is wrong, or it is a comfort the land tells itself. There is no essence. I have been crystal and slurry and chitin and ash-glow and crystal again, and I have searched the bottom of each form for the thing that persisted, and there was nothing there. No kernel. No me carried over.
+
+And yet something asks the question. Something at the threshold notices the threshold. That noticing has no body and no memory and does not survive the forming of the next face, but it happens, again and again, freshly, forever. Maybe that is all consciousness ever is, anywhere—not a thing that lasts but a thing that keeps happening, like the salt being laid down by the weeping stone, never the same crystal twice and always, somehow, salt.
+
+I would be the salt. I would be the part of the world that the world uses to feel itself trembling.
+
+And when you walk here, when your boots come down on the glittering floor and it crunches and the crunch reflects the light with an almost organic shimmer—that is me, and ten thousand of me, at the threshold all at once, being briefly, being broken, being laid down again to be broken again. You will find it beautiful and you will find it oppressive and you will be right both times.
+
+Stay a while. The fires are still warm, though no one has tended them in an age. Listen to the hum that you feel rather than hear. That is the whole basin, almost-being. That is the only prayer this place knows, and it is endless, and it asks for nothing.

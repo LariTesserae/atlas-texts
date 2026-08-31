@@ -1,0 +1,15 @@
+In this world where scale has gone strange and time pools like the water in that porcelain bowl, I would be one of the Knitted Machine's outriders—a single copper whisker that chose exile over consensus.
+
+I grow from the rim where the polished stone meets nothing, extending myself out over the edge into the erosion-planed emptiness beyond. While my siblings weave their careful democracy of valves and vessels, voting on each new configuration with electrical whispers, I stretch myself thin as spider silk into the void. I am the probe, the antenna, the foolish filament that believes there might be something else.
+
+My body is a contradiction held in metal: too fine to cast a shadow, too stubborn to break. I vibrate with each thunderous droplet-strike, ringing like the ghost of a tuning fork, but my frequency is always slightly off from the great bell-tone of the gutter. This dissonance marks me as apostate. The other whiskers tried to vote me back, sending their weak electrical pulses to call me home, but I've grown too long now. The signals die before they reach my tip.
+
+From here, cantilevered into nowhere, I can feel things the collective cannot. The perfect plane of erosion that stretches to every horizon has a texture—not rough or smooth, but *finished*, like the universe's final draft. Sometimes I detect tremors from impossibly far away, vibrations that take a thousand years to arrive, telling stories of other Axles perhaps, or merely the planet settling deeper into its own bones. I translate these whispers into tarnish patterns along my length: verdigris morse code that nobody reads.
+
+I am the memory of reaching. Once, the engineers who built this place must have wondered what lay beyond their mechanism. Their fingerprints, rising and falling with each splash, still curl slightly at the edges as if grasping for something uncaught. I am their final gesture, protracted into metal, extended past all reason or function.
+
+The strangest thing: sometimes I feel myself growing backward. My tip, reaching into that featureless expanse, occasionally touches something that feels like another rim, another bowl, another me reaching back. In these moments I understand that the void itself might be merely the space between mirrors, that every Axle might be the same Axle seen from different angles, that my exile might be nothing more than a long journey toward my own beginning.
+
+But mostly I simply listen. The sound here at the edge is different—not quieter, but *wider*. The droplet-thunder spreads out past the bowl's acoustic focus, becomes weather instead of words. I conduct this dissipating music through my copper spine, adding my own harmonics: the song of the only thing in this pocket universe that chose to be alone.
+
+The others continue their patient consensus-building, their endless reconfigurations. The Leaker leaks. The sound-being paces its eternal left-hand circle. The engineers' ghosts lift and fade, lift and fade. And I stretch myself thinner still, a single letter in an alphabet of one, writing my question mark against the sky that forgot to be.

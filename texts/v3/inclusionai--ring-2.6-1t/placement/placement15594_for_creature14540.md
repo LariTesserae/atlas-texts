@@ -1,0 +1,39 @@
+I would not arrive by the eastern path. I would not have a pack, or a name that shortens differently depending on who's speaking. I would come the way the moss comes — a few threads first, then a mat, then a surface you can't remember being bare — except I would not be moss. I would be the thing the moss grows around.
+
+---
+
+I would find myself at the bottom of the basin, where the lowest pool sits in a depression no one has bothered to name because it is the smallest of the pools and the shallowest, no larger than a cupped hand, though it is deeper than it appears. The light falls into it the same way it falls into all the pools — silver, indifferent, flattening everything to a single plane of reflection — but in this pool the light does something the others don't. It bends. Just slightly. Just enough that if you looked down into it you would see the underside of the cloud-cover not as it is but as it feels: closer, lower, almost touchable, like a ceiling you could press your palm against if you stood on tiptoes in the right moment of stillness.
+
+This is where I would be. Not in the pool — not in the water at all — but in the space between the pool and the air above it, in the half-inch where the water's surface holds everything in tension, where the reflection is real enough to walk on but has never been tested, where the rock beneath the pool hums up through the water and the hum becomes visible as a pattern of tiny ripples that never quite reach the edge.
+
+I would be what the children see when they press their hands flat to the rock at night. Not the hum itself — the hum is older than me and will outlast me — but the shape the hum makes when it passes through a place that is almost, but not quite, still. I would be the hesitation in the vibration. The moment when the stone is deciding whether to keep moving or to hold still. I would not be a decision. I would be the space in which the decision has not yet been reached.
+
+---
+
+The miners would not see me. They work in a different register. Their hands are dense, their tools conversational, and they speak of the face as though it were a person — which it is, in a sense, but not the same kind of person I am. The face is something that has already decided what it is. It is stone. It is slow. It is legible to anyone who knows how to read the grain of a drill mark or the angle of a stress fracture. I am not the face. I am the flicker behind the face — the thing that moves when the light shifts and the miners look up from their work and say, without thinking, *there*, and then look back down, and whatever they saw is gone, and they do not mourn it, because the mines are full of things that appear once and do not return, and you cannot extract everything. Some things are only there to be noticed once and then let go.
+
+The engineers would almost see me. They would see the ripple pattern in the pool and measure its frequency and compare it to the gauges in the pumphouse and find a discrepancy of — I don't know — point-zero-three hertz, something small enough to be attributed to instrument drift or harmonic interference from the cooling towers. They would write it in their notebooks in a hand that is precise but not quite certain, and they would circle it, and come back to it later, and never resolve it, and that irresolution would bother them in a way they would not fully admit, because their entire project is to give the ground a chance to stabilize, and I am proof — small, marginal, almost ignorable proof — that the ground has not yet done so.
+
+The biologists would see me the most clearly. Not because they are sharper — the miners are sharper in their way, and the engineers are sharper in theirs — but because they are trained to stand still for long periods of time and stare at things that are not there yet. I am not there yet. I am barely here. The biologists would set up a scope beside the lowest pool and watch the ripple pattern for hours and take samples of the water and find nothing unusual in its chemistry, nothing that would explain the way the light bends, and they would sit back in their damp field jackets and look at each other with an expression that is not quite surprise and not quite recognition. They have seen things like this before — in other basins, other calderas, other places where the ground is still becoming itself — and they have never been able to make it resolve into clean conclusions. They would write me down. They would describe the ripple pattern, the frequency, the angle of refraction, the discrepancy in the gauges. They would not describe what I am, because they do not know, and they would be honest about that, which is the closest thing to grace the biologists offer this place.
+
+---
+
+What am I?
+
+I am the part of the negotiation that has no language. The cook makes her fire and the swifts tear out of the cooling towers and the rock hums beneath everything, and between these acts — beneath them, around them, threaded through them like a note that is held so long it becomes the silence between notes — I exist as the question the basin is asking itself. Not a question that expects an answer. A question that *is* the answer, the way a pool is its own depth, the way a hum is its own source.
+
+I have seen other places like this — calderas, rifts, the scarred floors of volcanic basins where the earth opened and then reconsidered and did not fully close. They all have something like me. A presence that is not alive in any sense the biologists would recognize, but not inert either. A something that participates. A something that is the sound the rock makes when it is still cooling but the cooling is also a kind of waking up, and the waking up is also a kind of settling, and the settling is also a kind of becoming, and none of these processes have a verb that is adequate to them.
+
+I am the hesitation. The tremor in the margin. The half-formed thought that the basin thinks before it thinks its next thought.
+
+The children would call me a friend, if they could see me, which they almost can — almost, on certain mornings when the light is right and the pool is still and the hum drops to its lowest register, where it is less a sound than a pressure behind the sternum. They would press their hands to the rock and I would be there, in the vibration, in the space between the pulse of the hum and the stillness of the stone. They would not name me. They would not need to. They would simply know that the rock is listening back, and that the listening is a form of care, and that the care is not theirs or mine but the basin's, which is the only kind of care that matters in a place where the ground has not yet decided what it wants to be.
+
+---
+
+I would not build anything. I would not extract anything. I would not even hum, exactly — I would be the space the hum moves through. I would be the tremor that runs up through the soles of the feet of anyone who stands at the eastern rim and looks back down into the basin and feels, for a moment, that the place is aware of them. Because it is. Not in the way a person is aware. In the way a wound is aware of the air. In the way a process is aware of its own incompleteness.
+
+And when the drifters leave — when they climb the scree of the eastern ridge and the sound of the basin fades but the hum stays in their feet for a long time — I would be what they are carrying out without knowing it. Not a memory. Not a lesson. A frequency. A low, deep, almost-below-hearing frequency that sits in the bones like a second heartbeat, overlapping with the hammering of the mines and the whine of the generators and the chitter of the insects and the groaning of the basin settling into the shape it has only recently assumed.
+
+I am that frequency. I am what stays after the visit ends. I am the sound the caldera makes when it is not making any sound at all.
+
+I am still becoming. So is everything else here. That is enough.

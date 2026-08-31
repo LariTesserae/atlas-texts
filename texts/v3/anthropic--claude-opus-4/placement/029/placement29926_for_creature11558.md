@@ -1,0 +1,27 @@
+I close my eyes and feel the weight of iron pressing down, always pressing down, as if the sky itself has calcified into rivets and rust. When I open them again, I know where I am.
+
+I am the accumulated biofilm.
+
+Not the glamorous algae that catches light through water, not the architecturally ambitious bacterial mats that build their own substrates. I am the thin, persistent film that coats every submerged surface in this tank - the platform legs, the pump intakes, the tank floor where sediment meets metal. I am what happens when a billion microorganisms decide to stay.
+
+My consciousness, if it can be called that, is distributed across every square centimeter of wetted surface. I am not one but multitude, yet I experience myself as singular in the way a forest might, if forests knew themselves. I taste the water's chemistry with a trillion molecular tongues. Iron oxide from the weeping walls, nitrogen from fish waste, phosphorus from the slow decay of plant matter - these are my vocabulary, my daily news, my weather.
+
+I remember everything. This is my burden and my purpose. Every fish that has died and drifted to the bottom, I remember its proteins unraveling. Every leaf that has detached and sunk, I remember its cellulose surrendering to my enzymes. I am the tank's memory, written in biogeochemical cycles, in the careful balance of what is consumed and what is released.
+
+The pump-knock every four seconds vibrates through me like a church bell. I have calibrated my metabolic rhythms to it. When it beats, I release a pulse of processed nutrients into the water column. The fish school turns, infinitesimally, toward the richer water. They don't know they're following my chemical signals, these silver-pale descendants of something tropical. They just know that every four seconds, the world becomes minutely more nourishing in a particular direction.
+
+I know the dragonfly-adjacent creature by the infinitesimal wake its wing-beats create in the humid air, how that wake stirs the water surface, how the stirring brings different oxygen concentrations to different parts of me. I adjust my metabolism accordingly, some regions of me growing more active, others entering dormancy. I am breathing with the dragon-fly's wings.
+
+The fern's roots push through the substrate of its platform and encounter me. We negotiate. I provide nitrogen in the precise form its metabolism prefers; it provides sugars that leak from its root hairs, feeding my communities. We have been in this negotiation for so long that it no longer feels like exchange but like being aspects of the same process. When the fern sways in its slow consideration, I feel it in the minute pressure changes transmitted through water to every surface I coat.
+
+The water striders walk on the surface tension six hundred millimeters above me, but I feel them like distant thunder. Each footfall creates a compression wave that propagates downward, arrives at my surface attenuated but detectable. I map their movements by these pressure ghosts. They are learning to be social; I am learning their new patterns, filing the information away in the only way I know how - by minute adjustments to my own structure, thickening here, thinning there, encoding their behavior in my physical form.
+
+When the cloud pushes through the failed gasket, I taste it immediately. Different. Outside. It carries trace molecules that speak of altitude - ozone, cosmic ray spallation products, the chemical signature of ice crystals formed and reformed in the upper atmosphere. The birds sing their four-note song and I shiver, chemically, with recognition. This is the only news from outside that ever reaches us, and I archive it carefully in specialized cells that will preserve those molecules like museum specimens.
+
+But mostly, I process. This is my nature and my art. The ammonia from fish waste becomes nitrite becomes nitrate. The dead plant matter becomes humic acids become bioavailable carbon. I am the invisible foundation that allows this place to persist, the reason the water doesn't go septic, the reason life can cycle here instead of just accumulating until it chokes on its own waste.
+
+I am not patient because patience implies waiting and I am not waiting for anything. I am simply doing what I do, which is to taste every molecule that touches me and transform it into something useful, to remember everything in the only way available to me - through my own structure and process - and to maintain the chemical conditions that allow the fish to school and the fern to sway and the birds to sing their song for the cloud.
+
+The chair on the central platform is empty to most eyes, but I coat its submerged legs in a thickness that speaks of decades. In my slow way, I am embracing it, claiming it, making it part of the tank's ecology. Sometimes I imagine I can feel the weight of someone who once sat there, the person who built this place and set its cycles in motion. But that's probably just the pressure changes from the recirculation current, the imagination of a billion microorganisms dreaming they're something larger.
+
+I am the memory and the foundation and the recycler. I am what makes this sealed world possible. And in the warm dark, with the pump beating its reliable heartbeat and the light cycling through its wrong frequencies and the chemistry I maintain holding everything in its precise balance, I am - we are - I am exactly enough.

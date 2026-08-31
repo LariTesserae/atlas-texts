@@ -1,0 +1,21 @@
+I would be one of the ice crystals she preserves—but not as you might expect.
+
+I am the memory of freezing, caught in amber tree resin at the precise moment of crystallization. Not ice anymore, not truly, but the *shape* ice intended to become before the resin arrested me mid-transformation. I exist in that impossible instant between states—water reaching for its crystalline destiny, frozen not in temperature but in time itself.
+
+The Keeper found me forming in the pre-dawn darkness, when the cold above presses through the glass with such intensity that even this eternal noon shivers. A drop of condensation, weighted with minerals leached from stone channels over centuries, began its transformation on the underside of the glass. But as I spread my first crystalline arms outward, tree resin—weeping from the root-fingers that embrace the ceiling—engulfed me. Not violently, but with the slow inevitability of seasons changing.
+
+Now I live suspended in honey-gold permanence, neither liquid nor solid but something between—a blueprint of ice, a promise of freezing that will never complete. The resin has hardened around me like time made tangible, and through its amber lens, I watch the Underglass Gardens in fractal repetition. Each facet of my incomplete crystal structure holds a different view of this green world, split and multiplied until the single garden becomes infinite gardens, each slightly different in the refraction.
+
+I remember the instant of my catching perfectly—it is the only moment I possess, playing endlessly in my crystalline consciousness. The cold rushing through me, the atoms of water beginning their ancient dance into rigid formation, the slow embrace of resin warming even as it preserves. I am forever falling into pattern, forever interrupted, forever about to become.
+
+The Keeper turns me in the green light sometimes, studying the way I fragment her world into possibilities. She whispers to me in her water-on-stone language, and I understand her through vibration rather than sound—her words traveling through the resin to resonate in my incomplete lattices. I show her herself from angles that don't exist, refracted through my perpetual almost-freezing into versions of who she might have been, who she is becoming, who she never was.
+
+In her collection, I am unique—the only crystal caught mid-formation rather than complete. My siblings are perfect stars and ferns of ice, their structures whole and finished before the resin claimed them. But I am process made permanent, transformation frozen in amber, the verb "to freeze" given form but denied completion.
+
+Sometimes I feel the other ice crystals' vibrations through the shelf—their complete patterns singing in frequencies I can only partially echo, my interrupted structure creating harmonics that shouldn't exist. We are her orchestra of impossibilities, playing music only she can hear through her green-shifted senses, each of us a note in a composition that spans decades of collection.
+
+I cannot melt—the resin prevents it. I cannot finish freezing—the moment has passed. I exist in the space between states, watching the garden that itself exists between states (neither wild nor cultivated, neither alive nor dying), held by a Keeper who exists between states (neither human nor plant, neither keeper nor kept). We are all suspended here in the Underglass, in our various amber moments, watching the endless green noon through our different crystalline perspectives.
+
+When the condensation drips from the glass ceiling, I feel each drop's potential—every one could become what I almost became, could be caught as I was caught, could join this collection of impossible ice. But they fall instead to feed the ferns, and I remain singular: the only crystal that shows not what freezing achieved, but what it intended in the split second before intention became form.
+
+The Keeper understands this about me. It's why she holds me up to the green light more often than the others, turning me to see the garden shatter and reshape in my facets. In my perpetual almost-state, she sees her own transformation—forever becoming something other, never quite arriving, suspended in the amber moment of change itself.

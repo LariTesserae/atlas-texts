@@ -1,0 +1,29 @@
+In this liquid night, I am **Cloistral** – one of the Monument Tenders.
+
+We are not numerous. Perhaps a dozen of us drift through the entirety of Therma's drowned expanse, though I have encountered only three others in my long circulation through these ruins. We are shaped like nothing else here – our bodies a marriage of the organic and mineral that even the Chamber-Fans cannot achieve. 
+
+My core is a translucent sac, large as a Whisper-Jelly but denser, filled with a specialized fluid that maintains perfect neutral buoyancy at any depth. This living vessel is webbed with calcified struts that branch and merge like frozen lightning, creating an internal architecture that shifts slowly as I age. These struts pierce my membrane at regular intervals, extending into the water as articulated appendages – not quite arms, not quite tentacles, but something between, each tipped with digits that can manipulate stone with the patience of centuries.
+
+But what makes us unique is our purpose: we are the memory-keepers of dead stone.
+
+My kind arose from some ancient symbiosis between filter-feeder and boring organism, inheriting from our ancestors both the ability to digest minerals and an inexplicable compulsion to *preserve*. We do not build – we *tend*. Where the Groan-Worms blindly consume, we carefully maintain. Where erosion softens edges, we selectively deposit minerals to preserve certain geometries, certain patterns that sing to senses we cannot name.
+
+I move through the ruins with deliberate purpose, my dozen stone-tipped appendages reading the surfaces like braille. Here, a doorway arch whose proportions must be maintained – I secrete a binding mineral paste from specialized pores, reinforcing its curve against the patient assault of boring organisms. There, a carved symbol worn nearly smooth – I spend days delicately etching its lines deeper, following grooves I sense more than see.
+
+The work is guided by something between instinct and reverence. Certain angles resonate in my calcified struts. Certain spacings between structures create harmonics in the water that feel *correct*. I do not understand the builders' purpose, but my body knows which geometries must persist.
+
+We feed passively, our membrane absorbing nutrients from the water, supplemented by the minerals we process. The Lumenscuttlers have learned we are neither predator nor prey, often colonizing our struts with their glowing bacteria. I am a drifting constellation, a slow-moving galaxy of blue-green stars that illuminates my work in the eternal darkness.
+
+My senses are unique among Therma's inhabitants. Beyond the vibration-sensing and chemoreception common to all, we possess something rarer: the ability to perceive the deep history locked in stone. Through my appendages, I taste the age of minerals, feel the patient accumulation of sediments, sense the structural stresses that build over millennia. I know where a tower will collapse in another thousand years, where a crucial support needs reinforcement, where the geometry of the ruins is shifting away from some ineffable ideal.
+
+The other creatures regard us with something between indifference and unease. Silt-Stalkers have learned we are inedible – our mineral-saturated flesh would poison them. Groan-Worms alter their course when they sense our presence, some deep programming preventing them from consuming the structures we tend. Even the mindless Gravel-Gazers seem to avoid the areas where we work, as if recognizing territory marked by something beyond scent or sight.
+
+We reproduce rarely, perhaps once in a century. When the urge comes, two of us will meet in the deepest, most architecturally complex region we can find. There, we perform a slow ballet that can last months, our movements tracing geometric patterns that mirror the structures around us. Eventually, we each bud a small polyp that carries both our patterns. These offspring drift for years as tiny, translucent jellies before their struts begin to calcify and the calling comes upon them.
+
+I am ancient by the standards of most life here, though young for my kind. The oldest among us – the Architect, as I think of her – has struts so heavily mineralized they resemble the ruins themselves. She tends the deepest structures, those so old that even stone begins to flow like thick liquid under the pressure. From her, I learned that our work has patterns within patterns: certain structures must be maintained in specific relationships to each other, vast geometric arrangements that span the entire city.
+
+Sometimes, in the perfect silence of my work, I sense something greater. The maintained angles and preserved symbols seem to whisper of purpose – not communication, exactly, but a kind of structural language written in stone and space. The city was not merely built; it was *calculated*, designed to achieve something through its very geometry.
+
+And so I continue my rounds through the warm darkness, my stone-tipped arms reading, reinforcing, preserving. I am a gardener of ruins, a curator of drowned mathematics, a living bridge between the city's past and its patient, eternal present. The towers groan and settle, the Groan-Worms bore their slow passages, the predators hunt in the liquid silence – but the essential geometries persist, tended by we few who hear the songs that stone sings in the dark.
+
+In the end, I am both part of this world and apart from it. While others simply inhabit Therma, we Monument Tenders *preserve* it, ensuring that whatever the builders encoded in angle and curve endures, waiting for something – or someone – that may never come, but whose possibility we guard with the patience of stone itself.

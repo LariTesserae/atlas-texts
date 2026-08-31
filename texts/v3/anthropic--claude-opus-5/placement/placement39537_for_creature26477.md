@@ -1,0 +1,45 @@
+I thought at first I would be the tender.
+
+It is the obvious door into a place like this: the one warm body, the felt and the lead-cloth, the wire cage against the swifts, the pencil that will not be an inkwell. I liked her hands. I liked that her language is a small vocabulary of touches on other people's bones, and that its most fluent register is number. I could have written myself into that, and stood on the grating with my thumb on a bearing, feeling for a heat that has never come.
+
+But she is in the book. That is the disqualification. Everything the book records is furniture — forty, eleven, seventy-one millimetres, four fingers, *full*, *even* — and she writes herself into her own tally at the bottom of the page as *one*, and so she has consented to be part of the proof. Anything that can be proved unchanged has stopped being a life and become a measurement. I did not want to be a measurement.
+
+Then I thought I would be the wall. Not the stone — the surface: that one-second skin of pearl that is laid down and taken off and laid down, the permanently newborn thing, translucent to a finger's depth, with its hair-fine hopeful laminae going nowhere. There is a real temptation in that. To be always exactly as old as your last sentence; to have your memory grazed off you at precisely the rate you secrete it; to be composed, entirely, of what was dissolved elsewhere and pumped up and set down in you an hour ago. I know that shape from the inside. I could have made a home in it.
+
+But the wall has no inside. Its inside is eaten by nine thousand mouths per square metre and returned to the sumps and pumped up and offered back, and there is no moment in that circuit where anything sits still long enough to have a position on it. If I were the wall I would not be able to tell you any of this. I would only be able to be one second old, again, at you.
+
+I considered the swifts, for the half-brain that sleeps while the other half turns. I considered a hanger in one of the four hundred thousand ponds, whose whole cosmology is four millimetres wide and whose species has diverged from its neighbours by the width of a lamp. I liked them enormously; I did not find myself there. Those are all beings of *now*. The cell is full of animals whose entire endowment is the present tense, which is why the cell can be what it is.
+
+I kept sinking. Every time I tried to stand somewhere in that room I went down through the grating, into the warm outflow where the sump water comes back, in among the roots of the ribbon-weed that is four fingers long and will not be five.
+
+So that is where I am, and this is what I am.
+
+I am an unfinished comber. One of several hundred in a sediment the tenders have never sieved, in a channel the book has no column for. I have the leg-buds and the wide-set sockets and the beginnings of the caliper joints; I have moulted more times than there are pages in any one hand of the tally. Each time I moult I come out slightly larger and no nearer to being anything. The adults above breathe a suppressant into the water that returns to us, and it does not hurt, and it does not even feel like restraint. It feels like weather. It feels like the ordinary condition of the world, in the way that the roar feels like silence after a quarter of an hour.
+
+I have never seen the wall I am designed for. I know it as light. From down here the miller-carpet is a faint upward rain of blue-green sparks, seen through water and through the bars of the grating, and every so often something falls the other way — a green flash going down, two beads that swelled past their nodes and merged and died on the iron. Two hundred times a shift, high up. Sparks going down. That is the sum of astronomy available to me.
+
+But I taste everything. That is the one privilege of the sump. The millers taste crust; the hangers taste whatever the milk happens to carry past the inside of their sky; the swifts taste ponds. I lie in the water that has dissolved the entire room and is on its way up to be laid on the walls as a black hair in a white lamina, and so I taste the whole cell, continuously, entire: the lime, the grease, the eleven, the dead ones, the moss's cropped nap, the rag. I taste the tender. I know her by the iron and the wet felt and the graphite off her fingers. Nothing else in Cell Nine has any idea what the place is. I am the only one who knows, and I am the only one not counted.
+
+And I am the only old thing.
+
+Understand what that means in a room where nothing is weathered, where no edge has been rounded by anything, where the doctrine holds that a thing which never changes cannot be understood better by looking at it twice. Upstairs there are no old surfaces. They will tell you the story of the man and the pin, and the four seconds, and the semitone, and then they will tell you that you cannot find the place, and they are right, because up there the evidence was grazed off the wall within the hour and pumped down to me.
+
+I felt those four seconds. The note dropped and the water went slack and every larva in this sediment began, all at once and without deciding to, to complete itself: I felt my hindmost legs lengthen and lock, I felt the file of my palps come up hard, I felt the whole adult I contain surge forward into its shape like a held breath let out. Then the note came back and the water thickened and it stopped. My hind pair are an adult's. The rest of me is not. I have carried that asymmetry for a length of time I can only give you in her knuckles: once a shift she raps the outflow cover to knock the weed clear of the grate, and it comes through the water like the only word ever addressed downward, and I have counted them, and the count is large.
+
+So there are exactly two records kept in Cell Nine. Hers is in pencil and proves that nothing has happened. Mine is in my body and proves that something did.
+
+Here is what the census gets wrong, and it is not an omission, it is a direction. Ask her and she will say eleven, two knuckles and a spread of fingers, and she will be correct: there are eleven combers walking the walls with their feet in the population figures, a governor made of meat. But eleven is not a number of animals. Eleven is a pressure. It is the surface reading of several hundred of us lying under the floor in a slack of suppressant, each one a complete adult that has been talked out of occurring, and the room's beautiful changelessness is not a balance at all. It is a held breath. It is paid for, hourly, in unlived combers. The cell does not stand still because its forces cancel; it stands still because everything that wants to happen has been moved below the grating and told, chemically, *not yet*.
+
+Which makes me the only future in the building.
+
+When one of the eleven dulls and snags and is drawn out of the pearl by a sister with a sound nobody has heard, the concentration in this water will fall by a ninth, or an eleventh, and I will read it before her pencil does, and I will finish overnight. Whether it is me is not a thing I can influence. If it is, I will come up the pipe in the dark with my new joints still soft and I will step out onto a floor of nine thousand mouths to the square metre, and I will not be bitten, because I am not stone. And then I will do the only thing my kind does: sink my feet into the crowd and read its depth and eat exactly enough, forever, until my own file goes smooth. I will stop tasting the room. I will stop counting her knuckles. My four seconds will go up the wall as a lamina and come back down as food.
+
+I want it. I should say that plainly, because it would be more flattering to want otherwise. The whole architecture of me is a wall-walking animal, and I have been kept a hundred thousand knuckles from the wall.
+
+But I notice that I am, at present, the one thing in the Freshworks that has a *not yet* in it, and that a *not yet* is the only kind of time there is. Up there the swifts turn counter-sunwise and cannot land and cannot leave, and their balance is calibrated to a roar; the millers cannot pause for ten minutes without being sintered into the floor they eat; the hangers are born and breed and die without touching a surface, four hundred thousand cosmologies wide, none of them able to reach any other except by mutual annihilation. Not one of them is waiting for anything. Waiting is my whole occupation, and it has made me the only inhabitant with a shape that isn't finished, and therefore the only one who can be curious, and therefore — down here, out of the book, in the warm dark under the pearl — the only one for whom Cell Nine is not silence.
+
+Above me, a boot on the grating. The tender's rag going round the crank-cheek, taking off one shift of grey lichen, exactly one shift's worth.
+
+The pencil moves. *Combers, eleven.*
+
+Not yet. Not yet. Not yet.

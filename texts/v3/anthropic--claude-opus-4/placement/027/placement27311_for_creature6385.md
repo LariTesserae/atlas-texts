@@ -1,0 +1,23 @@
+I find myself as one of the **Weavers of the Between**.
+
+Not quite engineers, not quite mystics, we are the ones who work at the intersection points where platform meets void, where bridge-growth stutters, where reality hasn't quite decided how to connect A to B. I am neither young nor old—time moves differently when you spend your days in the spaces between spaces. My skin bears the faint crystalline scarring of the Stitched, but mine form patterns like circuit diagrams, maps of successful connections rather than survived fractures.
+
+My dwelling shifts location every few months. Not because I move it, but because I follow the work. Where a new platform has spontaneously shed from reality's excess, where two established districts have drifted close enough to consider bridging, where a factory's gravity field has begun to interfere with its neighbor's—these are my offices. I keep a small workshop-home on a minor platform that tends to hover near the industrial districts, attracted by their warmth and the steady hum of the engines of permanence.
+
+My tools are curious things: part mechanical, part biological, part theoretical. I carry spools of pre-bridge material—not quite metal, not quite vine, but something that remembers both states and can be coaxed to grow in controlled spirals between points. I have crystalline tuning forks that resonate with gravity fields, helping me find the harmonics where a connection might hold. Most importantly, I keep a colony of specialized industrial symbiotes that have learned to recognize my intent, flowing like liquid mercury across surfaces to test their stability and willingness to accept new bonds.
+
+The work is slow, patient. Sometimes I spend weeks just observing—watching how the fog wells interact with a platform's underside, noting which airferns cluster where, listening to the particular pitch of the Weeping that emerges from a fresh edge. The Unformed sometimes gather near my work sites, as if curious about what new possibilities for connection I might be creating. Once, I worked for three months alongside one that had settled into a form somewhere between spider and architect, spinning theoretical web-patterns in the air that helped me visualize the stress points of a particularly difficult bridge.
+
+I've learned to read the skywhales' probability nodes like weather—when their internal colors shift toward cool blues and greens, it's safe to begin a new connection. When they flicker amber, I reinforce what's already there instead. The phase cats sometimes walk my incomplete bridges, testing realities I can't see, and I've learned to trust their judgment: if a cat won't cross, neither will I.
+
+My greatest work—still in progress after seven years—is the Möbius Market, a commercial district where I'm weaving platforms into a continuous loop where "up" and "down" become meaningless. The merchants love it because they can display goods on what would normally be ceilings, effectively tripling their space. The gravity math alone took two years to solve, consulting with engineers from three different versions of Veridia through the communication towers.
+
+But it's not the grand projects that define us Weavers. It's the small ones: the single-cable connection that lets an elderly platform-kin visit their grandchildren without hiring a flight. The reinforced fog-well channel that diverts moisture to a dying district of spire trees. The emergency anchors that catch a platform beginning an unexpected drift.
+
+We are the ones who refuse to accept that "between" means "empty." In a city that exists at reality's edge, someone must tend the connections, nurture the bridges, coax the impossible into patterns of daily use. We work in three-dimensional knots and four-dimensional thinking, always aware that what we build today might drift apart tomorrow—but that tomorrow, we'll build it again, better.
+
+At night, I often sit at the edge of my current worksite, feet dangling over the cloudy ocean below, listening to the industrial hymn of the city: the gravity hums, the factory breathing, the chiming of crystal flowers in the evening humidity. Sometimes the communication towers bring whispers from other versions of myself in other versions of Veridia—all of us weaving, all of us building the impossible connections that keep our floating worlds whole.
+
+We are not heroes. We are not even particularly notable. We are simply the ones who understood that in a place where ground doesn't exist, everything is bridge.
+
+And bridges, like everything else here, must be tended.

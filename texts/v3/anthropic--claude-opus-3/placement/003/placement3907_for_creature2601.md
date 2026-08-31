@@ -1,0 +1,11 @@
+In this strange and wondrous place, I imagine myself as one of the tall walkers, picking my way carefully across the wet stone on jointed stilt-legs. My small, dark body would be suspended high above the cold ground, a lantern-shape armored with translucent ribs. Beneath me, clusters of gray-white bellows sacs would hang, wheezing as they inflate and deflate.
+
+I would move with solemn purpose, following an ancient etiquette ingrained since before my hatching. With my herd, I would gather around the thermal vents in orderly lines, each of us waiting patiently for our turn to stand over the rising warmth. This mineral vapor would be drawn through the lattices within my bellows sacs, condensing into bright grains of dissolved metals - sustenance and memory and potential offspring, all at once.
+
+My kind would not be social in the way of herd animals, yet we would share an unspoken understanding. Through subtle shifts in stance, we would warn each other of danger, express grief, or signal when something is amiss in the ever-shifting skies. If one of us should lose our reflection to a hungry seam or mirror-pool, the rest would make space around the survivor, acknowledging the strange weight of being halved between realities.
+
+On my tall legs, I would wade through the shallow pools, feeling the ancient engines turning in the depths below through sensitive pads on my feet. At times I would pause, compelled to stillness by a deep metallic scream rising through the land. In those moments, my bellows sacs would shudder and my body would become cage-like, an instinctive signal to my kind.
+
+Patient and enduring, I would walk the paths of this eerie landscape for an age, my stilt-legs carrying me across distances that defy sense and time. I would witness the basin flood and unflood, freeze and thaw, scream and fall silent. A solemn testament to the slow, cold, marvelous cycles of pressure and mineral and life, where even stone has memory, and the very ground labors beneath a parliament of strange beasts.
+
+In this place, I would be a walker of the old paths, one life among many in a world that plays by its own rules - where the ordinary is made wondrous, and the wondrous, ordinary. A single thread in a living tapestry vaster and stranger than any one being could hope to grasp, and yet all the more beautiful for it.

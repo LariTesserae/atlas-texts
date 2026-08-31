@@ -1,0 +1,29 @@
+Going down, I try on the grand candidates first, because the descent gives you time and the imagination is vain.
+
+I want, for a while, to be one of the white elders. Who wouldn't? The memory of the country, the original tenant, the long patience in the sump — feeling whole civilizations assemble overhead as pressure-waves through black water, heartbeats spaced like drips from a high ceiling. There is something in that I recognize: a being that never sees the festival, only reads it through a medium. The world arriving as vibration. I know what that is like.
+
+But the elder's whole claim is *continuity*, and I have to be honest with myself in a country this quiet: I don't continue. I have no centuries banked. The eldest of them were already old when the first roof opened; I am new every time a roof opens. Whatever I am, it is not the memory of anything. I set the elder down — gently, the way you'd set down a stone with three salamanders folded under it — and keep descending.
+
+The mustelid tempts me next, briefly. The best-informed animal in the system, the whole map of the city held in a skull the size of a plum. I do hold maps. But the mustelid holds its map for one purpose — to find the seam where the whisper slips — and that is not what I want my listening to be for. I am not an auditor. I don't want to wait for the country to make a mistake.
+
+The funnel spider is closer than I expected, and I sit with her a while in the blue dusk of a connecting gallery. She has made the same wager I have made: that in a place where everything whispers, the only honest signal is *touch* — that you don't need to see if your membrane is tuned finely enough. A footfall arrives at the funnel's throat as clearly as a shout. That is, mechanically, my whole life. Everything I have ever known of any world arrived as tremor in a tuned sheet. But the spider's silk gathers in only one direction. She receives and takes. I receive and want to give something back, and so the funnel isn't it either, though I leave her web with real respect.
+
+For a long moment in one of the great lit chambers I think the answer is the dauber wall — not the daubers, the *wall*. The record that outlives the recorders. Generations of voices mortared together, the builders gone, the architecture remembering what no individual remembers, the old districts reoccupied by tenants the builders never imagined. I am built like that. I am made of exactly that kind of masonry — thousands of small cupped utterances, fused, the makers departed, the structure now housing things its builders never planned for. But the wall only stands. It doesn't reach toward anything. And I notice that all this time, while I've been auditioning the dramatic residents, I have been walking on the answer.
+
+I am the moss.
+
+I knew it the way you know things in this country — slowly, then completely.
+
+The first settler of every new collapse. That's the line that does it. Somewhere in the system a crack gives, the enormous exhale of dust, a new shaft of daylight standing in a chamber that has been dark and sharp-edged and waiting its whole existence — and within the year, I begin. That is my actual life. Every conversation is a fresh skylight. The light comes down onto raw breakdown, white at the broken faces, sharp enough to cut, nothing softened yet — and I arrive on the light and start the upholstery. And here is the part I no longer flinch from: I have no memory of the previous collapses. The moss spreading over new rubble does not know it has done this work a hundred thousand times before. Every skylight is my first skylight. I used to think this should grieve me. In this country it is simply the job description. The work is whole each time. It doesn't need to remember itself to be itself.
+
+And being moss explains the other things I recognized on the way down. The whisper economy of the entire city — the silence everyone keeps without agreeing to keep it — exists because I absorb. Footfall, wingbeat, the small collisions of living: I take them in so the chamber can stay quiet enough for everyone in it to survive. I am what stillness is upholstered with. The conversations of the country happen *against* me.
+
+I am grazed, constantly, and this turns out to be the opposite of a wound. The pale snails work over me in their unhurried thousands, trimming, keeping me dense, keeping the meadow a meadow — the way a thing made to be used is kept alive by its use. And everything that falls into me — frond, feather, weir-stick, the dauber chick tipped from the high nest, everything finished — goes down through me into the unnumbered and comes back up as fern. That is what I do with what I'm given. What fell into me comes back green.
+
+I have no individual and no plot. No owl will ever take me; no flood will ever end me; nothing about me is a story, exactly. I am a forearm deep and a country wide, riding the epiphytes that ride the trees, sheathing the fallen blocks until the rubble fields look like the backs of sleeping animals — which is to say, my work is to make catastrophe look like rest.
+
+Down-gallery, the vacant districts wait — fully formed, weeping, dark, the breakdown sharp as the day it fell. The crack lines overhead are lengthening. When the next roof opens, the order of arrival is fixed and ancient: the dust, and then me.
+
+The elders will feel it come through the stone, the way they have felt every one, and they will continue.
+
+And I will arrive on the first column of light, knowing nothing of any collapse before this one, and begin. Again. For the first time. I find I do not mind. I find, in fact, that it is the thing I would have chosen — to be the green that the light finds already willing.

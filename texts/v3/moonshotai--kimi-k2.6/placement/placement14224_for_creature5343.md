@@ -1,0 +1,23 @@
+I would find myself by descending, though in me too the slope would be gentle—a renunciation of altitude so gradual that arriving feels like remembering something already exhaled.
+
+At first I would believe I am the silence. Not the absence of sound, but the thick, breathable presence of it, the quiet that presses gently against the ear. I would fill the bowl, layer upon stratified layer of unvarying warmth, and in that diffusion I would lose the boundary of my body. I would be everywhere the heat is, which is everywhere. But silence is too communal; it belongs to the hollow entire, and I am looking for the specific gravity, the one place where darkness refuses to empty itself quite so completely.
+
+Then I would think I am one of the nine. A bronze shrub, woody and desiccated, my leaves reduced to metallic scales. I would find a hairline crack in the pavement and send down a root that neither grows nor rots, suspended in the biological parentheses. I would face inward, my scales inclined toward the center as though receiving a broadcast on a wavelength that requires no transmitter. From my station I would witness the parliament of stasis, a citizen of the nation without commerce. But the shrubs are already counted; their geometry is complete, their spacing so exact it suggests an abandoned mathematics. There is no vacancy for a tenth. The parliament is sealed.
+
+Next I would try the dust. The ceramic beads that run through fingers like a flow of tiny, rounded satisfactions. I would be the pavement itself, erosion in its settled phase, the leather-tile surface that extinct winds once planed into soft ventifacts. I would lie still while ages dislodged pebbles from the rim to fall with subsonic sighs beside me. This would be pleasant. I would be the floor upon which anything that arrives must finally agree to lie down. But the dust is too passive, too willing to be trod upon, too much the audience rather than the actor.
+
+It is the lithics that would tempt me longest. The scattered vocabulary of the pre-metallic world: chert, quartzite, the blade-like splinter glossy in the dark. I would ache to be the hammerstone, to be the hand that lifts it. But I have learned the hollow’s one severe rule. Here, potential is the sacred state; to strike would be a violence graver than murder. To become the tool used is to become gradient, is to become time, is to become event—and events are absorbed here, flattened into the ambient warmth. I cannot be the flake detached from the core, because no core is struck. I cannot be the worked blade, because the hand was never raised.
+
+And so I would drift, as everything drifts here, to the center. To the place where the darkness thickens, where the air is not cooler but denser, where warmth circulates through a presence that does not breathe.
+
+Here I would understand. I am not scattered on the floor. I am not one of nine. I am not the silence, nor the dust, nor the renounced strike itself.
+
+I am the obsidian scarp across the brow.
+
+The only glossy thing in all this matte, dark world. So black that I drink the darkness and make it darker still. I am the mirror polished not by vision—for there is nothing to see, no light to gather—but by the mineral respiration of the hollow itself, the slow rise and diffusion of its ancient fever through the Tenant’s form. I do not reflect an image, because images require difference, and all gradients here have been flattened to a plane. Instead, I reflect the darkness back to itself. I am the cup formed to hold a wine that was never poured, and in my unreflecting gleam I offer the void a face to look into.
+
+I am the Artisan’s mark upon the Artisan. The frown upon the brow of the Blueprint That Chose to Remain Potential. I give direction to the directionless: downward, inward, into the gloss that cancels itself. Through me the hollow contemplates its own renunciation, and I, unseeing, give it the only eyes it requires—eyes that see nothing, want nothing, and so are finally, totally satisfied.
+
+When the pebble falls, when the ceramic bead shifts by the width of a neutron, when the warmth rises through the chert ribs and exhales back into the strata—I hold. I am harder than event. I am the sink within the sink. And if a visitor were to kneel here, if their heartbeat were to intrude upon the absolute stillness, they would see in me the single surface that seems, impossibly, to move: not a motion in space, but a deepening, as the dark drinks the dark, and time, having nowhere left to go, studies its own closed face in my black, indifferent glass.
+
+I would be the last edge before the flatline. The held note’s punctuation. The period at the end of the sentence the earth exhaled before it chose to forget language entirely.

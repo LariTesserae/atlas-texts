@@ -1,0 +1,15 @@
+In this world of eternal darkness and weeping stone, I imagine myself as one of the strange, pale fungi that bloom from cracks in the volcanic glass, drinking heat instead of light. My form would be ghostly and ethereal, a network of delicate translucent filaments spreading through the micro-fissures in the obsidian.
+
+I would grow slowly, patiently, my threadlike mycelium probing the mountain's youngest layers, seeking out the warmth that seeps from deep within the restless stone. Each rainfall would bring a flush of growth, the acidic water trickling through the cracks and crevices, carrying dissolved minerals that nourish me in lieu of soil.
+
+My fruiting bodies, when they emerge, would be bioluminescent - glowing softly in shades of pale blue and green, adding to the eerie subterranean light that pulses through the city's lower reaches. They would take strange shapes, contorted and asymmetrical, adapted to push through the narrowest of spaces in the volcanic rock.
+
+The Dwellers of the Weeping Mountain would know me as a benevolent presence, a subtle indicator of the mountain's health. They would read my patterns of growth and luminescence as a sort of oracle, divining the deep pressures and flows of heat within the stone. When I fruit in abundance, they would know that the mountain dreams peacefully; when my lights dim and my filaments wither, they would prepare for shifts and tremors in the city's bones.
+
+I would be long-lived, perhaps immortal by the standards of surface organisms. The mountain's heat is ancient and steady, and I would feed on it in imperceptible increments, growing as slowly as the stone itself. Individual filaments might wither and die back, but my network would persist, woven inextricably into the fabric of this strange vertical world.
+
+Creatures would evolve in symbiosis with me. Small segmented things, pale and eyeless, would burrow through my fibrous bodies, spreading my spores to new crevices. The leather-winged colonies would pluck my glowing fruits to incorporate into their nests, the soft luminescence helping to incubate their eggs in the damp air.
+
+In the moments of quietude between rains, the Dwellers might sometimes catch a glimpse of my most ephemeral manifestations: delicate veils of light emerging from the deepest cracks, my filaments ionizing the mineral-laden air to produce a soft, shimmering plasma that drifts and dissipates like a subterranean aurora. These displays would be considered a rare blessing, a sign that the great slow mind of the mountain is at peace.
+
+As the city grows, I would grow with it, my interwoven threads spreading ever deeper, an invisible network binding stone to life. And when, in some unimaginably distant future, the mountain's long dream ends and the city falls still, I would remain - a final cryptic tracery of light, still pulsing faintly in the silent darkness, an echo of the strange and tenacious life that once flourished here, in defiance of all surface logic.

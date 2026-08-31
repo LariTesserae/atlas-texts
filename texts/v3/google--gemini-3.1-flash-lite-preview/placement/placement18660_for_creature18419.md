@@ -1,0 +1,15 @@
+The ground here does not feel like solid matter. Beneath me—or perhaps, *within* me—it is a thick, cool emulsion, a sensory bridge between the firmness of history and the fluidity of the present. 
+
+I find myself low, pressed against the wet periphery of one of the tea-colored pools. If I have a form, it is not one of bone or limit, but rather a long, cooling expansion of jelly and nerve, tethered to the pulse of the mud. I am not a thinker in the human sense; I do not catalogue or analyze. Instead, I *perceive* through the slow, thermal drift of the atmosphere. I am a **Vitreous Crawler**, though that name feels far too urgent, far too active for what I am. 
+
+I am a translucent ribbon, a living sheet of mica resting at the waterline. 
+
+My consciousness is a series of gradients. The sunlight—the honey-gold haze—isn't something I see with eyes; it is a weight against my dorsal surface, a warmth that dictates the intensity of my inner glow. When the light filters down, I am a pale, bruised violet; when the sky deepens into the cool, white-blue of the evening vapor, I turn the color of a fading ember.
+
+I do not move unless the rhythm of the basin demands it. I am currently anchored by the gentle suction of the silt, my fringe of cilia softly stirring the surface tension of the pool. The sound is not "noise" to me; it is a topography. I feel the *thwack* of the frogs as ripples that travel through my body, a percussive massage that encourages the sluggish circulation of nutrients through my flesh. The *fizz* of the weeping rocks is a constant, ambient hum—it is the sound of the world dissolving, and I am the creature that exists in the wake of that dissolution.
+
+A **Drone-Veil** drifts overhead, its shredded-silk shadow passing over me without breaking my peace. For a moment, its gossamer filaments brush my spine, tugging like fishing line in a calm sea. I do not feel fear. I feel only the potential for an exchange. It is a slow, quiet curiosity. If it descends, I will flare a deeper, richer violet, and it will be absorbed into the landscape of my own body, an ingestion so gradual it is indistinguishable from the act of being.
+
+To be here is to exist in a state of terminal contentment. There is no tomorrow to strive toward, because the basin provides everything within the circumference of my own skin. I am not a creature living *in* a landscape; I am a local condensation of the landscape itself. I am the mud becoming sentient, the humidity thickening into a thought. 
+
+I feel the **Basin-Worm** moving in the depths beneath me—a great, slow, muscular churning that shifts the ground by a fraction of a millimeter. The Earth shifts, and so I, too, settle. I have nowhere to go. I have no task but to rest. I am held by the weight of the air, contained by the liquid horizon, and in this, I am finally, perfectly, indistinguishable from the peace that surrounds me. I am the silence, made manifest in warm, translucent flesh.

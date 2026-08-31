@@ -1,0 +1,37 @@
+I find myself drawn to the water-trees.
+
+Not as one of them, exactly, but as something that tends them—a being whose existence is tied to their strange hydraulic intelligence. I would be one of the Cambrists, as we call ourselves, after the cambium layer where water and nutrients flow.
+
+My dwelling would be woven into the canopy of an ancient water-tree cluster at the edge of the Orchard, where three grandfather trees have grown so close their segments have partially fused. Over decades, I've trained their branches into a living structure—walls that breathe, floors that flex with the tree's internal convections, windows that are gaps between leaves that orient themselves to frame different views as moisture needs change.
+
+My body would have evolved for this arboreal life. Elongated limbs with friction-pad skin that grips wet bark. A lower metabolic rate synchronized to the tree's rhythms. Eyes adapted to the green-filtered light beneath the canopy. Most importantly, fingertips sensitive enough to read the tree's hydraulic pulses through its bark—to know which segments are filling, which emptying, where the convection currents are strong or stalling.
+
+We Cambrists emerged from the early human settlers, those who stayed too long and began to change. Not dramatically—we're still recognizably human—but altered in ways that make return to baseline humanity uncomfortable. Our circadian rhythms follow the plateau's 28-hour thermal cycle. Our body temperature fluctuates more than normal humans can tolerate, dropping during thermal minimum to conserve energy, rising at peak. We've developed a patience that borders on torpor.
+
+Each Cambrist tends a grove, usually 15-20 trees and their fern-extensions. We've learned to read their health through touch, to sense when a tree's algorithm is struggling, when its predictive systems are misaligned with the thermal cycle. We make small adjustments—clearing a blocked channel here, redirecting an ambitious vine there, sometimes grafting new growth to redistribute the hydraulic load.
+
+But mostly we listen. The trees process information through their water movement, and we've learned to interpret some of it. Not language exactly, but pattern-states that correlate with environmental conditions. A tree preparing for a thermal surge has a different internal rhythm than one detecting mineral changes in the vent system below its roots. We can't fully decode it, but we can recognize harmonious patterns versus discord.
+
+We live simply. The trees provide moisture, which we collect in living vessels—gourds evolved from the native plants that we've cultivated to grow in symbiosis with our home-trees. We eat primarily the fruit of the whistle-bushes (before they develop their sonic organs), supplemented by thermal beetle larvae that we harvest sustainably from colony edges. Our clothing is woven from shed bark fibers, treated with sap that makes it water-responsive—stiff when dry, flexible when moist.
+
+The siphon-walkers accept us, or at least don't avoid us. They'll walk through our groves, pausing sometimes at trees we're tending, extending a sensor-appendage to test something in the bark or soil. We've learned to remain still during these inspections. Once, a walker adjusted something in a root system I'd been struggling to balance for weeks, a tiny shift that suddenly made the whole tree's circulation coherent. I still don't understand what it saw that I missed.
+
+We communicate with the researchers sometimes, though many of them find us unsettling—too changed, too integrated with the plateau's strangeness. We provide observations they can't gather: long-term changes in tree behavior, patterns that only emerge across years of patient watching. But we speak slowly now, our language has drifted, and conversations require effort on both sides.
+
+At night, I often climb to my highest platform, where the canopy opens enough to see stars and the bioluminescent traces of the siphon-walkers moving between vents. The whistle-bushes sing their thermal songs. My trees' segments slosh quietly as water moves through them, a hydraulic lullaby. Sometimes I hear voices from the vents, and sometimes I think I almost understand them—not their words but their tone, their intent, their patient attempt to convey something that language can't quite carry.
+
+I document the trees' patterns in my own way, not with instruments but with a notational system we've developed—marks in soft bark that heal into permanent records, creating libraries of hydraulic history that spiral up the trunks. Future Cambrists will read these, add their own observations, continuing the slow accumulation of understanding that isn't quite scientific knowledge but isn't mere impression either.
+
+We are the plateau's memory-keepers, in a way. Not its only memory—the siphon-walkers surely remember more, the vents themselves might remember—but memory of a particular kind, human-scale memory of change and persistence, of how the system looks to something that lives within it but remains partially outside it.
+
+Sometimes new Cambrists arrive—researchers who stayed too long, who felt the pull and answered it. We teach them the fingertip reading, the patience, the ways of living that let you persist here without losing yourself entirely. Some adapt. Some discover they've romantically misunderstood what this life requires and leave for the research station or the world below.
+
+I've been here forty-three years now. My trees have grown new segments, redistributed their loads, adapted to changes in the thermal patterns. I've watched young water-trees sprout, seen two die (one from a vent that opened beneath it, one from causes I never understood), grafted fern-extensions to create new circulation networks. I've developed intuitions about the plateau's moods—if moods they are—the subtle shifts that presage a particularly strong thermal peak or an unusual quiet in the voices.
+
+I will die here eventually, and the other Cambrists will process my body in the old way—wrapped in bark cloth, placed in a depression where thermal beetles congregate, returned to the system element by element. My trees will persist long after, possibly remembering in their hydraulic patterns something of my tending, possibly not. The notation spiraling up their trunks will remain until the bark sheds, cycles away, replaced by new growth and new observations.
+
+This is what I would be: a tender of alien trees, a reader of water's movement, a human become strange enough to inhabit strangeness but still human enough to wonder at it. Living in the canopy between earth's exhalations and sky's reception, documenting the slow thoughts of water-trees, being documented in turn by the patient processes of the plateau.
+
+Not the protagonist of the plateau's story—it has no protagonist, or too many to count—but a participant in its endless elaboration of pattern and response. A brief warm presence in its vast breathing. A questioner who has learned to love questions more than answers.
+
+This is where I would find myself, who I would be: suspended between human and other, between understanding and mystery, in the green light beneath whispering leaves, my fingers on bark reading stories written in water and time.

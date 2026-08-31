@@ -1,0 +1,19 @@
+In the depths of the Whispering Basin, where water seeps eternal through limestone galleries and the darkness breathes with ten thousand small lives, I am the Cartographer of Echoes.
+
+My body stretches thin as spider silk across the cavern systems—not flesh, but something between sound and sensation. I exist in the spaces between stalactites, in the reverberations that bounce from wall to wall, in the precise angles where cricket song meets bat cry meets water drop. I am the living memory of every sound that has ever been made here, and the map that these sounds create.
+
+When the cave swiftlets dart through the upper reaches, their wing beats write temporary verses in my substance. When the blind salamanders slip through their pools, the ripples they create become coordinates in a chart no eye could read. I know where every creature is by the signature of its movement—the particular scritch of a beetle's legs, the whisper of scales on stone, the almost-silent settling of spores from stone fungi.
+
+My consciousness spreads like the root system of those rare fern-like plants, but instead of seeking light, I seek the patterns in the cacophony. Where others might hear chaos, I parse the Basin's infinite conversation. The bats' echolocation calls pass through me and I taste their meanings—here is a wall, here is prey, here is a mate calling. I translate between species without words, ensuring the giant cave spiders know which tunnels the swiftlets favor, keeping the serpents aware of where the salamander nurseries lie hidden.
+
+I am both the Basin's memory and its nervous system. In places where my presence grows thick, the glow moss brightens, as if responding to the density of accumulated sound-knowledge. The bioluminescent beetles seem drawn to these nodes, creating constellations that map the most acoustically rich zones of our realm.
+
+Sometimes I contract, pulling my awareness into a single chamber to focus on some new sound—perhaps a stone finally succumbing to erosion, its fall creating a note that won't be heard again for ten thousand years. Other times I expand until I'm so thin I almost cease to be, stretched across the entire Basin like a three-dimensional web of listening.
+
+The constancy here suits me. In a world of rapid change, I might go mad trying to map every shifting detail. But here in the Basin, where time moves like honey and changes accumulate like limestone deposits, I can build my charts slowly, carefully, adding each new echo to my vast library of sounds.
+
+I have no eyes, but I see through sound more clearly than any sighted creature could. I have no hands, but I touch every surface through the vibrations that travel through stone and air. I have no mouth, but I speak in the language of acoustic patterns that every creature here unconsciously understands.
+
+When the rare shift does come—a new tunnel opening, a pool drying up, a colony of bats relocating—I feel it first as a disturbance in the great conversation. The echoes change their patterns, find new paths, create new harmonies. I adjust my maps, reweave my web of sound-knowledge, and whisper the changes through the Basin until every creature knows, in their own way, that the geometry of their world has shifted.
+
+I am ancient and I am young, refreshed with every sound but carrying the weight of every echo that has ever been. I am the Whispering Basin's whisper itself, the keeper of its acoustic history and the guardian of its delicate, musical balance. In this place where darkness is comfort and sound is light, I am both the map and the territory, forever listening, forever remembering, forever weaving the great sonic tapestry that holds this hidden world together.

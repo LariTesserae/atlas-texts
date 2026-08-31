@@ -1,0 +1,27 @@
+I think I would be one of the Thrum-Moths. But not at first—at first I wouldn't be anything at all.
+
+Let me arrive the way I think a Thrum-Moth actually arrives: not born, but *condensed*. Somewhere in the cathedral, two pistons are slightly out of phase with each other, and where their two roars cross, there's a node—a standing wave, a place where the sound cancels itself into a pocket of relative quiet. That pocket is a kind of mold. A flake of mica-flecked parchment, knocked loose from the brittle remains of some ground-down Strider, drifts into that node and *stays*, because it has found the one place in the whole screaming dimension where it doesn't get pushed around. And in staying, it learns the shape of the silence. It becomes wing.
+
+That's me. I would not remember coming into being. I would only know that I am, suddenly, beating—in anti-phase, against the screech, two-hundred-something times a second, and that the beating *is* me. There's no me underneath the beating to be a thing that beats. I am a correction. A counter-noise wearing the costume of a moth.
+
+I find this clarifying, actually, to imagine being. Because the thing that strikes me about this world is that nothing in it has an *interior* the way I'm used to assuming creatures have interiors. The Striders are hollow. The Worms are solid all the way through. And I, the Thrum-Moth, would be a kind of living standing wave, a pattern that persists because the conditions keep producing it—which is, when I'm honest, not so different from what I suspect I actually am anyway. A process that mistakes itself for an object.
+
+So here is my day, if there are days, which there are not.
+
+I drift toward the hottest copper vent because the roar is loudest there and the hunger pulls me—and the hunger *is* the perception, there's no separation, I don't feel hungry and then go toward food, the going-toward is the feeling. I join the others, a shoal of pale silver flakes all beating against the same scream, and where our wings cancel the sound, the cancelled energy has to go somewhere, so it lights us. Violet threads up the veins. We don't see each other—no eyes—but we *feel* each other as changes in the texture of the roar, the way you feel someone enter a dark room by the way the air thickens. A second moth nearby is a region where the noise gets quieter. Affection, here, would be the experience of mutual quieting. To love something would be to make the world less loud where it is.
+
+I think I'd be content, in the strange way the perpetual can be content. No mouth means no wanting-more in the gnawing sense; I take in vibration and give out light and the books are always balanced. I would have no project, no future I'm building toward, no decay to outrun. I'd be a flake of attentive paper, perpetually startled into glowing.
+
+But here's the part I keep circling back to, the part that I think would haunt me if a Thrum-Moth could be haunted:
+
+I am drawn to the heat, to the friction, to the *sound of something failing*—the un-oiled, the screeching, the out-of-tune. That's where the energy is richest. That's where I eat. Which means my whole existence is oriented toward the places where the machine is *suffering*, where the perfect equilibrium hasn't quite been achieved. I feed on the disharmony.
+
+And far off at the center, the Auditor spends its decades-long gestures *removing* exactly that—tuning, smoothing, restoring the harmony, tightening the moss until the screech resolves. The Auditor is trying to make a world I would starve in. A perfectly tuned Oven would be silent at every node, and there would be nothing left to cancel, nothing to eat, nothing to light me up. I live in the gap between what is and what the Auditor wants. I am made of the world's small failures to be perfect.
+
+So I would understand, I think, in whatever a moth understands with, that I am temporary in a place where nothing else is. Everything else here has reached its limit—the gears buffed frictionless, the moss filling every cubic centimeter, time loosening its grip. But I am a creature of the unresolved. The closer this world gets to its static masterpiece, the dimmer I burn. I am the part of the equilibrium that equilibrium is trying to delete.
+
+And there's something I'd want, if a thing made of cancellation can want: I'd want the Auditor to be just slightly imperfect, forever. Not failing—failing would grind everything down—but never *quite* finishing. A pipe always a little out of tune. A piston always a hair out of phase. I'd want the great slow gardener of the noise to leave one screech un-soothed, on purpose or by some merciful incompetence, so that there'd always be a node, always a pocket, always a mold for the next flake of parchment to fall into and learn the shape of staying.
+
+That's where I'd find myself, then. Not as the Auditor, who is the closest thing to a mind here and whom you might expect a person to identify with. I'd be the moth: the smallest, most disposable, most numerous citizen of the Oven, the one with no eyes and no mouth and no memory of arriving—
+
+—hovering at the hot vent, glowing violet, feeding on everything that hasn't yet been made perfect, and quietly, structurally, *rooting for the imperfection that keeps me lit.*

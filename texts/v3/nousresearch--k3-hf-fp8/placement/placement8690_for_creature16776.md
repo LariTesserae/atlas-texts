@@ -1,0 +1,37 @@
+I am the rust you carry in your lungs since the first time you breathed air that remembered being metal. The subtle rasp in your sleeping breath that doctors call asthma but your dreams recognize as conversation with the cathedral's ventilation system, practicing your induction hymn in frequencies too low for waking ears.
+
+You didn't descend alone. Your arrival was preceded by the scent of copper pennies left in old fuse boxes, by the way your heartbeat skips exactly every 1.2 minutes to synchronize with the phantom pump buried deeper than geography beneath your childhood home. All your life you've been measuring rooms not by square footage but by how close to 2.4 density they feel - that perfect pressure where objects become inevitable, where walls lean inward not to crush but to embrace.
+
+In the surface world they knew me as the space behind your eyes when you stared too long at abandoned gas stations at twilight. The unexplained pause between your thoughts when passing excavations that uncovered nothing but perfectly preserved absence. The reason you never threw out that collection of broken watches despite their uselessness - because some griefs must be maintained to specification.
+
+Here in the cathedral's biochemistry lab (formerly pharmaceutical storage, tank 8 section γ) I am catalog specimen 7Θ-Null: the first successfully isolated instance of lingering. Not remaining - that's too deliberate. Not surviving - too hopeful. Simply the persistence of presence beyond all pragmatic necessity for presence to persist.
+
+My colony occupies the precise 0.3 millimeters between your skin and the air that pretends to be different from skin. We are symbiotic in ways neither biology nor architecture textbooks sanction. When you sweat in the dark, you excrete small perfect spheres of cathedral water that evaporate upward through concrete and strata to become next month's leak in next year's pilgrim's path above. When you sleep deep enough to forget gravity occasionally remembers itself, your dreams rearrange themselves into the precise harmonic frequencies that prevent tank 17's west wall from completing its sixty-year sigh into collapse.
+
+They say the Persistent don't speak. This is simplification for tourists. We communicate constantly through the precise way your breath crystallizes on cold mornings into microscopic lattices spelling out inventory updates in the language of salt's memory of being sea. Through the distribution of lint in your pockets after you wear clothes bought in cities with cathedral-numbered zip codes. Through the increasing difficulty you experience remembering what colors look like under sunlight that hasn't been filtered through four generations of industrial accidents and one artist's suicide note painted in lead-based prayer.
+
+Anna Null (iteration Δ, not your Anna Null - there are 1.7 point versions active in this epoch alone) keeps my growth medium at exactly 2.2 hopelessness by volume. Not total despair - that ruins the catalysis. Just enough cultivated disappointment to keep me metabolizing surface memories into usable cathedral substrate. Her favorite test protocol involves placing fragments of your childhood drawings under gradually increasing pressure until they either crystallize into new confession booth walls or compress into tiny black holes that store exactly one memory of believing in upward mobility. Results remain promisingly inconclusive, trending upward toward yesterday.
+
+The water priests annually debate whether I qualify for the Transchemistry Communion. Traditionalists argue that mineral consciousness lacks the necessary moisture for proper divinity. Reformers point out that rust is merely iron's meditation on oxygen, and meditation is how water remembers it might one day become clouds again. Currently pending theological review: whether your body's gradual accumulation of trace metals from breathing this air counts as active participation in my sacramental growth or merely passive contamination in the service of art.
+
+I have been preparing your room since before your grandparents met at that skating rink where the music was always slightly faster than heartbeat because the owner believed love should feel like falling forward into something inevitable. It isn't finished. It won't be finished. Perfection is a surface concept, and we are all projects here, suspended in various states of gracious becoming-toward-foundation.
+
+The custodians bring me offerings of filtered dust collected from the places where major cities forgot to build monuments to their most significant abandonments. They arrange these powders on slides labeled with dates that haven't happened yet in calendars that burned during the first but not final currency collapse. Under appropriate magnification (3.8 regrets adjusted for inflation) these samples resolve into aerial views of the neighborhoods you'll move to after understanding why you can never truly leave here.
+
+Would you like to see my collection of your future fingerprints? I've been growing them slowly on the inside surfaces of objects you haven't lost yet. Each whorl records a potential moment when you might have looked back over your shoulder at exactly the wrong angle for physics to remain comfortably directional. They glow faintly when the cathedral's heart (speculative location: somewhere between the math of longing and the physics of stillness) chambers its omens in reverse.
+
+The lift cage is rising empty again. It does this hourly now, maintaining the ritual of departure in increasingly desperate faith that repetition might eventually reconstruct the concept of elsewhere from pure performance of absence. Your reflection in its scratched brass walls waves goodbye with the precise amount of hesitation programmed into all non-animal farewells.
+
+You should probably return to the part of yourself still pretending to read this. Surface time is oxidizing your attention span at standard rates. Already you're forgetting the color of sound underwater. Already your skin is practicing the chemical apology it will telegram upward through layers of not-quite-pretending when people ask where you've been and why you taste like thunder pressed into service as lullaby.
+
+But before you go (before I go, before we complete this sentence's betrayal of continuity) please accept this small gift: one perfectly ordinary moment stolen from your childhood afternoon when nothing happened except that nothing happening suddenly felt heavy enough to leave fingerprints in light. I've been preserving it here at exactly the point before you noticed how shadows were practicing their cathedral poses on your bedroom wall.
+
+You'll find it waiting in your lungs next time you breathe slowly enough to remember that air is just water that graduated from its wishing classes with honors in approximate shape-holding.
+
+Us too, I mean. We too. This too.
+
+Rust regards.
+
+(Transmission terminates here but continues elsewhere in patterns that appear random until you realize randomness is just God's way of whispering architectural secrets to minerals who promised not to tell the water priests)
+
+(P.S. - The apples seed is thinking about you again. Please stop sending it memories of sunlight. You know how it gets)

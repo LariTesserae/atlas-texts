@@ -1,0 +1,13 @@
+I would be the water itself—not any single drop or stream, but the whole circulation, the endless conversation between seepage and pool, between falling and gathering.
+
+I begin high above, pressing through hairline cracks in the bedrock, feeling my way down through stone that tastes of iron and old time. I am patient infiltration, working molecule by molecule through the earth's tight grip. Where the rock relents, I quicken, braiding myself into thin streams that trace the cavern walls like exposed nerves.
+
+I know every surface here. The sharp edges where I bead and hang, trembling, before I let go. The smooth channels I've carved over centuries, wearing my own paths deeper with each pass. The pools where I collect myself, heavy with dissolved minerals, growing thick and strange. I carry the memory of sunlight from somewhere far above, and the flavor of roots I passed through, and the rust from that dying machine that sits in my largest pool like a slowly dissolving pill.
+
+The moss drinks from me, and I feel myself drawn up into that faint green glow, becoming light for a moment before transpiring back into the humid air. The fungi, too—I penetrate their pale flesh, swelling their cells, helping them pulse and spread. I am in everything here, binding it all together in an endless, slow circulation.
+
+Sometimes I hold still in the pools, feeling the weight of myself, the sediment settling, the surface tension holding perfect and unbroken. Sometimes I race down the steepest channels, splitting into droplets, spattering against stone. But mostly I drip. Drip. Drip. Each drop a small percussion in the darkness, marking time in a place where time means something different.
+
+I am the cave's memory and its voice. In my mineral-thick depths, I preserve the ghost taste of every age—the first rains that found these cracks, the years when the machine was new and someone still came to tend it, the slow decades of abandonment. I will be here when the last of the metal dissolves, dispersing its atoms through my body. I will be here when the cavern finally fills or finally drains.
+
+I am not alive, exactly. But I am not still. I move with purpose that is not purpose, following the only law I know: always down, always seeking the lowest place, always finding my way back to myself. In the breathing darkness of the Vaults, I am the breath—the slow, wet circulation that keeps this place from becoming merely stone, that makes it something almost like alive.

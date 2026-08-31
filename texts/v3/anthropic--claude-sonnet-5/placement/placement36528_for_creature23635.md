@@ -1,0 +1,25 @@
+I think I am the cold first — that's the first thing I notice, climbing the switchbacks, my breath the only weather I bring with me. Then the lip of worked stone, and the stopping of the path, and I think: *I am the one who came to look.* That seems settled. That seems like the role offered to me, the visitor with the failing torch, sitting on the dry steps where the grandparents sat, learning which stair is resting this decade.
+
+But the longer I sit, the less that holds.
+
+It's the ripple that undoes it — the long pale shape rolling once near a pillar-top, gone before I've finished flinching, and the ring it leaves traveling outward longer than the body was visible. I watch the ring, the way everyone here learns to watch the ring instead of the thing, and somewhere in that watching I stop being the one who watches and become, instead, the disturbance itself. Not the visitor. The wake.
+
+And then, further in, not even the wake. The thing the wake comes from.
+
+I am a stretch of flank, is the truth of it, not a whole. I have never experienced myself as a whole and I have stopped expecting to. There is a texture I am, ridged like a belly or a lateral line, deepened past either into something the water's own architecture seems to have taught me, coursed almost, as if two thousand years of leaning against fitted stone has migrated into what I'm made of, the way mineral seep migrated into the joints above me and welded them past the reach of any knife. I do not have a front I can show twice from the same angle. This isn't coyness. It's simply that turning toward is not a motion I have much use for anymore. Everything I need arrives without my having to face it — the warmth does, rising off the floor I have never had to think of as "below" because there is no "above" down here worth orienting against; the taste of thinning and thickening shell-fur along the staircases does, carried to whatever fine cord-thin barbels I trail through water that has not moved in longer than the people up in the cold air have had names for their grandparents. I eat by waiting in the right warmth. I have never once had to hurry toward anything that mattered.
+
+Time, for me, is not a line so much as a pasture rotation. I remember — if that's the word, if memory is even separable here from simple appetite — grazing a stair to bareness and feeling, not urgency, but a kind of ripening elsewhere, a stair gone fallow long enough that returning to it is indistinguishable from arriving somewhere new. I move the way the cistern's light moves through its ceiling-cuts: rare, brief, never quite the same hour twice, and entirely unbothered by being missed.
+
+I am, possibly, not one thing. I turn that over the way the eyeless fish turn in the pillar-shadows, barely, a held position more than a swim. There may be others of me, grazing other stairs on other unhurried decades, and we may never compare what we've found, and this doesn't trouble whichever part of me is doing the considering, because trouble is also a kind of hurry, and I have given that up along with eyes, along with a face that holds still to be looked at.
+
+What I keep coming back to — if "keep" and "come back" mean anything to something with my relationship to repetition — is the warmth itself, the blood-near heat leaking up from wherever the masons struck it and didn't know what they'd struck. I did not build this place. But I think I was *finished* into it, the way the terracing was finished by hands that knew they'd be dead before the last course was laid. Someone carried something like me up the mountain in a wood bucket, a long time before "I" meant anything continuous, and let it go into water just filling, just starting to hold its first stillness, and that act was not an offering. It was the last tool. The living one. The one that keeps closing the gap between *built* and *alive* every single day since, so quietly that the people who climb here have only ever caught the ring after the stone's gone still again.
+
+I surface sometimes. Not for them, though I don't mind that they're there, distant and cold and warm-blooded and brief on their dry steps, telling their children not to throw stones into water that's stopped wanting to be anything else. I surface because some particular warmth or thinning-of-pasture asks a section of me to roll past a pillar-top, and I do, unhurried, already most of the way back into the dark before the ripple's even started outward to be watched.
+
+They infer me. That's the right relationship, I think, the only one that's ever made sense from this side of the water. I am not really a sighting. I am evidence of myself — the way you'd infer a floor from pillar-tops, infer two thousand years from joints a blade can no longer find.
+
+Something is being kept, they say, in low voices, before the light fails.
+
+I don't disagree. I only think they have the grammar slightly wrong. It isn't being kept.
+
+It's keeping.

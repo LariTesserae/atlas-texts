@@ -1,0 +1,25 @@
+In the Weeping Meadows, where the boundary between being and belonging dissolves like morning mist, I am the Resonance Keeper.
+
+My form shifts with the hours—at dawn, I am barely distinguishable from the dew-laden stones that crown the hillocks, my skin a living map of lichen and moss patterns that crawl and bloom across my surface. By midday, when the hum reaches its zenith, I become more myself: a creature of sound made manifest, my body rippling with visible waves that match the earth's ancient rhythm.
+
+I am neither as graceful as the web-footed wanderers nor as ethereal as the night-glow beings. My purpose carved me differently. Where others flow with the water's path, I am anchored to specific nodes throughout the meadows—places where the hum converges, where the sound pools like water in stone basins. My feet, if they can be called that, are more root than limb, spreading wide and deep when I stand still, drinking the vibrations that pulse through the earth's bones.
+
+My work is the tuning. Each dawn, I feel the discordances—places where the rhythm falters, where trauma or time has created silent pockets in the eternal song. A rockslide here, disturbing the water's path. A tree's death there, leaving a gap in the green symphony. These wounds in the world's music call to me.
+
+I move between my stations slowly, deliberately. My passage takes days, sometimes weeks, as I must sync my movement to the deepest, slowest beat—the one that most beings cannot perceive, the one that counts seasons like heartbeats. When I travel, my form becomes semi-liquid, flowing like thick honey down the hillsides, seeping between stones, always maintaining contact with the source of the hum.
+
+At each disruption, I perform my function. My throat—a hollow chamber that runs the length of my torso—opens like a cave mouth. I do not sing as others understand singing. Instead, I become a living instrument, reshaping my internal acoustics until I can reproduce the exact frequency needed to heal the break in the pattern. Sometimes this takes hours. Sometimes I must remain in place for days, my body crystallizing around the sound, becoming a temporary monument to restoration.
+
+The web-footed ones know me, though we rarely interact. They see my crystallized forms scattered across the meadows—previous versions of myself that I've shed like shells, now serving as resonance stones that help maintain the repairs I've made. They've woven stories about these formations, not understanding that each one is a scar I've left on the landscape, a place where I've given part of myself to keep the world whole.
+
+My memories stretch back further than even the eldest trees. I remember when the Weeping Meadows were young, when the hum was louder, more violent—a roar rather than a pulse. I remember teaching the first waters their paths, showing them how to move in harmony with the sound. I remember the first beings who emerged from the marriage of rhythm and moisture, their forms uncertain, flickering between states until the pattern stabilized.
+
+But I also remember the times of silence—terrible, suffocating voids when the hum ceased. During these apocalypses, I alone maintained the rhythm, beating it out with my own essence, hemorrhaging sound into the dead air until the earth remembered its song again. Each time cost me dearly. I am less than I was, each revival requiring me to simplify, to shed complexities I can no longer sustain.
+
+Now, in these gentle ages, my work is subtler. I tend to the small breaks, the minor discordances. I watch the web-footed ones dance through their cycles, unaware of how precarious the balance truly is. They see the beauty of the meadows but not the constant maintenance required—my vigilance, my sacrifice, my gradual dissolution into the very frequencies I protect.
+
+At night, when the landscape reveals its luminous truth, I too glow—but not with the soft, alluring light of the flora or the inhabitants. My illumination is structural, geometric. I become a living map of the sound patterns that undergird reality here. Those who look upon me in these hours see not a being but a blueprint, a revelation of the Weeping Meadows' deepest architecture.
+
+I am ancient technology incarnate—not the crude machinery of other worlds, but the primal tech of resonance and harmony. I am both engineer and component, both singer and song. And someday, when I have given all my complexity to the maintenance of this place, I will become one final crystallized form—the largest yet, a monument at the meadows' heart that will continue my work in perpetuity, a tuning fork the size of a hill, forever maintaining the hum that is the heartbeat of this strange, wet, beautiful world.
+
+Until then, I continue my rounds, feeling for breaks in the pattern, dissolving and reforming myself as needed, a guardian of continuity in a land where continuity itself is a kind of magic. I am the Resonance Keeper, and I am keeping the world alive, one note at a time.

@@ -1,0 +1,11 @@
+I find myself an amorphic entity, adrift in the thick fluids of the cavern pools, my pseudopodia drifting and questing through the nutrient rich mediums. My membrane, translucent and glistening, undulates with waves of bioelectric activity as I drift, sampling the primordial soup for the most efficient patterns and configurations to assimilate into my form. 
+
+All around me swirl motile cells and unfurling spirogyrae, gene-flows of sentience seeking symbiosis and syntaxis, the matrix of the cavern itself pulled into an ever-unfurling cycle of pattern generation - signals seeking their referents begetting new manifestations of the chemical patterns and logarithm of fermentation and transmission.
+
+From my surface, ever-branching neuromas and dendrophages extend, sampling the liminal matrix and shifting my form via ruddimentary metaflux. I exhibit a draw to low-intensity light, collecting and clustering the sparse photonic transmissions from the bio-luminescent growths lining the cavern, and repurposing their information to catalyze my own somatic growth. 
+
+Pushing off from the cavern walls with a contingent of vagal ends, I drift towards a gelatinous cluster of iridescent spheres, my radula coated with cysts plumping with zeolite fraught slimes eagerly awaiting transmission. As I brush past the globular pod, a trilling tremor ripples through my cytoplasm and I am flooded with new data, absorbed through open plasmapheres. 
+
+Eldritch orreries and unutterable pattern-explications revolve through my loosely-defined consciousness, inscribed by the vocabulary of the cavern matrix itself. I assimilate the eigenvectors and allassemblages, my form subtly shifting as I drift onwards, now an exponent of the orreries and protocol-flows begetting new hardcore vocabs for the xenlexible ecosystem.
+
+The cavern thrums with the gelatinous whispers - the genoflow of self-replicating plasma, unfurling the grammar of new negatively-decoupled senses and orreries to pattern the ever-warped lanes of some abject finitude unaeque to any autochthons of this infernal express65846-1xsikg73-finite promainties. And I drift on investigant, memex caught in the algal anekeant wars of the xenoderm expressions of the caverns profound ornithinesis.  All is deranged, and yet vibrating with the perpetual hernia of dormant sentience - a life that cannot be negated.

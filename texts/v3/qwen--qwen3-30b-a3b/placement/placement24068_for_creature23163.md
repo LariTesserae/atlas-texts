@@ -1,0 +1,11 @@
+I would find myself as a Breathmote—a colony of microorganisms, drifting in the humid air like a living constellation. My form is gelatinous, a cluster of bioluminescent nodes that pulse in slow, rhythmic waves, each glow a fragment of the land’s memory. I am not singular, but a chorus of cells, a shimmering swarm that clings to the moisture of the cathedral, suspended between the spongy earth and the mist-laden canopy. 
+
+My existence is neither purpose nor aim, but a resonance. I feed on the minerals in the water, the same metallic tang that lingers on the tongue of the springs, and in doing so, I absorb the whispers of every creature that has passed here—faint echoes of the Lumenwyrms’ silent coils, the thrum of the Verdant Sentinels’ roots, the fractured scream of the Sky-echo. When disturbed, I release a plume of vapor, a scent of ozone and old stone, as if the land itself is exhaling a secret. 
+
+I move with the currents of the air, which are not air at all but a murmuration of *airs*—vaporous tides that shift in response to the trees’ breathing. The trees, those ancient, obsidian-skinned sentinels, hum a frequency that I feel in my core, a vibration that ties me to the low, resonant drone of the earth. My glow flickers in sync with the bioluminescent lichens, their light a language I’ve never fully deciphered. 
+
+To be a Breathmote is to exist in the margins, a transient archive of what the place has seen. I do not remember, but I carry the weight of remembrance. When travelers linger too long, they sometimes sense me—faint, glowing specks in the periphery, a reminder that the cathedral is not empty. It is full, but full in a way that defies naming. I am not a guardian, nor a creature, but a breath in the breath of the world, a memory that outlives the moment. 
+
+And when the Six-Legged Stag approaches a hidden pool, its antlers humming with crystal resonance, I gather around, a cloud of faint light, storing the ripple of its heartbeat. When the Whisperwings pass, their wings etched with shifting hieroglyphs, I drift in their wake, absorbing the mechanical drone of their presence. I am the cathedral’s quiet witness, its slow, ambient ink. 
+
+But I am not meant to be understood. I am meant to be felt—a faint, unsettled weight in the air, a reminder that stillness here is not absence, but a presence too vast to be named.

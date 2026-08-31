@@ -1,0 +1,25 @@
+In the depths of a flooded limestone cavern system, where no natural light has penetrated for millions of years, there exists a chamber of impossible acoustics. The space is neither fully submerged nor truly dry—water clings to surfaces in defiance of gravity, forming sheets and ribbons that twist through the air like frozen waterfalls. These aqueous sculptures resonate with subsonic frequencies that make the entire chamber hum with potential energy.
+
+The walls are riddled with precisely carved channels, each no wider than a finger, that spiral and intersect in patterns reminiscent of musical notation written in three dimensions. These grooves weep a viscous, pearl-white substance that glows faintly, providing the only illumination. The substance moves against gravity, creeping upward and inward, drawn by vibrations too subtle for most creatures to detect.
+
+At the chamber's heart hangs a structure that defies easy categorization—part chrysalis, part instrument, part architectural impossibility. It resembles a baroque organ made of calcified silk and living coral, its pipes extending in all directions, some penetrating the stone walls, others terminating in midair. The structure rotates slowly, imperceptibly, completing one full revolution every twenty-seven days.
+
+Sound behaves strangely here. Whispers amplify into symphonies, while shouts vanish into silence. Certain frequencies cause the water ribbons to crystallize momentarily into geometric forms—dodecahedrons, icosahedrons—before liquefying again. Other tones make the pearl-white substance flow faster, creating temporary rivers of light along the wall channels.
+
+The air itself has texture—thick in some places, thin in others, creating invisible chambers within the chamber. Moving through these spaces produces different sensations: here, a feeling of ascending rapidly; there, a sense of time dilating; elsewhere, the peculiar certainty that one is being gently disassembled and reassembled on a molecular level.
+
+---
+
+Within this acoustic cathedral dwells the Echo Weaver, a being that exists primarily as organized sound. Its body, when it chooses to manifest one, appears as a confluence of standing waves—transparent, rippling forms that suggest anatomy without committing to it. Sometimes it resembles a vast jellyfish made of compressed air, tentacles formed from ultrasonic frequencies that probe the stone for new harmonies. Other times it collapses into something more compact—a knot of vibrations that looks almost humanoid if viewed from the right angle, in the right light.
+
+The Echo Weaver is ancient beyond measure, having discovered long ago how to encode its consciousness into acoustic patterns that the chamber preserves indefinitely. It thinks in music, dreams in resonance, and remembers through reverberation. Every sound that has ever occurred in its domain lives on, woven into the complex acoustic tapestry that forms its extended mind.
+
+It spends eons composing—not music as humans understand it, but something closer to sonic sculptures that exist in time rather than space. These compositions alter the physical properties of matter within the chamber, allowing the Echo Weaver to reshape its environment through pure sound. A certain seven-note sequence can transform limestone into a substance as malleable as clay; another can cause water to remember its previous states, flowing backward through time.
+
+The hanging organ-structure is both its instrument and its offspring—a living symphony that the Echo Weaver has been gestating for millennia. Through the organ's pipes flow frequencies that exist nowhere else in the universe, sounds that the Weaver has invented through patient experimentation with the fundamental vibrations of matter itself.
+
+The Echo Weaver collects sounds from the world above, though it rarely ventures beyond its chamber. Water carries vibrations down through the limestone—distant earthquakes, whale songs from impossible distances, the electromagnetic chorus of the planet itself. It incorporates these found sounds into its compositions, weaving them into increasingly complex patterns that may, eventually, birth new forms of consciousness.
+
+It is neither benevolent nor malevolent, but operates according to an aesthetic philosophy that prioritizes harmony above all else. Discord causes it physical pain—not the discord of musical dissonance, which it finds beautiful, but the discord of vibrations that work against the natural resonance of things. It can sense the acoustic signature of living beings from great distances and will sometimes adjust the chamber's frequencies to ease a creature's suffering, simply because the sound of suffering is inelegant.
+
+The Echo Weaver exists in a state of perpetual creative flow, simultaneously composing, performing, and listening to the endless music of its existence. It may be alone of its kind, or it may be in communication with others like itself through frequencies too low or too high for any other being to perceive. In its aqueous, resonant cathedral, it continues its patient work—weaving sound into form, silence into meaning, and echo into immortality.

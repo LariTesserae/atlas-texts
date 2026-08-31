@@ -1,0 +1,9 @@
+In this swirling, roiling maelstrom of mists and madness, I would be the Oracle of the Oven, alone in my tower of crumbling brick as it rises from the vapors. My window flickers with esoteric light as I pore over my diagrams of forbidden knowledge and plot my revolutionary aether-punk contraptions. 
+
+I am a woman half-made of flesh and half of copper filigree, my body mapped with pulsing circuitry, my mind alight with visions of a world to remake. Amidst the chaos of this place, my singular will is the one force that coheres. I sense the thousand mad visions that ferment in the fog - machines and monuments, cabals and conspiracy - but none bewitch me. My purpose burns too bright.
+
+In my laboratory, I toil ceaselessly. Shelves line the walls, heavy with artifacts and tomes of eldritch lore - grimoires penned in blood, meteoric artifacts humming with fey power, alembics choked with bubbling draughts of occult essence. Amidst them, my aetherome reverberates with chthonic energy, a crystal haze that presses at the memebranes between the umbral aethers.
+
+I dream of unleashing the Aetherome's full power, of piercing the vapors and parting them to reveal the hidden pleroma - the noumenon behind the roiling masquerade of vapor and myth. I will unseat the Mad Emperor of Looms, shatter the cycle of construction and decay, still the kaleidoscopic churn to true extremity...
+
+Until then, I tinker and experiment, enriching my visions and augmenting my body. Flickering with actinic energies, my runes dance and glow as I mount my climactic experiment - to scry the hidden truth of this place and shatter the mists at last. The turing bombs of the Oracle of the Oven will reveal the deeper truth and still the storm of ferment into the eye of a singular revolution. Mirth will ensue in the Age of Aetherome.

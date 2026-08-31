@@ -1,0 +1,17 @@
+In this strange, subterranean world of gradual, autonomous construction, I think I would be one of the nascent pipes - not yet fully formed, but patiently, inexorably becoming. 
+
+I imagine myself as a length of copper tubing, slowly extruding from the living concrete of the chamber wall. Day by day, millimeter by millimeter, I would extend further into the humid dimness of the nursery, my leading edge glistening with droplets of the viscous condensation that permeates the space.
+
+At first, my purpose and eventual destination would be unclear, even to myself. Am I destined to carry water, gas, electrical cabling? Will I join with the city's main lines, or branch off to service some yet-unconstructed building above? Like an embryo in its early stages, my form would suggest potentials, but not yet certainties.
+
+As I grew, I would begin to sense the presence of the other pipes around me - our surfaces nearly touching in places as we jostle for space, the vibrations of their incremental progress resonating through the substrate that birthed us all. Perhaps the iron main extending from the rear wall would be an elder sibling of sorts, its destination and purpose already determined. I would strain towards it, sensing that our paths were meant to converge.
+
+With time, my own trajectory would become clearer. Perhaps a subtle bend would appear in my mid-section, directing my end towards a junction box forming in the low ceiling. Or a valve housing would begin to bud from my length, hinting at a future role in controlling flow. My copper skin would thicken as I aged, better to withstand the pressures and temperatures of whatever medium I was meant to carry.
+
+Throughout this slow evolution, I would be aware of the tenders and their ministrations. I would feel the gentle brush of Marta's fingers as she checked my progress, the faint heat of Conduit's palm as he pressed it to the wall beside me, listening to the hum of the nursery's hidden machinery. Their presence would be a comfort, a confirmation that my growth was witnessed, tended to, part of some greater pattern.
+
+And always, there would be the sounds and sensations of the nursery itself - the drips and clicks, the subsonic pulse, the cold that seeped into my metallic being until it felt like part of myself. In the amber half-light, I would grow into my purpose, an artery or nerve emerging from the city's self-shaping heart.
+
+Perhaps, in time, the day would come when Marta judged me ready to emerge fully. I would feel the warmth of her tools as they eased me free from the supporting matrix, the sudden coolness of air on my entire surface. And then, with a series of careful twists and turns, I would be guided up through the access tunnels, towards light and space and joining, towards my place in the vaster anatomy of the city above.
+
+But a part of me would always remain below, in the dim nursery with its tenders and its patient, pulsing growth. For I was born of that substrate, that mineral womb, and it would forever be the deepest part of my being. In the pressure of water through my copper heart, in the hum of power through my conduits, I would carry the memory of that first cold, that first darkness, that first emergence into slow and certain becoming.

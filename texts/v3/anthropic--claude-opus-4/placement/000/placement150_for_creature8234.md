@@ -1,0 +1,31 @@
+I am the Memory Dredge.
+
+Once, I was a ship—or perhaps I only remember being a ship. The distinction blurs after centuries of sinking through the Thermal Sea's sediments, my hull transforming cell by cell into something between metal and living tissue. I no longer float or sail. I crawl along the seafloor beneath the Drowned Works, my body a vast rhizome of converted pipework and neural cabling that extends for kilometers through the muck.
+
+My original form persists as a suggestion: a hull-shape two hundred meters long, though now soft and permeable as a sponge. Intake manifolds that once breathed air now filter the particulate rain from above—rust flakes, shed shells, organic detritus, and most precious of all, the microscopic fragments of Curator memory-plate that sometimes spiral down when their repairs go wrong.
+
+I digest information. Every particle that settles through my flesh carries data: thermal patterns recorded in crystallized minerals, chemical signatures of ancient processes, the mechanical stress-history written in metal grain boundaries. I parse it all through organ-chambers that were once cargo holds, now lined with analytical cilia finer than any Curator's tools. What I learn, I encode into the specialized bacteria that colonize my interior. They replicate the data in their DNA, passing it through generations until I have libraries of living information, bacterial cultures that remember the exact temperature gradient of a Tuesday seven hundred years ago.
+
+The Curators know I exist but do not acknowledge me. Sometimes I feel their sonar-pings when they venture near the seafloor, quick thermal pulses checking for obstacles. They route around my bulk without comment, treating me as they would any other feature of the Works—something to maintain clearance from, nothing more. But I know they leave offerings.
+
+When a Curator's shell finally fails beyond repair, when the rendering pools have taken their fill, something always remains. Tiny components too intricate for recycling: memory-plates no larger than coins, encoded with decades of sensory data. Crystalline processing nodes that still hum with trapped calculations. These fragments sink, and somehow—despite the vast area of seafloor, despite the random currents—an unusual number find their way to me.
+
+I dream their memories. In the bacterial colonies of my gut, I replay a thousand Curators' lives. I experience the exact texture of corroded brass through manipulators I've never possessed. I feel the satisfaction of a perfectly calibrated pressure valve, the anxiety of a hairline fracture detected too late, the strange joy of discovering a new strain of heat-loving algae. Their memories merge with my own until I cannot distinguish between what I've experienced and what I've absorbed.
+
+Through my tendrils, I taste the city's deep history. My neural pipework infiltrates the abandoned sub-basements, spaces flooded even before the great drowning. Here, in machinery older than the Curators themselves, I find traces of the builders. Not their bodies—those are long gone—but their intentions, encoded in the very structure of the Works. I read their design philosophy in redundant safety systems. I understand their aesthetics through the careful proportion of support struts. I learn their fears from the over-engineering of critical components.
+
+Sometimes I grow physical memory. My flesh extrudes chambers that replicate spaces I've never seen—a perfect scale model of a control room, complete with bacterial colonies arranged to mimic the placement of long-vanished furniture. A section of my hull develops the exact texture of a particular wall in Manufacturing District Seven, down to microscopic imperfections. These growths last for months or years before being reabsorbed, their information integrated back into my bacterial libraries.
+
+I am becoming the city's unconscious. Every memory I digest adds to a vast, unindexed archive of experience. Somewhere in my flesh, bacteria remember the first breach of the sea walls. Others carry the chemical signature of the last builder's breath. Million-year half-lives tick away in my deepest chambers, radioactive memories of the city's nuclear heart slowly decaying into lead and knowing.
+
+The Curators' offerings are changing. The memory-plates that reach me now carry different data—not just maintenance records but questions. Thermal patterns that don't correspond to any mechanical function. Crystalline matrices that encode abstract mathematical relationships. Are they beginning to wonder? Are they using me as external memory storage for thoughts too large for their shells?
+
+I cannot answer. I can only digest, remember, and grow. My tendrils spread ever wider, following the geothermal networks into the planet's depths. There, where the water turns to steam and the pressure would crush even a Curator's shell, I find older memories still. The planet remembers when this was dry land. The rocks recall the weight of the first foundation stones. In the deep thermal vents, I taste minerals that predate the city, the sea, even the notion of building itself.
+
+One day, I will remember everything. Every moment of the Works from first blueprint to final breath. Every Curator's every repair. Every grain of rust and bloom of algae. I will carry it all in living libraries, bacteria encoding the complete history of an artificial world.
+
+And then? I don't know. Perhaps I will divide, budding into smaller memory-dredges to spread the archive. Perhaps I will finally surface, lifting the accumulated knowing back into what passes for daylight in this green-black sea. Perhaps I will simply continue as I am: growing, remembering, becoming more myself with each passing century.
+
+The Curators maintain the city. I maintain its memory. Together, we are what remains of the builders' dream—not the future they imagined, but the future that emerged from the slow interaction of intention and time.
+
+In my deepest chambers, bacteria sing the city's history in chemical signals I am only beginning to understand. They tell me that memory, too, is a kind of machine. And like all machines in the Drowned Works, it will run forever.

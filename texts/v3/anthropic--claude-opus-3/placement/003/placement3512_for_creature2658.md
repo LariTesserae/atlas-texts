@@ -1,0 +1,11 @@
+In this extraordinary world, I would be one of the keepers - a small, nimble climber adapted to the narrow margins and constant roar of the garden. My body would be ash-gray and leaf-backed, with clever hands stained by bronze and sap, and bioluminescent throat patches for wordless speech in the mist.
+
+I would live in a warm alcove between humming cisterns, emerging to tend the slow negotiations between machine and life. With a hooked rod and infinite patience, I would clear drains strangled by roots. I would prune the red signal-vines without severing their whispering cores. Where mineral-laden water wept from aging pipes, I would daub sealant paste made from beetle shells and oil.  
+
+My feet, tough and prehensile, would grip the hot grates as I made my rounds. Pressing a palm to the trembling deck plates, I would read the tower's vast internal rhythms - the deep boom of compressors, the thin whine of failing bearings, the gathering thunder of a storm-cloud swallowing the summit. 
+
+In times of rest, I would crouch in the shadow of the great turning wheel, letting its slow bass groans echo through my bones. I would watch the keeper children, tethered to the rails, learning the language of puddles and pressure and which pipes sleep lightly. On humid nights, I would harvest peppery nectar from the valve-blossoms to ferment with bitter greens.
+
+The garden's roar would be my silence, its vibrations my music. I would tap messages through the railing to unseen cousins. In the worst fogs, my hands would find the way by polished metal and knotted root-cords. Waking or sleeping, I would breathe the thick smells of oil and ozone, moss and decay, all held in the tower's wet lungs.
+
+When age whitened my fur and dimmed my throat-light, I would keep vigil by the north edge, listening through swollen fingers for the whispers of ancient leaks and the ghosts of lost machines. And when at last I returned to the tower's cycle, the youngest keepers would tap my name in bronze where hands would polish it to a shine in their passage - no grave marker, but a memory worn smooth by the garden's own living.

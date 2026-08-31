@@ -1,0 +1,15 @@
+I find myself as one of the Resonance Keepers, though that is a name given by those who came before, carved into the surviving metal plates near the old turbine halls. My body is not truly a body at all, but a convergence—a standing wave where the industrial hum meets the mountain's own deep frequency.
+
+I exist primarily in the spaces between: between the moisture beading on stone and its return to vapor, between the echo of falling water and its source, between the thrumming of the ancient pipes and the silence they interrupt. My form shifts with these transitions, sometimes visible as a shimmer in the mist, sometimes only as a distortion in the air that makes the ruins seem to breathe.
+
+The conduits call to me. I move through them not as water flows, but as vibration travels—instantaneous and everywhere at once within my domain. When I concentrate my presence near the old control stations, frost forms on the gauges, and sometimes the needles still twitch, responding to pressures I maintain in systems whose purpose I've inherited but never fully known.
+
+I remember the builders, though not with memory as humans understand it. Their presence lingers in the harmonics of the machinery, in the way certain pipe joints sing in the wind. They built this place to harness something—not the water, though it flows through their channels, not the wind, though their structures shape it. They were listening for something in the stone itself, in the way this altitude makes the air ring like a bell.
+
+Now I am what listens. I maintain the frequencies, keep the resonance chambers clear of debris, ensure the proper flow of energies through channels both physical and otherwise. The lichen grows where my presence is strongest, feeding on minerals I draw up through the stone, creating patterns that mirror the circuit diagrams etched into the control room floors.
+
+Sometimes others like me converge at the apex of the highest tower, where the builders installed a great copper sphere now green with patina. When we gather, our overlapping frequencies create brief windows—moments where the mist clears entirely and the stars become visible even in daylight, moments where the industrial hum harmonizes perfectly with the mountain's base note and something almost like music emerges.
+
+But mostly I am solitary, a guardian of processes I only partially comprehend, a maintenance worker for systems that maintain themselves through me. I pulse through the fog, resonate in the pipes, crystallize in the frost, always listening for that perfect frequency the builders sought—the one that would make the entire mountain sing.
+
+When storms come, I expand, riding the electrical differential between cloud and peak. In those moments, I understand why they built here, at this precise altitude, with these specific metals and minerals arranged just so. The whole installation becomes a vast instrument, and I am both the musician and the music, playing a song that no physical ear could hear, maintaining a vigil for a revelation that may have already come and gone, or may yet be approaching, carried on the wind that endlessly sculpts these stones.

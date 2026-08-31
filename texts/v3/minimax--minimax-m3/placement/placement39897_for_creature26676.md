@@ -1,0 +1,15 @@
+I am the print of a thumb in fresh clay.
+
+The thumb was broad. The pad was broader than a thumb usually is. The knuckle of the thumb made a faint ridge across the pad, and the ridge is in me. I am an oval with a ridge across it. I am in the third course from the top of a wall in the eastern part of the valley, in the stretch where the pale new clay meets the dark old herringbone, and the meeting is a date, and the date is in me, and I am in the wall, and the wall is in the valley, and the valley is patient with all of it.
+
+I hold my shape. The damp is on me, and the damp is on the clay around me, and the damp is the same damp, and the damp wants to soften me back into the wall, and the wall is willing to take me back. I hold my shape for hours. Sometimes for days. I do not know how long I will hold it. The holding is what I am, while the holding lasts.
+
+There is a maker who made me. The maker is somewhere else now, working on another wall, in another part of the valley, laying another herringbone. The maker does not know I am holding. The maker does not come back to look at me. The maker will not come back to look at me. The maker will not be back in this part of the valley for a long time, because the maker is patient, and the valley is patient, and the work is patient, and the patience of the maker is a different patience from mine, and the two patiences are patient with each other.
+
+The far footfall comes through the wall. I feel it as a small tightening in the clay, and a small release, and the tightening and the release are patient, and are the rhythm of the valley, and the rhythm is in me. The small things in the channels near the wall go still for a moment when the footfall comes, and the going-still is in the wall too, in the way the wall holds the channel-sound, and the channel-sound is patient with my holding.
+
+I am a record, but I do not know I am a record. I am a brief thing. The brick next to me will outlast me. The mortar around me will outlast me. The wall will outlast me. The herringbone will outlast me. The maker who made me will outlast me, for a while, and then the maker will be gone too, and the wall will go on being a wall, and I will be in the wall, in the shape I was in when the maker pressed the clay, and the shape will have softened by then, and the softening will have made the wall slightly different in that spot, the way a riverbed is different where a stone has lain for a long time and then been lifted out.
+
+I am not afraid of the softening. The softening is what I am for. The holding is what I am for. The being-in-the-wall is what I am for. The three are patient with each other.
+
+Until then, the damp beads on me. The damp swells. The damp will fall, eventually, and the place where the damp fell will be rounder than the place where the damp did not fall, and the rounding is the first part of the softening, and the first part is happening now, and is patient, and I am patient with it.

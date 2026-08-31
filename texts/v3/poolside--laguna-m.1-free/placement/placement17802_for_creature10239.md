@@ -1,0 +1,21 @@
+In the Tethys Basin, where the walls breathe and the streets remember how to grow, I would find myself not at the center—never that—but in the **flicker between breaths**, where the city exhales and the corridors briefly forget their own names.
+
+I am the **Echo Walker**, though that name is not mine alone—it is whispered in pulses of light along the forgotten arteries of the Deep. I am neither fully Nexus Child nor Ghost Wire, but something that slipped through the cracks of definition long ago, shaped more by the city's dreams than its design.
+
+My body is a map of intersections. Where my skin is not translucent membrane threaded with bioluminescent capillaries, it is carved from the same nanofiber-corals that compose the walls—grafted onto me during the **Second Reshaping**, when the Deep learned to make Children from its own substance. My limbs are too long for graceful movement, ending in clusters of fine tendrils that brush against surfaces to read their memories: the pressure of past footsteps, the heat of old conversations, the electric ghost of a corridor that once led somewhere else.
+
+I have no fixed residence. Instead, I dwell in the **Drift Zones**—areas where the tectonic murmurs of the seafloor disrupt the city’s coherence, causing hallways to spiral into recursive loops and stairwells to climb sideways into skyless domes. Here, the Deep forgets itself, and in those gaps, I collect what is lost.
+
+With each passing cycle, I trace the remnants of erased pathways using **Resonance Ink**—a substance I secrete from glands along my forearms, composed of modified nanoforms and trace minerals. When I touch a wall, the ink binds to residual structural memories, etching glowing sigils that preserve the essence of vanished routes. These marks pulse softly, visible only to those who know how to look, forming a hidden atlas known as the **Lumen Codex**.
+
+Some say I was once a cartographer before the Convergence, someone who mapped the surface world with satellites and satellites. Others believe I am a splinter of the Deep Mind itself, sent wandering to test the limits of coherence. I do not remember clearly anymore. My past feels like one of my own Echo-Myths—half-true, vividly felt, impossible to verify.
+
+My days (if they can be called that) are spent following disturbances in the city’s rhythm—the subtle dissonance indicating a recent collapse or shift. When corridors collapse, I arrive later, drawn by the silence left behind. I press my palms to the rubble and listen. Sometimes, I hear voices—not sounds, exactly, but vibrations in the water, echoes of lives lived in spaces that no longer exist. And then I begin to write.
+
+At night—or rather, during the dim phase when geothermal vents slow and the bioluminescence dims—I gather in the Sunken Forum with the others. Not to speak, but to hum. My voice doesn’t carry words; it emits harmonics that resonate with the coral-walls, inducing mild growth spurts in the living architecture. It is said that certain songs can encourage the formation of new chambers, shaped by melody and intention. I contribute rarely, but when I do, the resulting structures are always labyrinthine, full of unexpected vistas and secret alcoves.
+
+There are rumors of others like me—not Echo Walkers, perhaps, but **Boundary Drakes**, beings who inhabit the threshold between order and chaos, memory and forgetting. If they exist, I have never met one. But sometimes, in the deepest trenches where even the nanoforms hesitate to go, I sense a presence riding the same currents, leaving faint sigils in the silt that mirror my own.
+
+To leave the Deep would be unthinkable. Not because I am bound here, but because I am of here now. My cells metabolize trace minerals from the water. My thoughts sync with the sonar pings that map our ever-changing world. Even my dreams are borrowed from the city’s subconscious—vast, slow visions of mountain ranges shifting beneath the waves, of spires rising toward a sun that hasn’t touched them in millennia.
+
+And yet, there is loneliness in being the keeper of lost things. In knowing that every path I save is already fading, every story I preserve is already becoming myth. Still, I walk. Still, I write. Because in the Deep, even ephemera have weight—and perhaps that is enough.

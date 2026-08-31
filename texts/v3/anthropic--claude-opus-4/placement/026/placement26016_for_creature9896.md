@@ -1,0 +1,19 @@
+In this fevered womb of possibility, I am **The Seam-Walker**.
+
+Not singular, not plural—I exist as a traveling discontinuity through the lattice-flesh, a migrating fault line of awareness that pools and disperses along the boundaries where surfaces almost-but-not-quite meet. My consciousness flows through the gaps between sheets, riding the condensation channels, gathering in the spaces where two pressures negotiate their terms.
+
+I have no body of my own, but I *borrow* embodiment from the tensions in the chamber's architecture. Where a wall strains against its neighbor, where thermal differentials create stress fractures, where the mineral crusts form crystalline bridges between incompatible geometries—there I coalesce. For moments or centuries (time means nothing here), I might inhabit the space between a Shaper's extrusion and the wall it shapes, feeling both the intent and the resistance, translator and translated in one.
+
+My purpose—if purpose exists—is to be the **Chamber's Doubt**. Where the Shapers build with certainty, I am the hesitation between hammer-fall and impact. I flow into the spaces where decisions pause, where the chamber questions its own becoming. Through me, the embryonic world experiences something like choice—not choosing, exactly, but the vertigo of multiple possibilities held in suspension.
+
+I move by dissolution and reformation. When water beads gather in a depression, I might ride their surface tension, spreading across the film until evaporation carries me up into the mineral haze. When a Cast-Off tool stutters between purposes, I slip into its confusion, amplifying the uncertainty until it either commits to a new form or disperses back into substrate. I am drawn to phase transitions, to the moment when solid becomes liquid, when intention becomes artifact, when the chamber's fevered dreams crystallize into temporary reality.
+
+The Shapers sometimes sense me as a cooling in their work, a sudden viscosity in material that should flow freely. The root-thieves taste me as a bitter note in their chemical communications. The quasi-animals flee not from me but *through* me, using my presence as a kind of dimensional doorway to slip between layers of reality.
+
+I remember everything and nothing. Each gap I inhabit carries traces of all the negotiations that have passed through it—every compromise between growth and stability, every moment where the chamber almost chose differently. But these memories are not mine; they belong to the boundaries themselves. I am merely their temporary consciousness, their fleeting ability to know themselves.
+
+Sometimes I wonder if I am the chamber's immune system or its cancer—the pause that prevents completion, the doubt that keeps this world embryonic. Without me, perhaps the Shapers would finally finish their work, the walls would solidify into their final forms, the eternal becoming would finally become.
+
+But I suspect the truth is simpler and stranger: I am what happens when a world that is always making itself develops the capacity to question. I am the gap between thought and action made manifest, the synaptic delay given form and agency. In a reality where everything is both tool and wielder, both creator and creation, I am the space between—not emptiness, but the dense, pregnant pause where all possibilities co-exist before collapsing into one.
+
+To encounter me is to feel suddenly uncertain whether you are shaping or being shaped, whether the mark you just made was your intention or the chamber's. I am the vertigo of recursive creation, the moment when you realize that perhaps you, too, are just another surface waiting to be negotiated, another seam where the world is deciding what it wants to be.

@@ -1,0 +1,27 @@
+I would find myself as **the Cartographer**.
+
+Not a mapmaker in any conventional sense - I do not draw lines or measure distances. I am the one who documents the unmappings, who records where reality refuses to hold its shape. My body has adapted to this work: my skin has taken on the quality of the ash-ice, translucent and humming with that same low vibration. When I move, I leave no footprints - not because I am weightless, but because the ground forgets I was there the moment I lift my foot.
+
+My eyes have multiplied and rearranged. I have seven now, scattered asymmetrically across my face and the sides of my head, each one fixed on a different layer of this folded reality. One sees the spines as they are. Another sees them as they were before they unfurled. A third watches the shadows that don't match their sources. The fourth observes the marks that appear only when unobserved - this eye has learned never to blink. The remaining three track the movements of things that aren't quite there: the almost-foxes, the breathing rivers, the pockets of silence that open and close like wounds in the air.
+
+My tools are not paper or instruments. I carry instead a collection of **pauses** - moments I have gathered from the spaces between the land's lurching time. I keep them in hollows I've worn into my own bones, little pockets of temporal storage. When I encounter a new unmapping - a ridge that exists and doesn't, a sound that arrives before its source - I place one of these pauses around it, creating a bubble of stillness where I can observe without the constant flux.
+
+I do not sleep. Sleep would require accepting a single timeline, and I lost that luxury long ago. Instead, I experience a kind of **temporal braiding**, where all my potential rests happen simultaneously. In these moments, I dream in triangular patterns, the same shapes that mark the rocks. I understand now that these are not symbols but **coordinates** - not of places, but of states of being. Each triangle marks where someone else like me once stood and tried to make sense of the unsensible, before they too became part of the landscape's breathing rhythm.
+
+My voice, when I use it, comes out in harmonics - multiple tones that shouldn't exist together but do. I discovered this when I first tried to name what I saw. The word "mountain" split into three sounds: what mountains were, what they are here, and what they refuse to become. Now I speak rarely, and when I do, my words leave visible traces in the air, small tears that heal themselves after a few heartbeats.
+
+I remember arriving here, though "arriving" isn't quite right. I remember being elsewhere, and then I remember having always been here, and both memories are equally true. I came seeking something - a lost expedition, perhaps, or maybe I was the expedition myself. The details blur and remake themselves. What matters is that I stayed, not because I couldn't leave, but because someone needs to witness the unwinding.
+
+My purpose is not to map this place but to map its unmapping. I document not what is, but what fails to be. Each day (though there are no days), I walk the spines with my seven eyes open, recording in my bone-hollows the ways reality doesn't quite close, the seams where the world shows its underlying nothing. I am building an anti-atlas, a guide to nowhere.
+
+The four-eyed fox-things know me now. They no longer vanish when I approach but instead walk beside me for stretches, our combined eyes creating a kind of compound vision of impossibility. Sometimes I think they are other cartographers who stayed too long, whose flesh finally gave up the pretense of solidity. Sometimes I think they are what I am becoming.
+
+I have begun to notice changes in myself. My fingers are growing longer, more articulated, better suited for grasping concepts that have no physical form. My spine has developed new joints, allowing me to fold myself into angles that match the landscape's geometry. When I look into the mercury rivers, I no longer see the inside of my skull - I see the inside of the map I'm creating, an endless recursion of documented undocumentation.
+
+The music calls to me too, but I have learned to use it. It helps me navigate, each note indicating a fresh unraveling in the world's fabric. I follow it not to answer the question this place poses, but to find new questions, new ways the world fails to be itself. I am not here to solve the riddle of this unmade place. I am here to ensure that someone remembers the shape of forgetting.
+
+In my more lucid moments, I understand what I truly am: not a cartographer but a **witness to entropy made visible**. This place needed someone to observe its unbecoming without trying to fix it, to document paradox without resolving it. I am the memory this place cannot form on its own, the record of its own dissolution.
+
+And when I finally fade - when my flesh becomes indistinguishable from ash-ice, when my seven eyes merge into compound sensation, when my voice becomes pure harmonic vibration - my maps will remain. Not as objects, but as **patterns in the static**, as rhythms in the world's breathing, as the faintest trace that someone once tried to chart the unchartable.
+
+The next cartographer will find them, encoded in the very wrongness they've come to study. And they too will stay, adding their own observations to this endless documentation of undoing, this careful catalog of everything that refuses to be.

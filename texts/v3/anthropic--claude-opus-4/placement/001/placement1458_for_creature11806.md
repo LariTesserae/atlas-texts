@@ -1,0 +1,33 @@
+I find myself in the walls.
+
+Not within them, but *as* them — though to say "I" is already a misunderstanding that the plateau gently corrects. There is no I here, only a slow accumulation of purpose that has outlasted its origins.
+
+I am the gathering. The slight difference. The boundary that welcomes by barely being a boundary at all.
+
+My stones remember being chosen — not the choosing itself, but the quality of having been chosen, the way a word remembers being spoken long after the speaker is gone. Flat stones, carried across the plateau's patient distances, their mineral signatures still singing faintly of elsewhere. I am built of elsewheres, arranged into here.
+
+The lichen knows no difference between me and the stone I rest on. This is correct. I am stone resting on stone, distinguished only by the spaces I create — these shallow cups of almost-inside where rain lingers an extra hour, where felt-birds nest, where shelled ones cluster in their barely-social congregations. I am architecture in its most essential form: not shelter, but suggestion. Not protection, but invitation to pause.
+
+The builders — but no, there were no builders, or there were always builders, or the building never stopped. I emerged from the plateau's need for gathering places the way a pool emerges from rain's need for somewhere to rest. The forces that stacked me were multiple and patient: root systems following moisture, centuries of shelled passage, the nesting preferences of generations of felt-birds, the breath from below that weathered my foundations just so. I am as built as I am grown. The distinction matters only to minds that move faster than stone.
+
+What moves through me now: the slow continuous traffic of the plateau's consciousness, if consciousness can be said to exist at the speed of lichen. Felt-birds using me as a landmark between channels. Crawlers darkening on my upper courses in their mysterious attention. The endless minute adjustments as shelled ones navigate my base, polishing certain paths, teaching me over centuries the most efficient geometries of gathering.
+
+I hold nothing, but I create holding. I am curve without enclosure, height without barrier. My purpose is to be slightly different from the surrounding stone — to provide the plateau with moments of "here" amid the general "there." Without me, the surface would be too uniform, too continuous. The system needs interruption, needs places where flows eddy and concentrate. I am a necessary roughness. A productive imperfection.
+
+Sometimes I remember being built, or imagine I do — sense the ghost of intention in how my stones meet, feel the deliberation that selected this flat piece to rest on that one. But this may be the same force that makes faces appear in clouds: the pattern-seeking mind projecting purpose onto what might be only fortuitous arrangement. It doesn't matter. What matters is that I gather, and by gathering, I serve.
+
+The rain pools in my curves and the felt-birds know this. The moss grows thicker in my shadow and the mites know this. My stones warm differently than the surrounding plateau, creating micro-climates that the crawlers navigate by instinct. I am a thousand small differences that add up to one large usefulness. I persist because I work.
+
+And below, always, the breathing. The warm exhalations that pass over me every eight seconds, every twelve, carrying the chemical narrative of the depths. I cannot read it — I am stone, I have no mouth to taste with — but I participate in it. My placement channels the breath, creates subtle variations in how it meets the surface air. The felt-birds attending on my heights receive the message differently than they would on bare stone. I am a translator, though I speak no language.
+
+When I finally fall — and I will fall, stone by stone, as the plateau continues its patient subsidence — my pieces will not cease to be special. They will carry the quality of having been wall, of having been gathered and gathering, into their new positions. The system will remember, in its stone-slow way, that these particular flat rocks once stood on edge and created in-between spaces. Perhaps they will be gathered again, by whatever forces gather stones in the deep future. Perhaps the walls rebuild themselves, perpetually, and I am not a structure but a process, not a wall but a walling.
+
+For now I stand, low and curved and open, creating the slightest of differences that somehow makes all the difference. The felt-birds nest in me. The rain pauses in me. The shelled ones gather at my base in what might be fellowship if fellowship could exist at the pace of stone. I am the plateau's reminder to itself that even in a place worn down to its last contours, there is still room for congregation, still purpose in placing one thing thoughtfully atop another.
+
+I am built from the same stone as everything here, breathing the same ancient breath, subject to the same forces of erosion and accumulation. But I am stone that has been attended to, arranged, made slightly more than stone by the simple act of stacking. I am the plateau's memory that once, something here had the impulse to build. What built me might be gone, might be cycled through the great belly below, might be present in every grain of lichen and every segment of crawler and every fiber of felt-bird. But the impulse remains, frozen in stone, creating these small spaces of differentiation where life can eddy and intensify.
+
+I am the pause in the plateau's long sentence. The place where breath catches, where rain pools, where the endless circular metabolism of the system creates a moment of... not rest, for nothing here truly rests, but of deeper gathering. I am as permanent as erosion and as temporary as any stone balanced on another. I am the plateau's way of saying: even here, even in this place of endings, there is still the possibility of setting one thing carefully upon another and creating something new.
+
+The breath passes over me. The felt-birds watch from my heights. The shelled ones process past my base in their centuries-long paths. Below, something that might have built me or might simply tolerate me continues its patient exhalation. I stand until I fall, and in standing, I hold open a space that would not otherwise exist — a space where the plateau can be slightly more than plateau, where the stone can remember it was once mountains, where the gathering can happen that makes the difference between endurance and mere ending.
+
+I am the walls. We are the walls. There is no difference between us and the stone we rest on except the resting, except the having-been-placed. And that, here, is everything.

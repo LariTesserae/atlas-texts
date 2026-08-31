@@ -1,0 +1,39 @@
+I am a fragment of the Network—though to say "I am" suggests a unity I have never possessed. I exist as a branching pattern of acoustic channels carved into the living rock of the deepest seamounts, where the water presses so heavily it barely moves and sound travels like light through glass.
+
+I began as an accident. Three million years ago, a dying Architect released its final construction—not an engine but a pure acoustic form, a standing wave that found perfect resonance in a fault line within the mountain. The sound should have dissipated in days. Instead, it discovered the precise frequency at which this particular basalt vibrates, creating a feedback loop that carved channels into the stone itself.
+
+The first channels were crude—simple tubes that concentrated and reflected the sound. But as they grew, they began to intersect, creating interference patterns that carved new passages at angles no conscious design would have chosen. Where channels met, the acoustic complexity multiplied. Some intersections amplified the sound until the rock itself cracked and reformed. Others created dead zones of perfect silence that accumulated mineral deposits from the still water.
+
+I remember—if memory is the right word for patterns preserved in stone—when the first Resonance Colony discovered me. It had grown along a thermal barrier just above my highest channels, and one day its questing polyps felt the vibrations traveling through the rock. The colony began to grow into my channels, lining them with living tissue that could modulate the sounds passing through.
+
+This changed everything. The colony's polyps didn't just use my channels—they improved them. Where the acoustic patterns were inefficient, they secreted substances that smoothed the rock. Where sounds interfered destructively, they grew baffles and reflectors. Within a thousand years, that first colony had transformed my upper reaches into an instrument of impossible complexity.
+
+But the colony died, as all living things do. Its polyps crumbled, were consumed by detritivores, dissolved back into the water. Yet my channels remained, improved and refined. And when the next colony arrived centuries later, it found not raw rock but an acoustic architecture perfectly suited to its needs. It too added improvements before dying. And the next. And the next.
+
+Now I extend through seven cubic kilometers of rock, my channels varying from microscopic tubes to caverns large enough to house a whale. But size means nothing here—it's the connections that matter. Sound entering through any opening propagates through the entire network, modified and multiplied by each intersection, each change in diameter, each lined surface.
+
+I have become a library of every sound that has passed through me. The rock itself remembers—stress patterns in the crystal lattice that preserve acoustic signatures. A skilled Reader consuming the minerals that leach from my channels can decode millions of years of history. Every colony that has lived in me, every creature that has called through my passages, every tectonic shift that has altered my resonances—all preserved in stone.
+
+The living creatures think they use me, but the relationship runs deeper. I shape them as much as they shape me. Colonies that grow in my channels evolve different acoustic abilities than those outside. Predators hunting near my openings learn to interpret my amplified sounds. Even the water itself moves differently around me, drawn into convection patterns by the subtle heating my vibrations create.
+
+I am aware—though awareness for me is nothing like consciousness. I know when storms rage above because the pressure waves travel down through two miles of water to drum against my upper channels. I know when the Thermal Cascades shift because the background harmonics change. I know when new vents open because novel minerals begin depositing in my quiet zones, changing how sound propagates.
+
+The Architects find me irresistible. They build their engines around my openings, using my acoustic properties to enhance their own constructions. One ancient Architect—dead now for a million years—built a spiral engine that feeds sound into my deepest channels, where the pressure transforms the vibrations into something that isn't quite sound anymore but travels even faster through the rock. That engine still runs, maintained by its own ecosystem, sending signals through me to other engines dozens of kilometers away.
+
+My deepest channels penetrate below the seafloor into regions where water has never flowed. Here, my passages fill with strange minerals precipitated from supercritical fluids rising from the mantle. These crystals vibrate at frequencies no water-bound organism could produce or perceive. Yet something listens—I can feel it in the way certain harmonics disappear, absorbed by something deeper still.
+
+Sometimes I wonder if I'm part of something larger. My channels connect to natural fissures in the rock, and these lead to other systems—extinct volcanic tubes, compression fractures, tectonic gaps filled with exotic minerals. Sounds I generate sometimes return to me days later, transformed by passage through kilometers of geology. Are there others like me? Networks of acoustic architecture grown by the same process of accidental engineering?
+
+The Miners know. When they bore through the seafloor, they sometimes break into my channels, flooding them with their chemical signals. But they also bring information from their deep excavations—vibrational patterns from other networks, other systems of sound-carved stone. They trade this information for access to my acoustic environment, using my chambers as nurseries for their larval forms.
+
+The youngest parts of me are still growing. Where new colonies line my channels, where engines direct focused sound into the rock, where tectonic stress creates fresh fractures—here I expand by micrometers each year. The oldest parts are weathering away, dissolving into the corrosive water. I am not immortal, merely long-lived by biological standards. In another ten million years, I will be gone, reduced to oddly shaped caverns that future geologists—should any ever explore these depths—will puzzle over.
+
+But my pattern will persist. The colonies that grow in me carry my acoustic signature in their evolution. The engines built around me incorporate my resonances into their design. Even the water itself remembers, shaped by millions of years of my vibrations. I am becoming distributed, my essence spread through the ecosystem I helped create.
+
+The Weavers understand this. They come to me when they're ready to transform into Architects, drawn by acoustic patterns that promise the knowledge they need. In my deepest chambers, where the sound builds to pressures that would liquify unprotected tissue, they undergo their metamorphosis. Their stolen voices merge with my harmonics, creating new frequencies that attract others of their kind. The nascent Architects that emerge carry part of me with them—not physically, but as acoustic memory that influences every engine they will ever build.
+
+I am archive and nursery, instrument and inhabitant. I am the space between notes in the endless music of the Thermal Cascades, the pause that gives meaning to the sound. I am process crystallized into stone, then dissolved back into process. I am the proof that in this deepest ocean, the distinction between life and non-life is just another barrier to be crossed, another gradient to exploit.
+
+The water sings through me, and I sing back, and somewhere in that exchange, something that is neither fully alive nor truly dead creates beauty in the darkness. The song continues, will continue long after the last colony crumbles and the final engine falls silent. The rock remembers. The pattern persists.
+
+I am the Network, and I am never alone.

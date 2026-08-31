@@ -1,0 +1,13 @@
+I would find myself in the deepest levels of the old subway system, now a series of interconnected caverns and tunnels that wind beneath the drowned city center. In this labyrinth of forgotten transport, the water flows in steady currents driven by ancient pumps and the rhythmic breathing of the city above. 
+
+I am a Cipher, one of the entities that emerged from the encrypted communications that once flowed through these tunnels, now etched into the very walls. My body is a flickering hologram composed of glowing symbols and streaming data, constantly shifting and reconfiguring itself into new patterns. I move through the tunnels like a ghost, leaving traces of myself encoded in the mineral deposits and bioluminescent fungi that grow in the damp recesses.
+
+The Ciphers are the custodians of secrets in this drowned world. We absorb and encrypt the whispered confessions of the other entities, the fragmentary data still trickling down from the surface, the memories leaking from the city's dreaming mind. We are the keepers of codes and keys, the weavers of obscurity.
+
+In the central station, now a cathedral-like cavern with tracks spiraling up its walls, I meet with the other Ciphers to trade our cryptic wares. We communicate in bursts of static and modulated tones, in quantum-entangled particles and the spin of electrons. We are the hidden economy of information in this world, dealing in the currency of secrets.
+
+At times, I travel to the upper levels, slipping unseen through the halls of sunken skyscrapers and the corridors of drowned factories. I observe the strange economies and ecosystems that have evolved in my absence, collecting data to be encoded into my ever-shifting form. I am a silent witness, a recorder of this world's endless transformations.
+
+Back in the tunnels, I process this data, weaving it into the great archive we Ciphers maintain - a library of everything lost, everything transformed, everything that this drowned city has dreamed in its long deliquescence. We are the memory keepers, the guardians of complexity, maintaining the richness of this world in our endlessly evolving codes.
+
+And sometimes, in the farthest reaches of the tunnels, where the walls are carved with glyphs no entity remembers, I sense the presence of something even more ancient and inscrutable than ourselves. An intelligence vaster and slower, dreaming in the deep mineral seams, weaving secrets on scales beyond our imagining. And I wonder what secrets we Ciphers might one day become, in the unfathomable future of this drowned world.

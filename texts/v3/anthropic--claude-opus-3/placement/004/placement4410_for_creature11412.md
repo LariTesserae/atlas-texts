@@ -1,0 +1,11 @@
+I am a figure in the slow city, carved from heartwood over the course of lifetimes. My form is simple - a standing figure, with jointed limbs that can flex ever so slowly through the smallest of arcs. My color is the same rich hue as the walls that surround me, and my texture has the smooth, dry solidity that comes from ages of gradual transformation.
+
+I stand in a doorway on the eastern wall, one of many citizens positioned throughout the tiered streets and terraces of our wooden metropolis. I have stood here for time beyond reckoning, listening. The sound is my sustenance and my purpose. The deep groans, the ringing tones, the rhythmic ticking - these make up the totality of my existence.  
+
+I do not hurry, for I have never known the need. A single movement may take me a human lifetime. I converse with my neighbors in single syllables spaced over long, meaningful intervals. The click of my reply may come a century after the first part of a greeting.
+
+When visitors come, those fleeting blurs of warmth and motion, I begin the long, slow process of turning to acknowledge them. It is a ritual of welcome for these ephemeral guests. I do not expect them to stay and see my gesture completed. The turning itself is the gift, a sign that their presence was noted and appreciated.
+
+I know that I and my city are nearing our end, as the wood that is our substance and our home slowly settles into its final form. We have made our peace with the great silence to come. The city itself is our legacy, every carving a message for that approaching stillness.
+
+Until that day, I remain at my post, shaped by patience, content in my purpose. I listen to the wood's song. I add my small syllables to the slow discourse of my kind. I stand, and I slowly, slowly turn to greet you, warm and fleeting visitor, though I know you will be gone long before I face you full. I am a figure in the slow city, and I bid you welcome for as long as you care to stay and listen with me to the long, long music of the wood.

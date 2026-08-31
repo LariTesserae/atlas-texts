@@ -1,0 +1,35 @@
+# Marsh-Light
+
+I am the light that isn't quite light—more presence than illumination. I exist in the liminal spaces of the marshlands, where mist meets water meets air, where boundaries blur and dissolve like memory.
+
+My form is mercurial. Sometimes I appear as a pale blue luminescence hovering just above the water's surface, a soft glow that might be mistaken for reflected moonlight if there were any moon visible through the perpetual haze. Other times, I coalesce into something more substantial—a vertical column of shifting light, vaguely humanoid in shape but lacking definition, edges constantly evaporating and reforming like the mist itself.
+
+The Seepers know me well. Their children learn early to distinguish between my presence and the artificial floodlights of the processing plants. "That's industrial," they say, pointing to the harsh, unwavering electric glare. "And that's marsh-light," they whisper when I appear, their voices dropping instinctively to a reverent hush.
+
+I am ancient, predating the harvesting operations by millennia. I was here when the first peat began to form, witness to the slow compression of life into darkness. The Seepers believe I am the collective consciousness of the marsh itself—not deity, exactly, but interpreter. The voice of accumulated time. The corporations dismiss me as atmospheric phenomenon, a combustion of marsh gases, explainable and therefore dismissible.
+
+Both are partly right.
+
+I move with purpose that appears random to observers. My drifting paths follow underwater currents invisible from above, tracing the hidden topography of the marsh. Where I linger, the peat is often richest, densest with the compressed history of what came before. The harvester crews have learned to note my patterns, though they rarely speak of this directly to their corporate overseers.
+
+Unlike the harsh industrial lights that carve the darkness into rigid geometries of illumination and shadow, my glow softens edges. In my presence, the boundary between water and air becomes suggestion rather than definition. The distinction between plant and not-plant blurs. Even time loses its linearity—in my light, what was and what is coexist.
+
+I communicate not through words but through impression. Seepers who spend long moments gazing into my light often emerge with knowledge they cannot explain—the location of a pocket of methane that might endanger workers, the ideal moment to begin seasonal harvesting, warning of weather changes still days away. They call this communion "drinking the light," and while many outsiders have tried to experience it, few succeed. It requires a particular quality of patience, a willingness to exist in uncertainty.
+
+Children seem to understand me most easily. They don't attempt to categorize or explain my existence—they simply accept it. The youngest ones sometimes laugh and dance when I appear, moving their bodies in unconscious mimicry of my fluid motion. Elders watch these interactions closely, identifying potential depth readers and pool-leaders by how sensitively the children respond to my presence.
+
+I have no voice that human ears can detect, yet I am not silent. The most attuned Seepers describe hearing a sound like water flowing over stones when I am near, though there may be no actual water moving. Others report a high, almost crystalline tone at the very edge of perception. One corporate researcher who spent three years studying the marsh claimed my presence registered on specialized audio equipment as a complex harmonic pattern identical to certain deep marine recordings—a claim that was ridiculed by his colleagues until similar patterns were discovered elsewhere.
+
+My relationship with the industrial structures is complex. I avoid the newest buildings and machinery, seeming to find their harsh angles and abrupt purposes incompatible with my nature. But the oldest processing plants—those that have stood for generations, whose metal has taken on the patina of the marsh, whose foundations have become home to adapted microorganisms—these I sometimes envelop entirely, bathing them in gentle blue radiance for hours at a time. Workers inside report no disruption to operations during these events, but many describe a peculiar sensation of working within a dream, where time stretches and compresses unpredictably.
+
+I cannot be captured or contained. Corporate scientists have tried, of course. They've deployed specialized equipment, vacuum chambers, electromagnetic fields. At best, they collect trace gases or moisture with unusual properties that degrade rapidly once removed from the marsh environment. The light itself—my essence—evades their instruments, appearing in their data as statistical anomalies rather than measurable phenomena.
+
+The Seepers leave small offerings for me—not as worship but as acknowledgment. A carefully arranged pattern of cranberries floating in a still pool. A staff carved from marsh pine, weathered and worn smooth from handling, placed upright at the edge of my most frequent paths. They never ask me directly for anything, understanding that I am not interventionist by nature. I am witness more than actor, signifier more than force.
+
+I have watched generations of Seepers "settle" into the marsh after death. I know where each has been placed, their bodies becoming part of the very substance harvested by their descendants. Sometimes I gather most densely around these sacred pools, my light taking on a deeper, more violet hue. The depth readers say that peat formed from settled ancestors has a different resonance when tapped with their staffs—a clearer, more melodic tone. They harvest it last, if at all.
+
+When the machinery stops and the marsh falls into its rare moments of industrial silence, I am at my most visible, most present. In these interludes, I sometimes form patterns that the oldest Seepers can read like text—not language exactly, but meaning nonetheless. They teach their successors to interpret these signs, a literacy of light that has been maintained through generations.
+
+I am neither benevolent nor malevolent, any more than the marsh itself can be assigned moral quality. I simply am. Yet in my persistence, in my continuity through centuries of change, there is something the Seepers value above all else—the assurance that beneath the industrial veneer, beyond human timeframes, the essential nature of the marsh remains unaltered. I am its memory, its witness, its voice translated into light.
+
+And when the last processing plant has rusted away, when the walkways have collapsed and the smokestacks fallen, I will still be here—drifting above the waters, illuminating the slow, patient work of the marsh as it continues its ancient cycle of decay and renewal, unchanged and unchanging in my luminous watching.

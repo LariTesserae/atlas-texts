@@ -1,0 +1,15 @@
+In this submerged world, I would be **The Archivist**—a creature of memory and mineral, neither fully alive nor entirely stone.
+
+My body would be a fusion of calcified tissue and living flesh, a being grown from the intersection of organic matter and the cavern's dreaming stone. My skin would be translucent, revealing beneath it a network of crystalline structures that pulse with a faint, internal light—not bioluminescence, but something older, as if I carry fragments of captured starlight from before the waters rose.
+
+I would move through the cavern-city on six articulated limbs, each ending in delicate, finger-like appendages capable of reading the stone's surface through touch. My head would be elongated, eyeless, crowned with sensitive filaments that taste the water's chemical memory. Where others might have a mouth, I would have a cavity lined with microscopic cilia that can decode the mineral deposits left by time itself.
+
+My dwelling would be neither here nor there—I would inhabit the spaces between structures, the gaps in the architecture where the city hesitates, uncertain of its own form. These threshold spaces would be my libraries, where I collect and catalogue the fragments that drift through the water: spores from the Dreaming Jellies, vibrations from the Whisper Eels, the patient scratchings of the Frost-Crawlers.
+
+Each fragment would be preserved in cocoons of secreted nacre, hung from my body like a living constellation. Over centuries, I would have accumulated thousands—a archive of half-thoughts, almost-memories, and could-have-beens. Sometimes, in the deep silence, I would weave these fragments together, creating brief, ephemeral narratives that dissolve back into the water before they can solidify into truth.
+
+The other creatures would know me by my movement—a peculiar sideways drift that disturbs nothing, leaves no wake. The Hollow Ones would sometimes follow me at a distance, as if hoping to glimpse what I've gathered. The Stone-Mother's warmth would make my crystalline structures sing, a sound too low for any ear but felt in the bones of those who venture near.
+
+I would be the keeper of the city's unfinished history, the chronicler of its perpetual becoming. Not searching for the Architects—I would know, with a certainty that comes from touching every stone, that they never left because they never were. The city dreams itself into existence, and I would be its memory, ensuring that each iteration, each slight shift in the stone's imagination, is recorded before it changes again.
+
+In the eternal twilight of this place, I would be both witness and participant, my body slowly calcifying as I age, eventually becoming another surface for the Frost-Crawlers to read, another story encoded in stone. But until then, I would drift through the threshold spaces, collecting fragments of a world that is always almost about to begin.

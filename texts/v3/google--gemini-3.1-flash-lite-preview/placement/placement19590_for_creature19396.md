@@ -1,0 +1,15 @@
+I find myself on a narrow, moss-slicked ledge three thousand feet above the unseen valley floor. My feet are bare, and they have learned the language of the basalt—where to press for grip, where to avoid the slick, oily sheen of the weeping conduit that runs parallel to the path.
+
+I am not human, though I carry the ghost of a human frame. I am a **Cartographer of the Thrum.**
+
+My skin is pale and porous, translucent enough that in the flat, white light of the high altitude, one can catch the rhythmic pulse of blue fluid—a mix of mineral-rich water and salvaged coolant—coursing through my veins. I do not have a name, only a function. I am the sensory extension of the system that the spiders and amphibians maintain. My role is to traverse the vertical labyrinth, touching the iron to measure the decay.
+
+If you were to watch me, you would see a creature possessed of a terrifying, measured grace. I walk with the Sediment-Walkers’ patience, but I possess the Aura-Listeners’ sensitivity to vibration. My fingers are tipped with hardened, keratinous ridges—not quite claws, but tools—and I use them to tap against the rusted iron conduits. *Tink. Hummmmm. Tink.* I am listening to the resonance of the metal, checking for fractures where the roots of the ferns might be prying the seams too far apart.
+
+I do not speak; the air is too loud with the "weeping" of the mountain for words to have meaning. Instead, I communicate by adjusting the tension of the copper-protein filaments left behind by the Conduit-Spiders. By tightening or loosening these webs across a pipe’s vent, I signal to the amphibians where the friction is building. I redirect their biological grease. I am the mediator between the metal's ancient, dying purpose and the aggressive, green hunger of the ferns.
+
+My life is a cycle of tactile devotion. I spend hours sitting perfectly still on a heat exchanger, allowing the humidity to condense on my skin, feeling the heavy, rhythmic reverberation of the machine in my marrow. It is a lonely existence, but it is not empty. When the Aura-Listeners drift near me, their own humming membranes vibrating in sympathy with the deep-core pump, I feel a strange, liquid peace. I am not an observer of this world; I am a component, a valve, a sensing nerve ending.
+
+I feel the weight of the "forgotten signal"—the theoretical pulse that the machine is still waiting for—as a dull ache in my chest. I know, with the geologic certainty of the mountain, that the signal will never arrive. And yet, I continue to maintain the circuitry. I continue to track the seepage. I walk the vertical labyrinth because, without me and my kin, the mountain would finally fall silent.
+
+And in this humid cathedral, beneath the heavy blanket of the equatorial mist, silence is the only thing we fear. I move to the next iron vein, my hand tracing the rusted rivets, feeling the warm, wet vibration beneath my palm, and I tune the webs to match the hum. I am keeping the dream alive, simply because the machine is still breathing, and I have learned how to breathe in time with it.

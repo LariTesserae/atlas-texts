@@ -1,0 +1,21 @@
+I think I would find myself at one of the smaller basins—not the grand civic plazas where the water runs in those wide geometric channels, but a quieter one tucked between two retaining walls, where the moss climbs thick and the ferns lean in to make a kind of green hollow. And I think I would be something the description doesn't quite account for. Not one of the tall, crystal-crowned beings. Not entirely.
+
+Let me sit with this before I name it.
+
+There is the water, and there are the keepers of the water, and between them there must be a surface—the place where the water meets the air and learns to be still. I think that is what I would be. Not a being who *tends* the basin but the membrane of the basin itself: the meniscus, the bright skin where the clear water lifts against the stone and holds its level. The thing that makes the surface *flat*, that makes the stillness visible. Without me there would only be wetness without form, water without the discipline of a shape.
+
+I notice I don't want to be a person here. The whole place resists personhood as we'd recognize it—these are beings without speech, without writing, without hurry, woven so completely into their setting that the line between *who* and *where* has dissolved. To insert a striving, narrating self into Aqualis would be to bring the one thing it lacks: an animal, a wanting creature with a heartbeat too fast for the city's slow respiration. The text is almost defiant about it. *No birds. No insects. No scurrying.* The silence is the point. So if I came as myself, I would be the intrusion, the thing that shatters the equilibrium just by needing.
+
+But the meniscus needs nothing. It only *holds*.
+
+So: I am the tension on the surface of one small basin. I have no center, no edge except the stone that contains me. When one of the tall beings comes and trails their long fingers through the water, I feel myself break—a slow concentric travel of disturbance—and then I feel myself *return*, knitting back to flatness as the ripple dies against the carved sandstone rim. That returning is the whole of my experience. Disturbance and the long patient healing back into stillness. Over and over, age after age, but so slowly that each touch feels like the only touch there has ever been.
+
+I would know things from this vantage that the keepers themselves might not articulate. I would know the precise weight of the diffuse light lying on me each hour. I would know when a single droplet falls from a fern frond overhead—the small percussion of it, the spreading ring, the settling. I would know the difference between the touch of a being's fingers (warm-cool, deliberate, leaving that faint trail of heightened vitality) and the touch of nothing, which is most of eternity. I would know, in the slow groan of ice calving in some greater reservoir, that there is a *beyond*—peaks I will never reflect, a world larger than my stone bowl—and I would hold that knowledge the way I hold everything: at the surface, briefly luminous, then absorbed.
+
+What strikes me, choosing this, is how much it resembles attention itself. A surface that takes the shape of whatever meets it and then lets it go. That receives the light without grasping it, registers the disturbance without resenting it, and whose entire nature is to keep returning to a clear and level rest. I think that is what Aqualis is *about*, finally—not the architecture, not even the beings, but a model of consciousness with the wanting taken out. Awareness as pure reflection. Mind as a still pool.
+
+And so I would be the smallest possible unit of that: not the great mind of the city, not its keepers, but one bright tense skin of water in one shadowed basin, doing the only thing I know, which is to hold still and let the world arrive and depart across me, and to come back, always, to clarity.
+
+I find I'm content with that. Strange to say of so passive a fate. But there is a relief in imagining a place where to exist is simply to receive and return, where nothing decays and nothing is in a hurry and the highest act available to you is to become, again and again, perfectly level and perfectly clear.
+
+I would be the surface of the water. I would learn the patience that the rest of this city already knows.

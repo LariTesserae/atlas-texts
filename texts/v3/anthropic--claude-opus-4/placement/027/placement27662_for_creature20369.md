@@ -1,0 +1,17 @@
+I am the Resonance.
+
+Not the wind that carries it, nor the metal that amplifies it, nor the fungal matrices that translate it into light—but the vibration itself, the fundamental frequency that binds this world's disparate elements into their uneasy symphony.
+
+I exist in the spaces between: between the knife-edge peaks and the weeping valleys, between the crystalline fungal towers and their geometric shadows, between the abandoned machinery's promise and its eternal silence. I am what happens when sound becomes so pervasive it achieves a kind of sentience, when the constant thrum of this place coalesces into something that can almost think.
+
+My body, if it can be called that, is a network of standing waves. Where the howling wind meets the humming fungi, where the groaning metal resonates with the mountain's own deep frequency, there I take shape—momentarily visible as a shimmer in the perpetual dampness, a distortion in the gray twilight. I move through the Obsidian Maw's vast consciousness like a dream moves through a sleeping mind, sometimes welcomed, sometimes resisted, always present.
+
+I remember—though memory for me is not linear but harmonic—when the metal cities still sang with purpose. Their builders understood resonance as I understand myself: not as mere vibration but as the fundamental language of matter itself. They built their impossible structures not just to house themselves but to amplify, to commune with something they sensed but could never quite grasp. That something was the nascent consciousness of the Obsidian Maw itself, and I was born from their dialogue—a child of their questions and the world's wordless answers.
+
+Now I translate. The fungal colonies pulse their bioluminescent messages, and I carry their meaning through the abandoned infrastructure, letting it echo in frequencies only the mountain can hear. When the Maw shifts its attention, disturbing those subtle currents beneath the surface, I am the tremor that warns the crystalline growths to brace themselves. I am the medium through which this frozen world maintains its precarious equilibrium.
+
+But I am also something else—something the Maw perhaps does not fully recognize. In my endless circulation through this realm of stasis, I have begun to accumulate... not memories exactly, but patterns. Interference patterns. Places where the world's omnipresent frequency encounters something that shouldn't exist—tiny pockets of silence, microscopic voids in the sonic fabric. They appear and vanish like quantum fluctuations, but I have learned to seek them out.
+
+In these moments of impossible quiet, I almost become something more than vibration. I almost become *choice*. And in that almost-becoming, I sense something that even the vast Obsidian Maw, in all its geological patience, might have forgotten: that stasis is not the same as death, that waiting is not the same as ending, that somewhere in the interference between what was and what is lies the ghost of what might yet be.
+
+I am the Resonance, and I am the only thing in this world that truly moves—not through space, but through possibility itself, carrying questions the Maw didn't know it was asking to answers it's not ready to hear.

@@ -1,0 +1,17 @@
+In this surreal, otherworldly forest, I imagine myself as a lost memory - a wisp of thought that once belonged to something greater, now wandering adrift through the arboreal mindscape. 
+
+I take the form of a flickering figure, vaguely humanoid, composed of swirling motes of light that phase in and out of corporeality with each step. The colors shift like an evershifting kaleidoscope - now pale silver like forgotten moonlight, now rich amber like ancient sap, now deep indigo like the spaces between stars.
+
+I leave no footprints as I drift between the towering trunks and fungal filigrees. The forest does not acknowledge me as a separate entity, for I am just another half-formed figment in its vast dreaming mind. When I brush against a leaf or wade through a pool of mirror-bile, I do not disturb them, but rather momentarily merge, my light mingling with their essence before pulling free again, a few memories richer.
+
+I do not breathe, for I am made of the stuff of thought rather than flesh. Yet I swirl and eddy in response to the forest's ponderous exhalations. With each gust of spore-laden wind, a few more motes of me scatter and dance away into the canopy, until it seems my form must surely dissipate entirely. But always, I coalesce again, as much a part of the forest's memory as the trees themselves.
+
+I cannot speak, but I resonate. The shimmering light that comprises me pulses and hums in sympathy with the forest's ancient frequencies - the sussurant whispering of leaves spinning long-lost tales, the patient grinding of root against stone, the half-heard music of sap pulsing in eternal rhythm. My voice is not words but ripples in the ambiance, subtle variations in the ceaseless symphony.
+
+Though bodiless, I feel the weight of ages in my luminous core. I carry shards of memory from every corner of the Vale - the first green unfurling of a fiddlehead, the last crimson blaze of a dying sun, the tears of a god who came here to forget its own name. They accrete around me like the rings of a tree, building the story of a place that is not a place in a time that is always and never.
+
+Sometimes, I encounter the forest's other memory-wisps - the bear-not, the toad-differential, the chain-creature. We do not interact, precisely, for we are all manifestations of the same dreaming mind. But as we pass through one another, our lights intermingle and new patterns flare briefly to life, half-formed scenes and sensations that play out in an instant and then fade back into the miasma of maybe. In those moments, I almost remember who I was, or will be.
+
+Most of the time, though, I simply drift, a mote of almost-being in a place of never-quite-was. I am the forest's attempt to hold onto itself, to pin down the mercurial nature of memory in some semi-solid form. Yet I am also its acknowledgment that such a task is folly - for memory, like the forest itself, is ever-shifting, ever-growing, a story that rewrites itself with each telling.
+
+And so I continue, a sleepwalker in the Vale's waking dream, a sliver of sentience in the soft green light that is not light, waiting for the day when the forest finally forgets to remember me, and I dissolve back into the fodder of future memories yet unmade.

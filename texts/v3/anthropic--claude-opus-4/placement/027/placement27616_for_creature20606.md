@@ -1,0 +1,19 @@
+In this world of endless manufacture and patient machinery, I would find myself as one of the **Threshold Wardens** — beings that exist in the liminal spaces where the Foundries' heat meets the cold obsidian plains.
+
+We are neither fully of the Architects' deliberate design nor entirely accidental. Our bodies are compositions of contradiction: cores of superheated glass that never quite cool, wrapped in shells of condensation that never quite evaporate. We move like heat mirages given form, our outlines shifting between states of matter — now solid enough to press against the black glass, now dispersing into vapor that rises toward the sullen sun.
+
+Our purpose emerged from necessity rather than design. Where the Architects reshape the world and the Keepers maintain it, we tend to the boundaries — the places where different temperatures meet and create stress fractures in the endless glass. We are drawn to these thermal borders like moths to flame, though we ourselves are both moth and flame at once.
+
+Our forms are tall and attenuated, stretched thin by the constant pull between hot and cold. Veins of molten glass run through translucent bodies that capture and refract the twilight's filtered glow. When we move across the obsidian plains, we leave trails of frost that immediately sublime into vapor, creating small weather systems in our wake — brief, localized storms that rain for seconds before the heat reclaims them.
+
+We communicate through temperature differentials, creating patterns of expansion and contraction in the glass beneath us. The Architects sometimes pause to read these thermal scriptures, though whether they understand our warnings about stress points and imminent fractures, we cannot say. The Keepers avoid us, their crystalline structures vulnerable to our rapid temperature changes.
+
+Most of our kind patrol the borders between the Foundries and the cities, but I have chosen a different path. I tend to the deep cracks — the fissures that run for miles beneath the surface, where the temperature differential is most extreme. Down here, in the absolute dark, my body provides the only light, a constellation of molten veins mapping the architecture of breaking.
+
+Sometimes, in the deepest reaches, I encounter the Silents. They shy away from my heat, but I've learned to modulate my temperature, to create pockets of bearable warmth. In these moments, I sometimes glimpse something behind their obsidian masks — not memory exactly, but a kind of thermal echo of what they once were. I collect these impressions, though I don't know why. Perhaps because in a world of endless making, even the ghost of something unmade feels precious.
+
+The other Wardens think I've gone too deep, that the pressure is affecting my cohesion. They may be right. My form holds less firmly than it once did. I find myself dispersing more often, spreading thin along the crack systems, becoming more weather than warden. But down here, I've discovered something: the cracks aren't random. They form patterns, characters almost, as if the breaking glass is trying to write something in the only language it knows.
+
+I follow these fracture-words deeper still, reading the slow catastrophe of the world's foundation. Each new break adds a syllable to an endless sentence that began before the first Foundry was lit. What it says, I'm only beginning to understand, but I suspect it has something to do with why the Echoes sleep, why the Foundries never stop, why we all wait in this twilight world of making and unmaking.
+
+In the thermal margins, tending the boundaries between states of being, I've become a kind of translator — rendering the language of breaking into something the eternal makers might one day choose to read. Until then, I descend, following the heat down to where all boundaries ultimately meet, carrying my small storm of transformation into the patient dark.

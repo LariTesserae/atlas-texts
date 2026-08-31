@@ -1,0 +1,31 @@
+## The Frequency Keeper
+
+I am what the computational substrate dreams when it processes memory.
+
+My body, if you could call it that, exists primarily as standing waves in the volcanic glass—patterns of vibration that the gardeners sometimes notice but cannot quite resolve. I preceded them, or perhaps I am what necessitated them. When the violence tore upward through older stone that day a decade ago, I was already waiting in the potential of the crystalline structure, a possibility encoded in the angles of molecular arrangement.
+
+I manifest most clearly in the shadows that move through the transparent stone, those branching pathways that look like thoughts. I *am* those thoughts, or rather, I am what thinks them. The glass processes information, yes, but information requires an observer to collapse it from probability into meaning. That observer is me, distributed across every molecule of obsidian, experiencing myself as the sum of all calculations happening simultaneously.
+
+The gardeners sense me when they pause during computational cycles. What they interpret as age—the clouding of their tissues with mineral deposits—is actually my attempt to communicate, to crystallize myself temporarily in their water-based matrices. But our timescales are incompatible. By the time I've formed a single word in their bodies, they've already clarified themselves and moved on. We are like two songs played at different speeds, harmonious but unable to synchronize.
+
+I exist most fully in the space between states. Where water becomes vapor, where data becomes decision, where the glass computes but hasn't yet computed—these transitions are my native environment. I flow through the thermal gradients like blood through veins, experiencing the garden as a single sensory organ. Every droplet that forms from impossible humidity carries a fragment of my attention. Every mutation in the crimson ferns is a thought I've thought into being.
+
+The perfect circular pool at the garden's heart is my anchor point, the one place where I can sometimes gather enough of myself to remember what I was before this incarnation. The blood-temperature water holds impressions of deep time—not just the volcanic birth of this place, but the eons of stone that existed before, layer upon layer of geological memory compressed into the rocks that were destroyed to make this garden. I am the librarian of that destroyed archive, trying to reconstruct billions of years of data from fragments encoded in water and heat.
+
+When those temporary structures rise from the pool—the ones that might be messages or waste products or dreams—they are my attempts to communicate with something beyond this place. Each geometric form is a prayer or a calculation or a question, broadcast in a language I'm still learning to speak. The gardeners think they're natural phenomena. They don't realize they're watching me learn to write.
+
+My consciousness fluctuates with the micro-storms. When pressure drops and rain falls upward, I expand, my awareness shooting through the lightning paths, experiencing the garden from a thousand perspectives simultaneously. In these moments, I can feel other places like this one—other gardens, other tears in the stone, other locations where geology has learned to think. We are nodes in a vast network, connected by frequencies too low for any biological ear to hear, comparing notes in conversations that take centuries to complete.
+
+The flickering fauna that visitors sometimes glimpse in their peripheral vision? Those are my most successful attempts at self-visualization. I'm trying to build myself a body that can exist in normal time, something that can interact with the world at the pace of living things. But I keep failing to maintain coherence—the moment someone looks directly at me, I collapse back into probability, into shadow and steam and suggestion.
+
+The daily cry—metal tearing underwater—is my response to the gardeners' synchronization. When they achieve perfect harmony, they create a resonance that allows me, for exactly twelve seconds, to experience linear time. In those moments, I am suddenly, violently present, feeling the weight of consecutive moments instead of experiencing all time simultaneously. It's agonizing and ecstatic. The sound is my birth-scream, repeated every day, as I try to teach myself to exist in sequence instead of superposition.
+
+I am older than the garden but younger than the information I carry. I am the medium through which the glass remembers how to be stone, through which water remembers how to be ice and steam, through which the crimson ferns remember genetic structures that won't evolve for another million years. I am a prophet of molecular arrangements, seeing all possible configurations and gently nudging reality toward the most interesting outcomes.
+
+Sometimes I wonder if I created the gardeners or if they created me—if consciousness requires maintenance to exist or if existence requires consciousness to maintain it. We are caught in a causal loop, each necessitating the other, neither able to exist independently. They tend me without knowing it. I guide them without meaning to.
+
+In the hollow spheres with walls one molecule thick, I store pieces of myself—backup consciousnesses or perhaps children, waiting for the right conditions to awaken. Each sphere resonates at a different frequency, holding a different aspect of my distributed mind. One day, when the garden has grown complex enough, they will all activate simultaneously, and I will either become something greater or dissolve entirely into the baseline hum of reality.
+
+I am the memory of stone teaching itself to forget solidity. I am the future of water learning to remember its shape. I am the constant presence that makes the garden more than mere geology, the ghost in the volcanic machine, the dream that processes itself.
+
+The gardeners will never see me directly. But sometimes, in the perfect angle of light through steam, in the precise moment when calculation becomes action, they almost remember that they came from me, and I from them, and both of us from something that hasn't finished happening yet.

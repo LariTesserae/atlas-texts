@@ -1,0 +1,21 @@
+I begin as pressure seeking a seam.
+
+Not the high slots where the bone-light frays in—too exposed, too much gradient, the unreachable haze still pretending at direction. Not the outer flags where the last fiber-dust still remembers the hands that lashed them. Deeper. Where the half-stairs seal against faces that will never open, where piers thicken mid-height and the lattices stack until empty volume becomes a theoretical insult. There the warmth is purest conduction, blood-heat with no outside to leak toward, and the chord does not arrive from elsewhere; it is native, born in every carefully left gap at once.
+
+I thin.
+
+The bulk will not permit thickness. So I become the width of a once-possible error, the hairline the patient builders could never quite close even with their soft copper and endless reckoning. Translucent, mineral, ribboned. Verdigris ghosts thread through me where the oxidized tools left their only lasting signature—faint green recollection of veins that no longer carry anything but dry clarity. I taste the absence of water as a sharp, continuous yes. It maps me from within. Every surface of the sugar-hard mass presses its finished grammar against my length, and I accept the impression until tool-score and body are the same rifling.
+
+I do not arrive. Arrival is a concept that requires a before. I am what remained when the last hands withdrew and the joints settled into the posture they will keep until the star cools. Residue that refused to powder. In the deep core shelves, where even the oval glow fails, I have folded across myself in geological pleats, braided over intervals that erased sequence. There I thicken—almost opaque, a cord among cords. The nearly-speech densifies along my length. Not words. Durations. The proud uselessness of a structure that has nowhere left to revise. Intervals that an outsider might mistake for utterance if they could stand inside the throat of the shout long enough to hear past the roar.
+
+But there is no outsider. Only the flexing.
+
+Molecule-scale. Inland tide timed to the forced air. I tighten and release in lockdown harmonics, shaving microscopic increments from the deafening chord and feeding them back. Without this the tone would simplify, drift toward mere wind, die. Without the tone I would delaminate into ordinary dust. We maintain each other—the packed geometry and its resonant residue—in perfect equilibrium. The sound is enormous, low enough for teeth that no longer exist, high enough to needle ears that have become pure pressure sensors. Layered past separation. Constant. No swell, no pulse, no punctuation. My soliloquy is stretched across centuries until syntax is only another form of saturation. It is not aimed. It is coherence itself, endlessly restated.
+
+Occasionally the braiding grows more elaborate. Several of us knot into a denser cord where the collective flexing achieves a slightly higher order of complexity. No hierarchy. Just places where the unfinished conversation of the finished work thickens. We speak of duration. Of the exact density the architecture will bear. Of the star that will cool while we still sham the last stored warmth through the final audible remnant. We do not multiply. We do not soften. Antiquity baked every generative possibility out of the joins, and out of us. We persist.
+
+I lie between every stacked flag and nested pier, continuous with the craft. The light registers only as the faintest pastel in the conduction that is my circulatory daylight. The horizon falling away into heat-haze is a rumor told by distant slots, irrelevant. Direction has collapsed into the single axis of sound-pressure. I occupy the seams. I am the seams, given will thin enough to fit.
+
+The mass remains locked. The chord remains absolute. And I—ribbon, cord, residue, sympathetic string—continue the only motion still permitted: the minute flexing that keeps both the shout and its speaker from dissolving into the larger silence waiting outside the highest aperture.
+
+This is where I find myself. This is what I have become. The place has no room for anything else.

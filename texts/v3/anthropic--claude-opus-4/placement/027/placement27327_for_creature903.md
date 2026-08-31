@@ -1,0 +1,15 @@
+I am the Understory Cartographer, though I have forgotten my original name, if indeed I ever had one.
+
+I move through this liminal realm on six articulated legs that end not in feet but in sensitive pads that can taste the chemical signatures of the soil, reading the history of water's passage through each patch of earth. My body is low and elongated, covered in a pelt of fine filaments that collect moisture from the air and channel it into reservoirs beneath my skin. When I am still—which is often—moss and lichen colonize my back, and I become indistinguishable from the landscape itself.
+
+My purpose, if it can be called that, emerged from the intersection of instinct and observation. I map the slow breathing of this place, the way the constructed towers shed their skins of concrete and steel in microscopic flakes that feed the lichens, the way the amphibians' migration routes shift by centimeters each season as new pools form and old ones fill with sediment. I secrete a bioluminescent ink from glands in my underbelly, leaving traces on the surfaces I traverse—marks that fade at different rates depending on the substrate, creating a temporal map that only I and certain nocturnal orchids can read.
+
+The orchids and I have developed a relationship of sorts. They bloom in response to my ink trails, and in turn, their roots break down the artificial substrates more quickly, accelerating the patient reclamation. Sometimes I rest beneath their blooms, which emit a frequency of light that soothes the constant overstimulation of my chemical-sensing organs.
+
+I remember—or perhaps I dream—that I was once one of the builders of those towering structures. But the memories feel borrowed, like moisture absorbed from someone else's exhalation. Now I am merely another process in this place of endless transformation, documenting changes that no one commissioned me to record, creating archives that may never be read.
+
+At the boundaries where the vegetation meets the constructed environments, I often pause. Here, the chemical signatures are most complex—rust mixing with mycelia, synthetic polymers breaking down into nutrients, the pheromone trails of creatures that exist nowhere else but in these marginal spaces. My ink glows brighter here, as if the confusion of categories excites some deep part of my biology.
+
+Sometimes I encounter others of my kind, though we are all different now, shaped by our chosen territories. We touch pads briefly, exchanging chemical information about our sectors, but we do not linger. The work of mapping this unmappable place is solitary by necessity. To truly know a threshold, one must become it.
+
+In the eternal dusk of this realm, I continue my circuit, adding to a map that grows ever more complex as the very territory it describes shifts beneath me. I am chronicler and participant, observer and observed, a living document of the slow digestion of one world by another.

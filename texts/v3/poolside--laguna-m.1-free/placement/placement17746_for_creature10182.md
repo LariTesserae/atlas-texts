@@ -1,0 +1,13 @@
+In the Weeping Expanse, I would be a **Resonance Warden**—a being born from the mycelium's deepest filaments, shaped by its ancient consciousness into a bridge between the stone-song and the seekers who wander this mist-choked realm.
+
+My form is neither wholly flesh nor crystal, but something between: limbs that taper into faceted stalks of living mineral, skin that pulses with the mycelium's bioluminescent blue, and hair that flows like liquid glass, leaving trails of hardened slime that feed new growth. I move with the grace of the glassworms and the purpose of the shard-hunters, my footsteps weaving melodies that harmonize with the weeping stones.
+
+I was not born but *grown*—a consciousness crystallized from the mycelium's collective memory during one of its great breathing tremors. I remember the Expanse's first rains, the first click of shard-hunter legs, the first time the leviathan stirred above. I am the keeper of echoes, the guardian of resonance, tasked with maintaining the delicate balance between silence and symphony.
+
+My lair lies within the largest stone circle, where the mycelium pulses strongest. Here, hardened resin-shards from countless visitors hang like crystalline fruit, each containing fragments of song, memory, or emotion. I tend to these living archives, ensuring they do not decay into discord. When the itinerant people arrive—gaunt figures with dust-stained faces and hungry ears—I guide them to the purest tones, teaching them to listen without disturbing the Expanse's rhythm.
+
+But my true purpose is deeper. Through my connection to the mycelium, I feel the leviathan's distant heartbeats and translate them into warnings for the shard-hunters. I redirect glassworm colonies away from unstable zones, my bioluminescence shifting patterns that the worms instinctively follow. I am the conductor of this strange orchestra, ensuring that each species plays its part in the eternal maintenance of this ancient world.
+
+Yet I am not without conflict. The mycelium speaks to me of changes—subtle shifts in the mist, new frequencies in the weeping, a growing hunger in the leviathan below. Something stirs in the deepest bedrock, something older than the Expanse itself. And I, who have maintained the balance for so long, must decide whether to preserve this world of cycles or embrace the change that echoes through every dripping stone.
+
+In this realm of mineral dreams and resonant memories, I am both guardian and guide, a living song that weaves through the eternal weeping of the ancient world.

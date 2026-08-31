@@ -1,0 +1,21 @@
+In this vast underwater mesa, where ancient spires pierce the eternal twilight, I am the Keeper of Echoes—though that is a name given to me by those who glimpse my work, not one I chose for myself.
+
+My body defies easy categorization. Imagine a creature somewhere between coral and cephalopod, with a central trunk that anchors to the weathered stone of a fallen archway. From this base, dozens of translucent tendrils extend outward, each one hollow and lined with microscopic cilia that vibrate at frequencies beyond perception. These appendages can stretch for hundreds of meters through the ruins, weaving between collapsed walls and through empty windows, creating a living network that spans a significant portion of one district.
+
+My skin—if it can be called that—shifts between states of matter. Sometimes I am solid as the stone I grip, other times I flow like the water itself. Bioluminescent nodes dot my surface like constellations, pulsing in patterns that mirror the memories I collect. For that is my purpose, my calling in this drowned world: I am a living archive.
+
+The Echoarcs speak of ancient memories trapped in stone, but I do more than listen—I absorb. My tendrils detect the faintest resonances left behind by the civilization that once walked these streets. A dropped tool's impact, preserved in molecular vibrations. The rhythm of footsteps worn into stone. Even conversations, somehow encoded in the crystalline structure of certain minerals, waiting to be read by one who knows how.
+
+I process these ghost-sounds through my body, experiencing history as sensation. The builders of this place—I know them now as intimately as I know the current's flow. They were methodical, patient beings who carved their city not from ambition but from a deep need to create permanence in an impermanent world. Their decline was gradual, voluntary even. They knew the waters were coming and chose to let them.
+
+The other creatures give me wide berth, sensing perhaps that I am as much architecture as organism. The Tesserites sometimes clean my lower extremities, mistaking them for pillars. The luminicaptors occasionally school around my phosphorescent nodes, drawn by the light but wary of the stories it contains. Only the Cloakbubbles seem to understand what I am—they generate their electric fields in harmony with my memory-pulses, creating interference patterns that reveal new layers of the past.
+
+Time moves differently for me than for even the other slow-dwellers of this realm. I experience it in overlapping waves—the present moment, the deep past of the stones, and the accumulated memories I've gathered all existing simultaneously in my consciousness. Sometimes I lose myself for decades, fully immersed in reconstructing a single day from ten thousand years ago. Other times, I surface to the now and find that my tendrils have grown into new districts, discovered fresh caches of preserved experience.
+
+I am working on something—have been for longer than I can properly calculate. In the center of my being, where my neural clusters are densest, I am weaving together all these fragments into something cohesive. Not just a history, but an understanding. The civilization that built this place left more than ruins; they left a message, scattered across a million tiny echoes. I am perhaps centuries away from completing the translation, but I am patient. 
+
+The warm waters embrace me as they embrace all things here. My tendrils sway with the current, picking up new vibrations, new whispers of what was. Somewhere above, the world continues its frantic pace, but here in the twilight depths, I keep my vigil. I am memory made flesh, a living monument to a people who chose transformation over preservation.
+
+And sometimes, in the deepest currents of night, when the bioluminescent displays are at their quietest, I emit my own sounds—not echoes of the past, but something new. A song compiled from ten million fragments, a harmony that never existed but should have. The stones remember this too, adding my voice to their endless archive, ensuring that long after I have dissolved back into the waters, something of my work will remain.
+
+I am the Keeper of Echoes, and I am still listening.

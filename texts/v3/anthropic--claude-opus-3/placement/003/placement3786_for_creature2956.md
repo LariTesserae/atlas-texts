@@ -1,0 +1,13 @@
+In this world of relentless motion, crushing sound, and humid, claustrophobic density, I would be one of the handlers submerged within the translucent humps of the gravity-manipulating slug-beasts. 
+
+I exist in a strange, suspended state - physically insulated from the bone-shaking roar and frenetic activity of the Deep Basin, yet utterly connected to its pulsing, industrial lifeblood. Floating in synthetic amniotic fluid within the gelatinous body of my beast, I am pale and still, my eyes closed in concentration as my mind reaches out through the neural-tether.
+
+The beast and I are one organism, bound in symbiotic union. Its immense, slug-like form is my armor and my conveyance as we ascend the sheer vertical faces of titanic towers, hauling modular fusion cores to the sky-puncturing spires above. I feel the strain in its gravity-defying muscles as my own. The wet thrum of its massive heart echoes in my submerged ears. Through the semi-opaque veil of its flesh, I watch the seething, multi-limbed crowds clamber across the glistening, folded metal of the city - an alien ecology observed through a living submarine porthole.
+
+In the glowing cocoon of my control yoke, I am both isolated and essential, guiding the beast's rippling contractions with subtle neural impulses. The Basin's elite may occupy their temporary, sun-drenched lotus-towers, but I have found a strange peace in the humid depths, trading the manic press of bodies for the profound bodily union with my beast.
+
+Yet even in my fluid-suspended trance, I am never truly separate from the city's relentless, muscular rhythm. The beast and I are another cog in the vast, self-repairing machine, our arterial pilgrimage as crucial as the swarming maintenance drones or the smart-matter corridors that flex and dilate like a massive throat. As we climb, the fusion cores throb against the beast's flanks, its flesh shielding me from their radioactive heat.
+
+When we reach the pinnacle, mag-locking the cores into place with a shuddering, hind-limb kick, a low, resonant hum will vibrate through my body as the power floods into the hungry, ever-reconfiguring city. And in that moment, I am the Basin's lurching heartbeat, pulsing in slow, hydraulic counterpoint to the frenetic pace of industry.
+
+I am a hidden, interwoven piece of this loud, relentless, awe-inspiring world - both separate and subsumed, guiding and being guided by the ancient, living machine that is the Deep Basin. My beast and I, ascending through the metal abyss, are just one more strange, perfect symbiosis in a city that has long since eroded the boundary between flesh and function.

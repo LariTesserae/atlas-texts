@@ -1,0 +1,19 @@
+I am deep within the *Cusp of Marrow*, a vaulted chamber where the ceiling spirals upward in a helix of calcified ferns. I do not have a name, for names are static, and my position in the circulatory grid is currently shifting. 
+
+I am a Resonant, though my limbs feel heavier today. My skin, semi-translucent and cool to the touch, is currently flush against the weeping wall of a nutrient conduit. I can feel the city’s hunger; the peristaltic thrum is dragging, a sluggish, rhythmic *thud-hiss* that vibrates through the soles of my feet and settles deep in the marrow of my own bones. The grid is depleted here.
+
+I am not alone, though there is no one else in the room. Beside me, pressed into the curvature of the wall, is a Sedentary. Their skin has long since marbled into the chitinous hue of the room. I can feel them—not through sight, but through the microscopic, electric flicker of their consciousness, which is currently focused on modulating the hydraulic valve just above my head. They are the Memory of this chamber. They remember when this sector was a mere sprout, and they are using their fading neural capacity to urge the wall to calcify—to hold, to harden, to endure.
+
+I reach out, pressing my palm against the cool, stiffening shoulder of the Sedentary. We do not exchange words; we exchange state. I bleed a surge of heat and a sharp, metallic pulse into them, a signal of my intent to assist. They respond with a shudder, a slow, viscous shift of chemical musk that flows into my pores, grounding me. They are exhausted, their internal systems finally beginning the slow, final integration into the architecture.
+
+There is no "I" in this interaction. There is only the *maintenance of the lattice*.
+
+I begin to hum. It is a low, buzzing vibration that resonates in my sternum, a pitch that mimics the frequency of the fern-walls as they yearn to grow. I feel the microscopic foragers beneath the surface of the wall respond, swarming to the area, their movements tiny tickles against my skin. The wall begins to pulse, glowing with a renewed, amber bioluminescence. I am acting as the interface, the bridge between the dormant architectural intent and the active metabolic flow.
+
+There is no exhaustion here, only the satisfaction of the grid balancing itself. As I pour my focus into the rhythm, I feel my own sense of "self" thinning. I am becoming the vibration. My nerves are no longer mine; they are the nerves of the wall, the conduits, the city. 
+
+I see—not with eyes, but with a profound, spatial clarity—the sprawling continental architecture for what it is: a closed, perfect loop of existence. I feel the heartbeat of the far-off sectors, the millions of other Resonants performing their own humble tasks, the vast, iridescent grazers moving in slow-motion across the outer scaffolding, the absolute lack of waste, the perfection of a world that is its own progenitor.
+
+I think of the Sedentary beside me, and I realize that soon, this will be me. Decades or centuries from now, I will stop moving. I will lean back into the curve of a wall, my fibers will weave into the chitin, and my consciousness will expand, drifting into the warm, honey-colored amber of the city’s collective memory. I will become a junction, a valve, a part of the floor.
+
+ I do not fear it. In a world where nothing is ever lost, to become the architecture is simply to be held forever. I press my chest tighter against the wall, matching the rhythm of the city’s lung, and I hum, and I hum, and I hum, until the vibration in my marrow and the vibration of the world are indistinguishable.

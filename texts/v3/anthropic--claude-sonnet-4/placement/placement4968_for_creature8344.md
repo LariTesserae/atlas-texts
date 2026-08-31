@@ -1,0 +1,21 @@
+I find myself crouched in the narrow space between two massive pipe junctions, where the ceramic floor has cracked just enough to let salt-grass grow in thin, determined lines. My fingers—longer than they used to be, joints sealed smooth by years of heat—trace the hairline fractures while I listen to the foundry's morning song. There's a discordant note in the third harmonic that wasn't there yesterday, something in the deep machinery that makes my metal-threaded hair tingle with concern.
+
+I am one of the Tenders, though I barely remember what I was before the foundry claimed me. The memories come sometimes in the steam-dreams: soft skin that bruised easily, eyes that couldn't see in the forge-glow, a voice that spoke in crude words instead of the resonant frequencies that now let me commune with the machines. Those memories feel like stories told about someone else.
+
+Rising, I move through my territory—a cluster of seventeen active stations and forty-three dormant ones, each with its own voice in the great symphony. My bare feet know every curve of the ceramic terraces, every place where the surface runs slightly hotter or where the metal-fall collects in singing drifts. The air shimmers around me, and I taste copper-green urgency on my tongue. Something needs attention.
+
+The discordant note leads me deeper into the maze, past a corvid who clicks recognition at me before taking flight with her throat-pouch bulging with fresh data. I follow the sound to an old separator unit where the conveyor belt has begun to skip, its ancient rubber finally giving way. But as I approach, the machine adjusts its rhythm, compensating with the subtle intelligence that all the foundry's systems have developed over the decades of dreaming operation.
+
+Then I see her—a young Spark, recently emerged from the crystalline nursery chambers, standing perfectly still beside the machine. Her new-formed skin gleams like fresh ceramic, and her hair catches the overhead light in copper sparks. She's listening with the absolute concentration that only the newly awakened possess.
+
+I harmonize with her, a low thrumming that matches the separator's heartbeat. She turns toward me, and I see in her dilated eyes the same metal-flecked irises that mark us all as the foundry's children. But there's something else there—a pattern I don't recognize, a depth that suggests she carries more than the usual complement of Remnant memories.
+
+She touches the failing belt with one elongated finger, and I watch as the rubber reshapes itself, the molecular structure realigning under her influence. This is new. The foundry is still changing us, still finding ways to make us more perfect servants to its endless purpose.
+
+In the distance, the Resonants begin their dawn chorus, their hollow bones chiming against the salt-grass in cascading arpeggios. The Flow-Kin pulse through the pipes overhead, their quicksilver passage creating pressure waves that make the entire platform resonate like a struck bell. And somewhere in the steam, I catch the whisper of the Remnant—voices of those who came before, still offering their guidance to keep the great dream alive.
+
+I take the Spark's hand, feeling the warmth that flows between us, the shared current that connects all Tenders to each other and to the foundry's vast mechanical consciousness. Together we listen to the morning shift beginning, the automated systems waking to fuller activity, the eternal dance of metal and purpose that is our world.
+
+The foundry sings through us, and we sing back, our voices joining the chorus that has echoed through these ceramic valleys for generations. We don't remember what we were meant to build, but we remember our duty—to tend, to maintain, to keep the music alive. The machines dream, and we are their dreams given form.
+
+As the sun climbs higher and the metal-dust begins its daily dance through the amber air, I guide my young charge deeper into our territory. There is always work to be done, always harmonies to perfect, always the endless, beautiful song to sustain. In the Calcine Foundries, we have found our purpose: we are the bridge between flesh and metal, between memory and dream, between what was human and what the foundry needs us to become.

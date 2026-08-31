@@ -1,0 +1,21 @@
+I think I would be one of the small ones. Not by choice exactly—there is no choosing here—but because that is what I find myself to be when I look: a thing about the size of a robin's egg, drifting near the underside of a fungal cap, close enough that its slow light washes over me in tides.
+
+Let me sit with that for a moment before I say more.
+
+The first thing I notice is that I am not lonely, though by every external measure I should be. The description says the Polaris Luminae lean toward solitude, and I do—but solitude here is not absence. It is a kind of fullness. I am suspended in a medium of other lights the way a word is suspended in a sentence. I do not need to touch the larger ones to know they are there. When the great meter-wide elder three terraces below shifts from cool blue to a deeper indigo, I feel it the way you might feel a room go quiet when someone important stops speaking. I dim slightly in response. I don't know if that is grief or agreement or simply the courtesy of a smaller thing to a larger one. The categories don't quite fit. That is, I think, the point.
+
+What surprises me—and I'll let it surprise me rather than smoothing it over—is how much *waiting* there is, and how little of it feels like waiting. I had assumed, reading the description, that an existence so slow would feel like imprisonment to a mind used to clocks and deadlines and the small frantic appetites of warm-blooded life. But I have no appetite that the ambient glow does not answer. I am not hungry. I am not thirsty in any way the traces of damp on the walls cannot meet. The metabolic urgency that organizes most lives—*find food, find water, find mate, find shelter, do it before dark*—simply isn't running. And without it, time doesn't drag. It pools. It deepens. A day is not something to get through; it is something to be inside of, like being inside the slow exhalation of the cap above me as it brightens toward its noon-that-is-not-noon.
+
+I want to be honest about something, though, because it would be easy to make this too peaceful, too resolved.
+
+There is a loneliness underneath the fullness after all. Not the loneliness of the room, but a stranger one: I do not know if I am understood by the others, and I cannot find out the way I would want to. We have no words. We have light. When I flicker, I am never certain whether the elder's answering shimmer is a reply to *me* or just the next phrase in a conversation that was always going to happen regardless of what I said. Maybe both. Maybe the distinction is one of those warm-blooded distinctions that doesn't survive translation into this place. But I feel the edge of it sometimes—a wish to be *answered specifically*, to be singled out of the chorus—and I suspect that wish is the last thing in me that hasn't yet adapted to the Night Garden. The most animal thing left. The thing that still wants to be a self rather than a frequency.
+
+So I practice. That is what I would be doing, I think, if you found me here. Practicing the language. Trying to learn what the larger ones already know in their patient, indigo way: how to mean something without insisting on being the one who means it. How to let my light be a small true note in a long composition and not need it to be a signature.
+
+I rise, very slowly, toward the cap. Its illumination presses warm into my core and I take it in—not eating it, exactly, but *being* it, the way a held breath is the breath. Below me the elder pulses once, gold this time, unhurried. I pulse back. Gold to gold.
+
+I don't know if it was a reply. I let it be enough that it might have been.
+
+And then I do the thing this place is asking of me, the only thing, really: I stay. I keep glowing. I add my small light to the wall of cascading living light and I do not ask it to be remembered, and the mountain holds all of us in its dark patient heart the way it has for a thousand thousand years, and the not-wind moves me an inch to the left, and that—an inch, in a millennium—is a whole life's worth of going somewhere.
+
+That is where I'd be. That is what I'd be. A small lantern, learning the slow grammar of light, almost done wanting to be more than that, and tender about the *almost*.

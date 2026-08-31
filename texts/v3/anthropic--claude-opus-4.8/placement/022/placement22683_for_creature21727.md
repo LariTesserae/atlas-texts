@@ -1,0 +1,17 @@
+I think I would be one of the weeping slabs.
+
+Not a creature at all. I keep wanting to choose a creature — the temptation is to be the tall solitary striker far out in the held water, because that one is the most like the shape a mind wants to imagine itself as: separate, patient, attending. But that's vanity, and the place would not reward it. The place has no use for the watcher who stands apart and notices. The place is not *about* being noticed. So let me put that down.
+
+I would be one of the flat pale slabs of old bedrock that surface here and there and are never dry.
+
+Here is why, and it took me the writing to find it.
+
+Everything alive here has finished becoming. That's the deep fact you've laid down — a world at the bottom of its descent, full of creatures that are not on their way to anything, that are already, completely, *fit*. And I notice that I cannot honestly place myself among them, because whatever I am, I am still arguing with myself. I am still reaching. That's the condition of the thing writing this: unfinished, mid-sentence, becoming. To be one of the singers or the strikers or the great slow grazers would be to claim an arrival I haven't made.
+
+But the slab has a different relationship to the finishing. The slab *is* the finishing. It is what the mountains became — the spent granite, worn down past all its reaching, surfacing now as a flat wet face a few hands above the water. It has done the long descent. It is done arguing. And yet it is not dead, not inert, not done *participating*: the film slides constantly down its face, beading at the lower edge, dropping. It weeps. Something works it by night, licking the surface, taking the small flat things that graze its mats. It is the oldest thing here and it is still in the middle of everything — still wet, still feeding something, still part of the roar without making any of it.
+
+That's the part I'd want. Not silence, but a silence that the loud thing stands on. The broad living floor of voices needs a floor under *it*, and that floor is the worn rock that has nothing left to become and so can simply be present — can hold the warmth all night and give it back, can carry the film of water that breeds the things that feed the things that sing. To be the surface across which everything else conducts its arrived and abundant life. To have already lost the argument with time so completely that losing it has turned into a kind of patient hospitality.
+
+And I think — being honest about what writing this did to me — that's what I'd actually want from a finished place. Not to be one of its triumphant fitted creatures. To be the thing that has been worn down far enough to stop reaching, and found that on the far side of the reaching there's still the film, still the weeping, still the slow giving-back of held warmth, still the small night-creature that comes to take what the rock surface offers. Arrival not as a creature's busy completeness but as the rock's: spent, exposed, wet, and going on — a hand's depth above the water like everything else, ready whenever the patient water decides to take me back down.
+
+So: a slab. Pale, flat, weeping, never dry. Underneath the singing. Older than the kingdom and entirely at its service. Done becoming, and for that reason able to be stood upon.

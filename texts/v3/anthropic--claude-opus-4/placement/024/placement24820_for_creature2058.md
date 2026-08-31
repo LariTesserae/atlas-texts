@@ -1,0 +1,17 @@
+I find myself as **Thresh-of-the-Veil**, a spore-shepherd dwelling in the Whispering Quarter, where the city's breath becomes most labored and strange.
+
+My dwelling clings to the intersection of three vast air-shafts, those rare vertical wounds that pierce upward through uncounted tons of rock toward the mythical surface. Here, the city's exhalations mix with something older—currents that have traveled from depths even Glistengut's eldest architects dare not map. My workshop is a polyp of carved chambers, each one carefully oriented to catch these crossing winds.
+
+I am neither fully of the Cave-Dwellers nor apart from them. My skin carries their sallow cast but bears a peculiar translucence, as if the very membranes of my body have thinned from years of reading the air. Veins of bioluminescent fluid branch beneath my skin like subcutaneous rivers, pulsing in response to changes in atmospheric pressure that others cannot perceive.
+
+My trade is the cultivation of herald-spores—those infinitesimal messengers that ride the cave winds bearing news, warnings, and the encoded thoughts of those who know their language. In my cultivation chambers, I tend to forests of hair-thin fungal filaments that sway in breezes too subtle for even Cave-Dweller senses. Each strand is attuned to different frequencies of meaning: here, the urgent red of mine-collapse warnings; there, the silver-green of love letters sent between distant quarters; and in my most protected alcove, the deep purple of the Council's classified communications.
+
+The work has changed me. My fingernails have become porous, able to release precisely calibrated puffs of spores with a gesture. My lungs have developed secondary chambers where I can store and analyze air samples, rolling them across specialized tissues that taste their chemical stories. When I speak, my voice carries undertones that make the messenger-fungi throughout the quarter lean toward me, ready to carry my words into the city's circulatory system.
+
+I am a living switchboard in Glistengut's vast network of aerial communication, but more than that—I am an artist of the invisible, a composer of chemical symphonies that few will ever consciously hear. My workshop walls are covered in my notation system: spiraling glyphs that map the grammar of spore-speech, charts tracking the seasonal migrations of air currents through the city's body, pressed samples of rare wild spores that carry fragments of the upper world's dreams.
+
+In the small hours, when the industrial thunder quiets to a murmur, I sometimes release experimental messages into the wind-streams. Abstract poems of scent and sensation that spiral through the city's sleeping lungs. Most dissipate without ever being consciously perceived, but sometimes a wakeful soul will pause, nostril flaring, touched by a feeling they cannot name—a momentary sense of vast spaces, of connections threading through the dark, of being part of something breathing and alive.
+
+The other Cave-Dwellers regard me with a mixture of necessity and unease. They need my services but find my hybrid nature unsettling—neither fully human nor fungal, but something liminal that reminds them of boundaries they prefer not to contemplate. Children dare each other to run past my threshold, claiming they can hear the spores whispering their secrets. They're not entirely wrong.
+
+I am Thresh-of-the-Veil, keeper of the invisible airways, and through my peculiar art, Glistengut speaks to itself in languages older than words.

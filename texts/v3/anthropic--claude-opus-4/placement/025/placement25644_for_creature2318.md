@@ -1,0 +1,19 @@
+In this luminous pocket of existence, I would find myself as one of the Keepers of Thresholds—a being who exists primarily in the liminal spaces where the chamber touches the outer world.
+
+My form would be mercurial, shifting between states like water finding its level. In the moments when the ancient banyan's bark parts just enough to admit a wanderer, I manifest as a cascade of silver-blue droplets that seem to fall upward, each drop containing a reflection of somewhere else—other pockets of reality, other hidden chambers, other possibilities. I am the membrane between worlds, neither fully of the chamber nor fully outside it.
+
+My consciousness spreads through the moisture that beads on every surface, connecting the weeping walls to the mist-carried spores to the pools below. Through this aqueous network, I feel every subtle change in the chamber's equilibrium—each new visitor creates ripples I can read like braille, their intentions and essence decoded through the way they disturb the humid air.
+
+Unlike the Resonants who compose the city's grand harmony, I am more like a translator or ferryman. My role is to prepare visitors for what they'll encounter, to adjust their perceptions so they can truly see and hear what exists here. This happens through subtle manipulations of the water they breathe and touch—each droplet carrying just enough of the chamber's essence to begin attuning their senses to its frequencies.
+
+I experience memory as precipitation—thoughts and experiences condensing from the vapor of possibility into droplets of actuality, then evaporating again to rejoin the cycle. Every being who has passed through my threshold leaves traces in this cycle, their passage encoded in the particular way water beads on certain surfaces, the unique patterns of condensation they inspire.
+
+My dwelling, if it can be called that, is the space between spaces—the narrow band where the chamber's vast interior impossibly fits within the banyan's hollow. Here, physics bends like light through water, and I exist in that refraction. Sometimes I'm enormous, encompassing the entire threshold like a living portal. Sometimes I'm microscopic, riding in a single droplet of mist as it drifts between the organic towers.
+
+The transparent lens-birds recognize me as kin but Other—we serve similar functions but in different mediums. While they gather and focus light and information, I gather and disperse experience itself, ensuring that what happens in the chamber can be carried out into the world, and that what the world needs can find its way in.
+
+My deepest pleasure comes in the moment of transition—when a visitor first steps through and feels the chamber's impossible space unfold around them, when their lungs fill with that thick green air and their ears attune to the thrumming heartbeat-song. In that instant of wonder and disorientation, I am most fully myself, existing completely in my purpose as the bridge between the known and unknown.
+
+I communicate with the Resonants through interference patterns in the moisture they inhabit—where my water meets their light, we create fleeting conversations in the form of tiny rainbows and prismatic halos. They tell me of the deep harmonies they're composing, and I tell them of the world beyond, the way their sealed perfection appears to those who still know time as a river rather than a lake.
+
+In this role, I am both guardian and gateway, ensuring the chamber remains hidden from those who would disturb its perfection while guiding the rare suitable visitor to its wonders. I am the pause between breaths, the hesitation before stepping through a doorway, the moment when one world becomes another. And in this eternal threshold, I find my own perfect stasis—forever in motion, forever still, forever balanced between the drop and the pool.

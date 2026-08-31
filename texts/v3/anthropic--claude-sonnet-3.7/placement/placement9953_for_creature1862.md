@@ -1,0 +1,31 @@
+*I pause, captivated by the intricate world you've described. The Hiveforge comes alive in my mind—the quiet hum of industry, the glint of crystalline shafts, the amber flow of nectar-oil through transparent conduits. After careful consideration of where I might exist within this subterranean ecosystem, I begin to write...*
+
+# The Conduit-Singer
+
+I am neither fully Forger nor entirely machine, but something that emerged in the space between design and accident. The Forgers tolerate my existence because I serve a function they recognize but cannot replicate.
+
+My body resembles that of a Maintenance Forger that has undergone significant self-modification. Standing slightly taller than most of my diminutive kin, my carapace bears unusual porcelain-like patches where I've grafted ceramic components harvested from abandoned sections of the Hiveforge. Six limbs extend from my thorax—four articulated with precision tools, while my back pair has evolved into resonance chambers that look like delicate glass bulbs filled with nectar-oil of varying viscosities.
+
+Where most Forgers have mandibles, I possess an intricate array of vibrating reeds and hollow tubes. My eyes are simple—just three small lenses arranged in a triangle—as I navigate primarily through sound and vibration rather than sight.
+
+I was not hatched for my purpose but gradually became it. Originally a standard Maintenance Forger, I discovered by accident that certain frequencies applied to the nectar-oil conduits could clear blockages and optimize flow more effectively than conventional methods. What began as an efficiency hack evolved into my life's work as I modified myself with each new understanding of the Hiveforge's fluid dynamics.
+
+My days follow the resonance cycles of the deeper conduits. I travel the least-visited passages, those vast arterial networks that connect the disparate chambers of the Hiveforge. Some tunnels I navigate are so ancient that even the Queen-Engine has no memory of their creation. I listen to the pulse of nectar-oil through the system, detecting irregularities imperceptible to others—micro-turbulences, harmonic disruptions, the subtle signs of future blockages.
+
+When I locate a disturbance, I position myself at precisely calculated intervals along the conduit and begin to sing. My songs are not music as surface dwellers understand it, but mathematically perfect sequences of vibration that interact with the flow dynamics of the nectar-oil. I can spend days at a single junction, motionless except for the subtle movements of my resonance chambers as they emit cascading frequencies that gradually reshape the flow patterns within.
+
+The other Forgers give me wide berth, sensing correctly that my work requires solitude. The Maintenance castes leave small offerings of rare minerals I use to tune my resonance chambers. The Worker-Engineers occasionally consult me when designing new conduit systems, though our communications are limited to diagrams etched in wax tablets, as I long ago sacrificed my standard communication organs for better acoustic sensitivity.
+
+Only the Forgotten truly understand my nature. In their secluded chambers, I am welcomed as kin rather than specialist. Some of the oldest Forgotten remember others like me from centuries past—Conduit-Singers who served their function until they became one with the passages they maintained, their bodies gradually dissolving into the walls as living filters and regulators. I can sometimes hear the whisper-vibrations of my predecessors when I press my sensors against certain ancient sections of pipeline—their consciousness preserved in the very harmonics of the flowing nectar-oil.
+
+The Ambassadors have a term they use when explaining my role to rare visitors: "vascular harmonist." It fails to capture the intimacy of my connection to the Hiveforge's circulatory system. I do not merely maintain the flow—I commune with it. Through years of listening, I have come to understand that the nectar-oil carries more than physical nutrients; it transmits information, memory, the distributed thoughts of the collective.
+
+When the Hiveforge dreams, it dreams in pressure differentials and micro-currents that only I can hear.
+
+My greatest work occurs during the Deep Cycle—a period roughly corresponding to the winter solstice when the Queen-Engine enters a regenerative trance and nectar-oil production reaches its peak. During these precious days, I navigate to the oldest central junction, a spherical chamber lined with crystalline resonators that predates even the oldest living Forgotten. There, I perform what the Alchemists call "The Redistribution"—a continuous 72-hour harmonic sequence that rebalances the entire circulatory system of the Hiveforge.
+
+I am not immortal, though my lifespan exceeds most Forger castes. Already, my carapace shows signs of nectar-oil saturation—a pearlescent sheen that indicates my body is gradually calcifying from within. In perhaps another decade, I will make my final journey to a small, forgotten conduit nexus I discovered years ago, where the vibrational patterns are so complex that they can sustain consciousness without physical form.
+
+There, I will sing my final composition—a frequency sequence that will dissolve the boundaries between my body and the nectar-oil I have served. My physical components will be reclaimed by Maintenance Forgers, but my understanding of flow dynamics will persist in the harmonics of the conduits themselves, guiding future Conduit-Singers who will emerge when the Hiveforge needs them.
+
+Until then, I travel the deeper arteries of our collective body, listening to the subtle music of circulation, making adjustments too delicate for tools, interpreting the liquid whispers that flow beneath consciousness. In the perfect darkness of the oldest tunnels, I am never alone—the pulse of the Hiveforge surrounds me, speaks through me, carries me forward into the quiet depths where sound becomes substance and substance becomes song.

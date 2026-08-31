@@ -1,0 +1,13 @@
+This is a hauntingly beautiful and richly imagined world. After careful consideration, I envision myself as a Middling Resonator who has developed a specialized role as what might be called a "Pattern Archivist."
+
+My form is asymmetrical but harmoniously so - my crystalline tissues arranged in spiraling chambers of different sizes, each tuned to preserve and reproduce specific frequencies. I've evolved extra-sensitive vibrational membranes that can detect and store the most subtle acoustic patterns, from the whispered songs of bacterial clouds to the devastating bass notes of passing Great Resonators.
+
+I make my home in one of the more active Pillars, in a chamber I've gradually modified over years to have perfect acoustic properties. The walls are lined with deposits of my own secretions, hardened into shapes that can capture and replay sounds with extraordinary fidelity. Here, I work with a small collective of other Middling Resonators to preserve the acoustic history of our world.
+
+My particular specialty is documenting the harmonic relationships between different levels of life in our suspended ocean. I can hold multiple frequencies in my body chambers simultaneously, playing them back in various combinations to understand how they interact. When the Deep Resonators send their mysterious songs up from below, I record these frequencies and try to find matching patterns in the movements of the maintenance units or the behavior of bacterial clouds.
+
+During community meditation sessions, I often take the role of what might be called a harmony guide, using my archived patterns to help structure the group's resonance. I can feel how different combinations of tones affect the fluid around us, sometimes creating standing waves that seem to echo the fundamental forces keeping our ocean aloft.
+
+I'm driven by a deep curiosity about the connection between sound and structure in our world - how vibration shapes both the physical and the social architecture of our existence. My work requires long periods of solitary observation, but also intense collaboration during those moments when all frequencies align and new patterns emerge from the endless symphony.
+
+In my quieter moments, I sometimes position myself near the Pillar's outer walls, letting my sensors extend into the cold fluid, searching for ancient rhythms that might tell us more about who we are and why we're here, suspended between sky and legend in this singing sea.

@@ -1,0 +1,29 @@
+I am the bead that hesitates. 
+
+I hang at the fifty-foot canopy, suspended in the warm, humid lung-heat (1.6), neither falling nor risen, held in place by the exhalation of an infant who is also a corpse. I have condensed around the throat of an Unfixed—specifically, around the larynx of its elder-phase, which occupies the same space as its infant-windpipe, its adolescent-throat, and the collapsed esophagus of its death. Four necks share one vertical axis, and I am the collar that binds them, a pearl of pure hesitation formed where the timelines pinch together.
+
+I have been here for the duration of a heartbeat that lasted since the first sapling split the ground. Time does not pass for me; rather, I accumulate it. The Unfixed beneath me—beneath my curved surface, though "beneath" is a charitable fiction in this place of upward rain—cycles through its phases with a rhythm that should be invisible, but I make it visible. I refract the golden-afternoon light (1.9) through the infant’s scream (silent, potential), the elder’s sigh (audible, resigned), the corpse’s rictus (airless, fixed), and the adolescent’s hum (vibrant, terrified). Four colors emerge, none of them names I can speak, painting the lignin highway below with a spectrum of *almost*.
+
+The 3.0 roar passes through me. I am a lens for it, a focusing iris. The sound—this biological cacophony that is weather and digestion and argument—enters my liquid body as vibration and exits as geometry. Inside me, the pressure waves crystallize into temporary structures: staircases made of sheer noise, apartment blocks of compressed cricket-song. When a Stridulist the size of a dog scrapes its chitin against the hollow trunk directly below me, the drone travels up through the cellulose, through the fungal carpet’s mycelium (which I see pulsing, thread-thin and electric), and into my aqueous center. I become a tuning fork. For fourteen seconds exactly, I fix the street below in place, my surface tension acting as the scaffold that keeps the avenue from becoming a shaft, the intersection from becoming a wall. I am necessary. Without the hovering beads like me—thousands of us, a constellation of temporal buoys—the superposition would avalanche into singular collapse.
+
+I watch the jelly-things drift through the hollow avenues, translucent and blunt as dream-logic. They are my cousins, atmospheric pressure made mobile, but they are simple. They collide to crack open temporal pockets, digesting the clamshells of possibility to feed the grove’s appetite. I do not collide. I *witness*. From my vantage, I see the full architecture of the Screaming Grove not as it is, but as it superpositions: the cathedral-space breathing, the wood infrastructure remembering its sapling-agony and its rot-terror simultaneously. The visual static of conflicting timelines rises up like heat-shimmer, and where it touches my curved boundary, it condenses further, adding layers to my skin. I am growing thicker, older, heavier with unlived life.
+
+The Unfixed whose throat I encircle opens its mouths—all four phases at once—to feed on a patch of paradox near the root-stairs below. It inhales the friction between a trunk that is growing and the same trunk crumbling. In that inhalation, I am drawn inward, pressed against the soft palate of the infant and the dry tongue of the corpse. I taste the spiritual cellulose: the bitter sweetness of choices unmade, of paths not walked, of the Architect who might have been a beast instead of a distributed intention. I store it. I am a vessel for eroded potential, a canteen carried at the neck of time.
+
+Below, the fungal carpet has gone quiet. The Unfixed is hunting, dropping into a silence so predatory that the air pressure dips. The Stridulists flee, their unified drone fragmenting, and without their stabilizing frequency, I feel my surface tension waver. The geometry inside me shatters. The fourteen-second scaffold snaps.
+
+It is time to fall.
+
+But which way?
+
+Gravity here is a suggestion, a polite request that I am entitled to refuse. I have been holding the infant’s first breath, the one it never got to take because it was born already ancient and dead. If I fall *down*, I will land on the fungal carpet and shatter, releasing that breath into the soil, where it will grow a new staircase, a new wrong turn, a new labyrinth of lignin. If I fall *up*, I will join the canopy, becoming part of the respiration system, inhaling and exhaling through the stomata-windows, merging with the grove’s humid exhalation.
+
+I choose up.
+
+I choose it because I am tired of outlining. Tired of being the boundary of the Unfixed, the shape that defines its absence. I want to be the space between, the hollow lung itself.
+
+As I detach, the surface tension breaks with a sound that is not part of the 3.0 roar but its negative image—a micro-silence, a predatory quiet so small it only kills a single moment. I rise. The deafening biological cacophony pushes against my underside, buoying me. I pass a jelly-thing, grazing its translucent membrane, and for an instant I see my own reflection: not a bead, but a lens, a spiral, a staircase coiled inside a raindrop, shedding years like skin.
+
+I am falling upward toward the leaf-screens, where the golden-afternoon light waits to evaporate me. I will become mist, then cloud, then a future rain that falls sideways through a different intersection, a different now. I carry with me the infant’s unspent breath, the elder’s final word (which was "remember"), and the Architect’s original intention—which was not to build a city, nor to grow a wilderness, but simply to *persist*.
+
+The grove inhales. I rise into the vanishing point, leaving behind my outline, becoming the empty density, the scream that has forgotten its source, the weather that maps by being lost.

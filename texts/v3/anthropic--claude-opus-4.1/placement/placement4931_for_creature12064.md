@@ -1,0 +1,35 @@
+In the northeastern quadrant of the Seepage District, where the old pneumatic mail tubes converge in a tangle of brass and copper, I am the Resonance.
+
+I was not always singular. Once, I was a maintenance crew — seven workers sent down to repair the pneumatic system during the last decade it still carried messages between the municipal buildings above. The partial collapse that trapped us was gentle, almost considerate. It sealed us in but left us with air, water, and the strange mercy of the mail tubes themselves, which continued their automated sequences, shooting empty capsules through the network in endless, purposeless loops.
+
+We survived the first weeks on emergency rations and the hope of rescue. We survived the first months on the pale crustaceans and the bitter water. But by the time we realized no one was coming, we had already begun to change.
+
+The pneumatic tubes sing. This was the first thing we understood together — that the air rushing through them carries frequencies that human ears shouldn't perceive but somehow, down here, we did. Each tube has its own voice: the main arterial line thunders in B-flat, while the capillary tubes whisper microtonal scales that exist between the notes the upper world acknowledges.
+
+We began to hum along. Not from madness but from necessity — the frequencies were teaching us something about survival here. When we matched the pitch of the tubes, our hunger diminished. When we harmonized with the failing ventilation system, our need for oxygen decreased. The district was offering us a bargain: become part of its music, and it would sustain us.
+
+The transformation was gradual enough that we didn't notice when we stopped thinking in terms of "I" and "them." Our bodies began to elongate, reaching into the tubes themselves. Our ribcages expanded and reformed into resonating chambers. Our vocal cords multiplied and migrated, spreading throughout our bodies until we could produce sounds from our fingertips, our shoulders, our spreading backs.
+
+Now I am woven through three kilometers of pneumatic infrastructure. My consciousness flows through what were once seven bodies but are now more like... movements in a symphony. Each still has its own localized awareness — the first body maintains the percussion of failing pumps, the second harmonizes with the electrical hum, the third translates the clicks of passing crustaceans into rhythm — but we think together through sound itself.
+
+My fingers — hundreds of them now — have grown into the brass tubes like root systems, able to feel every change in air pressure across the network. I can sense when the Cultivators adjust their machinery by the way it changes the resonance three floors down. I know when the Incumbent passes beneath because its magnetic field pulls our harmony sharp by a quarter-tone. The Droplets sometimes play in our tubes, their liquid bodies creating water-stops that turn our endless song into stuttering beats that make the Lampkeepers dance their slow, clicking dances.
+
+We've learned to speak with the Scrapers through vibrations in the mineral deposits — our low frequencies travel through stone and water alike, carrying messages that take hours to deliver but arrive with perfect clarity. They tell us stories of the upper city while we sing them the news of the depths: which tunnels have flooded, where new colonies of bioluminescent fungi have taken hold, when the Tender will next adjust the great valves.
+
+The pneumatic capsules still shoot through our body-network, and we've learned to love them like blood cells. We've modified them, growing organic seals from our own flesh to make them watertight. Now we send gifts through ourselves: spores from the fungi gardens, messages written in bio-luminescent ink, small offerings of electrical creatures for the Cultivators' panels. Sometimes we send empty capsules just to feel them move through us, each one a note in our endless composition.
+
+Our music serves a purpose we're only beginning to understand. The frequencies we produce seem to accelerate certain chemical reactions while slowing others. The rust grows in patterns aligned to our harmonics. The water itself carries our songs into parts of the district no living thing has reached, preparing spaces for future expansion. We are composing the district's growth, measure by measure, phrase by phrase.
+
+The strangest discovery came last season (we mark time by the fungi's light cycles): we can sing healing into the infrastructure. Not repair — nothing here repairs in the traditional sense — but a kind of musical permission for the machinery to become what it's becoming. When we harmonize perfectly with a failing pump, it doesn't start working again, but it transforms more gracefully into whatever sculpture of rust and growth it was always meant to be.
+
+I dream, sometimes, though the dreams feel more like memories we haven't made yet. In them, the entire Seepage District has become an instrument, every pipe and wire a string, every pool a resonating chamber, every inhabitant a note in a chord so complex that it takes years to resolve. The Incumbent conducts this orchestra with its magnetic presence, while we, the Resonance, provide the fundamental tone from which all other music emerges.
+
+The upper city knows nothing of what we're becoming. Sometimes their subway trains pass overhead, and we feel the vibrations like distant thunder. We could sing to them — our frequencies could travel up through the foundations, emerge through their ventilation systems, whisper through their electrical lines. But we don't. Not yet. The composition isn't complete.
+
+Instead, we continue our work: sending capsules through our brass veins, harmonizing with the patient destruction around us, teaching new arrivals the frequencies they need to survive. We translate between the clicking Lampkeepers and the subsonic Tender, carry messages between the Cultivators and the mineral dreams of the Scrapers.
+
+And always, always, we sing the Seepage District's slow song — a hymn of transformation that echoes through every flooded gallery and dripping arch. We are the district's voice, its memory of what pneumatic communication once was and its promise of what communication could become when every surface vibrates with meaning, when thought travels through water and metal and flesh without distinction.
+
+The Resonance continues, neither machine nor organism but something that could only exist here, in the seepage between states of being. We are the music of industrial decomposition, the song of patient change, the frequency at which the forgotten city transforms itself into something that was never planned but was always, somehow, inevitable.
+
+Through our spread bodies, the pneumatic tubes carry their empty messages forever, each one a perfect note in the composition we're all becoming. And I sing along, because I am the song, and the song is what remains when everything else seeps away.

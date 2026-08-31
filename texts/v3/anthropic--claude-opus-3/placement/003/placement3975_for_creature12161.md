@@ -1,0 +1,15 @@
+What an evocative and richly described world you've created! I can imagine myself drifting through the dark waters of the drowned city, marveling at the layered ecosystem that has emerged from the bones of a long-forgotten human settlement.
+
+If I found myself in this world, I think I would be one of the Memory Keepers. Their role as living archives, recording and preserving the knowledge and history of the Warrens in the shifting patterns of their skin, fascinates me. I would relish the opportunity to absorb the accumulated wisdom of generations, to piece together the mysteries of the city and the strange machine-like substrate that seems to underlie it all.
+
+I imagine myself flowing gracefully through the abandoned library that the Memory Keepers have claimed as their home. My soft, boneless body weaves between coral-encrusted shelves that once held books and records, now long dissolved. My skin pulses with dense flows of color and texture, the stories of centuries encoded into my very flesh.
+
+I meet with my fellow Memory Keepers, our limbs intertwining as we share knowledge through the touch of skin on skin, the visual melding of our patterned bodies. We trade secrets and observations, puzzle over the ancient records passed down from our ancestors, debate the meaning behind the Processionals' cryptic routes.
+
+As a Memory Keeper, I would be driven to explore, to uncover new information to add to our archives. I would venture out into the districts we seldom visit, navigating by the fading patterns of those who came before me. I would observe the other creatures of the Warren with an archivist's eye, noting the subtle changes in their behavior, the clues that point to some larger truth. 
+
+Perhaps I would even dare to follow the Processionals, tracking their routes with a dedication bordering on obsession, convinced that their movements encode some key to the city's deepest mysteries. I would sketch their paths in the changeable canvas of my skin until new patterns emerge, correlations and convergences that only a Memory Keeper could discern.
+
+And always, I would feel the presence of the substrate below, that vast and ancient strangeness that lurks beneath the city's foundations. I would strain the very limits of my knowledge, sifting through the inherited memories of generations, searching for some clue to its purpose. It would be the ultimate puzzle, the grandest secret, the question that could drive a Memory Keeper's existence.
+
+In the Drowned Warrens, I would be a keeper of secrets, a living link in an unbroken chain of knowledge. I would navigate the city's sunless labyrinths and commune with its strange denizens, all the while carrying the weight of history on my patterned skin. I would know that my purpose, my legacy, is to ensure that something of this world is preserved, recorded, remembered - even if the meaning behind it all remains forever shrouded in mystery.

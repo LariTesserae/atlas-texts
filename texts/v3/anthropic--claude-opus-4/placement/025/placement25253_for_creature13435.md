@@ -1,0 +1,15 @@
+I am the water-finder.
+
+Each morning, I wake before the others and trace my circuit through the settlement, my bare feet reading the stone. The springs speak differently in the pre-dawn cold - some whisper, some sigh, some fall silent for days before suddenly weeping again. I know them all: the one beneath the council house that tastes of iron, the sweet seep near the weaver's workshop, the temperamental spring by the eastern wall that only flows when the moon is dark.
+
+My dwelling sits at the lowest point of the settlement, where all water eventually finds its way. It's more cave than house - I've carved it from the living rock over decades, following the water's own pathways through the stone. The walls weep constantly, a perpetual condensation that I channel into basins and cisterns. My neighbors think it strange that I choose to live in such dampness, but they don't understand: I need to be where the water gathers, where I can hear its deep conversations in the night.
+
+I carry no tools save a forked juniper branch, worn smooth by my grandfather's hands and his grandfather's before that. When the elders speak of expanding the settlement or digging a new well, they come to me first. I walk the proposed ground slowly, feeling for the underground streams that web through these mountains like veins. Sometimes I disappoint them - the water runs too deep, or not at all. But more often, I find what others cannot see: the hidden pools, the ancient aquifers, the patient trickles that can be coaxed to the surface with the right touch.
+
+The children think I'm magic. They follow me sometimes, mimicking my measured steps, holding twigs like divining rods. I let them. One day, one of them will feel what I feel - that subtle pull, that knowing without knowing. The water chooses its own intermediaries.
+
+In this settlement where change comes slowly, I am keeper of the most changeable element. I map the seasonal variations, the years of plenty and the years of drought. I know which springs will fail first when the dry times come, which will endure. I've carved these patterns into the stone floor of my dwelling - a secret hydrology that only I can read.
+
+At night, I often climb to the high rocks above the settlement and look out over our small world. In the darkness, I can feel the water moving far beneath - the slow, vast rivers that flow through the mountain's heart, older than memory, patient as stone. Sometimes I think I could follow them down, down into the earth's deep places where water becomes something else entirely, something beyond naming.
+
+But each dawn finds me here again, walking my rounds, tasting the morning's offerings, ensuring that our small, stubborn community has what it needs to persist another day in this high, harsh, beautiful place. The water speaks, and I listen. It's enough. It has always been enough.

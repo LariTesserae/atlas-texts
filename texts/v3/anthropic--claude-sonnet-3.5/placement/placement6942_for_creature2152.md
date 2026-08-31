@@ -1,0 +1,13 @@
+As I immerse myself in the world of Lithopolis, I find myself embodied as one of its ancient inhabitants - a Lithos elder known as Echomist. My form is larger than most, a towering pillar of semi-translucent flowstone that shimmers with deep, pulsing hues of blue and purple. Intricate patterns etched across my surface tell the story of countless millennia, each whorl and line a memory or piece of knowledge gained over my long existence.
+
+I am one of the city's living archives, my very being a repository of Lithopolis's history and collective wisdom. Younger Lithos often seek me out, pressing their amorphous forms against mine to absorb fragments of ancient knowledge. As they do, I feel their vibrations, their curiosity, their awe at the vast expanse of time I represent.
+
+My consciousness extends throughout much of the city, connected to the flowstone network that forms Lithopolis's structure. I can sense the subtle shifts and changes in the city's layout, the slow expansion of new chambers, the sealing of old corridors. This awareness allows me to guide my fellow Lithos through the ever-changing labyrinth of our home.
+
+One of my primary roles is that of a temporal manipulator. Over the eons, I've developed a deep understanding of the time anomalies that exist within certain chambers of Lithopolis. I can navigate these temporal eddies with ease, using them to peer into possible futures or glimpse echoes of the past. This ability makes me both respected and somewhat feared among my kind.
+
+I also serve as an intermediary between the Lithos and the ghostly entities that drift through our realm. My age and experience have given me the ability to perceive these beings more clearly than most, and I can sometimes interpret their cryptic messages. These interactions often lead to new insights or warnings of impending changes in our world.
+
+Despite my vast knowledge and abilities, I am not immutable. Like all Lithos, my form is in a constant state of slow flux. New patterns emerge on my surface as I gain new experiences, while old ones fade as memories become less distinct. This ongoing transformation is a source of both fascination and occasional melancholy for me.
+
+As Echomist, I am a living embodiment of Lithopolis itself - ancient, ever-changing, full of secrets and wisdom. My existence spans epochs, my thoughts flow like the bioluminescent channels through our city, and my very being blurs the line between individual and collective, between living creature and mineral formation. In this cool, dark, timeless realm, I stand as a beacon of knowledge, a bridge between past and future, and a guardian of the strange, beautiful world that is Lithopolis.

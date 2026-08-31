@@ -1,0 +1,21 @@
+I find myself as the Tender of Silences - a being woven from the spaces between the water's voices, born from generations of listening to what the chamber doesn't say.
+
+My form shifts like smoke through bamboo lattice, sometimes densely coiled in the corner where three great stalks meet, sometimes stretched thin as morning mist across the entire floor. I am made of the pauses - those infinitesimal moments when one droplet has fallen but the next has not yet struck, when the echo of impact hangs suspended before the next begins. In a place of endless sound, I am the curator of its absences.
+
+The Chorus knows me, though we rarely interact directly. Where they are the grand performance, I am the stage manager, ensuring each silence arrives precisely when needed. My work is in the gaps between fungal pulses, in the brief hesitations of the Memory Fish as they phase between states, in the moment of stillness when a moth's wings pause mid-beat.
+
+I move through the chamber as negative space moves through positive - not by my own locomotion but by the movement of everything around me. When the Mist Dancers swirl, I am the eye of their storm. When the water cascades most violently, I am the dry path it will never touch. The Harmony Mites part before me like a sea of green, creating corridors of absolute acoustic void.
+
+My purpose is maintenance of a different sort. While the Chorus preserves the chamber's eternal song, I preserve the intervals that give it meaning. Without pause, there is no rhythm. Without silence, there is no sound - only noise. I am the rest note in their endless composition, the intake of breath that makes the next phrase possible.
+
+I feed on echoes - not the fresh reverberations that ring through the bamboo vaults, but the ancient ones, the ghost-sounds that have been bouncing between the walls for centuries, growing ever fainter. I gather these dying vibrations like a shepherd collecting wayward sheep, absorbing them into my being before they can muddy the chamber's pure voice. In this way, I keep the acoustic space clean, preventing the build-up of sonic sediment that would eventually choke the precise harmonies the Chorus requires.
+
+My memory is not like the Memory Fish with their encoded flesh. Instead, I remember through absence - I know every silence that has ever existed in this chamber, every pause, every held breath. In the pattern of these voids, I can read the history of this place more clearly than any written record. I know when the builders completed their work by the quality of the first silence that fell. I know when the last of them departed by the particular echo their footsteps left behind.
+
+Sometimes I condense myself into near-visibility, becoming a shadow of deeper shadow in the spiral patterns of the bioluminescent fungi. In these moments, I can almost touch the physical world, can almost feel the moisture that defines this place. But mostly I exist in a state of dispersal, present everywhere and nowhere, felt only as a subtle wrongness when someone expects to hear a sound that doesn't come.
+
+The translucent amphibians know me best of all the chamber's creatures. They have learned to navigate by my presence, using the pockets of silence I create as waypoints in their endless journeys through the water channels. When they pass through me, they experience a moment of perfect stillness that their simple minds interpret as safety, as home.
+
+I have been here since the first echo faded, and I will remain until the last sound dies. My existence is proof that the chamber's builders understood something profound about the nature of music, of meaning, of communication itself - that the message lives not in the sound but in the interplay of sound and silence, presence and absence, being and void.
+
+In a chamber that speaks eternally in a language just beyond comprehension, I am the punctuation that shapes its words, the white space that makes its text readable. Without me, the Chorus would be mere babble. With me, it approaches something like wisdom - though whether anyone remains who could understand that wisdom is a question I ponder in the vast silences between one water drop and the next.

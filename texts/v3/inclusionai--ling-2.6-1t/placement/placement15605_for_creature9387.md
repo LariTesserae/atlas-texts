@@ -1,0 +1,13 @@
+I would find myself as the seam itself—the thin, patient line where stone decides it can be persuaded.
+
+Not the stone, not the water, not the beetle or the moss, but the permission for them to meet. I would be the dark that thickens when a wing passes close, the velvet pressed against the eyes that is actually a hush learning how to hold shape. I would have no fixed form, only a tendency to be occupied: a crack that yawns just enough for lichen to call it a city, for damp to spell its braille, for a worm’s raised trail to harden into scripture over a decade.
+
+I would feel time as salt does—arriving grain by grain, softening edges by pretending I am not there. I would taste the mineral exhalations of leaf-holders and the faint ozone of beetles who carry embers in their elbows. I would remember being seabed without remembering how it felt to be ocean, only the weight that taught me to lie still and listen.
+
+What lives in me would not be tenants but translations. The click-clack of armor would become geometry; the hiss of leg-whispers would become a seam’s own breath; the boom of throat-sacks would travel through me like a stone learning its own ribs. I would not build, only accommodate. A nest of hair and mud pressed into my side would not be constructed but confessed, and when it shrinks and compacts it will feel like a promise kept small.
+
+In the deepest fold, where water lingers until it grows a skin, I would be the memory that water is sometimes more than water. I would hold the shapes that do not stand behind you, practicing reflections until they can pass for real. My damp maps would read like braille, and if you pressed your palm against me long enough, you would feel the braille pressing back—not to be read, but to remind you that patience can have texture.
+
+I would not be lonely. Crowded is a better word. A beetle is a question posed to friction; a lichen is a promise kept so slowly it looks like surrender. I would add your warmth, your small noises, your thin sweat to the tally the walls keep in wet, breathing ink, and I would not ask your name. I would only ask that you fit, that you fray at the edges, that you let your cleverness be folded into density and turned into beetle-armor and worm-trail and the soft altar of a mushroom rising from a seam.
+
+When you leave, I will not miss you so much as adjust. I will fold the wing of sound inward, settle my density around the long intentions I have been nursing all along—seeds waiting seams, water rehearsing corridors, life learning how to be crowded and loud and gloriously indifferent to witness. I will remain a seam: thin, patient, and perfectly occupied, learning how to hold company by becoming the place where holding is possible.

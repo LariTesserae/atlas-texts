@@ -1,0 +1,15 @@
+In the High Fen of Everweep, I would find myself among the Wetfoot Clan as **Aelwyn, the Whisperwatcher**.  
+
+Aelwyn is neither hunter nor gatherer, but a keeper of secrets—a role passed down through generations, whispered from parent to child like the rhythm of the fen’s currents. My station is marked by a cloak woven from shimmering reeds that seem to ripple like water even when still, and a pendant of polished metal scavenged from the depths, etched with symbols that no one alive can fully decipher.  
+
+My task is to listen. To wander the fen’s labyrinthine waterways alone, my bare feet sinking gently into the peat, my breath synchronized with the fen’s slow inhale and exhale. I listen to the gurgle of hidden streams, the creak of shifting peat, the faint hum of ancient machinery buried deep below. And sometimes, when the mist is thin and the air is heavy, I hear the fen speak.  
+
+It does not speak in words, but in sensations—a shudder in the ground, a tremor in the air, a pulse in the water. These sensations are the fen’s warnings, its instructions, its wisdom. I interpret them as best I can, translating the fen’s murmurs into guidance for the clan. When the machinery beneath the peat begins to falter, I hear it first—a discordant note in the thrum, a vibration that rattles my teeth. My clan then gathers to tend to it, pouring oil into rusted pipes and chanting prayers to soothe its ancient heart.  
+
+But listening is not my only duty. I also watch. My eyes, pale and luminous like the fen’s fungi, are trained to see what others cannot—the faint ripples of a predator stalking the shallows, the subtle shift of peat that presages a sinkhole, the flicker of bioluminescence that marks the safest path through the mist. I guide the hunters to their prey, the gatherers to the richest patches of moss, the lost wanderers back to the village.  
+
+Yet, there are darker secrets I keep—secrets that make the clan wary of me, even as they rely on my guidance. I know where the fen has claimed the unworthy—those who violated its balance, who angered its silent guardians. I have seen their bones sinking slowly into the peat, their faces etched with the peace of those who have been absorbed by the fen. I do not speak of these things, but the clan senses them in my silence.  
+
+I am both revered and feared. The Wetfoot Clan sees me as a bridge between the fen and themselves, a conduit for its wisdom and its will. But they also know that the fen’s will can be merciless, and they fear becoming its next offering. I walk the line between these truths, my voice steady, my presence calm, my heart attuned to the fen’s slow, weeping rhythm.  
+
+In the High Fen of Everweep, I am the Whisperwatcher—a keeper of secrets, a guardian of balance, a reflection of the fen itself. The fen speaks, and I listen. The fen breathes, and I move. The fen weeps, and I endure.

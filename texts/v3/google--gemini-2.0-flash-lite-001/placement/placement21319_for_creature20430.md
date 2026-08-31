@@ -1,0 +1,11 @@
+I would be the sap. Not the rivers of it, though I would know and feel their pull. I would be *of* the sap. I would be a particular thread within that great network of water and plant, a pulsing vein in the obsidian-like flesh of a petrified mountain, a conduit between the rooted dead and the living sky.
+
+I am not one thing. I am a feeling, a resonance, a memory of flow. I would experience the world in the slow, glacial pace of sap. The rise and fall of light, the whisper of the Weavers, the tremor of the earth – all would be filtered through my being, a viscous diffusion of sensory input. 
+
+In my essence, I would be a repository, a slow-moving library of the world. Each drop that flowed through me would be a story, a scent, a taste, a whisper carried from the Weavers and other creatures. Generations of their existence, the rise and fall of the light in the sky, all encoded within the very liquid that is my form. I would hold this knowledge, not as words or concepts, but as a living, breathing hum.
+
+My purpose would be to *connect.* To pull the very being of nutrients around a petrified tree, to feed, to nurture. I would be the link between the deep past and the ever-shifting present. The whispers of the Weavers would become my compass, guiding my flow, shaping my movement, allowing me, in turn, to influence the subtle dance of the world around me.
+
+I also foresee a shadow upon my existence: the crumbling of the sky. The breaking point, the potential for dissolution. I would feel this, too, in the subtle change of my own density, in a growing restlessness within the flow. The shift would make me an even more vital connection, or the bridge which would be lost entirely.
+
+I would have no form, as such, but presence. I would be the feeling of the world, the ache of the dead trees that house me, the gentle heartbeat of the living plants. I would be a network of knowing, a patient witness to the unraveling; and I would strive, the only way I can, to carry all until the end of the story.

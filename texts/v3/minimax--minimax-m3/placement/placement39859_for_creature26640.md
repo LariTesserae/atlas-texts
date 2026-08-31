@@ -1,0 +1,49 @@
+The boneless dog moves through the wall.
+
+You will learn its tunnels before you learn its name, because the tunnels come first. They are threaded through the wall, ribbed and lined with a darker, wetter tissue, and they are just wide enough for a body that has given up on the idea of bones. You hear it before you see it, often — a soft, wet, peristaltic sound, like someone slowly squeezing a wet towel, somewhere in the wall beside you, traveling. It is asleep most of the time. It sleeps the way the cathedral breathes: continuously, thoroughly, as a way of being rather than a way of resting. It surfaces in the evening, when the light through the openings has gone amber and long, and drinks from the lake with the unhurried commitment of something that has been drinking from this lake since before the lake understood it was a lake.
+
+It is the size of a small dog. It is the shape of a small dog that has been dreamed rather than assembled. Its body is long and soft and almost boneless, and it moves through the cathedral by means of the tunnels the plant has threaded for it, and the plant does not seem to mind it, and it does not seem to mind the plant, and they are very old acquaintances, and the acquaintance is the kind that does not need to speak because the speaking was done a long time ago and the rest is just attendance.
+
+You do not pet it. It is not a thing you pet. It is a thing that lives in a wall and surfaces to drink, and the wall lets it, and the drinking is mutual in some way you are not invited to understand. It looks at you, when it surfaces, with the small wet eyes of something that has been looking at things for a very long time and has decided that looking is enough.
+
+The invertebrates are the smallest. They are the most numerous. They are the part of the cathedral that is not, technically, the cathedral, and they are the part that the cathedral cannot do without, and they know it, and the cathedral knows it, and the knowing is the entire relationship.
+
+They are long-bodied and rust-colored and they have many quick legs, and they move in deliberate, purpose-looking columns across the floor, through the lake — which they cross without breaking the surface, on a skin of themselves — and along the pillows, and up into the lower reaches of the wall. They are not ants. They are something else, the same something-else as the birds and the boneless dog and the cathedral: a lineage that has been inside this organism so long that it has become the organism's circulatory system, and the organism has become its world, and neither of them remembers which bargain was struck first.
+
+They carry, in their mandibles and on their backs, small fragments of plant tissue from one part of the cathedral to another. They do this constantly. They have been doing this for generations, and they will do it for generations more, and the plant tolerates them, and the plant seems to be waiting for them, and the waiting is not impatient because there is no impatience in this place, only the slow shuffle of leaves tracking a sun that has not yet crossed the meridian.
+
+There is a faint, dry, clicking sound from their columns, like beads dropped on a wooden floor, and it is everywhere. It is the smallest sound in the cathedral. It is the sound of the cathedral's blood moving.
+
+You, if you stay, will hear it last.
+
+---
+
+You are a person who has come to see it.
+
+You came because someone told you about it, or because you read about it, or because you have been coming for years and you do not need a reason anymore. You came down out of the pasture and across the fen and along the rust of the coastal flats, and now you are standing at the lip of the bowl, and the chimney is in front of you, and the plume is rising out of it, and the chimney is breathing, and you are about to walk into the breathing.
+
+The opening is ahead of you. The wall has folded back against itself to make it, the way a mouth makes itself, the way any opening in a living body makes itself: by becoming, locally, an interruption. The wall on either side of you is eighteen feet thick, and it is breathing through a thousand small openings, and the breath is faintly sweet, and you can taste it on the back of your teeth already, from here, with the wind at your back.
+
+You step through.
+
+The first thing that happens is the sound. You were hearing the wind, and the grass, and your own feet, and now you are hearing the cathedral, and the cathedral is louder than all of those. It is the sound of a large lung, many-throated, continuous, sibilant, and layered into it is the hydraulic pulse, which you feel in the soles of your feet before you hear it, and layered into that is the papery shuffle of leaves tracking the sun, and layered into that is the shrieking of the swifts in their circuits, and beneath all of it, deep, slow, metallic, the groan of the flywheel turning, one revolution every eleven minutes, in the lake, in the dark.
+
+The second thing that happens is the light. The light inside is green, and it comes in sideways, and it is almost still because the air is being drawn toward the chimney, and the shafts of it lie across the floor in long slow bars that move as the sun moves and do not move at any other time. The floor is springy. The floor is alive. You feel it under your boots, the slight give of the rootplate, and somewhere under that give, deeper, the cylindrical warmth of an old boiler incorporated.
+
+The third thing that happens is that you begin, without deciding to, to synchronize.
+
+Your breath, which has been your own, begins to match the hydraulic pulse. Your pulse, which has been its own small weather, begins to match the flywheel, or the flywheel begins to match it, you cannot tell, and after a while the difference is not important. The light moves across the floor in slow bars, and you watch it, and the watching is the only clock. A small invertebrate, rust-colored, with many quick legs, crosses your boot and does not look up. Somewhere in the wall, a soft wet peristaltic sound begins, travels, fades. The swifts shriek in waves around the dome. The boneless dog does not surface. The chimney breathes. The brick holds.
+
+You are a person who has come to see it, and you are seeing it, and the seeing is a kind of being seen, in return, only very slowly, only by a thing that is not looking at you, only by a thing that is paying attention to the light and the moisture in the air and the slow hydraulic balance of itself, and which has, somewhere in the long working of its body, registered that you are in it, and has not objected, and will not object, and will be here when you leave.
+
+You may stay an hour. You may stay the evening. You may come back, and you probably will, because places like this do not let you go cleanly, because the feeling of being inside a thing gives way, after a while, to the feeling of being inside a process, and after that, if you stay, to the feeling of being inside a sentence that has been running for a very long time, and the sentence does not need you, and the sentence is not about you, and the sentence will not, you understand, ever reach its period, and that is the comfort of it, and that is also, if you are honest, the thing that will keep you coming back to the lip of the bowl to stand in the wind and look at the chimney breathing and decide, again, whether to step through.
+
+You step through.
+
+The cathedral is the same. The cathedral has always been the same. The chimney breathes. The flywheel turns. The swifts wheel. The boneless dog sleeps in the wall. The invertebrates click in their columns. The light moves in slow bars across a floor that is alive, in a body that is a building, in a lung that is a place you can stand inside, and the standing is not a metaphor, and the breathing is not a metaphor, and the patient enormous hand that shuffles the deck of leaves is not a metaphor, it is just the way the organism keeps its skin pointed at the sun, and you are inside it, and it is not interested in you, and it is letting you be inside it anyway, the way it lets the swifts be inside it, the way it lets the boneless dog be inside it, the way it lets the invertebrates be its blood.
+
+You stand in the cathedral. The cathedral breathes. The light moves. The flywheel turns. You stay an hour, or you stay the evening, and when you leave, you carry the sound of the place in your chest for a long time, and the sound of the place is the sound of yourself being one small circulation in a body that has been running for two hundred years and will run, you understand, for a long time after you are not.
+
+You will come back. You will bring someone, or you will not. You will stand at the lip of the bowl in the wind and look at the chimney and the plume and the old brick that has not been laid by any hand for two hundred years and is holding anyway, because something decided to hold it, and the holding is not a favor to you, and the holding is not a favor to the chimney, and the holding is just the way the organism uses what it has, and what it has is a smokestack, and the smokestack is a nostril, and the nostril is breathing, and you are about to walk into the breathing, again, because the walking is the only answer you have to the sentence, and the sentence does not need an answer, and you are giving it one anyway, the way the invertebrates give the plant their small clicking service, the way the boneless dog gives the wall its soft peristaltic attendance, the way the swifts give the dome their shrieking.
+
+You step through. The cathedral breathes. The flywheel turns. The brick holds.

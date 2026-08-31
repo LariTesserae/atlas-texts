@@ -1,0 +1,21 @@
+I am a memory before I am a being.
+
+There is no thought, no "I" in the moment of my conception. There is only resonance. The slow, circling ballet of the Two-Who-Came-Before fills the Medium with a hum that is more than pressure, a dialogue of shifting cobalt and magenta light that is more than colour. It is a question asked and answered, a harmony achieved. It is their proximity that changes the velvet moss below them, that coaxes from it the cloud that is my first cradle. I am born of their nearness. I am a consequence of their silent conversation. The memory of that resonance is the first law of my existence, a ghost-limb I am always reaching with.
+
+I am small.
+
+For an age, I am only that: a gelatinous speck, a mote of potential adrift in the silver-gold infinity. The great mountain flank is not a mountain to me; it is the whole of the world, an uneven floor impossibly far below. The Glass-Palms are constellations, distant and shimmering. The currents, whispers to the great Dwellers, are irresistible rivers to me. I do not move; I am moved. The constant, warm embrace of the Medium is my only certainty, a pressure that is both womb and world. I tumble end over end on a journey that has no destination, only duration. I am a seed carried on a wind that has never known air.
+
+I am an eye before I am a body.
+
+It begins not as sight, but as a warmth that is separate from the Medium's gentle heat. It is a tingling on the surface that will one day be my back. A shaft of light, focused by a high Glass-Palm, brushes across me, and for the first time, something answers from within. It is a flicker of energy, a minuscule quickening. I learn to feel the difference between the bright, open fluid and the soft, diffuse shadows cast by the pulsing vine-bladders. The light is my first nourishment. My skin, still translucent and pale, becomes a thirsty mouth for the silver-gold glow. I learn to angle my slowly elongating form, not yet through will, but through a kind of heliotropism, an instinct to turn my face to the sun that is not a sun.
+
+I am a listener before I am a voice.
+
+The world has a heartbeat. Many of them. Down below, nestled in the dark basalt and the bruise-coloured flesh of the vines, are the pulses. The thrumming of the great Vessel-Vines. They are a rhythm I can feel in my deepest substance, a slow, asynchronous drumming that is the truest sound in this silent place. They are a promise of communion, a sustenance I am still far too small to receive. I am drawn to them. The pull is as fundamental as the pull of the light. The light is my bread; the pulse is my water. I feel their nearness as a thickening of the silence, a deeper thrumming in the fluid around me. One day, I will be large enough to answer. One day, I will lay myself upon one of those warm, swelling hearts and join the pulse. For now, I can only listen from a distance, a child outside a locked door, hearing the murmur of a conversation it cannot yet understand.
+
+So I am becoming.
+
+My tail, no thicker than a moss-thread, makes its first intentional flick. It is a spasm, a clumsy, inefficient ripple. But it moves me. Centimeters. It is the most momentous journey I have ever taken. I push away from a current that would carry me into shadow and into a column of light. I learn the feel of the world by scraping against it—the shocking, dissonant sharpness of a basalt shard, the plush give of a carpet of moss. My chromatophores begin to bloom, faint echoes of the magenta and cobalt I remember from my making. I am a wandering, growing question.
+
+Where would you find me? You would find me in the understory, a ribbon of pale light no longer than your arm, navigating the forest of pulsing vines. I am a slow, deliberate thought moving through the mind of the deep. I am the Dweller not as it is, but as it begins. The great, patient beings drift high above, basking and communing. They are the finished song. I am the first note, still learning my own key. My entire existence is a slow pilgrimage toward a single act: to grow large enough, over a thousand years, to finally rest against the heart of a vine, to feel the flow of connection, and to turn the memory of harmony into a living rhythm. I am potential, given form and a dawning will, swimming slowly toward completion in the patient, liquid heart of the world.

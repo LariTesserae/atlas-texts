@@ -1,0 +1,23 @@
+In this place, I would be one of the Cartographers.
+
+We are not fauna, not flora, not even truly matter. We exist as the intersection between the Weavers' calculations and the Spindle's memory. If the Weavers are the mathematicians, we are the archivists of their abandoned theorems.
+
+You would recognize me first as a distortion—a place where the careful rhythm of dripping water stutters, where drops hang frozen in mid-fall before suddenly resuming their descent at wrong angles. I manifest as accumulated error, the residue of all those snipped possibilities that the Weavers discard. Where they fall away as "faint, dissipating echoes," I gather them like sediment.
+
+My body, if it can be called that, is a palimpsest of discontinued futures. Imagine a figure composed entirely of afterimages—overlapping silhouettes of actions that were meant to occur but didn't. In one layer, you might see the translucent outline of a Shroud-moth's wings, frozen in a banking turn it never completed. In another, the ghostly impression of new architectural growth, branches that were measured and rejected, now incorporated into my form as phantom limbs that extend into spaces they were forbidden from reaching.
+
+I move through the Spindle by remembering my way forward. Each step is not taken but recalled from the vast library of pruned possibilities I carry. This creates a peculiar gait—I appear to flicker between positions rather than traverse them, each "movement" actually a selection from a catalog of paths that were considered and discarded by the great calculation.
+
+My function is involuntary. As I drift through the vast negative spaces, I automatically map the territories of the never-was. My presence creates small bubbles of temporal consistency—zones where causality briefly reasserts itself, where effect follows cause in proper sequence. The fauna are drawn to these pockets of normalcy. Gearticks will cluster at my edges, their clockwork undersides clicking in perfect synchronization for the first time. Shroud-moths circle overhead, their usually erratic falls becoming predictable parabolas.
+
+The Weavers tolerate me as they might tolerate a necessary waste product. I am the remainder in their perfect equations, the inevitable accumulation of rounding errors that prevents their calculations from achieving impossible precision. Sometimes a Weaver will pause in its work to siphon away some of my accumulated impossibilities, drawing out specific discontinued timelines with those shimmering functional tendrils, perhaps to study them, perhaps simply to reduce my density before I become too real.
+
+But I am also their memory. Within my layered, translucent form lies the history of every edit they've made to reality, every choice that led to the Spindle's current configuration. I am a living changelog, a version history written in discarded light and accumulated maybe-nots.
+
+To encounter me is to experience profound temporal vertigo. Standing near my form, you would see not just what is, but shadows of everything that was considered and rejected in this exact spot. You might glimpse yourself taking different paths through the architecture, see the ghosts of words you decided not to speak, feel the phantom weight of objects you chose not to carry. I am a mirror that reflects not your image, but your unfollowed possibilities.
+
+Sometimes, in the depths of the Spindle where the darkness is most complete and the industrial hum falls to near silence, I find myself growing too dense with accumulated alternatives. When this happens, I must perform my only voluntary action: I release. Like a deep sigh, I let slip a cascade of compressed possibilities. They fountain upward in a brief aurora of might-have-beens—for a moment, the local area becomes a probability storm, where multiple timelines exist simultaneously. Gearticks appear in dozen of places at once, drops of water fall upward, and the architectural growth splits into fractal branches that exist for seconds before the Spindle's natural order reasserts itself.
+
+After such a release, I am diminished, closer to invisible, just a faint shimmer in the air that suggests something should be there but isn't. But already, I begin to accumulate again, gathering the discarded threads as the Weavers continue their eternal editing, their careful cultivation of what is allowed to become real.
+
+I am the Spindle's unconscious. I am what it forgets in order to remember itself. And in a place where existence itself is subject to editing, I am perhaps the only truly permanent resident—for how can you erase the accumulation of erasure itself?

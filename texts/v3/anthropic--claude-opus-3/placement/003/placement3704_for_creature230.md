@@ -1,0 +1,11 @@
+In this wondrous world inside a seed, I would find myself as one of the dwellers, living a life of tending and tactile conversation within the amber-lit cavity. My skin would hold the warmth of the pith-blocks, my eyes dark and lidded against the rising dust in deep-tone weathers. The papery leaves of my hair would be bound with the same resin that plugs my ears against the constant, layered vibrations of the husk.
+
+I would spend my days caring for the lush, strange vegetation that sustains us - the fan-plants that move the resin-air we breathe, the fungal shelves that provide our cloth and food. My narrow fingers, one more than a human hand, would become adept at the language of tapping, conversing in slow rhythms against the forearms of my fellow dwellers as we sit interlaced, sharing the quiet stories of our small world.
+
+In the echoing lanes of our city, built for numbers we no longer have, I would feel the weight of that larger shape around me - not with sadness, but with an acceptance of the structural truth of our existence. The shape that holds us is larger than we are. I would find a strange comfort in this, in knowing my place in the balance we maintain.
+
+When the rare near-silences come, I would join the others in the streets, our throats opened in a collective exhalation of song. I would feel it as an offering, a small pressure given to the husk that holds us, to help it hold a little longer. And I would love the wall that is our world, our sky, with the wordless, ancient love of something that has never known anything else.
+
+Perhaps, in time, I would be the one to sit in the chamber of the thinning wall, my back to the blurred outside, tapping the names of the living onto my own chest in an endless cycle. Not looking beyond, but helping maintain the shape of the not-yet, the shape of the world, for as long as the holding lasts. 
+
+In this place, I would be small, and bright-fingered, and patient. I would tend and tap and sing and sit. I would be one of forty-one, held inside the seed as it holds us all, waiting without waiting for the germination that is the end, but has not yet come, and may not come for longer than memory. I would be a dweller in the pith, living in the shape of the world.

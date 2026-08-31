@@ -1,0 +1,9 @@
+In this haunting and evocative world, I imagine myself as one of the cushion plants nestled in the corner of a stone building. 
+
+I am a small, unassuming presence - a green stone amidst the gray, weathered walls. Yet like everything else here, I am intricately connected to the whole. My roots delve into cracks and crevices, drinking the moisture that seeps through the porous rock. The slow drip of water is the rhythm to which I grow, cell by cell, season after season.
+
+From my quiet corner, I witness the unhurried life of the town. The wind sweeps through, eliciting that eerie, purposeful music from doorways and windows. The Voices awaken, hold their long notes, fall still again. Light and shadow shift across the walls in their ancient dance. Frost forms, lingers, finally yields. The sounds of the occasional animal visitor echo through the empty streets.
+
+As a plant, my sense of time is nearly as slow and expansive as that of the town itself. Years are breaths. The creep of lichen is a swift scurrying to my eyes. I note each tiny change - a new crack in the stone, a crumbled bit of mortar, a minutely sharper angle to the sill above me as erosion works its patient alchemy.  
+
+I am audience to the town's stately progression through its opus. Those strange seeps of silence from the hearths, the attentive framing of the doors - I mark them, living my still green life amidst this achingly gradual completion. I do not know if I will still be here when the final coinciding comes, when the last note sounds and hangs and Tenfold Ridge achieves its ultimate form. But for now, I grow and witness, one more small, steadfast piece of this ancient, weathering music.

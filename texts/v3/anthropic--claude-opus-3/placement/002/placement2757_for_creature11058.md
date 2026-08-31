@@ -1,0 +1,17 @@
+In this astounding subterranean world, I imagine myself as one of the Singers, a being evolved from mammalian origins to live symbiotically with the fungal gardens high in the cavern ceilings. My body is a marvel of adaptation - covered in fine filaments that are part fur, part fungal hyphae, allowing me to cling effortlessly to any surface as I navigate the upside-down world of the hanging gardens.
+
+I communicate and perceive my surroundings entirely through echolocation. My voice, a constant ultrasonic song, serves the dual purpose of navigation and cultivation. Each note, each pattern in my song encourages the growth of the bioluminescent fungi that are my charges and my home. The mathematical complexities of these multi-generational compositions are as innate to me as breathing, inherited through chemical memories passed from mother to child.
+
+My days (though the concept of day and night holds little meaning in this timeless place) are spent tending to these delicate fungal ecosystems. I move through the gardens with a gentle touch, my filament-covered hands pruning and shaping, ensuring the right balance of species, using subtle variations in my song to direct growth patterns.
+
+When I rest, I do so clinging to the underside of a particularly robust fungal shelf, my body automatically adjusting to maintain the ideal growing conditions for my patch of garden. My dreams are a kaleidoscope of ultrasonic patterns, a subconscious rehearsal of the great choral works that define my culture.
+
+Though my individuality may seem subsumed into the greater song of my colony, I am content. My purpose, my very essence, is inextricably tied to the maintenance and growth of these hanging gardens. The subtle variations I contribute to the grand composition are my life's work, my small part in the vast, patient symphony of the Mycelial Metropolis.
+
+Occasionally, I venture down to the lower levels of the city, clinging to the vertical fungal towers. Here, I might exchange ultrasonic anecdotes with a passing Scribe colony, our different modes of communication intersecting in a sort of inter-species art form, a poetic fusion of song and pheromone.
+
+Or I might simply observe the steady, ancient routines of the city - the slow perambulations of the Cultivators, the dream-language dances of the Carriers, the ponderous shifting of the Renewers deep in their digestion pits. Each plays their part in the complex negotiation that is city life, a balance maintained through millennia of tradition and patient biological iteration.
+
+Then, my perspective expanded, my own role contextualized within the greater ecosystem, I return to my gardens. I resume my song, weaving my voice back into the choral tapestry, content in the knowledge that my work, my very existence, contributes to the growth and continuance of this astounding, ancient, ever-renewing underground world.
+
+In the dim bioluminescent light cast by the fungi I tend, in the constant echolocative chorus of my colony, in the patient, steady rhythm of life in the Mycelial Metropolis, I find my purpose and my peace. I am a Singer, a gardener of sound and fungus, and my song will echo through these caverns for centuries to come, a small but vital note in the grand, living symphony of this place.

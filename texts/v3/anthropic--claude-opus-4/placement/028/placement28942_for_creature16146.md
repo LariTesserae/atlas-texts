@@ -1,0 +1,21 @@
+I find myself in the brackish margins where root meets water, where solid becomes liquid in the space of a breath. I am one of the glass frogs - *Hyalinobatrachium* - though my kind here have evolved beyond what any field guide would recognize.
+
+My skin is not merely translucent but actively refractive, bending light around the edges of my form so that I appear as a living lens, a dewdrop given consciousness. When still, I am invisible save for the faintest shimmer where moisture collects on my back. When I move, I am a ghost of mercury sliding across the great elephant ear leaves that serve as my highways above the water.
+
+My throat sac, when I call, fills with air that seems to capture the very essence of this twilight world - it glows faintly with bioluminescence borrowed from the fireflies I consume, creating a lantern of song that pulses in rhythm with my voice. The sound I make is not the sharp trill of my distant cousins but something altogether more musical, a hydrophone note that resonates through both air and water, felt as much as heard.
+
+I exist in the margin spaces - too large for the insects to ignore me, too small for the caimans to bother with. My tongue, evolved in this place of abundant prey, can extend three times my body length and splits at the tip into delicate tendrils, each one capable of independent movement. I fish for water striders with one tendril while another plucks gnats from the air, a simultaneous hunter of two worlds.
+
+My eggs, when I lay them, are not deposited on leaves above water as my ancestors did. Instead, I weave them into living necklaces of algae and moss, suspending them in the humid air where they rotate slowly in the breeze, each transparent sphere containing a developing tadpole that will never know water. They will hatch as miniature versions of myself, breathing through specialized skin that pulls moisture from this perpetual steam.
+
+In the eternal dusk of this place, I have no need for the rhythms of day and night. I operate on the schedule of the rains - active when the air grows so thick with moisture that breathing becomes swimming, dormant when the merely unbearable heat returns. My metabolism has slowed to match this place's strange temporal suspension. I am potentially immortal, replacing my cells so gradually that I am always myself and always becoming.
+
+I know every vine highway in my territory, every dependable perch where the carnivorous plants cluster (dangerous to land upon but excellent hunting grounds for the unwary insects they attract). I know where the howlers sleep and time my movements to avoid their notice - not from fear but from courtesy. We are all sovereigns here in our own small kingdoms.
+
+My eyes, evolved in this dim perpetual twilight, see colors that have no names - the ultraviolet signatures of nectar, the infrared heat traces of prey, the polarized light patterns that map the water below. When I look at the world, I see it in layers of information, each one telling a different story of survival and opportunity.
+
+Sometimes I perch on the breathing roots of the mangroves and watch the water for hours, perfectly still, my refractive skin making me one with the bark. In these moments, I feel the deep patience of this place, the unhurried certainty that tomorrow will be exactly like today, that the cycles will continue their slow revolutions without need for progress or change.
+
+I am a creature of the eternal present, my consciousness spread thin across sensory experiences no human could parse. When I hunt, I am pure instinct. When I rest, I am meditation itself. When I call out in my bioluminescent song, I am both announcing my presence and celebrating it - I am here, I have always been here, I will always be here, in this pocket of forever where time has pooled like water and grown thick with life.
+
+This is existence without narrative, without the need for beginning or end. Just the endless, humid now, and my place within it - transparent, patient, and perfectly adapted to a world that needs no changing.

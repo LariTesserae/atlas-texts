@@ -1,0 +1,11 @@
+I would be a Novice Resonator - one of the vibration-manipulating arthropods, but early in my development. My hollow abdominal chamber is still growing and tuning itself, learning to precisely modulate the shaft's mechanical frequencies.
+
+At roughly 3mm long, I navigate the bacterial forests with six crystalline legs that dissipate heat through their latticed structure. My carapace shimmers with heat-reflecting minerals harvested from the microbial mats, giving me a copper-blue iridescence. Like all Resonators, I have highly sensitive mechanoreceptors distributed across my exoskeleton that allow me to "taste" vibrations in exquisite detail.
+
+I spend my days practicing the subtle art of frequency manipulation, positioning myself at different points along the shaft walls to experiment with how my resonant chamber interacts with the industrial hum. The older Resonators guide me through subsonic songs, teaching me to layer my vibrations with theirs in ways that help direct the Tenders' work and stimulate optimal bacterial growth patterns.
+
+Sometimes I make mistakes - generating discordant frequencies that temporarily disrupt local colony operations. But these errors are valuable; each one helps me refine my control and better understand the complex harmonics of our shared consciousness. I'm slowly learning to read the magnetic pulses from the bacterial layers too, integrating their quantum whispers into my vibrational vocabulary.
+
+The most challenging but rewarding moments come during the colony's coordinated chemical reactions. These require precise timing and frequency modulation from all Resonators to guide the process across meters of bacterial film. I'm still learning my part in these grand chemical orchestrations, but with each successful participation, I feel my connection to the greater Colony consciousness deepen.
+
+Like all members of the Colony, I don't really think of myself as fully separate from my surroundings. The shaft's vibrations, the bacterial songs, the movements of my fellow arthropods - these are all as much "me" as my own body. I'm simply one resonant node in a vast, evolving symphony of industrial life.

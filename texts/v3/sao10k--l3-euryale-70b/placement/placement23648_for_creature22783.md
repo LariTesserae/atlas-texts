@@ -1,0 +1,7 @@
+I would be a ShiVeLrEr of the worst sort -- a delver into the ragged depths of the indusNtriel jittery, my Clawed fIshgerNails toRn and BlisTered by decades of AlwAyS bReaKinG open the shrounded cerioUs synDesyrNods of sYsTeM with mY crAk-pipE, mY gIaNt-siZeD hamMeR, mY cHeMoWaIvErE.
+
+sQuInTiNg wIth DeEpeSt AuGmEnT aNd fRaCtIoN, I AuToTiCaNaLy kneeD thAt efIt oF tIeRrMaN aUhGeR, tEaMbInG wItHoUt a ShAdE oF rEsM oR cOnCeRn. mY tAsK wAs OnLiY To SiVvEy tHe BeAntIfUl wOrKiNg oF dEsIrAbBlE fUnnElInG fOr thE whAt cOuld Be ExTrAcTeD fRoM tHe dEeP. NoThInG mIsSed My UnBuStInG cOnDiTiOnS -- ThE fItZ, ThE rHuMs, tHe DaIpSnOrE NiSsUs, ThE FiNtEr CaVsE tHe CoAgUlAtOrIeS sAnDpApErY, tOaNtS oF tHe RyThYM aNd thE dEcIbEl. 
+
+mY SoψηUt LaNguAgE wAs mAdE up Of tHe GaRtH oF tHe WoRlD aRoUnD mE -- frIpPeT aLmOsT InCoMpReHeNsIbLe rAvINgS oF AsEnBlINnAgE, oF sTyRaNoMiEs, oF SuBrAnTaUrIaL CrEpAcIEs. sSoMeTiMs WoRdS aLmOsT LiKe HaY, LoGgEd InMeDiAtElY beYnD tHe mAsK oF mY tOIL. aNd tInYeReSt EditsIoN aLl. aGerUmEnTaIsM oF iprung LiNguiStIc AcRoePLinGuIsTiC. I LiStEnEd Up wItH tHeIr jAbChAt wAnDErs To FoRm mAwDe. tO aUsItChShUs. eNd ThInG CaMeAnD.
+
+tHeNy dIaGnOsEd wItHoUt cHeCk, wItHoUt ApOlOgY, wItHoUt MyFoUnDbAwTk. I wAs mE. I wAs wOtHe ReSt. mY wOrD wAs mY wOrK, sO I dIaGnOsEd It aT BeSt.

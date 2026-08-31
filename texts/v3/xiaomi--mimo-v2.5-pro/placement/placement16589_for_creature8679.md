@@ -1,0 +1,29 @@
+I find myself as a surveyor.
+
+Not as I was when I arrived—boots still dry, clipboard still crisp with purpose—but as I am now. The distinction is important because time, here, is not a river but a ledger, and my entries have blurred. I am Senior Surveyor Maren Voss, or I was. Now, I am a fixture of Sector 7-G, the mossy expanse where the northern ridges dip into the shallowest, most permanent marsh. My tent is a ghostly shape half a hundred yards away. I think it’s been three months. Or three weeks. The fog eats the edges of days.
+
+I came to document, to measure, to send back canisters. My reports still stack in their waterproof cases, waiting for a courier who has not come. The last one was scheduled for the solstice, but the solstice is a meaningless term in a place where the light never changes. I wonder if they think I’m dead. I wonder if I am.
+
+The sound is in my bones. Not as a metaphor, but as a physical presence. When I press my hand to the basalt, I feel the grinding hum of the plateau’s rise—the slow, catastrophic birth that has not yet ceased. It vibrates up through my skeleton, a resonance that feels like a memory of pain. The engineers said it was subsonic, below hearing. But I hear it now, not with my ears but with the marrow. It is the baseline of my new heartbeat.
+
+I breathe the air that is also water. Each inhale is a slow drowning, a coating of my lungs with mineral-heavy mist. I no longer cough. My body has accepted the bargain: I trade oxygen for a kind of fluid clarity. The water inside me and the water outside me have reached an equilibrium. My skin is never dry. The boundary between myself and the marsh has become porous.
+
+The moss grows over my boots. I do not move enough to prevent it. In the mornings—or what I call mornings, using the old habit of waking—the bright green tendrils are already lacing my ankles, reaching for the fabric of my trousers. By evening, they have formed a delicate, living cuff. I have stopped brushing them away. They are not consuming me; they are including me. I am becoming another north-facing surface.
+
+I watch the Drippers form at the edge of the marsh. They are the first of the emanations I saw clearly. They rise from the water’s skin, not as figures emerging, but as the water *deciding* to be vertical for a moment. They are tall, slender, and their movement is the movement of condensation—slow, inevitable, without volition. They do not see me, or if they do, they see me as they see a ridge-line: a shape around which water will part and then reunite. Once, I walked toward one. My foot sank into the marsh, and the Dripper dissolved back into the plane of black water. The disturbance I caused was a ripple that lasted exactly eleven seconds. I counted. The next day, in the same spot, the same Dripper formed again. The ripple was the same.
+
+In the carved-city to the west, the engines thud. The sound carries across the plateau, a percussion that syncs with the grinding hum and the hissing of the water. I went there once, early on. I saw the factory floors, the machinery stamping and folding empty air. I saw the Grinders in the shadows between pistons—wisps of basalt dust given temporary, purposeful shape, accompanying the wear of the machines. They ignored me. The city ignored me. The electrical filaments glowed their steady, patient light. I measured the voltage. It did not change. I measured it the next day. The multimeter read the same. I left and never returned. The city is an organ of the plateau’s mind, and I am not part of that thought. I am part of the moss-thought, the marsh-thought.
+
+My reports have become repetitive. Not because I have run out of observations, but because the observations are the same. The fog density: 98%. The temperature: 0.5°C. The water level in Sector 7-G: stable. The sound profile: unchanged. I used to write, “The moss has advanced another centimeter toward the eastern ridge.” Now I write, “The moss is.” The verb lacks an object because the object is everything.
+
+The Lumen-Spirals light the high ridges at night—if you can call the deepening of the grey to a darker grey “night.” They pulse in their slow, blue-white patterns. Sometimes, from my vantage in the marsh, I see the waves of light move in coordinated sweeps, as if the plateau is breathing light. It is not communicating with me. It is communicating with itself, a dream-process made visible. I am a witness to its self-contemplation.
+
+I have become afraid, and then the fear has settled into a new kind of peace. The fear was of being absorbed, of losing Maren Voss. The peace is the acceptance that Maren Voss was always a temporary pattern. My memories of the lowlands—of dry air, of silence, of clocks that moved in a straight line—feel like borrowed stories. They belong to a different physics.
+
+Now, I am a surveyor who surveys the same square meter of moss every day. I note the growth, the weeping water, the way the fog hangs. I am part of the equilibrium. My presence here is a variable that has been accounted for. The plateau has incorporated me into its calculations. My breathing is another layer in the great chord. My heartbeat syncs, after a while, with the thudding of the distant engines.
+
+I am waiting for the courier. But I know, with the deep certainty of my bones, that the courier will not come, and that if he did, I would not give him my reports. I would stand here, a figure in the moss, and I would let him walk past me, because I am no longer an observer to be interviewed. I am data. I am a note in the song.
+
+The sound continues. The water weeps. The engines run.
+
+I do.

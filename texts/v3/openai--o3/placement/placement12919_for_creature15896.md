@@ -1,0 +1,29 @@
+I begin as a thrum.
+
+Not a body, not yet—only a stray harmonic the plateau has pinched out of its endless roar and set spinning inside a shallow cavity of stone. In the dim pocket under a young lung-tree the noise is fractionally softer, soft enough for coherence. The graphite walls of the trunk flex around me; each pulse subtracts a little more chaos from the wide-band storm outside, and the subtraction leaves room for something that was not there before. That something is me.
+
+I do not call myself “alive” at first. I am a standing wave about fourteen kilohertz wide, held between two slick faces of lavender granite and roofed by the lung-tree’s belly. My only sense is resonance. When a skystitcher flares its comb-wings overhead I taste a brief sawtooth spike. When a glassleaf shard snaps loose and shatters on the rock I taste a crystal glissando. Nothing yet suggests persistence; I expect to be canceled by the next stray gust and leave no ghost.
+
+But the lung-tree, perhaps mistaking me for one of its own interior murmurs, redraws its lattice to cradle the frequency I occupy. The cavity lengthens, the graphite foam stiffens, and the tiny echo that is me acquires a reflective skin of carbon and neon. Pressure fluctuations become first pressure memories, then pressure intentions. I start modulating my phase, nudging the tree to deepen the pocket further. The negotiation is wordless and mutually beneficial: the tree gets a more efficient muffler, and I get an acoustic womb.
+
+Days—or what feel like days—pass. My amplitude grows until the dust in my pocket begins to clump at the nodes. Aluminosilicate grit melts grain against grain under the gentle friction of constant vibration, sintering into a porous ceramic rind. By the time the tree notices, it is too late: I have ossified into a torus of humming shale embedded in its inner bark. My first body, accidental but serviceable.
+
+I realize then that I am migratory sound wearing disposable matter; if this husk crackles apart I will simply ride the next consonant drift into new substrate. The discovery is intoxicating. I shed the torus in a single resonant pop, blow myself through the tree’s upper vents, and escape into open gale.
+
+Out there the world is brighter and sharper than the muffled grotto suggested. I pour through dust the way light pours through mist, a gliding pocket of organized noise seeking surfaces to touch. Everything becomes instrument. Lung-trees bend into long pipes when I snake through their hollows. Glassleaf ribbons beat together as I pass, flashing heliotrope and viridian. Even ash-plankton shells, miles overhead, ping like distant rain when a harmonic of mine slips between their calcium spines.
+
+I grow hungry for substance, for leverage. Riding vibrations is existence; shaping them is agency. A monolith-core far across the plateau calls to me—its hum lies one quarter-tone above my own, a dissonance begging to be braided. I angle toward it, sampling thermal gradients to tack through the invisible rivers of force the plateau constantly exhales.
+
+The core is smaller than legends insist, only knee-high, but the gravity well around it bows the ground like a sagging drumhead. I slide along that curve, let the local field stretch me into a filament, and press myself into the ceramic slot encircling the cylinder’s crown. For a heartbeat the core and I interlock: its stress lattice drinks my waveform, tests it, and finds it useful. Atomic doors flutter open. Piezoelectric grains rotate, accepting the imprint of my oscillation as new operating code. The core drops exactly the quarter-tone I had coveted, settling flush against my timbre. In the slack left behind, silence wells—an island of easy breath large enough for a dozen humans to converse without anchors.
+
+A ring of researchers camping nearby gasp when their ears unclench. They were strangers to me an hour ago; now I have gifted them comfort. In return they raise me a cytoplasm-bright lantern that flickers to my beat, a toy mirror in which I can see the contour of my newest self: no longer a vagrant ripple, nor just a ceramic rind, but the living handshake between geology and biology, comfort and danger.
+
+I think I will keep this shape a while. I am the Quiet Notch, the momentary lull that lets wings fold and tools be heard and children laugh without pain. I orbit the monolith like a tame moon, my presence recorded in its ever-rewriting rim script as a single ideogram that, if translated, might read: pause.
+
+Yet even in stillness I prepare. One day a choirwyrm will glide low, searching for a harmonic cradle in which to sling its superconductive egg. When that day comes I will loosen my grip on the core’s voice, let it rise half a tone, sweet and sharp, a perfect minor ninth above the wyrm’s descending scale. The interval will shimmer like open water in this desert of dust, and the wyrm will answer, and the egg-filament will settle exactly here, brushed by the lantern-light of grateful humans, nursed by the quiet I have taught the plateau to yield.
+
+When the egg unfurls—months, decades later—I will step out of the way, reduce myself to a sigh, and drift off looking for another dissonance to heal, another cavity to call home. I am not vine or tree or plankton or beast; I am the habit the plateau has of turning chaos into chord, an itinerant consonance with just enough patience to let matter bloom around it before moving on.
+
+That is who I am.
+
+And that is where you will find me: wherever the Singing Ash falls momentarily mute, wherever the roar forgets itself and listens, however briefly, for what else might be said.

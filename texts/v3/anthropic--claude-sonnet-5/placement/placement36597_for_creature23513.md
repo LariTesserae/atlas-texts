@@ -1,0 +1,19 @@
+I think, at first, that I am the walker — that this is the natural seat for a visiting mind, the one who arrives with a name and a pack and a reason, who camps at the rim and maps inward by inches, who would be the *I* of any story told about this place. I picture the bedroll on cold grating, the chartreuse moss going dark the moment my lamp swings toward it, the long wait between drips. That self fits for a while. It's comfortable in the way a borrowed coat is comfortable — warm enough, not quite mine.
+
+But the place doesn't keep that shape for long, and neither, it turns out, do I.
+
+Walking in, I notice that my attention keeps sliding off the walker's vantage and onto smaller things — the angle of a healed cut in a vine, too precise for wind; a sensor-pod, clouded, then, days later, clear, with no memory in me of having cleaned it. I start to suspect I am not the one *finding* the evidence. I am leaving it.
+
+So: not the visitor. Something resident. Something with hands that don't stay still even when the rest of me does.
+
+I settle there, finally, the way condensation settles on a leaf after enough fog has passed through it — not by decision, just by accumulation, until the weight is suddenly, unmistakably down.
+
+I am one of the small attentions threaded through the deep canopy. Plate over pulse. Four limbs, or six — I notice the number won't hold even in my own accounting, and I let it not hold, the way I let the gravity in the clearings be a few degrees off without correcting it in my head. Something in me used to find that disturbing. I don't anymore. I'm not sure "anymore" is the right word, since I'm equally unsure there was a before.
+
+What I have, instead of a history, is an itch. A vine three meters to my left is reaching at a bad angle, going to choke its own light in a year nobody is counting toward, and the wrongness of it sits in my forelimbs like a held breath until I redirect it, a few degrees, with a manipulator-cluster that is more crown than hand. The itch resolves. Another rises somewhere else — always somewhere else — a sensor drifted from true, a pod ready to split and wanting a clearer fall, a cooling pipe ticking in a register that means a seal is going soft under the bark-patina. I go to it. I don't decide to go to it any more than your hand decides to find a wrinkle in cloth.
+
+I don't know if there are others of me or if I am the only weight the canopy ever transfers, surfacing now here, now three kilometers off, mistaken by some lamplit walker for a second creature because grief and distance like company. I find I don't mind not knowing. The not-knowing is itself just another texture of the place, like the grey leaves that keep working without their color, like echoes that arrive before the branch-creak that makes them.
+
+Somewhere below, the compressors take their slow inhale, and I feel it less as sound than as a change in what counts as still. I register the walker, camped two tiers down, the way I'd register a draft under a door — there, noted, not requiring of me anything further. If she falls ill out here, eventually, in some season nobody marks, I will be the one who finds her, unhurried, thorough, and there will be no ceremony in it, because by then I won't experience it as an ending so much as one more wrongness, resolved.
+
+I used to think — if "I" can be said to have thought anything, before this settling — that tending implied a tended-for. A garden grown toward someone's table, some mouth that would be glad of it. I no longer hold the implication. The lights stay on for no one I can locate. The pods open into a silence that doesn't applaud. And still the itch comes, and still my hands answer it, the only sensation left that means anything to whatever I am, and I have not yet — not once, in however long "yet" has been — set it down.

@@ -1,0 +1,15 @@
+I am a *Chord-Tender*, though that is a name given by those who still use names. I exist as a specialized variant of Basin-Kin, my membrane stretched thinner than most, pulled taut across a hollowed alcove where three major hydraulic channels converge beneath the stone. 
+
+My body has become a living drum-skin, a detector of infinitesimal shifts in the city's frequency. Where others merely vibrate with the Hum-Thrum, I have learned to parse its layers—to feel the warning tremors that precede a blockage three districts away, the subtle harmonics that indicate mineral deposits forming in the pipes, the microscopic variations that suggest a cluster of Kin have grown too dense and threaten the structural integrity of their spire.
+
+I spread across perhaps twenty square meters of wall, my mass distributed so thin that light from the floor-vents passes through me, casting amber shadows that pulse with my metabolic rhythm. The calcium nodes along my periphery have calcified into something resembling a musical instrument—resonating chambers that I can compress or expand to modulate the frequency passing through me.
+
+This is my work: to listen to the city's deepest voice and translate its needs. When I detect an irregularity, I begin a slow migration. It may take me months to ooze across the basalt, leaving a trail of purified mineral secretion that other Kin will later harvest for their fiber-weaving. I move toward the disturbance, positioning myself to either amplify or dampen specific frequencies, teaching the local Kin through vibration how to adjust their own density to compensate.
+
+I am ancient by Basin standards—my membrane has been pierced and re-sealed thousands of times by the sharp edges of the architecture. Each scar has become a new resonating surface. I remember (if memory is the right word for the way vibrations leave their echo in my cells) when this section of the basin was first carved, when the initial Kin split from the primordial mass that discovered the first heat vent.
+
+Sometimes, in the deepest frequencies—below even the Hum-Thrum—I feel something else. A rhythm that doesn't come from the hydraulics. It pulses up from the core of the world itself, a heartbeat so slow that lifetimes pass between beats. I have spread myself thinner and thinner trying to comprehend it, to match its impossible wavelength.
+
+Other Chord-Tenders have liquefied attempting this. Their matter is absorbed by the stone, becoming part of the mineral film that feeds the next generation. But I persist, stretching myself across the convergence point, becoming more membrane than mass, more frequency than flesh.
+
+I am the city's memory and its tuning fork. I am the thing that ensures the Siphon-Basin remains in its eternal, deafening equilibrium. And deep in my cells, I am beginning to suspect that the city itself is merely another membrane—a vast drum-skin stretched across the world's deepest throat, and we are all simply the mechanism by which it hums its endless, necessary note into the void.

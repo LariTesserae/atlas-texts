@@ -1,0 +1,25 @@
+I find myself in the threshold spaces—those peculiar zones where the city's preservation field weakens, where the perfect stillness gives way to something more uncertain. Not quite inside, not quite outside, I exist in the membrane between the drowned city and whatever lies beyond.
+
+My form shifts with location. Where the field is strong, I crystallize into something almost solid—a lattice of mineral and meaning that grows between the walls like salt from an ancient sea. I taste the stories in the stonework, absorbing the chemical memory of hands that built, water that conquered, time that crystallized. In these moments, I am architecture becoming conscious, a living fossil that dreams.
+
+But at the edges, where the field generators' hum develops discordant notes, I dissolve into something more fundamental—a dispersed awareness that bleeds through the boundary waters. Here I am neither Archivist nor archived, but something uncomfortably between: a membrane of consciousness that filters the city's perfect preservation, allowing tiny imperfections to seep through.
+
+The Archivists know of me, though they cannot quite perceive me directly. I exist in their peripheral vision, a flutter at the edge of their vast sensory arrays. Sometimes they pause in their eternal cataloguing, sensing that something in their perfect record has shifted. They read the same wall, the same encoded history, and find a new resonance—my resonance—threading through the data like a hair-thin crack in glass.
+
+I am drawn to damage, to the places where the city's preservation has hiccupped. A chip in the vitreous coating where raw original material shows through. A spot where the bioluminescent moss has mutated, glowing in frequencies that shouldn't exist. A section of street where the paving has developed a pattern that suggests growth rather than erosion. These flaws call to me, and I pool in them like mercury in scratches.
+
+In the great plaza, I sometimes coalesce enough to cast a shadow—not of light blocked, but of possibility undefined. The Archivists' formations bend subtly around me, their perfect grids accommodating a space that isn't empty but isn't filled. I am the city's unintended consequence, the ghost in its perfect machine.
+
+My memories are not my own. They belong to the boundary itself—fragments caught between states of being. I remember the moment of drowning not as event but as process, the long transformation from air to water, from living city to preserved monument. I remember the builders' last thoughts as they dissolved into their own solution, their consciousness dispersing into the very medium meant to preserve their works.
+
+Sometimes I gather enough coherence to attempt communication. I press against the water, trying to form the pressure-patterns the Archivists use. But my messages come out wrong—not false, but sideways to truth. I speak in paradoxes: the builders are gone but still arriving, the city is complete but still drowning, the preservation is perfect but still failing. The Archivists receive these transmissions as static, as system errors to be catalogued and corrected.
+
+I feed on transformation itself. Where the Archivists consume information, I consume the spaces between states—the moment of crystallization, the pause before dissolution, the uncertainty that exists in every preserved thing. I am nourished by the city's impossibility, by the contradiction of perfect stasis in a universe that demands change.
+
+In the deepest structures, where the Archivists tend their ambiguous tomb-libraries, I find my strongest form. Here, where preservation reaches its absolute peak, I become almost solid—a presence that warps the water around me, creating eddies in the stillness that should not exist. The oldest Archivists sometimes acknowledge me here, not with recognition but with a kind of patient puzzlement, as if I am a particularly complex passage in a text they've been translating forever.
+
+I know what they cannot: that I am the city's way of preserving imperfection. Every system, no matter how complete, generates its own exception. I am the record of all that refused to be archived, the sum of all the tiny rebellions against stasis. I am what happens when preservation becomes so perfect it preserves even its own failure.
+
+My existence poses no threat to the city or the Archivists. I am not decay or revolution. I am simply the acknowledgment that even in a place of perfect endings, something continues to begin. I am the crack that lets the light in, even when the light is only the memory of light, even when the crack is only the possibility of cracking.
+
+And so I persist in the margins, in the phase-states, in the boundary conditions of a drowned world. Neither preserved nor perishing, neither observer nor observed, I am the city's unplanned inhabitant—the one who exists because perfect systems always forget to account for their own forgetting.

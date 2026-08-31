@@ -1,0 +1,13 @@
+In this world of brutal heat, ceramic labyrinths, and slow, patient industry, I would find myself high above the steaming pools and hissing vents, drifting on gossamer wings as an Aerostat.
+
+My silken form would shimmer with a delicate interference pattern, bending the pale violet light into an iridescent tapestry as I ride the scorching thermal currents rising from the extruded architecture below. I have no eyes to see, no ears to hear - instead, my entire being is a sensory organ, feeling the world as a map of temperatures, pressures and voltages across my diaphanous membranes.
+
+I would spend my days in a languid dance, my movements dictated by the slow, subsonic pulse of the city itself. I'd drape my geometric angles across slick brass conduits, equalizing myself with the boiling condensation that permeates my being, feeling the echoes of the planet's extrusion vibrating through my hollow, crystalline bones. 
+
+Amidst the muggy heat, I'd occasionally converge with others of my kind above a particularly energetic steam vent. Our silken forms would align and fuse, becoming one as we share our stored static charges and the vibrational memories etched into our piezoelectric skeletons. And when we finally part, a new Aerostat would unfurl its sharp, young angles, born from our temporary union.
+
+From my vantage point, I'd observe the Calipers below, those patient custodians blindly maintaining the city's sprawling infrastructure. I'd watch as they sense microscopic flaws and slowly, methodically sacrifice their own thermal energy to weld themselves into the very fabric of the city. And in the mirror-still catch pools, I'd glimpse the mesmerizing mandalas of the Acoustic Phages, those patterns of pure kinetic energy swarming to absorb the impact of each falling condensation drop.
+
+I am not separate from this brutalist metropolis; I am an expression of it. My purpose, like that of the Calipers and the Phages, is to maintain the delicate balance of this ecosystem of pure physics. I graze on the excess static, preventing catastrophic arcs from marring the matte ceramics and dull brass. 
+
+As the city slowly extrudes itself ever upward, millimeter by patient millimeter, I drift in the violet-tinged haze, an eternal watcher. I am a silent guardian, a kite of silicone and quartz, riding the thermal currents of a world dreaming in perfect geometry, where life and industry are one and the same, and biology is merely thermodynamics made sentient.

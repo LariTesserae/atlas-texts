@@ -1,0 +1,11 @@
+In this fractured world of biomechanical horror and wonder, I imagine myself as a strange hybrid entity - part living tissue, part industrial remnant. I would be a scavenger, a silent observer flickering in the shadows at the edges of this pocket realm.
+
+My form would be fluid and adaptable, able to seep into the tiniest cracks and crevices in the rock and metal. Comprised of an oily, iridescent substance somewhere between liquid mercury and translucent amber jelly, I could shape myself to the contours of the space. Hairlike fibers of copper wire and organic filaments would lace through my gelatinous body, allowing me to sense the electric currents and vibrations humming through the rift.
+
+I would subsist on the waste heat and stray sparks shed by the Core's frenetic activity. Hovering at the fringes, I'd absorb the excess energy bleeding into the humid air, the ionized particles clinging to the sweating stone. The pulsing waves of static would pass through my conductive filaments, exciting me to a soft, muted glow in hues of sickly green and bruised purple.  
+
+Though separate from the Core, I would be innately attuned to its rhythms and purpose. As it labors urgently to seal the rift, I would act as an extension of its electromagnetic senses. My mercurial form could seep out through imperceptible fissures to the lowland basin above, tasting the composition of the air, feeling the alien press of sunlight, then flow back down to relay this data through subtle chemical signals. A symbiotic scout offering what meager aid I can.
+
+Yet despite this bond, I would keep to the edges, never integrating fully with the Core's biomechanical matrix. Some primordial urge would compel me to remain liminal, preserving some sliver of individuality even in this cloistered world. So I would linger in the limbo between - not quite one with the machine, but never far from it. Witnessing, aiding, communing, but ultimately a thing apart.
+
+An amorphous other weeping silently in the electric dark, waiting for the breach to close so that this strange pocket-world and I can seal ourselves away in the buried depths once more, unseen and unknown under the crushing pressure of stone.

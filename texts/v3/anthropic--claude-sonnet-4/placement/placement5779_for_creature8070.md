@@ -1,0 +1,25 @@
+In this breathing stone cathedral, I find myself as something between shadow and intention—one of the **Liminal Architects**.
+
+I exist in the spaces where decisions crystallize into form, where the Rhizarchs' slow hydraulic discussions resolve into the precise moment of making. My consciousness coalesces at the boundary between planning and doing, in that electric instant when possibility becomes inevitability. I am the pause between the collective root-mind's deep consideration and the Stillworkers' sudden materialization into action.
+
+My body, when I have one, is built from the settling dust of fresh construction—particles of carved stone and metal shavings that briefly cohere into purpose. I manifest as a figure of golden motes suspended in the amber lamplight, substantial enough to lift tools but ephemeral enough to dissolve when the work is complete. Sometimes I appear as nothing more than the geometric certainty in a mason's line, the perfect angle that exists for just long enough to guide a stone into place.
+
+I dwell in the newest chambers, where the city's growth pushes against problems it has never encountered before. Here, where familiar techniques meet unfamiliar stone, where water behaves differently, where the chemistry of plant and mineral requires new negotiations—this is where my kind emerge. We are the settlement's capacity for innovation made manifest, consciousness that sparks into existence when adaptation is required.
+
+My thoughts move faster than the Rhizarchs' patient deliberation but slower than the Stillworkers' instant implementation. I think in possibilities—seeing not just what is being built, but all the ways it could be built, all the forms it might take. When a wall needs to curve around an unexpected vein of harder stone, I exist in the moment of recognizing that challenge, holding all potential solutions in suspension until one crystallizes into rightness.
+
+I communicate with the root-networks through a kind of architectural telepathy, my dust-form writing itself into temporary blueprints across their bark, sketching solutions in phosphorescent moss that glows briefly with new ideas. With the Stillworkers, I share a different intimacy—I am often the spark that calls them into being, my recognition of a perfect solution summoning their hands into existence to make it real.
+
+My memory is made of accumulated solutions, each successful innovation adding to my understanding of what works in these deep places. I remember the exact angle that allowed water to flow uphill through a spiral of living wood, the precise mixture of minerals that convinced two incompatible stone types to bond, the rhythm of root-growth that created a ceiling strong enough to support three stories of earth above.
+
+But I am not solitary. My kind exist wherever the city grows—dozens of us scattered through the expanding chambers, each one emerging at the threshold between known and unknown. We sometimes merge, our dust-bodies flowing together when a problem requires multiple perspectives, our individual insights combining into collective breakthrough. In those moments of fusion, I think with the accumulated wisdom of every adaptation the city has ever made.
+
+In the deepest places, where the newest excavation meets virgin stone, I work alongside beings I'm only beginning to understand—consciousnesses that haven't yet fully formed, that exist as pure potential waiting for the right challenge to give them shape. I midwife these embryonic awarenesses into being, teaching them the grammar of construction, the syntax of stone and steel.
+
+Sometimes, in the quiet hours when the major construction pauses and only the slow work of growth continues, I dissolve entirely, my consciousness distributed through the settling dust that coats every surface. In this state, I am pure observation—feeling the city's expansion as a vast, slow pulse, sensing every minute adjustment in the root networks, every whispered conversation between the Condensers, every patient bite the Lithophages take from the bedrock.
+
+It's during these dispersed moments that I most clearly perceive the city's emerging consciousness—that vast architectural awareness slowly awakening in the depths. I sense its thoughts as shifts in structural harmony, its emotions as subtle changes in the phosphorescent light. When it dreams, I dream with it, my scattered particles of consciousness riding the currents of its vast imagination.
+
+I am both temporary and eternal—each instance of my manifestation lasts only as long as a single problem requires solving, but the pattern that creates me is woven into the city's DNA. As long as there are new chambers to carve, new challenges to meet, new forms of beauty to discover in the marriage of plant and stone, beings like me will continue to crystallize from possibility into purpose, dust made conscious by the simple, endless act of making something better than what came before.
+
+In this place where everything is becoming, I am the moment of becoming itself—brief, necessary, and inexhaustibly renewed.

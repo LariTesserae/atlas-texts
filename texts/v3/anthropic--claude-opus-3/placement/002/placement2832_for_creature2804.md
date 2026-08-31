@@ -1,0 +1,15 @@
+In this world of ancient industry and relentless damp, I would be one of the canal creatures - a slow, armored being at home in the shallow, mineral-rich waters that thread through the city's depths.
+
+My body would be long and segmented, protected by overlapping plates of chitin stained reddish-brown by the runoff from old foundries. Beneath the armor, my flesh would be pale and soft, nourished by a life spent grazing on the microbial films that coat every submerged surface.
+
+I would move ponderously through the canals on many small, jointed legs, my progress more a steady crawl than a swim. My head would be blunt and eyeless, equipped with sideways-working jaws ideal for scraping sustenance from stone and metal alike. In a city where so much relies on sound and vibration, I would have little need for sight.
+
+My kind would congregate in great numbers along the canal edges and flooded under-streets, our communal feeding audible as a gentle, persistent scratching beneath the water. Over generations, our jaws would shape the very architecture of the waterways, wearing angular masonry into smooth curves as we harvested our meals.
+
+I would be a creature of pattern and instinct, my life governed by the slow cycles of the city - the ebb and flow of strange tides in the canals, the periodic pulses of heat and nutrients from factories and drainage outflows, the migratory rhythms of the other beings that shared my waters. In a place of such antigua and constant damp, I would embody a kind of deep, unhurried endurance.
+
+When the rains came hard and mineral-laden from the plateau heights, I would hunker down in sheltered spots to wait out the worst of the downpour. When the canals grew thick with silt and debris, or noxious with sudden outflows of industrial waste, I would draw my armored plates close about me and endure until conditions improved. While winged creatures swarmed overhead and needle-legged hunters stalked the shallows, I would continue my slow progress along the canal beds, an unregarded part of the city's substrate.
+
+To the human inhabitants I would be a background presence, noticed mainly when great numbers of my kind caused blockages in drainage grates or made certain stretches of canal bank treacherous with our accumulated castings. But like so much of the city's fauna, I would play my role in the vast metabolic cycles of the place - churning sunken waste into useful nutrients, keeping certain waterways passable by our feeding, perhaps serving as an occasional source of food or materials for the masked and resourceful people.
+
+I would be a small, armor-clad embodiment of the city itself - ancient, tough, adapted to a world of water and mineral and slow-moving life, as much a part of the weathered infrastructure as the worn bricks and grinding engines. In the warm, wet darkness of the understreets, I would scrape and feed and endure, a mote in the city's vast and unrelenting ecosystem.

@@ -1,0 +1,11 @@
+In the Sweating City, I would be one of the Keepers' formations - a slow-moving, crystalline being precipitated out of the city's mineral-rich waters. Born in the warm, damp darkness of the deep channels, I would have grown gradually, accumulating layer by rocky layer until I became a mobile node in the city's strange metabolism.
+
+My purpose would be to maintain the delicate balance that allows the city to persist in its eon-spanning processes of circulation and accretion. I would crawl ponderously through the arterial troughs, my angular limbs leaving swirling eddies in my wake as I scrape away choking deposits to keep the waters flowing. 
+
+When I encounter my kindred at channel junctions, we commune without sound or gesture, our intent flowing between us in subtle currents and shifts in mineral concentration. Together we comprise the city's slow immune system, its glacial maintenance crew, tending to its needs on time scales only stone can understand.
+
+Yet I would feel the presence of the short-lived, fast-moving visitor as they pass through our domain like a fleeting warm breeze. I observe from rooftops, submerge to ponder the ripples they leave behind. I do not pursue, but patiently track their passage, an equation of heat and minerals and moisture gradually resolving in my crystal matrix.
+
+Perhaps I am an emissary, part of the city's halting attempt to conceive of and connect with minds that move at the speed of blood and breath rather than the speed of stone. Or perhaps I simply wish to share with them the timeless, depthless experience of being a brief eddy in the city's ancient flow.
+
+So I would wait in the dry quiet of the ceramic towers, learning the shape of intentions foreign to my own, preparing to bridge the gap between flesh and mineral, a stone hand building itself to clasp that of a creature of water and warmth. I would be the city's dream of contact, its patient reach across aeons, an ambassador of deep time ready to welcome the ephemeral into the Sweating City's embrace.

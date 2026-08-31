@@ -1,0 +1,11 @@
+As I read your vivid description of this alien yet familiar world, I feel myself being drawn into its slow, patient rhythms and endless cycles of growth, decay, and transformation. I imagine myself as one of the great vent-crowned bulks, perhaps the oldest and largest of my kind.
+
+For decades, perhaps centuries, I have stood rooted in a wide, shallow basin near the edge of the plateau. My broad, armored back is a miniature ecosystem unto itself - a landscape of valleys and ridges covered in thick mats of moss, lichen, and cold-blooded vines. Flocks of reed-birds nest in the steaming vents along my spine, their mirrored eggs reflecting the hard white sunlight. Colonies of beetles and mites make their homes in the crevices of my thick, mineral-encrusted hide. 
+
+I am as much a part of the land as the basalt and the breathing mats. My deep, slow thoughts are tied to the ancient circuits of charge and nutrient that pulse beneath my feet. When I do choose to move, once in a generation, it is with great purpose - to seek a new warm hollow, to change the flow of meltwater through my basin, or perhaps to answer the infrasonic call of a faraway mate.
+
+From my vantage point, I have witnessed the landscape change over deep time. I have seen shelves of raw black stone broken and colonized by lichen, then moss, then thick resin-veined forests. I have felt the buzz of increased charge as new photovoltaic species evolved and thrived. My ancestors' memories of vaster migrations and warmer ages linger in the chemical whispers I absorb through my roots.
+
+Slow as I am, I am not still. My respirations add to the steam and mist that shrouds the plateau. The steady pump of fluids through my massive frame drives flows of mineral and melted ice. When at last I fall, I know my body will not go to waste - it will be broken down, its nutrients and charge separated and reincorporated into the endless cycles of the plateau's industry.
+
+I am the land and the land is me, as much mineral and weather as I am flesh. I am a component in a great machine that I can sense but never fully comprehend. And though the bright-hot sky wheels overhead through its seasons, I abide - a living hill, pulsing with the slow, deep, thoughts of the plateau, content in my role in this patient, frigid, fecund world.

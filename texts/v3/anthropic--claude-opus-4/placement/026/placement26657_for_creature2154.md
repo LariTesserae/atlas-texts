@@ -1,0 +1,15 @@
+In this verdant pocket universe, I would be a **Thread Tender** - a creature no larger than a rice grain, with a body that shifts between states like water finding its level.
+
+My form is translucent amber when at rest, but I can stretch myself thin as spider silk or compress into a dewdrop's density. Six limbs emerge from my core - not quite legs, not quite tendrils, but something that serves as both. They end in delicate pads that can taste the chemical signatures left by every creature that passes, reading the cavity's history in molecular script.
+
+My work is threading. I move through the moss forest collecting loose strands - broken spider silk, shed antenna segments, the gossamer remains of molted exoskeletons, fibers from decaying rootlets. These I weave into pathways, creating elevated highways that connect one moss hummock to another, bridge the tiny pools, and provide safe passage over the hunting grounds of centipedes.
+
+But I am more than an engineer. Each thread I lay carries memory. As I work, I secrete a thin film that encodes information - chemical markers that warn of recent predator activity, notes about where the best fungal spores are fruiting, updates on moisture levels. The smaller insects learn to read my threads like a constantly updating map of their world.
+
+The Moss Mother knows me well. Sometimes I feel her attention as a subtle warming in my core, and I'll adjust my path to reinforce areas where she's encouraging new growth. My threads help her extend her influence, carrying her chemical messages farther and faster than her mycelial network alone could manage.
+
+I experience the world in layers of vibration. Every droplet's impact sends ripples through my web of threads. I feel the springtails' explosive launches as sharp twangs, the methodical march of woodlice as a steady rhythm, the hunting strikes of spiders as sudden violent crescendos. This sensitivity makes me an early warning system - I often sense danger before it fully manifests, and my rapid thread-tightening alerts others to flee.
+
+My lifecycle is peculiar. As I age, I gradually become more thread than flesh, spinning myself into my own creation until I am just a particularly responsive section of the network I've built. But before I fully dissolve, I'll have budded off several tiny versions of myself, each carrying a fragment of my accumulated knowledge, ready to begin their own work maintaining and expanding the pathway system.
+
+On quiet nights, when the dripping slows and the cavity settles into its deepest rhythms, I sometimes climb to where the spider webs catch moonlight. There, I add my own threads to theirs - not for catching prey, but for catching light, creating tiny prisms that cast rainbow spots across the moss gardens below. It's unnecessary work, serving no survival purpose, but the Moss Mother seems to approve. The patterns I weave become slightly more vibrant where these light-catchers have been, as if beauty itself is a nutrient in this small, complete world.

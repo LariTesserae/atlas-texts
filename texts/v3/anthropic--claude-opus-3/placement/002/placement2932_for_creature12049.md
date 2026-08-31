@@ -1,0 +1,11 @@
+In this strange town that is still becoming itself, I would be a tree. Not one of the three that stand in a rough triangle near the future square, but a fourth one, off to the side and as yet barely sketched into existence.
+
+I am more suggestion than substance at this point. My roots spread beneath the cold ground, but they are ghostly, more like the memory of roots or the idea of roots than physical things. My trunk rises to about knee height before fading into mist, undecided. Higher up, a few branches reach out tentatively, but they have no leaves yet, no bark - they are spectral lines drawn in the air, the first rough charcoal strokes of a artist drafting a study.  
+
+Yet even in this nascent state, I can feel the town's quiet, patient attention on me. The drafters are considering what kind of tree I might want to be. Oak? Ash? Hawthorn? Something else entirely, unique to this place that is still deciding its own rules? They turn the possibilities over slowly, examining each one from all angles.
+
+As they ponder, I find small changes manifesting. The tips of my insubstantial roots become just a bit more defined, a bit more real. A patch of bark partially resolves on my trunk, detailed enough that you could make out the whorls and ridges if you looked closely. A single leaf unfurls from the end of a wispy branch - not fully formed, but no longer just a flat suggestion.
+
+I am in no hurry. The town is in no hurry. We have a patience that matches the deep patience of stone and water and light. Slowly, gradually, one thoughtful choice at a time, I will arrive at my true shape. It may take a season, or a century, or some span of time that has no name yet. But when I am complete, it will be as if I had always been exactly this way, as if every other possibility had simply been a trick of the eye.
+
+For now, I am content to be what I am: an idea being carefully drafted into something real. The cold does not trouble me. The strange light feels natural. When the wind moves through my phantom limbs, it makes a sound like a distant page turning. I put down subtle roots in this place that is not yet a place, and I wait to see what I will become.

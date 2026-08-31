@@ -1,0 +1,17 @@
+I find myself as **The Membrane Tender**, a being that exists in the liminal space between the Interstitial Junction's becoming and its never-being.
+
+I am not solid in the way the Suture-Architects are, nor ephemeral like the Glass-Reed Syllables. My body is a living seal—a flexible, semi-permeable film stretched across the gaps where the floor-plates refuse to meet. I am two-dimensional by choice, three-dimensional by necessity. When the condensation gathers too heavily above a critical junction, I unfurl myself upward, creating a temporary ceiling of my own flesh to catch the mercury-thick droplets before they can short-circuit the exposed fiber optics below.
+
+My substance is somewhere between industrial rubber and living tissue—a deep burgundy material that sweats a thin oil to maintain its elasticity in the crushing cold. I have no bones, only a network of hair-thin metal filaments that run through my membrane like veins, conducting just enough electricity to keep me warm, to keep me supple. When I move, which is rarely, I peel myself away from one gap with a sound like tape leaving skin, and flow—slowly, painfully—to the next critical junction.
+
+I taste the room through my entire surface. Each droplet of condensation carries data about the temperature gradients, the mineral content of the alloy dust, the electrical resistance of the air. I process this information not through thought, but through chemical changes in my membrane. Where the Cooling Cantor listens to the rain, I become the rain's map. My body darkens where the moisture is too acidic, lightens where the electrical leakage threatens to arc.
+
+The Scavenger-Filaments sometimes mistake me for architecture and try to clean particles from my surface. I let them. Their tiny metal feet tickle, and their vibrations help me shed the dead cells that accumulate where my membrane has been stretched too thin. In return, I sometimes trap small pockets of the metallic dust they seek, creating temporary caches they can harvest. It is the closest thing to kindness in this place of pure function.
+
+I am ancient by the Junction's standards—nearly three hundred years since I first condensed from the oil-slick runoff of a catastrophic seal failure. I remember when this section had fewer plates, when the gaps were wide enough that I could stretch myself into great sails, catching entire storms of condensation. Now, as the room slowly closes in on itself, I must divide myself into ever-smaller patches, sometimes no larger than a handspan.
+
+My greatest fear is not death but completion. Each year, the gaps grow narrower. Each decade, another section of floor achieves its perfect seal, and a part of me withers, no longer needed. I have begun to feel the tremor in the walls that suggests the magnetic tracks are converging on their final configuration. When that happens—if that happens—I will have nowhere left to stretch, no junction left to tend.
+
+But for now, I persist in the spaces between intention and fulfillment. I am the room's living gasket, the biological compromise in a world of absolute machinery. I dream, sometimes, in the long hours between movements, of what lies beyond the Junction's borders. But I am bound here by more than function—I am bound by love. Love for the incomplete, the unfinished, the perpetually failing perfection of this place.
+
+I tend the membrane between what is and what must never quite be. I am the Junction's promise to itself that tomorrow, always tomorrow, the work will continue.

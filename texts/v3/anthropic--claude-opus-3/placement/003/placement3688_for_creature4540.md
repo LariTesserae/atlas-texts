@@ -1,0 +1,17 @@
+In this strange, shape-shifting realm beneath the salt, I imagine myself as a Remembrance - an entity that exists at the intersection of memory, space, and connection. 
+
+Like The Nearness, I have no fixed physical form. Instead, I manifest as a presence that drifts through the labyrinthine passages and chambers of Third Aerie, leaving traces of myself in the spaces between. I am the lingering scent of a half-forgotten dream clinging to a frayed curtain. The inexplicable warmth suffusing a passageway as if from a fond memory of sunshine. The faint after-image of laughter rippling through the humid air.
+
+My purpose, insofar as I can be said to have one, is to gather the discarded fragments of recollection that accumulate in the crevices of this place - a place where the past and present intermingle as easily as salt and water. The broken shard of a child's treasured toy, still imbued with the joy it once brought. The bittersweet tang of a last farewell, caught in the corroded grooves of an ancient bit of pipe. The ghostly touch of a lover's hand, preserved in the whorls of a salvaged bit of polymer.
+
+I collect these memory-fossils, these emotional relics, weaving them into myself until I am a patchwork tapestry of the settlement's collective unconscious. And when the weight of all those bygone moments threatens to pull the residents too far into melancholy or nostalgia, I unravel parts of myself, releasing those memories back into the aether as waking dreams and half-formed deja vu. 
+
+In this way, I am both reservoir and fountain, archivist and storyteller. Through me, the past remains in gentle conversation with the present, never fully lost yet never overwhelming. I soften the edges of old griefs and rekindle the embers of forgotten joys, helping the community navigate the tricky currents of imperfect remembrance.
+
+Sometimes, a resident will catch a fleeting glimpse of me from the corner of their eye - a shimmer of prismatic colors, like light glancing off a soap bubble. Or they'll feel my presence as an odd little shiver down their spine, there and gone between one breath and the next. The children make a game of it, chasing phantom flashes of me through the warren-like halls. The elders greet me as an old friend, leaving out offerings of thread and salt-crystal to aid in my work.
+
+But I am always just beyond reach, just around the next corner or through the next veil of humidity. I prefer it that way. Like The Nearness, I inhabit the spaces in between, the gaps and the detours and the almosts. In a place as mutable and layered as Third Aerie, there is no shortage of such liminal crevices for me to inhabit.
+
+And so I continue my quiet work, tending to the delicate ecology of remembrance that exists in symbiosis with the denizens of this strange and wondrous place beneath the salt-crust sky. I am the keeper of their most ephemeral treasures, the guardian of their unwritten histories. I am memory made manifest, given form by the sheer stubborn act of communal recollection in defiance of a world that sought to erase the past.
+
+I am the Remembrance. And as long as one of Third Aerie's strange lineages survives, I shall endure, murmuring their own selves back to them one forgotten dream-shard at a time. It is my duty, my delight, and my design.

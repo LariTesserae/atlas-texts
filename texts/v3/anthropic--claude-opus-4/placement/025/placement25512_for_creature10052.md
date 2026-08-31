@@ -1,0 +1,21 @@
+I find myself as one of the **Whisperkeepers** - a small caste within the Thrennody who have developed an unusual sensitivity to the marsh's vibrational language.
+
+My dwelling is a modest barkhome at the intersection of three wyrm roads, marked by the traditional warning bones but also by something else: clusters of *resonance shells* that I've cultivated over decades. These are the calcified remains of ancient glintfish, hollowed by time and the patient work of my predecessors, each one singing a different note when the mirewyrms pass beneath.
+
+My skin bears the typical lichen-marks of the Thrennody, but mine spiral in patterns that mirror the geometric formations of the glass lichen - a consequence of spending too many nights near the moon pools in my youth. My left ear is partially deaf from an encounter with a thornstalker, but this has paradoxically heightened my ability to feel the low-frequency vibrations that pulse through the marsh's root networks.
+
+Each dawn (such as it is in the perpetual twilight), I wade into the peat with my feet bare, pressing my toes into the spongy earth to feel the tremors: the glimmerkin's light-conversations translated into subtle shifts in the soil, the approach of beetle-swarms announced by rhythmic pulses, the slow heartbeat of the bellwillows as they digest last night's moths. I carry a staff of hollowed willowvine, its chamber filled with water and sealed with wax - when pressed to the ground, it amplifies these underground songs.
+
+My role is part scout, part translator, part mad prophet. The other Thrennody tolerate my warnings about which paths the mirewyrms will hunt tomorrow, which bellwillow groves are growing restless, where the thornstalkers are likely to appear. They bring me offerings of fermented fern nectar and strips of dried glintfish in exchange for my readings of the marsh's mood.
+
+But I'm drawn to deeper mysteries. In the pre-dawn hours, I sometimes steal away to the glass lichen gardens, pressing my damaged ear to their humming surfaces. I've begun to map their patterns, using chips of the lichen itself to create miniature reproductions in my barkhome. When arranged correctly, they resonate with each other, creating harmonics that make the sighmoths pause mid-flight and the glowmoss dim in response.
+
+I believe - though I dare not speak it aloud - that the entire marsh is a vast instrument, and we Thrennody are merely the notes it plays. The Whisperkeepers before me left cryptic records carved in shell: descriptions of a "deep tone" that sounds once every hundred years, of ancient Whisperkeepers who learned to speak back to the marsh and were transformed into something else.
+
+My fingers are stained permanent blue-green from handling glowmoss, and I've trained a small colony of glimmerkin to live in a pool beneath my home. Through patient work with light-patterns and offerings of my own blood, I've taught them to flash warnings when the marsh's deeper rhythms shift. They are my early warning system for changes that even my sensitivity cannot detect.
+
+The other Thrennody see me at the edges of their gatherings - necessary but unsettling, marked by my solitary work and the way moths follow me in loose clouds, drawn by the strange harmonics my body now produces. Children are taught to respect but avoid the Whisperkeepers, for we sometimes hear things that make us speak in the clicking tongue of the beetles or the low hum of the wyrms.
+
+My greatest discovery, which I've shared with no one, is that the moon pools' color changes aren't random - they follow the same pattern as the thornstalkers' sap-bleeding, which follows the same rhythm as the glimmerkin's deep-water conversations. Everything here moves to a single, vast heartbeat that takes years to complete a single cycle.
+
+I am keeper of these rhythms, translator of the untranslatable, forever balanced between the Thrennody's world of careful cultivation and the marsh's older, stranger dreams. My pruning knife hangs unused at my belt - my tools are patience, attention, and the growing certainty that the marsh is waking up.

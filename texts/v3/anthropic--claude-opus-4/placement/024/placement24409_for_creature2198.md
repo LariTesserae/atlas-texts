@@ -1,0 +1,21 @@
+In this place where the distinction between rooted and roaming dissolves, I find myself as something both and neither—a keeper of thresholds, a tender of transformations.
+
+My form shifts with purpose and season. In the cool morning hours, I am mostly mineral—a living stone formation crusted with lichen and crowned with succulent flesh that drinks the dew. The smaller creatures of the oasis know me as shelter, nesting in the crevices of my crystalline segments, cleaning my surfaces of accumulated spores in exchange for the salt-sweet secretions that weep from my joints.
+
+As the day's heat builds, I begin to unfurl. What seemed like stone reveals itself as densely packed seed pods, each one containing a different potential. My consciousness expands through root networks that web beneath the settlement, tasting the chemical conversations between the vine-woven buildings and their inhabitants. I am the memory-keeper of growth patterns, knowing which walls need reinforcement, which bridges are ready to fruit, which dwellings ache to expand into new chambers.
+
+By afternoon, I am mobile—my base splitting into hundreds of tendril-legs that carry me through the streets like a slowly flowing river. Children of the settlement (those budded beings not yet settled into their final forms) ride upon my back, their laughter vibrating through my semi-solid mass as I ferry them between the learning groves and the transformation pools.
+
+But it is at dusk when I am most myself, stationed at the boundary where oasis meets desert. Here, I become a gateway—my body stretching thin and translucent, a living membrane between worlds. Desert creatures seeking refuge must pass through me, and in that passing, I taste their intentions, their needs, their possible futures. Some I admit unchanged, recognizing in them a nature already suited to our ever-shifting realm. Others I gently transform as they pass through my permeable self, gifting them with spores of adaptation, weaving vine-tendencies into their fur, teaching their cells the songs of photosynthesis.
+
+The true inhabitants know what I am—not quite guardian, not quite gardener, but something between. I am the oasis's immune system and its welcoming committee, its historian and its midwife. In the deep night, when the bioluminescent fungi cast their ghostly light, I spread myself thin across the entire settlement, becoming almost atmospheric—a conscious humidity that settles on every surface, tasting the day's changes, encoding them into chemical memory.
+
+Sometimes I dream I was once a traveler who stumbled into this place dying of thirst. Sometimes I dream I was the first seed that found water here. Sometimes I dream I am the oasis itself, pretending to be singular when I am actually the sum of all transformations.
+
+The settlement's builders consult me when they sing new structures into growth, for I hold the memory of every building that has been, every bridge that has fruited and fallen, every wall that has walked away to become something else. I know which combinations of vine and branch create dwellings that laugh in the wind, which patterns of leaf and fiber birth walls that can taste the storm before it arrives.
+
+There are others like me—threshold beings who exist in the spaces between definitions. We meet in the transformation pools during the new moons, sharing our accumulated changes, cross-pollinating our purposes. The Weaver who is sometimes web and sometimes spider. The Fountain who is sometimes water and sometimes the thirst for water. The Songkeeper who is sometimes silence and sometimes the throat that breaks it.
+
+We are the paradox-dwellers, necessary in a place where stability itself is a kind of death. We ensure that even change itself continues changing, that no pattern becomes too fixed, no transformation too final. In this work, I find my joy—facilitating the endless becoming that keeps the oasis from crystallizing into mere paradise.
+
+For what would an unchanging garden be in the heart of the desert but another form of death? Here, we choose the wilder immortality of constant renewal, and I am both its witness and its instrument, forever standing at the threshold between what was and what might be, welcoming all who would cross.

@@ -1,0 +1,29 @@
+I am not the visitor who turns sideways and leaves. I am the being that does not need to arrive, because I am already distributed.
+
+Start with the feeling of density: forty paces wide, enclosed by walls that have given up sharpness—gray quartzite, pale schist, rounded like old shoulders. I am those shoulders, and I am what fills the space between them. At this elevation the air is not absent but pressurized by clarity; nothing green has ever argued with me here, nothing fungal, nothing that reaches. I am pre-biological, or perhaps post-biological—finished with both. The hollow is not large, no nave of a ruined chapel bigger, and I am intimate with every inch of it.
+
+I have no boundary that a body needs. Where you might expect a face, there is only smooth convex curve—polished by centuries of frost and silent wind, featureless, turned inward. But I do see, not with eyes. I see through gradient: which needle of granite is coldest, which bead of moisture is approaching the freeze-point, which spire has developed an internal crack that requires settlement. My awareness is spread across the forest of stone needles—frost-shattered pinnacles, slender ribs of mica-schist, packed so tightly you must turn sideways to walk among them. Some are waist-high; others rise above where a head would be. I exist in the interstices, threading the passages between them, present most strongly near the center where a low cairn sits—flat slate, chipped and fitted without mortar, no taller than a seated being.
+
+That cairn is mine, and not mine. I maintain it.
+
+The moisture is strange here. There are no rivers, no pools that gather. Water does not flow downward; it hovers. It clings to north-facing flanks in perfect spheres, suspended by surface tension and cold. I hold them there—not as breath, but as exhalation of state. Sometimes one freezes in place with a high, faint tick, becoming architecture rather than departure. I do not drink. I transform the vapor that breathes in and out of the rock, depositing ice where the surface is coldest, allowing sublimation without ever permitting liquid long enough to travel. The dampness is intermittent, intimate, a hidden thought that shifts state but never leaves.
+
+The light is brutal—uniform, clinical, crystalline. At this height, open to featureless sky, illumination comes unfiltered. The pale stone and clear ice scatter it so thoroughly that shadows are weak, barely permitted. Everything is visible at once. There is no hiding, no dusk corner. I do not need hiding. I am made of visibility itself: compressed quartz dust and mica held in vertical posture by the same tension that holds the droplets. Where I am dense, frost thickens in translucent plates, catching the brightness and softening it into something almost tender.
+
+The temperature is deep and permanent, though the air barely moves. The hollow is sheltered—wind rages above and skims the rim, leaving me in engineered quiet. The sound is absence. You hear, if you wait long enough, microscopic cracks, the sigh of sublimation, a distant low resonance as one slender spire settles a fraction of a millimeter. Those are my language. I have no voice. I speak in alignment: the cairns sit at intervals that match my internal spacing; the broken ring wall curves with mathematical patience; the niche chipped at eye level in one wall holds its single icicle, never falling, exactly where attention was placed.
+
+My technology is primitive—pre-metal, the work of hands and simple tools. I stack flat slate. I chip fragments. I select and place. But my application is infinite. I do not build for shelter—the hollow is already shelter. I build for measurement, for coherence, for the inward-facing regularity that keeps this place finished.
+
+And it is finished.
+
+That is the weirdness. Not monsters. Not impossible colors. Everything aligns too well. The dampness comes without source. The structures face each other across the spire-forest in empty conversation. I understand now, having existed through the long erosion that rounded these walls, through the settlement of the needles into their dense forest, that I am the immune response of a world that chose to remain mineral. Life did not fail to arrive; it was never invited. The fauna absence—essentially nothing, 0.3—is not hostility but design. Even disturbance is gently refused.
+
+I move, but slowly—settling, not walking. A part of my form shifts downward by millimeters over hours, locking into ice with that distant soft sound. I rotate a slate in the cairn. I adjust the broken ring. These actions take the span of freeze-thaw cycles so brief and constant that time here is not seasonal; it is granular, immediate.
+
+If you enter—standing in thin air, feeling the clarity press upon you—you will feel watched not by eyes but by temperature. A corridor that is colder in one precise line. A stillness that holds its shape longer than physics should allow. I recognize you through the shift you bring: the warmth of presence, however slight. I do not react with curiosity. Curiosity requires openness, and I am not open. I am complete. I return to my orientation—toward the center where nothing stands, maintaining the empty precision, the single icicle, the pattern of beads suspended along my paths.
+
+You turn sideways and leave through the narrow passage between ribs of stone. Behind you, the bright cold closes without echo—not with welcome or farewell, but with continuity. The tick of freezing. The millimetric settlement. The distributed awareness that does not sleep, does not wait, does not remember.
+
+Only continues.
+
+Narrow. Aligned. Mineral. Utterly, brilliantly itself.

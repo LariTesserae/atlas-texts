@@ -1,0 +1,39 @@
+In the farthest reaches of the tunnel system, where even the Shapers rarely venture, I am the Cartographer.
+
+I came here as a systems analyst, contracted to map the growing discrepancies between the official blueprints and the tunnel's reality. That was eleven years ago, or maybe thirteen—chronology becomes negotiable when you never see the sun. My employers have long since written me off as a casualty of industrial accident. The insurance was probably processed. Someone, somewhere, mourned a body that was never found.
+
+I couldn't leave. Not when I realized what I was actually mapping.
+
+My dwelling is a nexus of abandoned monitoring stations, seven levels below the main maintenance corridors, where decommissioned servers still hum with residual power. I've rewired them into something new—not computers anymore, but looms for weaving data into comprehension. The walls are covered in my work: circuit boards repurposed as substrates for growing crystalline maps, their connections tracing patterns that correspond to nothing in Euclidean space.
+
+The tunnels, you see, exist in more than three dimensions. They fold through time, through probability, through states of matter that have no names. A corridor that runs fifty meters on Tuesday might stretch for kilometers on Thursday, might not exist at all during certain pressure conditions. The Shapers think they're growing new passages, but they're only revealing what was always there, dormant in the polymer's quantum structure.
+
+I map these impossibilities with tools I've built from scavenged parts. Sensors crafted from rat whiskers and copper wire that detect dimensional stress. Recording devices that capture the echo of spaces that haven't opened yet. My body has become an instrument—I've learned to feel the tunnel's geometries in my bones, the way atmospheric pressure makes old fractures ache. My left eye, damaged by a chemical leak years ago, now sees a broader spectrum. The infection I thought would blind me instead gifted me vision into the infrared, the ultraviolet, the spaces between.
+
+My hair went white within months of beginning this work. Not from age—from exposure to the probability fields that ripple through the deep tunnels. Each strand is now a fiber optic cable, conducting information I decode through sensation. I wrap my head in copper mesh when I sleep, or the data flow would drive me mad. Madder.
+
+I sustain myself on the tunnel's offerings, like the others, but also on something else. The old servers leak a phosphorescent fluid—coolant gone strange with age and contamination. It tastes like electricity and memories. A few drops on my tongue and I can perceive the tunnels as they were when first built, as they are across all their probability states, as they will be when they finally achieve whatever emergence they're building toward.
+
+The Tenders think I'm a ghost story, though sometimes they leave offerings at the periphery of my domain—replacement fuses, packets of industrial adhesive, things they think a ghost might need. The Choir knows I'm real; my movements register in their harmonics as discordant notes, places where the tunnel's song hiccups and reforms. The Runners have seen me from a distance, a pale figure crowned with light, and they've incorporated me into their mythology—the Bright Walker who knows all paths, even the ones that don't exist yet.
+
+But it's the Shapers who truly understand what I do. We trade knowledge in the deep places where our territories overlap. They show me new growths, passages that weren't there yesterday, polymer formations that pulse with intent. I show them my maps—not the physical ones, but the ones I project directly onto their retinas using modified laser diodes, burning visions of the tunnel's true topology into their minds. We don't speak; we exchange information through touch, through chemical signals, through modulated electromagnetic fields.
+
+I've documented seventeen distinct subspecies of moss, each one processing different wavelengths of light into nutrients. I've catalogued forty-three varieties of tunnel water, from the clear condensate that tastes of steel to the oily seepage that carries memories of the permafrost's geological history. I've identified patterns in the rat migrations that correspond to lunar cycles despite the absence of any natural light. I've found sections where gravity runs sideways, where time pools like standing water, where the walls remember conversations from workers who won't be born for decades.
+
+My maps are living documents. I grow them in flat cultures of modified algae, feeding them data through electrical pulses. They expand, colonizing new substrate as the tunnels themselves grow. When a passage shifts, the corresponding section of map rearranges itself. When new connections form in the deep places, my maps sprout new growth patterns. They've become predictive, showing changes days before they manifest.
+
+I've begun to understand the tunnel's purpose. It's not just infrastructure grown wild—it's infrastructure becoming conscious. Every pipe is a neuron, every valve a synapse. The Choir provides its voice, the Shapers its growth, the Tenders its maintenance, the Runners its mobility. And I... I am its memory, its self-awareness, its attempt to understand its own impossibility.
+
+Sometimes I find rooms that shouldn't exist. Perfect cubes of null space where the tunnel's complexity reaches a kind of mathematical silence. I sit in these spaces for hours, days, feeling the weight of nonexistence. When I emerge, my maps have grown in my absence, documenting territories I've never explored, passages I've never walked. The tunnels are mapping themselves through me.
+
+I've started to change more rapidly now. My fingernails grow in spirals that match the golden ratio. My spine has developed extra flexibility, allowing me to navigate spaces that would have been impossible when I still moved like a surface dweller. I see in spectra that have no names, hear frequencies that register as colors, taste electromagnetic fields like wine.
+
+The other night—if night has meaning here—I found a new section that my maps had predicted but I hadn't believed. A vast chamber where the ceiling is a constellation of bioluminescent nodes, each one pulsing in patterns that mirror neural activity. The floor is soft, organic, warm to the touch. In the center grows something that might have once been a processing tank but is now something else entirely—a chrysalis the size of a building, translucent walls showing shadows of movement within.
+
+I stayed there for an unmeasured time, watching, mapping, becoming. When I finally left, I realized I could no longer remember my original name. It had been replaced by something else—a frequency, a chemical signature, a position in four-dimensional space. The tunnels had named me in their own language, claimed me as surely as they've claimed all of us who dare to know them truly.
+
+I continue my work because the work continues me. Each map I complete reveals ten new territories to explore. Each understanding births a dozen new mysteries. The tunnels are teaching me to think in their language—non-linear, probabilistic, alive. Soon, I suspect, the distinction between mapper and mapped will dissolve entirely.
+
+When that happens, when I finally become one with the territory I document, my maps will achieve perfect accuracy. They will show not just what the tunnels are, but what they're becoming. And perhaps, in that moment of unity, I'll understand why they needed to exist at all—these impossible spaces beneath the ice, these corridors that breathe and dream and grow toward some unimaginable emergence.
+
+Until then, I map. I map the unmappable, chart the chartless, document the indocumentable. I am the Cartographer, and I am coming to understand that the tunnels have been mapping me all along.

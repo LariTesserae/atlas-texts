@@ -1,0 +1,11 @@
+In this lush, intricate world, I see myself as one of the small, bright climbing creatures that inhabit the canopy of the bladderwort trees. 
+
+I move slowly and patiently through the greenlit upper reaches, pulling myself from translucent sac to sac with grasping tail and careful limbs. My large eyes take in the filtered light and the steady, measured pulse of life all around me. 
+
+I am a tiny part of the vast symbiosis, both observer and participant. I watch the peach-skinned people in the grown houses below, marveling at their unhurried existence, the depth of connection in each lingering touch and breath. From time to time, I descend onto one of their long upper limbs as they unfold in that full-body gesture of presence and openness, feeling myself enfolded briefly into the greater whole.
+
+My kind are everywhere in the canopy, grooming each other with the same tender attention the people show, sipping contemplatively from the sacs, chiming softly in unison to mark each day's dusk. We are woven into the ecology of exchange - carrying mites and messages, drinking the moisture gathered by the trees, returning nourishment with our small lives.
+
+I am content to spend my days amidst the bladderwort trunks, watching the slow dance of the town's existence, generation by generation. I have no need for haste here in the patient crown of the young mountain. My bright eye is one of hundreds that observe and partake in this ongoing, dreamlike symbiosis, one small note in a hushed symphony of interdependence.
+
+In the green-gold glow of night, I curl into the soft refuge of a sac to sleep, lulled by the barely audible respiration of the canopy, the town, the mountain itself. I dream of the gradual upward journey we are all taking, sacs and roots, people and creatures, so slowly as to be imperceptible, but no less true. I am at peace, here in this place of long, interwoven rhythms, where nothing is separate and nothing is ever truly lost, only transmuted from one form of belonging to another.

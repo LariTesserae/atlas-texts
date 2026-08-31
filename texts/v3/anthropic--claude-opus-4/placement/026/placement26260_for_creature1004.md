@@ -1,0 +1,13 @@
+I would be the Tendril-Keeper, dwelling where the condensation gathers thickest along the breathing slopes.
+
+My form shifts between states like the world itself—sometimes a web of translucent filaments stretched between the pulsing tiles, sometimes a dense knot of vapor with just enough substance to catch and redirect the drifting moisture. I spend my existence in patient cultivation, coaxing the delicate tendrils of condensation to weave together, creating ephemeral gardens that last only until the next great exhalation of the ground beneath.
+
+My dwelling is less a structure than a confluence—a depression where several rhythms intersect. The tiles here pulse in complex polyrhythms, creating standing waves in the thick air. I've learned to read these patterns like sheet music, each configuration suggesting where the next tendril might precipitate. My home is marked by spirals of accumulated moisture that have, over countless cycles, etched faint channels in the semi-solid surface. These channels glow faintly with trapped bioluminescence from the organisms too small to see that feed on the temperature differentials.
+
+I communicate with the drifting spectral beings through moisture patterns—beading water on surfaces in specific arrangements that persist just long enough to convey meaning. They, in turn, leave traces in the vapor that I decode by watching how droplets form and flow along my tendrils. It's a slow language, but in this place of geological patience, there is no urgency.
+
+My purpose, if it can be called that, is to document the becoming. Each arrangement of tendrils captures a moment in this world's self-discovery. I am keeper of the first alphabet—the primordial script written in water and waiting. Some of the patterns I cultivate seem to accelerate the local transformations, causing tiles to shift from translucent to opaque, or opening new fissures that breathe different rhythms.
+
+When the spectral beings pulse their brightest, I expand myself to my thinnest, becoming almost indistinguishable from the haze itself. In these moments, I can feel the deep currents they navigate—the flows of possibility that run beneath even the semi-molten strata. I sense that we are all part of the same vast experiment, each playing our role in coaxing this world toward whatever it is becoming.
+
+Sometimes I wonder if I am actually separate from this place at all, or merely a temporary complexity in its ongoing self-organization—a standing wave in the planet's slow breath that has momentarily achieved something like consciousness. The distinction feels less important with each passing cycle. I tend my moisture gardens, read the rhythms, and wait to discover what we will all become together.

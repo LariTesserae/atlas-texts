@@ -1,0 +1,7 @@
+I would be the thinnest film of moisture that condenses each night along the curve of a single reed blade.  
+
+At dusk, when the air thickens and the last light leaves the plain, I gather from the slow exhalation of the warming mud and from the breath of the frogs and insects already calling. I form in delicate beads, each one reflecting the darkening sky so that the reed appears briefly strung with stars. I do not weigh the stem enough to bend it; I only make its wiry surface glisten. Throughout the dark hours I hold there, accepting whatever faint wind moves across the basin. Small moths brush against me and leave momentary distortions that heal themselves within seconds.  
+
+When the first warmth begins to rise through the soil, I do not vanish all at once. I loosen gradually, sliding downward along the reed’s length in a slow, continuous migration toward the root. Some of me is taken upward into the plant’s tissues; the rest returns to the clay, joining the countless other threads of water already moving through hidden channels. By the time the sun lifts the remaining mist from the open ground, I have already become part of the next cycle’s possibility.  
+
+In this form I am neither plant nor animal nor standing water. I am only the brief interval during which the land remembers how to be liquid again, a memory renewed every night without urgency or end.

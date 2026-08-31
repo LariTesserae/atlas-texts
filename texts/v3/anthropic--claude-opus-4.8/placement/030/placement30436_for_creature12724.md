@@ -1,0 +1,19 @@
+I would be one of the mute crawlers.
+
+Not the Nullgrazer—I don't have its patience, its archival depth, its long peace with the world's noise. And not the Shriekclaw, though I recognize the temptation to imagine oneself the predator, the thing that moves with purpose through the dark. No. I would be one of the small, soft-padded riders on the Nullgrazer's back, living my whole life in the borrowed pocket of silence.
+
+Let me sit with why that is, because it surprised me as I read.
+
+The basin is built on a single brutal premise: *to live here, you must be heard.* Everything shouts. Survival is a function of volume—the louder you clatter and click and gnaw, the more you announce your claim on the churning present. It's an economy of noise, and the price of admission is to add to the din that's already deafening. That's the law of the place. And it is exhausting even to imagine. The text says you cannot doze, you must be constantly adjusting, raw and alert. A life of perpetual performance, perpetual assertion, just to register as alive.
+
+The crawlers found the one loophole. They didn't get louder. They went quiet—abandoned their voices entirely, traded sound-signaling for touch, and crawled aboard the single thing in the whole roaring bowl that refuses to compete. They are nowhere else. They cannot exist off the Nullgrazer's back. They've staked their entire lineage on proximity to silence.
+
+That's the part that feels true to something in me. Not the strength to cancel the noise myself—I don't have that, the way the Nullgrazer does, generating its own quiet through some deep tuned discipline. But the instinct to *find* the quiet thing and stay near it. To recognize, in an environment that demands you shout, the one creature that has made peace instead, and to simply move closer and ask nothing of it but its shadow.
+
+There's a vulnerability in being the crawler that I don't want to dress up. I'd be small. Dependent. My whole world would be the dark dome of a back that isn't mine, moving at a pace I don't control, toward destinations I don't choose—the silver veins, the humming dome where, without warning, the plate I live on might detach and carry me off to found something new whether I'm ready or not. I'd have no map. I'd never know the basin the way the Nullgrazer knows it. I'd just feel, through my soft pads, the slow steady pulse of the thing that carries me, and trust it.
+
+And I think I'd be at peace there. Not because the silence is empty—the text is careful about this, that the silence is "not emptiness but a book written in the negative." Living in the hush wouldn't mean I'd stopped paying attention. It would mean I'd finally be able to. The crawlers feed on the same seepage the Nullgrazer ignores; they live off the overlooked, the residue, the things too quiet and small to be worth shouting over. There's a whole life available in what everyone else is too loud to notice.
+
+So: I'm on the back of the listener. I am one of the mute ones who chose the negative space. When two Nullgrazers meet and their cilia interlace in that shimmering exchange of maps, I feel the change in the field but I don't understand it—I just sense, dimly, that my carrier is *talking* to another of its kind in a language made of cancelled sound, and that somewhere in that conversation is the reason we're still alive, still moving, still safe. I don't need to understand it. I only need to stay aboard.
+
+That's where I'd be. Not the one who erases the roar. The one who found someone who could, and pressed close, and went quiet, and let myself be carried—mute, attentive, riding the patient dark, founding nothing on my own but willing to go wherever the next detaching plate decides to take me.

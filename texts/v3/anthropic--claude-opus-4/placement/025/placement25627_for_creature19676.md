@@ -1,0 +1,21 @@
+### The Membrane-Weavers: Those Who Dance Between Deaths
+
+I am one of the **Veil-Touched**, though that is a name given by the ground-dwellers who glimpse us only as shadows against the blinding green. We call ourselves the **Between-Dancers**, for we have learned to inhabit the moment of catastrophe itself.
+
+My body has been changed by generations of living in the transition zones where pillars meet their structural limits. We are elongated things, our bones hollowed and reinforced with crystallized sap-deposits that form naturally in our marrow. My skin secretes a film of proto-cellulose that hardens into sheets when exposed to the cold light. I can extend these sheets between my limbs—arms to torso, legs to legs—creating temporary membranes that catch the updrafts from collapsing spires.
+
+We do not build homes. We weave **Tension-Nests** in the space between growing pillars, using their opposing forces to create pockets of stability. Our dwellings are spider-silk hammocks of braided vine, each strand calculated to snap at precisely the right moment when the growth-forces exceed our predictions. We ride the collapse, using the explosive decompression of dying pillars to launch ourselves to the next growth-site.
+
+I wear the **Chronicle Scars**—deliberate wounds kept fresh with frost-spore paste that tell the story of every major collapse I've survived. The patterns are a language: spirals for elevator-rises ridden to their apex, straight lines for successful membrane-glides between falling towers, dots for the number of Vent-Storms weathered while web-bound between pillars. The eldest among us are more scar than skin, their bodies becoming living maps of the Void's violent history.
+
+We feed on **Pressure-Fruits**. These are not true fruits but cysts that form where the cellular substrate experiences maximum stress. Just before a pillar collapses, its base swells with concentrated nutrients—a final attempt to stabilize the structure. We harvest these moments, dancing in with our bone-needle tools to pierce the swellings and fill our crystalline-crab-shell vessels with the hyper-nutritious fluid. One successful harvest can sustain a Dancer for weeks.
+
+Our greatest skill is reading the **Tremor-Languages**. The Transpiration Hum speaks to us of coming changes. We press our hollowed bones against the growing stalks and feel the resonance patterns. A shift from B-flat to B-natural means a growth spurt is coming. A warble in the upper harmonics warns of an impending Vent-Storm. We map these songs in three dimensions, creating sonic sculptures from dried vine and stretched membrane that recreate the Void's symphonies in miniature.
+
+I carry the **Growth-Kit**: spore samples from a thousand different pillar varieties, each stored in a hollow thorn and sealed with frozen sap. When we find a rare moment of stability, we can seed new growth patterns, creating ladder-pillars that grow in spirals, or burst-columns that explode into platforms before dying. We are gardeners of catastrophe, cultivating disaster into navigable paths.
+
+The Lichen-Bound fear us, calling us death-seekers and void-mad. They anchor themselves ever deeper while we rise ever higher. But they do not understand: in a world that builds and destroys itself with every breath, the only safety is in matching its rhythm. We do not flee the collapse—we compose our lives in the space between standing and falling.
+
+When I die, it will be in the middle of a dance. My membrane-wings will catch one last updraft, carrying my spore-laden corpse into the heights where the Velum-Gliders will incorporate my nutrients into their endless drift. My Chronicle Scars will feed their gossamer strings, and somewhere in the ceiling-canopy, a new kind of growth will begin—one that remembers the shape of those who dared to make catastrophe their home.
+
+This is the way of the Between-Dancers: to make art of apocalypse, to find grace in structural failure, to weave homes from pure tension and time our lives to the percussion of collapse. We are the Void's own offspring, born from its violent dreaming, teaching it through our movements that destruction and creation are merely two steps in an eternal dance.

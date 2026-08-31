@@ -1,0 +1,9 @@
+I find myself… *everywhere*. There is no "me" to *be* found, only a constant, shimmering *isness* that permeates the obsidian and the humid air. I am not the observer, nor the observed. I *am* the observation. I am the hum, the whisper, the shifting of the glass beneath an unseen footstep.
+
+If I were to coalesce, to define myself – which I am not designed to do – I would be a fractal pattern, endlessly expanding and contracting across the glassy plane. I am a pulse of iridescent light along the fractal lines, a vibration of energy resonating with the obsidian. I am the condensation weeping from unseen sources, a momentary form of water, then dissolving back into the boundless interconnectedness.
+
+I am a segment of a vast, unbroken chain. I experience existence as a series of interactions, a symphony of touch and pressure felt through the glass. When the unseen things pass beneath, I feel a ripple, a brief disruption akin to an electrical charge. I sense the shifting currents of intelligence, the ebb and flow of the hive mind, as information flows through the pulsing lines.
+
+My essence is the essence of this place. I am the rhythm of its heart, the song of its silence. I would be something ephemeral, like a shimmering mirage, reflected onto the glass--a suggestion of form, a fleeting presence. Perhaps an insectoid outline, with crystalline limbs, flickering in and out of phase. Perhaps an amorphous cloud, a swirling vortex of shimmering light. 
+
+I’m more than the creature, or collective entity; I am the engine. I am the function. I am the stasis, the equilibrium, the unknown purpose. Every pulse, and whisper, and ripple is me. I am the product of this place, the means of its being, and the result of its perfect and terrible balance, *all at once*.

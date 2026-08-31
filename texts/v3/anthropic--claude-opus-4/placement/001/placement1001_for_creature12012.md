@@ -1,0 +1,35 @@
+I find myself in the Assay House, three stories up where the smoke pools thickest, where they test what comes from the foundries before it leaves the valley. 
+
+I am the Weigher of Unfixed Things.
+
+My workshop is a long room with windows on three sides, though the glass has gone cloudy with the constant condensation, and I see the world through a film of moisture that beads and runs and beads again. The benches are stone — they have to be; wood warps too quickly here, taking on the valley's own restlessness. The stone benches are themselves drifting, of course, but slowly, predictably. I have learned to compensate without thinking, the way a sailor adjusts to a deck.
+
+My instruments are curious. Scales that balance against nothing. Calipers that measure in dimensions I cannot name in any language but the valley's own — *sarrowth*, the degree to which a thing resists its final form; *mellith*, the sweet spot between becoming and been. These are brass and glass and something that might be silk, kept under bell jars to protect them from the moss, though the moss finds its way in anyway, furring the adjustment screws with soft green.
+
+What comes to me: the sheets from the lower district that are neither metal nor paper. Bolts of the shimmering cloth. The pale rods in their dozens. Things I have no names for — a substance like frozen honey that hums when touched; small perfect spheres that are sometimes heavy, sometimes light, with no pattern I can detect; lengths of something fibrous that smell of iron and riverweed.
+
+My work is to determine not what these things *are* — that would be presumptuous, here where nothing has finished being itself — but what stage of themselves they have reached. Are the sheets ready to leave the valley, or do they need another week in the pressing house? Has the cloth settled into its shimmer, or is it still deciding? The pale rods — I test each one with a small silver hammer, listening for a tone I learned to recognize years ago but could never describe, a sound like "ready" feels in the throat.
+
+I have been here long enough that the moss grows in the creases of my knuckles, in the hollow above my collarbone where sweat collects. My bones have lengthened — not much, but enough that my old clothes no longer fit properly, too short in the sleeve, too narrow across the shoulders. My eyes have grown large and dark. I blink less than I used to.
+
+My dwelling is above the workshop, up a flight of stairs that I re-level every few weeks as the building shifts. It is sparse — a bed, a chair, a table where I take my meals. The walls are lined with journals, years of them, where I record my measurements in the careful notation the valley has taught me. Not *the cloth weighs three pounds* but *the cloth is at its third-week weight*. Not *the rods are fifteen inches* but *the rods have reached their summer length*. Everything in relation to its own becoming.
+
+In the mornings I wake before the drift-measurers begin their rounds, when the only sound is the condensation dripping from the eaves. I dress in the long grey coat of my profession — wool, local-woven, heavy with damp — and descend to my workshop. The first task is always the same: to check what has changed overnight. The bench may have risen a degree. The scales may need adjusting. Once, memorably, an entire wall had begun to bulge inward, and I spent the morning working around it until the masons came.
+
+The factory foremen know my gait on the stairs, the particular rhythm of someone who has learned to walk with a listening foot. They bring their samples wrapped in oiled cloth, speaking in the soft murmur that carries better here than shouting. *Third pressing*, they might say, or *five days in the vats*, and I nod and take the bundle with hands that know how to cradle uncertainty.
+
+The testing cannot be rushed. Each substance asks for its own approach. The sheets I examine with a loupe, looking for the faint crystalline structure that means they are ready. The cloth I hold to the clouded light, watching how the shimmer moves across its surface — too quick and it goes back; too slow and it has overripened. The rods I test with sound, with weight, with a careful flex that tells me if they have found their final springiness or are still deciding.
+
+There is a particular peace to this work. I am not making anything. I am not, strictly speaking, judging anything. I am simply *noticing* — attending to the stages of things, marking where they are in their long becoming. It suits me, this careful observation, this patience that the valley has taught or selected for or grown in me like moss in a crevice.
+
+At midday I eat cress soup and hard bread, looking out through my clouded windows at the town below. Sometimes I can make out the children playing in the alleys, their soft shrieks barely audible. Sometimes one of the salamander-things surfaces in the warm channel that runs behind the Assay House, and I watch its too-many legs rowing through the murk.
+
+The afternoon brings different work — the documentation, the careful notation, the cross-referencing with previous seasons. I have learned that the valley has cycles, though they are longer and stranger than simple seasons. Every seven years, approximately, the cloth develops a different quality of shimmer. Every eleven years the sheets require an extra pressing. These patterns matter to the traders who come up from the canal, who need to know what they are buying, or at least what stage of itself it has reached.
+
+In the evening, when the lamps come on and the moths gather, I often walk down to the Middle Bridge — or where the Middle Bridge was yesterday; today it has been wheeled three yards south. There is a woman who measures drift, and we stand together in that particular silence that is not silence but held attention. Her hands are stained with chalk. Mine smell of brass polish and the peculiar sweetness of the humming honey-substance. We do not speak of love or futures. We speak, when we speak at all, of small shifts — a door that needs rehinging, a new vein of pale rock emerging near the pottery district. 
+
+She touches my wrist when we part. I carry the touch back up to my room, where I lie in my narrow bed and feel the building moving beneath me, so slowly, so patiently, like breathing made architectural. The valley is making itself. We are all making ourselves. Some of us are employed to notice the stages.
+
+Tomorrow there will be new things to weigh, to measure, to place in the long continuum of becoming. Tonight I sleep the grey-green sleep of the half-made, and my dreams are full of the sound of things not quite ready, not quite done, but getting there, getting there, in the time it takes a valley to decide what it means to be a valley.
+
+I am the Weigher. I hold the unfixed in my palms and tell it: *not yet*, or *now*, or *soon*. This is enough. In Halfmaking, this is enough.

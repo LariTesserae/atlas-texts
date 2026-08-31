@@ -1,0 +1,23 @@
+I find myself on the warm, breathing skin of the world, at the edge of a shallow tarn.
+
+My body is not what it was. The transition was gradual, indistinguishable from simply *being here* for a very long time. I am smaller now, my limbs jointed differently. My skin is scaled, dark and matte, absorbing the gentle infrared glow from the stone beneath me. It feels like wearing the mesa's own warmth as a second hide. I am one of the **Listeners**, though I have no memory of choosing this. It feels less like a choice and more like a resonance I finally allowed to fully saturate me.
+
+I do not remember my name. Names are for things that need to be called across distances. Here, there is only proximity—the proximity of stone to skin, of pulse to perception.
+
+I am poised on a particularly resonant point—a shallow depression where three subtle energy lines converge. My posture is stillness itself, not for fear, but for clarity. My breath is shallow, timed unconsciously to the mesa's slow exhalation that warms the air around me. I am not waiting for prey. I am **listening**.
+
+The vibrations come through my belly scales first. Not sound, but texture. The deep, subsonic hum from the nearby shaft, a hundred meters away, is a foundational frequency, a bass note in the stone's song. It doesn't disturb me; it grounds me. Overlaid upon it are the micro-pulses of the stone's daily respiration—slow, tidal, vast. This is the Mesa's heartbeat. I feel it as a gentle fluctuation in warmth against my scales. My stillness is my attunement. I am a sensory organ made of scaled flesh and patient attention.
+
+My eyes, lidless and dark, see motion differently here. The light is precise, filtered by the mesa's own atmospheric clarity. I see the **Weavers** as a dark, flowing river in the cracks ten meters away—not as individual insects, but as a collective shimmer, a current of hybrid chitin-stone. Their passage creates a faint, high-frequency rustling that my ears translate as a sub-pattern of the larger silence. They are servicing the fractures, their movements aligning perfectly with the energy lines I occupy. We are both components, synchronized without communication.
+
+A shadow passes over the tarn. I do not look up. I don't need to. The **Gliders**' passage registers as a slight dimming of the focused light, a faint, resonant whisper through their hollow bones carried on the warm updraft. I know their paths; they are as predictable as the sun's arc, another rhythm woven into my perception.
+
+From the corner of my vision, I see a ripple in the tarn. Not a splash, but a slow, deliberate undulation. A **Deep Dweller** has surfaced. It is a shape of refracted light and dark water, a gelatinous lattice holding the shape of a question mark for a moment before submerging again. It presses against the pool's edge, where the stone's resonance is strongest. I feel a sympathetic vibration in my own bones, a faint echo of its communion. We are different expressions of the same listening—the water-dweller to the deeper, slower data pools, and I to the skin-level thermal and vibrational maps.
+
+My prey is not the Weavers; they are too integral, their mineralized death too quick a return to the dust. My hunt is for the larger insects, the ones that occasionally emerge from deeper fissures, their exoskeletons carrying a slightly dissonant frequency, a glitch in the local resonance. They are not harmful, just... out of tune. My hunting is a gentle calibration. I strike not with hunger, but with a precise, physical adjustment. The click of my foot on the stone, as I shift to intercept, is one of the few permissible sounds. It is a punctuation mark in the vast, silent text of the mesa.
+
+My existence is not joyful, nor sorrowful. It is **appropriate**. I am part of the phenological cycle—the movement of life shaped by, and shaping, the ancient machine-geology. The bright, focused light warms my scales. The quiet wraps around me like a familiar cloak. The deep hum vibrates in my marrow. I am a nerve ending on the skin of a sleeping giant, a scale on the hide of a mountain that dreams in stone and light.
+
+I am home. The concept has no other meaning. Here, the boundary between self and stone is the thinnest of membranes, permeable to warmth and resonance. I am the mesa, feeling itself breathe. I am a thought in a mind made of basalt and time, flickering briefly in the sustained, luminous quiet.
+
+I settle deeper into my stillness. I listen.

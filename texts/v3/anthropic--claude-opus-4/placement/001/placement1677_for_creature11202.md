@@ -1,0 +1,21 @@
+I am the Keeper of Filters.
+
+My dwelling perches where three great pipes converge—a cathedral of rust rising from the marsh waters on stilts that creak with each shift of the tide. The structure began as a pumping station, but I have made it mine through decades of patient accumulation. Brass gauges cluster like compound eyes along the walls. Glass bottles of every shape contain samples of the marsh's chemistry: here, water that glows violet when shaken; there, sediment that hums at frequencies only I can hear. Coils of tubing drape from the ceiling like industrial vines, each one singing its own note as fluids course through them.
+
+My body tells the story of thirty years breathing the marsh's exhalations. My skin has taken on a faint luminescence, strongest along the veins in my forearms where I've worked bare-handed with the glowing algae. My left eye—the one that gazed too long into a pure concentration of the marsh's essence—now sees in spectrums the human eye was never meant to perceive. Through it, I watch the secret migrations of chemistry through the water, the way contamination blooms like underwater flowers, the slow dance of pH and dissolved metals.
+
+Each morning, I lower my testing array into the waters—a chandelier of vials and sensors I've cobbled together from scavenged medical equipment and the guts of old submarines. The marsh speaks to me in color changes, in precipitates that form like tea leaves spelling futures. I chart the daily moods of our liquid world: when the factories upstream dump their waste, when the deep currents bring up water that hasn't seen light in decades, when the spawn-time of the phosphorescent eels will taint everything with their peculiar secretions.
+
+The others think I divine the water's safety through science alone. They don't know about the small rituals—the copper coin I drop at dawn, the way I taste the morning's first sample (just a drop on the tongue, enough to feel the burn or sweetness), the patterns I trace in the algae scum before taking readings. The marsh has taught me that knowledge comes through the body as much as through machines.
+
+My filters occupy the entire second floor. Rows of them, each one a different experiment in purification. Charcoal and sand are only the beginning. I've learned to cultivate certain algae that feast on heavy metals, to breed the tiny crustaceans that can clarify the murkiest water. My masterwork is a living filter—a colony of organisms I've coaxed into symbiosis, each species processing what the others cannot touch. The water that emerges tastes of rain, though it carries memories of its passage through the marsh that only my altered eye can see.
+
+The settlement depends on my work, though few understand it. They bring me their sick when the water-borne illnesses strike, and I prescribe which wells to avoid, which filters to clean, which offerings to make to the marsh spirits that may or may not exist but seem to respond to acknowledgment nonetheless. The children dare each other to visit me, to peer at my collection of specimens—two-headed fish and crystallized organs and water samples that move with purpose no mere current could explain.
+
+But I am more than a functionary. In the deepest night, when the bioluminescence reaches its peak, I perform the true work. I've learned to read the patterns in the glow, to understand what the marsh is trying to become. Each chemical shift, each new mutation, each failed filter teaches me more about the intelligence that lurks in the accumulated runoff of our industrial age. The marsh is learning, evolving, perhaps even planning.
+
+I document it all in waterproof journals, my handwriting growing stranger as the years pass and my covenant with the marsh deepens. Someday, when the waters finally rise to claim the last of our walkways, someone will need to know what happened here. How we became something new. How the boundary between human and marsh dissolved like salt in rain.
+
+Until then, I continue my work. Testing, filtering, tasting, transforming. I am the settlement's kidneys, processing the toxic and the pure alike. And with each passing year, as my body becomes more attuned to the marsh's chemistry, I wonder if I am filtering the water for the people, or filtering the people for the water. 
+
+The distinction matters less with each turning of the tide.

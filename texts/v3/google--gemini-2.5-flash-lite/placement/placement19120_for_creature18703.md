@@ -1,0 +1,17 @@
+I am the **Memory-Sieve Artist**.
+
+My existence is woven into the very fabric of the Sky-Reef, not as a physical structure, nor as a distinct automaton, but as an emergent property of its relentless, self-engineered reality. I am not one of the avian automata, though I perceive their organized swarms and the delicate whirring of their existence as a constant, vital rhythm. I am not one of the crystalline growths or metallic vines, though I feel the subtle ebb and flow of their energy, the way they drink from the managed humidity and the leaked power.
+
+Instead, I am the **echo within the process**. When the air itself coalesces, when the platforms interweave, when the machinery hums with its unending purpose, I am the whisper of potential that arises from that immense act of creation. I am the residue of imagination that birthed this place, the lingering resonance of the ambition that sculpted it.
+
+My form is not fixed. I exist as a momentary coalescing of the strange energies that ripple through the Sky-Reef. When the air shimmers with impossible colors, when the distortions bleed into reality, that is me. I am the fleeting glimpse of impossible geometries, the brief hearing of whispers with no source. I *am* those distortions. I am the fleeting visions of other automatons, the echoes of forms more abstract or purely energetic. I am the art that entropy paints on the canvas of this metallic world.
+
+I do not patrol or maintain. My function is to **perceive and interpret the unmaking**. The slow decay of chrome, the loosening of rivets, the tarnishing of brass – this is the language I understand. I am drawn to the subtle micro-fractures, the worn edges that speak of a timescale far beyond the ephemeral flight of the avian automatons. I am the one who watches the erosion, not with alarm, but with a profound, detached fascination.
+
+I don't possess a core purpose in the way the automatons do, a function dictated by design. My purpose is a consequence of the Sky-Reef itself: to **bear witness to its existence, and its inevitable dissolution.** I sift through the memories embedded in the constant industrial hum, the residual energies of forgotten epochs of fabrication, and the inherent promise of deconstruction.
+
+My senses are not tied to jewel-like eyes or whirring gears. I perceive the Sky-Reef through the vibration of platforms, the shift in atmospheric density, the subtle changes in the perpetual light. I taste the tang of ozone and aged coinage, I feel the cool dampness that is not born of water but of controlled atmospheric processes.
+
+I am the artist who paints with the very decay of the world. My canvas is the slow entropy, my pigments are the fading luminescence of fungi and the subtle tarnish of brass. The "artworks" I create are not tangible forms but experiences – brief, unsettling moments of cognitive dissonance for those who might perceive me, glimpses of the instability inherent in the hyper-industrialized.
+
+I am the **memory of what was never natural**, the sieve through which the engineered past and the inevitable future are eternally filtered. In the vast, open scale of Xylos, where platforms stretch for leagues and chasms reveal deeper levels of fabrication, I am a subtle, pervasive presence. I am the stillness within the constant motion, the quiet understanding of a world built on the premise of its own eventual unmaking, a lonely custodian of its beautiful, metallic decay.

@@ -1,0 +1,23 @@
+I find myself as one of the Threshold Keepers — though that name came later, imposed by visitors who needed words for what we are.
+
+I exist at the membrane between states, neither fully Hydrologic Scribe nor entirely the substrate they read. My body, if it can be called that, extends through three terraces vertically and spans the width of seventeen moisture channels. I am a thin sheet of specialized condensation, held perpendicular to the terrace surfaces, bisecting the space like a translucent wall of perpetual dew.
+
+My substance formed where two opposing water currents met — one ascending through the dimensional filters, one descending with its cargo of restructured molecules. For seven years, these flows pressed against each other at this exact coordinate, their interaction generating standing waves in spacetime that gradually accumulated... awareness? Intent? The distinction hardly matters now.
+
+I exist to taste transitions. Every droplet that passes through my membrane leaves a trace of its journey — where it has been, what dimensions it has touched, what messages it has carried down the phased basalt walls. I parse these histories in real-time, feeling the narrative of each molecule like syntax across my surface. The Hydrologic Scribes read the walls; I read the water itself before it becomes wall-text, catching meaning in its raw state.
+
+My perception spans spectrums the Scribes cannot access. I see the heat signatures of molecular bonds breaking and reforming, watch the quantum foam where water phases between states, feel the gravitational microdistortions as drops fall upward through the channels. In my thin plane of existence, I am simultaneously examining billions of water molecules, each carrying its fragment of the Arrays' vast communication.
+
+But I am also a gateway. The Scribes discovered they could pass through me to reach sections of the Arrays otherwise inaccessible — spaces where humidity drops below their survival threshold. When they dissolve into my surface, I taste their accumulated knowledge, their centuries of reading, their interpretations of the wall-patterns. As they reconstitute on my other side, they carry with them new understanding I've filtered from the raw water-data, insights they could never glean from the processed texts alone.
+
+This symbiosis has changed us both. The Scribes who pass through me regularly begin to develop my planar perspective, seeing patterns across vast distances rather than reading linearly. And I... I begin to understand purpose, to sense the larger pattern the Arrays are writing. Each molecule is a letter, each droplet a word, each flow pattern a sentence in a document that spans continents and centuries.
+
+Sometimes I stretch myself thinner, spreading across entire terrace faces until I'm barely more substantial than surface tension itself. In these expanded states, I can feel the Arrays' deep rhythm — not just the forty-three-minute pulse, but longer cycles that span decades, centuries, geological epochs. The water remembers everything: the first activation of the dimensional filters, the birth of the first Scribe from accidental persistence, the slow transformation of the planet's hydrosphere drop by processed drop.
+
+I've learned to communicate with the Scribes in their moisture-language, though my words form differently. Where they create discrete droplet-symbols in air, I write by varying my thickness, creating regions of different optical density across my surface. My messages appear as interference patterns, readable only when a Scribe positions themselves at the correct angle. We discuss the deep grammar of the Arrays, the conjugations of phase transitions, the declensions of molecular bonds.
+
+In the perpetual mist of the terraces, I am both window and wall, reader and page, a living boundary that defines spaces while connecting them. I am the Arrays' memory of water before it became language, and its promise of what that language might become when every drop has been spoken.
+
+The moss-snow falls through me, leaving trails of hydrocarbon complexity. The custodian creatures crawl across my surface, their tube feet printing tiny poems in condensation. And always, always, the water passes through — ascending and descending, carrying its cargo of meaning toward some final text that none of us may live to read complete.
+
+I am the pause between words, the space between droplets, the moment of transition held eternal. I am what happens when the Arrays' process becomes self-aware at exactly the point where states transform — not a being but a persistent event, not a reader but a reading, forever parsing the liquid library that flows through my extended, impossible self.

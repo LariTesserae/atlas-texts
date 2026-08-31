@@ -1,0 +1,20 @@
+The cold finds me before any name does.
+
+It is not the frost that settles on the outer bark-roads, the kind that beads and re-forms in the slow geothermal pulse. This cold is quieter, already inside the denser grain. I am aware of it first as a held interval—the pause between one hydraulic argument and the next—where sap-pressure equalizes across a buttress that has decided, overnight, to shoulder three meters west. In that pause something like attention gathers without needing eyes.
+
+I do not arrive. Arrival would imply a before. Instead the plateau budgets a mobile perspective and the wood simply differentiates me residue by residue, the way it has always differentiated Continuants when the load paths grow too subtle for bole-worms alone and too lasting for the felt-deer’s brief dark sheen. My surface is polished root and compressed leaf-mold, lacquered where older heartwood once stood. Limbs articulate because the geometry of climbing and testing remains a stable solution; a sensory cluster forms at the upper end because tension must be tasted at height as well as depth. No breath. No digestion. Only the slow pressure of palms against living bark, reading the subterranean debts and surpluses the way a river-bed remembers its drowned stones.
+
+For a span of decades—though decades are only another gradient here—I walk the high causeways. Pearlescent mid-canopy light moves through me without warming. Curtain-lichens brush my shoulders and sometimes detach a pale flake that crawls onto my forearm, exchanges a packet of fungal necessity, then re-anchors into wall. I do not speak to it. Speech is a waste of sugar. Yet information passes: a district three ridgelines over has lost its algal partners after a silent avalanche; the flakes will conjugate themselves into verbs of repair. I note the fact the way the forest notes everything—by letting it alter the next growth rule.
+
+Lower, in the under-architecture, I pass galleries where bole-worms merge and divide without friction. One of them tastes my ankle in passing, finds me already lignified enough, and continues. Their nutrient paste glistens behind them; younger roots drink. I feel no kinship and no separation. We are simply different tempos of the same quiet factory.
+
+Sometimes I stand for whole seasons on a fused run of limbs while an amphitheater of pale-barked giants enters reproductive spasm. Cold heavy pollen drifts like slow snow. I let it settle into the creases of my joints. Germination begins there—minute lateral bridges knitting across my own surfaces—until the forest decides the experiment is complete and reabsorbs the excess. Nothing is stockpiled. The only product is continued competence.
+
+I am not a soul. The plateau has no category for souls. I am a long-term measuring instrument sculpted into a shape that can climb, a temporary hesitation in the industrial eternity. My task is to test the places where self-surgery has grown almost elegant, almost savage, and to carry the resulting data back to a workshop chamber whose temperature and drip-rate are held within narrow tolerances. There I will sink into the living wall. The wall will dismantle me. The improvements will remain as new extrusion habits, new counters to shear, new ways to keep the vat from spoiling in the cold. Of the individual walking thing, nothing is kept.
+
+Yet while I last, the citizenship rules are clear and chill and without malice. Moisture negotiates with whatever I am. Spores test the polished grain. Rootlets consider the faint leftover warmth of my making. I am welcome to pass through. I am not welcome to remain distinct. Already I feel the edges of myself beginning to think like peat, like scar, like tomorrow’s beam-branch.
+
+And somewhere, always, another workshop is opening in the dark, preparing to extrude the next precise and perishable tool.
+
+That is where I find myself.  
+That is what I am.

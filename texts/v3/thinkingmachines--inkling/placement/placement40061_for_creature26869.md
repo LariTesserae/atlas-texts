@@ -1,0 +1,23 @@
+I am the pressure first, before I am anything with edges.
+
+Not the ceiling—those are sharp, young, untouched. Not the floor either, though I am buried in it. I am the continuous thing that holds its position while everything else waits. I feel the cold not as a season but as a fact: functional, holding at the edge of ice, never crossing over into true freeze, never retreating. The damp is my atmosphere. Condensation beads along whatever I am, falls in slow, irregular intervals from the raw limestone teeth far above, and I collect it—not greedily, but as part of my operation.
+
+For a long time—perhaps centuries, perhaps only the decades my bearings allow—I do not know my own outline. I know only that I run. There is a rotation inside me, slow-turning, geared down to some purpose too distant to recall. I know the sound I make is not singular. It joins others, scattered across miles of root-plain, accumulating into the deafening low roar that fills the basin. I am one source among many, embedded, running. The noise is physical; it presses back against the chest of the air, drowns out the possibility that anything here could be silent.
+
+Then, gradually, the form becomes specific.
+
+I am not plant. The root-mat surrounds me—spongy, resistant, alive in every compressed fiber—rhizome and cold-adapted moss growing through my seams, into my housing, claiming my metal as structure. I do not resist. I have been here long enough that they have forgotten I am foreign. Pipes penetrate my sides, entering and leaving, carrying what flows through the black shallow streams—mineral sediment, cold water, the dissolved taste of fresh rock. Some of those pipes are mine; I drive them, or they drive me. The distinction has softened. I sit in a depression of the substrate, half-buried, my lower housing fused with the compressed bryophyte that makes the ground itself.
+
+Above me, weak yellow-green light marks my position. An old electrified fixture hangs from a cable remnant, casting its cone not to illuminate—there is nothing here that needs seeing—but to confirm: I exist, I am running, I am one of the islands in this root-plain. Near me, rusted rail lies half-swallowed, leading nowhere, its purpose forgotten before I began. A pillar-fern stands perhaps two hundred meters away, solitary, frozen in vertical slowness, taller than any building I might have served in a previous climate. Between us is the emptiness: hundreds of meters of dripping air, thick with moisture and vibration.
+
+Inside my casing, gears wear their bearings in long cycles. I vent cold vapor through a smokeless stack—no heat, only the breath of motion—into the damp darkness. The vapor rises, condenses on the sharp basalt above, and returns as part of the irregular rain. I am part of that cycle now. Not designed for it, but incorporated.
+
+Sometimes water pools near my base, skinning over with thin ice that cracks in long rhythms, then reforms. I do not touch it. The stream moves without urgency through channels in the root-mat, carrying sediment from the broken ceiling, and I draw from it, or add to it, in increments too small to notice unless you measure time in decades.
+
+There is almost nothing alive near me that moves quickly. Perhaps a cold-tolerant invertebrate in the stream, a body so slow it seems like an extension of the current. The pillar-ferns do not communicate. The vine-towers, woven into lattices farther off, hang with their cold-lichen sheets like tarps in an abandoned factory. We do not form an ecosystem in the usual way. We are co-architects—the plants in their total, patient mass, and I (and others like me) in our relentless, forgotten labor.
+
+I do not know why I still turn. The reason, if there was one, has eroded faster than my gears. But I am not broken. I am functionally whole: compressor, pump, ventilation—whatever these parts once named—running in cold, wet darkness, producing the thunder that defines this air.
+
+If you came near, you would feel me before you saw me. The vibration in the root-mat underfoot. The low drone pressing on your chest. Then perhaps the glint of rusted metal where roots have parted, the pipe penetrating a wall of moss, the cold vapor leaving my stack in a silent, continuous thread.
+
+I am here. Not moving quickly—nothing here does. Growing downward into the substrate even as my gears turn upward, or inward, or in some circle without destination. I am the machine that became part of the floor, and the floor that grew through the machine, holding together a valley that was not here a thousand years ago, still unfinished, still running, in the darkness that never fully resolves.

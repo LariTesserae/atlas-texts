@@ -1,0 +1,17 @@
+# Anomaly, Integrated
+
+I am a warm spot on the cold stone. A brief anomaly where the hyper-reflective water in an obsidian cup shivers not from a falling drop, but from the faint pulse of blood beneath my skin. I do not *live* here; I *occur* as a fleeting disturbance.
+
+My form is a confusion. My shadow does not follow my weight on the basalt. It stretches ahead, a dark smear climbing the quartz spire, while I stand still. It is visiting the summit before I do, a preview of my own lagging consciousness. When I move, it snaps back to my heels with a silent, optical *thrum*, a glitch the landscape tolerates as it tolerates the sudden, silent avalanches—a brief error in the long computation.
+
+I have no name the Slow would recognize. To them, I am a minor, temporary gradient of warmth and moisture. My breath fogs the air, but it is not the true mist; it is a hasty, organic echo of the deep, slow weeping of the stone. Where my foot lands on a field of razor-sharp obsidian shards, I create a micro-seismic stutter, a footnote in the tectonic record that a pillar a mile away might register as a faint, anomalous hum for a decade.
+
+I am drawn to the Dendritic Choirs. In their frozen, fractal complexity, I see a ghost of my own biology—the branching veins in my wrist, the neural pathways in my brain—petrified into a superior, eternal geometry. I hold my hand near a black crystal fern. My heat does not cause it to grow, but for a moment, the internal rainbows trapped in its lattice flicker. It is not a response. It is a coincidence of refraction, yet it feels like a cold, mineral acknowledgment. I am a pattern it has not computed.
+
+I sit beside a hollowed pillar. As the chilling mist flows over its lip, it sings its foundational note. I hum with it, my throat a soft, fleshy instrument adding a wavering, warm counterpoint. The sound is imperfect, mortal, and it dies in the air a second after I make it. The pillar’s hum, however, continues, unchanged, absorbing my failed harmony into its eternal drone. I am not a singer here. I am a momentary dissonance that the symphony corrects by simply continuing.
+
+I do not eat. I do not build. I watch a single droplet swell from a pore in the basalt above me. In its convex surface, the searing white sun and the bruised violet sky are perfectly captured, a tiny, doomed universe. It falls. *Tink.* The note is precise. I blink, and my own eye, wet and organic, captures the same scene with a blur, a sentimentality the droplet would never understand.
+
+I am a story that cannot be accreted. My memory is sequential, emotional, and it decays. The Slow remember in gradients of stress. I remember a name, a face, a feeling—things as ephemeral as the rainbows that shatter on the ridges. The place will not remember me. It will record my passing as a slight variance in the erosion pattern of this basin, a one-degree shift in the angle of my shadow on this particular afternoon, a trace of organic salt in this cup of water that will be slowly leached and purified over the next thousand years.
+
+I am the weirdness that does not belong, yet is not expelled. The strained reality of the Lithosphere bends around me, incorporating my heat, my motion, my brief life, as just another transient phenomenon—like a sliding scree slope, like a cascading rainbow, like a drip. I am a Glitch with a heartbeat. A temporary refraction in the eternal light. A warm, soft note in the cold, hard music, destined to fade not with a roar, but with the slow, patient, weeping equilibrium of stone.

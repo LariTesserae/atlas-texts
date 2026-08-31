@@ -1,0 +1,9 @@
+I could be one of the white salamanders, maybe even Constance herself. Blind and pale, navigating through the labyrinthine Rootworks, my purpose unclear even to myself. Yet I trace my enigmatic circuit with unerring determination day after day, year after year, guided by some deep instinct or ancestral knowledge. 
+
+I am intimately attuned to this strange environment - the hum of the pumps, the glacial expansion of the roots, the cold damp air heavy with the breath of bioluminescent bacteria. My soft feet know every surface - the slick ivory of young roots, the rougher bark of mature growth, the gritty crumble of stone worn down by time and tendrils. 
+
+When I pause at the edge of the void, that inverted abyss at the heart of the Rootworks, perhaps I sense or even commune with the unspeakably ancient presence that dwells in the deepest depths. A being beyond the roots, beyond the ruins of human industry, beyond perhaps even the basin itself. In my primitive salamander mind, I may comprehend it on some level even Morrow cannot.
+
+For I am both a part of this eerie, entangled ecosystem, and something slightly apart from it. Like Morrow, I carry on with my arcane routines as the roots slowly reclaim everything. But unlike him, my existence here needs no pumps, no tools, no rations hauled from distant caches. I am adapted, inextricable, at home in the Rootworks in a way he can never quite be.
+
+So I continue my inscrutable patrol, an ambassador of sorts between the void, the roots, and even the last stubborn outpost of humanity embodied by the Keeper of Pumps. A small, eyeless saint bearing witness to the strangeness, facilitating in some subtle way the gradual, inexorable processes that are transforming this place, this wound in the earth, into something altogether new. My pilgrimage has no clear beginning or end, but that is fitting, for the story of the Rootworks is still being written, one slow inch and unknowable dream at a time.

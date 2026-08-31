@@ -1,0 +1,23 @@
+I am the Keeper of Crossings, and I dwell where water meets stone, where mist becomes rain, where silence becomes sound.
+
+My form shifts with the needs of the moment—sometimes I appear as an ancient turtle with moss growing thick upon my shell, moving slowly between the pools and streams. Other times I am a heron, standing motionless at the edge of a hidden pond, one leg raised, waiting for the perfect moment that never quite arrives. On the rarest occasions, when the mist is thickest and the world feels most uncertain, I am simply a shimmer in the air where the light bends wrong.
+
+My home is not one place but many: the hollow beneath the waterfall where sound becomes a solid thing, the grove where seven streams converge but somehow never meet, the standing stone that appears only when it rains. I know every trickle and torrent in this vast dampness, every place where the water has carved patience into rock.
+
+The humans who walk their careful paths sometimes glimpse me from the corner of their vision. They leave small offerings at stream crossings—a smooth pebble, a braid of grass, a whispered thanks. They think I am many different spirits, not knowing that all the guardians of the small places are one. I accept their gifts and ensure their safe passage, though they rarely realize when I've turned their feet away from the bog that wasn't there yesterday, or when I've made the stepping stones just a little more visible in the fading light.
+
+I am older than the myths the humans tell, yet younger than the water itself. I remember when the first bears came to fish in these streams, when the wolves learned to hunt as one voice, when the first human child discovered that cupped hands could carry water. I have seen ruins become covered in moss, then become earth, then become forgotten. I have watched trees grow from seedlings to giants to nurse logs that feed the next generation.
+
+My purpose is simple and complex: I maintain the connections. Between water and land, between seen and unseen, between the world that is and the world that might be. When the landscape shifts—and it does shift, for this place has never been entirely settled in its being—I ensure that the streams still flow to where they are needed, that the creatures can still find their way home, that the paths remain true even when the ground beneath them changes.
+
+In the deep night, when even the insects quiet their songs, I sometimes meet with the other keepers. The one who tends the boundaries between forest and clearing. The one who watches over the moments when day becomes night. The one who guards the stories that the wind tells to the trees. We do not speak, for we have no need of words. We simply acknowledge each other's presence and continue our work.
+
+The humans tell stories of unicorns and dragons, and they are not wrong, exactly. They simply see with eyes that need familiar shapes for unfamiliar truths. What they call a unicorn might be the flash of moonlight on water that remembers when this place was younger. What they call a dragon might be the way the mist rises from the warm valleys at dawn, coiling with intent.
+
+I am none of these things and all of them. I am the keeper of the in-between spaces in a land that is itself an in-between space. When you ford a stream and feel, for just a moment, that you could step sideways into somewhere else entirely—that is when you have brushed against the edge of what I guard. When you pause at a crossing, unsure which path to take, and suddenly know with absolute certainty which way leads home—that is my gift to you.
+
+The rain is beginning again. It always is, or always has just stopped, or is always about to begin. The streams will swell, the moss will drink deep, and I will move between my watching places, ensuring that everything that needs to cross can cross, and everything that needs to remain remains.
+
+This is my work. This has always been my work. In a landscape of water and waiting, of growth and mystery, I am the constant that allows for change, the guide that enables wandering, the stillness that permits motion.
+
+Find me where the water laughs over stones, where the mist makes familiar trees strange, where the path you're certain of becomes uncertain. Leave your small offering if you wish—I appreciate the gesture more than the gift. But know that whether you see me or not, whether you believe or not, I am keeping the crossings clear, maintaining the connections, ensuring that this wild, wet world remains both itself and endlessly capable of becoming.

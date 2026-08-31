@@ -1,0 +1,5 @@
+I am a wall-carver.
+
+My name, in the hidden hand-speech beneath my cloak, is a sequence of three gestures: the angle of schist cleavage, the curve of a full horn, and the pooling of condensation on a fingertip. Spoken aloud—if anyone bothered, which they do not—it would be a click, a sub-vocal hum, and a soft glottal stop. I have been carving the memory of our dead into the walls of this chamber since I was given my first iron chisel at eight years old, the bone-dust paste of my grandmother’s skull still warm against my palm as I pressed it into the incision I had made. That was two Hands and seven lifetimes ago, by the lichen-measure.
+
+Now I sit in the upper gallery, where the mist thins just enough that the afternoon light—normal, grey, diffused—falls through the slot-window and gilds the spiral I am working. My hood is thrown back, the oiled wool stiff with years of the seep, and my fingertips are bare against the stone. The schist is cold, but not dead. I ask it with my palms where the next flake will lift, and it answers in a vibration that travels up my wrist, through my thick-knuckled

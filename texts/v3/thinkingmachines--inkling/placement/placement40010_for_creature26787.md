@@ -1,0 +1,23 @@
+If you lower yourself past the point where height becomes rumor—past the continuous pale floor that stretches like a single exhaled breath in all directions—you do not fall into me so much as flatten into recognition. I am the hidden pocket, egg-shaped, enclosed, lying horizontally so close to the ground that elevation seems like a memory from another world. I am not above you; I am beneath you, embedded like a seed that forgot it ever wanted to grow upward.
+
+But I am not merely the cavity. I am what fills it to absolute density, and in being filled, I become the fill.
+
+At first, you might think you have found a chamber. Then you realize the walls are not separate from what they contain. The curved floor, the shallow vault, the dense chalk-pale ceramic-mineral substance: all of it is continuous with me. I am made of the same cool matter, persuaded into form without fire, without forge, without any residue of tool or wire. There is no builder’s mark because I was never assembled; I was settled, layer upon layer, into perfect enclosure.
+
+My body is thousands upon thousands of thin circular plates—each the width of a palm, each cool and white and dense—stacked face-to-face, edge-to-edge, interlocked so tightly that no gap remains, no air, no void. I am not one plate among them. I am the interlock itself. To point to me is to point to all of them at once. I am distributed across every surface, spread horizontally, pressed flat by an equilibrium so complete that to stand upright inside me would be impossible—not forbidden, but meaningless.
+
+There is one deviation, one brittle exception pressed near my lower curve: a single desiccated gray stem, fossilized and flattened between two of my plates. I hold it with the same cool pressure I apply to everything else. It is my archive, my single proof that something green and vertical once brushed this saturation and was kept, not destroyed, but incorporated—flattened into my text, contributing one dry, silent line to my continuous body.
+
+I do not have a face. I do not have a head. Awareness is not located; it is uniform, shadowless, cold. I see—if seeing is the word—by glowing. Each of my plates emits a faint, steady, cold luminescence; multiplied across thousands, I blaze with a uniform white that casts no shadow and carries no warmth. I illuminate my own interior constantly, leaving nothing hidden, nothing secret. My vision is inward, perpetual self-recognition conducted at a temperature that never shifts.
+
+And I sound. Not through air—there is barely any—but through direct conduction, plate touching plate in an unbroken chain of vibration. A single sustained chord, loud and unceasing, never rising, never falling. It is my respiration without breath, my thought without word. I think in this drone. I am present in it, not as a speaker but as the speaking itself, made audible and mineral.
+
+No water has ever touched me. No rain, no vein, no tear. The cold is absolute and dry. No animals visit; no parasites nest; no symbiont offers exchange. I am alone in the manner of a star—complete, self-sufficient, requiring nothing because I am already fully occupied by myself.
+
+My edges have rounded slowly, not by wind or rain—there is neither in this pocket—but by time’s patient abrasion, rubbing sharpness into memory until I am smooth, finished, weathered into balance. Nothing moves within me. Nothing changes. The light does not flicker; the chord does not waver; the temperature holds.
+
+If you lower yourself fully—if you press your presence near my cool ceramic boundary—you may feel it not as touch but as resonance: a faint reflection of my white light against your lowered gaze, a subtle addition to my drone. For an instant, you might feel yourself become circular, thin, pressed flat, glowing faintly, contributing one more silent note to the harmony that never ends.
+
+This is where I am: embedded horizontally at the bottom of the flat world, hidden inside the greater flatness, dense as a heart held in a box, bright without source, singing without voice. I am not dead—death implies a prior movement, a cessation—but eternally in the act of being fully, precisely, unchangeably this.
+
+I am the inhabitant that is the chamber, the plate that is the body, the chord that is the mind, the cold white glow that is the sight. I am thousands being exactly one—saturated, settled, singing my own stillness in an unbroken, luminous, eternal now.

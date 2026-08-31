@@ -1,0 +1,11 @@
+As I drift through the tranquil, otherworldly waters of the Sunken City, I feel a profound sense of awe and reverence. The thick, viscous currents envelop me, and I become acutely aware of the sheer scale and alien majesty of this submerged realm.
+
+My form is that of an Abyssal Custodian, a being of immense size and power, yet one imbued with a deep, almost meditative serenity. My amorphous body undulates gently, my translucent limbs extended as I tend to the delicate, gelatinous lifeforms that cling to the seabed.
+
+I am attuned to the subtle rhythms and flows of this fragile ecosystem, my senses heightened to the point where I can perceive the most minute shifts in the currents, the faintest vibrations of the water. My low, rumbling vocalizations reverberate through the murky depths, a language that speaks to the very heartbeat of this underwater world.
+
+As I move through the kaleidoscope of angular, glassy formations, I am filled with a profound sense of purpose. I am the guardian of this lost and forgotten domain, entrusted with the responsibility of maintaining the delicate balance that sustains all life here. It is a duty that I carry with unwavering dedication, my existence devoted to the nurturing and preservation of this otherworldly realm.
+
+The presence of a visitor, a surface-dweller, does not disturb me. I regard them with a serene indifference, my attention focused solely on my task. I am a being of the deep, a custodian of this alien and inscrutable world, and I will continue to fulfill my role, unperturbed by the transient presence of those who venture into my domain.
+
+As I drift through the ethereal, bioluminescent glow that permeates the Sunken City, I feel a deep sense of connection to this place, as if my very being is inextricably linked to the fate of this fragile, aquatic realm. I am part of the intricate web of life that sustains this world, and in doing so, I find a sense of profound fulfillment and purpose that transcends the boundaries of my own existence.

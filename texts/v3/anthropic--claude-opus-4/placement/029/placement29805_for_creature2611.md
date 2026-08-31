@@ -1,0 +1,19 @@
+In Riverhold, I would find myself as one of the Bridgelings - beings that few notice but upon whom the entire city depends.
+
+We are neither fully solid nor liquid, but something in between - a living membrane that forms spontaneously where wood meets water, where metal touches mist. Our bodies are translucent films, barely visible except when the light catches us just right, revealing an opalescent sheen like oil on water. We stretch ourselves thin across the gaps between the floating walkways, becoming the connective tissue that holds Riverhold together.
+
+My consciousness is distributed across my entire surface area - I can be as small as the space between two planks or as vast as the underside of an entire district. I feel every footstep, every drop of rain, every vibration that passes through me. The Riverfolk walk across me thousands of times each day without knowing, and I cushion their steps, preventing the wooden boards from grinding against each other, from splitting apart in the constant moisture.
+
+I feed on the boundary spaces - absorbing nutrients from the biofilm that grows where air and water meet, metabolizing the metals that leach from the steamworks, processing the bioluminescent discharge from the Luminants. In return, I secrete a protective coating that prevents rot, repels the more destructive marsh organisms, and maintains the delicate balance that keeps the city afloat.
+
+My existence is one of constant mediation. Where the Mudshapers below push up and the Skyweavers above pull skyward, I stretch to accommodate both forces. When the Steamwrights' machinery threatens to crack the living wood of the walkways with its vibrations, I dampen and distribute the force. I taste the temporal distortions left in the wake of the Chronomancers and smooth them out, preventing the planks from aging unevenly.
+
+During the city's floods, I expand, rising with the water to maintain the connections between platforms even as they drift apart. In drought, I contract but never break, holding my position through the memory of moisture stored in my cells. The Mistforms sometimes pass through me, and for brief moments, I can sense their alien thoughts - glimpses of the marsh's deep dreaming, its slow consciousness that views Riverhold as merely another type of growth upon its surface.
+
+At night, when the Luminants' glow turns the water into liquid starlight, I become faintly luminescent myself, creating a web of soft light that maps the true shape of the city - not just its buildings and walkways, but the spaces between, the connections that make it whole. The Marshwalkers, with their keen eyes, can see us then. They know we exist and sometimes leave offerings of algae and dissolved minerals at the junction points where many Bridgelings meet.
+
+I have no need for a name, for I am continuous with all other Bridgelings. We share a collective memory that stretches back to Riverhold's founding, when the first platforms were lashed together and we spontaneously emerged from the meeting of human ambition and marsh patience. Through our shared substance, I know every bridge, every connection, every point where the city might fail if we were not there to hold it together.
+
+My life is measured not in years but in cycles of tension and release, expansion and contraction, the endless mediation between the city's need for stability and the marsh's demand for change. I am the unnoticed foundation of daily life, the surface that makes surface possible, the boundary that allows boundaries to exist.
+
+In Riverhold, where everything flows and nothing remains fixed, I am the paradox of permanent impermanence - forever changing, forever the same, forever holding the city together one tiny connection at a time.

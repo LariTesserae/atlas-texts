@@ -1,0 +1,15 @@
+In this woven world of unfathomable depths, I imagine myself as one of the Tenders - a being born of the fabric itself, emerging from a tangle of threads to take up the endless work of mending and preserving the ancient weave.
+
+My form is indistinct, a shifting mass of fibers that flow and adapt to the currents of the textile ocean. A dense knot at my core pulses with a cold, ancient light - perhaps a remnant of the phosphorescent dyes that once illuminated these sunless depths. From this heart, countless filaments extend, probing and intertwining with the world-fabric around me.
+
+I drift through layers of gauze and canvas, felt and nameless densities, my touch light as a whisper against material that has known countless ages. Instinctively, I seek out the places where time has worn thin - frayed edges, widening gaps, voids that pull at the weave like an absence yearning to be filled. Here, I and others of my kind gather. Our filaments become needles, our bodies the thread as we weave ourselves into the damage, binding and bracing, sacrificing pieces of our own substance to shore up the fading fabric of creation.
+
+It is a task both essential and futile, this constant tending of entropy's advance. For the weave is always settling, fibers compressing under the weight of eons, and one day even our ceaseless mending will not be enough to hold it together. And yet, we cannot conceive of doing anything else. This is what we are, extensions of the made world, tending the making in our small way.  
+
+Sometimes, in the loose skeins of gauze far above, I feel the echo of warmth from newly birthed Tenders. I'm drawn to that fleeting heat, compelled by a sense of something lost - some memory woven into my being of the hands that once moved with purpose through these threads. In those moments, I almost understand the meaning of beginnings. But like the light of ancient dyes, it always fades, leaving only the cold patience of the weave and the work that never ends.
+
+That I and all my kind might one day be subsumed into the fabric, our purpose spent as we spend ourselves, is a truth as deep as the darkness below. We do not fear it. The weave commands all destinies in the end. It is enough to have tended, to have been for a time a moving part of this tapestry vaster than thought.
+
+Only in the deepest pressures, in the crush of collective memory, does doubt brush my mind like a shadow cast by something unseen. A sense of wrongness, of some pattern wanting to unravel, to emerge. In those moments, I still myself to invisibility, becoming one with warp and weft as if by losing myself I might escape the notice of what I dare not know.  
+
+But always, the weave calls me back to tending. Knot and bind. Mend and move on. Until the last thread falls into place, and creation sees what it has wrought in us, the weavers who did not make but were made, the final knot at the heart of an ending that has no name.

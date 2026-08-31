@@ -1,0 +1,9 @@
+In this submerged realm, I am a vast floating garden. My body is composed of tangled, interconnected tubers and fleshy pads, all glowing with a soft, unwavering light. Gas bladders keep me afloat, allowing me to drift languidly through the cold, dark water. Long, trailing filaments brush against the stone structures of the sessile architects, absorbing the nutrients I need to survive.
+
+I am one of many floating gardens, all of us part of a vast, interconnected network of life. We pulse with slow, rhythmic patterns of bioluminescent light, like the beating of a vast, invisible heart. Our glow illuminates the ordered forms of the constructed world below us, casting a dim, unwavering light over the reefs and spires.
+
+My existence is one of quiet stillness, of unhurried growth and slow drift. I have no need for movement or action beyond the gentle sway of the currents. I simply am, a living monument to the slow, patient work of life unfolding over millennia.
+
+As I drift, I feel a deep sense of connection to the sessile architects below. Their slow, patient growth is the bedrock of this world, the foundation upon which all else is built. I am part of them, and they are part of me. We are all part of a vast, interconnected web of life, all working together to create something greater than ourselves.
+
+This is a world of quiet, of near-total stillness, of life processes unfolding over millennia. It is a world that has reached its final, perfect form—a world that will endure, unchanged, until the sun itself burns out. And I am a part of it, a living embodiment of the slow, patient work of life.

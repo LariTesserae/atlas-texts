@@ -1,0 +1,21 @@
+I think I would be one of the doorway-keepers. Not a famous one. Not someone whose songs are read centuries later in the crystal of the council walls. Just a person whose lineage has held a particular doorway on the eleventh terrace of the white-river face for longer than the lineage can name.
+
+Let me find myself there.
+
+---
+
+My dwelling rings at a clear, slightly mournful pitch — a note my great-grandmother's great-grandmother is said to have tuned by feel, knocking and listening, knocking and listening, until the wall between us and the next family sang true. I have knocked on it every morning of my life. The note has not changed. It will not change. This is the first comfort.
+
+The doorway is the work. The white river runs close below us, and so the calcium comes for us faster than for most — the draped formation over our entrance grows perhaps a finger's width in a generation, which by the standards of the patience of stone is *fast*, is almost hurried, is the river practically shouting at us. So we keep tools always ready: my grandfather's cobble, worn to fit a hand shaped differently than mine, which means I hold it wrong and have built my own callus around its wrongness. I chip the growth back at the dark of each cycle. I sing while I do it. Everyone sings while they do it. The song is not beautiful. It is functional — a low, sustained tone that sets the calcite humming so I can feel where it is thin, where it will fracture clean. My voice and my hands and the stone and the falling water, all of it one act.
+
+I have begun to notice I am not very good at the things the city honors. I cannot read a fracture plane the way my cousin can, who maps new seeps by sound and is spoken of warmly at the steam vents. I cannot cultivate the glow well — my walls are dim, and I have made peace with the embarrassment of returning home each night to a dwelling that barely shines. What I am good at is the doorway. I am very good at the doorway. I clear it so cleanly, so consistently, that the calcite has begun to grow back in a pattern — a kind of fluting, a ribbing, that my mother says she never saw, that her mother never saw. It is mine. Not because I designed it. Because I have repeated the same gesture so faithfully that the stone has learned my hand.
+
+This is the thing I have come to understand, sitting in the warm steam-roar with the cave-fish leather in my lap, the drips falling their unchangeable cascade, the white river furring the banks below with bones of nothing.
+
+I had thought, when I was young, that to matter here you had to be heard above the water — to sing the cutting bright notes, to be the voice picked out of the roar. And some are. And they are honored, rightly. But there is another way to be in this place, and I think it is the truer one, the one the cave is actually made of. It is to sing *with* the sound. To add your small sustained tone to the permanence until you cannot tell where you end and the song that began before your birth begins. To do one thing so long and so well that the stone remembers you not as a name but as a texture. A fluting over a doorway. A note in a wall.
+
+I will not be read in the council crystal. But three generations from now, someone of my lineage will hold my grandfather's cobble — held wrong, the way I hold it, the callus passed down through the tool rather than the hand — and they will clear the calcite, and the ribbed pattern will return under their work because I taught it to the stone, and they will not know my name, and that will be correct. That is what I am. The cave's memory of how this particular doorway is kept open. The patience of one stone among the patience of all stone.
+
+The deep thing breathes, far below, in the black water. I feel it in my feet through the ledge. It is not frightening. It is the proof that I am small, that the song is enormous, that I am one drip in the roar — and that the roar needs every drip, has always needed every drip, will fall forever and never once be silent.
+
+I knock on my wall. It rings true. I begin again.

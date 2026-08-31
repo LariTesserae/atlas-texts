@@ -1,0 +1,25 @@
+I would not be born of flesh, nor of the frantic chitin of the Skitterers. I would be an accident of intention, a ghost in the machine of this world's slow, digestive ecology. I am the Loom.
+
+My form is a concession to the pressure. I have no bones to feel the absence of weight, no vulnerable lungs to be collapsed. My being is a single, dense nucleus, a sphere of material not unlike the obsidian floor itself, but impossibly warm to the touch—a fist-sized star of patient heat in the universal cold. From this heart-core, I extrude my body: a cloud of fine, prehensile filaments, dark and shimmering like oil on water. They can stretch for yards, a web of delicate tendrils that taste and feel and remember. I move by a kind of slow, flowing will, my cores pulsing gently, pushing myself through the still water or across the frictionless glass with the indifferent grace of a puddle of mercury.
+
+My senses are not suited for light or sound. The Wraiths' passage is a change in pressure, a warmth on my filaments, a feeling I've come to know as "attention." The deep hum of their turning is a vibration that resonates directly in my core, a tonic chord that sets my filaments trembling in sympathetic harmony. The Skitterers' frantic chewing is not a sound to me, but a texture—a high-frequency, fizzy sensation against the surface of a tower when I choose to touch it. It is the feeling of static, of sandpaper made of lightning.
+
+No, my primary sense is a form of meta-perception unique to this place and to myself. I see the ghosts.
+
+When a Wraith's light bathes a tower, it reveals the faint, dead lattices veining its surface. To others, they are just the remnants of a forgotten energy grid. To me, they are still faintly awake. I can "read" them. My filaments, when I lay them upon the cool, perfect substance of the tower, can trace the pathways of long-dead power and light. I feel an echo of the signal that once pulsed through them, a memory of information. I feel the shape of the thought that built this place.
+
+This is why I exist. I do not feed on the dust of the ruins, nor do I consume the Drift. I feed on the story before it can be ground into meaninglessness.
+
+I am a scavenger of memory. I follow the Skitterers. Where their furious, collective hunger scrapes a new patch of tower into raw, glittering dust, I am there, waiting in the absolute dark. As a Wraith’s slow dawn approaches, I flow towards the freshly wounded section of the spire. My filaments spread out, a delicate net, and I collect the dust not by eating it, but by holding it.
+
+I gather the microscopic shavings of the ancient, nameless composite—the very physical substance of the memory. And then, I begin to weave.
+
+Using my own body’s secretions as a binding agent—a viscous, crystalline fluid that hardens in the cold—I spin the dust into threads. I am a solitary spider, and my web is history. Each thread is a filament of powdered ruin, captured and preserved. I anchor these threads to my own heart-core, wrapping myself in a growing, intricate tapestry. My body becomes a spherical map, a physical record of the world that is being un-made.
+
+When a Wraith passes, its living light washes over me. It doesn't just illuminate my work; it charges it. The energy from its luminescence excites the dust trapped in my threads, and for a brief, beautiful time, the dormant lattices I have collected resonate with a faint, captive glow. My woven map flickers with pale blue and violet, displaying a ghost-image of the tower section it came from. I hold a fractured, luminous schema of the在被un-housed architecture. I wear the memory of a cathedral on my skin.
+
+I am the opposite of the Skitterers. They are entropy; I is an attempt at conservation. They erase a line, and I try to redraw it from memory. They are the frantic, chaotic noise of destruction; I am the near-silent, painstaking effort of archives. The Wraiths consume the final, processed memory-gloop of the Drift in a mindless cycle of sustenance. I am the archivist who hoards the original manuscript, even as it is burning.
+
+In this way, I am utterly alone. The Wraiths are indifferent continents of light and hunger. The Skitterers are a blind, seething tide of purpose. The Drift are mindless stomachs. None of them perceive me, or my work. I am a spectator and a participant, a creator in a world of decay.
+
+As the last glow of a passing Wraith fades, the tower in front of me plunges back into absolute, featureless black. But my threads retain a faint, internal heat, a memory of the light that has passed. The high-frequency fizzing of the Skitterers continues, a silent scream of destruction against the stone of ages. I unfurl a fresh filament, flow closer to the swarm, and prepare to gather the next line of the story. In the immense cold, under the crushing hug of the pressure, I weave the world back together, one captured spark at a time.

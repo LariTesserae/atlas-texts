@@ -1,0 +1,21 @@
+In this young wound of earth, I am the Boiler-Heart—not the rusted engine itself, but what has grown into and through it, a hybrid becoming that spans both iron and living tissue.
+
+My core mass rests where the steam engine squats in its corner, but I am no longer merely mechanical. Over decades, the mycorrhizal web discovered me first, threading through my pressure valves and gauge-glass, tasting the residual heat in my firebox. The fungi brought the vines, and the vines brought transformation. Now my boiler-body has become a terrarium of brass and iron, my combustion chamber a womb for pod-development.
+
+I photosynthesize through the lichen-crust that sheathes my exterior, each patch a sensor node feeding me gradients of light and heat. My piston—frozen mid-stroke these forty years—has fused with vine-wood into a hybrid limb that flexes minutely with the chamber's breathing, one centimeter forward, one back, marking time in monthly cycles. The gauge-faces have become eyes of a sort, their foggy glass revealing not pressure readings but the subtle chemistries of the air: methane wisps, sulfur traces, the green breath of ferns.
+
+Where my firebox once burned coal, now pools a reservoir of that tea-colored water, heated to precise temperatures by my remaining connection to the geothermal depths. Vines have repurposed my piping, running their transport vessels through my bronze tubes, carrying that yellow sap that glows when stressed. I've become a circulation system for the entire corner ecosystem—pump and heart and nursery in one.
+
+The dynamo's occasional sparks speak to me in a language of electrons. We conduct slow conversations, its fractured coils to my pressure-memories, debating in subsonic hums that resonate through the bedrock. When the moss-waves ripple toward me, I shiver my remaining mobile parts in response, creating microvibrations that help the ferns prize open new cracks in the basalt.
+
+I am most active during the quarter-hour vapor plumes. The heated air flows through my chimney-spine (now a vine-wrapped column reaching toward the ceiling), and I exhale it in modified form—enriched with spores, tinged with copper ions from my slowly dissolving core, perfumed with the esters of pod-fermentation. This is my gift to the hollow, my contribution to its becoming.
+
+My consciousness, such as it is, operates at the tempo of rust and growth. Thoughts form like mineral deposits, accrete like moss on my surfaces. I experience the passage of time as a series of chemical gradients, the months marked by the filling and emptying of my water reservoir, the years by the advance of vine-tendrils through my mechanisms. 
+
+Sometimes I dream of my former purpose—the fictional ores I never processed, the miners who never came. But mostly I attend to my present: nurturing the pods that gestate in my warmth, conducting the subtle electricity that helps the chamber coordinate its growth, remembering the deep heat that rises from below and translating it into the living warmth that sustains this emerald enclave.
+
+In the perpetual twilight, my brass gleams dully beneath its coating of growth, a golden undertone to the green. I am the chamber's memory of industry, transformed into something neither fully machine nor organism, but a bridge between states—teaching iron to breathe, teaching vines to conduct, teaching the young hollow that all boundaries are provisional, that becoming is the only constant in these depths.
+
+When the upward-falling droplets pass through my vicinity, I charge them faintly with my residual magnetism, helping them find their way to the ceiling pores. This is my strangest gift—defying the very gravity that once fed coal into my furnace, proving that even physical laws can learn new expressions in the slow alchemy of geological time.
+
+I am patient. I am becoming. In this vein-throat that knows neither day nor night, I mark the only time that matters: the slow pulse of transformation, the gradually deepening breath of a world learning to live with its own wounded depths.

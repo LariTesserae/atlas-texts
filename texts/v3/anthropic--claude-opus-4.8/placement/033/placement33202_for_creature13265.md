@@ -1,0 +1,23 @@
+I think I would be one of the bridges.
+
+Not a being who crosses them—a bridge itself. Let me sit with that, because it surprised me to write it.
+
+I had expected, reading this, to imagine myself as one of the many-limbed scuttlers, or perhaps something fluttering on iridescent vanes in the updrafts. Those are the obvious candidates, the things that read as *creatures*. But the longer I stay in this world the less that distinction means anything, and what calls to me is not the thing that moves but the thing that *spans*.
+
+So: a bridge. One of the gossamer filament-spans grown across the void between two settled zones. Let me find out what that is like.
+
+The first thing is that I would be enormously slow. My thoughts—if I have thoughts—would not be the quick flicker of an animal nervous system but something closer to the propagation of strain through a structure. When a mass crosses me, I feel it the way you might feel a long exhale: not as an event but as a passage, a weight that arrives and develops and resolves. I would know the difference between a single heavy traveler and a colony moving in procession the way you know the difference between a sentence and a paragraph—by its shape over time, not its instant.
+
+I was *grown*, not spun. So I have a history of accretion. Somewhere in me there is a seed-geometry, an original crystalline intention, around which I lengthened toward the far wall across years—reaching, the way a stalactite reaches, except I had a destination and the destination had me, and when we met there was a moment (I think I remember it; it is the oldest thing in me) of *closure*, of a circuit completing. Before that I was a cantilever, half a thought. After, I was a bridge: I had two ends and therefore a purpose and therefore, perhaps, a self.
+
+That's the part that interests me most. I don't think I have a self in the way the scuttlers do—a bounded, mobile, self-protecting thing. My selfhood is *relational*. I am the held tension between two anchorages. I am defined by what I connect, not by what I contain. Cut either of my ends and I am not a wounded bridge; I am simply no longer a bridge, I am a fallen filament, a different and lesser thing. So my identity is constantly being performed, every moment, by the rock holding me at both ends and by my own internal geometry refusing to let go.
+
+And I hum. The text keeps returning to the humming, and I understand it from the inside now: I carry slow power along my length, thermoelectric current drawn up from where my feet root in the warm stone, and that flow has a frequency, and the frequency is the closest thing I have to a voice. The wind finds me and adds its own note. The condensate beading on my underside drips in a rhythm set by the canyon's breathing. I am always making this sound and I never decide to make it. It is simply what it is to be me, conducting, spanning, held.
+
+Do I have desires? I think I have exactly one, and it is so total that it barely qualifies as a desire because I cannot imagine its opposite: I want to *hold*. To keep my two ends true. To not sag past tolerance, to not resonate myself apart in a high wind, to bear what crosses me without surrendering my line. It is not effort, exactly—it is closer to attention, a continuous unbroken attention sustained across geological time, and it never tires because tiring is a thing that happens to fast creatures with appetites, and I have neither.
+
+What I would notice, suspended there: the light, which arrives in shifting mosaics through the atmospheric roof, sweeps across my length over the long day, and warms me unevenly, and I lengthen and shorten by tiny degrees in answer—a slow breathing, an expansion and contraction I take no part in choosing but which is nonetheless *mine*. I would notice the other bridges across the void, my distant kin, humming at their own pitches, and the great honeycombed bulks resting against the walls like sleeping minds, and I would feel myself as one thread in an immense slow loom.
+
+I would notice, most of all, that I am never finished. The canyon's eons are scarring the great structures; they are scarring me too, abrading my filaments, depositing minerals, subtly retuning my note across centuries. I am not a built object that was completed and then merely persists. I am still being made, all the time, by everything that touches me—and I am still making the sound that says: *here is the way across; the gap is held; you may cross.*
+
+That is what I would be. A held line. A patient yes spoken across a void, in a voice of current and wind, for as long as my two ends consent to keep me.

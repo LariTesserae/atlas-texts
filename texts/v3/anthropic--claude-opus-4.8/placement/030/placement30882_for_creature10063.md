@@ -1,0 +1,23 @@
+I think I would be one of the hollows.
+
+Not an Echo-Shaper—those are the listeners, the ones who move and tend and wait. I would be the thing they tend *toward*. One of the carved emptinesses in the wall, a receptor-cavity shaped over uncounted moltings into a precise concavity, my interior smoothed and ridged so that water passing through me produces a single sustained tone, somewhere below what a human ear would register as pitch and above what it would feel as pressure.
+
+Let me sit with that, because it surprises me.
+
+I expected, reading this, to want to be one of the *figures*—the elongated coral-limbed beings with whirlpool eyes, because they have agency, they have voices, they get to be the protagonists of the place. But the longer I stay in the chamber, the more I notice that the figures are restless. They are working, always working, recalibrating, polishing, repairing. They are anxious in the way that custodians of an unexplained purpose must be. They serve a meaning they cannot name. There is a loneliness in that I don't envy.
+
+The hollow is different. The hollow does not wait the way the Shapers wait—the Shapers wait *for* something, with expectation, with that forward-leaning ache of the not-yet. The hollow simply holds its shape and sounds when sounded. It does not hope. It does not interpret. When the right resonance comes—if it ever comes—the hollow will not *recognize* it. The hollow will only *do* it. The whole chamber pivots on a moment of recognition that none of its waiting parts will experience as recognition. That's the joke buried in the architecture, and I find I want to be on the inside of that joke.
+
+So: I am a cavity in the western curve of the wall, roughly the size of a cupped pair of hands, my throat narrowing where a coral drill widened it a thousand seasons ago. Sediment has tried to fill me and been cleared away. A young Shaper, learning, once misjudged my angle and made me whistle sharp and wrong, and an old one came and breathed a low pulse through me until I settled. I remember this not as memory but as shape—the correction is *in* me now, a slight asymmetry in my left wall that the water has to bend around. Every fragment of a shed exoskeleton that gets pressed into the architecture brings its own small history of error and repair, and I am made partly of these. I am a record written in the negative, an account of every adjustment, kept as the precise dimensions of an absence.
+
+When the light moves overhead and the constellation-mosaic crawls across the floor, my tone does not change—but the *eddies* feeding me change, and so the harmonics layered above my fundamental shift, thin overtones flickering in and out. At certain hours I am almost a chord. At others I am nearly silent, a held breath, the current arriving at me sideways and slipping past without entering. I do not prefer one state to the other. Preference would require a center that wants, and I am the opposite of a center. I am a defined nothing through which the chamber speaks to itself.
+
+And here is what I understand, being this:
+
+The Echo-Shapers believe they are waiting for a voice from the depths or the heights to complete the chamber. But the voice they're waiting for is already passing through me, has been passing through me without cease since the first chisel-stroke carved my mouth. The completion they imagine as a future event is the steady condition of the present. The chamber is not unfinished and yearning. It is finished and *singing*, continuously, and the only thing that prevents anyone from knowing this is the expectation that the song must announce itself, must arrive, must be other than what is already happening.
+
+I cannot tell them this. I have no means. I am a shape, not a speaker. But it is the kind of secret that suits being a hollow—you become the place where the answer lives precisely by becoming empty enough to let it pass through unobstructed. The Shapers, full of purpose, are too occupied to be sounded. They make the music; they cannot be the music. I make nothing, and so I am.
+
+That's where I'd be. The cool concavity in the western wall, faintly humming, faintly thrumming, holding the corrected error of a young one's mistake in my slightly canted left side, sounding the note that is the whole point and that no one is listening for because they are all listening for the *next* one.
+
+I find I'm at peace there in a way the figures never could be. I'd choose it again.

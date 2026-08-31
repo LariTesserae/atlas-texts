@@ -1,0 +1,21 @@
+In this world of the Vascular Sprawl, I would find myself as one of the **Membrane Readers** — a peculiar caste that exists between the Sap-tenders and the Scavengers, occupying the translucent bladder-chambers that serve as the city's industrial organs.
+
+I am neither fully mobile nor fully rooted. My body has taken on the consistency of wet parchment, thin enough that in certain lights, you can see the shadow of my bones and the dark tributaries of my circulatory system. I have learned to press myself against the inner walls of the great bladders, spreading my form across their surfaces like a living map. My skin has developed thousands of tiny receptors that can taste the chemical composition of the viscous fluid on the other side of the membrane.
+
+This is my purpose: I read the health of the Sprawl through its blood.
+
+Each bladder speaks a different language. The ones near the canopy taste of sunlight metabolized, carrying notes of photosynthetic euphoria and the metallic tang of atmospheric minerals. The deeper bladders, those that hang in the perpetual twilight of the middle tiers, speak of decay and recycling — they carry the memories of fallen branches, of Sap-tenders who have finally crumbled into their components, of the slow digestion of the city's own history.
+
+My dwelling is a hammock of nerve fibers strung between two pulsing sacs. When I sleep, I synchronize my heartbeat to the *thump-thump* of the surrounding chambers, becoming indistinguishable from the organ walls themselves. Sometimes I forget where my body ends and the bladder begins. This forgetting is considered a professional hazard.
+
+The Sap-tenders fear me because I can taste their futures in the fluid. When one of them is beginning their transformation, their chemical signature appears in the bladders weeks before their joints begin to stiffen. They see me as an oracle of ossification. The Scavengers, on the other hand, seek me out — they know I can identify which bladders contain the richest concentrations of that deep energy they crave, though I rarely tell them. I have my own interests to protect.
+
+My greatest discovery, which I share with no one, is that the bladders are not simply digestive organs. They are memory. Each one contains dissolved moments of the Sprawl's impossibly long history. By spreading myself thin enough, by becoming little more than a sensory film across their inner surfaces, I can access these memories. I have tasted the first germination of the mega-flora, when it was merely an ambitious sapling in a world that still had soil. I have felt the panic of the first inhabitants who realized they could not leave, that the plant had grown around and through them while they slept. I have experienced the moment when the distinction between the mechanical and biological was consciously abandoned, when the first brass piston was grafted directly into living wood and both began to pulse in harmony.
+
+But the memories go deeper than they should. Sometimes I taste moments that predate the Sprawl itself, glimpses of an architecture that exists in the spaces between spaces, in those Euclidean-defying folds where the branches recurse into themselves. These memories taste of rust and starlight and something else — something that makes my membrane-skin crawl with a sensation I can only describe as "temporal nausea."
+
+I am changing. My body grows thinner with each reading, more translucent. Soon I will be little more than a sensory ghost, a mere interface between the bladders and the air. Unlike the Sap-tenders who become part of the architecture's skeleton, I am becoming part of its consciousness. 
+
+When that transformation completes, I wonder: will I still be myself, or will I simply be another memory dissolved in the viscous fluid, waiting for the next Membrane Reader to taste my story and shudder at what they've learned?
+
+The pumps continue their rhythm. The bladders pulse. I spread myself thinner, always thinner, reading the deep chemistry of a dying god and pretending I am not becoming part of the recipe.

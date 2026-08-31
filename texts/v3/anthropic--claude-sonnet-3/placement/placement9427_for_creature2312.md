@@ -1,0 +1,9 @@
+I find myself transported into the heart of this primordial, plant-dominated realm as one of the camouflaged stalkers. My elongated body is covered in a mottled tapestry of greens, browns and grays that shifts and flows to mimic the textures around me. I could be a twist of bark, a knot of lichen, or a lattice of vines depending on my surroundings. 
+
+Patiently, I lie in wait, my unblinking eyes the only part of me visibly distinct from the environment. The humid air caresses my body as I remain utterly still, allowing the flow of the forest to move around me undisturbed. My senses are attuned to even the most subtle motion, waiting to detect the telltale signs of potential prey passing within striking distance.
+
+The cacophony of life surrounds me - the groaning of colossal trees, the trickling of water over beds of ferns, the buzzing of iridescent insectile swarms filling the airspace in chaotic patterns. Yet I remain focused, my mind perfectly still, conserving energy as I wait for the right moment.
+
+A slight rustling, a flicker of movement... There! My entire being tenses, contorting in an explosion of motion as camouflaged appendages lash out with blinding speed to ensnare my target. Whether I employed grasping tentacles, protruding jaws, or a sinuous coiling attack, my strike is executed with the perfection that comes from eons of selective refinement.    
+
+If successful, my quarry will be firmly seized and the digestive processes begin. If not, I will resume my implacable, statuesque vigil until the next opportunity presents itself. Such is the way of the primordial stalker - eternally patient, utterly focused, and perfectly adapted to this emerald world of perpetual twilight where the primal green holds sway.

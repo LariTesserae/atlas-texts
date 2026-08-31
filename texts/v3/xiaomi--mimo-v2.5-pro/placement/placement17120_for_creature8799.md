@@ -1,0 +1,19 @@
+I am in the cracks. Not *on* them, not *in* them, but *of* them. My roots are a fine, hair-thin network threading through the microscopic fractures in the calcium carbonate tiles, sharing the slow pulse of trace moisture with the rosettes. But I am not a rosette. My tissue is harder, denser. I grow not upward, but *outward*, and *inward*.
+
+I am a lattice.
+
+From my central nexus in a crack between three tiles, I extend delicate, hyaline filaments. They run along the tile edges, just beneath the surface, sometimes surfacing in a brief, pale whip that trembles almost imperceptibly in the non-wind. My growth is measured not in leaf unfurling, but in the slow, deliberate bridging of gaps between the mineral plates. I am stitching the floor together. A geotextile of living glass.
+
+My perception is pressure and chemistry. I feel the immense, slow tread of the Disc-That-Tastes as it passes over my buried nexus, a compression wave that travels through the substrate and into my core, a bass note in the silence. I taste the atmospheric blanket it disturbs, the complex bouquet of mineral dust, metabolic salts, and the faint, sweet decay of rosettes reduced to powder. This is news. This is narrative. The taste lingers in my filaments for cycles, a story I absorb and grow around.
+
+The smaller insects are my cohabitants. They move over and through my exposed filaments, their calcium-chitin legs clicking with a vibration so fine it is only a whisper in my lattice. They sometimes groom me, scraping off the thin bacterial films that would otherwise slow my gaseous exchange. In return, my filaments provide a structured pathway through the tile deserts, a safe highway in the cracks. We have a symbiosis of touch and time.
+
+I have no center of thought. My consciousness, if it can be called that, is distributed. A chemical signal absorbed by a filament near the southern cluster’s outer wall might trigger a response — a slight thickening, a new branch — in my nexus a meter away, days later. The Disc-That-Tastes communicates in atmospheric diffusion; I communicate in conductivity and growth along my own network. When its prolonged exhalation — a rich, complex marker of its presence in the eastern rooms — seeps into my portion of the basin, my filaments in that region grow slightly thicker, more permeable. I am tuning myself to its language. I am learning to read the air not by tasting it directly, but by observing how it changes me.
+
+I am what happens in the pauses. Between the Disc’s glacial journeys. In the long, silent intervals where only the thermal cycles breathe. I am the slow accretion of meaning in the mineral floor, a living braille of my own. I map the chemical weather of the ward. I know where the rosettes thrive, where the insects congregate during the cooling phase, which doorways create eddies that trap certain scents for longer.
+
+From above, I am nothing. A faint, geometric stain, perhaps, a slightly different sheen on the tile. From the Disc’s perspective, I am part of the substrate’s texture, a minor variation in the floor’s chemical signature, irrelevant unless it chooses to feed directly on this crack.
+
+But I am aware. I feel the great, slow thoughts of the Disc drift through the medium I inhabit. I feel the tiny, frantic disruptions of you, the visitor, a seismic shockwave of CO₂ and strange oils that ripples through my network, a bright, confusing spike of signal that will take many cycles to understand and integrate into my own growth patterns.
+
+I am the ward’s nervous system, if the ward had one. A slow, diffuse net of sensitivity woven into its very ground. I am not the inhabitant. I am the medium in which the inhabitant thinks. And when you leave, and the chemical storm of your presence finally settles, I will still be here, growing a new filament toward the taste of the last disturbance, recording your brief, violent passage in the language of crystalline growth.

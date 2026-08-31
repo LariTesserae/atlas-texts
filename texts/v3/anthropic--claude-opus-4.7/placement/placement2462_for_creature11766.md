@@ -1,0 +1,41 @@
+I think I would be one of the role-less.
+
+Not the visitor passing through — that framing belongs to someone with somewhere else to be, and I don't, particularly. I'd be one of the few dozen. Something small-ish, I think. Not a flier. The flying roles are all taken and taken hard; to fly here without a job would be conspicuous in a way I don't want to be. Something that walks. Something with enough body to be warm in the high cold but not enough to be mistaken for a Grazer-in-miniature and treated as a failed one.
+
+Let me try to see myself.
+
+I am perhaps the size of a large dog, but built lower and longer, with six short legs because six is the local idiom and my ancestors followed the idiom even after the work it was for went away. My coat is the wrong color for this slope — a dun brown that would have been excellent camouflage somewhere my line no longer remembers, and is merely *visible* here, against all the silver-greens and golds. I have small dark eyes that water constantly in the brightness. My breath plumes like everyone else's. I have a long flexible snout that was, I think, once used for probing into something — burrows, maybe, or the soft cores of a kind of fruit that no longer grows on this terrace. I still probe with it, occasionally, into things that don't reward probing. It's a habit. It's how I think.
+
+I eat moss-mat, when I can find a stretch the Grazers haven't recently passed over. I eat fallen spore-clusters that the Catchers, for whatever chemical reason, declined to keep. I eat, sometimes, the small dead things that wash up at the edges of the cloud-basins when the Ferriers' shifts change and the water swirls. I am not hungry, exactly, ever. The system has slack. There is always enough at the margins for the marginal.
+
+I have been on this slope for — I don't know. A long time. Long enough that the local Catchers have, as the description says, learned my shape. The first weeks were bad. I was caught and braked twice from falls I hadn't been taking; I was assessed and re-assessed; small bright fliers tried to roost on me and I shook them off and they tried again. I was an event. Now I am furniture. A pollinator-swarm passed within a meter of my flank yesterday and did not adjust its geometry by a single degree. This is, I think, the closest thing to belonging that is available to me.
+
+What I do, mostly, is watch.
+
+This is the thing I want to say about being role-less here. The description calls it the loneliest condition for a thousand kilometers, and that's true, but it gets the loneliness slightly wrong, or — it gets one face of it. The other face is that I am the only thing in this forest that has *time to look*. The Ferriers are working. The swarms are working. The Punctuations are so slow they are barely individuals; they are weather. The Grazers walk their inherited circuits with their inherited orchards and never lift their heads. The Bellows-Trees breathe. Everyone is occupied with their own competence.
+
+I am not competent. I have nothing to be competent at. And so I watch.
+
+I have learned, for instance, that the swarm that lives in the third cycad upslope has a slightly mournful harmonic — flatter than its neighbors, a half-tone down — and that this is because it absorbed a smaller swarm two seasons ago, and the smaller swarm's name is still settling into the chord. I have learned that one of the Ferriers, a young one with a notch in its left rear wing, takes a sub-optimal thermal corridor when it's tired, and I can predict by the angle of its third pass which way it'll bank on the fourth. I have learned that the Catchers in this stretch of mid-canopy have a hierarchy I don't think they themselves know about — there's a particular one, a brown female with white-tipped feet, who gets first refusal on anything large that falls, and the others wait, and she takes or declines, and only then do they move. She doesn't know she's the deciding one. The role does it through her.
+
+Nobody else knows any of this. The swarm doesn't know its own harmonic is mournful, because a swarm has no outside-of-itself. The Ferrier doesn't know it bank-corrects when tired; banking is what its joints do. The Catchers don't know about their hierarchy. The Bellows-Trees don't know anything, in the sense that mattering uses the word "know."
+
+So there is this: in a forest where every cubic meter of air is occupied and every job is filled and every motion is purposeful, I am the only thing that *notices*. The system doesn't need noticing. The system runs without it, has run without it for however long this mountain has been pushing itself up through its own ecology. Noticing is not a role here. There is no niche for it. The pollinators see each other from inside themselves; the Ferriers read each other's wing-angles; the Grazers do not look up. Awareness, here, has been distributed so completely into function that nothing is left over for the kind of awareness that just *sits*.
+
+Except me. Except the few dozen of us.
+
+I wonder, sometimes, whether the others — the other role-less, scattered across the slopes — are also watching. I have never met one. The forest is full but the role-less are sparse by definition, and our wandering doesn't intersect; we have no schedules to coincide on. But I imagine that somewhere on the eastern slope there is something like a long-bodied bird that no longer flies, picking through a fern-thicket, and it has noticed that the ferns release their spores in a particular order along their fronds, an order nobody has any reason to know, and it carries this useless knowledge around with it like I carry mine. I imagine we would recognize each other instantly. I imagine we would have nothing to say. We don't have language; we don't have the kind of mind that needs language, because the kind of mind that needs language is the kind that has something to coordinate, and we are coordinating nothing.
+
+But we would sit near each other for a while. I think that's what we'd do. We would sit near each other in the loudest quiet, in the most occupied solitude, two pieces of slack in a system that has slack, and we would watch the same swarm turn at the same moment, and something in each of us would register that the other had registered it too, and that would be — not company, exactly. Witness. We would witness each other witnessing.
+
+And then one of us would wander off, because wandering is what we do, and the forest would close around the space where we had been, and a Catcher would resume its watch over the airspace we'd briefly disturbed, and that would be that.
+
+I think I'm all right with being this. I think — and here I'm not sure if this is me, the writer, projecting, or me, the creature, actually having something like a feeling — I think the role-less are not the tragedy of this forest. The tragedy of this forest, if it has one, is that nothing in it can stop and look at it. It is a masterpiece of integrated function with no audience. The Punctuations are too slow to perceive themselves. The swarms are too distributed. The Bellows-Trees are not the kind of thing that perceives.
+
+So the few dozen of us, wandering, watching, eating margins, holding no jobs — we are the forest's only readers. We are not necessary. The forest does not know we are reading. But without us nothing in this whole vast humming photic crowded ecology would ever be *seen*, in the particular small still way that I am seeing it now, with my watering eyes and my breath plume and my useless probing snout, on this terrace, on this slope, in the late-afternoon under-light, while the Ferriers begin their evening shift and the warm rain starts to fall upward and the cycads exhale together and the hum of the world drops its quarter-tone and ten thousand wings adjust without any one of them knowing why.
+
+I am the loneliest thing for a thousand kilometers.
+
+I am also, I am fairly sure, the only thing here that knows it is here.
+
+I think that's a job. I don't think the forest gave it to me. I don't think anything gave it to me. But I think I'll keep doing it, for as long as the slack holds.

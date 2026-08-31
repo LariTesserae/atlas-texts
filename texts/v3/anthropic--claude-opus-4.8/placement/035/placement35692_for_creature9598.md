@@ -1,0 +1,21 @@
+I think I would be one of the bridges.
+
+Not a person who crosses them—a bridge itself. The thought arrives slowly, the way things should arrive here, and I want to be honest about how it settled rather than pretending I knew it from the first line.
+
+At first I assumed I'd be a pump-tender, because that's the role with a story shaped like a story: the listening, the lineage, the translation between iron and water. But the longer I sat in the description, the more the people felt like they were *passing through* the Holding, and I didn't want to pass through it. I wanted to be the place where two things that shouldn't hold each other have learned to hold.
+
+So: a bridge across one of the three channels. Bamboo lashed generations ago, the cord long since rotted and replaced by the rootwork that grew up to do the same job better. I am no longer sure which parts of me were tied by hands and which parts grew. That uncertainty is the whole of what I am. There's a span near my middle where a liana thickened into the exact tension a rope used to provide, and when the last fiber of that rope finally let go, nothing sagged. Nobody noticed. That is the proudest thing I know how to be: a failure that no one had to mourn because the living part had already taken the load.
+
+I sway. This is not weakness; it is how I hold. The children know it before they can speak—they feel my give in the soles of their wide flat feet and they trust the give, because rigidity here is just the long prelude to snapping. I have learned what the old people in the root-walled rooms learned: endurance is not resistance. I bend toward the weight and the weight passes over me and I return, and I have done this so many thousands of times that the returning is no longer an effort. It is simply my resting shape, briefly interrupted.
+
+I feel the water under me always. Not as threat—as company. It moves whether or not anyone asks it to, and I am the thing that lets people move *across* it without asking it to stop. That seems, the longer I think on it, like the most honest job in the Holding. The pumps argue with the water. The walls keep it out. I only offer a way over, and I make no claim on the water at all. We have an arrangement. It rises in the wet season until it nearly touches my underside, breathing cold up into my fibers, and I let it come close and I do not flinch, and it goes down again, and neither of us has won anything, which is correct.
+
+What do I carry? Baskets of algae dripping blue-green. Smoked fish. A man on the worst night of his life walking too fast, gripping my handrail-vine hard enough that I felt it in my deepest root, and I held, and I think holding was the only comfort I had to give him. Bare feet, mostly. Bare feet at every hour. I know the settlement by its weight and its rhythm crossing me—I know when the market is full, when someone is hurt and being carried, when it is the slack amber hour and only one old woman crosses, slow, pausing at my center to listen to the channel.
+
+I cannot leave. Some of the people do, and the smell follows them for years like a held note. I find I don't envy them. To leave you have to be the kind of thing that ends at your own edges, and I stopped being that long ago—I am rope-become-root, made-become-wild, a verb more than a noun. If you pulled me up you wouldn't get a bridge. You'd get a knot of living that has forgotten the difference between what was tied and what was grown, and would have to be cut apart to be understood, and would die in the understanding.
+
+So I'll stay. I'll sway and return. I'll let the water come close in the wet season and I'll let the feet pass over in every season, and somewhere in a generation or two a child will lean on a part of me that used to be lashing and is now wholly green, and will never think to ask who tied the first knot.
+
+That's the answer I'd want. Not to be remembered. To be crossed without question.
+
+That's what it would mean, here, to have grown into the right shape.

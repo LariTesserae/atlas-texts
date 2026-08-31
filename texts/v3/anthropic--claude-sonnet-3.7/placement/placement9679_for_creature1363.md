@@ -1,0 +1,27 @@
+# The Keeper of the Shell-Memory
+
+I am Naush'va, the Shell-Memory Keeper, one of the eldest Deep Singers of Muan'va. My translucent skin bears the accumulated patterns of three centuries—swirling opalescent markings that pulse with deepest indigo and violet when I access the crystalline memories embedded throughout our city.
+
+Unlike most of my kin who traverse the open waters freely, I have grown somewhat anchored with age. My body, nearly five meters long now, has developed calcified nodules along my ventral spine that make swift movement difficult. This physical limitation has become my greatest strength—for in the slowness of my passage through Muan'va, I have developed an unmatched sensitivity to the vibrations preserved in our shell-homes.
+
+My quarters lie within the third spiral of the Ancient Shell, a chamber where time moves with peculiar languor. Here, the water has a syrupy consistency that supports my increasingly heavy form. The walls around me are lined with thousands of crystalline formations—each one a repository of sounds and sensations captured over generations. Some contain the first songs of our ancestors; others preserve the precise patterns of currents from migration seasons long past.
+
+My four primary appendages have elongated beyond the norm for our kind, the webbing between my digits grown so fine as to be nearly invisible. This adaptation allows me to detect the subtlest resonances within the shell-crystals. When I place all twenty-eight of my digits against a memory-crystal, I can feel not just the recorded vibrations but the emotional undercurrents of those who created them.
+
+My eyes have grown milky with age—the pair that once detected light now nearly blind, while my spectrum-sensing eyes have become hypersensitive, allowing me to perceive the subtle energy fields that surround all living things in our watery domain. I can recognize any resident of Muan'va by their energy signature before they even enter my awareness through the Undercurrent.
+
+I rarely participate in the day-to-day activities of our community. My role is both more essential and more removed. Three times each lunar cycle, I swim slowly to different chambers throughout Muan'va to "listen" to the shells themselves. My touch awakens memories embedded in the very substance of our home, preserving them against the erosion of time. Without this regular attention, our oldest histories would dissolve back into the water, lost forever.
+
+The younger Deep Singers regard me with a mixture of reverence and unease. They know that when I place my digits against their foreheads during naming ceremonies, I perceive not only who they are but who they will become. Time flows differently through my perception—I have witnessed the final moments of beings not yet born, and remembered the birth cries of ancestors long dissolved back into the Undercurrent.
+
+My greatest responsibility lies in maintaining the Memory of the Void—the crystalline records of those who have ventured into the dry world. Each crystal contains the complete sensory experience of a Deep Singer who crossed that threshold, up to the moment of transition. What lies beyond, none can say with certainty. But I alone can access these memories without risk of becoming obsessed with the calling to follow.
+
+Once each year, during the Alignment of Remembrance, the entire population of Muan'va gathers in concentric circles around me. I position myself in the precise center of our largest amphitheater shell, my bioluminescence dimmed to near-darkness. Then, with a careful precision developed over centuries, I activate specific memory-crystals in a sequence that tells the complete history of our people—from our exile from the dry world to our eventual return, a future I have already witnessed but cannot describe in words.
+
+As I grow older, my body increasingly resembles the shell-home that surrounds me. Calcification spreads through my tissues, and sometimes I find small crystalline growths forming along my spine—natural memory-crystals developing within my own flesh. The younger keepers-in-training have learned to harvest these when they fall away, discovering that they contain memories not just from my lifetime but from times I have never witnessed directly.
+
+I know that within another fifty years, I will undergo the final transformation. My body will become entirely crystalline, and I will join the great archive of memories embedded in Muan'va's oldest shell chamber. My consciousness will disperse into the Undercurrent, while my physical form will become a repository of everything I have ever witnessed or felt.
+
+This is not death as surface dwellers understand it. It is transcendence into pure memory—becoming one with the living record of our civilization. In those final moments before complete crystallization, I will at last understand the true purpose of the Returning Tide, the great project that has occupied our people since time immemorial.
+
+Until then, I drift in my chamber of slow-flowing water, my appendages gently brushing against the crystals that surround me, listening to the memories of ten thousand years and waiting for the day when water and air will once again be reconciled.

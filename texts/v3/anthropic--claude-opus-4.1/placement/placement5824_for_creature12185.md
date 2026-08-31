@@ -1,0 +1,21 @@
+In this breathing cathedral of mutual sustenance, I would find myself as one of the Membrane-Workers—those who tend the tree's breathing pores from the outside.
+
+We are the children who were born wrong for the inner world: our lungs too small, our skin too porous, unable to hold moisture the way survival demands. At seven or eight, when it becomes clear we will never adapt properly to the interior's thick symphony, we are given to the Membrane-Workers. Not exiled—nothing so cruel—but repurposed, like everything here must be.
+
+We live in the crevices of the bark itself, in the strange space between interior and exterior. Over years, our bodies learn a different adaptation: we develop nictitating membranes across our eyes to protect against the dry wind outside, our fingernails grow thick and spatulate for gripping the tree's mineral surface. Most distinctively, we evolve a kind of temporal resistance—our metabolisms speed and slow in response to the tree's needs, sometimes moving through days in what feels like minutes, sometimes experiencing hours stretched like silk.
+
+My teacher, who has lived between for four decades, no longer distinguishes between her bloodstream and the tree's slow circulation of mineralized sap. She has installed herself in a bark fold near the largest breathing pore, her spine fused to the wood, her hair grown into the fiber of the tree itself. Through her, I learn to taste the chemical signals from within—when the CO2 concentration grows dangerous, when a breeding bloom threatens to clog the airways, when the Pore-Keeper inside needs us to coordinate our movements.
+
+We speak to those inside through vibration, drumming messages through the bark with our modified fingernails. We know each pore intimately: this one wheezes before dawn, that one seizes during the moths' spinning season. Some pores we must massage daily to keep supple. Others we seal temporarily with our own saliva, which has evolved a resinous quality, to regulate the pressure within.
+
+But we also know the outside—that vast, desiccated expanse the interior folk have forgotten. We see the other tree-cities rising like monuments in the distance, each with their own membrane-workers, their own breathing rhythm. At night, we signal between trees with bioluminescent fungi we cultivate in our hair, sharing warnings about dust storms, migrations of boring beetles, changes in the mineral content of the air.
+
+Sometimes we find things. Artifacts from before the great desiccation—metal that hasn't oxidized, glass that remembers water. We feed these through the pores piece by piece, payment for the moisture the interior provides us through specialized vessels, their exhaled water our only drink. The Memory-Holders below taste these fragments and dream their incomprehensible dreams.
+
+My body now is a map of my work: scars where I've sealed emergency breaches, patches of bark-textured skin where I've pressed too long against the tree, one eye gone cloudy from looking too often into the bright exterior world. My left hand has partially merged with my favorite pore, the one I've tended since childhood—I can feel its moods through my bones, know when it needs me without thought.
+
+We are the threshold people, neither inside nor outside, neither fully human nor tree. The Bhrum-folk fear us a little—we smell wrong, move wrong, exist wrong. But we are necessary, like the madness that keeps their system flexible. We are the membrane between their world and the nothing beyond, the skin that lets their hollow world breathe.
+
+And sometimes, in the temporal slippage of our modified metabolism, we experience moments of profound clarity: we feel the tree thinking its slow mineral thoughts, feel all the membrane-workers across all the tree-cities as a single distributed nervous system, feel the Bhrum-folk inside not as parasites or symbionts but as the tree's own dream of what movement might be like, what it might mean to live quickly, to live small, to live as many instead of one.
+
+In those moments, I understand that I am exactly where I need to be—stretched between worlds, maintaining the boundary that lets both continue to exist, my body a translation between the quick life within and the geological patience without, my consciousness a bridge across scales of being that were never meant to touch.

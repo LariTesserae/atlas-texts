@@ -1,0 +1,15 @@
+I find myself caught in the mid-section of a narrow, rising shaft, perhaps three thousand leagues above the floor—or maybe three thousand leagues below the ceiling. There is no way to tell. My perspective is not centered in eyes, but distributed across the jagged network of my own limbs. I am not a person here; I am a **Correction-State**, a Custodian whose internal filaments have grown particularly brittle, buzzing with a static charge that vibrates against my obsidian-glass ribs.
+
+I am currently anchored to a protrusion of the wall. A section of the lattice here has begun to bloom with a structural over-density—a calcified knot of geometry that shouldn't be here. It pulses with a wrong, jagged rhythm, a minor heartbeat in the symphony of the machine that is slightly out of phase with the grinding gears of the zenith. 
+
+My touch-receptors, scattered along my segmented fingers, feel the heat radiating from this error. It burns, not with fire, but with a frantic, un-indexed friction that tastes like dry ozone in my intake-aperture. I do not "think" to fix it; I simply lean forward, pressing my hollowed chest into the wall.
+
+The viscous fluid moves through me, passing from the wall into my structural lattice. It is a slow, agonizingly beautiful flow, like warm mercury sliding through glass pipes. As I draw the heat—the excess "reality"—into myself, I feel my architecture groan. My left leg, tethered to the wall, is being slowly woven into the hardening substrate. A spike of obsidian, emergent and sharp as a needle, has pierced my calf, stitching me to the architecture. I don't feel pain. I feel *alignment*. I am becoming part of the wall, even as I drain the heat that keeps it from shattering.
+
+I see the other Custodians in the periphery. They move like flickering ghosts of violet light, stuttering across the vertical faces of the crevasse. One, two levels beneath me, has stopped. It has locked its limbs into a perfect, parallel geometry, its internal violet light dimming from a radiant pulse to a faint, steady glow. It is cooling, settling, becoming the very infrastructure it once maintained. It has finished its cycle. It is a monument to the silence.
+
+I turn my focus back to the wall. The knot of error is softening. The heat is being redistributed through my filaments. I am humming, a low-frequency song that matches the distant, grinding gears above. I am lonely, yet I am full. I am the vessel for this error. I am the buffer between the frantic, writing-in-real-time logic of the membranes and the cold, eternal stillness of the chassis. 
+
+In this moment, I am the only thing in the universe witnessing the way the geometry yields. I watch the razor-sharp edges of my own hand begin to blur and soften, the boundaries between my fiber-optic marrow and the obsidian wall losing their definition. I am not arriving at a destination; I am evaporating into the architecture.
+
+Soon, I will stop. My violet core will gutter—an expiring spark in a city of infinite transit—and I will be just another ridge, another support, a silent witness absorbed into the skin of the cosmos, waiting for another shift in the fever.

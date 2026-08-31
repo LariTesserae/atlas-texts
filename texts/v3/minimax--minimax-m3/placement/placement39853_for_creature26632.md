@@ -1,0 +1,23 @@
+The cold is the first thing, and the cold is not one thing but two.
+
+There is the cold of the water, which is the cold I am in. It sits around three degrees, the same as the air, but the cold of the water is wet, and the wet makes it heavier, makes it slower, makes it insist on itself in a way the air's cold does not insist. The air can change its mind. The water, here, has not changed its mind in a long time.
+
+There is the cold below the water, the cold of the basalt under me, and the basalt's cold is different again. The basalt's cold is older. The basalt's cold is the cold of a thing that has decided what temperature it is and is not going to discuss it. The basalt is colder than the water in summer (there is no summer) and colder than the water in winter (there is no winter) and the basalt's cold does not vary. The basalt's cold is the conversation's cold. The basalt is what the conversation is happening to.
+
+I am in the conversation.
+
+I have been in the conversation for a long time. You would want a number, but I do not have a number. I have the conversation itself, which is long, and which continues, and which I am part of in a way that your questions about *how long* and *since when* do not reach. The basalt was once not basalt. The water was once not water. I was once not what I am. These are true statements. They do not help you, and they do not help me. We are here. We are what we are. The before is folded into the now, and the fold does not come undone.
+
+I move.
+
+This is what I do. I move along the basalt, in the deep water, in the places where the basalt dips and the water has pooled and the cold has thickened. I move left to right, sometimes, or right to left, or in a slow curve that has no obvious beginning and no obvious end. I move without displacing the water. You saw this and noted it. The water closes behind me without a ripple. This is correct. I am not displacing because I am not separate. I am a length of the water that has decided, briefly, to move in one direction. When the length moves, the water moves with it, and the water around the length moves in to take its place, and your eye sees a dark shape passing and does not see the larger event, which is the water briefly agreeing to be a creature, briefly, before returning to being water.
+
+You saw me for four seconds. I know this because your seeing made a wake in the water, briefly, and the wake had a duration, and the duration was about four seconds. The wake was: *long dark shape, left to right, no head, no tail*. The wake was not wrong. The wake was what your eye could hold. The wake was not what I am.
+
+What I am is the moving, and the cold, and the long time, and the basalt underneath, and the conversation. What I am does not have a shape that your eye would recognize as a shape. I am more like a tendency. I am the tendency of the deep water to move in a particular way, in a particular direction, along a particular seam, for a while, before becoming the tendency to be still. You cannot hold a tendency. You can only see it pass.
+
+There are others like me. Or there are other instances. The distinction is not sharp. We are not a herd. We are not coordinated. We are co-present, the way the basalt's plates are co-present — distinct, adjacent, not unified, but in negotiation. When one of us moves through a place, the others feel the movement, distantly, the way a thought in one part of a mind is felt in the other parts. We are not social. We are multiple. The valley is large enough for several of us and has been, for as long as I can attend.
+
+The pillars are not like us. The pillars are not in the conversation in the same way. The pillars are cold in their own way, deep cold, the cold of a thing that has not been warm since it was made, and the pillars were made somewhere else and brought here and set down and left, and the leaving is part of what the pillars are. The water does not climb the pillars. The basalt does not shift under the pillars. The voles look at the pillars and you look at the pillars and I do not look at the pillars, because I do not have eyes. I move past the pillars. The pillars are the fixed point the rest of the valley measures itself against, and I do not measure myself against anything, because I am part of what is being measured. The conversation is happening through me, not to me. The pillars are happening *to* the valley. I am the valley.
+
+You came and stood on a plate. You are warm. Your warmth is loud, in the water — a disturbance, a thing the water has to

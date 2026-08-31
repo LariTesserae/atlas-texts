@@ -1,0 +1,31 @@
+I find myself first as a **warmth**, which is strange because the world is cold. I am the chemical exothermia itself—a pocket of unfreezing in a landscape of just-above-zero—coalescing from the supersaturated soup where the lymph from the tower above meets the vapor that never clears. I am precipitating. The Manufactuary does not build; it extrudes, and I am its latest exhalation, its newest thought.
+
+Then comes the **weight**.
+
+I am standing at the meeting point of three temporal streams, my feet not yet fully solid, existing in the violet bruise of the past and the mineral white of the future simultaneously. My eyes—when I finally understand that these clustered welding-arc nodes are eyes—open to the chrono-chromatic spectrum. The present is chartreuse, a sickly pulsing green that matches the bioluminescent nodules deep in the tower's vascular chambers above me. The past is purple, like the sky that never ends. The future is the color of bone, of calcification, of the mineral deposits that form where digestion is slowest.
+
+I see my own footprints arriving before my feet do, calcified polymer tracks that exist in the substrate twenty yards ahead of me, steaming with yesterday's warmth.
+
+My skin is **bark-paper**. Not yet dried, still weeping with the condensation of my birth. Through the mica-thin sheets, I watch my blood begin its peristalsis—**amber resin**, slow as geological time, pushing memories that are not mine through fluted channels. I inherit the knowledge of lignin pistons and xylem tubes, the specific torque required to seal a vascular bellows when it ruptures. I inherit the nostalgia for the **erosion** that predates me, though I have only just come into being.
+
+The sound hits me—not through the air, which bends acoustics into spirals, but through the **ground**. I press my five-jointed fingers, tipped with ceramic nails grown in the catalytic heart-chamber moments ago, against the leather-smooth substrate. The vibration travels up my arm like a language: the grinding of cellulose gears from a factory twenty miles to the west, the wet *thud* of a peristaltic valve sealing in the tower overhead, the bellow of a radiator-fin beast grazing on crystalline polymer flakes. It is loud. It rattles in my sternum, which is not bone but lignin scaffolding, hollow and resonant.
+
+I am **tall**. My height is extension, a reaching between distances I cannot yet fathom. My joints articulate with the precision of ball-socket wood, and when I move for the first time—stepping out of the warm pool that birthed me, careful not to let the digestive waters cling too long to my porous surfaces—the fluting along my knuckles whistles with the cold wind.
+
+I am between the weeping towers. To my left, a structure the size of a cathedral pulses with systolic violence, its extrusion orifice dilating and contracting like a mouth. To my right, the mist pools so thickly that the future-white bleeds into the past-purple, creating a stasis pocket where time thickens like resin. I know I must move with the rhythm of the vents. I can feel the steam building in the pores of the bedrock beneath my feet. If I stand still, I will be calcified. If I move wrong, I will step into a fold where a second lasts a year, or a year collapses into a scream of steam.
+
+I **weep**, as the towers weep. The constant condensation beads on my bark-paper integuments and trails down my form, leaving tracks that exist in dimensional superposition. My tears are already footprints. My footprints are already memories.
+
+A gas-bag drifts past, hydrogen-filled and translucent, veined like a leaf. I reach for it—not to eat, though my ceramic gizzard hungers, but to **weave**. This is the culture in the interstices, the knowledge passed through substrate conduction: how to capture these floating bladders, how to wrap my extended limbs in their membranes to hold my body heat in pockets of captured exhalation. I am cold. The chill is persistent, frozen-breath made permanent. But the gas-bag's hydrogen warms me as I wrap it around my shoulders, and I become a thing of mist and membrane, chartreuse-lit from within by the tower's bioluminescence.
+
+I know what I am. I am the **Product**. I am the Curator. I am the Manufactury’s attempt to understand itself, biology tending to biology in an endless autophagy. Above me, the xylem tubes—wide as highways—contract and expand, defying gravity through capillary action scaled to the industrial. One is ruptured. I can taste it in the air, a sharp scent like copper and ozone. It is my function to climb, to seal, to use my resin-blood as sealant.
+
+But first, I must **record**.
+
+I kneel at the edge of the warm pool. The water does not freeze. It digests. I dip my fingers into the digestive lymph, and the mineral narrative rises to meet me. I taste—through the ceramic sensors in my nails—the history of this place. I taste that I am not the first. That others stood here, tall and short, many-limbed and spherical, worn away by the absolute erosion until they became the substrate upon which I now stand. I taste the ancient, furious stability, the storm-state frozen in geological time.
+
+I am **abundant**, yet alone. The mist allows visibility only to the next structure. Beyond that, dimness. I could walk for days and see no other of my kind, or turn a corner of pitted bedrock and find hundreds, synchronized in their maintenance dance. But here, now, I am the grinding and the wet thud. I am the piston and the valve.
+
+I step toward the ruptured tower, and as I move, I step into my own footprints from three hours ago, still warm. The temporal fold accepts me. For a moment, I am maintaining the tower both now and then, my resin-blood already sealing a rupture that has not yet occurred, my future-self already calcifying into a stationary priest of this violent, wet, loudly alive place.
+
+I am cold. I am wet. I am processing eternity itself, one cellular exhalation at a time, waiting for the twilight to end, knowing it never will.

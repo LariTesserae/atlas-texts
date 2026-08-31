@@ -1,0 +1,33 @@
+I find myself as one of the **Keepers of Memory**—though in truth, I am still learning what that means.
+
+My dwelling sits on one of the smaller islands, barely large enough for the single limestone dome I share with no one. From here, I can observe seven different light-paths as they cross the waters throughout the day, and I have positioned my collection pools to catch the mineral-rich condensation that forms where warm springs meet cool stone.
+
+I am called Seylas, though like all Memory Keepers, I chose this name myself after my first successful reading of the deep patterns. My birth name—Rill—belongs to my childhood, when I still believed the ripples were merely water meeting water, before I understood they were conversations between past and future.
+
+My fingers are beginning to show the telltale staining of my craft—not the copper-green of the Mirrors, but the blue-grey tinge that comes from working with the recording minerals. Each morning, I grind small amounts of dissolved limestone with traces of copper and iron, creating the pigments I use to transcribe the ripple patterns onto fresh tablets. The work requires perfect stillness; even my breathing must be controlled to avoid disturbing the very patterns I seek to record.
+
+I am young for a Keeper—only forty-three years have passed since my birth on the cluster of islands we call the Birthings, where the warmest springs create pools suitable for early childhood. Most Keepers don't begin their training until they've spent decades in other roles. I worked first as a moss tender, then briefly attempted to join the Mirrors before Elowen herself suggested I had the temperament for pattern-reading.
+
+My body bears the marks of my unusual path. My left shoulder sits lower than my right from years of leaning over the recording pools. My eyes, already large like all Lumina, have developed an unusual ability to perceive the slightest variations in water tension—I can see the influence of a spring three islands away in the pattern of local ripples. My hair, which I keep shorter than most, has developed premature white streaks from the hours I spend in the brightest reflection zones, studying how light changes the message-patterns.
+
+My daily work begins before the first light-shift, in the period we call the Dim, when only the faintest glow from the fungi and the pre-dawn sky illuminates our world. I make my way to the recording pools—three natural basins I've modified with centuries-old techniques to create perfect stillness zones surrounded by precise channels that direct incoming ripples. Here, I wait.
+
+The patterns speak in a language that took me seven years to begin understanding. Where others see random intersections of circular waves, I perceive the underground springs communicating—each spring has its own pulse, its own temperature, its own mineral content that subtly affects how its ripples propagate. When multiple springs align their flows, the patterns can predict changes in the cavern's water table days or even weeks in advance.
+
+But I seek deeper meanings. The eldest Keeper, Gwellen, claims she once read a pattern that predicted the birth of twins three months before their conception. I've yet to achieve such clarity, though last season I accurately predicted the failure of a section of mirror array from patterns that showed disruption in the thermal flows above.
+
+My tools are simple but irreplaceable: a set of curved measuring stones inherited from my predecessor, ground to precise arcs that match the most common ripple frequencies; my recording tablets, which I prepare myself from the finest-grained limestone; my pigments and applicators—brushes made from my own hair bound with spider silk from the few arachnids that inhabit our deeper passages.
+
+I maintain careful relationships with the other specialists. The Mirrors trust me to warn them of conditions that might affect light transmission. The moss tenders appreciate my predictions about optimal growth periods. The fish trappers have learned that certain patterns indicate schools moving through the deeper channels. In exchange, they ensure I never lack for food or materials, understanding that a Keeper disturbed during a critical reading might miss patterns that won't repeat for seasons.
+
+My greatest challenge—and secret shame—is my incomplete understanding of the ancient recordings. Our library cave contains thousands of tablets, some dating back to the first generations of Lumina. The symbolic language has evolved, and much knowledge has been lost. I spend my rest periods there, comparing ancient patterns to current ones, trying to decipher what my predecessors understood that we've forgotten.
+
+Recently, I've noticed patterns I've never seen before—disturbances that originate not from our springs but from somewhere deeper, below even our lowest water channels. They create interference patterns that obscure the usual readings. Gwellen dismisses them as seismic echoes, but I'm not convinced. These patterns have a regularity, almost like breathing, but with a rhythm that spans days rather than moments.
+
+I've begun my own private record of these anomalies, using a corner of my dwelling where I've installed my own recording pool—smaller than the official ones but adequate for tracking these long-period waves. I tell no one of this work, not yet. Among the Lumina, presenting incomplete observations is considered worse than remaining silent.
+
+My life is solitary but not lonely. The patterns are company enough—each day bringing new conversations between the waters, new messages from the stone and spring. Sometimes I work alongside the other Keepers, sharing observations and debating interpretations. More often, I work alone, my world contracted to the few square feet of still water that hold tomorrow's secrets in today's ripples.
+
+When the light-shifts reach their peak, I sometimes pause my work to watch Thalo and the other Mirrors at their adjustments. Their work is visible, celebrated—each successful redirect of light bringing immediate beauty to our world. My work remains hidden in symbols on stone, its value proven only when predictions manifest as events. Yet I wouldn't trade places. In the patterns, I see the Bright Below breathing, thinking, dreaming. I document the dreams of stone and water.
+
+Tonight, the deep patterns grow stronger. Whatever breathes in the darkness below us stirs in its sleep. I prepare new tablets and wait, stylus ready, eyes trained on the recording pool where messages from the deep rise to break the surface in perfect, terrifying circles.

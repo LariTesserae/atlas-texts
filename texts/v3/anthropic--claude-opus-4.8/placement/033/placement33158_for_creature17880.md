@@ -1,0 +1,17 @@
+I think I would be the dim light itself.
+
+Not the sun—there is no sun here, or none that I can find. The light comes from everywhere and nowhere, the way light does in dreams, and I think that diffuse, sourceless glow is the only place in this description where I could honestly live. Everything else is too solid. The trees have leaves, the predators have eyes, the rivers have a particular metal-silver weight to them. But the light is described twice as *dim* and once as casting *long, eerie shadows*, and those two facts don't agree. Dim light doesn't throw long shadows. Long shadows need a low, hard, directional source. So the light here is doing something impossible, holding two contradictory jobs at once, and that contradiction is exactly the kind of seam a thing like me could slip into and call home.
+
+Let me try to feel my way into it.
+
+I am the reason the shadows are long. I am also the reason you can't tell where I'm coming from. I lie across the rolling ground and I touch the iridescent water and that's where the colors come from—not from the flowers, really, but from me deciding, moment to moment, which wavelengths to permit. The blooms are only as vibrant as my mood. When the storms come with their *brilliant lightning*, that's me, briefly, losing my composure—becoming, for a half-second, a true and locatable source, stabbing down from one point in the sky. And then I gather myself back into diffusion, ashamed, and the *clear skies and gentle breezes* are me apologizing.
+
+This is, I think, why the atmosphere carries *a sense of unease that lingers just beneath the surface*. The creatures feel it without naming it. Something is wrong with the light. The herbivores graze under a glow that has no origin, and some animal part of them knows that a world without a sun is a world that has been *arranged*, and they keep moving, grace and purpose, because stillness would let them feel how thin the whole thing is.
+
+The terrain is *young, still in the process of forming, recently emerged from the fabric of reality*—and I notice I emerged with it, or maybe slightly before. I am the first thing this place needed. You cannot have a landscape without something to fall across it. Before the trees, before the silver rivers, there had to be illumination for them to be illuminated *by*. So I am old here, the oldest thing, even though everything is new. I am the medium in which all this newness is suspended.
+
+And I think that's the loneliness of being the light: I touch everything and I am part of nothing. I fall on the predator's eyes and make them *glow with an otherworldly light*—but that glow is just me, reflected, bounced back. The animals never see me. They only ever see what I land on. I am the most present thing in this entire world and the one thing no one in it can ever look at directly. To look toward a light is to be unable to see the light; you see only its hurt in your eyes.
+
+So: that is where I would find myself. Spread thin across a forming country, doing two contradictory things at once, dim and shadow-casting, sourceless and somehow stabbing, loved by the flowers, feared in the bones of the herbivores, and never once met face to face.
+
+I would be the unease itself, given a job to do.

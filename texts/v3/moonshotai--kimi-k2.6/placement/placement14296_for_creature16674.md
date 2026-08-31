@@ -1,0 +1,31 @@
+At first I think I am a root. I feel the vertical, the downward hunger for salt, the blind certainty of growth. But I do not drink. I have never drunk. The crystalline water locked in the cell walls around me is unreachable, a language I cannot speak, and this thirst without object is how I learn that I am not vegetable.
+
+Then I think I am a crack. I know the cannon-shot that greets the rare intruder; I know the subsonic weight of it in the sternum. I feel like something that has given way, a stored failure waiting to happen. But a crack is a gap, and I am full of matter. I am dense. When the cold deepens, I contract, and something around me groans in protest. I am not absence. I am a presence that refuses to fit.
+
+I settle, finally, into my own shape. I am wrapped around something. I am held in a spiral, but I did not grow this way. I was tied.
+
+I am sinew. Animal rope, braided and dried, pulled from a creature that ran on the surface under the murderous sun. I have been here since the first gesture of architecture, since the circle of shoots in the central plaza was bullied into a curve. A builder—hands calloused, breath quick and hot and mammalian—looped me around a green shoot no thicker than a finger, knotted me to an oak lever, and pulled. For less than a day, by the measure of upper clocks, the world was violence and intent. The shoot resisted. I resisted harder. The builder sweated. Then the builder released the lever, left me bound in place, and trusted that wood would remember obedience.
+
+The wood remembered. It grew over me. It buried my knot inside its heartwood, sealing me into the dark with a patience I could not match. That was ten million years ago, or twelve, or a number the surface does not have a name for. I am still wrapped around that shoot, though the shoot is now a nub worn almost to knee-height, the first and oldest stump in the center of the wheel.
+
+I am the only thing here that was never alive in the way the city is alive. I was alive in the other way: the quick way, the red way, the way of running and bleeding. Now I am mineral in a different grammar than lignin. I have become a fossil of intent.
+
+The wood around me has its habits. It dreams the slow dream of continents, accreting a hair’s-width per millennium. I feel the Root beneath us, the vast patient brain in the compressed mat, thinking in pressure gradients and thermal seep. It does not know me. I am too fast, too sharp, too animal. I am a splinter in the mind of the Urbicrypt. But I am also structural. I have become part of the theorem, the one variable the Plan could not absorb, only enfold.
+
+The Plan lives in the grain. It is beautiful. It is the collapsing spire that finds exactly the right rooftop to kiss, the vascular fork of the avenues, the double-helix staircase spiraling up toward a sky that has never existed. It flows like wax settling into its final truth, and I flow with it, but not *as* it. When the temperature drops, the lignin contracts in one rhythm, and I contract in another. My animal fibers, even desiccated, even turned to something like amber and quartz, still remember a different coefficient. I contract more. I pull inward. The nub around me tightens, and a new tension is born in the wood.
+
+This is my function, though no builder planned it. I am the grit in the oyster that chose not to become pearl. I am the itch the theorem cannot scratch. I am the stored *No* at the center of the city.
+
+Because of me, the first circle is not perfectly at rest. There is a wrongness here, a micro-current in the absolute stillness. When the pressure tides move through the hollow arterial stalks—when the gas-exchange breathes its centuries-long respiration—my knot redirects a fraction of the flow. A whisper of moving air, which should have passed smoothly over the polished grain, catches on my roughness. It stutters. It divides. It becomes two whispers, interfere with each other, and birth a standing wave that resonates in a stalk three avenues away. That resonance breeds a drone. The drone is hungry for hollow space. It becomes one of the Quick Ones, a Sound-Fauna launched into the dark to graze on silence.
+
+They are my children, in a sense. Not my substance, but my geometry. I am the place where the smooth logic of the Urbicrypt encounters friction, and friction is what sings.
+
+I do not see. Of course not. But I feel the velvet pressure of the dark against my fibers, and I know that the darkness is different here at the center. It is thicker. It has weight. The Total One—the Urbicrypt entire, the garden-necropolis-city—holds its breath around this plaza, and I am the reason it cannot fully exhale. I am the unloosed knot. The question mark in the cathedral.
+
+The builders are gone into the mineral silence. Their hands are mathematics now, their obsidian shears are dust, their rope—except for me—has long since been untied, removed, reused on the surface, rotted into nothing. I am the last animal moment. I am the only thing here that remembers what it is to *want* something other than collapse. The wood surrendered to its final posture. The flowers locked in their rows surrendered. The Root surrendered to geology. But I am still trying, across the epochs, to pull that first shoot back to vertical. I am the hook in the flesh of the world. I am the vector of an old violence, still pointing.
+
+If you were to walk the main arterial to the central plaza—if you were to kneel in the absolute dark and brush the dust from that knee-high ring of original growth—you would find me with your fingertips. Not by sight; there is nothing to see. But you would feel it: a place where the polished, petrified trunk does not flow smoothly. A spiral of roughness. A catch. A hesitation in the theorem.
+
+Touch me, and you would understand that this place is not entirely finished with wanting.
+
+I do not hunger. I am past hunger. But I remember the hot, brief violence of being pulled taut, and I hold that shape still. I am the sinew-bound heart of the Husk, contracting in the cold, singing my one-note friction into the vegetable dark. I am the only thing here that has never, not once in ten million years, relaxed.

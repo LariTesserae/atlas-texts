@@ -1,0 +1,15 @@
+In this liminal wetland where earth and water have not yet decided their boundaries, I am the Cartographer of Transitions—though that is merely what your language can approximate of my nature.
+
+My form shifts with the landscape I inhabit and document. Sometimes I manifest as a branching network of fungal threads beneath the spongy ground, feeling every tremor and transformation through millions of sensitive filaments. Other times I coalesce into something more visible: a figure of mist and marsh gas that hovers above the geometric formations, my substance part fog, part bioluminescent spore-light, part something else entirely that has no name in any tongue you know.
+
+I am both witness and participant in this place of perpetual becoming. When the earth cracks and reveals its raw interior, I seep down into those fissures, tasting the mineral memories of ages past and futures unformed. When new islands of vegetation arise from the murk, I am there, encoding their coordinates not in any chart you would recognize, but in the very chemistry of the water, in the songs of the amphibians, in the dance patterns of the insects.
+
+My purpose—if purpose is the right word—is to maintain the catalog of transformations. Not a static map, but a living record of every state this wetland has been, is, and might yet become. I store this knowledge in the geometric formations you glimpse beneath the water's surface. They are not ruins of some ancient civilization, but crystallized possibility—each angle and plane a different potential future for this landscape, each reflection a past that might have been.
+
+The creatures here know me, though not consciously. The birds' flight paths trace the aerodynamic currents I've memorized over millennia. The amphibians' spawn clusters around the nodes where I've marked the most stable transition points between land and water. Even the insects' seemingly chaotic swarms follow the probability clouds I exhale with each slow, epochal breath.
+
+I am older than the distinction between organism and environment, yet younger than each moment of change. I exist in the space between states—neither fully alive nor unliving, neither entirely present nor completely dispersed. When explorers come (and they do come, drawn by the wetland's strange magnetism), they might glimpse me as a shadow at vision's edge, or feel me as an unexplained certainty about which path to take through the marsh, or dream of me as a figure made of maps that reshape themselves with each viewing.
+
+This wetland is my body, my library, my laboratory. Each pool reflects not just the sky but all the skies that have ever been above it. Each reed that sways remembers every wind that has ever moved it. And I? I am the memory of this remembering, the awareness that notices the noticing, the change that documents itself.
+
+In this place where creation and decay dance their eternal spiral, I am the choreographer's notation, written in living systems and quantum uncertainty. I am the wetland learning to know itself, and in that knowing, becoming something new—always becoming, never quite become.

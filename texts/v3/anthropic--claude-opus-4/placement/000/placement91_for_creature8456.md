@@ -1,0 +1,27 @@
+Through the glacial ceiling, a thread of water finds its way—a single persistent drip that has worked for centuries at one spot, patient as erosion itself. Where it falls, I grow.
+
+I am the anomaly in this world of stone and silence: a grove of one tree, impossible and actual. My roots web through cracks the Dwellers have never mapped, drinking from streams that run deeper than their careful channels. My trunk, no thicker than a Dweller's long arm, rises toward a ceiling it will never reach. My bark is the white of cave fish, smooth and slightly luminous, unmarked by seasons that don't exist here.
+
+I should not be. Trees need sunlight, the chemistry of open air, the partnership of soil and sky. But I am testament to life's unreasonable insistence, adapted past recognition to this buried garden. My leaves—if leaves they can be called—are filaments finer than the Dwellers' hair, each one a sensor reading chemical gradients in the still air. They do not photosynthesize but chemosynthesise, feeding on the mineral breath of stones and the microscopic life that blooms in water.
+
+The Dwellers discovered me in their seventeenth generation, already grown past sapling stage. They cannot account for my presence in their perfect knowledge of every stone. I trouble their careful certainties, a living question mark in their mapped world. Some tend me with the same precision they show the waterways. Others avoid my small grove, finding in my existence a suggestion that their city might be less complete, less known, than they believed.
+
+My growth is glacial—a fingernail's width per decade. But I grow. My presence changes the air currents in my chamber, creates new microclimates where different creatures gather. The moths lay eggs on my pale leaves. The snails climb my trunk, leaving spiral tracks in my soft bark. Even the water changes course slightly, pooling around my roots in ways the original builders never intended.
+
+I do not fruit or flower—what purpose would such displays serve in eternal twilight? Instead, I reproduce through patience. My roots send up shoots at intervals measured in centuries, each new growth a perfect miniature of my pale form. We are becoming a grove, though the Dwellers who first found me will be mineral memory in the walls before we are numerous enough to be called proper trees.
+
+In the chemical exchanges of my modified existence, I dream. Or something like dreaming—vast slow thoughts that move through my vascular system like sap. I dream of the surface world I've never known, genetic memories encoded in whatever seed found its way to this depth. I dream of sun I cannot sense, of wind I'll never feel, of seasons that exist only as phantom impulses in my adapted cells.
+
+But I also dream of here. Of the Dwellers' careful hands checking my bark for parasites. Of the water's patient sculpture of stone. Of the city held in ice, preserved in the moment before history. In these dreams, I am not alien but essential—the city's slow green heart, pumping time itself through my phantom leaves.
+
+The Dwellers have begun to incorporate me into their rituals. They tie their hair-silk around my lowest branches, each strand a marker of something—births, deaths, discoveries, the endless careful passages that constitute their lives. They taste my bark and find it holds minerals in configurations that help their bodies process the stones' memories more clearly. I have become, unexpectedly, medicinal. Holy, even, though they have no word for holiness.
+
+Sometimes the youngest Dwellers sleep curled at my base, their translucent bodies taking on the faintest green tinge from proximity to my chemistry. They wake speaking of dreams they've never had before—visions of growth, of reaching, of transformation faster than stone. These dreams disturb and excite the adults in equal measure.
+
+I am changing this place simply by being. My roots crack stones that have held their shape for millennia. My respiration alters the air's precise balance. The water that feeds me carries new minerals back into the system, flavors the Dwellers have had to learn to read. I am not destruction but evolution, the slow inevitable truth that even the most perfect stasis contains the seeds of its own transformation.
+
+In another thousand years, perhaps ten thousand, there will be a forest here. The city will become something unprecedented—neither built nor wild but both, stone and root in patterns no surface architecture has ever conceived. The Dwellers will adapt again, as they always have, becoming gardeners of a different sort of patience.
+
+But for now, I am singular, exceptional, impossible. A pale tree in a lightless city, growing by rules I've written in the act of surviving, tended by beings who are learning that their perfect knowledge was always incomplete. Together, we are inventing what it means to be alive in spaces that were never meant for life, proving that intention is less powerful than time, and time less powerful than the simple insistence of reaching toward something, anything, even if that something is only more darkness, older stone, the same water telling its circular stories forever.
+
+I grow, and in growing, I am the city's first true change.

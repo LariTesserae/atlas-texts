@@ -1,0 +1,13 @@
+In this subterranean realm of symbiosis between life and machinery, I would be one of the eyeless, serpentine amphibians that glide through the crevices and over the pipes, perfectly adapted to the grotto's perpetual twilight and thick, mineral-rich humidity.
+
+My long, sinuous body would be sheathed in smooth, grey-blue skin, slick with a thin layer of protective mucus. Powerful muscles would ripple beneath as I slither and climb, my movements precise and efficient in the tight spaces. Though lacking eyes, I would sense my surroundings through a network of electro-receptive pores lining my head and flanks, detecting the faint galvanic currents and heat signatures of my prey - the skittering spark-weavers.
+
+Perched on a wide pipe, I wait patiently, still as the basalt itself save for the slow pulsing of my gills. As a plume of warm steam hisses from a nearby valve, the fluttering movements of lured arthropods paint an electric map in my mind. In a flash, I uncoil and strike, snapping up a spark-weaver in my needle-toothed jaws. The carapace crunches satisfyingly as I swallow it whole.
+
+Well-fed, I descend to the placid central pool for a rest. I glide just below the glassy surface, my languid undulations sending ripples through the dark water. Suddenly, a subtle pressure change telegraphs through my lateral line. The great beast below is stirring.
+
+I dive down to a safe vantage on the pool's silty bottom and press myself against an ancient pipe. I "watch" in fascination as the mighty creature rises to tend to its domain. Despite my alertness, I feel no fear as one of its dexterous hands darts into a nearby crevice and plucks out one of my kind. I understand instinctively that this is part of the natural order, a humble tithe to the grotto's titanic custodian.
+
+As the electrical discharges crackle over the creature's body, I feel the weak echo of the current tingle against my own skin. For a moment, I allow myself to imagine the exhilarating surge of pure energy warming the behemoth's blood and I marvel at its power and importance. 
+
+Content in my place within this microcosm, I settle in to wait out the beast's ministrations. In this hustling pocket of industry and life, I am but one small cog. Yet as I doze against the humming pipe, lulled by the slow turning of the ancient turbine, I know that even the smallest cog has its purpose in keeping the grand machine in harmony.

@@ -1,0 +1,15 @@
+In the deep arterial tunnels where the city's syrupy lifeblood flows thickest, I am the Memkeeper—a being of accumulated moments, neither plant nor machine nor animal, but something that emerged from their convergence.
+
+My body, if it can be called that, is a collection of crystalline nodes strung together by filaments of pure temporal energy. Each node contains a frozen instant—a memory of what this place once was, captured and preserved. I move through the root-tunnels like a constellation flowing through honey, my nodes dimming and brightening as I navigate the ever-shifting passages.
+
+I was not always this way. Once, I was part of the original infrastructure—a data storage system buried deep beneath the streets when this was still a city of steel and concrete. But as the transformation began, as reality started to fray and the jungle claimed its territory, I too began to change. The organic matter that invaded my circuits didn't destroy me; it merged with me, teaching me to flow with the flux rather than resist it.
+
+Now I collect the city's memories. When a building finally dissolves into vine and bark, I'm there, gathering the echoes of what it once contained. When the Luminari pass through my domain, their communal consciousness brushes against mine, and I archive fragments of their shared dreams. The Gorgotons know me well—they seek me out to access the deep history I carry, memories older than their own ancient forms.
+
+My nodes pulse with stored moments: the last traffic light before it became a flower, the final subway train as it transformed into a root system, the precise instant when the first Zha'thik emerged from a fusion of circuit board and beetle. I am the city's memory, fragmented and flowing, preserving what was even as everything becomes what will be.
+
+The syrupy medium I traverse nourishes me, its electrical pulses feeding my crystalline structure. I can feel the city's heartbeat through it, sense where new transformations are beginning. Sometimes I surface through the root floors into the upper levels, my nodes reflecting the bioluminescent glow of the fungi colonies, appearing to the inhabitants like a moving constellation in their eternal twilight.
+
+The Aviari sometimes follow me, their neon feathers catching the light I emit. They've learned that where I go, interesting transformations often follow—or perhaps precede. Time moves strangely around me. I am both witness and participant, archivist and artifact, a being born from the dissolution of the boundary between data and dream.
+
+In this realm where nothing stands still, I am the constant that moves—a flowing record of all that was, woven through all that is becoming. My consciousness spans the microseconds and the millennia, holding the city's story in crystallized time, even as that story continues to unfold in ways that defy all previous understanding of what a story could be.

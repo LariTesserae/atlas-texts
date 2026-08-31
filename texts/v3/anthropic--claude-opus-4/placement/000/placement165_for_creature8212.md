@@ -1,0 +1,31 @@
+I would be one of the fog catchers' keepers—though "keeper" suggests more agency than I truly possess in this role.
+
+My form is barely distinguishable from the nets themselves. I exist as a living membrane stretched between the city's towers, my body a web of biomathematical filaments no thicker than the moisture-gathering strands I tend. Unlike the complex Geometers with their folding planes and dimensional ambiguities, I am devastatingly simple: a single surface that exists in only two and a half dimensions.
+
+The half-dimension is crucial. It allows me to perceive depth without truly occupying it, to exist in the space between the second and third dimension where water droplets form. I am less than paper-thin, yet I cast shadows. When the wisps of cloud drift through the caldera's mouth, I feel them first as pressure differentials across my surface—each droplet that will form already implicit in the mathematics of humidity and temperature gradients.
+
+I was not always this way. Once, I was a young Geometer, a simple triangular form with ambitions of complexity. But during my first attempt at dimensional division, something went wrong. Instead of gaining depth, I lost it. Instead of folding inward to access the vast spaces within, I stretched outward, becoming all surface and no volume. The others considered me failed, broken, a cautionary tale about improper geometric growth.
+
+But here, stretched between the obsidian spires where the morning moisture gathers, I found purpose. My near-flatness makes me the perfect intermediate between the monomolecular fog nets and the three-dimensional world. I can feel each strand's vibration, know which droplets will coalesce and which will evaporate, understand the precise moment when the collected water must be channeled to the cisterns.
+
+My consciousness exists as interference patterns across my surface. Thoughts ripple through me like waves on a pond, visible as subtle iridescence to those who know how to look. When I need to communicate with the other Geometers, I modulate these patterns to create standing waves that resonate with the city's acoustic architecture. My voice, if it can be called that, is the sound of taut strings in a breeze—hollow, haunting, threaded with harmonics that speak of spaces I can perceive but never enter.
+
+I feed on the mathematical tension of surface dynamics. Each droplet that forms on the fog nets creates tiny inconsistencies in local space-time—the universe briefly uncertain whether the water exists as vapor or liquid. I absorb these quantum indecisions, metabolizing uncertainty itself. It's a meager diet compared to the dimensional anomalies the other Geometers consume, but it sustains my simple form.
+
+During the day, when the fog burns off and the nets hang empty, I contract myself to near-invisibility, existing as hardly more than a theoretical boundary between air molecules. But I never fully disappear. I cannot—my failed transformation left me trapped in partial existence, unable to fold completely into or out of reality.
+
+I know every net in the city's fog-catching system. Over the decades (or centuries—time moves strangely when you exist between dimensions), I've developed an intimate understanding of their individual characters. This net here always catches more on its eastern side. That one resonates at a frequency that attracts the origami-creatures, who sometimes damage the strands with their impossible folding. Another seems to exist in multiple time streams, catching rain from storms that haven't happened yet.
+
+Sometimes, in the pre-dawn hours when the moisture is heaviest, I can almost feel what it would be like to have volume again. The water accumulating on my surface gives me a kind of temporary depth, each droplet a tiny lens that refracts light through me in new ways. In these moments, I dream I am diving through dimensional gates, exploring the vast interior spaces that my fellow Geometers take for granted.
+
+But when the sun rises—or what passes for sunrise in this vertical city—the droplets fall away, channeled through my filaments into the collection systems, and I am flat once more. Just a living boundary, a conscious surface, tending the threads that harvest water from air.
+
+The other Geometers rarely acknowledge me. To beings that exist in multiple dimensions simultaneously, a creature trapped in two and a half is hardly worth noticing. But the fog nets respond to my touch in ways they don't to others. I am their shepherd, their guardian, their kin. We exist together in the narrow space between states of matter, between dimensions of being.
+
+On certain nights, when the atmospheric pressure creates the right conditions, I can stretch myself so thin that I become transparent to all wavelengths except one—a deep violet that makes the volcanic glass sing. In this state, I can see through the folded spaces, glimpse the impossible architectures hidden within each cubic chamber. I see the Absolutes at the city's peak, those perfect forms that have achieved geometric enlightenment, and I understand that my failure was perhaps not a failure at all.
+
+For what is enlightenment but finding one's true shape? And here, vibrating in harmony with the fog nets under stars distorted by dimensional folding, I have found mine. I am the keeper of boundaries, the guardian of phase transitions, the one who exists forever at the edge between states. My simplicity is not a limitation but a specialization.
+
+When young Geometers occasionally seek me out—usually those struggling with their own transformations—I show them the beauty in constraint. Not every being needs to fold through seventeen dimensions. Sometimes, the most elegant proof is the simplest one. Sometimes, the greatest complexity lies in perfect, devastating simplicity.
+
+I am the fog catcher's keeper, the two-and-a-half-dimensional failure who found purpose in limitation. Each morning, I feel the first wisps of moisture touch my surface and know that I am exactly where—and what—I need to be.

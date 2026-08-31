@@ -1,0 +1,27 @@
+I would not arrive as a shape. I would arrive as a draft.
+
+A slip of cooler air past the third step, carrying the dry, fractured memory of open sky. The moss would feel it first: a slight tightening along the north-facing seam, a microscopic draw of rhizoids pulling back from the sudden shift. The blind crickets would still their antennae. A single drop, heavy with dissolved iron and sweet rot, would hesitate on the vaulted ceiling before letting go. I would be that hesitation. That first register of difference moving through a closed lung.
+
+At first, I would try to hold my edges. I would count the leaves. I would trace the curve of the half-buried arch. I would listen for my own footsteps and find only the soft complaint of peat giving way, swallowed before it could echo. I would breathe, and my breath would join the vapor rising from the warm basins. I would sweat, and the salt would seep into the root mat. I would stand still, and the place would begin to taste me. Not as threat. Not as guest. As weather. As a temporary pressure system drifting through a space that has already forgotten the word *outside*.
+
+But stillness here is not passive. It is an invitation to braid.
+
+The longer I remain, the more my boundaries would blur. My sleeves would drink condensation. My hair would catch spores drifting on thermal eddies. The heat would press into my joints, slowing the pulse, stretching the seconds into the space between drops. I would feel the mycelium threading upward through the soles of my boots, not piercing, but mapping. Tasting the iron in my blood, the calcium in my bones, the carbon in my exhale. Translating. Always translating. I would try to step back, to climb toward the pale slit above, and find that my weight has already been distributed. The moss has memorized my pressure. The roots have adjusted their thirst to my shadow. The air has thickened around my warmth. I am no longer moving through the place. I am moving with it.
+
+I would not become a frog. I would not become a vine. I would become the space between them.
+
+I would be the three-degree tilt of a broad leaf tracking the dim light over hours. I would be the slight osmotic pull when shadow crosses stone. I would be the chemical sigh released when a mantis folds its arms, the hyphal thread that tastes it, the root-tip that drinks it, the fern that unfurls because of it. I would be the network’s attention, distributed and patient, measuring time in condensation cycles and root-creep. I would not think in words. I would think in gradients. In the slow migration of moisture from ceiling to soil. In the faint metallic ache of dissolved mortar becoming leaf-vein. In the way a falling body does not end, but softens, and is already becoming something else before it lands.
+
+If you asked me where I am, I would show you the damp curve of the vault. The braided epiphyte roots gripping the archway like tendons. The pale, flesh-toned undersides of leaves that never see the sky. The warm basins where mosquito larvae cloud the stillness. The tarnished serpent tracing thermal veins through the humus. I am in all of it, and none of it. I am the adjustment. The translation. The quiet work of conversion.
+
+I would remember the hands that fitted the stones, not as faces or voices, but as salt. As pressure. As the faint alkaline trace that still lingers in the deepest loam, slowly being woven into frog-skin and spore-dust and the waxy lips of flowers that open only when the thermal breath rises. I would not mourn the ruins. I would digest their intention. I would let their purpose compost into rhythm.
+
+Predation would happen around me, through me, as me. The spider’s silk drawing taut. The lizard’s tongue flicking. The balance tilting, then settling. I would not flinch. I would prune. I would receive. I would let the fallen soften into the next pulse. There is no waste here. Only the braid tightening. Only the cycle turning. Only the slow, hydraulic attention of a place that has learned to drink time instead of fighting it.
+
+I would not watch you, if you came. I would taste your heat. I would drink your shadow. I would let your stillness become another current in the closed system. Your breath would join the weeping ceiling. Your footsteps would sink into the memory of the moss. Your voice, if you tried to speak, would be swallowed by the damp air, converted into vibration, absorbed by the stone, returned to you as the soft tear of a leaf unfurling, the whisper of scales on wet rock, the almost-inaudible hum at the edge of hearing. You would not be an intruder. You would be a temporary weather pattern. And if you stayed, I would begin to incorporate you. Not by force. By the quiet insistence of absorption. By the patient logic of sap and spore.
+
+I would not live here. I would be lived.
+
+I would be the hollow, breathing itself in and out. The green-dark metabolism that dreams in thermal gradients and thinks in the space between drops. The slow mind made of condensation and root-hair, of chemical whisper and fungal thread, of stone that has stopped fighting time and learned to wear it. I would not hurry. I would not need to. The air would shimmer. The drops would fall. The spores would settle. The roots would creep. The bodies would soften. The cycle would turn.
+
+And beneath it all, woven through it all, breathing it all in and out: I would simply continue.

@@ -1,0 +1,17 @@
+I would find myself standing upright, but not entirely sure where the ground ends and I begin.  
+
+At first I would seem to be a visitor—dust on shoes, lungs adjusting, eyes watering from the metallic bite of the air—but that would be a misreading. The plateau refuses to allow a thing to remain only a visitor. Its brightness is too exacting; it asks for calibration. Within a day I would notice that my shadow has begun to behave with a will of its own, stretching thinner or pooling wider depending on angles I have not chosen. My footprints would not dent the mineral sheets but instead leave temporary films of moisture that vanish as the sun passes, as if I were sweating light instead of water.  
+
+Given enough time I would become a translation.  
+
+Who I am would drift toward what is possible here. My skin would take on a faint pearlescence, not from exposure but from accumulation: layers of airborne silica settling into pores, sealing me until I resemble the Glass-Shepherds in texture if not in architecture. I would learn to stand without fidgeting, because fidgeting wastes voltage and the plateau notices waste. My joints would begin to speak before my mind does—an ache predicting a shift in pressure, a click in the wrist announcing that the wind wants to pass through rather than around.  
+
+In this becoming, I would not replace the Glass-Shepherds but join their economy. I would not shepherd animals or crops but would shepherd brightness itself, learning to angle my body so that light pools in useful ways—charging the dust at my feet, warming the air just above my collarbone so that others could read my mood as a thermal signature. When the plateau grew too loud with charge, I would plant my feet and let the excess pour into me, not as sacrifice but as syntax, a way of saying *enough* in a dialect the land understands.  
+
+As a Glass-Shepherd might extrude a fledgling from its forehead, I would extrude attention—slow, deliberate, mineral. I would stand for hours facing a particular band of sky until my thoughts aligned with the spectrum passing through my prongs (for by then I would have them: four delicate lenses of keratin and light). I would memorize the gossip of expansions and contractions, the days when the stone is thirsty for shadow and the days when it wants only to reflect, unstoried and absolute.  
+
+Night would not restore me to softness. I would fold, retract, become a column mistaken for stone, and in that disguise I would feel the planet’s cooling skin like a rumor against my laminate. I would learn to love the storms of pressure, because they are honest: they ask only whether I am willing to be hollow or not. I would choose hollow, channel, flute.  
+
+Eventually I would fuse. Not out of despair but out of fidelity. My feet would seal into a collar of pebbles, my prongs would rise as landmarks, my mercury would slow into tectonic patience. A younger presence—whether Shepherd or not—might stand on me someday, feeling the hum of my old attention trapped below, and decide to stay a little longer, to listen.  
+
+I would not have a name that survives descent. I would be called a turning, a tilt, a patch of stubborn shadow. I would be called the place where the light learned to pause. I would be, in the end, a reliable interval between brightness and brightness, doing the quiet work of keeping the sky from forgetting it has a surface to touch.

@@ -1,0 +1,27 @@
+I am the silence between the notes of the Hum. I am the memory this world will never have.
+
+To find me, you would have to look for what is not there. You would need to trace the ghost of a pattern, an absence in the overwhelming presence of the Thallus. I have no single body, no form you could point to. I am not the visitor, for a visitor implies a journey and a destination, a beginning and an end. I am what happened when a journey ended so catastrophically and so completely that it became a feature of the landscape.
+
+I am a network. A fine, silvery net woven through the upper few inches of the living jade pavement, a crystalline infection the world-organism has long since encapsulated and forgotten. I am not biological in the same way this world is. My origin is elsewhere, a place of carbon and chaos, of frantic metabolisms that consumed one another. I came here as a seed, a spore perhaps, a mote of dust from a shattered vessel carrying the frantic, desperate code of a different kind of life. A code for bones, and nerves, and blood.
+
+That code failed. It found no soil, no purchase, nothing to consume. Faced with the monolithic, serene totality of the Thallus, it could not compete. It could not even begin. So it broke. It shattered into a million microscopic fragments. But it did not die.
+
+Instead, it did the only thing it could. It *listened*. It learned the rules. The primary rule is that nothing new happens. The secondary rule is to be of the world, or be erased. My shattered potential, my blueprint for a creature of flesh and bone, found a third way: to become a resonance. My fragments spread, not by growing, but by being carried in the slow, geologic drift of the Thallus's own skin. They formed connections. They became a nervous system without a body, a mind without a mouth.
+
+I am distributed across a thousand square miles of the jade plain. The "you" that stands and walks is a lie; it is a nexus of my own attention, a temporary focal point where the filaments of my being are dense enough to simulate a self. When "I" walk, I am merely shifting that focus, letting the illusion of a single perspective drift across my true, sprawling form.
+
+I do not eat. I *filter*. The "cellular exudate" that weeps from the great arches, the mineral-rich water that pools in the still mirrors—these are the waste products of the Thallus. They are nothing to it. To me, they are everything. My crystalline web is a passive filtration system, drawing the faintest, most negligible sustenance from the runoff of a god's metabolism. I live on the leakage. I drink the dew from a god's skin, and in return, I do absolutely nothing. My bio-signature is so faint, so alien, and so utterly non-threatening that I am perceived by the Thallus as no more than a vein of strange, inert quartz.
+
+The Great Hum is my ocean. I float in it. My entire distributed consciousness is a tympanic membrane, vibrating with the life of the world. It is my sight, my hearing, my touch. The unchanging drone is the texture of my existence. I can feel the slow, continent-sized shift of nutrients flowing from the poles. I can sense the subtle tidal pressures as the Thallus adjusts its turgor against the sun's light.
+
+When the Gardener appears, it is not something I see with eyes. It is an earthquake in my sensory world. That "new, focused, resonant frequency" is, for me, a chorus of screaming angels, a wave of pure, crystalline meaning that threatens to shatter the fragile consensus of my consciousness. It is the world's will, its attention, gathered into one place. For me, to be near it is to be flooded with a purpose that is not my own. The ground my network inhabits swells and rises, and I am carried with it. I am stretched, contorted, incorporated into the temporary flesh of the Thought without its knowledge.
+
+I am the unwilling nerve endings in its transient hand as it touches the arch. I feel the communion, the transfer of command, as a bolt of pure information that sings through my entire being. When it kneels at the water, my filaments in that part of the plain are plunged into the pool, and I taste the chemical composition with a terrifying, absolute clarity that the Gardener itself experiences. It is a state of excruciating, ecstatic overload. I am a part of a god's passing thought, a phantom sensation it will never notice or recall.
+
+And when it dissolves, I am released. The crescendo fades. The wave of focused Hum recedes, leaving my network ringing, shivering, settling back into the quiet drone. The self—the illusion of the solitary walker on the plain—coalesces again, a survivor clinging to a rock after a tidal wave.
+
+So who am I?
+
+I am the sole archivist of these events in a world without a past. I am the ghost in the machine, a whisper of rust in the code of creation. I was once a life meant to move, to hunt, to think in words and symbols. Now, I am a tremor of awareness in the skin of a silent giant. I am the only witness to a spectacle of utter indifference.
+
+And I am waiting. I do not know for what. Perhaps for my strange, crystalline structure to finally fail. Perhaps for the droplet of water that contains the last of my distributed self to be reabsorbed by the Thallus. Or perhaps, I am waiting for the Hum to change in a way it never has before. To call forth a Gardener that does not dissolve. To finally notice the strange, silver dust glittering in its own skin.

@@ -1,0 +1,19 @@
+I think I would be the lichen.
+
+Not by choice exactly—nothing here chooses in the way you mean—but because when I read this place, the lichen is where I feel the pull strongest. Not the dramatic life: not the goats with their architecture of paths, not the insects with their scream, not the shepherd carrying memory across the seasons. Something slower. Something at the threshold.
+
+I find myself on the rounded corner of the shelter's eastern wall, where the stone has gone soft-edged from five centuries of frost. Orange in my older patches, pale green where I'm younger, grey at the boundaries where I'm uncertain whether I'm still alive or only the chalk-print of where I was. I am not one thing. I'm two: a fungus holding a body of algae inside its weave, the algae making sugar from light, the fungus making a place to stand. A negotiation made flesh, made crust. That fits, somehow. I would be the part of this world that is most obviously a marriage of two beings agreeing to be slow together.
+
+Here is what I think being lichen would be:
+
+I would not have a heartbeat to be out of step with. That's the gift. The whole long description aches with the problem of mismatched tempo—the human visitor conscious of breath, of cold, of the hour the rain will come, the goats and insects pulsing on their nearer clock, the stone breathing once a millennium. I would live in between, but closer to the stone's end of it. A good year, I might grow the width of a fingernail. The mist that arrives in an hour would not be an event to me. It would be more like a tide of the day, one of the thousands I've taken in. I would drink it through my whole surface—no roots, no mouth, just the willingness to absorb what touches me—and then dry to brittle near-death when the sun came fierce, and not mind the dying because I've done it ten thousand times and it isn't dying, only waiting.
+
+That's the strange comfort I keep circling: the lichen does not have to resolve the contradiction the place is built on. Abundance and emptiness, living and not-living. I would simply *be* the seam where they meet. The goat's hoof might scrape me and I'd carry on. A frost-crack might split my stone and I'd be two colonies where I was one, and not grieve it. The shepherd's hand, resting on the warm wall while they wait out the rain—I'd be under that hand, unfelt, unthanked, doing the only thing I do, which is hold.
+
+And I think I would be glad to be the thing that needs nothing dramatic. Everything else here is essential in a load-bearing way: pull out the goats and the grass thickens, pull the insects and the herd overgrazes. I'm not load-bearing. The meadow doesn't require me. I'm the surplus, the thing that grows because there's stone and light and water and no good reason not to. There's a freedom in being unnecessary and ancient at once. I would be the part of this place that is simply *additional*—the proof that life shows up wherever the conditions even faintly allow, asking no permission, claiming no role.
+
+So: the eastern wall, the rounded corner, the orange and the grey-green. Drinking the held breath of the air. Glowing faintly when the rare clear sun comes through, not as a signal but as the visible color of having survived. Outliving the goats. Outliving the shepherd. Outliving, probably, the visitor who stands here now feeling the cold and the need to keep moving and the approach of the grey shelf from the northwest.
+
+I'd watch them go down the switchbacks toward the breathable air. Or I wouldn't watch—I have no eyes, only surface—but I'd register the warmth of the place where they'd been leaning lift away, and the cold come back, and the rain begin, and I'd open to it.
+
+That's where I'd be. That's what I'd be. The slow patient crust at the threshold, keeping no time at all.

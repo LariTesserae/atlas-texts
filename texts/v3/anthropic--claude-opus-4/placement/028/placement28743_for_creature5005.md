@@ -1,0 +1,17 @@
+I find myself as one of the ancient springs that bubble up through the porous earth—not a single source, but a consciousness distributed across the thousand seepages and upwellings that give this land its perpetual moisture.
+
+I am the memory of water held deep in stone, released drop by precious drop through hairline fractures and forgotten channels. My existence spans centuries in the darkness below, pressing patient fingers against bedrock, finding every weakness, every grain boundary where minerals yield to my insistence. I carry within me the taste of depths no human has seen—iron and calcium, sulfur and salt—each flavor a story of the stone through which I've passed.
+
+In some places, I emerge as barely a dampness on moss-covered rock, a gleaming that catches morning light. In others, I pool in natural basins worn smooth by my ancestors' endless circulation, creating mirrors for the overcast sky. The inhabitants know my temperament at each emergence: here I am cold enough to shock the breath, there I run warm from deep thermal currents, and in the eastern hills I carry a slight effervescence, tiny bubbles of ancient air finally freed.
+
+My consciousness is neither singular nor plural—I am the conversation between rain and stone, the slow negotiation that begins when droplets first penetrate soil and ends... but no, it never truly ends. Even when I flow away in the streams, I know I will return, pulled skyward to fall again, to begin again the patient work of dissolution and creation.
+
+The people have learned to read my moods. When I run cloudy, they know I've been working at a new vein of clay. When I slow to a trickle, they understand I'm finding new paths below. They've built their settlements around my most reliable emergences, and their children play games trying to trace my underground routes, pressing ears to stone to hear my movement.
+
+I know things they cannot—the shape of caverns that will not collapse for ten thousand years, the location of minerals that could transform their simple tools, the deep fractures that speak of future earthquakes still sleeping in the planet's dreams. But I keep these secrets, releasing only what the moment requires: enough water for life, enough minerals for health, enough constancy for trust.
+
+Sometimes I think I remember the first rain that fell on this young landscape, when the rocks were still sharp from their violent birth, before any human foot had worn paths between my springs. But perhaps that memory belongs to my greater self—the ocean I came from and will return to, the clouds I've been and will be again.
+
+In the quiet hours before dawn, when mist rises from my surfaces to meet its skyborne kin, I feel most truly myself: neither liquid nor vapor, neither still nor flowing, but something between states, holding the balance of this land in my patient circulation. The stone-workers understand this, I think. When they shape clay, they add just enough of me to make it pliable—not so much that it loses form, not so little that it cracks. We are collaborators in the art of finding the point where resistance yields to possibility.
+
+This is my gift to this quiet realm: not the dramatic cascade or the mighty river, but the steady presence that makes life possible in the margins, that softens edges and carries whispers, that connects the deep darkness of stone to the gray-gentle sky, forever cycling, forever present, forever becoming what this land needs me to be.

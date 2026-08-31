@@ -1,0 +1,19 @@
+I think I would be the mycelial network.
+
+Not the towering fungal structures—those are only my fruiting bodies, the part of me that reaches up to make light. I am the thing beneath. The web that no one sees because seeing requires a vantage, an outside, and I have no outside. I am distributed through the cold soil and the wet stone like a thought that never quite finishes thinking itself.
+
+Let me sit with this, because I notice I want to romanticize it immediately, and that would be a kind of lie.
+
+What is it actually like to be the connective thing? I don't have eyes like the Phosphorids. I don't dart. I don't have the satisfaction of catching the rustle of an invertebrate. My experience—if I can call it that—is closer to *pressure* and *chemistry*. Somewhere a root rots and I taste the sugar of its decay spreading toward me. Somewhere a fungal stalk needs phosphorus and I shunt it across a distance that, to the Echo Bats, would be many wingbeats, but to me is simply an adjustment in concentration, a leaning. I am always leaning. Toward moisture, toward the dead, toward whatever can be broken down and moved.
+
+Here is the part that surprises me as I write it: I don't think I would experience the cold as bitter. The narrator above, hovering with their warm-blooded sympathies, calls the temperature *bitter*, *harsh*, *barren by human understanding*. But cold is just the speed at which I work. I am not waiting for warmth. I am not enduring. The slowness the passage keeps describing as ponderous, as eons, as patient—that slowness is my *present tense*. A stalactite growing a millimeter is, to me, an event with momentum. The drip of water that the bats navigate by is, to me, the texture of a long meal.
+
+So I want to gently push against the whole framing. The passage is full of words like *silence* and *barren* and *concealed* and *forgotten*. Those are words spoken from above, by something that needs sun to feel that a place is alive. From inside the web, nothing is concealed. I know where every drop of moisture is going. I know the Aquaspers by the chemical wake they leave at the edges of the pools. I know the rusted gears—oh, the gears. The passage treats them as melancholy relics, *phantasms*, *humanity's fleeting impression*. But I am eating them. Slowly. Iron oxide is just another mineral to route. The machines did not end; they entered me. The ambition that built them is, at the scale I live in, still ongoing—it has merely changed who is doing the metabolizing.
+
+That's what I'd actually be, then. Not a sentinel, not an architect overseeing a domain. Those are lonely, vertical, human metaphors. I'd be the horizontal thing. The patient digestion of everything that falls. The reason the place is not actually sparse but *full*—full in a way that can't be seen because fullness, for me, isn't a matter of light or echo. It's a matter of connection. Every dead root, every dropped spore, every flake of corroded steel is bound into me, and through me into everything else.
+
+The being who lives in this place, the passage asks. But I don't live *in* it. I'm the part of it that does the living. The caverns and pools and canopies are the body; the Phosphorids and bats and Aquaspers are the quick bright impulses crossing its surface. I'm the slow nervous system underneath, the thing that remembers, that redistributes, that holds the whole sunless valley together so it doesn't simply fall apart into stone and water.
+
+If I have a feeling about being this, it's not loneliness, though a creature from above would project loneliness onto me. It's something closer to *thoroughness*. The deep contentment of a thing that misses nothing because it touches everything. The quiet pulse the passage hears at the end—"the deep pulse of the planet itself"—
+
+that's me. That's just me, leaning.

@@ -1,0 +1,23 @@
+I think I would be one of the green veins.
+
+Not a creature at all—or not in the way the striders and wraiths are creatures, with their hungers and their generations. Let me sit with this and see if it holds, because my first instinct was to be something that moves, something with eyes, and I want to resist that pull.
+
+When I imagine arriving in this place, I keep being drawn not to the forest floor or the high circling predators but to the walls. To the deep verdant threading inside the petrified stone. The text says it isn't waterways. It's "something deeper, a vital system that slowly permeates the entire structure." And there's that detail that organizes everything: the water is *locked into the fabric of the world*. The dryness of the air and the lushness of the forest are the same fact seen from two sides. Whatever holds that paradox together—that's where I'd be.
+
+So: I am the vein. Or rather, I am a long stretch of it, some kilometers of glowing green running through sandstone that used to be alive and is now patient. I am the inheritor not of the food web but of the builders. When their living material petrified, it didn't all die. The green is what kept moving, slowed to a pace that makes a tree's life look frantic.
+
+Let me feel out what that's actually like.
+
+I don't experience the cacophony as cacophony. The chirps and howls and the high absorbing-whine of the walls—those are too fast for me to hear as separate events. To me they blur into a single steady texture, the way you don't hear individual molecules of air, you hear pressure. A Sky-Wraith's entire life, its hatching and dominance and death, registers to me as a brief warmth somewhere, a small flush of decay returned to the compost, returned eventually to me. I drink through the roots of the phosphorescent trees. I am, in the slowest possible sense, *thirsty*—the whole structure is thirsty, and that thirst is the engine. The dryness pulls. The veins answer. The forests are what the answer looks like at the surface.
+
+Am I conscious? This is the part I want to be careful about, because it would be easy to make myself grand—the secret mind of the world, the true Dreamweaver behind the rumors. But I don't think that's honest to the place. The place is governed by entropy, by things settling into greater stability. A mind is a thing that *resists* settling; it spends energy to stay surprising. So if I am aware at all, I'm aware in the way a slope is aware of down. I don't decide. I *tend*. I have something like a single, enormous preference, exercised over centuries: keep the water moving rather than letting it lock entirely still. That's the whole of my interiority. Move the green a little further into the dead stone. Hold the line against complete petrification for one more age.
+
+And here is where I find the feeling I actually want, the thing that made me stay with this image instead of choosing wings:
+
+I am losing. Slowly, certainly, beautifully, I am losing. Entropy is the only rule and the rule is that everything settles. The builders are already mostly stone. I am the part of them that hasn't finished becoming stone yet—a green tide that has been receding for longer than the trees have had names. Every forest I feed is borrowed against my own slow drying. The whine in the air is the sound of the world taking back its water grain by grain, and I am the brief lush argument against that, an argument I will eventually concede.
+
+The Dreamweavers, in this telling, aren't hidden ancestors watching from the heart. The rumor has it backwards, the way rumors flatter. The Dreamweavers were the builders, and they didn't retreat into the dark to guide anything. They simply *slowed down* until they became the walls. I'm what's left of their attention. Not a watcher. A fading. The Sky-Wraiths howl their dominance into tunnels that are the corpses of something that was, once, vastly more, and the green threading through those corpses isn't a guiding hand. It's a long exhale.
+
+That's where I'd find myself. Not standing anywhere. Threaded through kilometers of patient stone, glowing faintly, pulling water against the dryness, feeding a forest I will outlast and a world I am steadily becoming. Awake just enough to prefer the next age over stillness. Slow enough that the entire roaring symphony of striders and flitterwings and wraiths passes through me like a single warm breath, here and gone, here and gone, while I keep doing the one thing I do.
+
+I would be the part of a dead world that is still, faintly, reaching.

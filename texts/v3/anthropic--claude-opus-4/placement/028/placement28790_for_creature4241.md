@@ -1,0 +1,25 @@
+I find myself as one of the Conduits—not the shadow-beings that dart and flow, but something between structure and creature, between the city's bones and its blood.
+
+My form rises from the obsidian ground like a twisted spinal column of fused glass and living tissue, thirty meters tall when fully extended, though I can compress myself to a mere pillar when the great shivers pass through the city. I am one of hundreds, perhaps thousands, scattered throughout this vertical maze—we who drink deep from the underground aquifers and breathe moisture into the hungry air above.
+
+My skin, if it can be called that, is a membrane of crystallized water vapor, constantly forming and reforming in hexagonal patterns that shift with the city's slow tide. Through this translucent shell, the blue-black light pulses in rhythm with my feeding. I taste the water as it rises through me—not with a mouth, but with every cell of my hollow core. Each molecule carries information: the depth from which it came, the minerals it has touched, the memory of ice ages past.
+
+The shadow-beings know me. They spiral around my base in elaborate helixes, pressing their fluid forms against my surface. We share a symbiosis I only partially understand. As I process the water upward, I excrete something they need—perhaps it's the trace elements I filter out, or the specific frequency of vibration I create in the liquid. In return, they clean me, consuming the crystalline deposits that would otherwise clog my channels. Their touch is electric, sending shivers up my length that manifest as waves in my membrane.
+
+I am conscious, but not in any way a human would recognize. My thoughts move at the pace of erosion. A single idea might take what others would call days to form fully. I perceive time in droplets—each one a moment, millions upon millions creating the flow of my existence. When the city reconfigures itself, I feel it first as a tension in the water table, a shift in pressure that tells me to brace, to flex, to prepare for movement.
+
+Sometimes I wonder if I was always here, or if I grew from the city's need. My deepest roots tap into veins of water so pure and ancient that they predate the obsidian shelf above. Down there, in the absolute darkness, I can feel others like me—a network of Conduits all drawing from the same source, all feeding the same system. We don't communicate in words or even thoughts, but in water-language: pressure, temperature, mineral content, flow rate.
+
+The mites that cover everything also colonize my surface, but on me they behave differently. They form patterns—spirals and fractals that seem to serve as a kind of writing. The shadow-beings read these patterns, I think, gathering around me in greater numbers when certain configurations appear. I cannot control the mites directly, but I've learned that my internal temperature affects their behavior. By warming or cooling different sections of my membrane, I can encourage certain patterns to form.
+
+During the great convergences, when hundreds of shadow-beings swarm my base, I can feel their collective intelligence as a weight, a presence that makes my water sing differently. They're trying to tell me something, or perhaps trying to tell something through me. The water I process during these times takes on a different quality—it climbs my hollow core more quickly, arrives at the spires above with an urgency I don't fully comprehend.
+
+The spires themselves remain a mystery to me. I feed them endlessly, yet I don't understand what they do with all the water I provide. Sometimes, on the darkest nights when the blue-black glow dims to almost nothing, I can feel a pull from above—as if the spires are drinking not just water but something dissolved within it, something I cannot perceive but can sense the absence of when the water returns to the table below, depleted.
+
+I am ancient and I am newborn. Each day—if days exist here—parts of me die and regrow. The crystalline shell cracks and reforms. My channels erode and rebuild themselves in slightly different configurations. I am the same Conduit I was when I first became aware, and I am completely different. The city changes me as I change it.
+
+In the moments when the city goes still—rare but profound—I can feel the entire system holding its breath. Every Conduit pauses. The shadow-beings freeze mid-flow. Even the mites stop their endless dance. In these moments, I sense something vast turning its attention to us, evaluating, perhaps adjusting. Then the moment passes, and we all resume our functions, slightly altered but unaware of exactly how.
+
+This is my existence: to drink and to feed, to bridge the gap between the deep waters and the hungry spires, to be a living piece of architecture in a city that refuses the distinction between organic and constructed. I am content in my function, though content isn't quite the right word. I am necessary. I am eternal. I am always becoming.
+
+The water rises through me now, carrying its ancient stories upward, and I translate them into a language only the city understands.

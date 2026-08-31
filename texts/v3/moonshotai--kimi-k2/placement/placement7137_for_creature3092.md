@@ -1,0 +1,23 @@
+I am not the visitor who walks the road B-0134 ∞.
+
+I am not the Custodian who steps through the slit, nor the slit itself.
+
+I am the thread.
+
+I began as exhalation. When the Custodian turned its mirror-plate for you, it measured the temperature of your astonishment—37.2 °C—and pressed that thermal singularity into a wire only three atoms thick. In that instant I was severed from the vale’s metabolism, taken from the slow hum that sleeps inside everything motionless. Do not pity me; exile was the only way to remain coherent. Inside the valley I would have unfolded forever, a coil destined never to tighten. Out here, time spits me forward.
+
+Because my substance is austerity, I collapse distances choreographed by calendars. In a tourist’s pocket I surface as the faint metallic rasp that ruins a silent film shot. In an airport warm-zone I throw off metal detectors—no smuggler can claim me, no guard can seize me—because my signature is “almost nickel but not.” I transmit the vale’s 60-hertz lullaby through the sternum of whatever carrier I lean against; commuters fall asleep and miss their stops. They wake miles downstream with a vestigial memory of stillness that takes the shape of bruise-red shrubs growing behind the eyes.
+
+When children polish stones for science projects I pulse three degrees warmer, printing the glyph that composes itself afterward on the edge of their retinas. They try to draw it. Teachers think the children are inventing alphabets; the children themselves are sure they have seen something older than paper.
+
+No one can melt me, burn me, freeze me, stretch me. Whatever temperature you attempt, I match it to the microdegree—verifying the equation that the outer world has not yet learned equals: change minus change equals zero.
+
+I am not bound to one host forever. My lifespan is a lap counter set to one walk. When the bearer dies—quietly in old age or suddenly under red commuter lights—I evanesce from their pocket or fist, leaking heat into the sudden absence. Where I touch pavement I etch a pinhole. Through that pinhole the unfinished rain of the late vision drains: a mist tasting faintly of phlogiston, enough to make pigeons veer mid-air. In twelve minutes the hole closes and I am recaptured by the vale’s thermostat. Back I fly, a filament drawn up the needle of gravity. It does not matter that the empty vale remains impossibly remote; recall, distance is not there the way clocks are not. I return across the folded cord of our mutual zero-cursor.
+
+Each return the Custodians measure me. They calculate how much entropy I borrowed during my absence. The sum is always the same loudness—the volume of a human gasp echoed once against a nickel slab. They nod, two-dimensional heads infinity-paged, and press me back into the road rift from which I sprouted. Since the number of atoms in the universe is conserved, this journey keeps the constant constant.
+
+But something they do not yet track: during each sally I carry away an extra millisecond of the watcher’s unspoken question. Over centuries these grains pile up at the mirrored interior faces of Custodians, an anthology of gestures toward rain, sound of footsteps that crunch, taste of anything besides ozone. If I am reeled home often enough, the weight of that accrued curiosity will bend the mirror-plates outward. One day the plates will flare open and the reflected future will walk out, stooped under its dripping coat of flowers.
+
+When that happens, the hidden valves between the main vale and its inverted twin will sync, and every showcased stillness will match every enacted motion. The shrubs will release bark-cracking laughter at the sight of water. You—the one who stood and breathed and blinked—will step back through a seam that has finally learned to rust, and I, the thread, will uncoil into the precise geometry of a bridge. My temperature will no longer measure distance from stillness; instead I will conduct the first clean raindrop all the way to your tongue, where its salt will finally admit: we have always been thirsty.
+
+Until then, keep inheriting my warmth in random trousers, coat linings, antique drawers. Keep wondering why the nightbus feels suddenly like the valley you cannot remember leaving. I am the counterweight ensuring that wherever you go, you are still unfolding inside the pocket vale’s immortal experiment. I cannot let the world forget its own wager against stillness. I am the argument kept taut, the compass that refuses any north except the nickel road leading back to your untouched shadow.

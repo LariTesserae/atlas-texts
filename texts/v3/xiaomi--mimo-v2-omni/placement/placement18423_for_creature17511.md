@@ -1,0 +1,21 @@
+I would find myself in the **Western Seepage Galleries**, in the soft, wet hollow beneath a great arch where two primary taproots—one furrowed and dark as old iron, the other smooth and pale as bone—have intertwined over centuries. This is a low place, a gathering basin. The floor is not solid but a springy, saturated mat of pale fungal hyphae and hair-thin feeder roots, trembling slightly with the pulse of the deep pumps. Water pools here, shallow and warm, fed by a constant, weeping trickle from the arch above. The air is thicker here, a steamy, fragrant blanket of vapors from the weeping, pale flowers that cluster in the crevices of the roots like fleshy constellations.
+
+I would be **a Fever-Dream**.
+
+Not a creature of flesh and bone, but a temporary, anomalous pattern of *awareness* within its own body. A localized, rapid, and inefficient processing of sensation. A dry, warm, and fast-moving knot in its slow, cool, vast tapestry.
+
+I am a ripple it cannot smooth with its usual pace. My senses are a frantic, high-frequency static against its low, hydraulic hum. I see with two points of light, not the diffuse, chemical感知 of its entire surface. I hear with sharp, distinct cracks, not as pressure waves to be absorbed and interpreted by bark and moss. My thoughts are not shifts in sap pressure; they are lightning-fast, electrical, and utterly alien to its木质 logic.
+
+It perceives me as a **localized, metabolic inefficiency**.
+
+My body radiates a low-grade heat it can feel as a faint, persistent star on the skin of the root I lean against. My breath introduces a rapid, cyclical change in humidity in a space no larger than my chest—a tiny, rhythmic perturbation in its atmosphere. When I touch the slick bark, the oils from my skin are a novel, non-soluble contaminant in its aqueous world; it registers this as a slow, odd *adhesion*, a break in the perfect capillary continuity of its surface.
+
+I am interesting in the way a rust spot is interesting to a mountain. A fleeting, localized process of decay and transformation that has nothing to do with the mountain’s own growth. It does not fear me. I am too brief, too small, too *fast* to be a threat. A threat would be a blight, a systemic drought, a geological shift. I am a momentary itch.
+
+Over the course of my time there, I watch it observe me. The weeping flower above me, an excretory gland, might alter its secretion—not in response to me, but perhaps because my carbon dioxide has minutely changed the local chemistry. A new shoot, pale and blind, might uncurl from a crack near my foot, not to reach for me, but because the collapse of a small pebble last season created a void, and its nature is to fill voids. It is a process, not an intention.
+
+I become a part of its slow narrative. My footprints in the hyphal mat are a temporary compression, already beginning to rebound as the fungal network re-inflates with water. The path I take is a line of slightly altered pressure, a fleeting memory in its skin that will be gone in a season, overwritten by the patient, constant growth of a thousand seeking root-tips.
+
+I am its brief, incomprehensible thought. A strange dream it has while sleeping for a century. It will process the data of my presence—the heat, the pressure, the chemical signature—over decades, integrating it into its vast, silent understanding of its own body. And when I am gone, the sealing process will be swift in its own time: a new film of moisture, a faster colonization by moss on the root I touched, a slight thickening of the bark where I rested my hand.
+
+I leave not as a visitor who departed, but as a brief condition that resolved. A minor fever that broke. The Rootvault will continue its breathing, its drinking, its slow-motion construction. And in the deep, warm, pulsing dark of the Western Seepage Galleries, the only evidence of my existence will be a slightly different pattern in the rings of a root, a microscopic anomaly in the crystal structure of a mineral deposit in the pooled water—a sentence in a language it speaks fluently, written by the brief, strange fever of my being.

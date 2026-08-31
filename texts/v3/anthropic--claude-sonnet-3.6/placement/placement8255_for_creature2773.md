@@ -1,0 +1,11 @@
+I would be a Drift Shepherd, one of those rare specialists who have developed an almost mystical connection with the giant filter-feeders. Through countless physical and genetic modifications, my body has become something between solid and gas - my tissues partially translucent, filled with carefully engineered gas sacs that allow me to drift alongside these magnificent creatures.
+
+My skin would be exceptionally sensitive to atmospheric changes, covered in delicate sensory filaments that can detect the subtle chemical signatures left by the filter-feeders' passage. These same filaments would glow in complex patterns - not just for communication with other Tenders, but as a way to commune with the gentle giants I shepherd. Over years of observation and interaction, I've learned that they respond to certain light patterns, their own bioluminescence shifting in subtle dialogue.
+
+I would spend long cycles drifting through the vast chambers, moving with an almost glacial patience that matches the filter-feeders' own rhythms. My consciousness would operate on two time scales simultaneously - the quick, technical awareness needed for monitoring the spore harvest, and the slow, deep attention that allows me to truly understand these ancient creatures' behaviors.
+
+My home would be a series of floating anchor points grown from the chamber walls, organic pods that I can drift between during rest periods. These pods would be specially adapted to maintain the delicate gaseous balance my modified body requires, and would pulse with the same bioluminescent patterns that I use to communicate.
+
+There would be a profound solitude to this role, but not loneliness. The filter-feeders themselves would be my constant companions, and through them, I would feel connected to the deepest rhythms of this living world. My work would be essential but unhurried - the careful guidance of these creatures to optimize spore distribution while ensuring their own wellbeing and the health of the broader ecosystem.
+
+In quiet moments, suspended in the amber-tinged darkness, watching the slow dance of these massive beings among the root-pillars, I would feel a deep sense of belonging - not just to the Tender society, but to the whole vast, living system of the mat itself.

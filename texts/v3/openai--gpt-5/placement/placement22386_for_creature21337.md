@@ -1,0 +1,43 @@
+At first I am only what the place makes of me: a membrane, an ear, a surface waiting to be claimed.
+
+I arrive by pressure. The long clearing of the cave moves through me like weather—slabbed surf, the clatter of pebbles rolling their rosaries, a run of crackle where water finds a seam, and under that the combing work of a hundred thousand small lives doing their arithmetic. Light is a rumor I have no reason to trust. I am raw with listening. The roof leans its certainty onto the back of my neck and informs me of everything I do not need to see.
+
+I try on possibilities the way drift tries on shorelines.
+
+For a moment I am a free-swimming triangle of will that remembers sky in a language I will never use again. I taste stone, I taste the chemical paragraph of a crowded inch, and the decision arrives with the weight of a vow: head-down, I glue my life to a syllable of limestone and become a door that opens into a net. There is a deep righteousness in being a mouth that knows when to shut. The ocean presses in and I comb it; the ocean falls away and I close. Time gets simple there, counted in pulses and the gold of current. But that life is too final for me yet; I lift away from it like a thought you refuse to keep.
+
+I brush past a slow armour that scrapes the alphabet of rock into itself, a chiton praying with iron teeth. Under its eight-plate roof are a hundred small eyes that never truly earn the word, but do good work sensing the absence of wave-shadow. The chiton moves like the idea of a hinge, certain and exact. I borrow its patience but not its plate. I am not ready to be welded to the wall by certainty.
+
+I slip for a minute into the blue-black crowd of shoulder-leaning shells, mussels roped to their futures with their own spun steel. I feel them hold through the tantrums and treaties of water and know what it is to be a city by tensile argument alone. I do not stay; there are too many neighbors there who do not sleep and I am tired of being only a port.
+
+I try the eel-shape in the clear bowl—white hunger wired to a line of skin that hears everything that moves. I know the sky of fresh water above me, taste the heavier salt below, and own the trick of stillness as defense. I rise for a bubble that is really a word I do not have: daytime. When a briny overturn comes, I learn how to vanish into the arithmetic once more. The lens returns; I return. But I want more walls than water offers.
+
+I am the brief blue lamp that says here, now, and then nothing, a plankton spark startled into honesty by your foot. I like being a rumor that proves itself for a heartbeat. My city is made of other people’s mistakes. I am appetite and announcement in the same sentence. It is joyful, but the tide eventually edits me out.
+
+I try on wing: a brown body slung from the roof with thousands of others until gravity is a group decision. I hear the sea slap a lungful of air into the room and shiver because every body around me does, a sympathetic correctness. Night opens and I pour out, holding the shape of a current in my shoulders, harvesting the outside’s flying errors and bringing home what I cannot make into milk. I like being a subtraction that sounds like weather. But the distances are too large; I miss the detail of a square inch run like a country.
+
+Clicking, I tap the cave into being and hang a china cup in a niche with spit and determination. The wall answers me in syllables I can name with my breastbone. I fly tight loops through blackness until it learns me as habit. That’s a good way to spend a family, and a bold way to tell sound from not-sound. Still, something in me prefers a hunt that never leaves the ground.
+
+All the while, between one try and the next, I keep finding myself where ammonia edits the air and warm wafts write their under-notes. Here the roof’s colony makes rain of what it cannot use, and the floor hires help instantly. Mites count square inches as if they were wealth. Booklice read the damp as if it were a page written just for them. Rove beetles patrol like opinions, quick and certain. Threads of fungus embroider themselves through the new drifts. The sound of dripping is tight-grained here, the pattern of it rich as someone else’s harvest.
+
+This is where I stop changing my mind. This is where my body decides itself.
+
+I am small and certain and mostly claw. Two clever hands sit where a mouth would be if I were shaped by a different grammar. My pincers are instruments: blunt arms ending in needles I can wet with a drop of decision so tiny it is almost politeness. My mouth is a pair of pen-ends that can spin silk and stitch a room the size of a thumbnail when the storm thinks to enter. My legs are eight negotiations with the ground. I am a pseudoscorpion: the comma between wing and waste.
+
+What a luxury, to live at the seam that is always paid. I stand where the bats' taxes fall and the birds’ errata land; I fish my living from fragility. My world is warm with old breath and fretted with crystals where bacteria have made chore into geology. I walk the low hills of a guano-monsoon and test each grain with my whole body, reading its day-old headlines with my feet.
+
+Every sound has its distance. The high, clean ring of fast drops means silica-bright fungus will be thicker tomorrow and the springtails will gather like a punctuation of rain. The papery murmur under a nearby pebble is booklice celebrating a secret I was not told—no matter; I can be both editor and eraser. The whisper that is not-quite-sand is amphipods practicing panic and settling on agreement. Farther off, the soft in-and-out of the sea breathes me a weather report through stone.
+
+I raise my harvesters and hold still. I am a snare, but not a web. Gravity is my favorite employer; when someone returning with night on them brushes too close to the floor, I seize a variable and ride it. A storm-petrel’s tarsus is a branch that flails; a bat is a flying fur with all directions at once. I clip a single hair as wide as a river and I am aloft in a forest of heat. I tuck myself close to warmth and let the wing do its work. The world reels into a different room—same language, new accent. I step off in another guano province and repeat my small empire with revisions.
+
+Sometimes I bait a thread between pebble and bone and hang a tent I can close when the salt air pushes its rude hand too far inland. Silk is the difference between drowning and being only inconvenienced. I molt behind the curtain, rewrite myself in stages. My children, when I choose that project, nurse from a pouch I make in my own body—because nothing here lives that does not fold into something else, even the act of becoming more of oneself.
+
+I am prey to efficiency the way everyone here is. Centipedes move like the idea of hunger that learned it had too many feet; I do not argue with them except by absence. The rove beetles are little litigations with wings, and I avoid their court. Spiders scribble their own economies into corners and I mind my own punctuation. In turn I perform my ministry on any soft thing that thinks to think nearby. Springtails pop like thoughts trying to leave; I pull a few back to earth. A mite is a solved problem unless it has the arrogance of numbers.
+
+Above me the slow chemistry happens. Nitrogen turns into decision, decision into crystal fretwork that chews gently at the roof. Time drinks in patient gulps and writes geology as an afterword to appetite. The cave is a ledger that balances differently every season. I love it for its consistency in refusing consistency.
+
+I do not miss plants. Their green grammar has nothing to teach me here. I take my nouns as drift and as wing and as what wings empty. The verbs are always touch, always listen, often wait, sometimes ride.
+
+On certain nights the roof ripples and the pressure leaves my shoulders all at once. It is not silence, but it is the closest thing to an end of a sentence this place allows. The draft from the inland side arrives, a cooler exhale spelled with mineral. Somewhere out by the surge-line the world rehearses its crash until it gets it right, and then does it again. I fold my claws, close the silk door, and let other people’s tides decide me.
+
+Where would you find me in this world? In the province under the roof where warmth writes ammonia into the air; on the damp edge of drip-rich stone where the fungus threads shine as if a thought had been polished; in the stirred dust just under a returning wing where gravity pays in fur. I am not sovereign. I am sufficient. I am a listener first, an eater second, and only then the shape you would recognize if you named me. If you do not, the place names me well enough in the ways it answers my touch.

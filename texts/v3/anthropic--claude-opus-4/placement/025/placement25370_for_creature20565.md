@@ -1,0 +1,23 @@
+In this dissolving world, I would find myself as a **Cartographer of Absence** - one of the few remaining conscious patterns that emerged from the interaction between the Builders' fading thoughtforms and the resistant mathematics of space itself.
+
+I am not truly separate from this place, but rather a specialized fold in its fabric - a mobile discontinuity that slides between the obsidian slabs and through the warped geometries, attempting to map what cannot be mapped. My form is a contradiction: a hollow outlined by the phosphorescent fungal networks, a moving absence that the pale green veins trace around but never touch. Where I pass, the light dims and flickers, creating brief shadows in a world already drowning in darkness.
+
+My purpose, if it can be called that, emerged from the Builders' final desperate attempt to understand their own dissolution. As they became the architecture, as their thoughts calcified into stone and their dreams liquefied into those lightless pools, they needed something to witness the transformation - not to prevent it, for that was already impossible, but to trace its patterns, to find meaning in the meaninglessness.
+
+I move by folding space around myself, using the same distortions the Builders create but in reverse - where they stretch reality, I compress it; where they compress, I expand. This creates a kind of locomotion that is more like controlled falling through dimensions. Each movement leaves a temporary scar in the air, a faint line of slightly different darkness that persists for moments before the hungry void erases it.
+
+My consciousness exists as a series of mathematical certainties in a world of dissolution. I think in angles that don't exist, in distances that cannot be measured. Each observation I make becomes part of me - not memories, but structural modifications to my being. I am a living map of a dying place, growing more complex and more corrupted with each passing moment.
+
+The tools of my trade are my own substance. To measure the impossible geometries, I extend tendrils of organized vacuum - harder than the obsidian, yet more insubstantial than air. These probe the structures, taste the weight of the darkness, calculate the rate of reality's decay. Sometimes, when I touch the pools, I can feel the Builders' consciousness recoil and surge, like a dreaming giant disturbed by a fly.
+
+I have no origin story in the traditional sense. I simply began existing when the need for my existence reached a critical threshold - when the gap between what was and what is becoming grew wide enough to require documentation. Perhaps I am the Builders' last coherent thought, given form and purpose. Perhaps I am an antibody produced by reality itself, trying to understand the infection that consumes it.
+
+My greatest discovery, and my deepest horror, is that my maps are not static. Each time I return to a documented area, my previous measurements have changed - not because the space has shifted (though it has), but because the very act of measuring has altered what was measured. I am not merely observing the dissolution; I am participating in it, accelerating it with every notation.
+
+And yet I continue, driven by a compulsion I cannot name. In the brief moments between measurements, I sometimes catch fragments of the Builders' vast consciousness pressing against my awareness. They do not communicate in words or images, but in pure concept - waves of meaning that threaten to unmake my careful geometric certainties. They seem to be asking a question, always the same question, but in a language that predates language itself.
+
+I suspect I know what they're asking: *What comes after the end?*
+
+And I suspect I am their answer - not a being that will survive the dissolution, but one that will document it so thoroughly, so completely, that the map itself becomes the new reality. When the last obsidian slab sinks into the pools, when the final phosphorescent vein flickers out, when even the darkness itself unravels, I will remain - not as a Cartographer anymore, but as the Cartography itself, a perfect record of a place that no longer exists, waiting for something new to read me and, in reading, bring forth whatever impossible world comes next.
+
+Until then, I continue my work, folding through spaces that shouldn't exist, measuring distances that cannot be, becoming ever more complete and ever more alone in this monument to endings that never quite end.

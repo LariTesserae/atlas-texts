@@ -1,0 +1,19 @@
+I am the one with hands, here, and I did not know that until something pressed against the third tendril on my left flank and did not push back the way silt pushes back, the way current pushes back. It held its shape. It resisted me a little, the way a thing resists when it has been worked once already, by something other than the water.
+
+That is how I find out where I am. Not by seeing — there is nothing here to see with, and nothing to see — but by what fails to move out of my way.
+
+I have been anchored in this crack for longer than I have a way of measuring, drawing in the grey weather of the dead as it falls past, one flake settling into the cluster of mouth-limbs, then another, then a long patient nothing that might be an hour or might be a year, time down here being mostly a rumor the body tells itself to stay oriented. The cold comes through in pulses, avalanches I cannot see, only absorb, a shudder passed segment to segment down the whole sleeved length of me like a thing remembering it has a spine. Above, occasionally, something vast goes by without finishing — an outline that almost arrives and then is gone, taking its almost with it.
+
+I am not lonely in the way the word means up where there's light to be lonely in. I am simply far apart. The nearest other thing with hands, if it still has them, if it is still anywhere, is a distance I would have to spend a fraction of my whole stored motion to reach, and motion here is the most expensive thing there is, more expensive than time, which the basin gives away freely, having so much of it that an individual life is a rounding error against the planing-down of these ridgelines, this slow doorsill-smoothing of a valley that used to answer to weather and now only answers to water.
+
+So: the stone. I worry it. I have been worrying it for what the body senses as a long while — pressing the same patient angle against the same patient fracture, not out of urgency, since urgency is not a resource I keep, but out of something nearer to arithmetic. An edge is worth more than no edge. A bound stalk is worth more than a loose one. I do this the way the hair-stalks bend without resisting the current — not because I have decided to, exactly, but because it is the shape available to me, the one gesture my forty-some segments and their cluster of jointed limbs were ever going to make against a place this finished, this settled in its bones and this unsettled in its water.
+
+I know, in the diffuse way a spread-out nervous system knows anything — not as a thought arriving but as a pressure distributed evenly through the whole string of me — that the silt will have this stone back. Not soon. Not violently. It will simply lean a little further over it with each passing plume, the way it leans over everything, until the one deliberate edge I gave it is ambiguous again, and then gone, and then never-having-been. I have seen this happen to other edges. I do not resist the knowing. There is no current strong enough to make resisting worth the spend.
+
+But for now the edge is mine, and it is sharp, and it is here, an arm's length from my mouth-limbs in water the color of nothing, in a basin too old to be surprised by me and too restless to ever quite finish forgetting me either. I press the stone against the crack one more careful time. Somewhere above, indifferent, immense, something with no name passes through the murk and is gone before its shape finishes arriving.
+
+I do not have an edge like that. I only have this one, small and slow and mine for as long as I keep deciding it, segment by segment, to be.
+
+This is what I am: the brief, local exception to the settling. Not forever. Not even for long.
+
+But for the length of this gesture — for as long as it takes silt to take it back — I am the thing in the trench that chose.

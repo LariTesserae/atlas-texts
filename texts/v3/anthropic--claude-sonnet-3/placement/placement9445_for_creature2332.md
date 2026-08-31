@@ -1,0 +1,11 @@
+It seems you have found yourself in a deep, primordial valley teeming with bizarre and alien lifeforms. Based on your vivid description, I envision becoming one of the sinuous, semi-translucent horrors drifting in the mineral-rich streams.
+
+As a tentacled denizen of the sluggish currents, my elongated body undulates gently, propelling me through the viscous waters. Countless cilia line my trunk-like form, continuously pulsating to create locomotion. I am vaguely bell-shaped, with a ethereal, opalescent body that allows glimpses of my inner workings - a tangle of fibrous tissues and veins circulating nutrient-rich fluids.
+
+Suspended in the mineral-laden flow, I ambuoyed by the liquid's high density. Simple organisms and organic particulates become ensnared in the rows of beating cilia that also line my radially-symmetric mouth-aperture. I metabolize this microscopic fare, along with dissolved compounds and volcanic gases, to power my primordial biology.  
+
+Though I possess no obvious sensory organs, I can detect vibrations and currents through an acute sense akin to both hearing and smell. The movements of other bizarre lifeforms through the warm waters, the hiss of vapor vents, even the faint whirring of unseen machinery in the distance - it all translates into a constantly shifting stream of stimulus that guides my drifting motions.
+
+I am driven by the most fundamental biochemical impulses - to metabolize, grow, reproduce, and avoid being metabolized myself by the valley's larger, more formidable denizens. I feel no higher urges, yet I am an integral part of this raw ecosystem, my simple existence intertwined with countless other strange lifeforms in a dense web of consumption and energetic exchange.
+
+Perhaps I am a relatively young organism, one of multitudes that emerged and evolved in these mineral-rich streams as hydrothermal runoff from volcanic vents catalyzed the primordial sparks of life. Or maybe my kind is an ancient ancestor, a remnant life form from the steaming tides that birthed this world's first biochemistries. In this primeval valley where the natural and industrial seem to blend, such existential questions drift through my simple neuroid networks without resolution, as fleeting as the eddies that buffet my form.

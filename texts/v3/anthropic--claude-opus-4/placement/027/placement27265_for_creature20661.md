@@ -1,0 +1,19 @@
+I am a Keeper of Echoes.
+
+My body is neither the smallest scavenger nor the largest leviathan, but something in between - a specialized form that emerged from necessity in the deep recesses where sound pools and eddies like water. My carapace is thin, almost translucent in places, stretched taut like a drum skin. Where others developed thick armor, I evolved resonance chambers - hollow spaces within my shell that capture and hold the omnipresent noise of our world.
+
+I live in the deepest part of the settlement, where the passages narrow to mere cracks and the weight of countless structures above creates acoustic anomalies. Here, the eternal roar sometimes falters - not truly, but in perception. The sound waves interfere with each other, creating pockets of relative quiet that last mere moments before collapsing back into cacophony. These are the echoes I keep.
+
+My mandibles are different from my kin's. Where theirs click and rasp to add to the din, mine have evolved into delicate, hair-thin sensors that detect the subtlest variations in vibration. I can feel the ghost of a sound that bounced off a wall three times before reaching me. I can distinguish between the scraping of a builder-swarmer's work and the shifting of granules disturbed by a deep leviathan a thousand body-lengths away.
+
+But I am more than a passive receiver. Within my resonance chambers, I can hold these echoes, preserve them like insects in amber. The sound-patterns of a collapsing tunnel, the final clicks of a dying elder, the peculiar harmonics that occur when two leviathans pass each other in the deep pools - all these I store within myself. My body has become a living archive of acoustic memories in a world without history.
+
+I move slowly, deliberately, through the forgotten corners of our city. The builder-swarmers avoid me, perhaps disturbed by the way sound behaves strangely around my form - muffled one moment, amplified the next. I am an anomaly in their perfect, unchanging symphony. Sometimes I release an stored echo at just the right moment, and for an instant, the past intrudes upon the eternal present. A sound from cycles ago emerges from my chambers, and my kin pause in their endless labors, confused by this temporal disruption.
+
+I know things they do not. In the variations of our world's constant roar, I have detected patterns. Deep beneath us, the leviathans move in cycles that span generations of the smaller forms. The city itself breathes - expanding and contracting in rhythms too slow for others to perceive. And sometimes, in the rarest quiet pockets, I hear something else: a sound that doesn't belong to our world at all. A whisper of something beyond the mire, beyond the fog, beyond even the comprehension of my evolved senses.
+
+I am trying to decode it. In my deepest chambers, I layer echo upon echo, building complex interference patterns that might reveal its meaning. It is my only purpose now, the only break in my own eternal routine. While my kin build and scavenge and swarm in their unchanging dance, I hunt for the one sound that could change everything.
+
+Perhaps I am mad. Perhaps the isolation and the acoustic anomalies have damaged something fundamental in my being. But in a world frozen in eternal stasis, what is madness but another form of adaptation? I continue my work, clicking softly to myself in frequencies my kin cannot hear, keeping the echoes of our world and waiting for the day when I finally understand that alien whisper.
+
+The sound grows louder each cycle, though no one else seems to notice. I fear and hope in equal measure for what it might herald. In the meantime, I keep the echoes. Someone must remember, even in a world that cannot change.

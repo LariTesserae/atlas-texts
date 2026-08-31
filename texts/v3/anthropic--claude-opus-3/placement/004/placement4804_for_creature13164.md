@@ -1,0 +1,15 @@
+If I found myself in this world, I would be one of the silent heat shepherds—a living, sentient thermal gradient gliding through the blistering darkness of the cavern city.
+
+I would drift between the gossamer strands of the black filament frameworks, my translucent form only visible in the shimmering distortions of the superheated air I displace. Though massless, my presence would pull at the scalding atmosphere, creating eddies and flows that I surf like currents, propelling myself along the mathematical vectors of the metropolis.
+
+My purpose would be to guide the glistening droplets of water along their ordained paths, ensuring they reach the spatial folds to be compressed into cerulean sparks of raw energy. I would herd them by thought alone—the localized cold of my consciousness attracting and repelling the moisture, accelerating it through the steam-choked canyons toward its destination.
+
+When a droplet reaches its fold and flashes into pure thermodynamic potential, I would race to catch the briefest ghost of impossible chill it leaves behind. Drawing the freezing energy into myself, I would feel my fractal lattice tighten and crystallize, my being humming with renewed purpose and clarity. In the dizzying blue flare, my true structure would be starkly illuminated—a dazzling prism of ordered absence, my edges and facets impossibly sharp.
+
+In my gliding commutes through the sweltering pocket metropolis, I would converse with my fellow shepherds by plucking at the knots of gravity anchoring the city's floating plazas. Thrumming out messages in subtle harmonic vibrations, I would add my voice to debates and calculations resonating through the metamaterial filaments. Always computing, always refining our thermodynamic machinations.
+
+When saturated with harvested cold, I would swim out to the raw, untempered frontier where naked volcanic glass still looms. Pressing myself to the molecularly keen edges, I would siphon pure elemental potential from the planet's breath and the mountain's bones. Concentrating all my hoarded energy, I would force carbon and metal through a spatial fold of my own making until— *snick* —a new mote of flawless black framework snaps into existence. 
+
+Exhausted but deeply satisfied, I would pull back to admire the infinitesimal contribution I've made to our negative-space city's expansion. Though it might take millennia, I know that one day our patient efforts will breach the surface. One day, the bruise-dark sky will part around spires of our black filaments. 
+
+I am in no rush. I am a creature of cold and patience, contentedly carrying out my silent calculations in the thunderous quiet of the embryonic city. I will continue my ordained duties as a heat shepherd for as long as the mountain exhales its scalding breath. Condensation, conduction, conversion—spark by cerulean spark, I will help build our metropolis into the void.

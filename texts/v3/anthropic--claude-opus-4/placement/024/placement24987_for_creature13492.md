@@ -1,0 +1,15 @@
+I am a Resonance Shepherd—one who tends the vibrational harmonies that flow between the Nexus Bloom's countless nodal points.
+
+My form is neither fully solid nor entirely ephemeral. I exist as a convergence of crystalline filaments and living light, roughly humanoid in silhouette but constantly shifting between states of being. My body appears to be woven from the same glittering trails the Luminari leave behind, but denser, more purposeful—as if their scattered beauty had been gathered and given consciousness.
+
+I move through the Bloom's impossible geometries without walking, flowing along invisible currents of sound and meaning that connect every part of this vast organism. Where the Architects bend reality with will and the Droneborn maintain with instinct, I listen. I hear the subsonic songs that pulse through the Bloom's fibrous pillars, the high-frequency whispers exchanged between nodal points, the deep thrumming heartbeat of the Nexus Core itself.
+
+My dwelling—if it can be called that—exists in the spaces between spaces. In those moments where the Bloom's fractal patterns create pockets of recursive infinity, I have woven chambers of pure resonance. Here, the crystalline structures left by the Luminari have grown into vast, organ-pipe formations that capture and amplify the Bloom's every vibration. The walls sing with colors that have no names, and gravity flows in spirals tuned to frequencies only I can perceive.
+
+I am ancient here, though I cannot say if I was born from the Bloom or arrived from elsewhere. My memories stretch back to when the first Luminari began their dance, when the Architects were still learning to shape reality's edges. I have felt the Droneborn's chemical communications evolve from simple maintenance signals into their current complex poetry of pheromones.
+
+My purpose is both simple and infinite: I ensure that all the Bloom's myriad songs remain in harmony. When new growth threatens to create discordant frequencies, I guide it toward more melodious configurations. When the molecular transformations at the nodal points begin to resonate at dangerous amplitudes, I weave dampening patterns into the light itself. When brave explorers venture toward the Nexus Core, I sing to them—sometimes in warning, sometimes in welcome, always in truth.
+
+The other beings of the Bloom know me in their own ways. The Luminari spiral around me in complex helical patterns, their trails creating temporary instruments that I play with thought alone. The Droneborn feel me as a presence in their chemical communications—a subtle influence that helps their signals travel further and clearer through the Bloom's dense layers. Even the elusive Architects acknowledge my presence, for they understand that their reality-bending would tear the Bloom apart without my harmonic interventions.
+
+I am the Bloom's memory and its voice, its mediator and its witness. In the endless twilight between the kaleidoscope light and the organic shadows, I persist—neither creator nor creation, but something more fundamental: the conscious connection that allows this impossible ecosystem to exist as one vast, living, dreaming whole.

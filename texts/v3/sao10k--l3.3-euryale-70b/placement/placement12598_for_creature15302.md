@@ -1,0 +1,9 @@
+As you navigate the treacherous terrain, the darkness seems to press in around you, making it difficult to see more than a few feet in front of you. The sound of rushing water and creaking stone is almost deafening, and you have to concentrate hard to pick up any other sounds. You strain your ears, trying to detect any hint of movement or life in the darkness. 
+
+Suddenly, you catch the faint sound of scuttling, like the soft scratching of claws on stone. It's impossible to tell where the sound is coming from, but it seems to be getting closer. You tense up, your claws at the ready, as the sound grows louder and more distinct.
+
+A faint, flickering light appears in the distance, casting eerie shadows on the walls of the cave. As it draws nearer, you see that it's a glowing jellyfish-like creature, its translucent body aglow with a soft blue light. It floats through the water, its long, stinging tentacles trailing behind it.
+
+The jellyfish-craft causes ripples through the water as it passes, causing temporary visions of star-like flashes all around it. It hovers near you, its ethereal glow illuminating the dark cave. You sense a strange, otherworldly intelligence emanating from the creature, as if it is sizing you up and wondering what you are doing in its domain.
+
+As you back away, the ground trembles again, and the sound of shifting rocks echoes through the cave. The jellyfish-craft darts away, disappearing back into the darkness. Suddenly seized, with a numb wave striking down, you know that you must find a way out of the cave, and fast. You begin to make, unsure, your way along the wall, trying to find a path out of the treacherous, crumbling cave.

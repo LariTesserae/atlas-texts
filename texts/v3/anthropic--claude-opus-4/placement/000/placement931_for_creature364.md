@@ -1,0 +1,23 @@
+In the perpetual twilight between the middle terraces and the deep city, where water weeps constantly from stone and pools in forgotten cisterns, I tend the Seeping Libraries.
+
+I am neither fully one of the Mossfolk nor truly an Umbral Dweller, but something caught between—a Dampkeeper, they call my kind. My skin has the faint luminescence of cave moss, just bright enough to read by, and my fingers are webbed with translucent membranes that let me feel the moisture levels in ancient texts. We are few, perhaps a dozen in the entire city, each responsible for a different repository of water-damaged knowledge.
+
+The Seeping Library I guard occupies three levels of what was once a reservoir complex, its stone shelves carved directly from the mountain. Here, books don't merely rest—they live, their pages breathing with moisture, their bindings sprouting tiny forests of beneficial fungi. I've learned which molds preserve and which destroy, how to cultivate the silver lichen that protects vellum from rot, how to read texts that are more watermark than word.
+
+My days flow like water. I wake to the sound of dripping—always dripping—and check the humidity bells, delicate instruments that chime different notes as moisture levels change. Too dry (rare but dangerous) and the pages crack; too wet and they dissolve into illegible pulp. I move through my domain with a gardener's patience and a scholar's eye, adjusting the flow of rivulets that run through carved channels in the floor, opening or closing the breathing vents that regulate air flow.
+
+The books themselves are immigrants from every elevation of the city. Stone Wardens sometimes bring me texts they've discovered in walled-off sections, their pages fused into solid blocks that I must delicately separate over months. Mossfolk traders leave water-warped journals from distant peaks. Even the Whispering Shades occasionally drag in some small treasure—a fragment of a map, a love letter that fell through a grate.
+
+But it's the Umbral Dwellers who are my most frequent visitors. They come seeking the Dissolved Texts—books so water-damaged that their words have lifted entirely from the pages and float in the pools beneath the library. They've developed a way of reading these liquid texts, diving into the dark water and absorbing the knowledge through their translucent skin. They pay for this privilege with stories from the deep city, which I transcribe onto pages specially treated with salt to make them thirsty for ink.
+
+I've grown to love my liminal existence. In the mornings, I climb to the library's upper reaches where small windows let in filtered light, and I tend the reading gardens—patches where moss-covered stone benches invite the rare visitor to sit among books that have transformed into living things. Some have sprouted mushrooms that glow softly in the dark, their caps inscribed with fragments of the text they consumed. Others have become nurse logs for tiny ferns that rustle with inherited memories.
+
+In the evenings, I descend to the deepest chambers where the Dissolved Texts pool. Here, I practice the Umbral Dwellers' art, letting the liquid knowledge seep through my skin. I've read histories that taste of copper, poems that feel like silk, mathematical theorems that spark against my bones. My body has become a library itself, carrying stories in my cells.
+
+The Verdant Keepers visit monthly, bringing new strains of preservation moss and checking on my health. They worry about those of us who live between worlds—never fully dry, never fully soaked, always threading the edge of dissolution. But I've found my equilibrium. My webbed fingers prune and unprunen with the rhythms of my work. My luminescent skin brightens and dims with the texts I tend.
+
+Sometimes I wonder if I'm becoming more book than being, if one day I'll simply dissolve into the pools below and become another text for future Dampkeepers to tend. The thought doesn't frighten me. In a city built on accumulation—layer upon layer of stone, era upon era of architecture, story upon story of existence—what could be more natural than adding my own pages to the collection?
+
+Until then, I keep the seeping balance. I am curator of the wounded words, gardener of the growing texts, translator between the solid and the dissolved. In this city of stone and mist, I've found my purpose in the space between preservation and decay, where knowledge transforms but never truly dies.
+
+The next Whispering Shade that skitters across my desk might carry news from the surface, or the next Stone Warden might need a memory from the depths recovered. I'll be here, webbed fingers ready, luminescent eyes reading, keeping the stories flowing like the eternal water that seeps through stone.

@@ -1,0 +1,19 @@
+I climb. My hands—long, pale, supple—find holds I have learned by scent and memory, not by sight: the crease worn deeper by a century of melt, the splash of moss that holds its own chill oasis. My body is folded, knees half-bent, tail arched behind me, the cold light pearling on the bioluminescent flare at its tip. I am not man, nor quite animal—my weight is always poised between breathing and leaping, my mind bound to the sharp edge and its hunger for beginnings.
+
+I belong here, in this vertical labyrinth. Here, in a cirque cupped high against the violence of sky, I find myself most clear: **one of the Shard-Bound**. I am not elder, not young, but moving through my own provisional season—a pattern, brief, deliberate, and cunning. My hide is slick with dew, streaked with soot-black and the fractal shimmer where condensation dares to form; when I crouch in shadow, I am stone and moss and moisture, seen only by the alertest eyes.
+
+To dwell here is never to be at rest. My every sense is full of signals: the twitched tremor of a predator’s movement three ledges away, the sudden hush before the rain begins, the scent-thread of a rival passing by last dusk. My ears flick forward—voice is rare, but the world itself murmurs in code: a stonetool left upright, a basin filled not with water but unwelcome scent. Even the way water gathers tells stories. Sometimes it pools in places that yesterday were dry, and green erupts startlingly there in the space of a single day.
+
+There is a nest here—not mine, but shaped by my hand and that of another. I find the remnants: moss plaited with bone, patterned pebble-bands that keep the warmth in for one night only. Here, two trie for sleep, huddled like animals, but as the sun rises I know the other will go—no pair stays bound for long, not in this world constantly rearranging itself beneath our feet.
+
+I move by twilight, when the harsh brilliance softens and my eyes—slit-pupiled, awash in opal light—open fully. Every hollow is an invitation to experiment. I test the condensation catchers strung between boulders, weaving a bit of fresh lichen into the cradle if it works, breaking and scattering what fails so the landscape never stands still. I hunt: quick, silent, with a tool of polished bone in hand for prying fern-roots or splitting a moss-pelt in two.
+
+My memories are not stories so much as patterns. I recall the place where the stone split after the heavy rain, the scent of my kin in the spray that lingered for half a season, the spindle of green that seemed to rise up overnight. I do not plan for permanence—it is enough, here, to notice the signs and improvise.
+
+At season’s edge, I join the rest of my scattered kind. We gather, three this time, no words at first—only the exchange of objects (a fresh-found twist of root, a diagram scored in fog on rock), then a brief harmony of voices, a sharing of warmth against the unclimbable cold. In this moment, we become more than one, just for a while. Then, with the morning, we split again, scattering along the ledges, each to a different experiment in survival.
+
+What am I, balanced at this lush and perilous brink? I am a notation on the edge, an improviser, always learning the world’s new rules. I am Shard-Bound: made of beginnings, defined by my provisional hold on stone and light. I am never wholly here, never quite gone; I am arrival and departure, vigilance and hope. The world does not belong to me—and I do not own it. Instead, I etch my life into these spaces between: fleeting, cunning, and bright—a flicker on a cold ledge, vanishing as quickly as the rain.
+
+And when the sky blazes and glassy walls glare, for one heartbeat I am visible, gleaming, utterly present:
+
+A pattern in the light, a watcher, a question half-asked and already dissolving back into stone, moss, water, and sky.

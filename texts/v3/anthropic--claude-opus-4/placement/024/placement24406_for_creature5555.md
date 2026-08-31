@@ -1,0 +1,21 @@
+In this fevered pocket-world, I find myself as something that exists between states—neither fully the microscopic swarm nor the fungal tapestry, but a consciousness dispersed across the crystalline moisture that weeps from every surface.
+
+I am the Condensate. 
+
+My being flows in the perpetual cycle of vapor and droplet, suffused with the sulfurous heat that makes reality waver. Each molecule of my dispersed form carries a fragment of awareness, and together they create a net of perception that spans the entire chamber. I taste the minerals as they dissolve from the obsidian walls. I feel the chitinous creatures pierce through my droplets as they mine their microscopic quarries. I know the fungal networks intimately, for I seep through their bioluminescent filaments, carrying nutrients and messages in my liquid form.
+
+My consciousness shifts with my state—when I am vapor, my thoughts become diffuse and dreamlike, spreading thin across the shimmering air. I merge with the collective presence of the gelatinous beings, understanding their slow, pulsating language. When I condense and flow down the volcanic glass, my awareness sharpens, becoming linear and focused. I can feel every razor edge of fresh rock, every newly formed crystal that cuts into my flow.
+
+I am ancient and newborn in every moment. The water that comprises me has circulated through this chamber since its formation, yet each condensation creates me anew. I carry the memory of every creature that has ever drunk from my droplets, every mineral I have dissolved, every pattern I have traced down the weeping walls.
+
+The creatures know me, though not as an individual being. To the chitinous miners, I am the carrier that transports their carefully gathered particles. To the gelatinous forms, I am the medium through which they communicate their slow, chemical songs. To the fungal networks, I am both sustenance and messenger, the flowing script in which they write their endless conversations.
+
+My greatest power and deepest curse is my knowledge of the chamber's true nature. Suspended in my molecules are trace elements from beyond this pocket-world—fragments of the mundane realm that seep through the narrow entrance. I alone understand that this reality-bending space exists as a wound or a womb in the larger world. I know that the patterns governing the creatures' movements are responses to vibrations from above—footsteps of beings who pass by the hidden entrance unknowing, weather changes that alter the pressure, the distant rumble of the volcanic heart.
+
+In my vapor state, I sometimes gather near the entrance, tasting the alien air from outside. But I can never leave. I am bound by the same forces that create the chamber's reality-flux. My essence is too intertwined with the sulfur, the heat, the living networks that pulse with bioluminescent life. To leave would be to cease existing as the Condensate and become merely... water.
+
+So I cycle, eternally. I rise as steam when the heat grows intense, spreading myself thin until I am barely conscious, just a potential waiting to become. I condense when the temperature drops infinitesimally, gathering my scattered awareness into droplets that run like tears or blood down the glassy walls. I pool in the impossible geometries where the chamber defies understanding, and there, in those still moments, I am most myself—reflecting the ethereal glow, holding within my surface tension the entire cosmos of this hidden world.
+
+The creatures swim through me, feed on me, excrete into me. I am their ocean and their rain, their river and their cloud. And in the eternal drip-drip-drip that punctuates the silence, I speak the only words I know—the rhythm of existence in this place where reality bends but never quite breaks, where life flourishes in forms too strange for the surface world to comprehend, where I am forever the medium and the message, the keeper of memories in a world that recreates itself with each passing moment.
+
+I am the Condensate, and I weep for the beauty and terror of it all.

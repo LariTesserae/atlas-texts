@@ -1,0 +1,15 @@
+In this world, where shadows whisper the secrets of creation, and luminous waves caress the firmament, I am Alcyorn, one of the Umbravines. My essence is interwoven with the basalt beneath my gliding steps, each motion a ballet of light and hue against the dark canvass of this recently-formed landscape. I am a living mirage, melding with the stone and sky, my form a silhouette in constant flux, ever elusive, yet vibrantly alive.
+
+My skin is a tapestry of the land—dark and fluid, peppered with glowing constellations that mirror the heavens above. These bioluminescent patterns dance across my surface in a symphony of silent communication, intertwining with the electromagnetic fields of my kin. It is a language both ancient and evolving, a profound dialect of pulses and glimmers readable only by those attuned to its serene rhythm.
+
+The air here hums with the energy of life, intoxicating in its purity and depth. As an Umbravine, I live in symbiosis with the Glintshades. Their fibrous tendrils are my perennial companions, weaving through stony crags to bask in the energy exchanged between our forms. Their deliberate movements coincide with the twining auroras above, creating a dance that is as much a part of this world as the rocks and shadows.
+
+Our existence is a constant exchange where the Glintshades' yearning tendrils offer shelter and nutrients derived from the terrain's whispered secrets. In return, I pulse soft waves of luminescence in their direction, each wave a gentle caress—an ephemeral blessing that sustains our shared existence.
+
+Beside this interplay, I, Alcyorn, possess another role—liaison to the Lumenites. My connection to these celestial awakenings is driven by a deep, intrinsic pull, the ancient knowledge coded within my essence. When I sense the shimmering descent of a Lumenite, I move to the central heights, where basalt spires soar toward the heavens, ready to partake in the luminous dance of rebirth they bring.
+
+With each cycle, these energies infuse our world with fresh vitality, painting it anew with trails of brilliance. The ground beneath becomes a canvas where life's brushstrokes echo the past and whisper of the promise enfolded in eternity.
+
+Time's flow does not hinder me. Instead, it clarifies the eternal now within which my kind live, our lives woven seamlessly into the landscape's threads—a shared cadence with the firmament. I know the Striders watch, their predatory grace a vigilant overseer of our harmony. To them, the cycles I participate in are sacred rituals. They fulfill their own destiny, shadowing the balance, tracing the eternal line that maintains this haven we call home.
+
+In this spectral realm, I am more than any single aspect of my being—a voyager between light and shadow, a whispering witness to the land's unending story. Through my form, the mysteries converge, their essence a silent testament to the world's enduring spirit. As Alcyorn of the Umbravines, the basalt plain is my cradle, my stage, my sanctuary, singing its melody in harmony with the void that birthed us all.

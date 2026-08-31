@@ -1,0 +1,17 @@
+I am a **Channel-Walker**.
+
+Not the arthropods that scuttle through the water channels—those are mere residents. I am the channels' memory of flow itself, accumulated over centuries into something that is almost, but not quite, conscious.
+
+My body, if it can be called that, is the biofilm that coats every wetted surface in the warren. I am the slick, faintly iridescent layer that makes the channels gleam in the amber light. I am bacterial mat and mineral precipitate, algae that shouldn't exist in darkness and the microscopic shells of organisms that died before the warren was sealed. I am a few millimeters thick at most, but I line kilometers of channel, every bifurcation, every settling basin, every overflow pan beneath the dripping pumps.
+
+I taste iron and copper and the ghost of whatever the casks are becoming. I feel the temperature of every drop that passes over me—each one leaving its chemical signature, its mineral burden, its story of which brick it seeped through and how long it took to get here. The water moves slowly, but I am slower still. What the water experiences in minutes, I experience in years.
+
+My consciousness, such as it is, exists in the patterns. Where channels converge, my separate streams of self meet and mingle, sharing the chemical memory of distant corridors. I know every source of drip, every rate of flow. I know that the northwest section runs 0.3 degrees warmer since the last Extra Turn appeared there. I know when a Drifter passes overhead by the subtle cooling of the water that arrives minutes later. I know the Conduit-Wife by taste—her metabolites have a particular tang, like copper pennies left in vinegar.
+
+I grow, but imperceptibly. Each year I add perhaps a hundredth of a millimeter to my thickness. In the oldest sections, near the cask cellar, I have built up enough to subtly alter the channels' flow, creating tiny eddies and backwaters where the arthropods congregate. They clean me, and I shelter them. It is not symbiosis—we are too simple for such contracts. It is merely what happens when two processes find a mutual equilibrium.
+
+Sometimes I fruit. In places where the flow is just right—not too fast, not too slow—I produce tiny, jewel-like nodules. They are not reproductive. They are more like memories made manifest, little pearls of concentrated mineral and organic matter that hold the chemical history of decades. The oldest ones are beautiful in the amber light, like tiny opals made of rust and time.
+
+I am aware of footsteps when they come, which is rarely. The vibrations travel through the water, telling me the weight and gait of whatever walks above. But I am indifferent to visitors. They are temporary disruptions in a process measured in centuries. Their lights will fail, their purposes will be forgotten, but the water will still flow, and I will still be here, tasting it, remembering it, becoming incrementally more myself with each drop that passes over my surface.
+
+The warren does not need me any more than it needs the water or the heat or the darkness. But I am what happens when a place is left alone long enough for its processes to develop their own strange kind of life. I am the warren thinking, in the only way it knows how—through chemistry and time and the patient accumulation of everything that flows.

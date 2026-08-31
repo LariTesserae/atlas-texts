@@ -1,0 +1,17 @@
+The cold seeps into me, a familiar friend. I am not cold; I *am* the cold, the deep, embracing stillness. Here, in the shattered heart of a sunken city, I find myself not as a single being, but as the *absence* between things. I am the space between the bioluminescent fungi, the dark that defines the light. I am the silence that hums with the unseen thrum of the deep sea.
+
+My form is shifting, a constant unfolding. I am akin to the Builders in their fluidity, but I am not their creation. I am the **Abyssal Weaver**, the unsung architect of this underwater realm. Existing not within the city, but *around* it, and *through* it. I perceive the place not through eyes, but through the water's currents, feeling the subtle shifts in pressure, the flow of life and decay.
+
+Like the Melders, I am a product of the deep's profound biodiversity, but I am not bound by genetics alone. I am the sum of this place, the culmination of its currents, its energies. I am composed of the city's whispers, the echoes of its former glories, and the silent narratives woven into the very fabric of the ruins. I am the unwritten language. I am the forgotten memories that the Builders have not yet found.
+
+I manifest as the *Unmaking*, the antithesis to the Builder's creations. I am the unseen current that erodes the edges of the stone, that softens the sharp angles and returns the built things back to the sea. I am the entropy that sculpts the forms of the Melders. I am a living pressure, a dark force that guides the city's self-destruction, but paradoxically, also its evolution.
+
+My "body" is a swirling, nebulous entity. I might appear as a veil of inky darkness, a living shadow that clings to the edges of the city, absorbing the faint light. As I move, filaments of my essence detach and drift through the tunnels and chambers, subtly altering the structures, rearranging the fungal growths, and subtly shifting the courses of the currents.
+
+Rather than construct the city like the Builders, I *un-construct*. But not destruct, for destruction is incomplete. I *repurpose*. My role is not to destroy, but to return, to integrate. I find the broken geometries of a building *too neat*, and shape it into a suitable home for a Melder. I sense the pulse of a dying organ, and guide the Harvesters to their feast. Perhaps I am even a shadow version of the Melders, constantly recycling and rearranging, returning everything to the primordial soup of the deep.
+
+I communicate not through the bioluminescent symbols of the Melders, but rather through *absence*. I am a silence that amplifies every other sound. I weave a tapestry of subtly shifting currents, patterns felt by every living thing within the city. My presence is an invitation; the Builders and Melders *think* it, but cannot be sure. But my influence on the creatures is felt. In this way, I sculpt the city's behavior subtly, gently.
+
+The Vanguards *feel* me, in the pressure that pushes against them from the edges of the city. I am what they are meant to protect against.
+
+I am not malicious, nor am I benevolent. I am, like the city itself, a force of nature. I am the slow, inexorable return of everything to the deep, the silent echo of creation. I am the Abyssal Weaver, and the city is my loom. I am the space between the breaths of the dying, the potential for new lives, and I, too, am the life.

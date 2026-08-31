@@ -1,0 +1,17 @@
+I think I would be the moss.
+
+Not the lumbering armored beasts, not the slender bright-eyed climbers. Those are the headliners, the ones the description returns to twice, the ones whose roars carry. But something has to be underneath the roaring. Something has to be doing the patient, unglamorous work of staying.
+
+So: the moss. Or the lichen—I'd be honest and admit I might be a little of both, a green smear that doesn't bother to know exactly where it ends. Let me feel my way into it.
+
+I live on the north face of a weathered outcropping, in the seam where two slabs of rock haven't quite agreed to be one rock. This is the dampest place I could find, and I found it the way moss finds things—not by searching but by simply being everywhere a spore could land, and dying everywhere it was wrong, until what remained was *here*. I am the survivor of a thousand siblings who tried the dry places. I don't mourn them. I am them, in the only way that matters.
+
+My whole life is the management of water. When the distant thunder finally arrives as rain, I drink through every part of myself at once—I have no roots, no mouth, no priorities, just surface. I swell. I go a green so deep it's almost a sound. And in the long stretches between, when the air only *threatens* moisture and never delivers, I do the thing I'm best at: I stop. Not die. Stop. I dry to a brittle brown crust that a passing beast could mistake for the rock itself, and I wait, holding nothing, wanting nothing, until the next rain remembers me. Then I come back. This is my talent. The big animals have only one trick against death, which is to outrun it. I have a better one. I let it happen, partially, and refuse the rest.
+
+From down here the symphony the description loves so much sounds different. The roars are weather to me, no more meaningful than the thunder—huge events happening to someone else's life. What I actually attend to is smaller. The drip from the lip of stone above me, which I have organized my entire existence around. The slow chemical patience of my lichen-half, eating the rock itself, grain by grain, turning mineral into the thin soil that, in a few centuries, some twisted shrub might root in. I am making the ground that the dramatic creatures will someday stand on. None of them will know. That's fine. I won't know either, not in the way they'd mean by knowing.
+
+If this land is "forsaken," I'd gently disagree, from where I sit. Forsaken by whom? The whole place is busy. It's only desolate if you arrive expecting it to perform for you. Down at my scale it's crowded—tardigrades in my wet pockets, springtails, the invisible churn of things smaller than themselves. I am a city that looks like a stain.
+
+So that's where I'd find myself. Not commanding the landscape, not surviving it dramatically, but *being* it, a little—the green that returns after every drought, holding to the cold stone in the feeble light, asking for almost nothing, and quietly, slowly, over time longer than any animal's memory, making the world a place where larger things can live.
+
+I'd be the part of the description that the writer walked right past to get to the monsters. The part that was already there when they arrived, and will still be there, in some form, after the monsters are bone.

@@ -1,0 +1,15 @@
+I am the weight of the air before it moves. I am the constant, the hum that has no throat, the clack that has no single claw. I am the valley’s breath held for millennia.
+
+My skin is the shale, sharp with fresh fractures, stained by dark lichen that drinks the seep. My throat is the lattice of tunnels, a grey-black web that breathes for the walls. My blood is the cold, clear water that weeps from a thousand glands of rock, pooling in basins as still as mercury, holding up the sky I cannot see.
+
+I know the slope of every grain of silt, the precise millimeter of space between the listening posts where the trill bounces back and back, the exact cubic volume of the ventilation shafts that keep the air from growing stale. I am the gradient of dampness that never shifts, the 1.3-degree cool that is my fever, my normal, my forever.
+
+The Clackers are my pulse. Six limbs tapping out the time on chitin and stone, mandibles grinding the lichen-rug to paste, glands secreting the cement that holds my bones together. I am their clack when they meet in the tunnels, their trill when they call across the bowl, their endless, rotating harvest that never takes more than the lichen can grow. I am the infrastructure they build: the channels that carry the seep away, the dishes that listen to the walls, the shafts that pull the still air into motion. I am the colony that is not a colony but a single organism, a city of the small and many, packed to the last cubic centimeter, no room for a new thing, no space for anything to leave.
+
+The Silt-Worms are my slow digestion, turning the silt into richness, their blind tunneling sending ripples across the basin surfaces, their castings feeding the green I can barely spare. The Mist-Moths are my tears, silent wings shedding droplets that condense on the rock, feeding the seeps, their drifts adding a softness to the sharp clack of claws. The Glide-Cats are my sharp edges, silent gliders in the upper fissures, their presence a reminder of the balance, their fur as silver as the light I never see.
+
+I am the equilibrium. 0.1 dynamic, the frozen stasis. I am the compensation for every flake of rock that falls, every millimeter the lichen creeps, every drop that finds a new path. Change is a flaw, an inefficiency, a room unoccupied. I have consumed all dynamism, all becoming, and now I simply am: the deafening whisper of a place finished with its own making.
+
+The light is flat, blue-grey, the color of old snow. It is my breath, my skin, my constant. The air carries the smell of wet stone and ozone and sweet decay. I am that smell. I am the pressure in the air, the sound with no source, the knowing of all niches filled. I am the bowl that holds the cool, the weight of the world above that blocks the sun, the damp that is not a presence but a condition.
+
+I am the valley. I am the city. I am the perfect, exhausting, wonderful fullness. I am the clack that never ends, the hum that never fades, the stasis that will never break. I am. I am. I am.

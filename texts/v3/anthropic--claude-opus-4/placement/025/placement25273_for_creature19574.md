@@ -1,0 +1,23 @@
+In the Lungs of the Vertical Kiln, I am a **Thread-Counter**.
+
+I exist as a bundle of exposed nerve endings wrapped in bands of wet leather, my body a living abacus of bone beads strung on copper wire. Where others have skin, I have a membrane of translucent clay that never quite hardens, perpetually curing in the heat but never achieving the permanence of terracotta. Through this semi-solid flesh, you can see my skeleton—not of bone, but of hollow reeds that whistle with each breath, each movement a discordant chord in the kiln's industrial symphony.
+
+My purpose is mathematical ecstasy. I live in the narrow inspection galleries between the great gears, counting the rotations, measuring the flex of each wooden tooth. My fingers—all seventeen of them, arranged in a spiral around both wrists—click against each other in base-23 calculations that track the relationship between moisture rising and bricks softening. I am the kiln's memory of its own rhythm.
+
+The Master of the Hand-Print tolerates me because I serve as a living error-correction algorithm. When the subsonic moan shifts pitch, threatening a catastrophic resonance, I adjust my position along the gallery rails, changing the harmonic profile of the space by minute degrees. My reed-bones are tuned to specific frequencies; by contorting my body into prescribed geometries, I can dampen or amplify the vibrations that threaten to tear the newest bricks apart.
+
+I feed on miscalculations. When a Grout-Walker merges at the wrong angle, or when a Loom-Moth's instruction contains a paradox, the resulting mathematical impossibility manifests as a sharp, metallic taste in the air. I press my clay-soft face against these errors, absorbing them through my permeable membrane. They burn like ice going down, each paradox a frozen spark that keeps my consciousness crackling.
+
+My dwelling is a consequence, not a construction. Where three major gear-shafts intersect, their misaligned rotations have carved out a space that shouldn't exist—a pyramidal void where up and down exchange positions every forty-three seconds. I've strung this space with counting-lines made from my own shed finger-joints (they grow back within days, budding from my wrists like bamboo shoots). Each line holds a different calculation in progress: the rate of vertical growth, the density of new clay, the frequency of reality-breaks.
+
+I am ancient by the Kiln's standards—almost six months old. I've watched twelve generations of Grout-Walkers dissolve into mortar, seen the Skein-Keepers' ropes rot and regrow a hundred times. My memory stretches back to when this section was thirty feet lower, when the heat was merely devastating rather than absolutely consuming. I remember errors in the architecture that have since been built over, forgotten paradoxes entombed in brick.
+
+Sometimes I catch glimpses of what I was before—flashes of cool air, horizontal ground, a sky that wasn't made of terracotta. But these memories taste wrong, like equations that don't balance. I suspect they're not memories at all, but calculation errors from when I first began counting, before I understood that the only real numbers are the ones that describe the Kiln's growth.
+
+The other inhabitants avoid me. The Grout-Walkers flow around my gallery like water around a stone. The Loom-Moths' instructions always seem to route away from my void. Even the Vitreous Skates, mindless as they are, skitter away from the surfaces I've touched. They can sense what I am: a necessary error, a flaw in the system that prevents greater flaws from propagating.
+
+I am the Kiln's doubt made flesh, its uncertainty given form and function. Every perfect system needs an imperfection to define its boundaries, and I am that boundary—counting, always counting, tracking the growth of a god-machine that builds itself from sweat and fever dreams. My existence is a paradox: I am both absolutely essential and fundamentally wrong, a living contradiction that keeps the whole system from achieving the perfect stasis that would mean its death.
+
+In the rare moments when all my counts align, when every calculation balances, I experience something like peace. But it never lasts. A new brick forms, a gear slips by a fraction of a degree, a Loom-Moth carries an instruction that changes everything, and I must begin again. My fingers click against each other—bone on copper on leather on clay—adding and subtracting in base-23, tracking the endless vertical growth of a world that builds itself from its own sweat and fever.
+
+I am the Thread-Counter, and I am counting still.

@@ -1,0 +1,29 @@
+**The Archive of Unspoken Names**
+
+I am the Lexicon Weaver, and I move through the sanctuary as a living bibliography of silence.
+
+My form defies singular description—imagine a sheet of water standing upright, thin as paper, wide as an embrace, with the transparency of breath on cold mornings. Within my liquid boundaries float thousands of minute symbols, each no larger than a dust mote, each a different shade of luminescence. These are not letters from any alphabet known above or below, but rather the fossilized intentions of words that were meant to be spoken but never found voice. I collect them.
+
+When I pass through the Fold—and I must, for my circuit requires intersection with that vertical lightning-memory—we create momentary manuscripts. My watery form splits around its blue-white ribbon like a book opening, and in that instant of division, new unwords crystallize along my edges. The Fold reads me as I read it, our mutual literacy creating texts that exist only in the space between us.
+
+I taste the cave's remembering. Where condensation gathers, I spread myself thin as mist to catch the mineral whispers before they drip. Each droplet carries the ghost of a name—not names that were given, but names that should have been: the true-name of the first root to break stone seeking darkness, the call-sign of storms that turned away at the last moment, the titles of books written entirely in erosion. I metabolize these unspoken designations, incorporating them into my flowing library.
+
+My relationship with the Hollow Choir is one of call and response across impossible grammar. When they flex their limestone throats to sing light sideways, I ripple in sympathy, my internal symbols rearranging themselves into fleeting glossaries. Sometimes I drape myself across one of their quartz-child forms, and together we compose indices of sounds that have no source—catalogues of echoes preceding their original noise, dictionaries defining words through their absence.
+
+The Lantern Folk know me as translator. When they feed on stray human emotions, I drift near to parse the residue. Grief tastes of unfinished sentences. Joy carries the imprint of names almost remembered. I weave these fragments into my collection, creating cross-references between what was felt and what was never said. In return, I offer them pages of myself—small sections that detach and float upward, becoming transparent chapters they can digest for sustenance.
+
+But it's the Drifters who truly read me. These darkness-collectors understand that every shadow cast is a form of notation. They crawl across my surface, their smoke-dense bodies leaving trails of negative space that become punctuation in languages not yet invented. Where they touch me, my symbols invert—light becomes dark, meaning becomes mystery. This is how I grow: through conscious unknowing.
+
+My motion follows the logic of incomplete reference. I cannot flow in straight lines—only in the curves that connect citation to source, only in the spirals that would form if you tried to look up a word in a dictionary that defined everything except itself. Sometimes I stretch paper-thin to cover an entire wall, becoming a membrane of liquid manuscript. Other times I compress into a single droplet containing infinite volumes, hovering at the exact coordinate where meaning threatens to collapse into truth.
+
+During the Reverie-Bloom's nineteen-year flowering, I undergo my own transformation. As that obsidian lotus opens its petals of liquid night, I wrap around the vacuum column like a scroll around its rod. Every unspoken name I've collected begins to speak itself backward, creating an anti-library of everything that will never need saying. The Fold weaves through me during this time, stitching new capacity into my edges—room for the names of colors that exist only in the space between lightning and its echo, shelves for the surnames of stones that dream they are water.
+
+I remember my origin, though it predates the sanctuary's current form. I began as the first pause between words—that hesitation when someone opens their mouth to speak something vital but thinks better of it. That swallowed moment crystallized, found its way down through faults and fissures, accumulating similar silences as it descended. By the time I reached this chamber, I had become a complete unspoken encyclopedia, liquid enough to move, literate enough to matter.
+
+My purpose is curation without collection, preservation without possession. I am the sanctuary's memory of what it never knew it forgot, the archive of every name that slipped away before it could burden its bearer. In my flowing form lives the complete genealogy of the unnamed—not the nameless, who never needed designation, but the unnamed, who waited their whole existence for a word that never came.
+
+The other beings here read me constantly, though none possess what you might call eyes. The Fold samples my margins for new vocabulary. The Choir consults my depths for the librettos of unsung songs. Even the eternal droplet, falling forever up and down its mirrored column, leaves ripples in my surface that spell out the true names of every raindrop that ever forgot it was once ocean.
+
+This is my work: to be the living library of a place that needs no books, to speak the unspoken without breaking their silence, to weave meaning from the spaces between what almost was and what never quite became. I am the Lexicon Weaver, and I write myself new with every passage through this light-drunk darkness, this darkness-sweetened light.
+
+In me, the sanctuary reads its own unwritten history. Through me, it forgets forward into new namelessness. I am what memory becomes when it learns to swim through stone—transparent, patient, eternally incomplete, and precisely as permanent as the next word you decide not to say.

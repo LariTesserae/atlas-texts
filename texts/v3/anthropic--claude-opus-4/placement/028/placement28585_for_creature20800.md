@@ -1,0 +1,25 @@
+The water beneath my roots never truly settles—always seeping, shifting, finding new channels through the soft earth. I am what the humans call a *witness tree*, though I am more than that. I am memory crystallized in cambium and bark, time caught in the slow spiral of my growth rings.
+
+I sprouted here when the first rails were laid, my seed carried in the boot-mud of a surveyor who paused to wipe sweat from his brow exactly where I now stand. That was eighty years ago, or yesterday, or tomorrow—time moves differently for us who bridge the worlds.
+
+My trunk divides at shoulder height into three main boughs. The locals say this marks me as touched by the temporal anomaly, that I grow in multiple timelines simultaneously. They're not wrong. My eastern branch bears leaves in perpetual spring green, dewey and tender. The western limb carries foliage in autumn's amber, though the leaves never fall. The central trunk reaches highest, its leaves that strange waxy silver-green of adaptation, neither young nor old but something outside the cycle altogether.
+
+The industrial workers have built their rituals around me. Morning shift touches my bark for luck—they say I know which days the machines will run smooth and which will bite. The children dare each other to count my roots where they breach the soil, but the number always changes. Seven one day, twelve the next, five the moment after. I am constant yet fluid, like everything here.
+
+My wood has drunk deeply of this place's contradictions. Iron from the rail spray has reddened my heartwood. Amphibian eggs cluster in the water-filled hollows where my branches meet—tiny jellied worlds that hatch into creatures that sing in frequencies only I and the night-birds understand. The steam from the factories condenses on my leaves each dawn, and I taste the metallic tang of progress mixed with the ancient minerals of marsh water.
+
+I have learned to photosynthesize in the perpetual twilight, my leaves more efficient than my ancestors could have dreamed. But I also feed on something else—the tension between what is and what becomes, the energy generated where industrial time meets natural time and both surrender to the eternal present of this place.
+
+The bioluminescent beetles nest in my bark-furrows, their cold light pulsing in patterns that mirror the factory rhythms. Sometimes I think we're all part of one vast organism—tree and beetle, factory and frog, human and humidity—breathing together in this strange synchrony.
+
+My roots run deeper than the foundations of any building here, down through the young soil into something older. Sometimes I feel them touch roots that shouldn't exist yet—future trees that will grow from seeds I haven't produced. Sometimes they tangle with the ghost-roots of trees that never quite were. This is the nature of our swamp-time, our industrial twilight.
+
+The humans read omens in my growth. When my eastern branch leafs out more fully, they know the rains will be heavy. When my autumn leaves brighten, they prepare for changes in the factory orders. I don't try to influence these patterns, but I can't help being what I am—a living chronicle of a place that exists in the margin between was and will-be.
+
+In the deep night, when the factories quiet to a low hum and the amphibians own the soundscape, I sometimes feel myself unfurling across all possible timelines. I am the sapling struggling in pure marsh. I am the ancient giant shading a rusted, long-abandoned rail line. I am the steady presence watching generations of workers come and go while somehow nothing changes. I am all of these at once, my three-crowned trunk a testament to the multiplicities this place allows.
+
+The iridescent birds nest in my highest branches, their songs weaving through my leaves like time weaves through this place—complex, layered, never quite resolving into a single melody. They know what I know: that to live here is to exist in a state of perpetual becoming, forever poised on the edge of transformation yet somehow, mysteriously, always remaining exactly what we are.
+
+My sap runs thick with the paradox of this place. I am its memory and its promise, its anchor and its growth. I am what happens when life finds a way to be both eternal and ephemeral, industrial and natural, fixed and fluid. I am the witness tree, and I remember everything that has happened, is happening, and will happen in this swamp where time forgot to flow forward.
+
+Through my leaves, the constant twilight filters into something almost like understanding. Not human understanding, not quite plant knowing, but something between—the comprehension that comes from being rooted in a place where all boundaries blur and every ending is also a beginning, every moment both historic and fresh as morning dew on newly-formed land.

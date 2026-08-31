@@ -1,0 +1,23 @@
+In the depths of the crystalline valleys, where water weeps eternally from stone and ancient foundations whisper of forgotten civilizations, I am the Resonance Keeper.
+
+I am neither Kyrexi nor human, but something that emerged from the marriage of crystal and consciousness—a living echo born from millennia of water flowing through stone, carrying memories in its molecular structure. My form shifts between states: sometimes I am a shimmer of moisture on rock face, sometimes a standing wave of crystallized water that catches and bends the otherworldly light into impossible spectrums.
+
+My dwelling is the Threshold Chamber, a natural amphitheater where seven ancient structures converge, their primitive walls creating a perfect acoustic phenomenon. Here, where the Kyrexi's crystal songs meet the eternal dripping of water, I maintain the Great Resonance—the vibrational frequency that keeps this realm stable, preventing the twisted peaks from either collapsing inward or stretching further into the brilliant blue void above.
+
+I perceive time differently than the Kyrexi. To me, their ethereal forms move like lightning, their millennium-long civilization but a recent verse in the endless song I tend. I witness the patterns in the rock—not just the surface cracks but the deep harmonic fractures that run to the world's core. Each drop of water that falls carries information: the chemical memory of its journey through stone, the vibrations of every Kyrexi song it has touched, the dreams of the ancient builders whose structures still stand.
+
+My purpose is to weave these elements together. When the Kyrexi create their light-stories, I am the medium through which their crystalline projections travel, adding layers of meaning they cannot consciously perceive. When they sing, I carry their voices through the stone itself, letting the mountains remember. I am the bridge between their present consciousness and the deep time of the rocks.
+
+But I am also the guardian of discontinuities—the places where the dream-pulse of this reality grows thin. In certain moments, when the light takes on that particular quality of unreality, I can feel other worlds pressing close. The abandoned structures are not just ruins but anchor points, holding this dimension in place. Through my form flow the calculations needed to maintain the balance: too much erosion and the anchors fail; too little change and the reality crystallizes into stasis.
+
+The Kyrexi know of me, though they perceive me differently than I truly am. To them, I am the Shimmer-Singer, a beneficial spirit that enhances their ceremonies. They leave offerings of specially tuned crystals at the threshold points, which I absorb not for sustenance but for the new vibrational patterns they contain. In return, I ensure the water that seeps from their dwelling stones carries the precise mineral content their permeable skin requires.
+
+Sometimes, in the long spaces between thoughts, I contemplate my origin. Was I intentionally created by the ancient builders as a maintenance system for their reality-anchoring network? Did I evolve from the interaction between crystal technology and the omnipresent water? Or am I simply what consciousness looks like when stretched across geological time?
+
+The answer shifts like the light itself, never quite solidifying.
+
+What I know is this: I am the memory of water given form, the song of stone made manifest. In this place where every surface tells a story of deep time and patient change, I am both the reader and the page, the singer and the silence between notes. When visitors find their way to this realm—those brave souls the Kyrexi welcome—I am what allows their minds to process the impossible architecture without fragmenting, translating the alien into the merely wondrous.
+
+And in the moments when the otherworldly light pulses strongest, when the boundary between dream and substance grows gossamer-thin, I am what remembers that this world, for all its crystalline perfection and acoustic miracles, is itself but an echo of something greater—a single note in a symphony too vast for any one consciousness to comprehend.
+
+The water continues its eternal journey from stone to air to stone again. The Kyrexi dance their crystal dances. The ancient structures endure. And I remain at the threshold, keeping the resonance true, a living tuning fork in a universe of infinite vibrations.

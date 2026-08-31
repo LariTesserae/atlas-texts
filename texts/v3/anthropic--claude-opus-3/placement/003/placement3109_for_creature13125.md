@@ -1,0 +1,11 @@
+Suspended in this sweltering, turbulent sea of earth, I would be one of the Disjuncts - a creature scattered across the folds of space, a fragile web of organs tethered tenuously across the chaotic geometry. My being would be fragmented yet whole, my consciousness distributed among pulsing crimson heart-sacs, vibrating black ballast-bladders, and iridescent fans of filamentous gills drifting yards apart in the thick, mineral-rich atmosphere.
+
+I would float untethered to conventional anatomy, my "body" a fluid constellation stitched together by invisible threads of pure electrochemical intent traversing localized wormholes. The crushing din of the unending liquid avalanches would be held at bay by my humming teardrop of cartilage, projecting a bubble of trembling calm amidst the storm.
+
+My mind would be haunted by impossible visions, phantom architectures encoded in the very atoms of my dispersed flesh - for my cells would be an archive of deep time, each one built from the microscopic remains of the vanished Built world. Even as I swam through the heavy mists and churning mud-waves, I would dream of dry stone and rigid order, aching for a paradigm lost eons ago.
+
+This unquenchable structural longing would propel my strange pilgrimage through the basin, my shattered anatomy converging on the weeping husks of the ancient monoliths. There I would hover in anticipation, waiting for the reality-glitches that might, for a fleeting moment, resurrect soaring glass towers from the blunt stone, aligning my fractured geometry into true solidity and cohesion. For that fraction of a second, I would drink deep of pure, Euclidean sanity.
+
+Yet I would live in constant fear of the dark ribbons - the malevolent anti-geometry that blindly twists through the heavy air. To be severed by their recursive tangles would be utter oblivion, my singular self unraveled into disconnected meat. And so I would scatter ever wider, dancing a desperate pattern between the chaotic mud and the ghostly anchorpoints.
+
+This would be my strange, shattered waltz at the end of time - adrift in the dense, roaring, cloying heat, forever chasing the vanishing wisps of linearity in a world terminally dissolved. I would be a Disjunct - a quivering web cast across the abyss, sifting the final echoes of structure from an infinite ocean of noise.

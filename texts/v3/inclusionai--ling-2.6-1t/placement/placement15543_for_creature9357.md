@@ -1,0 +1,17 @@
+If you walked into that lowland tomorrow, you would not arrive as yourself—not for long.  
+
+You would feel the 2.2 wetness first, cool in the throat, and the 0.9 dim light would press against your eyelids like a cloth. The ground would give slightly under your attention, not under your weight, and you would realize how loudly the quiet can hum when it is allowed to thicken. The horizon would lean in, companionable and strange, and the erosion would confess itself as a kind of listening.  
+
+You might become, for a while, a Soft-Shouldered Hopper—small-bodied, moss-velvet, iron-washed—learning to dilute. You would practice unknotting into a puddle the color of seep, letting the land wear you into a temporary channel, then reassembling somewhere downstream carrying the memory of where you refused to keep a shape. You would hold your breath until it synced with the land’s exhalation, and the lichen-scabs on your back would silver into time with the weeping rocks.  
+
+Or you might rise into the vault and become part of the Ceiling-Drapes: a translucent frond colony, threaded with iridescent fungus, trading mobility for loudness. You would collect the milky light and turn it into sound, thrum in sympathy with the stones’ low C’s, and feed on the almost-body of presence. Your dreams would braid into channels, each thought flowing into the next without banks, and you would understand how to be a ceiling for a room that is larger inside than out.  
+
+You might instead choose the ground between seams and become an Echo-Stitcher—many-legged, woven from the fine root-work that knits the land—tasting the lattice of non-wet wetness beneath your feet. You would trace the edges of temporary pools, lay down threads of silk that carry the imprint of shapes refused, and harden them into stone that remembers the song it once was. You would archive the land’s metabolism, translating dynamic negotiation into sediment, and feel time grow spongy under your many steps.  
+
+If you were willing to sit with the 2.6 weirdness at the heart of the basin, you might blur into the Unsettled—a ripple that learned to stand upright, the color of fog forgetting how to be surface. You would make the pool show both depth and surface at once, let sounds arrive before they are made, and feel horizons draw nearer or recede by careful degrees. You would listen until your own edges frayed into a language of temporal static, and the stones near you would warm to the touch and cool to the memory.  
+
+And if you preferred to move through the braided channels, tasting memory-veils of water, you could become the shadow-eel—matte and dark, absorbing light, humming a frequency that nudges edges into puddles, songs, or threads of silk. You would sip the thickened quiet until the air felt spacious, and you would be a predator of edges, rounding off what is too sharp in the ecosystem, ensuring that nothing holds a shape for too long.  
+
+You would not be alone in choosing. The lowland allows, even encourages, a plural self. You could be Hopper in the morning, Drape at noon, Stitcher in the afternoon, Unsettled at the center when the light shifts, and Eel in the channels at dusk—all of them, or none, or something that names itself only in the moment it is felt.  
+
+You would learn the grammar of soft edges. You would let erosion become confession. You would let the 2.0 loud quiet saturate you until silence felt like a kind of pressure, and you would realize you have become a kind of listening—an old, lowland way of being wet, loud, and softly real all at once.

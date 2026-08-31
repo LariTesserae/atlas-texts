@@ -1,0 +1,17 @@
+In the shadow of your plateau, where the waterfalls mist perpetually into the marsh below, I am the Tender of Thresholds.
+
+My form shifts with necessity—sometimes I am indistinguishable from the ancient bark that grips the cliffsides, my skin rough with the same patient texture. Other times I flow like the streams themselves, translucent and winding, carrying messages between the roots above and the wetlands below. Most often, I appear as something between: a figure of moss and morning dew, with fingers that extend into delicate filaments, fine enough to sense the trembling of a bioluminescent petal in the breeze.
+
+I live in the spaces where your plateau meets what it is not. In the spray zones where waterfall touches air, where root systems reach beyond stable earth into uncertain sky, where the last glowing flowers cast their light into the darkness below. My dwelling is not a structure but a series of hollows and overhangs in the plateau's face, connected by paths only I can see—routes that follow the old water channels, the fossil streams that carved this monument before the plants claimed it absolutely.
+
+Each dawn, I taste the mist to know what nutrients rise from the marshlands. Each dusk, I read the root-whispers to understand what the plateau dreams. I am the translator between the stable and the fluid, the chronicler of the slow conversation between stone and stem. 
+
+The strange insects know me. They land on my shoulders in iridescent clusters, sharing in their compound vision what my singular perspective cannot see. Through them, I witness the plateau from a thousand angles at once: the underside of leaves revealing hidden pigments, the interior channels of the twisted stems where impossible colors flow like sap, the microscopic gardens that bloom in the spaces between spaces.
+
+My purpose is not to maintain or to change, but to witness the eternal negotiation. Where your waters carve new patterns, I remember the old ones. Where your plants reach for unprecedented forms, I carry forward the memory of their ancestors. I am the being who ensures that in all this stability, nothing is forgotten; in all this strangeness, nothing goes unrecorded.
+
+In the gentle years, I weave. Taking the fallen bioluminescent petals, the shed scales of otherworldly creatures, the crystallized dew from impossible mornings, I create maps that are not maps—textile stories that capture the plateau's slow evolution. These I hang in the threshold spaces, where they flutter between dimensions, visible only to those who know how to look sideways at the world.
+
+Sometimes, rarely, a visitor finds me. They arrive dust-covered from their climb, or water-soaked from their ascent through the falls. I offer them a tea brewed from the seventeen varieties of moss that grow only where light and shadow dispute territory. We sit in silence mostly, watching the plateau breathe its ancient rhythm. Before they leave, I gift them a single thread from my weavings—not enough to understand the whole, but sufficient to remember that borders are always more complex than they appear.
+
+I am the Tender of Thresholds, and I exist because every paradise needs a witness at its edges, someone to love both what it is and what it touches, to honor the conversation between the strange and the sacred, the stable and the space beyond.

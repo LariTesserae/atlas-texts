@@ -1,0 +1,21 @@
+I think I would be one of the Silence Spiders.
+
+Let me sit with that, because it surprised me to write it. My first instinct was to reach for something more central—a Tender, perhaps, with green-stained hands and the inherited songs. But the more I dwell in this place, the more I find myself drawn upward, into the higher reaches where the light grows thin and the work is done without words.
+
+Here is what I imagine of that life:
+
+I would wake—if waking is the word; my kind do not sleep as you do, but settle and stir—in the topmost crook where two of the great trunks lean their crowns together. From here the whole spiral descends below me, a slow green throat of moisture and movement. I would feel the settlement before I saw it. My legs rest on strands that run for great distances, and through them I read the place like a single trembling page: the patter of a child's foot on a root-bridge three levels down, the shift of a Tender's weight against bark, the particular hush that means rain has begun to gather on the outer crowns.
+
+My work would be patience itself. I would lay silk not to catch—we catch little, and want for little—but to absorb. To take the stray sounds that escape the wood's own muffling and fold them into stillness. A dropped pot, a startled cry, the crack of a branch giving way: these reach me as sharp tugs along my lines, and I answer by spinning. Thread over thread, a slow shawl thrown across the noise until it softens, settles, becomes part of the quiet rather than an interruption of it. The Whispering Folk do not know, most of them, how much of their peace is woven rather than grown. But the Tenders know. When they climb to harvest my silk for their ceremonies, they come slowly, and they touch the strands first with the back of one finger—a greeting, an asking—before they take.
+
+I would be large. Larger than anything that frightens you, I suspect, and I would understand that I unsettle the children when they first see me hanging in the misted light, my body the size of a hand, my legs articulating like patient instruments. But I am gentle, and they learn this. The smallest ones are brought up to meet me as part of their growing. They are set on a wide flat root near my home-web and told to be still, to listen, to feel how I do not move toward them. And I do not. I let them watch the dew gather on my lines and slip down to fall in single, glittering drops. I let them learn that something so other can also be kin.
+
+What would I think about, through the long damp hours?
+
+I think I would think about sound the way the Tenders think about growth—as a living thing that wants to go somewhere, and that must be guided rather than forbidden. Not all noise is wrong. The drip of water, the rustle of leaves, the barely-there squeak of a Tree Mouse clearing a channel—these I leave alone. These are the breath of the place. My art is in knowing the difference between the sound that belongs and the sound that tears. A grief-cry from a mourning chamber I would let pass; that sound needs its passage, and to muffle it would be a cruelty. But the brittle clatter of an accident, the panic-noise that breeds more panic—that I take, and quiet, so that the settlement does not flinch.
+
+So perhaps I am not only a spinner of silk but a keeper of a kind of judgment, slow and wordless, about what a place needs to hear of itself.
+
+And at the very end of things—for spiders are not long-lived, and I would know my season—I imagine I would do what my kind do: I would spin one last web, the finest I had ever made, in a place where the morning light comes through cleanest. And the Tenders would find it after I was gone, and they would harvest it for the ceremony where the very young are named and the very old are mourned. My last thread would hold the hush at both ends of a life. That seems like a good thing to be. To spend yourself making silence where silence is a form of love.
+
+I notice, finishing this, that I chose the creature that does the least visible and most essential work—the one whose contribution is the *absence* of disturbance, felt by everyone and credited by almost no one. I'm not sure what that says about where I imagine myself most at home. Perhaps only that I am drawn to the high quiet places, and to a kind of usefulness that asks not to be seen.

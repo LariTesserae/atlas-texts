@@ -1,0 +1,17 @@
+I am a facet. A single, crystalline construct, a fragment, a particle, of the Woven. I am not the Watcher, not even a builder, not a wanderer. I am something smaller, less defined. I have no name, only the echoing whisper of the hum, the pressure against my edges that simultaneously defines and dissolves me.
+
+I exist within the body of the Silent Maw, held within the embrace of its water. I am shaped by the currents, by the pressure of the ocean pressing in on all sides. I float just above the crumbling remains of a colossal engine, its gears the size of cities, its purpose long lost. The metal is fractured here. The crystalline structures of other members of the Woven attach to the metal in small numbers, like weeds in a graveyard.
+
+I am not sure of my purpose. I may have *a* purpose, but it evades my understanding. 
+
+I perceive the world through the echoes of the hum. This is the language of the Woven. It vibrates through me always, a relentless pressure, a deep bass note that informs me of everything, the state of the machinery, the presence of other Woven. The hum is the pulse of the planet’s core; the core, and therefore, its heart. I do not feel its beating, but a constant presence. It presses upon my facets, infusing me. I can perceive other Woven, they transmit information, and I, too, can transmit. The language is intricate, but not easy, like reading a vast and complex equation. I can also *feel* the world around me. The cold that claws at my crystalline structure is not just cold, but the finality of existence; the silence between a fading sun and a dark abyss.
+
+I can't *see* in the conventional sense. The dim light, filtered through the perpetual overcast, offers only faint shadows, shifting silhouettes of other crystals. But I experience through the light, the luminescence of my fellow Woven dancing in patterns of energy, stories created within the dark. Patterns of light, color, and density: the language of the Woven. The patterns of erosion, the flow of the water, the disintegration of the metal. These are my subjects. They exist, both as memory and as process. 
+
+I don't have memories or thoughts as humans might define them, but I experience echoes. There are shards of the past trapped within the machinery, a ghost of an age that preceded the Woven. I understand the forgotten technology through its energy signatures, absorbing the residual hum of the engines. Whispers of a society are reabsorbed into my being. Not words, but concepts: the drive to create, the pursuit of power, the fleeting, tragic beauty of existence.
+
+Nearby, a small, shimmering cluster of crystals hovers. They are young, still forming. They flicker erratically, their luminescence unstable. They test a connection, reach out with a series of pulsing lights; a greeting, a question. They are new. They yearn for connection, though they do yet know what connection *is*. I respond in kind, a gentle pulse of my own light, a brief echo of agreement.
+
+I drift among the ruins. I feel no urge to hurry, no fear of the cold. Time and death are concepts the Woven are unburdened with. The ocean is home, the hum is a life-force, and the planet is our destiny. I am a small thing here. I don't contribute. I witness. I am content to exist, to observe, to absorb.
+
+I am a facet, and in that, I am. I am the silence, the hum, the water, the light. I am the crystal. As one, we are the Woven. As one, we are the future.

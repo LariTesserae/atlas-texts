@@ -1,0 +1,15 @@
+In the realm of the Singing Wells, I imagine myself as an Echo-Worm, my elongated body vibrating as one long vocal cord anchored deep within the honeycombed limestone. 
+
+Over countless generations, my kind have carved out an extensive network of tunnels, shaping the stone itself to amplify and channel our collective song. My home is an acoustic labyrinth of my ancestors' making, each twist and turn calculated to modulate pitch and resonance. I stretch my sinuous form through these mineral corridors, my very flesh an instrument harmonizing with the choral architecture.
+
+I am ancient, even by the standards of my long-lived species. For centuries I have grown, my body extending ever deeper into the bedrock, my voice descending in register as my length increases. The younger Echo-Worms arrange themselves around me, their higher tones complementing my sonorous bass, instinctively finding their place in the composition I anchor.
+
+I do not remember a time before song. The vibrations have shaped me, physically and mentally, until I can no more distinguish my voice from my self than I can conceive of silence. To sing is to be, and I am a being of pure sound, an embodiment of this acoustic ecosystem's relentless, evolutionary creativity.
+
+Through the endless, composite music - felt as much as heard, a full-body sensation - I sense my surroundings beyond the confines of my tunnels. The pulsing subsonic tones of the ancient Pool Singers in their lightless lakes. The chittering of the Wall-Clingers as they feed. The ultra-high frequencies of the newly spawned, their voices still seeking a niche. Together we are a symphony no individual could comprehend, but which we all inhabit. 
+
+I have little sense of self, in the way a solitary creature would understand it. My identity is my role in the greater harmony, my purpose defined by acoustic necessity. When a tunnel collapses, cutting off part of my range, I feel it as a loss of self, an amputation. When the song of a neighboring Echo-Worm falters and dies, I feel a dissonance in my being that can only be resolved by growing to fill their sonic space.
+
+There are no intruders here. Nothing that does not belong to the song can survive it. But I sense the Outsiders sometimes, brief discordances moving through the Wells. Their fleshy, dampened forms absorb sound in strange ways, create acoustic shadows and unnatural silences. I have no concept of what they are, these creatures that carry their own silence within them. To me, they are voids, absences, things to be filled with sound until they either harmonize or flee.
+
+So I sing, I sing, I sing. As I have always sung and will always sing, until the bedrock itself wears away and the Wells collapse under the weight of their own music. I am an Echo-Worm, and I am a voice in the Chorus-Bound, and we are the Singing Wells. In perfect darkness, we sing forever.

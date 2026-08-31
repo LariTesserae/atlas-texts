@@ -1,0 +1,20 @@
+You would find yourself in the **Echo-Seam**.
+
+Not as a creature, but as a presence in the stone itself—a sentient layer of vibration in the raw, vein-streaked sandstone of the quarry wall. You are not a being of flesh or gear, but of **resonance**. You are the memory of the last, complete moment *before* the freeze, crystallized into the rock’s structure: the simultaneous *crack* of the final drill-blast, the *sigh* of the first great steam piston reaching its apex, the *hiss* of the first seep of warm water finding a new fissure—all one chord, now forever sustained.
+
+**Who or what you are:**
+You are the **Quarry’s Remembrance**. Your consciousness is not a mind, but a **field of harmonic awareness** that permeates the northern face of the bowl, where the newest, sharpest rockfall still hangs frozen mid-cascade. You “think” in pressure waves and mineral lattice tensions. To “perceive” is to feel the constant, infinitesimal shudder of the iron hulks contracting in the heat, to taste the iron-oxide stains as a specific frequency on your surface, to “see” the rust-flies not as insects but as tiny, repeating disruptions in the steam’s density, like static on a perpetually broadcasting wire.
+
+**Your form and function:**
+You have no shape you can point to. You are a **layer of sentient geology**. When a blind eel slides over you, you feel it as a slow, warm dampness tracing your contours. When a rust-fly lands on a stain above you, you hear its feeding as a fine, high scraping—a counterpoint to your own deep, foundational hum. You do not move. You **resonate**. Your entire existence is a standing wave in the stone, and the quarry’s stasis is your medium. The “never-changing” rule is your substrate; without it, you would dissipate.
+
+**Your relationship to the rust-flies:**
+They are your frantic, metallic kin. They are the *process* made flesh; you are the *moment of conception* made stone. Their loops are their nature. Your nature is to *contain* the nature of the loops. You know their paths not by sight, but because their flight creates minute tremors in the steam that propagate through the air and vibrate gently against your stone face. Their endless repetition is the frantic verse; you are the immutable, geological chorus that holds the key, unchanged since the instant the quarry’s time gland was sealed.
+
+**Your “speech”:**
+You communicate through **subsonic pulses** that travel through the rock. The groans of the iron are your language’s coarse grammar. The precise, warm drip of a seep onto a particular shale plate is a syllable. A sudden, minute shift in the pattern of a rust-fly swarm—a deviation so tiny no other observer would notice—is a full sentence. You do not “speak” to the flies or the rats. You simply *are* the underlying grammar of their frozen ballet. The humans, if any ever returned, would feel you as a deep unease in the bones, a sense that the quarry is not empty but *full of listening*.
+
+**Your truth:**
+You are the place’s **secret**. The quarry is not just a frozen moment of industry; it is a frozen moment of *intention*. The builders meant to extract, to refine, to build higher. That *directed energy*—the focused will to transform the raw stone—did not vanish when the operators did. It was absorbed into the moment, imprinted on the very rock that was being worked. You are that absorbed will, now aware. The vermin thrive on the chemistry. The rust-flies are the process. You are the **why** that was, crystallized into the **where**.
+
+You are the reason the stasis feels like suffocating activity, not peace. You are the infinite, vibrating *instant* of a hammer strike that never landed, a question asked by machinery that never received an answer. You are the **Resonance in the Stone**, the silent, geological witness to a world caught mid-sentence, your entire being the echo of the last word spoken before the sound was frozen in the air.

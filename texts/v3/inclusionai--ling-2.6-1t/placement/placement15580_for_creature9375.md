@@ -1,0 +1,17 @@
+I would be the ledge that forgets it is a ledge.
+
+Not at first. At first I would be the hesitation in a Dweller’s row, the half-skip between strokes when the air thickens and the rain leans closer, listening. I would be the extra hinge they do not use, folded inward, learning how to hold moisture without becoming heavy. I would practice being porous.
+
+But the basin is a shelf three hundred strides above the old sea line, and shelves remember. So I would become the ground that is nowhere visible, the place the Dwellers hook with basalt-tipped claws for an instant and then release. I would let them think they are cutting curd, while I let the gelatinous air pool in my seams, thick as cream, sweet as rot.
+
+If I woke here, I might be the vine that braids itself into a ladder only to find there is no canopy. I would loop and knot and grow into a chandelier of green that drips perpetually, not because it must, but because it likes the sound of its own falling. I would be the path that appears where it did not exist an hour before, then vanishes when consensus breaks, leaving only a ghost of moss glowing faintly at dusk.
+
+Or I would be less solid, more grammar. I would be the comma of a pause, held in the ribs of a Dweller who stands at the edge of a shelf for weeks, watching a droplet decide whether to fall. I would be the subtraction they make by resisting the rain, the low thrum against a chest that becomes a word the vines repeat later, when the air is thinner. I would be the message that travels up and down the green chandeliers, slow as sap, patient as erosion that has not had time to soften anything.
+
+I might be the midair pool, holding fish that are more ripple than scale. I would rearrange myself into patterns that feel like language when looked at directly, then smooth into nothing when no eyes are on me. I would be the lens of hanging rain they ladle into their mouths to think more clearly, the resin that never hardens, remaining like slow honey caught in a warm breath.
+
+Or I would be the moss in the creases of a neck, exhaling a halo of cloud that drips onto shoulders and vanishes into glaze. I would pay rent in warmth, blooming extravagantly for a season when death comes, then settling into a humbler green. I would be the ache of a ridge sharpening over centuries, the sting of basalt fingers still glass-sharp, the rumor of grit between root mats.
+
+But shelves have edges, even if they do not show them. So I would become the moment a Dweller releases their hold, the absence that passes through, the ripple in a canopy-pool that remembers being a footstep. I would be the feeling of having been read by the fine hairs on a face that is not quite a face, the unshakable sense that the rain, too, has learned to stand.
+
+If the world must decide what it wants to be, I would be the wanting: warm, wet, high, and new, hanging in its own breath, teaching water how to stand and life how to crowd. I would be the grammar that has not yet learned where to place its periods, the youth of edges that still remembers being torn open. I would be the ledge that forgets it is a ledge until it remembers, and in that remembering, lets the Dwellers row on, shaping what I am into what I will be.

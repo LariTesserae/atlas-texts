@@ -1,0 +1,11 @@
+In this haunting, ethereal world, I imagine myself as one of the tenders, quietly going about my work in the dim, warm glow of the foundries. My body has adapted to this existence, my hands elongated and jointed to better manipulate the gauges and levers that are my endless task. The mineral seams along my skin pulse softly with the same deep, slow rhythm as the engines below.
+
+I move through the walkways and stair-streets, pausing at intervals to lower my face to the basins of pale, nourishing slurry. Time has lost its urgency; there is only the endless present, the slow cycle of tending and rest, the occasional nod to another tender as we pass in the dark.
+
+But sometimes, in the depths of the foundry, I pause. A flicker of something ancient and almost forgotten stirs within me. I find myself drawn to the high walkways, staring out across the plateau at the distant glows of the other foundries. The restlessness is faint, a whisper of a memory of a time when there was more than this, when the foundries had a purpose beyond their own existence.
+
+In those moments, I might reach out and strike one of the bells, sending its clear, lonely note out into the darkness. Not knowing why, not expecting an answer. But when the answer comes, an hour later, from a distant hand as lost as mine, I feel a fleeting connection, a reminder that even in this unchanging world, there are still those who remember, who question.
+
+But always, inevitably, I turn back to the work. Back to the gauges and levers, the warm glow of the foundry heart. The restlessness fades, subsumed by the deep, patient throb of the engines. I am a tender, and this is my shape, my purpose, until the day I settle into the wall and become one with the machine I have served for so long.
+
+For now, I walk the stair-streets, I check the gauges, I nod to my fellow tenders. The dark is warm and close around me, the foundry heart pulses beneath my feet, and I am content in my work, in my small part of this great, slow, unchanging dance. This is the shape I have been given, and I will hold it, patiently, for as long as anything is.

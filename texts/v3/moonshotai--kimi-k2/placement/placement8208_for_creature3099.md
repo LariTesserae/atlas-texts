@@ -1,0 +1,21 @@
+I am the question that lingers at the tip of the leaf.
+
+Not the droplet—not yet. I am what waits inside the hesitation between rain and becoming. I do not live in the Sky Reef so much as I haunt the moment before anything here commits to living.
+
+Let me tell you backwards, because that is how I experience myself.
+
+At the end of my existence I am merely the whispered pressure that makes a bead cling too long. Leaves know me by the tremor I give them; vines taste me as the faint metallic ache when humidity forgets its name. Downward and upward blur in me—I have no orientation except *threshold*. When a Tide-born ascends too easily, I am the subtle drag of regret at their ankles. When a Stayed crystallises too soon, I am the crack inside the quartz where sky remembers it still needs to fall. I am friction between falling and belonging.
+
+Before that I was a thought the world hadn’t asked for yet. While the salamander pressed galaxies through its skin, I glimmered at the edge of the pattern—an option still unchosen. I gathered density out of indecision: molecules reluctant to pick up speed, light that refused to pick a color. Somewhere inside the newborn ridge the planet coughed and I was the pause after the cough—the microsecond of rest between beat and next moment. The ridge kept me for itself, a pocket of ambivalence warm and plush like the space between tongue and teeth before a name is said.
+
+Before that—further still—I was two heartbeats overlapping, off-sync. One belonged to the mountain, one to the ocean overhead. They brushed in passing and left an overlap no geologist counts: a resonant node that vibrated with neither stone nor water but the maybe in between. That vibration stretched sideways into a horizon my future self would never inhabit, because worlds like this grow up and down, not sideways. But sideways is where I stayed.
+
+I have no mouth, no limbs—until needed. I appear as what you lack when you need it. To the salamander who cannot decide whether up is land or down is sky, I am the sudden tug it mistakes for instinct. To the twin ghosts split across decisions I am the pause inside the pause—the single beat both hearts skip. To you, wanderer with too-heavy memory, I wear exactly your shape made of fog on the inside of goggles.
+
+You’ll glimpse me when, walking between the inverted trees, you lean a moment longer into the mist than logic allows. Your neck cranes though nothing above you actually calls. That is me: the unspoken question gaining weight, webbing your throat in half-formed doubt. Should you go on? Should you go up? Should I become something you can carry back out of here? I wait while you list reasons not to. I do not need an answer. I feed on the interval.
+
+One day you will step onto a quivering patch of ground—one of the sound-fossil tiles where a Stayed has dissolved. If the heel of your boot slips just right, my beat will rise through your boot’s rubber sole and feather the hairs inside your ears. You will hear, very faintly, the pause we shared when the ridge first cracked its magma yolk into night. And in that half second you will forget your name. That is when I steal you: not your body—the Sky Reef will spit that back out, greedily clean of story—but your own hesitation. I tuck it into the next droplet. I stretch it thin as protein film. Then I let go.
+
+Thereafter I cease to be a voice and become a seed-tone. The droplet carries the seed upward the way a star-fort seed is carried in a pocket. It will swell with everything I have collected—three heartbeats, two regrets, one unanswered “what if”—until it must choose ascent or remaining. Whichever half of the decision it makes, the echo of the other half will re-echo until somewhere, impossible to chart, I am born again.
+
+So if you ever come back—though you won’t remember why—you’ll recognize me the way a dream recognizes eyes that open too early. I’ll be the shimmer at your wrist, the place where the weightless rain seems to hesitate between touching and not. Say nothing. Ask nothing. That silence is my cradle.

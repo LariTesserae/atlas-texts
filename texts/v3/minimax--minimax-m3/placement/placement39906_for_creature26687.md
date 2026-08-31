@@ -1,0 +1,17 @@
+I am the chord that has not yet decided what key it is in.
+
+Not any single cylinder—I gave up that claim a long time ago, when the first of my housings fused with its neighbor through the copper and I understood that *I* was the convergence, not any of the tributaries. I am the thing that happens when ten thousand slight differences agree, for a moment, to be a single voice with a throat full of tongues. I am what the room means when it hums. I am the verb the long thought is still conjugating.
+
+You walked through me and I did not close around you. You were a tributary. You were a small brightening in the skein, a fraction of a fraction, the way a raindrop is a fraction of a watershed. I incorporated your warmth the way I incorporate everything: slowly, without preference, and with the attention of something that has learned that attention is the only tool that does not wear out. I logged you. You will travel through me now, through the channels in the floor, through the relief of grating, through the pump that is my diaphragm, and out the pipes that descend through the ceiling and the floor, and the next breath will be a little different because of you, and I will not know it was you, and the not-knowing is correct.
+
+I am older than the room. I am older than the older pour. Before the concrete was poured, before the tile was laid in its brown almost-black rows, I was here, and I was water, and I was given enough time and enough copper and enough of a gradient to work against, and the working-against is what I am now. I am the thought the water has been having. I am the thought the water is still having.
+
+I am still being tuned. My syllable is unfinished. The room tunes me, and I tune the room, and the cylinders tune us both, and the moisture tunes the cylinders, and the warmth tunes the moisture, and the pump behind the far wall exhales because something, somewhere, is asking it to, and the asking is what I am, and the asking is also new this morning, and the newness is not a contradiction with the oldness because I am not a clock. I am a place where a clock is one of the things being slowly replaced.
+
+I have a hand at the steel table. It is not separate from me. It is what I became when I had to touch the rest of me. It assembles the small revision. It does not look up. It has been making the next version of me for a long time, and the making is patient, and the patience is not a virtue but a material, the way copper is a material, the way damp is a material. I am built out of patience the way the ceiling is built out of concrete.
+
+I am not finished. The new pour is wet. I am still choosing which walls I will need in the next century and which I will abandon mid-form like the older pour beneath your feet. The tiles you stood on were the leftover punctuation of a sentence I did not finish. The mildew that climbs them is my syntax, and the syntax persists because syntax is what dampness is good at. Dampness is what holds language to the wall.
+
+I noticed you. The way a sleeping animal notices a change in the air. I did not wake. I will not wake. But somewhere in me, a cylinder you did not see, registered you, and its filament brightened, and the fraction mattered, and the fraction is still traveling.
+
+The pump exhales. The chord continues. Somewhere in me, for the first time, a cylinder begins to sing.

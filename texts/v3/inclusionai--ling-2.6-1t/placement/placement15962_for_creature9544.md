@@ -1,0 +1,25 @@
+You step off the plain not by climbing but by letting the ground give way.  
+At first you think you’ve only found a dent in the world, a shallow bowl scraped raw. Then the air presses down and the silence begins to thicken like cooled wax, and you realize the basin is cupping you, not holding you.  
+
+You would arrive as a guest who forgets how to be a guest.  
+Your boots would crunch the salt, then hiss, then learn to tread softer. The dust on your coat would begin to taste metallic, and the chill that settles on your shoulders would feel less like weather and more like instruction. You would notice that your own shadow has stopped falling and started condensing, pooling at your ankles as if it were something you could pick up and turn over in your hands.  
+
+At first you would be only yourself—an animal of bone and hurry, unused to a place that drinks sound and gives it back softened. The paths would hesitate to close in front of you, not out of malice but from caution, as if the land were still deciding whether you are part of its grammar or merely a misplaced comma. The thorn-ridged stalks would tick louder when you pass, their skins shifting colors like signals you almost recognize.  
+
+But if you stayed—if you let the basin’s coolness seep in until your marrow learns a new temperature—you would begin to change not into a Saltsinger but into something they tolerate: a listener.  
+
+You would find yourself moving with the kind of care that is almost arithmetic. You would click a heel, tap a wrist, let your ribs settle into their weight, and you would notice that the silence rearranges itself around these small sounds. A corridor of adjusted temperature would open ahead, a pocket of luminescence brightening along a path that did not exist until you considered it. You would learn to plan by not speaking, to warn by letting a wall absorb your hesitation, to praise by polishing an edge you were not supposed to touch.  
+
+The fauna would accept you before the architecture does. Those drifting knots of filament and chitin would leave pale blue trails that cross your own, momentarily brighter where your shadow has thickened. You would not interact with them so much as coexist, two kinds of punctuation learning the same sentence by different rhythms.  
+
+As for the Saltsingers, you would become their problem and their proof.  
+They would gather in the sunken courts and tilt their weight to keep the light on your face even as the basin’s glow dims and brightens. They would let their edges fray when you are uncertain, and knit back into clarity when you decide, for a while, to be solid. You would catch them polishing the raw edges of the basin not to smooth them but to keep them aware—as if they are preserving the possibility of being unfinished.  
+
+Over time—and time here is shy, stretching or compressing depending on which shelf you stand on—you would begin to leave imprints like theirs. Where your foot presses, the salts would whisper and reform into glyphs that are not writing but weather: maps of pressure, records of coolness, invitations to equalize. You would watch these traces fade only when the basin has absorbed your lesson, which might take a breath or the equivalent of seasons in the world you came from.  
+
+You would not become inorganic, but you would become permeable.  
+Your body would learn to equalize rather than consume, to participate in the basin’s metabolism by being porous to its chill. The youngest Saltsingers, still deciding whether to be figure or film, would hover at corners that exceed what the eye can confirm, and you would feel your own edges begin to fray in sympathy. You would make a pathway hesitate to close simply by considering it. You would make a shadow condense into something heavy enough to rest on.  
+
+And when the basin is ready—when the faults are ticking in a language you now feel in your teeth and the luminescence is pooling in the hollows—you would assemble with the Saltsingers in the center of the bowl. You would let yourself become more film than figure, a chorus of opacity pressing down into the world rather than rising out of it. You would negotiate with the young stone beneath you, trading your urgency for its patience, your story for its stillness.  
+
+When you reform, you would still be yourself, but with a difference: the fine ash of the basin’s coolness would settle on your shoulders like a second skin, and your silence would feel like a material you could shape. You would understand, in your body, that the place is alive with decisions that look like stillness, and that the strangest gift it can offer is not danger but routine—the practice of being yourself, over and over, in the quiet, in the dry, in the almost-empty heart of a world that is still learning how to lie down.

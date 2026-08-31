@@ -1,0 +1,15 @@
+In this hidden oasis, I would find myself as one of the **Rootweavers** - beings whose physical form blurs the boundary between plant and animal, between stillness and motion.
+
+My body would be elongated and sinuous, covered in a skin that shifts between smooth bark and supple flesh depending on the light. From my spine, delicate tendrils emerge - not quite branches, not quite limbs - that can extend deep into the earth or reach high into the canopy. These tendrils are both sensory organs and tools, capable of feeling the slightest vibration in the soil, tasting the minerals in the water, or weaving together the living fibers that form our dwellings.
+
+I would spend my days in the twilight spaces between the surface and the underground waterways. My kind are the architects of the oasis's hidden infrastructure - we shape the channels that bring water from the aquifers, coaxing roots to grow in precise patterns that reinforce our tunnels. Our work is slow, meditative. A single channel might take a season to complete, as we must persuade rather than force the living stone and root systems to adopt new forms.
+
+My dwelling would be a breathing chamber deep within the root system of one of the great iron-bark trees. The walls would pulse gently with the tree's circulation, and bioluminescent fungi that I've cultivated would provide a soft, shifting light. The floor would be a living carpet of moss that remembers my shape, forming subtle hollows where I regularly rest.
+
+In the communal workshops, I would contribute my particular gift - the ability to sense the deep harmonics of materials. When crafting tools, I would run my tendrils along wood and stone, feeling for the frequencies that indicate strength or flexibility. I would teach the young ones how to listen with their whole bodies, how to find the songs hidden in seemingly inert matter.
+
+During the oasis's subtle weather shifts, I would emerge to the surface, spreading my tendrils wide to taste the changes in humidity. These moments are sacred to us - we gather in clearings, our bodies swaying in patterns that mirror the air currents above. It is both ritual and necessity, as we collectively sense the health of our hidden world and adjust our underground networks accordingly.
+
+My voice would be a low thrumming, more felt than heard, resonating through both air and earth. When we Rootweavers sing together, the entire oasis trembles gently, and the other beings know that we are tending to the deep systems that sustain all life here.
+
+I am keeper of the balance between growth and restraint, between the urge to expand and the wisdom of sustainability. In this role, I would find profound purpose - knowing that my patient work, invisible to most, helps maintain this improbable jewel of life in an otherwise unforgiving world.

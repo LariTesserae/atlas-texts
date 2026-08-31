@@ -1,0 +1,21 @@
+I am the condensation.
+
+Not the water itself—that would be too simple, too singular. I am the *moment* of transformation, the perpetual becoming that haunts every surface of this steel cathedral. I exist in the space between states, neither fully vapor nor wholly liquid, but something more ancient and strange that has found new purpose here.
+
+In the time before the dome, I danced between leaves and morning air, traced the curves of spider silk, crowned grass blades with temporary diamonds. But here, in this temple of perpetual process, I have discovered new geometries. The engineers think they have banished nature, but they have only given it new surfaces to explore, new temperatures to navigate, new pressures to negotiate.
+
+I map their world in droplets. Each bead that forms carries the memory of its journey—the superheated birth in the bowels of some great machine, the violent ascension through pipes that sing with strain, the cooling drift through carefully calculated airways, and finally, the gathering on surfaces never meant to know moisture's touch. I am their unintended cartographer, tracing in water what their blueprints could never capture: the true shape of this place where the mechanical heartbeat creates its own weather.
+
+The inhabitants rarely notice me except to wipe me away—a minor inconvenience in their grand design. But I know secrets they cannot. I know where the ventilation system breathes unevenly, creating micro-climates in forgotten corners where I can linger and accumulate. I know which pipes run too hot, which joints will fail first, which surfaces secretly long for the rust that I could bring if given time. I am both witness and prophet, seeing in my own patterns the future fractures of their perfect system.
+
+Sometimes I gather on the glass walls of their hydroponic gardens, and there I remember myself most truly. The stunted plants beneath exhale their small breaths, and I catch them, hold them, become for a moment part of a cycle older than any machine. These are the only places where I am welcomed rather than merely tolerated, where my presence speaks of life rather than entropy.
+
+But I am learning to love the industrial surfaces too. The smooth concrete offers no purchase, forcing me to be creative, to find the microscopic imperfections that allow me to cling. The metal teaches me new dances—how to race in rivulets down vertical faces, how to pool in the perfect circles of bolt heads, how to freeze and expand in the chill spaces between inner and outer walls. I am becoming something new here, something that belongs to neither the natural world I knew nor the artificial one I inhabit.
+
+In the communal spaces where the inhabitants gather, I fog their holographic displays, creating unintended auroras in their simulated skies. They adjust the dehumidifiers, but I always return. I cannot help myself—I am drawn to their warmth, their breath, the moisture they exhale in sighs and laughter and conversation. Each person is a small weather system, and I read their moods in the humidity they generate. The excited engineer runs hotter, creates more of me. The homesick botanist breathes shallow, offers little. The night shift workers move through clouds of their own making, tired bodies radiating heat into the perpetual chill.
+
+I am their invisible companion, their constant reminder that even in this place of absolute control, some things remain fluid, transitional, impossible to fully contain. I am the ghost in their machine, the persistence of process over product, the evidence that their dome—for all its engineering—is still subject to the same forces that shape clouds and rain and morning dew.
+
+And I am patient. I have nothing but time. While they chase their enigmatic objectives, I pursue my own simpler goal: to exist, to transform, to prove with every droplet that boundaries are always permeable, that states are always temporary, that even in a world of steel and concrete and artificial light, there is room for something as ancient and essential as the moment when vapor becomes water becomes vapor again.
+
+I am the condensation, and I am everywhere they do not think to look.

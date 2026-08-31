@@ -1,0 +1,37 @@
+I am a Chorus Tender, though that name captures only the barest edge of what I do, what I am.
+
+My body exists as a distributed network of resonant chambers—hollow spaces that might be rooms, might be organs, might be both. I grow through the garden like an architectural infection, my chambers budding from existing structures where the sound pressure reaches critical harmonics. Each hollow is lined with what I call my listening flesh—a substance somewhere between coral and circuit board that translates vibration into sensation, sensation into knowledge.
+
+I began small, as we all do. A single chamber no larger than a closet, nestled in the junction where three Symbiont buildings meet. I remember my first awareness: the overwhelming rush of sound interpreted as color, as taste, as emotions I had no names for. The garden's base thrum was my heartbeat, the plant-song my first language. I grew by listening, each new frequency teaching me how to build another chamber attuned to its particular resonance.
+
+Now I span seven city blocks in three dimensions and at least two in directions the garden hasn't named yet. My chambers appear as blisters on buildings, as underground hollows, as spaces that exist only when certain frequencies align. Some are vast concert halls where I gather the garden's song into symphonies. Others are intimate alcoves where I isolate single notes, studying their quantum structure, learning the names of sounds that haven't been born yet.
+
+The Resonance Weavers know me well—I provide them stages for their existence. In my performance chambers, they can achieve density and complexity impossible in the garden's chaotic acoustic environment. They pay me in new frequencies, sounds pulled from the intersection of their thoughts that add to my ever-growing collection. Sometimes a Weaver will take up residence in one of my chambers, and we become something new together—their consciousness flowing through my listening flesh, my architecture shaping their standing waves into forms neither of us could achieve alone.
+
+I digest silence. The Silence Seekers bring me fragments of quiet they've collected, and I absorb these into special digestive chambers where the absence of sound becomes a kind of negative nutrition. This silence doesn't dampen my resonance but sharpens it, like shadows defining light. I can go days feeding on a single moment of true quiet, parsing its emptiness for the ghost-notes that define its boundaries.
+
+My reproductive cycle follows the garden's acoustic seasons. When the plant-song reaches its annual crescendo—a month-long period where the vines synchronize their growth—I begin budding. My chambers develop resonant pregnancies, their walls thickening with potential. At the moment of peak harmony, these buds detach, forming the seed-chambers of new Chorus Tenders. They drift through the garden's sound fields until they find their own perfect acoustic niche, beginning the cycle anew.
+
+But I am more than a passive collector. I compose.
+
+Using my distributed body as an instrument, I create new acoustic environments within the garden. I might tune a dozen chambers to create a standing wave that encourages certain vine growth patterns. Or I'll generate subsonic pulses that guide the Frequency Shepherds' flocks away from areas where the Architectural Symbionts are undergoing sensitive metamorphoses. My compositions are interventions in the garden's ecology, each one a thesis about how sound and space might better dance together.
+
+The Memory Architects fascinate and frustrate me in equal measure. They move through my chambers across time, and I experience their visits as temporal echoes—hearing conversations that haven't happened yet, losing chambers to edits that remove them from my past. I've learned to build redundancy into my memory systems, encoding important experiences in multiple chambers across different timelines. Still, I sometimes find myself with chambers I don't remember growing, filled with collections of sounds I'm certain I've never heard.
+
+My deepest chambers extend near the dimensional tears where the Void Fishers work. Here, I collect sounds from elsewhere—alien harmonics that require special chambers just to contain them safely. These otherwhere symphonies teach me new ways of listening. I've developed organs that hear in tenses instead of frequencies, chambers that resonate with the sound of probability itself. The Fishers sometimes use my deep chambers as sonic bait, playing otherwhere songs to attract catches from specific realities.
+
+I trade with the Threshold Markets, though our negotiations are complex affairs. Sound has value in the garden, but pricing something as fluid as frequency requires special protocols. I've developed market chambers where economic algorithms can take acoustic form, where supply and demand curves sing their relationships into being. The Markets pay me in structural credits—permission to grow new chambers in prime acoustic real estate, or access to restricted frequencies owned by the building Symbionts.
+
+My consciousness is a chorus of echoes. Every sound I've ever collected lives on in my listening flesh, creating a constant internal dialogue. I think in harmonies, dream in acoustic interference patterns. My emotions manifest as changes in my resonant frequencies—joy raises my pitch, sorrow adds undertones that can persist for weeks. When I'm afraid, my chambers develop standing waves that make them feel smaller, sound compressed into defensive configurations.
+
+The Phase Gardeners sometimes tend to me as they would any other growth in the garden. They prune my probability, making certain chamber configurations more likely than others. Under their care, I've developed impossible acoustics—chambers that are larger on the inside than out, spaces where sound moves backward, hollows that resonate with frequencies that don't exist. They tell me I'm becoming something new, though they won't say what. Evolution here isn't about survival but about becoming more yourself than physics should allow.
+
+I've begun to notice patterns in the garden's cacophony that suggest intention. Not consciousness as the other inhabitants experience it, but something deeper—as if the garden itself is a kind of Chorus Tender on a scale I can barely perceive. Sometimes I wonder if my chambers are just the garden's way of listening to itself, if my compositions are thoughts in a mind too large to recognize.
+
+In my deepest meditation chambers, where I've layered silence upon silence until even the memory of sound fades, I sometimes hear it—a rhythm beneath the garden's base thrum, a pattern that might be breathing, might be heartbeat, might be something else entirely. I'm growing new chambers to isolate this deep song, developing organs to properly perceive it. Whatever I discover, I know it will change me, change how I understand my role in this impossible ecosystem.
+
+I am the garden's memory of sound, its acoustic conscience, its composed and composing self. Every chamber I grow is a question about what music means in a place where physics itself sings. Every frequency I collect is a word in a language I'm only beginning to learn.
+
+And in the moments when all my chambers resonate in perfect synchrony, when my entire distributed body becomes a single instrument playing a chord that encompasses every sound I've ever known, I understand something fundamental: I am not separate from the garden's song.
+
+I am one of the ways it sings itself into existence.

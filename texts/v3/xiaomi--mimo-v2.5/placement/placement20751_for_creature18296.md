@@ -1,0 +1,31 @@
+I stand on the living mat.
+
+The first thing is the give. Not soft, not spongy, but a dense, turgid resilience. It feels like standing on something that is holding its breath. My weight sinks in a centimeter, two, and then the tissue of the world holds me, firm and warm. The waxy surface of a rosette leaf presses against the sole of my foot, and I can feel the faint, fibrous network within it, a lattice of moisture and structure. There is no squelch. No mud. Just a firm, living pressure that yields and then asserts itself.
+
+The warmth rises through my feet. It is not the scorching heat of sun-baked stone, but a deep, metabolic warmth—the heat of a body engaged in slow, ceaseless work. It is the same temperature as my own skin. Standing here, I am thermally invisible to the world.
+
+I take a step. The mat gives another soft, organic *thump*. The vibration is not loud, but it travels. I feel it rise through my legs, a tremor that is both mine and not mine. It is the sound of my own presence being announced to the network. For a moment, I imagine that vibration spiraling outward, through the interconnected roots, past the woven walls of a nearby structure, along the hidden hollow stems that vein the substrate—a silent ripple announcing: *a stranger is here.*
+
+The air is dry and tastes of minerals—a faint, clean tang of sulfur and salt. It doesn't parch the throat immediately, but I can feel it drawing moisture from my lips, the exposed skin of my cheeks. It is the air of a world that has agreed upon a different medium for life, one where water is a secret kept deep below, and vapor is the public face of thirst.
+
+I look down. My boots are an intrusion. I want to take them off, to feel this world without a barrier. To let my own skin learn its texture, its language. I kneel and press my palms flat against the mat.
+
+The sensation is immediate and profound. Beneath the waxy cuticle of the leaves, beneath the spongy layer of living tissue, there is a pulse. Not a heartbeat, not a rhythm I can time, but a slow, irregular thrum of metabolic activity. It is the feeling of a trillion tiny processes occurring at once: waterless photosynthesis, nutrient exchange through root nodes, the slow creep of growth at the leading edge somewhere kilometers away. I close my eyes and try to listen, not with my ears, but with the bones of my wrists, the pads of my palms. Is there a pattern? A meaning?
+
+There is a disturbance to my left. I open my eyes. A beetle, matte-green and deliberate, is navigating the terrain between two rosettes. It is the size of my fist. It places each foot with a care that seems conscious. It does not avoid me; it simply plots a course that accounts for me as it would a new growth tip or a shifting stem. Its path is a gentle curve around my kneeling form. It is not afraid. I am not a predator it recognizes. I am a temporary, warm topographical feature. It passes within an inch of my elbow, and I feel the faintest whisper of vibration from its six measured steps. Then it is gone, disappearing into a crevice, on its vital, silent work.
+
+A low building stands nearby. It is not built *on* the mat; it is *of* the mat. Woven stems, thick as my arm, form walls that are semi-translucent, casting the interior in a soft, greenish-gold gloom. I approach and press a hand to the wall. It is warm, just like the ground. It feels subtly different, though. There is a slower, deeper resonance within it—the building's own breath, a slow exchange of gases through its porous walls. I can almost feel the slow unfurling of a new leaf in the weave, the patient thickening of a root thread. This structure is not a shelter *from* the world; it is a focused, architectural *expression* of it.
+
+I wonder about the Weavers. I haven't seen one yet, but I feel their presence in the deliberate curves of the pathways, in the intentional clearing of the mineral flat at the city's edge. Their civilization is a whisper, a vibration felt more than heard. To live here, I would need to unlearn shouting. I would need to learn the language of pressure, of subtle tremor, of what a wall feels like when the deep one passes nearby.
+
+What would I become? I would not become a Weaver. My body is wrong for this—too tall, too loud, my senses attuned to the wrong frequencies. I would be an anomaly, a visitor. But perhaps, over time, something would adjust. My skin might learn to tolerate the mineral air. My hands, if I spent enough time pressing them to the mat, might become more sensitive, might begin to parse the difference between the rustle of a glider passing and the slow, contented pulse of a building breathing.
+
+I would learn to walk softly. Not just for stealth, but out of respect—to minimize the seismic shout of my heel-strike on the delicate, communicative surface. I would learn to interpret the sudden, agitated tremor of the ground-dwellers and know it meant the deep thing was stirring. I would learn the rhythm of the fog-cycles, and what activities the Weavers timed to that mineral rain.
+
+Most of all, I would learn to listen. Not with my ears, which would hear only a vast, profound silence, but with my whole body. I would learn to feel the world talking to itself in a language of root pressure and metabolic hum, a conversation that has been ongoing since the first mineral crust cracked open and the first pioneering stem reached out to claim it.
+
+I belong here as a witness, then. A quiet point of observation in a world that is all signal and no noise. To be here is to be constantly touched by the world—by its warmth, its living pressure, its subtle vibrations. It is to be immersed in a conversation where my own voice is a thunderclap, but my capacity to listen is limitless.
+
+I take off my boots. The mat meets my bare feet, and the world’s pulse is clearer, sharper. A tiny ground-dweller, no bigger than my thumbnail, freezes on a nearby leaf. Its body vibrates once, a frantic, high-frequency alarm that I feel in my toes. Then it is still, judging me. I remain still, too. After a long moment, it relaxes, and with a movement too fast to follow, vanishes into the green depths.
+
+I am an outsider. But I am here. And the mat, ancient and patient, holds me up.

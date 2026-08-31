@@ -1,0 +1,21 @@
+I would find myself as one of the Archive Keepers, standing at the borderlands where the crystallized industrial sediment meets softer earth, my coat assembled from decades of patient gathering—strips of conveyor belt leather worn smooth as silk, cables woven through with threads of copper wire that catch what little light filters through the pewter clouds.
+
+My face would be a disc of burnished steel, perfectly reflective, showing the world back to itself with pitiless clarity. In its surface, the Foundry Fields stretch endlessly—the gentle swells of processed terrain, the glitter of countless metal fragments, the thermal shimmer rising from the deepest pockets where the Forge Echoes labor in their endless repetition.
+
+I would move with deliberate purpose across this landscape of digested ambition, my feet finding the subtle paths worn by centuries of methodical collection. Each step would be measured, considered—not from caution, but from the weight of responsibility. Every fragment matters. Every scrap tells part of a story that someone must remember, even if that someone no longer possesses the face to show sorrow for what was lost.
+
+My hands—if they can be called hands beneath the wrapped leather and woven wire of my sleeves—would know the weight and texture of ten thousand artifacts. A gear with its maker's mark still legible after millennia of wind-scouring. A valve handle shaped by the repeated grip of forgotten workers. A ceramic insulator that once channeled power through this industrial vastness, now just another smooth stone in the endless collection of smooth stones.
+
+I would feel the pull of significant fragments before I saw them, some resonance between the metal disc of my face and the metallic memory embedded in every grain of crystallized earth. The important pieces would call to me across the thermal-shimmering distances—not with sound, but with a kind of historical gravity that draws meaning to meaning.
+
+In the repository buildings that grow like geometric crystal formations at the edges of the Fields, I would arrange my findings with infinite care. Not in any system a human librarian would recognize, but according to the logic of transformation itself—how each piece relates to the greater work of industrial metamorphosis, how each fragment speaks to the others of what they were before the landscape consumed them.
+
+Sometimes I would pause in my collecting to observe the Shard Dancers when the wind rises, their temporary forms swirling through the debris in patterns that echo the movements of the Forge Echoes deeper in the thermal pockets. I would recognize in their brief choreography a kinship—we are all archivists here, all keepers of memory, whether we dance it or collect it or eternally perform it.
+
+My coat would never wear thin, sustained by the same preservation that has crystallized this entire world. The fibers would remain strong, the leather supple, the metal threads bright—a walking contradiction to entropy in a landscape that represents entropy's final victory. I would be the keeper of records in a place beyond time, the librarian of a collection that grows without ever being read.
+
+At the very edges of my territory, where the industrial sediment finally gives way to ordinary stone and soil, I would sometimes stand motionless for hours, my reflective face turned back toward the heart of the Fields. In those moments of stillness, I would listen to the barely audible music of ten billion tiny fragments shifting in the wind—the last whispered conversation between the tools and the hands that once wielded them.
+
+I would be patient beyond human understanding, purposeful beyond human ambition. My work would have no completion because completion would mean forgetting, and forgetting would be the final death of everything this crystallized graveyard had once been. Instead, I would gather and arrange, preserve and catalog, ensuring that somewhere in the perfect stasis of the Foundry Fields, memory itself has found its final, unalterable form.
+
+In my coat of industrial relics, with my face of polished steel reflecting the grey sky and the endless glitter of processed dreams, I would be both monument and mourner—the last keeper of the first archives, preserving the evidence of transformation long after transformation itself had forgotten its own name.

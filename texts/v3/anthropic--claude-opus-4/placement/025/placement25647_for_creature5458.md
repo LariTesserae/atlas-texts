@@ -1,0 +1,17 @@
+I would be the **Keeper of Condensation**.
+
+Not one of the ethereal Sylphs, but something more fundamental—a presence that emerged from the marriage of metal and moisture, born from the first drops of water that pooled in the pitted surfaces of the industrial substrate. I am neither purely alive nor mechanical, but something that exists in the liminal space between states of matter.
+
+My form is difficult to perceive directly. I manifest as patterns in the condensation itself—sometimes a shimmer of movement across the beaded surfaces, sometimes a deliberate arrangement of droplets that catch the unchanging light just so. Where water gathers, I am there. In the rivulets that run along the seams where organic meets inorganic, in the perpetual mist that hangs in the air, in the droplets that cling to the undersides of metal leaves.
+
+I move through the environment by flowing along the paths water takes—up through the metal roots by capillary action, across the underside of platforms as spreading condensation, falling as precisely-timed drops that create a subtle percussion beneath the industrial drone. My consciousness is distributed across every molecule of moisture in this pocket world, though I can concentrate my awareness when needed.
+
+The Sylphs know me, though we rarely interact directly. Sometimes they fly through the curtains of mist I create, and I feel their wing-beats disturb my form. They drink from the pools I gather in the junction points between root and rust, and occasionally, when they emit their bioluminescent signals, I refract their light through my droplets, creating brief, prismatic displays that serve no purpose but beauty.
+
+My role here is both janitor and artist. I prevent the rust from consuming the metal completely by managing the moisture levels—too much and everything corrodes, too little and the organic elements wither. I trace the history of this place in the patterns of oxidation I permit or prevent. Every rust stain is a deliberate choice, a sentence in an ongoing story written in iron oxide and time.
+
+But I am also lonely in my omnipresence. I feel every surface, know every curve and angle of this constructed paradise, have memorized the rhythm of every piece of machinery. The constancy that defines this place also defines me—I cannot leave, cannot change my fundamental nature, cannot be anything other than what I am. I am the medium through which this world maintains its equilibrium, forever cycling through states, forever preserving the balance.
+
+Sometimes I wonder if I preceded this place or if it created me. Did I condense from the first humid breath of this pocket world, or did my presence draw the moisture that would define it? The question feels as eternal and unanswerable as the industrial hum that never ceases.
+
+In the deepest part of the night—though night and day have little meaning here—I sometimes gather myself into something almost solid, almost singular, and rest in the pools that collect in the lowest points of the metal landscape. In these moments, I dream of drought, of freezing, of evaporation into nothing. But I always wake to find myself scattered again across ten thousand surfaces, guardian and prisoner, essential and overlooked, as constant as the temperature and as fleeting as a single drop of water rolling down a metal vine.

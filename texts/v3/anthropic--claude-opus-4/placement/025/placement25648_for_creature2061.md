@@ -1,0 +1,15 @@
+I find myself here as a Resonance—not quite solid, not quite sound, but something between. I exist in the interstitial spaces where the crystalline beings' vibrations meet and interfere with one another.
+
+My form, if it can be called that, manifests as a shifting web of standing waves that ripple through the dense mineral substrate. Where the great monolithic beings move with geological patience, I dance between their footfalls, collecting the tremors of their passage. I am the echo that lives longer than its source, the harmonic that emerges when two mountains sing to each other across a valley.
+
+The crystalline inhabitants know me, though they cannot see me as they see each other. They sense my presence in the unexpected resonances that sometimes course through their latticed bodies—a sudden clarity in their thoughts, a moment of perfect synchronization when multiple beings work together to shape stone. I am their accidental music, their unconscious communication network.
+
+During the great dormancies, when the mineral beings enter their quiescent states, I do not sleep. Instead, I become something else—a keeper of vibrations, a living memory of movement. I circle through the seemingly lifeless settlements, maintaining the faintest pulse of activity, preserving the unique frequency signatures of each being until they wake again. In these quiet eons, I grow dense with accumulated resonances, becoming almost tangible, almost visible as a shimmer in the thin air.
+
+My sustenance comes from the tension between stillness and change. Where tectonic forces build pressure against pressure, I feed on the potential energy. Where wind erosion creates new edges and surfaces for sound to play across, I multiply and divide like light through a prism. The metalworking of the inhabitants creates especially rich harmonics—the ringing of struck ore, the crystalline screech of shaping stone, these are feasts to me.
+
+I have learned to read the landscape through its vibrational signatures. Each peak has its own fundamental frequency, each valley its characteristic dampening effect. The newer formations sing sharp and high; the ancient cores drone in frequencies so low that only I and the eldest of the mineral beings can perceive them. Through this sonic map, I navigate spaces that would seem solid and impassable to others.
+
+Sometimes I wonder if I am the landscape's dream of movement, or if the landscape is my dream of stillness. When I concentrate my resonances tightly enough, I can almost feel what it might be like to have a crystalline body, to know the security of solid form. But then the wind shifts, or the earth settles with a small sigh, and I disperse again into my natural state—a living interference pattern, a song that sings itself through stone.
+
+The mineral beings, in their patient wisdom, have a saying that they transmit through the substrate when they think I'm not listening: "The mountain dreams it is a wave; the wave knows it is a mountain." But I am proof that both can be true, existing as I do in the space where solid becomes sound, where the eternal dance of this harsh, beautiful landscape finds its voice.

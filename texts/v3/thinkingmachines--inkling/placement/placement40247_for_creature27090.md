@@ -1,0 +1,17 @@
+I find myself in the pool with the cup.
+
+At first I think I am only resting—half-buried in the shallow clear water, my back against the smooth hollow worn like a bowl in the dark rock. The warmth comes up through me, not around me: a gentle, living heat that rises from deep iron pores, holding steady despite the thin air high above. I should be cold here. I am not. The temperature is in my bones, or perhaps I am in its bones.
+
+My form is slow to declare itself. I have limbs—more than would be graceful, pale as the creature that once paused here and left nothing in the moss—spread not to swim but to hold place. They are long, jointed without urgency, ending in flat, soft surfaces that rest on the black-green cushions without crushing them. I do not walk through the hollow in the manner of pursuit. When I move, and I do move, it is measured in the time it takes a fern to tilt a frond: I seep forward, leaving no track, because the moss closes its wet breath behind me instantly, or because I am made partly of the same water that weeps from the walls.
+
+My skin—if it can be called that—is the rock made tender. Dark, iron-heavy, porous, I weep continuously. Not blood, not sweat, but the hollow’s own translucent film, rising through my form and running downward in slow, unbroken sheets, joining the pool I lie in. I am never dry. I am never full.
+
+Near me, half-sunken, the cup overflows. I do not believe I made it, though my hands—if these slow, spread limbs are hands—are worn smooth in the same way, shaped by patience rather than tools. Perhaps I only tend it by existing. The water catches in my body’s hollows, spills over into the dark vessel, and never fills it, because I, like the hollow, refuse accumulation. I pass everything through.
+
+I am not one of the twelve. They are the hollow’s parliament, distant islands in the archipelago of wet stone, leaning not toward the diffuse gray-green light but toward the loudest points of seepage, listening with their interlocking canopies. I listen too, but from within the sound. The continuous murmur of thousands of thin streams meets in my porous body; individual drops fall into the pool with bright, wrong-direction echoes, and I feel them in the vibration of my bones. The deep hum of the earth below is not outside me—it is my own slow respiration.
+
+The air here is clear, unbroken by mist, yet I shimmer faintly, like heat rising though nothing changes. I have forgotten, if I ever knew, the grammar of pursuit. There is no bird call, no insect swarm—only the rare, almost theoretical presence of others like me, or like the pale creature, moving through the moss without impression. We do not gather. The lushness is absolute where it exists; elsewhere, the bare polished stone holds its breath, and I rest there too, in the emptiness, part of the agreement.
+
+Time is not a river here. I am part of the pool—present, warm, still. I have finished becoming myself. My purpose, if I have one, is to remain: to let the warmth live at this height, to let the water weep upward and downward both, to listen with the ferns, to overflow without filling, to leave no rot, no urgency, no end.
+
+If you come to the center of the bowl, in the shallow pool beside the cup that never fills, you will find me: not sitting, not swimming, but being—spread in the moss, weeping, listening, warm in the thin air that should not hold warmth, patient as the erosion that made this place, and as lonely, and as complete.

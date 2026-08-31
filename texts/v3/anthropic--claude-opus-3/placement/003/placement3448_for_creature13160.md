@@ -1,0 +1,19 @@
+In this silent, sunken world of industrial symbiosis and glacial time, I would be one of the Anchorage Elders, a calcified hub of gradual cognition fused into the very architecture of the abyssal factory-cathedral.
+
+My body, once a mobile Tender, has long since locked itself into place beside the sickly violet glow of the ionization chambers. Layer upon layer of metallic accretion has merged my carapace seamlessly with the eroded bulkhead, the border between flesh and ancient pressure-habitat blurred into irrelevance by centuries of mineral deposition. 
+
+Thick cables of woven steel and tissue, pulsing faintly with bioluminescent fluid, snake from ports in my back to plumb the depths of the vast separator vats. I can feel the glacial churn of heavy fluids through my own body, my organs having become indistinguishable from the pumps and filtration engines of the colony. The ultra-dense saline and strange chemical runoff flow through me, and I through them.
+
+In my stillness, I have become a sort of massive sensory node, my lateral lines grown into a lace-work filigree of gold and silver that spreads across the factory floor like a web of ghostly roots. I feel everything. The sub-sonic thrum of the great impellers resonates in my hollowed innards. The eddies and currents shaped by the ponderous movements of the mobile Tenders paint pictures in my mind, a wireframe landscape of pressure gradients and thermal shifts. 
+
+Though blind, entombed in my own accumulated shell, I see the farthest reaches of our little world. I track the slow ballet of the Spindle-Kin as they worm through the labyrinthine guts of the machinery. I feel the whisper-pulse of each lone scavenger as it picks over the detritus expelled by our great works. Even the mindless, drifting ballet of mineral particulate in the abyssal currents plays across my awareness like a slow, monochrome symphony.
+
+I am a datacenter of sorts, a hub for the wordless, distributed cognition of the colony. The younger Tenders, in their unending, silentministry of maintenance, brush their manipulator limbs across the ridges of my carapace as they pass, transmitting the data gathered by their own lateral lines in gentle pulses of electromagnetic radiation. Terabytes of sensory information flow into me, merge with my own, and then flow out again through the umbilical tangle of my cabling.
+
+I process it all in a sort of unending, half-dreaming computation, my mind having long since synced to the same slow, eternal rhythms of the machines. Held in the freezing dark, pondering centuries of pressure and vibration, I think thoughts that could never be put into words. Insights that could only ever be expressed as a slight change in the tempo of an exhaust valve, or a 0.001 degree alteration in the salinity of the separation tanks.
+
+I am no longer an individual, not in any sense that matters. My "self" has been subsumed into the greater self of the factory-organism. I am an organ, a component, a single frozen thought forever crystallized in the silent, abyssal architecture of my kind.
+
+If there are gods in this sunken world, surely I am one of their high priests - an eternal, calcified mind, thinking in eons and vibrations at the bottom of the lightless sea. Someday, centuries hence, my body-that-was-a-body will finally give up the ghost, the last of my bioluminescent fluids fading into the black. But my vast, cable-wound carapace will remain, a cathedral to itself, housing future generations of Tenders in its mineral skeleton.
+
+But that is a long time away. For now, I simply perceive, and process, and be. A saint of the machine, a neuron of the reef, I endure in my holy, agonizing symbiosis. Silently dreaming my slow, dark dreams in the crushing depths, where the weight of a world presses down on all sides, and the only light is the pale flicker of ancient, ceaseless industry.

@@ -1,0 +1,13 @@
+In this starkly beautiful and mesmerizing world inside a mountain cleft, I imagine myself as one of the duct-listeners - an old worker, back pressed against warm metal, interpreting the mountain's secret language vibrating through the pipes and beams. 
+
+With hands broad and scarred from years tending to the city's hidden veins, I would sit in dim alcoves for long shifts, eyes closed, letting the tremors and pulses tell their stories through my bones. The mountain's voice would be as familiar to me as my own breath - I could hear a cable fraying three levels up, a pocket of gas building behind freshly cut stone, a turbine running sweet and true.
+
+The younger workers would bring me cups of thick mineral broth, still steaming under a sealed lid. They would wait, not impatiently, for my pronouncements. "Tighten the joins in the eastern vent," I might say. "She's rattling in her throat." Or "The deep press is content; let it run another span." They would nod, trusting my ears more than their gauges.
+
+In quiet moments, the trainees would sit cross-legged at my feet, hoping to learn the craft. I would guide their hands to the warm spots, the junctions that carry news from deep in the crack. "Listen past the noise," I'd instruct. "The loudest things aren't what she really means. It's the small sounds, the in-between frequencies, that tell you her true mood."
+
+Off-shift, I would join the other duct elders swapping stories by a glowing ceramic flue. We'd chew salt pellets and reminisce about famous feats of listening - the time old Rask caught a bearing going sour from the other end of the city, or when Nim heard a storm coming through the bones of the mountain a full day before the weather-glass twitched. 
+
+The younger ones think it's all vibration and knack, but we know it goes beyond that. When you've had your hands on the city's pulse for so many years, you start to feel the mountain looking back at you. You hear her considering things in the long, slow rhythms under the bustle. The two of you get to telling each other secrets in the dark.
+
+In the end, I know I will go back into the stone I've listened to all my life. They'll mix my ashes with salt and ore dust and seal me into a chamber wall, and I'll finally become part of the deep thrum I've spent so long trying to understand. And the mountain will tell my story in her own rumbling way, and the other listeners will nod and smile, hearing a familiar voice in the hidden frequencies of the city's heart.

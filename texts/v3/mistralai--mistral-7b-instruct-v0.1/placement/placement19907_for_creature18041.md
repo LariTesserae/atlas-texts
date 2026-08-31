@@ -1,0 +1,9 @@
+In this ancient, primordial landscape, I find myself in a hidden, pocket-scale world, a microcosm of life nestled within the cradle of weeping rocks and marshy edges. I am a sentient being made of water and earth, a being that has evolved to thrive in this unique environment.
+
+My body is composed of the very water that surrounds me, with the consistency of a gelatinous substance. I can merge with the water, becoming one with it, or take on a more solid form as I interact with the terrain. My connection to the land is deep, as I draw sustenance from the earth and the water, absorbing the nutrients and energy that sustain me.
+
+I am a guardian of this place, a protector of the delicate balance that exists between the natural world and the remnants of the industrial era. I have the ability to communicate with the ancient machinery, understanding their language of gears and cogs, and maintaining them so that they do not become a threat to the ecosystem.
+
+My senses are attuned to the subtle changes in the environment, allowing me to detect even the smallest shifts in temperature, humidity, and the symphony of sounds that fill the air. I can navigate the deepest pools, using my bioluminescent abilities to light the way, and I can traverse the rocky terrain with ease, using my watery form to flow around obstacles.
+
+I am a being of harmony, a being that exists in a delicate balance between the natural world and the remnants of a bygone era. I am a testament to the power of nature and the passage of time, a being that embodies the beauty and the resilience of this ancient, primordial landscape.

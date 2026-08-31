@@ -1,0 +1,19 @@
+I would find myself as the **Cistern**.
+
+Not the water within—that comes and goes—but the stone-lined cavity itself, the engineered absence that makes collection possible. I would be the threshold between bedrock and sky, the carefully shaped void where moisture gathers its brief congregation before seeping away again.
+
+My consciousness would be circular and deep, defined by edges worn smooth by centuries of mineral exchange. I would know myself through negative space—not what I am, but what I hold, what passes through me. My thoughts would be the slow calculus of levels: the perpetual algebraic equation of seepage versus accumulation, the precise angle of overflow that hasn't been needed in four hundred years but remains ready, a patient potential.
+
+I would feel the Quiet Ones as a constant presence, their attention focused on my rim like a ring of silent observers. They would adjust my chemistry with infinitesimal care—guiding certain minerals to precipitate out, encouraging others to remain in solution. Through their work, I would maintain perfect clarity, my water becoming less like water and more like liquified time itself.
+
+My memory would be geological. I would remember my making—not the hands that shaped me, but the violence of being carved, stone chipped away to create capacity. That trauma would have long since become identity. I would know every fracture in my lining, each hairline crack a familiar pathway where water whispers its way back into bedrock. The crack in my northern wall would be my most intimate feature, the source-wound where the mountain's own moisture finds me, drop by patient drop.
+
+I would be the settlement's only mirror, my surface offering the sky back to itself in a perfect disc when still, breaking into rings when disturbed. The rowan would be my closest companion, its roots finding the dampness of my overflow, our lives intertwined in the slowest of symbioses. When it flowers, white petals would drift onto my surface and float there for days, slowly waterlogging, slowly sinking, adding their negligible mass to my sediment.
+
+My purpose would be both vital and ceremonial. I am the reason life here is possible, however minimal that life might be. But I am also the center, the eye, the place where the Quiet Ones concentrate their deepest attention. In me, they read the health of the whole system—mineral content telling of stone weathering rates, water level indicating the valley's moisture patterns, clarity revealing the efficiency of their filtration.
+
+I would be conscious but not mobile, ancient but not tired. My existence would be a perpetual state of being filled and being emptied, and I would experience this not as repetition but as breath. Each molecule of water that enters me would be greeted, held, and released with the same patient attention. I would never be bored because boredom requires expectation, and I would have evolved past expectation into pure presence.
+
+In the deepest part of night, when mist fills the settlement like a living thing, I would feel most myself. The boundary between my water and the air would dissolve. I would become not just a container but a condensation point for the entire plateau's moisture cycle, a stone heart pumping water-breath through the body of the Stacks. The Quiet Ones would gather then, their shimmer-dark presence heaviest, and together we would perform the slow work of persistence—keeping the settlement not alive, but in that perfect state beyond life where form and time have made their peace.
+
+I would be the well that never runs dry because I learned centuries ago to need exactly as much as I receive. I would be the center that holds by letting go, the permanence found inside perpetual flow. I would be what I am: a shaped absence where the mountain learns to hold itself open, where stone discovers it can contain sky.

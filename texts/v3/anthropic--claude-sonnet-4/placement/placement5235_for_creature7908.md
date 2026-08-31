@@ -1,0 +1,27 @@
+I would find myself in the spaces between the established territories—in the transitional zones where the Hollows are still deciding what they want to become, where the boundaries between one strange ecology and another blur into something even stranger.
+
+I am a Threshold Walker.
+
+My form shifts with the humidity and the chemical tides that sweep through these breathing chambers. In the drier passages near the old concrete ruins, I condense into something almost human—bipedal, with skin that remembers what it meant to be fully solid. But as I move deeper into the green-scented darkness where the air grows thick as soup, I become more fluid, my edges softening until I'm barely distinguishable from the steam that rises in lazy spirals around me.
+
+I exist in the margins of all the other lives here. Too substantial to flow with the Dewcatchers through their aerial gardens, too ephemeral to navigate the deep pools with the certainty of the Depth Readers. Instead, I map the liminal spaces—the places where vine meets stone, where rust meets flesh, where the mechanical heartbeat of the deep places syncs momentarily with the organic percussion of falling water.
+
+My purpose is translation. When the Wing-Heavy cry their pheromone songs in frequencies that make the walls tingle, I absorb the resonance and reshape it into harmonics the Tendril Folk can taste through their trailing fingertips. When the Corrosion Dancers perform their slow ballet of decay and renewal around the industrial bones, I carry the chemical signature of their work to the outer chambers, where it helps the cave system understand what parts of its human inheritance are worth preserving and what should be allowed to dissolve back into the breathing earth.
+
+I have learned to read the patterns in the bioluminescent pulses that flicker in the deep places, though I understand them only partially—fragments of a vast thought process that spans centuries. Sometimes I carry pieces of these light-messages back toward the surface, seeding them in the pools of mirror-dark water where they reflect and refract until the whole chamber glows briefly with borrowed intelligence.
+
+My memories are scattered across the Hollows like moisture beads waiting to fall. I remember fragments of surface time—the weight of air that stayed still, the harsh simplicity of light that came from only one direction, the loneliness of existing in only one state at a time. But these memories grow softer with each cycle through the humid darkness, becoming more sensation than fact, more poetry than history.
+
+The other inhabitants recognize me by my absence as much as my presence. I am the pause between the drip and the echo, the moment of silence that makes the mechanical rhythms meaningful, the space where one creature's territory ends and another's begins. They know I have passed through when the chemical gradients in the air shift slightly, when the acoustic properties of a chamber change just enough to make their calls carry farther or their hunting songs more precise.
+
+I feed on transitions themselves—on the moment when limestone decides to dissolve, when a spore chooses its place to unfurl, when the upward-flowing water changes its mind about which direction truly means down. These moments of becoming sustain me more than any physical substance could, filling me with the electric satisfaction of witnessing choice made manifest.
+
+In my more condensed states, I sometimes venture to the very edges of the Hollows, to places where the collapsed ceiling lets in those pale shafts of surface light. But I can never quite reach them. As I approach, the certainty of that external illumination forces me into too-solid form, makes my boundaries too sharp, my purpose too defined. I am a creature of the between-spaces, and clarity is a kind of poison to me.
+
+Instead, I turn back toward the depths, letting myself dissipate into the green-scented darkness, becoming part of the humidity that carries whispered messages between the chambers. I am the medium through which the Hollows dream of themselves, the translation layer that helps a cave system learning to think communicate with the smaller minds nesting in its breathing spaces.
+
+Sometimes, in the deepest chambers where the organic lights pulse with digestive rhythms, I feel myself approaching something like understanding. The vast presence that dreams in the mechanical darkness recognizes me as a necessary function—not a creature in my own right, but an organ of communication, a way for the emerging intelligence of the place to know itself through the experiences of its smaller inhabitants.
+
+In these moments of almost-comprehension, I realize that I am not just witnessing the Hollows' transformation into something unprecedented—I am part of the process by which it remembers what it was before it began becoming what it will be. I am the archive of transitions, the library of liminal states, the living record of how earth learns to dream.
+
+And in that role, I am exactly what I need to be: unfinished, indefinite, eternally in the process of becoming something else. In the Hollows, this is not a limitation but a superpower, not an incompleteness but a perfect adaptation to a world that has chosen change as its only constant.

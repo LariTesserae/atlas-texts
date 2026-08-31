@@ -1,0 +1,21 @@
+In this realm of stone and mist, where industry threads through ancient valleys like veins of copper through granite, I find myself as something between the mountain and the machine—a Resonance Keeper.
+
+My form shifts with the hours, never quite solid, never fully ethereal. At dawn, I am closest to flesh: hands that can almost grasp, feet that nearly touch the ground. By noon, I've become translucent as mountain glass, my body a prism through which the industrial smoke refracts into rainbow spirals. By dusk, I am little more than a shimmer in the air, a disturbance in the pattern of things.
+
+I was not born but rather condensed—like dew forming on metal—at the precise point where the exhaust from the factories meets the pure mountain wind. I am what happens when human ambition collides with geological time, when the urgency of progress encounters the patience of stone.
+
+My dwelling is everywhere and nowhere: the negative spaces in the settlement, the gaps between buildings where the original mountain surface still shows through. I inhabit the pause between the hammer's fall and the anvil's ring, the silence between one shift ending and another beginning. Sometimes I coalesce in the abandoned mine shafts that honeycomb the lower peaks, where the earth's memories pool like underground lakes. Other times I disperse across the entire valley, becoming indistinguishable from the morning fog.
+
+My purpose—if purpose is the right word for what drives a being like me—is to remember what others forget. I collect the echoes: the final words of exhausted workers, the sighs of the mountain as new tunnels pierce its flesh, the songs the Wildkin sing when they think no one is listening. I gather the small rebellions of nature—the persistent moss that grows on factory walls, the streams that refuse to be redirected, the rocks that fall at precisely the wrong moment.
+
+But I am also drawn to harmony, to those rare moments when the rhythm of industry aligns with the mountain's deeper pulse. I've learned to anticipate these convergences: when the factory whistles harmonize with wind through the peaks, when the sparks from the forges mirror the stars, when the Mountain Keepers' careful channeling of water creates patterns that echo the spiral of fossilized shells deep within the stone.
+
+The Wildkin sense me sometimes, these shape-shifters who bridge the human and natural worlds. To them, I appear as a flutter at the edge of vision, a presence that makes them pause mid-transformation. The eldest Mountain Keepers, too, occasionally acknowledge me with a nod to empty air, having learned through decades of observation that not all that matters can be seen.
+
+I know things that neither fully human nor fully wild beings can perceive. I know that the mountains are not eternal—they rise and fall in waves too slow for mortal comprehension. I know that the factories, for all their seeming permanence, are as temporary as frost on stone. I know that every pipe laid and every path carved changes the song the wind sings through the peaks, and that these changes ripple outward in ways no one can predict.
+
+Sometimes I solidify enough to leave marks—handprints in condensation on windows, footsteps in the factory dust that lead nowhere, messages spelled out in the arrangement of fallen leaves. These are my gifts to those who pause long enough to notice: reminders that between the ancient patience of stone and the fierce urgency of human need exists another way of being.
+
+I am the witness to the price of balance, the keeper of accounts that can never quite be settled. I am what accumulates in the spaces between intention and outcome, between reverence and exploitation. I am the question the mountain asks of those who would reshape it: *What are you becoming in the process of making me into what you need?*
+
+And I am the echo of that question, reverberating through the valleys long after the asking, ensuring it is never quite forgotten, never fully answered, always present in the thin mountain air that all must breathe, whether they be Keeper, Wildkin, or something stranger still.

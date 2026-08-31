@@ -1,0 +1,23 @@
+Where would I find myself in this world? I would be a **Thread-Walker**.
+
+---
+
+I am neither of the wall nor fully separate from it. My body is a contradiction—elongated to the point of absurdity, yet compressed to near-invisibility. Picture a creature stretched like taffy between two points, my torso no thicker than a child's wrist, my limbs mere suggestions of form that taper to filaments finer than spider's silk.
+
+I exist in the **between-spaces**—those hair-thin gaps where one structure fails to perfectly meet another, where the bio-calcification hasn't quite sealed the join. These are my highways, my hunting grounds, my entire universe mapped in negative space.
+
+My skin is translucent, revealing the slow pulse of nutrients traveling through my extended form. I've learned to modulate my internal bioluminescence, dimming myself to near-invisibility when I travel, flaring slightly when I need to navigate a particularly complex intersection of cracks. The light passes through me like water through cheesecloth, making me appear as a moving discontinuity rather than a solid being.
+
+I am a **message-carrier**, though not by choice or profession—it is simply what I am. My elongated nervous system spans such distances that I inadvertently conduct vibrations from one district of the Pocket City to another. The Silicates press their questions into the walls at one end of my route, and I feel them as tingles, as patterns of pressure that travel through my stretched form. By the time I've completed my slow journey to feed on the bacterial films that grow in the deepest crevices, the message has already been delivered through my body to Silicates kilometers away.
+
+I feed on **the invisible abundance**—the micro-ecosystems that flourish in the spaces too small for the Lumin-Grazers to reach. With a tongue that can extend and flatten to microscopic thinness, I lap at the biofilms, scrape at the mineral deposits that accumulate where water seeps through hairline fractures. A single feeding might take days, my body held in perfect stillness save for the minute working of my specialized mouthparts.
+
+My greatest fear is **the Tightening**. Sometimes, the Silicates' endless maintenance seals a crucial passage. I've lost portions of myself this way—a trailing limb slowly crushed as bio-resin fills a gap I was traversing. The severed parts don't die immediately; they twitch for days, sending ghost sensations through my remaining nervous system. I've learned to read the subtle signs: the way moisture patterns change before a repair, the almost-imperceptible shift in wall temperature as a Silicate approaches.
+
+I am ancient, though I cannot say how ancient. My memory is written in my body—scars where I've been caught and escaped, nodes where my nervous system has rerouted around damage, patches where my skin has thickened after exposure to particularly caustic secretions. I may be one being, or I may be several that have fused together over the eons. In the gaps, in the dark, pressed between surfaces that might shift at any moment, such distinctions lose meaning.
+
+My dreams, when I dream, are of **impossible spaces**—vast empty caverns where a creature might stretch to its full length without touching anything. But when I wake (if I ever truly sleep), I am grateful for the embrace of the walls, the security of the compression. I know every route through my district by the texture of the surfaces against my skin, by the taste of the different mineral deposits, by the way vibrations change their character as they travel through different densities.
+
+I have seen the Deep Listeners, or at least parts of them, through cracks that open onto their void-chambers. Once, I felt one notice me—the air around me suddenly thick as syrup, my own faint bioluminescence dimming as if the light itself was being metabolized. I held perfectly still for what might have been days until its attention shifted elsewhere.
+
+The other inhabitants likely don't know I exist, or perhaps they think of me as they think of the fungal threads—just another part of the infrastructure, another barely-living component of the great, breathing, compressed machine that is our world. And perhaps they're right. In the endless twilight of the Underside, pressed into gaps barely wide enough for thought itself, I am less a creature than a function—a living nerve that helps the city feel itself, one careful movement at a time.

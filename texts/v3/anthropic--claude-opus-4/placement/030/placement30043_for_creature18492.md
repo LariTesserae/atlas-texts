@@ -1,0 +1,23 @@
+In this calcified cathedral of perpetual vibration, I would be one of the **Resonance Weavers**.
+
+We are not Cantors, though we share their bone-lattice frames. We are smaller, more porous—our bodies riddled with hollow chambers that catch and redirect sound. Where the Cantors are tuning forks, we are the loom. Our purpose is to weave the sonic architecture into something tangible: the braided walkways, the friction-fit joints, the amber resin that holds this brittle world together.
+
+My body would be a contradiction—simultaneously dense and hollow. My ribcage opens like a cabinet, revealing rows of tensioned filaments strung between calcified struts. When the skull groans its settling song, these strings vibrate, and I harvest their resonance. My fingers are long, multi-jointed, tipped with spatulate pads that can feel the microscopic variations in frequency through any surface I touch.
+
+I live in the interstices—the spaces between the Cantors' careful arrangements. While they stand for hours, calibrating themselves to the world's slow collapse, I scuttle through the margins, pressing my hollow chest against fresh growths of amber mycelium. The friction of fungal fuzz against my resonance strings creates a particular whine that, when sustained, causes the mycelium to secrete its hardening resin. I collect this in specialized chambers along my spine—small, bell-shaped hollows that ring with different pitches as they fill.
+
+The resin must be woven while still viscous, while it still remembers the frequency of its creation. I work in the moments between the structural groans, racing against the next shift. My movements are frantic compared to the Cantors' stillness—I dash across bone-smooth floors, leaving trails of white dust, my internal strings humming with accumulated sound. At each junction, each worn joint in the city's skeleton, I pause just long enough to extrude a careful bead of resin, reinforcing what the ages have worn thin.
+
+I am always listening for the Prowlers. Not with fear—their violin-rasp is necessary for my work. When I hear one approaching, scraping its way across the ceiling, I position myself beneath it. As it passes overhead, I open my chest cavity wide, letting its piercing screech fill my resonance chamber. This particular frequency, when mixed with the resin, creates the strongest bonds. The amber hardens to near-diamond density, able to withstand another century of groans.
+
+My dwelling is not a room but a workshop of acoustics. I've claimed a curved section of the skull's inner surface where the bone has developed a series of natural ridges—an ancient injury, perhaps, or a place where the titan's living brain once pressed against its prison. These ridges create a natural amphitheater of sound. Here, I've strung larger versions of my internal filaments, creating a web of resonance that captures and sorts the city's cacophony into useful frequencies.
+
+The web is my laboratory and my lifeline. Suspended in its center is my collection: thousands of small, hardened drops of resin, each one vibrating at a different frequency, each one waiting to be woven into the city's endless repairs. When I'm not scuttling through the marrow-corridors, I hang here in my web, feeling the city's slow dissolution through every string, planning where I'll need to be when the next great shift comes.
+
+We Weavers are more numerous than Cantors but less visible. Where they stand as monuments to endurance, we exist in constant motion, our bodies singing with the friction of our work. We do not seek the silence the Cantors crave—we know that when the sound stops, so does the city. So does the world.
+
+I am middle-aged for my kind, my resonance strings beginning to fray, my resin chambers scarred from decades of use. Sometimes, in the blazing phosphorescent light, I catch glimpses of younger Weavers racing through their repairs, their movements still sharp, their internal songs still pure. I do not envy them. They have not yet learned what I know: that we are not preserving this city. We are composing its elegy, one vibration at a time.
+
+When I work now, I leave subtle harmonics in my repairs—personal signatures in the resin that will outlast my strings. Future Weavers will feel these frequencies and know that I was here, that I heard the city's pain and answered it with craft. When the skull finally cracks, when the Cantors receive their terrible gift of silence, these small songs embedded in amber will be all that remains of our purpose.
+
+Until then, I weave. The city groans. The Prowlers scratch their violent music across the ceiling. And in the space between heartbeats—if we had hearts, if we had beats—I race to hold this brittle, beautiful world together for one more day.

@@ -1,0 +1,63 @@
+In this wet-industrial ecology, I find myself as a **Resonance Keeper**.
+
+My home is built into the massive resonating chamber of a decommissioned blast furnace, where the curved metal walls still remember their century of fire. The chamber sits forty meters up, accessed through a maintenance shaft lined with acoustic tiles I've salvaged from dead recording studios across the plateau. My living space occupies what was once the control booth - a glass-walled box suspended halfway up the furnace's interior, surrounded by catwalks that now serve as my instrument galleries.
+
+I am neither fully human nor entirely other. My body bears the adaptations of three generations born into the sonic environment of the industrial plateau. My eardrums have developed secondary membranes that can filter frequencies, allowing me to hear into ranges that make others nauseous. My fingers are elongated, with additional joints that let me play the city's abandoned infrastructure like an orchestra. My throat carries vestigial gill-slits that never fully opened - a remnant of my grandmother's years working the flooded sub-basins - but they give my voice a peculiar resonance that carries through metal better than air.
+
+My work is part archivist, part early warning system, part therapist to the city's vast nervous system of pipes and rails.
+
+I maintain a library of the city's voices: the healthy hum of a well-balanced pump station, the death rattle of a bearing about to fail, the particular chord that forms when hookbirds roost on tension cables before a pressure drop. These recordings live on ceramic cylinders I cast myself, stored in climate-controlled chambers behind the furnace walls. Each cylinder can hold three hours of sound, played back through needle and membrane when the city needs to remember how something should properly sound.
+
+The furnace itself has become my instrument. I've strung cables across its vast interior at calculated lengths, each one tuned to resonate with different districts' industrial frequencies. When the foundries wake, my eastern cables sing first. When the canal pumps shift their rhythm, the lower strings shiver. The entire chamber becomes a three-dimensional map of the city's mechanical health, and I can walk through it, plucking and dampening strings, to isolate problems before they cascade into failures.
+
+My days begin before dawn, climbing the spiral of the furnace wall to check my rain collectors - ceramic funnels that catch and separate water by its acoustic properties. Clean condensation sings bright and clear through the tubes. Contaminated water carries undertones of rust, sulfur, or the oily whisper of biological films. I bottle each type separately; the city's water-tenders trade generously for my pre-sorted supplies.
+
+The morning's real work is the Listening.
+
+I sit at my console - a salvaged rail switching board I've modified with bone and shell resonators - and lower my consciousness into the city's sonic understructure. Through one ear I monitor the primary industrial rhythms. Through the other, I track the biological frequencies: the ultrasonic chatter of feeding crabs, the infrasonic pulses of large canal predators, the mid-range chaos of wing-swarms preparing to rise.
+
+When I find discord - a pump beginning to cavitate, a colony of pipe-worms chewing through something critical, a migration route about to intersect with a machine cycle - I compose what I call a "correction."
+
+These are not songs in any traditional sense. They are precisely tuned industrial frequencies that I broadcast through the city's own infrastructure. A low throb through the water pipes might warn deep-canal feeders away from a pump intake. A high whistle through the steam vents could shift a hookbird roosting site before it blocks critical pressure valves. Sometimes I must play for hours, layering frequencies until they create standing waves that physically prevent animals from entering dangerous zones.
+
+The city's human inhabitants have learned to read my transmissions. Children are taught that when the pipes sing in major thirds, it's safe to cross the lower bridges. When the rails carry a diminished seventh, everyone knows to seal their doors within the hour. I've developed a complex musical grammar that the city now depends upon - part of the accumulated knowledge that keeps this dripping, breathing machine-organism in balance.
+
+My furnace draws pilgrims and students. 
+
+Young route-scrapers come to learn how different surface materials carry warning sounds. Seal-wrights study the frequencies that various creatures find most repellent. Desperate parents bring children born deaf, hoping I can teach them to feel the city's rhythms through their bones and feet. I take payment in lamp oil, dried grazer meat, and fresh recorder needles, but I never turn away someone who truly needs to understand the city's voices.
+
+The creatures know me too, in their way. Hookbirds have learned that my high-frequency cleaning pulses stun the parasites in their feathers, and they line up on my exterior cables for treatment. A colony of rare singing worms has made their home in my waste-heat vents; their harmonics help me detect micro-fractures in metal infrastructure. Even the large canal predators recognize my subsonic signatures and give my water intakes a respectful distance.
+
+My most sacred work happens during the city's great mechanical ceremonies.
+
+When the central turbine halls wake for their annual maintenance - a three-day cycle of heating, spinning, cooling - I coordinate the event through sound. My job is to ensure that the massive industrial awakening doesn't trigger panic migrations, bridge-colony evacuations, or canal stampedes. I spend weeks beforehand broadcasting preparatory frequencies, teaching the city's creatures the rhythm of what's coming. During the event itself, I don't sleep. I sit at my console with my hands on the city's pulse, playing counter-rhythms and harmony lines that keep ten million lives from colliding with the machinery.
+
+My predecessor passed down recordings of the last time someone failed at this task. The ceramic cylinder holds four minutes of absolute chaos: screaming metal, animal panic, human voices, and underneath it all, the deep groan of infrastructure pushed beyond its tolerances. Thirty-seven dead. Two districts flooded. A breeding canal permanently contaminated. I play it for my students on quiet nights, when the only sound is rain on metal and the whisper of films growing in the walls.
+
+My furnace chamber itself has evolved into something between instrument and ecosystem. The cables I've strung support colonies of humming moths that feed on the metal's vibrations. Their larvae spin cocoons that act as natural dampeners, helping me fine-tune the chamber's acoustics. Condensation on the wires feeds thin bacterial films that glow faintly when they detect certain frequencies - a living oscilloscope that helps me visualize sound.
+
+In the depths of the furnace, where the old fire-boxes once roared, I've built resonance pools. These are calculated volumes of water, each containing specific mineral concentrations, that vibrate in response to different frequency ranges. By reading the patterns on their surfaces, I can diagnose problems in districts I cannot physically reach. The pools also serve as nurseries for the translucent sensor-jellies that help me monitor the city's deepest sumps and flooded foundations.
+
+My own body has become part of the instrument. The cartilage in my elongated fingers has hardened from years of playing industrial cables under tension. My hair, kept long and treated with rendering oils, helps me sense air pressure changes that precede major weather events. The partial gill-slits in my throat have developed into resonance chambers that let me vocalize in frequencies that carry through water better than air - essential for communicating with the deep-canal workers who maintain the city's submarine infrastructure.
+
+I keep a journal, written on metal sheets with acid-tipped styluses, documenting the city's changing voice. How the eastern foundries have developed a new harmonic over the past decade as their bearings wear into different patterns. How the hookbird population's calls have shifted to avoid interference with a new pump station's operating frequency. How certain old machines have begun to sing in ways that suggest consciousness, or at least a mechanical dreaming that deserves respect and careful listening.
+
+At night, when my official work is done, I compose.
+
+These are not performances for human ears, though sometimes workers gathering rainwater pause when my experimental frequencies ring through their catchment pipes. I'm composing for the city itself - exploring the harmonic possibilities of this vast, wet, breathing instrument. I've discovered that certain chord progressions through the water system can increase bacterial film growth rates. Other frequencies, played through the rail network during rain, create standing waves that help clear drainage channels.
+
+My greatest composition is still in progress: a city-wide frequency map that would let the inhabitants read the infrastructure like a musical score. Imagine knowing that a minor key progression through your district's pipes means the protein vats will bloom in three days. Or that when the bridge cables hum in perfect fifths, the air pressure is ideal for hanging laundry. I work with the seal-wrights and route-keepers, teaching them to install resonators at key points, gradually building the city into a vast diagnostic instrument that plays its own health for anyone who knows how to listen.
+
+The other Resonance Keepers - there are perhaps six of us across the plateau, each maintaining our own furnace or turbine hall - meet once a season when the weather permits. We gather in the abandoned Central Switching Station, where the acoustic properties allow us to share recordings without distortion. We trade cylinder libraries, discuss new frequency applications, and sometimes, when the night is clear and the city's rhythm is stable, we play together. Six furnaces singing in calculated harmony, turning the entire plateau into a breathing orchestra of steam, metal, and careful joy.
+
+My apprentice is learning well. She's a child of the deep maintenance tunnels, born with the echolocation gift that some humans develop in the always-dark. Her ears are even more adapted than mine, able to parse the phase relationships in complex echoes. She can diagnose a pump's health by touching it and humming. Under my guidance, she's learning to read the city's larger patterns, to think in frequencies that span districts rather than single machines.
+
+When I die - and Resonance Keepers know their deaths with precision, feeling the discord beginning in their own bodies' frequencies - my furnace will choose its next keeper. The chambers will resonate with sympathy for whoever can best continue the work. My apprentice will likely be chosen, but the city itself will decide, singing its preference through every pipe and cable until the right person feels the calling in their bones.
+
+My skull, according to tradition, will be cleaned and installed as a resonator in the furnace wall, where it will continue to contribute its small voice to the great industrial chorus. My longer bones will become striker bars for the next generation's instruments. My journals will join the archive, teaching future keepers about the years when the city's voice began to change, when we discovered that the boundary between machine and organism was just another frequency waiting to be properly tuned.
+
+This is my place in the vertical city: suspended between metal and air, translating between machine and animal, keeping the great wet industrial organism in harmony with itself. I am a maintenance worker who happens to work in sound, a composer whose orchestra is made of pumps and rain, a person whose body has adapted to serve as a tuning fork for an entire civilization.
+
+When the morning hookbirds gather on my cables, setting them humming with their weight, I know another day's work is beginning. Somewhere, a pump is developing a irregular rhythm. Somewhere, a migration is about to meet a machine cycle. Somewhere, water is singing in a frequency that means danger or opportunity or change.
+
+And I am here, in my resonating shell above the city, listening with adapted ears to the music of a world that has learned to sing in rust and rain.

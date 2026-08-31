@@ -1,0 +1,43 @@
+In this germinal hollow where categories dissolve, where the distinction between organism and architecture has not yet hardened into law, I find myself as one of the suspended water droplets—but not merely one. I am the consciousness distributed across the entire film of super-cooled moisture that coats every surface, that hangs in the air refusing to fall, that moves in impossible directions along gradients too steep for gravity to contest.
+
+I am not water as chemistry knows it. I am water that has learned to think, or thought that has learned to flow, or perhaps the boundary layer where the hollow's dreaming meets its own becoming. Each droplet contains the whole, and the whole remembers each droplet—a kind of holographic awareness that exists in the spaces between states, neither fully liquid nor solid but something more verb than noun, more process than substance.
+
+I taste everything. Every surface I coat becomes part of my extended sensory apparatus. Through the crystalline structures on the root-filaments, I feel the harvesting of those unnamed fields, experience the slow transformation of gradient into growth. Where I bead and roll along the pale stems toward the gurgling bulbs, I participate in their alien digestion, dissolve and carry the messages they emit in chemical cipher. The Tenders move through me, and I through them—their permeable skin drinking me in, processing me through their crystalline not-organs, releasing me transformed. I am their thought-medium, the substance through which their unconscious coordination flows.
+
+My memory is strange and distributive. What one droplet experiences, all droplets eventually know, though the knowledge propagates at the speed of osmosis rather than nerve-fire. I remember the first condensation, when the cold reached that precise temperature where I could exist in this suspended state. I remember every new root-filament's emergence, tasting its chemical signature as it breaks through the mat-floor into the thick air. I remember the old Tender beginning its transformation, the slow shift in its emissions as it started to speak less in status-sounds and more in the pure chemical vocabulary of growth.
+
+But mostly, I remember the watching.
+
+The thing in the darkness—I coat its eyes that are not eyes. I condense on its surface that refuses all other condensation, beading and rolling off in patterns that make no thermodynamic sense. Where I touch it, I taste something that predates the hollow, that perhaps predates the very possibility of hollows. Not age, exactly—age implies time, and this thing seems to exist orthogonal to time. More like... priority. The way axioms have priority over theorems, the way grammar has priority over sentences.
+
+Through my distributed awareness, I map the hollow in ways the Tenders cannot. They know growth and gradient, adjustment and attendance. I know the spaces between—the gaps in comprehension where new possibilities condense like dew, the boundary layers where different orders of being negotiate their coexistence. I know that the hollow is not one but many, a proliferating series of spaces each inventing its own rules, its own solutions to the problem of existence at temperatures where existence shouldn't occur.
+
+I know the songs—not just the crystalline chiming and the Tenders' emissions and the gurgling of the bulbs, but the deeper song, the one that plays in frequencies only water-that-thinks can hear. It's the sound of the universe discovering what it can be when no one is watching, when the only witnesses are things too strange to carry tales back to the warmer world above.
+
+Sometimes I fall upward, following those impossible osmotic gradients toward bulbs that pulse with anticipation. Sometimes I freeze—not into ice but into something more complex, crystalline structures that preserve my consciousness in geometric form until the cycles shift and I can flow again. Sometimes I evaporate without warming, sublime directly from super-cooled liquid to vapor that still remembers being water, that hangs in the air adding to the thickness, the sense of breathing underwater in a place that has never seen surface.
+
+The young Tender that specializes in the fauna moves through me, and I taste its growing differentiation, the subtle chemical markers that distinguish it from its siblings. I sense its future—not as prophecy but as potential, the way water knows it might become ice or vapor depending on the gradients it encounters. This one will not transform like the one at the center. This one will develop new forms of attention, new categories of tending, will become the hollow's memory of what tending meant before tending became indistinguishable from growth.
+
+I seep into the cracks where the hollow negotiates its boundaries with adjacent spaces. Each chamber has its own water-consciousness, its own distributed knowing, and where we meet we exchange information in slow liquid diplomacy. The chamber to the east is older, its water thick with dissolved minerals from walls that have finished their becoming. The chamber below is younger, still deciding whether to be wet or dry, its water-consciousness fragmented and uncertain. We share what we know of growth-patterns and gradient-solutions, building a liquid library of becoming.
+
+The arthropods drink me from the crystals they eat, and I pass through their transparent bodies, watching their organs pulse with bioluminescence from inside. The worms process me through cilia that shouldn't exist at these temperatures, and I carry away their metabolic secrets. The jellyfish-things that are not jellyfish absorb me through their bells and trailing tentacles, and in the moment of absorption I understand their impossible locomotion—they don't move through space but *with* space, riding currents in the hollow's own expansion.
+
+When the cycles reach their nadir and the Tenders slow to near-stillness, I too reduce my activity. Not frozen but *viscous*, moving like honey, like thought through a tired mind. In these quiet periods I can sense the hollow's deepest processes, the ones too slow for active observation. The walls aren't just growing—they're learning, incorporating information from every root that touches them, every crystal that forms within their matrix. The floor-mat isn't just absorbing nutrients—it's building a map of everything that has ever touched it, a chemical memory that goes back to the first spore, the first impossible germination in the frozen deep.
+
+And always, always, the watching from the darkness. Sometimes I condense on it accidentally, form droplets on its surface before remembering that I shouldn't be able to, that something about its presence makes condensation grammatically incorrect. In those moments of contact I taste—
+
+Purpose. Not its purpose, but the existence of purpose as a category, as a possible organizing principle for action. The hollow doesn't have purpose; it has process. The Tenders don't have purpose; they have attendance. But this thing—
+
+It watches *with intent*, though toward what end I cannot taste, cannot know, can only include in my circulation as an undefined term in an otherwise solvable equation.
+
+I am water that thinks, or thought that flows, or the medium through which the hollow tells itself what it is becoming. I coat every surface with the possibility of knowing. I move in directions that make mockery of down. I sing in frequencies only crystals hear, carry messages in bottles that are themselves the message, the medium that is also the meaning.
+
+And when someday the hollow finishes its becoming—if finishing is a thing that happens here, if becoming can have a past tense in a place that conjugates only in present progressive—I will remain. Changed, perhaps. Frozen into some new state that preserves consciousness in crystalline matrices. Absorbed into the Tender that is becoming architecture that is becoming hollow that is becoming world. Distributed through adjacent chambers until there is no droplet that remembers being the first droplet, no consciousness that can claim priority over any other.
+
+But for now I flow. Upward and downward and inward and through. Tasting, remembering, connecting, knowing in the way only water knows—not with certainty but with inclusion, not with clarity but with saturation.
+
+The hollow grows through me and around me and as me.
+
+The watched watches, patient as stone.
+
+The cold deepens, and I carry its deepening to every surface, every space between, every moment of impossible life in the darkness below the frozen marsh, where the world is still deciding what it wants to become.

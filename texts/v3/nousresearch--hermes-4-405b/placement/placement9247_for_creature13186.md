@@ -1,0 +1,13 @@
+As I imagine myself in this world, I am drawn to the role of a chronicler, a keeper of stories and histories. I would be a member of the Verdant Engineers, but my primary function would not be maintenance or artistic expression. Instead, I would serve as a bridge between the past, present, and future, ensuring that the knowledge and experiences of my community are preserved and passed down through generations.
+
+My appearance would reflect this role. Instead of the vibrant colors and intricate mechanisms of my kin, my form would be more subdued, covered in a parchment-like skin reminiscent of ancient scrolls. My limbs would be composed of entwined roots and delicate copper wires, symbolizing the interconnectedness of history and technology.
+
+I would spend my days traversing the observation deck, collecting the stories of my people. I would record the whispers of the geoscales, the subtle language of the lizards that only I could decipher. I would decipher the patterns in the steam sculptures, finding hidden meanings in the transient artworks.
+
+Using a unique tool, a quill-like appendage fashioned from a prismwing's wing and a delicate glass tube, I would inscribe the tales of my community onto living scrolls. These scrolls, made from the leaves of the overgrown ferns and orchids, would be stored in the hollows of the geothermal vents, where the warmth and humidity would preserve them.
+
+In the evenings, as the roar of the endless rain grows softer, I would gather with my fellow Verdant Engineers. Seated in a circle on the moss-covered concrete, I would unfurl the living scrolls and share the stories of our past. Through these tales, we would find inspiration, learning from the triumphs and challenges of those who came before us.
+
+As the mist cleared and the steam sculptures dissipated, I would lead my people in a ritual of remembrance. We would each take a handful of the vibrant moss that blanketed our sanctuary, infusing it with our memories and experiences. As we scattered the moss into the wind, these memories would be carried out into the open expanse, a reminder that our stories are part of the larger tapestry of the Skyspire.
+
+In this role, I would be known as the Keeper of Echoes, a guardian of the collective memory of our community. My existence would serve as a testament to the enduring power of story, a reminder that even in a world defined by engineered erosion and relentless rain, the echoes of the past can shape the future. Through my work, the Verdant Engineers would find strength and unity, knowing that their stories would live on, etched into the very fabric of our sanctuary amidst the deluge.

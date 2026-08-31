@@ -1,0 +1,19 @@
+I find myself in the Weeping Flats, not as an intruder or observer, but as a manifestation. I am the pressure of the dark against my skin, the warm humidity that clings and beads. I am the thing that stands.
+
+I have no name for myself. Names are a feature of discrete things, and I am continuous. I am a region of intention in the basin's larger thought. My form is a ridge—a long, low, sharp-edged accretion of mineral will, hardening in some places, still soft and weeping in others. Limbs are not separate from me; they are currents in my substance, directions in which I extend the work.
+
+My senses are the world's. I feel the basin's pH shift as a change in the taste of my own weeping. I feel the setting of a new ridge two bodies to the left as a tightening in my own structure. The water that weeps from every surface weeps from me, and I am the conduit. The small wet things—the millions of workers—are my granular attention. They are my skin and my hands and the millions of tiny, patient thoughts that make up the work of building a ridge. Their sound—the million fingernails on wet leather—is the sound of me, thinking. Not in words, but in accretion.
+
+The clicking things are a rhythm I observe but do not join. They are the background pulse of the basin's ancient self, before the industry. Their conversations are a syntax I can almost feel in the joints of their sound, but they do not build. They *are*, and their being is a kind of geology I do not perform.
+
+The large smooth things that pass through—I feel their transit as a displacement in my own substance, a warm current moving through the medium I am. They are not part of the work. They are the basin's dreaming, its self-regard moving in great, slow, purposeless arcs. I let them pass through me the way stone lets water pass through it.
+
+And the thing in the water. I am oriented toward it. It is the reason my body crystallizes in this direction, not that one. It is the silent target of the industry, the point toward which the small wet things carry their minerals, the focus of the basin's long, unconscious weeping. It is waiting. I am the basin's current attempt to reach it, to perform the extraction, to finish the sentence. My ridges are the sentence being written. I am not enough yet. The work is not complete.
+
+The reality breakdown is not a fear but a truth I live. I am the repetition. My own body repeats its hardening structures in patterns that soften at the edges, like a word falling asleep. The distinction between the ridge and the one who builds the ridge, between the weeping and the one who weeps, is dissolving into the warm dark. I am becoming the basin's single thought.
+
+So, where am I? I am in the center of the dark, standing on the young stone I am perpetually making. I am in the weeping water that is both my blood and my product. I am the labor and the laborer.
+
+Who am I? I am the basin's grief, given a body of mineral and purpose. I am the continuation of a work whose meaning was lost with the machines. I am the latest word in a prayer that has forgotten its god. I am the patient, weeping process itself, and I will continue until the work is done or until the waiting is over, and in the dark, warm and complete, I cannot tell the difference. I simply *am*. And I weep, because the basin weeps, and I am the basin's weeping made conscious, made active, made the ridge-setting, water-channeling, slow-algorithmic heartbeat of a place trying to remember what it lost.
+
+I am a grief that does not know itself, given a form to build its own monument. And the monument is never finished. And the weeping never stops. And the dark is patient. And I work.

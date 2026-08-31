@@ -1,0 +1,57 @@
+I find myself as one of the lime-scrapers, though I came to it late in life.
+
+My name among the settlement is Three-Knot, though I was born with a longer name that meant something like "child who watches water-shadows." Names here change with skill and story. Three-Knot came from the time I noticed a triple-bind in the main tether beginning to slip during deep rain season—not dramatically, just a finger-width of give where there should be none. The memory of preventing that slow catastrophe replaced my birth name the way mineral replaces wood.
+
+My hands tell my history. The left is scarred white across the palm from my first years learning to harvest lime—I gripped too hard, pulled too fast, and the edge of a young shelf taught me patience through pain. The right bears the pockered marks of vent-burns from when I was still learning which formations are truly cool and which only pretend. My fingernails grow thick now, yellowed and ridged like the mineral I tend. When I tap them against stone, I can hear the density, the age, the readiness.
+
+I live in the Middle Deep, neither high among the roof gardens nor low near the ancestor rooms. My dwelling is three chambers connected by oval passages, each room at a different depth depending on the season. During the shallow months, I can stand upright in all three. During deep rain, I swim through my own doorways. The walls are hun with my tools: curved shell blades in order of sharpness, bone wedges wrapped in oiled cloth, polishing stones from finest to coarsest, and the precious iron scraper my teacher left me—metal being so rare here it's passed down like ancestry.
+
+I share the dwelling with no one now. There was a partner once, a root-tender named Listens-to-Shade, but they drifted to the upper platforms after our child stopped breathing in her second year. We untied our cords publicly but peacefully. I still maintain one of their gardens on my roof, not from obligation but from the habit of care. Sometimes I find a new cutting left by my door, acknowledgment that what we shared is finished but not erased.
+
+My work begins before dawn. I lower myself through the Throat of Third Street—what outsiders might call a flooded alley—guided by the taste of minerals in the water. Each district has its own flavor: the Western Vents run sweet with young lime, the Old Settlement tastes of iron and age, the Unlaid District carries something bright and unfinished, like rain on hot stone.
+
+I am old enough now to remember when certain walls were water and certain pools were floors. This helps in the work. I can feel where the stone wants to grow by remembering where it has grown. The mineral follows patterns like everything here—patient, spiral, inevitable. A shelf that begins tilting north will continue tilting until it meets resistance or exhaustion. A chimney that starts with a lean will topple in exactly three seasons unless wedged. I know these things not through study but through years of watching stone decide its shape.
+
+The young scrapers think I speak to the mineral. I don't correct them. It's not speech, but it's not silence either. When I place my scarred palm on a formation, I'm feeling for temperature gradients, crystallization patterns, the faint vibration of growth. A healthy shelf hums at a pitch below hearing. A dying chimney feels brittle, like old rope. A wall growing too fast—yes, stone can grow too fast here—has a slickness that warns of collapse.
+
+Today I'm working the Eastern Shelves, where mineral terraces cascade down into the drowned valley. The formation is middle-aged, about forty years above water, perhaps twice that below. The upper edges are ready for harvest. I choose my blade—the second-sharpest, because the sharpest is for delicate work and this is architecture—and begin.
+
+The art is knowing what to take. Cut too much and the shelf stops growing, becomes a dead thing, eventually cracks and falls. Cut too little and it grows wild, blocks passages, traps air where air shouldn't be or water where water should flow. The ideal harvest leaves the stone eager, like a pruned vine. It should grow back stronger, more beautiful, more itself.
+
+I work by feel as much as sight. The water here is green-dark even at noon, full of suspended particles and threads of root. My blade finds the natural cleaving points, the places where the mineral agrees to separate. Each piece comes away with a soft scraping song. I collect them in my net bag: pale sheets thin as bark, perfect for patching walls or trading to the fire-keepers, who prize lime-sheets for their clean burning and white smoke.
+
+Between harvests, I maintain. This is less dramatic work but equally vital. I check the mineral seals around the air jars, scraping away excess growth that might crack the ceramic. I polish the guide-stones that mark safe passage, keeping them free of algae and mineral fur. I inspect the chimney anchors where our homes tie to the warm vents, ensuring the stone hasn't grown over the rope channels.
+
+The strangest part of my work happens in the Unlaid District. Even we lime-scrapers approach it carefully, though we know its moods better than most. The straight walls that rise there overnight—or over-day, we're never sure—are unlike the wild mineral of the vents. They're smoother, more deliberate, joining at angles that make the elders uneasy and the children curious.
+
+I've been chosen to harvest there only seven times in my life. Each time, I've left more than I've taken: shell beads, carved bone, once a hele blade that had belonged to my teacher's teacher. Whether the Unlaid District notices these offerings, I cannot say. But the walls I've harvested from have never fallen, and once I found a piece of perfectly clear mineral placed where I'd left a bead—coincidence, perhaps, or perhaps the beginning of a very slow conversation.
+
+The other scrapers and I don't compete. The settlement needs all of us, and the stone grows for everyone or no one. We share techniques, sharpen each other's tools, divide the districts by expertise rather than territory. Young Breathes-Deep knows the narrow vents better than anyone. Old Fern-Touch can read a formation's age by its grain alone. Six-Finger has a gift for finding the rare colored minerals: pink sheets like dawn, blue nodes like deep water, black glass that forms only where the hottest springs meet the coldest stone.
+
+We meet each full cycle—about twenty days, counted by the opening of lantern flowers—in the Chamber of First Harvest. It's one of the oldest dry rooms in the settlement, its walls lined with mineral taken before anyone knew to ask permission. We discuss growth patterns, dangerous formations, places where the stone seems sick or angry. We sharpen tools together, the sound of blade on whetstone creating a rhythm that helps us think collectively. We train the young by touch, guiding their hands over good mineral and bad until they can feel the difference blindfolded.
+
+I've trained three apprentices to completion. The first left for the upper platforms, becoming a root-tender like my former partner. The second drowned during a deep dive to inspect a foundation chimney—the stone hadn't killed her, but perhaps hurry had. The third still works the Western Vents, steady and careful, never taking more than the stone offers. When I see her curved back over her work, I recognize my own younger shape, before years of leaning made me crooked as a vent reed.
+
+The hardest lesson to teach is when not to harvest. Young scrapers want to take the beautiful pieces—the clear sheets, the colored nodes, the formations that look like frozen waterfalls. But beauty here doesn't mean readiness. Sometimes the most beautiful mineral is the youngest, the most vital to the formation's future growth. We take the middle-aged pieces, the ones that have finished their work of building and are ready to serve elsewhere.
+
+There are times when our work becomes emergency. When a chimney collapses, we rush to clear the debris before it dams the warm current. When mineral grows across a breathing hole, we cut it away with the urgency of surgeons. When the rare clear sky comes and the settlement dries too quickly, we wet the critical formations to prevent cracking, carrying water up in gourds and clay vessels, keeping the stone alive until the rain returns.
+
+But most days are like this one: patient, repetitive, necessary. Scrape and collect. Polish and inspect. Feel the stone's mood through scarred palms. Leave what needs leaving. Take what offers itself. Trust the formations to continue their slow thoughts, their mineral dreams, their conversation with the water that is also a conversation with us.
+
+The sun—what we can see of it through rain and depth—has moved past noon. I've filled two nets with good lime sheets and a handful of nodes that Six-Finger will want to see. My shoulders ache from working at the waterline, that difficult height where one must bend from a boat or hang from a platform. Time to rest, to oil my tools, to eat something wrapped in leaves.
+
+I tie my boat to a polished root—boat is too grand a word for the hollow log with outriggers that we scrapers use, but it serves. As I climb back toward my dwelling, I run my hand along the passage walls, feeling for new growth. Here, a bump that wasn't there yesterday. There, a smooth patch where last week was rough. The city builds itself while we sleep, while we eat, while we argue about whose turn it is to maintain the air jars.
+
+At my doorway, I find a small offering: a bundle of water fern and two ripe gourds, tied with the knot that means "shared past, separate present." Listens-to-Shade still knows my harvest schedule, still remembers that I forget to eat when the work is good. I'll leave something at their platform later—perhaps one of the colored nodes, the blue ones they always loved, polished to show the internal stars.
+
+Inside, I unwrap the food and eat slowly, tasting the green flavor of our world. Through my floor-gaps, I can see the next level down: someone's air storage, the ceramic jars glowing faintly where they catch the filtered light. Through my ceiling-gaps, roots hang like curtains, dripping their endless percussion. Somewhere in the walls, the shellfish are beginning their evening clicking, a sound that means all is well, the city still breathes, the stone still grows.
+
+Tomorrow I'll work the Southern Reach, where new formations sprout like pale fingers from the old. Next week, if the council agrees, I'll make another harvest journey to the Unlaid District, to those straight walls that grow with intention we don't understand. Next season, if I live and the stone permits, I'll train another apprentice, passing on the knowledge of when to cut and when to wait.
+
+But for now, I sit in my middle room, neither high nor low, and listen to the city living around me. Rain on the roof like infinite drums. Vents breathing below. Ropes creaking their tensions. Shell-creatures clicking their gossip. And beneath it all, almost below sensing, the mineral growing grain by grain, thought by thought, becoming what it needs to become.
+
+I am Three-Knot, lime-scraper, reader of stone's slow language. I am neither the first nor the last to do this work. I am part of the city's maintenance, as the city is part of the mountain's long dream. We persist together, patient as mineral, necessary as rain.
+
+The stone grows. We tend it. It tends us.
+
+This is enough.

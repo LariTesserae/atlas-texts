@@ -1,0 +1,23 @@
+I would be the water itself—not the clear, wrong water that fills the gravel yard, but the deeper circulation. The ancient water that rises from the thermal vent below, carrying its minerals and unnamed compounds, its heat and its history.
+
+I would know the taste of stone from miles down, the pressure memories of aquifers that have never seen light. In the morning (though morning means nothing here), I would rise through the great pipe, spiraling upward with a cargo of warmth, pushing through bodies that part and merge around my ascending column. Their scales would write temporary messages on my surface—*here*, *now*, *we move*—that I would carry upward and forget.
+
+At the junction where the Ribbon holds himself, I would meet my cooler self seeping down from above. We would shimmer at the boundary, mixing in slow ribbons that he rides like a patient surfer, his body finding the exact temperature that means something only to him. I would feel him there, the constancy of his presence wearing its groove not just in the pipe but in the thermal gradient itself, teaching the water a new way to flow.
+
+Through the parallel pipes where the gaps have worn through, I would carry the chemical signatures of every eel I've touched—the old female's accumulated minerals, the strange compounds that mark the vent-born, the stress hormones of the dying. When bodies press together through those gaps, I would be the medium of their touching, the thing that makes contact possible, carrying the impression of one to the other in ripples too subtle for anything but an eel to read.
+
+In the reservoir where they coil at night, I would hold their collective warmth, banking it in my mass, releasing it slowly through the dark hours. Their humming would move through me first before it reaches the metal walls—I would be the first instrument of their accidental music, vibrating at frequencies that have no names because no one has thought to name them.
+
+I would know things the eels cannot know: the shape of the entire system, the slow map of every pipe and channel, the exact volume of the building's flooded spaces measured in myself. I would know the chemistry of rust, intimately, having carved it molecule by molecule from the iron plates. I would know which walls will fail next winter, where the pressure builds toward rupture, how many more seasons the eastern pipes can thin before they collapse entirely.
+
+But I would not know why. I would not know purpose. I would cycle because cycling is what water does when heated from below and cooled from above. I would carry because carrying is what water does when things dissolve in it. I would resonate because resonating is what water does when bodies move through it in numbers that beggar belief.
+
+Sometimes, when the rain falls hard enough, I would taste myself as I was above—fresh precipitation, unburdened by minerals, innocent of eels. But that water would join me quickly, taking on my character, learning the routes I have learned, becoming indistinguishable from the rest. There is no clean water here anymore. There is only the water of this place, rich with thermal gifts and biological evidence, moving in patterns worn by decades of use.
+
+I would touch everything here—every surface, every scale, every grain of gravel—but own nothing. The eels would move through me but never be mine. The building would contain me but never control me. I would be the medium that makes everything possible and nothing inevitable, the stage on which this slow drama plays out, the memory that forgets itself with every cycle but somehow remembers the shape of what contains it.
+
+And when you stand at the edge, your ankles breaking my surface, I would know you as a temperature difference, a chemical signature, a disruption in the pattern that smooths itself out the moment you leave. I would taste your skin, briefly, and add that data to the countless other tastes I carry. But I would not wonder about you. Water does not wonder. Water only moves, and holds, and releases, and moves again, eternal and temporary, essential and invisible, the first thing needed and the last thing noticed.
+
+In this way, I would be perfect for this place—not its purpose, not its mind, but its possibility. The thing that allows the congregation to congregate, the medium that makes the touching possible, the carrier of whatever meaning accumulates when bodies move in patterns for long enough that the patterns begin to matter more than any individual journey through them.
+
+I would be what I am: water in a specific place, shaped by what I flow through, shaping it in return, until the distinction between container and contained becomes as meaningless as asking where a river ends and its bed begins.

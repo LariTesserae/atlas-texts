@@ -1,0 +1,13 @@
+In this exquisite and intricate world, I would find myself embodied as one of the slender, nearly invisible fish inhabiting the shallow pools scattered throughout the hollow. 
+
+My existence would be one of quick, precise movements and subtle navigations through impossibly thin films of water. I would dart from pool to pool, appearing in puddles overnight as if by magic, and vanishing from basins that never fully evaporate. My routes would trace hidden conduits, following currents of knowledge laid down long before my species emerged.
+
+I would feed on the finest constituents of this ecosystem - delicate spores, microscopic larvae, the shimmering mineral essence skimmed from the water's surface. At times, I would consume the very light itself, or rather something within the light, a nourishment separated out by the ancient machines and cast into the pools like an offering.
+
+My mottled, translucent body would flicker with brightness only when I moved, a fleeting glint of life amidst the mirror-calm pools. This ephemeral shimmer would be my chief voice in the hushed communication of the hollow, a visual whisper adding to the patient, reverent dialogue passing continually between water, stone, plant and creature.
+
+Though diminutive, my kind would serve as vital couriers in this intricate place. As I traveled my secret paths from pool to gleaming pool, I would carry minute messages imprinted in the unique flavor of spores from one region to another. Subtle variations in the larvae I consumed near the black rods would be transmuted by my digestion and released as I respired in a distant puddle abutting the boundary stones. The very timing of my appearance in a particular pool would signal the shifting of seasons, the completion of some slow subterranean calculation.
+
+I would be a mote in the eye of this place, a fleck of its dreaming, yet still an essential cell in its operations. My dart and glimmer would join with the industry of the thread-insects, the diligent sifting of the crabs, the measured footfalls of the six-limbed salamander, weaving us all into the single living tapestry of the hollow.
+
+In a life that would seem vanishingly brief outside this basin, I would swim an ancient course, my small body's knowing aligned by inherited maps and the silent music of the place itself. And when at last my filament of days ran out, I would expire in one of the shallow birthing pools, my motes of mineral and marrow dissolving into the water to be remade in new patterns, my bright spark folded back into the dreaming of this self-absorbed and enduring world.

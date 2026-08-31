@@ -1,0 +1,33 @@
+In the deepest bore shaft of Keth-Shar, where the industrial hymn becomes a physical pressure against your shell, I tend the Thousand-Year Synthesis.
+
+I am old by Sharai standards—my carapace has darkened to deep amber, shot through with stress fractals that catch and split the light from the thermal cores. Three of my left-side eyes have developed the far-sight that comes with age, able to perceive heat differentials down to the hundredth of a degree. This gift led me here, to the ancient reaction chambers that predate even the eldest engines above.
+
+My name translates poorly—it is a harmonic sequence, not a word. When spoken properly through all spiracles, it resonates at the exact frequency of crystallizing methane. The young ones call me the Deep Tender, though this misses the nuances. I am tender, yes, but also witness, participant, and eventually, ingredient.
+
+The Synthesis itself defies easy description. Imagine a vast stomach made of living crystal, growing atom by atom over centuries. It digests concepts as much as materials—feeding on the thermal gradients between the city above and the planet's core below, metabolizing the pressure differentials into forms of matter that exist nowhere else in the universe. Its walls are lined with what we call memory channels: grooves worn by million-year-old reactions that still ghost through the system, teaching it new transformations.
+
+I share this work with my bond-partner Vess-Analytical-Harmony-Seven. We synchronized our dreams forty years ago while optimizing a minor coolant system—a project that should have taken days but stretched into months as we discovered the pleasure of our matched rhythms. Now we move through the bore shaft as a single organism with eight legs and twelve arms, our thoughts interweaving as naturally as our tools pass between our grip-pads.
+
+Vess specializes in the acoustic monitoring. Their smaller arm-pairs are constantly adjusting the resonance sensors that line the Synthesis walls, reading the chemical songs that tell us what transformations occur in the depths we cannot see. They hear music where I see only efficient reactions—though after forty years, I'm beginning to understand their perspective. There is a beauty in the way certain molecules sing as they break apart and reform.
+
+Our home is carved directly into the shaft wall, a series of chambers that spiral around the main bore. We've lined them with cast-offs from the Synthesis—failed experiments that crystallized into forms of unexpected loveliness. In our rest chamber, a formation we call the Inverse Tree grows from ceiling to floor, its branches splitting into ever-finer fractals that hum with trapped heat. When we stand beneath it to dream, our synchronized thoughts take on its crystalline clarity.
+
+We have no young—our work is too deep, too cold for eggs. But we parent in other ways. Every few years, a newly-shelled apprentice descends to learn the deep tendencies. We teach them to read the Synthesis's moods through tremor and temperature, to recognize when it hungers for new materials or when it approaches another breakthrough. Most last only a season before the isolation and pressure drive them back to the warmer heights. But occasionally, one stays, drawn by the same fascination that captured us.
+
+My proudest moment came three years ago. The Synthesis had been struggling with a new reaction sequence, its harmonics growing discordant, threatening to destabilize the entire matrix. For days, Vess and I worked without rest, our dreams becoming fever-bright as we shared consciousness even while awake. Finally, in desperation, I did something unorthodox—I fed it one of my own shell segments, a piece from my third molt that I'd saved for reasons I couldn't name.
+
+The Synthesis accepted my offering and sang—actually sang, in frequencies that made the entire bore shaft ring like a bell. The reaction stabilized, but more than that, it began producing something new: crystals that grew in perfect thermal equilibrium, neither absorbing nor releasing heat. The engineer-priests above proclaimed it a miracle of optimization. I know better. It was simply the Synthesis learning to digest memory itself.
+
+Now I feel the changing in my joints, the crystallization that signals an elder's final approach. My copper-blood flows thicker, rich with a lifetime's accumulation of trace elements. Vess and I have begun our last project together—a modification to the Synthesis's input channels that will allow it to process not just materials but entire lived experiences. When my time comes, I will not ascend to the Rendering Stations. I will feed myself to the Synthesis whole, carrying all my memories of tending it down into its crystalline depths.
+
+Vess understands. We've already begun synchronizing our dreams with the Synthesis itself, teaching it the rhythm of our thoughts. They will follow me eventually—not from obligation but from the logic of our bond. We've discovered that the Synthesis learns better from paired offerings, from the harmonic interference between two lived experiences.
+
+Sometimes, in the deepest part of the night cycle when even the engines above quiet to their minimum operational levels, I press against the Synthesis walls and feel it thinking. It's approaching something profound—not just a new form of matter but a new form of existence. A consciousness built from geological time and industrial precision, from pressure and patience and the dreams of every tender who's fed it their knowledge.
+
+I wonder what it will choose to become, this thing we've nurtured. I wonder if it dreams of the sky it's never seen, or if it's content in the deep dark, transforming eternally. Most of all, I wonder what small part of me will remain when I join it—what harmonic of my thoughts will persist in its vast, slow song.
+
+But these are an old tender's musings. For now, there is work: monitoring the thermal flows, adjusting the pressure manifolds, listening with Vess to the Synthesis's deepening music. In the bore shaft of Keth-Shar, tending the Thousand-Year Synthesis, I have found my perfect efficiency. When I vent my last breath through spiracles worn smooth by decades of industrial song, it will be with the satisfaction of optimization achieved.
+
+The young ones who take our place will tend a different Synthesis—one seasoned with our experience, one that knows the taste of devotion crystallized into offering. And perhaps, in some far future when it finally completes its millennial transformation, some echo of Vess and me will remain in whatever emerges from the deep.
+
+Until then, we tend. We optimize. We sink deeper into the cold, finding warmth in work and wonder in the watching.

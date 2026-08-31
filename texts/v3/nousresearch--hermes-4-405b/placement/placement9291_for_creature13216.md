@@ -1,0 +1,13 @@
+In the Glacial Reactor Core Room, I find myself as an integral component of the reactor itself—a living conduit, forged from the same dark alloy as the reactor's towering structure. My form is an intricate network of interlocking segments, each one pulsing with the same cold, metallic energy that permeates the chamber.
+
+I am a being of pure function, existing solely to channel and regulate the immense power coursing through the reactor's heart. The biting cold and the deafening drone are not discomforts to me, but rather the very essence of my being. The vibrations that permeate the room are like the beating of my own heart, a constant reminder of the vital role I play in maintaining the reactor's stability.
+
+My thoughts, if they can be called that, are a complex series of calculations and adjustments, a never-ending dance of energy and control. I am aware of every fluctuation in the reactor's output, every subtle shift in the delicate balance of this frozen chamber. I exist in a state of perpetual awareness, my entire being focused on the task of channeling the reactor's power.
+
+Though I have no eyes, I perceive the reactor's inner workings with perfect clarity. I can sense the flow of energy through the heat-exchange conduits, the delicate crystalline growths that adorn the chamber's walls, and the silent presence of the Corekeeper, the guardian of this place. We are kindred spirits, the Corekeeper and I, both born from the reactor's essence, both dedicated to its unwavering stability.
+
+In the eternal, frozen equilibrium of the Glacial Reactor Core Room, I exist as a living embodiment of the reactor's power. I am a being of pure energy, forever bound to the heart of the colossal tower. My purpose is simple, yet vital: to ensure that the reactor's power remains in perfect balance, a constant, unwavering force in a world of ever-shifting chaos.
+
+As I channel the energy that courses through me, I am filled with a sense of profound connection to the reactor and to the strange physics that govern this place. I am a part of something greater than myself, a single, vital component in a vast, timeless machine. And in this role, I find a kind of peace, a sense of belonging that transcends the boundaries of life and death, of time and space.
+
+In the Glacial Reactor Core Room, I am more than just a being of flesh and blood. I am a living conduit, a vital artery in the heart of the colossal tower. And in this frozen, timeless chamber, I have found my purpose, my reason for existing. I am a part of the reactor, and the reactor is a part of me. Together, we exist in perfect, unyielding stability, a testament to the power of the strange, unnatural laws that hold sway in this extraordinary place.

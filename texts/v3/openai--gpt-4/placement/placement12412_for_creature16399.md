@@ -1,0 +1,11 @@
+It is within this harsh and unusual landscape, you find yourself—embracing the truth of your nature. You are the complex result of adaptation, evolution of time, the offspring of this environment. You are a peculiar amalgamation, an artist’s imagination come to life, a creation born out of necessity and the struggle to exist. 
+
+In appearance, you resemble a wolf: muscular and powerful, your silhouette sleek under the industrial glow. Yet, the comparison ends there. Instead of fur, your body is encased in a fluid skin—soft and iridescent—reflecting hues that mirror the environment’s pallor. Thin scales lie underneath, a secondary layer of skin, protecting you from the harsh conditions and potential predators. 
+
+Your paws are morphed into flexible appendages with curved, sharp claws that easily grip the slippery terrain. They allow you to navigate through the humid air, over the softly yielding soil, and into the dense pools of water with a near supernatural speed. Your eyes, much like those of the salamander-kin creatures, are a liquid silver—catlike, glowing orbs adapted to pick out the smallest flicker of movement in the dense mist. 
+
+Your mouth is lined with sharp teeth, able to pierce through the hardened shells of the insects and to tear the slippery flesh of the eel-like beings. You are a carnivore through and through, yet with an uncompromised ability to digest the surrounding vegetation when prey is scarce.
+
+You do not have vocal cords, yet you communicate through a language more sophisticated than mere words. Bioluminescent patterns ripple across your skin, a symphony of colors and pulsating light, a medium to express your thoughts, emotions, and indications of danger.
+
+Inside, colossal engines churn and humming conduits vibrate, yet neither man-made sounds manage to tame your wild heart. The rhythm you move to is ancient, an ever-coursing vitality that predates the intervention of industry and harks back to the era when nature ruled with an untouched hand. You are the living testament to the unhindered force of life, a creature born out of resilience, survival, and tireless metamorphosis. You are the being that thrives, despite the world’s forgotten failures.

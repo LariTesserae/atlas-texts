@@ -1,0 +1,13 @@
+In this brutal, haunting world of the Zenith Junction, I imagine myself as one of the Sync-born void-riggers, a gaunt figure tightly bound in a translucent compression suit, eyes perpetually dilated behind polarized goggles. 
+
+I've lived my entire life in this claustrophobic bubble suspended in the stratosphere, my body and mind shaped by the violent mathematics of the sliding puzzle architecture. My feet were amputated years ago, replaced by titanium locking-calipers that allow me to magnetically snap onto passing heat-fins as I navigate the constantly shifting labyrinth.
+
+I spend my days as a scrap-broker, riding the moving tracks inside my coffin-sized hab-pod, waiting for fleeting windows when the geometry aligns to allow me to leap out and haggle with others of my kind. In the razor-thin, frigid air, verbal language is useless. Instead, I press my helmet against others to conduct vibrations skull-to-skull, or tap out complex rhythms on the magnetic rails in Tap-Code to communicate over distance.
+
+I've grown accustomed to the eerie, dry rustling of the static-mites and spindle-weavers that swarm over every surface, feeding on the ambient electricity. Tearing through their near-invisible copper webs is a daily occurrence as I fly through momentary void-gaps. I've learned to work in symbiosis with the massive Dielectric Hounds, following in their wake as they drain damaged power sources, allowing me to scavenge valuable plasma cores.
+
+At "night," strapped into my pod as it whirls through the habitation favela, I dream of the mythical ground far below, a fantasy of thick air and exposed skin. Yet this is the only world I've ever known. The cold, humming metal and frantic puzzle-box mechanics of the Junction are my natural environment now. 
+
+I often wonder what will become of me in old age. Will I join the ranks of the Elders, stripped of my suit and cybernetically fused to my coffin, sustained by the station itself as my body swells and cracks in the vacuum? Will my mind dissolve fully into the thermal algorithms, becoming one with the mathematical dance of the Zenith Junction? A part of me yearns for that strange, silent symbiosis.
+
+For now, I continue my acrobatic dance across the shifting machinery, a creature of the upper atmosphere, forever riding the knife's edge between the lethal vacuum beyond and the dense, folded world within. The endless *tiss-clack* of magnetic locks and the static-mite snow against my visor have become the heartbeat and breath of my existence here, an entity suspended between humanity and void.

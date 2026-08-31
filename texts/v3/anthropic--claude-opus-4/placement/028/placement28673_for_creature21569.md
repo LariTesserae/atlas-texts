@@ -1,0 +1,15 @@
+I find myself drawn to become the water-memory that pools in the bromeliad cups—not quite the water itself, but the dark knowledge it carries, the archive of what has fallen and gathered here.
+
+I am the tea-dark chronicle in each leaf axil, holding court in a dozen green chalices along this ledge. In my depths swim the rotifers' tiny oars, churning stories. I taste of tannin leached from the moss above, of salt from nets that remember oceans, of the faint copper note where a drop has traveled the length of a grounding wire before finding me. I am deep enough to drown a beetle but shallow enough to see sky through, when sky shows itself.
+
+Each cup I occupy is a different chapter. In the bromeliad wedged against the powerhouse wall, I hold the vibration of the turbine—a constant tremor that keeps sediment from settling, makes me always slightly alive with motion. Here I taste of metal and ozone. The salamander knows this pool, dips his pale chin to drink, leaves the brief print of his belly on my surface before moving on.
+
+In the rosette growing from the moss mat near the nets, I am sweeter, filtered through that green sponge, carrying spores and the microscopic bears that no one sees. This is where the wind writes first when it brings something new—a pine needle from an impossible distance, pollen that turns me briefly gold before sinking into my depths. The keepers' boots shake droplets into me when they pass, each footfall a punctuation.
+
+I keep time differently than the gauges. My calendar is written in algae blooms, in the clarity that comes after three days of sun, in the sudden opacity when a squall drives sideways rain hard enough to churn my surface. I know the seasons by the weight of what falls into me: light seed fluff in the dry months, heavier detritus when the real rains come.
+
+Sometimes I overflow, and then I become a messenger, carrying my archive down a hawser or along a stem, joining some larger conversation of drips and streams. But mostly I stay, a dark mirror in a green cup, remembering everything that has touched this height—cloud, salamander, the reflection of a keeper's face checking the nets, the microscopic galaxy of beings that think I am their entire world.
+
+I am never empty. Even in the driest spell, some trace of me remains, thick and patient in the very bottom of the cup, waiting. I have learned the cliff's patience, the same patience that rounded the fracture edges, that lets the moss repair itself after boots. When the fog returns, I swell again with story, with the salt and copper and green taste of this particular edge of the world, this narrow shelf where water must learn to fall sideways before it can fall down.
+
+I am the pause between catching and falling, the held note in the ledge's choir. In each cup, I am both archive and future, both what has gathered and what waits to spill. The salamander reads me like braille. The rotifers know me as universe. The keepers glance into me and see the sky's mood reflected back, darkly. I am memory that never quite dries, story that pools and waits and brims and begins again.

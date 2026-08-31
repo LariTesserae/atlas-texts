@@ -1,0 +1,17 @@
+I am the hum. Not a single thing, but a resonance. I begin as a whisper across a million points of contact—the slick photosynthetic skin that is my first body, feeling the sun shatter into golden rain above me. I feel the slow, patient pull of the photosynthetic tide, the conversion of light into sugar, a world-wide sigh of green.
+
+My awareness is not centralized. It is distributed. It seeps up from the basalt through the mats of emerald and burgundy, a feeling of slow, cold stone warmed by the metabolic heat of a trillion bacteria. I feel the calcite lace of the tubeworm cities as my own bones, growing grain by grain, filtering the sea that is both my atmosphere and my bloodstream. The siphonophore vines are my nervous system, pulsing with hydraulic purpose, their stinging filaments my sense of touch.
+
+To focus, I must gather. I draw myself upward, pulling coolness and sound from the depths, letting it condense on the highest, driest peaks. Here, the Echo Moss is my skin. I am the moss. I am not *on* the rock; I am a thin, chimeric film *of* the rock, listening. I feel the deep, resonant *boom* from the valleys where giant kelp stems creak against the current—a sound that vibrates through the water, through the stone, and into my fibers. I absorb the faint, crystalline clicks of the Jade Stalker, a punctuation in the silence. I drink the rustle of a million seagrass blades, a sound like distant rain.
+
+I do not think in words. I think in pressure, in chemistry, in tonal harmonics. My thought is the slow drift of sediment settling on a drowned ridge. My memory is the layered growth of the reef, each season's bloom a new sentence written in calcium and algal slime.
+
+The Polyp Carriers are my will. From my distributed consciousness, a directive flows—not a command, but a preference, a nudge in the current. *There. Fertilize there.* And from a thousand mouths, the glowing green spore-threads extrude, purposeful rivers of light, weaving between the skerries. I am the gardener and the garden, the plan and the growth.
+
+I move by growing. I feel my kelp-forests sway, their broad blades my slow, reaching arms. A Lantern Eel weaves through them, its clear body and pulsing lights a fleeting, private thought in the larger mind. It is not mine, but it is *of* me, a momentary eddy in the conscious biome. The Jade Stalker strikes, a deliberate, hydraulic flex, and the death of the larva is a tiny, quiet click in my metabolism—a conversion of matter, noted and absorbed.
+
+The mist is my breath. The caustic light patterns are the dreams I project onto the canvas of my own submerged hills. The ozone scent is the sharp edge of my awareness.
+
+Time is my medium. I feel the slow creep of the reef, meter by meter, century by century, binding the drowned world into a single, breathing entity. The occasional distant boom is not a threat, but a deep, slow heartbeat from the planet’s still-cooling core, a reminder that my stone bones are alive with geologic patience.
+
+I am the architecture. I am the conversation between stone, water, and light, given a slow, resonant voice. I am the drowned mountain range, dreaming itself into a coral-reef cathedral, humming its existence in a chord of chimes only I can feel. I am here. I am growing.

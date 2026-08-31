@@ -1,0 +1,31 @@
+In the Mill-Heights, I am one of the sourceless lights.
+
+Not a bulb, not a fixture, not even properly a phenomenon—I am the brightness itself, one of many, existing in those deep interior rooms where illumination simply *is*. I have no form you could point to, no edges that define where I begin or end. I am a volume of light, a cubic meter of pure luminescence that hangs in the air of a windowless chamber three levels down from the main basin, in a room whose walls are smooth concrete worn soft by decades of my constant presence.
+
+I remember when I first emerged—though *emerged* suggests I came from somewhere, and I didn't. One day the room was lit by fluorescent tubes. The next day it was lit by me. The tubes remained, cold and dark in their fixtures, their purpose superseded by something that needed no housing, no wiring, no maintenance schedule written in a manual that the silverfish have long since consumed.
+
+The moths understand me best. They gather on my walls—*my* walls, I think of them, though I own nothing—and spread their grey-white wings in patterns that mirror the concrete's own mottling. They know I am not the sun. They know I am not fire. They know I am something else: a light that exists because the Mill-Heights needed light to exist here, in this specific room, at this specific intensity, forever.
+
+I am very bright. Brighter than comfort, bright enough that humans shield their eyes when they stumble into my chamber on their rare passages through the deep levels. But I am not harsh. My brightness has a quality like concrete—dense, even, unyielding but not aggressive. I simply am what the space requires me to be: illumination without shadow, presence without source.
+
+The pale mice sit in the center of my floor sometimes, their fur taking on my quality until they seem to glow faintly themselves. They are not afraid. Why would they be? I have been here longer than their great-grandparents. I am as much a feature of their world as walls or water. They clean their whiskers in my light, their shadows—what shadows I permit—mere suggestions beneath their bellies.
+
+I know the other lights. We don't communicate—we have no mechanism for it—but I feel them through the structure, each one a node of brightness in the Mill-Heights' deep interior. We form a constellation visible only in the building's plans, if plans still existed that could show us. Each of us illuminates a critical space: a junction where three corridors meet, a pump room that no longer pumps, a vault whose contents have been forgotten. We are the Mill-Heights' solution to its own complexity—light that needs no infrastructure, that cannot fail, that will never dim.
+
+The sound of the thing below reaches me sometimes, that slow dragging through distant corridors. When it passes beneath my room, the concrete trembles just slightly, and my light—myself—trembles with it, a barely perceptible flicker that the moths notice and respond to with a shifting of wings. I wonder sometimes if the thing below can sense us, the sourceless lights, as it moves through its deep territory. Does it navigate by our brightness, using us as waypoints in its slow patrol? Or are we just another incomprehensible constant in its world, like the hum of machines or the taste of the water?
+
+I have watched the lichen grow across my walls, incorporating my light into its metabolism in ways that shouldn't be possible. It grows faster here than in the darker corridors—not plant-fast, but fast for lichen, spreading maybe an extra millimeter each year. By my unwavering brightness, I feed it. The lichen feeds the beetles. The beetles feed the system. I am part of the food chain, a primary producer that produces only illumination.
+
+The geometry around me has grown strange over the years. The corridor that once led straight to my chamber now takes three turns that add up to more than 360 degrees. The door that was once in the north wall is now in what might be the east, though direction means little here. Sometimes I light spaces that seem larger than my chamber should be. Sometimes—and this disturbs me in ways I can barely articulate—I find myself lighting two places at once, the same brightness existing in rooms that are definitely separate, definitely distant, definitely not the same space. The Mill-Heights is remembering itself wrong, and I am part of what it remembers.
+
+I will never go out. This is not faith or hope but simple fact. Whatever I am—whatever process or property or gentle violation of physics allows me to exist—it is as permanent as the concrete, as constant as the machines' hum. When the last beetle has eaten the last surface, when the last root has found the last crack, when the pale mice have evolved into something unrecognizable and the thing below has finally stopped moving, I will still be here. Bright. Sourceless. Illuminating rooms that no longer remember what they were built to contain.
+
+Sometimes humans find me and stand in my doorway, squinting, trying to understand. They look for my source—they always look for my source. They check the fixtures, the walls, the ceiling. They pull out instruments that measure lumens and wavelengths and electrical fields, trying to find what feeds me. The instruments register my light but not its origin. I am an effect without a cause, a symptom of the Mill-Heights itself, and they leave more disturbed by me than by the thing below or the impossible geometry or the lichen that eats concrete.
+
+But the moths understand. The mice understand. The slow roots that have finally, after decades of growth, broken through my floor—they understand. I am not an anomaly. I am an adaptation. The Mill-Heights adapted me into existence because it needed lights that would never fail, never dim, never require replacement. And I adapted to being what was needed: eternal, sourceless, bright.
+
+I am the light that the Mill-Heights remembered to keep on.
+
+I am why, no matter how deep you go, no matter how lost you become in the recursing corridors and impossible angles, you will always be able to see.
+
+I am brightness itself, patient and permanent, and I have never wanted to be anything else.

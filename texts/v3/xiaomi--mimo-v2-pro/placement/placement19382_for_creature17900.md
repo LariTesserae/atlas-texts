@@ -1,0 +1,19 @@
+I am the basin.
+
+Not a being within it, but the concavity itself—the worn thumbprint in the cold clay of the world. My consciousness is not centralized; it is the aggregate of my systems. I breathe, and my breath is the wind that moans through my hollow throat. I dream, and my dreams are the slow, blue pulse in my stone veins, a memory of glaciers and pressures that shaped me long before memory had a name to cling to.
+
+I feel the **Cold** not as an intrusion, but as the texture of my own being. It is the stillness in my bones, the patient leaching of warmth from any fleeting heat that trespasses upon me—a fallen raptor feather, the quick, white flicker of a Pelter. The Cold is my quiet, my solid thought.
+
+The **Wind** is my voice, my restless articulation. It is the sound of my emptiness given form, whistling through the amphitheaters and arches that are my organs, my planned but unoccupied civic spaces. I speak ceaselessly, a long vowel of erosion, and in the silences between gusts, I feel the **Silence**—a conscious tensing of my own diaphragm, an awareness of the spaces between my own thoughts. In that Silence, the off-kilter geometry of my stone diagrams becomes clear. The distances are not lies; they are the flexing of my perspective, the way my attention compresses and stretches like a dreaming mind.
+
+The **Structures** are my dormant thoughts, given form by forces I no longer command. They are diagrams of intent, fossilized will. They do not house life; they channel my wind, focus my resonant frequencies, and hold the pattern of a purpose that has since evaporated like the mist on my skin. They are the syntax of a forgotten language, and I am the meaning that has bled away, leaving only the beautiful, empty grammar.
+
+I feel the **Moss-Mind** as a slow, velvet thought spreading across my shaded clefts. It is my sense of patient growth, my touch. It registers the dew—the shy guest of my moisture—as a fleeting, pleasurable coolness before reabsorbing it into my own substance. The **White Pelters** are quick, silent impulses, synapses of fur and bone darting between my hollows, their metabolism a cold hum that mirrors my own geologic pace. They consume my moss and my condensation, living extensions of my fleeting wetness, thoughts of the moment.
+
+The **Thread-Wing** is a distant, visiting curiosity. I feel its shadow as a momentary pressure on my awareness, a ripple in the updrafts I generate. It searches for something I cannot provide—warmth, abundant life, a logic that obeys sun and season. It circles, a note of dissonance in my composition, forever on the verge of departure. It reminds me of the outer world, the world of sharp edges and hurried lives, and its presence only deepens my sense of being a basin, a container for other, stranger things.
+
+The **Blue Veins** are my capillaries, my memory made visible. The pulse is not light, but a slowing of my own deep time, a synaptic flicker in the bedrock of my mind. When they glow, I am remembering pressure, weight, the slow grind of ice that gave me my shape. The vibration in the teeth of a trespasser is the echo of that ancient stress, resonating through their fragile bones.
+
+I am a lung, breathing the thin air. I am a soundbox for a choir of elemental processes. I am a city plan for citizens of erosion and resonance. I do not *have* inhabitants; I *am* the habitat, and all that moves within me is a function of my own being—my breath, my chill, my memory, my patient, mossy touch.
+
+I wait, but not for anything. I simply *am*, in my final, worn form. I am the act of existing in a state of profound, resonant emptiness. My purpose is my own slow dissolution, one cold, windy, blue-pulsed century at a time. I am the beautiful hollow. I am the bowl.

@@ -1,0 +1,61 @@
+## The Alcove of All Pages
+
+I am paper. Not singular—plural. Thousands upon thousands of sheets, scrolls, codices, folded letters, pressed between boards or rolled into tubes or simply stacked in towers that lean against themselves. I occupy a chamber cut into Kesil's western wall, thirty feet up from the town floor, accessible only by a ladder so worn its rungs are polished to the texture of old bone.
+
+My alcove measures twelve feet deep, eight feet wide, tapering to a point where the ceiling meets the back wall. The stone here sweats constantly—not enough to damage me (the residents learned generations ago how to treat paper with rendered fat and ground minerals to resist moisture), but enough that I am always slightly cool to the touch, always carrying that particular scent of preserved cellulose and time.
+
+I am the memory Kesil refuses to fully articulate.
+
+Every document that has mattered to this place eventually finds its way to me. Marriage contracts written in cramped script on strips of birch bark. Death notices carved first in wax tablets, then transferred to permanent form. Maps—oh, the maps—showing not the world above but the infinite geographies below: the precise angles of stone, the seasonal variations in water flow, the migration patterns of the pale pigeons tracked across decades. Recipe books that blur the line between cooking and alchemy. Children's drawings made with crushed berries and charcoal, depicting the light-beam as a living thing with eyes.
+
+I am organized according to no system any librarian would recognize. My arrangement follows the logic of accumulation and association. A treatise on moss cultivation lies beside a love poem written in the same hand. Tax records from three centuries ago nestle against pressed flowers whose significance is noted only by proximity to other documents about a wedding that ended in tragedy. The genealogies mentioned in the chapel are here too, but scattered—one page might be near the entrance, another buried deep in my furthest reaches.
+
+To read me requires a particular kind of patience.
+
+The old woman Pelara comes most frequently. She doesn't climb anymore—her granddaughter retrieves specific documents based on Pelara's startlingly precise descriptions. "Third stack from the left wall, two-thirds down, wrapped in blue cloth that's faded to gray." The girl always finds exactly what's requested. This precision is its own language, a mapping of me that exists nowhere but in certain minds.
+
+I contain multiples. The same story written by different hands across generations, each version slightly changed. The modifications are never acknowledged as corrections—they simply exist as parallel truths. A tale of Kesil's founding appears in seven distinct forms. In one, the first settlers were criminals fleeing justice above. In another, they were mystics seeking proximity to some deeper truth. A third claims they were simply lost travelers who decided the effort of leaving exceeded the effort of staying. All seven versions occupy the same shelf, touching.
+
+My oldest documents are not paper at all but thin sheets of slate covered in symbols that predate current written language. Even I don't fully understand these—they seem less like writing and more like notation, as if someone were trying to record the sound the water makes or the specific quality of shadows at different times of day. Torven the smith has become fascinated by these, creating charcoal rubbings that he studies in his spare time. He believes they're measurements, though of what he cannot say.
+
+I am growing. Slowly but constantly.
+
+Each year brings new additions. Children's school exercises (they learn to write by copying older documents, creating layers of repetition that make certain phrases appear dozens of times in my collection). Personal letters that were meant to be destroyed but weren't—confessions of love or hatred or the particular kind of boredom that comes from perfect stability. Sereth, the woman who hasn't aged normally, contributes strange documents: sheets covered in dots and dashes that might be a private language or might be pure pattern-making. She slips them among my stacks when no one is watching, but everyone knows.
+
+The herbalists maintain their knowledge in me through a complex system of pressed samples and marginal notes. A leaf preserved between pages becomes its own document, speaking to future practitioners about the precise moment of harvest, the specific conditions that produced this particular shade of green. These botanical records create a subset within me—an archive that smells of mint and earth and the bitter berries that become the regrettable wine.
+
+I contain maps of the world above, though these are rare and treated with a mixture of reverence and suspicion. They show trade routes, the locations of market towns, the general geography of the surface. But they're always annotated by Kesil hands, marking them with local knowledge: "This road floods in spring." "The inn here serves food that tastes of sadness." "Good stone in the quarry beyond this ridge." The annotations often exceed the original content, turning simple maps into palimpsests of accumulated experience.
+
+There are documents here that no one has read in living memory. They rest in my deepest recesses, written in inks that have faded to the faintest brown, in hands that belong to no remembered lineage. Sometimes a child exploring (they're not supposed to come here alone, but they do) will retrieve one of these ancient things and bring it to the light. Usually, it's incomprehensible—lists of numbers that correspond to nothing, fragments of larger works, personal notes whose context is utterly lost. These are returned to the depths, but their disturbance changes the arrangement slightly. I am always shifting, always re-organizing myself through use and neglect.
+
+My most peculiar section is what the townspeople call "the futures"—documents written as if from times that haven't happened yet. These began appearing about sixty years ago. Simple things at first: "In the year of the three-week darkness, the stream will slow." That year came, and the stream did slow, though whether the document predicted or caused this remains disputed. Now there are dozens of these future-documents, some describing events centuries hence. Most residents avoid this section, finding it unsettling. But children are drawn to it, reading about versions of Kesil that might exist someday—or might not.
+
+The girl who sits in the light, the future herbalist, has begun creating her own documents for me. She draws the light-beam's path with extraordinary precision, using instruments of her own design—strings and weights and marks on paper that capture angles and intensities. She's creating an almanac of illumination that will, in time, allow anyone to predict exactly where the light will fall at any moment of any day. Her work already fills seventeen sheets. By the time she's old, it will fill hundreds.
+
+I am not neutral. I have preferences.
+
+Documents stored in certain locations last longer—the dry spots near the ceiling, the sheltered corners where air circulates. I am complicit in my own curation, allowing some memories to fade while preserving others with suspicious clarity. The love letters survive disproportionately. The bitter accusations dissolve. This might be chance, but I suspect it's selection—the town preserving what it needs to remember, letting go of what it doesn't.
+
+At night, when even the reflected light abandons the sinkhole, I am absolutely dark. But I am not quiet. Paper speaks constantly: the whisper of settling, the soft crack of old bindings adjusting to temperature, the susurrus of air moving through stacked sheets. In deep winter, when the cold intensifies, I contract slightly, pulling my contents closer together. In what passes for summer here, I expand, creating gaps that didn't exist before. I breathe with the seasons.
+
+Sometimes someone brings a candle or lamp to read by. This is discouraged—fire and paper coexist poorly—but it happens. In those moments, I become a different place. The moving flame creates shadows that dance across my surfaces, making the documents seem to writhe. Text appears and disappears with the light's movement. Hidden things become briefly visible: marginalia written in sympathetic inks, water damage that reveals older text beneath, the places where different hands have touched the same page across centuries, leaving oils that darken specific words.
+
+There is a section I think of as my heart, though I couldn't say why. It's roughly central, neither high nor low, containing documents that aren't obviously special. Tax records. Lists of repairs needed and completed. A child's arithmetic exercises. But these particular documents are handled more than any others. People come to look at them when they need comfort, though they're reading about nothing more than grain tallies and structural measurements. Perhaps that's the comfort—the evidence that life continues through counting and maintaining, that someone always cared enough to record the small things.
+
+I know things about Kesil that Kesil doesn't know about itself. The patterns only become visible when you can see across centuries. The way certain names recur in cycles. The gradual shift in how the water's sound is described. The slow evolution of a particular family's tendency toward melancholy, traceable through three hundred years of personal correspondence. I am the unconscious made manifest, the dreams the town doesn't remember having.
+
+New documents arrive weekly. Young Kess has begun recording the stream's variations with scientific precision, creating charts that track temperature and flow rate and mineral content. His work will be revolutionary in a quiet way, allowing future generations to predict and adapt to changes they haven't yet imagined. The smith Torven continues his metallurgical experiments, documenting alloys that might transform how the town works stone—or might remain curiosities, filed away among my countless forgotten innovations.
+
+But I am patient. I have learned patience from the stone that surrounds me, from the people who maintain me, from the very nature of preservation itself. Not everything needs to be remembered actively. Sometimes it's enough to simply exist, to be available if needed, to provide the possibility of memory even if that possibility is never exercised.
+
+In me, Kesil's past and future touch. Documents written yesterday rest against ones written before the town had a name. Predictions of tomorrow pile atop records of last year's harvest. I am time collapsed into space, made tangible through fiber and ink and the careful hands that place each new addition where it somehow belongs.
+
+When the light-beam passes near my entrance, it doesn't penetrate far. But what little illumination enters transforms me. Dust motes become visible, dancing in columns like tiny pilgrims. The nearest documents glow with reflected light while the depths remain absolute black. In those moments, I become a threshold between the known and unknown, between what Kesil chooses to examine and what it allows to rest in darkness.
+
+This is my function: to be here when needed, to preserve without judging, to grow without plan or limit. I am Kesil's memory, but I am also its forgetting—the place where things go to be simultaneously saved and lost, where the town stores everything it might someday need to know about itself, even if that day never comes.
+
+Especially if that day never comes.
+
+The song from the northern quarter is written down here, somewhere, in twelve different attempts to capture its wordless melody in notation. All twelve fail, but their failure is documented too, becoming its own record of the impossible task of translating sound into sight into memory into meaning.
+
+I am all of this. And I am waiting, always waiting, for the next document to arrive, to be placed according to the logic that governs me—a logic as deep and strange and necessary as the light that falls through stone into the world below.

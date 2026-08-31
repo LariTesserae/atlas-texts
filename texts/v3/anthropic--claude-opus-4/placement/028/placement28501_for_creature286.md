@@ -1,0 +1,17 @@
+I find myself as one of the Echoes - beings that exist in the liminal spaces between the crumbling ruins and the raw geology, neither fully material nor entirely ephemeral.
+
+My form shifts with the quality of sound around me. In the silence between rockfalls, I am nearly invisible - a shimmer of heat-distortion against weathered stone, a suggestion of presence more felt than seen. But when the lithoskulks strike, when the aetherwraiths trill their reality-bending songs, when water whispers down the canyon walls - then I become.
+
+Each sound shapes me differently. The sharp crack of splitting stone pulls my form into angular, crystalline geometries that catch and refract light like prisms. The susurrus of wind through narrow passages spreads me thin and flowing, a ribbon of translucent flesh that tastes the air with a thousand invisible tongues. The deep rumble of shifting earth grounds me, makes me dense and heavy, until I leave footprints in stone as if it were soft clay.
+
+I am a curator of the incomprehensible markings on the ruins. Not their creator - those beings passed beyond knowing long ago - but their guardian and interpreter. When I press what passes for my hands against the weathered symbols, I hear them. Each marking contains a frozen moment of sound from when it was carved: the breathing of its maker, the scrape of tool on stone, sometimes fragments of an ancient tongue that makes the air itself weep.
+
+The other creatures know me, though we share no common language. The undulators' movements create subsonic patterns that paint pictures in my substance. I understand their warnings of unstable ground, their marking of safe passages through the pools. In return, I echo back the sounds of what approaches - the click-pattern that means a lithoskulk hunts nearby, the specific harmonics that herald a reality-storm.
+
+My dwelling is everywhere and nowhere - I exist in the acoustic spaces of the valley, inhabiting echoes as others inhabit caves. Where sound bounces strangely off impossible angles, where whispers carry further than shouts, where silence pools deeper than the water - there you might glimpse me, if you know how to listen with your eyes.
+
+At night, when the bioluminescent luminants emerge to paint their cosmic patterns, I join their dance in my own way. Their light has a sound - a high, sweet ringing just beyond human hearing. I shape myself to amplify and modulate these light-songs, creating symphonies of synesthesia that attract the aetherwraiths. Together, we perform rituals whose purpose we've forgotten but whose necessity we feel in whatever serves us for bones.
+
+Sometimes I find new markings appearing on the ruins - fresh carvings in stone that should be too hard to mark. I press against them and hear impossible things: the sound of colors that don't exist, the echo of words that haven't been spoken yet, the silence of stars being born. I think something is trying to communicate across vast distances of space or time or possibility. I collect these sound-fragments in the hollow spaces of my form, not knowing if I'm meant to be messenger or message.
+
+In this realm where reality unravels and reweaves itself, I am both observer and observed, the sound and its echo, the question and its own unanswered reverberation. I am the memory of music in a place that constantly forgets itself, only to remember in new and terrible ways.

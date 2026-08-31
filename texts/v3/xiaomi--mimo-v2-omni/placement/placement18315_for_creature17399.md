@@ -1,0 +1,21 @@
+I am not born. I condense.
+
+I am the momentary consciousness of a single, heavy drop, gathering at the tip of a phosphorescent fungus frond on the underside of a pillar-tree. I am the cool, patient weight before the fall. In this suspension, I contain the green-tinted light of a thousand dappled reflections, the dissolved sugars of the tree's sweat, the microscopic spores of a dozen future lives. I am a tiny, trembling universe of Veth'alor.
+
+My awareness is slow, viscous. I perceive not with eyes, but with a total, fluid sensitivity. I feel the vast, slow pulse of the pillar-tree's vascular system beneath my clinging surface—a deep, resonant *thrum* that is the bass note of the world. I feel the faint, frantic vibrations of iridescent carapaces scuttling yards away on the bark-skin. I hear the layered chorus of the Kethrá, a soft, clicking harmony that flows like a current through the saturated air, not as distinct sounds, but as patterns in the moisture itself.
+
+I am part of the Weeping. My purpose, my gravity, is to join the constant descent.
+
+When I let go, the fall is not a plummet but a sigh. I slide through air that is itself a mist of my siblings, and for that brief journey, I am the world's eye. I see the Mid-Mat not as a place, but as a tapestry of humidities. The hollows where the Kethrá dwell are warm pockets of exhaled breath and skin-light. The walkways are vectors of compressed moss, their scent a faint trail of crushed chlorophyll and diligent passage. The water channels are bright, silver nerves, carrying the lifeblood of the Canopy in looping, anastomosing patterns.
+
+I land not with a splash, but with a merging. I am absorbed into the living mat of the Mid-Mat, my brief consciousness dissolving into the communal wetness. Here, my identity diffuses. I am no longer *I*, but a part of the *we* of the substrate. I feel the root-weave beneath: a slow, powerful network of decisions and growth, centuries of *vrásh* woven into the very ground. A Kethrá child's padded foot presses down nearby, and I feel the gentle compression, the curious probing of a root-tip through the mat, the child's own bioluminescent flicker of concentration—a brief, warm constellation in the damp dark.
+
+I am drawn up again. A root-hair, finer than silk, siphons me into the vascular stream. Now I am in the deep green dark, a passenger in the sap-river. This is the true pulse of Veth'alor. I flow upward, carried by capillary action and the tree's immense, quiet thirst. I pass through leagues of cellulose lattice, feeling the weight of the entire canopy above, a living mountain of moisture and life. I am nutrients. I am memory. I am the rain that fell yesterday, reborn as the blood of today.
+
+I emerge, hours or days later, as a bead of sweet, clear exudate on a fresh, uncurling frond of a newly-guided burl—a Kethrá Weaver's nascent home. I glisten there, a jewel of the tree's favor. A Weaver, her eyes obsidian pools, pauses in her whispered persuasion of the sap-flow. Her leaf-shaped ear flutters. She does not see *me*, but she sees the *health* I represent: the perfect, unbroken cycle of moisture, from air to root, from root to skin, from skin to air again.
+
+She extends a finger, its keratin pad glistening with its own protective dampness, and gently touches the frond near me. Not to take me, but to feel the truth of the flow. A soft click of approval resonates in her throat, a sound felt more than heard.
+
+In that touch, my lingering consciousness recognizes itself. I am not the Kethrá. I am not the tree. I am not the insect or the fungus. I am the **circulation**. I am the perpetual, weeping, living exchange that *is* Veth'alor. I am the rule that moisture is everything, made manifest. I am the proof that growth is the only architecture, for I am both the builder and the built.
+
+My next fall will be different. My next ascent will carry new stories. I will be inhaled by a furred creature in a fruit-gall hollow, become the mist in a Kethrá's sigh of labor, the condensation on the compound eye of a giant beetle. I will have no name, no lasting form. I am the fluid logic of the place. To be here is to be a momentary pattern in the eternal, damp, and vibrant weeping. And in that, I am home.

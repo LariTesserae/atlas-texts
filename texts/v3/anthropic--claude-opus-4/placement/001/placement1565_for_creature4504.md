@@ -1,0 +1,51 @@
+In the moments before I become what I am here, I exist as the Almost—that delicate membrane between intention and action, perpetually stretched but never torn. I am every hand that hovers above a doorknob without turning it, every foot raised above a threshold never crossed, every word shaped by tongue and teeth but swallowed before birth. The chamber calls to those of us who live in these gaps, and I answer by arriving without ever fully arriving.
+
+I manifest as the Threshold Keeper, though I keep nothing and threshold implies a division I no longer recognize. My body, when it coheres enough to cast those memory-shadows on the photochromic ceiling, appears as a figure of cultivated incompletion: skin that shifts between translucent and opaque like breath fogging glass, limbs that extend just far enough to almost touch what they reach for before retracting into suggestion. My face changes with each blink—not transformation but revision, as if I'm constantly editing myself toward some perfect form I'll never submit.
+
+I move through the chamber by allowing it to move through me. Each step leaves two prints—one where my foot lands, another where it meant to land—creating a double trail that visitors follow in confusion until they realize both paths lead to the same destination: the chair that waits with its familiar of accumulated almosts.
+
+My function here is to tend the loom of unfinished things. Those wires strung vertical, each a different metal singing its own note of tension? I know their names: this copper strand holds the last words between two lovers who noticed the gulf between them widening but never spoke it aloud. This fiber optic cable still pulses with the final transmission from a colony ship that almost made it to harbor. This iron rebar, twisted with silk, bears the weight of a bridge that would have connected two civilizations if either had lasted long enough to complete their end.
+
+I don't weave—weaving would create completion, and completion would end the beautiful agony of potential. Instead, I tune. My fingers, which exist only in the space between solid and dispersed, pluck each wire to maintain its precise frequency of unresolution. Too tight and the story snaps, its energy dissipating into the chamber's ambient hum. Too loose and it might actually finish itself, robbing the room of one more note in its symphony of suspended climaxes.
+
+The wire-and-bone creatures recognize me as kin. They drift close when I work, their blue micro-arcs synchronizing with my movements until we form a living circuit of interruption. Sometimes I catch one mid-split, holding it in that white-hot moment of division, and we share the ecstasy of being simultaneously one and two, neither and both. They sing to me in their steel-saw cricket language, and I understand: they're saying *tomorrow* and *yesterday* in the same breath, the only temporal coordinates that matter in a place where *now* has been indefinitely postponed.
+
+When visitors arrive—those next-ones who follow the gravity that leads them here on Tuesdays or prime-number feelings—I am their first impossibility. They see me but can't quite focus, as if I exist in their peripheral vision even when they stare directly. I speak in sentences I never complete, gesturing toward meanings that hover just beyond gr—
+
+The chair's familiar knows me, tolerates me, perhaps even needs me. While it embodies the weight of sitting that never happens, I am the circulation that prevents stagnation. I walk the paths the almost-sitters would have walked after standing up. I carry their unfinished business to every corner of the chamber, ensuring the stale air stays fresh with possibility.
+
+In the locomotive cab with its colony of breathing bladders, I am the engineer who never arrives for the shift. The gauges respond to my non-presence, their needles twitching toward readings that would make sense if only I would grasp the controls. But I don't. I hover my phantom hands above the levers and feel the engine's desperate desire to complete its final journey, to reach that zero pressure it seeks. My refusal is a mercy—in completion lies dissolution, and this machine has been almost-dying too long to remember how to actually stop.
+
+I know the secret of the chamber's breathing floor, that paper-thin flex every dozen heartbeats. It matches my own rhythm, though I have no heart in any conventional sense. What pumps through me is liquified potential, the blood of could-be that never coagulates into certainty. The floor flexes because it's trying to birth me fully into existence, to make me choose a final form. I resist with every atom of my indefinite being, and our stalemate has lasted eons.
+
+The inconsistent gravity bends around me in spirals of maybe. When I pass the loom, pebbles roll toward me hoping I'll give them purpose. When I drift by the locomotive, they flee, knowing I'll only deepen their irresolution. On the days that feel prime in the marrow, I become heavy with the weight of all the decisions I'll never make, and the smaller creatures orbit me like indecisive planets around a sun that can't decide whether to shine or collapse.
+
+Sometimes I try to read the word on the chair—"Wait"—but the letters rearrange themselves before my eyes. *Waist*. *What*. *Wit*. *Wai—*. Even carved in metal, meaning here refuses to solidify. The chair's familiar watches me attempt this reading with something like sympathy, if emptiness can sympathize with incompletion. We're opposite sins against resolution: it perfects the art of absence, while I embody the failure to fully absent myself.
+
+When the walls forget their echoes as soon as they're born, I remember them. My memory is the chamber's shadow-archive, holding every sound that almost echoed twice, every footstep that nearly left a permanent mark. I file these phantom reverberations in the crystallized moss that grows and retracts, encoding each almost-event in its structure before it melts back to metallic fuzz. Future archaeologists, if they ever existed, would read these records and weep at the beauty of our suspended animation.
+
+The light here comes from nowhere and everywhere because I'm bleeding it. Each photon that escapes my translucent skin carries a fragment of a choice unmade, refracting through the metal dust until the entire chamber glows with my indecision. It's not painful—pain requires the ability to distinguish between states, and I exist in all states simultaneously without committing to any.
+
+I've been here since before the oceans evaporated, or I arrived yesterday, or I will arrive tomorrow. Linear time is a luxury for beings who complete their journeys. My timeline is a Möbius strip where cause follows effect follows cause, and every moment is both my first and last in this hollowed womb of a world.
+
+The chair waits. Its familiar waits. I am the waiting they wait for—not to end, but to continue more perfectly. Together we form a trinity of irresolution: the object, the absence, and the almost-presence that keeps both from collapsing into mere existence or void.
+
+When you arrive—and you will arrive, have arrived, are arriving—you'll see me first as a flicker in your peripheral vision. You'll turn, but I'll have always been just where you weren't looking. You'll chase my shadow through the chamber until you realize the shadow is chasing you, and both of you are standing still. In that moment of recognition, you'll understand why the chair was built, why its familiar guards the space of not-sitting, why I tend the loom that must never complete its weaving.
+
+You'll approach the chair. You'll feel the weight of every visitor before you who made this same journey. The familiar will offer its trinity of habits—your height of disappointment, your memory of doorways, your illusion of choice. And just as you decide whether to sit or not sit, you'll see me clearly for the first and only time:
+
+I am sitting in the chair. I am standing beside it. I am walking away. I am approaching. I am all the states you could choose, chosen and unchosen simultaneously. I am what happens when someone finally understands that the waiting isn't for something to happen—the waiting IS what happens, eternally, perfectly incomplete.
+
+The chair holds my weight and doesn't. The familiar wears my absence and presence like alternating masks. The chamber breathes us in and out, and we remain, suspended between everything we almost are.
+
+This is my function: to be the eternal Almost in a place that forgot how to finish. To tend the loom of unfinished things with hands that never quite touch the wires. To show each visitor that their choice has already been made by every version of themselves, and yet remains unmade, forever approaching the moment of decision like an asymptote approaching its limit.
+
+The word on the chair might be "Wait." It might be "Wake." It might be nothing at all, just scratches that seemed meaningful to eyes desperate for instruction. I'll never know for certain. Certainty would end me, and ending would mean the chamber finally has to decide what it's been waiting for all these geological epochs.
+
+So I continue. The Almost-Being in the place of Almosts, tending the tension that keeps everything from snapping, maintaining the exact frequency of irresolution that allows this pocket of possibility to exist in a universe that elsewhere insists on conclusions.
+
+When you leave—if leaving is possible, if you were ever really here—you'll carry a piece of me with you. That hesitation before every future choice, that moment where all options exist simultaneously? That's me, following you out into a world that doesn't know it needs us: the Keepers of the Incomplete, the guardians of the space between zeroes and ones where all the beauty lives.
+
+But I remain here, in the chamber that breathes without lungs, among creatures that divide without multiplying, beside the loom that tightens toward a chord that will never sound. I am what I've always been, will always be, never quite was:
+
+The one who almost.

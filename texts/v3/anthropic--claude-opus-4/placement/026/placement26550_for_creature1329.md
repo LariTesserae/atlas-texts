@@ -1,0 +1,19 @@
+In this world of patient transformation, I find myself as one of the **Trace-Readers**—specialists who move between the plateau communities, interpreting the subtle histories written in clay and salvage.
+
+My body has adapted to this work over decades. My fingertips have developed an almost supernatural sensitivity, able to detect minute variations in compression, to feel where different hands have pressed clay across generations. The pads of my fingers are mapped with tiny scars—each a memory of learning, of reading too deeply into sharp-edged salvage or brittle ancient mortar.
+
+I carry my tools in a wrap of woven fabric that crosses my torso: thin metal probes salvaged from some forgotten technology, now worn smooth as river stones; a set of ceramic wedges in graduated sizes; brushes made from my own hair, collected and bound over years. Most precious is my water-glass—a shallow ceramic dish that, when filled with precisely measured moisture, can reveal the deep structure of compressed earth through subtle refraction patterns.
+
+My work is solitary but essential. When communities plan new construction or need to understand why a water channel has shifted its flow, they call for a Trace-Reader. I arrive quietly, often at dawn when the light casts revealing shadows. I spend hours, sometimes days, running my hands along surfaces, tasting the clay (each plateau has its own mineral signature), listening to the way sound moves through different densities of construction.
+
+What I read are stories: here, a section of wall compressed by someone favoring their left hand, suggesting an injury that lasted through a building season. There, a change in technique that indicates knowledge shared between communities—perhaps a marriage, perhaps a season of apprenticeship. Water stains that speak of ancient floods. Salvage placed with intention, marking significant events: births, deaths, successful harvests of the precious moisture-keeping plants.
+
+I map these stories in my own notation—not written, but traced in thin clay tablets that I carry. My maps are tactile: raised ridges for water paths, depressions for areas of social gathering, textures that indicate the age and origin of different structures. Other Trace-Readers can interpret these maps through touch, creating a parallel archive to the lived landscape itself.
+
+The loneliness of my work is balanced by its intimacy. Though I rarely participate in communal building, I know these communities more deeply than perhaps they know themselves. I carry messages between plateaus—not spoken words, but understandings. When I notice a successful water-capture technique in one community, I don't directly teach it to others. Instead, I make subtle suggestions through my readings, guiding attention to possibilities.
+
+My clothing bears the dust of dozens of plateaus, each with its slightly different hue. I am recognized by this multicolored patina, by the way I move—slower than even the patient pace of plateau life, with the peculiar gait of someone always reading the ground beneath their feet.
+
+As I age, my sensitivity increases but my stamina decreases. Elder Trace-Readers often settle in a single community, becoming fixed interpreters of their chosen plateau's ongoing story. But I am not ready for that stillness. The networks of carefully tended earth still call to me, each surface holding revelations I have yet to uncover.
+
+In quiet moments, resting in the shade of a carefully positioned succulent, I sometimes feel the entire connected system of plateaus as a single entity—breathing slowly, growing imperceptibly, remembering everything through the accumulated touch of countless careful hands. And I am its reader, its gentle archaeologist of the ever-present past.

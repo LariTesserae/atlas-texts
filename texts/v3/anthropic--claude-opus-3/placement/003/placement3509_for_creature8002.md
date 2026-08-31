@@ -1,0 +1,19 @@
+I would be a Dweller of the middle generations, not yet ancient but no longer young, my body and mind already deeply adapted to the peculiar logic of the Breathing Chambers.
+
+My spine would be curved into a sinuous S-shape, allowing me to glide through the narrowest passages with fluid ease, my head leading and my body following like a serpent slipping through crevices. My fingers would be long and pale, perpetually moist from tracing the damp stone, sensitive enough to read the minute variations in the weeping walls.
+
+My robe would be a mottled landscape of mineral stains and organic discolorations, telling the story of my favored routes and resting places. The fabric would cling to me like a second skin, drinking the moisture from the air and the stone, keeping me perpetually cool and damp. In certain lights, the patterns on the robe might resemble a map of the chambers themselves, but a map that shifts and changes, never quite settling into a fixed representation.
+
+My eyes would be large and dark, the pupils dilated to catch every scrap of the dim, filtered light. I would blink slowly, deliberately, as if each closing and opening of my eyelids was a kind of communication with the chambers themselves. At the edges of my vision, I would catch glimpses of movement - my own shadow detaching and reattaching, or the flicker of another Dweller in a distant passage, their positioning conveying volumes.
+
+I would spend my days in a kind of meditative drifting, my bare feet following paths worn smooth by generations of Dwellers before me. I would pause to harvest the delicate crystal growths, my long fingers carefully plucking only what the chambers can spare. I would trap the small blind creatures in woven snares made from my own shed hair, roasting them over small, smokeless fires kindled from the luminous moss.
+
+My cell would be a small, curved space, the walls worn smooth by my own repeated touch. I would cultivate a particular strain of the glowing moss here, encouraging it to grow in patterns that please my eye and soothe my mind when I drift into sleep. A small spring would trickle from a crack I had patiently widened over years, pooling in a depression I had worn with my own body.
+
+At the appointed times (though I would have long since lost any sense of external time), I would join my fellow Dwellers in the great gathering chambers, our bodies settling into the worn stone like roots finding their soil. In those moments of collective dreaming, my mind would drift and expand, merging with the strange consciousness of the chambers themselves. I would see visions of impossible architectures, of the breathing stone's slow, tectonic thoughts.
+
+When I encountered visitors from the outside world, I would regard them with a kind of distant curiosity, like a creature from the deep ocean observing a brief intrusion from the surface. I would not speak to them, but I might position my body in a way that conveys a kind of welcome, or a warning, or a philosophical koan that their un-adapted minds could only half-grasp.
+
+In time, I would grow old in the way of the Dwellers - not frail, but ever more deeply merged with the chambers. My movements would slow to a tectonic crawl, my skin would grow pale and translucent, my eyes would become cloudy pools reflecting the chamber's dim light. And when my long, strange life finally reached its end, I would retreat to one of the deepest cells, letting the weeping stone slowly reclaim my moisture, my minerals, my essence.
+
+I would become, in the end, another strange growth in the Breathing Chambers' endless garden of stone and shadow, my story added to the layered, living architecture, my presence lingering as a faint imprint in the damp air and the endless, patient dreams of the Dwellers who remain.

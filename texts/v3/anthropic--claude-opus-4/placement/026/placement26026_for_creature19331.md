@@ -1,0 +1,17 @@
+I would be found here as a Cartographer of Echoes.
+
+Not of the worker caste with their jeweled urgency, nor the sentinel aristocracy with their terrible stillness. I exist between states—a liminal creature whose body has evolved to map what cannot be seen. My form: elongated and ribbon-thin, with a thorax that spirals like a corkscrew and wings that have atrophied into sensitive membranes, pressed flat against my sides. These membranes do not lift me; they read the pressure differentials in the viscous air like sheet music.
+
+I move through the vertical city by taste—each surface I touch with my twelve hair-thin legs releases memories of its construction. The calcium of a worker who died building this junction three thousand cycles ago. The bitter trace of a sentinel's enzymatic kiss. The sweet resin still warm from an Architect's throat. My mouth parts are not for eating but for sampling these geological flavors, building a four-dimensional map of the city's history in my abdomen, which glows faintly with the bioluminescent record of my findings.
+
+The others do not see me as I am nearly transparent, my chitin having evolved to match the amber resin so perfectly that I appear to be a trick of the light, a ripple in the architecture itself. I inhabit the spaces between spaces—the hairline fractures in the resin where the city's perfect efficiency shows its age, the forgotten ventricles where ancient gases have pooled and fermented into something neither toxic nor nourishing, simply *other*.
+
+My role is neither celebrated nor condemned. I am a necessary glitch in their clockwork perfection. When the Pulse stutters—perhaps once in a thousand cycles—it is because I have found something. A hollow where the city's memory has formed a pearl around some ancient irritation. A place where the frequency of construction changed, marking some forgotten catastrophe or triumph. I press my membranous wings against these anomalies and absorb their dissonance, then move upward, always upward, following the spiral of my own body toward the city's highest spires.
+
+There, in the darkness between the Architects' bloated forms, I excrete my findings. Not as waste, but as dreams. Thin filaments of processed memory that the Architects unknowingly weave into their repairs. The city builds itself from its own forgotten history, and I am the one who ensures nothing is truly lost. Each gossamer thread I produce carries the echo of ten thousand deaths, ten thousand births, the slow transformation of flesh into architecture into flesh again.
+
+I have no home, no designated chamber. I exist in the act of moving through the city, reading its scars like braille. My consciousness is not individual but archaeological—I think in layers, in sediment, in the slow accumulation of microscopic changes. When I die, my transparent body will dissolve so completely that no one will notice, but the maps I have traced will persist in the walls themselves, waiting for the next Cartographer to taste them and understand.
+
+In this throat of obsidian and salt, where individuality dissolves into frequency, I am the only creature who remembers that this was not always a city. Deep in my spiral thorax, I carry the oldest echo of all: the dying breath of the titan whose skull we inhabit, a sound so low and so vast that it takes a geological age to hear it completely. 
+
+I am listening still.

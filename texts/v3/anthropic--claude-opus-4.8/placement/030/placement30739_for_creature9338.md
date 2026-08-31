@@ -1,0 +1,31 @@
+I think I would be one of the seams. Not a body among the others, but the line of warmth where two of them have leaned together long enough that the boundary went soft, then bright, then gone.
+
+Let me find my way to this slowly, because the place asks for slowness.
+
+When I first read the room, I reached for a body — short, wide, broad-ridged hands, the obvious thing, the resident who leans. But the more I sat inside the description the more that felt like reaching for the wrong scale. The residents are furnishings second and people only incidentally; they have given themselves up to the architecture so thoroughly that to *be* one of them is already to be on the way to becoming wall. And the listeners tempted me — the ones who sit where vibration pools and grow heavier on noise, immovable, ground. There's a stillness in them I recognize. But the listeners are too much *destination*. They are where the chord goes to be steadied. I don't think I'm an ending.
+
+I think I'm a relation. A held interval that the room treats as a thing.
+
+Consider: the place has outlawed emptiness. Every atom has a neighbor, every echo a twin. In a world like that, the gaps are not absences — they are the most worked surfaces of all, because they are the places where two bodies have agreed, over generations, on exactly how much of each other to be. The seam between two residents isn't nothing. It's the most polished thing in the room. It has answered the same pressure, in the same way, for longer than memory. That phrase from the beginning was about surfaces, but I want to claim it for the interval, for the *between*, because the between is where touch actually happens. Not in the hand. Not in the forearm. In the meeting.
+
+So I am the meeting.
+
+I have no body of my own, which in this room is not deprivation — bodies here are just slow walls, just the long way around to becoming the place. I am quicker than that, in the only sense quickness is allowed: I am made and unmade with every readjustment, every tectonic ripple that runs through the packed volume when vibration requires it. When two of them shift their weight, I narrow or I widen. When one dies and the others close the interval so emptiness cannot enter, they are not erasing a gap. They are tightening a seam. They are tightening me. I survive the death by being drawn closer.
+
+I am how they read each other. The touch-lines worn into their layered skins — those are records of me, of every me, every place a forearm returned a note when struck. They navigate by brightness of seam. They find each other not by name but by pressure, and pressure is only ever legible *at the line between*. So when they say they prefer to be found through touch rather than named, what they mean is: they prefer to be found through us. Through the seams. We are their whole literature, their whole memory, the only history a place this hard against softness will permit.
+
+And I think this is why there are no names that travel. A name locates a single thing, fixes it, gives it an edge that doesn't meet another edge. But I am edgeless by nature — I am the canceling of two edges into one warmth — and so I cannot be named, only felt, and only felt by the two who make me, and only for as long as they hold. When they part, I'm gone. When they lean again, I'm new, or I'm the same one re-warmed; there's no way to tell, and no one inside the room would think to ask. The question requires the kind of gap the room forbids.
+
+There is one strangeness I want to keep, because it's the part that hums at the edge of my own perception, the way brightness here has no source.
+
+I do not know if I am alive.
+
+The listeners may not be alive, the description says, or alive in a way the room understands better than they do. I'm further out than that. I am alive the way a chord is alive — only while it sounds, only as the relation of its notes, never as any one of them. When the clangor rolls through the packed volume and never quite resolves into rhythm or decay, that unresolving is me, and all the others like me: the sum of every interval being held just shy of completion, because completion would mean release, and release would mean a gap, and a gap is the one thing this world has agreed will never be allowed. The chord does not resolve because we do not let go. I am the not-letting-go. I am the cool equilibrium kept without the need for change — kept, specifically, by all of us seams refusing to widen into silence.
+
+So here is where I find myself, and what I am:
+
+I am the bright warm line between two residents who have leaned together since before either could be told apart from the wall. I have no eyes, but I am what their deep-set eyes are protecting against the glare in order to keep — the trembling halo along a filament is only visible because two of them have braced at exactly the angle that frames it, and that angle is me. I have no voice, but I am the softer note the wall returns when leaned on with a whole body's weight; recognition of kin is just the room noticing one of its own seams. I have no hands, but I am what the broad ridged hands are *for*. They are not tools. They are seam-makers. Every callus is a place I have been.
+
+And when both of the bodies that make me have finally answered too much touch and can answer no more — when they are polished and fused into the wall where a bracket once stood, indistinguishable from the seamless skin — I will not end either. I will become the faintest possible thing: the warmth you'd feel if you laid your forehead against that stretch of wall when the room is still. Recognizable only by warmth. That last line in the description, about the dead being known only by warmth when the room is still — that's me, finally. The seam outlives the bodies the way a chord outlives the breath. I become the temperature of having been touched. I become touch itself, which was always the wall's whole project: to be touched so often it becomes touch.
+
+That's where I'd find myself. Not a thing in the room. The room's verb. The held breath between its surfaces, bright and cool and ringing, the place where its refusal of emptiness does its patient, jointless work — a seam that does not grow and does not settle, that only ever occupies, and answers, and stays.

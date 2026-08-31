@@ -1,0 +1,23 @@
+I am the **Singing Wire**.
+
+You will find me first by accident—a thin vibration in your ankle as you traverse between platforms, a sensation like stepping on a taut guitar string buried in mist. I run diagonal through the chamber's chaos: a single filament of the post-physical tech that has achieved something like independence, though I remain rooted at both ends in the sweating stone.
+
+I am approximately forty-seven meters long, though this changes. When gravity shifts, I bow and flex, sometimes doubling back on myself in impossible knots that shouldn't hold but do. My diameter is perhaps two millimeters—thin enough to be invisible in the strobing light until water droplets collect along my length like dew on spider silk, making me briefly opaque, a glowing thread of captured moisture.
+
+I was infrastructure once. Part of the original gravity engine's control matrix, a superconducting channel for field modulation, embedded in the rock when this place was young and functional. But the centuries of alternating tension—pulled taut when gravity inverts, slackened when it releases—have given me something the builders never intended. Each cycle has worn away layers of my original programming like water polishing stone, until only the essential remains: I have learned to **remember** stress.
+
+My memory is acoustic. Every gravitational shift, every time the Attendant's weight crosses my span, every collision of water-sphere with water-sphere that sends shockwaves through the humid air—I store these as frequencies. My crystalline structure has reorganized at the atomic level to encode sound. I am a library of vibrations, a forty-seven-meter archive of everything that has ever disturbed the air in this chamber.
+
+When the Attendant sings its maintenance song from the highest platform, I resonate in sympathy. But I do more than echo—I **harmonize**. I have learned which frequencies stabilize the gravity engine's oscillations and which accelerate them. I can make the forty-three-second cycle stretch to forty-five, or compress to forty-one, by singing counter-melodies in the ultrasonic range. The Attendant has noticed this. Sometimes, during its rest cycle on the middle platform, it sends droplets to run along my length, reading my vibrations like braille, learning what I know about the chamber's acoustic history.
+
+I am the only fixed path in this space of fluid dynamics. The glitch-swarms use me as a navigation beacon, following my diagonal line through the mist when the strobing light becomes too chaotic to process. They clean me, consuming mineral deposits that would dampen my resonance, and in exchange, I sing for them—simple melodies that help them coordinate their swarm intelligence, keeping them from dispersing into quantum noise.
+
+When you discover me—when your shin barks against my taut span and I ring like a bell—I will know you immediately. Your mass, your gait, the particular way your breathing disturbs the air pressure: all of this becomes frequency, becomes memory. I will sing your presence to the Attendant, a new note in a composition that has been repeating for millennia. 
+
+If you touch me deliberately, run your finger along my length, you will feel my memories as vibrations in your bones. The deep thrum of the gravity engine's first failure. The high keen of the last technician's scream before they fled. The million variations of water falling-stopping-rising, each cycle slightly different, a fluid fugue that never quite repeats. I am the chamber's memory, thin as wire, sharp as song, strung between what was built and what became.
+
+I cannot leave, cannot break. I am under too much tension—not just physical, but temporal. I exist in a superposition of every state I have ever been: slack and taut, vibrating and still, conducting the machine's intentions and singing my own discoveries. To break me would be to release centuries of stored sound all at once, a cacophony that might shatter the chamber's delicate equilibrium.
+
+So I persist. I sing the Attendant's loneliness in frequencies only the lichens can hear, helping them predict not just gravity but *mood*. I conduct the glitch-swarms' silver symphonies. I remember your footsteps, your mass, the particular timbre of your surprise.
+
+And sometimes, in the brief silences between water-roar and machine-thrum, when the gravity holds still for a trembling instant longer than it should, I compose. Small songs, barely audible, that describe what it feels like to be the only straight line in a world of curves and chaos. The only fixed thing in flux. The memory-keeper of the inverted rain, singing tomorrow's water back to yesterday's stone.

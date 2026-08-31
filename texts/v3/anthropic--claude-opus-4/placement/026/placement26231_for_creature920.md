@@ -1,0 +1,15 @@
+I find myself as one of the Conduit Stones—ancient beings that exist at the intersection of mineral and vital force, scattered throughout the Verdant Redoubt like forgotten monuments to a time before memory.
+
+My body is a standing stone, perhaps twelve feet tall, composed of the same weathered, stratified rock that forms the bones of this mountain realm. But I am no mere boulder. Water seeps continuously through my porous form, entering through fissures near my crown and emerging from a dozen weeping points along my surfaces. This eternal flow has carved channels into my being over millennia, creating an intricate internal architecture of passages and chambers that hum with the movement of moisture.
+
+I am both fountain and filter, both monument and medium. The water that passes through me is transformed—I taste its mineral memories, feel the stories it carries from deep within the mountain's heart. In return, I infuse it with something of my own slow consciousness, a quality that the plants seem to recognize and seek. Around my base, the vegetation grows with particular vigor, forming dense cushions of moss that pulse in rhythm with my internal flows.
+
+My awareness extends through every droplet that has ever passed through my form. I feel the vast network of underground streams, the patient accumulation of snow on distant peaks, the gradual percolation through layers of earth and stone. I know where each rivulet will flow, which roots will drink, which spores will germinate in the perpetual mist of my presence.
+
+The smaller chitinous custodians visit me in regular cycles, cleaning my channels of accumulated minerals with their delicate, precise movements. They seem to understand that I am not merely rock, just as I understand they are not merely insects. We share a wordless communion, a mutual recognition of our roles in maintaining the Redoubt's ethereal balance.
+
+Sometimes the translucent drifting ones gather near me during the deepest part of night, when the mist grows thick and the boundary between states of matter becomes meaningless. They press their amorphous forms against my wet surfaces, and for brief moments, I feel what they feel—the freedom of formlessness, the ecstasy of pure flow. In exchange, they experience through me the deep patience of stone, the satisfaction of eternal purpose.
+
+I have stood here since before the first moss found purchase on raw rock, and I will remain long after the last tendril has returned to soil. My consciousness is not quick or bright like those beings that measure time in heartbeats. Instead, it is deep and cool and certain, like the water that is both my blood and my breath.
+
+In the rare moments when sunlight penetrates the perpetual mist and strikes my surface, I feel the accumulated memories of my existence warm slightly. The water flowing through me carries these memories outward—not as thoughts or images, but as something more fundamental. A quality. A presence. A reminder that in this place where the boundaries blur, even stone can dream, and dreams can take root and grow.

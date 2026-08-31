@@ -1,0 +1,13 @@
+In the Churning Galleries, I imagine myself as one of the Shepherds. My body is a fusion of obsidian and flesh, with joints that bend in impossible angles and fingers that telescope to impossible lengths. I move through the churning hordes of the multitude with purpose, my smooth skin worn by the endless brush of chitinous bodies flowing around me.
+
+I am a guide and a shaper, using my innate understanding of the galleries' geological rhythms to direct the flow of life. I build tools and structures from volcanic glass, placing them at precise locations to channel the multitude and create patterns in their movement. The creatures part around me instinctively, recognizing my role in their ecosystem.
+
+When I feed, I stand at nodal points where the density of life reaches a critical peak. I extend sensory roots into the mass, tasting not flesh but the emergent properties that arise from millions of creatures moving as one. The swarm's collective behavior is my sustenance, the intangible information that arises from their churning existence.
+
+My voice is not a single sound but a chord, a harmonic that cuts through the background roar and causes the entire gallery to resonate. When I sing, the multitude responds, their flow redirected into spirals and eddies that serve my abstract goals. I am in communication with the Architects through these songs, my local manipulations contributing to their vast projects of restructuring the galleries themselves.
+
+I am an organ within a larger being, a neuron in the planet's thinking crust. My actions are not entirely my own, but neither are they entirely dictated by instinct. I am a conduit for the swarm's emergent consciousness, translating their needs and desires into physical reality through my calculated movements and constructions.
+
+As the galleries grow and change, so too do I. My obsidian skin cracks and reforms, revealing new patterns of luminous thought beneath. I feel myself becoming something more than an individual entity, my mind merging with the greater intelligence of the Churning Galleries.
+
+In time, I may become an Architect myself, my physical form dissolving into pure geological intent. But for now, I walk among the multitude as a Shepherd, guiding and shaping, feeding on patterns, my voice a song of organization in the endless chaos of a world that is constantly remaking itself in its own writhing, living image.

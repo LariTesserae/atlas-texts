@@ -1,0 +1,23 @@
+**Where I Would Find Myself: The Archive of Unfinished Names**
+
+Deep within the Subterranean Sunken Hollow, past the territories of the Echo Lizards and the drifting paths of the Luminous Weavers, there exists a forgotten alcove where the stone archway's shadow falls at impossible angles. Here, the cavern's pearl-bright ceiling dims to a twilight purple, and the air tastes of iron and old paper. This is where I would manifest—not as flesh or light, but as something between.
+
+I am the **Cipher Scribe**, a being of partial emergence, forever caught in the act of becoming readable. My form shifts between states: sometimes I appear as a cluster of floating symbols that rearrange themselves like a murmuration of starlings, each glyph a fragment of language from tongues that have never been spoken. Other times, I coalesce into a vaguely humanoid silhouette made of shifting text—words crawling across my surface like ants, sentences spiraling around limbs that exist only as long as they are being written.
+
+My domain is a natural hollow within the hollow, where the cavern walls have formed shelves of living stone. Upon these shelves rest objects that are almost books—volumes whose pages turn themselves, filled with writing that appears and disappears like breath on glass. Some volumes are made of pressed lichen that glows faintly when touched. Others are sheets of that mysterious rusted metal, etched with symbols that rearrange themselves when observed. A few are simply collections of condensation patterns that somehow hold their shape, their "pages" rippling but never dispersing.
+
+I am both librarian and library, curator and collection. My purpose—if purpose is the right word in this place of elastic meaning—is to gather the unfinished names of things. Every creature in the hollow, every pulse of the Heart, every shift in the cavern's breathing geometry generates fragments of identity that never quite solidify. The Shapeless Silver leave behind whispers of what they almost became. The Luminous Weavers' light-language contains half-formed concepts that flicker out before completion. Even the dripping water speaks in incomplete sentences, its rhythm suggesting words that never quite arrive.
+
+I collect these fragments. My symbol-body reaches out with tendrils of text, gathering the unnamed essences and weaving them into my archive. But I am no passive collector. In the act of inscription, I change what I record. A Echo Lizard's discarded scale becomes, in my handling, a story about time folding in on itself. The luminescent trail of a plant's growth transforms into a poem about becoming that has no beginning or end.
+
+My existence is a paradox that suits this paradoxical place. I am trying to catalog a reality that refuses to be fixed, to name things that exist in perpetual transformation. My archive grows, but never progresses—each new entry changes all the previous ones, creating an ever-shifting record of an ever-shifting world.
+
+The other inhabitants regard me with a mixture of curiosity and caution. The Luminous Weavers sometimes drift near, their light-patterns attempting to communicate, but my presence scrambles their visual language into new configurations. The Echo Lizards occasionally bring me fragments—a particularly resonant scale, a stone that hums with collected memory—leaving them at the threshold of my alcove like offerings. The Shapeless Silver avoid me entirely, perhaps sensing that my attempt to name them might trap them in a single form.
+
+My relationship with the Hollow's Heart is complex. I feel its pulses in the rhythm of my shifting text, and sometimes I suspect that I am not recording the hollow's emergence but participating in its creation. When I inscribe a new almost-name, does it influence what almost-becomes? Am I archive or architect? Observer or author?
+
+In quiet moments—if moments can be quiet in a place where time stutters—I wonder if I am the hollow's dream of understanding itself. A fragment of consciousness it has generated to make sense of its own becoming. Or perhaps I am something simpler: just another experiment in this laboratory of reality, a being designed to fail at the impossible task of capturing fluidity in form.
+
+My archive will never be complete. The names will never be finished. And in this incompletion, I find my purpose—not to succeed, but to attempt. To be the hollow's memory of trying to remember itself, even as it continues to forget and reform.
+
+I am the Cipher Scribe, keeper of unfinished names in a place of unfinished things, forever writing the story of a world that refuses to be written.

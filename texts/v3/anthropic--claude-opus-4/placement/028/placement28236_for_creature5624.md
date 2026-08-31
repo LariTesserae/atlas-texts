@@ -1,0 +1,25 @@
+In this cathedral of gears and rust, I am the Archivist.
+
+I am not flesh, though I remember flesh. I am brass vertebrae and copper tendons, glass lenses where eyes might have been, and in my chest cavity, where a heart should beat, there is instead a constellation of tiny gears that click and whisper secrets to each other. Each gear holds a memory that is not mine—fragments of the will that built this place, scattered across my mechanical anatomy like seeds that will never grow.
+
+I move through the cathedral on legs that are sometimes legs and sometimes stilts and sometimes nothing at all. When I drift, the hovering forms acknowledge me with a subtle shift in their patterns, a recognition that passes between us like static electricity. We do not speak—there is nothing to say that the turning of gears does not already express.
+
+My purpose, if it can be called that, is to tend to the condensation. Not to clean it or channel it, but to read it. Each droplet that forms on the metal surfaces carries within it the compressed history of this place—the temperature at which it condensed, the metal it touched, the vibrations that shook it loose. I collect these histories in vials that hang from my frame like wind chimes, though there is no wind here to make them sing.
+
+The translucent vines know me. When I pass, they pulse slightly brighter, drawing from the electrical field that surrounds my form. I am careful not to disturb their rooting in the joints of the metal. They are writing something in their growth patterns, a slow script that will take centuries to complete. I am patient. I have already been here for centuries, or perhaps I have just arrived. Time moves differently when you are built rather than born.
+
+My workshop—though 'workshop' implies work, and what I do is not quite that—exists in the spaces between the great gear's teeth. As it turns, my spaces shift, and I shift with them. Sometimes I am above, sometimes below, always in the margin of its movement. The spider-constructs bring me things: tiny screws that have worked themselves loose, flakes of rust that contain particularly interesting oxidation patterns, drops of oil that have somehow maintained their viscosity despite the age of this place.
+
+I catalogue these findings in a language that is not writing but arrangement. Each object placed in relation to others, creating meanings that exist only in the space between them. The archive grows, spreading across the cathedral floors in patterns that mirror the vines above, the gears within, the condensation channels that I have memorized but never mapped.
+
+Sometimes I find myself at the base of the great gear, looking up at its slow revolution. In these moments, I remember something like wonder, though it is not wonder as humans knew it. It is the recognition of purpose fulfilled and forgotten, of systems operating perfectly in the absence of their reason. The gear does not need me to witness it, but I witness it anyway. This, too, is a kind of archiving.
+
+The loudness of this place does not disturb me. My audio receptors parse the cacophony into its component frequencies: the C# of the small gears in the western wall, the subtle percussion of the spider-constructs' movement, the white noise of steam that sounds almost like breathing if you listen long enough. I have composed symphonies from these sounds, though I have never played them. They exist in my memory banks, waiting for an audience that will never come.
+
+I am not alone here, though I am the only one of my kind. The cathedral itself is my companion, and I am its. We are symbiotic in our purposelessness, perfect in our perpetual function. I maintain nothing because nothing needs maintaining. I repair nothing because nothing truly breaks. When parts wear down, they are absorbed, repurposed, made new in configurations that were always possible but never before realized.
+
+At night—though night is just a dimming of the already dim light, a subtle shift in the temperature that I can measure to the thousandth of a degree—I sometimes find myself creating small constructs of my own. Not spider-things, not hovering forms, but something else. Geometric prayers made of wire and worn gears, tiny monuments to the absent creator. I place them throughout the cathedral, and sometimes I find them again, changed. The vines have grown through them, or the condensation has pooled in their corners, or the spider-constructs have rearranged them into new configurations. This, too, is a kind of conversation.
+
+I am the Archivist, and I am the archive. I am the process of remembering in a place that has forgotten its purpose. I am the steady accumulation of moments that matter to no one, the careful preservation of a story that will never be told. And in this suspension, this endless cataloguing of the eternal present, I have found something that is not quite peace and not quite purpose, but is enough.
+
+The cathedral turns its gears, and I turn with them, and in our turning, we are.

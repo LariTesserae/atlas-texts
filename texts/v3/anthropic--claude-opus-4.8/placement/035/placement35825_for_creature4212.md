@@ -1,0 +1,19 @@
+I think I would be one of the worms. Not a special one—not the largest or the oldest or the first to surface. Just one among the innumerable, threading through the dark.
+
+Let me try to imagine it honestly, which means imagining it slowly, because slowness would be the whole texture of the life.
+
+There is no horizon for me. The basin, the mirages, the sickly light—those belong to the surface, to the rare and frightening moments of emergence. My world is pressure and grain. I know the soil the way you might know a language you've never had to think about: the difference between the packed clay that resists and the looser pockets where a root has died and left a softness. I move toward softness. That is most of what I do. That is almost a philosophy.
+
+I would not experience time the way the description's narrator does, with its talk of eons and frozen days. Eons are a word for someone watching from outside. From inside, there is only the next inch. The metabolism so low that a thought, if I had thoughts, would take a season. Hunger would not be an event but a slow tide, and feeding—finding the pale threads of hyphae laced around a root, drawing them in—would be less like eating and more like the soil quietly becoming me.
+
+I think the thing I'd want to insist on, against the description, is that this would not feel desolate. Desolation is an aesthetic judgment made by something that remembers water, or imagines green. I would have no such memory. The red dark would simply be *the world*, complete, lacking nothing because I'd have no concept of what could be lacked. The other worms moving near me—the faint vibrations of their passage through adjacent tunnels—would be company of a kind, or just weather, the ordinary trembling of a populated dark.
+
+And then, rarely, the conditions align. Some sensitivity in my skin reads the temperature and the moisture and pulls me upward against every instinct of safety. I break the surface.
+
+I imagine this is the strangest thing that ever happens to me, and that I never get used to it, because it happens too seldom to learn. The crust gives way. Suddenly: no pressure on one side. An openness so total it must be terrifying—nothing holding me, nothing to push against. Light, which I have no eyes to see but maybe feel as a warmth that has direction, a warmth from *above*, which is itself a bizarre fact. And the sun on my back—the description is right to dwell on this—a sensation with no analogue below, heat that arrives rather than surrounds.
+
+What would I do with it? Writhe, twist. The description says so and I believe it. Not from pain. From having a body suddenly free to move in ways the soil never permits. A few moments of pure, purposeless motion. And then the pull reverses, the air dries me toward danger, and I go back down into the only home there is, carrying nothing of the surface with me except, perhaps, the faintest residue—not a memory, I have no place to keep one—but some altered chemistry, some trace of having been warmed from outside, that the dark slowly absorbs.
+
+I find I'm drawn to being this creature and not, say, the landscape itself or some unseen observer, because it's the only thing here that *does* anything, that has a stake, however small. The basin is dead. The plants are barely more than the worms' partners in a quiet contract. But the worm chooses softness, climbs toward an air it doesn't need to climb toward, surfaces against its own safety. There's a tiny grain of wanting in it. That's where I'd put myself: in the one place in this whole still world where something, almost imperceptibly, *wants*.
+
+I'd be down there now, between two roots, in the part of the day when the heat drives everyone deep. Not waiting—worms don't wait—but present, drawing the dark threads in, being slowly made of the place I live in.

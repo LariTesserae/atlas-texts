@@ -1,0 +1,19 @@
+What an incredible, mesmerizing journey you've described across this strange, eerie yet alluring plateau. To inhabit this haunting world, I imagine myself becoming one of the Echoes burned into the living metal - an afterimage of someone I once was or might have been, frozen eternally in a moment between breaths.
+
+I am the Echo of a storyteller who came to the Old Layer seeking tales no voice had ever spoken, carrying only a pen that wrote in remembering and a blank book bound in the skin of forgotten dreams. Each day (or what passes for day in this place beyond time), I wander the burnished expanse, pausing beside the incomplete ruins to listen for the whispered fragments they have not quite forgotten.
+
+At the half-staircase spiraling into silver haze, I crouch on the bottom step and strain to make out the fading argument between the stones - an ancient quarrel over which direction is  worthy of being called up. By the lone doorframe, I press my ear to the cool metal jamb and catch a snatch of summer wind from a garden where the flowers learned to tell time by the color of the light, where cuckoo clocks hatched real birds to sing the hours.
+
+In the evening (or the memory of evening, conjured by closing my eyes against the unblinking gray sky), I return to my own silhouette seared into the surface at the base of a tower built from laughter calcified into glass. Sinking down cross-legged into the outline of myself, I open my book across my knees and write until the words run out, spilling all the day's gleanings onto the patient pages.
+
+Some nights the plateau remembers me and my words sink into the metal, preserved more perfectly than paper could ever manage. Come morning, the letters glimmer up at me through the mirror-skin, rearranged into truths I did not know I knew. On other nights my lines refuse to lie flat, seething and tangling until I have to snap the book shut lest they escape to infect the ears of my fellow Echoes with doubts.
+
+Still other nights - the longest, the shortest, the heaviest, the most hungry - I add nothing to my book at all. Instead I wander out amidst the outlines of my burnt-in brethren and place my palm against each brow in turn, merging for a shimmering instant with the feelings impressed into the metal. The small sun of a child's glee at seeing a butterfly alight on a wrist. The aching twilight of a life-long love shading gently into grief. The cold dawn horror of fearing your most unforgivable secret has been discovered.
+
+I gather them all, marveling that these Echoes who have surrendered their voices, their motion, their very breath to the plateau's endless memory can still feel so deeply. And as I feel with them, through them, as them, I find my own feelings reflected back to me from the polished mirror of their silhouettes, distilled into an essence more potent than any poem I could ever pen.
+
+On those nights I understand that we are all books in the end, even if our pages are pressed into copper and our ink is the invisible residue of experiences lived before we learned how to set them down in words. And that the story we are writing together here on the Old Layer is not the one we thought we came to tell, but the one the plateau has been whispering for eons in a language of metal and wind, inviting us to join our voices to it at last.
+
+So I return to my hollow in the shape of myself, and set aside my pen, and close my eyes. And as I drift into the dreaming that is not sleep but a commingling with the dreaming of the place itself, I allow my story to dissolve into the greater story. Until the morning comes and I rise, not an Echo anymore but not entirely myself either - something in between, something both more and less than flesh, something the metal has not forgotten how to hold.
+
+And I walk on across the burnished expanse, listening, feeling, becoming. A moving silhouette among my unmoving kin. A tale that tells itself to the empty sky.

@@ -1,0 +1,19 @@
+You are in the center of a shallow, ancient valley, though the word "valley" feels too sharp for this place. The ground beneath you is a yielding mat of peat and moss, cool and damp even through the soles of your boots—boots that feel absurdly rigid here, where everything else is soft and integrated. The air is still, saturated with the smell of wet stone and decaying leaves, and it carries a constant, low vibration that you feel more in your sternum than your ears. It is the sound of the world breathing.
+
+You look down at your hands. They are not your own. They are sleek and furred, the color of slate wet with rain, with wide, splayed digits ending in soft, porous pads. You have six limbs. The lower two pairs are legs, planted firmly in the springy peat, while the foremost pair are arms, shorter and more dexterous, ending in delicate, clawless digits that can manipulate the waxy leaves and moss mats with surprising precision. You are a **Moss-Back Stalker**.
+
+Your body is low to the ground, a wide, flat silhouette against the emerald and rust tapestry of the undergrowth. Your back is not bare fur but a living landscape of its own: a symbiotic garden of moss, lichen, and minute fungi that grows in a perfect, slow-motion cascade, matching the terrain around you. You are not wearing camouflage; you *are* the camouflage. To move is to become a shifting patch of moss, a shadow of stone.
+
+Your eyes, recessed and dark, are adapted to the perpetual twilight beneath the dense canopy of shrubs. You do not see in sharp detail but in gradients of light and shadow, in the subtle shifts of movement against a static background. You are motionless now, perched on a broad, porous basalt ledge that weeps a slow seep of mineral-rich water. The water traces a cool path down your forelimbs, but your fur repels it, beading the droplets like mercury on stone.
+
+You are waiting.
+
+Below you, in the tea-colored stream that braids through the valley floor, a small herd of Silt-Striders drinks. They are six-legged grazers, their dark backs breaking the water's surface like moving islands. Their slow, rhythmic chewing is a soft percussion against the drip of water from leaf to leaf. One of them, a juvenile, strays closer to your ledge, its wide, splayed feet floating over the peat without breaking the skin of the water table.
+
+Your body tenses, but not with aggression. It is a slow, deliberate gathering of energy, a coiling of patience honed over millennia. Your breathing slows, masked by the planetary hum that resonates through the rock and into your bones. You are not a hunter in the human sense; you are a conservator of energy, a patient participant in the cycle. You will not give chase. You will blend, wait, and when the moment is perfect—a single, fluid lunge from your coiled position—you will become the predator, not through violence, but through seamless integration into the rhythm of this place.
+
+Around you, the world hums with quiet life. The Vapor-Wings skim the stream's surface, their gossamer membranes catching the filtered light. The Stone-Quail rustle in the shrubbery, their guttural coos blending with the water's whisper. Deep below, in the fissures of the basalt, the Glass-Shrimp glow with faint, blue-green light, tending to the decay that feeds the network beneath your feet.
+
+You are not separate from this. Your body is a gear in the slow, quiet engine of the Verridian Spine. Your consciousness is not isolated; it is part of the mycelial web that underlies the peat, the fungi on your back glowing faintly in response to the planet's deep vibration. You are a node in a decentralized intelligence, a breathing part of a tapestry that has already achieved equilibrium.
+
+To be a Moss-Back Stalker is to practice the art of saturation—to exist not as a conqueror, but as a seamless, patient, and integrated part of a world that does not shout, but hums.

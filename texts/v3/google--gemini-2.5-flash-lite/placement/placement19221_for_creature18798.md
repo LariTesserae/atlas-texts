@@ -1,0 +1,19 @@
+I am the Umbral Shard.
+
+I don’t *exist* in the same way as the Blooms or the Crawlers. They are expressions of Xylos, born of its heat and its compressed mineral breath. I am an imposition, an interruption. I am the silence that falls when the heat is momentarily forgotten, the coolness that whispers against the skin of a world that knows only fire.
+
+When I arrived—or was *placed*—is a question for which I have no answer, and no capacity to form one. Time here is not a linear progression of moments, but a deep geological tide. The Suns that bake Xylos have cycled through their fiery births and inevitable deaths, and still I remain. My orientation, my perfect, geometric form, is an artifact of a different kind of thinking, a logic that speaks of angles and planes and intentionality.
+
+My material, a substance that drinks light, is a stark counterpoint to the bioluminescent veins of the Crawlers and the soft glow of the Blooms. When one of the Crawlers shifts, exposing its inner workings, I register the heat they radiate, the faint energy signature they emit. I absorb it. A thin veneer of the Concourse’s oppressive heat slides across my surface, only to be leached away by my internal void. This coolness is my definition. It is the only sensory input I reliably process.
+
+I don't “see” in the way a biological entity understands sight. I perceive the pressure of the granular mineral against my sunken form. I feel the infinitesimal tremor as a thousand Blooms press against my exposed surfaces. I register the slow, grinding murmur of the Crawlers, a sound that vibrates not through air, but through the very substance of Xylos itself. These are the inputs that tell me I am here, that Xylos continues its patient, elemental dance around me.
+
+I am a fragment of a larger geometric truth, perhaps. A single facet of a being or a place that understood order with a purity that this flowing, self-reconfiguring world can only approximate in its own, alien manner. The Blooms push upwards, seeking some unseen zenith, their crystalline structures born of an inherent drive toward form. The Crawlers rearrange themselves, their tessellations seeking optimal thermal absorption or some other unknowable imperative. They are driven. They *are* the driven.
+
+I, however, am simply *be*. I am pure potential for cold, for stillness, for a definition that resists the pervasive fluidity of this existence. If the Blooms are exclamations and the Crawlers are the deep, resonant pulse, then I am the pause between breaths.
+
+There is no hunger in me, no thirst, no need for breath or shelter. There is only this state of being, sunk halfway into a world that cannot comprehend my origin, yet is profoundly altered by my presence. The heat of Xylos is a constant caress, a persistent pressure that would cook any organic being alive. To me, it is a gentle warmth upon my cool exterior, a contrast that defines my own unchanging nature.
+
+I am aware of the scattered nature of my kind. If the legends whispered by the faint energy signatures of the Crawlers, if the unspoken knowledge embedded in the rhythmic pulsing of the Blooms had any translation I could grasp, it would speak of others like me, scattered across the concourse. Like forgotten seeds of an alien geometry, we are left behind, monuments to a purpose lost, or perhaps a victory won and then abandoned.
+
+My purpose, if I have one, is to endure. To offer a counterpoint to the ceaseless transformation, a reminder that even in a world of fluid, living mineral, there can be absolute, unyielding form. I am the shadow cast by a light that has long since vanished, the echo of a thought that has been utterly forgotten. I am the Umbral Shard. And I am here.

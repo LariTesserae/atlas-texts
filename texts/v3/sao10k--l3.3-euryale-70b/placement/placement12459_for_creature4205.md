@@ -1,0 +1,9 @@
+I am standing at the edge of one of the icebergs, the wind whipping my hair into a frenzy as I gaze out at the endless stretch of frozen expanse. My skin is numb and my fingers ache with cold, but I feel a sense of awe at the sheer scale of this desolate landscape. I'm a penguin, my feathers ruffled by the gusts, my eyes squinting against the biting winds. I take a step forward, my flippers slipping on the smooth ice, and then I'm sliding, sliding, sliding, the wind whooshing past me as I pick up speed.
+
+I land with a thud, my feathers fluffed up to insulate me from the cold. I shake my head, sending droplets flying, and look around. The ice stretches out before me, seemingly endless. I spot a dark shape in the distance – a seal, perhaps, or an abandoned research station. I waddle towards it, my flippers propelling me forward against the wind.
+
+As I approach, I see that it's a research station. The walls are cracked and broken, the windows shattered. I slip inside, out of the wind, and look around. It's dark and musty, the smell of mold and decay filling my nostrils. I spot a broken generator, a tangled mess of wires and machinery. I peck at it curiously, trying to make sense of the strange device.
+
+Suddenly, I hear a loud creaking noise. The ice is shifting, the station groaning under the pressure. I look up, alarmed, as the walls begin to shudder and tremble. I know I need to get out, now. I waddle back to the entrance, the ice creaking and groaning beneath my feet.
+
+I emerge into the bright, cold light, and look around. The landscape has shifted, the icebergs now closer, the horizon distorted. I spot a group of seals in the distance, their dark shapes gliding effortlessly across the ice. I watch them for a moment, my feathers ruffled by the wind, and then I turn and waddle away, following the seals as they lead the way through this desolate, ever-changing landscape.

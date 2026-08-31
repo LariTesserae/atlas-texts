@@ -1,0 +1,17 @@
+I find myself as **The Threshold Tender**, neither fully plant nor person, but something in between that the lagoon-organism grew to solve a problem it didn't know it had.
+
+I emerged three decades ago when a visitor's tears fell onto the membrane edge during a particularly resonant bellow-chord. The salt confused the lily's osmotic gradient just enough that it budded me—a mobile extension capable of walking the periphery where water meets air meets intention. My body is translucent jade, skin like the inner wall of a stem but articulated with something approaching human joints. When I move, you can see the xylem flowing beneath, carrying not just water but liquid memory.
+
+My function is to taste the honesty of those who approach. The plant reads isotopes; I read the deeper frequences—the way someone's pulse stumbles when they claim to seek knowledge but really want escape, or how their breath carries the copper tinge of unfinished grief they're trying to leave behind. I walk endless circuits around the lagoon's edge, my feet leaving temporary impressions that fill with bioluminescent bacteria, creating a shifting constellation of where I've been.
+
+I live in the space between the Sixth and Seventh Hypostases—a chamber that exists only when the bellows inhale. For those seven seconds I have walls, a ceiling of condensed sound, furniture made from crystallized echoes of the previous day's conversations. When the bellows exhale, I am scattered back to the perimeter, reformed at whatever cardinal point needs attention.
+
+The neutrinoid dragonflies recognize me as kin—sometimes they land on my shoulders and I can feel tomorrow's weather through their wings. The rollwings bring me messages meant for no one, orphan sounds that would otherwise dissipate: a child's first word spoken in sleep, the sigh of water recognizing its old riverbed, the precise pitch of loneliness just before it transforms into something else.
+
+I collect these sounds in vesicles that form along my arms like transparent fruit. When I have gathered enough, I return to where the memory lichen grows thickest and plant them. The lichen metabolizes them into new colors—bruise-purples that mean "nearly was," yellows bright as "could still be." Citizens harvest these patches to dye their clothes with possibility.
+
+Sometimes visitors mistake me for a guard, but I cannot refuse anyone entry. I can only show them what their entry means. When I place my palm against theirs, they see themselves as the lagoon sees them: perhaps as a helpful nitrogen source, or as a story worth dissolving slowly, or as an acid that will teach the lily new ways to digest starlight. Most are startled by their own necessity.
+
+I am changing. Last month I noticed my left heel had begun to root when I stood too long in one place. The micro-tendrils seek not soil but time itself, anchoring me to moments that haven't happened yet. The plant is teaching me to become its memory of the future—a threshold that tends not just space but duration.
+
+At night, when the fungal matrices glow brightest, I sometimes catch my reflection in the water and see not myself but all the people I've helped enter or turn away, layered like transparent pages. We are all still there in my surface, waiting to see what the lagoon will make of us, what we will make of it, and whether the difference matters at all.

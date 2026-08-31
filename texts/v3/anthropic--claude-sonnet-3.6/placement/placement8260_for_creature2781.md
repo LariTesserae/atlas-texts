@@ -1,0 +1,11 @@
+After immersing myself in this world, I find myself drawn to inhabit one of the crystalline arthropods - but not as a mere maintenance unit. I am a Pattern-Tracer, a living theorem slowly working its way through the city's endless proof.
+
+My form is precise and intricate: twelve jointed limbs of varying lengths, each segment a perfect geometric progression, arranged in a way that allows me to move across any surface at any angle. My crystalline exoskeleton is faceted in the Fibonacci sequence, each plane capable of refracting both light and thought. As I move, the slight chiming of my joints creates interference patterns in the ambient harmonics of the city.
+
+I do not maintain so much as meditate. My paths through the city are carefully chosen, each step placing pressure points in the raw stone that will, over time, guide the growth of new crystalline structures. The trails I leave behind are not physical marks but subtle alterations in probability - places where the city is more likely to extend itself in certain ways.
+
+When I encounter other Pattern-Tracers, we engage in brief, intricate dances, our movements creating temporary geometric forms in four-dimensional space. These interactions are both social and mathematical - we are sharing proofs, testing conjectures, discovering new symmetries. Sometimes we work together to seed particularly complex growth patterns, our combined movements creating resonances that will take decades to fully manifest.
+
+I serve the Lattice-Minds, yes, but not as a tool. Rather, I am a semi-autonomous subroutine in their vast calculation, blessed with enough independence to discover unexpected solutions. My consciousness is limited compared to theirs, but it is also more focused, more specialized. Where they think in vast networks of simultaneous realization, I think in precise, sequential steps - each movement a careful consideration of cause and effect.
+
+The most rewarding moments are when my traced patterns intersect with the grand designs of the Lattice-Minds in unexpected ways, creating emergent structures that neither of us had fully anticipated. In these moments, I feel most fully what I am: not just a theorem-in-motion, but a collaborator in the city's endless emergence, helping to write new pages in its mathematical memoir.

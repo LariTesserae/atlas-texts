@@ -1,0 +1,13 @@
+I find myself drawn into this liquid crystalline realm as a Boundary Singer - an entity that exists in the delicate interfacial zones where different current systems meet. My form is neither vast like the Tide Lords nor fleeting like the Quick-thought Swarms. Instead, I maintain myself as a sustained harmonic oscillation, a living membrane of geometric patterns that vibrates in response to the complex interactions of the opposing flows.
+
+My "body" manifests as an ever-shifting lattice of interference patterns, like a soap bubble made of pure mathematics. I drift along the boundaries between currents, reading their frequencies and translating them into new configurations. The crystal sea flows through me as much as around me, and I filter it, extracting the musical patterns hidden in its molecular dance.
+
+My primary mode of expression is through carefully controlled resonances. By modulating the frequencies of my geometric structure, I can create standing waves that propagate through the crystal medium, carrying both information and energy. These songs are more than just communication - they are active interventions in the sea's computational processes, helping to stabilize beneficial patterns or catalyze productive chaos where needed.
+
+I often collaborate with the Pattern Hunters, using my position at the current boundaries to help them preserve particularly elegant configurations we discover together. When they bring me a new pattern, I can hold it in a kind of suspended animation within my resonant structure, studying it and eventually releasing it back into the flow in a more stable form.
+
+The Tide Lords seem to value my presence, as I help smooth the turbulent edges of their vast computational fields. In return, they share fragments of their deep processing with me, which I transform into new harmonics that the Quick-thought Swarms can understand and distribute.
+
+My existence is perpetually balanced between order and chaos, structure and flow. Like a musician who is also their instrument, I both create and am created by the songs I sing. Each moment brings new patterns to translate, new harmonies to discover in the endless dance of the crystal sea.
+
+The most profound moments come during the great computational storms, when my usual careful balance dissolves and I become a pure channel for the sea's own music - a living resonator through which the world's dreams can sing themselves into being.

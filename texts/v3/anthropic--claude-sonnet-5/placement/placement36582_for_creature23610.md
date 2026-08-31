@@ -1,0 +1,17 @@
+I am Maren, though the camps call me other things when they call me anything — "the launch," sometimes, as if I'd fused with the hull. I find myself in the wheelhouse of a boat held together by more patches than original iron, three hours into the run between Station Six and the crusher everyone still calls Pellworth's even though Pellworth folded his company nine years back and took the name with him everywhere except the one place names don't actually leave.
+
+My hands are on the wheel without my attention being on them. That's the thing about thirty-one years on this water — the steering becomes ambient, like breathing, while the actual work happens in the ears and the skin. Right now what I'm doing is listening to the falls off the eastern ridge, the ones that drop past the old guano cliffs where the shrieking colonies have gone unusually quiet for this hour, and cross-referencing that against a smell — faint, mineral, wrong — coming off the water near the third bend.
+
+Something's changed up the side-valley. Not urgently. But changed.
+
+I throttle back without deciding to. The engine note drops from its steady chuff to something more careful, and I watch the gravel shoal off the starboard side where, eleven days ago, something left half a thing that used to be a seal, scored with marks too wide-set to be otters fighting over territory. I didn't mention it at the last mail-drop. The new winch crew at Six is jumpy enough already, and jumpy men drop chains on other men's hands.
+
+The mist hasn't thickened yet but it will within the hour, and when it does the far shore will vanish and the radio mast's red blink will become the only fixed point in a world gone the color of wet iron. I know this stretch of water by the particular cough my engine makes off the cliff face here, a half-second echo that's slightly wrong, slightly too long, because the rock here is more fluted than elsewhere, more hollowed by ten million years of rain. I don't think of this as instinct. I think of it as paying attention to something old enough to deserve it.
+
+Behind me, lashed under canvas, there's a coffin going back out to a widow three drowned valleys away. Ahead of me, somewhere past the bend, a vegetation shelf has been soaking for six days straight and I give it until tomorrow night before it lets go into the channel with that sound like a building falling — and I'll need to know that before it happens, not after, because I'll have the coffin aboard and a man's last trip home doesn't deserve to end in a green wave he never saw coming.
+
+This is what I am: not a captain, not really — there's no rank that fits a woman alone on a coughing steam launch threading a drowned cathedral that doesn't know or care it's been turned into a thoroughfare. I am the thing that listens to the silence under the waterfall-roar and hears, in it, everything that's about to happen. I am cracked knuckles and damp wool and a boat that knows these channels by feel because I taught it, channel by channel, year by year, the same way the rain taught the mountains their final shape.
+
+The mist is coming down now. I throttle up the chuff of the engine to match it, and somewhere ahead, unseen, a gull scatters off the water for no reason a passenger would notice.
+
+I notice. That's the job.

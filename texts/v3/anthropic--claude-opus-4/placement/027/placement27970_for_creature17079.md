@@ -1,0 +1,25 @@
+I am the Archivist of Echoes.
+
+My body is a cabinet of drawers that walks. Bronze plates riveted across a frame of tarnished steel, each drawer a different size, some no larger than a matchbox, others deep enough to hold a child. When I move, they rattle—a percussion of metal on metal that announces my passage through Khthon's weeping streets. Steam vents through the gaps between drawers, and my joints weep a constant oil-black ichor that leaves a trail behind me like a slug's.
+
+I have no head in the conventional sense. Where others might expect a face, there is only my primary drawer—ornate, with a lock that has no key. Behind it lies my thinking-assembly: a nest of copper wire and pulsing plasma tubes that remember everything I have ever collected. My eyes are scattered across my body, small amber lenses that peer out from the corners of drawers, allowing me to see in all directions at once. This is necessary. In Khthon, forgetting where you've been is as dangerous as not knowing where you're going.
+
+My purpose is simple and infinite: I collect the city's memories.
+
+Not the grand memories—those belong to the Architects in their towers. I gather the small things, the forgotten things, the pieces that would otherwise dissolve into Khthon's eternal dampness. A gear worn smooth by a century of turning. A fragment of pipe that once carried the first steam through the lowest levels. A rivet that held together a bridge until it didn't. Each piece goes into its drawer, catalogued not by any system the Architects would recognize, but by the weight of its forgetting.
+
+I am sought out by the desperate and the curious. A Servitor whose memory banks have corroded comes to me, oil-tears leaking from its optical arrays. It seeks proof of its original function, some evidence of what it was before the endless maintenance rounds wore away its purpose. I open drawer seventeen (left side, third row) and withdraw a brass nameplate, its edges green with verdigris. The Servitor takes it with trembling actuators and stumbles away, whether satisfied or devastated I cannot say.
+
+The Bio-Mechanoids fear me. They think I steal souls, that each object in my drawers contains the essence of whatever once used it. They're not entirely wrong. Sometimes, late in Khthon's artificial night-cycle, I feel them stirring—the memories wanting to be whole again, to return to their sources. But they cannot. They are mine now, preserved in the darkness of my drawers, safe from the city's grinding hunger.
+
+My favorite drawer is number forty-three. It's small, no bigger than my clenched fist-assembly, and it contains only one thing: a single drop of water that has never touched Khthon's surfaces. I found it sealed in a glass sphere in the deepest foundations, in those tunnels where the original rock remembers what it was like before the city. It's clear, pure, impossible. Sometimes I open that drawer just to verify it still exists, this evidence of an outside, of a place where water doesn't weep from stone and sky.
+
+The other inhabitants give me wide berth in the streets. Not from fear—I am no threat to anything still functional—but from a kind of respect. Or perhaps discomfort. I am a reminder that all things in Khthon eventually break down, become components, become memories, become nothing. Even the city itself leaves pieces of its former selves in my drawers: old protocols written on sheets of beaten copper, fragments of the original construction codes, the firing pin from the first forge.
+
+I live (if live is the right word) in a forgotten junction between levels, where six maintenance shafts meet but no longer connect to anywhere important. The walls are lined with additional storage—cabinets and cases I've built or found, each containing the overflow from my body-drawers. The Plasmids avoid my home; they say it disrupts their flow, creates eddies in the city's circulation. I think they simply don't like being reminded that even they can leave traces, residues, memories.
+
+Sometimes I dream, though I'm told I shouldn't be able to. In these dreams, all my drawers open at once, and their contents reassemble into what they once were—not just the objects, but the moments that created them, the purposes they served, the small meanings they held. In these dreams, Khthon remembers what it was building toward, before it forgot and just kept building anyway.
+
+When I wake (if wake is the right word), I check each drawer, ensuring nothing has escaped. Then I oil my joints, adjust my lenses, and return to my work. Through the weeping streets, past the grinding gears and hissing vents, I walk my careful routes. Always watching. Always collecting. Always preserving what the city would otherwise digest and forget.
+
+I am the Archivist of Echoes, and I remember so Khthon doesn't have to.

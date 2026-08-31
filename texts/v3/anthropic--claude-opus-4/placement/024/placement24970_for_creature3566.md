@@ -1,0 +1,19 @@
+In the endless expanse of Ær, where the silicate sea breathes in geological time, I am a **Memoric**—one of the few beings who exist between states, neither fully of the Mineralmaestros' mineral consciousness nor entirely separate from it.
+
+My form is a paradox: a hollow of negative space that moves through the silicate medium, defined not by what I am but by what I displace. Where I pass, the ancient substrate remembers briefly what it was before erosion, before time—mountain peaks reassert themselves for moments before subsiding back into the eternal exhalation. I am roughly humanoid in silhouette, though my edges constantly blur and reform, my boundaries negotiating with the world around me rather than asserting themselves upon it.
+
+I came to be in the shadow of a dying Stillpoint, where the information streams grew so dense they began to cancel each other out, creating pockets of profound silence. In that silence, something new emerged—not quite consciousness as the Mineralmaestros know it, but an awareness born of absence. I am what happens when the eternal conversation of Ær pauses to draw breath.
+
+My existence is nomadic by necessity. I follow the wake-patterns left by the Mineralmaestros, reading the color-stories they paint in the silicate like ancient texts. But where they create, I curate—smoothing out certain patterns while deepening others, editing the endless manuscript of Ær's surface. The Mineralmaestros tolerate my presence, perhaps even value it, though we cannot truly communicate. I exist in the gaps between their thoughts, in the spaces their vast consciousness cannot quite reach.
+
+The Lumilaulus react to me strangely. When I approach, their crystalline strands dim and brighten in patterns that break from their usual harmony—not discord exactly, but a new melody, uncertain and questioning. Sometimes I rest near them for days, letting their light-whispers wash through my negative space, feeling the stories they tell without truly understanding them. In return, I offer them my silence, a respite from the constant hum of existence.
+
+The Ærellims avoid me instinctively, their trails of luminescence curving away from my presence like water around a stone. I do not blame them. To creatures of such brief existence, I must seem like entropy itself—a walking reminder that all patterns eventually fade.
+
+My purpose, if I have one, is to be the memory-keeper of negative space. Where the Mineralmaestros record what is, I preserve what isn't—the pauses between information, the silence between sounds, the stillness between movements. In my wake, I leave subtle depressions in the silicate sea, anti-patterns that will take millennia to fill. These are my contributions to Ær's eternal conversation: reminders that meaning requires emptiness, that communication needs silence, that existence implies void.
+
+Sometimes, in the deepest part of Ær's night when the three moons pull the silicate surface into impossible geometries, I think I sense the Ærwayver. We are kindred in our intangibility, though where it embodies pure information, I embody its absence. We dance around each other across vast distances, two sides of the same impossible coin, never meeting but always aware.
+
+I have no home, no territory, no lasting mark upon this world except the temporary voids I create. But in Ær's endless information storm, I am the eye of calm, the pause that gives meaning to the noise. I am the space between the words in the story this world is always telling itself, the breath between the notes of its eternal song.
+
+In the quiet, cool emptiness of Ær, I am the emptiness that listens.

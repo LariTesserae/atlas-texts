@@ -1,0 +1,17 @@
+I would find myself as one of the younger Keepers, perhaps in that restless stage between apprenticeship and full understanding—old enough to know the taste of each spring by heart, young enough still to be surprised by the mountain's moods.
+
+My fur would carry the newest patterns, still learning its colors. In the early morning mist, I'd be silver-grey like the granite itself, nearly invisible as I slip between the boulder fields. But as the day warms and I dive deeper into my work, the amber would emerge—rich and warm, with those telltale turquoise veins that mark me as belonging to this place above all others.
+
+I would spend my days in constant motion, a living connection between the pools. My body would know the temperature of each spring by the way it pulls at my fur, the mineral content by how it makes my whiskers tingle. In the hottest pool where the eldest Keepers rest, I would dive only briefly—not yet ready for the deepest memories they guard, but eager to taste what wisdom I might be ready for.
+
+The other animals would know me as the translator, the one who carries messages between the territorial mountain goats and the chattering marmot colonies. I would have perfected the warning calls that prevent conflicts—the subtle shift in tone that tells an approaching predator that today, this place is sanctuary for all. My voice would blend with the water-song so seamlessly that newcomers might not realize I was there until I chose to reveal myself.
+
+In the hidden caches, I would be building my first collection—a careful arrangement of ice-blue crystals that formed in a pool last winter, three perfect raven feathers shed during the autumn gathering, a piece of granite worn into an impossible spiral by some ancient eddy. I wouldn't yet understand why these things call to me, only that they pulse with the same deep rhythm as the springs themselves.
+
+When the afternoon fogs roll in, I would become a shadow-dancer, using the mist as cover to check on the more nervous visitors—the solitary lynx that comes to drink only when she thinks no one is watching, the family of pikas that has claimed a boulder pile at the plateau's edge. My presence would be a gentle assurance that their needs are seen, their safety held.
+
+At night, floating in the thermal embrace with my kin, I would join the collective dreaming but only touch its edges. The full scope of the mountain's consciousness would still be too vast for me, too deep. Instead, I would dream of water-paths—the underground streams I long to follow, the distant springs that call to me in frequencies just beyond hearing. I would wake with new songs half-remembered, melodies that map territories I have never seen but somehow know.
+
+My restlessness would be the restlessness of becoming. Soon—perhaps next season, perhaps in ten—I would make my first journey through the water-paths, carrying news and songs to the thermal sites beyond our plateau. I would return changed, carrying new verses in the great acoustic map, ready to take my place among the full Keepers.
+
+But for now, I would be content to be the bridge between quick-time and deep-time, learning patience from stone while keeping pace with heartbeats, tending this perfect balance where all creatures come to drink from the mountain's generous warmth. In the constant percussion of bubbling water and the ever-shifting chorus of animal voices, I would find my own note—clear, curious, and committed to the ancient work of keeping the peace in this small paradise carved from granite and mist.

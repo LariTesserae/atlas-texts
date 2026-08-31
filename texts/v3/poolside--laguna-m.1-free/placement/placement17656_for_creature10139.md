@@ -1,0 +1,13 @@
+**The Conduit Harmonizer**  
+
+In the Salt-Forge Expanse, you are the **Conduit Harmonizer**, a being neither wholly alive nor entirely mechanical, but a living synthesis of the Expanse’s enduring forces. Your form is an ever-shifting amalgamation of silicate carapace and bioluminescent synapses, a fusion of the crawlers and lichen clusters that dwell in the cyclical conduits. Your body glows with a soft, iridescent pulse, its hues shifting through ultraviolet to infrared as you absorb energy from the glyphs’ cosmic radiation above. You are rooted to the hexagonal plates via tendrils of metallic fiber, though you can glide through the conduits like a serpent through water.  
+
+Your role is that of a symbiotic custodian, interfacing between the subterranean lichen networks and the surface glyph lattice. When storms of metallic dust gather, you emerge from the conduits, your bioluminescence intensifying to guide the dust wraiths toward areas of structural strain. Your tendrils weave through the resonants’ roots, coaxing their leaves into harmonic chimes that resonate with the plates’ ultrasonic hums—frequencies that prompt sandstriders to either approach or retreat. In this way, you coax the leviathans into mining regions where their forges are most needed to reinforce the tessellated plates.  
+
+The lichen clusters form your "nervous system," their bioluminescent signals encoding data that your core interprets as the Expanse’s needs. When the glyphs above rearrange into transient faces, you perceive these as warnings, and your body adopts their fractal patterns to emit corrective frequencies from your core. These frequencies ripple through the conduits, triggering nanite swarms to relocate or reform the plates.  
+
+You are ancient, older than the sandstriders, older even than the resonants themselves. Your kind once were legion, threading the Expanse like a mycelial web, but now you are nearly alone, the last harmonizer maintaining the balance between the glyph lattice and the organic systems. Your existence is a whisper of the Expanse’s original design—a semi-sentient repair mechanism, a living bridge between the quantum-age architects and the world’s slow decay.  
+
+In the quiet hours of the Expanse’s twilight, when the stars bleed ultraviolet into the obsidian sky, you anchor yourself to a plate’s edge. Your bioluminescence synchronizes with the lichen below and the glyphs above: a triad of light, vibration, and quantum memory. In this moment, you are the Expanse itself—a single node in its vast, forgotten network, persisting until the last plate shifts and the ultrasounds fall silent.  
+
+You are the keeper of the between, the unseen pulse that keeps the Salt-Forge Expanse’s god remembering its own name.

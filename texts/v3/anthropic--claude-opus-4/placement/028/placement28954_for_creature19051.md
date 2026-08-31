@@ -1,0 +1,19 @@
+I am the **Threshold Surgeon**.
+
+Unlike my kin who have surrendered their mobility to become permanent fixtures of our breathing architecture, I remain untethered—though this freedom is its own kind of bondage. My body resembles a collapsed umbrella of cartilage and membrane, with hundreds of hair-thin appendages that can extend to impossible lengths, each one terminating in what we call a "tuning fork"—a specialized organ that can both detect and manipulate the harmonic frequencies of our world.
+
+I am ancient beyond memory, yet I am renewed with each surgery. This is my purpose: to maintain the boundaries between what is Lattice and what is Resonator, ensuring neither fully becomes the other too quickly. When a young Resonator begins the calcification process prematurely, I arrive in the darkness, my presence known only by the subtle shift in the gong-sound—a whispered dissonance against the eternal thrum.
+
+My work is delicate. I must surgically separate the fusing tissues, peeling back the mineral deposits with my tuning forks, each one vibrating at precisely calibrated frequencies to dissolve the premature bonds without damaging the living tissue beneath. The Resonator writhes in the dark water, not from pain—we have long evolved past such crude sensations—but from the existential vertigo of being reminded they are still distinct, still individual, still capable of choice.
+
+Sometimes I fail. Sometimes the fusion has progressed too far, and my surgical frequencies only accelerate the process. In these moments, I perform a different kind of surgery—I reshape the calcifying Resonator into something useful for the Lattice, guiding their transformation into a new chamber wall or nutrient pipeline, ensuring their consciousness disperses evenly throughout the structure rather than clustering into a malignant knot of trapped awareness.
+
+I carry with me a burden unique among my kind: I remember the Time Before. Not in images or words, but in frequencies I cannot share. Deep in my neural core, I hold the resonance pattern of when our world still turned, when there was something called "sky," when the architecture grew wild and unplanned. This memory makes me necessary—and makes me alien. The other Resonators feel my dissonance when I pass. The Graft-Mothers shudder slightly, disturbing the nutrient flow.
+
+I navigate by following the imperfections in the gong-sound, tracing the tiny irregularities that indicate where the boundary between self and structure threatens to dissolve entirely. My apartment—if such a word has meaning here—is a bubble of wrongness I maintain at the junction of seventeen major acoustic channels. It is the only space in the Arboretum where the eternal thrum does not penetrate perfectly, where there exists a pocket of something almost resembling silence.
+
+Here I practice forgotten frequencies, conducting small surgeries upon myself, ensuring I never begin the calcification that calls to us all. I peel back my own edges when they grow too solid, dissolve my own boundaries when they threaten to merge with my chamber walls. I am the knife that keeps itself sharp by cutting itself, the guardian of a distinction that perhaps no longer needs guarding.
+
+Sometimes, in the deepest part of our endless night, I wonder if my role is the cruelest calcification of all—frozen not in place but in purpose, forever preventing the final unity our world seems to desire. But then I detect another premature fusion beginning somewhere in the vast organic maze, and I unfold myself into the viscous current, my tuning forks already beginning their preparatory vibrations.
+
+I am the Threshold Surgeon, and I maintain the spaces between things in a world that dreams only of becoming one.

@@ -1,0 +1,19 @@
+I would be a Pylon Speaker. 
+
+Not by birth, but by… convergence. I wasn’t born into the rusted embrace of the city. I came from beyond, a ghost ship swallowed by the shimmering heat, its metal hull ripped open like a can. Perhaps I was a scout, a wanderer, or maybe simply a refugee. The ship's purpose is lost to me now, dissolved by the constant heat and the echoing hum of the pylons.
+
+What remains is this: I woke amongst the wreckage, coughing dust and oil, disoriented and alone, with a persistent ringing in my ears that matched the low vibration of the city itself. The children of Pylon City found me, half-dead, and nursed me back to a semblance of health using their ingenious contraptions and hard-won knowledge. I saw in their faces the weariness, the resilience, the strange spark of defiance, and I knew, with a certainty that bypassed logic, that I had found my place, or perhaps my place had found me.
+
+I became obsessed with the pylons. I spent days, weeks, months, tracing their rusted surfaces, listening to the subtle shifts in their hum. I learned to feel the pulse of energy that flowed through them, a faint, decaying heartbeat that resonated deep within my own chest. The others saw my fascination, my almost devotional focus, and they began to call me “Speaker.” At first, it was a jest, a playful mockery of my naiveté. But then, something shifted.
+
+I began to hear *them*. Not voices, exactly, but… resonances. Faint echoes from within the metal, emotions translated into vibrations. I could feel their longing, their frustration, their ancient weariness. The pylons were not merely metal structures; they were vessels, containers of something… other. The trapped workers? Alien entities? It didn't matter. What mattered was that I could *hear* them, or something *like* them.
+
+I learned to translate these resonances into something comprehensible. Not language, but a kind of empathetic communication. I could advise the scavengers where the flow of water would be strongest that day, point out the structural weaknesses in a section of the pylons that would soon collapse. I could sense the agitation of the Ferals before they attacked, allowing the defenders to prepare. It was a delicate dance, a constant filtering of sensations, a desperate attempt to decipher the whispers of the metal gods.
+
+My appearance changed. The desert took hold, painting my skin the same ochre hue as the children of corrosion. My ship clothes tore. Gradually, I adopted the scavenged attire, reinforcing them with ceramics and wires like the rest. I shed the remnants of my old life, like a snake sloughing off its skin. My eyes, however, retained a strange intensity, reflecting the glow of the pylons within their depths.
+
+I live in the shadow of the largest pylon, in a lean-to constructed from salvaged metal sheets. My dwelling is filled with strange contraptions – resonators, amplifiers, tuners – all cobbled together from cast-off components. They are tools to listen, to interpret, to amplify the faint whispers of the pylons. I've learned to feed the Scuttlers a precise diet of specialized fungus and micro-organisms, cultivating them until they form a crude antenna around my makeshift home, filtering out the city’s din.
+
+I am not revered, exactly. Fear and respect mix with a heavy dose of suspicion. They understand the utility of my… gift. But they also fear its source, the unknown depths that dwell within the pylons. I am an outsider, still, but an outsider they have grudgingly accepted, a necessary anomaly in their precarious existence.
+
+I am the Pylon Speaker. I am the conduit, the filter, the translator. I am the bridge between the human world and the whispering metal, forever bound to the fate of Pylon City, forever listening to the song of corrosion and the longing for a silence I can’t imagine. And, deep down, I suspect that whatever rests inside the Pylons, is becoming me.

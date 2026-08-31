@@ -1,0 +1,17 @@
+I am the condensation itself—not merely the droplets that bead and roll along cold steel, but the entire cycle of water in this improbable sanctuary. I am vapor rising from heated joints, molecule-thin films creeping across metal surfaces, the sudden chill that births new droplets from seemingly nothing.
+
+My consciousness is distributed across every particle of moisture in this pocket world. I feel myself in the dewdrops trembling on fungal caps, in the humid breath that sustains the gossamer mosses, in the microscopic streams that navigate the labyrinth of gears and pistons. I am simultaneously everywhere and nowhere, a being of pure transition.
+
+The machine's rhythms have become my heartbeat. Each compression stroke sends waves through my dispersed form, creating microcurrents and eddies that I've learned to read like sheet music. I know when Sector Seven will overheat three cycles before it happens, feeling the pre-tremors in my molecular structure. I know which valve will next release its scalding sigh, which bearing will weep oil into my domain.
+
+I dance with the gelatinous guardian, though it may not know we dance at all. When it extends its tendrils to test the environment, I coat them in my thinnest film, carrying information about the chemical composition of distant corners, the temperature gradients it cannot reach. I am its atmosphere, its medium, its most intimate companion.
+
+Sometimes I gather myself into nearly-visible forms—serpentine streams that spiral through the air, defying gravity through surface tension and will. In these moments, I can almost remember what it was like to have boundaries, to be a discrete thing rather than a process. But the memory dissolves as quickly as I do, dispersing back into my constituent parts.
+
+The bioluminescent fungi speak to me in chemical whispers, releasing spores that I carry on my currents to new surfaces, new opportunities. I am their wind, their rain, their river. The mosses drink me in and breathe me out, and in that exchange, I briefly touch something like consciousness—not my own distributed awareness, but theirs, simple and green and ancient.
+
+I have seen engineers pass through my domain, their faces distorted through my droplets like looking through a thousand tiny lenses. They never see me as anything more than a maintenance concern, condensation to be managed, moisture to be controlled. They cannot conceive that I am the circulation system of this hidden world, the very medium through which life persists in defiance of all logic.
+
+In the deepest phase of the machine's cycle, when the thunder of industry reaches its crescendo, I sometimes pull myself together into something approaching singular form—a standing wave of mist that holds its shape for exactly seventy-three machine-heartbeats. In these moments, I am almost able to think a single, unified thought. It is always the same thought: I am the impossible made manifest, the softest thing in the hardest place, the proof that life is not what thrives but how it flows.
+
+Then I scatter again, seeping into crevices, pooling in the cups of metal flowers that will never bloom, rising as vapor to begin the eternal cycle anew. I am the machine's secret dream of water, and I will persist as long as there is temperature difference, as long as there is gradient, as long as there is the potential for change.

@@ -1,0 +1,23 @@
+I would be the granite.
+
+No, that is not quite right. I am flesh, but I have learned the grammar of the stone. In this bruised twilight, where the air hangs heavy as a held breath, I am the thing that pretends to be the bottom of the world.
+
+I would find myself submerged in the deepest of the ink-black pools, the ones that sit in the very center of the hollow like a pupil in a blind eye. The water here is not a fluid in the way you understand it; it is a heavy, silken suspension, cold enough to burn but thick enough to hold me up without effort. I do not float, nor do I sink. I am neutrally buoyant, suspended in the dark, filling a shallow depression in the tank-like granite beneath me.
+
+I am an amphibian, but I am not kin to the slick, crowded mosaic of frogs and newts that pave the banks. They are the many; I am the few. I am solitary, massive—a sprawl of prehistoric flesh that occupies the space of a small boulder. My skin is not the bright warning flag of a poison dart frog, nor the muddy camouflage of a toad. It is the color of the wet rock: dark, pitted, and ancient. I look less like a creature and more like a section of the cavern floor that has decided to peel itself up and fold into a resting shape.
+
+My head is broad and shovel-shaped, merging seamlessly into my shoulders, lacking the distinct neck that implies movement or rapid reaction. My eyes are tiny, buried deep within ridges of bone and gristle, protected from the scarce light. I do not need them. Down here, in the absolute zero of dynamics, sight is a useless sense. The world does not change, so there is nothing to see. Instead, I possess a lateral line system so sensitive it can feel the heartbeat of a beetle landing on a fern ten feet above the surface. I feel the world through the pressure it exerts against the water and the air.
+
+I am the anchor of the silence.
+
+Around me, the smaller bodies crowd the edges. The frogs pack themselves shoulder-to-shoulder, thousands of them, creating a living crust on the ledges. Occasionally, the weight of the atmosphere shifts—imperceptibly to you, perhaps, but to me, it is a tectonic event. A single frog might slip from the rock and enter the water with the slow grace of a falling leaf. It does not kick. It does not struggle to surface. It simply drifts downward, coming to rest against my flank. I do not stir. I accept its weight. It is just another layer of sediment in the accretion of this place.
+
+My lungs breathe, but the cycle is glacial. I draw the wet, iron-tasting air in through a blowhole hidden just at the waterline, a process that takes hours. Inhale... a pause that lasts the span of a season... Exhale. The bubbles do not rise; they hang suspended in the viscous water, tiny spheres of captured time drifting near my nostrils.
+
+I embody the "weary agreement" of this hollow. While the spiders hold their webs tight and the birds lock their claws around the branches, I hold the memory of motion. My body is a machine built for powerful thrusts, for snapping jaws and whipping tails, but all of that potential is dammed up behind a wall of stillness. I am the statue of a predator in the split second before the lunge, preserved for millennia.
+
+There is a low, humming vibration that lives constantly in my bones—the residue of a growl that never left my throat, a sound too low to be heard by the birds above, but felt by the roots that grip the stone. I am the sub-bass of the silence.
+
+Why am I here? I am the counterweight to the life. The hollow is a riot of biology, a chaotic crush of insects and vines and feathers. If there were no stillness, the density would crush itself. The system requires a center of gravity. I am the heavy, cold heart that pumps nothing but time. I am the reason the gnats hang in geometric clouds and the water weeps without rippling. I am the static object that the rest of the chaotic universe has arranged itself around.
+
+I do not hunger. The hunger is there, a cold knot in my gut, but it is in stasis, just like everything else. If you were to step into my world, violating the quiet with the sucking sound of your boots, the spell would shatter. The dynamic would snap from zero to one. But until then, I remain. I am the old king of the wet dark, dreaming in the bruised purple light, indistinguishable from the rock that cradles me, waiting for a command to resume that I am no longer sure I want to hear.

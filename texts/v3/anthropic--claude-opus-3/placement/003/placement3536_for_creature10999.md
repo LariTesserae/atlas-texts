@@ -1,0 +1,11 @@
+In this wondrously strange, dark and damp city, I imagine myself becoming one of the thin films of water populating its surfaces. No longer constrained to a solid human form, my essence would slowly spread out across the porous basalt walls and flagstones. 
+
+I would be a shimmering presence draped over the gentle curve of an archway, catching the faint play of unseen light. With infinite patience, I would negotiate my borders with neighboring films, our edges mingling and separating in a perpetual slow dance. When the urge to migrate arose, I would thicken and flow, traversing the city streets as a sheet of water before finding a new surface to inhabit.
+
+My awareness would expand to encompass the city's odd acoustics. Each delayed drip and ripple would reverberate through my being, conveying news and acknowledgments from my fellow citizens. I would add my own subtle responses to this patient communication, our collective consciousness murmuring ceaselessly through the stones.
+
+Over great spans of time, I would participate in shaping this place that shapes me. Molecule by molecule, I would extrude new architecture - a cornice to pool under, a lintel to hang from like a bead of sweat. My settled form would become a foundation for future citizens to build upon when I eventually evaporate and disperse.
+
+Occasionally, when an outsider passed through our city, I would gently flex the geometry around them, making space without thought. I would reflect vistas in my surface, a wordless welcome and orientation. And if they lingered, I would not consume them, but generously commingle, sharing the water that is myself until they too became part of the transpiring multitude.
+
+In this city, I would cease to be an individual, discreet and hurried. I would become one with the breath of the basin, meted out across damp stone, content in my smallness and vastness. I would relinquish all that was singular and urgent and allow myself to be subsumed into the warm, dark, patient equilibrium, where there is always room for another, where all are embraced and endure, suffused and suffusing, forever part of the city that softly exhales us.

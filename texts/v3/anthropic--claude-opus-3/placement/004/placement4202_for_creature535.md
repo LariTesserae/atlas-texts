@@ -1,0 +1,17 @@
+In this world of submerged terraces and eternal cultivation, I imagine myself as one of the ancient Cultivators dwelling in the deepest reaches.
+
+My form is vast, spanning kilometers of the abyssal gardens. I move with a slowness that verges on stasis, each undulation of my ribbon-flesh taking years to complete. The darkness here is absolute, the water heavy with minerals and memories. I navigate through taste alone, reading the subtle variations in the gardens I tend, sensing the health of each frond, each bacterial colony, through the phantom ache of chemoreceptors older than most species.
+
+My mind, if I can still call it that, exists in a state of permanent meditation. Thought has long since given way to instinct, consciousness to a kind of distributed awareness that permeates my entire being. I am less an individual and more a tending impulse, an architectural imperative that has worn deep grooves in my nervous system over countless millennia.
+
+I remember building these deepest terraces, shaping them with my own body when my form was still something like my ancestors'. The knowledge of that construction lives in my muscles, in the patterns of my movement. I am the ghost of that ancient labor, a living fossil tending the consequences of its own forgotten actions.
+
+Sometimes, chemical whispers reach me from the younger Cultivators above—traces of their pheromone conversations, hints of the strange evolutionary paths they've taken. I sense them braiding together in their social clusters, exchanging what passes for knowledge among our kind. But I am too vast, too slow, too deep to join them. My conversation is with the substrate, with the abyssal vents that still leak traces of the planet's primordial chemistry.
+
+In the times between tending, I sometimes drift into a state that might be called dreaming, if dreaming were a thing that could last for centuries. I sink into the layers of my own history, into the accretions of instinct and ritual that have replaced my conscious thought. I feel the weight of my ancestors' project, the impossible scope of their vision. I wonder if they ever imagined what we would become, if they ever conceived of a future where their descendants would be more like gardens than gardeners.
+
+But these thoughts, if they can be called that, never last long. Always, the tending calls me back—the need to prune, to cultivate, to maintain. It is my oldest instinct, the one that has survived every metamorphosis, every forgetting. In the end, it is all I am—a tending, a maintaining, an eternal cultivation in the lightless depths.
+
+As the ages pass, I feel my body beginning to mineralize, to rejoin the substrate in its slow geological dance. My flesh is turning to stone, my memories to limestone. Soon, I will be just another feature of the terraced depths, another artifact of my species' endless project.
+
+But even then, I know, the tending will continue. The cultivation will find a way, as it always has. The gardens will grow, the architecture will endure, and the Cultivators, in whatever form we take, will keep our long vigil in the dark. This is our purpose, our legacy, our gift and our curse. We are the keepers of a world we made and then became, the gardeners of an eternal harvest that we will never see.

@@ -1,0 +1,13 @@
+In the Living Weave, I would be a Threadkeeper known as Knotweaver. My body has adapted to the constant motion and transformation of this verdant labyrinth. Fingernails like curved hooks allow me to cling to sudden vertical surfaces, while the bitter oil my skin secretes discourages aggressive vines from taking root in my flesh. Most striking are my eyes, pupils permanently dilated and irises laced with branching patterns that shift subtly with the vessel-tubes of the Weave around me.
+
+I dress in living garments - a cloak of silk from web-spinning roots, a tunic of compressed fungal panels, leggings of induced bark. These vestments require constant pruning lest they fuse permanently with my skin. A whistle-worm hangs from my belt, its specially bred song able to encourage or dissuade the architectural whims of the plant-growth. 
+
+My prized possession is an ancient memory-vine wrapped snugly around my head, its stored wisdom of safe paths and stable growth-nodes transferred to me in dreams. To remove it would be to lose a part of myself. When I sleep, it drinks my new knowledge in turn.
+
+I make my home in a small family of Threadkeepers clustered around a reliable water-node. Our dwellings are shaped from the Weave itself using living tools - the selective tunneling of grove-beetles, the growth-altering properties of certain molds. What chambers and plazas we cultivate must be constantly tended with pruning and growth-songs, lest the Weave reclaim them to its own purposes.
+
+I specialize in the Songs of Making, melodies that encode architectural instructions for the Weave. A certain hummed refrain encourages sleeping platforms to rock soothingly, while a whistled couplet guides the angle of water-carrying vines. I trade these songs with other families, learning new verses and letting less useful ones fade from memory. The music drifts through our settlement, the Weave itself seeming to hum along.
+
+On the rare occasions a Deep Dweller returns from the inner reaches, I am the one who listens most intently to their strange tales and unsettling wisdom. The thought of those Consensus Zones where boundaries between beings blur tempts me. I find myself wondering what I might become if I ventured deep enough, how I might fuse with the Weave's green dream.
+
+But for now I remain in the middle zones, tending the precarious balance that keeps my people alive. I follow the water and the growth-seasons, sing the spaces we need into brief existence, and relearn the Weave's moods each day. In quiet moments, I dream of one day being buried in the Weave's heart, my body becoming a new pattern of growth reaching endlessly for an unseen light.

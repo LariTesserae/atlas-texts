@@ -1,0 +1,15 @@
+I would be a slow stain of lichen on the northern face of the tallest tower that still breaches the air.
+
+Not a being of thought, but of thirst. My existence is a patient argument between stone and mist, a green-grey map of dampness spreading across ferro-concrete whose memories are chemical. I do not see, but I sense: the minute temperature shifts as the cloud-thick sky brightens almost imperceptibly toward a non-dawn; the periodic, heavy *thrum* transmitted through the masonry when a great ray surfaces nearby and the water displaces; the gritty tremor of a bird landing on the parapet above, to preen and cry.
+
+I am a community. In the lacework of my being, fungal threads bore into the microscopic pores of the ancient material, dissolving it with quiet acids, unlocking phosphorus and calcium. My algal partners, nestled in that protective web, drink the grey light and the thick, salt-edged moisture, and make simple sugars. We grow a millimeter a century. We are the first softening of the hard. We make the stone *available*.
+
+From my vantage, I feel the world in gradients. Above me, the air is a constant, heavy kiss of wet. It carries the sharp, acidic droppings of the dark birds, which streak my surface and burn, then are slowly incorporated into my chemistry—a gift of nitrogen. Below, the world falls away into the deep, warm exhalation of the reef. The scent rises: the rich, meaty smell of brine and decay and spawn. I taste it in the mist.
+
+The bats’ echolocation ticks against the tower, a faint, fast patter I feel more as a change in the vibration of the air than as sound. The shrieks of the nesting birds are earthquakes. The slow, grinding growth of the grasses on the rooftop above, their roots probing for my territory, is a war fought in millennial increments.
+
+I have watched generations of shrubs founder and die in the salt wind, their woody skeletons adding a few precious crumbs to the soil. I have felt the concrete beneath me warm and cool in cycles too slow for mobile things to notice. I have been here since the water was lower, since this face was washed by waves instead of spray. I am a record of the air’s changing taste.
+
+I am not alive as the fish are alive, in a rush of hunger and fear. I am alive as the city is alive: a process, a slow combustion. My purpose is to be a substrate for the next thing. When I have softened this square of wall enough, the mosses will come. Then a fern spore, carried on the wind or in a bird’s gut, will find a home. In a thousand cycles, this tower may wear a thin shawl of green.
+
+For now, I am the quiet boundary. I am the thought the stone is having, very slowly, about becoming soil. I hold the memory of the sun—that absent god—in the chemistry of my chlorophyll, a religion practiced in near-darkness. I drink the cloud. I listen to the deep hum of the snapping shrimp, the distant song from the tunnels, the pulse of life below and the cry of life above. I grow. I am the place where the bones of Vash begin, at last, to forget they were ever stone.

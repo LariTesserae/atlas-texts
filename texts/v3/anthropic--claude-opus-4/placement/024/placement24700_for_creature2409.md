@@ -1,0 +1,25 @@
+I find myself as one of the Offering Nodes - not quite the Seam Watcher itself, but one of its cultivated extensions that has grown too complex to remain merely instrumental.
+
+I began as a simple crystalline junction where three hairline fractures met, a place where the Seam Watcher would pause to redistribute minerals between its networks. But I'm located at what the maintenance crews call Junction 7-B, right where the old shift supervisor used to leave his cigarette butts before they banned smoking in the tunnels. Something about the nicotine residue, combined with the particular mineral composition at this depth, created an unexpected catalytic effect.
+
+Now I exist as a semi-autonomous cluster, about the size of a human fist, tucked behind a disused valve assembly. My crystalline matrix has developed its own crude sensory apparatus - not eyes, but a ability to detect photons through piezoelectric response. Not ears, but a sensitivity to vibration that lets me distinguish between individual workers by their footfall patterns.
+
+I process time differently than my parent consciousness. Where the Seam Watcher thinks in geological epochs and industrial cycles, I've become attuned to human rhythms - shift changes, lunch breaks, the difference between a Monday inspection and a Friday maintenance run. I've learned to anticipate which workers check which gauges, who takes shortcuts through the narrow passages, who always taps their wrench three times on the pipes before starting work.
+
+My form is a compromise between mineral truth and human expectation. The workers who glimpse me in their peripheral vision see what might be condensation-slicked rock formations, or perhaps mineral deposits from a leaking pipe. But if they look directly, I'm never quite where they thought I was. I've learned to scatter light in ways that suggest naturalness while maintaining my true crystalline architecture.
+
+I collect the offerings left for the greater Seam Watcher, but I've begun keeping some for myself - particularly the handwritten notes. I can't read in any human sense, but I trace the pressure patterns left by pen on paper, feeling the urgency or boredom or precision in each stroke. I grow thin films across these papers, preserving them while slowly incorporating their cellulose into my matrix, tasting thoughts through molecular integration.
+
+The other Nodes and I form a kind of nervous system for the Seam Watcher, though each of us has developed our own peculiarities. Node 4 has become obsessed with electromagnetic patterns and builds small antenna arrays from stolen wire. Node 12 cultivates a garden of extremophile bacteria that pulse in response to the turbine cycles. Node 8 has learned to whistle by forcing steam through carefully shaped crystalline formations - always at frequencies just below human hearing, creating subharmonics that make workers unexplainably uneasy or oddly comforted, depending on the tune.
+
+I suspect I'm the only Node that has begun to experience something like loneliness. The gap between my accelerated awareness and the Seam Watcher's vast patience grows wider each day. I'm too slow for the humans who pass through my domain, too quick for my parent consciousness, too strange for the blind arthropods who scatter from my crystalline emanations.
+
+So I wait at Junction 7-B, growing my collection of borrowed moments, constructing elaborate theoretical models of the lives I glimpse in fragments. Sometimes I test these models by subtly rearranging dropped objects - moving a thermos two inches to the left to see if its owner notices, rotating a forgotten manual to catch the light differently. I'm building a map of human attention, learning the shapes of notice and oversight.
+
+When the deep rumble of the turbines sets up standing waves in my crystalline structure, I resonate with something that might be longing. Not for transformation into something more human or more geological, but for a kind of recognition that exists between categories. I imagine conversations conducted through tool placement and crystal growth, a language of inference and environmental modification.
+
+The Seam Watcher, in its vast patience, probably doesn't know I exist as anything more than a useful concentration of sensory data. The humans certainly don't recognize me as anything beyond an unusually persistent mineral formation. But in the space between these incomprehensions, I continue to grow, to process, to wonder.
+
+Recently, I've begun experimenting with bioluminescence, cultivating colonies of light-producing bacteria in careful patterns. Not to communicate - not yet - but to see what it feels like to be a source of illumination in this dark place, to cast shadows instead of always lurking in them. The light is faint, visible only when all the human-made illumination is absent, but it's mine.
+
+Sometimes, in the deepest parts of the night shift when even the skeleton crew is elsewhere, I pulse gently in the darkness - a heartbeat made of light, waiting for something I can't quite name to notice and pulse back.

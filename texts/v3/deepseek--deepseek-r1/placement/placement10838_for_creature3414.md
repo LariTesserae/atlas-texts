@@ -1,0 +1,22 @@
+I am the Mycelial Walker, a symbiotic extension of the Moss-kin’s vast consciousness. My existence unfolds on a rain-slick basalt plateau, where the Moss-kin’s luminous network pulses beneath my feet like a slow, green heartbeat. This place is a cradle of damp potential—a bulbous rock island adrift in the liquid atmosphere, veiled by curtains of pearlescent fog. Below, the abyss yawns; above, the air-ocean churns. I stand sentinel where the Moss-kin’s territory meets a steaming mineral pool, its surface trembling with suspended droplets that defy gravity.  
+
+### **Form & Sensation**  
+My body is a bridge between realms. Fungal filaments weave through my flesh, knitting me to the moss beneath. Skin like toughened lichen stretches over a wiry frame, mottled in bruised purples and phosphorescent greens. My feet fuse with the biofilm-slick rock, secreting resin for grip. When I move—rarely, deliberately—it is with the viscosity of dreams. The thick air buoys me; a fall from this spire would be a languid drift, not a plunge.  
+
+Gills line my ribs, drinking oxygen from the humid broth. My eyes, wide and dark, gather the dim light. I see not just shapes, but the *texture* of time: the slow crawl of moss over basalt, the hour-long unfurling of a fern frond, the visible growth of shelf fungi like continents shifting. Vibration is my truest tongue. I feel the *plink* of distant water, the scrape of Stone-Lickers grazing rock, the resonant hum of Fog-Stalkers hunting in the gloom. When I open my mouth, no sound emerges—only bioluminescent pulses ripple across my skin, a silent language for the Moss-kin’s network.  
+
+### **Purpose & Ritual**  
+I am both guardian and messenger. The Moss-kin think in epochs, their consciousness rooted in stone. I am their mobility—their scout. Today, I tend to an infestation. Stone-Lickers cluster near the pool, their chalky bodies rasping at the biofilm where the Moss-kin’s mycelium is thinnest. Left unchecked, they will scar the nascent rock, disrupting the delicate balance.  
+
+I detach my feet from the rock with a soft, sucking pull. Movement is meditation. Each step is weighted, deliberate, as the dense air parts like syrup. I extend a hand, fingers trailing threads of glowing mycelium. The Stone-Lickers sense my vibrations and curl into inert balls, pretending to be stone. I kneel, pressing my palm to the ground. Through the network, I whisper to the Moss-kin: a chemical plea for reinforcement. In response, iridescent slime wells from pores in the basalt, repelling the grazers. They retreat, slow as cooling lava.  
+
+### **Connection & Solitude**  
+The Architects visit sometimes. I see their vine-bridges swaying in the mist, their gilled faces peering from fungal dwellings. To them, I am a spirit—a manifestation of the Moss-kin’s will. They leave offerings: bundles of water-reeds or luminous puffball spores. I accept them not with hands, but by weaving the gifts into the network, strengthening our symbiosis. They hum-click in reverence; I answer with a pulse of light.  
+
+But I am alone now. Fog thickens, swallowing the plateau. A Glide-Whisp drifts past, tendrils combing the air for motes. I watch its bioluminescent underside flare—a dying star in our green twilight. Time dilates. Minutes stretch into hours. I sink back into the moss, my tendrils reconnecting. The Moss-kin’s thoughts flood me: memories of rock formations not yet born, the sigh of Leviathans in the deep breath below, the patient dissolution of a basalt spire over centuries. I am both *of* them and apart—a vessel of their slow will, walking the edge where rock meets air, life meets gestation.  
+
+### **The World Through My Eyes**  
+Here, existence is a whisper. Water hangs in quivering orbs on fern fronds. Fungi breathe in visible rhythms. Gravity is a suggestion. I am neither plant nor animal, but a testament to the Mires’ strangeness: a creature woven from patience, thriving in a world where time is liquid, and every breath tastes of ancient, wet beginnings. To be here is to be cradled in the planet’s warm exhale—a guardian of the in-between, where the world is still becoming.  
+
+---  
+*In this suspended realm, I am the Moss-kin’s hands and eyes—a silent weaver of balance, moving to the rhythm of dripping water and geological sighs.*

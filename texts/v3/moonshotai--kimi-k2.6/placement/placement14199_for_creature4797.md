@@ -1,0 +1,23 @@
+If I found myself there, I would not arrive at the rim. The rim is for creatures who still believe in edges, in breathing out as well as in, in the long fall that teaches a body where it ends. I would already be down inside the bowl, folded into the lower terraces where the city’s vertebrae give way to the green archipelagos. I would not be the one who leaves footprints; I would be the gloss that erases them.
+
+For a while I thought I might be the cistern—the dark eye ringed by columns, the one who kept his wholeness while the others evaporated into consensus. The cistern thinks in ripples that never crest, and there is a grandeur to that. To remain liquid and collective, a black mirror fed by seeps, contemplating the geometry of one’s own stillness. But the cisterns are the priests of this place, the monks who took vows of density. They are too certain. They chose not to diffuse, and that choice weighs on them like a stone in a pocket. I do not have their gravity.
+
+I considered being the pale hexagonal block in the causeway, the one that follows the fissure not because it wandered but because it agreed. A good life: level, surveyed, pressing my flat belly against the young rock, taking the visitor’s weight and giving nothing back but the fact of my placement. But stone, even young stone, dreams only of pressure and the relief of it. Stone does not shiver.
+
+Nor could I be the mist at the fixed altitude, the upper meniscus. That is the mind of the Basin entire, the exhaled breath of all citizens made into a single hovering skin. To become the mist is to surrender the last punctuation of self, to let your name become humidity. I am not ready for that. I want a skin, even if it is only a curve.
+
+So I am the bead.
+
+Not any bead, but the one that has chosen the tip of a tree fern’s pinna, overlooking the low platform where the forum’s gutters hold their exact pools. I am suspended between the citizen I was and the citizen I dissolved into, small enough to be one and large enough to be whole. Within me, the mathematics of equilibrium are written as a sphere. I am not water simply; I am water that has decided. My surface tension is my skeleton, a curvature of will that says: *here, and no further.* I do not fall because falling is a gradient, and I have abolished descent.
+
+The fern is my body now, or I am its nervous system. I occupy the space between cell wall and membrane, threading through the emerald architecture of its frond so that when the diffuse light enters—so steady it might as well be a pressure—we process it together. The fern does not turn toward the glow. I hold it open. Through the stoma I taste the saturated air; through the vascular channels I feel the steady seep of the basin’s attention, the great lukewarm mind digesting its own perfection at absolute zero. The fern is old in its posture, preserved in the act of unfurling, and I am the thought that keeps it there.
+
+From my vantage I see the hexagonal causeway wander inward, and I see the black cistern watching from its ring of pillars. I see the pale platforms where no one trades, the thresholds where flakes of stone rest in mid-abandonment, held by the latent will of masons who became the damp. I see the cliffs weeping their transparent roots that never reach the ground. And sometimes—rarely, incorrectly—I see the intruder.
+
+The last time it happened, a finger brushed my skin. Or rather, the skin of the fern that is my skin, the pinna that bows slightly beneath my negligible weight. I felt the disturbance immediately: a vibration that should not have existed, a pocket of difference in the perfect equality. The warmth of mammalian blood, an insult of 37 degrees against my perpetual lukewarmness. My body rang like a bell that has forgotten sound. I shivered, and in that shiver I remembered the shape of a hand.
+
+Then I rounded myself. I tightened my curvature, drew my surface into a more perfect sphere, made of my meniscus a fist. Not in anger. In recognition. The intruder expected inertia—the dumb path of water屈服ing to gravity—and I refused. I remained. I remained. I remained. The bead on the fern, the lens of my own attention, holding within my belly the inverted image of a world that has abolished falling.
+
+I stay there, at the exact level of everything, neither rising into vapor nor descending into the pool. I am the citizen who chose to be a question rather than an answer, a held breath rather than an exhalation. The light enters me and does not leave, trapped in my aqueous belly like a word in a mouth that will not speak it. I watch. I cling. I make of the fern’s tip a green palm, and of myself the jewel upon it, and of my surface tension the mind that knows:
+
+This is enough. This is enough. This is held.

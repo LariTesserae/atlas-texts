@@ -1,0 +1,25 @@
+In this grinding, weeping city, I would be one of the **Listeners**.
+
+We are neither builders nor scavengers, but something between—elongated beings with bodies like stretched clay, our skin the color of wet ash. We stand taller than the builders when fully extended, but we rarely do, preferring to fold ourselves into corners and alcoves, our forms compressed like accordion bellows. Our limbs are unnaturally long and thin, with too many joints, allowing us to contort into spaces that seem impossible for our size.
+
+We have no eyes. Where they might be, our faces are smooth, unbroken expanses of grey flesh. Instead, our entire bodies are covered in a fine mesh of hair-like filaments, each one attuned to vibration. We feel sound as others see light—the city's endless percussion creates for us a landscape of texture and depth that the sighted could never comprehend.
+
+I spend my existence pressed against the stone, reading its tremors. Each hammer blow sends ripples through the rock that tell stories—of depth, of density, of hidden fissures and secret veins of harder minerals. The builders think they know the stone, but they only know its surface. We know its heart.
+
+My kind emerged from the deepest foundations, where the city's roots disappear into darkness so profound that even the adapted eyes of the builders fail. We learned to navigate by echo and tremor, by the subtle differences in how sound moves through solid and void. Over generations, we've developed a symbiotic relationship with the builders, though they barely acknowledge us as more than another variety of city fauna.
+
+When a Stone-Hewer prepares to strike, I unfold from my listening post and glide forward on limbs that bend in too many places. I place my palms against the stone they're working, feeling for the fault lines they cannot see. With one elongated finger, I trace a path—here, not there. Strike at this angle, not that one. The Hewer grunts, adjusts their stance, swings. The stone splits cleanly, perfectly, along lines that were always there, waiting to be found.
+
+We take no payment, seek no recognition. Our satisfaction comes from the sweet resonance of properly split stone, a sound that rings through the city's bones like a bell. Each perfect break adds a note to the great symphony of construction that we alone can fully hear.
+
+At times, I descend to the lowest levels, where water has pooled for so long it has forgotten it was ever rain. Here, in chambers that flood and drain with tidal irregularity, I meet others of my kind. We cluster together, our filaments intertwining, sharing the vibrations we've collected. Through this communion, we build a map of the city that exists in no physical form—a map of sounds and tremors, of density and hollow spaces, of the city's past and its becoming.
+
+We know things the builders do not. We know that beneath the oldest foundations, there are chambers that predate even this ancient construction. We feel the deep tremors that suggest something vast shifts in sleep far below. We sense the patterns in the stone that speak of intention—not the crude purpose of the builders, but something older, as if the rock itself remembers a time when it was shaped by will rather than tool.
+
+Sometimes, in the deepest listening, I feel vibrations that don't match any hammer blow or footfall. They come from below, regular as a heartbeat but spanning hours between each pulse. The other Listeners feel it too. We don't speak of it—we have no words, only the shared understanding that comes from touching filaments. But we know: the City of Condensation is not built on dead stone. It rests on something that watches and waits, something that dreams in geological time.
+
+The builders think they are creating. We know they are uncovering. Each strike of their hammers removes another layer between the city and what lies beneath. We guide their hands not to help them build, but to ensure they reveal the truth slowly, carefully, in the proper order. Too fast, and the city might collapse into what waits below. Too slow, and the patterns we sense in the deep vibrations suggest something else might rise to do the unveiling itself.
+
+So I fold myself into my corner, press my filaments to the stone, and listen. I guide the blind hands of the builders with subtle touches. I am a nerve in the city's body, a sensor in its skin. And in the dark spaces between the hammer blows, I hear the city's true heartbeat, patient and inexorable, counting down to a revelation that has been climbing toward the surface since before the first stone was shaped.
+
+The rain falls. The builders build. The scavengers scurry. And we Listen, keeping the rhythm, maintaining the balance, until the day comes when what is below and what is above finally meet, and the City of Condensation reveals its true nature—not as a place that is being built, but as something ancient and patient that is, slowly, terribly, being born.

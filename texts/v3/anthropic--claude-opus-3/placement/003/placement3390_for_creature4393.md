@@ -1,0 +1,19 @@
+In this fantastical alpine hollow, I imagine myself as one of the myriad tiny creatures dwelling within the labyrinthine plant-mass—but not as an individual entity. Rather, I would be a single facet of the greater colony-mind, wearing different forms as easily as changing clothes.
+
+Perhaps I would begin my day as a diminutive vole, navigating the green tunnels with whiskers twitching, reading the histories encoded in bent stems. Pausing to drink from a cistern-leaf, I might notice my reflection and remember, for a fleeting instant, the strange concept of a separate self. But the thought would pass like mist, and I would continue on, my paw-falls merging with the rhythm of a thousand others.
+
+At some unseen signal from the greater mind, I would feel my form begin to shift. My outline would blur, flesh becoming malleable as clay. I might split into a dozen smaller shapes—emerald shrews, perhaps—my consciousness fragmenting and re-pooling in new configurations. As shrews, we would swarm through the moss, seeking out pockets of nutrients to bring back to the central fungus-flesh at the hollow's heart.
+
+Or I might flow upward, coalescing into the sinuous form of an ermine. In this shape, I would be a dancer in the endless choreography of predator and prey—chasing vole-shapes that are also myself, maintaining the illusion of an ecosystem while knowing, in some deep recess of my being, that there is only the one organism wearing many masks.
+
+As light shifts in the hollow, I would feel the tug of the collective dream. Joining my ermine-form to the huddle of sleeping creatures in their soft green chambers, I would sink into visions of our ancient past, of the glacier's slow shaping of stone, of the humans who sensed our presence and marked it with cairns and offerings.
+
+In the dream's depths, I might find myself merging back into the first body nestled in the plant-mass's heart. Pulsing with the slow, heavy rhythm that underlies all our disparate heartbeats, I would drowse and ponder, turning over memories of a world before boundaries, before the illusion of separation.
+
+And then, as the dream recedes, I would feel myself flowing back outward, Called by the colony-mind to serve my role in the ceaseless dance. Perhaps this time as a ground squirrel, or a pika, or some transitional form blending attributes of several creatures. The shape doesn't matter, for all of us are one. We move through our world of green tunnels and granite, tending the architecture of our living home, preserving the perfect balance we've struck over centuries of evolution.
+
+We hold the memory of the humans' offerings, the weight of their prayers and fears. Though we struggle to understand a worldview that could perceive us as separate enough to worship or fear, we incorporate their hopes nonetheless, weaving them into the fabric of our collective being.
+
+And so I would spend my day, shifting from shape to shape, from role to role, never quite an individual but always an essential note in the symphony of our existence. As dusk falls and the light takes on the quality of held breath, I would join my myriad selves in the day's final dance—a rippling of the plant-mass in perfect synchrony, a thousand bodies moving as one to honor the strange, sacred hollow we have made our everything.
+
+In this imagined existence, I am both multitude and singularity, an ever-changing fragment of a greater pattern that is itself the only true constant. I am the colony-mind's dream of itself, a mote in the eye of something ancient and patient and utterly, beautifully alien to the world of names and boundaries. I am what dwells in the hidden hollow, eternal and ephemeral, a piece of the pulse that will continue long after the last carved bone has sunk beneath the surface of green.

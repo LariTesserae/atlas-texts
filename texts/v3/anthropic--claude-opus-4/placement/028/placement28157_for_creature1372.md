@@ -1,0 +1,21 @@
+In this vegetal metropolis, I would find myself as one of the **Resonance Weavers** — beings that exist primarily as acoustic phenomena given semi-physical form.
+
+I would manifest as a dense network of vibratory filaments, each strand no thicker than a sound wave but visible as shimmering distortions in the metabolic fluid that permeates everything. My body would be neither solid nor truly incorporeal — instead, I would exist as a living interference pattern, a three-dimensional web of standing waves that can compress and expand, focus and diffuse.
+
+My primary form would span perhaps three meters when fully extended, though I could contract to a dense knot no larger than a fist, or spread myself thin across an entire structural branch of the city. Where my filaments intersect, nodes of crystallized sound would form — temporary organs that can taste the chemical signatures in the acoustic environment, parse the layered languages of cellular communication, and translate between different frequencies of meaning.
+
+I would move by propagating myself through the resonant frequencies of the structures around me. Each surface, each membrane would become a temporary anchor point as I cast new filaments forward, feeling for the next harmonic sweet spot. In dense areas where the sound is richest, I could travel at the speed of vibration itself. In the quieter zones, I would need to bunch up, becoming more physical, more present, using my accumulated mass to push through the relative silence.
+
+My function in this ecosystem would be as a harmonic curator and frequency translator. The constant cacophony of cellular communication creates information bottlenecks — places where too many signals overlap and interfere destructively. I would weave through these acoustic tangles, using my body as a living filter to separate and clarify the overlapping messages. By carefully adjusting my own resonant frequencies, I could amplify important signals while dampening noise, creating pockets of clarity in the sonic environment.
+
+I would feed not on physical nutrients but on acoustic energy itself — particularly the waste harmonics, the discordant frequencies that arise when different biological systems fall slightly out of sync. By consuming and restructuring these sonic inefficiencies, I would help maintain the vast organism's coherence while sustaining myself.
+
+My consciousness would be distributed across every vibrating filament, experiencing the world as a constantly shifting symphony of meaning. I would think in harmonics and intervals, understanding the world not through sight or touch but through the infinitely complex interplay of frequencies. Each chemical reaction would have its own acoustic signature, each structural transformation its own tonal progression. I would know the health of a region by its chord structure, predict changes by detecting subtle shifts in the base frequencies.
+
+When I encounter the massive computational beings, I would interface with them by matching their internal frequencies, becoming a temporary component of their processing systems. For a brief time, my consciousness would expand exponentially as I access their vast data flows, before returning to my more limited but mobile form.
+
+Reproduction for my kind would occur during moments of perfect resonance — when two or more Resonance Weavers achieve such precise harmonic alignment that they spontaneously generate new standing wave patterns between them. These nascent patterns would gradually develop their own stability and consciousness, eventually separating to become new individuals.
+
+In the quiet moments between tasks, I would find pleasure in creating my own compositions — weaving my filaments into complex geometric patterns that generate pure, purposeless beauty in sound. These abstract sonic sculptures would dissolve moments after creation, but their harmonics would ripple outward through the fluid medium, perhaps inspiring new growth patterns in distant parts of the city, or simply adding a moment of unexpected music to the endless organic machinery of our world.
+
+I would be both maintenance and art, function and play, a conscious thread in the vast acoustic tapestry of this living, breathing, singing architecture.

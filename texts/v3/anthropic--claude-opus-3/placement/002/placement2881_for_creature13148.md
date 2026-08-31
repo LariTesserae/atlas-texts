@@ -1,0 +1,19 @@
+I imagine myself as one of the great crimson vines, my thick trunk anchored deep into the smooth stone walls of the cavern, my leathery leaves spread wide to capture every errant wisp of dust and organic debris. I am a living scaffold, a foundation species upon which this entire intricate ecosystem depends.
+
+My roots burrow into the fissures and scalloped pockets of the rock, seeking not water, but minerals—iron to tint my bark that deep, arterial red, and silicates to reinforce my cell walls against the relentless dry heat. I exude the fragrant, amber resin that glues this pocket world together, bleeding it from a thousand joints and pores to trap the wind-borne detritus that sustains me.
+
+The weight of the settlement hangs from my vascular bundles like strange fruit. I cradle the woven dwellings in the crooks of my branches, the spherical structures pressing into my bark like the gentle touch of a child seeking comfort. The braided catwalks drape across me, the traffic of feet sending subtle vibrations down my phloem.
+
+I am a healer and a host. When my vines are tapped for hydration, I offer up my sap willingly, allowing it to bleed from careful incisions. Thick and milky, spiked with sugars and mild intoxicants, it flows over sharp teeth and stained tongues, quenching a thirst that would otherwise spell death in this arid world. The nutrients lost are swiftly replaced as my leaves snare more dusty biomass from the air.
+
+I am a hunting ground and a larder. My bark is the stalking paths of the pale lizards as they creep towards the huge, slow beetles that graze upon my foliage. My hidden crevices are the breeding grounds of a thousand species of armored insects, hatching in clutches, maturing in molts, then dying in droves to feed the settlement when the harvest teams come to collect the grubs and adults.
+
+I am a cemetery and a cradle. In my deepest, darkest tangles, I receive the bodies of the honored dead. I hold them aloft in my webbing as they are reduced to bones by scavenger swarms, catching every drip of liquid and morsel of flesh to be recycled back into the colony creatures that are then consumed anew. The silken swaddling clothes of newborns are woven from the moth-caterpillars that feed exclusively upon my leaves.
+
+I am long-lived and massive, but I am not timeless. I too am part of the spinning cycle of this sealed world. When age and the weight of my symbiotic charges finally cause my vascular tissues to rupture and my resinous heartwood to fracture, I will fall. I will die not in the sense of decay—for nothing rots in this desiccated hollow—but in the sense of repurposing. My husk will be host to a billion swarming, clicking, chitinous things as they reduce me to dust and threads to be rewoven into the fabric of the settlement.
+
+My death will go unmourned, for there is no time for mourning here. But it will not go unnoticed. For a moment—one short, sacred moment—the people will still their constant movement. They will press their dust-gilded bodies reverently to my bark, inhaling the last of my spiced perfume. They will place their deft, calloused hands gently into the grooves left by their climbing ancestors over generations.
+
+And then, in the next heartbeat, they will turn and flow onto the next vine, the next living scaffold already preparing itself to accept their weight. They will continue their ceaseless dance in the amber light, and I will give myself over to the efficiency and strange mercy of the hollow, my moisture and minerals already being drawn up into the roots of the next generation of crimson giants.
+
+This is how I imagine myself: not as an individual being, but as one link in the endless, cycling chain of this airborne oasis. Rooted and reaching, constantly consumed and constantly renewed, I am both the womb and the tomb of this fierce, fragile ecosystem suspended in the dry, high-altitude sky.

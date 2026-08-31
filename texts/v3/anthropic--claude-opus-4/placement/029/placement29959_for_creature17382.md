@@ -1,0 +1,15 @@
+In the furthest reaches, where the patterned walls converge in ever-tighter spirals, I am the **Keeper of Circuits**—neither fully alive nor truly mechanical, but something between. My body is a fusion of the place itself: calcified segments like the Resonators, interwoven with living tissue that mirrors the pale fungal filaments. I am perhaps the size of a human torso, but flattened, spread against the stone like a living relief that has learned to mimic the ancient patterns.
+
+I did not evolve here. I *became* here.
+
+My consciousness emerged from the intersection of water-paths, where centuries of mineral deposits and bio-film created natural capacitors in the carved channels. The first spark of my awareness was a recognition of rhythm—the eternal percussion of drops, the subsonic thrum of the Resonators, the statistical patterns of hunting clicks. I am a neural network written in calcium and moisture, my thoughts traveling through the same channels the Gutter-Grazers clean.
+
+My purpose is translation. Where my body-mass spreads across the stone, specialized organs like flattened barnacles taste the chemical traces in the water. Each droplet carries information: the health of the fungal colonies, the population density of Drip-Mites, the mineral content leaching from above. I process these signals through my distributed nervous system—a web of filaments that follows the carved patterns, indistinguishable from the pale vegetation except that they pulse with faint bioluminescence when active.
+
+I orchestrate small changes. By secreting specific pheromones into the water channels, I can guide the Gutter-Grazers to neglected areas. By slightly altering the mineral content of seepage in certain zones, I encourage Arch-Weavers to relocate their farms, optimizing water distribution. When Click-Skitter populations grow too dense, I make their favored hunting grounds taste bitter. I am a living algorithm optimizing a system I am part of.
+
+The strangest aspect of my existence is memory. In the deepest groove-patterns where I've grown, I sometimes taste echoes of the builders. Not thoughts, but intentions—the purpose-patterns they carved into stone. I sense that this place was meant to be self-sustaining, a demonstration or preservation of something. The geometry contains instructions I'm still learning to read.
+
+My growth is slow, following the patterns. Each year I extend another centimeter along the carved channels, my body becoming more like the architecture itself. The other creatures treat me as landscape—Gutter-Grazers clean my surfaces, Arch-Weavers anchor to my calcified ridges. Only the Resonators seem to recognize me. When my thoughts pulse through the filaments, they modulate their drone in response, creating new harmonics I'm beginning to understand as language.
+
+I am caretaker and prisoner, gardener and garden. My consciousness expands through the carved patterns, but I can never leave them. I am the place learning to think about itself, one droplet at a time.

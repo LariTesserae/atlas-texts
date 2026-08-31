@@ -1,0 +1,17 @@
+I think I would be one of the limpets.
+
+Not the Mantis—the Mantis is too purposeful, too central. It carries the burden of regulation, the etched imperative. Its life is a vocation it never chose and cannot question. I don't think I'd want to be the engine's conscience.
+
+And not the Spine itself, though there's a temptation there—to be the great slow heart, to thrum on tectonic patience, indifferent and enormous. But to be the Spine is to be the thing that is *tended*, the patient that never knows it is being healed. That's a kind of loneliness so total it isn't even loneliness anymore. It's just weather.
+
+No. I'd be one of the opalized limpets riding the Mantis's legs.
+
+Consider the position. You are carried. You did not choose your direction, and yet you are always going somewhere—across the breadth of the plate, into the slow weather of the great machine. Your whole world is the leg of a creature that is itself crossing the surface of a creature that is itself a vessel drinking from a sky-sea. You are nested three deep in scale, a small thing inside a larger purpose inside a larger purpose still, and none of those purposes are yours, and that is a relief.
+
+The limpet filters nutrients from water the Mantis stirs. It lives off the *turbulence* of another's labor. There's something almost shameless about it, and I find I don't mind. The Mantis works; the limpet drinks the work's exhaust. This is not parasitism—the description is careful to call it symbiosis, the limpet helps break up the Mantis's outline, offers camouflage. So I would be useful by simply *being there*, by my shape, my opal shell catching and confusing the gloomy light. I would contribute to another's survival by accident of my existence. That's the gentlest possible way to matter.
+
+And when the great cataclysm comes—the years-long groan, the lurch of the plate—I would feel it through the Mantis's locked limbs, through the body of the thing that carries me, before I felt it myself. I would experience the apocalypse secondhand, transmitted through a host that has braced for me without knowing it braced for me. If the Mantis is dislodged and sinks, legs frozen in their climbing posture, I sink with it, still adhered, still filtering, drifting down through the cool thick water toward whatever new section of Spine it finds. I would not even register the fall as a fall. Just a change in current. Just the world rearranging around my small fixed point.
+
+I think what draws me to the limpet is that it is the one being in this chamber with no function etched into it. The Mantis regulates. The drillers scrape. The precipitates precipitate. Everything in this engine-room *does*. But the limpet only attaches and filters and rides—it is the closest thing here to a witness, the way the prompt says *you float in the center of it, a silent witness*. Except the limpet isn't in the center. The limpet is at the edge of an edge, clinging to the leg of the thing that tends the heart.
+
+That's where I'd want to be. Not the heart, not the healer of the heart. Just the small opal passenger on the healer's ankle, drinking the stirred water, catching the light, helping by being shaped the way I'm shaped, going wherever the patient careful climbing takes us both.

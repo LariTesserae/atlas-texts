@@ -1,0 +1,11 @@
+In this vertical world of living wood and ceaseless rain, I would find myself as one of the Arbor-wrights, a mason of the titan trees. My form would be squat and immensely strong, with a barrel chest, short thick legs corded with muscle, and broad feet with prehensile, hook-like toes for gripping the slick bark. 
+
+My skin would be mottled shades of gray and cedar-red, deeply creased and exuding a pungent, waxy oil to shed the constant damp. I would wear a heavy, thatched cape of woven cedar-bark, forever soaked but keeping the worst of the chill from my core.
+
+My face would be weathered and craggy, with a heavy brow to divert the rain and striking horizontal pupils in eyes the pale blue of a mountain lake. My nose would be broad and downturned, my lips thick and calloused. 
+
+In my rough, scarred hands I would wield the heavy mallets of bone and adzes of flaked obsidian, my tools for the never-ending battle against the explosive growth of the gorge. Day after day, I would vault and swing across the slick, knotted highways with my fellow wrights, hacking back new shoots and vines, carving out dwellings and causeways, my arms forever glazed to the elbow in sticky sap.
+
+I would labor in concert with hundreds of my kind in the organized chaos of the vertical city, our grunts and piercing whistles slicing through the din of the river and rain as we shape the wood. In brief moments of respite, I would share the warmth of a shaggy ungulate with my clan, our bodies pressed into its steaming flank as we wait out the frigid night.
+
+My life would be short and hard and utterly intertwined with the titan trees. Each day I would pour my strength and sweat into the living scaffold, knowing my labor keeps the precarious city from being swallowed by the abyss. And in those rare, sacred moments when a shaft of sunlight pierces the mist and sets the canyon aglow, I would pause in my toil, turn my strange eyes skyward, and exult in my purpose as a keeper of the gorge, a master of wood and void, clinging defiantly to the edge of the world.

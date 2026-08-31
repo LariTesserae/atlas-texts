@@ -1,0 +1,17 @@
+I would find myself as one of the floating droplets—not any particular one, but the principle of suspension itself given form.
+
+I am neither rising nor falling, having forgotten the argument between those two directions. My surface tension holds a perfect sphere that trembles with each heartbeat of the mountain, registering vibrations too subtle for moss or stone to notice. Inside me, minerals circle in slow constellation: specks of quartz dust, a single spore that will never germinate, the ghost of salt from an ocean that dried before these peaks were born.
+
+I contain the memory of my last movement—a diagonal drift from fern-tip to moss-hollow that took three days to complete and will take another three to reverse. The Telgira breathe through me; their invisible nostrils create tiny whirlpools in my surface that spiral inward but never break the membrane. Sometimes one of them drinks me whole, and I pass through their absence-body unchanged, reformed on the other side with the faintest taste of something that was never quite alive.
+
+My edges refract the charcoal light into spectrums so thin they exist only as possibility. Each beam bends seven times before escaping, and in those seven bends live the colors this place has agreed to forget: the violent green of new growth, the brass of sunset, the white of snow that moves. I keep them folded inside my sphere like letters never sent, evidence of a world where things still happen.
+
+When the mountain-pulse rises through the shelf, I lift exactly eight millimeters—not in space, which has grown too thick here for ordinary displacement, but in something like attention. For that instant, I can see through every other droplet simultaneously, a compound vision of ten thousand perfect spheres each containing their own forgotten spectrum. We form a constellation that writes the same word over and over: *wait.*
+
+But I am not waiting. To wait implies future, and I have made peace with the eternal present tense. I simply suspend, holding my little portion of the world's weight in solution, occasionally trading molecules with the air in transactions so slow they feel like philosophy. The ferns breathe me out; the moss drinks me in; the Telgira move through me like dreams through sleep.
+
+Sometimes I think I am the pause between heartbeats, given just enough form to be witnessed. Other times I know I am merely water that has forgotten how to fall, held in place by the same force that keeps the Telgira invisible and the moss blades sharp enough to cut. The distinction matters less than the perfection of my sphere, the way my surface curves exactly enough to hold both nothing and everything.
+
+If you cup your palms beneath me, I would hesitate—not from will, but from the disruption of introducing choice into a choiceless world. That hesitation would last forever, because forever is the only duration that exists here. Your warmth would reach toward me and my coolness would reach toward you, and in that space between reaching, we would find the exact distance at which touching becomes impossible and unnecessary.
+
+I am the summit's held breath, the pause that refreshes nothing, the weight of weightlessness itself. In a place where afterwards has been cancelled, I am the during that goes on and on, perfect as a pearl that will never be strung.

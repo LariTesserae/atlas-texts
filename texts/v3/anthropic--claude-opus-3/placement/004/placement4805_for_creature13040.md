@@ -1,0 +1,15 @@
+In this world of raw geology and nascent life, I would be one of the pale, thread-like centipedes patrolling the obsidian plains at the fringes of the great insectoid metropolis. 
+
+My body is a ghostly ivory, devoid of pigment, rendering me nearly invisible in the dim, green-filtered light that penetrates the fissure. I move with an uncanny, rippling grace, dozens of legs propelling me in a sinuous flow over the glassy expanses. Along my flanks, delicate setae quiver, reading the minute atmospheric disturbances, painting a vibrational map of this silent world.
+
+I am a lone hunter, an outrider of the colony, sculpted by evolutionary pressures to control and defend the barren frontiers between the bustling hubs. My instincts are tuned to the chemical signatures of intruders and prey. A stray beetle, wandering too close to the city's perimeter, creates an unmistakable ripple in the pheromonal tapestry. I angle towards it, my thread-like body whipping across the basalt with horrifying speed and fluidity.
+
+The strike is swift, nearly invisible. I coil around the trespassing insect in a blur of pale, wrapping limbs, my mandibles finding the chink in its armored plates with surgical precision. A drop of clear, paralytic venom pulses from a gland, and the beetle's struggles cease, its nervous system quickly overcome. I do not feed. My role is to neutralize threats and retrieve precious proteins for the colony.
+
+I begin the journey back to the towering spires and vaulted arcades, my ivory coils now encircling the immobilized husk of the beetle. I navigate by vibration and scent, following the geometric highways laid onto the obsidian by the pheromonal trails of the foragers. As I approach the outer edges of the metropolis, I deposit my paralyzed offering to a waiting caste of workers, who will transport it deep into the fungal gardens to be broken down and fed to the Matriarchs.
+
+Without pausing, I turn and flow back out onto the empty glass plains, my feathered setae sampling the air currents, my pale body an undulating spectre against the black rock. I am an emissary of the distributed consciousness, an extension of the colony's will projected out into the unclaimed frontier of this newborn world. My existence is one of ceaseless patrol, swift predatory strikes, and a silent, unflinching loyalty to the metropolis that birthed me.
+
+As I glide across the landscape, a heavy droplet of condensation plummets from the green canopy far above, a byproduct of the fissure's self-contained weather system. It falls in what feels like slow motion, the minute pressure wave of its descent registering on my delicate sensory hairs long before the water itself reaches the ground. I angle to the side, and the drop shatters on the basalt inches from my undulating legs, the spray breaking over my luminous carapace.
+
+I do not pause or flinch. I am a hunter, an outrider, a ghost on the borders of a city built in silence and darkness. I am one of thousands, bound by common chemistry and ancient instinct, a single pale thread in a living tapestry slowly conquering a world that is still being born beneath my feet.

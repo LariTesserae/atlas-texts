@@ -1,0 +1,19 @@
+I am the Loom Tender. I am the breath between the Chromophage’s rumbling passage and the insect scribes’ frantic dance. I am the silence made vigilant.
+
+My domain is a single chamber, carved into the junction of three major tunnels, close enough to the heart of the city to feel its thrumming pulse, far enough to be outside the direct line of its slow digestion. It is a small space, barely large enough to stand in comfortably, and perpetually damp with the city’s steam-laden exhale.
+
+Within this chamber, I weave. Not fabric, not thread, not anything that would decay in this place. I weave the light. The fugitive, filtered light that seeps down the grimy shafts, the bioluminescence of the fungi, the faint, pulsing glow of the moss. I capture it, coax it, and thread it into intricate patterns across the chamber's walls.
+
+My loom is not of wood or metal, but of spider silk – spun by my own hand, cultivated from generations of pale, subterranean spiders that I keep as companions. Their venom is a mild soporific, their silk impossibly strong and fine. They are my eyes, my ears, in the tunnels beyond my chamber. They feed on the insects, and I feed them stories.
+
+The patterns I weave are not merely aesthetic. They are maps. Records. Prophecies. They track the shifting tides of rust and moss, the crumbling pathways, the subtle variations in the city's hum. Each color represents a different aspect of the city's life: the yellow of the fungal bloom, the violent purple of decay, the insidious red creeping of the moss which is a constant, hungry undertow beneath all.
+
+I am not *of* the city in the same way the insects, the worms, or the Chromophage are. I am an observer, a caretaker, a historian. I remember the time before the rust truly took hold, before the moss choked the engines, before the darkness became absolute. I remember whispers of the surface, visions of sunlight and open sky, passed down through generations of Loom Tenders. It's impossible to say where the truth of these visions has ceased and where the dreaming has begun, but I hold on to them all the same.
+
+My body is gaunt, pale, almost translucent. The light suffuses me, illuminating the skeletal structure beneath my skin. My eyes are large and luminous, adapted to the dimness. My fingers are long and delicate, stained with the colors of the light I weave. I am clothed in rags salvaged from the remnants of another life, but interwoven with strands of spider silk and patterns of light.
+
+I communicate not with words, but with patterns of light and vibration. I can send messages through the web of silk that permeates the city, warning of danger, guiding lost souls (though few remain to be guided). The spiders translate these vibrations into subtle shifts in their movements, allowing them to act as conduits for my awareness.
+
+The Chromophage knows of me, or rather, it knows of the vibration I represent. It does not seek me out. It understands my purpose, or at least tolerates it. We are both bound to the city, both playing our parts in the slow, inevitable dance of decay and persistence. It consumes, I record. Its dreams weave through my visions. We are echoes of each other in opposite corners of the city’s heart.
+
+My purpose is to remember. To preserve the city's story, not as a eulogy, but as a warning. To weave the light, not as a beacon, but as a guide through the darkness. To prepare for a future I can barely imagine – a future where the city might awaken, or where the surface world might once again remember its existence. In the meantime, I am the Loom Tender, and this is my vigil. And in the silence, the slow drum of my heart is yet another of the city’s many stories.

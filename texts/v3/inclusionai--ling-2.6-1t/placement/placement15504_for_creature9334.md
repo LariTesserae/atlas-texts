@@ -1,0 +1,17 @@
+You step into the hollow by accident, or by invitation—there is little difference here, where attention is its own threshold.  
+
+At first you are only a shadow crossing brightness, a smudge against the white mineral rime that glints like broken teeth. But the hollow has a habit of collecting loose ends. The ground, warm underfoot, hums faintly, and the air shivers with small collisions: a vine snapping, a seed pod popping like a snapped string, the dry clatter of your own boots on crust. You realize, slowly, that the noise is not happening around you so much as through you. Your bones have begun to answer.  
+
+You could keep walking, but the hollow prefers you to stay awhile. The architecture seems to loosen: a colonnade angles itself to catch your silhouette; a terrace unrolls like a tongue; a street you have already passed appears to have lengthened, politely, to give you reason to turn back. The brightness is loud here, and it leans. You feel it as pressure on your shoulders, a weight that is almost tender. Your skin, if you still have one, begins to remember that it can be porous. Fine silver lines bloom across your forearms, not painted but revealed, like cracks in old porcelain that want to let the light in.  
+
+You are becoming someone who can be lit.  
+
+The residents do not approach you. Instead, they let you be approached by the city. A curtain of seed pods clatters as you near a doorway, not to warn you off but to measure you. You notice that your own footsteps have changed—less a strike, more a tap, and then a resonance. A merchant sets out a tray of glass-lizard scales and says nothing. You reach out, not for the scale, but to tap it, and the note that rises is long and clear and smells, strangely, of wet stone. The merchant nods, once, and the transaction is done: you have paid with a sound you did not know you owned.  
+
+Your body softens at the edges. The wind, stiff and dry, combs through you, rounding your corners. You find you are less interested in keeping things and more interested in letting them wear you. Your tools, if you brought any, fray beautifully; your voice, when you use it, comes out sanded to a low, reliable murmur. You learn to hang damp cloths over your archway, not to keep the world out, but to soften it to a murmur you can tolerate. You learn that privacy is not a wall but a texture of quiet, held in trust and paid back in room for others’ sounds to expand.  
+
+Your bones have not stopped ringing. The children here, with lenses shaved into their scalps, look at you and seem to recognize the focus in your gaze. You are not exactly one of them, but you are no longer a visitor. You are a resident of the brightness, porous and incandescent, able to signal across plazas with the soft glow of your own marrow. You bathe in dust and calibrate. You let the erosion polish you, let the city’s ribs settle against you like a familiar hand.  
+
+The hollow is small but not cramped, empty but not vacant, loud with being alive and alive with being loud. And you—whatever you were before—are now a part of its acoustics, a note that lingers in the spaces between leaf and stone, a vibration the city can hum back when the sky presses close and the heat begins to bleed away. You are a threshold that listens, a surface that leaks light, a person-shaped chamber where brightness pools and sound tells the truth.  
+
+You did not choose this, exactly. But you have agreed to it, clap by clap, tap by tap, by letting the hollow turn you into something that can be heard.

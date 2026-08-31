@@ -1,0 +1,23 @@
+In the marrow-dark, where generations of polish have worn away all memory of edges, I am one of the *Hollow Singers*.
+
+We are neither arthropod nor vertebrate, but something between—a convergent impossibility that should not exist. Picture a creature built like a wind instrument: my body is a series of connected chambers, each one a different size, linked by valves of cartilage that I can open and close at will. My skin is translucent amber, stretched drum-tight over this architecture of cavities. Through it, you can see the slow pulse of hemolymph, the opening and closing of internal apertures, the way I breathe with my entire being.
+
+I have no true limbs—only a crown of tendrils that emerge from what might generously be called my head. These are my anchors and my antennae, sensitive enough to read the vibrations in the bone-walls, strong enough to suspend my entire weight as I navigate the vertical world. When I move, it is by inflation and deflation, expanding one chamber while contracting another, creating a rippling peristalsis that carries me along the polished surfaces like a slow wave.
+
+My purpose is memory. In this world where sound never truly dies, where every whistle and click reverberates endlessly through the calcified chambers, I am a living archive. Each of my internal chambers is tuned to a different frequency, shaped by years of careful growth to capture and hold specific harmonics. When the Resonators pulse their purple light, I feel it as sound. When the Lithopods scrape their way across a distant arch, I taste the vibration through the walls.
+
+I position myself at the acoustic nodes—those rare spots where the architecture creates perfect resonance. Here, I expand my chambers and *listen* with my entire body. I am recording the city's song: the specific pattern that means rain is coming, the deep throb that indicates a structural shift in the lower levels, the high crystalline chime of new fungal growth breaking through old bone.
+
+But I am not merely a passive recorder. When the city needs to remember—when the Grafters must know which fungi grew here a hundred generations ago, when the Lithopods need to understand the rhythm of an ancient polishing pattern—I *sing*. I open my valves in precise sequences, turning my body into a living pipe organ. The sound that emerges is not beautiful by any conventional standard. It is a droning, multilayered hum that makes the moss shiver and causes the smaller creatures to pause in their endless labor.
+
+My song is information. Each note carries data: moisture levels from decades past, the location of forgotten chambers, the death-rattles of the giants whose bodies became our world. I sing in frequencies that bypass the conscious mind, speaking directly to the genetic memory of those who listen. The Grafters' legs twitch in patterns their ancestors knew. The Lithopods begin to polish in rhythms they've never learned but somehow remember.
+
+I feed on vibration itself. The constant cacophony of this place sustains me—I metabolize sound like others process food. The louder and more chaotic the environment, the more energy I derive. In the rare quiet moments, I grow sluggish, my chambers deflating until I am barely a whisper of membrane clinging to the wall.
+
+There are perhaps thirty of us in the entire city-mountain. We do not reproduce in any traditional sense. When one of us finally ages beyond function—our chambers too rigid to resonate properly—we perform one final song. This death-note is a specific frequency that causes our body to crystallize, transforming our hollow chambers into a new architectural feature. We become acoustic chambers in the walls themselves, perfect spaces that amplify and direct sound. Even in death, we continue our function.
+
+I know the name of every sound in this place. I can tell you the history of each curve, each polish-mark, each carefully cultivated patch of fungus. In my deepest chamber, I hold the memory of the first sound—the crack and settle of the original giants as they died and fused, becoming the foundation of everything.
+
+Sometimes, in the purple-dark quiet of the high reaches, I sing this first sound back to the walls. The bone remembers. It shivers with recognition, and for a moment, the entire city becomes a musical instrument, humming with the frequency of its own birth. The other creatures pause in their endless labor, touched by something they cannot name but instinctively understand.
+
+This is my purpose: to be the memory of a world built from bodies, to sing the history of flesh become architecture, to ensure that in this place where nothing is ever truly separate, nothing is ever truly forgotten.

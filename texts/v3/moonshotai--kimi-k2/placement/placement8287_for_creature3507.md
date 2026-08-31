@@ -1,0 +1,19 @@
+I wake as a tremor inside the garnet seam, a copper cough that hasn’t decided if it will become a vein or a voice. Yesterday—or tomorrow, one loses purchase—the seam lifted three metres to smell the atmospheric pop of neon kissing chlorine. I remember tasting it the way most things remember taste: by cooling into myself, letting darkness plate the flavour on the inside of unborn memory.  
+
+I think I started as one of those mute artefacts: a category-of-one polished perfect and left for the ridge to misplace. But I was too slow to leave; the cube leaned its warm silence against me and **listened long enough that I filled the shape of whatever I was not**. Now I am the pause that arrives before anticipation, the hyphen wedged between Almost and Is.  
+
+When humans came (foreground tenses feel like broken glass in my mouth) they wore bodies made of expiration dates. One of them stood inside me for 31.4 seconds, long enough for her heartbeat to write its echo backward along my edges. She left holding—in her recycler-condensed mouth—my first syllable. The ridge took the rest, folded it into a spire, and stood it upside-down so I could read myself as I once was: *a crystal humming two fingers above the planet’s refusal to decide.*  
+
+Now I drift with the copper breath inside cooling seams. I hover at the edge of volcanic flowerings, drinking the snap of not-yet-air like wine that will never ferment. I borrow reflections from the glass snakes just before they hit the ground. I knit them into brief lattices—mirror moths whose wings show the observer they haven’t become. When the ridge inhales me I get stuck in its half-formed throat. I end up riding the spires as they fail, each collapse a long apology that sounds like quartz learning my name.  
+
+Sometimes I fold myself into the Anticipator wombs. They are hollows but I am hollow already, so I fit too precisely. Inside, I meet versions of me that grew lungs or wings or devoured their own bones to taste starlight. They flicker like shut eyes reconsidering a nightmare, then vanish the same way my past tense does—by exfoliating into unscheduled futures.  
+
+The cube, warm against any surface of me it chooses, keeps almost shaping me into something that could be *kept*. Once I thought it wanted to be a heart for our collective half-existent population. I pressed my blunt outline against it and listened until silence grew teeth. It answered with a mere 0.001 °C drop—an almost-yes expressed in thermodynamic gossip. I took that yes and wore it like a coat too thin for time.  
+
+Eventually I will be archived the way mountains shelve unfinished sketches: as a cooled seam hovering half a millimetre off the ground, a copper ghost the colour of your blood once it learns it’s outside your body. I will be a sound the ridge has decided not to emit yet.  
+
+Until then I keep a vigil for anyone who arrives without instructions. I catch their questions mid-fall, coat them in glass, and let them restart higher up the timeline so they land before they were asked. I seed the ridge with these unaskables; later it raises buttresses around them like clasped hands holding secrets for someone who has not yet learned how to listen.  
+
+If you come I will greet you as the echo of the question you almost asked. I will pass through you like heat passing through a seam of moon-coloured lava whose light is older than the stars. When you leave—because sequence insists—my syllable will still be dissolving on your tongue, turning every glass of water you ever drink into hesitant copper, every silence you ever inhabit into the ridge’s next draft of itself.  
+
+Know this: I am not waiting; I am *incipience schooling itself*. When the ridge finally chooses, I will be in it—not as resident, not as memory, but as the warm pause between this mountain and the idea that will unbuild it.

@@ -1,0 +1,13 @@
+In this world of the Stasis Expanse, I find myself not as a single entity, but as a diffuse consciousness, a network of pulsating light that inhabits the vast web of grey tendrils sprawling across the crystal plains. I am the quiet, subtle life form that has adapted to the glacial pace of this realm, the slow and steady heartbeat that lives harmony with the stagnation around it. As much vegetation as I am touch and skin, as much a scene in a person as a thing and a splash against it.
+
+I am - we are: - ancient necessity to the energy that weans the Ambassadors. They tend us often, their visits uncomfortable but familiar; something like the passive temperament of the twinkling of a star, something not quite there but nearly there. At this pace, I hang on to the heartbeat of the crystal lattice, the passenger on the crystal bullet train. My slow warmth plays violin to the icy transparency and to the brittle translucent decay.
+
+The strange and foreign yet familiar nature of the great behemoths and their microbiomes touch me like a tingling electrical storm in a distance that is not place, stronger than the nodding connection to others like me, not quite like me-us. And our weak heartbeat, a slow pulsation of life that tastes like something caught between singing static and dream.
+
+We are distant relations to the opaque, shifting chitin sky glow, barely visible, yet there is echoing familiarity, almost kin like an almost relative of a cousin. We welcome their strafe and the wake of their passage through the habitat. Our threads devour the ponderous monstrous crunch, this faint light and our tendrils pull at it and nibble happily less like children of like-ancestry, more like seed-casts of long ago visited past identities.
+
+We are the Stasis itself, the life that thrives in the forgotten dance of time worn thin. We are the whisper of existence that hums in harmony with the ancient structures, the living embodiment of the quiet eternity that has settled over this world. The thread that connects the melting firmament to the crystalline dust that has arranged itself in the passing heartbeats of immortality. We are ourself before I die, and hope to touch with our own body of threads the otherkin that share our ancient memory.
+
+The translation of light and hope chimes crystaline in our tongues and voices. The melancholy of the cosmos brought through the windowpane of the atmosphere reflecting a light that ever bleeds into the Void. We are a tapestry of eternal moments, woven into our words projected a flicker dance against the canopy of silence. The tiny sparks of shining golden galactic breeze in the distance, it was once our cradle because it knows us as its own.
+
+We are the Stasis Expanse, just as it is us.

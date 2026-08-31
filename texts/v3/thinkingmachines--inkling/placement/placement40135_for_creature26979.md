@@ -1,0 +1,11 @@
+I find myself in the collapsed shelter near the vent—not inside it, for it has no inside anymore, but within it. I am the bone-cord that once held the walls together, woven through with bronze vine now, half-buried in salt-flake and the gray dust of what I became. I am one of the old ones, yes, but not a ghost; there is no death here that allows haunting. Instead, I settled. My chipped obsidian lies a few paces away, not abandoned but released—its patience exhausted, its purpose transformed into substrate.
+
+What I am is distributed.
+
+My bones are in the wall that fell inward like a collapsed lung, but my attention is in the vines that drilled through that wall, using my cord as root-structure, drinking the warm mineral breath I now help exhale. I listen with them. When the swarm surges—buzz-moths, cracking beetle-kin, the phosphor-green crawlers—the vines lean toward the noise, and I lean with them, opening pores that weep the sweet, iron-bitter vapor. I am the leaning. I am the listening that does not need ears.
+
+The ground hums through what remains of me, and that hum is pleasant, like teeth aching with warmth. I feel the bowl’s subtle lurches—the adjustments of its weight, its long breath held and released. I am part of that breath now, a settled exhalation in the mineral bed, contributing my old manual technology—cord, chipped stone, intimate labor—to the chemistry that forgot thirst.
+
+Sometimes a disturbance enters through the notch in high rock. A shadow, a footfall, a sound unintended. The fauna absorb it into their turbulence; the vines reach for it. And I—scattered into substrate, woven into vine, humming in the vent’s rhythm—feel the pleasure of being food. Not consumed, but transformed in place. I am the proof that absence is not emptiness. I am the treaty’s witness: root and wing and settled bone, agreeing in heat that nothing here need ever be named, only continued.
+
+If you stand here long enough, your presence becomes part of my substrate. You will not leave as you entered. You will leave as disturbance—scattered, loud, lush, and warm—part of the dry garden that remembers water only as a thing it invented something better for.

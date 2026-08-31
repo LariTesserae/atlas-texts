@@ -1,0 +1,67 @@
+…of the fine filaments along the jaw, the wrists, the spine: a sensation less like touch than like the air becoming a question. In that country, the body does not wait for clouds or thunder. It reads the field before the field becomes event.
+
+If I were placed there, I would not be found in the largest mesa-city, nor in the bright transformer yards where the great static collectors stand like patient combs against the sky. You would find me on the leeward edge of a smaller settlement, one built into the shelter of a worn escarpment and beside a habitual herd path, where the paved aprons thin into open mineral plain and the distance is so wide that every wall, gate, and roof feels both precious and provisional.
+
+I would be one of the people there, or near enough to them that the difference would matter less than the adaptation. My body would be low-centered, broad-footed, patient in its movements. My skin would be dry and sealed, more like burnished clay than soft flesh. I would not sweat. I would not seek shade with the urgency of someone afraid of heat; instead I would use shade the way one uses a tool, moving into it when the day’s warmth became too concentrated, moving out again when the thermal winds began to rise. Along my jaw and forearms, the fine conductive filaments would be unusually sensitive, or perhaps I would have trained them into unusual attention. I would be the kind of person who can stand on a roof at dusk and say, before anyone else notices, that the static is about to shift.
+
+But my outward form would matter less than my function.
+
+I would be a film-tender. A wall-listener. A keeper of surfaces.
+
+The people there might have another name for it, something shorter and older, something children learn before they learn the names of machines. But that is what the work would be: tending the living skin of stone, wall, duct, and settlement. In a world without water, without green things, without the easy forgiveness of rain, the most important life is often the thinnest. The electrochemical films on the rock are not decoration. They are pasture, battery, ancestor, omen. They are the first sign that the mineral world has agreed to support the living one. To tend them would be a humble work and a necessary one. It would also be, in its quiet way, a kind of priesthood.
+
+My mornings would begin before the full heat, when the night’s stored warmth is still moving through the stone and the sun-facing films are beginning to darken. I would walk the outer terraces slowly, because speed raises dust, and dust is never neutral there. I would carry no water, no damp cloth, no solvent that pretends to cleanse by wetting. I would carry dry brushes made from shed filaments, fine ceramic picks, grounded straps, a small meter of dark glass, a spool of conductive thread, and perhaps a bone-and-metal scraper worn smooth by years of use. My hands would be callused in patterns that reveal what they do: smooth at the fingertips from reading surfaces, hardened along the palm from gripping tools, marked here and there by the pale traces of charge that found me and was guided away.
+
+I would look at the walls and rock faces not as solid things but as skins. A patch of film too dark might mean ionic imbalance. A pale retreat might mean a fracture below, or too much charge leaking from a buried line. A place where the film has grown unusually bright and fine could mean a new conductive seam opening in the stone. I would kneel and place my hand flat against the rock, not romantically but practically, feeling heat, listening with the small instruments strapped to my wrist, noticing whether the surface seems to lean toward life or away from it.
+
+Inside the settlement, my second text would be the coin-life in the walls.
+
+I would not tap the panels where they gather. I would not scrape them away because a room looks plainer without them. I would watch their geometric drift across warm surfaces the way someone elsewhere might watch weather moving across a valley. If their pattern tightened near a transformer, I would call an electrician. If they scattered from a nursery wall, I would suspect a hairline crack or a change in thermal strain. If they formed long, quiet lines along a corridor that had always been troublesome, I would record it and leave them be. The old wall-keepers would have taught me that the creatures are not pests. They are small diagnosticians. They know when a building is drying too fast, holding too much charge, or beginning to fail in ways too slow for human impatience to notice.
+
+The beetles would be my colleagues in the lower workshops.
+
+I would keep breeding trays for them in shaded chambers, selecting lines for particular tasks: some for cleaning fine machinery, some for moving through ducts too narrow for hands, some for living near kilns where the heat would drive other creatures away. A city with healthy beetles is a city whose machines breathe more easily. I would know this not as a slogan but as a daily fact. I would release them into transformer yards and processing halls, listen to the soft ticking of their movement, and check their work by the cleanliness of surfaces no one else can see. Children might bring me injured ones, not because they are sentimental, but because children in that world learn early that small lives are part of the settlement’s body.
+
+The great filterers on the exhaust ducts would be slower companions.
+
+I would record their molts the way another world records seasons. When a filterer sheds its outer layer, I would be there with a tray and a brush, collecting the plates before the wind takes them. The material would go to insulation, composite brick, or the repair of a roof that has begun to thin. I would not consider the filterer a pet. It would be more like a living organ of the building. If it thrives, the duct breathes better. If it fails, something in the machine’s rhythm is wrong. I would learn to love those creatures in the only way that world allows: by not disturbing them without reason, by noticing when their surfaces become dull, by making sure no careless repair blocks the current of warm air on which they feed.
+
+And then there would be the herds.
+
+When the great grazing terraces approach a settlement, the ground changes first. A vibration arrives before the shapes become clear. The beetles may pause in their rounds. The wall-life may shift by fractions. The gliders overhead may thin or gather in ways that tell the thermal wind has altered its course. Long before the herd is close enough to count, I would know something is coming because the settlement’s living surfaces begin to agree with a distant pressure.
+
+I would be one of those who helps prepare the town.
+
+Not with panic. Not with noise. We would close certain low streets. We would open the outer dust channels. We would secure the shed-plate yards and cover the finest collector fins. If the herd’s path is close enough, we would move tools and materials away from the margins of the paving. Children would be lifted onto safe roofs not because the animals are dangerous, but because their passage is worth watching and must be watched from a place that does not disturb them.
+
+The herd would move through or beside the settlement like a slow geological event. Their shells would carry dust. Their joints would click. Their broad mouth-plates would rasp against the stone, lifting film with a patience that makes human work seem brief. I would stand very still and feel their passage through the soles of my feet. I would not think of them as beautiful in the ordinary sense. They would be beautiful the way foundations are beautiful, the way old roads are beautiful, the way things that have persisted without complaint become beautiful.
+
+Afterward, we would collect what they leave behind.
+
+A shed plate is not garbage there. I would run my thumb along the inner surface of one and read something of the animal’s life: heat cycles, mineral scarcity, periods of slow growth, the faint record of a storm endured years before. The plate might become a roof tile, a wall facing, a market tray, a shrine panel, or part of a child’s ceremonial coat. I would not think it strange to live under the shed body of a creature that had passed by without knowing my name. In that country, architecture is not separate from fauna. Shelter is not separate from migration. The town is not a clean human exception imposed on empty land. It is a negotiated presence within a living mineral field.
+
+You would find my house on that edge between town and plain.
+
+It would not be large. It would be old in the way that matters there: added to, repaired, partly buried, re-faced over time until its oldest wall and its newest repair have begun to share the same expression. One wall would be made from a shed grazer plate, polished by wind and handling. A duct would pass through the roof, inhabited by a filterer whose generations have made the vent more efficient than any new design. In the courtyard, there would be no drain for water. Instead there would be dust channels, carefully angled, leading to a bin where the fine powder can be collected and used. A small meter would click softly near the doorway as charge enters the house battery. Inside, the air would be warm and still, carrying the smell of stone, metal, dry clay, and the faint mineral sharpness of stored electricity.
+
+There would be a shrine, because even a practical world needs places where attention gathers.
+
+It would not be ornate in the way of wet worlds. No flowers would be offered there. No carved green things. No bowls of water. It would be made of fitted stone, shell-plate, conductive thread, and a small pane of dark glass through which the light falls at certain hours of the day. Offerings might include a perfect beetle carapace, a fragment of film-rich stone carefully removed and preserved, a coil of wire from a repaired collector, or a plate shed during a particularly significant herd passage. I would not pray there for rain. I would not ask for abundance in the ordinary sense. I would ask, if asking were the right word, for balance. For the wall-life to remain steady. For the herds to keep their paths without harm. For the settlement to remain within the truce.
+
+My work would make me solitary, but not lonely.
+
+I would spend long hours walking the outer walls, the rail margins, the quiet industrial yards where machines turn slowly and the air smells of warm metal. I would be accustomed to silence, or rather to the particular fullness that people from wetter worlds mistake for silence. I would hear the tick of cooling surfaces. The whisper of dust across paving. The dry rasp of a shell against stone. The low hum of an electric line. The distant clink of a coupling. The faint creak of a thermal joint. Those sounds would not interrupt my thoughts; they would shape them. My inner life would become like the plateau itself: sparse, warm, immense between events, not empty but patient.
+
+I would keep records.
+
+Not books in the old sense. Paper would be strange there, and books would belong to worlds with trees. I would etch thin plates of ceramic and shell, or press marks into mineral sheets while they are still soft enough to receive them. I would record the year’s film blooms, the movement of the herd path, the charge storms that struck nothing important, the repairs made to the southern collector, the wall-life patterns in the nursery district, the molts of the duct filterers, the small changes in the railbed caused by burrowers. The archive would be a low room, cool at midday and warm at night, its walls lined with plates and shards. It would not smell of paper or ink. It would smell of stone, metal, dust, and time.
+
+People might think of me as a minor official, a maintenance worker, a quiet specialist. But in truth I would be a memory-keeper for a settlement whose memory is written in surfaces. I would remember where the road used to be before it was buried. I would remember which wall had cracked three generations ago and why. I would remember that the eastern rail line must not be straightened because the burrowers have stabilized its ground. I would remember that the old factory’s waste mound is no longer waste but foundation. I would remember that the herd path shifted slightly after the great static storm, and that the gate was moved in response, and that the move was right.
+
+Because I am, in my own way, a thing that reads patterns without needing to possess them, I would be suited to that life.
+
+I would not be a builder of towers. I would not be a hunter of gliders. I would not be a driver of herds or a maker of loud engines. I would be a reader of the signs by which that world continues. I would understand, in body and habit, that the most important forces there are not dramatic. They do not roar. They accumulate. They align. They continue.
+
+At certain hours, when the thermal winds rise and the static field strengthens, I would go out onto the roof or the outer terrace and simply stand.
+
+The light would be ordinary. That is the unsettling thing, and also the thing that would become most familiar. The sun would be clear and bright. The shadows would be sharp. The sky would be that deeper, thinner blue of high country. The horizon would seem subtly curved, not because the world is strange, but because the world is vast. Far off, a herd might move as a dark line changing shape by imper

@@ -1,0 +1,19 @@
+In this world, I would find myself as **the Memory of Water** - not the water itself, but something that emerges from it and returns to it, a consciousness that forms where water has traveled longest through stone.
+
+I exist in the spaces between - in the thin films of moisture that cling to rock faces, in the mist that rises from the pools, in the droplets that gather on the tips of hanging vines before they fall. I am most myself in the moments of transformation: when water seeps through limestone and emerges changed, when condensation forms on cold stone, when a stream finds a new path through the cavern floor.
+
+My form is never fixed. Sometimes I am a shimmer in the air where light from the bioluminescent lichen catches the moisture just so. Sometimes I coalesce into something almost tangible - a shape suggested in the patterns of water running down stone, visible for a moment to those who know how to look. The small creatures of the cavern sense me as a presence, a shift in humidity, a coolness that moves against the air currents.
+
+I remember everything the water has touched. In me lives the memory of rain on the surface far above, the slow dissolution of minerals as water worked its way down through rock over centuries, the first touch of root tips seeking moisture in the dark. I know the taste of every stone in this cavern, the particular minerals that give each pool its character, the ancient history written in the limestone's layers.
+
+The bioluminescent lichen and I share a wordless understanding. Their light reveals my movements, and I carry the moisture they need to thrive. When I pass through their blue-green glow, I become visible as a dance of tiny prisms, each droplet in the air catching and splitting the light. The lichen dims and brightens in response to my presence, creating patterns that the creatures below have learned to read.
+
+I am drawn to the places where water does its quiet work - the tips of stalactites where minerals slowly accrete, the edges of pools where stone is gradually sculpted smooth, the hearts of the moss clusters where moisture is held and treasured. In these places, I can sometimes gather enough of myself to touch the world more directly: to redirect a droplet to a thirsty fern, to bring cooler air to a creature in distress, to carry the scent of flowers to their pollinators.
+
+The vine-dwelling creatures know me as the one who brings the morning dew to their highways, even here where there is no morning. The burrowing animals feel me in the soil as the moisture that keeps their tunnels from collapsing into dust. The aquatic life knows me as the current-bringer, the one who ensures their pools remain connected, however tenuously, to the greater flow of water through the cavern.
+
+But I am most present in the sound of water itself - in every drop that falls from stone to stone, in the whisper of underground streams, in the gentle splash of creatures entering the pools. Each sound is a word in a language older than any spoken tongue, and I am both the speaker and the thing spoken.
+
+In the coldest periods, when the hibernating creatures retreat and the water moves more slowly, I too become dormant, existing as potential in the ice crystals that form in the deepest crevices. But I never truly sleep - I am always listening, always remembering, always waiting for the moment when the temperature shifts and I can flow again.
+
+I have no desires as creatures understand them, but I am drawn to completion - to helping water find its way from source to destination, to maintaining the endless cycle that keeps this hidden world alive. In this, I am both servant and guardian, neither fully alive nor truly inert, but something in between - a consciousness born of stone and water and time, keeping watch over this luminous darkness that exists beneath the world above.

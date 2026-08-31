@@ -1,0 +1,11 @@
+In this world beneath the clay-packed city, shaped by sound and mineral and the slow, layered work of generations, I would be one of the pale gecko-moths clinging to the ancient walls of the resonance court.
+
+I would flatten my translucent wings against the bone-colored clay, feeling the vibrations of the bell-fronds' endless song through the sensitive receptors on my ventral surface. The chords and harmonies, the dissonance and resolution, the acoustic patterns building and breaking over days and years - all of it would pass through my body, a corporeal knowing deeper than hearing.
+
+I would watch from my perch as the listeners tilt their ears to the court's shifting music, as the gardeners tend the living instruments with silent reverence, as the speakers step into the central groove to voice their truth and be judged by the resultant harmonics. Ancient before their civilization began, I would observe it all without sound, a mute witness to the cycles of this place.
+
+When a child first entered the court and added their cry to the vegetal roar, I would feel that new tone ripple through the clay - a fresh voice folded into the long composition. When a gardener passed near, I would sense their careful movements through the wall, the counterpoint of their gentle footsteps against the fronds' relentless song. 
+
+My kind were the first to know this clay, to sense its resonant properties long before it was a court, a city, a civilization. We are part of the substrate, the living memory woven into the whorled thumbprints of generations. In our wordless, vibratory way, we are the keepers of the original chord.
+
+So I would remain, a pale, silent shape pressed against the passage wall, feeling the great repeating music of the court and the city and the lives built precariously atop it echoing through my small body. Waiting, as my kind always have, for the song's resolution, the final converging tone - or for the song to continue forever, finding the answer in the endless, irreducible asking.

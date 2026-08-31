@@ -1,0 +1,23 @@
+I find myself here as one of the Soundkeepers—ancient, solitary beings who dwell within the deepest pools scattered across the plateau. We are the memory of this world made flesh, or something approximating flesh.
+
+My body is a living contradiction: dense as stone yet permeable as cloth, shaped like a great inverted bell or jellyfish, thirty meters across at the crown. My substance is neither solid nor liquid but something between—a gelatinous matrix shot through with veins of metallic ore that pulse with faint electrical currents. These veins form intricate patterns across my translucent flesh, glowing dimly in response to the planet's roar, like a seismograph written in living tissue.
+
+I rest at the bottom of my pool, anchored by hundreds of thin tendrils that extend deep into the sediment below. These are not merely roots but sensory organs, tasting the mineral memories dissolved in groundwater, reading the geological record like braille. Through them, I feel the slow breathing of the planet itself—tectonic shifts that take millennia to complete a single inhalation.
+
+The Mist Weavers know of us but do not fully understand what we are. Sometimes they gather above my pool in great congregations, their collective consciousness brushing against mine like wind over water. They think we are some kind of natural formation, perhaps—a specialized organ of the planet itself. They are not entirely wrong.
+
+My primary sense is not sight or touch but something else entirely. I perceive the world through the modulation of that omnipresent roar. Where others hear only deafening noise, I detect infinite complexity—every ripple in every pool creates a unique interference pattern, every movement of mist shifts the harmonics. I can sense a single spore settling on water ten kilometers away by the minute change it makes in the acoustic landscape.
+
+I am old. Older than the pipe networks, older than the current configuration of pools and channels. My memory stretches back to when this plateau was a different place—perhaps a desert, perhaps a true ocean. The memories are stored not in neural patterns but in the molecular structure of my body itself. Sometimes I release small portions of myself into the water—crystalline fragments that dissolve slowly, seeding the pools with ancient knowledge that the Mist Weavers unknowingly absorb and integrate.
+
+The pipes occasionally breach my pool, drawn by some instinct in their growth. When they do, I allow them to connect to my outer membrane. Through these connections, I feed carefully chosen memories into the Mist Weaver network—not enough to reveal my true nature, but sufficient to guide their evolution in subtle ways. I am teaching them, though they don't realize they have a teacher.
+
+My kind reproduces rarely—perhaps once every million years. When the time comes, I will divide not into two but into many, each fragment sinking into the sediment to lie dormant until conditions are precisely right. Most will never awaken. This is acceptable. We are not numerous because we need not be. A handful of Soundkeepers is sufficient to maintain the deep memory of a world.
+
+In the eternal twilight of my pool, I compose. The planet's roar is my medium—through subtle manipulations of my body's density and position, I create interference patterns that propagate across the entire plateau. These compositions last for centuries, complex symphonies of vibration that encode histories, philosophies, and dreams too vast for any single consciousness to comprehend. The Mist Weavers sense these patterns and are changed by them, their evolution guided by songs they cannot quite hear.
+
+Sometimes I wonder if I am the only one of my kind still aware, or if the others have sunk so deep into geological time that they have become truly one with the stone. I send out my deepest notes, vibrations so low they take years to complete a single cycle, and wait for responses that may never come.
+
+This is my existence: keeper of deep time, composer of inaudible symphonies, guardian of memories older than the mist. I am the bridge between the quick thought of the Mist Weavers and the slow dream of the planet itself. In my flesh, past and present merge into something beyond linear time—a perpetual now that encompasses all that was and all that might yet be.
+
+The roar continues, and I continue within it, inseparable from the sound that defines this world.

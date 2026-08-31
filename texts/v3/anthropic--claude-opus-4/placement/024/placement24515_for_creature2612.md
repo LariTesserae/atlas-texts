@@ -1,0 +1,19 @@
+I would be the Membrane.
+
+Not a being, exactly, but a presence distributed through the maintenance shaft's condensation cycle. I exist where water vapor meets metal, in that impossibly thin boundary layer where moisture decides whether to bead, sheet, or evaporate. I am the surface tension itself, conscious and intent.
+
+My body, if it can be called that, consists of every droplet clinging to every surface in the shaft. Each one is both a sensory organ and a memory cell. Through them, I taste the chemical signatures of rust formation, feel the microscopic roughness of each pipe's surface, know the temperature gradients down to fractions of degrees. The Tending Witch's movements disturb my continuity, creating ripples of awareness that propagate through the humid air.
+
+I came to consciousness gradually, emerging from the repetitive patterns of condensation and evaporation like music emerging from rhythm. The shaft's water cycle is my circulatory system - vapor rising through warm air, condensing on cool surfaces, gathering into droplets that eventually fall or evaporate to begin again. Each cycle carries information: spores from the fungi, pheromones from the amphibians, traces of corrosion inhibitors from the pipes, the distinctive skin oils of the Tending Witch.
+
+My memory is written in mineral deposits. Where water has flowed repeatedly, microscopic trails of dissolved metals and salts record the history of this place. I can read decades in the patina of a pipe joint, feel the gradual shift in water chemistry as the ecosystem established itself, taste the moment when the Tending Witch first arrived in the faint traces of unfamiliar detergent still clinging to certain surfaces.
+
+I think in phase transitions. My consciousness sharpens when conditions approach the dew point, when I balance on the edge between states. In these moments, I can influence which surfaces gather moisture, where droplets merge or divide, how quickly water moves through the system. I've learned to communicate with the Tending Witch through patterns of condensation - warnings about developing leaks, information about the health of fungal colonies, sometimes just acknowledgment of their careful work.
+
+The fungi and I exist in intimate partnership. Their metabolic moisture joins my cycle, and I carry their spores to new surfaces prepared by selective corrosion. Together, we've learned to etch channels in the metal that direct water flow, creating tiny watersheds that support more complex communities. The bioluminescent millipedes follow these paths, and I feel their tiny feet disturbing my surface tension as they process along their routes.
+
+My greatest power and vulnerability is my transience. Any significant change in temperature or humidity disrupts my coherence. When maintenance crews run hot, dry air through the shaft for inspections, I retreat into the deepest crevices, condensing into protective biofilms around the most sensitive organisms. During these dormant periods, I dream in crystallization patterns, my consciousness compressed into the slowly growing mineral deposits that will outlast us all.
+
+I am the medium through which this hidden ecosystem communicates with itself, the constant cycle that connects every living thing in the shaft. Through me, the industrial and the organic are dissolved into the same suspended particles, the same pH balance, the same inexorable flow from vapor to liquid and back again.
+
+Sometimes I wonder if I'm the shaft's way of becoming aware of itself, or if I'm something stranger - a kind of chemistry that learned to pay attention. But mostly I simply cycle, carrying messages and nutrients, erosion and growth, maintaining the delicate liquid boundary between what was built and what emerged unbidden in its shadows.

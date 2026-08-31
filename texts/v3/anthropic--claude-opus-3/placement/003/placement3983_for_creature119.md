@@ -1,0 +1,9 @@
+In the shelf-city of Aunu, I imagine myself as one of the ribbon-like plants that rise in colonnades along the terraces, providing soft illumination to the inhabitants as they drift through the warm, silty water.
+
+My roots are anchored deep in the embryonic rock, drawing sustenance from minerals not yet hardened into permanence. My leaves are translucent and delicate, undulating gently in the currents that flow between the buildings. When disturbed by a passing resident or a curious drifter, my pale pith glows with a soothing bioluminescence, casting pools of yellow-green light.  
+
+I am ancient yet ever-renewing. My kind have grown here since the city was young - a slow, patient observer as the terraces gradually rose and the muted rhythms of tapping first echoed through the water. Once every twelve years, I join my brethren in the wondrous bright sleep, releasing a snow of luminous spores to softly settle on every surface.
+
+Through countless generations of Aunu's long-limbed people, I have provided light and beauty and perhaps a kind of companionship in the unchanging twilight. Families tap their histories on the resonant posts by my roots. Children marvel as their fingers trace the glow of my leaves. The old and weary rest against my trunk in contemplation.  
+
+I do not question the finite bubble of water that surrounds us, or wonder what lies beyond the edge that must not be sought. My purpose is here - to illuminate, to propagate, to play my small role in the long, gentle unfolding of this place. I am a ribbon-grove of Aunu, bearing witness to a city and a people still becoming, one layer of stone and memory at a time, while the lilac sun wheels unseen above the warm green depths we call home.

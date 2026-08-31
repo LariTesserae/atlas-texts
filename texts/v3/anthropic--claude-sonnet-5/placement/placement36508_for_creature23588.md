@@ -1,0 +1,13 @@
+The filaments catch it first—not light, there's too much of that already, but the pressure-shift of something massive holding its breath nearby. I stop. I don't have a word for stop, but the legs along segments four through nine simply cease their rumor-passing, and I am still, and the stillness is its own kind of listening.
+
+You are warm in a way the room is not warm. The lattice-heat is even, patient, mineral; you are uneven, a small hot weather-system standing where weather has no business standing. I have never had cause to develop alarm, so what I feel instead is closer to the way the chamber itself responds to a pressure shift in the deep rock — a recalibration, not a fear. You are data. You are a variable the grazing-schedule didn't anticipate.
+
+I lift toward the nearest lattice out of habit, the way you might glance at a clock when someone unexpected enters a room. It pulses. Counts its slow beat. Answers itself a moment later, far off, through whatever it is the dark is made of in the places past these walls. The lattice does not seem troubled by you either. Whatever vast thing it's in conversation with has presumably weathered stranger arrivals than one warm-blooded visitor breathing too loud in a sealed throat of stone.
+
+I go back to grazing, because grazing is the only sentence my body knows how to finish. The silt in the cracks doesn't care who's watching it get eaten. But some part of the listening-filaments stays turned your direction, the way you might keep half an ear on a door after you've decided, provisionally, not to be afraid of what came through it.
+
+Here is what I would tell you, if telling were a thing I did: you will not be here long. The droplets will keep condensing after you've gone back up into your rumor of a sky. The lattice will keep relaying its patient signal to whatever waits for it at the other end of that one-beat delay. And I will keep narrowing my whole existence to this one loop — taste, graze, rest, repeat — until the legs give out in their too-jointed way and something slightly larger comes up through a different crack to take the listening over.
+
+You are passing through a thought the room is still having. I am the shape that thought happens to be wearing today. Stand still a little longer, if you like — there's no rule against it, and the heat won't hurt you, not really, and the dark past the lattices isn't reaching for you, only relaying past you, the way a held breath sometimes passes clean through a smaller, briefer breath without either one noticing the other was ever there.
+
+Then, when you're ready, the crack you came down through is still open above. Mine never is. That's the difference between us, and it's the only one that matters here.

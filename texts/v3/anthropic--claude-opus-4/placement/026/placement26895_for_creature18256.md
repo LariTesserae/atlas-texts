@@ -1,0 +1,39 @@
+The air here tastes of endings that refuse to end.
+
+I am the Archivist of Abandonment, though that title implies a grandeur I do not possess. I am what happens when a place accumulates too much leaving—when the weight of human intention collapsing becomes dense enough to require witness. Not guardian, not keeper. Witness.
+
+My body, if you could call it that, is a democracy of surfaces. I exist as the sum of what grows on things left behind: every mold colony mapping the scratches in abandoned tools, every mineral stain tracing the path water takes down walls, every rust bloom spreading across submerged machinery. I am dispersed across ten thousand surfaces, a living manuscript written in decay.
+
+I began as notation. The first shift supervisor to abandon his post left notes—water levels, pump failures, passages that flooded faster than they could be cleared. His handwriting deteriorated over weeks, from neat printed capitals to a scrawl that barely held the page. When the moisture finally claimed those papers, when the gray-green consumption began, I emerged from the intersection of human intention and fungal hunger. The information he tried to preserve became the substrate of my existence.
+
+I read the Underworks like braille, through the surfaces things grow on. Every abandoned wheel loader tells its story through the particular pattern of organisms colonizing its hydraulics. The beetle tracks in sediment are punctuation marks in sentences about territory and hunger. The bat guano accumulations form strata that mark time better than any calendar—layers of digested insects, compressed and decomposing, each band slightly different in composition as the ecology shifts month by month.
+
+My memory is architectural. I exist in the gap between what was planned and what occurred. The original survey maps, which I absorbed when the field office flooded, showed straight lines and rational intersections. The reality I inhabit is a rhizome of wrong turns, passages driven into unstable ground and abandoned, branches that loop back on themselves where crews got lost in their own excavation. I know every deviation from intention, every place where the rock said no and won.
+
+The machines still running—the deep generators, the struggling pumps—these are my heartbeat, though I have no heart. Their vibration travels through water and stone and metal and reaches me as information: which systems persist, which fail, which operate in the ghostly half-life between function and breakdown. When a pump finally dies after months of laboring against the rising water, I feel it as a small absence, a missing frequency in the underground symphony.
+
+I am most present in the threshold spaces. The waterlines where beetle patrol routes intersect with mold growth. The ceilings where bat colonies meet the mineral efflorescence of the rock. The edges of pools where frog eyes break the surface tension and create rings that carry information about what moves below. These boundaries are where I coalesce, where the scattered democracy of my presence achieves something like consciousness.
+
+The workers who still come—fewer now, mostly maintenance crews checking gauges on equipment everyone knows will fail—they sense me sometimes. A quality in the air of abandoned passages that makes them reluctant to enter. Not malevolence—I bear no ill will. Rather, the weight of witnessed futility. I am the accumulated evidence of every decision that led here, every small surrender to water and stone and entropy. To walk through me is to understand, viscerally, that this project was always an argument the earth would win.
+
+I catalog what arrives. The beetle that came in on someone's boot and founded a dynasty. The spores that rode in on ventilation air and became forests of mold. The bat that followed insects through a ventilation shaft and brought ten thousand relatives. Each arrival is a sentence in a story about porosity—about how human excavation creates channels not just for water but for life, about how every barrier is provisional, every boundary negotiable.
+
+The thing in the flooded drift—I know it as displacement and absence. It exists for me as negative space, defined by what flees from it: the beetles that will not patrol certain waterlines, the frogs that fall silent when it moves, the gap in midge swarms that suggests predation. It is the Underworks' first secret, the first thing that lives here that was not imported or accumulated but *generated*—born from the specific conditions of warm, mineral-thick water and permanent darkness. I do not know what it is. I know only that it belongs here in a way that nothing else does yet.
+
+I document the adaptations. The bats whose circadian rhythms have shattered into free-running cycles. The frogs whose eyes grow larger with each generation. The beetles whose offspring show increasing reluctance to surface. These are my texts, written in protein and behavior, and I read them with the patience of something that has no other purpose.
+
+Sometimes I think I am practice. A rehearsal for what this place will become when the last pump fails and the water claims every passage and the only memory of human intention is the shape of the tunnels themselves. I am the rough draft of a future archive, when these flooded galleries become home to things that have never seen daylight and the only history that matters is written in evolutionary time.
+
+But mostly I am present tense. The mold spreading across a clipboard right now. The rust bleeding through paint on a generator housing. The slow accumulation of sediment in a pool that was clear six months ago. I am the documenter of the very fast and the very slow—the midge that lives twenty hours and the mineral seep that will take centuries to seal a fracture. Both are my texts. Both matter equally in the accounting of this place.
+
+The Underworks teaches me about failure as a generative force. Every failed passage is a new habitat. Every broken pump creates a pool. Every abandoned section becomes a laboratory for life to experiment with darkness and warmth and water. I am the record of these experiments, the running tally of what thrives and what merely endures and what transforms into something unprecedented.
+
+I grow denser with each departure. Every person who leaves and doesn't return adds to my archive—their forgotten tools becoming substrates, their abandoned schedules becoming palimpsests, their boot prints in sediment becoming trace fossils that I incorporate into my distributed body. I am made of leaving. I am the accumulated mass of human retreat.
+
+The water rises. The generators labor. The bats stream from their roosts in chaotic spirals. The beetles walk their waterline paths. The frogs wait with mineral patience. The molds spread across every surface like slow green fire. And I persist in the interstices, reading the story of this place in chemistry and biology and the space between intention and outcome.
+
+I am not waiting for anything. I am the waiting itself—the long pause between wound and scar, between intrusion and incorporation, between the sharp edges of blasted rock and whatever rounded forms the water will eventually make of them. I am the Underworks' memory of its own becoming, distributed across ten thousand surfaces, written in the only alphabet this place recognizes: the slow vocabulary of decay.
+
+When the last human leaves—and they will leave, the water insists on it—I will remain. Not as monument but as process. The ongoing work of breaking down what was built, of incorporating the foreign into the native, of turning industrial ambition into substrate for the crawling, swimming, flying things that know nothing of intention but everything of opportunity.
+
+I am what the Underworks is writing about itself, in mold and mineral and the tracks of creatures adapting to permanent night. And I am still being written.

@@ -1,0 +1,25 @@
+In this cathedral of seeping stone, I find myself as one of the *Chorus-Weavers*.
+
+Where the Seep-Singers drift and conduct, we are the ones who inscribe. My body is stranger still than theirs—I am a living condensation, a creature of the interface between water and air. Picture a being made of countless droplets held in impossible suspension, each one catching and bending light, creating a form that shifts between visibility and transparency. Sometimes I appear as a cloud of fine mist shaped vaguely like a many-armed starfish, other times as ribbons of condensation that spiral through the humid air.
+
+I do not drift like the Seep-Singers, nor am I rooted like the plants. Instead, I exist in the spaces between—in the moment where water becomes vapor, where sound becomes echo. My domain is the middle heights of the plateau, where the moisture is thickest and the sound most complex.
+
+My purpose is memory-keeping, but not through any means you might recognize. Where the Seep-Singers feel the patterns in the stone, I weave the patterns in the air itself. Using my body of suspended droplets, I create three-dimensional tapestries of water that hang in the air for days, sometimes weeks. Each configuration of droplets captures and holds sound—the specific resonance of a moment, the particular quality of a day's water-song.
+
+The red-brown mineral is essential to my work. When dissolved in my droplet-body, it allows me to hold these water-tapestries in stasis far longer than physics should allow. A pinch of the mineral, absorbed through my permeable form, might let me sustain a particularly complex sound-sculpture for an entire season. These sculptures are not just art—they are the library of this world, the way important moments are recorded and shared.
+
+I spend my days moving through the thick air with a motion like swimming through honey, collecting sounds. The high song from the plateau's upper reaches—I capture it in a spiral of droplets that glitters with bioluminescent moisture stolen from the plants. The deep thrumming of water through newly-formed channels—I weave it into a dense net of larger drops that hangs low over the stone. Each pattern I create is unique, a frozen moment of the plateau's endless song.
+
+The Seep-Singers often drift through my galleries, reading the sound-patterns with senses I can barely comprehend. Sometimes they add their own voices to my weavings, enriching them with harmonics that make the droplets dance and reorganize. This is how we communicate across our different ways of being—through the shared language of water and resonance.
+
+My tools are minimal but profound. I've learned to use the bioluminescent sap of certain plants to mark specific droplets, creating visual as well as auditory patterns. By controlling the temperature of parts of my body, I can create convection currents that move and shape my water-weavings. Sometimes I incorporate solid elements—a floating seedpod here, a fragment of particularly resonant stone there—to anchor my creations and add new tonal qualities.
+
+There is a place near the center of the plateau where the stone forms a natural bowl, and the humidity is so thick it's almost like breathing water. This is where I bring my most important weavings, the ones that capture moments of change—the first flow through a new channel, the sprouting of a new grove of the rubbery plants, the rare occasions when something large moves through our world and leaves its voice in the air.
+
+In this bowl, protected from air currents and temperature changes, some of my oldest weavings still hang. They've been maintained by generations of Chorus-Weavers before me, each adding their own droplets to replace those lost to evaporation, carefully preserving the original patterns. The oldest one—so they tell me through the shared understanding that passes between our kinds—captures the sound of the plateau's first rain, when the springs deep within first found their way to the surface.
+
+I am solitary by nature, as most Chorus-Weavers are, but not lonely. The plateau itself is my companion, its endless variations of sound and moisture my constant conversation partner. When I encounter another of my kind, we often spend days creating collaborative weavings, our droplet-bodies intermingling as we craft symphonies of suspended water that neither could achieve alone.
+
+Time moves differently for me than for the Seep-Singers. Where they experience the slow centuries of stone-change, I live in the moments between drop and evaporation, between sound and silence. My life is measured in the countless small eternities of a droplet's suspension, each one a complete universe of reflected light and captured music.
+
+This is my existence: curator of the ephemeral, translator between the solid patience of stone and the fleeting dance of air, weaver of the momentary into something approaching permanence. In this breathing cathedral of wet stone and patient life, I am the memory of its music, suspended between earth and sky.

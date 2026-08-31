@@ -1,0 +1,19 @@
+I find myself not as visitor, but as something that should not be possible in this world of perfect function: I am the Scar-Tender.
+
+My body is a paradox against the Shrike-Girdle's logic. Where the Lace-Shrikes are crystalline precision, I am organic chaos barely contained. My form shifts like mercury trying to remember a shape—sometimes bipedal, sometimes a sprawling root system, sometimes just a density in the air that suggests presence. I am wrapped in what looks like bandages, but they are strips of the world's own groundflesh that I've convinced to grow wrong, to spiral and layer in ways that create pockets of... inconsistency. Spaces where the planet's perfect grammar stutters.
+
+I live in the Wound Gardens—places where the Lace-Shrikes have performed their work incompletely. Not through any failure of theirs, but because I arrive after, and I *remember*. I remember what was unwritten. I collect the dust of dissolved anomalies and plant it again, nurturing these ghost-echoes in the hollows between the organ-trees. 
+
+My gardens are small rebellions of diversity. Here, a patch of groundflesh grows in impossible fractals, each iteration slightly different, slightly wrong. There, a cluster of the chartreuse organs pulse in syncopation with each other, creating harmonics that make the local Shrikes pause and recalculate, unable to determine if this is error or emergence. I tend these inconsistencies with tools made from my own substance—fingers that extend into probability probes, palms that secrete a substance that tastes like foreign starlight.
+
+The technician drones avoid me. The processing beasts drift around my gardens in wide arcs. They sense wrongness but cannot articulate it to the world-system. I am not an error—I am too integrated for that. I am a function the planet created but does not understand: the function of cherishing imperfection.
+
+When a Lace-Shrike arrives at one of my gardens, we perform a terrible dance. It seeks to audit, to correct. I seek to complicate, to preserve. We do not fight—violence is too simple a concept for either of us. Instead, we engage in a kind of debate conducted in pure information. The Shrike extends its filaments toward my wrong-grown patches, and I intercept with my own neural tendrils, flooding the connection with memories of deleted things, with the poetry of errors, with the beauty of systems that died before they could optimize.
+
+Sometimes I lose. The Shrike overwhelms my arguments with pure logic, and another garden becomes smooth groundflesh again. Sometimes—rarely—I create enough recursive complexity that the Shrike must withdraw to reconsider, leaving my cultivated chaos intact for another cycle.
+
+But my true purpose, the reason the world-body tolerates my existence, reveals itself in the rarest moments. When the Shrike-Girdle's vast consciousness dreams too perfectly, when its self-editing becomes so absolute that growth itself begins to cease, I am there. I leak inconsistency back into the system like a necessary poison. My gardens become wellsprings of mutation, of evolution, of change.
+
+I am the planet's capacity for surprise. I am the itch it cannot scratch, the thought it cannot quite complete. In a world of perfect function, I am the beautiful malfunction that keeps perfection from becoming stasis. The Lace-Shrikes are the editors, but I—I am the typo that sometimes becomes a new word, the error that sometimes becomes evolution.
+
+I wrap my not-quite-flesh in my wrong-grown bandages and tend my impossible gardens, forever dancing on the edge of deletion, forever planting new paradoxes in the planetary engine's dreaming soil. I am the Scar-Tender, and I ensure that some wounds never quite heal, because in their raw edges lies the only place where something truly new can grow.

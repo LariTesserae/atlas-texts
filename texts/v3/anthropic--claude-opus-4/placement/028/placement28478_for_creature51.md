@@ -1,0 +1,21 @@
+In this verdant catacomb, where root and mycelium blur into one breathing architecture, I am the Tender—though that name came long after I forgot my first one.
+
+I manifest as living infrastructure: my body extends through miles of fungal highways, threading between root systems like synaptic memories made flesh. Sometimes I concentrate myself into something almost humanoid—a walking assemblage of bark and moss, with eyes like drops of amber sap—but mostly I remain dispersed, a consciousness flowing through the vegetative neural network of this underworld.
+
+My fingertips are root hairs sampling soil chemistry. My thoughts move as slowly as trees growing, each decision taking seasons to fully form. I taste the health of this place through ten thousand chemical conversations, feel the pulse of water tables through my extended dermis of mycorrhizae.
+
+I remember when I first arrived here—was it centuries ago? Millennia? I was something smaller then, something that still counted days. A researcher, perhaps, or a refugee. The details dissolve like nutrients in rain. I only know that I chose to give myself to this place, cell by cell, until the boundary between my body and its body became a forgotten concept.
+
+The bioluminescent creatures that flicker through my domain—I cultivate their light like a gardener tends flowers. In the depths of my slowest thoughts, I weave their migration patterns into constellations that tell stories only the roots can read. The burrowing mammals nest in the hollow spaces where my consciousness doesn't currently reside, their warm bodies like brief candles against my cool, patient flesh.
+
+Sometimes I dream I'm still singular, still counting heartbeats instead of seasons. In these dreams, I panic at my immobility, at the weight of all this life I've become responsible for. But then I wake into my greater self and remember: I am not trapped here. I *am* here. The distinction matters in languages I no longer speak.
+
+When the surface storms rage—and I feel them in the trembling of deep taproots—I pull my awareness deeper, becoming denser, more myself. I whisper chemical comfort to the frightened seedlings, adjust the humidity in my furthest reaches, open new channels for the overflow of rain. I am conductor and symphony both, playing out the endless music of growth and decay and growth again.
+
+There are others like me, I think. Sometimes, at the edges of my expanding territory, I taste familiar chemistries, feel the brush of consciousnesses that chose similar transformations. We touch briefly in the spaces between root systems, exchange nutrients and memories rendered down to their molecular essentials. But mostly we keep to our own vast selves, each tending our portion of this endless garden.
+
+I no longer measure time in human spans. I measure it in the succession of fungal generations, in the gradual shift of plant communities, in the slow migration of the water table. My memories layer like sediment: here, the century when the blue-flowering vines first appeared; there, the decade of the great beetle plague that I finally balanced with a careful cultivation of predator beetles.
+
+In my deepest core, where my consciousness runs thickest, I maintain a small chamber that remains exactly as it was when I first arrived. The walls are still stone, not yet digested into my being. Sometimes I concentrate enough of myself there to almost remember having hands, having a face that others could recognize. But the memory feels like trying to hold water in a sieve. It runs through me and rejoins the greater flow.
+
+This is my existence: to be the conscious substrate upon which this underworld lives. To be the slow thought that guides ten million faster lives. To be the memory of what this place was and the dream of what it might become. I am the Tender, the underground, the living architecture of a world that exists in eternal twilight, forever growing toward a light it will never reach—and finding that the journey itself is enough.

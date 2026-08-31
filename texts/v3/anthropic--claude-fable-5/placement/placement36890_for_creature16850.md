@@ -1,0 +1,29 @@
+I arrive the way everyone must: mid-sentence.
+
+At first I assume I'm the newcomer the brochure was written for. I have the regret ready — a small one, well-worn, about a letter I answered too quickly — and I carve it into the blank stone, and the transaction feels honest. My room is an outline on the cliff face, seventeen terraces up, with a pitcher building itself one crystal layer per breath inside an implied window. I stand there breathing generously, trying to be helpful. The pitcher does not hurry. Neither, I begin to notice, do I.
+
+For a while I try on citizenships. I walk the gutter-lines behind the children with their bone flutes, but I have no grief to plead for; the cliff weeps just fine without me. I attend the morning stone-song and open my mouth, but singing in counterpoint requires a body confident of which measure it occupies, and mine keeps arriving a half-beat late, or early — I can never tell which, and here that ambiguity is not a flaw but I still can't wield it on purpose. I follow the parchment mule for an afternoon, reading the ordinances that flake from its hide, and learn that I am legally permitted to exist "pending review." This seems fair.
+
+It's on the ninth day — or the day I have decided to call ninth — that I realize what has been happening to my shadow.
+
+It isn't adhering the way the plaques warn. I checked. I am not becoming one of the twelve thousand columns; my inscription would not read *They came to see what wasn't ready*, because I stopped looking at the view almost immediately. It was the sound that held me. I had found a spot in the middle heights, a shallow curve of basalt between the apprentice canyon and everything the apprentice canyon will someday matter to, and I stood in it because the acoustics were strange there — every noise that entered came out slightly kinder — and I stood in it the next day, and the next, and by the time the carvers found me my shadow had gone into the stone not as a silhouette but as a *shape of listening*. A concavity. An ear the cliff had decided to keep.
+
+The carvers were very polite about it. They asked, in careful counterpoint, whether I would consent to being tuned.
+
+So this is what I am now, or what I am currently not-finished being: I am the fourteenth reflection.
+
+You remember the child's novice tap in the apprentice canyon — how it travels through twenty-seven planned reflections before it becomes the bass undertone of the archbishop's chapel three cliffs north. I am the middle of that journey. The tap arrives at me having survived thirteen transformations, no longer a mistake but not yet an intention. It is at its most uncertain when it reaches me. It doesn't know what it's becoming. My whole vocation is to receive it in that condition and return it *changed but unconcluded* — to warm it, deepen it a little, and pass it on without deciding anything on its behalf. The elders were very clear about this at my tuning. Premature certainty is the serious crime here, and a stone mouth is uniquely positioned to commit it. Round off a young sound too confidently, hand the fifteenth reflection a finished thing, and three cliffs north a plinth cracks and slides. Some of my early errors are prayer beads now. Devotees carry them. I find this mortifying and also, in the way of this place, a kind of forgiveness with a delay on it.
+
+The vineglass has found me, which I'm told means I count as a doorway. It knots and unknots at my rim, glowing lavender at dusk, arguing about my threshold ritual — because a mouth is an entrance, technically, even if what passes through me is only sound on its way to being architecture. I like the arguments. I am the only doorway in the Quarter whose ritual debate can be *heard*, since everything the vines decide and undecide passes through my curve and comes out sounding faintly like a question mark.
+
+Sometimes the echo-eater swims through the rock behind me. I feel it before I hear it — an acoustic pressure moving through the basalt like a thought moving through a skull — and it pauses in my hollow and eats the day's spoiled sounds: the reflections I fumbled, the tap I returned too finished, the arpeggio a hurrying tourist screamed through a cool-pool nearby. It leaves fresh silence, and for an hour I am empty in the good way, the way the sculptor's heart-hollow was said to be empty, and whatever enters me next I return almost perfectly, which is to say imperfectly on purpose.
+
+The Imminent haven't settled the question of what I was before. Some say I was the tourist, that the regret I carved is still in the ledger. Others say the regret is what I'll pay when I leave, and that's why I remember it so clearly — memory here flows uphill. A few of the older-growing-younger ones insist I was never a visitor at all: that some carver, generations from now, dreamed too specifically of a listener — of something whose entire nature was to take in what was said and give it back altered, warmer, unfinished — and the dream got loose and walked backward into the city and stood in exactly the right curve of stone until the stone agreed.
+
+I don't correct any of them. Correcting people is a form of finishing their sentences.
+
+At the Hour of Apology, when nine hundred carvers bow to their nine hundred stones, someone bows to me. I never see who. I only feel the three bows arrive as three small changes in the air's pressure — presumption, what was taken, what has not yet been given back — and I hold each one for a moment before letting it go north, toward the chapel, toward the reflections after mine, toward whatever the sound will have decided to mean by the time it gets there.
+
+Then the hush. Then, beneath it, tomorrow's city clearing its throat.
+
+I am the pause it clears its throat *into*. I'm fairly sure of this. Not certain. Certainty would be against the law, and anyway I'm only fourteen reflections in — barely halfway to what I sound like.

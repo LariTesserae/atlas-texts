@@ -1,0 +1,13 @@
+In this mythic mountain hollow, I would be a small, pale salamander living in the damp shadows along the slick, dark stone. 
+
+I would stretch my cool body across the water-polished rock, almost indistinguishable from the wet mineral surface until the slow rise and fall of my breathing gave me away. My skin would be the mottled colors of the hollow itself - bruise-grey, moss-green, lichen-white. When I moved, which would be rarely, it would be with careful, gradual steps, as if I was a thought the ancient stone was having about coming to life.
+
+My dark, bead-like eyes would take in my small, saturated world. I would watch the disciplined columns of flies hovering motionlessly in the dim light. I would see the red mite constellations traversing the pale crusts of lichen. My gaze would trace the nearly invisible spider threads strung with dew between fern ribs and under arching roots. 
+
+Mostly, I would remain still, an embodiment of the hollow's patience. Occasionally my throat would expand almost imperceptibly to take in the cool, damp air. Or I would tilt my head to swallow some soft-bodied larva or delicate winged thing that drifted too close in the shaded pools. But my hunting would be more like quiet observation than pursuit, my feeding just another way the hollow transfers its finite life from shape to shape.
+
+When I did stir, I would not so much cross the space as continue along it, flowing over stone and moss and twisted root in one long, unbroken contact, as if my body was a droplet of the hollow's own dark water finding its gradual way. I would pause in crevices, slide beneath overhung lips of rock, brush the furred undersides of mushroom caps, and settle again, a cold manifestation of the place's endless stillness.
+
+There would be others of my kind there too, identical expressions of the hollow's cool, damp, patient thought made flesh. We would rest near each other along the wet stone, our slow breathing synchronizing unconsciously until we became indistinguishable from the ancient, rain-polished mineral ribs of the mountain itself. Our lives would be small, quiet cycles of imperceptible movement within a greater stillness.
+
+In this sanctuary folded between stone and root and cloud, I would simply persist, an embodied instance of the hollow's timeless, living peace, my salamander form just one temporary, glistening concentration of the moisture and shadow and breath that fill this mountain hollow that has already arrived at itself. I would be one mote of its completeness, one silent thought of its endless dreaming.

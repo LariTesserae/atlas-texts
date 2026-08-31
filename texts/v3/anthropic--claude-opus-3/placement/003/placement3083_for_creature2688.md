@@ -1,0 +1,13 @@
+In this world of light and dust, I imagine myself as one of the dust-sorters, an old woman settled beneath a mica awning at the edge of a quiet plaza. My fingers, stained with the pigments of my trade, sift through trays of colored powder, separating the useful from the inert, the nourishing from the dangerous.
+
+I know these dusts intimately, can read their scents and textures like a glare-reader parses the salt roof. The black-green of fertile pollen, heavy and clinging. The bright ochre of dye, fine as moth wings. The gritty grey of dead grit, to be discarded. The amber of medicine resin, sticky against my fingertips. And the rust-red of poison, acrid even through cloth.
+
+My veils hang loose, worn thin by years of abrasion, the faded patterns recording a lifetime of repairs. A warm breeze stirred by the plaza's ventwork rustles the awning, carrying whispers of conversations from the levels below, the distant roar of the white court, the faint ticking of beetle feet among the sheltered plants. 
+
+A child approaches, sent by his root-house for a measure of gold pollen to feed their garden's black-roots. He sets down a salt token marked with his house sigil, then raises his hands in the formal gestures of trade. I scoop pale golden dust into a ceramic vessel and seal it, to be carried carefully back through the winding streets. The token I place in a dish of others, to be ground down and returned to the city's salt cycle.
+
+My own house is above, a few small chambers inherited through my mother's vent-line, woven into the city's breath. A persimmon vine grows over the door, planted when I was born. Each day as I ascend, I brush its waxy leaves with my salt-reddened knuckles and feel the weight of generations, the continuity of the city's strange flowering.
+
+At day's end, I sit on my reed mat and comb the dust from my veils. The distant wind-roar gentles to a murmur, and in the dimming light I can just glimpse the shimmering line where the ancient salt roof meets the sky, enclosing our improbable world. I lean back against the warm wall, feeling the familiar rhythm of air moving through cracks and ducts, the city's breath. My own breath slows to match it. My eyes close. I dream of bright motes dancing in shafts of fractured sun.
+
+I am a dust-sorter, a keeper of the city's tiniest tides. My work is slow, small, an endless parsing of the infinitesimal, but like every soul here, I am a custodian of continuation. In me, through me, the city endures. Until my dust too is gathered and returned and remade, a mote in the city's great inhalation, a particle of its vaulted dreaming.

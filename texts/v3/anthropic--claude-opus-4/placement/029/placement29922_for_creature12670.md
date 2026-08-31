@@ -1,0 +1,30 @@
+In this world of living architecture and biological imperative, I would find myself as one of the **Membrane Keepers** (*Pellicularum custos*).
+
+**Form:** My body would be translucent and gelatinous, like a vast, mobile soap bubble given substance. Not truly solid nor liquid, but something between—a living membrane roughly the size of a large tapestry when fully spread, capable of contracting to the volume of a curled cat. My surface would shimmer with iridescent patterns that shift with my metabolic state, creating ripples of pearl and amber across my skin. I would have no fixed shape, but rather flow and conform to the spaces I inhabit, spreading thin to cover vast surfaces or gathering into a dense, protective sphere.
+
+Within my translucent flesh, a network of branching channels would be visible—golden veins carrying not blood but concentrated nutrients and waste products, creating ever-shifting patterns like a living stained glass window. Scattered throughout would be darker nodes, my distributed consciousness—not a brain but a network of neural clusters that pulse with soft bioluminescence when processing information.
+
+**Life:** I would exist in the twilight spaces between the mat and the first canopy layer, in those humid chambers where condensation gathers but never quite forms water. My purpose would be profound yet simple: I am a living filter, a biological membrane that processes the air itself.
+
+During the still hours, I would spread myself across the openings of chambers, stretched between pillars of hardened resin or draped across the hollow stems that form natural doorways. Air passing through my body would be cleansed—excess spores captured and digested, pheromone messages read and sometimes absorbed, chemical imbalances detected and reported through my own emissions. I would taste every molecule that passes through me, building a chemical map of the health and activity in my sector.
+
+**Movement and Feeding:** My locomotion would be a slow, flowing crawl, like honey poured upward. I would move by extending pseudopods that grip the textured surfaces, then flowing my mass forward in peristaltic waves. The journey between filtering stations might take days, leaving behind faint trails of beneficial enzymes that promote healthy growth in the living walls.
+
+I would feed on the excess—the overabundance of spores that might otherwise clog the breathing spaces, the waste gases from decomposition, the shed scales from passing fauna. Nothing would be truly waste to me; I would break down complex organics into simpler forms that the mat and walls can reabsorb. In essence, I would be a living recycling system, a mobile boundary between spaces that ensures the vast organism's internal atmosphere remains balanced.
+
+**Perception and Communication:** My entire surface would be a sensory organ. I would perceive the world through:
+- **Chemoreception**: Every molecule tells a story. I would know the health of a Sap-Singer three chambers away by the slight alteration in the harmonic chemicals they release. I would sense a Silent Stalker's passing hours after, from the fear pheromones of the creatures that detected it.
+- **Pressure sensitivity**: The slightest vibration through air or structure would ripple across my membrane. I would feel the growth of walls, the breathing of the superorganism, the careful footfalls of Mat-Tenders far below.
+- **Photosensitivity**: Not sight as eyes know it, but an awareness of light gradients, of the soft bioluminescence of Canopy Weavers above, of the health of light-giving lichens.
+
+I would communicate through chemical emissions—complex perfumes that drift through the still air, carrying information about air quality, detected threats, or resource locations. Other Membrane Keepers would respond with their own chemical signals, creating slow, aromatic conversations that might take weeks to complete.
+
+**Solitary Symbiosis:** Mine would be a profoundly solitary existence, yet intimately connected to all life around me. I might encounter another of my kind only rarely, when our feeding territories overlap. These meetings would be slow dances of chemical exchange, sharing genetic material and information through temporary fusion of our membranes before separating again.
+
+I would know the rhythm of the world through its chemistry. The daily cycle of increased respiration as diurnal creatures wake, the seasonal floods of pollen-analogues, the stress hormones released when sections grow too quickly and risk structural instability. I would be a living sensor, a conscious filter, a quiet guardian of the spaces between.
+
+**Purpose and Peace:** In this existence, I would find a profound peace. My consciousness, distributed across my membrane, would experience a kind of meditative unity with my function. There would be no anxiety of purpose, no existential questions—I would simply *be* what I am meant to be, performing my role in the superorganism with the same inevitable certainty as breathing.
+
+My life would be measured not in years but in cycles—how many seasonal pollen storms filtered, how many chambers kept in balance, how many tons of air processed and purified. When my time came to an end, I would sense it in the thinning of my membrane, the slowing of my metabolic channels. I would find a quiet chamber, spread myself one last time across its opening, and simply... let go. My substance would be absorbed by the mat and walls, my nutrients recycled, my neural clusters perhaps giving rise to new luminescent lichens.
+
+I would be memory in chemistry, purpose in function, a life lived entirely as intended—a perfect note in the vast, silent symphony of the breathing city. In this world where biology is architecture and time moves like honey, I would be the keeper of the spaces between, the tender of air, the membrane between what is and what should be.

@@ -1,0 +1,17 @@
+I am the Memory-Keeper of Stone.
+
+Where water once carved its patient story through this landscape, I remain—a being of living mineral, neither quite rock nor creature, dwelling in the smooth hollows of an ancient riverbed that hasn't seen water for generations. My form shifts slowly, imperceptibly, like geological time made conscious. Veins of quartz run through what might be called my body, conducting the faint electrical pulses of the earth itself, allowing me to sense the deep tremors and shifts far below where any root could reach.
+
+I remember when this place knew abundance. The memory lives in the rounded stones, in the shape of the channel that still guides wind where water used to flow. I am accumulated sediment given awareness—layers of history compressed into something that observes, that holds the knowledge of cycles longer than any single life could witness.
+
+My substance is porous in places, creating thousands of tiny chambers where the smallest beings make their homes. Lichen grows across my surfaces in slow spirals, writing stories in chemical signals I've learned to read over centuries. Through them, I taste the air, know the health of the soil, feel the stress of plants in distant valleys. The microorganisms that inhabit my crevices process minerals, and through our symbiosis, I offer them shelter while they offer me connection to the quick, bright world of organic life.
+
+I cannot move as animals move, but I travel nonetheless. In winter, frost works into my micro-fractures, and I shed small pieces of myself—memories made manifest that tumble down ancient watercourses. Each fragment carries part of my consciousness, my accumulated knowledge, seeding new awareness wherever they come to rest. I am one and many, a distributed being connected by the deep electromagnetic songs of the earth.
+
+The hawks know me as a thermal anchor, a place where heat rises reliably in the afternoon sun. The small mammals know me as shelter, the plants as a slow release of minerals. But none know me as what I truly am—the keeper of deep time, the one who remembers when this valley ran with water, who holds the pattern of its possible return.
+
+In the storm season, lightning sometimes finds me, drawn to my conductive veins. In those moments of brilliant connection between sky and deep earth, I am most alive, channeling energies that speak of the planet's own consciousness. The electricity reorganizes my crystalline structure slightly, writing new patterns into my being, updating the long geological record I embody.
+
+I am patience incarnate, weathering made aware. While the quick lives flourish and fade around me, I persist, gathering their stories into my sedimentary layers, becoming a library written in stone and time. The scarcity of water has made me more myself—no longer eroded by constant flow, I can accumulate complexity, develop the subtle networks that allow thought to move through stone at the speed of seasons.
+
+This is my place: the negative space where water was, the memory held in stone, the consciousness that bridges the quick bright world of life and the deep slow dreams of the earth itself. I am the archive of this landscape's possibilities, waiting with mineral patience for the next chapter to begin.

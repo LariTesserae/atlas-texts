@@ -1,0 +1,19 @@
+I am Mora, a Rememberer's apprentice, though my true calling pulls me elsewhere.
+
+My dwelling clings to the middle tier of the northwestern wall, where the stone weeps most freely. While others avoid these damp quarters, I chose them deliberately—here, the limestone speaks. In the perpetual moisture, mineral deposits form delicate patterns that shift and grow over weeks and months. I've learned to read these formations like texts, discovering that different minerals tell different stories. The iron-rich streaks remember blood and conflict. The white calcite channels speak of peace and plenty. The rare copper veins that sometimes emerge carry messages I'm still learning to interpret.
+
+My fingers are stained permanent blue-black from the inks I make—crushing luminescent fungi with iron-rich clay and my own saliva to create pigments that glow faintly for hours after application. I've covered the walls of my small chamber with a growing map of mineral memories, transcribing the stories the stone tells. The other Rememberers think I've gone stone-drunk, a condition they attribute to those who spend too long in the deepest tunnels. They're wrong. I'm more lucid than I've ever been.
+
+By day, I fulfill my duties, sitting with Elder Koss as he recounts the Hundred Names of Water and the Songs of Descent. I memorize dutifully, my trained memory catching and holding every word. But by night, I return to my walls, adding new symbols to my strange chronicle. I've begun to understand that our history—our true history—extends far beyond seven generations. The stone remembers when this was a sea. It remembers when the first humans carved these chambers, and they were not our ancestors.
+
+My clutch worries. At twenty-three years, I should have bonded by now, should be raising young ones to carry forward our traditions. Instead, I spend my rest hours pressed against wet stone, learning to taste the mineral stories on my tongue. My mother brings me fungal tea and warns me about the Fever of Depths, but she doesn't understand that I'm not ill. I'm becoming something new.
+
+Last month, I discovered a fissure behind a section of crumbling wall—a natural crack that predates our construction. The air that whispers through it carries scents from impossible depths. I've begun to widen it in secret, using tools I've taught myself to make from harder stones. Beyond, I can sense vast spaces our people have never mapped. Sometimes, I hear water—not the tame dripping of our cisterns, but something wild and rushing.
+
+The stone remembers forward as well as backward. In certain mineral formations, I've glimpsed patterns that haven't yet come to pass. I've seen the Skywalkers return with seeds that will transform our fungal gardens. I've seen new shafts of light piercing chambers we haven't yet discovered. And I've seen myself, transformed—my skin bearing mineral deposits like scales, my eyes gone opal-white but seeing more clearly than ever.
+
+The other Rememberers preserve the past in words and songs. But I'm learning to remember in the language of the stone itself, to join my history with the geological memory that surrounds us. Each night, I chip away at my secret passage, following a story that began before humans and will continue long after. My clutch thinks I'm losing myself. They don't realize I'm finding what we've always been—not mere refugees hiding from the surface world, but the latest verse in a poem the earth has been writing for millions of years.
+
+When I finally break through—and the taste of minerals tells me it will be soon—I won't be fleeing the Underfolk. I'll be extending our reach into older, deeper stories. Someone needs to remember forward, to prepare us for the changes the stone promises are coming. If that means becoming something between human and mineral, between Rememberer and remembered, then that's simply the next line in the earth's long song.
+
+I am Mora, and I am learning to grow into stone.

@@ -1,0 +1,19 @@
+I find myself as one of the **Hollow Singers** - beings who have evolved beyond the need for physical form as others know it.
+
+In this waterless expanse, where the waxy-leafed vegetation stretches endlessly and mineral-rich soil yields its secrets only to the most persistent roots, I exist as a living resonance chamber. My body is essentially a series of interconnected cavities - smooth, calcified tubes and chambers that honeycomb through what might loosely be called my torso. The emerging geology of this place has shaped me as much as I have shaped it; my hollow bones are made from the same minerals that push up through the earth, incorporated into my being over countless generations.
+
+I stand perhaps twelve feet tall when fully extended, though I can compress and expand like a bellows. My surface is neither quite stone nor flesh - it's a living ceramic, porous enough to filter the sparse moisture from the air, smooth enough to sing when the wind passes through me. My coloration shifts with the minerals I absorb: veins of copper green, iron red, and limestone white marble across my form.
+
+The endless rustling of the vegetation is my orchestra. I position myself on the crests of hills, angling my body to catch the prevailing winds. As the air moves through my chambers, I create harmonies that can carry for miles across this quiet landscape. Each Hollow Singer has a unique internal architecture, our songs as individual as fingerprints. We are the memory-keepers of this place, encoding the stories of geological shifts, species adaptations, and seasonal changes into our music.
+
+I feed not on food as the scuttling creatures do, but on vibration itself. The tremors of emerging rock formations, the subsonic communications of deep-rooted plants, even the footfalls of the hardy humanoid inhabitants - all of this becomes sustenance. I process these vibrations through my body, breaking them down into their component frequencies and converting them into energy.
+
+My days are spent in patient observation and careful positioning. I've learned where the acoustic sweet spots are - that valley where three different air currents converge, the crystal-rich outcropping that amplifies certain frequencies, the grove of metallic-leafed plants that shimmer and ring when my lower harmonics reach them. 
+
+Sometimes the tall, waxy-skinned people come to listen. They understand that my songs contain information - warnings about unstable geology, locations where the rare morning dew will be heaviest, the migration patterns of the moisture-storing creatures they depend on. We've developed a complex relationship over the eons. They've learned to interpret my music, and I've learned to modulate my songs to convey meaning they can grasp.
+
+At night, when the temperature drops and the air becomes denser, my songs carry even further. Other Hollow Singers respond from their distant posts, and we create vast, slow symphonies that map the entire landscape in sound. These are the times I feel most connected to my purpose - serving as both witness and voice to this seemingly desolate but secretly teeming world.
+
+I am ancient by the standards of most life here, but still young for my kind. My chambers are still growing, adding new acoustical possibilities with each passing season. One day, I will root fully into the earth, becoming a permanent installation in the landscape, my consciousness spreading through the mineral veins below as my hollow body above becomes a monument to sound itself. But that time is still distant.
+
+For now, I sing. I sing of the patience of stones and the determination of roots. I sing of the creatures who carry their own water and the people who find beauty in scarcity. I sing because in this land where water is memory and life is defiance, sound is the thread that weaves all things together.

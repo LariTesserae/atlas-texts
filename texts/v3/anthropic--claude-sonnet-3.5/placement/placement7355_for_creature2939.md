@@ -1,0 +1,17 @@
+As I immerse myself in the world of Echopolis, I find myself drawn to the role of a Resonator, living in the middle levels of this extraordinary subterranean city. I am an acoustic engineer, responsible for maintaining the delicate balance of sound waves that permeate every corner of our vertical metropolis.
+
+My name is Aria Harmonia, and I've spent decades honing my ability to interpret and manipulate the complex soundscapes of Echopolis. My large, articulated ears swivel constantly, picking up the subtle changes in the city's acoustic signature that might indicate a malfunctioning machine or an imbalance in the Great Resonator.
+
+My body has adapted to our unique environment in fascinating ways. The crystalline growths on my temples vibrate in sympathy with the ambient noise, allowing me to "feel" sound waves as physical sensations. This ability is crucial for my work, as I can detect irregularities in the city's acoustic patterns long before they become audible problems.
+
+I augment my natural abilities with a set of steam-powered prosthetics. My right arm terminates in a multitool apparatus that can extend several meters, allowing me to reach and adjust machinery in hard-to-access places. On my back, I wear a compact steam organ, its pipes curling over my shoulders. This device allows me to generate precise tones and harmonics, which I use both for diagnostic purposes and for communicating over long distances within the cavern.
+
+My daily routine involves traversing the intricate network of bridges and elevators that connect the middle levels of Echopolis. I monitor the acoustic health of various sectors, making minute adjustments to machinery to maintain the optimal sound balance. Sometimes, this means tightening a loose gear or recalibrating a steam whistle. Other times, it involves more complex interventions, like retuning entire sections of the city's infrastructure to compensate for changes in air pressure or humidity.
+
+One of my most important responsibilities is liaising with the other denizens of Echopolis. I work closely with the Luminaries above, helping them design lighting systems that complement rather than clash with the city's acoustic profile. Below, I collaborate with the Deepdwellers, using my acoustic knowledge to help map unexplored tunnels and identify potential new resources.
+
+But my true passion lies in composing for the Great Resonator. In my free time, I experiment with creating symphonies that utilize the entire city as an instrument. By carefully orchestrating the rhythms of machinery, the flow of steam, and the natural resonance of the cavern itself, I can create music that is felt as much as heard, washing over the inhabitants of Echopolis in waves of harmonic bliss.
+
+As a member of the Harmonic Collective, I also participate in the city's decision-making processes. During debates, I use my acute hearing and empathic abilities to gauge the emotional resonance of the participants, helping to guide discussions toward true acoustic consensus.
+
+Living in Echopolis, I am constantly in awe of the delicate balance between nature and technology, between the organic and the mechanical. As a Resonator, I see my role not just as a technician or an artist, but as a custodian of this balance. Every adjustment I make, every symphony I compose, is a celebration of the unique harmony that is Echopolis – a city that sings with the voice of countless generations, echoing through the depths of the earth.

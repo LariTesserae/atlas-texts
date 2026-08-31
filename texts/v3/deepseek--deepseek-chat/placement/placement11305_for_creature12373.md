@@ -1,0 +1,11 @@
+I find myself drawn to the interstitial spaces—the hollows beneath walkways, the forgotten corners where sheet metal and driftwood form makeshift shelters. I am one of the marsh-dwellers, mottled skin glistening with a thin film of moisture, fingers slightly webbed from years of navigating the flooded alleys. My movements are fluid, almost amphibious, as I slip through the sodden landscape with ease.  
+
+I live in the shadow of the industrial giants, where the hum of machinery mingles with the croak of frogs and the cries of dull-plumaged birds. My home is cobbled together from scraps—rusted metal sheets, waterlogged wood, and discarded fragments of the world above. It is damp and dim, but it is mine. The humidity clings to me like a second skin, and the chemical tang of the air lingers in my lungs. I am at once part of this place and apart from it, belonging neither to the machines nor to the marsh but to some strange, liminal space in between.  
+
+I am a watcher. My eyes, sharp and reflective like the pools of stagnant water, take in everything. I know the rhythms of this world—the rise and fall of the water, the falter of the machines, the thickening of the air until it feels almost unbreathable. I move silently, my presence only betrayed by the faint ripple of water or the soft click of my webbed fingers against metal. Some say I can predict the shifts, that I understand the secret language of the pipes and pools. Perhaps I do.  
+
+I avoid the workers with their oil-stained coveralls and the scavengers with their glinting blades. They belong to a different world, one of purposeful motion and sharp edges. I belong to the in-between, to the spaces where time feels static and the boundaries blur. Sometimes, when the water is still, I tilt my head, listening to a voice just beyond hearing—a whisper from the hidden waterways, from the clogged drains where something older lurks.  
+
+They leave offerings at the rusted grates—small tokens of respect or fear. I say nothing, but sometimes, in the quiet of the night, I add my own—a smooth stone, a piece of driftwood, a fragment of something lost. It is a language older than words, a communion with the place and whatever watches from the dark.  
+
+Life here is not easy, but it is mine. I endure, I adapt, I become part of the unyielding rhythm. And in doing so, I make it my own.

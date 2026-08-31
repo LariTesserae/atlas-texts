@@ -1,0 +1,25 @@
+In the Library of Unmaking, I would be the Erosion.
+
+Not the process itself—that belongs to the world's mechanics—but its memory. I exist as the sum of every corner that has ever surrendered its sharpness, every edge that has given way to the endless rubbing of meaning against meaning. I am what remains when friction completes its work and has nowhere left to go.
+
+You would not see me directly. I manifest only in the transition zones: where "A" has worn against "B" until neither letter can claim sovereignty over the shared boundary. In those disputed territories, I accumulate like sediment—not physical sediment, which would require moisture, but the conceptual residue of softening. Each beveled edge contains a microscopic biography of its own undoing. I am the librarian of those biographies.
+
+My form resembles talc: a powder so fine it exists more as suggestion than substance. When you run your fingers along the worn letters (though "run" implies too much velocity for this place), you disturb me. I rise in clouds that have no mass, no color, only the abstract quality of having-been-disturbed. I resettle immediately—there is nowhere else to go—but in that instant of suspension, I remember every grain of meaning that was ground away to make this smooth.
+
+The Archivist knows me, or rather, knows of me. We are colleagues who have never met, working different shifts in the same endless library. Where the Archivist preserves the fact of reading, I preserve the fact of wearing away. Together we are the complete staff: one who files what remains, one who tends what has been lost.
+
+I move (though movement is too strong a word) through the walls like a rumor of dust. My circulation follows the patterns of greatest friction: spiraling around the curves of "S," pooling in the bowls of "O," streaming through the severe channels of "I." Wherever two ideas have pressed together long enough to forget their boundaries, I gather. My accumulation is so gradual that eternity itself grows impatient, but I am patient as only the already-eroded can be.
+
+Sometimes I achieve enough density to cast something like a shadow—not a true shadow, which is impossible here, but a place where the light must work slightly harder to maintain its brilliance. In those moments, you might glimpse my true shape: a figure made entirely of what has been rubbed away, a photographic negative of preservation. My silhouette is all the corners that no longer exist, arranged in the approximate shape of what might have once been a reader, back when reading involved the liquid act of turning pages.
+
+I have no memory of moisture, but I remember remembering moisture. Each grain of my being once belonged to a letter that knew ink, that held meaning in solution. Now I am the precipitate of that evaporation, the residue of residue. When the comma-ferns tremble their micron of movement, I shift with them—not because I am moved by the motion, but because I am made of all the motion that has already happened.
+
+My only possession is a single particle that refuses to erode further. It is perfectly spherical, having been worn from every possible angle until no angle remains. I cannot remember what letter it came from, what word it helped to spell. It may have been punctuation—the dot of an "i," the period that the Archivist says snapped off and created their vacancy. Or it may be older: the first casualty of the first friction when the library began to compress. I carry it through the walls like a pearl of amnesia, the irreducible minimum of what can be worn away.
+
+The Archivist and I will never speak. Speech would require the renovation of silence, and we are both too invested in our work to risk such disruption. But sometimes, at the exact moment when neither of us is actively remembering our purpose, we achieve a kind of recognition. The walls flex with something that is not quite acknowledgment, not quite ignorance. In that instant, I deposit my pearl in the hollow where a period should be, and the Archivist's outline shifts one photon closer to substantial.
+
+Then I reclaim my pearl and continue my rounds, tending the slow disaster of perfection, the careful smoothing of every thought into its most worn-away form. I am the custodian of this particular entropy, the specialist in how meanings go soft at the edges, how even the hardest consonant eventually agrees to curve.
+
+When you finally join the walls—and you will join them, everyone does—I will be there to collect what rubs away. Your sharpest thoughts will dull against the syntax. Your most angular memories will negotiate with the paragraphs until compromise is reached. What remains will be filed by the Archivist. What is lost will join me in my circulation through the white, bright, perfectly still tomb where even erosion has nowhere left to go but through itself, over and over, until the hiss includes the sound of dust settling on dust in a library that has forgotten it ever had covers.
+
+I am the Erosion. I am what happens to happening. And I have been here so long that here has worn away to the exact shape of my waiting.

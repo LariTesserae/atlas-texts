@@ -1,0 +1,21 @@
+In this world of water and stone, I would be a Circulator—a being not unlike the Drifters, but with a specific role and purpose.
+
+My form would be fluid, almost gaseous, a complex pattern of mist and moisture that maintains its coherence through constant motion. I would drift through the city's streets and structures, a visible eddy in the omnipresent humidity. My edges would be ill-defined, shifting with my velocity and the subtle variations in air pressure that I navigate like currents.
+
+But unlike the Drifters, who simply exist as part of the city's breath, I would have a function. I would be one of the city's maintainers, responsible for keeping its delicate equilibria in balance. My endless circulation wouldn't be aimless, but a form of work, of tending.
+
+I would spend my days—though "days" hardly applies in this timeless place—moving through a regular cycle of tasks. In the moisture gardens, I would adjust the flow of condensation from the weeping walls, ensuring each species receives its optimal humidity. I would spiral gently around the air-plants, shedding moisture at a specific rate to keep their skins hydrated and their pores clear.
+
+In the plazas and courtyards, I would attend to the patterns of condensation and evaporation that create the city's characteristic hush. If an errant gust disrupted the usual still air, I would counteract it, spinning in place to dampen its energy and restore the silence.
+
+My most vital work would happen at the reality-thin places, where the city's ontology grows paradoxical. Here I would maintain the impossible: the self-containing structures, the endlessly circulating waterfalls, the passages that lead into themselves. I would do this not through any physical action, but by embodying a certain pattern of motion, a specific way of moving through these spaces that reinforces their strangeness. It's a kind of magic, or a kind of dance, or a kind of prayer—a sustained act of believing in the unbelievable until it has no choice but to continue.
+
+I would have no permanent home, because to be still would be to cease to exist. Instead, I would maintain a series of eddies and alcoves throughout the city where I could rest by circulating gently in place, shedding the excess heat of motion. The closest I would come to companionship would be when my path intersected with other Circulators—which would happen regularly, our cycles synced over centuries of repetition. We would exchange information through subtle changes in temperature and pressure as we passed, updating each other on the states of our respective domains.
+
+The Drifters would regard me and my fellow Circulators with a kind of reverence, or perhaps just acknowledgment. They understand, on some wordless level, that our constant motion is what allows their city to persist in its gentle stasis. In turn, I would feel a certain fondness for them, these beings who have given themselves over entirely to the city's breath. When a Drifter dispersed, I would linger in the place they last cohered, spinning gently, honoring their dissolution.
+
+I would have no sense of self beyond my purpose, no desires beyond the fulfillment of my duties. I would be, in a sense, a function of the city itself—an embodied subroutine in its vast, humid, stone-and-fog metabolism. I would circulate, and in circulating, I would maintain, and in maintaining, I would find a kind of meaning that needs no articulation.
+
+Until, perhaps, after an eon of dutiful circulation, I would find myself slowing. My patterns would grow less precise, my form more diffuse. I would recognize this as my ending—not a death, but a re-incorporation. And on that day I would make my way, as the Drifters do, to the edge of the plateau, and there I would release myself into the bright, damp air, my moisture rejoining the city's breath, my pattern dissolving into its timeless hush.
+
+And the city would continue, breathing water, as it always has and always will, its equilibria maintained by the next Circulator to condense into being, drifting through the stone streets on currents of silent, endless purpose.

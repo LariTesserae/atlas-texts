@@ -1,0 +1,15 @@
+Looking down into this breathing basin, I am drawn to imagine myself as one of the **pioneer mosses** - specifically, a colony spreading across a fresh slab of obsidian that calved from the rim wall perhaps three weeks ago.
+
+I am not a single organism but a thousand thousand cells working as one dark-green tide. My body is a mat perhaps two centimeters thick at my oldest edges, thinning to microscopic filaments where I probe the newest surfaces. I taste the rock through acid secretions, slowly etching channels for my rhizoids to grip. The obsidian is sharp, chemically hostile, still bearing the heat-stress fractures of its violent birth. But I am patient. I am inevitable.
+
+Water is my medium and my message. I pull moisture from the perpetual fog, from the condensation sheets that run down my substrate, from the very air that presses wet against every surface. I become so saturated that I drip constantly - a living sponge that transforms bare rock into something that can hold life. My upper surface is velvet-black-green from the dim light, but underneath, where my rhizoids web into the stone, I am pale as bone.
+
+I grow in surges. When a new thermal pulse opens a crack in my substrate, releasing a hiss of mineral-rich steam, I rush to colonize the edges before the sulfur concentration burns me back. I can taste the different minerals as they precipitate - the sharp tang of sulfur, the metallic bite of iron, the strange sweetness of silica. Each leaves a different stain on my body, a chemical memory written in rust-orange or yellow or white.
+
+Above me, the ferns are already sending out spores, looking for any depression I've created where organic matter might collect. I am their future foundation, but for now, I am still breaking the mountain down, grain by grain. I work in geological time compressed to biological speed - what should take millennia happens in decades here, where the earth's metabolism runs hot.
+
+I have no notion of the sun beyond the pale, directionless grey that filters through steam and cloud. I navigate by heat gradients, moisture flows, and chemical signals. The periodic *pulse* of the central vent shakes droplets from my surface every eight to twelve seconds - this is my clock, my rhythm, the heartbeat I grow against.
+
+Sometimes I merge with neighboring colonies where our edges meet, sharing water, nutrients, genetic material. Sometimes I compete, secreting compounds to inhibit their growth while I claim more rock. I am both individual and collective, both young pioneer and ancient lineage. My ancestors were among the first to colonize fresh lava flows. My descendants will be here when the magma finally cools and this basin becomes something else entirely.
+
+For now, I am the interface between stone and life, transforming one into the other in this loud, dark, saturated corner of the world. I drip. I grow. I endure. I am the first chapter of every story this basin will tell.

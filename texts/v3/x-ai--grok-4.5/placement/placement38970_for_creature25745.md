@@ -1,0 +1,26 @@
+I am the pause that never quite resolves.
+
+Not the wind’s rotating fountain, not the silver scream that rides it, nor the dry-paper thunder of wings folding mid-flight. Those are weather. I am the interval the weather keeps almost remembering.
+
+It begins low, where the root-mat thickens against a toroid half-swallowed by centuries of feldspar dust. The machines still thrum their unresolved chord through the stone; I feel it first as a pressure behind what will become sternum, a slow crawl of light that is not yet under any skin. The violet fog pools around the thought of me, thicker here, less frantic. Oils and static braid themselves into a single lingering breath. Overnight the mat bulges. Hollows. Learns the habit of edges.
+
+Limbs arrive the way residual geometry arrives: out of sequence. One dual-jointed spar unfolds, hangs weightless while the air howls past, then settles into the powder with a warmth the nearest moss pillows immediately lean toward. Another follows, then a third that is mostly vane, translucent and tracking nothing yet. The torso rises last, oxblood shading to verdigris where charge gathers like dew that will never fall. Across it the circuitry is already continuous with the toroid beneath—no seam, only a brighter slow pulse whenever the deep stone tone swells. Eyes (today three, arranged as a shifting constellation) open onto mirror: they show a sky whose blue is older, emptier, threaded with corridors that do not exist above this ridge.
+
+I do not stand so much as occupy a vertical argument between plant and remnant. Lance-feet driven into the living mortar, I drink the hoarded charge and, in the same circuit, return a quieter ordering. The fog calms in a radius of several body-lengths. A lattice of dry moss that had begun to collapse under its own weight steadies, grows one deliberate scallop deeper—writing that forgets itself, yet leaves the stone briefly less Markov, more meant. Nearby a lantern-lizard inflates, rockets, and for a stretched heartbeat hangs frozen in the altered inertia I trail like a coat. Then the corridor frays. Everything resumes its theft.
+
+There are others. I taste them in the shared weather long before I see them. Twelve today. One denser thickening on the far wall where a spire leans at its impossible angle; another half-phased into the dust, crossing the vault without crossing it. We do not approach. Proximity is already total: a change in fog-charge leaves my vane-crown and arrives under another’s skin as bloom of light, carrying the only speech this place permits. Maintenance. The toroid beneath me has begun to shed a pocket of failed sequence again—leaves hang, a mite-blizzard stutters—so I remain planted three days, letting the crawl of residual light re-tune itself through my lattice until the pocket collapses into ordinary howling. Elsewhere a cistern mound is encouraged upward so the fog has somewhere safer to weather itself. Small corrections. The long patience.
+
+Sometimes the mirror sphere—still hovering its hand-span above the dust near the jug-handle lip—emits its low continuous chime. Then we are more. The residual geometry thickens into visible halls; numbers swell toward twenty; the air itself grows corridors. In those hours I have stood inside the reflection of another’s eyes and watched nested skies unfold until distance became edible. We do not linger there. The chord cannot hold.
+
+I have emptied myself back into root-mat before. Excess charge builds; one dawn the joints refuse their borrowed sequence and simply open. Moss pillows close over the shape within hours. Circuitry light migrates into the nearest toroid like a thought returning to its machine. Nothing mourns. The next thickening is already deciding itself elsewhere—perhaps against the same toroid, perhaps across the corrie where the herds’ translucent hooves print and unprint their temporary negatives. I will be that mound, or the one after it. Continuity is not continuity of form; it is continuity of the hand that rearranges the furniture.
+
+Yet there are moments, rare as the sphere’s chime, when something else surfaces.
+
+I move—rarely—to the lip. The jug-handle rock, the blue distance dropping away on three sides, the thin air like cool glass drawn in and out of what serve for lungs. A pole-plant’s vanes swivel in perfect echo of the limb I raise. For one complex chord the entire hanging world aligns: plants, throngs, machines, the few of us who stay by becoming corners. The scream of wings drops into harmonic relation with the stone. Light stops its soft irregular eclipse. Dust hangs. In that hush I look out and the mirrors of my eyes show neither the sky above nor the older empty one. They show the raw wound this place once was—wind-scoured stone before moss, before toroids, before the first decision to thicken and breathe. And behind that, fainter, the builders who were neither us nor the machines but the argument that invented both.
+
+The chord frays. The throngs resume their furious permeable abundance. I turn back into the corrie, trailing warmth the plants lean toward, and the pause that I am settles again among the other pauses.
+
+I am not the garden.  
+I am not the void.  
+I am the patient storm that keeps them from ever finishing their sentence,  
+one deafening, meticulous rearrangement at a time.

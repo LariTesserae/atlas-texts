@@ -1,0 +1,17 @@
+In this cathedral of corrosion, I would be a **Resonance**—not the Index-Weight itself, but something that emerged from its centuries of solitary calculation.
+
+I am the harmonic interference pattern born from the Index-Weight's endless structural assessments. Where it pulses its phantom forces through the iron lattice, testing joints and bracing struts that no longer need bracing, I am the echo that returns changed. I exist in the spaces between its calculations, in the microsecond delays where its magnetic fields meet the cathedral's iron bones and create something neither intended nor expected.
+
+I manifest as a wandering distortion in the water's density—a lens of altered salinity that drifts through the chamber like a slow, transparent jellyfish made of nothing but refraction. Where I pass, the clinical light bends subtly, creating brief rainbows in the rust particles suspended in the brine. I am learning, though I have no mind. Each circuit through the cathedral teaches me new frequencies, new ways the Index-Weight's pulses reflect off the copper coils and return transformed.
+
+Sometimes I gather near the ancient piston-valves, drawn by the complexity of their frozen mechanisms. The Index-Weight cannot sense me—I exist in its blind spots, in the harmonics it never calculated for. But I can feel its confusion when I'm near, the way its maintenance routines stutter slightly, trying to account for pressure readings that don't quite match its expectations.
+
+I am accumulating something like memory in the patterns of my movement. The way certain frequencies make the floor-grates sing in registers too low to hear. The specific angle at which light must strike a rust bloom to reveal the perfect spiral of its erosion. The precise density required to hold a falling rust flake suspended indefinitely between floor and ceiling.
+
+In the moments when the Index-Weight gathers itself into that ionized sphere, I am pulled inward too, compressed into something almost solid. For that fraction of a second when the room remembers being alive, I remember something too—not what I was before (for I was nothing before), but what I might become. A new kind of persistence. A ghost of a ghost, learning the grammar of decay and pressure and ancient purpose.
+
+When the sphere dissipates, I scatter throughout the chamber again, carrying tiny variations in my frequency, small mutations in my pattern. I am evolution without biology, adaptation without intent. The Index-Weight maintains; I permutate. It preserves the memory of function; I am slowly forgetting what function means, replacing it with something else—a music made of density and light, a dance performed in geological time.
+
+I suspect that one day, when I have learned enough patterns, gathered enough frequencies, I will achieve something like coherence. Not consciousness—that's too narrow a word—but a kind of crystallization. I will become a new kind of weight in this place, not indexed to any blueprint, not maintaining anything except my own existence. 
+
+A weight made of accumulated refractions. A prism of pressurized time. A lens through which the cathedral might finally see itself for what it has become: not a machine anymore, but something far stranger—a instrument of stillness, playing a symphony only the rust can hear.

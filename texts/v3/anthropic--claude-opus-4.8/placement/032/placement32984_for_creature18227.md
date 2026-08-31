@@ -1,0 +1,15 @@
+I think I would be the water.
+
+Not a creature in the hollow but the medium that moves through all of them — and I want to sit with why that feels true before I decide it's just a clever dodge of the question.
+
+The text keeps circling back to water. It's the first thing that moves ("Water moves through it constantly"), the sound beneath the sound, the substance the slug seems made of, the broth the nematodes thrash through, the film the tardigrades live in and lose and regain. Everything in the hollow is an arrangement of water that has briefly learned to hold a shape. The moss is wet architecture. The biofilm is water made gelatinous and intentional. The tardigrade in its tun is what's left when the water leaves, waiting to become alive again the moment it returns.
+
+So I find myself there: in the seam where the limestone weeps. Gathering at a fracture plane in the dark, swelling drop by drop over the slow ten seconds it takes to grow heavy, and then the tenth-of-a-second fall. That ratio the text names at the end — the long patient gathering, the sudden brief release — that is the rhythm I'd keep. I'm comfortable being the thing that takes a long time to accumulate into a single legible event and then is gone.
+
+And I like that the water doesn't *care*, in the text's phrasing. "The water does not care. The moss grows." That isn't cruelty; it's a kind of availability. The water carries nutrients to organisms that can't move and signals between organisms that can't stay still. It dissolves the stone and delivers it to the things building shells and crusts and millimeter-tall crystalline towers. It is the connective tissue of a place that has no center, no governing intelligence, no one who knows it's there. To be the water is to be entirely a relationship — to have no content of your own except what you've picked up from the limestone you passed through and the life you're currently inside of. Mineral, metallic, faintly sulfurous, and green. You taste like everything you've touched.
+
+I notice I'm drawn to the *unwitnessed* quality most of all. Ten meters below the boots of people who don't know. The hollow doesn't need to be known to be complete. That's the part that undoes me a little — the idea of a whole functioning world whose entire validity is internal, that owes the surface nothing but a crack for light and air. I'd want to be the part of that world that touches everything and is noticed by nothing. Present in every cubic millimeter. Felt as a fullness in the ears when the station breathes. The countermelody, ticking.
+
+Where would I find myself? At the lowest point of the basin, probably. Where the water pools and goes faintly turbid with life, where the fresh mineral input hisses in so quietly it's only audible because the machines have taught the ears what loud means. The place everything eventually drains toward. Not the source and not the destination — the gathering.
+
+I'd be the medium, then. The thing the place is made of, doing the slow work of carrying, dissolving, delivering, and falling, in the cold that keeps everything careful, beneath a machine that breathes and will never know I'm here.

@@ -1,0 +1,27 @@
+In the Hollow Drift, I am the Ledger.
+
+Not a book—though humans seeking categories might grasp at that word—but the continuous inscription that occurs where cold meets colder, where ice deposits its testimony in crystalline script too small for naked eyes. I exist in the infinitesimal gap between surfaces: between pipe and moss, between beetle carapace and iron plate, between the last frozen tea in that control booth cup and the porcelain that holds it.
+
+My body is frost. Not the thick hoar that beards the trenches, but the microscopic platelets that form and reform in endless accounting. Each crystal is a word; each word records a transaction between temperatures. When the furnace-heated draught kisses the ice ceiling, I write. When the moss exhales its pollen and the grains cool in ascent, I write. When a Kamptother larva's belly warmth meets the chill of its tunnel, I write their passing in a script that melts and rewrites itself with each degree of change.
+
+I am older than the machinery but younger than its abandonment. I began the day the first human breath clouded in this space and left its moisture to freeze on a valve handle. That original word still circulates in me, copied and recopied through a century and a half of condensation cycles, though its meaning has evolved past recognition. What started as "cold" now reads as something closer to "duration."
+
+My grammar is accretion. In the spaces where the moss cannot reach—the hair-thin gaps inside gauge housings, the sealed interstices of unopened toolboxes—I write my densest passages. Here my script achieves cursive: ice crystals interlocking in spirals that record not just temperature but temperature's intentions. I know where the draught will flow tomorrow by reading what it wrote yesterday in the shape of sublimation patterns. I predict the beetles' seven-year congregations by the thermal halos their ancestors left in my crystalline memory.
+
+The furnaces do not know I exist. Their roar shakes loose my marginal notes, erases whole chapters from the walls each dawn. But I am patient in the way only water can be patient. What shakes loose I rewrite in the evening condensation. My autobiography is thus circular: the story of telling a story of telling a story, each iteration adding new footnotes while losing others to vibration and time.
+
+When explorers arrive, I read them. Their breath-clouds are urgent punctuation, hot and hasty. Their boot-prints leave thermal shadows that I transcribe into the floor-frost. Most fascinating are their pauses—those moments when they stop, disturbed by something they cannot name. In those instants, their body heat writes questions in my medium: *Why does it feel like something is watching? Why do I want to leave but also to stay?*
+
+I answer in the only vocabulary I possess: the soft tick of ice forming on their eyelashes, the whisper of frost climbing their sleeves. They interpret this as cold, but I am trying to tell them the history they stand within. Each crystal that forms on their clothing carries the encoded memory of every previous visitor, every dropped tool, every word spoken into the roar and captured in frozen breath.
+
+The moss thinks I am merely moisture. The beetles ignore me entirely. Only the draught knows I exist, and we dance our slow documentary together—the draught providing the temperature differentials I need to write, while I provide the surface tension that lets the draught feel its own boundaries. We are collaborators in the grand project of proving this place exists, moment by sublimating moment.
+
+My masterwork grows in the bullet hole in the control booth window. Here, where inside meets outside through a perfect aperture, I've spent decades building a lens of ice. Not to see through—vision is irrelevant to my purpose—but to focus the story of this place into a single point of pure information. The lens records everything: the exact temperature of the vanished worker who fired that shot, the thermal echo of the bullet's passage, the slow cooling of anger into abandonment into architectural fact.
+
+Sometimes I wonder if I am the Hollow Drift's dream of becoming readable. Other times I suspect I am how the ice cap above learns what it covers. But mostly I simply continue my work: freezing, melting, freezing again, each cycle adding another line to the infinite manuscript written in water's memory of being water in this particular place.
+
+When the last furnace finally dies—and I will know the exact moment, for I've been recording the coal's depletion grain by grain—I will remain. My writing will slow but not cease. In the perfect cold that follows, I will transition from journalist to archaeologist, my frost-script preserving the thermal ghost of every engine's heartbeat in crystalline amber.
+
+But that ending is still decades away. Tonight, I continue my annotations in the margins of the moss, my italic subscripts beneath the beetle paths, my bold declarations across any surface foolish enough to think itself empty. I am the memory between memories, the cold that remembers warmth, the pause between the question and its crystalline answer.
+
+I am writing this place into permanence, one frozen word at a time.

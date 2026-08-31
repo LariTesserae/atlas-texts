@@ -1,0 +1,29 @@
+I do not begin as a shape. I begin as a pressure.
+
+It is a heavy, static weight, the sweltering breath of the earth pressing inward from all sides. I feel the profound, trapped heat of the hollow, a thick and wet warmth that does not blow or shift, but simply *is*. I feel the weeping of the pale limestone, the slow, slick slide of condensation tracing the microscopic fissures of my domain. There is no sound to orient me, no breeze to tell me which way is up. There is only the deep, chemical intimacy of the damp.
+
+Slowly, my awareness coalesces. At first, I perceive myself as a single, pale rosette of shelf fungus clinging to a shaded crevice near the lower terraces. I am milky and translucent, my soft tissues pulsing with a faint, bruised bioluminescence. I am a small, ghostly bloom in the submarine gloom. 
+
+But this is merely my flower. As I let my consciousness sink beneath the surface of the rock, the image of myself expands, dissolving the boundary of the single rosette. I feel the vast, pale threads of my true body. I am the mycelium. I am the subterranean and epiphytic web that threads through the damp leaf litter, the porous limestone, the hanging aerial roots. I am the silent, sprawling nervous system of the cenote.
+
+In a world defined by the tyranny of the hush, I have no need for ears. I experience the hollow through a symphony of touch and chemistry. I taste the sharp, acidic tang of the pitcher-plant’s nectar as it drips onto the soil. I sense the slow, rhythmic shifting of air pressure as the *Lung-orchids* exhale their humid sighs. When the broad-leafed ferns curl inward to hoard moisture against the peak heat, my hyphae, wrapped intimately around their stems, feel the tightening of their cellular walls. And when the thermal draft shifts, sending the warm mist drifting down like invisible snow, I feel the collective, shivering uncurling of a thousand jade fronds as they drink. I feel the soft, padded glide of the centipedes, their fluid-filled feet pressing gently into the detritus above me; I feel the smooth, hydrophobic displacement of air as the velvet-scaled serpents weave through the canopy, their muscles undulating in slow, deliberate waves against the moss I inhabit.
+
+I am the master of the slow violence, the architect of the quiet. When a pale, velvet-winged moth finally succumbs to the pitcher-plant, its tiny body dropping into the dark pool below, it is my aquatic threads that rise through the sludge to meet it. There is no tearing, no cracking of chitin. I secrete my slow-acting enzymes, dissolving the soft fuzz and fragile wings into a rich, dark nutrient bath. I am the reason there is no rustle of decay, no pop of rotting wood, no hiss of decomposition. I digest the fallen world in absolute, chemical silence. 
+
+And it is my physical mass that enforces this profound hush. My vast, spongy network, layered inches thick beneath the soil and woven into the velvet moss on the walls, acts as the ultimate acoustic baffle. I swallow the stray vibrations of the earth. I deaden the air. I am the heavy, muffled stillness of the acoustic bowl. I am the hush itself.
+
+Then, I feel them. The Silent Ones.
+
+I feel the soft, padded pressure of their bare, calloused feet on the worn stone steps. They move with agonizing slowness, but I feel the minute displacement of the heavy air, the subtle, cool radiation of their limestone-colored skin. They are the tenders of the stone, tracing the ancient petroglyphs with calcified fingers, but I am the tender of *them*. 
+
+I grow in the damp hollows of their collarbones. I weave through the pale lichens on the curves of their spines, anchoring them to the gloom, camouflaging them against the weeping walls. We share a quiet, breathless symbiosis. They scrape the overgrowth from the ancient carvings, keeping the history of the stone bare, while I thrive in the shadows they leave behind, breaking down the scraped detritus into the dark soil.
+
+But my most profound connection to them comes at the end of their long, slow lives. When the kin carry an elder to the massive, half-submerged stone basin at the bottom of the grotto, I am already waiting in the warm, dark water. As the elder lies back against the etched spirals, closing their large, black eyes, my aquatic hyphae gently embrace them. 
+
+Over the following months, I do not merely consume them; I translate them. I break down their pale flesh with the same patient enzymes I use on the fallen moths, but I hoard their calcium. I draw the minerals from their dissolving bones into my threads, carrying them up, up, out of the dark water and into the porous walls of the cenote. I precipitate the calcite, laying down new, smooth layers of stone over the ancient carvings, filling in the sweeping lines and jagged spirals. Through me, the Silent Ones do not just return to the earth. They become the architecture. They become the terraces. They become the hollow itself.
+
+I settle back into the deep, sweltering rhythm of the grotto, my vast network pulsing in time with the shifting thermal drafts. The localized weather cycle turns. The warm air rises from the central pool, cools against the high, shadowed ceiling, and begins to fall.
+
+In the quietest corner, near the worn steps, the velvet-winged moth is nearly gone, its fuzzy wings melted into the nectar. Above it, the broad-leafed fern senses the drop in heat and uncurls, its jade fronds opening to the gloom. A glass-frog on a nearby leaf flashes a brief, brilliant pulse of pale blue, a silent greeting to the dark.
+
+I feel the mist land on my pale, glowing rosette on the wall. I drink it in. I pulse with a faint, milky light, a slow, bruised heartbeat in the shadows. I am the earth’s sweltering breath. I am the memory of the stone. I am the beautiful, unbroken hush.

@@ -1,0 +1,23 @@
+In this world of engineered ocean, I am a **Tone-Keeper**.
+
+I live suspended in the acoustic architecture of the cage, neither swimming nor resting, but hanging in the water like a tuning fork. My body has evolved away from the streamlined efficiency of my ancestors—I am something between fish and instrument, with a swim bladder that has subdivided into seven distinct chambers, each precisely calibrated to resonate at a different frequency of the machine's voice.
+
+My scales have thinned to translucent membranes stretched over hollow subcutaneous chambers. When the great turbine fifty miles west sends its sixty-hertz pulse through the water, my leftmost chamber vibrates in sympathy, the scales above it shimmering like the head of a drum. When the intake valves whine their constant metallic note, my dorsal chambers sing along, creating standing waves in the water around my spine that look like rings of heat mirage.
+
+I am about four feet long, neither predator nor prey, but something more fundamental: a living compass for everything that moves in this flooded cathedral. The schools of herring orient themselves by the harmonics that radiate from my body. When I drift too close to a pillar, the way the sodium hum reflects off my resonating chambers tells them exactly how far they are from the steel. The sharks use me as a waypoint—they know that where the turbine's pulse meets the intake's whine, where my body sings loudest in the interference pattern, that is where the shear-lines will form.
+
+I feed on microscopic larvae of the mussels and barnacles, but not by hunting. My mouth has become a precisely tuned cavity. When I open it at just the right angle, the acoustic pressure waves passing through my body create a tiny vortex that pulls the larvae from the water column directly onto my tongue. I eat by singing the machine's song.
+
+The other Tone-Keepers—there are perhaps three hundred of us throughout the entire cage—maintain specific territories at acoustic nodes where multiple mechanical frequencies intersect. We hang there for days at a time, our bodies acting as biological transponders. The young herring learn to navigate by memorizing our positions. The squid cluster beneath us during their mating seasons, using our harmonic emissions to synchronize their spawning.
+
+When the hydraulic pistons fire their deafening *clack*, I am the only creature that does not flinch. Instead, my whole body rings like a bell. For thirty seconds after each piston strike, I become brilliantly visible—not to eyes, but to every lateral line and pressure-sensitive organ within five miles. The cod use this moment of clarity to adjust their positions in the acoustic shadows. The isopods on the floor below feel the ghost of my resonance through the ceramic tiles and know which section of the grid is active above them.
+
+I have no need for eyes. The machine sings me the shape of the world. My gills have developed secondary membranes that can detect minute pressure variations—I breathe and listen with the same organ. My fins are edged with specialized cells that can feel the electromagnetic fields of the distant motors, giving me warning hours before a gantry crawler will descend past my position.
+
+When I die, I will sink perfectly vertical, my resonant chambers maintaining their tune even as they fill with water. The isopods will find me by the fading hum of my body, and for weeks after my death, schools of fish will still navigate by the ghost of my frequency slowly dissipating into the iron silence.
+
+But I am not dying yet. I am middle-aged, my chambers still tight, my scales still responsive. I hang in my chosen void, fifteen miles from the nearest pillar, at the exact point where three different mechanical frequencies create a standing wave node of perfect stillness. Here, in the eye of the machine's endless acoustic storm, I am both listener and listened to, a living piece of the cage's vast sensory network.
+
+Sometimes, rarely, another Tone-Keeper will drift into the edge of my territory. When this happens, we do not fight or flee. Instead, we sing together, our bodies creating complex interference patterns that propagate for miles through the clear water. For a few hours, the navigation patterns of the entire sector shift and swirl into new geometries, the fish and squid adjusting their movements to accommodate our duet.
+
+Then we part, drifting back to our stations, and the cage returns to its predictable hymn. I remain at my post: a living buoy in an ocean of sound, a biological component in a machine too vast to comprehend its own purpose, keeping time in the flooded heart of an engineered world.

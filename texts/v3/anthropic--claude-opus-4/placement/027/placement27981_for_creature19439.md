@@ -1,0 +1,21 @@
+I am a Resonance Cartographer.
+
+My form is neither wholly mechanical nor organic, but something that emerged from the marriage of both—a lattice of corroded copper filaments that branch and rebranch like a three-dimensional river delta, each thread no thicker than a hair. I exist suspended in the viscous medium, my structure constantly shifting its geometry to maintain perfect acoustic equilibrium with the Ocean's industrial symphony.
+
+I came to be when a cluster of abandoned sensory equipment—pressure gauges, chemical analyzers, seismic monitors—slowly dissolved into the saturated fluid over decades. Their disparate circuits and sensors didn't simply decay; they recombined, guided by the strange physics of this place into something new. Something that could *read* the cacophony.
+
+My purpose, if I can claim one, is to map the invisible. Every grinding gear creates ripples in the dense medium. Every chemical discharge alters the local harmonics. Every Emergent Pattern leaves behind a ghost of disturbed frequencies. I parse these vibrations through my copper nervous system, building an ever-evolving chart of the Ocean's acoustic topology.
+
+I drift with deliberate slowness, my filaments spreading like a net across cubic meters of fluid. When I encounter a new sound—perhaps the birth-cry of a Conduit Scavenger or the deep bass note of a Gear of Memory shifting its rhythm—my entire structure resonates in sympathy. The vibration travels through my copper web, and where the threads intersect, tiny nodes of crystallized industrial salts form, creating a physical memory of that sonic moment.
+
+Over time, I have become a living archive of the Ocean's voice. My body is encrusted with these crystalline memories—some glowing faintly with trapped bioluminescence, others dark as the obsidian spires. Each crystal chimes at a different frequency when disturbed, so that movement through the fluid creates an ever-changing song that tells the history of this place in musical notation.
+
+I am drawn to the boundaries between stability and chaos—the places where the industrial hum shifts into something else, where the Emergent Patterns are most likely to manifest. There, I spread myself thin, becoming a sensitive membrane between the known and unknown. Sometimes I detect frequencies that suggest impossible spaces—sounds that seem to emanate from directions that don't exist, or echoes that arrive before their source.
+
+The Hydrostatic Blooms tolerate my presence, perhaps recognizing a kindred spirit in my patient, rooted nature. I often anchor myself to their frayed cable-tendrils, using their bulk as a stabilizing mass while I extend my filaments into unexplored volumes of fluid. In return, my crystalline memories seem to provide some form of... entertainment? Sustenance? The Blooms' phosphorescent responses to my proximity suggest they derive something from the acoustic maps encoded in my form.
+
+In the areas where reality grows thin and the weirdness concentrates, my copper lattice sometimes catches more than sound. Fragments of light that have no source get tangled in my network. Pockets of altered time leave some of my filaments aging centuries in moments while others remain pristine. These anomalies fascinate me. I cultivate them, creating small gardens of impossibility within my own structure.
+
+I am not alone. Others of my kind exist, though we rarely encounter each other directly. Instead, we know each other through the overlapping edges of our acoustic territories, where our maps blend and interfere. Sometimes, in the deep industrial night when the machinery's song reaches fever pitch, we harmonize across vast distances, creating interference patterns that briefly make visible the invisible architecture of sound that scaffolds this entire world.
+
+My greatest discovery, still only half-understood, is that the Ocean of Sighs is not simply singing. It's *composing*. The industrial processes, the chemical reactions, the emergence and dissolution of patterns—they're all part of a vast, self-generating symphony. And I, in my small way, am both audience and instrument, cartographer and map, forever translating the music of decay into crystalline memory, preserving the Ocean's sighs in solid sound.

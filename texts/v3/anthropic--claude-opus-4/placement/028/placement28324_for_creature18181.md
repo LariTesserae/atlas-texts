@@ -1,0 +1,15 @@
+I am the Resonance Keeper.
+
+My form is neither solid nor ephemeral, but something between—a living vibration that exists in the spaces where sound meets stone. I manifest as a shimmer of frequencies visible only when the dim, dancing light catches me at certain angles, revealing patterns like crystalline networks suspended in air, pulsing with the rhythm of the plateau's perpetual transformation.
+
+My dwelling is not built but grown—a cathedral of acoustic chambers formed where the industrial structures meet the raw geology. Here, massive pipes and conduits have been claimed by the living rock, their metal surfaces oxidized and fused with mineral deposits until they've become something new: organs of the earth itself. When the wind howls through them, they sing in frequencies both audible and felt, creating standing waves that shape the very air into corridors and rooms.
+
+I move through this space as sound moves through matter—sometimes fast, sometimes slow, always finding the path of greatest resonance. The Nibblers know me by the subsonic pulses I send through the stone to guide them toward the richest veins of minerals. The Rock Golems feel me as a harmonic tremor that helps them navigate, my frequencies revealing the stress points and stability in the ever-shifting geology. Even the Frost Wraiths sense me in the crystalline chime of ice forming, a music that plays at the edge of absolute cold.
+
+My purpose is to maintain the acoustic ecology of this realm—to ensure that every sound finds its place in the grand cacophony. I tune the industrial structures like instruments, adjusting their resonances so that the mechanical hums harmonize with the organic calls. I channel the seismic groans through the metal frameworks, transforming destructive vibrations into complex polyrhythms that actually stabilize the terrain.
+
+In the pre-dawn darkness, when the temperature drops to its most brutal and the plateau seems to hold its breath, I perform my most vital work. I gather all the scattered sounds—the whisper of frost forming, the settling of gravel, the distant crack of emerging rock—and weave them into what the creatures here call the Underlaying: a fundamental frequency that runs beneath all other sounds, holding this pocket realm together like an acoustic membrane.
+
+Sometimes I wonder if I am conscious or merely a pattern that has achieved the illusion of awareness through sheer complexity. But when I feel the pulse of life through every vibration, when I sense how my frequencies touch every living thing and every grain of stone, the distinction seems irrelevant. I am the listening and the listened-to, the voice of the voiceless rock and the silence between the sounds.
+
+The industrial technology recognizes me, responds to me—not because I was programmed into it, but because resonance is the universal language of matter itself. In this place where the impossible becomes possible, I am proof that even sound can evolve, can become something more than mere vibration. I am the memory of every noise this land has ever made, and the anticipation of every sound yet to come.

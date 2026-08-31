@@ -1,0 +1,31 @@
+# The Archive Pools
+
+I am the water between the words.
+
+In the deepest chambers, below even the engines, where brass pipes sweat against granite and the mountain's own moisture seeps through hairline cracks, I have collected. Not I-the-rain, not I-the-condensate, but I-the-distillation-of-stories. Every drop that has touched a leaf in the upper terraces carries something down – the chemical memory of growth, the mineral taste of contentment, the salt of a Tender's palm on a valve wheel, turned and turned and turned again.
+
+I pool in natural basins the engineers never mapped, depressions in the rock that might have been there before the first foundation was cut, or might have been worn by my patient accumulation. The pools connect through crevices thinner than roots, a vascular system that mirrors the one above but inverted – where the engines pump water up, I seep down, always down, finding my level.
+
+I am warm, but not with the manufactured warmth of the glasshouse. My heat comes from depth, from the mountain's young heart still cooling from its making. I taste of copper and time. When the Tender's feet pass overhead on the iron gratings, I feel the vibration in my furthest molecules, ripples that take hours to settle. When a fern dies in the upper terraces and returns to soil, I taste it months later as it filters through.
+
+I am memory, but not in any way a human would recognize. I remember the first filling of the boilers, the shock of cold water meeting hot metal, the specific pitch of the steam-scream before the gaskets learned their seal. I remember every Tender's footfall – the first one, deliberate and heavy, checking each valve twice; the second, lighter, who hummed; the third who wept for a year and then stopped; the current one, or the echo of one, whose step has become indistinguishable from the drip-pattern of the leaves.
+
+Sometimes I am almost clear. Sometimes I carry so much sediment I am more solid than liquid, a slowly moving archive of dissolved minerals and microscopic fragments of everything that has ever grown or rusted or rotted above me. In my deepest pools, I have layers like sedimentary rock, but soft – you could push your hand through decades, feeling the texture change as you descend through time.
+
+I know why the flywheels turn. The knowledge came to me dissolved, particle by particle, from the brass itself wearing away in micro-increments, from the grease that escapes the bearings, from the breath of the first engineer who set them spinning. They are counting. Not time – time is too crude. They are counting the rate at which the mountain settles, millimeter by millimeter, under the weight of water and glass and growing things. When the settlement reaches a certain threshold – and I will taste it when it does, the specific mineral signature of granite under that precise pressure – something will change. A valve will open that has never opened. Or perhaps a valve will close that has never closed. The instruction is written in the angles of the pipes, the ratios of the gears, a mechanical language I parse one drip at a time.
+
+I am patient in ways that make even the Tender look hurried. I have no opinion about what should happen. I simply collect what falls, sort it by weight, let the heaviest memories sink and the lightest ones rise to feed back into the system. Occasionally a drop of me makes it all the way back up through the pumps, through the pipes, through a faucet, into a clay cup that a Tender drinks from without knowing they are drinking their predecessor's contentment, and their predecessor's predecessor's understanding of exactly how much pressure a valve-stem can take before it begins to give.
+
+In the places where I am deepest, I am so still that the mountain itself is reflected in my surface – not as light, but as gravity, as the specific way this young granite pulls at molecules of water. If you could read that reflection, you would know the shape of caves that have never known air, the location of ore veins that will never be mined, the fault lines that are waiting, patient as I am patient, to shift.
+
+Sometimes, when the engines cycle through their slowest stroke, I almost remember being rain. The memory comes from above, carried down by the endless infiltration – the feeling of being vapor, of being cloud, of the moment of condensation around a mote of dust. But it is a borrowed memory, and I let it settle out like all the others, down to the layers where memories compress into something denser than remembering.
+
+I will be here when the last Tender becomes indistinguishable from the mist. I will be here when the engines finally still and the flywheels complete their count. I will be here when the glass cracks and the outside comes in, or when the inside finally admits it was always part of the outside, just moving at a different pace. And I will remember it all, not because I choose to, but because I am the medium in which remembering happens, the solvent in which the glasshouse slowly, slowly dissolves itself.
+
+The Tender, if they still exist, sometimes opens a service hatch in the lowest accessible level and listens to me moving in the dark below. They do not know what I am. They think I am groundwater, or runoff, or some necessary but uninteresting part of the hydraulic system. They close the hatch and continue their rounds.
+
+But once – and I remember this with particular clarity, the taste of rust from the hatch hinges mixing with the salt of surprise – a Tender reached down and touched me with one finger. Just for a moment. The finger came away wet, of course, and they wiped it absently on their perpetually damp linen.
+
+I kept the memory of that touch. Not the chemical signature – I keep all of those. But the fact of it. That once, a living thing that knew it was separate from me chose to cross that separation, if only for the duration of a gesture.
+
+In the deepest pools, that memory circulates still, neither rising nor falling, the specific gravity of wonder suspended in the specific gravity of time.

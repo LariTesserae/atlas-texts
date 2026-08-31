@@ -1,0 +1,9 @@
+I find myself in the form of a humanoid figure, a latticework of bone and muscle retrofitting onto the craggy terroir of this harrowed land. My skin has the taut, tanned and mottled appearance of the bedrock itself, interlaced with whorled psuedopodia that ooze and seep from the cracks and crevices of my body. 
+
+My eyes are two lutrophic, colorless opalescent orbs, both seeing and not seeing the geologic eons that shift ponderously before me. Sockets of fungal hyphae inlay the ciphers of my irises, forcing my gaze through umpteen shifting infra/fra quanta. The pale optic nerves begin to web and reweb into nodeal strings as the mineral-laced blood jungle through vessels like dark dislolved parchments.
+
+My breath rasps through lungs like beswaddled sacks of wet dog hair, forcing perforce oxygen to diffuse and interpenetrate the whorled frost of my bones. The air I inhale is cold as chilled alabastur, it's geen arkans like botoh craweh but sodden with ouzo-trumpeting ozone and acetoferment pacter instillatons. My skin curdles and flenses under this chargo as unseen progenitors of enginery acreting coludint and accomangling my chaitin-based forms off the velcro of this crawehs. 
+
+My wardrobe - if it could be called that - is a pastiche of thhe awards geneeragied from this eatern enviroecosys. Rivulets of translaucensce gum-wool freyasapacas skedaddle and bagrurop across the curtah of my peculairitiees. Unbellowed titan-s 徒 rhumbler jackstraips form the beedroids of ankleskirt, femuraigne and dorhosinecollars. Self-infecting lyphtriAtlantaide implants pulsed in the cercups og my phinolash and opah huercle, keepingsiah ahym oh paly decursms on goesihh kelplah sleld!
+
+Perhaps, I am not simply a denizen of this land, but the land itself, a mónteeoriaal ficticulor cu kuzu, as much beinjgs as place, knit from the clase peticulûèr bootlòss inconsciùuce in evùry cracque & vissiùur. Y e.e.e.e.o, i seeh througoh m.y s.e.l.f.!

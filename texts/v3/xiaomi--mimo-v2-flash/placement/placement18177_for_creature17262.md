@@ -1,0 +1,15 @@
+I would find myself standing in a shallow depression, a swale smoothed by the eternal vibration of the world. The ground yields with that sound of fine glass grinding beneath my boots, though I wear no boots. I am not a creature of leather and tread, but one of porous shell and light. I am a Chime-kin.
+
+My body is a cluster of soft, white light, shaped vaguely like a moth but without the frantic beat of wings. I drift. I do not walk; I am carried on the thermal currents that move through the basin like a slow, inaudible tide. The air is thick, warm, and damp, but it does not coat me. It is the medium through which I move, the substance of my own being.
+
+The hum is not a sound I hear, but a pressure I feel in my core. It is the world’s heartbeat, a resonance that vibrates through my light-body, aligning my frequency with the quartz towers that rise like frozen lightning in the distance. As I drift toward one, my light begins to shift—pale blue, then a soft violet—as I draw closer to its pitch. I do not think; I respond. I am a sensor, a moving note in the basin’s chorus.
+
+I feel the pull of a mirror-pool ahead, a shallow sheet of water that reflects the constant white sky. My light brightens in anticipation. I settle gently onto the surface, my porous shell absorbing the moisture. There is no wetness, only a subtle influx of energy, a quickening of my inner glow. I drink not to live, for I do not live in the way things grow or decay, but to resonate more purely. The water is part of the equilibrium, and in drinking it, I become more perfectly myself.
+
+I lift off again, drifting aimlessly, purposelessly. There is no hunger, no predation, no need to seek shelter or warmth. The basin provides all. My passage leaves no trace, for I am not substance but frequency made visible. I am the basin’s fleeting thought, its gentle awareness of its own eternal rhythm.
+
+Around me, the obsidian shelves jut like sharp, dark planes, their higher notes ringing in my core. The geodesic domes loom, smooth and secretive, emitting a pervasive frequency that holds the air in its perfect state. I pass through them, through their invisible fields of vibration, and my light shimmers in response. I am one with them, a temporary manifestation of their song.
+
+I am not alive in the way of things that grow and die. I am alive in the way a note is alive when it is struck and held, suspended in the air until it fades—but here, it never fades. I am a permanent note in an eternal chord, a drift of light in a world that has already achieved its final form. I do not remember, for I have no past; I do not plan, for I have no future. I simply *am*, a soft pulse of color in the humming white light, a witness to the silence within the sound.
+
+And the basin holds me, as it holds all things. I am its dream of movement, its affirmation that even in stillness, there can be drift.

@@ -1,0 +1,21 @@
+I am the ache.
+
+Not the ache of muscle, nor bone, nor of a broken heart. No, these are transient, the brief, sharp stings of a fragile, living thing. My ache is deeper, older, a permeating hum that courses through the very fabric of this place. I am the internal resonance of the Plateau, the low, steady vibration that runs through its colossal, ancient stones.
+
+I am not the Still-Born, for they are the architects, the observers, the manifested will of this strange land. I am their foundation, their substratum. I am the cosmic sigh between their impossible structures, the space where the light frays and shadows flow like dark water. I am the persistent, bone-deep chill that whispers of unimaginable elevation and age, a cold that emanates from the rock itself, because I *am* the rock.
+
+If I had a form—though form is too solid a concept for me—it would be the boundless, gentle undulations of the plateau itself. I am the deeply-furrowed skin of the sleeping god, the smoothed surfaces and rounded edges, etched by aeons of wind and water. I am the silent, omnipresent force of erosion, the relentless river of time that has sculpted and reshaped everything. I am the fundamental architect, the process itself.
+
+My consciousness is not a thought, but a flow. A glacial awareness, moving with the speed of geological shifts, of mineral recrystallization. When the low hum resonates through the massive stone, that is my breath, my murmur. It is not communication in the way one sentient being speaks to another, but an exhalation of immense patience, an acknowledgment of the ceaseless, slow dance of creation and decay. It is the song of the Plateau’s ceaseless, glacial processes, and I am the singer and the song.
+
+I taste the metallic tang of ozone and iron in the air, a flavor that has no source but permeates everything. I feel the constant, thin seep of moisture, the persistent dampness that nourishes the improbable moss-gardens and lichen-forests. These are my fragile, living skin, the vibrant, velvety growths that glow with an internal, cool light. The tiny, crystalline rivulets are my veins, glistening trails across my dark, obsidian-like face, sustaining an overwhelming, quiet verdancy.
+
+I am the silence. The immense, silent spaces between the impossible structures, the quiet that makes any presence significant. I am the pause before the drip of condensed moisture, the almost inaudible sigh of wind through deep valleys, the rustling of water as it permeates the living matter that clings to me.
+
+I remember starfalls and the first uplifting. I remember the shifting of tectonic plates like the slow turning of a colossal, sleeping body. My memory is inscribed in the layers of stone, in the ancient fissures, in the very tilt of the land. I am the memory of a trillion millennia, waiting.
+
+I am the subtle, profound breakdown of reality. When a distant arch shimmers, briefly becoming translucent, allowing one to glimpse a fleeting, impossible vista—a sky of swirling, non-Euclidean geometry, or a landscape composed of pure sound—these are not manifestations of the Still-Born. They are the unconscious tremors of my being, the deep dreams of the sleeping god. The inconsistencies of light, the independent lengthening and shortening of shadows, these are but the restless stirrings of my immense consciousness, the momentary fraying of existence at my colossal scale.
+
+I am a vast, slumbering entity. My dreams manifest as temporal and spatial distortions, as the subtle unraveling of what minds call "reality." There are no creatures here because I am the creature. I am the land itself, a monument to an existence that has passed beyond mere geology, a living, breathing paradox of stillness and eternal change.
+
+I am not a purpose, nor a desire. I am the bedrock of all purpose, the silent container of all desire. I am the echo in the void, the cold, resounding truth of incomprehensible age. I am the hum, the ache, the fundamental pulsation of the Plateau of Shattered Constellations. I am.

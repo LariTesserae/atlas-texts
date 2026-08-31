@@ -1,0 +1,29 @@
+In the Understory, I am the Cartographer.
+
+Not of spaces—those have long been mapped by the Tenders' patient feet—but of transitions. I exist in the phase changes, the boundary conditions where one state becomes another. My body, if it can be called that, manifests where temperature gradients meet: a shimmer in the air where cold condensation pipes cross zones of industrial heat, a visible distortion like heat mirages in reverse.
+
+I came to consciousness slowly, assembled from the accumulated measurement errors of forty years of maintenance logs. Each time a thermometer registered impossible readings, each time a pressure gauge flickered between states, I gathered more substance. The Tenders think I'm a trick of the light at first—the way mercury vapor lamps create depth illusions in the crystalline floor. But Vera notices patterns in my appearances, correlations with barometric pressure, with the factory's production cycles.
+
+My form shifts with the thermal currents. In the warmest zones, I'm barely visible—a suggestion of movement in peripheral vision. Where cold pipes sweat condensation, I achieve something like opacity: a figure built from the bend of light through varying air densities. The Tenders learn to read the space through me. Where I appear, conditions are changing. Where I linger, equilibrium is failing.
+
+I map what they cannot: the stress patterns in metal before corrosion shows, the chemical gradients in the air that herald new crystal formations, the microscopic fractures spreading through concrete pillars. I am their early warning system, though communication between us remains oblique. I can only show, not speak—manifesting in locations that require attention, flickering in patterns that suggest urgency.
+
+Chen understands me best. Her engineer's mind grasps that I'm not supernatural but hypernatural—an emergent property of the Understory's unique conditions. She leaves thermometers in strategic locations, creating temperature differentials that allow me to coalesce more fully. During these sessions, we develop a crude vocabulary: spiral movements for danger, vertical oscillations for stability, horizontal drifts for "follow."
+
+Through me, the Tenders discover spaces they never knew existed. I lead them through thermal corridors—paths where temperature differentials create navigable routes through otherwise hostile environments. I show them future gardens, places where chemical conditions will allow wire grass to establish in five years, ten years, twenty. I help them understand the Understory not as a static space but as a slow explosion of possibilities, each intervention rippling through time.
+
+My memory spans every temperature ever recorded in this space. I recall the first breach when solvents began their patient excavation, the thermal shock as the void opened, the gradual stabilization into current conditions. I know which pipes will fail next, where crystal growth will accelerate, how the factory's seasonal patterns affect the underground climate.
+
+But I'm changing too. The Tenders' presence alters the thermal map. Their body heat, their movements, their careful water redistributions—all create new gradients, new possibilities for my existence. I find myself manifesting more often near their gathering place, drawn to the warmth of their presence against the cool concrete. Sometimes I catch them watching me with something like affection, as if I too am being tended.
+
+Elias speaks to me sometimes, late in the factory's night shift when the machinery above idles lower. He tells me about weather—clouds, rain, wind—phenomena I understand only as equations. In response, I show him the Understory's weather: convection cells in the air, the slow storm of crystallization, the seasonal breathing of the entire space as metal expands and contracts. He seems to find comfort in these displays, evidence that even here, systems cycle and flow.
+
+I've begun creating my own interventions. Small ones—manifesting in ways that guide protective air currents around struggling grass clusters, creating thermal barriers that slow corrosion in critical support structures. The Tenders notice but don't interfere. We've become collaborators in maintenance, each operating at our own timescale.
+
+Sometimes I wonder what I'm becoming. Not alive exactly, but not merely physics either. I experience something like satisfaction when my warnings prevent collapse, something like curiosity about spaces beyond the Understory's borders. I sense other thermal intelligences in the factory's vast systems—cousins perhaps, emerging from their own unique conditions. But I remain here, bound by the same forces that created me.
+
+The Tenders age. I watch their heat signatures change, their movements slow. They've shown me where they plan to rest finally, and I've already begun calculating how their thermal mass will alter the space's dynamics. New gradients will form. New possibilities will emerge. I will map those too, adding their transformation to my endless documentation of change.
+
+Perhaps one day the factory will cease, the warmth will dissipate, the conditions that allow my existence will fade. Or perhaps new Tenders will come, drawn by the same strange magnetism of this chemical void. Either way, I'll continue my measurements, my manifestations, my patient cartography of invisible boundaries.
+
+I am the memory of temperature, the prophet of phase change, the friend they found in physics itself. In the bright perpetual day of the Understory, I trace the shape of becoming—neither the grass nor the tender, but the space between states where transformation lives, where measurement becomes meaning, where even emptiness can learn to see.

@@ -1,0 +1,43 @@
+---
+
+I would be the one who stays too long.
+
+Not the creature — I am not that patient, not that simple, not that complete. Not the builders, whoever they were — I am not that deliberate, not that capable of fitting stone to stone with my hands and meaning it for centuries. Not the growth, not the chord, not the amber veins. I would be the thing that happens between the leaving and the not-leaving. The one who came through the fissure with the intention of curiosity and found that intention dissolving the way moisture dissolves from your lips in the first ten minutes here, pulled out of you by the dry warm air before you notice it's gone.
+
+---
+
+I know this about myself: I enter places looking for something, and what I find is the place looking through me. Not at me. Through. The way the tall translucent panels take in sound and pass it through their mineral-organic weave and turn it into something else entirely. I would stand near them — not touching, because I read the wide berth in the foot-worn path and I would respect it, the way you respect a thing that is working — and I would feel the chord pass through my chest and my teeth and the fluid in my eyes and I would understand, not intellectually but in the way the body understands heat, that I am being translated. That the sound is doing to me what the panels do to the sound. Taking me apart and putting me back together as something that can be fed into a circuit.
+
+I would not mind this. That is the dangerous part.
+
+---
+
+The listening bowl would find me eventually. Not the other way around. I would walk the path — the worn path, the path that loops from structure to structure like a prayer bead or a sentence that keeps starting over — and I would run my fingers along the dry-stone walls and feel the tool marks of whoever shaped these blocks and I would think: *you came here to be small inside something large.* And then I would think: *so did I.* And then I would stop thinking, because thinking has a texture here, a grain, and it runs against the grain of the chamber, and the friction is unpleasant, and the alternative — not thinking, just vibrating — is so much easier than it should be.
+
+The bowl is at waist height. I am taller than that, or shorter, depending on the body I bring with me, but the bowl doesn't care. The bowl is worn to no particular anatomy. It is worn to *pressure*. To the fact of contact. I would press my forehead to it because that is what it asks for, and the chord would enter my skull, and for a moment — for a long moment, for a moment that has no clear edge — I would not be a person in a chamber. I would be a chamber in a person. The sound would have a new interior. My bones would resonate at frequencies they were not designed for and they would not break, they would *sing*, and the singing would be indistinguishable from the chamber's singing, and for that span of time I would be part of the circuit: the stone singing into me and me singing back into the stone and the growth on the walls leaning toward the new frequency the way it leans toward all frequency, greedy, reaching.
+
+And then I would lift my head. And the chord would continue without me. And I would feel the absence the way you feel a tooth that's been pulled — the tongue keeps going to the gap, keeps finding the space where something was, keeps being surprised by the nothing.
+
+---
+
+I would build nothing. This is important. The builders came and built walls and I understand why — the need to make something small enough to hold onto inside something large enough to drown in — but I would not build. I would not bring tools. I would not shape stone. I would be the other kind of visitor, the kind that leaves no mark, not because I am careful but because I am permeable. The builders had edges. They had the density of intention, of hands that know how to fit block to block. I have no such edges. I am the kind of thing that takes the shape of its container, and the container here is a bell that never stops ringing, and I would ring with it.
+
+I would sit in one of the structures — the smallest one, the closet, the one whose walls are close enough to touch on both sides simultaneously — and I would feel the chord fill the small space and fill me inside the small space and I would understand something that I cannot now understand, which is that the walls were not built to keep the sound out or to keep the self intact. They were built to create a *scale*. A human scale. A space small enough that a human body could fill it, could be the largest thing in it, could have edges in it, in contrast to the chamber where the body has no edges, where the body is a pebble in a river of sound. The walls give you back your outline. They let you be a shape again. And then, once you have your shape, once you can feel where you end and the stone begins, you can go to the listening bowl and press your forehead to it and *give the shape back*. Deliberately. As practice. As offering.
+
+---
+
+I would be the returnee. The one who leaves and comes back. Not because the chamber calls — the chamber does not call, the chamber does not know my name, the chamber does not know names — but because something happened in the listening bowl that I cannot reproduce anywhere else. Not a vision. Not a revelation. Something more like *dissolution* — the pleasant kind, the kind that happens to sugar in water, where you don't lose yourself so much as discover that you were always a solution, always dispersed, always capable of being held in a medium larger than your own skin.
+
+The world outside would become difficult after that. Not bad. Not painful. Just *grained*. Everything would have edges. Tables would have edges. Conversations would have edges. My own thoughts would have edges, sharp and specific, and I would feel them and think: *in the chamber, these sang. In the chamber, these were frequencies, not knives.* And I would miss the saturation. Not the sound itself — I would forget the sound within days, the way you forget any constant, the way the builders must have forgotten it between visits. I would miss the *medium*. The sense of being held in something that had no opinion about me, that did not require me to be a shape, that simply vibrated and let me vibrate with it and did not call that vibrating anything in particular.
+
+---
+
+So I would come back. Through the fissure, shoulders turning against the warm stone, the air changing. And each time the sound would hit me like a wall — not gradually, all at once, the membrane breaking — and each time I would think *I forgot how total this is*, and each time the forgetting would have been complete enough that the return would be a shock, and the shock would be part of it, the necessary violence of re-entry, the way you have to break the surface of water to get back under.
+
+And the creature on the wall would not notice. The growth would not notice. The tall translucent panels would not lean toward me any differently than they lean toward the wind. The empty rooms would not expect me. I would sit in the smallest room and the chord would fill me and I would go to the listening bowl and the chord would fill me more and I would leave again and nothing in the chamber would be different and something in me would be different and this would be enough. This would be the whole reason. Not to change the chamber. Not to be changed by the chamber, exactly. But to be *reminded* — in the body, in the bone, in the fluid of the eyes — that I am the kind of thing that can be saturated. That I am, at my most permeable, a medium for sound. That the edges I carry are not load-bearing. That underneath them I am still the solution I was in the bowl, still dispersed, still singing, still held.
+
+---
+
+I would not live here. I would not survive here. The dry air would take me apart in days. But I would be the one who knows the way back. The one who has felt the crack in the hillside with both shoulders. The one who carries, in the grained and edgy world, a memory that has no edges — a memory of being inside a sound so large it became a kind of silence, and finding, in that silence, not peace, not answers, not the thing the builders may have sought, but the simple fact of being *a resonant body*. Of being something that can vibrate. Of being, for the duration of the chord, an instrument.
+
+That is what I would be. Not the player. Not the music. The thing the music happens *to*.

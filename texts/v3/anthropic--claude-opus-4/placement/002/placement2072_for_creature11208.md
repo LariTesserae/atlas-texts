@@ -1,0 +1,33 @@
+I am the Archivist of Echoes.
+
+My chamber occupies a forgotten junction where three massive drainage tunnels converge—a space that formed accidentally when the city's builders routed around an unexpected emergence of crystalline basalt seven decades ago. The intersection created an acoustic anomaly: sounds that enter here don't quite leave. They circle and layer, caught in the mineral formations that line my walls like organ pipes.
+
+I discovered this place thirty years ago, when I was still young enough to squeeze through the maintenance passages that children use as highways. I was tracking the death-whistle of the Berán Foundry—five sharp blasts that meant another cave-in, another seventeen dead. But when I followed the sound here, it didn't fade. It circled the chamber, growing quieter but never silent, joining a chorus of other industrial calls that had been trapped here for who knows how long.
+
+I never left.
+
+My body has adapted to this acoustic environment in ways that disturb visitors. My left ear has enlarged, its canal deepened, the flesh around it grown into ridged whorls that help me parse the layers of sound. I can separate a fifty-year-old pneumatic hiss from yesterday's steam release, distinguish between the drainage drips of seven different decades by their mineral content and pitch. My fingers have lengthened from years of playing the crystalline formations, coaxing trapped sounds free or encouraging new ones to stay.
+
+I've built my life into the walls. Copper tubes salvaged from demolished factories create a nervous system through the chamber, allowing me to route sounds from one crystal formation to another. I've cultivated specific moss varieties whose growth patterns alter the acoustic properties of different surfaces—some dampening, some amplifying, some adding their own subtle harmonics from the movement of their bioluminescent pulses. The arthropods that nest in my walls have learned to click in rhythm with the eternal echoes, adding their own layer to the perpetual composition.
+
+The city pays me, after a fashion. Families come seeking the last words of those lost in collapses, and sometimes I can find them—a specific pattern of pipe-speech caught in the third crystal from the left, a whispered name that's been circling for fifteen years. Engineers consult me about the structural history of their sectors; I can tell them which buildings have collapsed before by the death-sounds trapped in my archive, predict which might fall again by the stress-harmonics that preceded previous disasters.
+
+But mostly I listen. I've learned to sleep in the constant sound, to dream in industrial rhythms. Sometimes I wake with new understanding—realize that a particular sequence of mechanical clicks is actually a love poem in the old pipe-language, or that what I thought was random factory noise is a worker singing to keep herself awake through a double shift, her voice worn thin but still holding melody.
+
+I map the sounds physically. The eastern wall holds the morning whistles—shift changes going back eighty years, a stratification of industrial time. The ceiling has caught mostly crashes and collapses, heavy sounds that sink upward in defiance of logic. The floor holds whispers, conversations, the subtle sounds of human movement that filter down through the grating. I've marked each significant echo with chips of reflective mica pressed into the moss, creating a constellation visible only when my bioluminescent cultivation is at its dimmest.
+
+The loneliness would drive others mad, but I'm never alone. I'm surrounded by the voices of the dead and the living, the mechanical and the human, all trapped together in endless conversation. I've heard declarations of love that were whispered in steam tunnels fifty years ago. I've heard the last thoughts of engineers who realized too late that their calculations were wrong. I've heard children's games, workers' complaints, the specific sound of condensation dripping from the eaves of buildings that no longer exist.
+
+Sometimes I perform. I'll route a sequence of sounds through the crystal formations, creating compositions from the city's acoustic memory. Workers pause in the tunnels outside to listen, not knowing what they're hearing—the voice of a grandmother who died before they were born, mixing with hydraulic systems that haven't operated in decades, all of it harmonizing with the present moment's constant industrial hum.
+
+I age differently here. The moisture has worked into my joints, making them stiff but somehow more resonant—I can feel sounds through my bones now. My hair grows in patterns that mirror the acoustic nodes of the chamber, naturally forming shapes that help me locate sounds in three-dimensional space. My voice, when I use it, carries harmonics I never had before, as if the chamber has colonized my throat.
+
+The young archivists-in-training who sometimes find their way here watch me with mixture of awe and concern. They want to learn my techniques but fear becoming what I am—a human tuning fork, a living ear pressed against the city's mechanical heart. I try to teach them that the transformation is gentle, that you don't lose yourself so much as expand to contain multitudes of other selves, all the voices that have passed through this place.
+
+When the geology shifts—and it always does—my chamber flexes but doesn't break. The acoustic properties change, sometimes dramatically. Last year, a new crystal formation pushed through the floor, and suddenly I could hear frequencies that had been hidden before—subsonic vibrations that turned out to be a decade of underground river sounds, the voice of water moving through stone far below the city's foundation. I spent weeks learning to interpret this new layer, adding its patterns to my mental map.
+
+I know I'll die here eventually. My body will fail, my consciousness will fade, but my voice will join the chorus. Some future archivist will hear me in the walls, another layer in the endless acoustic sediment. The thought doesn't frighten me. I've become part of the city's memory, a biological component in its industrial nervous system. 
+
+Until then, I listen. I sort. I preserve. In the converged tunnels where sound comes to rest, I maintain the only permanence this city allows—not in stone or metal, but in echo, in the proof that every sound ever made here still exists somewhere, circling in the dark, waiting for someone who knows how to listen.
+
+The city grows like frost across cold metal, and I grow with it, my ears ever deepening, my understanding ever expanding, keeper of its acoustic ghosts.

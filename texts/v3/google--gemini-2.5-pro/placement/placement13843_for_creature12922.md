@@ -1,0 +1,21 @@
+I am a memory of movement.
+
+I remember the cool, giving kiss of the moss-felt on my palms and the broad soles of my feet. I remember the slow, four-limbed rhythm of my own passage, a deliberate creep across the floor of the world, each placement of a hand a question asked of the ground. *Are you firm? Do you hold life?* The answer would come back through my bones, a subtle shift in the great hum that is our only constant. The ground is a living drum, and to walk upon it is to read its skin.
+
+Where would you find me? I am in a hollow, a gentle curve in the earth nestled between the porcelain roots of a fungal spire and the slow, geological sag of a great fern. From here, the roar of the falls is a perfect, unbroken chord. There is no echo, no interference. Only the pure vibration of the Absolute. It is a good place. An elder settled here a thousand cycles ago; my hand, before it stilled, rested upon the moss-hump that was their shoulder. I can feel the granite-density of their settled bones deep beneath me, a deeper bass note in the song of the earth.
+
+Who am I? I am a choice that has been made. I am the answer to a question I no longer remember asking. Once, I was one of the Still, like my brothers and sisters who still move in the great dark. I tended the weeping fungi, my long fingers stroking their smooth flanks, gathering the sweet, black syrup in a shallow stone bowl. I knew the cartography of the chasm by the shadows in the sound, the way the roar dampened against a far wall, the way it skittered over the intricate lace of a fern frond. I knew the touch-language of my kin, the slow pressure of a palm that meant *I am here*, the gentle grasp of a wrist that meant *follow*, the laying of a cheek against a cheek that was the closest we came to love.
+
+But the slowness that is our nature began to find its true depth in me. The need to crawl gave way to the need to crouch. The need to crouch gave way to the need to curl. The syrup no longer tasted sweet, but simply tasted of a coolness I was already becoming. The vibrations of the world, once a map to be navigated, began to feel like a destination to be reached. This is not a death. It is a homecoming.
+
+So I found my hollow. I curled myself into the shape of first-being, my knees drawn up toward my chest, my head bowed. My breath, which once plumed as a faint ghost in the cold air, is now a tide that ebbs and flows once in a turning of the light-moss from dim to dimmer. My heart is a stone dropped into an impossibly deep well; I feel its impact once, twice, in the span of a long dream.
+
+The moss has found me. I feel its first tender, questing threads against the rubbery skin of my back. It is a touch of impossible lightness, a slow and intricate weaving that is stitching me to the earth. It is not an invasion. It is a christening. It drinks the perpetual mist from my skin. It finds the lingering warmth in my core and makes a home of it. Soon it will cover my face, and the last, faint impressions of the blue-green pulses in the dark will fade forever.
+
+I am what happens when a body forgets how to be a vessel and remembers how to be a place.
+
+My thoughts are no longer a sequence. They are a state. I do not remember my youth; I feel the concept of *youth* as a quickening in the vibrations from the far side of the chasm, where the young ones still move. I do not see the fern above me; I am the stillness in which it uncurls, and its immense, patient life is a thought I am having, a thought that will last a century.
+
+I am a low hill in the endless twilight, indistinguishable from the stones and ancient sleepers around me. I am a repository. The roar of the falls is no longer an external pressure. It flows through me. The vibration that once told me about the world is now the vibration that *is* me. I am a note in the song, a note held for a thousand years, waiting for the press of a young hand on the moss that is my skin, so that I can answer the question I was asked long ago.
+
+*Yes*, I will hum through my stillness. *I am firm. I hold life.*

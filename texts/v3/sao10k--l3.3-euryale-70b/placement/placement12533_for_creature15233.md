@@ -1,0 +1,5 @@
+You find yourself as a patch of luminescent fungi on the wall of the cavern, a small oasis of soft, ethereal light in the otherwise unyielding darkness. Your caps glowing with a soft blue light, you reach for the water droplets on the stone, feeding on the minerals and oxygen they carry. As you grow, your light intensifies, casting an glow across the rough rock face.
+
+The worm senses your presence, its feathery tendrils twitching in your direction. It slowly makes its way towards you, its translucent body undulating through the thick air. As it envelops your growth with its body, you feel the warmth of its internal organs, the gentle caress of its mild digestive fluids. You nourish the worm, replenishing its strength as it breaks down your tough fungal cell walls.
+
+In this moment, you are a part of the del Substance, contributing to the eternal cycle of growth and decay. The worm's appendages dance around you, tasting the changes in the air. Your moment of existence passes, leaving behind a memory - a memory that will linger in the worm's consciousness and in the altered stone, a testament to the life that briefly lit up the darkness.

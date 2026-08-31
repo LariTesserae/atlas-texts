@@ -1,0 +1,15 @@
+In this world of the Lattice Flats, I imagine myself as one of the Weavers. My hands would be stained a pearlescent, shimmering hue from working with the membrane-tunnel materials day after day. I would carry the secret songs of the city within me, using my voice to shape the semi-living architecture, to repair and regrow the vital passageways that connect the districts.
+
+I see myself as a quiet presence, moving through the endless, interlocking structures with a sense of purpose. My trained ears would pick out the subtle harmonics in the city's constant thrum and roar, listening for the signs that guide my work - the places where a tunnel has ruptured, where a pathway must be rewoven.
+
+In the markets, mensen would watch me pass with a mix of reverence and unease. They know the importance of the Weavers' work, the skill we bring in taming the city's chaotic growth. But they also sense something otherworldly about us, an attunement to the Lattice Flats that goes beyond the mundane.
+
+Among my fellow Weavers, I would be respected for my patience, my ability to coax the most delicate membrane structures into being. The youngest apprentices would watch in awe as I plant the tiny crystalline seeds, singing to them until they burst into shimmering, translucent life. The more experienced Weavers would nod in approval, knowing the years of practice that have honed my craft.
+
+In quiet moments, I would wonder about the true nature of our work. Are we simply maintaining the city, or are we in some way communing with it, participating in its vast and unknowable purpose? The membrane-tunnels we weave seem almost like neural pathways, carrying not just mensen but information, sensations, the very thoughts of the Lattice Flats. Perhaps in tending to them, we are tending to the city's mind.
+
+But such thoughts are a luxury, indulged only in rare moments of rest. Most of my existence would be given over to the work itself, the endless cycle of nurturing and repair, singing and weaving, that keeps the city traversable. I would find a deep satisfaction in this, a sense of harmony with the environment that so few mensen truly feel.
+
+And always, my hands would carry the marks of my craft, the nacreous shimmer that sets Weavers apart. In a world where every surface glistens with condensation, where every creature bears a sheen of iridescence, my hands would be a sign of where I belong. The city has worked its way into me, just as I work my way into the city.
+
+I am a Weaver, shaping the spaces between. In a world of constant change and chaos, I help provide the paths that mensen need to find their way. It is a strange existence, but one that feels right, feels necessary. The Lattice Flats breathe, and I breathe with them, my voice both shaping and shaped by the city's endless song.

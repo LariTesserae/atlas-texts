@@ -1,0 +1,1 @@
+I find myself as an anthropomorphic being with reptilian features and capable of shapeshifting, shaped by the gear-like configuration of rocks and soil, mindful that this underground environment is quite primordial because the framework of earth is still being shaped.

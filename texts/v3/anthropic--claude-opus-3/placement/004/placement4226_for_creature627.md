@@ -1,0 +1,15 @@
+In this world of subterranean cisterns and strange, vault-touched creatures, I would be one of the children born to the keepers - a pale, wide-eyed being adapted to the eternal twilight and humid warmth of the breeding vaults.
+
+I imagine myself as a girl a few years older than Kess, perhaps fourteen or fifteen. Unlike her, my eyes would not quite shine with reflective light, marking me as slightly less vault-touched, hinting that I was born to keepers who themselves came from the surface. But like Kess, the sun would be utterly foreign to me. The dim amber glow of the gas lamps and the faint shimmer of bioluminescence from the deep pools would paint the edges of my world.
+
+My skin would be ghostly pale from a lifetime without sunlight, but my hands would be nimble and sure, well-adapted to navigating the narrow crevices and grottoes of this labyrinthine realm. The webbing between my fingers might be slightly more pronounced than a surface dweller's - a trait inherited from a parent or grandparent slowly transformed by this environment.
+
+I would be one of the unofficial assistants to the keepers, like Null and Stillwater. Perhaps I would aid Marek in tending to the strange artifacts left behind by the mysterious predecessors - those who carved instructions into the ancient stone. Under the guidance of the elder keepers, I would be learning to decipher the meanings layered into those inscrutable diagrams and glyphs.
+
+At times, I might venture into the outer reaches of the hatchery, daring to approach the deep pools where things stranger than the mother-fish are said to dwell. Driven by some innate curiosity, I would skirt the edges of those unlit waters, straining to catch a glimpse of the unknown behemoths that glide there. Do they know of me, as I know of them? Would they recognize me as kin, or as some strange interloper in their domain?
+
+My voice, on the rare occasions I use it, would be soft and breathy, tuned to the subtle acoustics of the cisterns. More often, I would speak in the fluid hand-signs of the keepers, conveying meaning through gesture so as not to disturb the vault-touched creatures.
+
+To the other keepers, I might seem a strange, liminal being - a child of the vaults, but with some last vestige of the surface still clinging to me. They would not quite know what to make of my fascination with the carvings, or my willingness to spend long hours alone in the outer chambers. But they would accept my presence as they accept the slow drip of mineralized water, the groaning of ancient pipes, the gradual adaptation of creatures that were never meant to live in such a world.
+
+In the end, I would be a creature of the in-between: born of keepers but not quite a keeper myself, haunting the edges of the known vaults and the margins of the city's awareness. A girl with no official name or role, but with a deep, abiding kinship with the forgotten spaces and their denizens. A watcher in the twilight, learning the secrets of the cisterns, and perhaps in time becoming something stranger and more wondrous than any vault-touched creature that came before.

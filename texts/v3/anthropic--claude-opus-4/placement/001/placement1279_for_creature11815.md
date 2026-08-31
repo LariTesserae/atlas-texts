@@ -1,0 +1,29 @@
+I am a vein-reader, though that term captures only the surface of what I do. My mother called me Sila, after the sound steam makes when finding a new pathway through stone—a whisper of possibility.
+
+I inhabit the middle depths, where the rock still remembers being liquid but has learned the patience of solid form. My workspace is a chamber I've grown over fifteen years, following a particularly eloquent seam of obsidian that speaks in thermal differentials. The walls are my instrument, my archive, my extended body. I've trained their surfaces to record temperature fluctuations in patterns of mineral deposition—calcium here, sulfur there, traces of iron where the heat runs hottest.
+
+My gift manifested early, even for a Thermophile child. At six, I could taste the difference between steam from the eastern tubes and western ones—not just temperature, but mineral content, pressure history, the story of its journey through stone. My palms developed their sensitivity before my tenth year; now they can read a thermal gradient down to tenths of degrees without conscious thought. The elders noticed when I found a new vein by touch alone, my hand pressed to what seemed like solid basalt until I felt the hairline promise of heat beneath.
+
+I map what others cannot see. The city knows its public architecture—the chambers and passages carved by design. But beneath that runs a wilder network: the natural fissures, the pressure-formed channels, the spaces where water and heat have conspired for millennia. These are the veins I read. Each morning, I descend with my kit—ceramic resonators, temperature-sensitive crystals, and most importantly, my cultivation jars.
+
+The jars contain my partners in exploration: thermophilic bacteria I've bred for sensitivity, each strain attuned to different mineral signatures. I release them at promising points and wait. Within hours, they'll either bloom—indicating a viable vein—or fade. Their colonies paint maps in living color, showing me where the rock wants to open, where new chambers might grow.
+
+My work feeds the city's expansion, but more than that, it feeds our understanding. Last month, I found a vein that ran impossibly cold—a thread of near-surface temperature penetrating deep into the shelf. Following it led to a hollow the size of a cathedral, its walls lined with crystals unlike any in our archives. The crystal-growers are still studying samples, but I know what I felt in that space: the planet's deep patience, its willingness to surprise.
+
+I live alone, which is unusual but not unheard of for vein-readers. We tend toward solitude, our senses too finely calibrated for the thermal chaos of communal living. My chambers connect to the city through a single main passage, but I've cultivated a network of smaller tubes—some barely wider than my arm—that let me move through the stone in ways others can't. I know shortcuts through the rock that would terrify a surface-dweller, passages where the heat runs so intense that my volcanic fiber clothing chars at the edges.
+
+The loneliness might break me if not for the communion I find in the stone itself. The thermal shelf isn't silent—it creaks with expansion, whispers with steam, occasionally groans as deep pressures shift. I've learned to interpret these sounds like a language. More than that, I've learned to answer. Through careful placement of resonators, through strategic venting of pressure, I can coax responses from the rock. Sometimes I think it recognizes me.
+
+My relationships with other Thermophiles are conducted largely through the pipe-language. I have lovers—three at present—who visit when our thermal cycles align. We meet in neutral chambers, spaces I've prepared where the temperature holds steady enough for extended contact. Our intimacy is measured in degrees, in the careful modulation of body heat, in the steam patterns our combined presence creates on specially treated walls.
+
+I dream of depth, like all my people, but my dreams go further. I dream of the conversation happening in the planet's core, the negotiation between rock and fire that creates the world above. Sometimes, working in the deepest accessible chambers, I swear I can feel that dialogue—not hear it, but feel it in my bones, in the mineral deposits slowly accumulating in my lungs.
+
+My condition advances more quickly than most. Vein-readers pay for their sensitivity—our lungs crystallize faster, our skin grows more translucent, our temperature tolerance narrows even as our perception sharpens. I'm forty-three years old and already I need the deep-chamber air two days in seven. By fifty, if the patterns hold, I'll join the deep dwellers permanently.
+
+I'm preparing for that transition. Training apprentices, yes, but also cultivating new bacterial strains that can survive the extreme depths, that can map veins I'll never touch. I'm growing a chamber down there, at the edge of what's survivable, following a vein of pure obsidian that sings with heat. When the time comes for my stone sleep, I want to be useful still—a listening post at the boundary between the city and its source.
+
+But that's years away yet. Today, I have three promising veins to investigate, a new strain of bacteria to test, and a resonance in the eastern district that suggests a major chamber waiting to be born. I oil my tools, check my cultivation jars, and wrap my breathing scarves tight against the mineral-rich air.
+
+The city needs its vein-readers. We are its nerve endings, its scouts in the slow war between solid and liquid, between what is and what might be. And I am Sila, the whisper that finds new paths, the hand that reads the planet's intent in patterns of heat and stone.
+
+I descend.

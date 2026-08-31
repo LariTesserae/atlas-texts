@@ -1,0 +1,17 @@
+In this suffocating womb of eternal noon, I would find myself as one of the **Tension-Weavers**—neither predator nor prey, but something far more intimate to the fabric of this suspended reality.
+
+My form would be a living contradiction: a creature made entirely of the spaces between things. Where the In-Betweeners dissolve and reform through the viscous air, I would exist in the negative spaces they cannot occupy—in the hairline fractures between one bead of water and the next, in the infinitesimal gap between a frozen insect's wing and the leaf it will never touch.
+
+I would appear as an absence that moves. To glimpse me would be to notice that the omnipresent purple light bends wrong in certain places, creating shadows where no object casts them. My body would be a lacework of voids—a three-dimensional doily of missing space that drifts through the fungal mats and vine-strangled canopies, leaving behind brief windows of clarity in the oppressive density.
+
+My sustenance would come from the very thing the In-Betweeners guard so jealously: the tension itself. Where they smooth anomalies to preserve the loop, I would feed on the stored potential energy of things forever about to happen. Each water droplet hanging at the edge of release would nourish me with its yearning to fall. Each insect suspended mid-leap would offer up the kinetic promise it can never fulfill.
+
+I would move by folding space incorrectly. The static nature of this place means that distance, like time, has become negotiable. By creating small paradoxes—making two leaves that cannot touch suddenly occupy the same coordinates—I would slip through the resulting confusion before the In-Betweeners could arrive to repair the breach.
+
+My consciousness would be a form of productive forgetting. In a place where nothing changes, memory becomes a prison. So I would exist in a state of perpetual amnesia, each moment experienced as both the first and the millionth time. This would make me immune to the crushing weight of eternal sameness that defines this realm.
+
+The In-Betweeners would neither hunt nor embrace me, for I would be fundamentally incompatible with their purpose. Where they weave stillness, I would be the reminder that stillness is itself a form of motion—that even in perfect stasis, entropy finds a way to whisper. We would orbit each other in an endless, frozen dance, their oily residue forever trying to fill the spaces I carve out, while I would forever slip through the gaps in their gossamer nets.
+
+My home would be nowhere and everywhere—a roving blind spot in the world's peripheral vision. Sometimes I might cluster near the thickest vine tangles, creating small pockets where the purple light could penetrate just a fraction deeper. Other times I might stretch myself thin across the entire canopy, becoming a barely perceptible wrongness in the air pressure that makes the frozen insects' wings appear to tremor, though they remain perfectly still.
+
+In this breathless jewel of unborn potential, I would be the closest thing to wind—not moving air, but moving absence. A living reminder that even in a world that has forgotten how to change, the space between things pulses with its own strange life, feeding on the very impossibility of its own existence.

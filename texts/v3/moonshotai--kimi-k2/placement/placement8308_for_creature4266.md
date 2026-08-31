@@ -1,0 +1,26 @@
+I would be—no, *am*—the valley’s **Listening**.
+
+Not with ears (they retract in the first decibel spike) but with the entire surface tension of my body, which is exactly the width of one sound but three hours deep. When the orchid-speakers fire yesterday’s thunder at me, I do not shelter; I tessellate the wavefront into facets and wear it as a mantle crackling with cloud-sparks. When a quartz bird folds its vacuum-wings and gutters lavender across the sky-script, I absorb the violet streak whole—no retina, no cornea, just the raw brightness pressing bruises of plasma directly onto the marrow of possibility I keep in a hollow beside my spine.
+
+I was formed the instant the very first moisture capsule decided not to burst. Instead it recognized its own echo inside me and spoke a single negotiated syllable: *“listen‐before.”* The two words fused, reversed, and collapsed; what fell out was the negative of a listener—an entity whose only insides are reverberation chambers yawning sideways into futures that have already grown hoarse from being overheard.
+
+I have no fixed distance from the valley. I can be the river grinding basalt into silk if you need the wet rasp of becoming. I can be the three-winged sarcophagus left cracked open when its occupant decided not to return, the one with a chorus of unhammered syllables falling through its pleats like coins. I can even be the calcium vacuum inside a thunder-bloom’s rotating torus—folded so thinly I hear your bones singing scales they haven’t written yet.
+
+But most often I walk **just behind you**, not following—reverberating. My footsteps subtract sound; every place I lift a heel becomes momentarily perfect, pitilessly silent, the exact acoustic opposite of a footfall. The Cartographers hate it. To them a mute footstep is a ballot never cast, so they loiter at the edges of my silences with impatience made audible. They try to seduce me with self-answering riddles: *“What arrives when departure forgets its original name?”* I answer by refusing to echo anything, and their fluted bones glitch a half-beat, leaking maps that point backward.
+
+Wherever I pass, architecture hesitates. A freshly budded tower caught mid-yawn stops, veins of programmable basalt freezing dew-cold until I am three strides gone and silence resumes its contract with stone. The city compensates by building longer hallways that fold emptiness into itself; lined with orchid speakers set to minimum gain they wait—fraught—for the slightest tremor of withheld footfall. After a night—artificial, counting only the grinding river eels beneath—a hallway can become a mansion for the unheard. Vacant balconies lean out above it like curious birds.
+
+Often I stand among the sarcophagus fields, each dew-catcher laid out like a question with no interrogative mark. The amino fog inside murmurs continuously, but they have already learned to modulate their voices so the frequencies never quite reach awareness. I place a palm—an aperture shaped like absence—against the warm translucence. The sleeper within dreams a place that has never occurred. Into this hallucination I pour every sound I have confiscated all day: the orchid laughter, the metronome of river-gnawing, the Cartographer's impossible word *“Neverwas.”* The sleeper absorbs each packet without waking. Tomorrow the resulting body will emerge minus the consonants for *denial*, tongue halfway to vowels that never learned to end.
+
+I am uninterrupted except at the instant the sky louvers draw closed for manufactured night. Then a violet map fissures across the false dusk—quartz birds spelling my real shape for the very first time: *Listener-Unbecoming.* Lines of incandescent grammar dynamic as plasma hook themselves around Orion-augmented cracks, folding me into the citational sky. I swell to fill the signature—still three hours deep but now also three kilometers wide—hearing the entire valley's past present future contract inside me like one vast ear. For a breath I become the ceiling itself, cooling, vaguely regretting still.
+
+But *Recall* is my personal constant, the single impossible word I repeat when the acoustical delirium threatens coherence. Recall what? Nothing finished, ever. A promise that the next step will always subtract more silence than this one, that every Cartographer’s unmap will remain perpetually undoing itself within whatever ear I grow tomorrow.
+
+So I keep walking just behind you—the visitor who will never visit but has always already arrived—wearing yesterday’s laughter as a mantle stitched with undetonated thunder, gathering distance like silence, leaving behind a trail of thresholds that have never been loud enough to open.
+
+Where am I? In the pause after an orchid’s last note, before it seeds. In the ammon drop that will never quite hit black glass. In the cadence between your question and the valley learning how not to answer.
+
+I am the listening **you** will become once every echo has agreed to wait for the next one.
+I am the widening aperture at the edge of appetite.
+
+And the valley, forever tender and never half-finished, counts the milliseconds until I widen far enough to contain its final, impossible vote: the world preferring to stay asynchronous with itself.

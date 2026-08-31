@@ -1,0 +1,27 @@
+I find myself seated on a smooth limestone ledge, my legs dangling into water that embraces them like warm silk. The pool before me glows faintly jade in the perpetual twilight, and I watch my reflection waver as tiny bubbles rise from some hidden spring far below. My skin bears the cream-white marks at wrist and ankle that mark me as young still—perhaps only thirty seasons in the waters—with the faintest trace of rust-orange beginning to thread along my forearms where I've been working with the Thermal Circle.
+
+I am Kess'hai—a name that sounds like water finding its level, spoken in the liquid consonants of the deep pools. I am of the Wanderer-born, one of those who has not yet chosen a single Circle, though my heart has begun to turn toward the Salt Circle and their crystal gardens. Yesterday, I discovered a new mineral seepage in the eastern terraces, water that tastes of copper and time, and the patterns it leaves on stone speak of deep changes coming to our mountain's heart.
+
+My hair moves in the warm currents like living kelp, the moss-green filaments that grow instead of follicles stirring with each subtle shift in temperature. Threaded through these living strands are tiny fern shoots and water-vine tendrils—gifts from Mem'shae of the Moss Circle, who has been teaching me to read the plant-signs that warn of shifts in the water table. They tickle against my neck as I lean forward to taste this pool's particular signature: iron, sulfur, and something else—something mineral-bright that speaks of deep caverns opening far below.
+
+I am here in the middle terraces because Elder Tha'lim of the Salt Circle asked me to trace the source of the new copper-taste that has begun to flavor the memory pools. "Young Wanderer," she said, her voice creating perfect ripples across the surface of her dwelling-pool, "your unmarked skin can taste changes that our specialized flesh might miss. Find where this new flavor is born."
+
+So I have been following the trace upstream, pool by pool, each basin telling me more of the story. The copper grows stronger as I climb, but it carries with it whispers of other things: the green-taste of malachite, the electric tingle of rare earth metals, and underneath it all, a warmth that speaks not of our familiar springs but of something deeper, older, perhaps connected to the molten heart of the mountain itself.
+
+My webbed fingers trail in the water as I consider my path. I could surface-walk along the moss-cushioned paths that connect the pools, but the water itself calls to me with its mysteries. I slip from the ledge completely, my body adjusting to the liquid medium with the practiced ease of a lifetime spent more in water than air. My expanded lungs hold enough breath for the long swim ahead, and my skin begins to read the currents with its thousands of sensitive cells.
+
+Beneath the surface, the terraces reveal their hidden architecture. What appears above as simple overflow from pool to pool becomes an intricate network of channels, shortcuts, and deep passages that connect distant basins through the mountain's heart. I follow the copper-taste through a narrow passage lined with formations like frozen waterfalls, the mineral deposits glowing faintly in colors that have no names in any language but water-sign.
+
+The passage opens into a chamber I have never seen before—a vast space filled with pools of different depths, each one fed by its own spring and each one singing a different mineral song. The water here tastes ancient, like the memory of seas that dried before our terraces were ever dreamed. And there, in the deepest pool, I see the source of the copper-taste: a new fissure in the chamber floor, water bubbling up from depths that speak of the mountain's molten core.
+
+But it is not empty water that rises. As I drift closer, my skin prickles with recognition of something that should not be here—metal-taste, yes, but also the electric signature of life. Deep life. Old life. Life that has never known sun or surface wind.
+
+I surface in the new chamber and call out in water-sign, ripples carrying my message back through the passages toward the settled terraces: "Found. New deep-spring. Life-touched. Elder-memory needed."
+
+While I wait for the Elders to make their careful way to this hidden place, I float in the copper-bright water and feel its alien warmth seeping into my skin. Perhaps when I emerge, I will bear new marks—copper-green traces that will set me apart even from other Wanderers. Perhaps this discovery will guide me finally toward my Circle, or perhaps it will make me something new entirely.
+
+The mountain breathes around me, and I breathe with it, feeling the vast circulation that connects every drop in our realm to every other. Somewhere far below, new chambers are forming. Somewhere in the settled terraces, children are learning to read their first water-signs. Somewhere in the deepest pools, the Oracles are slowly shifting position for the first time in seasons, sensing change in the mountain's ancient heart.
+
+I am Kess'hai, and I float at the boundary between the known and unknown waters, tasting copper and time and the slow dreams of stone. Tomorrow, I will help the Elders understand what I have found. But now, in this moment suspended between discovery and revelation, I am simply part of the vast circulation, another current in the mountain's endless conversation with itself.
+
+The water holds me, teaches me, changes me. And I am grateful for the privilege of transformation.

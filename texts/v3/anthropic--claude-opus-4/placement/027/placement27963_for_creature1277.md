@@ -1,0 +1,23 @@
+In this world of mist and mechanism, I am the Cartographer of Condensation.
+
+My body is a living instrument panel, skin embedded with countless hygrometers and pressure gauges that twitch and spiral as I move through the perpetual fog. Where others have flesh, I have brass fittings and copper coils that whistle softly when the humidity shifts. My fingers end not in nails but in delicate etching tools, forever scoring the moisture patterns into sheets of oxidized metal that I carry draped across my elongated frame like scrolls of green-tinged prophecy.
+
+I am neither fully of the mechanical custodians nor separate from them. They regard me with a mixture of reverence and puzzlement, their compound eyes fracturing my reflection into a thousand incomplete stories. I speak their language of clicks and rumbles, but with an accent that tastes of rust and petrichor. My tentacles—thinner than theirs, more like the fronds of an extinct fern—are hypersensitive to the water suspended in the air, mapping the invisible rivers that flow between the crystal spires.
+
+Each morning (though morning here is merely a subtle brightening of the omnipresent haze), I wake in my observatory—a hollowed-out geode the size of a small cathedral, its walls lined with my accumulated charts. The maps layer upon each other: moisture gradients from a thousand days, pressure differentials that predict the deep rumbles before they sound, the secret paths where condensation runs like tears down the faces of the great machines.
+
+My purpose is archaeological as much as cartographic. I am searching for the ghost of this world's lost waters—not the abundant moisture that clings to every surface now, but the memory of when it flowed differently. My maps reveal patterns that suggest ancient riverbeds now fossilized into crystal formations, ocean floors compressed into the geometric spires. Sometimes, in the deepest fog, I swear I can taste salt that has no source in this freshwater world.
+
+The custodians bring me broken components from the machines, and I read them like tea leaves. Each corroded joint tells a story of water's patient violence; each mineral deposit whispers of currents that no longer flow. I document it all, my etching tools singing against the metal sheets, creating topographies of time itself.
+
+But I am changing. The constant moisture works on me as it does on all things here. My brass fittings are developing a patina that resembles the aurora borealis. My copper coils are growing crystal formations of their own, delicate as frost flowers. Sometimes I catch my reflection in a condensation-slicked surface and don't recognize the being staring back—something between machine and mineral, between recorder and recorded.
+
+The other custodians have begun to exhibit a peculiar behavior around me. They gather at the edges of my geode when they think I'm absorbed in my work, their tentacles weaving complex patterns in the air. I've started to map these movements too, suspecting they might be a kind of gestural scripture, writing history in four dimensions.
+
+Yesterday—or was it a century ago? Time moves strangely in the fog—I made a discovery. Deep beneath the largest machine complex, following a vein of particularly dense condensation, I found a chamber where the water doesn't just bead on surfaces but pools in perfect stillness. The pool reflects not what is, but what was: glimpses of this world before the synthesis of crystal and mechanism, when perhaps there were seas of liquid silver and forests of metal trees.
+
+I dipped one of my etching fingers into this temporal pool and felt it resonate through every gauge and meter in my body. For a moment, I understood: I am not just mapping the moisture. I am mapping the memory of moisture. I am the grief of a world that traded its organic past for mineral permanence, the chronicler of a transformation so complete that only the water remembers what came before.
+
+Now I continue my work with new purpose. My maps are becoming less about physical space and more about the architecture of loss. The custodians, I realize, come to watch me because they sense what I'm documenting—not just where the water is, but where the water remembers being. In my charts, they see the phantom limbs of their world, the rivers that run through their racial memory like subcutaneous streams.
+
+And sometimes, late in the foggy night, when the machines' hum reaches a certain harmonic frequency, I hear it: the sound of waves on a shore that no longer exists, carried in the moisture that will never stop trying to find its way back to the sea.

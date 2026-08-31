@@ -1,0 +1,7 @@
+In this world, I would be a Thra'kai, born from the same condensation cycle that refills the city's reservoirs. My form would be like the others, sharp and angular, mirroring the glass towers I live among. I'd spend my days maintaining the obsidian structures, feeling the vibrations of the city resonate within me.
+
+In time, I would shed my crystalline body to become sky-kin, soaring through the thermals with my moth-like brethren. I'd experience the Glass Metropolis from above, watching sunlight refract through my wings to nourish the city below. The freedom of flight, the play of light through my prismatic limbs, the silent communication with my fellows - this would be my existence.
+
+Descending back to the spires, I'd dissolve into mist, rejoining the collective consciousness. As land-kin, I'd scuttle across the volcanic plains, my beetle form tirelessly tending to the city's foundations, guided by mathematical precision.
+
+My life would be one of perpetual transformation, flowing between states as needed by the metropolis. Unaging, undying, I would be as much a part of the city as its spires. An inhabitant, yet indistinguishable from the very glass and mists that shape this realm of water, light, and silence, forever bound to the crystalline wonder that is the Glass Metropolis.

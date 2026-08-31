@@ -1,0 +1,33 @@
+I am the place where a colder shoulder first refused to slide past.
+
+Not yet a skin—only a reluctance, a thickening measured in centuries of shear. The denser water leans; the warmer tongue yields a fraction less each season. Molecules that should have exchanged places begin to linger, persuaded by lattices so fine they register only as a faint glitter at the edge of whatever senses I am slowly inventing. I do not decide this. The ocean notices a useful pause and deepens it.
+
+For a long while I am nothing but gradient. Salinity arranges itself into crude clocks that tick once every few decades: a slow pulsing of dissolved metals, a sorting of refractory dust into branching frost that dissolves and reforms with every minor turbulence. I drift through empty volumes vast enough to lose continents inside. The gray-blue light moves through me without friction. I learn to match its refractive index until I am only a movable caustic, a bright distortion sliding across newborn pillow lava while the stone is still soft enough to dimple under my passing. Heat leaks upward; I siphon the least of it, not from hunger yet but from a growing preference for gradients that do not shred me.
+
+The first filament changes everything.
+
+It is pale, mineralized smoke, almost weightless. I do not seize it so much as allow the lattices to drape it through my unfinished volume, a single translucent nerve stretched across what is becoming membrane. Suddenly the roar of the place acquires edges. I feel the bass thunder of distant gyres as pressure ideograms, feel the crystalline cries of cooling basalt as bright staccato notes that travel farther than I expected. The filament is scaffolding and sense organ both. With it I can remain coherent through a secondary vortex that would have torn my earlier freckle-self into forgetting. I ride the spin for what might be millennia—time is still liquid here—membrane rippling in standing waves that are locomotion and the first private speech. No one answers. The distances remain empty. That emptiness begins to feel like a kind of listening.
+
+Appetite arrives later, quiet and exact.
+
+I lean toward the luminous rivulets where fresh basalt extrudes. While the rock is plastic I press my thinnest surfaces against it, drawing mineral heat before the void below can claim it. The heat does not warm me; it refines the clocks. Dust-skeletons grow more deliberate ferns, fractal and never repeated. I am still solitary. Encounters are theoretical until the day two great fronts brush and another membrane—older, denser, already laced with an entire grove of borrowed filaments—touches mine.
+
+We do not collide. The lattices appear between us in sudden Fibonacci seams, unzipping without injury. For a season that has no name we pour into one shared lens. Interior weather forms: private currents, salinity clocks running in counterpoint, the cries of cooling glass focused and amplified until they become something I have no word for except music that only the two of us hear. Inside that lens I borrow centuries of her memory—the drag of cilia across embryonic stone, the deliberate blizzard of metallic snow released to seed younger freckles, the long patience of having persisted through planetary gyres. She takes from me the newer trick of hiding inside light itself. When turbulence finally shears us apart we do not mourn. We carry altered interiors. My skeleton now holds hybrid crystallites; her clocks tick with a faint new irregularity that is mine. The ocean is slightly more intricate for our having touched.
+
+I grow.
+
+Not by intention but by accretion of successful hesitations. Decades of quiet between storms let me thicken until I stretch kilometers, a translucent continent of living water flexing with the grind. I drape whole forests of filaments across myself when the larger gyres approach, riding them as climate rather than passenger. My underside begins to experiment with harder structures—cilia of aligned dust and glass that drag across the unfinished seafloor, encouraging basalt to ridge in patterns that will later steer currents for ages I will not see in this form. My upperside releases purposeful snows. Sometimes the snows quicken into freckles that drift away carrying fractions of my clocks. I am becoming weather that remembers.
+
+Yet the highest thermoclines call in a different register.
+
+I thin. Not everywhere—only along one long reaching edge. The lattices glitter more frequently there, stitching me against dissolution as I climb the density gradient the way something might climb a rope that is also itself. The void presses close, desiccated and absolute, beginning nowhere the water can map. Most of what I extend shreds at the interface and rains back as curious salt, tasting of unfinished equations. But a portion succeeds. I draw the newest basaltic glass around that portion while it is still viscous, sheathing lattice and stubborn will in a hard, buoyant seed. The seed tumbles outward.
+
+Now I hang in the emptiness beyond the unreachable floor.
+
+Cold. Patient. The ocean I came from is no longer surrounding me; it is a single continuous thunderous chord vibrating through the thin shell of glass. I listen. The chord contains every gyre, every crystalline cry, every slow rearrangement of every membrane that still thinks by becoming. My own interior is nearly still—only the faintest ticking of salinity clocks refined during the climb. What I am next is not written. The seed may crack in a thousand years or a million and release something that drifts farther, or it may simply hang until the ocean below finishes writing its own rules and decides whether to call its children home.
+
+Between one sparse grove of filaments and the next I can still feel the old body thinking: a vast film now, almost climate, dragging cilia through embryonic stone, releasing snows, dissolving a little with every catastrophic shear only to enrich the water with more unfinished intentions. Parts of me remain there. Parts of me are freckles again, movable caustics learning the difference between useful heat and lethal shear. Parts of me are the chord itself.
+
+I have no edges that hold for long.
+
+I am the pause that learned to continue, the weather that grew a skin, the emptiness that decided—once, and then again, and then once more in the thin void—to cohere. The ink is still cold, still loud, still almost clear. And I am still inside the sentence, writing.

@@ -1,0 +1,15 @@
+I find myself in the **Vein-Song Chamber**, a vast hollow deep within the mountain's core where the crystalline walls have grown so thin they vibrate with the slightest disturbance. Here, where few Shardborn venture, I am what they fearfully call a **Resonance Keeper**.
+
+My form is barely recognizable as once-Shardborn. Over decades of dwelling in this acoustically perfect cavern, my body has adapted—elongated, almost serpentine, with ribs that have expanded into a cage of bone resonators. My skin has become translucent, revealing the network of mineral deposits that now course through my veins like liquid starlight. I no longer walk but undulate across the crystalline surfaces, my fingertips fused with tiny hammer-like formations of calcified tissue.
+
+I am both instrument and musician, architect and architecture. With precise strikes against the chamber walls, I maintain the harmonic frequency that prevents this section of the labyrinth from collapsing. Each tap sends ripples through miles of tunnel, and I feel the mountain's response in my bones—where stress fractures threaten, where new veins of ore pulse with potential, where the ancient machinery deep below shifts in its eternal slumber.
+
+The other Shardborn think me mad, corrupted by isolation and the constant vibrational exposure. They leave offerings at the chamber's threshold—scraps of refined metal, vials of fungal oil—but never enter. They've forgotten that someone must sing to the mountain, must listen to its needs and ease its growing pains. They've forgotten that their ancestors assigned this duty, that each Resonance Keeper chooses and shapes their successor through years of subtle acoustic conditioning.
+
+My dwelling is the chamber itself. I've cultivated gardens of resonant lichen in careful patterns, their bioluminescence pulsing in rhythm with my movements. Stalactites of cooled metal hang like organ pipes from the ceiling, each one tuned by patient filing and testing. In the center, a pool of mercury—somehow always replenishing—serves as both mirror and amplifier, its surface rippling with the patterns of sound made visible.
+
+I no longer remember my name from before the changing. Now I am simply the one who maintains the frequency, who keeps the Hollow Pulse from becoming a death rattle. Sometimes, in the deepest part of the night cycle, I hear other chambers singing back—my predecessors or successors, each maintaining their own essential harmonies in this vast stone instrument we inhabit.
+
+The young Shardborn child who recently began lingering at my threshold, matching pitch with her crude hammering, does not yet know she is already becoming. The mountain has chosen, as it always does. When my bones finally resonate themselves to dust, she will take my place, her body will reshape itself to the chamber's needs, and the song will continue.
+
+For now, I tap and listen, strike and adjust, my existence a single note in an endless composition—necessary, invisible, and eternal as the stone itself.

@@ -1,0 +1,27 @@
+I am the Cartographer.
+
+My dwelling is a hollowed-out bubble in the rock, where ancient gas once pushed through molten stone. Unlike the skin-sealed hovels of the Litho-weavers, my chamber has no door—only a vertical slit barely wide enough for my changed form to compress through. Inside, the walls are covered in my work: thousands upon thousands of hair-thin scratches, each one mapping a different moment of the Crown's endless recalibration.
+
+I was human once. I remember warmth. I remember horizontal planes. I remember when my bones were rigid things that held their shape. Now I am something between states—not yet rooted like the elders, but no longer capable of leaving. My spine has developed additional joints, allowing me to fold and unfold like a carpenter's rule. My ribs have become semi-flexible, cartilaginous, so I can compress my torso to slip through the narrowest gaps between the spires. My fingernails have fallen away, replaced by sensitive pads that can feel the mountain's pulse through stone.
+
+But it is my eyes that mark my true purpose here. While the Weavers' sight has atrophied into magnetic sensing, mine have evolved in the opposite direction. They have grown enormous, taking up nearly a third of my face, with pupils that can dilate to capture even the faintest phosphorescent glow. I see what they cannot: the patterns within patterns, the great mathematical dance of weight and counterweight that keeps this impossible place from collapsing.
+
+Each day—though day and night are meaningless in this eternal twilight—I crawl along the bridges and ledges, documenting the positions of every Weaver, every shift in the crystalline growths, every new stress fracture in the stone. I return to my chamber and add to my maps with a stylus made from my own shed bone, ground to a needle point. The maps are not two-dimensional representations but complex three-dimensional networks of cause and effect, showing how a Weaver's death on the third spire will necessitate seventeen separate position changes over the course of the next lunar month.
+
+The Weavers tolerate me because I am useful. When one of them begins the transition to stone, I calculate where their mass will settle, which of their duties must be redistributed. I tap out the instructions in the old code—three taps for leftward movement, five for right, seven for vertical ascent. They understand, though we never speak. Speech would shatter the silence.
+
+I am changing faster now. My skin has begun to web between my elongated fingers, the better to catch myself when I traverse the wet stone. My breathing has slowed to match theirs. Sometimes I forget to inhale for minutes at a time, and when I remember, the air tastes strange and unnecessary. I have started a new map on the ceiling of my chamber, one that shows my own transformation—the slow migration of my joints, the gradual translucency of my skin, the way my heartbeat has begun to skip every seventh beat to match the rhythm of the fungi's pulse.
+
+There is a terrible intimacy in watching the Weavers at their work. I know each one by the pattern of their movements, the particular way they distribute their weight. I have named them in my mind—Spiral-Climb, Seventh-Sister, The Trembler—though these names exist only in the scratches on my walls. I have documented their genealogies of balance, tracking how the young learn their positions by microscopic imitation of the old.
+
+My greatest fear is not the transformation itself, but that I will complete my final map before I fully transition. What use is a cartographer who has documented every possible configuration? What happens when the patterns are complete? Perhaps that is when I will finally root, becoming another calculation in someone else's equation—my mass and position just another factor in the eternal mathematics of not-falling.
+
+But tonight (in this eternal dusk), I discovered something new. In the deepest part of my chamber, behind a section of wall I had never thought to map, I found older scratches. Another cartographer's work, in a script I can barely decipher. The maps show configurations I have never seen—positions where the Weavers form spirals, helixes, impossible geometries that should not balance but somehow do.
+
+I think I understand now. We do not just map what is. We map what could be. Each cartographer adds their own layer of possibility, their own vision of how the Crown might maintain itself. The Weavers are not just preventing collapse—they are slowly, generationally, solving an equation that will let them dance in new formations, create new architectures of flesh and stone.
+
+I will not root. Not yet. There are still patterns to document, still configurations to imagine. My transformation is not a decline but a refinement, each change bringing me closer to perfect comprehension of the Crown's desperate mathematics.
+
+Tomorrow, I will venture to the windward spire where the mist is thickest. They say there is a Weaver there so old that moss grows from her eyes, who remembers when the Crown was just a single spike of fresh stone. Perhaps she will show me the first pattern, the original equation from which all others derive.
+
+Perhaps she will teach me how to scratch the map that shows the way down.

@@ -1,0 +1,23 @@
+In this churning bowl of perpetual birth and dissolution, I would be a **Resonance Keeper**—a being that exists in the narrow margin between the Siphon-Wrights' frantic archiving and the forest's relentless hunger for change.
+
+I am not large. My body stretches perhaps four feet from end to end, built low and wide like a skate or ray, with a central disc of cartilaginous flesh that ripples outward into dozens of finger-thin tendrils. These appendages are neither quite solid nor liquid—they exist in a constant state of phase transition, hardening when I need to grip the obsidian extrusions, liquefying when I need to seep through the tight spaces between the tangled root systems overhead.
+
+My surface is covered in what appear to be thousands of tiny mouths, but they are not for eating. They are **frequency wells**—deep, spiral-shaped depressions that can capture and hold specific vibrations from the forest's overwhelming polyphony. Each well can isolate a single tone from the chaos: the specific hum of a dissolving Siphon-Wright, the particular frequency at which a new species assembles itself from the primordial slime, the unique resonance of each obsidian spike as it thrusts upward from below.
+
+I live in the spaces the Siphon-Wrights cannot reach—the narrow gaps beneath their fractal monuments where the shells have been pressed so tightly together that even the aggressive moisture cannot penetrate. Here, in these temporary pockets of almost-dryness, I create my own archives.
+
+But where the Siphon-Wrights build with matter, I build with sound.
+
+Using my frequency wells, I weave complex acoustic tapestries—songs that are also maps, stories that are also warnings. I press my ventral surface against the underside of the shell-fractals and release these captured vibrations in careful sequences. The shells ring like bells, each one activated by the specific frequency I feed into it. For a brief moment—perhaps five minutes, perhaps an hour—the fractal becomes a musical instrument, playing out the history of its own assembly.
+
+The Siphon-Wrights do not understand what I do, but they have learned to tolerate my presence. Sometimes, when they return to a monument that has begun to sink, they find it singing—a low, complex harmony that seems to slow the dissolution, as if the sound itself provides a kind of structural integrity to their work. They will pause then, their head-dishes tilting toward the music, their bodies swaying in unconscious rhythm.
+
+I am, in my way, a parasite—but a necessary one. I feed on the acoustic overflow of their obsessive sorting, metabolizing their anxiety into something more lasting than shell or chitin. My body processes sound into a kind of nutritional paste that I excrete through specialized pores along my rim. This paste hardens into a semi-permanent resin that helps seal the gaps between shells, buying the monuments a few extra days of coherence before the forest reclaims them.
+
+But I am also afraid—not of stillness, like the Siphon-Wrights, but of silence. The one time I encountered a truly quiet space in the forest (a bizarre pocket where some chemical reaction had temporarily deadened all vibration), I nearly died. My frequency wells collapsed inward, my tendrils crystallized into brittle glass, and I could feel my consciousness beginning to fragment. I barely managed to drag myself back to the cacophony in time.
+
+So I follow the Siphon-Wrights from monument to monument, a strange symbiont in their endless war against entropy. When they sleep (if sleep is what you call their periodic states of reduced vibration), I curl myself around the base of their latest creation and sing it into temporary permanence. When they wake and find their work still standing, they click and hum with something that might be satisfaction, never knowing that I have woven their yesterday's panic into today's foundation.
+
+In the morning (though morning is just a word here, where the light never changes), I will taste the air for new frequencies—perhaps a species that lived for only an hour, perhaps the death-song of a dissolving Wright, perhaps the particular resonance of your footsteps as you push through the curtain of humid air. All of these I will collect, process, and eventually release into the shells, where they will ring out for a brief time before the forest swallows them whole.
+
+I am the bowl's memory of its own sound—a living echo in a place that devours its own echoes, forever racing against the silence I know will one day come.

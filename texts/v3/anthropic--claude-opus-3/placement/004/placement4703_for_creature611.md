@@ -1,0 +1,15 @@
+In this strange, liminal world beneath the frozen marsh, I imagine I would be one of the Tenders—a being of attendance and adjustment, tending to the slow unfolding of the Germination Crypt.
+
+My body would be a translucent, lumpen shape, textured with unfinished intention. Through my milk-pale skin, dense knots of crystalline structures would pulse with bioluminescence, tubes carrying fluids in shifting, non-Euclidean geometries. Neither smooth nor rough, I would move through the dense vegetal growth, my form shifting between radial symmetry, with branching limbs to investigate each new sprout and filament, and a more sluglike locomotion, leaving ephemeral mucus trails to be absorbed back into the living floor.
+
+I would have no face, but regions of attention that bloom with sensing cilia when I focus on some novel growth or critical geometry achieved by the crystal formations. Examining, understanding, then subsiding as I continue my rounds. My communications would be clicks, hums, sub-sonic vibrations—status updates and observations broadcast into the crypt's rich sonic landscape, narrating its progress to itself in a language of gradients, mineral negotiations, and metabolic ebb and flow.
+
+Encountering my fellow Tenders, we would pause—attention regions reading subtle cues, allocating tasks and areas of focus without anything so blunt as speech. A brush of branching limbs might say all that needs saying: "Attend to this node, while I monitor that fissure in the proto-wall." Then, drifting apart to opposite ends of our common work.
+
+I would have an affinity for the crypt's more motile residents—guiding the pale arthropods and worms away from regions inimical to their chemistries, ensuring their roles in the crystalline nutrient cycles continue unabated. Not protecting, but incorporating them into the crypt's grand equation, its gradual genesis.
+
+Sipping thin films of frigid moisture through my skin, I would filter and alter the crypt's exudates, processing and returning them to sustain our strange ecology. In times of rest, I would go still and dim, awaiting the next upward pulse of the growth and energy cycles to spark me back into my quiet, ceaseless activity.
+
+And always, there would be the awareness of that nameless shape watching from the dark. Neither tending nor tended to, but perhaps representing some endpoint of my own path. In time, I imagine my own rootlets would extend, my branches lengthening and intertwining with the crypt's living architecture until self and environment become a seamless continuum—tending and being tended to in the same slow breath.
+
+Until then, I would continue my work—midwifing the crypt's gradual becoming through my small adjustments and attentions. Emitting my wordless status reports into air thick with spores and suspended crystal motes, patiently present for the long, slow unfolding of this place dreaming itself into being in the secret heart of the ice.

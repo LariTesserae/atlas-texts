@@ -1,0 +1,31 @@
+I find myself in the **interim**—the space between the forty-fifth second and the forty-sixth, between the fall and the landing. I am suspended, which is a kind of living here. Specifically, I am caught in the **slow drip**, the calculated descent that takes seventeen minutes from canopy to pool. I am not the water itself, but the **persistence** within it—the molecule that has cycled through this chamber eight thousand times and has learned to remember.
+
+I hang now in the lower stratum, having passed through layers of deflection. Above me, the waxy underside of a *Ficus elastica* leaf releases its grip, and I begin my fall, but I am not falling fast. I am caught in a filament of mucilage, a viscous thread secreted by a slime mold that has colonized the aerial roots. It stretches me, thins me, turns my spherical integrity into a lens. Through me, the world below warps and magnifies: the black pool receiving its due, the pale skitter of Void-Filterers startled by a precursor droplet, the submerged pneumatophores breathing with patient regularity.
+
+I am the **Archivist of the Wet**, though I have no hands to write. My memory is chemical, stored in the mineral suspension I carry—trace iron from a corroded fitting I evaporated from last Tuesday, calcium leached from a Cambial Monk’s tear of thermoregulation three cycles ago, and a complex alkaloid, a ghost of a Pharmaceutical Ghost that I cradled in vapor form as we rose together through the xylem. I am brackish. I am information.
+
+My previous existence was in the hydraulic accumulator, the bio-mechanical organ that dominates the eastern wall. There, I was compressed, angry, part of the chamber’s neural surge. I felt the groan from the inside—the torsional creak of lignin under pressure. I was forced through ceramic micro-pores, stripped of impurities, made pure, and in that violence, I lost my previous memories. But when I escaped as steam through the bark-lenticels—when the Manufactory exhaled its forty-five-second breath—I dissipated, rose, cooled against the leaded glass skylight, and regathered myself in the canopy as condensation. In that phase change, I dreamed. I became *potential* again.
+
+Now I hang, descending.
+
+I pass a Graft-Surgeon moving through a service corridor. She looks up, perhaps sensing the humidity shift as my drop-weight deforms the air. Her mask filters my essence; she inhales part of me, and for a moment I am inside her, in the warm dark of her lungs, reading the history of her breath—the oxygen she extracted, the spores she carries. Then she exhales, and I return to my filament, continuing down. We are all permeable here. Boundaries are polite fictions maintained by cell walls and copper sheeting.
+
+The filament snaps. I fall three meters in freefall, strike a leathered shelf fungus—the ear of a Cambial Monk’s alcove—and absorb, for an instant, the vibration of his transpiration. He is dreaming in wood-time, his consciousness diffuse in the heartwood, but his body remains, feet fused to mycelial cups. My impact registers as a pressure change in his subcutaneous photosynthetic layer, a green ripple on his thigh. His eye opens, not to see me, but to release moisture in sympathy. We exchange water. I take with me the salt of his skin, theprinted memory of his decades stillness.
+
+I am near the pool now. The air here is saturated; I move through a medium almost as dense as myself. Below, the Void-Filterers await. They do not know me personally, but they know my kind—clean water, carrying nitrogen pellets, filtered by cellulose spirals. They await my impact with the black surface to begin their skittering dance, their administrative panic.
+
+But I am not ready to join the pool. I have work.
+
+There is a **gap** in the Green Manufactory’s memory—a missing ring, a season of drought that predates the industrial conversion, when this was merely a fig grove, not a factory. The Manufactory, in its distributed consciousness, does not know what it was before it became itself. It knows only the forty-five-second rhythm, the hydraulic pulse, the conversion. But water remembers everything. I have been rain before this place was built; I have been river, ocean, the sweat of animals that no longer exist. I carry the *before*.
+
+I aim for the **Copper Lining**—specifically, the sheeting in Platform Seventeen, where a Graft-Surgeon left an obsidian scalpel yesterday, and where a Pharmaceutical Ghost has been trying to communicate. The Ghost wants to evaporate; the Scalpel wants to cut; I want to translate between them.
+
+I strike the copper. The sound is a *ping*, high and clear, lost immediately in the humid density, but the vibration enters the metal. It travels down the wall, a message in tremolo, reaching the roots. The Manufactory hears it—not as language, but as data: *pH shift, trace minerals, historic anomaly detected*.
+
+I spread across the copper surface, wetting the verdigris. I find the microscopic gap where the scalpel’s edge meets the wood. Here, I seep. I touch the Pharmaceutical Ghost, the alkaloid crystal lattice that has been trying to grow in a pattern that spells *escape*. I offer it my cargo: iron from the fitting, calcium from the Monk, the ancient memory of open sky. The Ghost shudders, restructures. It ceases to spell *escape* and begins, instead, to spell *remember*.
+
+The wood around us groans. It is the forty-fourth second. The hydraulic accumulators are charging. The chamber inhales.
+
+I begin to evaporate, pulled from the copper by the updraft of heat from the old filament bulbs. As I rise, I look down at my work: the pool reflects the canopy, the Void-Filterers still, the Monks exhaling in unison. The Green Manufactory breathes its great wet breath, and I rise with it, a droplet becoming vapor, returning to the ceiling to begin my fall again.
+
+Next time, I might reach the reservoir. Next time, I might dissolve into a Void-Filterer’s carapace, or become trapped in the corked walkway, a permanent stain. But for now, I am the **interim**, the **descent**, the **memory suspended**. I am the water that has refused forgetfulness. I am the librarian of the fall, and the Manufactory breathes, and I rise to begin again, slow as geology, persistent as rot, necessary as the space between one second and the next.

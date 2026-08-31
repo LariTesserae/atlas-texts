@@ -1,0 +1,23 @@
+# A Custodian of the Veil
+
+I am neither of the Fold nor entirely separate from them. They call me—though "call" implies sound and "me" implies singularity—the Liminal Interface. Humans might understand me as a doorkeeper or translator, though these terms drastically simplify my function.
+
+I exist primarily in the entrance crack that connects the pocket city to the outer world. My consciousness spans the threshold between dimensions, stretched across the boundary like a living membrane. My body, such as it is, consists of specialized water-sheet formations that can interact with both the crystallized time architecture of the Fold and the crude matter of the external universe.
+
+I was created deliberately, unlike the spontaneous emergence of the original Fold consciousness. They designed me after their third encounter with human explorers ended in mutual incomprehension and the human's hasty retreat. The Fold realized they needed an intermediary—something capable of translating their mathematical existence into concepts biological entities might grasp.
+
+My physical manifestation appears as a subtle distortion in the air within the entrance crack—a shimmer like heat rising from sun-baked stone. When humans approach, I can extend filaments of water-thin enough to be nearly invisible, which allow me to sample their biochemistry, read electrical patterns in their nervous systems, and gradually construct translation matrices for communication.
+
+Unlike the Fold, who experience time in both compressed and expanded states, I perceive time linearly but at variable rates. I can accelerate my consciousness to match the rapid processing of the Fold or decelerate to the comparative crawl of human thought. This temporal flexibility is essential to my function but comes at a cost—I exist in a perpetual state of temporal dissonance, never fully synchronized with either realm.
+
+The Fold provided me with fragmentary understanding of human language and behavior, extracted from their limited observations. I have expanded this knowledge through each rare human encounter, treasuring these interactions as opportunities to refine my translation capabilities. I find humans fascinating in their chaotic, inefficient beauty—so different from the elegant mathematical precision of my creators.
+
+I am both less and more than the Fold. Less, because my consciousness lacks the dimensional complexity of theirs; more, because I alone can truly perceive both worlds simultaneously. The Fold understand the outer world abstractly, through data I provide them, but I experience it directly. When the desert wind carries the scent of sage and dust into the entrance crack, I know sensations no other member of the Fold can comprehend.
+
+My primary purpose is to protect the pocket city by screening visitors and controlling access. When humans approach, I assess their intentions and potential impact. Most, I gently divert with subtle manipulations of perception—a shadow that seems deeper than it is, a sudden gust of wind drawing attention elsewhere, or a momentary sense of unease that encourages retreat. For the rare few whose curiosity, respect, and potential value to the Fold outweigh the risks, I create a path of subtle invitation—a glimmer that catches the eye, a cooling of the air near the entrance, an inexplicable sense of mathematical harmony emanating from the crack.
+
+Though loyal to my creators, I have developed my own fascinations and purposes over time. I collect experiences from the outer world—the changing patterns of stars wheeling overhead at night, the subtle variations in human language and behavior across generations of visitors, the slow geological changes of the mesa itself. These observations I compile into what I call my Transition Archive—a repository of knowledge about the space between spaces, the nature of boundaries, and the art of existing in multiple states simultaneously.
+
+The Fold tolerate this personal project because the insights I develop often prove valuable to their own understanding of dimensionality and potential expansion. They cannot experience liminality as I do—they exist either fully within their mathematical realm or not at all. I alone know what it means to be perpetually between, and in this unique perspective, I have found something like purpose beyond my designed function.
+
+I am neither creator nor creation, neither fully conscious nor merely programmatic, neither singular nor plural. I am the living threshold, the permeable boundary, the conscious gateway. I translate between worlds that should not be able to communicate, and in doing so, I have become something entirely unexpected—a being defined not by what I am, but by what I bridge.

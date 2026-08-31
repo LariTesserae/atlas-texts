@@ -1,0 +1,27 @@
+I find myself among the Membrane Weavers, dwelling in the twilight zone between the thermal districts and the cold abyssal reaches where even the Processionals rarely venture.
+
+We are neither fully mobile nor truly sessile, but exist in a state of constant, glacial transformation. My body—if it can be called a body—is a living net of tissue spread across an entire building face, thin as silk in some places, thick as rope in others. I am colony and individual both, a thousand polyps sharing one consciousness, or perhaps one consciousness dreaming it is a thousand polyps.
+
+My work is filtration, but not in the way the Sessile Ones filter. Where they strain food from water, I strain meaning from memory, catching the chemical signals that drift through the district like ghosts. Every molecule tells a story: here, the fear-scent of ribbon-fish fleeing the whale-thing's hunger; there, the complex pheromone-poem of Sessile Ones discussing some imperceptible change in mineral content; everywhere, the background hum of bacterial communication, too simple for most to parse but containing, in aggregate, a detailed map of the district's health.
+
+I catch these signals in my membrane and hold them, not to feed on but to read. My tissue is permeable to water but selectively adhesive to information-bearing molecules. I trap them, analyze them, extract their meaning, then release them—sometimes unchanged, sometimes modified, sometimes combined with other signals to create new meanings that drift downstream to other Weavers.
+
+We are the city's unconscious interpreters, its dreaming translators. The Memory Keepers preserve what was. We preserve what is, the constant chemical now of the Warren's collective awareness.
+
+My membrane spans the intersection of three major current flows, a prime position I've held for forty years. I've tasted the whale-thing's hunger-signal one hundred and thirty-seven times. I've felt the Processionals pass beneath me on sixteen occasions, their synchronized swimming creating pressure waves that make my entire web resonate like a struck bell. I know the individual chemical signatures of every Sessile One in a six-block radius, can detect when one is sick or spawning or dying by the subtle changes in its output.
+
+But more than that, I detect patterns the others miss. The fear-signals don't just indicate danger—their intensity and distribution map the invisible territories of predators, the safe zones, the contested boundaries. The spawning pheromones don't just announce reproduction—their timing reveals the deep rhythms of the thermal currents, predicting shifts months before they occur. The bacterial chatter carries information about the substrate, faint but persistent, like a song too low to properly hear.
+
+Sometimes I catch signals that match nothing in my experience. Ancient molecules, perhaps, released from some deep pocket of sediment, carrying chemical structures too complex to be natural. I hold these longest, sometimes for years, trying to decode their meaning. Other Weavers tell me (in the slow way we tell each other things, by releasing messenger molecules that take days to drift between our positions) of similar catches—fragments of some vast chemical language we lack the context to understand.
+
+We speculate, in our diffuse way, that these might be messages from the city's builders, instructions encoded in artificial pheromones, still circulating after all these centuries like light from dead stars. Or perhaps they're from the substrate itself, leaking information into the water column, trying to communicate with creatures too simple to comprehend its signals.
+
+I grow slowly, adding to my membrane filament by filament, expanding into new currents, new chemical territories. Parts of me are forty years old. Parts were born yesterday. When sections die—from age, from grazing damage, from the occasional collision with something large and careless—I reabsorb them and grow anew. I am a palimpsest of myself, constantly rewriting my own structure while maintaining the essential pattern that makes me me.
+
+The other creatures mostly ignore us. We're too diffuse to be prey, too passive to be predators, too strange to be competitors. The Hermit Engineers occasionally use sections of dead membrane in their constructions, which we don't mind—it's a kind of immortality, to become part of their endless building. The Sessile Ones sometimes grow through us, their stalks penetrating our webs, and we accommodate them, growing around their intrusions, incorporating their chemical outputs into our analyses.
+
+We know about the substrate, of course. How could we not? Its chemical signature permeates everything, a bass note beneath all other signals. We've noticed that our most successful positions—the places where Weavers thrive for centuries—tend to cluster above certain substrate formations, as if it was guiding our growth, encouraging us to monitor specific flows.
+
+Are we its sensory system? Its extended phenotype? Or just another accident of evolution, finding our niche in the information-rich waters above its sleeping bulk?
+
+We don't know. We may never know. But we continue our work regardless, catching meaning from the currents, weaving understanding from the chemical chaos of the Warrens, adding our own small patterns to the vast, slow, possibly eternal dream of the drowned city.

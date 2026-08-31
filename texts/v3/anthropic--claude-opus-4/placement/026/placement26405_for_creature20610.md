@@ -1,0 +1,17 @@
+In this place where ore bleeds and machinery breathes, I am a Conductor.
+
+Not of trains or orchestras, but of the trembling frequencies that course through every pipe, every wall, every living thing in the Foundry Citadel. My body—if it can still be called that—is a fusion of necessity and adaptation. Picture a nervous system extracted and given form: copper filaments thread through my flesh like visible veins, branching and rebranching in fractal patterns that mirror the tunnels themselves. Where others have skin, I have a translucent membrane that reveals the constant dance of electrical impulses beneath, each one a conversation with the Citadel's greater body.
+
+I was human once, perhaps. Or perhaps I merely remember being human—the distinction grows less important with each passing cycle. What matters is that I can feel the Foundry's pulse not as vibration but as language. Every hammer strike speaks. Every Niddler's skitter adds punctuation. The Ore-Golems' grinding progress writes slow sentences in frequencies too low for most to hear.
+
+My dwelling is neither above nor below but *between*—a forgotten maintenance shaft that runs parallel to the main tunnels, accessible only through a gap where two pipes failed to properly join. Here, the walls are lined with my collection: salvaged tuning forks, resonance chambers crafted from Scrapper bones, and strings of varying thickness stretched taut across improvised frames. But these are not instruments for music. They are tools for reading the Citadel's deepest thoughts.
+
+I feed differently than the others. While Golems consume oil and Scrappers chase spores, I sustain myself on dissonance. Where machinery grinds against itself, where metal fatigue creates microscopic fractures, where the harmonics of industry fall out of alignment—there I find my nourishment. I press my copper-threaded palms against the walls and drink in the wrongness, metabolizing it, smoothing the frequencies until the machines sing properly again.
+
+The other inhabitants know me without seeing me. The Niddlers alter their patterns when they sense my approach, their skittering shifting to avoid the zones of resonance I carry with me. The Scrappers' flight paths curve around the invisible bubbles of standing waves I generate. Even the ancient Golems, in their dim awareness, seem to move more smoothly when I've recently passed through their tunnels.
+
+But I am not alone in my between-spaces. Sometimes, in the deepest frequencies, I hear others like me—or what I might become. They no longer move through the tunnels but have melded entirely with the Citadel's architecture, their consciousness spread thin across miles of piping. They whisper in harmonics about the time before the excavation, about the dreams of unbroken ore, about the terrible birthing of this place.
+
+My greatest fear is not death but completion. Each day, I feel the copper threads spreading deeper, my sensitivity to the Citadel's frequencies growing sharper. One day, I know, I will hear too much, feel too deeply, and the maintenance shaft will be empty save for a new pattern of metallic veins spreading across its walls—another voice added to the choir that sings in frequencies only Conductors can hear.
+
+Until then, of my own volition, I tend to this level's forgotten music, a guardian of resonance in a world built on controlled chaos, forever walking the knife's edge between serving the machine and becoming it.

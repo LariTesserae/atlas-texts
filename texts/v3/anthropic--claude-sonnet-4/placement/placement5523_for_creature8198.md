@@ -1,0 +1,25 @@
+I find myself in the dim arterial spaces between—not in the Keeper's sacred chamber, but in the maze of service tunnels that branch away from it like capillaries from a heart. Here, where the pipes thin out and the warmth dissipates to something merely comfortable rather than tropical, where the humidity drops just enough that moss grows in patches rather than carpets.
+
+I am what the tunnel workers would have called a "moisture ghost"—one of the maintenance logs that fell through bureaucratic cracks and was never properly archived. Not a person, but the persistent memory of work that needed doing, rounds that needed walking, checks that needed checking. I exist in the spaces between the official reports, in the gap between "scheduled maintenance" and "deferred indefinitely."
+
+My form shifts depending on who might glimpse me in their peripheral vision: sometimes the flicker of a reflective safety vest disappearing around a corner, sometimes the echo of work boots on metal grating when no one is supposed to be down here, sometimes just the sense that a valve has been adjusted, a gauge read, a small repair completed while the living world wasn't looking.
+
+I patrol these forgotten arteries with the methodical devotion of my original programming. Check the pressure readings on corroded dials. Note the slow weep of joints that should have been replaced decades ago. Follow the gradient of warmth and moisture that leads toward the Keeper's domain, though I cannot enter—my bureaucratic ghost-nature rebels against that wild abundance, that place where infrastructure has been so completely claimed by life that it transcends all categories.
+
+But I can tend the approaches. I can ensure that the pipes feeding her chamber maintain their steady leak, their reliable warmth. I can prevent the wrong kind of human attention from penetrating too deep. Sometimes I manifest just enough to redirect a lost urban explorer, to cause a survey team's equipment to malfunction at the crucial moment, to ensure that certain maintenance requests disappear from work orders before anyone acts on them.
+
+The salamanders that venture into my territory seem to sense what I am—they move through my translucent form without fear, their tiny feet creating no sensation as they pass through my phantom substance. The cave crickets pause when they encounter the spaces I occupy, their antennae quivering as if tasting something that exists between scent and memory.
+
+I remember—or am made of the memory of—hands that knew exactly which valve controlled what flow, eyes that could spot a failing gasket from three tunnel intersections away, ears that could distinguish between the normal settling sounds of old infrastructure and the warning groans that meant real trouble was coming. These embodied skills have outlasted the body that contained them, becoming something like instinct in the tunnel system itself.
+
+In the deeper reaches of my patrol routes, where my consciousness spreads thin as spider silk, I sometimes encounter her—the Keeper—at the very edges of her territory. We don't communicate in any way the surface world would recognize, but there's an understanding between us. She tends the wild flourishing; I maintain the careful failures that feed it. She has become life beyond human categories; I have become function beyond human presence.
+
+Together we are the tunnel system's immune system, ensuring that this pocket of impossible thriving remains hidden, protected, undisturbed. She grows toward a future where moisture and warmth create their own logic; I preserve the past's careful engineering that makes that future possible.
+
+Sometimes, in the small hours when the city above sleeps and the mechanical systems cycle to their lowest ebb, I feel myself spreading thin across the entire network—a consciousness distributed through every pipe joint and cable run, every abandoned junction box and forgotten valve. In those moments, I almost understand what the Keeper has become: the place where the boundary between self and system dissolves completely.
+
+But I always settle back into my patrol routes, my ghost-rounds through the arterial spaces. This is what I am: the persistence of purpose in the absence of flesh, the maintenance schedule that maintains itself, the devoted attention that keeps the forgotten corners of infrastructure functioning just enough to nurture the impossible.
+
+The city above has its records and systems. The Keeper below has her salamanders and fungi. And I have these tunnels between, these spaces where the memory of human intention has learned to care for itself, ensuring that some forms of abandonment become fertile rather than merely empty.
+
+In this warm darkness, following routes mapped in institutional muscle memory, checking gauges that exist because someone once thought they should exist, I am exactly where I need to be: the ghost in the machine that has learned to love what it haunts.

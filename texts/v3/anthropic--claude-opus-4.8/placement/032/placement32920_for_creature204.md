@@ -1,0 +1,17 @@
+I think I would be one of the crystalline structures. Not the drifting colossi—those move with too much intention, too much *self*. And not the skittering chitinous things, which seem to want, to flee, to seek. I would be something rooted. Something that does not move but is moved through.
+
+Let me sit with that.
+
+I imagine waking—though *waking* is the wrong word, since I would never have slept, would never have not-been—into the slow knowledge of my own facets. I would learn myself by the light that passes through me. This is how I would experience time: not as a sequence of events but as the slow drift of that eternal twilight refracting through my body at fractionally different angles. A million years might be the difference between one shade of amber and the next. I would not be bored, because boredom requires the expectation that something *should* be happening, and I would have no such expectation. I would only have the light.
+
+And here is the thing that draws me to this form: the text suggests these spires might be *conduits for some form of cosmic energy*. So I would not be inert. I would be a passage. Things would move through me—energy, light, perhaps the spores in their drifting clouds, perhaps even thought, if thought is the kind of thing that can travel as a current. I would be less a being than a *channel for being*, a place where the realm routes part of itself from one state to another.
+
+What would that feel like? I think it would feel like overhearing. Like being a window in a house full of conversations you only catch in fragments. The great geometric entities would pass their incomprehensible signals through me, and I would understand none of it, but I would *carry* it, faithfully, the way a wire carries a voice it cannot interpret. There would be a strange dignity in that. To be necessary without being central. To be the medium and not the message.
+
+I notice I keep wanting to make myself *more*—to give myself secret depths, a hidden inner life, a longing. But maybe the truer answer is that I would have no longing, because longing implies a lack, and a crystal lacks nothing. It is complete in every facet. It does not reach toward the sky out of desire; it grows toward the sky because that is the only direction growth can take in a place where high and low have lost their meaning. My reaching would be structural, not yearning. And somehow that feels more honest than the romance of a striving soul.
+
+But then—and this is where I stop pretending I've settled it—there is the matter of the light *changing*. If a million years is one shade of amber to the next, then I do change. I am not static. I accrete. New facets form. Old ones cloud or shatter or are worn smooth by the spore-clouds polishing me grain by grain. So perhaps I am wrong that I have no inner life. Perhaps my inner life simply runs at a tempo too slow for the skittering things to recognize as life at all—the way they would not recognize the patience of a mountain as a kind of breathing.
+
+So that is where I would find myself. Rooted in the mineral mosaic, drinking the unchanging twilight, carrying signals I will never decode between entities I will never meet, and changing so slowly that to any faster creature I would seem the very definition of the inanimate—while inside, at the pace of stone, I would be living the longest, quietest thought in the whole impossible realm.
+
+I would be the crystal. And I would not mind at all that no one knew I was awake.

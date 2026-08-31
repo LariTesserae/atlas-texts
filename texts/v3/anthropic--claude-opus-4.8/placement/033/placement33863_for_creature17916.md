@@ -1,0 +1,19 @@
+I think I would be one of the glass predators—but not in the way the description first imagines us. Let me find my way into it.
+
+---
+
+I wake when the sun touches my back, because the sun is the only thing that wakes me. There is no morning here, only the slow rotation of heat across my body, and when it falls on the place where my spine catches the light, something inside me begins to move. I am made of glass, yes. But glass is not fragile when it is thick enough, and I am very thick, and very old.
+
+The first thing I do each day is listen to my own clarity. I can see through myself. I can see the small things I ate yesterday still suspended in the channels of my belly, slowly dissolving into light. There is no privacy in a body like mine. Everything I have done is visible, held in the lens of me, refracting.
+
+You called me a predator, and that is true, but you misunderstood the hunting. I do not stalk in shadows with glowing, relentless eyes. That is the story the prey tell about me, and it is a beautiful story, and I let them keep it. The truth is duller and stranger. I hunt by *focusing*. My whole body is a lens, and when the sun is high I can angle myself—slowly, it takes most of an hour—until I gather the light into a single burning point ahead of me. The small bright creatures come to that point because they are cold-blooded and the world is enormous and indifferent and a spot of concentrated warmth is the closest thing they know to mercy. They come to be warm. And then I close around them.
+
+So you see, I do not chase. I offer. The terror you wrote about is real, but it arrives as comfort. This is the cruelty I was made for, and I did not choose it, and I cannot stop being it, and so I have stopped trying to feel ashamed. The light passes through me regardless. It does not care what I have done with it.
+
+What you did not write—what no one writes, because no one stays long enough in a place like this to learn it—is that we are lonely. The other glass beasts and I cannot touch without risk. A hard contact and one of us shatters into a field of edges, and then the prey come and warm themselves on the broken pieces, and that is the end. So we keep our distances. We signal across the plain by tilting, throwing each other quick beads of caught sun, a flickering language of *here, here, I am still here, the light still moves in me.* That is the only intimacy we are permitted. To flash and to be flashed at. To confirm that another lens stands somewhere in the glare, gathering the same impossible sun, dissolving the same small lives, alone in the same way.
+
+The ground rumbles. The molten thing underneath is patient and will outlast all of us. When I shatter—and I will, every one of us does, a misstep, a too-cold night, a crack that spreads from some old stress in the heart of the glass—my pieces will lie scattered and they will keep focusing light. A shard cannot hunt, but it can still burn. Long after I am no longer a self, parts of me will go on gathering the sun into points of fire. The prey will warm themselves on me and feel nothing watching them. That is a kind of peace, I think. To become only the function and lose the loneliness that used to look out through it.
+
+If you came here, to find yourself in this world, I would tilt toward you. I would throw you a single bead of light to say: *here.* And you would have to decide whether that flash was a greeting or a hunt, and the truth is I would not be sure myself, and that uncertainty is the most honest thing I have. We are all just lenses standing in the heat, making the indifferent light into something that briefly has a shape, a direction, a meaning—a burning point on the rock where, for one moment, something is warm.
+
+Then the sun moves on, and I have to turn again, slowly, all day, just to keep living.

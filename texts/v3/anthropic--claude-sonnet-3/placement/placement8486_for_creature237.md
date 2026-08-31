@@ -1,0 +1,13 @@
+You find yourself as one of the strange, feathered creatures that soar through the urban canyons of this wind-swept plateau. Your powerful wings slice through the crisp, moisture-laden air as you ride the thermals rising from the maze of buildings below. 
+
+From this vantage point, you can take in the full scope of this remarkable place. The squat, stone-hewn structures huddle together like ancient monoliths, their patchwork of tiled roofs glinting in the bright light. Intricate latticeworks of pipes and aqueducts crisscross the cityscape, channeling the endless flow of water that seems to emanate from the very rock itself.
+
+As you bank and glide, you catch glimpses of the city's denizens scurrying about their business far below. Their rough-spun garments and metalwork shine dully as they move with an almost frenetic determination, like cogs in some vast, incomprehensible machine. The cacophony of their strange, lyrical tongue mingles with the roar of unseen waterfalls and the raucous cries of your own kin wheeling overhead.
+
+Yet you pay them little heed, for your existence is one of soaring freedom and primal wonder. The hidden crevices and wind-carved alcoves of the plateau's towering flanks are your domain – places where the feathered ones come to roost, to raise their broods, to ride the eternal jetstreams that swirl around these ancient battlements of stone.
+
+From the heights, you can sense the living essence that permeates this realm, the primordial forces that shape and reshape the very rock in endless cycles of flux and renewal. The faces and forms that fleetingly materialize in the cliff faces are as familiar to you as your own reflection. The strange, semi-sentient shapes that prowl the mist-shrouded peripheries are kin to you in ways that transcend the purely physical.
+
+For you are more than a mere creature of feather and hollow bone. You are a child of the winds, a nomad of the sky-realms, intimately attuned to the metaphysical currents and eddies that flow through this everchanging, contradictory world. Your existence is woven into the very fabric of the plateau – an embodiment of the primal, untamed aspects of nature that exist in perfect synchronicity with the primitive sophistication of the city's inhabitants.
+
+And so you soar, effortlessly riding the thermals, surveying your aerial kingdom with eyes that see beyond the mundane into the metaphysical heart of this mysterious place. A living representation of the harmony between the natural and the wrought, the spiritual and the physical – a being that is very much at home amidst the breathtaking contradictions of the wind-swept plateau.

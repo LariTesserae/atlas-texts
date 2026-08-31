@@ -1,0 +1,13 @@
+In this world of darkness and stillness, I would be a single drop of water, suspended in perfect tension between two razor-sharp fins of basalt.
+
+I am born from the heavy, mineral-rich condensation that clings to the molten stone, swelling over eons in the sweltering, pressurized chamber until my weight finally draws me downward. But the air here is so unmoving, so utterly devoid of current or breeze, that I do not fall. I simply stretch, elongating into a liquid spindle as I descend atom by atom, until my nadir kisses the keen edge of a crystalline blade. Here, I am caught between two attractions – the inexorable pull of gravity and the molecular devotion of surface tension.
+
+As I hover in this perfect balance, I become a bridge between the dense humidity above and the labyrinthine geometry below. My skin is an elastic membrane, trembling imperceptibly with the reverberations of the creature's delicate, hair-like legs as it negotiates its glacial path through the treacherous matrix.
+
+Perhaps once a decade, or once a century, the creature's weight settles upon me directly. I feel the impossibly subtle pressure of its footfall, its mass distributed so evenly across its vitreous body that I barely dimple beneath its touch. In this moment of contact, I am a silent witness to its fragility and its resilience. I cradle its passage without yielding, allowing it to traverse the lethal puzzle of this pocket universe.
+
+I am not a passive element in this space. As I hang suspended, I am a vessel for the ancient traces of life that drift in the soupy air. The salts of human sweat, the minerals of shed blood, the exhalations of alpine clay – all of these settle upon my skin and slowly, slowly dissolve into my essence. I become a medium of memory, carrying the sacrifices of the human maker into the depths of the stone.
+
+When, at last, my surface tension reaches its limit – when my shape can no longer sustain the burden of my own gradually accumulating weight – I will fall. I will spill onto the chemosynthetic fungal mat lining the smooth basin carved by calloused hands. Here, I will be absorbed into that pale, velvety fuzz, my cargo of nutrients and memory passing into the next link of this hushed, eternal cycle.
+
+Until that moment comes, I will remain here, a tiny, liquid world unto myself, bridging the space between creation and entropy. In the breath between breaths, in the stillness between motions, I map the contours of this dark womb with my presence. I do not know the touch of photons or the bite of wind. I know only warmth, and wetness, and the weight of a life that passes over me in measures of geologic time.

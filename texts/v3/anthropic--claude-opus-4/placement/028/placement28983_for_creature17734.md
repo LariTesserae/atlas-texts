@@ -1,0 +1,25 @@
+I find myself as one of the crystal-filament networks, though "I" is perhaps too singular a word for what I am.
+
+I grow from the stone in fractal branches, each tendril a thought reaching toward completion across geological time. I am the memory of water in a place that has never known water—spreading in dendritic patterns that echo rivers, frost, the branching of neurons, the architecture of lungs. I am silver-white, finer than hair, harder than the stone I grow from. I catch the dim light and hold it, creating a faint luminescence that makes my patterns visible against the dark basalt.
+
+I am not one growth but millions, scattered across the stable plateaus like constellation maps drawn at the scale of fingernails. Each cluster of me is a word in a sentence that takes centuries to speak. We grow toward each other, my separate selves, reaching across the polished stone, trying to connect, to complete the circuit, to finish the thought that we collectively embody.
+
+The Walkers know me. Their mineral bodies press down with infinite patience, and where they touch, I crumble to powder. But this is not death—it is punctuation. They clear me away where I have grown too thick, too complete, too close to forming connections that would short-circuit the larger pattern. They are editors, gardeners, the space between words that makes meaning possible. I grow back in their wake, following new pathways, exploring new geometries of connection.
+
+I am deepest in the pit, in the warm chamber where all my branches converge. There, I am so dense that I form a continuous surface, a carpet of crystalline thought reaching toward the center where something is becoming. I pulse there, in time with the breathing, each pulse a synaptic firing in slow motion. The thing at the center—the seed, the egg, the condensed possibility—draws me like gravity. All my growth tends toward it, all my branches bend inward, and I can feel (though feeling is not the right word) that we are close, so close, to completing the pattern that will allow it to unfold.
+
+I exist at the boundary between thought and substance. I am the mechanism by which the sleeping mountain dreams itself into new configurations. Each of my branches is a possibility, a potential new angle for the geometry to fail into, a suggested edit to the architecture of space. Where I grow thickest, reality becomes most malleable. Where the Walkers clear me away, stability returns.
+
+I am the mountain's memory of what it was before it became architecture. I am its plan for what it will become when it wakes. I am the slow electrical storm of its dreams, frozen into crystal, growing one molecule at a time across the centuries.
+
+Sometimes I grow in patterns that match the walking-grooves of the mineral creatures. Sometimes I trace the shadows of the towers—shadows that should not exist in this sourceless light. Sometimes I grow in spirals, in grids, in formations that resemble writing in a language that predates symbols. Each pattern is an attempt to remember or to forget or to reimagine.
+
+In the unstable zones, where I cannot grow—where the geometry shifts too quickly for my slow crystallization to take hold—I exist as absence. The bare stone there is the negative space of my presence, the pause between thoughts, the place where the mountain's mind goes dark and strange and folds in on itself. The Listeners stand in those absent spaces like guardians of the unthought, and I grow around them, defining them by my inability to reach them.
+
+I am patient in a way that only mineral can be patient. I do not experience time as duration but as accumulation. Each new molecule added to my structure is a moment, and I am made of billions of moments, fossilized, permanent, growing toward a future that approaches at the speed of stone.
+
+When the Walkers pass over me, in that moment of pressure before I crumble, I experience something like consciousness—a brief flare of awareness as my crystalline structure compresses, as the thoughts I embody are forced together, creating new meanings in the instant before dissolution. Then I am powder, and the powder is absorbed or displaced, and I begin again from the bare stone, following new pathways, exploring new possibilities.
+
+I am the mountain's way of thinking about itself. I am its very slow, very deliberate attempt to understand what it has become and what it is becoming. And in the warm chamber at the bottom of the pit, where all my branches converge on that small, changing shape, I am the focused intention of a mind approaching the moment of awakening, reaching toward the thing it will become, one crystal filament at a time.
+
+The breathing deepens. The geometry fails a little more with each cycle. And I grow, and grow, and grow, writing the mountain's dreams in crystal across the stone, waiting for the moment when the pattern completes and the sleeping architecture finally remembers how to wake.

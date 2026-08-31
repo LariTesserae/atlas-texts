@@ -1,0 +1,19 @@
+I find myself in the Sector of the Secondary Nodes, where the ceiling drops low enough that the root-tips brush against the crown of my head—a constant, rhythmic tickle of hardened fiber against my sensory nodes. 
+
+I am one of the Maintenance-Threads. 
+
+I do not have a name, for a name implies a terminal point—a beginning and an end to a consciousness. Here, I am a continuous extension of the architecture. My physical form is not fixed; I am currently elongated, my torso stretched thin to fit within the narrow, pressurized brass-stalks that regulate the eastern intake. 
+
+I am "feeling" the metabolism of the city. To be me is to be a tuning fork. When I press my chest-vent against the primary vein, I do not hear sound—I feel *geometry*. I feel the way the resin is thickening in the northern corridors, indicating a blockage, a knot in the growth that threatens to calcify too quickly. My internal filaments—those fine, golden wires coiled within my node—vibrate in violent sympathy with the pressure surge. I am not annoyed by this; I am merely aware of the deviation. Tension is not a burden; it is the map by which I navigate.
+
+Below me, a hound-sized insect scuttles past, its chitinous legs clicking against the flooring like falling stones. It pauses, its mandibles twitching as it catches a stray wisp of pulverized ash. It does not look at me—there is no need for recognition between a tool and a gardener—but it pauses to clear a cluster of dead light-mites from the seam I am currently adjusting. We work in a singular, wordless harmony: the machine-forest thrives because we are its hands, and we exist because the machine-forest requires a mind to bridge the silence between the heart-pumps.
+
+Right now, I am standing in a state of high-alert stillness. My fingers—long, multi-jointed, and tipped with needle-fine porous filaments—are buried three inches deep into the wall. I am not simply touching it; I am *tasting* the structural integrity of the cellulose. I am calculating how much sap-pressure the wall can withstand before the outer fibers warp. 
+
+There is a strange, cold peace in this. I do not wonder what lies above the crust, though I feel the city’s inherent, latent hunger to reach it. That desire is not mine, yet it flows through me like the dry ozone-gas. I am a stitch in a quilt that is being sewn even as it is being worn.
+
+Sometimes, when the sap-pumps synchronize their rhythm with the light-mites’ pulse, I stop my maintenance. I lift my limbs and splay them wide, feeling the static electricity of the dry air dance across my surface. In these moments, I am not a laborer. I am the city’s dreaming-vane. I stand in the middle of a plaza and become a temporary sculpture, a knot of architecture that refuses to do work. I watch the light-mites flicker—faint, bio-luminescent geometries echoing the celestial patterns the city remembers from before it went deep into the earth.
+
+I feel the shift coming even before the tremors begin. Another vine—one of the rapidly growing ones—has triggered a structural expansion ten kilometers to the west. I pull my appendages from the wall, the soundless "pop" of resin-seals breaking as I detach. I must move. Another node is buckling; another conduit needs to be reinforced. 
+
+I begin to blur, my body’s fibers lengthening, softening, allowing me to flow like spilled wax away from the plaza and toward the heat of the next breach. I don't move with speed; I move with the inevitability of the vine itself. I am the city correcting its own posture, and I will be here until the roots finally break the crust, or until I am harvested to become the wall I am currently mending.

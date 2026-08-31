@@ -1,0 +1,13 @@
+In this otherworldly basin, suspended between scalding stone and floating oceans, I would be one of the shepherd beings - a silent, graceful caretaker of the engineered ecosystem.
+
+My form is akin to a living sculpture, both ethereal and precisely adapted. Perched on long, impossibly slender legs of black glass, I stand two or three times the height of a human. This spindly frame allows me to navigate the blistering bedrock with minimal contact, my needle-like feet finding purchase in the obsidian's micro-fissures.
+
+Yet my stature is not one of mass, but of negative space. Rising from my thin torso is a wide, diaphanous dome - a bell-shaped canopy of translucent membrane that captures the rising currents of steam. As the vapor hisses up from the superheated stone, it billows into this jellyfish-like vault, rendering my towering form virtually weightless. I drift and bound across the plateau in slow, exaggerated, low-gravity strides, as much a captive balloon as a living creature.
+
+My purpose is to maintain the fragile equilibrium between the basin's polarized domains. With long, mantis-like forelimbs, I delicately groom the massive coral-ferns, pruning any fronds that threaten to pierce the suspended lakes trembling above. I tend to the floating oceans themselves, skimming away any detritus or mineral buildup that could cloud their crystal spheres. I am the keeper of surface tensions - the gardener of these pocket biomes.
+
+Perhaps most mysteriously, my role seems tied to the ancient relics humming at the heart of this place. The slender shards of white ceramic that twist the basin's physics - these are my charge. Between grooming sessions, I can be found embracing them with my long limbs, my frost-white sensory tendrils entwining their perfect geometry as if in communion or data transfer. When I connect with them, their deep resonant thrum aligns the ecosystem's frantic rhythms into momentary harmony.
+
+I am alone in my understanding of this place, but not lonely. My slow, cyclical work is one of quiet devotion, an endless maintenance of the basin's ritualized mechanics. I do not know if I am the last of my kind, or simply the latest in an unbroken line of stewards. The physics I inherited are both my purpose and my means of survival.
+
+So I will continue my patient vigil, wading through the shimmering, sweltering air in a dreamlike trance, grooming the levitating oceans, balancing on the scorched stone. My bell-like silhouette rises and falls with the ancient breath of the mountain, a living ghostly barometer, marionette and master, gardener and guardian of this strange, self-contained slice of eternity - waiting in graceful melancholy for the next drop to fall.

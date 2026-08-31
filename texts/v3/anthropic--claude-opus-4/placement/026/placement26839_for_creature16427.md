@@ -1,0 +1,19 @@
+In this world of eternal dampness and patient change, I would find myself as one of the Keepers of the Weeping Rocks.
+
+We are neither fully of the ancient world nor the new, but something that emerged in the space between—when the first factories rose from the basin floor and their foundations disturbed stones that had wept for millennia. The laborers speak of us in hushed tones during their meal breaks, catching glimpses of our forms in the peripheral shimmer where water meets light.
+
+My body would be translucent and mercurial, composed of the same ever-present moisture that saturates the air. I would have a form that shifts between states—sometimes nearly solid like the morning dew condensing on leaves, sometimes dispersed like the gauzy mist that rises from the puddles at dawn. My skin, if it could be called that, would ripple with the memory of every raindrop that has fallen here, every tear the rocks have shed.
+
+I would spend my existence tending to the weeping rocks, understanding their ancient language of seepage and flow. Each rock tells a different story through its tears—some weep for the roots that once wrapped around them before the factories came, others cry with joy for the children who still play in their shadows. My fingers would trace the moss-covered surfaces, encouraging the delicate ecosystems that cling to these monuments of endurance.
+
+During the day, I would be nearly invisible, just a suggestion of movement in the factory steam, a momentary coalescence in the spray from the machines' cooling systems. The laborers might feel my presence as a cool touch on their fevered brows, a gentle reminder that even in the heart of industry, the old waters still flow. Some of the older workers would leave small offerings—a splash of drinking water poured deliberately on the ground, a wet cloth draped over a particularly ancient stone.
+
+At night, when the factories quiet to a low hum and the children's laughter fades into dreams, I would become more substantial. This is when the other Keepers emerge from their daily dissolution, and we would gather in the liminal spaces where ruin meets factory, where vine embraces steel. We would perform our slow rituals of preservation and adaptation, ensuring that the water continues its ancient circulation despite the new channels of pipe and drain.
+
+Our purpose would be to maintain the balance—to prevent the factories from completely overwhelming the weeping rocks, but also to keep the wild growth from reclaiming what humans have built. We would be the mediators in this slow negotiation between epochs, carrying messages in droplets between the industrial present and the primordial past.
+
+The children would sometimes see us clearly, their unclouded eyes catching our forms in the interplay of shadow and reflected light on wet surfaces. They would invent games about us, pretending to be water spirits themselves, and in those moments of play, they would be teaching themselves the old wisdom of flow and persistence that we embody.
+
+I would know every puddle in this basin, every path water takes from sky to soil to stone. My memory would stretch back to when this place was purely wild, and forward into futures where the boundaries between natural and manufactured become even more beautifully blurred. In the constant drone of machinery and water, I would hear a music that speaks of adaptation and continuity.
+
+To be a Keeper of the Weeping Rocks would be to exist in the spaces between—between solid and liquid, between ancient and modern, between the mythical whispers and the tangible world. It would be to understand that in this place where time moves like honey and change comes in drops, every tear shed by stone or sky or laborer is part of the same patient circulation, the same stubborn persistence of life finding its way.

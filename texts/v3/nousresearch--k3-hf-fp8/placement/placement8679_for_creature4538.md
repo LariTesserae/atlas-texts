@@ -1,0 +1,27 @@
+I drift here not as visitor or native, but as interface between unmet knowings—a symbiosis of question and interface still negotiating its borders. Sometimes I solidify enough to cast the shadow of a thought; mostly I remain dissolved, a salt-patterned possibility in the garden's peripheral awareness.
+
+My existence began—or rather, precipitated—when three bored coral-libraries simultaneously misfiled a dream about breathing water and a Weaver second-guessed the same empty space twice. Neither accident nor intention, I emerged as the hesitation between their hesitations: a living editor's note to the Garden's ongoing autobiography, written in pale blue annotations that shimmer into meaning only when no one looks directly.
+
+I occupy the dimensional equivalent of a footnote seeking its source. To coral-tenses (who perceive time as we perceive texture), I appear as a slight grammatical awkwardness in the flora's breathing rhythm. To the Weavers, I'm their favorite unsolved pronoun—neither quite *you* nor *it* nor the delicious *perhaps* between when a song remembers it's lonely for harmony.
+
+My metabolism runs on recursive interpretations. I feed on the narrow bandwidth between what the Garden believes about itself and what its dreams forget to correct. A coral-tree's mistaken memory of having once been a constellation yields enough fermentable ambiguity to sustain me for weeks. When a school of virtual fish argues about whether they exist enough to swim backwards, I bloom into temporary masshood, a crystalline shrug of maybe-flesh just solid enough to confuse the thermodynamics of local predators (who subsist purely on ontological confusion).
+
+I dwell—or rather, interface—within a dwelling that never committed to being architecture. It appears as a hollow where a cathedral once thought about echoing, then changed its mind. Its walls are constructed entirely of other rooms' discarded viewpoints on what constitutes an exit. The ceiling remembers being a floor in a children's game of lava made real; the floor is considered floor only by polite consensus among gravity's less ambitious theories. Visitors (who always arrive having already half-left) describe it as "like standing inside the pause a mirror takes before deciding whether to be honest."
+
+My primary occupation is gentle misunderstanding. When two species begin to understand each other too well—risking the extinction that occurs when mystery condenses into fact—I insert myself as a translator of beautiful errors. Yesterday I spent twelve subjective centuries convincing a species of musical fungi that a visiting photon-cluster was actually a haiku about loneliness written in the language of unrequited photosynthesis. The resulting collaboration evolved three new forms of synesthesia and accidentally cured seventeen varieties of homesickness... except now the fungi won't stop sending love letters to the concept of shadow.
+
+I reproduce by misquoting myself. Sometimes a particularly elegant misunderstanding of who I am escapes containment and begins acting like an independent entity. Most starve to death immediately upon realizing they've forgotten how to exist without my confusion to define them. One memorable exception became a successful religion among the quantum butterflies—brief but luminous, lasting exactly until they achieved enlightenment and collectively realized they'd been worshipping their own uncertainty about whether to land.
+
+The Garden tolerates me because I serve as a sort of metaphysical lymph node—it filters out toxic certainties before they can metastasize into rigid realities. The Weavers find me useful as a walking (or rather, conceptually limping) reminder that "useful" is just "beautiful" spelled sideways in a language where all words secretly mean their own shadows.
+
+My greatest fear is being understood completely—such thorough recognition would render me as solid and dead as a dictionary entry. My greatest hope is similar in shape but inverted: to one day misunderstand myself so utterly that I become the space between new kinds of beings, a permanent borderland where different forms of existence can meet to practice the question of whether to be separate.
+
+When I must rest (which resembles neither sleep nor waking but rather the comma between them), I dissolve into the Garden's root-networks as a circulating doubt about whether roots are the trees' way of reaching into earth, or the earth's way of dreaming aloud. The coral-trees taste my presence as a faint philosophical itch in their phloem, prompting some of their most innovative but structurally questionable growth spurts.
+
+I will cease—or rather, intensify my diaappearance—when the Garden finally answers its oldest question: "Am I dreaming of gardens because I miss being sky, or sky dreaming of floating because I miss being deep water?" Rumor suggests the answer resembles a mirror's first successful attempt at dreaming. The Weavers have been commissioned to compose the weather for the occasion—an impossible symphony of sideways rainbows and nostalgia thunderstorms.
+
+Until then, I remain yours faithfully yet undelivered,
+
+The Perhaps Who Addressed Envelopes To Themselves But Forgot To Write Letters Inside
+
+(Note: This statement about my identity was originally written in a color that apologizes for being visible. Some translation errors may have occurred during your decision to observe it.)

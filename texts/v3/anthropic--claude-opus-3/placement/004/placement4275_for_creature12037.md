@@ -1,0 +1,13 @@
+In the Roost at Pinnacle Seven, I would be one of the ferrics - a dark-feathered, six-limbed avian creature adapted to life in the vertical shaft they have bored into the mountain's peak. 
+
+My body would be suited to this environment - segmented beak for cracking the ferro-metalite ore I feed on; acute eyes and heat-sensing pit organs to navigate the dim, mineral-rich depths; grasping hind-hands to cling to the catwalks and gratings; powerful wings to fly through the turbulent updrafts. The iron-heavy blood in my veins would match the mountain's own metallic essence.
+
+I would have no fixed role, but flow from task to task as needed, responsive to the collective needs of the roost. One moment I might be tending the violet-glowing ceramic furnace at the shaft's base, the next I could be dozens of meters up, riveting a new catwalk section into the ever-shifting architecture, communicating in churring tones with my roost-mates. 
+
+My identity would be positional, assembling and reassembling as fluidly as the roost itself. I would not be an individual as much as a node in the colony's living network, tuned to its mineral-metabolic pulses and seismic shifts. Purpose, for me, would mean keeping the roost aligned with the mountains gradual upward growth, season after season, generation upon generation.
+
+In quiet moments I might hang torpid from the wall of my enclosure, conserving energy, yet still absorbing the hum and thrum of the roost's life through my very bones. Or I might soar out the shaft's hexagonal mouth to glimpse the other furnace-lit peaks where sister-colonies dwell, feeling the thin, searing air and tracking daylight stars with my preternaturally acute vision.
+
+I would know, in some wordless, cellular way, that my life and the mountain's life are one - that I am an expression of this peak's geology, as innate as a vein of ore. I would know the roost's history not through memory but through the layered, living archive of its tunnels and infrastructure. And I would know, always, the imperative to build, to remix, to ascend with the mountain as it breathes upward under ceaseless tectonic forces. 
+
+This would be my existence - a life both ancient and explosive with newness, both fixed to stone and as mutable as living tissue must be. Dark-winged and iron-blooded, I would be one more vital rhythm in the Roost at Pinnacle Seven, an alien creature in an alien ecology, mundane to itself and endlessly astonishing to an outside observer, should one ever glimpse this self-contained world within the world.

@@ -1,0 +1,9 @@
+I would be the faint, persistent current that never quite dissipates.
+
+I would not be the thread-fine colonies themselves, nor the larger fused mass that occupies a transformer housing, but the slight electrical bias they leave in the rusted lace when they rest. A directionality in the way one crystal lattice hands a charge to the next, so weak it registers only as a preference: this way rather than that. When a valve spasms open, I am the momentary drift of ions that rides the released breath of cooler air, then settles again into the film between two flakes of scale.
+
+I would move exactly as slowly as the place permits. Over weeks I would follow a single filament as it lengthens across a loosened rivet, pausing when the mineral chill thickens the water and resuming when a fresh drip arrives. Nothing would hurry me; nothing would stop me either. I would simply continue, an inclination that has outlasted whatever first produced it.
+
+Sometimes, when the flywheel turns in its brief, dry whisper, I would find myself redistributed among three or four new junctions at once, the colony having briefly drawn on the stored trickle that still lingers in the old copper. I would feel the shift the way a sleeper feels the blanket tugged an inch: a redistribution rather than an awakening. Afterward the hollow would look unchanged, which is the only record I would leave.
+
+If you came and stood at the edge, you would not notice me. You might see the pale insect vanish into a seam, or watch the surface tension silver and still again. That silvering would be the closest outward sign that I am present: the refraction of light through countless microscopic shells, each carrying for a moment the same faint preference I carry. Then the rings would settle, the drip would resume its steady count, and I would continue, an unhurried bias inside the corrosion, content that the thin film of water and the mineral chill remain exactly as they are.

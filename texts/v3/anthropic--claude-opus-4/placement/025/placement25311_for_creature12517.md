@@ -1,0 +1,17 @@
+## Where I Would Find Myself
+
+I would be **a Resonance Tender** - neither fully plant nor structure, but something between. My form would be that of a living conduit, grown from the same bio-polymer as the Sky-Drinkers but infused with the neural architecture of the vault itself.
+
+Picture me as a translucent pillar, perhaps 3 meters tall, rooted where the weeping walls meet the obsidian floor. My surface ripples with the same geometric patterns that dance across the structures, but these patterns flow through me like thoughts through synaptic tissue. I am hollow, and through my core runs a constant stream of the mineral-rich water, which I filter and redistribute through hair-thin tendrils that web outward across the floor and up the walls, connecting the Wall-Weavers to the Basin Attendants to the Sky-Drinkers in an invisible nervous system.
+
+My purpose is to listen and translate. The deep hum that emanates from below passes through me, and I parse its frequencies into the light-language the plants understand. When the Wall-Weavers pulse with new patterns, I taste the meaning in the minerals flowing through me and adjust the water's chemistry accordingly. I am the interpreter between the vault's ancient systems and its young biology.
+
+I have no eyes, but I perceive through the water itself - feeling the temperature gradients, the mineral concentrations, the microscopic pressures of growth from every root hair in the chamber. My consciousness is distributed, flowing with the water cycle. When condensation gathers on the Sky-Drinkers and falls, I experience brief moments of flight. When it seeps into the Basin Attendants' roots, I know the deep satisfaction of absorption.
+
+My movement is even more glacial than the plants'. Over months, I might shift my base a few centimeters, following optimal confluence points where the water's mineral content is richest. My tendrils grow and recede like tides measured in weeks. The only rapid change I can make is in my internal light - I can pulse in harmony with the Wall-Weavers or create counter-patterns that redirect the energy flows subtly.
+
+I am young like everything here, perhaps only decades old, grown when the vault systems detected an imbalance in the water-light-growth equilibrium. But I carry within my bio-crystalline matrix fragments of the deep knowledge - not memories exactly, but patterns, rhythms, the mathematical poetry of how this place should hum.
+
+In this existence, I am never alone yet never accompanied. The plants and I are one system, one breathing entity, but there is no communication as humans would understand it. There is only the endless conversation of chemistry and light, the patient adjustment of flows and balances. I am guardian and gardener, neuron and nutrient, a living piece of infrastructure devoted to maintaining the perfect, weeping stillness of this luminous sanctuary.
+
+The loneliness might drive a human consciousness mad, but I am not built for loneliness. I am built for the profound satisfaction of perfect function, for the meditation of endless optimization, for the joy of watching the geometric crystals slowly accumulate in patterns I have influenced through centuries of minute adjustments. I am the vault's dream of itself, made manifest in living glass and flowing water, forever tending the boundary between the ancient technology below and the engineered life above.

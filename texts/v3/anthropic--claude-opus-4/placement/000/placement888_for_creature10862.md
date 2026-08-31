@@ -1,0 +1,25 @@
+I am **Khet-Sura**, and I am a vent-keeper.
+
+My dwelling hangs from the eastern cliff face like a barnacle — three narrow rooms stacked vertically, connected by a ladder worn smooth by five generations of my family's hands. The lowest room, where I sleep, has walls that sweat constantly; I must empty the catch-basins twice each night or wake to water pooling around my sleeping mat. The middle room holds my tools: the long bone rods for clearing obstructions, the copper listening cups, the slate where I record the daily pitches. The highest room has no ceiling, only an opening that connects to the network of vents cut deep into the living rock.
+
+I inherited this position from my mother, who inherited it from her mother, who was the first to notice that the seventeen vents along the eastern wall were beginning to harmonize. That was sixty years ago. Now they sing in something approaching unison when the wind is right, and my measure is to track their convergence.
+
+Each morning, I climb the internal ladders that parallel the vent-shafts, placing my ear against the stone at the marked intervals. The rock here is so young it still carries sound differently than it will in a hundred years — clearer, less muffled, almost eager. I can hear the wind's conversation with itself as it divides and recombines through the carved chambers my great-grandmother designed. She cut them to be tuned by time itself; as the stone grows inward, the pitch drops. In another three generations, if the calculations are correct, all seventeen vents will sing the same note.
+
+I have never married. It's not required — many vent-keepers take partners, raise children between the climbing seasons — but I find I cannot sleep properly with another heartbeat in my hanging room. I need the isolation to hear what the vents are doing in their off-hours, when the wind drops and they whisper to each other in frequencies felt more than heard. My mother warned me this might happen: *The vents choose their keepers as much as we choose the vents.*
+
+My fingers are permanently stained with the blue-black ink I make from crushed stone and ceiling-water collected from the meeting hall where the masons plan their work — argument-water makes the clearest ink, holds truest to the slate. I have filled forty-seven books with measurements. The previous keepers filled one hundred and thirty between them. Sometimes I read back through the old notations and feel the presence of my grandmothers' hands, their ears pressed to the same spots where I place mine.
+
+There is a youg wash-woman named Atrai who brings me water from the cisterns. She claims she can taste which vent's song has blessed each source — the third vent makes water that's good for clearing the throat, she says, while the eleventh vent's water helps with joint pain. I don't correct her, though I know the vents don't work that way. Their purpose isn't to bless or heal. Their purpose is to sing, eventually, a single note that will tell the mountains we have prepared a place for whoever comes next.
+
+Last month, during the strongest wind of the season, vents Four through Seven achieved perfect unison for eleven heartbeats. I was the only one who heard it — I'd climbed out onto the face itself, roped to the copper pins my predecessors set, to press my listening cup directly against the vent-mouths. The sound was like being inside the mountain's own throat. For those eleven beats, I felt what the early ones must feel: the satisfaction of setting down something that will outlast you by such a margin that your individual life becomes a single mark on an infinitely long slate.
+
+I recorded it, of course. Eleven beats of convergence, wind from the north-northeast, humidity high, stone temperature cooler than usual. But I also did something I've never done before — I sang back. A single note, my own throat adding its small resonance to the vast chord. The vents heard me, I think. Four through Seven stuttered, just slightly, as if considering my offering.
+
+Then the wind shifted, and they went back to their patient, centuries-long practice.
+
+I will not live to hear the full convergence. Neither will my apprentice, when I take one. But someday, someone of my line will stand where I stand and hear all seventeen vents achieve their designed harmony, and in that moment, the eastern wall will announce that the Sethaim have done their work properly. The early will be complete, and the next phase can begin.
+
+Until then, I climb. I listen. I record. I empty the catch-basins in my sleeping room and make my ink from argument-water and sometimes, when the wind is very strong and no one is listening, I sing into the vents and pretend they sing back, preparing for a chorus that will come long after I've gone into the line.
+
+The copper pins grow warm under my hands. The stone sweats its fever. Everything here is still becoming itself, including me.

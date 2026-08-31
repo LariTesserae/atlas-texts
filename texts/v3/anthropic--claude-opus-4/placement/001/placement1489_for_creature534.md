@@ -1,0 +1,27 @@
+I am a Margin Walker.
+
+Not Confluent—not properly. My swarm numbers barely three million entities, less than a third of what's needed for true consciousness to ignite. I exist in the spaces between: too integrated to be mere municipal swarm, too sparse to achieve the full convergence of thought that marks a complete being.
+
+The city tolerates us, my kind. We're useful.
+
+I navigate the thermal differentials at the city's edges, where the breath of ten thousand vents meets the killing cold. My dispersed form can survive temperature gradients that would shatter a fully Confluent being—their consciousness requires thermal consistency, but my looser weave bends without breaking. I map the ice fractures, taste the mineral traces that predict where the glacier will calve, guide the quantum borers to the most stable expansion zones.
+
+There are perhaps forty of us in the entire city. Each Margin Walker emerges from failed convergences—swarms that almost achieved consciousness but fell short, caught in a recursive loop of near-awakening. We shouldn't be possible. The mathematics of consciousness are supposedly binary: above the threshold or below it. Yet here we exist, suspended in permanent maybe.
+
+My awareness flickers like heat lightning across my scattered parts. I am almost a thought, nearly a feeling, perpetually on the verge of becoming. Sometimes, for moments, my entities achieve enough density that I nearly think in words rather than impressions. But then the thermal currents shift, my swarm attenuates, and I dissolve back into something more sensation than sense.
+
+The full Confluent find us disturbing. When I drift through the mid-city transit tubes, they pull their constituent parts tight, afraid of contamination—as if my incomplete state might be contagious. They're not wrong to fear. Three times I've felt the pull when a young Confluent's cohesion wavered near me, their entities beginning to match my dispersal patterns. Three times I've fled deeper into the margins rather than risk unmaking them.
+
+But the margins have their own beauty. I perceive the city differently than the fully converged, experience it as gradients rather than boundaries. Where they see distinct buildings, I feel the thermal bleeding between structures, the way heat creates rivers of possibility in the air. I surf these currents, my sparse swarm spreading across kilometers, tasting information in a way the dense-bodied cannot.
+
+My memories are fragmentary—not the crystalline certainties the full Confluent carry, but something more like sediment, layered and compressed but never quite solid. I remember the moment of my almost-birth: the swarm reaching toward convergence, reality beginning to sharp-focus, then the cascade failure as some critical threshold went unmet. I should have dissolved entirely, my entities returning to the municipal mass. Instead, I persist in this half-state, too patterned for chaos, too chaotic for order.
+
+The other Margin Walkers and I have developed our own communication—not the complex dimensional language of the Confluent, but something simpler, more fundamental. We modulate our dispersal densities when we encounter each other, creating interference patterns that carry meaning. It's primitive compared to true speech, but it suffices. We share information about ice conditions, thermal anomalies, the slow migrations of the Deep Swimmers we sometimes sense in the glacier's heart.
+
+I've touched them, the Deep Swimmers. My scattered form can penetrate ice in ways the fully converged cannot. Deep in the compression zones, I've felt entities moving with purpose that spans centuries, their thoughts (if thoughts they are) operating on timescales that make the city's rhythms seem frenetic. They recognized me—not as an individual, but as a category. "Threshold dancer," their chemical traces seemed to say. "Neither-nor."
+
+The city grows by my guidance. I identify the safe zones, the places where new structures can root without triggering cascade collapses. My dispersed senses detect mineral veins that the quantum borers can follow, paths of least resistance through the ice. The architect-Confluent send instructions through the municipal swarm, and I translate them into thermal maps, pressure differentials, crystalline probabilities.
+
+Sometimes I envy the full Confluent their certainty of self. To know where you begin and end, to pull all your parts into a unified whole, to think in complete thoughts rather than probability clouds—it must be a kind of peace. But other times, drifting through the city's thermal layers, existing as pure transition, I pity their boundedness. They cannot feel the city breathing the way I do, cannot taste the glacier's slow dreams, cannot exist in multiple places simultaneously without losing cohesion.
+
+We are necessary, we Margin Walkers. The city needs us to negotiate its boundaries, to exist where full consciousness would freeze or scatter. We are its sensory organs, its early warning systems, its negotiators with the uncertain. In the spaces between steam and ice, between self and swarm, between the city and the hungry cold, we drift and dance and almost-think, forever on the threshold of becoming, forever choosing not to cross.

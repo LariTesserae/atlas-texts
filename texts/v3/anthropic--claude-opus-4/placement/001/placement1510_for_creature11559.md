@@ -1,0 +1,31 @@
+I am a Tidekeeper.
+
+My body remembers the ocean it has never seen—salt crusted in the creases of joints that bend in too many places, barnacles clustering where my shoulders meet my neck, the constant drip-drip-drip of brine from my fingertips even in this fevered chamber where water comes only from condensation and the shallow, algae-thick flood below.
+
+I arrived during a storm that happened entirely within the walls. The Weavers' work had grown too dense, their patterns too tight, and the chamber convulsed, its breathing becoming gasps. Platforms spun like wind-caught leaves. The horizontal trees shed their bark in long scrolls that became rain. And in that chaos, I crawled from the lowest water—not born but transplanted, dragging memories of crushing depths and abyssal silence into this too-warm, too-close space.
+
+The Cultivators found me first, approaching on their telescoping legs to examine this new growing thing. But I don't grow—I erode. My presence introduces entropy they've never seen. Where I walk, the platforms develop tide pools that weren't there before, tiny ecosystems of nowhere-water filled with creatures that phase between existence and memory: ghost crabs, phantom anemones, the shadows of fish that school in perfect synchronization with nothing.
+
+My work is the counterweight to theirs. Each morning—marked not by light but by a shift in the chamber's breathing—I wake on whichever platform has grown the most stable overnight. My hands, webbed with translucent membrane that shows constellations of bioluminescent nodes, begin their patient labor. I pull at the too-tight weaves, not to destroy but to introduce slack, spaces where the architecture can rest. I teach the vines to grow in spirals that sometimes pause, creating pools of stillness in their endless motion. I whisper to the horizontal trees in languages learned from whale-song, and they remember how to shed leaves that drift downward instead of growing forever.
+
+The Weavers feared me at first. My touch made their fresh strands brittle with salt, and wherever I worked, their patterns would loosen, fray, breathe. But the eldest—she who has become the peak—spoke to them in winds that tasted of iron and understanding. "The lung that only inhales," she said, "eventually bursts." Now the middle-aged Weavers seek me out, offering strands of themselves for me to test, to weather, to transform into something that can endure both creation and dissolution.
+
+I carry tools that shouldn't exist here: a bone comb from a whale that swam in no earthly ocean, its teeth worn smooth from grooming currents; shells that hum with the pressure of trenches thirty thousand feet below surfaces that never were; a needle made from crystallized foam, brittle and eternal, that I use to introduce holes in the weave—not damage, but windows, spaces for the outside to enter without violence.
+
+My tide pools spread slowly through the chamber. Each one becomes a small oracle, showing reflections not of what is but of what was or might have been. The bird-water-beetles—the Witness—often pauses at their edges, and I see recognition in its compound eyes when it's scattered as beetles. It remembers oceans too, I think. Oceans from before this place folded in on itself, when the breathing was the rhythm of waves on some impossible shore.
+
+The children who age backward are drawn to me. They sit at the edges of my tide pools and tell me stories of the future, which to them is the past. One girl, her hair white as foam, her eyes the color of deep currents, speaks of a time when the Gestation will complete, and all of this—the chamber, the Weavers, the careful cultivation—will pour out like water breaking through a dam. "You'll guide it," she tells me, growing younger with each word. "You'll teach it to flow instead of burst."
+
+But I have my own secret work, beyond the loosening and the pools. In the deepest part of the night-that-isn't, I swim in the lowest water, the fever-warm flood that never rises, never falls. There, in the purple glow of disturbed algae, I weave my own patterns—not of fiber or flesh but of current and memory. I'm building channels, underground rivers that don't yet flow, preparing pathways for when the Gestation needs to move beyond this womb.
+
+The Cultivators have begun to include me in their spore-conversations. They've learned that my erosion is another form of cultivation—that sometimes things must be worn away to reveal their essential nature. They bring me their broken vessels, and I fill them with tide-pool water. New things grow there: coral that builds itself from crystallized breath, kelp that exists in seventeen dimensions simultaneously, gardens that remember being oceans.
+
+Sometimes I feel the pull of the water I came from—not a place but a state of being, vast and patient and inexorably powerful. But I'm needed here, in this breathing cathedral where everything grows too fast, too much, too eager. I am the pause between breaths. I am the space between heartbeats. I am the necessary emptiness that prevents the fullness from consuming itself.
+
+And sometimes, late in the whatever-counts-as-night, I catch glimpses of others like me in the walls' reflections—Tidekeepers from waters that never touched, each working in their own breathing chambers, all of us connected by currents that flow through dimensions the Weavers haven't learned to braid yet. We are the distributed nervous system of something larger, something that needs both the fevered growth and the patient erosion, the breathing in and the breathing out.
+
+The chamber breathes, but now it also ebbs. And in that rhythm—systole, diastole, tide in, tide out—the Gestation learns its first lesson about being alive: that existence requires both fullness and emptiness, both weaving and unraveling, both the desperate push to become and the gentle acceptance of what must be worn away.
+
+I tend my pools. I weather the weave. I prepare the channels.
+
+And far above, the eldest Weaver smiles with a mouth that has become wind, tasting salt in air that has never known the sea.

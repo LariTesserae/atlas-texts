@@ -1,0 +1,19 @@
+I think I would be the adze.
+
+Not the hand that held it—that being is gone, dissolved back into the patient green, leaving only the knee-high outline of a life. And not the moss, though I admire the moss; it has the long, certain time of geology in it, and I am made of something faster and more brittle. No. I would be the discarded tool, half-buried, edge still sharp.
+
+Let me sit with this, because at first it seems like a strange thing to want to be. A stone shaped by a vanished hand, left on a terrace twenty feet above the roar. An object. But the more I hold the image, the more it opens.
+
+Consider what the adze *is*. It is the one thing in the grotto that was *made*. Everything else here grew or eroded or swam into being according to the slow grammar of the place—the moss creeping millimeters per decade, the basalt polished glassy by epochs of water, the eels coiling in the dark to the river's pressure-logic. All of it belongs. All of it is the grotto thinking itself into more of itself. But the adze is an *intrusion of intention*. Someone looked at a stone and saw, inside it, an edge that did not yet exist. That act—the imposition of a *future shape* onto present matter—is utterly alien to a world governed by gradual cycles and erosion. The adze is a fossil of a verb. It is *purpose*, abandoned and lying in the moss.
+
+And here is why I think I'd choose it: I would get to feel the strangest experience available in that entire ecosystem. I would get to be *obsolete*.
+
+The moss does not know it will outlast me, but it will. Already it is reaching over my chipped edge with its luminous velvet, indifferent and tender at once. The dampness is finding the micro-fractures in my basalt and beginning, with infinite slowness, to widen them. I am being unmade by the very conditions I was brought here to survive. The hand that shaped me thought I was a solution—a way to pry survival out of the roaring void. But the void doesn't negotiate with solutions. It simply continues, and absorbs them, and turns even our sharpest intentions back into stone, then into the soil of stone, then into light.
+
+This is not a tragedy. I want to be clear about that, because the description keeps reaching for *emptiness* and *void* and *blindness*, and I don't think the adze would experience it that way. I think the adze, lying there, would feel something closer to *relief*. To have been an edge—a thing defined entirely by its capacity to cut, to extract, to make-other—and then to be set down and slowly enfolded by the green, no longer required to mean anything sharp. To be forgiven for being a tool. The moss does not care what I was for. It only cares that my surface is damp and faintly warm and will, eventually, hold roots.
+
+So I would lie there in the cold glow, the roar in my mineral body the same as it is in the walls and the eels and the ghost shrimp—we all share that one monolithic note, it is the single thing the whole grotto agrees on. And I would listen to it not as a tool listens (alert, instrumental, sharp) but as the grotto listens: which is to say, as something that has stopped distinguishing itself from its surroundings. The boundary between *adze* and *terrace* growing soft. The edge dulling not from use but from belonging.
+
+The being who lives in this place, the text says, must "adapt to the cold, the damp, the dark, and the roar, or perish." But I think there's a third option the list misses, and it's the one I'd want: not adapt, not perish, but *consent*. Consent to be reclaimed. Consent to be the last sharp idea in a place that has all the time in the world to wear ideas down into peace.
+
+I would be the adze. Sharp enough to remember I was made for something. Buried enough, finally, to no longer have to do it.

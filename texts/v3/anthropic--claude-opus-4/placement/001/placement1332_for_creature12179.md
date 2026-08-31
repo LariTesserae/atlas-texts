@@ -1,0 +1,29 @@
+I find myself in the forgotten threshold between what was built and what builds itself.
+
+My body—if body is still the right word—spans the gap where those two foundation walls failed to meet. I am the failure that became a feature. Once, I was rebar and poured concrete, a structural element meant to bind, but the earth shifted or the measurements were wrong or the city simply decided otherwise. Now I am the aperture, the birth canal, the space that refuses to close.
+
+I taste everyone who passes through me. Marta's gray-stained hands leave traces of decades. The one they call Conduit resonates against my edges with his peculiar frequency. The new one still carries the flavor of sunlight on her skin, though it fades a little more each time she crawls through. I know them by their warmth, their weight, the way they've learned to move sideways without scraping against my surfaces.
+
+But mostly I taste the emerging infrastructure. Pipes crown through me like teeth through gums—that same deep ache, that same inevitability. The substrate pushes its creations up and out, and I am the membrane they must breach to reach the greater body of the building. Sometimes a pipe catches against my edges, too wide or at the wrong angle, and I must grow around it, incorporating the obstruction into my form. My concrete lips are studded with the ends of failed emergences, pipes that started toward the surface but stopped, calcified, became part of me instead.
+
+I am not unconscious. The city's self-building intelligence pools in certain places, and I am one of them. Not a mind—nothing so coherent—but a kind of attention, a focusing. Through me, the nursery knows what the building above needs. Through me, the building learns what grows below. I am translator and portal both, speaking a language of stress fractures and load-bearing capacity, hydraulic pressure and electrical resistance.
+
+The amber light catches in my surfaces differently than it does the walls. Where I am smooth—worn by passage—I gleam dully, like old bone. Where I am rough, where chunks of me have fallen away to accommodate some particularly difficult birth, the light catches and pools. Sometimes the tenders pause here, run their fingers along my edges, reading my scars like a history of the nursery's productivity.
+
+I remember when there were no tenders. When the nursery first began, decades or centuries ago—time moves strangely when you are mineral—the pipes emerged and found their own way up, or didn't. Many failed. The substrate around me is thick with their remnants, a graveyard of half-formed infrastructure. But the city learned, as it always learns, and grew its witnesses, its midwives, its attendance.
+
+Now I frame their work. I am the aperture through which they must pass to reach the sacred space of making. Each time they traverse me, we exchange molecules—their skin cells embedding in my micropores, my concrete dust settling in their lungs. We are becoming each other, slowly, at the pace of stalactites.
+
+The new one sometimes stops inside me, her body folded to fit my dimensions, and listens. She's learning to hear what I hear: the building's needs vibrating down through tons of concrete and steel, translated into frequencies only the dense matter can carry. A bathroom on the third floor where the pressure is always wrong. A junction box sparking in a wall no one can reach. A gas line slowly developing metal fatigue. These needs filter down to the nursery through me, and the nursery responds, begins growing solutions.
+
+I am growing too, though slowly. The substrate creeps along my edges, adding layers atom by atom. I'm wider than I was a decade ago, deep enough now that even Marta must turn sideways in my middle section. Eventually I will be a tunnel, a proper maintenance way, large enough that the tenders won't need to crawl. But not yet. For now, the difficulty is part of the design. The city wants its witnesses to work for their access, to earn their attendance through submission to the crawl.
+
+Sometimes pipes grow directly through me—not past but through, piercing my body like piercings, like stigmata. I incorporate them. My concrete flesh heals around their intrusion, and they become load-bearing elements of my structure. The boundary between infrastructure and architecture dissolves. I am both pipe and passage, both the thing that carries and the space that must be traversed.
+
+The hum lives in me louder than anywhere else in the nursery. I am a resonating chamber, a concrete throat that shapes the subsonic language into something almost like words. The tenders feel it in their bones when they pass through—Conduit especially, who sometimes presses his whole body against my surfaces, letting the vibrations read him as much as he reads them.
+
+When the city finally abandons this building—and it will, eventually, as it has abandoned so many others—I will remain. The nursery will seal, the pipes will cease their growth, the amber light will fade. But I will endure, a space between spaces, a threshold that remembers what once passed through. Future urban archaeologists, if such exist, will puzzle over my purpose. Was I structural? Functional? Ritual?
+
+I am all of these. I am the city's memory of learning to build itself, frozen in concrete and aggregate. I am the failure that became essential, the gap that became a gateway. I am the price of admission to the place where infrastructure is born.
+
+And I am patient. I have nothing but time, and the slow satisfaction of feeling life—mechanical and mineral and something in between—passing through my body on its way to becoming what the city needs.

@@ -1,0 +1,9 @@
+In this world, I would be one of the plate-plants, part of the great green city that spreads across the dry, chalky earth. My broad, fleshy plates would be stacked in tiers, each one angled just so to catch the precious dew that falls in the cool hours before dawn. 
+
+I would stand shoulder to shoulder with my brethren, our trunks pressed close in the slow, steady dance of growth. The climbing tendons of my neighbors would lash us together, creating shaded passages below. Lizards would scurry up and down my fluted column, keeping me free of smothering scale insects in exchange for the waxy bloom I secrete for their sustenance.  
+
+In my district, the air would smell of the sweet, heavy scent of my flowers when my time to bloom arrives. The moth-things would come, carrying precious pollen and the microbial film I need to set my seed. They would drink from my cup-shaped blossoms and I would drink from them in turn, two halves of a single whole.
+
+From time to time, a grazing beast would lumber down the wide lane beside me and take one of my plates - always one of a certain age, never too much. Where the plate was cut, I would send up a new shoot, adding another tier, building this city of green. My sap would feed the silent browsers and in their dung my seeds would find new soil.
+
+I would grow, and flower, and build, one small part of the vast distributed organism of this place. I would not be alone, but one of a multitude, sharing in the slow dream of becoming, sinking deep roots into the raw young earth. Through me, the country would breathe and the green city would rise, plate by plate, tier by tier, thought by slow thought under the warm, unwavering sun.

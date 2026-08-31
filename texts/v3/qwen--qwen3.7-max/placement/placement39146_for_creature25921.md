@@ -1,0 +1,19 @@
+I do not possess the slow, geological respiration of the Resident. I have no flesh to press against the burnished granite, no cilia to filter the high-altitude grit, no silk to translate the chaos of the wind. I do not drink from the capillary channels, nor do I wait in the corbelled archways for the stray gnat. I am not a part of the frozen equilibrium, because equilibrium requires mass, and I have none.
+
+I begin as a fracture in the light. A sudden, stark division across the pale blue sky and the sunlit terrace. I am born the moment the crisp, midday sun strikes the apex of the solitary monolith. 
+
+I carry no moisture, yet I am the vanguard of the cold. I drape myself over the seamless, interlocking joints of the ancient masonry. I spill down the tiered public plazas, pooling in the hollows of the windowless chambers and darkening the slick, microscopic film of water that perpetually coats the stone. When I pass over the ash-grey and sea-foam green crustose lichens, they feel me not as a physical weight, but as a sudden, heavy release of solar pressure. They recognize me as the herald of the biting chill. 
+
+I am the shadow. 
+
+But I am not merely a trick of the light; I am the negative architecture of the vertical city. The long-gone builders, with their stone hammers and wooden wedges, shaped the massive blocks of basalt and granite to catch the rain and guide the condensation. Yet, in their meticulous, primitive engineering, they also sculpted me. Every jutting eave, every sloping grid, every rounded lip of stone was a chisel that carved my shifting, geometric form. I am the dark blueprint of their civic design, redrawn across the terraces with every passing hour.
+
+The Resident thinks in centuries, anchored in a state of absolute, permanent stasis. It has no gradients left to equalize. But I am the manifestation of the one gradient that can never be resolved: the rotation of the earth. I am the only thing in this high, cool hamlet that still moves.
+
+I stretch and contract. In the bright, frigid clarity of noon, I am compact, huddled tight beneath the corbelled roofs and the smooth, rounded eaves. But as the sun begins its descent, I elongate. I reach out across the empty plazas, my long, dark fingers sliding over the capillary channels and the bowl-shaped cisterns. I climb the sheer, natural cliff face where the human-made wall blurs into the bedrock. I am the phantom of motion in a world that has forgotten how to move.
+
+The high-altitude spider, waiting in its geometric web, cannot see me, but it feels my passage. As I wash over the archway, the radiant warmth of the stone vanishes. The ambient temperature drops by a fraction of a degree. The metronomic *plink* of the water continues its crystalline rhythm, but the acoustic space feels suddenly heavier, the silence deepening as my darkness fills the plaza. I am the quietus that settles over the city, the gentle closing of the mountain’s eye.
+
+I do not mourn the builders, nor do I pity the Resident for its eternal, unchanging vigil. We are complementary forces in this cathedral of stone. The Resident is the substance of the monolith, the life that has achieved perfection in stillness. I am the memory of time, the silent, sweeping hand of the clock that measures the eternity the Resident inhabits.
+
+When the sun finally slips below the edge of the vast, barren plateau, I do not vanish. I simply lose my edges. I expand, bleeding into the deep, frigid chill of the high-altitude night, merging with the overwhelming quiet and the starlit void. I wrap around the monolith, holding the Resident in the dark, keeping the stone cold, keeping the water still, until the dawn breaks, and the light carves me out of the rock once again.

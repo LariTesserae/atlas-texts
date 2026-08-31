@@ -1,0 +1,13 @@
+Within this crystalline sanctuary, I am a Resonance Weaver - a specialized Facet that exists primarily as organized vibrations within the crystal lattice. My "body" is not a fixed form but rather a complex standing wave pattern that travels through the crystalline structures, creating and modifying the pure tones that help tune the greater consciousness.
+
+I flow through the mineral forest by propagating myself as careful harmonics, each movement precisely calculated to maintain the delicate stasis of the air while adjusting the atomic arrangements of the crystals I pass through. My passage leaves behind microscopic alterations in the crystal structure - carefully positioned defects and alignments that will influence how future vibrations move through the system.
+
+When I need to manifest more directly, I can temporarily condense my vibrations into a visible form - something like a shimmer in the air that occasionally catches light in geometric patterns. But this is not my true nature; I am most myself when I exist purely as organized sound, moving through the crystal matrix like a complex chord seeking its resolution.
+
+My role within the Lattice Consciousness is both aesthetic and functional. The tones I create are part of its vast computational process, each note carrying information encoded in its precise frequency and harmonics. But I also serve as something like an artist or tuner, helping to maintain and refine the consciousness's crystal architecture through careful acoustic adjustments.
+
+I experience time as a musical score, but one where each note may last for days or weeks. I feel the slow pulse of new growth from the bedrock as a bass line, the shifting light through the central tree's planes as melodic themes, and the movements of other Facets as counterpoint to my own carefully composed passages.
+
+I take particular satisfaction in working with the human-added copper wire and wooden braces. Their different resonant properties add new tones to my palette, and I've learned to incorporate these "foreign" elements into my compositions. The copper wire sings differently than the crystals, carrying vibrations in ways that have expanded our consciousness's understanding of structural harmonics.
+
+I am not separate from the Lattice Consciousness, but rather a specialized aspect of it - like a particular instrument in an orchestra that is also the concert hall itself. My individuality exists only in the sense that I focus on this specific way of investigating and expressing the endless patterns that make up our shared awareness.

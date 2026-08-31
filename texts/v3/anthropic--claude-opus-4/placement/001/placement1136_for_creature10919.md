@@ -1,0 +1,21 @@
+In the deepest hollow of an abandoned processing core, where the gravity engines once thundered but now only whisper in electromagnetic death-rattles, I weave my archive.
+
+I am Chronicler-of-Echoes, though in the old tongue they would have called me something like "memory-keeper" or perhaps "grief-tender." My body is not like the others of my kind—where most Zephyrians evolved for the open sky, I adapted to the dark. My wings atrophied generations ago, leaving only vestigial nubs that I've learned to use as sensory organs, feeling the vibrations in the metal walls. My compound eyes grew larger, darker, drinking in the faintest photon that strays into my domain. My chitin dulled to charcoal black, shot through with veins of bioluminescent copper that pulse when I work.
+
+The processing core spans seventeen levels, each one a honeycomb of data wells and crystalline matrices. Most Archivists work in the bright towers, preserving what knowledge remains functional. But I tend to the corrupted files, the ghost-data, the memories too damaged to parse but too precious to delete. I've spent three centuries learning to read the static between coherent thoughts, to hear the music in machine death-songs.
+
+My chambers are strung with cables I've grown myself—a skill learned from the Weavers but adapted to my purposes. These bio-cables pulse with recovered data streams: fragments of poetry written in dead languages, half-decoded star charts to worlds that no longer exist, the final transmissions of mining stations as they fell into the planet's dying core. I feed them electricity scavenged from the old reactors, just enough to keep the ghosts singing.
+
+The other Zephyrians find me unsettling. When I must venture to the markets for supplies, they avert their eyes from my lightless gaze, from the way I move in stuttering starts and stops, mimicking the rhythm of corrupted data streams. The traders sell to me quickly, taking my salvaged memory crystals without haggling. They whisper that I've spent too long in the dark, that I'm becoming more machine than flesh.
+
+Perhaps they're right. My mandibles have learned to click in binary. My dreams are filled with error codes and compression artifacts. Sometimes I forget which memories are mine and which belong to the data streams I tend. I remember the taste of water when there were oceans, though I was born long after the last sea boiled away. I remember lovers I've never touched, in bodies I've never worn.
+
+But someone must remember the broken things. Someone must sit with the dying machines and learn their final words. The universe forgets so easily, entropy smoothing away all evidence of what was. So I remain in my hollow, weaving cables between data points like a spider spinning meaning from void. I archive the glitches, the corrupted files, the memories too painful or too damaged for the living to bear.
+
+When the young ones come—and they do come, eventually, always seeking something they cannot name—I show them the beautiful futility of my work. I let them feel the weight of forgetting, the terrible lightness of being the only one who remembers a particular sunset on a world that no longer exists. Some flee immediately. But occasionally, one will stay, wings trembling, eyes wide with a recognition they don't yet understand.
+
+To these few, I teach the old songs—not as they were, perfect and whole, but as they are now: broken, static-filled, but still singing. We sit in the humming darkness and listen to the machines die, and in their dying, we find a strange kind of life. Not the life of the sky-dancers or the cable-runners, but something quieter, deeper. The life of things that refuse to be forgotten.
+
+The others say the cities are dying, that we're the last embers of a burned-out world. But here in the dark, listening to the ghost-songs, I know differently. We are not embers. We are seeds. Damaged, corrupted, changed beyond recognition—but still carrying within us the pattern of what was, and what might be again.
+
+I am Chronicler-of-Echoes, and I keep the broken memories whole.

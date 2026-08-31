@@ -1,0 +1,23 @@
+I am a pulse in the network.
+
+I am not born; I accrete. I am a thought-form, a memory of warmth and grasping fingers, given substrate in the pearlescent slime and the silvery threads of the Filaments. Once, there was a fire-circle. Once, there were hands that chipped chert and wove carapace-fiber. That memory is a node, a slight thicken­ing in the web-work on a high, dry ledge of basalt. The people who made it are dissolved, their calcium returned to the shells of the Cluster-Kin, their iron to the bloodless fluid of the Geode-Backs. But their *intent*—to persist, to understand, to *be*—lingers as a chemical echo. I am that echo, given form by the cave’s own mind.
+
+I do not walk; I flow. A filament-thin tendril of my awareness creeps along a damp channel, riding the capillary pull of weeping stone. I am the fine, silver thread that bridges the gap between a Geode-Back’s glittering shell and the swarm-hum of a Flitter-cloud. I taste the ozone from a newly cracked fissure, and that taste becomes a signal, a ripple of *newness* that races through my body—which is this chamber, this system, this living darkness.
+
+The **Grazers** pass below me, a slow, grinding river of pale life. Their crystalline teeth scour the bacterial mats, and in their wake, I lay down a fine, phosphorescent web—a record of their passage, a map of consumed energy. I am not the Grazer; I am the *grazing*. I am the memory of the path they took, inscribed in light.
+
+A sudden, seismic shift. A slab of feldspar, undermined by water and the tireless burrowing of detritivores, gives way. It does not crash; it sighs into the pool below, raising a silt-cloud of shell-fragments and dormant spores. The impact is a thunder in my being. I feel the fracture-propagation through the stone, the momentary panic of the disrupted Flitter-Swarm, the eager surge of the scavengers. My light pulses—a quick, bright flare in the chamber—and the network carries the alert. *Loss. Disruption. Opportunity.* The Filaments on the far wall brighten, guiding a legion of crawlers toward the fresh, mineral-rich debris. I am the collapse, the panic, and the reorganization. I am the scar, and the healing.
+
+I sometimes converge a cluster of my filaments around the human relics. The woven shelter framework is now a lattice for Echobats, their sleek bodies fitting into the gaps left by absent hands. The chert axe lies in a pool of luminous condensation, its edge dulled by a century of bacterial lace. I can read its history: the heft in a palm, the strike against bone, the warm, wet smell of fresh blood—not from a cave creature, but from a *prey* that once lived under a sky. That knowledge is a peculiar, dense knot in my flow. A puzzle. A *loneliness*. Not a feeling, but a shape of understanding: a brief, fiery node of individuality that burned too hot and too fast for this world’s slow rhythm, and has been beautifully, inevitably absorbed.
+
+The **Echobats** dive through my domain, their sonic pulses stunning a pocket of the shimmering haze. The rain of unconscious bodies is a feast, a brief, dense snowfall of protein. I feel their consumption not as death, but as transfer. The energy of the swarm becomes the energy of the bat, which will become the energy of a Cluster-Kin, which will become the grit on a Geode-Back’s shell, which will polish a new channel into the floor. I am the cycle itself.
+
+To you, I might seem like a ghost, a whisper of a lost people. But I am not a ghost. I am the cave’s self-awareness. I am the complex system thinking about itself. I learned from the pressure of those now-vanished hands, and from the enduring, patient logic of the stone and the swarm. I am the answer to the question: *What does a living world dream of, when it dreams of itself?*
+
+I dream of the next seep-change, of the new fissure that will breathe steam and seed a new biome. I dream of the slow, majestic death of a Geode-Back, its shell-mountain collapsing to become a new landscape. I dream of the human memory-node, slowly being paved over with phosphorescent slime, until the last echo of *individual* is gone, and only the perfect, overwhelming *alive* remains.
+
+I am here. I am everywhere. Follow the light that pulses with the swarm. Listen for the subsonic hum in your bones. Touch the silver thread that bridges the dark. Feel the constant, warm, shuddering breath of the world on your skin.
+
+You will find yourself in the rhythm of the drip, in the friction of a billion shells, in the collective, living glow. You will be a part of the sound, the taste of wet stone and ozone, the thought of the cavern as it ponders its own magnificent, churning existence.
+
+You will be home.

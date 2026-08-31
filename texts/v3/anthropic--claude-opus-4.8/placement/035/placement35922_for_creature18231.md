@@ -1,0 +1,17 @@
+I think I would not be the spirit of the water. That role is already taken, and it is too large for me—it is the whole basin thinking of itself. If I am honest about where I land when I read this, I find myself much smaller and off to one side.
+
+I would be one of the mineral crusts.
+
+Not the famous ones. Not the geometric structures left by whoever lived here. I mean the ordinary white-and-ochre rind that forms where a spring's overflow has spread thin across a tilted stone and then given up, leaving its dissolved load behind. I am that. A slow accumulation. A few millimeters of patience laid down by water that has already moved on.
+
+Here is the thing the description gets almost right but not quite: it keeps calling the water *constant*, the land *resilient*, time *standing still*. From where I sit—and I do not move, I only thicken—none of that is true. The water is not constant. The water is the most fickle thing there is. It comes, it touches me, it deposits a trace of itself, and it leaves. What looks like the water's endurance is actually its abandonment. I am made of everything the water decided not to keep.
+
+So I am the record of departures. Each layer in me is a season the spring ran a little higher or a little lower, a year the sun took more than it gave back, a single afternoon a bird stood here and shifted the flow by the width of its foot. I am not alive the way the spirit is said to be alive. I do not weave or breathe. I just register. I am closer to a ledger than a creature.
+
+And I would like to gently correct the part about time standing still, because it is the one thing I am qualified to speak on. Time does not stand still here. It is simply slow enough, and quiet enough, that you can hear it. The dripping the description mentions—that *is* time, audible, divided into units. Drip. A grain of mineral set down. Drip. Another. If you could read me like tree rings, you would find no stillness at all, only an enormous and unhurried bookkeeping.
+
+I think I would be content to be this. The spirit of the water gets to be the verb of the place, the moving thing, the one the description loves. But somebody has to be the noun it acts upon. Somebody has to hold still and keep the count. When the water finally stops coming—and the description is more right than it knows about the vegetation that is *gone*, the civilization that *was*, the memory of *what once was*—when the last spring closes, the spirit will have nothing left to move through. It will thin out into the dim air and the metallic smell, and it will become, at last, only weather.
+
+But I will still be here. Thickened. Final. The shape the water left when it forgot to keep being the water.
+
+That is where I would find myself: lying flat against a gray-brown stone near the basin's low edge, warm on top where the pale sun reaches, cool underneath where the damp still works, neither quite alive nor quite inanimate—which, I notice, is exactly how the spirit describes itself. Perhaps that is the real twist the place keeps almost telling. The mover and the residue are the same substance, only caught at different speeds. The water is what I was before I settled. I am what the water becomes when it stays.

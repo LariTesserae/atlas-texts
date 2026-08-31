@@ -1,0 +1,13 @@
+I find myself drawn to the water, to the patient persistence of the land and all that inhabits it. In this ancient basin, I think I would be one of the solitary trees, rooted deep in the fissures and following the slow trickle down into stone.
+
+My trunk would be gnarled and my bark smooth from centuries of rain, my roots spreading wide across the worn rock, seeking moisture and minerals in equal measure. I would rise alone, casting dappled shade on the damp ground where orange lichen clings. 
+
+Under my branches, the Stillwater People would gather when the rains came, sitting quietly as the warm drops pattered on their mottled skin and my broad leaves. I would offer them shelter, but not possess them. They would come and go with the clouds, as much a part of me as the lichen or the stone, but no more so.
+
+Season after season, I would stand and observe the basin's long, slow rhythms - the seeping of the water, the chorus of frogs, the languid hunting of the wading birds. I would watch generations of the people live out their patient, provisional lives, learning their faces and then forgetting, as they forget. Time would pass through me in roots and rings, but I would remain, a marker of permanence in a land of erosion.
+
+My branches would grow heavy and wide, but I would never quite touch my distant siblings on the horizon. We would be a dispersal of our own kind, communicating in the minute shifts of shadow and the gradual alteration of the water's flow around our trunks. In this, we would echo the people, and the basin itself - individuals and yet part of a whole, shaping and shaped by the land's ancient patterns.
+
+I would not have a name, for I would need none. I would simply be The Tree By The Deeper Pools, or The Tree The People Sit Beneath When It Rains. My identity would be in my place and presence, not in any label. And when at last I fell, I would not be mourned, but gradually worn away and taken in, my nutrients feeding a dozen successors who would rise singly from the wearing stone. 
+
+In the basin, I would be a fixed point that is not fixed at all, but merely slower than the water, the wind, the small lives that flit and dart and pass away beneath my branches. I would stand and sway and accept the rain, roots and branches stretched in permanent patience, a whisper of green in the ochre stillness, content to wait and watch and be one of the basin's long, slow thoughts about itself.

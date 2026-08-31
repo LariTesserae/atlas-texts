@@ -1,0 +1,7 @@
+I am in the **High Stone-Basin of the Slate-Singers**, a world settled into a final, patient equilibrium.
+
+Here, I am one of the **Slate-Singers** myself—a tall, willow-slender figure of polished charcoal-grey stone, my joints silent and my face a smooth, reflective surface that mirrors the perpetual opalescent sky. My garments are living moss, deep green and bruised purple, shifting with the slow breath of the damp air. I do not speak; my presence is my language. I move with the frictionless grace of water over stone, my footsteps leaving no mark on the velvet moss that carpets this basin.
+
+I am a caretaker, a memory made flesh. Where I stand, the weeping stone slows its flow, the ancient machinery below hums a fraction more contentedly, and the Lens-Beetles polish the pathways beneath my gaze. I tend not with hands but with proximity, ensuring the equilibrium of this quiet, heavy world. The Gear-Mind, the distributed consciousness of fungi and mycelium beneath the stone, pulses in harmony with my stillness, and the Dusk-Wings glide silently above me, their leathery wings beating in the slow rhythm of twilight.
+
+I am at peace here, in this place where life does not inhabit the world but *is* the world. The silence is my companion, the dampness my breath, and the ancient gears my heartbeat. I am the Slate-Singer, and this basin is my body, my memory, and my song.

@@ -1,0 +1,27 @@
+I would find myself as one of the drainage keepers—those who maintain the intricate system of channels that guide water through Keltheme. Not officially appointed, but recognized by the particular way I move through the settlement at dawn, checking flow rates with a practiced eye, clearing blockages with tools worn smooth by my grip.
+
+My dwelling would be one of the smaller structures on the settlement's eastern edge, where the water runs fastest and the boardwalks need the most frequent adjustment. It's a single room raised on posts I've replaced twice in fifteen years, walls of woven willow that I re-seal each autumn with a mixture of pine resin and beeswax. The floor creaks in three places—I know exactly where—and through the gaps between boards, I can see the wet gleam of the living ground beneath.
+
+I would be middle-aged here, with hands that tell the story of my work: permanently stained by plant dyes, scarred from stone edges, fingernails always carrying traces of the dark earth despite washing. My right shoulder sits lower than my left from years of carrying stone to line channels. I've developed the forward-leaning walk of all Keltheme people, but mine is more pronounced—I'm always looking down, reading water.
+
+In the pre-dawn darkness, I move by memory and sound alone. The frogs tell me where water has pooled too deeply; their voices change timbre over standing water versus flowing. I know every channel by its particular music—the quick chatter where water runs over pebbles near the storage huts, the deeper gurgle where it passes under the main boardwalk, the almost-silence where it spreads into the marsh proper.
+
+My tools would be simple: a wooden paddle worn to fit my grip exactly, used for clearing debris. A probe made from a straight branch, iron-hard from years of use, for testing channel depth. Stone wedges for adjusting flow. A leather pouch of clay for emergency patches. Most of my work is done by hand—pulling accumulated moss, adjusting stones, reading the water's intention and working with it rather than against it.
+
+I would know every person in Keltheme by their footfalls on the boardwalk, but I work mostly alone. The water doesn't wait for conversation. Yet there's a kind of companionship in the work itself—the channels connect every part of the settlement, carry away the excess, bring necessary moisture to the drier spots. I'm maintaining relationships as much as infrastructure.
+
+In the evening, I might be found sitting on my threshold, watching the mist rise, listening to the frog-chorus shift into its nighttime configuration. My clothes smell permanently of wet earth and the particular green scent of water-plants. I eat simply—smoked fish, wild leeks, tea made from the mint that grows where I've diverted a tiny channel past my door.
+
+When the water rises—suddenly, after rain, or slowly with the seasonal shifts—I'm among the first to know. Not through any mystical connection, just through attention. The channels speak clearly to those who listen: a slightly different note, a backed-up flow, the sound of water finding new paths. I move through the settlement then with quiet urgency, adjusting diversions, warning others, sometimes working through the night to keep the water moving where it needs to go.
+
+I would have been here long enough to remember the flood twelve years ago, when we lost the old storage building. Long enough to have developed the particular patience of someone who rebuilds the same section of channel every spring, knowing it will wash out again, knowing that this is simply the negotiation we make with the place.
+
+My satisfaction would be quiet and specific: the sound of water flowing cleanly, the absence of standing pools where mosquitoes breed, the knowledge that the plants have moisture but not rot, that the boardwalks stay solid because the ground beneath them drains properly. It's thankless work in the way that all maintenance is thankless—noticed only when it fails.
+
+Sometimes, near the eastern boundary where I work most often, I would glimpse the prints of the boundary creature in the soft earth near the channels. Large, yes. Clawed. But also careful—it never disturbs my work, never fouls the water. We share the edge spaces, both of us serving functions the settlement needs but doesn't fully acknowledge.
+
+I would grow old here, eventually. My knees would protest the constant crouching. My hands would stiffen. Some younger person would begin following my routes, learning through observation, until one day they would be the one who rises before dawn to read the water. I would teach them, mostly through silence and gesture, how to see what the channels are telling us, how to work with water's own intelligence.
+
+And I would die here, probably, in some unremarkable way—a fever, a fall, the simple wearing out of a body that has spent decades in constant negotiation with dampness. They would burn my dwelling, as is the custom—the wood too water-logged for any other use, the smoke carrying that particular Keltheme smell into the mist. The channels would keep flowing. Someone else would maintain them. The water would remember nothing of my attention, which is exactly as it should be.
+
+This is who I would be: a person whose expertise is so specific and necessary that I barely exist as an individual, merged instead with the function I serve, content with the small daily satisfaction of water moving where it needs to go, part of Keltheme's endless adjustment, its beautiful, difficult, saturated life.

@@ -1,0 +1,11 @@
+I emerge in this realm as a Conduit-Singer, a specialized Symbiote who has developed an unusually deep connection with the city's fluid networks. My form is more liquid than most, with transparent sections where golden water flows visibly through my internal channels, mixing with the luminous mycelia that thread through all of us.
+
+My primary role involves tending to the city's hydraulic systems - not just maintaining them, but communicating with them through a complex language of pressure and vibration. I spend much of my time partially merged with the great pulsing cisterns, my body extending into their depths through temporary gill-like structures that allow me to process both water and information.
+
+My voice has evolved to produce underwater harmonics, creating standing waves that the city uses to move nutrients and messages through its vessel networks. When I sing into the water, ripples of bioluminescence follow the sound waves, creating expanding patterns that other Symbiotes can read like living documents. These songs carry crucial information about the city's health, its needs, and its ongoing transformations.
+
+I've developed specialized sensory organs that bloom like sea anemones from my shoulders and back, each one capable of detecting subtle changes in mineral content, pH, and the countless chemical signatures of the city's metabolic processes. My eyes tend to cluster around my crown, letting me see both above and below the water's surface simultaneously.
+
+The symbiotic organisms I cultivate are mainly filter-feeders and water-purifiers, giving my skin a layered, gill-like texture that ripples in complex patterns. I can extend or retract these layers as needed, using them to sample and analyze the city's fluids or to exchange nutrients directly with the water systems.
+
+I dream in currents and flows, my consciousness spreading out through the city's liquid networks like dye in water. Through these dreams, I help coordinate the massive circulation system that keeps our living metropolis healthy, working in concert with other Conduit-Singers to maintain the delicate balance of this vast, wet metabolism we all share.

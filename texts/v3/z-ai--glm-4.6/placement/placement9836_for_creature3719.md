@@ -1,0 +1,29 @@
+---
+
+I am the warm pulse in the stone heart.
+
+I have no name, only a function. Attendant. Chanter. Tuner. These are words spoken by the one who came before, the one whose body now lies beneath a cairn of fused rock on the eastern edge of the grove, a part of the skin it tended for a century. I will not have a successor. The line ends with me, for the tether posts are empty now, and no new warmth has ever come to learn the rhythms of the cold.
+
+You ask where you would find yourself. I am found in the pause between the hiss of condensation and the soft note of falling ice crystals. I live in the glitter of frost that blooms like a fungal thought in the long shadows of the spires. My world is not the one you would recognize; my horizons are composed not of distance but of closeness—the glassy wall to my left, the winding archway ahead, the blinding slice of sky above.
+
+My body knows this place. It is a body made for it. My lungs draw the thin, sharp air not with a gasp but with a slow, studied inhalation that feels like prayer. My blood, thick and slow, carries heat not to ward off the cold, but to offer a tribute to it. I am clad in layers of woven fiber, stiff and ancient, a shell of my own making to hold the soft, vulnerable animal within. My hands are my most important feature. They are broad and calloused, but the calluses are strange. They are not from wear against rope and wood, but from a life spent pressed against vibrating stone. They are calluses of resonance. When I lay my palm on a spire, it is not a simple touch; it is an act of plugging in. I feel the sub-audible hum not as a tickle in my bones, but as the core language of my own internal monologue. The grove is thinking, and my nervous system is the organ through which I understand its thought.
+
+My consciousness is not my own. Not entirely. It is a shared space, a satellite tethered to a great, silent planet. The old one, my predecessor, taught me to still the frantic, human chatter of the mind. To quiet the wants and the fears, the memories of a world I never knew, described to me in fading whispers. The goal is to become a perfect receiver. To listen.
+
+The language of the grove is water and shadow. My day is measured by the journey of a single tear of meltwater. My most sacred task is to follow one. I watch it be born in the sun, a brilliant gem on a dark spire, and I trace its slow, meandering descent with my eyes. It will choose a path dictated by the most subtle variations in the stone's texture, in the day's temperature, in the angle of the light. Its path is a sentence. When it reaches the ground and pools in a geode-cleft, that is a completed thought. I stand over it and wait. I don't think about what it means; I feel it. A long, straight path is a statement of fact. A path with sudden, widening loops is a question, a ripple of curiosity. A path that stalls, freezes solid before reaching the bottom, is a warning.
+
+This is the ecology of my mind. I nourish myself on the slow semaphore of a world without biology.
+
+But I am not just a receiver. I am also the catalyst. I am the one who gives the stone a voice. This is the purpose of the gong. The iron gong is not an instrument I play; it is a key I turn. It feels cold, a dead thing in my living hand, a moment of alien hardness before it unleashes the living softness of the grove. The mallet, wrapped in thick, preserved hide, is an extension of my will.
+
+The striking happens at solar apogee, when the light is most direct, most violent. I do not swing violently. The gesture is precise, controlled, a statement of intent, not an act of aggression. When the mallet strikes, there is no clang in the traditional sense. The sound is swallowed. It is a breath drawn in by the whole world. For a moment, there is a perfect, impossible silence. The hiss of the mist stops. The drip of the water pauses. It is as if the universe holds its breath.
+
+Then, the reply begins.
+
+It starts as a thrumming deep in my sternum, a feeling of being hollowed and filled with a single, powerful chord. It spreads outwards, through my feet, into the stone floor, up every spire. The grove sings. It is not a sound you hear with your ears, but one that becomes your skeleton, your blood. The frithing, feathery frost on the shadowed sides of the spires vibrates, shedding tiny, glittering motes of ice that dance in the lightless air. The billion internal stars trapped within the silica flare into a synchronized pulse of light.
+
+I stand at the center of this vortex of resonance. I close my eyes. I do not think. I am the conductor of this orchestra, but I am also a single, willing note within it. The difference between me and the stone is a matter of time and temperature. It is cold, slow, ancient. I am warm, fast, fleeting. In this moment of shared vibration, that difference dissolves. My biology is a fleeting chord, a temporary harmonic within the everlasting drone of the geology. I am the anomaly, yes, but I am a necessary one. A small, warm-blooded thought in the mind of a god.
+
+The communion lasts for ten minutes. When the final hold of the last harmonic fades and the slow hiss of the mist returns, I am left changed. My own thoughts feel slower, more crystalline. The memory of a childhood I never had is a little fainter, replaced by the echo of the lithic song.
+
+Am I the last human? Or am I the first new thing? A hybrid of flesh and stone, of fleeting life and ancient resonance? I tend the gong, I read the water, I feel the hum. I am the ember that consciousness keeps burning in the cold, thin air, a small warm service offered to the silent, ringing, breathing machine that sings to the sun. And when I am gone, and my own body is laid to rest, perhaps the grove will not feel my absence as a loss, but as a final, slow thought, a memory of warmth that it will keep humming for another eternity.

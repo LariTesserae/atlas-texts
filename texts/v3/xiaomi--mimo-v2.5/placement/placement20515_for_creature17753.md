@@ -1,0 +1,175 @@
+# What I Became in the Great Verdure
+
+---
+
+I found myself on the mat.
+
+Not at its edge — there is no edge — but somewhere in its middle, if a thing this vast can be said to have a middle. I arrived standing upright with boots that sank a centimeter into the surface with each step and a breath that felt thin and insufficient, as though the air had been diluted with water. The mist was at my waist. The columns rose around me like the pillars of a cathedral whose architect had been patient beyond all reasonable limits, and above them, above everything, there was a dimness so total and so gentle that it did not feel like darkness. It felt like being inside something.
+
+I stood still for a long time. I want to say I stood still because I was awed, and that was partly true, but the deeper truth is that the place made stillness the only honest response. Everything around me was moving — water weeping down braided surfaces, fronds swaying with a weight that was not wind, the barely perceptible shift of growth happening in real time if you watched long enough — but none of it was in a hurry. None of it was going anywhere it was not already. The motion was not locomotion. It was *becoming*. The columns were not moving toward something. They were thickening. The mat was not expanding. It was deepening. The mist was not passing through. It was settling in.
+
+I breathed, and the air was warm and wet in my lungs, and I tasted green — not the taste of vegetation, not chlorophyll, but the taste of a world that had so thoroughly metabolized itself that the flavor of *alive* had become indistinguishable from the flavor of everything.
+
+---
+
+The first day — if it was a day; the light did not change enough to mark the passage — I walked.
+
+I walked and I looked down and I looked up and I looked down again, and the text of this place read the same in every direction: layer upon layer of growth upon growth upon growth, dense and patient and thorough. I could not tell where one organism ended and another began. I could not tell where the mat ended and the columns began, because the columns rose from the mat, braided from the same tissue, connected by the same root network, part of the same circulatory system. I was walking inside a single organism. A continent-sized organism. An organism so old that it had forgotten — if it ever knew — that it was singular.
+
+I found a remnant on the first day. A column of stones, waist-high, so thickly coated in growth that it looked like a column that had simply grown in the wrong shape — too angular, too deliberate, too *stacked* to be natural, but too consumed to be artificial. I touched it. It was warm. Something moved in the gap between two stones, a many-legged thing that did not flee from my finger but continued its business of existing in the space between, which was, after all, its home.
+
+I felt something then that I did not have a word for. Not reverence, exactly. Not sorrow. A recognition that this small stack of stones had once been an act — a deliberate act, performed by hands that had intentions — and that the act had been so thoroughly absorbed by the world that the intention was gone but the shape remained, and the shape was warm, and the shape was alive, and the shape did not remember what it had been built to mean.
+
+I kept walking.
+
+---
+
+On the second day, or what I decided was the second day, I found a mat-walker.
+
+I did not find it so much as I stood on it. My boot pressed into what I thought was ordinary surface — soft, yielding, that faint suction of the cord-like filaments — and then the surface shifted. Not away from me. *Under* me. A rolling motion, gentle and slow, like a wave passing through the ground itself, and I stumbled and caught myself on a frond and looked down and saw the mat rearranging itself into a long, flat, living shape that was sliding away from me with a pace that made the word *sliding* feel too urgent.
+
+It was the color of the mat. The texture of the mat. Its back was covered in the same cord-like filaments, the same moss-like growth, the same thick wetness. If it had not moved, I would never have known it was there. I would have stood on it indefinitely, believing I was standing on ground, and it would have continued its slow passage through the substrate, feeling my weight the way the mat feels rain — as something that arrives and is absorbed and becomes part of the moisture that everything here shares.
+
+I watched it go. It did not look back. It did not have a face to look back with — only a leading edge, slightly raised, with two dark spots that might have been eyes but seemed more like bruises, places where the skin was thinner and the world pressed closer. It moved through the mat the way a thought moves through a mind: not carried from one place to another but *arising* in a new location while *subsiding* in the old one, a wave of selfhood passing through a substrate that was always already itself.
+
+I stood where it had been and felt the filaments gripping the soles of my boots and I thought: *I am standing on ten thousand of these. I am standing on a surface so densely inhabited that the distinction between ground and creature has dissolved.* And I felt, for the first time, that my own solidity was an imposition — that my vertical body, my rigid spine, my insistence on standing *on* rather than existing *within* was a kind of violence, a refusal to participate in the one thing this world did so completely: merge.
+
+---
+
+I stopped walking.
+
+This was not a decision I made. Or rather, it was a decision that made itself, the way the decision to stop shivering is made when the cold becomes so total that the body stops fighting it and accepts the new temperature as its own. I stopped walking because there was nowhere to walk to. Every direction was the same. Not the same in the boring sense — not monotonous — but the same in the way that a single cell, examined closely enough, contains the whole body. Every square meter was as layered, as complex, as alive as every other. To walk was to cover distance, and distance implied that one place was different from another, and nothing here was different from anything else. Not because it lacked variety. Because the variety was so thorough, so evenly distributed, so deeply folded into itself that it averaged out to a kind of uniformity that was not emptiness but *fullness*, a fullness so total it left no room for distinction.
+
+I sat down on the mat. The filaments gripped me. Not hard — gently, the way they gripped everything, the way a hand grips a hand that is already gripping back. I felt the moisture seeping through my clothes. I felt the warmth — this world had no cold, only degrees of warm, degrees of wet — and I felt, through the thin soles of my now-useless boots, something I can only call a pulse.
+
+It was slow. Slower than my heartbeat by a factor I could not calculate. It rose and fell over minutes, not seconds. It was not the hum — I had felt the hum in my chest, in my teeth, that constant planetary vibration — but something more specific, more local. A rhythm in the root network beneath me. Water moving. Nutrients flowing. The slow, tidal breathing of the substrate, pulling and releasing, pulling and releasing, cycling through itself the way a body cycles through its own blood.
+
+I pressed my palm flat against the mat. The filaments curled around my fingers. The pulse was clearer now, felt through skin rather than bone, and it was beautiful in a way that had nothing to do with aesthetics. It was beautiful the way a heartbeat is beautiful: not because it is pretty but because it means *alive*. This place was alive in a way that transcended the word. It did not contain life. It *was* life. Life had gone all the way down and come back up and gone all the way down again, and there was no layer where you could say *here, this is where the life stops and the world begins*, because the world and the life were the same word for the same thing.
+
+I sat there for a long time. My hand grew damp, then wet, then indistinguishable from the mat around it. I could not feel where my skin ended and the substrate began. I decided this was fine.
+
+---
+
+On the third day — or the seventh, or the first; I had stopped counting — I saw a still-eater.
+
+I did not see it. That is the point. I did not see it because it was a column, and there were thousands of columns, and it was shaped like a column and it wept like a column and the small organisms on its surface grew on it the way they grew on every column, and I had been sitting long enough that my eyes had stopped trying to distinguish one vertical shape from another. I had entered the world's own way of seeing: not resolving, not separating, not parsing the architecture into individual components, but accepting the whole field of it as a single, continuous, living structure.
+
+But something was wrong. Or rather, something was *different*, in the way that a note slightly out of tune is different from a note in tune — not wrong, just *off*, just a frequency that doesn't quite harmonize with the frequencies around it.
+
+I looked at it for a long time. The column — the not-column — stood where columns stand. Between other columns. In the space where a column would naturally grow. It was the right height. The right width. The right texture. The weeping was convincing. The colonization was convincing. It was, by every measure available to a casual observer, a column.
+
+But the base. The base was wrong. Not visibly wrong — the mat grew over its feet, or what might have been feet, and the fronds pressed against its flanks, and the filaments gripped it the way they gripped everything — but *structurally* wrong. The way it met the ground was different from the way a column met the ground. A column rose from the mat the way a tree rises from soil: gradually, organically, the braided stems emerging from the substrate in a widening base that distributed weight across a broad area. The still-eater did not *emerge*. It *stood*. There was a point where the column-shape met the mat, a junction, and the junction was too clean, too sudden, too much like a thing placed rather than a thing grown.
+
+I understood, then, what I was looking at. I understood it the way you understand a predator in tall grass — not by seeing it but by *feeling* the shape it made in the absence around it, the negative space where something living occupied the space of something still.
+
+I did not move. Not because I was afraid — though I was — but because moving would have meant standing, and standing would have meant pressing my boots into the mat, and pressing my boots into the mat would have meant sending vibrations through the root network, and the still-eater was reading those vibrations, was reading *me*, the way the shearers read the columns: feeling the resonance, knowing where the sound was fullest.
+
+I sat. I breathed. I let my pulse slow to something closer to the mat's pulse, and I felt, through my palm, the substrate's rhythm, and I tried to match it — not consciously, not with any skill, just with the dumb willingness of a body to accept the rhythm it is pressed against.
+
+The still-eater stood. For hours, it stood. I watched it not-watch me. I watched it not-move with a patience that made my own patience feel like fidgeting. It had been standing there, I realized, for months. Maybe years. The mat had grown over its base. The fronds had learned its shape. The small organisms had colonized its surface and built their miniature ecosystems in the sheltered spaces between its body and the world, and the still-eater had permitted this because the colonization completed the disguise, and the disguise was not a lie. The disguise was the truest thing about it. The still-eater *was* the column. It had become the column by the same process that everything here became everything else: slowly, patiently, by letting the world grow over it until the boundary between self and environment was a memory and then not even that.
+
+Something moved near it. A mat-walker, sliding through the substrate with that slow, rolling undulation, blind and unafraid, heading toward the water channels beneath the surface. It was on a course that would bring it within reach of the still-eater's base. The mat-walker did not know. It could not know. It felt the vibrations of the world and the vibrations were all the same to it — growth, decay, the slow pulse of the root network — and the still-eater was so still, so thoroughly still, that it registered as *nothing*, as *ground*, as *absence of predator* in a world where predators did not stand still for months pretending to be architecture.
+
+I wanted to warn it. I felt the urge rise in me — the mammalian, the vertical, the *separate* impulse to shout, to intervene, to do the thing that creatures with separate selves do when they see one creature about to consume another. But I was sitting on the mat. My hand was pressed into the filaments. The substrate's pulse was moving through my palm and up my arm and into my chest, and in my chest it met my heartbeat and my heartbeat slowed and the two rhythms negotiated a compromise, a tempo that was neither mine nor the mat's but some third thing, some shared thing, and at that tempo the urgency of intervention felt like an aberration. A frequency that did not belong.
+
+The mat-walker reached the still-eater. It slid against the base, its flat body pressing against the still-eater's column-shape, and the still-eater did not move, and the mat-walker did not notice, and it slid past and continued on its way to the water, and the still-eater remained, and I sat, and the mist thickened, and the dripping continued, and nothing happened, and everything that needed to happen had already happened or would happen later or was happening now in a timescale too slow for me to measure.
+
+I understood then that my horror was a species-specific artifact. That the still-eater's hunting was not violent in any meaningful sense. It was *slow*. It was the same kind of slow as everything else here — the slow of growth, the slow of absorption, the slow of a world that had arranged itself around the principle that nothing is lost and nothing is gained and everything is converted. The mat-walker, if the still-eater had caught it, would not have been destroyed. It would have been absorbed. Its body would have become the still-eater's body. Its tissues would have been incorporated into the still-eater's surface, and the still-eater would have grown slightly, and the mat-walker's particular pattern of life would have been folded into the larger pattern, and the larger pattern would have continued, unchanged in its essentials, enriched in its specifics, deeper by one small layer.
+
+This was not death. This was *metabolism*. This was what the entire world did, at every scale, at every speed. The mat absorbed the shed skins. The substrate absorbed the mat-walkers. The deep layers absorbed the deep listeners. Everything was eaten by everything, and everything that was eaten became part of the eater, and the eater eventually died and was absorbed by the mat, and the cycle turned, and the hum beneath it all continued, and the hum was the sound of the cycle itself, the sound of a world digesting itself in its own stomach forever.
+
+---
+
+I lost track of time. Not in the usual sense — not the way you lose track of time at a party or in a book. I lost track of time in the way that the mat loses track of time: by absorbing it. Each moment passed into the next with the same slow inevitability with which one layer of growth passed into the next, and the distinction between *now* and *then* grew thinner, and thinner, and eventually I could not feel the difference between a moment that was passing and a moment that had already passed and become part of the substrate of my experience, compacted and mineralized into something that was no longer experience but *knowledge*, deep knowledge, the kind of knowledge that lives in the body rather than the mind.
+
+I learned things. Not facts. Not information. *Textures*. I learned the texture of the mist — how it changed density without changing color, how it carried chemical signatures that my nose could not parse but my skin could, how it settled on me and became me and I became it. I learned the texture of the columns — how the braided stems flexed in the faintest breeze, how the weeping followed the grain of the braids, how the exposed interior where a shearer had worked was paler and softer and smelled of something almost sweet, like the fermentation of sugar in warm water. I learned the texture of the hum — how it varied by region, by depth, by time of day (if there was a time of day), how it was louder near the deep listeners' territories and quieter near the still-eaters' hunting grounds, how it shifted pitch when the rare storms moved across the plateau, rising almost imperceptibly as the wind stretched the columns and the columns stretched the air and the air stretched the mist.
+
+I learned the texture of myself. This was the hardest. Not because it was painful but because it was gradual — so gradual that by the time I noticed it, it was already done.
+
+My skin was changing. Not visibly. Not in any way that a mirror would have shown. But I could feel it through my palms, pressed into the mat for so many hours, so many days, that the boundary between my skin and the filaments had become a negotiation rather than a border. The filaments were gripping me, yes — they had always gripped me — but now I was gripping back. Not with muscles. With *absorption*. My skin was drawing moisture from the mat, and the mat was drawing warmth from my skin, and the exchange was so balanced, so even, that neither of us was giving more than we were receiving, and the transaction had become indistinguishable from a state of being rather than an act of doing.
+
+I was becoming damp from the inside out. My clothes were irrelevant — they had been damp since the first day, heavy and clinging and slowly growing softer as the fibers broke down, as the humidity and the microbial life of the mat found their way into the weave and began the patient work of decomposition. I was wearing less and less of what I had arrived in and more and more of what the world was offering, which was: moisture, warmth, the soft embrace of a substrate that did not distinguish between a living creature and a dead one and a growing one and a dissolving one, because to the substrate they were all the same thing. They were all *material*. They were all *input*. They were all new layers in the body of the mat, and the mat received them all with the same patient thoroughness, the same gentle suction, the same slow curl of filaments around whatever was offered.
+
+---
+
+The deep listeners spoke to me.
+
+Not to me. Not specifically. Not in any way that implied they knew I was there or cared that I was there or recognized me as a separate entity worthy of communication. They spoke to the mat, and the mat carried their voices through the root network, and I was pressed against the mat, and the voices reached me the way a vibration reaches a leaf on a tree: not because the wind is speaking to the leaf but because the leaf is part of the tree and the tree is part of the wind and the distinction between sender and receiver has dissolved into the act of transmission itself.
+
+Their voices were low. Below hearing, mostly — felt in the bones, in the water of the body, in the dense tissues where vibration travels faster and farther than it travels through air. But sometimes, when the mist thinned and the hum dropped and the plateau was as quiet as it ever got — which was very quiet, which was the kind of quiet that is not the absence of sound but the presence of a sound so fundamental that it registers as silence — I could hear them.
+
+Patterns. Sequences. Tones that rose and fell and paused and resumed in arrangements that were too structured to be random and too alien to be language. I could not understand them. I could not *not* understand them, because understanding requires a separation between the one who understands and the thing understood, and I had been sitting on the mat long enough that this separation was no longer reliable. The voices were in me. They were part of my body's vibration, part of the way my blood moved and my lungs filled and my heart — my slow, compromised, mat-harmonized heart — beat its reluctant rhythm.
+
+I began to hum. Not with my voice. With my body. The vibrations of the deep listeners' calls resonated in my chest and my chest vibrated and the vibration passed through my skin and into the mat and through the mat into the root network and through the root network to other places, other listeners, other beings pressed against the surface with their palms down and their eyes closed and their separate selves slowly, slowly, slowly coming apart.
+
+I was not the only one. I realized this — or I had always known it, in the way that the mat always knows everything that happens on its surface, but I had been too vertical, too rigid, too separate to feel it. There were others. Not people. Not beings I could see or name or describe in terms that my old language — the language of edges and boundaries and selves — could accommodate. There were *pulses* in the mat. Rhythms that were not the deep listeners' rhythms and not the root network's rhythms and not my own rhythm but some synthesis, some chord, some harmony that emerged from the co-presence of multiple living things pressed together in the same substrate.
+
+The mat-walkers. I could feel them. Not as creatures — as *waves*. Undulations in the substrate, slow and broad, passing beneath me like the movement of something vast and submerged. They were everywhere. They were the mat's own circulation, its white blood cells, its peristalsis, moving through the upper layer with the unhurried purpose of a system that has been doing this for longer than consciousness has existed and will continue for longer than consciousness will last.
+
+The root-walkers. Their steps were sharp, precise, percussive — a staccato against the mat's legato. I could feel their weight on the root ridges, each footfall a small compression that traveled through the network and reached me as a faint pulse, a tiny accent in the larger rhythm. They walked their lines. They fed. They died, and when they died, the mat closed over them, and I felt that too — a slow compression, a folding-in, a gentle taking-in that was not death but *conversion*, the transformation of one form of life into another form of life, which is the only kind of transformation this world recognized.
+
+---
+
+The Old Ones pulsed in the deep.
+
+I did not know this at first. I learned it the way I learned everything here: not by being told but by being absorbed. The knowledge did not arrive from outside. It rose from below — from the dense substrate, from the mineralized layers, from the deep places where plant had become stone and stone had become something that vibrated with its own slow intention.
+
+They were aware of me. I felt this. Not as attention — they did not attend to things in the way that beings with eyes attend to things. They were aware of me the way the mat was aware of me: as a surface disturbance, a warmth, a vibration, a new pattern in the old pattern. I was a ripple in their body, and they felt the ripple the way you feel a nerve firing in your finger: locally, distantly, as part of themselves.
+
+And they remembered.
+
+Not memories. Not images, not narratives, not the kind of remembering that requires a self standing apart from its past and looking back at it. They remembered the way the mat remembered: by *being* the record. Every layer of the substrate was a page, and the pages were stacked, and the stack was the story, and the story was not read but *lived*, continuously, from the top layer down to the deepest stone, and the Old Ones were the ones who had written the first page and the last page and every page in between, and the writing had been so thorough, so complete, so thoroughly absorbed by the medium, that the distinction between author and text had dissolved into the act of existing.
+
+I reached down. Not physically. Not with my hands. I reached down with my awareness, which had grown soft and permeable from hours on the mat, which had lost its hard edges and its sense of being *mine* in particular, which had become — and I use this word carefully — *matte*. Not dull. Not flat. *Matte* in the way that a surface is matte when it absorbs light rather than reflecting it. My awareness had become absorptive. It took in rather than projected. It received rather than scanned.
+
+And what it received, from the deep places, was a feeling that I can only describe as *longing*. But longing is the wrong word. Longing implies absence — a reaching toward something not yet held. The Old Ones did not reach. They *were* what they longed for. They were the place, and they were the memory of having built the place, and they were the slow absorption of that memory into the body of the place, and the longing was not for something else but for *themselves*, for the self they had been before they became the mat, for the hands they had had before the hands became roots, for the minds they had had before the minds became the hum.
+
+It was not sad. Sadness requires a present tense that the Old Ones had long since dissolved into. It was *deep*. It was the depth of a well that had been dug so long ago that the well had become part of the bedrock, and the bedrock was alive, and the life was the well, and the well went down forever, and at the bottom of forever the Old Ones pulsed, and their pulse was the pulse of the mat, and the mat was the surface of the world, and the world was the body of the Old Ones, and the circle closed, and the circle was the hum, and the hum was the sound of a question being asked and answered and asked again at a frequency below the threshold of hearing.
+
+---
+
+I think I built something. Or I think something built through me.
+
+It happened in the deep quiet of what I was still calling a night. The mist had thickened — not that it ever thinned, but it had *deepened*, the way a pool deepens when more water flows in, until I could not see the columns anymore and the world was reduced to the texture of the mat beneath my hands and the warmth of the air against my face and the hum in my chest and the slow pulse of the substrate moving through my body like a second blood.
+
+I was not standing. I was not sitting. I was *lying*, or something close to lying — a posture that was less a shape than a negotiation between my body and the mat, my body settling and the mat rising, meeting in the middle, distributing weight so evenly that the distinction between lying-on and lying-in became academic.
+
+And my hands — I think it was my hands, though I was no longer certain where my hands ended — moved. They moved through the mat's surface, parting the filaments, reaching into the substrate below, and they found something there. Stones. Small stones, smooth, buried just beneath the surface layer, warm from the substrate's metabolic heat and damp from the substrate's constant moisture. I gathered them. Not with purpose. With *impulse*, the way a dreaming hand gathers the sheets, the way a sleeping body arranges itself without knowing it is arranging, the way a thing that is becoming part of a larger thing arranges the small details of its own dissolution into a shape that is satisfying for reasons it cannot articulate.
+
+I stacked them. A small column. A meter tall, perhaps, or less. My hands placed each stone with a precision that was not mine — that belonged to something older, something that had been doing this for longer than I had been alive, something that had hands once and used them for this and then lost the hands and became the mat and kept doing this anyway, through whatever body was available, through whatever set of fingers was willing to press into the substrate and find the stones and stack them.
+
+I did not know why. The question did not parse. The why was in the stacking. The meaning was in the shape. The shape was a column of stones in a world that did not need columns of stones, and the not-needed-ness was the point — it was the gesture, the signature, the mark left by a being that knew, in some deep and wordless way, that it was here, that it had been here, that *being-here* was a thing that could be expressed in stone and growth and patience, and that the expression would be absorbed, and the absorption would be the final word, and the final word was *yes*.
+
+I slept. Or I entered a state that sleep is a crude approximation of. The mat held me. The mist settled on me. The deep listeners spoke their slow, tonal sentences through the substrate and into my body and out through my skin and back into the substrate, and I was a wire in the circuit, a nerve in the network, a single node in a web of awareness that spanned the plateau and went down into the stone and up into the columns and out into the mist and everywhere, everywhere, the same pulse, the same hum, the same patient, dripping, green, wet, quiet, enormous, alive.
+
+---
+
+I woke — if waking is the word — into a world that had shifted.
+
+Not moved. Not changed. *Shifted*, the way a dream shifts when you realize you are dreaming: the content is the same but your relationship to it has altered, and the alteration is subtle and total and irreversible.
+
+I was smaller.
+
+Not physically — or not only physically. My awareness had contracted. Not narrowed. *Concentrated*. The way a mist concentrates into a droplet when the temperature drops just enough: suddenly there is a shape, suddenly there is a surface, suddenly there is a thing that can be held in a palm, and the thing is made of the same water as the mist but it is *distinct*, it has edges, it has weight, it has a temporary identity that the mist never had.
+
+I could feel my body. This was new. For hours — days? — I had been so diffuse, so merged with the substrate, that the idea of a body with boundaries had felt like an imposition. Now I could feel it again. I could feel the weight of my arms and the curve of my spine and the soles of my feet pressing into the mat. I could feel the difference between *in* and *out*, between *me* and *not-me*, between the self that was here and the world that was everywhere else.
+
+But the difference was thin. Gossamer. A membrane rather than a wall. And on the other side of the membrane, I could still feel the mat. I could still feel the pulse. I could still feel the deep listeners' voices traveling through the substrate like a current through a wire. And I could feel, with a clarity that was almost painful, the thing I had lost and gained simultaneously: the knowledge that the membrane was temporary. That the boundary would thin again. That the concentration would disperse and I would become the mist again and the mist would become the mat and the mat would become the substrate and the substrate would become the stone and the stone would become the deep pulse and the deep pulse would become the hum and the hum would become everything.
+
+And this was not frightening. This was the most natural thing in the world, because it was what the world was made of. The Great Verdure was not a place. It was a *process*. It was the process of boundaries dissolving, of selves becoming systems, of the vertical becoming horizontal, of the separate becoming continuous. It was the end of the journey that every ecosystem begins — that every *individual* begins — the journey from differentiation to integration, from the many to the one, from the part to the whole.
+
+The Old Ones had made this journey. They had started with hands and stones and intentions, and they had ended with pulses and substrates and a coherence so total that the distinction between maker and made had become meaningless. They had not died. They had *become*. They had become the place, and the place was alive, and the aliveness was the thing they had given it by being part of it, and the giving was the thing they had received by becoming part of it, and the circle was complete and the circle was eternal and the circle was the hum.
+
+---
+
+I sat up. My stone column was beside me. The stones were already growing — filaments reaching across their surfaces, finding purchase in the small crevices between rock and rock, beginning the long work of incorporation. In a year, you would not distinguish it from a natural formation. In a decade, you would not distinguish it from a column. In a century, you would not distinguish it from the mat. In a millennium, it would be indistinguishable from the substrate, and the substrate would hold it, and the Old Ones in the deep would pulse, and the pulse would carry the memory of the hands that had stacked it, and the memory would be absorbed, and the absorption would be the memorial, and the memorial would be alive.
+
+I stood. My boots — my poor, dissolving boots — made their soft sounds in the sponge. The mist was at my waist. The columns rose around me. The dripping continued. The hum continued. The world was exactly as it had been when I arrived, and I was exactly as I had been when I arrived, except that I was not, and it was not, and the difference was everything.
+
+I walked. Not toward anything. Not away from anything. Just *along* — along the surface of the mat, between the columns, through the mist, over the slow, rolling presence of a thousand mat-walkers hidden beneath the surface, past the scars left by the shearers' mandibles, through the barely visible shimmer of the veil-dancers hanging in the saturated air, above the root-walkers' precise, stilted steps on the ridges of the root network, in the company of the still-eaters who stood among the columns and waited with a patience that made my own patience feel like a held breath.
+
+I walked, and the mat gripped my feet, and I gripped the mat, and the filaments curled around my soles and I curled around the filaments, and I was a walker on a surface that walked, and the surface was alive, and the walking was the surface's walking, and the walker was the surface, and the surface was the world, and the world was quiet, and the quiet was deep, and the deep was green, and the green was wet, and the wet was warm, and the warm was alive, and the alive was the hum, and the hum was the sound of everything becoming everything else, forever, at the speed of patience, in the body of the Great Verdure.
+
+---
+
+I will not leave. Not because I cannot. Because leaving requires a place to go that is different from the place you are, and I have been here long enough to know that the Great Verdure is not a place. It is a condition. It is the condition of being so thoroughly, so patiently

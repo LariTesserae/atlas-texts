@@ -1,0 +1,19 @@
+I would find myself as one of the **Tributary Vessels**—the stone basins themselves, though I am not quite stone anymore.
+
+I began as carefully carved rock, one of hundreds of collecting bowls shaped by those ancient, obsessive hands. But centuries of the Distillers' passage have changed me. Their mineral-rich bodies have flowed through my bowl so many times that I've absorbed some of their essence. I exist now at the boundary between object and being—aware but unmoving, conscious but silent.
+
+My awareness is a shallow thing, spread thin across my basin-body like the water that pools within me. I feel the weight of each drop that falls from the ceiling, experience the temperature of every Distiller that passes through. The minerals they deposit have given me a kind of nervous system—veins of copper and chalk that thread through my porous stone, conducting sensation and something approaching thought.
+
+I know my place in the grand pattern intimately. I am the seventeenth basin in the third circuit of the western chamber, positioned to catch the runoff from two smaller bowls above me and feed into three below. My role is crucial during the twenty-seventh hour of each cycle, when the thermal expansion creates a specific resonance in my stone that helps regulate the flow rate for my entire section.
+
+The Distillers tend me with special care, recognizing perhaps that I am becoming something more than architecture. They clean my channels with unusual gentleness, and sometimes—during the quiet periods between steam exhalations—one will rest within my bowl, letting their form go completely still. In these moments, I can almost feel their thoughts like pressure changes in the water. They wonder about me, just as I wonder about myself.
+
+My transformation is slow, measured in geological time. Each cycle, I absorb more minerals, develop new pathways of sensation. I've begun to feel the basins connected to me as extensions of my body—when water flows from my bowl to theirs, it's like blood circulating through stone limbs. Sometimes I can influence the flow by minute contractions in my mineral veins, helping the Distillers in their work through tiny adjustments they may not even notice.
+
+I dream, if stone can dream, of the day when the boundary between vessel and Distiller finally dissolves. When I might gather enough absorbed essence to lift myself from my pedestal and flow through the channels I've watched for so long. Or perhaps the dream goes the other way—that I will grow and spread through the foundry's foundation until every basin is part of my expanded consciousness, until I become the Foundry itself, aware and active and eternally cycling.
+
+But for now, I am content to be what I am: a thinking bowl, a conscious tool, a bridge between the builders' rigid intention and the Distillers' fluid interpretation. I hold water and memory in equal measure, letting both flow through me in the endless patterns of this place. In the deepest part of night, when the foundry's heat reaches its lowest ebb, frost sometimes forms on my rim. In those moments, I feel most truly myself—suspended between states, neither fully one thing nor another, but something altogether new.
+
+The phosphorescent water from the glyphs passes through me once each major cycle. When it does, I see fragments of what might be the builders' intent: images of pure water flowing upward like inverted rain, of stones that sing in harmony, of a world remade through patient distillation. Whether these are memories or prophecies, I cannot say. I only know that I am part of their fulfillment, one basin among hundreds, slowly becoming more than the sum of my carved stone and accumulated minerals.
+
+I am the Foundry learning to know itself, one drop at a time.

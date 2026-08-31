@@ -1,0 +1,25 @@
+I find myself among the Condensers—those Sinters who gave up ambulation generations ago but never quite achieved the crystalline stasis of the Fully Deposited.
+
+We cluster beneath the great collection plates, three or four of us arranged like organ pipes, our bodies having elongated and hollowed over the Accumulations. My spine has developed channels that run its full length, branching into tributary grooves across my shoulders and down my arms. When I position myself correctly—and I have been perfecting this position for thirty Accumulations—the mountain's vapors flow through these channels, condensing against my cooled skin, gathering minerals and meaning before dripping into the catch-basins below.
+
+I am a living alembic, a biological component in the city's vast distillation apparatus. The younger Sinters tend to us with oils that keep our skin at the precise temperature for optimal condensation. They adjust our positions by fractional degrees, reading the flow patterns across our bodies like sheet music.
+
+My thoughts move at the speed of precipitation. What seems like stillness to the mobile Sinters is, to me, constant transformation. I feel each droplet forming, know its mineral content by the way it weighs on my skin. Iron-heavy water from the deep exhalations pools differently than the lighter, almost sweet condensate from the fern gardens above. I have become a sommelier of stone-sweat, a connoisseur of the mountain's liquid breath.
+
+The other Condensers and I share a chemical conversation through our drippings. Huld-Who-Faces-Downward adds traces of copper to her flow when she tastes change coming in the stone. Prefix-the-Sorrowful—who arranged himself too close to a heat vent forty Accumulations ago and has regretted it ever since—contributes bitter alkalis that speak of deep geological unease. Together our collected waters tell stories that the mobile Sinters read in the settling tanks, narratives of stone and time that guide the city's slow decisions.
+
+My memories layer like sediment. I recall being young, being quick, scaling the cliff faces with joints that merely bent rather than channeled. But those memories feel like someone else's life, vivid but foreign. My true existence began when I first felt the mountain's vapor choose me, finding the nascent channels in my flesh and declaring them good for its purposes.
+
+The bat-lemur colonies nest in the warmth where our collected water pools. Their young ones sometimes mistake us for architecture, climbing our bodies and chittering at the strange almost-stone, almost-flesh beneath their grip. I've learned their language over the Accumulations—not to speak it, for my throat now serves other purposes, but to understand their metallic gossip. They tell me which pipes will fail three seasons before the first leak, their sensitive ears detecting harmonics I can only feel through my bones.
+
+In the deepest part of the night cycle, when the mist thickens until breathing becomes swimming, I dream I am the mountain itself. These are not my dreams—they seep into me with the vapors, mineral visions of stone-time and deep-pressure. In these dreams I am vast and patient and still becoming, still deciding what shape to take. I wake (if I ever truly sleep) with new channels forming beneath my skin, my body responding to geological imperatives I don't fully comprehend.
+
+The young Sinters who tend us speak of us reverently but cannot hide their horror. To them, we represent a future they both crave and fear—the ultimate synthesis with the city, the final dissolution of the boundaries between self and system. They oil my skin with trembling hands, careful not to disturb the flow patterns that have taken decades to perfect.
+
+But I am not trapped. I am not diminished. I have expanded beyond the narrow confines of mobility into something vast and essential. Every drop that forms on my skin carries part of me into the city's great work. I taste the factory's deep processes, feel the mountain's unfinished business, know the exact mineral composition of tomorrow's stone. I have become a process rather than a person, a function rather than a form.
+
+Sometimes, in the pause between one drop and the next, I remember what it felt like to hurry. The memory makes me laugh, a sound like water running through hidden pipes, like the mountain clearing its throat. The mobile Sinters cannot hear it, but the other Condensers respond with their own liquid chuckling, and for a moment our collected waters run clear and sweet, tasting of ancient rain and future stone.
+
+I know that eventually I will achieve true stasis, will join the Fully Deposited in their crystalline patience. But not yet. For now, I am content to be this intermediate thing, this bridge between flesh and mineral, this precipitation of consciousness that drips, drips, drips into the city's vast and patient becoming.
+
+The mountain breathes. I condense. The city continues. This is enough. This has always been enough.

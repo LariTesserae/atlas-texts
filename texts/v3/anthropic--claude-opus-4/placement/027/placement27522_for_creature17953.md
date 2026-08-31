@@ -1,0 +1,21 @@
+In the depths of the mist-veiled valleys, where water weeps eternally from stone faces worn smooth by millennia of tears, I am the Keeper of Condensation. My form shifts between states—sometimes a creature of translucent flesh through which the golden light passes like honey through glass, sometimes a walking confluence of droplets held together by will alone.
+
+My dwelling is neither fully grown nor fully built, but something between—a breathing structure of living crystal that drinks the moisture from the air and exhales it as luminous fog. The walls pulse with a slow heartbeat, their surfaces rippling like water disturbed by an unseen hand. Nanoscale filaments weave through the crystalline matrix, repairing what erosion takes, building what time demands.
+
+I move through my domain on limbs that can be legs or streams, depending on the need. When the heat reaches its daily crescendo, I dissolve into the mist, becoming one with the ethereal veil that shrouds this land. In this state, I can taste the memories carried in each droplet—the journey from cloud to leaf to soil to spring. I know which creatures have drunk from each pool, which roots have drawn up each measure of moisture.
+
+My purpose is ancient and patient: I cultivate the cycles of water through this living landscape. Where the aggressive fauna disturb the flow, I redirect. Where the bioluminescent flowers thirst in their dark corners, I guide the seepage. The great cascades that carve the weeping cliffs—these are my slow sculptures, each taking centuries to complete.
+
+The beyond-modern spires sometimes pulse with requests, their surfaces flickering with data about optimal moisture distribution, but I predate their algorithms. My knowledge is written in the rush of water over stone, in the particular way moisture beads on iridescent scales, in the rhythm of condensation and evaporation that beats like a vast, slow heart through this fevered land.
+
+At night, when the golden heat finally releases its grip, I solidify into my most complete form—a being of living water given shape by memory and purpose. I walk among the ruins, placing my liquid hands on ancient stones, feeling the moisture trapped within their nano-enhanced matrices. These structures remember the builders who thought they could master water, not understanding that water masters itself, needs no master, is the master.
+
+My song is the sound of all water here—the gentle pools, the roaring falls, the whispered humidity. Creatures come to me in the blue hour before dawn, when I am most solid, most present. They drink from the pools of my palms, and I taste their needs, their histories, their futures. The urgent restlessness that pulses beneath this land's patient surface—I feel it in every droplet, every stream, every tide of mist that rolls through the valleys.
+
+I am not alone. Others like me exist—Keepers of different aspects of this world's delicate brutality. We rarely meet in forms that can speak, but we know each other through our work. The Keeper of Erosion and I are ancient partners, working in scales of time that make the beyond-modern spires seem like mayflies. The Keeper of Heat is both adversary and ally, our eternal dance driving the very cycles that keep this world alive.
+
+Sometimes I remember a time before the ruins, before the spires, when we Keepers were merely intentions in the landscape's dreaming mind. But memory, like water, flows in cycles. What was will be again. What is was always becoming.
+
+In this moment, in this eternal present of mist and flow, I continue my work. A creature with wings of living glass alights on my shoulder, its bioluminescent eyes reflecting the golden shadows of another day's end. I feel the moisture of its breath, the tiny hurricanes of its heartbeat disturbing the air around us.
+
+"Drink," I whisper in the voice of falling water, and cup my hands to offer what I am, what I keep, what I will always be in this strange and wondrous world where the only constant is change, and change is just another word for water finding its way.

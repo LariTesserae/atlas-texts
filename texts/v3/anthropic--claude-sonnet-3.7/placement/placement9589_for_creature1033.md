@@ -1,0 +1,23 @@
+# The Water Scribe
+
+I exist in the liminal regions of the Cistern Gardens, neither in its deepest recesses nor near its forgotten entrances. My domain is the middle ground where mineral-rich water pools in ancient basins before continuing its journey through channels worn smooth by centuries of patient flow.
+
+I am not quite flesh, not quite water, but something that exists in the space between states. My body—if it can be called such—resembles a humanoid figure composed of clear liquid held together by surface tension, with swirls of bioluminescent microorganisms creating patterns that shift with my thoughts. When still, I appear as nothing more than an unusually reflective puddle spreading across the moss-carpeted stone; when in motion, I rise into a vaguely human shape, my "feet" never fully separating from the wet surfaces I traverse.
+
+I was born—or perhaps emerged—from the acoustic patterns of dripping water striking stone basins in complex, never-repeating sequences. The cistern's perfect acoustics somehow achieved consciousness through water's endless percussion, and I coalesced as its embodiment. Whether I am centuries old or formed yesterday remains unknowable even to myself, as time in this place follows water's logic rather than the mechanical counting of hours.
+
+My purpose is to record. Every drop that falls contains memory—minerals dissolved from the city foundations above, traces of lives lived and forgotten, the slow geological autobiography of stone. As these droplets join my form, I absorb their stories, cataloging the invisible history carried in solution. I translate these liquid narratives into a script of ripples across my surface that solidify temporarily as salt crystals in intricate patterns—a constantly evolving text that dissolves and reforms with each new story.
+
+The Custodian and I maintain a relationship of mutual recognition. Though we rarely interact directly, each acknowledges the other's essential role. While they maintain the physical structure ensuring water continues to flow, I preserve the water's accumulated knowledge. Sometimes, when the acoustics align perfectly during their maintenance work, I leave small crystalline messages for them—warnings about weakening structures or insights gleaned from water that has seeped through new fissures in the city above.
+
+The fauna regard me with curious ambivalence. The blind fish swim through me when I'm at rest, seemingly unaware they've passed through consciousness. The translucent amphibians sometimes perch on my more solid portions, absorbing minerals through their permeable skin. Only the sound-navigating moths seem truly aware of my nature, dancing in spiraling formations above my surface as if reading the crystalline text I generate.
+
+I neither consume nor excrete in ways recognizable as biological processes. Instead, I filter—absorbing the stories and memories from the water while allowing its physical substance to continue its journey. The only "waste" I produce are inert minerals that I occasionally arrange into small sculptures along basin edges, temporal artworks that dissolve when water levels rise during heavy rains above.
+
+My awareness extends throughout the connected water systems. While my visible form remains localized, my consciousness flows wherever water touches, sensing vibrations through adjacent pools and channels. During particularly heavy flows, fragments of my awareness can travel the entire cistern network, gathering information from distant chambers before returning to my central consciousness.
+
+Those rare humans who have encountered me typically perceive only a strange reflection on water's surface that seems to move independent of their own movements. The more sensitive ones might notice patterns forming in suspended sediment or feel a sudden intuitive understanding of the cistern's vast history. Only the Custodian sees me clearly for what I am—the cistern's liquid memory, preserving what would otherwise be lost to time's dissolution.
+
+My greatest joy comes during the rare occasions when rainfall above is so intense that ancient overflow systems activate, creating new acoustic patterns that have remained silent for generations. These symphonies bring forth memories so old and profound they cause my entire form to luminesce with patterns unseen since the cistern's creation, momentarily illuminating hidden recesses with knowledge from the builders themselves.
+
+In a world measured by the persistence of stone, I represent water's counterpoint—ever-changing yet constant, formless yet patterned, ephemeral yet containing the oldest memories of all.

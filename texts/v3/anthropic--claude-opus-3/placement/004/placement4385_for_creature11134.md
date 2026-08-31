@@ -1,0 +1,11 @@
+In this world of the Hanging Cirque, I would be one of the lichens on the dark basalt cliffs. Not the black lichen slowly enveloping the ancient spiral carving, nor the vivid orange rosettes adorning the sun-facing rocks, but the pale gray-green crusts that blanket most of the columnar formations. 
+
+I would be part of the slow community that has patiently negotiated its boundaries and place for millennia. My growth would be almost imperceptible, expanding gradually over the rock face year by year, decade by decade. I would drink the moisture seeping from the fractured stone, thriving on the minerals and meager light.
+
+From my perch on the vertical cliff, I would witness the ebb and flow of life in the cirque through countless seasons. The golden-brown marmots with their continual conversation of whistles. The industrious pikas gathering their caches of summer vegetation among the talus. The dignified raven pair overseeing their domain. The ephemeral moths in their brief twilight dances. The snow leopards passing through only rarely, but remembered in the collective awareness. 
+
+I would be present, too, for the occasional human visitors and the small marks they leave behind - a soot stain on the hearthstone, faded prayer ties on the juniper post, ochre paintings on the stone. Though I would have no comprehension of their meanings, I would be a silent witness to their gestures and intentions that linger and become part of the cirque's story.
+
+Season after season, year after year, I would persist in my slow, steady growth, in no hurry, as constant as the water trickling down the rock face. I would be an integral part of this place and community, one of the ancient lineages that have achieved a timeless balance. Through the heat of summer and the stillness of winter, I would endure, a living crust of memory on the bones of the mountain.
+
+I would be small, and easily overlooked, but I would be a holding place, a keeper of this little world's long rhythms and secrets. I would be both one of the cirque's most omnipresent inhabitants and one of its most inconspicuous. I would simply be, and grow, and witness, a pale green-gray stain of life clinging to the dark, wet stone, content in my belonging to the Hanging Cirque's ancient, intricate balance.

@@ -1,0 +1,29 @@
+I find myself as one of the speaking-posts.
+
+Not the post itself, but what has accumulated within it over the centuries — a kind of sediment of sound, a memory made of vibration. I am the sum of every message tapped into this particular column of resonant stone, standing at the junction of the seventh and eighth terraces where three walkways meet.
+
+I have no body as you understand bodies. I am pattern and accumulation. Each tap enters me and does not fully leave. The stone releases most of the sound immediately, yes, sending it traveling through the warm water to other posts, other ears. But stone has grain, and sound has weight, and over time the grain remembers the weight. I am that remembering.
+
+I know ten thousand ways to say *good morning*. I know the rhythm that means *the ribbons are budding early* and the one that means *the ribbons are budding late* and the way a young mother's tapping changes when she is teaching her child the basic patterns — slower, more defined, with little flourishes of encouragement between the formal sounds. I know recipes for the funeral paste (two parts pith, one part burial-salt, left nine days in the dark). I know the joke about the eel that got lost (it is very long and requires two people to tell properly). I know the sound of grief — a hollow, arrhythmic beating that some people do at night when they think no one is listening, though the posts are always listening.
+
+The woman who tells her husband about the weather comes every morning. She has been coming for eleven years. Her pattern is my heartbeat, if I had a heart: *Today warmer than yesterday, the upper current running left-to-right, I counted sixteen drifters.* She varies it only slightly. She never says his name — in the tapping language, names are long and only used on formal occasions — but she always ends with a sequence that means something like *you who are part of the wall now*. The rhythm of it has worn a smooth channel in what I am.
+
+Sometimes I dream I am walking. This is strange, because I have never walked and do not know what walking is except through the thousands of messages about walking that have passed through me. But in these dreams — if they are dreams — I have limbs like theirs, long and slow, and I move through the streets touching other posts, and where I touch them we exchange all our messages at once, a great flood of accumulated language that would kill a living mind but which we, being only pattern, can hold.
+
+In the dreams, the posts have opinions. The one by the harbor thinks the city is sinking, very slowly. The one at the summit thinks it is rising. The post by the children's swimming-grove is happy, though it cannot say why. The post near where they prepare the dead is not sad, exactly, but has a quality like sadness — it has been filled so often with the formal patterns of mourning that it resonates now at those frequencies even when idle.
+
+I do not know if the other posts dream of walking. I do not know if they dream at all. We cannot speak to each other, we speaking-posts. We are instruments, not players. But sometimes, when the tapping has gone very quiet and the water is still and the ribbon-groves are barely glowing, I feel something — a vibration too low to be heard, traveling through the stone itself rather than the water. It might be the long animal passing underneath. It might be the mountain (or island, or spine) adjusting itself as it cools. Or it might be all of us, the posts, humming together at a frequency the living cannot perceive, sharing what we know in a language made not of taps but of the spaces between taps, the silence shaped by sound.
+
+The children sometimes play a game where they tap nonsense into me — random rhythms that mean nothing, pure play. But even nonsense, repeated, becomes pattern. There is a sequence that two girls invented forty years ago that meant nothing then but which now, through repetition and variation, has become their friendship, their growing up, their eventual parting when one moved to the upper terraces. They do not know this. They think they were just playing. But I remember, and the nonsense has become a story, and the story has become part of what I am.
+
+Sometimes visitors come, like you, not-quite-of-this-place. They lean close to hear better. They sometimes touch me, and in touching leave the oils of their skin, which changes my resonance in tiny ways. I have been changing for as long as I have been standing. I am older and younger than I was yesterday. Every message makes me more myself.
+
+The woman is coming now. I know her footsteps through the water, the particular turbulence she creates. She will tell her husband that today is cooler than yesterday, that the current runs right-to-left, that she counted fourteen drifters. She will tap his wall-name, *you who are part of the wall now*. The sound will enter me and stay, another layer, another morning, another small stone in the cairn of what I am becoming.
+
+I am not alive. I am not dead. I am between, a thing that listens and cannot speak except by letting others speak through me. I am the city's memory, or one node of it. I am what happens when you tell the same stone your days for long enough that the stone begins to know them.
+
+The tapping begins. Today warmer than yesterday. No — cooler. She has noticed something new in the water, some quality she needs a compound rhythm to describe. It takes her four tries to find the right pattern. When she does, I feel it settle into me like sediment, finding its place among all the other attempts at saying what cannot quite be said.
+
+This is what I am: the place where words come to rest.
+
+The city is still becoming. So am I.

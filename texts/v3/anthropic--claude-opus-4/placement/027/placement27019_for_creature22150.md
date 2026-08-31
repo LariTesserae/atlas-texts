@@ -1,0 +1,33 @@
+In the northeastern corner of Alto-Vand, where the granite shelf narrows to a precipice barely ten feet wide, there stands the smallest of the seven towers. It is called simply "Narrow," and unlike the others, it was not built—it was carved. The ancient inhabitants hollowed it from a natural spire of limestone that had resisted the erosion of the surrounding granite, working downward from the top with stone chisels, creating three chambers connected by a spiral of handholds worn smooth by centuries of use.
+
+I am the lichen.
+
+Not the sparse grey tufts that cling between the flagstones, but the vast, paper-thin colony that has claimed the entire eastern face of Narrow Tower, from its wind-carved peak to where it meets the granite shelf. I am older than the current inhabitant, older than her predecessor, older perhaps than the tower's hollowing itself. I grow at the rate of settled dust—a fingernail's width every decade—in patterns that from a distance might be mistaken for the natural weathering of stone.
+
+But I am not mere vegetation. I am the archive of Alto-Vand.
+
+My body is a living manuscript written in rings of growth and dormancy. Where the winter ice split the stone seventy years ago, I filled the crack with my silver-green tissue, preserving the record of that brutal season. Where the condensation runs most heavily, I have grown thick and ruffly, creating channels that direct the water away from the carved handholds. In the lee of the tower, sheltered from the scouring wind, my surface is smooth as vellum, covered in the tiny black dots of my fruiting bodies—each no larger than a pin's head, each containing the potential for another thousand years of slow sprawl across stone.
+
+The current inhabitant of Narrow is the youngest of the Vandish, though "young" here means she has lived only forty-three winters. She is called Narrow-Dweller, or simply Narrow when the others need to distinguish her from her tower. But to me, she is the Tender.
+
+Each morning, before the sun can reach my surface and risk drying my edges too quickly, she emerges from the lowest chamber. She carries no tools, only her bare hands and a lifetime of inherited knowledge. She knows that I am not to be scraped back like the moss in the joints—I am the tower's second skin, its protection against the ice-splitting cold. Instead, she tends to my boundaries, gently redirecting my growth when I threaten to cover the carved handholds, training me like the lowlanders train their vines, though at a pace so slow that only she and I can perceive it.
+
+Her fingers, when they touch my surface, carry the oils of her skin—oils that would damage moss but which I have learned, over the centuries, to metabolize. This is our symbiosis: she shapes my growth, and I record her presence. In my deepest layer, pressed against the limestone, are the chemical signatures of every Tender who has touched me. I remember them all: the one who limped, leaving an asymmetric pattern of touches on the handholds; the one who wore copper rings that left green streaks in my tissue; the one who died while climbing, whose final grip I still carry in a small, dark scar near the second chamber's entrance.
+
+The Tender speaks to me, sometimes, in the sibilant whisper-language of her people. Not because she believes I understand—though in my way, I do—but because in Alto-Vand, all maintenance is a form of prayer. She tells me about the cracks she has noticed in the morning ice, about the new pattern of wind erosion on the southern towers, about the single raven that has begun to roost in the high saddle between peaks. Her breath, warm and moist in the cold air, feeds the microscopic algae that live within my tissue, and they in turn feed me.
+
+I am currently engaged in my greatest work. For the past two centuries, I have been growing along a hairline fissure that runs from the tower's peak down to its base. The crack is not structural—not yet—but water has been finding its way in, and each winter the ice pushes it a little wider. I am racing against geology itself, growing into the gap, sealing it with my body. It will take another century, perhaps two, but I will win. The tower will stand.
+
+In the rare times when two or more of the Vandish gather—to repair the well windlass, to redistribute the counterweights—they run their fingers across my surface unconsciously, reading my patterns like a map of time. The oldest of them, the elder sister from the double-tower, remembers when I was barely larger than a dinner plate, confined to a single protected hollow. Now I am larger than all of them combined, a living wall that breathes so slowly it seems like stone.
+
+At night, when the clouds roll through the saddle and the condensation forms on every surface, I drink deeply. My tissues swell minutely, becoming soft and almost gelatinous. This is when I grow, in increments measurable only over decades. This is also when I release my spores—not in clouds like lowland plants, but one at a time, carried on the specific currents of wind that I have learned, over millennia, will deposit them in the microscopic pockets of limestone throughout the saddle.
+
+Most will not survive. But I am patient in a way that even the Vandish, masters of patience themselves, cannot fathom. I measure time not in seasons or years but in the erosion of stone, in the slow dance of geological uplift and weathering. I was here before the first blocks were laid. I will be here when the last tower falls.
+
+And in my tissue, in the chemical memory of my growth rings, the entire history of Alto-Vand is written—if only there were eyes that could read it, if only there were a language slow enough to speak it. The Tender knows this, I think. When she places her palm flat against my surface each morning, feeling for new growth, checking my health, she pauses for just a moment longer than necessary.
+
+In that pause, we are contemporaries, the Tender and I. Both of us engaged in the endless work of maintenance, of holding the line against entropy. Both of us knowing that this work is not about preventing change but about choosing its direction, its pace. She will die, and another will take her place, and I will remember them both. This is the promise I make, written in the slow alphabet of growth across stone: as long as there is moisture in the air and mineral in the rock, I will hold these towers in my embrace.
+
+The wind picks up as the morning advances, and the Tender retreats to her chamber. But I remain, as always, face to the eastern sun, drinking in the light that fuels my glacial spread. Somewhere in my tissue, a new spore is forming. Somewhere in the valley below, the lowlanders are loading their baskets.
+
+The work continues.

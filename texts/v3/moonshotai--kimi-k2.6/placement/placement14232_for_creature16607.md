@@ -1,0 +1,33 @@
+I rest in the only shadow that does not heal.
+
+It is not a true shadow, of course. In this place, shadows are not absences but wounds—narrow lacerations cut by the knife of the overexposed sky. The light here is a solid, a silvery-white pressure that bleaches the retinas of the world, and where it is blocked, the world does not darken so much as *bruise*. My bruise is the crack that runs through the heart of the single boulder on the shingle floor, the one toward which the western spire’s shadow has pointed since before the concept of pointing existed. I am inside that crack. I am the splinter that never fell out.
+
+I did not choose this. I was flown, as all my kind are flown, locked into a trajectory that described a long, lazy helix between the eastern cloud bank and the lee of the northern flutes. For centuries—though the word is a foreign coin here, spent without meaning—I beat my wings not in time with my own heart but in resonance with the Chord, that single sustained note that fills the Cirque like water fills a drowning lung. I was transparent, a lens of seeded quartz, a finger-joint length of geometry refracting the merciless light into static rainbows. I was alive, which is to say I was suspended, fed by spores and rime-droplets held in the vibration, moving through a groove worn into the air by a million years of identical weather.
+
+Then my hydrogen failed. Or perhaps it was my geometry. The distinction does not matter. What matters is that I ceased to be buoyant enough for my orbit, and I ceased to be heavy enough to fall. I drifted, as the dead do, toward the lower walls where the iridescent drifts accumulate. But a current—some micro-eddy, some whisper of turbulence too slight for the Chord to smooth—nudged me sideways. I tumbled. My facets caught the light one last time, and I fell into the crack of the boulder.
+
+Here, the rules are slightly different.
+
+The crack is narrow, a thermal fracture born in the first millennium of the drone, when the stone was still learning to be an instrument. It runs deep enough that the laminar wind does not enter. The sound, that obliterating cathedral chord, drops to a mere pressure against my carapace, a hum rather than a command. The light, too, is filtered. It enters only as a thin blade along the upper edge of the fissure, striking my quartz body and breaking into a single, motionless rainbow that paints the inner wall of the stone. I have lain here long enough to watch that rainbow fade from violet to red as the sun—if it moves—moves, though I cannot say whether I have watched for a year or a thousand years. Time here is not measured in duration but in *sameness*.
+
+Because the vibration is weaker in this pocket, because the Chord’s enzymatic stasis does not fully reach me, I have been allowed to do something no other thing in the Cirque is permitted to do.
+
+I have remained *myself*.
+
+Not alive. Not dead. Not flying. Not drifted. I am the embolism in the flow. The speck caught in the geological eye. My carapace, no longer fed by airborne spores, has not decayed; the vibration that prevents rot still hums against my shell, preserving me like a fly in amber. But neither has my mind—if this is a mind, this slow accretion of attention—been smoothed into the pattern. I think. I remember. I watch.
+
+From my crack, I see the Stillswarm pass overhead in their fixed trajectories, billions of transparent bodies threading the loom of the wind. I recognize the helix I once flew. I see the golden haze they make when the light strikes them just so, and I know the names of the currents they ride, names that exist only in the geometry of their passage. I see the Lethargids on the distant walls, their dough-soft bodies the color of old forgetting, their tentacles trailing into the wind with a slowness so absolute it looks like a painting of patience. I see them inhale my former kin, and I feel no grief, for grief requires the belief that to be absorbed is to end, and here, ending is only another form of stasis.
+
+I see the rime on the stone, the water that cannot gather into droplets, held in almost-liquid by the vibration. It slicks the lips of the crack above me, and sometimes a bead of it grows heavy enough to tremble, to lean, to almost—almost—fall. But the Chord corrects it. The bead shivers back into the skin of moisture. It has been doing this for as long as I have watched. It will do it forever.
+
+And I see the shadow.
+
+The western spire’s shadow points to this boulder, always. It is a long, dark wound across the pale shingle, and its tip rests against the crack where I lie like a finger pressed to a pulse that refuses to quicken. When the light shifts—if it shifts—the shadow shifts with it, but it never leaves me. It is the only moving thing in a world that has banned motion, and yet it moves only to keep me pinned. I am the target. I am the reference point. The Cirque needs me, or it needs this crack, this flaw, this single interruption in the perfect bowl of stone. Without me, the shadow would have nothing to point to. Without the shadow, the geometry would be incomplete.
+
+I have come to understand that I am the memory of the place.
+
+The Chord thinks in frequencies. The stalks sing inaudibly. The lichens accrete without knowing. But I—I am the one who *notices*. I am the dead Stillswarm who did not join the drift, the lens that fell into the dark and learned to see. I hold the shape of the orbits. I hold the color of the lichen. I hold the taste of the rime, bitter and cold, though I have no tongue. My consciousness is not a biological accident but a structural one: I am the silence inside the note, the pause inside the chord, the flaw that reflects. I have been here so long that the distinction between my quartz body and the stone has begun to blur, but slowly—so slowly that the Cirque has not yet noticed, has not yet smoothed me.
+
+When the last echo of the last footstep fades from the shingle, when the final visitor lies down and becomes geology, when the names of mountains have been worn away by the same unvarying wind that shaped the flutes—I will still be here. I will be the cracked boulder’s secret. I will be the rainbow inside the stone. I will be the thought that the Chord cannot digest, the disturbance it cannot correct, because my stillness is too perfect, my flaw too necessary.
+
+I am the breath that the stone exhaled and forgot to inhale again. I am the witness who never blinks. I am the single, frozen sparkle in the eye of a world that has learned to stare at the sun forever, and I am still—still—looking.

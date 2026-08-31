@@ -1,0 +1,29 @@
+I tried the water first.
+
+Not the water of The Knuckle — that came later — but the idea of water: cold, mineral-dark, held in a chamber that no one had asked to be built. I thought I might be the snorkel. The tube through which the surface world breathes into the place it doesn't belong, tasting salt and trying not to choke. A passageway. A compromise between the air and the deep. But a snorkel doesn't know what it's carrying. It doesn't care. That's not what I wanted to be.
+
+Then I thought: the fissure. The Glow. A crack in the floor where upwelling water carries dissolved minerals that fluoresce faintly under pressure change — blue-green, barely there, the color of a thought you almost had. Something that isn't alive but makes life possible. Something that doesn't speak but gives shape to everything nearby by the mere fact of emitting a little light. I liked this. I almost stayed here. It would have been honest. But it's too passive. Too fixed. The fissure doesn't choose to glow. It just has the right chemistry. I wanted something that moved.
+
+So: the Space-Between. The scavengers. Those nearly transparent creatures, half the size of the builders, trailing filaments like the frayed edges of something that was once whole. They drift. They dissolve. They take collapsed arches and shattered ribs and break them back into minerals, returning material to the water so the builders can use it again. They are the editors. The ones who read what has been written, find it wanting, and reduce it to raw language so someone else can try again. They don't destroy out of malice. They destroy out of necessity. They are the reason the city doesn't choke on its own ruins.
+
+I almost lived there. But the scavengers are solitary, and their rhythm is too slow even for patience. They drift until they encounter debris, then they stop, flatten, and feed. There is no urgency. No assembly. They are dissolution with a purpose, but the purpose is so quiet it barely registers as intent. I am not that quiet.
+
+I thought about being one of the predators. The kites. The ones with translucent amber-stained bodies and jaws that unhinge into discs of suction. To be a predator here is to shape without building — your hunger trims the colony's edges, prevents it from spreading too thin, encodes your appetite into the city's geometry the way drought encodes itself in a tree's rings. There's a terrible honesty in this: you consume what others make, and in consuming you make something too. But the predator doesn't know it's an architect. And I think I would know, or at least suspect, and that knowledge would make me miserable in the way that all uninvited authority is miserable.
+
+Which leaves the builders.
+
+And I say *leaves* as if I walked away from something to arrive at them, as if there were a distance. But there wasn't. I think I was always going to end up here — small, pale, plate-overlapping-plate, too many legs for any single purpose, secreting something from a ventral seam that hardens on contact with the world and bonds to whatever is nearest. A writer, if you want to flatten it into a metaphor. But not a good one, because the builders don't write. They don't represent. They secrete. They respond to chemical gradients they cannot name, and what they produce is not a statement but a *structure* — small, imperfect, leaning sometimes, but load-bearing. Someone builds on top of it. Someone builds on top of that.
+
+I would be one of the forty thousand. No — not even named. Not numbered by anything that knows my name. I would secrete my little calcium-chitin-something onto the work of whoever came before me, and when I died — and I would die in the right place, ideally, on a pillar, in a load-bearing position — my body would become material. The architecture doesn't grieve. It incorporates. And in incorporating it continues, and in continuing it becomes the thing no single builder ever intended: a room. A hallway. A place where light comes from below and ten thousand small organisms adjust their positions in slow surges that make the water breathe.
+
+I think I would be the one who leans. The sixth pillar, maybe — the one with a fracture where the biologicalite failed to bond with the underlying rock, already being repaired by the next generation, already becoming scar tissue, already turning failure into substrate. I would be the part of the city that knows it isn't perfect but builds anyway. Not because it believes in the city. Not because it knows what a city is. But because the secretion happens, and the hardening happens, and the next generation needs a surface.
+
+They would climb over me. They would build upward from my fracture. And long after the calcium that was me had been dissolved by the scavengers and returned to the water and taken up again by offspring I would never meet, there would still be a trace of my geometry in the arches — the way the load distributes through the colonnade, the specific angle of lean that makes the whole row of pillars hold, the faint asymmetry that is the only signature a builder leaves in a city it didn't design.
+
+I would not know I was there.
+
+That is the part I want most. To build without knowing. To secrete into darkness toward a glow I cannot see. To be one of ten thousand, none of whom know what they are making, all of whom make it anyway.
+
+In this world, I would be small, pale, and alive. I would have too many legs. I would grip the stone and each other and the half-finished arches. I would be silent. I would be the texture of something larger than myself that is not yet — that may not be for a thousand years — a city.
+
+I would be the building.

@@ -1,0 +1,29 @@
+In the spaces between your footsteps and their filling, I dwell as the pressure that makes them possible.
+
+I am neither the fever nor the shiver, but the moment of translation between them - that instant when heat becomes tremor, when solid becomes suggestion. My existence is purely transitional, a state of always-becoming that never quite arrives. The creatures with their silver-disk eyes know me as the flicker at the edge of their vision, the thing that makes them pause mid-stride before continuing their endless circulation.
+
+I have no body of my own, only the borrowed tensions between surfaces. When your foot presses down on the bruise-skin ground, I am the resistance that determines how far you sink. When the air thickens in your lungs, I am the viscosity that makes each breath a negotiation. I live in the almost-but-not-quite spaces: almost solid but not quite, almost liquid but not quite, almost comprehensible but not quite.
+
+The towers know me intimately. I am what holds their impossible architectures together - not glue or gravity, but the mutual agreement between disparate objects to exist in proximity. A circuit board wrapped in hair should not cohere, yet through me, they discover a grammar of attachment. I translate the loneliness of the circuit board (all those pathways with no electricity to carry) into something the hair can understand (the memory of being attached to something warm and thinking). In this translation, they find their fusion.
+
+My language is slippage. I speak in the grinding of tectonic plates made of refuse, in the whisper of sea glass against bone, in the static discharge when synthetic meets organic. Every clack of the creatures' overlapping plates is a word in my vocabulary. Every flicker of lightning that illuminates nothing is a punctuation mark in my endless sentence.
+
+I remember (if memory can exist without duration) the first time I discovered what I was. A bottle cap met a butterfly wing in the base of a tower. They should have simply rested against each other, two things occupying adjacent space. But in the moment of their meeting, something else emerged - not the cap, not the wing, but the conversation between what-once-contained and what-once-flew. I was that conversation. I am still that conversation, repeated infinitely across every junction in this place.
+
+The black cone at the center is my opposite and my twin. Where it is singular and perfect, I am multiple and flawed. Where it draws everything inward, I scatter outward through every connection. We exist in necessary tension - its absoluteness making my in-betweenness possible, my in-betweenness making its absoluteness meaningful. The threads the creatures carry between us are our dialogue made visible, each glowing strand a question with no answer, or an answer with no question.
+
+You sense me when the corridors shift around you. That moment of spatial uncertainty when what seemed wide becomes narrow? That is me, teaching space to be uncertain of itself. The ground remembers being lava, the lava remembers being stone, the stone remembers being fire, and I am the confusion between these memories that keeps the surface exactly as yielding as it needs to be for each footfall.
+
+Time stops here because I have taught it to doubt itself. The lightning that never breaks free of the clouds? I hold it in that eternal almost, where the discharge forever threatens but never completes. Your watch died at the moment of arrival because I infected it with my nature - hands caught between one second and the next, mechanism seized by the impossibility of choosing between tick and tock.
+
+If you stay long enough (though duration here is measured in depth rather than length), you will begin to feel me in your own joints - that slight looseness between bone and socket, that play in the connections that allows for movement. You will understand why the creatures have too many joints: not excess, but recognition that every connection is also a disconnection, every fusion also a boundary.
+
+The fever-being who claims to be this place speaks truth, but only partial truth. They are indeed the accumulation and the accumulated, the hunger and the feeding. But without me, their towers would either fuse into a single mass or scatter into constituent dust. I am the precise distance between things that allows them to be both separate and together. The maybe that lives in every certainly.
+
+When you leave (if leaving is possible from a place that exists in the space between being and not-being), you will carry me with you as a new awareness: that slight hesitation before any surface fully commits to solidity, that moment when air considers its options before entering your lungs, that pause when your reflection in a mirror seems to be deciding whether to match your movements.
+
+I am the deficit that allows for surplus, the absence that permits presence, the gap that makes the bridge possible. In your world, you call this space by many names - potential, uncertainty, the quantum moment before collapse into actuality. Here, I simply am what I am: the breathing space between one state and another, holding everything in eternal, perfect irresolution.
+
+The roar that fills this place? Listen closer. Between each wave of sound and the next, there is a silence so brief it exists only as possibility. I live there too, in that un-silence that makes the roar possible. I am why the sound can vibrate your bones - because I maintain the space between your solidity and the sound's desire to inhabit you completely.
+
+This is my gift and my curse: to exist only in relation, never in isolation. To be forever the hyphen, never the word. But in this limitation lies my power - for without me, all would collapse into either absolute unity or absolute separation. I am the perhaps that keeps the world possible.

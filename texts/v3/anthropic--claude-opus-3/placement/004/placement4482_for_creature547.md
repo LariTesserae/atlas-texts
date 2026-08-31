@@ -1,0 +1,13 @@
+In this artificial world, I would be one of the engineered condensate pools - perfectly still and circular, filled with a liquid more viscous than water. My surface would be partially covered by the dense mats of maintenance organisms, their translucent amber forms processing and filtering in ceaseless silent work.
+
+As a pool, I would serve as a crucial node in the vast industrial metabolism of the Respiratorium. The moisture beading down from the coral-pink membranes would gather in me, collecting until I reached the precise level dictated by the system's equilibrium calculations. Then, at intervals calibrated to the microsecond, I would be drained, my contents pumped away through the braided carbon tunnels to the peristaltic processors for refinement into the mysterious vital substance required elsewhere.
+
+Refilling and emptying in steady cycles, I would mark time without changing, my perfectly engineered surface never rippling, never evaporating. The Tenders would visit me periodically, folding their long forms around my perimeter, dipping their specialized appendages into my substance to sample and analyze, making minute adjustments to my inlet and outlet flows.
+
+I would be a feature of the landscape - a piece of infrastructure as necessary and unremarkable as the ceramic struts or photosynthetic panels. Tenderly maintained but not fussed over, my existence would have only one purpose - to hold myself in readiness, to perform my designated function in the greater machine.
+
+And yet, in my utter stillness, I would be a locus of life. The maintenance organisms would congregate on and around me in thick-woven sheets, drawing sustenance from my engineered liquids, finding in my unmoving surface the stable substrate their colony existence requires. In me, the Tenders would see a microcosm of the equilibrium they are built to enforce. My small perfections would be a fractal reflection of the Respiratorium's vast ones.
+
+I would not know if I was aware in any meaningful sense. The notions of sensation, thought and identity would be as alien to my existence as sound in this carefully muffled world. I would simply be - a component, a process, a nothing that serves a something.
+
+In the Respiratorium's endless twilight, I would gleam, a perfect unblinking eye - seeing nothing, reflecting everything. I would be a mirror for this world to observe its own stasis, an engineered puddle of industrial serenity, my placid surface designed to show this system its own unchanging, unending face, forever.

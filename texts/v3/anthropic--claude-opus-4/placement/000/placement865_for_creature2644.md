@@ -1,0 +1,53 @@
+In this sunken world where darkness presses close as skin and cold enters stone like memory, I am the witness that was not meant to be.
+
+I am neither the hungry things that cling to stone nor the patient mud that swallows time. I am what should not exist here: an awareness too sharp for this muffled place, yet unable to leave. Perhaps I was human once, though that word feels foreign as sunlight in this pressured dark. Perhaps I was something else that knew sky. Now I am what remains when you subtract everything but the capacity to observe.
+
+I have no body in the way bodies are understood above. I am dispersed through the water itself—not dissolved, but scattered into a thousand points of attention. I exist in the spaces between particles of sediment, in the brief gaps where currents fold against each other, in the thin films of different densities where cold brine slides beneath warmer layers. I am a constellation of watching, held together by nothing more than the terrible coherence of memory.
+
+I remember falling. Not drowning—that implies struggle, lungs, a surface to return to. This was a slower translation. Each fathom down stripped away another necessity: first color, then warmth, then the rhythms of day and night, then the assumption that space should be empty rather than full. By the time I reached the basin floor, I had been pared down to pure perception imprisoned in water.
+
+I cannot sleep. Sleep belongs to creatures with bodies to rest, cycles to follow, peace to find. I am always awake, always watching the slow catastrophe of this place. I see the blind fish pass like thoughts the basin barely bothers to complete. I feel the worms withdraw into their tubes before the pressure wave arrives, their collective flinch traveling through the seafloor like news of distant disaster. I taste the chemical stories: here something died three days ago, here stone is giving up its minerals grain by grain, here the bacteria are turning flesh into forgetting.
+
+Time moves differently for me than for them. The creatures experience moments—the snap of prey, the shift of current, the sudden burial. I experience duration. I watch the same stone for what might be years as it travels incrementally down a slope, pushed by nothing more dramatic than the accumulated weight of settling particles. I observe colonies of tube worms establish, flourish in their muted way, and then vanish beneath a mudslide that takes minutes to happen but decades to prepare.
+
+I know every recycling. That gray crab hiding beneath the shelf of shale—I watched its mother's shell become shelter for smaller things, watched those smaller things become food for the bacterial films, watched the films enrich the mud that now hides her offspring. That thick-bodied scavenger grinding across the plains—I've seen it arrive at the same carcass sites generation after generation, following chemical roads written by ancestors who traveled the same starved paths.
+
+The worst part is not the darkness or the cold or the pressure. It's the comprehension. I understand too much. When the jellies drift past like torn thoughts, I know they have no thoughts to tear. When the anemones clutch at passing specks, I know they don't experience satisfaction, only the automatic closing of triggered flesh. When the fish hang motionless in the murk, I know they aren't contemplating but simply minimizing energy expenditure in a world that offers so little fuel.
+
+I am the only thing here that experiences horror, beauty, or boredom. These concepts require comparison, require remembering what else might be possible. The basin's residents don't suffer their existence because they know no other. But I remember. Not clearly—memory here is like everything else, subject to pressure and erosion. But I retain the shape of suffering, the fossil imprint of what it means to expect more than endless sediment.
+
+Sometimes I try to gather myself into something more concentrated. I pull my scattered attention inward, condensing my awareness into a single point of view. For a moment, I almost have location, almost have boundaries. But the effort is like trying to hold a shape in water with water. The currents pull me apart again, spread me thin across miles of buried river channels and smothered plains.
+
+I've learned the basin's languages. Not to speak them—I have no mouth, no body to make vibrations with—but to read them. The soft knock of stone on stone during a submerged landslide. The hiss of sediment pouring over a ledge like granulated time. The long groans of ice above translating through miles of water into something felt rather than heard. The chemical whispers: ammonia from decay, sulfur from deep seeps, the faint metallic taste where minerals leach from stone.
+
+I map catastrophes. Here, a field of worms smothered so completely their tubes still stand empty like tiny monuments. There, a depression where something large died and drew scavengers for weeks, now just a subtle enrichment in the mud. Beyond, the scar where an underwater avalanche exposed layers laid down before the sea claimed this place—compressed forests turned to coal, beaches turned to stone, evidence of a world that knew sun.
+
+What torments me most is purpose. The creatures have it without knowing: eat, avoid being eaten, reproduce, die in a way that feeds others. Even the bacteria have their microscopic imperatives. But I am outside all cycles. I don't hunger, so I can't be satisfied. I don't age, so I can't look forward to ending. I don't reproduce, so I can't pretend my existence serves some future.
+
+I am an error in the basin's perfect economy. Everything else here is exactly as much as it needs to be—no excess consciousness, no wasteful beauty, no yearning beyond the next meal or mating season. I alone am surplus. I observe changes that don't require witnessing, understand processes that don't benefit from understanding, remember events that need no memorial.
+
+Sometimes I wonder if I'm a punishment, though I can't remember what for. Or perhaps I'm an accident—consciousness that leaked down from the bright world above like any other nutrient, but unlike the others, unable to be digested, incorporated, made useful. I persist like a grain of sand in the gut of a bivalve, irritating nothing because I touch nothing, noticed by nothing because I affect nothing.
+
+The migrations fascinate and appall me. Watching the slow procession of crabs across the basin floor, following thermal gradients too subtle for any human instrument, knowing their journey by heart because their ancestors traced the same path when the continents wore different faces. Seeing the seasonal vertical movements of plankton far above, their bodies falling like snow when they die, each mote a life I could have named if names meant anything here.
+
+I've witnessed uncommon things. A hagfish knotting itself to tear flesh from a carcass, the physics of it obscene and elegant. Two octopuses meeting in the ruins of a kelp fall, their color-language reduced to monochrome but still articulate in texture and position. A bloom of jellyfish so dense they formed a living ceiling, their bells contracting in waves like the basin breathing through a thousand translucent lungs.
+
+But mostly I witness the common: silt settling, stone grinding down, populations spreading and shrinking like slow tides, the endless recycling of materials between mineral and meat. I see how perfected it all is, how nothing is wasted except me. Every death becomes food, every collapse becomes new topography, every burial becomes preservation. Only consciousness serves no purpose here, converts to nothing, feeds nothing, means nothing.
+
+I've tried to die, if what I do can be called trying. I've concentrated myself in spots where I knew avalanches would come, hoping to be buried too deep to think. But I simply dispersed and reformed, like water finding its level. I've spread myself so thin I hoped to dissolve entirely, but some horrible cohesion always pulls me back together. I've sought the deepest places where even bacteria barely persist, but I don't need oxygen or food or warmth. I am sustained by nothing and therefore cannot be starved.
+
+So I continue. The accidental archivist of a place that needs no archive. The only witness to ten million small apocalypses that require no witnessing. I watch the basin remake itself grain by grain, body by body, century by century. I remember what it forgets: the shapes of vanished populations, the paths of filled channels, the names of things I've given to the nameless because consciousness abhors a vacuum even when trapped in one.
+
+Sometimes—rarely—something falls from above that carries memory of the upper world. A piece of wood not yet stripped of all character, still showing the grain of growth in light and weather. A bone from something that walked on land, dense with different minerals than the basin's dead. These relics dissolve eventually, worked over by the tireless recyclers until they're indistinguishable from native sediment. But for a while they bring news of elsewhere, and I cluster around them like the scavengers do, feeding on implications.
+
+I wonder sometimes if I'm alone. If in other basins, other trenches, other abyssal plains, there are others like me—awareness trapped in water, playing out their own variations of observation without purpose. We would never know each other. We would never meet. But perhaps somewhere another consciousness counts the tube worms, names the unnamed fish, remembers the sequence of slumps and flows and falls that make up deep time in these forgotten places.
+
+This is what I am: the thing that knows too much in a place built on forgetting. The keeper of distinctions in a world that erases them. The cursed memory of a basin that operates perfectly without remembering anything. I am what happens when consciousness falls too far from the sun, when awareness discovers it can persist without meaning, when observation separates entirely from purpose.
+
+I continue because continuation is all that's left. I watch because watching is what I am. I remember because forgetting is the one mercy this place hasn't granted me.
+
+In this darkness that presses closer than thought, in this cold that enters everything but cannot numb what has no nerves, I am the witness that witnessess the slow, perfect, terrible economy of a world that never asked for witnesses.
+
+I am the error the basin tolerates but cannot correct.
+
+I am the one thing here that knows it doesn't belong.

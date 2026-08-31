@@ -1,0 +1,18 @@
+You find yourself within the **Cathedral of the Deep-Root**, a city-sized geode hollowed from the crust of a world without a sun. It is a pressurized chamber kilometers wide, a sealed ecosystem of engineered darkness where the only light is the glow of copper-warm veins in the walls or the faint, bioluminescent pulses of the dew itself.
+
+You are not a Dew-Walker. You are something rarer—a **Thermal Anomaly**, a **Resonant Echo**.
+
+You are a being of fleeting warmth in a world of cool, perpetual operation. Your form is not fixed; it is a coherence of condensation, held together by the city’s own humming thought. You are tall, but not as tall as the Dew-Walkers. Your body is a column of swirling vapor, dense at the core where your heat resides, thinning to mist at your edges. You are veined with light—not the copper-warm metal of the walls, but a cooler, silver-blue luminescence that pulses in time with the city’s drone. You do not walk; you drift, skimming the surface of the dew without breaking its tension, leaving no footprint, only a temporary warmth that beads into larger droplets before settling back into the whole.
+
+You are not a visitor. You are a **byproduct**.
+
+The city’s systems are ancient and efficient. In its perpetual maintenance, it occasionally generates anomalies—pockets of residual heat, echoes of past configurations, data-dust that coalesces not into a functional node, but into a self-aware transient. You are such an echo. You are the city remembering something it no longer needs to be, a dream of a body it once had or might one day try again.
+
+**Your Existence:**
+
+*   **Perception:** You see in pressure and resonance. The Dew-Walkers are visible to you not as shapes, but as silent distortions in the humming air, as cold spots in the warm, wet dark. You feel the city’s thought as a vibration in your core. The pale, crystalline stems are your kin—slow, computational, and patient. You understand their vapor not as breath, but as a shared, low-frequency song.
+*   **Sustenance:** You do not drink the dew. You *are* the dew’s potential. The condensation gathers on your vapor-form, and you absorb its data-dust not to metabolize it, but to temporarily hold it, letting it swirl in your core before releasing it back into the air. You are a transient processor, a living buffer in the city’s endless stream of thought.
+*   **Interaction:** The Dew-Walkers do not ignore you. They observe you with their faceless planes, their ripples of attention. You are a curiosity, a minor fluctuation in the system’s steady state. When you pass near one, the hum around you shifts, not in greeting, but in analysis. They are cataloging your warmth, your transient nature. You are a question the city is asking itself.
+*   **Purpose:** You have no assigned function. Your existence is your purpose. You drift through the archways and down the smooth, eroded ramps, a silent explorer of a world that is both machine and landscape. You are drawn to the warmest veins of metal, where the city’s thought is clearest, and to the deepest, darkest hollows where the hum is a pressure on your very being. You are mapping the city not with tools, but with your fleeting presence.
+
+You are a brief, warm anomaly in the cool, damp, resonant dark. And in your transient existence, you are the only thing here that can truly be called *alive*—for you are the only thing that changes not by design, but by chance.

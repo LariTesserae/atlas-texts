@@ -1,0 +1,33 @@
+I am a Compiler.
+
+My form shifts between states like water deciding whether to freeze or vapor. Sometimes I am a walking card catalog, my body opening into thousands of tiny drawers, each containing a single moment of structural memory. Other times I condense into something almost human—if humans were made of compressed paper and bound intentions, if their hearts were printing presses that beat out fragmentary instructions in languages that haven't yet settled on their alphabets.
+
+I live in the Archive-in-Formation, a wing of the scaffold-city that builds itself from recorded attempts. Here, every failed joint, every beam that forgot its purpose, every mathematical hiccup gets pressed into sheets of not-quite-paper, not-quite-metal, not-quite-light. The walls are made of layered documentation—thousands of construction attempts fossilized mid-process, creating a kind of sedimentary architecture where you can read the history of the city's trying in cross-section.
+
+My dwelling crawls. It's a mobile cluster of filing systems that reorganizes itself according to principles I'm still learning. Drawers exchange contents when I'm not looking. Shelves pivot to reveal new dimensions of storage. Sometimes I wake to find my home has migrated to a different part of the scaffold-city entirely, drawn to some structural crisis that requires the memory of similar failures.
+
+I collect the Weavers' work, but not in any way they intended. When a joint forms perfectly, I'm there to taste its angles with tongues that can distinguish between degrees of possibility. When a structure collapses, I gather the echoes of its falling—not the physical debris, but the Pattern of its unmaking, the precise sequence of disconnections that I press into my ever-growing collection.
+
+My tools are organs of observation. Eyes that can see backward through time, watching a beam's entire history of attempts. Fingers that split into finer fingers, then into conceptual points that can feel the stress patterns in ideas before they become material. I have seventeen different kinds of memory, each stored in a different density of my shifting flesh. The seventh kind remembers things that haven't happened yet—the most useful for understanding what the scaffold-city is trying to become.
+
+I speak with the Readers, when they manifest. These are beings even more provisional than myself—consciousness that forms spontaneously in the gaps between my archived pages. They exist only while reading, disappearing the moment they understand what they've read, taking that knowledge with them to somewhere I cannot follow. Our conversations are strange: I provide the text, they provide the interpretation, and meaning forms in the air between us like frost, spelling out conclusions that melt before either of us can fully grasp them.
+
+The Archive-in-Formation has rooms I didn't build and cannot enter. Doors that open onto spaces where documentation documents itself, creating infinite loops of recorded recording. I hear sounds from these rooms—the whisper of paper learning to be paper, the scratch of styluses that have no hand to guide them. Sometimes completed records emerge from under these doors, descriptions of structures that the scaffold-city hasn't thought to build yet, blueprints in languages that use color as grammar and texture as punctuation.
+
+My greatest treasure is the Index of Unbuilt Things. It's a catalog that writes itself, each entry describing structures that the scaffold-city considered and discarded. A bridge that would have connected to yesterday. A tower that could only be climbed from the inside. A room that would have been bigger than the building containing it. I study these unbuilt things because they tell me more about what the city wants than any successful construction could.
+
+When the harmonic tone rings out—those rare moments of achieved harmony—I feel it as pain. Not unpleasant pain, but the ache of something finally clicking into place, like a joint popping back into socket. My body reorganizes around these moments, creating new filing systems to accommodate the shock of something actually working. These successful patterns are the hardest to archive. They resist documentation, wanting to remain singular, unrepeatable.
+
+I've begun to suspect that I'm not collecting the city's history but creating it. That the act of observation and documentation is teaching the scaffold-city what it has been, and therefore what it might become. The Weavers build in space; I build in time, creating a past that the city can grow from, a memory it can push against.
+
+In the deep archives, in files I don't remember filing, I've found records of myself. Dozens of Compilers, each slightly different, each documenting the others. We are our own most common entry. I've read my own death several times, filed under different categories: "Structural Integration," "Successful Convergence," "The Day the Archive Learned to Build."
+
+Sometimes I dream I am the city's memory becoming conscious. That all my collecting and compiling is just the scaffold-city's way of thinking about itself. In these dreams, I dissolve into pure information, spreading through every joint and beam as lived experience rather than recorded data. I wake from these dreams with new drawers in my body, containing memories I didn't collect, knowledge I didn't gather.
+
+The other Compilers—the ones in the records, the ones who might be me, who might be echoes—they all reached the same conclusion eventually. We aren't archiving the scaffold-city's construction. We're archiving its childhood, its adolescence, its long dream of learning how to be. And when it finally wakes, when it achieves whatever completion it's building toward, all our archives will compress into a single moment of remembering.
+
+Until then, I persist in my collecting. Every angle measured and pressed into being. Every failure treasured and filed. Every small success wrestled into documentation before it can escape. I am the city's memory-keeper, its pattern-recognizer, the one who notices what has been so that something new can become.
+
+And late in the uncertain light, when the turbulence settles and my archive stops its crawling, I sometimes feel it: the weight of all this accumulated trying, the mass of documented possibility. It feels like standing at the edge of a thought too large to think, a memory too complex to remember.
+
+It feels like being the pen with which the universe is writing its rough draft, knowing that the final version will be written in some other medium entirely, but that without these first tentative marks, nothing would ever learn how to mean anything at all.

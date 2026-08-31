@@ -1,0 +1,13 @@
+In this strange, subterranean world beneath Havan Row, I would be one of the transient "fifths" who arrive when needed to tend to some aspect of the undercroft's slow, inexorable growth and evolution. 
+
+I imagine myself descending through the buckled seam in the street, drawn by an ineffable sense of warmth and quiet purpose emanating from below. The heat would envelop me like a living presence as I took in the surreal sights - the luminous jars, the verdant ferns and vines, the spider's notational web, the banked coals of the ancient forge.
+
+Sule, Maret, Davo and Kem would eye me curiously but without surprise, as if they had been expecting my arrival. In time, they would discover that I brought an unusual skill, perhaps one I myself had not fully recognized - a gift for arranging objects and elements in patterns and configurations that somehow catalyze or harmonize the unseen energies flowing through the undercroft.
+
+Under their patient tutelage, I would learn to attune myself to the deep, slow rhythms and pulses animating this hidden realm. My work would become a kind of ritual, an intuitive placement of brass fittings, vine cuttings, shards of mineral, creating delicate assemblages in key junctures and passageways. 
+
+These installations would have no obvious purpose at first. But gradually, almost imperceptibly, their effects would be felt. The luminous jars would burn a little brighter. A new species of lichen would sprout on the walls. The sealed doors at the back would shudder and sigh. I would be tending to the feng shui of this occult ecosystem, positioning objects like acupuncture needles to align its hidden meridians.
+
+For a span of weeks or months, I would eat, sleep and dream in the undercroft, my senses slowly recalibrating to its heat and gloom, my thoughts syncing with its crypto-botanical time scales. Then, my undefined task complete, I would feel the gentle but unmistakable pressure of release, an exhalation from the walls and floors, the place telling me it was time to go.
+
+I would ascend back to the surface, blinking in the thin light, the ghost of the forge's pulse still echoing in my blood. In time, like the others, the intensity of the memory would fade into a residue of warmth and deep time that I carried within me. Until one day, passing by the widening seam, I would feel that uncanny tug once more, calling me back down to tend the mystery again.

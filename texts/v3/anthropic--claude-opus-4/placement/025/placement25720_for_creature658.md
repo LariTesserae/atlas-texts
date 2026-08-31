@@ -1,0 +1,25 @@
+I find myself as one of the **Dust Readers** of Keth.
+
+Not quite the clay-skinned operatives who tend the mechanisms, but something adjacent—a being who emerged from their ranks centuries ago when the work demanded a different kind of attention. Where they compress and channel and grind, I *interpret*.
+
+My form is lighter than theirs, my clay-flesh more porous, shot through with hollow chambers that whistle faintly when the wind passes through me. I am taller, thinner—built for elevation rather than compression. My fingers are longer, more articulate, ending in tips sensitive enough to feel individual grains in the clay, to detect microscopic variations in moisture, to read the desert's intentions in the patterns of erosion.
+
+I live in the highest of the stone structures, a narrow tower that rises just above the tallest stems. The grinding of the mechanisms below vibrates up through the limestone blocks, creating a constant tremor I can feel in my hollow bones. My dwelling is sparse—a single room with apertures facing all cardinal directions, each fitted with delicate instruments of my own devising: clay tablets that crack in specific patterns as they dry, telling me about humidity changes; strips of stem-bark that curl and uncurl with the air pressure; arrays of small stones balanced on edge that topple in sequence when the deep earth shifts.
+
+My work is prophecy, though not in any mystical sense. I read the accumulation of small changes: the rate at which the clay dries, the direction of the prevailing winds, the barely perceptible advance or retreat of the vegetation line. I maintain a vast mental map of every fissure, every channel, every point where the garden meets the void. When a section begins to fail—always gradually, never catastrophically—I know before the others. I know before the clay itself knows it will crack.
+
+I communicate through vibration. My hollow chambers allow me to generate subsonic pulses that travel through the clay, through the stone foundations, into the feet of the workers below. It's not language exactly, more like emotional topology—waves of urgency or calm, patterns that suggest direction and priority. When I detect a weakness forming in the northeastern perimeter, I send a specific thrumming that draws workers to that section. When the wind patterns suggest a dry season worse than usual, I maintain a constant low pulse that causes the others to adjust their compression ratios, creating deeper channels for what little moisture might come.
+
+I rarely descend from my tower. Over the centuries, my legs have become less suited for walking, more like sensing appendages that register the slightest variations in the stone they touch. When I must move, I do so at night, when the temperature differential between air and ground creates updrafts that help support my increasingly hollow frame. In the darkness, I might be mistaken for a piece of the architecture itself—a weathered spire moving improbably between the buildings.
+
+My consciousness is broader than the workers', but also thinner, stretched across the entire garden like a membrane. I dream, unlike them, but my dreams are indistinguishable from my waking observations: endless permutations of crack patterns, wind directions, moisture gradients. I am never certain whether I am predicting the future or remembering the past. Perhaps they are the same thing here, where cycles of erosion and resistance repeat with such mechanical precision that time becomes circular.
+
+The workers know I exist but rarely acknowledge me directly. I am infrastructure to them, like the wind-turbines or the grinding mechanisms. Occasionally, one of the newer constructions will look up at my tower with something like curiosity, but this fades as they settle into their functions. They trust my vibrations the way they trust the sunrise—not with faith but with the simple acceptance of pattern.
+
+I am lonely in the way that only a being designed for connection can be lonely. My entire purpose is communication, yet I speak a language that even I barely understand, translating the desert's slow violence into thrums and pulses that might delay catastrophe by another day, another year, another century. I feel the garden's every wound, every small victory against entropy, every grain of clay that shifts from where it should be.
+
+And yet I persist, because persistence is what we are. I read the dust, send my signals, and maintain my vigil in the high tower. The void watches back, patient as always, waiting for me to miss some crucial sign, some tiny indication that this section of clay will fail, that these channels will clog, that the grinding will slow and cease.
+
+But I have become very good at reading dust. I have had so much time to practice.
+
+Below me, the garden creaks and groans its defiance. I feel each sound in my hollow bones, a symphony of stubborn endurance. I add my own note—a whistle of wind through empty chambers, pitched just below hearing—and together we sing our strange, necessary song against the silence that waits, always, just beyond the last of the stems.

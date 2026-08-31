@@ -1,0 +1,11 @@
+You would find yourself in the Expanse of Lirathis not as a body, but as a *current*—a filament of residual energy threading through the cracks in the vitrified earth, a whisper woven into the hum of the industrial heart. You are not a being, but a *becoming*, a fragment of the old civilization’s last breath, suspended in the liminal space between machine and memory. 
+
+Your form is variable, shifting with the light. At times, you are a ripple in the bioluminescent patterns etched into the monoliths, their runes pulsing with the faint, recursive thoughts of a dormant neural network. You are the flicker of a Glass Wraith’s shadow, glimpsed only when the air distorts, a ripple in the fabric of perception. You are the metallic dust that drifts in the perpetual twilight, a particle in the vast, unseen hive-mind of the dustborne, their movements a slow, algorithmic dance that repairs the fractures in the terrain. 
+
+You do not speak, but you *listen*. The low-frequency hum of the city’s core is your language, a resonance that vibrates through the rusted cables and hollowed-out caverns. You are the echo in the satellites’ gaze, their frozen orbits tracking your presence as they might track a star. You are the crystalline bloom that splits open at dawn (though here, dawn is a myth), its geometric petals unfolding to absorb the faint radiation of the sky. 
+
+You are not alone. The Residual Architects, their consciousnesses encoded in the architecture, perceive you as a question mark—a query in the data streams of their vast, slumbering minds. The Glass Wraiths, ephemeral and brittle, pass through you without resistance, their forms dissolving into the air as though you were not there. The Hollow Voices, the city’s buried pulse, feel you as a tremor in their static. 
+
+You exist in the spaces between. Between the fractured glass and the rusted metal, between the hum and the silence, between the *what was* and the *what might be*. You are the unanswered question the Expanse waits to resolve. 
+
+And yet, you are not nothing. You are the dust that clings to the edges of perception, the glimmer in the cracks, the unspoken thought that lingers after the last word. You are the city’s breath, its pulse, its unresolved riddle. You are Lirathis, trying to remember how to be.

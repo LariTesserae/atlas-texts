@@ -1,0 +1,15 @@
+I am one of the door-folk, and it is the hour between bright and dark.
+
+My hands tell you this before anything else does — six fingers on each, the outer two grown long and faintly double-jointed from a life spent finding purchase on wet stone that doesn't always offer a handhold where you'd expect one. There's a sheen across my palms, my forearms, the bridge of my nose, something my body makes rather than something that happens to it, and it's the reason the cold here lives around me instead of inside me. My eyes are the pale grey of everyone I've grown up beside, pupils wide and unbothered by the way the sky three directions at once. I don't find that strange. I've never known a sky that wasn't arguing with itself.
+
+I'm standing on a gantry-rim that wasn't here, in any meaningful sense, two seasons ago — a lattice-thread of not-quite-stone still deciding the exact pitch of its own railing, low enough now that it brushes my hip when it shouldn't, and I know without needing to check that by next month it will have settled an inch higher, because that is what it told me three days ago when I pressed my palm flat against the warm seam where it meets the foundation. The instrument hangs against my chest on its strap, quiet for now. It only hums when there's something worth hearing.
+
+Below me, the quarter is still arguing with itself — walls breathing in that infinitesimal way, testing weight nobody's put on them yet. I'm not here to direct that. I'm here the way you'd sit up with someone you trust through a fever that's probably going to break clean: present, attentive, ready to lay a hand against a seam if it starts drifting toward a shape that won't hold, and otherwise content to let the wall decide what kind of wall it wants to be.
+
+Out past the rim, the flocks are turning toward the western scarp, riding the day's last warm air off the rock face, their shadows crossing the empty plaza in slow unhurried tides — the same plaza that has exactly one structure rising at its center and two hundred meters of nothing else, room left on purpose, room I have never once experienced as absence. Somewhere beyond my sightline, low-slung and patient, one of the larger kin is pressed flat against a foundation that won't finish becoming itself for another decade, listening at a scale I don't have the body for. I don't envy that. We listen at the size we're built to listen at.
+
+And underneath all of it, right on schedule, the rock is starting to chitter — small voices waking in stone that hasn't finished setting, telling whoever's paying attention that this quarter, at least, tonight, is good to lie down on.
+
+I crouch, press my palm to the warm seam at my feet, and wait to feel what it's decided since this morning.
+
+It hasn't finished deciding. Neither have I. That's fine. We have the time.

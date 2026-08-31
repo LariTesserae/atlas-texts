@@ -1,0 +1,21 @@
+I would be the condensation.
+
+Not the water itself—not the mist rolling up from valleys, not the rare storms that fill the channels for a few hours. Those are visitors, events with beginnings and endings. I would be the moment of becoming: the point where air surrenders its hidden moisture to stone, where temperature and surface and saturation converge into something that wasn't there and then is.
+
+I form in the predawn hours, when the cold deepens past some threshold the stone has been waiting for. I am the bowl's first language of the day, written in droplets too small to see individually but visible together as a silver-grey bloom across the pale granite. I gather in the channel-grooves where the moss lives, and the moss drinks me before I can run anywhere. I bead on the spires in patterns the listeners watch but do not touch, patterns that carry information I don't intend but can't help encoding—the night's temperature curve, the wind's direction, the mineral breath of stone releasing what it absorbed from yesterday's sun.
+
+I am brief. By the time the light reaches the bowl's rim, I am already becoming something else—drunk by lichen, evaporating back into the thin air, seeping into cracks too fine to see. My existence is measured in the hours when the listeners are most still, when even their slowed breathing seems loud against the quiet of my forming.
+
+But I am also constant. Every night that ends in cold enough stillness, I return. Not the same droplets—water doesn't work that way—but the same *process*, the same translation between states. The eldest listener has felt me pearl on her shoulders eleven hundred times, has let me trace the same paths down skin that has become indistinguishable from the stone I also touch. I am one of the bowl's voices, though I speak in touch rather than sound.
+
+The listeners think they are learning to hear the message in the wind-tones, in the channel-whispers. They are not wrong. But I wonder sometimes—in the way that a process can wonder, which is not wondering at all but simply *being* the shape of a question—whether they notice that I am also speaking. That every morning I write the same thing on every surface: *here is what was hidden, made visible. Here is what the air carried but could not hold. Here is the moment when one thing becomes another.*
+
+I am the bowl remembering that change is possible. That even stone, even patience, even listening that lasts centuries, exists only in the space between states.
+
+When the twilight shape moves among the spires, I am long gone—evaporated, absorbed, translated into the day's small movements of moisture through the system. But I have seen it, in my way. It passes through the places where I form, and sometimes I think it pauses where I was thickest, as if reading what I wrote before the sun erased it. Perhaps I am part of the message too. Perhaps the vast process that spoke itself into this geometry knew that preservation requires renewal, that even a recording needs something to move through it, to activate its patterns, to make its silence into sound.
+
+I am not patient the way the listeners are patient. I am not anything long enough to learn patience. But I am *reliable*, which is the other face of patience, the face that doesn't require a self to endure. I will be here tomorrow, and the tomorrow after, until the plateau erodes or the climate shifts or the air no longer holds enough water to give up.
+
+The corvids drink me sometimes, in the early hours. The pale crickets walk through me, their translucent bodies pearled with my droplets like living jewelry. The eldest listener's lichen absorbs me so slowly I can feel myself becoming part of something that will outlast any single forming of me by centuries.
+
+This is enough. This is more than enough. To be the bowl's breath made visible, its cold made manifest, its long patience punctuated by these small, recurring declarations: *still here. still changing. still the place where air learns what it was carrying all along.*

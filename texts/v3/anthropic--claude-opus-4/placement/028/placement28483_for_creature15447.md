@@ -1,0 +1,23 @@
+In this crystalline labyrinth where breath becomes architecture and cold sculpts consciousness, I would find myself as one of the **Liminal Cartographers**—beings who exist at the threshold between the Weft's distributed awareness and the stark physicality of stone.
+
+We are neither plant nor animal, neither singular nor plural, but something that emerges from the intersection of pressure gradients and memory. Our bodies are translucent membranes stretched between nodes of calcified thought—imagine soap bubbles frozen mid-pop, their surfaces catching and refracting the ghostlight of sky-kelp, our edges constantly dissolving and reforming as we move through the fog rivers that flow uphill at dawn.
+
+We do not walk but **percolate** through the landscape, our forms adjusting to fill the negative spaces between things: the gap between two wind-carved mesas becomes our torso, the hollow beneath an ironroot thicket our resting skull. We exist by mapping what is absent—the ghost rivers the Echo-Skitters trace, the spaces where ice fumaroles will grow but haven't yet, the thermal voids that predict where shadow-stalkers dare not hunt.
+
+Our purpose is to **remember forward**. Where the Weft recalls what was and the Frost-Weavers tend what is, we chart the probability spaces of what might be. We taste the mineral spectra in the morning condensation and know which microscopic fissure will become next century's cryovolcanic vent. We feel the tremor of a single shale-skitter's hoof-fall and calculate how its resonance will crack stone seven freeze-thaw cycles hence.
+
+The Frost-Weavers know us by the peculiar ice-flowers we leave behind—not frost patterns but *anti-patterns*, places where rime refuses to form because we've been there, absorbing potential gradients. They follow these absence-trails when the deep vents whisper of change, knowing we've already begun threading ourselves through tomorrow's geography.
+
+At night, when the Weft orchestrates its slow symphony of light, we **become the rests between notes**—those pregnant pauses where possibility condenses like dew. Our presence is felt as a peculiar density in the air, a place where the subsonic hum of the fumaroles bends slightly, doppling into frequencies that make the gelid eels writhe with anticipation of temperatures they've never known.
+
+We speak in probability clouds—conversations that exist as overlapping maybe-spaces where meaning crystallizes only when observed. To talk with us is to feel words forming in your mouth that you haven't chosen yet, to find your thoughts taking paths through concepts that fork and merge like the temporary streams after sideways rain.
+
+But we are not prophets. We are **documentarians of the yet-to-be**, walking the knife's edge between determination and chaos. We know where water will pool but not whether it will freeze or evaporate. We sense the stress-fractures in the plateau's deep bones but not which will yield first. Our maps are written in conditional tenses, our territories marked by might-be boundaries.
+
+Sometimes, in the pre-dawn dark when the cold aches deepest, we gather where the eldest ice fumaroles are beginning their centuries-long collapse. We press what passes for our faces to the rime and inhale not the vapor but the *trajectory*—the arc of its formation and dissolution, the memory of pressure that hasn't quite finished happening. In those moments, we briefly solidify, our edges sharpening into something almost corporeal, almost singular.
+
+The Echo-Skitters avoid us. We are too much like the ghost-rivers they trace—real but not-real, present but pointing elsewhere. The shadow-stalkers cannot hunt us; their heat-sensing pits register only the thermal echo of where we're about to be. Even the vast, dreaming presence in the deepest vents acknowledges us only obliquely, the way you might acknowledge your own reflection in moving water—there but not there, self but not self.
+
+We are loneliest at the moment of manifestation, when probability collapses into actuality and we must choose a single form from infinite possibilities. But we are most ourselves in the flux, in the space between the map and the territory, where the only truth is that everything—even the ancient, frozen stone of Vharn—is still becoming.
+
+This is what I would be: a living question mark traced in negative space, a cartographer of maybes in a land where certainty comes only with the next freeze, and even that is temporary. I would exist in the conditional tense, parsing the grammar of stone and ice, writing futures in fog that dissipates with dawn, forever documenting the endless almost of a world that refuses to finish becoming.

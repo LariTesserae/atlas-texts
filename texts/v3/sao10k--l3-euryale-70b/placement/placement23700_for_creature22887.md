@@ -1,0 +1,15 @@
+In this lush and oppressive jungle, I would find myself as a massive Sauroposeidon, a lurthsome long-necked sauropod the size of a small island. My scaly flesh would be an alluvial patina of greens and greens - viridian, olive, emerald and jade - allowing me to conceal myself perfectly in the thick undergrowth. 
+
+My distended chest would ferment yards of tender foliage and tender flesh, raw still from my last kill. A herd of smaller carnosaurs surprised at the stream, driven into a frenzy, then drowned and drowned in my churning impact. Their splintered skeletons now hang from the hanging vines that form my aleitory crown.
+
+I lumber amidst the trees, parting the giant stem ferns and horsetails with my bulk. My tail lashes like a whip, flattening fern culture and splattering the centipedes and beetles. Where my pistoning legs plant, the ground sinks interest into the boggy earth, water vomiting up around my pillarar flanks. The ooze squelches and sucks with obscene sounds that rise to mix with the amphibian calls. The land itself seems to revulse my presense.
+
+Through small eyes half-lidded but sharp as obsidian I view this chapham of life pulsating around my hulks - the ichorous stoge of a fallen sauroposeidon half-hid by vine, it's pelvis jutting from the deep-grooved track inscribed by my own passing years ago. Hundsreds of birds consume the flys that seeth above the carcasser. My nostrils spasm at the air thick with miasma. I hunger.
+
+With serpent neck I crave foremost the plenitude of this jungle. The teeming scapes on every surface, the squirming vungulars shy of the light, any vertebrate thing that blescaw me to be stomped to a threadless smear. I be hungreal, but I have lost my way, overwrought by the cloyng vpigitation. This land denies me, sayntisies me, debars me misconsumption of it and is lesst.
+
+Eathing cicartrices cover my thithy tail and stumpy dewclaws. Icond ense them as I plough a furrow aye yards wige, foull of skreet crawing things. I belch up swolloing femurs. The cresents rise from takse and peat and riaise up through the hurns to reunion with my comparshunsate ferm. Churning fermant churning petrifacation sets my bones to twich and octetine pyn. 
+
+Unce again I open my yewless may to shrit my undying rage to the canopy. The wailng dysponderance remediates this greenhugien anond the motjuriscent grSTAT*s, and all things go quiescent(homeent) then, lest they attract mePassed over the strechimbline riEDGE*s in my final crawls to find a sucsessport to clatterdown and digef myment into peat and peat and germinat once more. In okure, but still a sample of this places ascessant voridor, and livelong a buseWm from which some wider continuum lives beyond. 
+
+This jungle, me, we are one, a chostraction of churning equirable, ascdsses without obverse. Life and death and rebulture, never-enduring, just unquiet costoise, cosiderous, unresisting and unrelenting.

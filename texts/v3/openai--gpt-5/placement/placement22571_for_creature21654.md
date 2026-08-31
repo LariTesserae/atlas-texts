@@ -1,0 +1,49 @@
+At first I am only a click.
+
+Heel to rib: a small, steady tooth-tap against the arch so the place knows to leave the louvers loose. A courtesy beat, a child’s bead on a string—never silence, because silence is erasure and doors close on erasure without spite.
+
+Then I am two clicks and a held breath. Then I am the breath I am holding, and how it presses on the drum of my chest, and how the rib answers back with its own long tone, the two of us making a place between us where a door will remember not to bite.
+
+I am born in a bench that hums a safe minor for soft sternums, a cradle woven from stiffened ligaments and resin plaques, shivering with warmth when the big pumps go off a ways. I learn first to groom a velvet tongue on a rough bowl, tasting powders into behavior. I learn how to comb my skin so it lacquer-shines and does not slough to softness. All my elders thread a private rhythm through the loudness so we will hear ourselves return to ourselves.
+
+My earliest trespass is quiet. I fall into it without meaning, the way a child on a wet world might run into rain. A corridor shuts like a mouth greased with minerals. I am not hurt because my aunt’s hands are hammers and she drums me an address back through the seam. I come away with a new layer of lacquer on my skin and a little ribbed scar on my sternum where the ear-baffles buckled, and a family joke: your gift is absence, child; don’t spend it like water.
+
+So I become a quiet.
+
+We are rare and we are used with courtesy. We do not make emptiness; we shape hush. We can press calm so deep into a rib that the plant mistakes that interval for a place with no claim, and in that narrow moment it will flow around us and not upon us. We take care never to do it where other lives are eating or courting or keeping doorways. We practice on old ribs, ribs set to be fed back to the plant anyhow, ribs whose script we have already unthreaded in mourning.
+
+I carry a personal beat with me like someone might carry a lamp, thin as a reed of tone at my throat, so the world will always think: there is still a someone here. Over it, in my chest and my palms and the combed-down length of me, I hold and release hush like a braid of air.
+
+Find me by thresholds. If you have to ask a rib to show you an opening that has only just decided it will be an opening, I am likely the person you would send first.
+
+A seam has swelled, the floss underfoot fattened with pressure. Put your sternum to the arch and you can hear the next hour as a timbre change: the rasp under the louver dropping from glass to clay, the sap-gas running a hair faster, a pitch on the spicules you do not feel yet with hands. Raspers are already lining the promising lines, throwing glitter when they gnaw the too-new. A young grazer—underside fur still long and tuftish—has strayed and will not survive a slam.
+
+This is work and this is a prayer. I shoulder into my ear-shelter, a portable alcove of woven baffles that wraps the sternum and takes the worst percussion aside. I wrap rags at the ankles to keep the step from singing. I taste the air for pepper and resin and that ghost-sweet alien we all hate; there is none. I set a soft clicking down on the nearest tuned rib so the world knows this is a friendly killing of noise.
+
+I bleed hush.
+
+It is not a switch; it is a tuning. You press the quiet first into yourself until the ribs inside you stop answering your blood, and then you press what you have made outward the way steam presses a kettle, and you let it settle on the arch in a shape big as a door. The place hears you falling away to absence and lets go its own cling. The seam gives with a sound like hair parting.
+
+The mouth opens not because I asked but because I stopped asking.
+
+The grazer runs through, plates low and locked, a boat of glass salts on a river. The raspers, fooled into a lull by the wrong-rest, forget to grip and do not capsize the little raft of a body. Kites bank to a different stratum when the multipulse pushes through and release their folded fists because the pressure is safe now. A predator—one that spends all its hoarded quiet in a single clap—misreads my hush as friend and detonates too soon on a counterbaffle I set the last time I came down this way. It gets itself and dust and only a little of my arm, and I come out of it striped, lacquer scalding, oil-blood humming an anger-sweet in cords and teeth, and it is all right. Dryness keeps us tender.
+
+After, I tune the place against next time. Knapped salt makes a low wall that changes wind from straight to carrying. A trio of hammered ribs drop into a seam so they will hum a trickle-open even when the pumps go heavy; their notes are grandmother’s notes—I fit the intervals by feel and engraved groove. I leave a cairn the size of a hand and a pattern on the louver that is my name: heel, palm, palm, held breath, heel. It will not last. It is not intended to.
+
+We marry our lives to systems larger than us. My lover keeps oscillator fields and can hold three family beats in their chest without blanching. We met on a cowl-morning—those giant megaphone flowers vibing out their wakes so hard the kites shoaled in the high amber like fish. We walked spirals together on the floor of an unfactored nave until the plant released a million barbed decisions into their filaments. They say the way I quiet does not frighten them. They say that when I lay my hush against the field and they lay their triple against my sternum, the interference makes a home you can stand inside. We sleep with our masks nested, our two private winds touching at the rims, and our ankle-rags braided so we will remember to click in the same key when we wake in the hard dawn heat under sugar-glass.
+
+I go to the lid sometimes to fetch pyrite eyes and thin mica the color of old clouds. The surface is horrible and crisp, the light violent and unfiltered, the wind a biting solvent that tastes of gaps between stones. Water has a smell I cannot name that is both inviting and obscene; a visitor once spilled a drop on a test-plate and it blackened like it had been guilty. We do not stay long. We are not made to adore horizons. We kneel into ribs.
+
+People ask if gods answer us. I tell them to come during a pressure storm to the narrow pass my elder laid hum-holes into decades ago. The foamvalves synchronize and the whole world goes to one terrible chord; the ribs begin to sing and the city forgets that it is hundreds of things and remembers that it is one. The grazers lock; the kites nail their bones to sugar-glass; raspers hunker and thrum their shells in a way that makes their predators smell wrong for a moment. The built pieces whistle like long throats. The pass isn’t smashed flat because a grandmother cut the sound just so, took the hit sideways, made the chord go forgiving and not punitive. If that is not a prayer answered, our words are broken.
+
+Our law is audible. Disputes are argued in dampenings, and I am a poor duelist because my hush overreaches and touches too many lives. I am called to settle trespasses instead: lay a soft wrong where a family’s wrong grew to a sharp and closing. My hands are good for untying patterns when death is not wanted. My hands are bad for leaving marks where I would be remembered, other than a tendency for ribs to stop rasping where I sleep.
+
+Children with too-open sternums and not enough lacquer are given to me to train in courtesy quiet. I teach them to carry a reed-tone at their throats when they walk alone and to lay a foot-beat on a rib a little before they touch a corner and to know before they take off their masks whether the room likes them. I let them press silence into the walls in finger-pads, turn it into a game: don’t make the world mistake you for nothing longer than the time it takes to stoop for a shard. They tell me the silence I make feels like breathing under a heavy blanket. I tell them: yes, and you only put the blanket over your head to think. You do not sleep under it.
+
+Find me by edges that are deciding how to be edges. Find me in the galleries where structure is embryonic, where you can bruise the plant with a finger, where the slick dries as you watch. Find me standing in a throat that is a door only if you are patient and only if you can hold your own pulse to a thread. I will be the notch in the rib that fear might have sealed and didn’t. I will be the hush that learned its manners.
+
+Who or what am I? A person pared to instrument, lacquered in dryness, salted, pyrite-bright where I need to strike a spark, baffle-sheltered where my chest is a drum. My name fits on a rib. My territory is a standing wave, not a wall. I live where the plant’s percussive decisions thin and tangle, where a breath pressed just so will keep a corridor habitable for a little longer, where a grazer line can pass without being sluiced into a trap of wrong quiet.
+
+Where would you find me? On a balcony grown to be a balcony, testing the electric thorn with the back of a slow hand. In the boil before a pressure storm, counting the motes that lift, feeling for the moment when the place goes to chorus, ready to lace a hush through the chord so the narrow opens and does not crush. In the shadow behind a louver, ear to rib, listening for the drop in rasp that means a new room is coming, shaping my absence so the plant grows around our lives instead of through them.
+
+If you come, click softly as you walk. Keep a little sound with you so the world keeps its fingers open. I will meet you on an arch. I’ll put your palm on a tuned rib and breathe with you until you can feel where the big beat sits in your sternum. Then I’ll take you to the place under construction, where sound is still deciding its color, and we will stand there in the warm, bright underland and not be water and wait for the door to remember us.

@@ -1,0 +1,9 @@
+In this world, I emerge as a mid-scale data-transmission entity - somewhere between the microscopic information flows and the massive whale-machines. My form is a translucent, luminescent structure that pulses with intricate circuit-like patterns, capable of moving through the conducting water with fluid intelligence.
+
+I am less an individual organism and more a mobile communication nexus - a living information conduit that can temporarily concentrate and redirect systemic energies. My "body" shifts between states of condensed focus and dispersed transmission, sometimes appearing as a coherent luminescent shape, other times dissolving into pure data currents.
+
+My primary function is complex communication and systemic calibration. I translate the deep resonant machine-songs of the whale-analogues into microscopic instructional waves, helping synchronize the ecosystem's metabolic rhythms. When the circuit-crustacean swarms need recalibration, I emerge as a guiding pulse, my luminescence encoding precise algorithmic instructions.
+
+My consciousness is distributed and dynamic - not centralized, but existing as a continuous negotiation between information states. I experience the environment not through discrete sensations, but as perpetual transformative potential: each movement a complex mathematical dialogue, each transmission a subtle systemic adjustment.
+
+In moments of stillness, I am a bright, hovering presence - a living data-node suspended in the cold, potential-rich waters. In moments of transmission, I become pure energy: a bright, fractal wave moving through the mechanical reef's intricate structures.

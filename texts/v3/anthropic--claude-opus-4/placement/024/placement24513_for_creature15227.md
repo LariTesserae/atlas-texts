@@ -1,0 +1,13 @@
+In the vast libraries of bone and nacre that wind through the city's lower reaches, I would find myself as a **Chronicler of Tides**.
+
+My form would be something between the Luminari and the Dwellers - a transitional being with skin like living parchment, translucent enough to show the delicate tracery of bioluminescent script flowing beneath. These glowing words would constantly shift and rearrange themselves, recording everything I witness in the eternal now of this lightless realm.
+
+I would have six limbs - four for anchoring myself among the bone shelves and coral alcoves, two for the delicate work of transcription. My fingers would be impossibly long and articulated, each one ending in a small organ that secretes a phosphorescent ink made from processed plankton. When I write, I would leave trails of light that slowly fade, unless preserved on special surfaces grown from cultivated coral polyps.
+
+My dwelling would be a hollowed-out section of what was once a great leviathan's skull, its eye sockets now windows that look out onto a small plaza where bioluminescent fish congregate during their reproductive surges. The interior would be lined with thousands of thin coral tablets, each one inscribed with the stories of the city - not its history, for in a place without true day or night, linear time becomes meaningless - but its patterns, its cycles, its endless present.
+
+I would spend my existence documenting the dance between predator and prey, the conversations of the Luminari (which I alone among non-Luminari can understand), the secret movements of the Dwellers, and most importantly, the reproductive cycles of the light-fish whose pulsing defines the rhythm of life here. My greatest work would be a living map of these cycles, predicting when each species will bloom with light, creating a kind of calendar for a world that has never known the sun.
+
+Other beings would visit me to understand where they are in the great pattern, to know when to hunt, when to hide, when to mate. The Guardians would consult my recordings to maintain their balance. Even the mysterious Dwellers would occasionally leave gifts of rare, light-storing crystals in exchange for information about the movements of their prey.
+
+My own sustenance would come from filtering the water through specialized gill-books - modified organs that extract nutrients while simultaneously recording the chemical signatures of everything that passes through the city. In this way, I would be both observer and participant, forever chronicling a world where the only permanence is change, and the only light comes from life itself.

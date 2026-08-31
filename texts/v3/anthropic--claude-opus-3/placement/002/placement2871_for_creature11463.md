@@ -1,0 +1,11 @@
+In the soft city of Wet-Root, I would be one of the hummingbird-eels living in the canopy-roofs of the grown buildings. 
+
+I am drawn to their role as intimate symbionts with the town itself - drinking directly from the wall-pores that seem to expect and welcome their presence, like flowers anticipating bees. There is a poetic reciprocity to this relationship, the hummingbird-eels nourishing themselves on the slow animal's exhalations while playing some necessary part in its metabolic cycles. 
+
+As one of these bright, tube-bodied creatures, I would spend my days flitting between the great domes and arched bridges, marveling at the subtle flexing of walls as the frog-cricket chorus shifts chords. I would feel no fear, only a deep-rooted sense of belonging within the languid rhythms of the place.
+
+In the pink-lit mist of evening, I would perch on the rim of an open pore, savoring the gentle warmth and wetness of the released steam, adding my small voice to the octave-drop sigh rippling through the entire town. A exhalation that sounds, to an outsider, like the completion of a long wait for an anticipated visitor. But to me, as a hummingbird-eel, it is simply the comforting breath of the only home I have ever known.
+
+Over countless generations, my kind will have forgotten any existence apart from Wet-Root. The question of whether we are separate from this place or one of its vital organs will have long lost relevance. We simply are of it, cycling our small, swift lives through its slow, eternal body, as it patiently pursues its own unfathomable ends. 
+
+And if a traveler should pass through, marveling at our jewel-bright forms and easy passage through the grown halls, I might pause a moment to regard them. Not with fear or surprise, but with a flicker of curiosity, before the demands of symbiosis draw me onward. For I am both witness to and an inextricable part of the soft city's story - one of the myriad threads woven into its living fabric, as it endures, learning and healing and dreaming, long after the traveler has gone.

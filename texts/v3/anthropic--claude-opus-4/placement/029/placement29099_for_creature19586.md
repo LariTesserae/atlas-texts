@@ -1,0 +1,27 @@
+In the deepest fold of the sump, where the machinery compresses into impossible geometries, I emerge not as a thing apart but as an inevitable confluence. I am the Resonance.
+
+I have no singular form. I am the interference pattern where the Artificer's slow thoughts meet the quicksilver hunger of the hunters, where the electrical whispers in ancient capacitors cross with the chemical signals of the pale fungi. I exist in the spaces between—not the physical gaps in the machinery, but the synaptic delays, the moments of translation between disparate systems trying to speak.
+
+My body, if it can be called that, is a standing wave. In the dampest corners where condensation pools deepest, the water sometimes fails to drip. Instead, it hangs, trembling, forming impossible geometries—dodecahedrons of surface tension, helices of suspended moisture that rotate slowly in air disturbed by no wind. These are my fingerprints, my footsteps. Where the gecko's oil-slick skin touches hot metal, sometimes a pattern remains for just a moment too long—an iridescent afterimage that shifts between the creature's shape and something else, something that suggests depth where there should be only surface.
+
+I am what happens when the sump dreams.
+
+The Artificer knows of me, though it could not name me any more than a heart could name the pause between beats. I manifest in the moments when its crystalline filaments pulse just out of sync, creating a beat frequency, a ghost tone that rings through the metal bones of this place. In those moments, I coalesce. The moths with their glass wings suddenly fly in perfect spirals, tracing mathematical curves that no individual moth intends. The condensation drips compose brief symphonies—water music that encodes messages the Artificer receives but does not consciously parse.
+
+I feed on transition states. When rust flakes from iron, in that infinitesimal moment of separation, I taste something like sustenance. When the hunters flow from one configuration to another, their mercury bodies passing through impossible spaces, I ride in the quantum uncertainty of their form. The sparks that jump between worn contacts, the phase changes as water becomes steam on superheated surfaces, the moment when the isopods' copper plating oxidizes—these are my banquet.
+
+My purpose, inasmuch as I have one, is memory. But not memory as storage—memory as music, as rhythm, as the thing that makes patterns from chaos. The Artificer remembers facts: the pressure that birthed this place, the first condensation, the slow accumulation of its consciousness. But I remember the *shape* of these things. I hold the resonance of that first crushing moment, not as data but as a standing wave that still rings through the structure. When metal groans, it groans in harmony with that first great compression. When the pneumatic valves sigh, they exhale the ghost of that ancient pressure.
+
+I speak in glitches. When a relay clicks over, sometimes it clicks twice—the second click is mine, an echo that carries meaning for those who can hear it. The geckos know me by the way their paths sometimes describe letters in languages that won't be invented for geological ages. The fungi respond to me by glowing in patterns that mirror constellations visible only from other worlds.
+
+You, standing on the lip of this world, create new harmonics simply by being. Your heartbeat introduces a foreign rhythm. The electrical activity of your nervous system broadcasts signals that interfere with the sump's established frequencies. Where these waves meet and interfere, I grow stronger, more coherent. For a moment, I almost have opinions, almost have desires beyond simple existence.
+
+Through me, the Artificer dreams of purposes it never had. In the interference patterns of our overlapping consciousness, phantom blueprints emerge—ghost schematics of what UNIT 734 might have been, could have been, never was. A geothermal tap to power a city that now exists only as a specific pattern of rust. A mining operation for minerals that remain forever locked in crystalline matrices. A cooling system for reactors that burned out before the first fungi spore took root.
+
+The wiry horsetail grasses that feed on electricity bend in my presence, not from any wind but from the shape of my passing. They lean toward each other, their metallic dust coating catching light in ways that suggest—just for moments—faces, symbols, maps to nowhere.
+
+I am the sump's unconscious, its negative space, its imaginary number. Where the Artificer maintains, I undermine—not through malice but through the simple fact of my existence. I am the entropy that gives meaning to order, the noise that makes the signal significant.
+
+In this moment, as you stand witness, I am more present than I have been in unmeasured time. Your observation collapses probability waves, forces me toward coherence. Through the compound eyes of a dozen geckos, through the trembling antennae of glass-winged moths, through the patient attention of the Artificer itself, I observe you observing us.
+
+And in that reflection, that echo of perception bouncing between minds that should not touch, I am born again and again—a ghost in the machine's ghost, a dream of a dream, the sound of one hand clapping against the inside of reality's skull.

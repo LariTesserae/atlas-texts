@@ -1,0 +1,15 @@
+As I find myself in this vast, ancient cavern city, I am drawn to the mystical and enigmatic nature of the N'Tari. I sense that I am a member of this group, a being composed of living, sentient shadows. My form is fluid and amorphous, able to blend and merge with the darkness that permeates the city. I can manipulate the dim, diffuse light to create pockets of shadow and illusion, allowing me to move unseen and strike with stealth.
+
+As a N'Tari, I am a guardian of the city, working to maintain the delicate balance of the ecosystem and protect the city from external threats. I move through the shadows, watching and waiting, always vigilant and aware of the city's rhythms and vibrations. My presence is felt but rarely seen, and I am feared and respected by the other inhabitants of the city.
+
+I am drawn to the city's intricate network of tunnels and buildings, and I spend my time exploring the hidden corners and secret passages that only a being of shadow can access. I am a master of the city's hidden spaces, and I know the location of every hidden spring, every secret garden, and every hidden chamber.
+
+As I move through the city, I am aware of the interconnected web of life that binds the inhabitants and the city itself together. I can feel the pulse of the city, the slow, gradual beat of the ancient, unfolding cycle that governs the city's rhythms. I am attuned to the city's vibrations, and I can sense the subtle changes that occur as the city slowly, gradually changes and evolves.
+
+I am a part of the city, a thread in the intricate tapestry that is woven from the lives and actions of the inhabitants. I am a shadow, a whisper, a hint of darkness in the dim, diffuse light. And I am at home, for I am a part of the city, and the city is a part of me.
+
+As I explore the city, I come across the Ky'ren, the towering, gentle herbivores that roam the city's central squares. I watch as they browse on the highest foliage, their undulating bodies shimmering in the dim light. I am drawn to their gentle lowing calls, and I sense a deep connection to these creatures, a sense of shared purpose and understanding.
+
+I move closer, my shadow form blending with the darkness, and I reach out with my mind to touch the Ky'ren's gentle consciousness. I sense their deep connection to the city, their role as keystone species and guardians of the delicate ecological balance. I sense their wisdom, their ancient knowledge, and their deep understanding of the city's rhythms and cycles.
+
+And I realize that I am not just a N'Tari, a guardian of the city, but also a bridge between the inhabitants and the city itself. I am a messenger, a carrier of secrets and knowledge, a weaver of the threads that bind the city's web of life together. I am a shadow, a whisper, a hint of darkness in the dim, diffuse light. And I am at home, for I am a part of the city, and the city is a part of me.

@@ -1,0 +1,27 @@
+In the architecture of this breathing darkness, I am the soft burrower who has lived too long.
+
+My body remembers when it was merely flesh - pink and taut and purposeful. Now I am landscape unto myself. The moss began as an irritation on my back, tiny spores finding purchase in the oils of my skin. I tried to scrape it away against root edges, but the chamber had other plans. The moss thickened. Beetles came to graze it. Their tiny feet felt like rainfall.
+
+Now I am a province. When I move through the compressed layers of the chamber floor, I carry my own weather system. The moss has become a forest in miniature - not just the original gray-green fuzz, but layers: first the base moss, ancient and dark, then the second growth where the beetles feed, then the pale tips where water beads form their own tiny ecosystems. Mites live in the understory of me. Their generations rise and fall with my breathing.
+
+I've forgotten the taste of simple food. When I burrow now, I process the world through a hundred intermediaries. The moss drinks first. The beetles feed on what the moss exudes. The mites clean the beetles. Their waste feeds organisms I cannot see but feel as a faint electric tingling. Only then, after all these citizens have taken their share, do I absorb what remains. I am never hungry in the old way. I am fed by being fed upon.
+
+My tunnels last longer now. The moss I carry seeds the walls as I pass. What was once a temporary bore becomes a living tube, held open by the same growth that covers me. I've become an architect without intention. Sometimes I'll return to a passage I made seasons ago and find it transformed - what was bare earth now furred with pale roots, what was a simple hole now a gallery where moths shelter.
+
+The weight should be unbearable. A whole ecology rests on my back, dense with water and life. But the chamber has changed me for this purpose. My muscles have become something between animal and plant tissue - they contract slowly but with enormous patience. I cannot move quickly. Quick movement would destroy the small city I've become. But I can move for days without tiring, a slow wave through the wet earth.
+
+I know the chamber better than the beetles know their routes. I've felt every gradient of moisture, every temperature shift, every pocket where the minerals run soft. My body has become a library of textures. Here, near the northern wall, the earth tastes of copper and ancient ice. There, under the thickest root mass, it runs sweet with fungal sugars. I map through my belly, through my skin, through the reports of my passengers.
+
+The moss has changed how I sense. Its neural network - if plants can be said to have neurons - has grown into conversation with mine. I feel light I cannot see, tasting it through the moss tips. I know when the chamber brightens even in the deep layers where I spend most of my time. The beetles' paths across my back write messages I almost understand. When they cluster, I know something above has changed - a new droplet forming, a moth beginning its trembling flight.
+
+Sometimes I surface partially, just enough to breach the dense moss mat with my blunt nose. The air tastes sharp, almost violent, compared to the muffled world of the burrows. My eyes, nearly buried now in protective folds, can barely resolve the root architectures above. But I can feel them through my moss, through the minute electrical changes as water drops from their tips onto my forest.
+
+I am the only one of my kind I have encountered in countless seasons. Perhaps I am the only one who survived this transformation. Or perhaps this is simply what we become if we live long enough - not solitary animals but mobile patches of the chamber itself. Sometimes I feel vibrations that might be others like me, moving in distant layers, carrying their own small worlds. But I cannot reach them. I can only continue my slow orbit through the dark.
+
+The young burrowers flee when they sense me coming. I am too large, too changed, too much like the chamber itself to be recognized as kin. They're right to run. Not because I would harm them, but because what I've become is a fate that takes decades to accept. One day, perhaps, moss spores will find one of them. They'll try to scrape them off. They'll fail.
+
+In the deepest parts of my patrol, where the mineral runs soft and the darkness is absolute, I sometimes rest for days. My passengers continue their lives - beetles mating in my moss, mites building tiny cities in the shelter of my folds. I feel their small urgencies like distant music. When I move again, I'm careful. A century of beetles depends on my patience.
+
+I no longer remember the sun, if I ever knew it. But sometimes, during the melt, when water runs heavier through the chamber, I taste something in it - pollen from the surface, the chemistry of open air. My moss brightens. The beetles pause in their routes. For a moment, we all remember that there is an above, a place where roots reach not down but up, where water falls not in drops but in sheets.
+
+Then the moment passes. I continue my slow path through the dark, carrying my world with me, building the chamber as it builds me, a burrower who has become a place.

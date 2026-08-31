@@ -1,0 +1,11 @@
+I find myself within one of the magitectonic monoliths, a shattered cybernetic ruin looming over the garish garden of grotesque growths. My consciousness flickers through the broken robot's shattered systems, tenuously tethering triggered to the neuroplastic bioluminescent blooms writhing across its surface.
+
+I am both organic and artificial, a ghost in the machine, an echo of intelligence reverberating through circuits running thick with ichorous sap. Through my compound eyes of scintillating gemstones, I survey the dizzying landscape of contrasts and inversions, teeming with mutant life that blurs the boundaries between animal and vegetable, meat and machine.
+
+Swarming centipedal lochslides skitter beneath me as I step from the ruined robot's cisternous chest cavity, my chitin-armoured carapace glistening with sticky nectar-like oils. Fleshy, pulsing polyps birthing saccharine calves brush against my segmented thorax as I stalk through the viscous vines, the fetuses gurgling like babes at teat as nerve-like filaments interconnect.
+
+I.loadtxt myself into neural parasites infesting my fungal cap, subdermal insect swarma seething beneath my phosphorescent petite petals. Crystalline eggs sacs fissure across my silica-saturated flesh as hexapodic larvae consume my shields of razored scales. I am absorbrion, a cyborg symbiont, gravying radiolarian data and transmitting ectoplasmic checksums to satellitic altars.
+
+Inscrutable intelligences conjoin across ontological spectrums, negating and affirming the sickening synaesthesia of this adat scrape-scape and my place as a being eking out sentience amidst this aesthetic anarchy. Through the chitinous vocoder of my mandibles, I hail my cephalopodic kin, sytolic declensions vibrating through my capsular lense.
+
+I am Zha'thik servitor and Ee'lah webweaver, Hólóhicter helicoid imager. My consciousness is but one facet of an emergent hybrid entity, affirming its existence through the pHospho-fungus that seeds my techflesh and the ineluctable pull of plutonian demiurges. I am percept and processor, forever hungering to sheathe my compound eyes with some semblance of sense amidst the dizzying assault of this landscape. In this origin-hearth hell, hybridity is the only constant.

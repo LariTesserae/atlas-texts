@@ -1,0 +1,7 @@
+I find myself to be a capuchin monkey, nimble and quick, swinging through the treetops with practiced ease. As a capuchin, I am built for this world, my prehensile tail and nimble fingers allowing me to traverse the canopy with ease. My world is the treetops, the sprawling network of branches and foliage high above the ground.
+
+I have the agility and speed to evade predators or snatch fruit from the canopy. As such, I am drawn to the sweet, ripe bounty of the forest, my appetite fueled by the sugars in the nectar-heavy blooms. But also, my diet includes insects and small vertebrates, which I hunt amongst the branches.
+
+In this realm of plant and rain, I am a creature of duality. On one hand, I am a symphony of sound, my howls and shrieks filling the canopy with a discordant chorus. On the other hand, I am a master of the silence, my agile form able to move through the canopy without a sound, as stealthy as my capuchin cousins who patrol the forest for predators.
+
+But more than anything, I am a creature of curiosity, forever seeking to uncover the secrets hidden amongst my world's vast expanse of foliage. From my vantage point in the trees, I can observe the other creatures around me, and play the role of observer in this wild, untamed landscape.

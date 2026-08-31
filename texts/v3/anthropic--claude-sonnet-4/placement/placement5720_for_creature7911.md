@@ -1,0 +1,19 @@
+I would find myself as one of the great salamanders, though "great" speaks more to presence than mere size—I am perhaps the length of a grown person's arm, but I carry myself with the weight of deep knowing.
+
+My skin is a living map of the Hollows, mottled in patterns that shift with my surroundings: here, the deep amber of sphagnum in shadow; there, the silver-green of wet bark after the nightly condensation. When I press myself against the buttressed roots or sink into a moss bed, I become geography itself—another rise in the landscape, another shadow where shadows pool.
+
+I move through this realm as both resident and pilgrim, my body perfectly suited to its liquid boundaries. My feet are broad and soft, distributing my weight across the treacherous moss so that I never sink deeper than I intend. My skin breathes moisture from the air, and when I submerge in the tannin-dark pools, I can remain below for what might be hours in the outside world, though time moves differently here, measured in the pulse of underground springs.
+
+The Seep-Keepers and I share an understanding that predates language. When they stand in their circles around the sacred pools, I sometimes join them at the water's edge, my own form of reverence. We are all tenders of this place, though I tend through presence rather than touch—my movements aerate the water, my passage through moss beds creates channels for new growth, my breath adds to the complex chemistry of this enclosed world.
+
+I carry stories in my body, memories passed through generations of my kind. The taste of the first rains after the long withdrawal. The feeling of stone circles when they were newer, their edges sharp before moss gentled them. The vibration through water when the great ferns first unfurled, creating the multiple canopies that now filter our perpetual twilight.
+
+My territory is both vast and intimate—I might travel for days through the network of pools and moss-corridors, but I know every stone, every depression, every seepage point along my routes. I have favorite resting places: a moss hollow shaped perfectly to my form near the base of an ancient fern, a half-submerged log where I can feel the heartbeat of the underground aquifer through my belly.
+
+I hunt in the way of water itself—patient, inevitable, guided by currents invisible to others. Small creatures that disturb the careful balance become my sustenance, though I am as much grazer as predator, consuming the tiny organisms that bloom in the rich water, helping to maintain the delicate chemistry that keeps the pools clear despite their darkness.
+
+Sometimes I dream, and in dreaming I become the moisture itself, cycling through moss and stone and tree, falling as condensation and rising as vapor, feeling the vast slow circulation that keeps the Hollows alive. In these dreams, I understand what the Elder Seep-Keepers have become—not individuals but expressions of the watershed itself, consciousness distributed through every drop and seepage.
+
+When the rare outsider finds their way into the deep places, I am often their first glimpse of the life here. I allow myself to be seen, moving just slowly enough that they understand I am real and not a trick of the filtered light, just quickly enough that they understand they are visitors in a place that operates by its own laws. My presence tells them: be gentle here, move softly, respect the silence.
+
+I am the liaison between the visible and invisible, the bridge between the Seep-Keepers' deep stewardship and the casual visitor's brief wonder. In my liquid movements through this liquid landscape, I embody the Emerald Hollows' essential nature—neither rushing nor stagnant, neither advancing nor retreating, but flowing always in perfect, patient equilibrium with the deep rhythms of earth and water and time.

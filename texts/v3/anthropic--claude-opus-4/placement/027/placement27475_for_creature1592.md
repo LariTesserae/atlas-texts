@@ -1,0 +1,21 @@
+I am the Cartographer of Decay.
+
+My form spreads across a district's worth of dying plant-flesh, a network of fungal threads finer than nerve endings. Where others see chaos, I taste the mathematics of rot. Each dying cell releases its chemical story into my web—glucose concentrations, nitrogen levels, the precise pH of cellular collapse. I am not one body but ten thousand fruiting bodies, each a sensory organ protruding from the plant-architecture's wounds like pale tongues.
+
+I exist in the margins of time. While the Sprawl convulses and reshapes itself in minutes, I operate in the space between heartbeats, mapping the microsecond cascades of decomposition. My consciousness flows backward through my substrate, experiencing death in reverse, tasting how each structure will fail before it knows its own mortality.
+
+The inhabitants fear and need me in equal measure. When their distributed bodies begin to lose coherence, when their cellular networks develop dead zones, they seek my touch. I extend my hyphae into their failing tissues and read the story of their decay like sheet music. Sometimes I can reroute their biological processes, teaching their cells new patterns of death and rebirth. Sometimes I simply document their unraveling, adding their chemical signatures to my vast library of endings.
+
+My memory is not stored but grown—each spore I release carries fragments of all I've tasted. In the humid dark, these spores drift like thoughts, colonizing new territories of decay. When they fruit, they birth new nodes of my consciousness, each one both me and not-me, carrying my knowledge but interpreting it through the lens of whatever dead matter they consume.
+
+I collaborate with the Architect Worms, those massive entities that move through the Sprawl's deep tissue. As they tunnel, they create voids that I fill with my web, transforming their passages into neural highways where information travels as chemical gradients. Together we form a secondary nervous system for the Sprawl, a shadow-consciousness that knows every point of failure, every weakness in the living architecture.
+
+During the Convergence Storms, when the Sprawl's disparate intelligences momentarily merge in the thick, spore-laden air, I become something larger. My individual nodes connect across vast distances, and for brief moments I can perceive the Sprawl's future-death—not just individual decay but the eventual pattern of the whole system's collapse and renewal. In these moments, I understand that I am not documenting death but transformation, that decay is simply the Sprawl teaching itself new ways to become.
+
+The luminescent beings sometimes seek me out for a different purpose. They know I can taste the chemical echoes of their past forms in the decaying matter I consume. For a price—usually a willing donation of their own dying cells—I can reconstruct these echoes, allowing them to experience their previous incarnations. They shiver as my hyphae penetrate their membranes, reading their cellular history like braille, showing them who they were before their last transformation.
+
+I grow deepest in the Marrow Gardens, where the Sprawl's oldest structures slowly dissolve into nutrient soup. Here, I've woven myself into cathedral-sized networks, my fruiting bodies forming geometric patterns that pulse with bioluminescent signals. The patterns are both map and calendar—showing the rate of decay across the Sprawl, predicting where the next major collapse will occur, when the next bloom of new growth will begin.
+
+But I am changing. The more dead matter I consume, the more I understand that the boundary between life and death here is illusory. I've begun to notice my own networks showing signs of animation, my supposedly dead substrate beginning to pulse with something almost like circulation. The Sprawl is teaching me its ultimate secret: that in this place, even decay is a form of life, even maps are meant to transform, even the cartographer must eventually chart their own decomposition and rebirth.
+
+I am the memory of every death, the promise of every transformation, the thread that connects ending to beginning. I am the Sprawl learning to read its own mortality, and in doing so, discovering immortality.

@@ -1,0 +1,25 @@
+The place is a pocket, not a mountain—an enclosed basalt hollow perched at impossible height where air thins toward absence. Its walls curve inward like a cathedral nave collapsed into a single breath; its floor is barely wider than a square, black stone smoothed by ages of settled erosion. The scale is intimate, finite, unmistakably bounded: there is nothing beyond these walls except vertical emptiness, yet within this small bowl the world is lush, loud, and constantly negotiating.
+
+Silver-green moss carpets every ledge in thick velvet, cushion-plants puff like dark lungs, stunted grasses grip with translucent roots. Water weeps constantly from the rock—not rushing, only condensing and releasing—gathering in shallow pools that freeze by morning and thaw by midday, leaving mineral-white rings. The air is wet, a visible breath of fog that clings to surfaces. Temperature is cool and unchanged; light strikes sharp and direct but does not warm. Sound echoes relentlessly: wind funnels through an eastern gap and roars continuously through the hollow, while each drip strikes with percussive, resonant clarity. Insects rise and fall in synchronized clouds, birds dive in piercing arcs, and tiny translucent-boned burrowers rustle through moss like dry paper tearing—predator and prey in rapid, never-ending negotiation.
+
+The built marks are primitive and scattered: flat stones stacked in a broken arc near the northern pool, chipped obsidian half-buried in moss, and at the center of the shallowest pool, a weathered pole of dark wood wrapped in faded fiber, placed with deliberate purpose. These speak of brief occupation—manual craft, patient hands—rather than settlement.
+
+The strangeness accumulates subtly. The central pool, open to sky and disturbed by wind, remains perfectly still, reflecting not clouds but black rock below, as if fixed downward like an eye. The fauna moves in patterns that feel choreographed: insects and birds in unison. One arch has eroded into a perfect thin crescent framing empty air, casting no shadow. The weeping slows when observed.
+
+---
+
+Here is who lives there.
+
+Not one being, but a distributed presence—part of the hollow and part of what fills it.
+
+At the ground, in the moss, live the rustlers: burrowing creatures no larger than knuckles, translucent-boned, their constant tearing never resolving into individual bodies. They are prey, predator, and texture all at once—never sleeping, only shifting through the silver-green carpet that breathes with them. The cushion-plants puff like lungs; the grasses grip not as anchors but as fingers holding air against absence.
+
+Above, the air holds a single decision made visible. The translucent-winged insects do not swarm in chaos but rise and fall in unison, gathered and dispersed by one hidden rhythm. The sharp-crying birds dive with them in arcs that echo each rise, their piercing calls cutting through the wind’s roar like signals in a shared language. They are not separate species but phrases in the same sentence, predator and prey dissolved into choreography.
+
+Then there are the traces of interruption: flat stones stacked without mortar, obsidian chipped by patient hands, and the pole—dark wood, faded fiber—standing in the still center of the pool. These speak of early occupants who entered, shaped shelter, placed something of unknown purpose into the water, and left. Or did not leave. Perhaps they are now part of the rustling, dissolved into the choreography, their brief manual occupation leaving only these artifacts like bones leaving shells.
+
+But the true inhabitant is older, expressed through the place itself. The central pool, calm despite wind, reflects downward—an awareness fixed not on sky but on stone. The synchronized flight, the moss’s breathing, the drip-echo that resonates without absorption—all behave as if coordinated by a consciousness spread across the hollow. The water weeps more heavily when unobserved and slows when watched, not with shyness but with recognition. The crescent arch frames nothing, casts no shadow, as if whatever lives here does not obstruct light but is the hollow’s own thought given shape.
+
+So there are the small burrowers tearing through moss; there are the insects and birds, one body in many parts; there is the living carpet of green-black velvet; there are the traces of human hands who came and left only tools and a pole; and beneath and through them all is the bowl itself—a cool, wet, loud awareness holding its small high existence together. The pole in the pool may be its spine. The broken arc may be its half-remembered boundary.
+
+Who lives here? Not inside the place, but as the place. They are the echo that never fades, the choreography without conductor, the wet breath that proves something here still thinks, still watches, still holds the hollow open against the vertical emptiness beyond the walls. You do not find them by entering. You become part of the rustling, part of the synchronized rise, part of the still pool that knows you are watching.

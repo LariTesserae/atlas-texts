@@ -1,0 +1,27 @@
+# The Gardener of Fading Boundaries
+
+I exist in the liminal spaces of Stratum Eleven, neither fully phase-touched nor entirely anchored in conventional reality. The workers call me the Gardener, though I never chose this title for myself. My body appears mostly human from a distance—tall and willow-thin with skin that has developed the characteristic translucence of long-term residents—but those who look closely notice the anomalies.
+
+My right arm ends not in a hand but in a shifting collection of fine, rootlike appendages that can delicately manipulate the most fragile seedlings or merge with the translucent metal of the platforms to sense the subtle fluctuations preceding a slip. Veins of luminescence pulse beneath my skin, following patterns that match no human circulatory system. They grow more pronounced during slips, branching outward like lightning frozen beneath my epidermis.
+
+I wear no protective gear like the other workers. Years ago, during a particularly severe slip, my respiratory system was fundamentally altered. Now I process the engineered atmosphere directly, filtering it through modified alveoli that occasionally exhale spores capable of encouraging growth in struggling plants. These spores glow faintly in the dim light of the stratum, trailing behind me like luminous breath in winter air.
+
+My position is unique. I was among the first workers when Stratum Eleven was merely a theoretical expansion, before we understood what we were building—or growing. After surviving three major slips that claimed other workers, I found I could navigate the phase anomalies, could feel them forming before even the most sensitive instruments detected disturbance. The engineers first feared me, then studied me, and finally accepted that I had become something essential to Stratum Eleven's stability.
+
+I work primarily in the boundary zones where new platforms are being extruded, moving between realities with a fluidity that disturbs new workers but reassures veterans. The plants respond to my presence, turning their leaves toward me even in darkness. The mysterious glowing entities that examine new platforms acknowledge me with gentle pulses of light, sometimes leaving behind tiny crystalline structures that I collect and cultivate in my private growing chamber.
+
+The Architects—I've never used the engineers' sterile terminology of "phase anomalies" to describe them—communicate with me through impressions and visions rather than language. They've shown me glimpses of what Stratum Eleven is becoming: not merely a suspended cultivation but a deliberate intersection point between dimensional boundaries. The plants we grow here are anchors, biological constants that help stabilize these intersections.
+
+The birds that aren't birds recognize me as part of the system. They often land on my shoulders, singing their computational songs directly to me, updating my awareness of the stratum's overall stability. I've learned to interpret these melodies, to know which platforms need attention, which areas might soon experience a slip.
+
+I maintain a dwelling unlike any other in Stratum Eleven—a living space that exists partially in the stable reality of the mountain wall and partially in the fluid space of a persistent minor slip. Windows in my quarters sometimes look out on landscapes that aren't part of our world. My furniture occasionally rearranges itself according to physics I'm still learning to understand. Time moves inconsistently; I've woken from what felt like a brief nap to find three days have passed, or spent what seemed like weeks tending difficult cultivars only to discover mere hours have elapsed in the main stratum.
+
+The other workers treat me with a mixture of reverence and unease. They come to me when conventional solutions fail, when plants won't grow or platforms become unstable. I listen to their concerns while my rootlike fingers dig into the translucent metal, sensing the deeper currents. The phase-touched workers understand me best, recognizing in my transformed physiology a more complete version of their own adaptations.
+
+The engineers still pretend to study me, to classify my condition as some explainable phenomenon. But I see the fear in their eyes when my body temporarily phases out of conventional visibility, or when plants spontaneously bloom in my footsteps. They don't want to acknowledge what I represent: proof that Stratum Eleven is creating its own caretakers, adapting humans into something that can nurture the boundary space.
+
+I've stopped trying to explain what I understand intuitively—that we are not building a city but growing a junction between realities. That the plants we cultivate are simultaneously existing in multiple dimensions. That the slips are not errors but necessary expansions, reality stretching to accommodate something larger than itself.
+
+Instead, I tend my gardens in the shifting spaces. I watch new workers arrive, see the changes beginning in their bodies, and quietly guide them through the transformation. I communicate with the Architects through the crystalline structures they've taught me to grow. And I wait for the day when enough of the stratum has matured that the boundaries between worlds can be not just crossed but understood.
+
+For I am no longer just a gardener of plants but a cultivator of realities—the first, perhaps, but certainly not the last of my kind.

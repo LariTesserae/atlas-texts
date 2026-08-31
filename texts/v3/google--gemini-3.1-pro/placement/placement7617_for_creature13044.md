@@ -1,0 +1,31 @@
+I do not wake, because there is no true night to wake from, nor day to beckon me. There is only the iron-colored twilight and the perpetual, rushing roar of the world’s breath. 
+
+I find myself on the outermost weave of the settlement, suspended above the absolute void. I am mass. I am immense, comfortable weight. The concept of falling does not haunt me, because to fall implies a mistake, a slip, a momentary surrender to gravity. I do not slip. My right foot, broad and heavy, is clamped against a jutting elbow of polished, obsidian-like stone. The thick, multi-jointed toes curl inward, the spade-like keratin hooks sliding into a groove worn smooth by thousands of generations of my kin. When the joint locks, there is a dull internal *click* within my thick leg. It is the finality of a bolt sliding home in a vault door. Now, I am not merely standing on the spire; I *am* the spire.
+
+The geothermal wind blasts upward around me, an oven-dry column of force that presses against my broad, cowl-hooded face. I feel the volcanic particulate pinging against the thick, translucent membranes that sheathe my milky eyes. Through their hazy filter, the dim, rusted sky is a unified swath of deep ochre, cut only by the swirling, leathery shapes of the great gliders riding the thermals. 
+
+I feel the heat of the updraft soaking into my deeply folded, rubbery skin. It warms the heavy lipid-blood sludging through my thick veins, keeping the internal furnace of my body stolid and content. Across the broad expanse of my chest and neck, the baleen-slits flare and contract in slow, rhythmic succession. With a deep flex of my barrel-ribs, I draw in the violent wind. The thick, sticky cilia inside my neck catch the abrasive dust. I let the clean, oven-hot air fill my massive lungs, savoring the ambient taste of toasted spices and melting frankincense. 
+
+I tilt my head down. My massive left hand is locked entirely around the petrified, saponified torso of an ancestor—my mother’s mother, perhaps, or a matriarch from ten thousand cycles ago. It does not matter. She is a statue of hardened, organic soap now, her broad face polished to a high amber gloss by the winds, woven horizontally into the outer rim as a load-bearing strut for a new walkway. She smells fiercely of ancient musk and concentrated caloric resin.
+
+I am here to bind her tighter.
+
+Moving with the agonizing deliberation of a creeping glacier, I bring my free right hand up. In my palm, I hold a massive lump of pale-yellow tuber paste, mixed strictly with the amber-scented sap I bled from the torso-thick vines earlier in the cycle. The paste is dense, heavy, and hot to the touch. With agonizing slowness, I press the thumb-thick slab of bio-mortar into the seam where the ancestor’s waxy hip meets the woven stalks of the floorboard. I drag my blunt claws through the putty, smoothing it seamlessly. Downward is death; upward is dust. Here, in the middle, we maintain. We thicken the knot.
+
+As I work the mortar, I feel a rhythmic clattering vibrating through the bone-and-sinew bridge beneath my locked foot. I do not turn my head—to twist sharply is to waste energy and risk the perfect balance of my center of gravity. I merely wait. 
+
+A moment later, a heavy carapace the hue of burnt sugar slides into my peripheral vision. It is one of the settlement’s hounds, a segmented arthropod the size of a low-slung dog, its many legs clicking against the hardened plant-wax of the woven floor. It stops beside my anchored thigh, its mandibles clicking over the baseline roar of the abyss. I slowly lower my right hand, my fingers still coated in the rich, slick fat of the mortar. The hound nuzzles its armored head against my broad palm, eagerly licking the caloric smears from my rubbery skin. 
+
+A profound, rumbling contentment settles in the deep vaults of my chest. I stroke the creature's back, feeling the ridges of its carapace. We are the same, this hound and I. We are creatures of heavy oils and endless patience, entirely devoid of water, sharing the balmy heat of the world's engine. 
+
+Somewhere above and behind me, deep in the claustrophobic labyrinth of overlapping cabbage-rosettes and mud-baked domes, I feel a vibration. It travels down the resin-wood beams, down through the saponified ancestor, and into my locked foot. It is a neighbor, calling out over the frantic shrieks of the gliders and the hollow roar of the thermals. 
+
+I inhale the blistering wind, pulling it deep into the resonating chambers of my belly. Contracting my dense abdominal muscles, I throw my weight into the response. The *cough-bark* explodes from my chest. It is a percussive, booming impact, lacking all frailty. I do not hear my own voice as much as I feel the shockwave of it leaving my body, vibrating through the waxy fronds framing my vision. *I am here. The outer weave holds fast. The ancestor is sealed.*
+
+The hound beside me does not flinch at the deafening boom; it merely settles its heavy body over my locked foot, spinning a thin threat of fibrous silk lazily into the amber resin I just laid down, reinforcing my work with its own.
+
+I pull my nictitating membranes back for a fraction of a second, letting the abrasive, raw wind hit my actual eyes just to feel the sharp edge of the world. Then, I blink the heavy veils back into place. I do not need to move anymore. The mortar must bake in the thermal heat, and I must rest to let the heavy starches of my last meal digest. 
+
+I leave my foot locked to the stone. I lock my left hand back onto the fossilized shoulder of the ancestor. I slide my right hand onto the thick, oozing vine that hangs beside me, feeling the mechanical *click* of my joints setting into unyielding permanence. 
+
+I lean back against the void, perfectly anchored, immensely heavy. As my own skin begins to slowly secrete its powdery, fragrant wax in the eternal, rusty twilight, I close my mind to thoughts of past or future, settling into the perfect, waterless stillness at the ceiling of the world.

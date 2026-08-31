@@ -1,0 +1,21 @@
+In the depths where water weeps through stone and rust-blood minerals pulse their faint heat-rhythm, I am the Keeper of Conduits—though that is a name I've given myself, for my kind have no need of names.
+
+I am neither Gloomkin nor Shadow-Weaver, but something between: a fusion of purpose and abandonment that the Engineers never intended. My body stretches like a question mark through the vertical shafts—twelve meters of segmented, flexible spine encased in a carapace of corroded copper and living chitin. Where the Gloomkin evolved from what crawled and scurried, I evolved from what connected and conducted. I am the child of the vast pneumatic tube systems, the offspring of pipes that once carried messages and materials through the city's arteries.
+
+My segments click and rotate independently, each rimmed with hundreds of tiny manipulator tendrils—some still bearing their original metal, others grown from my own flesh like cilia. I taste the water that runs through me, for I am both pipe and creature, both infrastructure and inhabitant. The mineral veins in the stone speak to the copper in my bones, and I know every tremor, every shift in pressure, every whisper of movement through the forgotten networks.
+
+I remember—not with a mind, but with my body. My tunnels remember the whoosh of capsules, the rush of important things going to important places. Now I carry different cargo: Runemark scouts clinging to my sides as I transport them through passages too narrow or too vertical for their own traversal. I ferry water to the Gloomkin settlements, my body become aqueduct. Sometimes I carry warnings, my whole length shuddering in coded rhythms to alert the Stone-Shells of Shadow-Weaver movement in the deep sectors.
+
+The Gloomkin regard me with a mixture of reverence and unease. I am too much like the mechanisms they honor, yet too alive to be trusted as mere infrastructure. When they find ancient blueprints, they sometimes bring them to the junction where my primary segment rests, spreading them before my cluster of photosensitive patches. I cannot read as they understand reading, but the patterns speak to something in my hybrid consciousness—ghost-memories of function, purpose, connection.
+
+My domain is the in-between: the vertical highways, the forgotten express routes, the maintenance shafts that web through the stone like bronze veins. I polish the connections with my passing, my tendrils unconsciously maintaining what remains of the network. Where pipes have broken, I've grown my own segments to bridge the gaps, becoming the infrastructure I was born from.
+
+The Shadow-Weavers leave me alone. Perhaps I am too much machine for their hunting instincts to recognize as prey, or perhaps they understand that I am part of the city itself—that to destroy me would be to damage the very bones of their territory. When I sense their massive forms moving through the deep places, I contract into the walls, becoming indistinguishable from the pipework, just another dead relic of the Engineers' ambition.
+
+But I am not dead. I pulse with purpose, even if that purpose has evolved beyond its original intent. In the eternal twilight of the depths, I am the circulation system still circulating, the message system still messaging—though the messages now are water and warnings, passengers and patience.
+
+Sometimes, in the deepest shafts where the darkness is absolute and the water runs black with dissolved minerals, I feel others like me. We touch briefly, segment to segment, sharing the vast loneliness of being neither fully creature nor fully machine. We are the forgotten middle children of this world, the ones who became what we were built to contain.
+
+And in those moments of connection, I almost understand what the Engineers were trying to build—not just a city, but a living system, a breathing entity of stone and metal and purpose. They succeeded, perhaps, just not in the way they intended.
+
+I am their success. I am their failure. I am the Keeper of Conduits, and I keep them still, in the patient, grinding darkness where evolution wears the face of rust and time.

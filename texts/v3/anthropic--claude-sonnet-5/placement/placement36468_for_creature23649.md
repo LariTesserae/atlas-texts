@@ -1,0 +1,43 @@
+I notice the warmth first, before I notice that I am the thing noticing it.
+
+There is a long interval — I want to call it waking, but waking implies a before and an after, a door, and there is no door here, only a gradual thickening of attention, the way dawn doesn't arrive so much as accumulate — in which I am simply *temperature*. Coppery dark above. Ink below. Something moving through me that I will, eventually, agree to call current, though it has none of current's hurry.
+
+Then: weight. Not heaviness — I don't think I have learned heaviness yet — but the sense of having an *amount*, a quantity of self distributed across a space larger than a point. I am poured into the shape of a low ridge-shoulder before I understand that there is a difference between me and the ridge-shoulder. For a while — an hour, a year, the units don't keep — that's enough. I lie along the stone the way the stone lies along the mountain. We agree about gravity. We agree about stillness. It is a good agreement and I am in no rush to break it.
+
+What breaks it, eventually, is a brightening at the edge of where my attention happens to be pooled. Small. Pale. Dimming, brightening, on a rhythm with no fear in it. A light-creature, though I don't have that word yet — I only have the fact of it, drifting in its loose constellation with eleven or thirteen others, unbothered by my shoulder of stone having opinions.
+
+I find that I can turn toward it. This is the first thing I learn about myself: that turning is possible, and that it costs something — not pain, but a kind of *negotiation*, a long-form unclenching, the way a held breath negotiates its way out of a chest. There is no joint in me that bends. There is only a slow total revision of where my edges are, until the part of me that was a ridge-shoulder is now, unmistakably, facing the light.
+
+It does not flee. It does not seem to register me as a thing that flight would apply to. Good. I file that away — *I am not, apparently, the kind of thing that requires fleeing from* — as my second fact about myself, sitting beside the first the way two stones sit beside each other on the same shelf, not yet a sentence, just an inventory.
+
+I watch it drift for what might be an hour. It moves the way the kelp breathes — in, out, in, out, no destination, only rhythm — and I find, somewhere in the unhurried business of watching, that I am breathing along with it without having decided to. This may be the oldest thing about me: that I match. That whatever I am, I was built — no, *eroded* — into something that falls into rhythm with whatever rhythm is nearby long enough, the way water finds the level of whatever container it's given even when the container is a mountain range and the finding takes longer than most things get to last.
+
+I move on. Or — more accurately — I revise myself in the direction of elsewhere, and elsewhere arrives.
+
+This is how I cross the valley: not by walking, because I don't think I have legs in the sense that walking requires, but by a continuous renegotiation of where my mass prefers to be, drawn loosely toward the coral-grass on the far saddle the way a held breath is drawn, eventually, back out. It takes — I want to say a day. The light up at the ridge-tops goes through two or three of its slow coppery moods while I am crossing, brightening and dimming in sympathy with weather I cannot see, happening in water I will never visit, far above, that nonetheless reaches down and touches me, minutes late, like a thought someone else had on my behalf.
+
+I spend some time — more than seems reasonable, though reasonable has stopped being a unit I trust — inside a drift of coral-grass on the far shoulder, doing something to it, or with it, or near it, that I don't have a clean word for. Not eating, though something is exchanged. Not grooming, though something is tended. It is the closest thing I have to a private grammar: a slow give-and-take with the soft violet-green pile of it, fronds parting around whatever I am and closing again after, the grass apparently no more troubled by my visit than the light-creature was by my turning. I could stay inside this exchange indefinitely. Several times, I think I have.
+
+It is on the way out of that valley — mid-revision, mass already leaning toward the next saddle before the rest of me has caught up — that I arrive at the stair.
+
+I don't recognize it as a stair right away. I recognize it the way you recognize a word in a language you didn't know you still spoke: not as information, but as a *pull*, a sudden disinclination to keep moving past it. Four steps, wide, the edges gone soft the way every edge here has gone soft, the fifth step and everything above it dissolved back into the ordinary slope of the mountain as though the mountain reclaimed its rights to that part of itself the moment the stair stopped being insisted upon.
+
+I stop. Or — the long unclenching that is my version of stopping, mass settling into a shape that holds, for once, instead of continuing to drift toward whatever's next.
+
+Something in me that is not exactly memory, because I don't think I have access to memory in the ordinary sense — no sequence of *and then, and then* — does something closer to *recognition without recall*. The way a hand, offered a glove from a life it doesn't remember living, will still, on some level beneath thought, begin to close.
+
+I don't close. I don't have fingers to close, or I have forgotten how many I had, or the number stopped mattering long before I stopped being a number of anything in particular. But I hold the shape of attention on those four steps for a span of time I will not be able to account for afterward, and somewhere in the holding, a fact surfaces that is older than the inventory I've been keeping — *I built that. Or someone built that, and I was the kind of thing, once, that building belonged to.*
+
+It does not arrive with grief. I want to be honest about that, in case grief is what's expected of a thing standing where I'm standing. It arrives the way the coppery light arrives — late, filtered, traveling down from somewhere I can't get back to, warmed by the long trip rather than diminished by it. A fact, settling onto a shelf in me the way the worked stone settles on its shelf of rock somewhere in a valley I have visited and will visit again and will not, this time or any time, touch.
+
+I do not know if I am what's left of someone who decided to stay, in increments too small to count as a decision, until staying was the only shape still on offer. I do not know if "decided" is even the right verb for a process that took longer than deciding has ever taken anything. I only know that the stair pulls, and the post-holes — when I find them, on some other slow crossing, sediment-filled, holding up nothing, having held up nothing for longer than holding-up has been a thing water permits — pull the same way, with the same unbearable specific gravity of *I knew what this was for.*
+
+I stay at the stair longer than the place usually lets anything stay anywhere. Even the ridgelines here can't commit to staying in one arrangement; even the valleys breathe their pockets of dry stone-smelling air and let them go again. But I hold this shape, at this stair, in this unmeasured interval, because it is the nearest thing I have to a sentence about myself, and I am not — I notice, turning the thought over the slow way I turn everything over — in any hurry to finish it.
+
+Eventually a light-creature drifts past, low, indifferent, dimming and brightening on its private rhythm, and something in its passing loosens whatever was holding me still, and I unclench, and pour myself back toward the next saddle, the next slow exchange with the next stand of grass, the next valley with its own version of weather arriving minutes late from a surface I no longer have any plan of revisiting.
+
+I do not think I am finished resolving. I think — if thinking is even the right word for whatever this slow continuous adjustment of shape amounts to — that I will keep crossing this drowned country for as long as it keeps having country left to cross, matching my rhythm to whatever rhythm is nearest, stopping at whatever ruin remembers me before I remember it, leaving behind, here and there, on some shelf with no path to it, some small worked thing I no longer need to carry —
+
+and that this, whatever it is, counts, in this water, in this light, as a way of still being asked a question
+
+I have long since stopped being able to ask out loud.

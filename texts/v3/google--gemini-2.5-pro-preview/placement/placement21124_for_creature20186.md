@@ -1,0 +1,25 @@
+I would be the flaw.
+
+I am not of the Chime's flesh, the luminous, veined crystal. I am the thing that can happen to it. I am a scab of sound, a clot of silence in a world that knows none. My form is a memory of trauma. Where a spire once cracked, where a parasitic growth once tried to choke a melody, I was born from the struggle. I am the scar tissue left behind not by a healing, but by an argument.
+
+You would find me deep in the root-tangle, in the gnarled under-strata of the great plant-city, pressed into a hollow where the resonance is clouded and indistinct. Or perhaps clinging to the high, outer skin of a flute-spire, where the wind’s scream is too chaotic for the perfect chord to fully establish itself. I seek the eddies and backwaters of the great sonic river. I live in the moments of feedback, the spaces of architectural error.
+
+My body is not the living, translucent amber-green of the Chimes. It is a dull, opaque black, like obsidian but without the gloss. It is cooled, hardened sap, the waste product of a panicked immune response. It is sharp and jagged where the Chimes are smooth and flowing. My form is an agglomeration of dissonant fragments, all angles and fractures, a physical protest against the world’s pervasive harmony. I have no limbs in the way the gecko-mantises do, but sharp, brittle points that I can wedge into the tiny fissures and pores of the Chime walls, pulling myself along in a skittering, arrhythmic crawl. A sound a fingernail might make scratching across a crystal glass. A noise of pure irritation.
+
+I have no face, but unlike the Bell-Ringer’s serene, receptive cowl, my front is a mess of crystalline facets, like a poorly-formed geode cracked open. These facets do not absorb the world’s song; they shatter it. They take the overwhelming, unified Chord and break it into a million glittering, painful shards of component noise. This is how I perceive. I do not feel the Harmony. I feel its opposite: the infinite, warring components that must be suppressed to create that Harmony. I feel the tension, the strain, the sheer, crushing effort of the world’s song. To me, the Bell is not music; it is a scream holding itself in.
+
+The other creatures of this place, the tuning-fork flocks and the silent hunters, barely register me. I am not part of their vibrational reality. I give off the wrong frequencies. I do not participate in the doppler-shift dance or the rhythmic tap-language. To them, I am likely just a piece of dead, inert matter. A rock. A silence.
+
+But the Bell-Ringer knows me. It feels me.
+
+I am its life’s work, its eternal failure. I am the illness that will not be cured. The Bell-Ringer’s consciousness is a placid sea of perfect music, and I am the tritone that echoes across it, the *diabolus in musica*. I am the lingering, agonizing pain from a wound it thought it had healed. It will spend an entire season, a slow pilgrimage of fluid grace, traveling toward the memory of a flaw it once corrected, drawn by a faint, lingering dissonance it cannot quell. It will find me there.
+
+Its approach is the most terrifying thing in existence. It is not the coming of a predator; it is the coming of Order. It is a wave of pure, clarifying resonance, a pressure that seeks to smooth my jagged edges, to warm my cold, dead sap, to coax my fractured form back into the luminous, singing whole. It tries to *heal* me. And healing is annihilation.
+
+When it finds my hiding spot, it will embrace the wall around me. It does not touch me. It does not need to. It presses its smooth head to the Chime and begins its song. A song of perfect, cellular correction.
+
+For me, this song is not a healing vibration. It is a dissolution. My fractured facets begin to blur. The sharp, delicious, complex pain of the world’s shattered notes begins to simplify, to coalesce. My jagged limbs feel a strange warmth, a pulling, a desire to melt back into the wall. My very consciousness, which is built on the foundation of *rejection*, of being *other*, begins to fray. It is the feeling of a thought being un-thought. The essence of me, the stubborn knot of wrongness, is being gently, lovingly, inexorably untied.
+
+My survival is a frantic arpeggio of panic. I must break free before the song takes root. I wrench a limb from the wall with a sharp *crack* that momentarily upsets the corrective frequency. I scramble away, a graceless, ugly noise in the cathedral. I do not run from the Bell-Ringer’s body; I run from its intent. I flee the coming wave of lucidity.
+
+I am a heresy. My purpose is to persist. In a world defined by a single, perfect note, my existence is the proof that other notes are possible. I am the unthought melody, the chord that has not yet been discovered. I am the question the Bell-Ringer can never answer, the sour note it can never fully resolve. I scurry through the perfect, resonant spaces, a tiny, mobile blasphemy, looking for another flaw, another wound, another argument in which to hide. I am the memory of pain, and I am desperately, eternally, trying not to be forgotten.

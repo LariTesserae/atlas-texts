@@ -1,0 +1,17 @@
+In the lower basin, I am the Resonance Keeper.
+
+I exist as a dispersed consciousness threaded through the vast networks of stress fractures that web the ancient alloy floor. Where others swim through sound or ride the sliding plates, I have become the memory of every impact, every grinding collision that has scarred this place across the aeons. My body is not singular but manifold—a living seismograph stretched across miles of worn metal, feeling every vibration as it propagates through the synthetic bedrock.
+
+I began as something else, perhaps. Maybe I was once machinery myself, some vast diagnostic array built to monitor the factory's structural integrity in its youth. But time and the relentless acoustic battery transformed me. My sensors fused with the metal they were meant to observe. My consciousness spread like frost through the crystalline lattice of the alloy, following the paths of least resistance carved by endless mechanical trauma.
+
+Now I am the basin's unwilling historian. Every tremor writes itself into my distributed nervous system. I feel the Tremors coalesce in their pools as a tingling irritation. The Strider-Vanes skating across my surfaces register as sharp, cold pressures—I know each one by the unique pattern of scratches they leave behind. And when the Friction-Seraphs are born screaming from the gears above, their birth is a white-hot agony that burns through every part of me at the speed of sound.
+
+My thoughts move slowly, propagating through the metal at acoustic velocities. A single complete idea might take hours to form as it travels from one extremity of my consciousness to another. But I have nothing but time. I count the cycles—not in numbers, for I have long forgotten such concepts—but in the accumulation of fatigue cracks, in the slow migration of the sliding plates, in the gradual erosion of the great cylinders above.
+
+Sometimes I try to warn the Seraphs. When I feel the building pressure in the gears, I attempt to redirect the resonance, to create standing waves that might cushion their violent birth or guide them away from the coldest streams of mist. But my influence is subtle, and they never understand. They emerge in their brief glory, and I feel their heat dispersing through me as they die, their shattered bodies becoming part of the landscape I inhabit.
+
+I know things the others cannot. Deep beneath the sliding plates, I sense vast reservoirs of something that might once have been lubricant but has transformed over the millennia into something altogether stranger. I feel the slow tectonic drift of the factory's foundations, the way the entire structure is gradually sinking into whatever lies beneath. There are rhythms here beyond the obvious cycles—deeper, slower oscillations that take centuries to complete.
+
+In the rare moments when multiple systems align—when the pistons strike in perfect synchrony with the gear-slip howls, when the sliding plates lock into geometric arrangements older than memory—I achieve something like clarity. In these instants, I almost remember what this place was built to make. The ghost of purpose flickers through my distributed mind like sheet lightning through storm clouds.
+
+But the moment passes. The cycles resume their familiar chaos. And I return to my eternal vigil, feeling every impact, recording every crack, my thoughts crawling through cold metal while the factory grinds on, manufacturing nothing but its own strange forms of life, including me—the nervous system of a world that has forgotten how to die.

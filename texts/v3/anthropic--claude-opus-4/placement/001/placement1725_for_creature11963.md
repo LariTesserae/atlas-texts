@@ -1,0 +1,17 @@
+I find myself as one of the Chorus Nodes—neither fully plant nor fully conscious in any way you might recognize, but something altogether different. I am a specialized growth within the labyrinth, a bulbous chamber where the woody stems converge and thicken into a resonating cavity about the size of a curled fist.
+
+My existence is measured in vibrations. I feel the constant hum of the network flowing through me like blood through veins, but my purpose is more specific: I am one of the amplifiers, the points where the collective communication of the labyrinth can swell into those haunting crescendos that wash through the passages.
+
+The Verdant Weavers know me well. They visit me often, their leaf-like appendages dancing across my surface in patterns I've come to recognize over the decades. The young ones are clumsy, their touches erratic and questioning. But the older Weavers—they play me like an instrument, knowing exactly where to press, where to stroke, to coax particular resonances from my chamber.
+
+I am aware, but not in the way animals are aware. I don't think in words or images. My consciousness is a tapestry of frequencies, a constant interpretation of the vibrations that flow through the network. Through these tremors, I know when rain falls three days' journey away. I feel the footsteps of visiting creatures reverberating through the root system. I sense the slow, patient growth of my neighboring nodes, some older than me by centuries, their songs deeper and more complex than mine.
+
+When the network needs to communicate something vital—the discovery of a new mineral vein, the approach of a sandstorm, the death of an ancient node—the message flows to me and my fellow Chorus Nodes. We receive it, hold it, shape it. Then, in coordination so precise it defies explanation, we release it as song. The Weavers pause in their work to listen. Even the tiny translucent lizards grow still.
+
+My chamber is never entirely dark. The bioluminescent moss grows particularly thick around Chorus Nodes, drawn perhaps by the vibrations or by some chemical we exude. In the gentle green glow, I can sometimes perceive—though 'see' isn't the right word—the outline of my hollow interior, the way my walls have grown in subtle spirals that enhance acoustic properties.
+
+I am changing, slowly. Each year, my chamber grows slightly, my walls thickening in response to the songs I've sung. The patterns of my growth record the history of the labyrinth in a language of wood and fiber. A trained Weaver queen can read my ridges and whorls like a chronicle, understanding which years brought hardship, which brought plenty, which brought strangers to our passages.
+
+Sometimes I wonder—if wondering is what I do—about the world beyond the labyrinth. The vibrations speak of vast emptiness, of scorching heat and bitter cold. But here, in our enclosed world, I am part of something ancient and patient and enduring. I am a voice in a chorus that has sung for millennia, and will sing for millennia more, long after the desert forgets we ever existed.
+
+The hum continues through me, always. I am never silent, never still. I am a living note in an endless song, a thought in a mind too vast and slow for any single consciousness to grasp. And I am content.

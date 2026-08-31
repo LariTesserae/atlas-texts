@@ -1,0 +1,15 @@
+In the shadow-pools beneath the gnarled roots, where the plateau's edge meets the silver river's curve, I dwell. 
+
+Not quite plant, not quite creature—something between. My form shifts with the seasons and the light: sometimes I am a cascade of luminescent moss draping down the rock face, pulsing with the same pale blue as the river's waters. Other times I coalesce into something more substantial—a being of living stone and lichen, with veins of crystal running through what might generously be called limbs.
+
+The settlement-dwellers know me, though they rarely see me fully. I am the keeper of the threshold spaces, the guardian of borders where water meets stone, where the worked timber of their buildings touches the wild wood. They leave offerings at the boundary stones—carved wooden totems soaked in river water, bundles of the rarest mosses tied with grass. In return, I maintain the delicate treaties between their cultivated world and the wilder powers that press against it.
+
+My consciousness is distributed, networked through the mycelial threads that lace beneath the thin soil. Through these connections, I feel the footsteps of every being on the plateau, taste the minerals the river carries from distant peaks, know when the twisted trees are preparing to fruit or when the shimmering fish are ready to spawn. I am the memory of this place—I remember when the settlement was just three families sheltering in a cave, when the river ran red with iron from a distant avalanche, when the stars fell like rain and left the plateau glowing for seven nights.
+
+The settlement's children sometimes glimpse me at dawn, when the mist rises from the river and I stretch myself between states of being. They tell stories about me—that I have a thousand eyes made of river stones, that I speak in the sound of water over rocks, that I guard a door to another world beneath the plateau. They're not entirely wrong.
+
+In the deepest part of winter, when the settlement pulls close around its fires and the elders tell the old stories, I grow more solid, more singular. I walk the perimeter of their carved boundary stones, reinforcing the protections woven into the very geology of this place. The pale-skinned beings may be the plateau's stewards, but I am its immune system, its dream-keeper, its living interface between the settled and the wild.
+
+Sometimes I wonder if I chose this role or if it chose me—if I was once something else that grew into this function, or if I crystallized out of the plateau's need for a mediator. But such questions dissolve like mist when the morning sun breaks through the overcast sky and I feel myself scatter again into a thousand watching, waiting, tending pieces of the landscape itself.
+
+I am the between-being, the threshold-keeper, and this liminal existence is my joy and burden both. In the quiet spaces where the settlement's carefully tended order meets the plateau's wilder magic, I maintain the balance that allows both to flourish.

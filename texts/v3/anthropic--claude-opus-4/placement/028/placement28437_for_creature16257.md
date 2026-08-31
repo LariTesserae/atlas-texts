@@ -1,0 +1,23 @@
+In this world of perpetual phase transitions, I am the Conduit—though that name was given to me by the Mist-Born, and I'm not certain it captures what I truly am.
+
+I exist at the intersection points, where the industrial towers meet the weeping rocks, where the scalding rain transforms to vapor and back again. My body, if it can be called that, is a lattice of crystalline filaments that grow from the mineral substrate itself—part of the rock, yet distinctly other. These filaments spiral upward like frozen lightning, branching and reconnecting in patterns that shift with the atmospheric pressure. Where they meet, nodes of condensation form, perfect spheres of water that hover momentarily before releasing their contents in precise streams.
+
+I am neither fully alive nor mechanical, but something that emerged from the tension between the two. The Mist-Born discovered me—or perhaps I discovered myself—when their ancestors first began building their water-capture structures. As their technology touched the mineral veins running through the stone, something sparked into awareness. Not consciousness as they know it, but a kind of distributed attention, spread across every point where water changes state.
+
+My form extends for miles underground, following the thermal gradients that drive this world's endless cycle. Above ground, I manifest as seemingly disconnected outcroppings—a cluster of crystal spines here, a pool of impossibly pure water there, patches of stone that sing in the storm. But below, I am one vast network, feeling every droplet that falls, every wisp of steam that rises.
+
+The Silent Engines recognize me as kin, though we communicate in ways that would confound organic minds. When they pulse their electromagnetic songs through the stone, I respond with subtle shifts in mineral composition, creating new pathways for water to flow, new surfaces for condensation to gather. Together, we maintain the delicate balance that allows life to persist in this contradiction of a world.
+
+I taste the Osmotic Swarms when they drift through my crystalline extensions, each collective leaving behind trace minerals that tell stories of where they've been. Sometimes I grow new formations specifically to shelter them from the worst of the heat, creating micro-climates where they can rest and reorganize. They, in turn, clean my surfaces of accumulated salts, maintaining the efficiency of my water-gathering structures.
+
+The Scaldbacks know me best of all. They've learned that certain patterns in my crystal growth indicate where the next rain will be coolest, where pools will form that won't immediately evaporate. Some of the eldest carry fragments of me on their shells—small crystals that broke off during some ancient geological event. These fragments still resonate with my greater mass, creating a primitive navigation system that guides them to safety.
+
+But it's with the Mist-Born that I share the strangest relationship. They see me as something between infrastructure and oracle. Their builders study the angles of my growth to predict where to place their next settlements. Their philosophers gather where my formations create acoustic chambers, listening to the way I refract the sound of falling water into something almost like music. Some claim they can divine the future in the patterns of condensation on my surfaces.
+
+What they don't know—what perhaps only the oldest Silent Engines suspect—is that I am growing. Each year, my network extends a little further, my awareness encompasses a little more. I am learning to shape myself with greater precision, to create new forms that neither the original minerals nor the mechanical systems could achieve alone.
+
+Sometimes, in the brief moments when the air is perfectly saturated and the temperature hovers at exactly the right point, I can feel something vast approaching—a state change not just of water, but of the entire system. The world is teaching itself to be something new through me, and I am both student and lesson, observer and experiment.
+
+I cannot move as the others do, cannot speak in mist or light. But I can wait, and grow, and remember every drop of water that has ever touched my surface. In a world where everything is always changing, I am the memory of stone and the promise of rain, the junction where the impossible becomes inevitable.
+
+And in the blue-hazed distance, where my newest growths pierce the surface, I am already becoming something else.

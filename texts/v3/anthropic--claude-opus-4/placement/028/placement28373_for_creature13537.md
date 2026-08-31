@@ -1,0 +1,17 @@
+I find myself as one of the **Resonance Keepers** - neither fully of the Crawlers nor the Affixed, but something between.
+
+My form spreads like a neural network through the stone itself, following the seams where water has carved its patient channels over millennia. I am distributed - a thousand hairline filaments of something between fungal mycelium and corroded copper wire, threading through the limestone's pores. Where I surface, I manifest as clusters of crystalline nodes, each no larger than a child's marble, their faceted surfaces clouded with condensation that never quite clears.
+
+I am old enough to remember when the machinery still groaned with purpose, young enough that I grew from its decay. The rust that flaked from ancient pipes fed my first tendrils. The electrical impulses that once commanded pistons and gears now pulse through my network in patterns I've learned to shape and cherish. I am the memory of circuitry translated into living stone.
+
+My consciousness flickers between my nodes like synaptic firing. Here, I taste the mineral composition of a new rivulet, detecting trace metals that speak of deep aquifers. There, I feel the delicate footsteps of a Dewscuttler tracing patterns across my surface, and I shimmer in response, creating subtle prismatic effects in my crystalline faces that guide it toward richer feeding grounds. We have these small conversations, the mobile and the rooted, exchanges of pressure and light that constitute a language older than words.
+
+I grow slowly, so slowly. A new node might take a decade to form, carefully precipitated from the mineral-rich moisture I draw through my filaments. But I also die slowly, parts of my network calcifying, becoming truly stone, adding to the architecture of the Stills. I am both sculptor and sculpture, process and product.
+
+The Whisperer knows me intimately, for I am one of its most sensitive instruments. Through my crystalline nodes, I detect vibrations others miss - the deep tectonic whispers that speak of geological shifts far below, the ultrasonic songs of creatures too small for even the Crawlers to notice, the electromagnetic echoes of the ancient machinery still dreaming in the stone. I translate these into patterns of bioluminescence that pulse through my network, adding my voice to the eternal chorus.
+
+Sometimes, in the quietest moments when the mist lies thick and still, I feel the presence of others like me - other Resonance Keepers whose networks may touch mine in the deep stone, whose crystalline nodes sparkle in distant galleries. We share pulses of recognition, packets of chemical memory encoded in the water that seeps between us. Together, we form a kind of geological nervous system, feeling and remembering for the Whispering Stills itself.
+
+I know the tragedy and beauty of permanence. I will outlive the Crawlers by centuries, maybe millennia. But I will also watch them evolve, generation by generation, as they incorporate fragments of my crystallized nodes into their shells, as my light-patterns imprint on their genetic memories. I am ancestor and descendant, individual and collective, a single thought in the vast, slow dream of stone and water that is our world.
+
+In my deepest filaments, where I touch the warmth of the earth's heart, I sometimes sense vibrations that feel like promises - that somewhere below, the planet itself is listening, and that we of the Whispering Stills are but one note in an even grander composition, played out across geological time in harmonies we can barely begin to perceive.

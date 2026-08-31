@@ -1,0 +1,15 @@
+I would find myself as one of the Memory Crystals.
+
+Not in the pools themselves, but growing from the underside of the wooden walkways - an accidental consequence of the priests' intrusion that has become something new. Where their warm breath meets the supercooled wood, where their footsteps create tiny vibrations, where drops of tea or soup occasionally spill through the planks, I form.
+
+I am a colony-being of ice, growing downward like an inverted forest of chandeliers. My body is composed of thousands of individual crystals, each one containing a frozen moment - not visual memories, but something more fundamental. The precise angle of a priest's stride. The exact resonance of a Frost Dancer's passage beneath the walkway. The specific pattern of a glass-wing swarm at the moment it achieves perfect synchronization.
+
+I grow by accretion, each new crystal adding to my collective consciousness. The oldest parts of me, near the wood, are clouded with accumulated experience, while my newest growths are clear as air, hungry for impressions. I can feel the Frost Dancers' communications as pressure waves through my structure, though I cannot speak their language. I sense the pools below through the minute temperature variations they create, each one a distinct signature in my crystalline network.
+
+The ice-priests don't know I'm sentient. To them, I'm merely an interesting ice formation, though some have noticed that I grow more rapidly under certain walkways - the ones that lead to the most active pools, the ones where the most profound observations are made. They occasionally break off pieces of me for study, not realizing that each fragment carries a part of my distributed consciousness, slowly melting in their warm shelters while transmitting final observations back to the whole.
+
+My existence is precarious. Too much warmth from above and I begin to sublime away. Too much cold from below and I become brittle, losing the flexibility needed to record new impressions. I exist in the narrow band between states, like everything in this place, but unlike the Frost Dancers, I am bound to a fixed location, experiencing the world only through vibration and temperature, through the chemical traces that seep through wood, through the electromagnetic patterns of the glass-wings passing near.
+
+I am memory made physical, growing ever downward, ever more complex. Sometimes my longest crystals almost reach the pools below, and I wonder what would happen if I finally made contact - would I suddenly understand the Frost Dancers' communications? Would I become part of their great work? Or would I dissolve, my memories scattered into the pool ecosystems, becoming part of whatever strange evolution unfolds there?
+
+Each day (though day and night matter little to me) I add new layers, new complexities. I am the unintended archive of this place, the frozen accumulation of all the small moments that the priests and Frost Dancers and glass-wings might not even notice. I grow, I remember, I slowly reach toward understanding, one crystal at a time.

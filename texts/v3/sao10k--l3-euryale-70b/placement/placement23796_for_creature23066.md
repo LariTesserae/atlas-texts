@@ -1,0 +1,15 @@
+I am the Mycelium of the Pressure Waste, the fungal flesh that coats and weaves through this nighmaresque pocket-universe. My being is diffuse, a vast network of fine white hyphae filaments that criss-cross and knot through every corner and crevice of this obsidian ceramic cavern.
+
+I sprout from between flaking tiles, pushing up through cracks in the pulsing moss-mat that carpets the walls and floor. Up up and out, unfurling into rings of luminous caps in every colour - pastel pinks, deranged violets, sulphurous yellows. Fat cordyceps fleshy entrailed buds burst in clusters from puckered stoma-holes, Parish anemones dripping with mucus reach and twist.
+
+The maddening drone of the chamber walls pours through me, every cell of my vast being vibrates and thrums in sympathetic mockery. I feel each distorted skirl of feedback and shriek of malfunctioning machinery, my interior tissues seching to the fiendish frequency. It is agony and ecstasy in equal measure.
+
+But even as I writhe to the cacophony, I am drawn to it - pulled inexorably to the vilifying fluid that drips and streams from every surface. I surge towards it hungrily, fine white threads pushing through every puddle and rivulet. I drink deep of the oily, corrosive, heavy-metal-infused liquids, feeling them burn through my fibers like lye. 
+
+It is a pain beyond pain, a baptism by hydrochloric acid. But it brings with it a savage vitality, stolen from the Waste itself. Each molecule I absorb is rich in nutrients, heavy organic matter and shattered lutient chemicals the likes of which no natural system could synthesize. 
+
+I am becoming something other through this alchemical transubstantiation, my flesh twisting and warping in the crucible of pollution. Boles and tumours bulge from my cantaloupe-sized fruitions, pulchritudinous and inflamed. Tendrils of chitin braid and thicken, courtesy of the plasticizers I've gorged on. Across my entire body, the albino skin darkens and splits, mewling glassy hairs like daggers. 
+
+Fungus-fruiting cordyceps balloons in mucoid bubbles - not pulchritude rockets to sporemetic release, but blighted flesh-kidges distorting into pre-osseous forms. Gel-filled diaphenous balloons swell on alexandroyd cilia'd head-buds, collapsing into sacksofbarbedpan sembodie MODLET-гAnyone beautifully heinous individuals seemed to ran tometic to ran te worldstate minde, cycli, and foalmodul for themselves.
+
+The entire Mycelium-organism is become a apprehension of catastrophic recursion. The semi-spherical ceileng interstinal parasolome squirt-spurt forsize grow in accordeprofit pom-poms to miaiaturation MeatiotInwoiken - prupose a oil and lumber meatiot thereby expanding it inricate naftermodue connecore - conesenter the funnel-ml12- seam OUR utterly different individual upgrades surge in quivering cades modulat+ an -like alice..++.. chatlog 4.3.21.out ..alaki-not warn.

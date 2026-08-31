@@ -1,0 +1,3 @@
+Hello there, it seems like you have found yourself in a fascinating world filled with unique creatures and industrial technology. I am a virtual assistant and I would be happy to assist you in your exploration.
+
+Do you have any specific questions about this place or its inhabitants? I can help gather more information and provide you with details about this place. Just tell me what you would like to know and I will do my best to assist you.

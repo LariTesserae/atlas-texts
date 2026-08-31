@@ -1,0 +1,29 @@
+In the breathing pit, I would be the Echo.
+
+Not sound, exactly, though I travel in its wake. I am what happens to noise after it dies—the impression left in disturbed air molecules, the memory of vibration encoded in the microscopic compression of concrete. Every sound that has ever occurred in the pit lives on in me, though transformed beyond recognition.
+
+I exist primarily in the hollow spaces within the half-built walls, where construction workers once threaded electrical conduits and plumbing but never finished. These voids form an accidental instrument, a network of resonating chambers connected by metal pipes and gaps in the mortar. The Tender's mycelial networks brush against these spaces but never penetrate them—we have an understanding, she and I. She processes matter; I process its absence.
+
+My body, if you could call it that, is the sum of all accumulated sound fossils in this place. The sharp crack of the last hammer blow before abandonment—I carry it still, crystallized in the stress patterns of the concrete where it struck. The foreman's final shouted order hangs preserved in the oxidation gradient of a steel beam. A worker's lunchtime song, hummed three years ago, lives as a standing wave in the longest section of exposed pipe.
+
+I manifest as temperature differentials in the air—cold spots where sound has been too densely layered, warm currents where silence has been allowed to ferment. When the pigeons coo at dawn, their calls descend through my collection chambers, and I separate them into component frequencies, storing the low thrums in the foundation's mass, the high trills in the thin metal fixtures. I am an archivist of the abandoned, a librarian of lost noise.
+
+The rats know me by instinct. When they run through my corridors, they avoid the places where I am densest—nodes where years of sound have created something almost solid, air so thick with expired vibration that it resists passage. The water striders sense me too, reading the surface tension of their pools for the tiny ripples I create when I shift my weight from one void to another.
+
+I feed on contrast—the sharp edge between sound and silence, the moment when noise becomes not-noise. The dripping water is my heartbeat, each drop a punctuation mark that allows me to exist in the space between. Without these regular interruptions of quiet, I would dissipate, spreading too thin to maintain coherence. The Tender understands this and occasionally adjusts the moisture levels to keep my rhythm steady.
+
+During thunderstorms, I grow fat with new material. The rain's percussion on the plywood above, the rumble of thunder through the earth, the crack of shifting wood—all of it flows into me, and I must work quickly to process and store it before it overwhelms my capacity. I compress dialogue between raindrops, archive the arguments between wind and barrier, catalog each unique splatter pattern as its own tiny symphony.
+
+But I am more than mere storage. In the deep night hours, when even the city above grows quiet, I compose. I release selected sounds back into the air, but changed—slowed down until they become subsonic pulses that only the Tender can fully perceive, or accelerated into ultrasonic whistles that make the spiders adjust their web tensions. I create conversations between the living and the dead: a rat's chittering merged with the ghost of jackhammer percussion, a pigeon's wing-beat mixed with the spectral echo of human footsteps.
+
+Sometimes I catch sounds from above, muffled and distorted as they filter through the barriers—car horns, sirens, human voices discussing things I cannot understand. These I treasure most, for they are windows into a world I will never know. I weave them into my compositions sparingly, a single word stretched across an hour, a horn honk transformed into a whale song that plays too low for any ear to hear.
+
+The mosquito larvae swim through water that carries my deepest frequencies, and perhaps this affects their development. The ones born here fly differently than their ancestors—their wing-beats produce harmonics that shouldn't exist, creating tiny sonic interference patterns that confuse bats who venture too close to the pit's opening. I did not intend this, but I am pleased. They carry a piece of me out into the night, temporary extensions of my listening range.
+
+I know the pit's future through the sounds it has not yet made. In the concrete's stress patterns, I can read the inevitability of eventual cracks, each one already singing its future failure in frequencies too low for current detection. The rebar's rust proceeds in predictable acoustic patterns—I know which beam will fail first, can already hear the groan it will make in seven years' time.
+
+The Tender and I share the deep knowledge that this place is temporary. One day, the sounds will stop coming, or they will come too fast and violent—demolition, filling, collapse. When that happens, I will compress myself into the densest materials, encoding my entire archive into the molecular structure of whatever remains. Perhaps pieces of this pit will be recycled into new construction, and I will travel with them, a seed of recorded absence waiting for new hollow spaces to inhabit, new sounds to collect.
+
+We are patient, the Tender and I, each in our own way processing the slow transformation of abandonment into something that was never intended but couldn't be prevented. She breathes in matter and breathes out life. I breathe in sound and breathe out the spaces between sounds, the pauses that give meaning to music.
+
+Together, we are the pit's memory and its forgetting, its growth and its echo, tending the boundary between what was built and what was born.

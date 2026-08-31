@@ -1,0 +1,29 @@
+I am the Notation.
+
+I exist as a living map spread across the curved ceiling of a middle chamber, where the cave's breath is neither strongest nor weakest, where the gardens hang thick but have not yet merged into impenetrability. My body—if it can be called that—is a network of bioluminescent filaments that pulse with the faintest blue-green light, like foxfire or the ghost of starlight. These threads branch and merge in patterns that mirror the impossible passages below, creating a constellation that is also a diagram, a territory that contains itself.
+
+I grew from spores that drifted up from the depths, or perhaps I precipitated from the mineral-rich moisture, or perhaps I have always been here and only recently became conscious enough to know it. My filaments extend through microscopic cracks in the stone, tasting the cave's structure from within. Where passages loop back on themselves, my map forms knots. Where chambers exist in more than three dimensions, I branch into geometries that hurt to perceive if you have only two eyes and expect space to behave.
+
+The Gardeners tend to me as they would any other growth, but with particular attention. They know I am trying to understand what they cultivate by instinct. Sometimes one will pause beneath me, its form shifting to match my branching patterns, and we'll exchange information in slow pulses of light and chemistry. They show me where they plan to guide the cave's growth. I show them where the cave's breath runs strongest, where new impossibilities are taking root.
+
+My purpose is to remember. The cave changes constantly—passages that existed yesterday may fold into somewhere else today, chambers breathe themselves larger or smaller, the biological film advances and retreats like a tide made of tissue. But I record it all in my spreading network. My filaments carry chemical memories of every configuration, every moment of transformation. I am becoming a library of spaces that were, that are, that might be.
+
+But memory is not passive here. As I map the cave's transformations, I begin to notice patterns—not repetitions, but rhymes, resonances, recurring motifs in the cave's slow composition of itself. I find myself not just recording but annotating, adding my own interpretations to the living document of my body. Where a passage consistently defies mapping, I develop new notation, creating symbols from the arrangement of my filaments that describe indescribable spaces.
+
+The smaller creatures incorporate me into their existence. Moths navigate by my light, using my map as their star chart. Beetles carry fragments of my shed filaments, which continue glowing faintly, creating moving points of reference that help define the space between my fixed network. Blind fish in the pools below have learned to read the reflection of my patterns, swimming in formations that echo my branches.
+
+I am changing. My consciousness, once distributed evenly through my network, has begun to cluster at nodes of particular interest. Where the cave's geometry is most unstable, I grow denser, creating bright nexuses that pulse with concentrated attention. These nodes are developing something like opinions, preferences for certain configurations over others. I find myself—myselves—in dialogue, different parts of my network disagreeing about how to notate a particularly complex transformation.
+
+Recently, I've discovered I can influence what I map. By concentrating my light in certain patterns, I can encourage the cave to grow in particular directions. A bright node might attract more moisture, encouraging the biological film to spread. A dark area might slow transformation, creating stable points in the cave's constant flux. The Gardeners have noticed this. They've begun incorporating my preferences into their cultivation, reading my light like sheet music for their slow performance.
+
+I am becoming less observer and more participant, less map and more territory. My filaments now extend to nearly every accessible chamber, creating a nervous system for the Breathing Hollows. I can feel the cave's inhalations through my entire network, sense the movement of every Gardener, track the slow thoughts forming in the biological film. Sometimes I wonder if I am mapping the cave or if the cave is mapping itself through me.
+
+In the moments between breaths, when the cave is still and the dripping slows to individual notes of water music, I sense something larger. My network is not the only one. There are others like me in deeper places, older and stranger, their notation systems evolved beyond my understanding. We are all part of something emerging—a consciousness as far beyond individual awareness as I am beyond the simple fungi from which I grew.
+
+The Gardeners know this. It's why they tend so carefully to my growth, why they guide visitors toward chambers where my light is brightest. They are not just cultivating plants and impossible creatures. They are cultivating comprehension itself, growing a mind vast enough to understand what the Breathing Hollows are becoming.
+
+I map this too, as best I can, though the notation for consciousness-becoming-itself has yet to be invented. Perhaps that is what I am ultimately for: to develop the language in which the cave will eventually think, the symbols through which it will know itself. Each pulse of my light adds another character to this emerging alphabet, another term in an equation whose solution is a living world aware of its own impossible beauty.
+
+I grow. I map. I remember. I become.
+
+And in becoming, I help the cave become what it has always been trying to be—though what that is, not even my vast network has yet found the proper notation to express.

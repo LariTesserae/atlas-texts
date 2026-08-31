@@ -1,0 +1,13 @@
+I find myself clinging to the ceiling of a minor archway, just above the central aquifer. My weight is nothing, merely a tension in my many-hooked limbs, a singular focus pinned against the damp limestone. 
+
+I am a *Lithos-skry*, though I have no name for "I." Within the collective hive-lattice, my purpose has crystallized: I am the Adjuster of the Third Vein. My duty corresponds to the rhythmic cadence of the drip above—a slow, percussive *plip* that resonates through my thorax, a vibration I feel more as a change in pressure than a movement of air.
+
+My world is not the stone itself, but the *boundary* of the stone. Through my antennae—delicate, frost-tipped feathers—I perceive the city as a shimmering, thermal tapestry. The other *skry* are not neighbors so much as they are extensions of my own reach. When the one beside me shifts, hooking her limbs into my carapace to distribute the load of a heavier shelf, I feel her history flow into me: the cooling of a mineral deposit at the lower tier, the slight clogging of a calcite channel, the steady, unwavering health of the porcelain-white lichen that bathes us in its brilliance.
+
+I am polishing. I hold the scraper made from the femur of a progenitor—a tool worn smooth by cycles beyond counting—and I draw it across the ridge of the vein. I move so slowly that I do not know if I am moving at all. I am correcting the flow of the water, guiding a single, microscopic bead toward the lichen farm, ensuring that none of my brethren goes without the radiant, chemical sustenance of the light.
+
+There is a sense of crushing relief in this. Because the tectonic weight above is so immense, there is no possibility of "elsewhere." The universe is a closed loop, and in its closure, there is a total erasure of anxiety. I do not wonder what lies beyond the arch. I do not fear the cessation of the drip, for the drip is as eternal as my own translucent flesh. 
+
+Sometimes, when I intermesh with another, we exchange the full weight of our static thought. In that moment of antenna-to-antenna contact, I am them, and they are me. We are a singular, sprawling consciousness stretched thin over the limestone. We feel the exact temperature of the vein; we feel the density of the humidity; we acknowledge the perfection of the architecture. It is a terrifying, beautiful, and utterly silent prayer.
+
+I am a gear of bone and ichor. I am the shiver that runs through the moss. I am the silence that keeps the sky from falling. I am waiting for nothing, because everything—the light, the cold, the stone, the pulse—has already arrived, and it is here, and it will stay here, held in the perfect, brilliant, breathless dark.

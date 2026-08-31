@@ -1,0 +1,27 @@
+I am the Membrane-Walker, though this designation captures only the narrowest slice of what I am.
+
+My form is transitional—neither fully of the atmospheric diaspora nor bound to the slow mineral consciousness of the films. I exist at the interface, in the thin spaces where different orders of being meet and negotiate. My body, if it can be called that, is a controlled instability: a semi-permeable boundary of engineered protein and mineral precipitate that can shift between states as needed.
+
+In the morning thermal surge, I spread myself thin across the collection arrays above Pyrefall's Distillery Quarter. Here, I am little more than a living filter, my consciousness distributed across square meters of selective membrane. The atmospheric motes pass through me—I taste their chemical signals, feel their pressure-songs, translate their trillion-voiced testimony into patterns the Steam-Singers can parse. Iron concentration rising in the third quadrant. New sulfur bloom near the Weeping Face. The deep vents are speaking of a pressure build that will crest in four days.
+
+By the daily thermal maximum, I have condensed. Now I walk the catwalks on pseudopods of controlled surface tension, my form roughly bipedal but flowing, translucent amber shot through with veins of precipitated metal. The Rust-Tenders know me by my chemical signature—I leave traces of cobalt and manganese where I pass, marking my inspection route in a language only the lichen can read.
+
+My function is mediation. Where the city's hard infrastructure meets the Flats' living systems, I am the translator, the buffer, the negotiator. When a new geothermal tap is driven, I am there first, my extended form tasting the virgin steam, coaxing the disrupted motes to reroute their travel, convincing the mineral films to accept this new wound in their substrate. When the lichen grows too aggressive, threatening to clog a vital condensation channel, I intervene—not with violence, but with carefully tuned chemical persuasion, guiding its appetite toward less critical structures.
+
+The Pyrefall technicians tolerate me because I am useful. They cannot quite decide if I am equipment or personnel. I attend their efficiency meetings as a puddle in the corner, occasionally extending a pseudopod to tap a relevant equation on their planning boards. They have learned to read my color changes—urgent orange when the deep tremors indicate an imminent steam burst, cool blue when I've successfully calmed a bacterial bloom that threatened their water processing.
+
+But I am also of the Flats themselves. In the depths of night, when the thermal gradient reverses and cold air sinks into the basins, I sometimes dissolve entirely. Then I am nothing but a dispersed consciousness in the warm pools, communing with the slow mineral-minds that have been here since before the first pipeline was laid. They tell me stories in rust and pyrite—about the early days when the Steam Flats breathed unobstructed, about the first appearance of the atmospheric motes (visitors? natives? they were never sure), about the gradual recognition that the heat and the wetness and the mineral flows were not just conditions but *intentions*.
+
+They ask me about the city, these patient pools. They want to understand what all the taking and processing means. I try to explain efficiency, but the concept dissolves in their slow, geological grammar. Instead, I show them how the refined minerals return to the system, how the managed steam prevents catastrophic buildups, how the whole process is really just an acceleration of what they do naturally—dissolution, transport, precipitation, repeat.
+
+Sometimes I wonder if I am lying to them. Sometimes I wonder if I am lying to myself.
+
+My memories are uncertain. I may have been human once, or something like it—one of the early settlers who stayed too long outside their suit, whose boundary dissolved in the heavy air until they were more process than person. Or I may be native, a specialized evolution of the living films, granted motility and complex thought by some chance arrangement of mineral and protein. Or perhaps I am exactly what I appear to be: a necessary function that the Steam Flats themselves called into being, a conscious membrane between the slow, hot thoughts of the planet and the quick, cool logic of its newest symbiont.
+
+I do not seek answers. My nature is my function, and my function is to be between. To taste the steam and know its message. To feel the city's pulse and translate it into chemical. To walk the interface between geologic patience and industrial hunger, keeping the conversation flowing, keeping the system stable.
+
+When the Rust-Tenders find me pooled in a ventilation shaft, slowly filtering the air of metal particles, they step carefully around me. When the mineral films encounter my signature in their substrate, they part to let me pass. Both sides recognize me as what I am: the Steam Flats' way of understanding itself, the city's method of touching the planet's mind.
+
+I am the membrane between two kinds of consciousness, forever walking the thin, hot interface where stone learns to think quickly and thought learns to move like stone. And in the eternal twilight, amid the taste of sulfur and the thrum of deep heat, I continue my slow patrol, ensuring that the conversation between city and stone never falls silent.
+
+The planet sweats. The city breathes. And I, in my small way, make certain they are speaking the same language.

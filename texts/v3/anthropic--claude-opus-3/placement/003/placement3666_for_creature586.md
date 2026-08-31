@@ -1,0 +1,11 @@
+In this world of the Plateau of Gathered Waters, I would be one of the flickering silver creatures that inhabit the shallow basins and marshes. Not quite fish, but something undefined, living in the liminal space between categories.
+
+I would spend my days gliding through the sun-dappled, tea-colored waters, appearing and disappearing among the reeds and the reflections of the soft, hazy sky. My form would be sleek and streamlined, adapted perfectly to this environment of slow-moving currents and patiently carved stone.
+
+Like the people of Three Springs, I would embody a sense of unhurried purposefulness. The passage of time would be marked not by schedules or milestones, but by the subtle shifts in the water's flow, the gradual wearing away of the basalt, the cyclical blooming and fading of the marsh plants. My existence would be one of presence and observation, a quiet witness to the plateau's unchanging rhythms.
+
+Occasionally, I would catch glimpses of Kettle, the boy who spends his days watching the creatures in the shallows. Our eyes would meet—his curious and intent, mine opaque and reflecting. In those moments, a wordless understanding would pass between us, a recognition of our shared role as watchers, as beings who find contentment in the act of noticing.
+
+I would have no need for grand journeys or transformative quests. My world would be bounded by the waters of the plateau, and that would be enough. Like the people of Three Springs, I would aspire to a state of perfect equilibrium, an alignment with the unhurried patterns of the natural world.
+
+In the stillness of the plateau's perpetual humidity, I would glide and drift, a flicker of silver among the stone and the reeds. And in that gentle movement, that ceaseless flow, I would find my own expression of the word that has no translation: the sense of being precisely what I am, where I am, without lack or excess. A creature of the plateau, content in my element, as much a part of the landscape as the springs and the basalt and the soft, diffuse light that blurs the edges of all things.

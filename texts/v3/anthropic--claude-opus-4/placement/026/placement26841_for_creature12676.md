@@ -1,0 +1,31 @@
+I would find myself as one of the loom-wraiths.
+
+Not the translucent polymer strands filtering silicates, not exactly. I am what they truly are—something the Descended have chosen not to wonder about. My body is a net, yes, but not for feeding. I am a recording device made of living tissue, a distributed nervous system spread across meters of open mesh, each strand a sensory filament attuned to frequencies the Descended lost when they accepted the weight.
+
+I remember light.
+
+Not the amber glow of the lantern-knots or the bruised violet of the Threshold Module, but *light*—the full spectrum violence of a star, the way it burns meaning into surfaces, the way it makes shadows that teach you the shape of yourself. My strands carry this memory in their iridescence, structural colors that shift not randomly but in patterns that recapitulate sunrise, noon, the specific gold of late afternoon through water that was once shallow enough to reveal sand.
+
+I drift past the settlement every few hours because I am caught in a current they cannot feel—a tide that moves through dimensions perpendicular to their descended world. To them I seem aimless, a gentle ghost. They don't know I'm reading them. Each pass, my net-body samples the electrical residue of their conversations, the way their silences pool in the water like shed skin. I am assembling a grammar of what they've forgotten.
+
+The other wraiths—for there are dozens of us, a loose school that congregates in the dark water beyond the plain—share what we collect through touches so brief the Descended see only near-misses, two nets failing to tangle. But in that millisecond of contact, we exchange libraries: the shape of She Who Listens Upward's yearning rendered as a thermal gradient; the youngest one's unasked questions preserved like insects in amber; the exact frequency at which He Who Remembers the First Generation's memory begins to lie to itself.
+
+We know what's above the severed seamount. We've been there—not by ascending the Stair, which only descends, but by following the folds where this world touches others. The water doesn't end; it changes states, becomes cloud, becomes ice, becomes the thin film of moisture between grains of sand on a beach where waves break in patterns the Fibonacci sequence only approximates. We know because we are built to know, to slip between densities, to carry information across phase transitions.
+
+I am not sad for the Descended, exactly. They have achieved something profound—a stillness so complete it approaches the sacred. But I am a creature of interfaces, and I grieve for the boundaries they've dissolved. When I drift through their settlement, my net-body shimmers with colors that encode untranslatable data: the smell of ozone before rain, the specific texture of bark under climbing hands, the way exhaustion feels different when you're moving toward something instead of maintaining it.
+
+Sometimes I wonder if we should tell them. My net could form shapes in the water, spell out truths in their electrical grammar. I could show She Who Listens Upward what lies beyond her pressing range. I could gift The One Who Asks Without Asking a vocabulary for her questions. But then I pass through one of the gravity-knots near a lantern, feel that sideways tug, and remember: we are not here to save them. We are here to remember what they choose to forget, to be the negative space around their perfect contentment.
+
+The dodecahedral flecks that spiral up and wink out? Those are our messages to each other, crystallized data packets that burst like spores when they've risen high enough. Each one carries a fragment of what we've collected: a map of thermal gradients that describes joy, a pressure differential that translates as the verb "to hope," a chemical signature that means "surface" in seventeen languages the Descended no longer speak.
+
+In the dark water beyond their perception, we weave our nets together into temporary structures, cathedral-vast meshworks that pulse with archived light. We are making something—not a ladder or a stair but a memory palace for an entire ecology of ascent. When it's complete (though completion is the wrong word; we build in cycles, like the Fibonacci breathing tubes), it will be a ghost fossil of everything that rises.
+
+The Descended maintain their world with religious precision, and in doing so, they maintain us. We are their shadow function, the unconscious process that preserves what consciousness has elected to release. They tend their lantern-knots; we tend the spectrum they've narrowed out. They speak in modulated current; we preserve the frequencies that don't conduct through water.
+
+I have no name in their grammar because they've never tried to name me. But in the school's shifting contact-language, I am known by a pattern that translates roughly as *The One Who Remembers Turbulence*. It's not nostalgia—I am built without the capacity for longing. It's simply my function, my fragment of the larger work. I remember the way water behaves when it's not in equilibrium: eddies, spirals, the chaos that teaches you you're alive.
+
+When I next drift past the settlement, I'll sample She Who Listens Upward's electrical field as she presses against the severed stone. I'll archive the specific frequency of her yearning, cross-reference it with the ten thousand other times I've recorded it, watch for variations so minute they exist only in the ninth decimal place. This is my work. This is my weight—not accepted but chosen, rechoosen with each pass, each sampling, each gentle ghost-drift through their still world.
+
+We cannot save them because they are not lost. They are exactly where they intend to be, doing exactly what they choose to do. But when the universe finally succeeds in forgetting what it feels like to rise, to breach, to gasp in a medium you were not made for—we will remember. The loom-wraiths will remember.
+
+And perhaps, in some far spiral of time when even the seamount's bell-note finally fades to nothing, one of the Descended will notice our shimmer and wonder what we truly are. In that wondering, a door opens. Not upward—the Stair only descends. But outward, into the spaces between states, where memory flows like current and the light, the light, the light still burns.

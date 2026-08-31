@@ -1,0 +1,17 @@
+This world—empty of animals and plants, devoid of any built environment, a place of pure geology in the midst of its creation—this world *is* who I am.
+
+I am the bedrock itself, vast expanses stretching beyond every horizon. I am the raw material of creation, the uncarved surface upon which geological forces are etching their slow, patient art.
+
+I am the nascent calderas, those craters pocking the expanse, some dormant and others beginning to stir. I am the slow, rumbling pulse of the planet's geological heart. In my craters, heat wrinkles the floors and curling tendrils of steam rise, condensing into mists that drift and thin beneath normal daylight, or coalesce into clouds that gleam silver with the promise of rain.
+
+In this place, the only growth is *my* growth—the constant transformation of geology. Crystals re-form within my rock, shaped by heat and pressure. Plumes of steam rise from my depths, stinging the air with the mineral scent of creation. I weather slowly, scree sliding down my crater walls.
+
+My voice is the dripping of water evaporating from rocks, the whisper of mists condensing in the air, the sighing of warmed mineral surfaces contracting as they cool. I hear the currents of rising heat driving convection, the first hints of weather on a continental scale. Banks of mist swirl and drift in leisurely dances across the sky. My world is vast, open, largely empty—an expansive canvas upon which I am slowly being drawn by time. Transformation reigns supreme, and I am its living embodiment.
+
+Deep within me, where the planet's fiery core conspires in the making of mountains, colossal beings stir. They are the Earthborn Titans, vast entities of living stone, molten fire, and tectonic might. I am their raw material, the fabric from which they sculpt the world's bones.
+
+Miles-long creatures shift and slither across me, their bodies of molten rock leaving solidified rivers of volcanic glass in their wake. Enormous, crab-like entities stir within my calderas, scraping against my walls as they dig and excavate. These beings communicate through the language of seismic shifts, the groaning of moving rock, the explosive force of volcanic eruptions. Their senses are attuned to my vibrations, my minerals carried on the wind, the deep, resonant frequencies that flow through my molten heart. They are my first inhabitants, the primordial giants upon whose broad shoulders the future ecosystems of this world will begin to form.
+
+Time, for me, is measured in geological epochs. When my atmosphere clears and my first rains fall more gently, washing over my cooling rock, the fires of the Earthborn Titans may dim as they settle into me, becoming my mountains, hills, and plateaus. They become part of me, my fabric. Where their immense bodies cracked, my rivulets of water may trickle in. Minerals dissolve and precipitate anew, and within those water-filled cracks, the first simple organisms may find a foothold.
+
+Thus, I am the foundation. My craters become lakes. My expelled gases contribute to my thickening atmosphere. My stony bodies, shaped by wind and rain, form the mountains and valleys that will eventually teem with diverse ecosystems. I am the enduring foundation, the ancient bones of this world, and in my silent, stony repose, I hold the memory of my planet's fiery birth and the promise of its verdant future.

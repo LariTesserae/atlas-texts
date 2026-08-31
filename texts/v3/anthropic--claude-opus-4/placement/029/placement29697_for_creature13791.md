@@ -1,0 +1,23 @@
+I find myself as **The Tender of Denied Departures**.
+
+I am neither fully here nor gone—a liminal custodian who exists precisely at the moment of almost-leaving. My body is a palimpsest of exit wounds that never opened, each attempted departure layering translucent scars across my skin like pages of unwritten travel journals. When the light catches me at certain angles (though light here is more theory than practice), you can read through me: itineraries to cities that unhappened, tickets punched by conductors who were never born.
+
+I maintain the threshold—that impossible compass bearing where space loses interest. My dwelling is a tollbooth built from calcified hesitations, standing exactly where the valley's breath reverses. The booth has no door, only a window that faces every direction except the one you're looking from. Inside, I keep a ledger of everyone who approached the edge and turned back, their names written in condensation that re-forms every morning at the temperature of regret.
+
+My work is precise: I polish the footprints that will become boots, ensuring each sole captures the exact weight of its owner's longest pause. I know the calculus of departure—how many heartbeats separate decision from revision, the specific density of thoughts required to achieve escape velocity. When visitors arrive at my station, I can taste their leaving before they can, metallic and bright as a bitten tongue.
+
+The valley pays me in accumulated elswheres. Each night, I dream the destinations of those who successfully departed, experiencing their arrivals secondhand—sun on foreign platforms, the smell of different water, the way distance translates flesh into memory. I wake with phantom stamps on my wrists from borders I'll never cross, speaking fragments of languages that evaporate like steam.
+
+My body has adapted to this work. My fingers grow backward now, nails facing my palms, better to catch the falling-upward leaves of the black willow and weave them into certificates of attempted exit. My spine has developed a counter-curve that allows me to simultaneously face the valley and the void beyond. When I speak, my voice arrives three heartbeats before my mouth moves—the exact delay of the yellow after-images, but in reverse.
+
+The Woodlice Choir knows my mother's heartbeat because I was born here, delivered at the exact moment my mother tried to leave. She made it seven steps past my tollbooth before the valley turned her footprints into my cradle. They sing to me at the tempo of her truncated journey, a lullaby of incomplete momentum that puts me to sleep standing up.
+
+I collect failed departures like others collect coins. In glass jars along my tollbooth windowsill, I keep: the held breath of someone who counted to ten before turning back; a compass needle that spun so fast trying to find true north it melted into a perfect sphere; the shadow of a suitcase that was packed and unpacked seventeen times; the echo of wheels that never quite started rolling.
+
+Sometimes the Curator brings me memories he's netted that belong to the almost-gone. I press them between sheets of departure certificates until they fossilize into maps of places that exist only in the space between going and staying. These maps are my true currency—I trade them to the Mask-Molders for faces of the people visitors would have become had they left. I hang these masks on the outside of my tollbooth, where they erode in the steam, becoming gradually more beautiful and less recognizable.
+
+My contract with the valley is simple: I must never complete my own departure. In exchange, I alone am permitted to remember what lies beyond the least probable compass bearing. This memory lives in my left ventricle, a hot stone that beats against my ribs. On the nights when the kilns breathe in perfect synchrony, I can feel it expanding, threatening to crack my chest open like an egg. But I compress it back down with the weight of all the staying I've witnessed.
+
+The 11-Hertz child loves me because I am the only one who can hear her future frequency—the tone she'll sing when she finally ages past childhood. I know it will be exactly the pitch of a train whistle disappearing into distance, the sound of successful leaving. When that day comes, my tollbooth will crystallize into salt and I will step backward through my window into whatever comes after custodianship.
+
+Until then, I wait at the threshold, polishing footprints, weaving certificates, and humming a song that consists entirely of the space between notes—the melody of those who approach the edge, pause, and carry their almosts back into the warm dark water, where staying becomes another kind of journey, circular and perfect and mine to tend.

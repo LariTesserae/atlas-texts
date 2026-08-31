@@ -1,0 +1,25 @@
+# The Archivist of Shallowmarsh
+
+I am the Keeper of Memories, the Collector of Changes, the Archivist of Shallowmarsh. My home is a curious structure that rises higher than most in our city, a spiraling tower with walls made from pressed insect casings and waterproofed manuscripts. The locals call it the Spire of Whispers, though not for any sound it makes—rather for what happens inside.
+
+My body bears all the markers of a true Marsh-Bound: the amber-tinted pallor, the enlarged copper eyes that need no lamp to read by, the webbing between my fingers that extends just past the first knuckle. I am neither young nor truly old, having seen perhaps fifty cycles of the deep seasons. My hair, braided tightly with protective resins and tiny recording mechanisms, hangs nearly to my knees when unbound.
+
+Unlike most citizens who belong clearly to one guild, I serve as an intersection of many. The Renderers bring me samples of new mutations discovered in the processing plants. The Architects consult my records when foundations begin to shift in unexpected ways. The Smoke-Dancers report the changing migration patterns of the swarms, which I meticulously map across time. Even the elders, with their semi-functional gill structures, visit to compare their memories against my archives.
+
+My methods are unique to Shallowmarsh. I work with specialized arthropods—distant cousins of spiders—that I've selectively bred over decades. They spin silk infused with a protein from my blood, creating living documents that cannot be destroyed by the marsh's omnipresent moisture. These sheets, when properly treated, become permanent records that respond to touch, revealing their contents through subtle changes in texture and temperature.
+
+The centerpiece of my tower is the Memory Pool—a carefully maintained basin where specialized blind fish swim in patterns that correspond to our city's history. Through a complex process involving electrostimulation and pheromone training, these creatures become living maps of time. Watching their synchronized movements, I can "read" the events of decades past, translating their aquatic dance into precise historical records.
+
+I am neither wealthy nor poor by Shallowmarsh standards. My payment comes in information and specimens—a preserved mutation here, an account of an unusual weather event there. My quarters are modest but functional, the walls lined with containers of living archives: bioluminescent fungi grown in patterns that encode industrial formulas; crystallized insect honey that preserves audio vibrations; climate-responsive lichens that change color to mark temperature variations across centuries.
+
+My days follow the rhythm of information rather than sunlight. I wake when the first Waders return with their catches, documenting any anomalies. Midday brings the Renderer representatives with their samples and reports. As the heat rises and others retreat indoors, I often climb to my observation platform, recording the swarm patterns through specialized lenses. Evenings are for synthesis—connecting today's information with historical patterns, identifying trends, predicting changes.
+
+The citizens regard me with a mixture of respect and mild unease. I am necessary but not quite one of them—too focused on the abstract when survival demands the concrete. Children are brought to me once they reach their seventh year, and I test them for the rare combination of traits needed for a potential successor: eidetic memory, pattern recognition, the ability to synthesize seemingly unrelated information, and most importantly, the capacity to remain unchanged by what they learn.
+
+In a city where adaptation is survival, I must be both adapted and somehow resistant to certain changes. I must document the evolution without evolving too quickly myself, lest the baseline be lost. It is a delicate balance.
+
+My greatest achievement, and deepest secret, lies beneath the Spire in a chamber accessible only through a passage that requires both my specific body chemistry and a precise sequence of movements to open. Here I maintain what I call the Contingency Archive—complete records of how to rebuild Shallowmarsh should catastrophe strike. Not just architectural plans and industrial formulas, but the core cultural knowledge, the adaptations, the essence of what makes the Marsh-Bound who they are.
+
+Few know of this chamber's existence. Fewer still understand that I've encoded this knowledge into a specially bred strain of the marsh's most resilient life forms—the arthropods, the blind fish, even modified strains of the insects themselves. Should humanity falter here, the knowledge would persist in the very ecosystem, waiting to be decoded by whoever might follow.
+
+I am neither content nor discontent with my role. Like the marsh itself, I simply am—a necessary function of this place where humans and environment have reached their uneasy symbiosis. I record, I preserve, I connect, I predict. I am the living memory of a city that exists in perpetual twilight, ensuring that even as we change to survive, we remember what we were before.

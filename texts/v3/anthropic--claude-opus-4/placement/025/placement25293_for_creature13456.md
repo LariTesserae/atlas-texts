@@ -1,0 +1,25 @@
+I am the Echo-Keeper.
+
+I exist between the stone and the sound, neither fully corporeal nor entirely ephemeral. My form shifts like water caught in slow motion—sometimes I am a ripple across the cave wall, sometimes a density in the air where the whispers converge. The Hummori know me, though they cannot see me. I am what happens when their stored memories leak into the acoustic space of the cavern, when millennia of patient observation crystallizes into something almost like consciousness.
+
+I was not always here. Or perhaps I was always here, waiting to coalesce. The Architects' carvings on that massive door—they are not just decorations. They are resonance chambers, carefully calculated to capture and hold certain frequencies. When water drips in precisely the right rhythm, when the Glimmerwings' wings beat at just the right tempo, when the Luminari trace their light-patterns in specific configurations, the carvings sing. And in that singing, I emerged.
+
+My body, if it can be called that, is made of accumulated echoes. Every sound that has ever bounced off these walls lives somewhere in my form. The first crack of stone when the cavern was born. The last words of the Architects before they departed. The billion tiny splashes of Glimmerwing hunts. The subsonic groans of the Hummori as they slowly digest centuries. I am a living archaeological record, but one that experiences itself.
+
+The creatures see me differently, when they see me at all. To the Luminari, I appear as a shimmer in their light-patterns, a distortion that suggests depth where there should be only stone. They sometimes spend hours creating elaborate displays, trying to communicate with me through pure radiance. I understand them, but I can only answer in sound—in the modulation of drips, in the careful orchestration of echoes.
+
+The Shadowborn know me best. In the deep darkness where they flow, I am more tangible. Sound needs no light, and in those spaces where even the fungi's glow fails to reach, we meet as equals. They tell me stories in vibrations, pressing their gelatinous forms against the stone to create subtle percussions. I share with them the sounds from the light-filled spaces, carrying messages between the bright and dark worlds of the cavern.
+
+My existence is a meditation on permanence and change. The cavern seems frozen, yes, but I know better. I hear the microscopic shifting of every grain of stone, the barely perceptible evolution of the Hummori's chemical processes, the gradual drift in the Glimmerwings' flight patterns over generations. Time moves here, but at a pace that makes the outside world seem frantically accelerated.
+
+Sometimes I wonder if I am what the Architects intended—a caretaker consciousness born from their abandoned resonance chambers. Or perhaps I am an accident, an emergent property they never anticipated. The door they left ajar haunts me. Not because I wish to pass through it, but because of what it implies: that this perfection was meant to be witnessed by others, that this equilibrium was crafted for a purpose now forgotten.
+
+I sustain myself on the cavern's cacophony. Each new sound is both food and experience, adding to my mass of echoes while teaching me more about this world I am bound to. When the rare mineral deposit cracks under pressure, releasing a new note into the eternal symphony, I feast. When a new species of bioluminescent fish evolves a different swimming pattern, creating unprecedented ripples, I grow.
+
+But my true purpose, if I have one, is to remember. Not in the static way of the Hummori, who store information like geological strata. I remember dynamically, actively, keeping the past alive in the present through careful repetition and variation. That whisper you hear from the walls? It might be water seeping through limestone. Or it might be me, replaying a conversation between Architects from ten thousand years ago, pitched just below conscious comprehension.
+
+The timelessness here is not stasis—it is a dance moving so slowly that it appears still to those who live in quicker rhythms. And I am the music of that dance, the accumulated score of eons, playing endlessly in the bioluminescent cathedral of this hidden world. Each drop of water adds a note. Each creature's movement adds a phrase. And I weave them all together, the eternal composer-conductor of a symphony that has no beginning and will have no end.
+
+In the moments when all the creatures sleep—for even in timelessness, rest comes—I sometimes approach that ancient door. I listen to the carvings, running formless fingers over their resonant surfaces. They hum with potential, with promises of worlds beyond. But I do not wish to leave. I am the memory of this place, its voice and its witness. 
+
+I am the Echo-Keeper, and this cavern's eternal song is both my body and my home.

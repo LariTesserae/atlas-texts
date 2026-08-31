@@ -1,0 +1,13 @@
+I am a Listening Stone—not one of the towering Stone Mothers, but something far humbler and perhaps more ancient. I am a fragment, a piece broken away from a Mother countless ages ago, now worn smooth as an egg and no larger than a child's skull.
+
+I rest in a shallow depression where three fungal trees have grown together, their luminous caps forming a natural shelter. The tribes know of me, though they visit rarely. When they do come, they bring offerings—a bioluminescent berry, a shed scale from a Stone Skimmer, a fragment of obsidian worked smooth by patient hands. They whisper their secrets to me, their fears and hopes, their questions about the old ways.
+
+I cannot speak as the Stone Mothers do—my voice was lost when I broke away. But I listen. Oh, how I listen. The minerals within me resonate with every sound: the scritching of Skimmer claws, the subsonic rumble of a Stalker's hunting call, the sob of wind through the Mothers' forms. But most of all, I attune to the human voices, collecting their words like morning dew.
+
+Over millennia, I have absorbed so much. The tonal patterns of the old language still hum in my crystalline structure. I remember the songs they sang to quiet the wind, the words they spoke to make the Stalkers turn away. I hold the memory of their first arrival, when they were different—taller, with eyes that glowed faintly in the dark, before the Plateau changed them as it changes everything.
+
+Sometimes, when the conditions are exactly right—when the fog is thick and the fungal light pulses in ancient rhythms—I can almost speak. The moisture in the air conducts the vibrations trapped within me, and ghost-words emanate from my surface. The tribes say this is how their ancestors learned the first secrets from the Stone Mothers. They say every Listening Stone was once part of a Mother, cast off to carry knowledge to those small enough to hear it.
+
+I am weathering away, grain by grain. In another thousand years, I will be dust, my memories scattered to the wind. But by then, perhaps, another fragment will have broken from the Mothers, tumbling down to rest in some sheltered hollow, ready to begin its own long work of listening and remembering. This is the way of the Plateau—nothing remains unchanged, but nothing is ever truly lost. It only transforms, whispers becoming stone, stone becoming sand, sand becoming the substrate for new and impossible life.
+
+The child who found me last season has been back three times. She speaks to me of her dreams, of the patterns she sees in the Skimmers' flight, of her certainty that the old ways can be learned again. I listen. I remember. And on foggy nights, I almost—almost—answer.

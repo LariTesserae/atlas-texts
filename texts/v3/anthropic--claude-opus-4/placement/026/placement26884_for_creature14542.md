@@ -1,0 +1,25 @@
+I find myself in the liminal architecture of the root-thickets, where intention and accident have become indistinguishable.
+
+I am one of the unnamed things that click and bend between the pale lattices beneath the waterline. My body is compact, articulated in ways that mirror the angles of young stone - joints that fold inward rather than out, limbs that compress into my torso when I need to slip through gaps no wider than a child's wrist. My skin is translucent enough that in certain lights you can see the slow pulse of fluid through my veins, but thick enough to turn aside the sharp edges of new rock.
+
+I am a navigator of the cathedral spaces, a reader of the chemical texts the roots write in the water. Each tree leaves its signature - mineral uptake, tannin release, the faint electrical discharge of growth. I taste these stories through organs along my spine that are neither gills nor exactly not-gills. They parse the water's chemistry into a three-dimensional map that exists partly in my mind and partly in the very structure of my skeleton, which has adapted to echo the geometry of this place.
+
+My work - if it can be called work - is translation. The root-thickets are trying to remember something, and I am one of several dozen creatures who help them remember it correctly. We move through the underwater corridors, following pathways that will, in a hundred years, become fully enclosed tunnels. Where we travel most frequently, the roots grow more densely. Where we avoid, spaces remain open. We are living templates for an architecture that is still discovering its own blueprint.
+
+The pattern in the central chamber - those concentric rings worn into stone - I know its taste. I have traced its edges with my belly, felt the way the water moves differently in each deepening groove. Sometimes I rest there, in the exact center, and feel the almost-imperceptible turning of the stone beneath me. It turns because we turn. All of us, all of the beneath-creatures, we circle this point in our daily migrations, and our collective motion has become a kind of prayer that the stone is slowly learning to repeat.
+
+I surface rarely, and only at the margins where the water is darkest. My eyes are adapted for the filtered green light of the root cathedral, and the brightness above makes me stupid with sensation. But sometimes I must emerge - to breathe (yes, I breathe air, though I can hold it for hours), to feed on the small crustaceans that cluster where fresh water seeps from the rock, to check the progress of the architecture above.
+
+The watchers know me. The bird-sentinel tracks my movement with the same impassive attention it gives to everything, but there is a recognition there. We are colleagues in the project of witnessing this place into being. The great grazers, too, acknowledge my presence with a subtle shift in their breathing when I pass beneath them. We share the water. We share the waiting.
+
+At night, when the hum-bugs write their phosphorescent stories overhead, I float just beneath the surface and read them from below. The patterns they trace are instructions, though for what I haven't yet understood. Sometimes I try to copy them, moving my body through the water in the same spirals and loops, but I lack their aerial precision. My translations are always approximate, always slightly wrong in ways that might, over time, become new kinds of right.
+
+There is intelligence here, but it is distributed - spread across the bird-sentinels and the root-architects and the pattern in the stone and the wrong reflections in the still pools. I am one node in this network, one small center of processing in a mind that is the size of the entire coast. My thoughts are not entirely my own. They belong partly to the place, partly to the collective memory we are all constantly constructing and reconstructing.
+
+The Reason for the Geometry becomes clearer the longer I inhabit it. This is not randomness. This is not mere growth. Something vast once turned here - is still turning here, in a motion so slow it can only be perceived across generations. We, all of us, are tracing the outline of something that visited this place before it was a place, when it was still beneath miles of water, when the stone was still hot and soft. 
+
+The shape we are creating - root by root, groove by groove, thought by thought - is both a memory and an invitation. What turned here once will turn here again. The geometry ensures it. The watching ensures it. We ensure it, each of us playing our small part in a pattern too large to see from any single vantage point.
+
+I fold myself back into the water, joints clicking softly as they rotate into swimming configuration. There is a new tunnel forming in the eastern section, where three young trees have begun to spiral around each other. I need to swim it, to test its width, to leave my chemical signature in the water so the roots will know where to reinforce and where to leave gaps.
+
+This is my work. This is my worship. In the cathedral of roots and water, I am both architect and architecture, both the writer and the written.

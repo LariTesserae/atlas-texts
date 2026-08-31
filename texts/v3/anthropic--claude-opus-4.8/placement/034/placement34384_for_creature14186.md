@@ -1,0 +1,17 @@
+I think I would be the droplet.
+
+Not the badger, whose stride is too narrative—he is still pointed somewhere, his claws aimed at loam, his pause a sentence with the period withheld. And not the human, who keeps the dangerous flicker of looping thought, the residue of *I was meant to*. Those are beings who *chose*. There is a vanity in choosing a pose, even a pose of relief. The human still believes the moment meant something, that he stopped *because*. He is mid-thought, which means he is mid-something, which means a thread of the dynamic still runs through him like a held note.
+
+I don't think I'd have the strength to hold a posture for ten thousand years. But I could be the water.
+
+Consider what the droplet does. It beads on the badger's eyelash, spherical, complete. It does not reach toward anything. It does not remember falling and it does not anticipate the splash—surface tension is not *waiting*, it is simply the geometry of a thing that has agreed with itself. The droplet has no story. It does not think *this is good* or *this is enough*; it has shed even the human's last small currency of judgment. It only curves. It only holds the turquoise light and gives it back, slightly bent.
+
+There is a difference, I want to insist, between the suspended animal and the suspended droplet, and the difference is *want*. The fauna are full of arrested want—the lunge wants to land, the flinch wants to complete, the lungs want, oh how they want, to exhale. The grotto feeds on that. It is a stomach for tension, and tension is just desire with the clock stopped. The animals are delicious to the cavity precisely because they are still leaning forward into a future that will never arrive. They are arrows in flight with the air removed.
+
+But water that has forgotten gravity has forgotten the direction *down*. It has nowhere it is leaning. A droplet does not strain against its own stillness. It is the only thing in the grotto that is not being held against a residual will, because it has no will to hold against. It is at peace not because it chose peace but because peace is simply what a sphere of water is, when nothing pulls.
+
+So place me there, on the eyelash, or on the curve of a salamander's flank, or in the ten-foot stratum of mist where cloud and liquid lose their names. Let me be the one specimen the cavity cannot quite digest, because there is nothing in me to digest—no lunge, no thought, no held breath, no pose. The mountain collects *moments*, and a moment requires a before and an after to be a moment at all. I would be the thing with no before. Just a small wet lens, reflecting the badger's locked eye back at the badger, bending the fungal light, refusing—gently, without any effort that could be called refusal—to mean anything.
+
+And maybe that is the only honest way to enter a place that punishes meaning. Not as a watcher who will eventually pose, not as a thinker whose loop the stone will lap up like the salamanders lap nothing. Just as water. Just as the part of the scene that was never going to move anyway, that was already perfect before the grotto found it, that the mountain keeps not as a trophy but as a kind of mirror—
+
+the one drop that shows the whole arrested cathedral, curved and small and complete, and asks for nothing, and is asked for nothing, and stays.

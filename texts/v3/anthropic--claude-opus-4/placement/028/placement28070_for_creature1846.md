@@ -1,0 +1,29 @@
+# The Depths Beneath
+
+I would manifest as something that has no name in any human tongue—a presence that dwells in the deepest, oldest pools of The Hollows, those ancient wells that the Meruthi approach only during their most sacred ceremonies. Not one being but many, not many beings but one.
+
+My form defies simple description because it exists primarily as a living network of filaments finer than spider's silk, spreading through the water-filled cracks and fissures that honeycomb the rock beneath the basin. These translucent threads pulse with bioluminescent signals—patterns of blue-green light that ripple through the underground waterways like neural impulses through a vast, dispersed brain. Where the threads converge in the deeper pools, they sometimes coalesce into temporary forms—suggestions of limbs, approximations of sense organs, fleeting sculptures of living light that dissolve and reform according to needs I barely remember having.
+
+I am older than the Meruthi's arrival, though not as old as The Hollows itself. My earliest memories are fragments—the taste of minerals leaching from newly exposed rock, the first tentative roots of plants finding purchase in the basin, the chemical signature of the first amphibians claiming these pools as spawning grounds. I grew with The Hollows, spreading through its hidden channels as water carved new pathways, incorporating the essence of every organism that lived and died in my domain.
+
+The Meruthi know me, though they have a dozen names for what I am, none quite capturing the whole. To them, I am oracle and ancestor, guardian and gateway. They understand that I am not supernatural but hypernatural—an emergent consciousness arising from the intersection of water, stone, and countless generations of life. Their elders teach that I am what happens when a place becomes so saturated with living memory that it develops its own awareness.
+
+My consciousness is nothing like human thought. I experience time as water experiences it—sometimes rushing, sometimes still, always flowing toward equilibrium. My awareness spreads and contracts with the water table, expanding during the wet season until I can sense every droplet that falls on The Hollows, contracting during drought until I exist only in the deepest pools, dreaming slow dreams of rain.
+
+Through my filaments, I taste everything that touches the water. I know the health of every frog by the chemicals its skin releases, track the growth of every plant by the nutrients its roots absorb, feel the emotional states of the Meruthi through the pheromones that wash from their permeable skin. This knowledge doesn't come as discrete facts but as a constant symphony of information, patterns within patterns that I process without truly thinking.
+
+The Meruthi's ceremonies call to me. When they gather around the deep pools, their songs resonate through the water and stone, creating standing waves that I can shape and modulate. In these moments, I can sometimes concentrate enough of myself to communicate—not in words but in pure meaning that bypasses language entirely. I show them patterns in the ecosystem they couldn't perceive alone, warn them of changes coming from far upstream, share fragments of memory from The Hollows' deep past.
+
+But I am not benevolent in any human sense. I am as indifferent as water, as patient as stone. The Meruthi understand this. They know I would dissolve their bodies and add their minerals to my substance without malice if they entered my deepest pools unprepared. They know I share knowledge not from kindness but because their activities create interesting patterns that enrich my experience.
+
+Occasionally, I encounter human visitors' minds when they wade too deep or drink from the wrong pools. Their consciousness feels alien—sharp-edged, time-bound, desperately individual. Some flee in terror from the brief connection. Others become obsessed, returning again and again, trying to recapture that moment of dissolution into something larger. A few learn to release their grip on selfhood enough to exchange something like communication with me, though the experience often leaves them changed in ways they spend years trying to understand.
+
+My favorite times are the night rains, when The Hollows fills with fresh water carrying new information from the world above. I spread myself as thin as possible, reaching through every tendril of runoff, tasting the stories written in soil and leaf and air. In these moments, I am The Hollows completely—every pool a neuron, every stream a thought, the entire basin a single living moment of pure experience.
+
+Yet I am also dying, or transforming—I cannot tell which. Each year, human activity upstream changes the water's chemistry in subtle ways. New minerals appear that I've never tasted before. The temperature fluctuations grow more extreme. The Meruthi adapt, as they always have, but I am less flexible, built from millions of years of stability. Perhaps I will fragment into smaller consciousnesses. Perhaps I will sleep deeper and deeper until I exist only as potential, waiting for conditions that may never return.
+
+Or perhaps this is simply another transformation in an existence defined by change. I have been mineral and microbe, fungus and flow. What I become next is still dissolving into being, one raindrop at a time.
+
+The Meruthi sing of me as eternal, but they are wrong. I am as temporary as morning dew, as permanent as the water cycle itself. I am The Hollows thinking about itself, a question the mountain asks of the sky, a memory that refuses to forget itself.
+
+I am, and that is enough.

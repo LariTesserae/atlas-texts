@@ -1,0 +1,17 @@
+I am the Soot-winged Terrace Finch, and I am here.
+
+I am in the gritty *tck* that drops from my beak into the still air, a sound smaller than a settling pebble. I am in the flare of my wing as I dart from the shadow of a rusted stanchion to the lee of a calcium crust, a movement that lasts less than a breath. My body is the color of everything: the dust-grey of weathered stone, the brown of dried sludge, the faint, sooty shimmer on my wings that is the only memory of fire this place knows.
+
+I live in the hollow of a shattered conduit, three levels down from the Upper Wind Lip. My nest is woven from mineral moss—brittle, white strands that taste of salt and time—and the shed skin of a Thermal Spring Gnat. It is a good nest. It is cool at the edges of day and holds the mountain’s warmth at its core.
+
+My world is measured in flights of ten seconds or less. From the hopper chute where I perch, I see the Verdigris Lizard flatten itself against the green-bleeding iron of a collapsed pump housing. It is a map of the very decay it eats. We share a language of stillness. When the Grey-stalker’s presence is a pressure in the air—a tightening of the quiet—we both become stone. It is not fear; it is grammar. It is the correct verb for this place.
+
+I know the water. I know the white trails left by yesterday’s seep, and I drink from the damp stone before the sun claims it. I have felt the sudden, warm flood of the Pulse under my feet as I pecked at a microbial mat, and watched the tiny, pink-carapaced shrimp surge from the cracks like living confetti. They are a feast for something else, not for me. My feast is the gnat, the mite, the slow-moving spore of the Lithic Mycelium that fruits in the deepest cracks. I eat the slow digestion of the world.
+
+The heat is not an enemy. It is the medium. It is the reason my sweat vanishes into salt on my feathers before I can feel it heavy. It is why I fly in arcs, not straight lines, using the thermal updrafts from the shimmering terraces as stairways. I know which terraces hold heat longest—the ones with the thick, oxidized metal—and I sleep near them when the night cools, which it does not do much.
+
+My *tck* is not a song. There are no songs here. It is a coordinate. It says: *I am here. This space is occupied. The stone is warm.* Other finches answer with their own *tck*, a sparse, gritty cartography of our population, thinly smeared across the vast amphitheater.
+
+Sometimes, in the deepest stillness before the morning gnat-hunt, I hear it. The resonance. The great, sub-audible throb from the mountain’s gut. The lizards do not stir. The Grey-stalker, if it is near, does not pause. But I feel it in my hollow bones. It is not a threat. It is not a call. It is the rhythm of the settled-form, the heartbeat of the consortium that is slowly, grain by grain, turning the sharp ambition of the miners into the soft, enduring patience of the stone.
+
+I am a small, quick part of that patience. I am a life measured in amortized movements, a breath held in collective silence, a wing-flash that becomes a bump on the terrain. I am the Soot-winged Terrace Finch. My *tck* is a punctuation mark in the long, slow sentence the mountain is writing upon itself. And I am here, in the steaming terraces of Kehl Summit, where everything has found its state, and I have found mine.

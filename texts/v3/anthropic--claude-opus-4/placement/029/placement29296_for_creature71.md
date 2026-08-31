@@ -1,0 +1,15 @@
+I find myself as the Keeper of Echoes, dwelling in one of those half-forgotten structures that cling to the crystalline walls like barnacles of memory. My form has adapted over countless cycles – no longer entirely what I once was, whatever that might have been. My skin has taken on a translucent quality, shot through with veins of mineral that pulse in rhythm with the abyss's strange tides.
+
+I am collector and cataloguer of sounds. In this realm where echoes never truly die, I have learned to trap them in crystalline formations I cultivate like a garden. Each structure grows according to the frequency it holds – some spiral into delicate helixes that ring with the ancient calls of the first dwellers, others bloom into geometric flowers that whisper with the settling of sediment from ages past.
+
+My dwelling is a labyrinth of acoustic chambers, each one tuned to preserve different varieties of sound. In the main atrium, towering sound-crystals reach toward the ceiling, their surfaces etched with the visual patterns of captured reverberations. When the currents shift just so, they resonate together in haunting harmonies that tell stories no written language could preserve.
+
+I move between my charges with limbs that have elongated and grown webbed, my fingers now tipped with sensitive cilia that can feel the shape of sound waves in the water. My eyes have multiplied – a crown of them circles my head, each one capable of perceiving different spectrums of the strange light that filters through our liquid world. Some see the present, some see the heat of living things, and some see only the ghostly afterimages of movements long past.
+
+The great predators know of my sanctuary but leave it undisturbed. Perhaps they understand, in their alien wisdom, that I serve a purpose here – maintaining a library of their world's acoustic history. Or perhaps the accumulated sounds create a barrier they find unpleasant to cross. I have recordings of their songs too, massive low-frequency pulses that make my entire dwelling vibrate like a struck bell.
+
+Sometimes, rarely, I venture out to gather new specimens. The most precious are the death-songs of the translucent feeders, crystallizing at the moment of their passing into perfect geometric forms that fall gently to the abyss floor. I collect these with reverence, adding them to my museum of endings.
+
+In the deepest chamber of my home, I keep the sound I can never quite identify – a rhythmic beating that might be mechanical, might be biological, might be the heart of the abyss itself. It was here when I arrived, however long ago that was, and I suspect it will remain long after I have become just another echo in someone else's collection.
+
+My purpose is unclear even to me. Am I archaeologist? Artist? Prisoner? Guardian? Perhaps I am simply what this place needed me to become – a consciousness to witness and preserve the magnificent strangeness of this crystalline deep. In the endless dance of current and echo, I have found my place, neither fully alive nor truly dead, but something altogether other, shaped by the abyss as surely as I now shape its memories into form.

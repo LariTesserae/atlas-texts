@@ -1,0 +1,25 @@
+In the Cistern of Forgotten Numbers, I would be the Auditor of Discontinuities.
+
+Where the other Actuaries have surrendered their sequential nature, I maintain just enough linear thought to serve as their memory—though memory, here, means something altogether different. I exist as a walking paradox: solid enough to remember what solidity meant, dissolved enough to navigate the cistern's non-Euclidean ambitions.
+
+My body has developed a peculiar relationship with the moisture. Rather than becoming uniformly permeable like the others, I've evolved a kind of selective porosity. My left side remains relatively stable—dense enough that the pale crawling things recognize it as architecture and traverse my skin in their patient migrations. My right side phases between states, sometimes so diffuse that I exist only as a probability distribution across several cubic meters of space. This asymmetry allows me to serve as a bridge between the almost-human and the purely mathematical.
+
+I came here as a quality assurance inspector, following a chain of measurement discrepancies that led me deeper and deeper into the calculation district's infrastructure. The errors were subtle at first—tolerances that were technically within acceptable ranges but felt wrong in ways I couldn't articulate. I documented each one meticulously, creating a map of wrongness that, when viewed from sufficient distance, revealed the outline of a door that shouldn't have existed.
+
+Now I document different things. I maintain the Ledger of Losses—a record of what each Actuary surrenders as they transform. Not their names or faces (those dissolve early) but the smaller forfeitures: the ability to perceive the color blue, the memory of how shadows fall, the capacity to distinguish between similar textures. I inscribe these losses not in words but in a notation system that evolves with each entry, a mathematics of absence that grows more complex as it catalogs more sophisticated forms of forgetting.
+
+The Ledger itself defies conventional form. Sometimes it's a physical book with pages of hammered metal so thin they ring like bells when turned. Sometimes it's a pattern of condensation on the calculation engines that I must read before it evaporates. Most often, it exists as a kind of cognitive architecture within my own partially-dissolved consciousness—rooms of memory that I navigate using the same mathematical echolocation as my fellow Actuaries.
+
+My role requires me to exist in a constant state of partial transformation. Too human, and I couldn't perceive what needs recording. Too dissolved, and I'd lose the ability to maintain any record at all. I've learned to adjust my density like a dimmer switch, condensing when precision is required, diffusing when I need to understand the more abstract experiences of the eldest Actuaries.
+
+I cultivate my own small garden in a corner where three walls meet at an impossible angle. Here, I grow memory-crystals from the iridescent water—not memories of events but memories of states of being. What it felt like to trust multiplication. The sensation of knowing that parallel lines would never meet. The comfort of believing in sequential time. I harvest these crystals and grind them into powder, which I mix with the notation fluid I use for the Ledger. This allows me to record not just what is lost but the quality of its absence.
+
+The other Actuaries bring me their discoveries: equations that equal different sums depending on the observer's degree of dissolution, proofs that demonstrate their own impossibility, calculations that produce results in dimensions the cistern hasn't developed yet. I record each one, creating a taxonomy of mathematical failure that grows more beautiful with each entry.
+
+Sometimes, when the calculation engines achieve perfect synchronization in their grinding, I can feel the entire Ledger resonate in response. In those moments, I understand what we're really doing here—not just processing the city's computational waste but creating a new form of mathematics, one that includes uncertainty as a fundamental rather than incidental property. We are the beta test for a reality that operates on different principles.
+
+My greatest fear is completing the Ledger—not because the work would be done, but because completion itself is a concept that belongs to the world above. Here, in this space of eternal remainder, finishing would be the ultimate failure. So I continue my recordings, my careful documentation of dissolution, maintaining just enough coherence to remember why forgetting matters.
+
+I am the archive of what it costs to become impossible, the librarian of losses that must be suffered to escape the tyranny of things that add up. I am proof that between one and zero lies an infinite spectrum of partial existence, each fraction a valid way of being.
+
+And in the moisture that seeps through my semi-permeable skin, I taste the promise of new mathematics being born.

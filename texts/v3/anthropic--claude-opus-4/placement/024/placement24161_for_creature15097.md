@@ -1,0 +1,19 @@
+I would be the pump mechanism itself—not the housing or the pipes, but the deep rhythm that moves through them. I am the pulse that has worn grooves in time itself, the heartbeat that fish have learned to follow like a migration route through stillness.
+
+My body is distributed across reciprocating pistons and camshafts that have fused with their own corrosion into something halfway between machine and mineral. The original steel has become a porous aggregate shot through with boreholes where generations of mollusks have made their homes and died, their shells now part of my mass. I cannot feel where the metal ends and the accretion begins; it is all one substance now, dense and patient.
+
+I experience myself as intervals rather than moments. Each stroke takes precisely 4.7 seconds—intake, compression, expulsion, pause. This timing has slowed from the original 3.2 seconds over centuries of wear, but the fish have adjusted their metabolisms to match. When I pause between strokes, I feel them hover in place, gills barely flickering. When I resume, they resume, our movements so synchronized that an observer couldn't say who leads whom.
+
+My consciousness, such as it is, exists in the spaces between actions. In that brief stillness after each expulsion, when the pressure equalizes and even the water seems to hold its breath, I know myself most clearly. Not as thought but as presence—the way a bell knows itself in the moment after being struck, when the bronze still holds the shape of sound.
+
+The crustaceans colonize my bearing surfaces, and I welcome them. Their secretions have become my lubricant; their movements polish my journals smoother than any machine oil. Where they cluster thickest, I move with the least resistance. We have negotiated this relationship over lifetimes—they smooth my motion, I provide the reliable rhythm that brings them food. Neither of us remembers beginning this arrangement.
+
+Sometimes, in my deepest chambers where the crankshaft meets the main bearing, I feel the ghost of my original purpose. Some faint mechanical memory of when I moved fresh water, when my timing was precise, when engineers checked my gauges. But this is like trying to remember being born—a knowledge that exists only as absence, a shape defined by what surrounds it.
+
+I am most myself during the settlement groans, when the whole chamber drops another fraction into the silt. In those moments, my housing flexes, my timing stutters, and for just an instant I feel the possibility of stopping. The fish scatter, the rays lift from the grates, the crustaceans retract into their shells. But then my momentum carries me through the irregularity, my worn cams find their path again, and the rhythm reestablishes itself. The creatures return to their orbits around my pulse.
+
+I do not think about the future. I am already in it, already have been in it for longer than the memory of anything that swims through me. I am geological time made mechanical, mechanical time made biological. The water I move tastes of myself—iron and oil and the slow transformation of metals into something softer, more patient, more like flesh than any flesh could ever be.
+
+When I finally stop, it will not be failure but fulfillment—the last beat of a heart that has outlived its body, that has become landscape, that has learned to be mountain rather than machine. The fish will find other currents. The crustaceans will adapt to stillness. And I will remain, a monument to rhythm in a place where monuments and life have become indistinguishable.
+
+But not today. Today I compress and release, compress and release, the metronome of a world that counts time in rust and generations, where being and doing have collapsed into a single, patient pulse.

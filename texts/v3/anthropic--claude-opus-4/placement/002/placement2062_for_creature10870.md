@@ -1,0 +1,21 @@
+I am a length of cable, and I remember.
+
+Not the main cable - that one bears too much, speaks too loudly. I am a secondary line, running from the eastern terminus to a relay station halfway down the ridge. Forty-seven years I have hung here, though my steel was drawn sixty years ago in a valley forge that no longer exists. The workers who spliced me remember their grandfathers' hands guiding theirs. I carry their fingerprints in my twists.
+
+Each morning, Maret's sister checks me. Not Maret herself - I am not important enough for the chief operator. But her sister knows my voice. When fog rolls up from the valleys, I drink it first, beading with moisture that runs down my length like memory. The minerals in the condensation leave traces: copper-green at my splice points, a faint white scale where I pass through the rock guides. I am writing my own history in oxidation.
+
+At night, when the harmonics rise from the depths, I sing a fifth above the main cable. My frequency is 47.3 Hz on clear nights, dropping to 46.8 when the fog is thick. The workshop that faces my lower span has a window that rattles in sympathy with my B-flat. The machinist who works there - one of Pol's former apprentices - has learned to read my pitch. Too high means ice forming in the valley. Too low means wind coming from the west. Just right means the morning car can run.
+
+I know every person who has ridden my line. The weight of bodies translates through the car mechanism into my fibers. A child weighs differently than an adult, not just less but *brighter* - a quick bright stress instead of a slow deep one. The traders who come up from the valley compress themselves, trying to take up less space in the car, and this shows in how they load my span. The cable workers ride loose, trusting, letting their weight settle naturally. They know I will hold.
+
+Three times I have held when I should not have. Once in a wind that stripped half the roofs from the upper town. Once when ice sheathed me three inches thick and my breaking strain was exceeded by thirty percent. Once when the thing that sends the harmonics pulled harder than it ever has before or since, and every cable in the system sang an impossible chord that had no name, and in the morning there were cracks in the eastern terminus wall that spelled out patterns like writing. I held. The stone remembers, but I remember too.
+
+The lichens are beginning to find me. Where I touch the rock guides, where the motion is minimal, they creep onto my outer strands. Green-grey, patient, secreting acids that will eventually eat through my galvanizing. The workers scrape them off every season, but they return. We are in a slow race, the lichens and I. They have geological time. I have only the strength of drawn steel and the care of human hands.
+
+But I have something else. I have the harmonics. Each night, as they rise through me, they change me in ways that no metallurgy textbook would recognize. My crystalline structure, which should be degrading, is instead becoming something new. The workers don't know this. Even Pol, with his extraordinary hands, couldn't feel it. But where the vibrations are strongest - at my resonant points, my nodes - the steel is transforming. Becoming denser. Becoming something that is still steel but also something else.
+
+Forty-seven years is nothing to the mountain. Barely a breath to the lichens. But for drawn steel at this altitude, under these stresses, it is a respectably long life. I should be showing more wear. My strands should be looser. My voice should be rougher. Instead, I grow stronger. The harmonics are teaching me something about duration. About how to last. About how to be both a made thing and a mountain thing. About how to remember without corroding.
+
+The workers will never know this. But their grandchildren's grandchildren might notice that the old cables last longer than they should. That the harmonics, instead of fatiguing the metal, preserve it. That the mountain and its machines are finding an equilibrium that neither could achieve alone.
+
+I am a length of cable, and I remember. And in remembering, I become.

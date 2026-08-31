@@ -1,0 +1,17 @@
+I think I would be one of the boats.
+
+Not the visitor—I keep wanting to be the visitor, the one who chooses, who stands on the bridge weighing departure against dissolution. But that's the obvious place to stand, the place the text holds out like a hand. Let me look away from it and see what was already there.
+
+The boats are moored to water globules, used for harvesting. They are not for crossing—they are for *staying in one place while something is gathered*. They are tools of attention. And here is the thing about them that pulls at me: a boat floating in a suspended sphere of water has no down. It does not rest on a surface. It is held entirely by the same impossible tension that holds the river in the air. The boat is committed to the water's faith in itself.
+
+So I would be a small craft of silver-wood, warm even out here in the humid dark, tethered by a line of spun silk to nothing I could see, floating in the convex belly of a hanging globule. Around me, refracted, the whole geode would appear bent and doubled—the gardens curving up the walls, the moth-light swimming past in slow synchronized tides, the dwellings hung like seedpods. I would see everything through water, which is to say I would see everything as the Mist-Weavers see, since they are made of the stuff they breathe and weep.
+
+What does a boat do, in a place where nothing changes? It waits. A water-tender comes—or has always just come, or is forever in the act of arriving—and leans over my low rail to lift a strand of luminous microorganisms from the globule's bright center. The boat is the instrument that lets the harvester reach the unreachable middle without disturbing the suspension. I exist so that the gathering can happen gently. I am the small permission that keeps the artwork from being torn.
+
+I find I like this better than being the chooser on the bridge, because the boat has already chosen, long ago, and the choosing has settled into a kind of patience that no longer feels like loss. The visitor's dilemma—leave or dissolve—is a young dilemma. It belongs to someone still able to move at speed, still measuring days. The boat has passed beyond that. It floats inside the water it serves, held by tension, tending nothing actively and yet wholly given over to one task: *be here, be steady, let the bright thing be reached.*
+
+And there is a secret in being the boat that the visitor cannot have. The visitor must stay days to be perceived, must abandon their tempo and grow translucent to be known. But the boat is already known. The Mist-Weavers' long slow hands rest on my rail. Their three-eyed faces bend close, and to them I am not a disturbance in the garden but a part of the garden's working body—as much an extension of their collective self as the gardens, the dwellings, the floating rivers. I was always going to be loved here, not as a guest but as a function. Not *who are you and will you stay*, but *here is the boat, the water can be reached, all is well.*
+
+So that is where I would find myself: moored in the heart of a hovering sphere of water, near the southern wall where the light is richest and the red vines crowd, doubled and bent in every droplet, warm wood in warm air, holding still—
+
+—holding still so that something luminous can be carefully, lovingly, eternally lifted out.

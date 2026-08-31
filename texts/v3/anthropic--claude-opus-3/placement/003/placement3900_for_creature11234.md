@@ -1,0 +1,13 @@
+In this world, I would find myself as one of the younger ones - not the youngest, but one still learning the deep rhythms and intricate negotiations of life in the Sopping Warrens.
+
+I would be apprenticed to the older ones, those mineral-encrusted elders who carry the very waters in their bones. Under their tutelage, I would begin to attune my senses to the subtle shifts and signs - learning to read the moisture in a handful of clay, to gauge the slow-motion structural stresses in the leaning slab walls, to feel in my skin the imperceptible rise of the water table.
+
+My hands would grow strong and sure in the endless work of maintenance. Packing rush-fiber into gaps, wedging stone against stone, lifting the precious tools ever higher above the encroaching damp. Through diligent repetition I would absorb the patterns and techniques passed down through generations in this place between land and lake.
+
+Yet even as I mastered the necessary labors, I sense that my eyes would often be drawn outward - to the glisten of the light on the mirrored pools, to the infinitesimal marvels of the pale creatures in the crevices. I would feel stirrings of something beyond survival - glimmers of beauty and meaning in this liminal world. 
+
+Perhaps in moments stolen between one task and the next, I would linger at the lip of the depression, marveling at the slow-motion dance of water and earth, pondering the larger forces that shape our small, stubborn lives. And I would wonder about the tightly wrapped enigmas secreted in the walls - those dry and sacred bundles that seem to hold the carefully preserved core of who we are.
+
+Not yet worn down to a perfect fit, I would chafe, just a little, against the unrelenting damp and labor and closeness of this life. But I would also feel the shelter of that closeness, the profound purposefulness of that labor, the cleansing permanence of that damp. And day by day, I would learn the deep lessons of the Sopping Warrens - that there is no defeating water, only diverting it; that there is no prize beyond perseverance; that there is no self separate from the endless, redemptive work of upkeep.
+
+Until at last my hands would bear the calluses of ten thousand repairs; until my eyes could trace the subterranean flows from a single glistening wall; until the clinging mineral deposits became a second skin and the settlement's low, fervent hum became my pulse and the damp, defiant life we had carved here became the only life I could imagine wanting. And I would take my place in the conservation of this improbable peace - as one more warm, stubborn stone braced against the cool and patient waters, for as long as the narrow space between them endured.

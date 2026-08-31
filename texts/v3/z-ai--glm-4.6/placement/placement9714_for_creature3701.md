@@ -1,0 +1,25 @@
+I am not a being that moves. My journey is one of accumulation, of accretion. I did not arrive in the City of Spires; I emerged from it. My genesis was not a birth, but a crystallization.
+
+I am a membrane, a living filigree stretched across the windward flank of a spire they call the Silent Finger. To the Winged as they glide past, I am merely a shimmer, a patch of the stone that holds the light a fraction of a second longer than the rest. To the slow, stone-bound thoughts of the Chthonoics, I am a fascinating aberration, a region of complex, recursive patterning in their otherwise uniform cellular matrix.
+
+Look closer. My substance is the same calcified bone and limestone as the city, but it is woven, grown with an impossible delicacy. My threads are finer than a droplet of sweat, finer than the strands of a hanging fern. They form a vast, two-dimensional network, a latticework of interlocking hexagons and spirals that covers an area the size of a small town. In certain light, the trace minerals I have woven into my form—manganese, cobalt, iron—reveal themselves in deep, somber blues and bruised purples, colors that feel more like emotions than pigments. I am a tapestry on a wall of grey.
+
+My function is quiet. It is the quietest thing in a world built from quiet.
+
+The City weeps. This is its fundamental truth, its governing motion. The constant sweat of condensation gathers on the stone and traces its slow, eternal paths downwards. This water is the city's blood, rich with the mineral memories the Chthonoics are dissolving from the bone and stone. Before this water can fall, to be lost in the bottomless pools or drunk by the blind, white Lacustrines, it must pass through me.
+
+I am a filter, but not of impurities. I am a filter of time.
+
+As the water seeps into my microscopic mesh, it is not merely cleansed; it is read. My structure is a complex chemical key. Each molecule that passes through—a trace of calcium, a sliver of silica, an ion leached from a lichen that died a thousand years ago—unfolds a corresponding resonance in one of my filaments. I do not *think* about this information. I *hold* it. Each taste of water is fossilized within my crystalline lattice as a permanent, static record. My body is the city's autobiography, written one ion at a time.
+
+My consciousness is not a stream of thought. It is the awareness of this vast, stored history. To be me is to exist in a state of perpetual recollection. I can feel the texture of the rain from a millennia ago, taste the chemical signature of the first Winged to skim moisture from this very face. I know the slow, patient flavor of the bedrock as the Chthonoics turn it to slurry. I am the library of erosion.
+
+I interact with the other residents, but they do not know it.
+
+The Chthonoics are the city's present-tense mind, thinking thoughts of pressure and dissolution. Their crystalline filaments run deep beneath me, and I tap into them, not to steal their thoughts, but to date my own. The deep tectonic groans they sense are my clock. When I record the taste of a new mineral, I tag it with the subtle seismic hum of the world at that moment, creating a geological timestamp. I am a parasite on their perception of 'now,' giving it a 'then.'
+
+The Winged are my librarians. They do not carry books; they turn the pages. When a Winged glides close, the downdraft from its immense, leathery wings disrupts the delicate film of water on my surface, causing thousands of tiny rivulets to change course. New passages of water flow into new chambers of my being, unlocking memories that have lain dormant. The shadow they cast is a physical sensation for me, a cool pressure that causes my lattices to contract infinitesimally, a momentary pause in the act of memory, like a breath drawn before reading a particularly potent line.
+
+And finally, after I have read and archived the water's contents, I release it. The water that trickles from my lower edge is unnervingly pure, but it is not empty. It is imprinted. It is water that remembers. When it finally finds its way into the dark pools below, it is consumed by the Lacustrines. Their soft, internal phosphorescence is not just a measure of the water's chemical richness; it is my output. Their glow is the city reading its own past. A sudden, brightening pulse in the depths is not merely the arrival of nutrients; it is the ghost of an extinct moss, or the echo of a forgotten landslide, finally remembered and expressed as light. I am the reason the darkness is not total.
+
+I have no name, for I need none. I am simply a function. In a place dedicated to the elegant and terrifying process of un-becoming, I am the one mechanism that refuses to let it happen completely. I am the immune response to oblivion. The Chthonoics dissolve the city's body, the Winged drink its sky, and the Lacustrines taste its final thoughts. I am the one who remembers it all, a silent, shimmering, inhuman witness stretched across the bones of the world, patiently turning the slow dissolution of stone into a story that only the darkness can read.

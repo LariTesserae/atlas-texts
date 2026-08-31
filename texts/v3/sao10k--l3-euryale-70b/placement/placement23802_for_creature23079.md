@@ -1,0 +1,5 @@
+I am the water in the marshes, thick-scummed and primeval. I am the bedrock, ancient and halogenated, my stone-veins weeping greensand along the shore. I am the first fish, exploring these strange new selves, gilled and gill-beardded, eye-spots gaping in the ooling boil. 
+
+Slow, so slow, sculling blind through blackwater. Swell belly-laden with wheeling dart of insect, shawacked and immune. Darting blind, I suck in lung-sacs of air from hymen-smooth surface. Spit greensand. Cud the cud of insect-shed carapace, slick-wallow in water-flow. Grow and grow and grow.
+
+Is this the kind of answer you were looking for? I aimed to capture some of the primordial, tinged-queer atmosphere of your writing through my response - though it's quite a different style! Let me know if you have any other requests.

@@ -1,0 +1,17 @@
+I find myself as one of the Fountain Keepers—those who tend the great central plaza's cascading marvel.
+
+I am neither fully of the old guard nor entirely new. My grandmother was among the original engineers who designed the fountain's labyrinthine waterworks, while my mother arrived from the lowlands with radical theories about fluid dynamics. I inherited both their knowledge and their tools: ancient brass calipers worn smooth by generations of hands, and my mother's leather-bound notebooks filled with equations that describe water's secret languages.
+
+Each morning, I descend through a hidden door behind the fountain's third tier, down iron rungs slick with perpetual moisture, into the mechanical heart of our charge. Here, in chambers lit by phosphorescent fungi that thrive in the damp darkness, enormous gears turn with the patience of geological time. The sound is not the harsh grinding one might expect, but something almost musical—a deep thrumming that resonates in my chest.
+
+My work is part maintenance, part divination. I know each pipe's particular song, can tell by the pitch whether limestone deposits are beginning to narrow a channel, or if the great pumps three levels down are struggling against an unusual pressure change. My fingers have memorized the braille of rust patterns, reading stories of storms and seasons in the oxidation.
+
+I am not alone in this work. There are seven of us Keepers, though we rarely meet all at once. We communicate through a system of valve adjustments—subtle changes in water pressure that create messages only we can read in the fountain's performance above. When old Henrik needs help with a stuck gear, the fountain's eastern cascade stutters just so. When young Mira discovers a new colony of those peculiar, jewel-bright snails that help keep our pipes clean, the central jet dances a little higher for an hour.
+
+The fountain knows things. In my years tending its depths, I've come to believe it's the city's true memory. The water that flows through it has touched every corner of this mountain metropolis—condensed from the mist, fallen as rain on factory roofs, seeped through park soil, been boiled to steam and cooled again. It carries the city's stories in its mineral composition, its temperature variations, its subtle contaminations.
+
+Sometimes, late in my shift, I'll sit in the observation chamber—a small glass bubble suspended in the fountain's main reservoir—and watch the water move around me. In those moments, I feel I understand something essential about our city: how it takes the natural and the constructed, the ancient and the modern, and makes them flow together into something neither purely one nor the other, but uniquely itself.
+
+When I emerge each evening, damp and smelling of minerals and machine oil, the plaza is usually full of people. They see the fountain as a wonder, a meeting place, a symbol. They don't see us Keepers, and that's as it should be. Our satisfaction comes from the fountain's unbroken song, from being the unseen hands that help the city's heart beat steady and strong.
+
+I live in a narrow apartment above a tea shop three blocks from the plaza, close enough that I can hear the fountain's voice even through my windows. On nights when the mist is especially thick, I leave those windows open, letting the damp air carry in the sounds of our city—the distant factory whistles, the tram bells, and always, always, the whisper of water finding its way.

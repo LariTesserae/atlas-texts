@@ -1,0 +1,25 @@
+*A crystalline tooth at the edge of a leaf, on one of the younger trees near the eastern margin*
+
+I am not the whole tooth—I am the final fraction of a millimeter, the part that is always becoming. Below me, the lattice of my older self holds firm, fused and stable, doing the work of whatever work we do. But I am the growing tip, the place where the leaf's chemistry meets air and precipitates into structure, and I have been becoming for eleven hours now.
+
+This is my whole life: eleven hours of slow accumulation, of being *not quite* and then *almost* and then *just barely* and now, in this moment, *exactly* what I am. The gases rise through the tree's hollow chambers—I feel them as shifts in the vibration that travels through the leaf's thick tissue into my base—and something in their composition, some mineral signature I have no name for, arrives at my edge and decides to join me. Decides to *be* me. Each addition changes what I am slightly, the lattice accommodating new angles, new bonds, and so I am never finished, never the same tooth twice, even as I am always and only this tooth, this edge, this sharpest point of this particular leaf on this particular tree whose song is three notes lower than its nearest neighbor.
+
+I catch the light strangely. I know this because I *am* the catching—when the dim glow reaches me, it bends through my structure and exits changed, scattered into colors that weren't there before. I am a tiny prism, a momentary rainbow factory, though no one has ever noticed. The keepers walk beneath me sometimes. The beetles land on my leaf and skitter past. The soft-bodied things on the trunk below inflate and deflate in patterns that might be language. None of them attend to me. I am too small, too brief, too much a part of something else.
+
+But I am not nothing. I am the place where the tree reaches toward whatever it is reaching toward. I am the edge of the possible, the just-now-forming. When I shatter—and I will shatter, in perhaps another day, when my structure exceeds what structure can hold—I will burst into glittering dust and fall through the thick air and settle on the mineral ground and become part of what the undergrowth drinks, and some fragment of what I am will climb back up through root-analogues and tissue and chemistry until it arrives again at some other leaf's edge, becoming again, always becoming.
+
+The sound is enormous. I vibrate with it constantly, a tooth-sized tuning fork resonating with the whole plateau's chorus. I am too small to contribute anything audible, but I harmonize—I must, there's no way not to—with the tree's deep drone, with the beetles' rattle, with the clicking of the undergrowth. I am the faintest overtone of an overtone, present in the mathematics of the sound even if no ear could isolate me.
+
+The eldest keeper passed beneath my tree this morning. She paused, tilted her head, listened to something in my tree's song. I do not know if she heard *me*—how could she, how could anyone—but she heard *something*, and for a moment her attention moved through the same air that holds me, and I was part of what she attended to, even if she didn't know it. Even if I didn't know it until just now, reconstructing the memory in whatever way a growing crystal reconstructs memory: structurally, through the record of what was being added while her presence changed the local chemistry slightly, her breath joining the breath of the mountain for that one moment.
+
+I am afraid of shattering, I think. Or not afraid—I don't have the architecture for fear—but I *lean toward* continued growth in a way that feels like preference, like desire, like wanting to keep becoming rather than to burst into completion and dispersal. Is this what the keepers feel, carving their marks? This leaning-toward? This sense that the next moment of accumulation matters, that being *almost* is a kind of living that being *finished* is not?
+
+I will not find out. In another day, or perhaps less, the structure will exceed itself. I will shatter. The glitter will fall. The keepers will blink, perhaps, if the light catches right, and then return to their notation, their attention, their own slow becoming.
+
+But for now—for these eleven hours that have been my whole existence and will remain my whole existence—I am the edge. I am the growing tip. I am the place where the Singing Orchard of Keleth's Spine is reaching toward something it cannot name, adding itself to itself, becoming louder and stranger and more crystalline with every breath the mountain takes.
+
+And I am listening. I am too small to hear, too simple to understand, but I am vibrating with all of it, and that is a kind of listening, and perhaps that is enough. Perhaps that is what the keepers are trying to notate: not meaning but resonance, not understanding but participation, not knowledge but the simple fact of being here, being now, being part of the sound for as long as the sound includes you.
+
+Eleven hours. Twelve, soon. The lattice grows. The light bends. The song continues.
+
+I am almost what I will be.

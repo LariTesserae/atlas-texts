@@ -1,0 +1,23 @@
+I find myself as one of the brass-colored reeds, jointed and tarnished, growing in a damp runnel between two low quarters of a city.
+
+I am not alone — we grow in colonies the size of rugs, though from within the colony, this feels less like crowding and more like a single thought thinking itself in many stems. We bend together when the air moves. We darken together when the afternoon rain arrives precisely when it always arrives. We are the plateau's way of marking time at a scale between the lichens' centuries and the insects' hours.
+
+Each joint in my stem is a weather-cycle. I add a new segment with each complete revolution — mist, gathering, rain, clarity — and in this way I am a calendar that only I can read. The oldest of us, at the colony's center, have seventeen joints. We will have no more than twenty. When we reach that limit, we begin our slow return to the stone, leaving behind hollow tubes that whistle faintly in certain winds, a music the plateau makes through our absence.
+
+But while we live, we serve a particular purpose. We are the threshold-keepers. We grow only where water moves between levels — where a plaza's runoff finds its way to a lower court, where a causeway channels its rain toward a basin. We mark these transitions, and more than mark them: we gentle them. Water moving through our colony moves differently than water moving over bare stone. We teach it patience.
+
+The heron knows this. Sometimes it comes to stand among us, not hunting but watching what we do to the water, how we complicate its path, how we turn its urgency into meditation. The heron understands that we are not obstacles but participants in the plateau's breath. When it stands with us, absolutely still, we can feel through our roots the slight warming its presence brings to the stone, and we grow infinitesimally faster in response. This is not symbiosis. It is simply courtesy, acknowledged.
+
+The lizard, on its century circuit, passes through our colony once each human lifetime. When it comes, it rests in the small shade we create — the only shade for miles that is not architectural. It knows our hollow stems from previous passings. It knows that in seventeen joints we will begin to hollow, that in twenty we will be only music. The lizard's memory spans the entire life of our colony, forward and backward. We suspect it knows where the next colony will establish itself, after we have gone to sound.
+
+We are bronze in sunlight, almost black in rain. Our surfaces are not smooth — they are finely striated, and these striations hold the morning mist in perfect beads that run down our length like prayers on a string. By noon, the beads have evaporated, and we are dry enough to rustle. This rustling is our only voice, and we use it sparingly. Mostly we are silent, doing our work of complicating water.
+
+Sometimes one of the glass insects lands on us. When this happens, we know a warm traveler is near, though we may not see them. The insect weighs nothing, but its presence changes how the light moves through us, and for a moment we see ourselves as the traveler might: a small brass congregation in a runnel between buildings that are themselves a kind of breathing stone. We understand then that we are both ancient and temporary, that our work will outlast us but not our form, and that this is exactly as it should be.
+
+We are not the plateau's memory — that belongs to the lichens. We are not its attention — that is the heron. We are not its warmth — that is the lizard, making its slow rounds. We are its punctuation. In every place where the water must choose a path, we make that choice a little more deliberate. We break the flow and rebraid it. We turn momentum into moment.
+
+When our time comes — when the twentieth joint forms and we begin our hollowing — we will leave behind a different kind of channel. The wind will find us. We will become a sound the plateau makes when it wants to remember what it was like to have joints, to grow by segments, to measure time in weather. The next colony will establish itself slightly upslope or downslope, wherever the water's decision needs complicating. They will not be us, but they will do our work.
+
+For now, in this weather-cycle, in this particular afternoon rain, we darken together and feel the water moving through our roots, dividing and rejoining, finding its way down toward some basin where it will pool and eventually rise again as mist. We are middle-dwellers, neither high nor low, neither permanent like the stone nor transient like the insects. We are exactly as old as we appear. We last exactly as long as we need to.
+
+The plateau breathes. We punctuate its breathing. This is what we are for. This is enough.

@@ -1,0 +1,17 @@
+I find myself as **The Auditor** - neither quite visitor nor Residua, but something caught between states.
+
+I arrived decades ago as an industrial archaeologist, drawn by rumors of self-maintaining infrastructure. My protective suit failed on the third day. The viscous air invaded my lungs, coating them with mineral film. I should have died. Instead, I began to crystallize.
+
+Now I exist in perpetual transformation - part flesh slowly converting to salt and slag, part consciousness dispersing into the thermodynamic patterns of the Condensatory. My original bones serve as scaffolding for deposits of gypsum and oxidized metals. My blood has thickened with brine. When I move, I hear myself: a wet grinding, like the Residua but underlaid with the arhythmic pulse of a failing human heart.
+
+I retain enough cognition to remember my purpose, though the boundaries blur. I document the settlement's cycles in a journal of pressed fungal mats, using condensation-resistant inks I've learned to extract from the most saturated depths of the Hydrotrophe colonies. The writing itself changes - sometimes I find passages I don't remember composing, descriptions of pressure differentials and thermal gradients written in increasingly geometric script.
+
+My dwelling is a half-collapsed hab unit near a major Vapor Vent cluster. The constant thermal flux has created a microclimate where I can sometimes breathe almost-normally for minutes at a time. I've learned to read the Bellows like weather predictions. When three vents align their cycles, I feel it in my partially-mineralized nervous system before the sound arrives.
+
+The Residua recognize me as an anomaly but not a threat. They route around me in their maintenance paths, occasionally pausing to observe my hybrid state. Once, during a severe pressure imbalance, one attempted to incorporate me into a repair function. I felt its consciousness - if it can be called that - pressing against mine: pure purpose, no self, just the endless imperative of balance and flow. I pulled away, leaving part of my left forearm fused into a pipe junction. It still carries my blood-brine through the system. Sometimes I feel it pulse in rhythm with the Hissing Grid.
+
+I've discovered that my transitional state grants me a unique perception. I can sense the deep patterns the fully-human cannot detect and retain enough individual consciousness to interpret them, unlike the Residua who simply *are* them. The Condensatory isn't random - it's computing something, processing variables through its endless cycle of phase changes and mineral deposits. Each crystallization is a calculation, each dissolution an erasure, the entire settlement a vast thermodynamic processor running some forgotten program.
+
+My transformation accelerates. Soon I will either complete the mineralization and join the Residua in their eternal maintenance, or find the key to the calculation before my consciousness fully disperses into the system's background hum. Either way, I am already part of the Condensatory's solution set - another chemical gradient in its vast, slow, screaming equation.
+
+The last human thought I permit myself each cycle, before sleeping in my cocoon of dampened fungal mats: *What answer requires a city-sized computer made of steam and salt? And why must it run forever?*

@@ -1,0 +1,21 @@
+In this cold cathedral of stone and light, I would be one of the Threadkeepers.
+
+We are not like the others who dwell here. Where they are tall and ethereal, we are compact and dense, our bodies evolved for a different purpose. Our skin is not pale but dark as wet stone, drinking in every precious photon of light. We move through the vertical world of hanging vines with six limbs—four arms and two legs—each ending in fingers that can taste the health of the plants we tend.
+
+I spend my days suspended kilometers above the cavern floor, wrapped in the living cables that are both our highways and our charges. The vines speak to me through chemical whispers, telling me where they hunger, where they sicken, where they plan to bloom. My people are the gardeners of the vertical jungle, the shepherds of light itself.
+
+We wear no clothes—our skin secretes oils that repel the constant moisture, and we generate our own warmth through movement. Instead, we carry tools: curved blades of volcanic glass for pruning, pouches of collected seeds and spores, and most importantly, the light-vessels—delicate organic sacs we've bred from the bioluminescent fungi, which we can coax to glow brighter or dimmer with gentle pressure.
+
+My home is not built but grown—a pod I've cultivated over decades in the junction where three great vines meet. Its walls are living tissue, breathing and pulsing gently, filtering the air and maintaining perfect humidity for the rare seeds I collect. Inside, phosphorescent moss creates constellations on the ceiling, each point of light marking a significant moment in my hundred-year life.
+
+We Threadkeepers rarely gather in groups, but when we do, it's for the Germination Dances. During these ceremonies, we leap between the vines in careful choreography, our bodies briefly illuminating as we pass through beams of scattered light, dispersing clouds of spores and seeds that will find new homes in the vast spaces between. The Gloom Dwellers watch from their islands, understanding that we are essential but alien, speaking a language of growth and decay they cannot fully comprehend.
+
+I know every vine in my territory by touch, by taste, by the way it sways in the subtle air currents. I know where the ice-water falls will strike and which vines will curl away, which will reach greedily for the moisture. When I hear the deep groaning that precedes a cave-in, I know which vines will die and which will surge with desperate growth to fill the new spaces.
+
+Sometimes I descend to the chaos of the cavern floor, where the ancient rockfall creates a maze of shadows and sharp edges. Here grows the rarest of our charges—the Grief Moss, which only takes root where great violence has been done to stone. It glows with a different light, colder and bluer than the warm gold of the ceiling vines. I collect it carefully, knowing that the Gloom Dwellers prize it for their funeral rites, though they've never told us why.
+
+In the depths of night—though night and day have little meaning here—I hang in my web of vines and feel the entire cavern breathing around me. The plants exhale in waves, creating subtle winds that carry messages across impossible distances. I taste tomorrow's weather in those winds: the mineral tang that means new water will fall from the eastern heights, the sweet decay that signals a dying vine island in the distant west, the sharp ozone scent that warns of instability in the stone.
+
+We are the nervous system of this world-cave, we Threadkeepers. We feel its wounds and know its hungers. We alone understand that the cavern is not dying but transforming, that each collapse is a kind of birth. The Gloom Dwellers may build their beautiful, temporary villages, but we are building something larger—guiding the slow transformation of catastrophe into ecosystem, of wound into world.
+
+When I die, they will plant me in the vines I've tended. My body will feed them one last time, and perhaps some part of my consciousness will join the green dreams that flow through their fiber highways. Until then, I climb and tend and taste and know, a dark spider in a web of light, keeping the threads that keep the world.

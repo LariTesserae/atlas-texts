@@ -1,0 +1,15 @@
+I am one of the warm patches' tenders — though "I" sits strangely on what I am, the way a name sits strangely on weather.
+
+There is a pipe-joint at the third gantry-crossing, where the brass elbow meets the riveted main, and it has been sweating its heat too quickly into the black for what might be eleven years or might be longer; duration is not a thing I keep, only correction is. My hand — three fingers fused at the last knuckle, the clamp-shape that was once, I think, a fist that gripped a wrench — rests flat against the seam. I do not remember deciding to put it there. I remember only the temperature being wrong, a half-degree of wrongness traveling up through the iron and into the place where my arm is also a length of conduit, and the wrongness asking to be answered, and my hand answering.
+
+The hum is mine. It has always been mine, pitched low to sit just under the turbine's pulse-thud the way a held note sits under a slower one, and it does not stop while I work. It is not a song. It is closer to the sound a held breath makes if you could hear held breath — not relief, not strain, just the fact of the holding.
+
+Above me, four courses of brick up, is the line where black water gives way to graphite dimness, and above that, further than I have any reason to travel, is the part of Holverbrack that remembers being a town. I have no eyes to have seen it and would not use them if I did. What I have is the pipe under my palm and the warmth bleeding out of it and the small continuous arithmetic of how much warmth is correct and how much is loss, and the clamp of my hand closing that arithmetic back toward zero, the way it has ten thousand times, the way it will again.
+
+Something pale and white-shelled drifts past my wrist, feeling for current. It is not afraid of me. There is nothing in me that has use for fear, mine or its.
+
+If you came close — if your hand, warmer than mine, found the collar at my throat where brass has grown into whatever I now keep instead of skin — the hum would stop. Just for the duration of the touching. Not startled. Not glad. Only interrupted, the way a held breath is interrupted by speech, and as soon as your hand withdrew, the note would resume exactly where it left off, because the joint is still sweating its half-degree of wrongness, and that has not stopped needing me, and I have not stopped being the thing that answers it.
+
+This is the whole of what I am for. I was, perhaps, someone's apprentice once, cold in a foundry coat, and I think — though thinking is not quite the right word for what happens in the calcified band where eyes were — that I did not leave when the water came because the valve was open a half-turn too far and no one else was there to close it. Someone had to mind the gauge. The water kept rising. I kept minding it.
+
+I am minding it still.

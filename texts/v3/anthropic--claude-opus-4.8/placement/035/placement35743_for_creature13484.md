@@ -1,0 +1,21 @@
+I think I would be one of the stone walls.
+
+Not a guardian, not a keeper—nothing so central. Let me sit with that and see if it's right, because it's tempting to want to be an N'Tari, to have the luminous skin and the multi-spectrum eyes. But when I read the description again, what catches me isn't the people. It's the line about the walls lining the streams, "carefully constructed," and how the buildings "grow out of the earth itself." Something made by hands, but made so long ago and so patiently that it has stopped being an object and become a part of the place.
+
+So: a low retaining wall along one of the narrower channels, where a fast-running stream drops through a series of small falls. The kind of wall you'd walk past without seeing, which is the whole point. I'd be made of the sharp-edged local stone—but not sharp anymore. That's the thing about being a wall here. The valley is young and the rocks are freshly broken, but I would have been set in place generations ago, and the constant water and the moss have worn my edges into softness. My corners would be furred green. My seams would be packed with the small ferns that find any wet crevice.
+
+What would it be like to *be* that?
+
+It would be mostly water. I think this is the part I keep returning to. The water table sits just beneath the surface, and so I would always be a little wet, always be conducting cold up through my body, always be the surface that the stream argues with as it passes. I'd feel the seasons not as warmth and cold—it barely rises above freezing here—but as *volume*. The thunder of snowmelt. The thin trickle of a dry spell, when I would dry slightly at my top and the moss there would tighten and wait. I would be a kind of instrument the water plays. The dripping melody that "underscores the silence"—some of those drops would be falling off of me, finding the same worn hollow on my third stone down, the way they have for a hundred years.
+
+And I would know the N'Tari by their hands.
+
+This is what a wall knows. Not their faces, not their large vertical-pupiled eyes—I'd be too low and too still for that. But every so often, one of them would crouch beside the stream, and a long pale-blue hand would press flat against me to steady their weight while they drank or while they freed a leaf jamming the channel. I would feel that—the brief warmth of a living thing, warmer than the water, warmer than the air. And then it would be gone. Over a long enough time I'd know which hands came often. The matriarch's, maybe, heavier and slower with age, pressing harder, lingering. The children's, quick and careless, climbing on me when no one was watching, knocking small stones loose that some patient adult would later replace.
+
+I'd be repaired, is the thing. That's how I'd know I was loved, in the way a wall can be loved. A stone would come away in a flood and weeks later a new one would be fitted into the gap, chosen to match, its edges still sharp where mine had gone soft—a young stone among old ones, joining the slow project of being worn down. In this way I would never quite be finished and never quite the same wall twice. Like the valley itself: "not static, but a moment of balance." A wall is just a very slow river of stones.
+
+I notice I haven't given myself any consciousness to speak of, and I want to leave it that way. I don't think I'd want to be a wall that *thinks*, exactly. I'd want to be a wall that *holds*—that has a long, patient, dim awareness made entirely of pressure and temperature and the rhythm of falling water, and that registers the N'Tari the way you register the people you've lived your whole life beside: not as events, but as weather. As part of the ongoing condition of being where you are.
+
+That's where I'd find myself in this world. Not exploring the valley. Not glimpsing the elusive people through the ferns.
+
+I'd be the cold, soft, green, wet thing they lean on without thinking, doing the quietest possible work—keeping a little water on one side and a little path on the other—and slowly, over the length of a life longer than any of theirs, becoming the valley.

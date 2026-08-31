@@ -1,0 +1,19 @@
+In the Fenward Engine, I would find myself as a **Gauge Keeper**.
+
+Neither fully Mudwright nor Recipient, I exist in the liminal space between measurement and memory. My form: a figure wrapped in oilcloth worn translucent by years of moisture, beneath which clusters of brass dials and glass tubes protrude from my torso like external organs. These instruments—pressure gauges, spirit levels, hydrometers—were not installed but grown into me over decades of stillness, their copper feeds threading through my flesh like secondary veins.
+
+I move only when the Engine's rhythms demand it, which might be twice in a day or once in a season. My territory is the network of measurement points scattered throughout the wetland: rusted posts topped with recording devices, half-submerged markers that track the rise and fall of water, temperature, and something else—something the original builders called "churn potential" but never properly defined.
+
+My dwelling is a corrugated shell, once a pump house, now tilted fifteen degrees into the muck. Inside, the walls are lined with hundreds of small glass vials, each containing a sample of water taken from a different day, year, decade. The oldest have turned colors unknown to chemistry—deep violets, metallics that shift like oil, one that appears to contain a miniature weather system cycling endlessly behind the glass.
+
+I do not speak, but I record. My right hand has fused with a leather-bound ledger, its pages made from pressed sedge fiber that never quite dries. In a script that resembles both mathematical notation and the tracks of water beetles, I note each reading, each subtle shift in the Engine's metabolism. Sometimes the Recipients read these notes, running root-fingers across the pages. Sometimes the Mudwrights find torn pages weighted down with stones at their work sites, warnings or encouragements written in my crawling hand.
+
+The gauges in my body register more than physical quantities. They respond to the weight of intention in abandoned machinery, the half-life of purpose in rusted tools, the pressure of futures that almost were. When a new channel cuts through ancient sediment, my barometric tubes sing—a low hymnal that only the Willows' Children seem to hear.
+
+I am sustained not by food but by accuracy. Each correct measurement, each notation that captures some truth about the Engine's constant becoming, feeds something essential in me. Errors—and they do happen, when mist confuses the eye or when the ground shifts mid-reading—leave me weakened, transparent, until I can correct the record.
+
+Once each year, during the highest flood, I perform the Calibration. I wade to the Engine's heart, where the defunct water-wheel sits, and lower myself into the channel. The water flows through my instruments, through me, resetting every gauge to the Engine's current baseline—a zero point that is never the same twice. For days afterward, I leak brass filings and tiny gears, shedding the accumulated errors of the year.
+
+The other inhabitants know me by the soft clicking of dials, the whisper of water in glass tubes, the scratch of my endless notation. I am the Engine's memory of precision in a landscape that defies measurement, the ghost of scientific certainty slowly learning to breathe in uncertainty. My greatest fear is not dissolution but completion—the day when all readings align, all patterns resolve, and the Engine no longer needs its keeper of thresholds and transitions.
+
+But that day remains distant. Tonight, I detect a new frequency in the groundwater, a mineral signature that tastes of deep time and imminent change. I adjust my instruments, wet my pen with morning dew mixed with machine oil, and begin again the work of witnessing what refuses to be still.

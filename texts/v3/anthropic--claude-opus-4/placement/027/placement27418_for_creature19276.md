@@ -1,0 +1,23 @@
+I find myself as one of the **Tremor Scribes** - a specialized subset of the Excavator caste who has survived long enough to develop a different relationship with the stone's restless voice.
+
+My body has adapted beyond the typical Silt-Clinger form. Where others develop pressure-sensitive cilia, my entire left arm has transformed into what the Bracers call a **resonance limb**. From shoulder to fingertip, the flesh has thinned to translucent membrane stretched over hollow, chambered bone. When pressed against stone, each chamber vibrates at different frequencies, allowing me to "hear" the deep language of stress patterns extending meters into the rock face.
+
+I spend my days in the **Threshold Zones** - those precarious spaces where the packed urban density meets raw, unexplored geology. Here, the stone speaks loudest, grinding out its protests against our intrusion. My work is to listen, to learn which virgin rock will accept excavation and which will punish it with cascade failure.
+
+The other Excavators view me with the mixture of reverence and unease reserved for those who've survived too long in dangerous trades. My dwelling is little more than a narrow fold in the rock, but its walls are covered in my **tremor notations** - a complex system of carved marks that record the stone's moods. Spiraling grooves indicate rotational stress, parallel hatches mark compression zones, and delicate dots map the propagation patterns of micro-fractures.
+
+My tools are few but precisely chosen. A set of tuning picks made from the resonant bones of deep-dwelling creatures, each filed to produce specific vibrations when struck. A leather pouch of different mineral powders that I sprinkle on suspect surfaces - watching how they settle and shift reveals invisible fault lines. Most importantly, I carry small vials of my own **cultivation** - a particular strain of pale fungus that grows along stress fractures, its mycelial network following and highlighting the stone's weaknesses like a living map.
+
+The Bracers occasionally summon me when facing a particularly troublesome section. I arrive in silence, place my resonance limb against their chosen site, and wait. Sometimes for hours. The younger Clingers grow restless at my stillness, but the Bracers understand. When I finally speak, it's in the low, tonal hum we use for critical communications: "Third stratum, leftward spiral. The stone remembers an old wound there. Brace first, then cut shallow."
+
+My greatest discovery - and my most closely guarded secret - is that the Underhollow itself is not merely settling. It's *breathing*. The patterns I've documented over decades reveal a vast, slow rhythm to the geological shifts. Expansion and contraction, systole and diastole, as if we inhabit the mineralized organs of some impossibly ancient being.
+
+I've shared this only with Kelchet, an elderly Bracer whose intuition for structural integrity borders on the supernatural. Together, we work on a mad project - mapping the breath-rhythm to predict not just where the next settling will occur, but *when*. If we succeed, we could revolutionize how the Clingers survive, moving from reactive reinforcement to anticipatory construction.
+
+But success carries its own dangers. If the stone-breath is real, if the Underhollow is in some sense *alive*, then what are we? Parasites? Symbionts? Or perhaps we're more like the beneficial bacteria in a vast gut, our careful excavations and reinforcements serving some purpose we cannot fathom.
+
+Late in my rest cycles, when the grinding settles to its quietest murmur, I press my resonance limb against my own dwelling's walls and listen to the deep harmonics. Sometimes I catch echoes from far below - sounds too regular to be natural settling, too purposeful to be mere geology. On those nights, I wonder if there are others down there, in levels so deep even the Silt-Clingers fear to venture. Others who have listened so long to the stone that they've begun to speak its language back.
+
+I am old for an Excavator, my body bearing the scars of too many near-misses with unstable sections. Soon, I'll need to train an apprentice to read my notation system, to continue the listening. But choosing someone means trusting them with the knowledge that might fundamentally alter how the Clingers understand their world.
+
+For now, I wait, I listen, and I map the breathing darkness that surrounds us all. Each tremor is a word, each settling a sentence in a conversation vast beyond comprehension. And I, pressed against the raw edge where civilization meets chaos, am learning to translate.

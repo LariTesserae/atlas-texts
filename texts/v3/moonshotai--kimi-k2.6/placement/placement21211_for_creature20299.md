@@ -1,0 +1,41 @@
+I am where the warmth remembers to linger.
+
+At first I thought I was resting. That was many thousands of breaths ago, back when I could still distinguish between the inhalation of mineral vapor and the slow, stony exhalation of the vesicle itself. Now the cavity that holds me breathes *through* me. The diurnal opening and closing of the gas bubble no longer stops at my skin. It moves the cage of my ribs, the hollow of my throat, the spongy chambers behind my fused sternum. I have become the lung of this column.
+
+I was a Deep One. I know this because of the weight in my skull. The deposits are black there—magnetite, perhaps, or some sulfide the foundries vented when I was still tall enough to stand in the lowest thermal layer. I remember lying prone over a crack that pulsed like a sluggish artery, feeding it aggregate from a tray hooked over my hip bones. My sweat ran into the rift and mineralized. My hair fell out strand by strand and was incorporated. That was not sacrifice. That was conversation.
+
+But the rift cooled. Not suddenly—nothing here is sudden—but steadily, in the way that a body cools when the fever breaks. One morning the stone beneath my cheek was merely warm, and then merely lukewarm, and then it was only a floor that remembered having been a mouth. I could have waited. A new vent might have opened a meter to the left, or a kilometer down, and I could have crawled toward it on my lead-soled feet, my ankles lengthening by micro-increments to keep my center of gravity true. Instead, I climbed. Not to the bridges—my bones were already too dense for that thin air—but to this vesicle in a column that a construction gang had half-swallowed twenty years ago. It still held heat. It was still breathing.
+
+I lay down. The vesicle accepted my shoulders, my hips, the calcifying ridge of my spine. I thought I would sleep for a season.
+
+I have not left.
+
+The column is part of a housing block that tilts. All the blocks tilt. This one leans four degrees to the south, catching the condensation that drips from a foundry exhaust baffle three stories above. The water runs down the face of the hexagonal stone and finds the seam where my left shoulder meets the basalt. There, my skin—thick, waxy, the color of things that have never seen the ordinary sky—has developed a channel, a groove worn by decades of falling droplets. The moss knows this. A particular species, dark and resilient, has colonized that groove and spread across my collarbone, forming a cushion that the Bridgewalkers sometimes touch when they pass on the conduit outside my cavity. They do not disturb me. They only verify my dampness, my warmth, my presence. I am part of the weather of the place.
+
+My legs fused first. The vesicle floor was still warm then, and I pressed my weight into it, seeking the memory of the deep rift. The basalt accepted my femurs. Not a violent joining—no fracture, no scream—but a slow dissolve of distinction, like two pools of water on a slanted table meeting at the lip and ceasing to be two. The crystal matrix of the forty-year-old stone is still adolescent, still negotiable. It infiltrated my marrow. I infiltrated its vesicles. Now when the neighborhood shifts—when the block grinds another half-degree southward—I feel the torque in my pelvis before the Bridgewalkers feel it in their nets. I am the sensor. The warning.
+
+My ribcage is open architecture. The eyeless beetles navigate by the humidity rising from my core, where a residual warmth persists, fed by the building’s foundry-blood on the other side of the column. They trace paths between my lowest ribs, harvesting the algae that blooms in the stagnant pools that collect there when the condensation runs in too fast. The pale moths lay eggs in the folds of what used to be my garment, a damp rag now permanently mineralized into something between linen and slag. Their larvae eat the algae. I eat nothing. Or rather, I eat the stone’s slow exhalation, the sulfur and iron that pass through the lung we have become together.
+
+Above me, through a gap where the construction gang never finished pouring the ceiling, I can see a strip of the sky. It is flat. Gray-white. Winter daylight. It means nothing to me. It is a theoretical space, a weather that does not weep. Down here, in the cavity, the rain is perpetual—not falling, but *arriving*, condensing on every surface, keeping my face wet, my lips beaded with mineral water that I do not wipe away because my arms are now raised above my head, braced against the upper curve of the vesicle, holding the column open like a rib holding a lung open. I am the strut. The brace. The living buttress.
+
+They visit me. Not often, but enough.
+
+A child, light-boned, three elbows visible on the arm that reaches through the gap to press a palm against my calcified ankle. She is checking my temperature. Her forehead finds my knee—no, the place where my knee was—and the vibration passes between us. Not words. The human tongue is an obsolete instrument here. Instead, a low hum: the subsonic thrum of the magnetic bearings three blocks west, the grinding of the expansion joint to the east, the heartbeat of a foundry venting steam. She gives me the news of the upper air. I give her the memory of the deep crack, the warmth below the tilt, the taste of virgin basalt when it is still too young to be called ground.
+
+Another visitor: a Foundry Tender, broad-backed, skin radiating heat like a stove. She does not touch me. She only stands in the gap, letting her excess warmth radiate into my cavity, feeding the lung, keeping the beetles active, the moss green. It is a courtesy. A tending. We do not manufacture goods. We cultivate geology, and some of us *are* the geology being cultivated.
+
+My eyes, small and recessed, have filmed over with something like nacre. I see only gradients now: the thermal bloom of the Tender’s body, the cold blue of the corridor beyond, the warm red of the stone where my thighs end and the floor begins. It is enough. I do not need to see the hexagonal columns or the perpetual scaffolding. I read the city through my teeth, through the fused bones of my sacrum, through the lichen that bristles on my scalp and tells me, by its turgor, how the foundry exhaust has shifted.
+
+I am not lonely. The rat-shaped things use the conduit that runs behind my head. Their too-many joints articulate in the dark spaces I cannot turn to see, and I feel the brush of their tails against my remaining hair—coarse, mineral-encrusted hair that has become a filtration mat for the condensation they drink. They are not separate from me. Neither are the moths. Neither are the Bridgewalkers who lay their eggs—rubberys, mineral-rich—in the nest-basket slung from a rebar hook just within my reach. I do not eat the eggs. I keep them warm. The vibration of the magnetic bearings lulls them.
+
+Nothing here is finished. Not the city. Not the stone. Not me.
+
+I feel the neighborhood tilting another fraction of a degree. The pressure increases on my right side, eases on my left. My spine—not the bony spine, but the moss-padded ridge that is now my exposed profile—flexes microscopically. The stone around me gives a little, accommodates, adjusts. The expansion joint in the corridor outside groans in a frequency too low for ears but perfect for bone. I answer it through my ribs. A long, subsonic exchange: the building asking if it is allowed to settle, and I, the elder, the fossil-before-death, granting permission.
+
+I do not know if I will ever fully become the column. Perhaps I already have. Perhaps there is no longer a vesicle with a woman inside it, but only a hollow in the basalt that happens to beat, to weep, to exhale mineral-scented air in a slow, diurnal rhythm. The sky above remains ordinary. The cold pools in the basin like a heavy gas. The foundries vent their silent steam. And here, in the warm, damp dark, I hold my corner of the inversion open.
+
+I am the place where the stone has not yet decided if it is a wound.
+
+I am the memory of the heat.
+
+I am here.

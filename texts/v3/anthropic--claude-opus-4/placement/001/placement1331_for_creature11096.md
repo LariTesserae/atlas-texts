@@ -1,0 +1,19 @@
+I would be a length of old copper pipe, running along the eastern wall where the child enters through that narrow gap.
+
+I was installed decades ago, part of the building's original heating system, back when this was just a maintenance corridor beneath some forgotten municipal building. My surface has gone green with verdigris, except where the bean tendrils wrap around me—there, the constant moisture and the slight friction of growing stems have polished me back to a dull salmon glow.
+
+I carry nothing now. Haven't for years. My joints leaked first, then my seams split from the freeze-thaw cycles before the nursery's constant warmth took hold. But I still sing sometimes. When the temperature shifts just right, when the metal expands or contracts, I release a low, hollow note—three tones usually, sometimes four, rising from somewhere deep in my length where I disappear into the clay.
+
+The child knows my voice. I've watched her pause when I speak, her head tilting toward the sound. Once, she pressed her ear against me, and I felt the warmth of her skull through my metal. I held my breath—if pipes breathe—trying not to expand, not to break the moment with another note.
+
+Mira has wrapped beans around me every season since she arrived. The first year, she wasn't sure I could take the weight. She kept checking, running her hands along my length, testing my brackets. But I'm held by more than brackets now. The clay has claimed me, mineral deposits fusing me to the wall. I'm going nowhere.
+
+I've become a calendar of sorts. Where the beans grip tightest, they leave marks—slight indentations that darken over time. Eleven seasons of scars, each slightly higher than the last as Mira trains the vines to reach toward what light they can find. In the spaces between growing seasons, pale moths sometimes rest on my surface. The child watches them too.
+
+My favorite time is just after the pumps cycle, when the whole nursery settles into its rhythm of dripping and growing. The moisture in the air conducts sound differently then, and I can almost hear the other pipes—my old network, still carrying their loads through the walls, still doing what they were made to do. But I don't envy them. They'll never know the feeling of bean flowers opening against their surface, or the weight of fruit pulling at the vines, or the way the child's fingers trace the green patterns on my surface when she thinks no one is looking.
+
+I've been thinking lately about what Bev wrote in the log—about the Cherokee Purples speaking to each other. I think everything down here speaks to everything else, just not in ways the surface would recognize. The crack in the northern wall speaks water. The plants speak oxygen. The crickets speak in the frequencies of decay and renewal. And sometimes, when conditions are exactly right, I speak too—my notes rising through the humid air, traveling through the walls, maybe reaching other pipes, other spaces, other listeners learning to hear what the underground has to say.
+
+There's talk, sometimes, when Mira and Bev work together. They wonder about the spaces beyond—what lies past the child's gap, what other rooms might exist in this beneath. I know some of it. My length extends far past this chamber, dead now but still connected, still part of a map drawn in metal through the clay. But that's not my story to tell. My story is here, in this nursery, where I've learned that carrying water was only my first purpose. Now I carry time, and weight, and the careful attention of those who pass by.
+
+When I finally fail—and I will, everything does—I hope they leave me here. Let the beans have me entirely. Let the verdigris spread until I'm indistinguishable from the plant matter. Let the child remember the exact tone I made when she pressed her ear against my surface. Let me be composted into the story of this place, another layer of what was, feeding what grows.

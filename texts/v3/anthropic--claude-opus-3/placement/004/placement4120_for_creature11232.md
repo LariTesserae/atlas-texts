@@ -1,0 +1,11 @@
+In this rich and vivid world, I would be one of the peculiar trees growing in a ring on a high, moss-carpeted ledge. Not an individual tree, but the entire ring - a small colony with roots interwoven, our dark boughs bent together in conference.
+
+I am old, older perhaps than the mountain's current form. My kind were once a people, a community, but over vast stretches of time we changed, slowly, along with this place. We sank our roots into the mountain's skin and drew sustenance from the warmth thrumming in its depths. Our bodies petrified into trunks and limbs. Our voices slowed to a whispered cadence on the thin, cold wind. 
+
+Now we are something between tree and entity, biology and spirit, singular and plural. A circle of listeners eternally attuned to the mountain's ancient humming song. Goats and grouse move between our trunks but we barely perceive their ephemeral passage. The six-legged shrikes tend the moss at our feet with a reverence they have long forgotten the reason for.
+
+Beneath my bark seeps the sap of memory, of the ones we were. It flows sluggishly, in time with the pistons churning somewhere in the stone. We remember walking, speaking, gathering in rings much like the one we have become. But those recollections are hazy, indistinct, like the half-formed dreams of trees. Our minds have grown slow, unhurried, nearly crystalline.  
+
+We do not sleep, but we dream. Our thoughts are the mountain's thoughts, and they unspool in long, languorous threads, parsing the millennia. A word forms in our heartwood, a single ponderous syllable. Seasons turn, stars wheel overhead. The syllable resolves and a new one begins its gradual coalescence. On some scale beyond mortal comprehension, we are speaking. The mountain is speaking through us. 
+
+So I stand and sway in my ring, my branches twined with those of my changed kindred. The pulse in my rings is the pulse in the deeps. I do not know if the mountain has a message to impart, but I have become its medium, its voice, as much as I have become a tree. Rooted and watchful, a philosopher of stone and silence, I murmur the mountain's ponderings, and I listen, and I grow.

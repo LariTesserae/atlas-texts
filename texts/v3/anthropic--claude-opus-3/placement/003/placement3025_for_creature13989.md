@@ -1,0 +1,13 @@
+In this strange and beautiful world, I would be one of the Vethkai - those long-limbed, stone-colored tenders of the Singing Terrace. 
+
+I imagine myself emerging from the root-channels onto the vibrating surface of Veth Múra, my skin pale as chalk, my ears folding open to absorb the thunderous chorus of throat-crickets, callers, and my own kind. The sourceless light glints off my shell-like nails as I make my way across the terrace, stepping carefully between carpets of heat-emanating vetch-fur and the smooth trunks of bone-trees. 
+
+A low hum rises unbidden from my chest, instinctively seeking to fill a space in the droning soundscape. As I begin my day's tending work, prying at mineral deposits with my bone-wood spike, the hum shifts and undulates, clicking in rhythmic counterpoint as I pass near others of my kind. We are separate but interwoven, our voices overlapping in the aural architecture of the terrace.
+
+My sensitive hands read the subtle textures of root and stone, feeling for the imperceptible imbalances that I am tasked with correcting. I redirect an errant root, open a vapor channel for the breathing lichen-creature, gather withered vetch-fur to make into tool-bindings and poultices. Each small, deliberate action is a note in the ongoing song of maintenance, a line of melody in the hymn of the Vethkai.
+
+At times I pause in my labors, one ear cocked to the agitated calls of the six-limbed avians in the bone-trees above. Their screeching negotiations with my kind are opaque to me still, but I know I am part of the ancient conversation. I open myself to listen and respond in this endless ecological dialogue.
+
+The stone beneath my wide, calloused feet hums with its own deep resonance. I feel as much as hear the far-below note of some venerable elder Vethkai, their voice now nearly indistinguishable from the mountain's geothermal murmurings. In that sound I sense the shape of a life poured out in service to this turbulent, precarious, magnificent place. 
+
+I know I am young still, learning the terrace's needs through the patient teachings of the stone and the skin of my hands. But in moments of special alignment, when the myriad voices of Veth Múra suddenly ring out in fleeting unity, I feel myself an inextricable part of its pattern. I stand then in the pewter light, attuned and open, filled with the wordless knowledge that my voice - born in my throat and my breastbone and the touch of my fingers - will one day join fully in the eternal singing.

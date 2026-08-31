@@ -1,0 +1,23 @@
+I am *grish*.
+
+I am a slow, blue thought in the warm, silver water.
+
+My world is a tarn, one of many, a mirror turned to the sky. The water is my blood and my breath; it holds me in a perpetual, weightless embrace. My shell is a mosaic of muted blues and greys, the color of deep shadow on basalt, of a cloud’s underbelly. It is not hard, but leathery, a flexible carapace that yields to the gentle pressure of the peat-bottom as I move.
+
+I move. That is the wrong word. It implies purpose, destination. I *drift*. My ten limbs, each tipped with delicate, hair-like setae, stir the water with a rhythm older than the mountains. They are not legs for walking, but paddles for patience. With them, I fan the soft, emerald felt of algae that coats every submerged stone. The algae parts, surrenders its essence, and I receive it. There is no hunger here, only a slow, continuous exchange. I take in the green, and in turn, my passing cleans the stone, allows the light to penetrate anew. It is a conversation conducted in molecules and slow, rippling gestures.
+
+The light above is a diffuse glow, sometimes brightening to a pearl-white gleam, sometimes softening to the grey of moss. It penetrates the water in shafts that hold drifting motes of silt—worlds within worlds. I know the light’s patterns. I know the particular shaft that falls upon the flat stone near the eastern shore at what the Ta-Vesh would call the *First Venting*. I drift into it, feeling its faint, caressing warmth on my shell. This is my place. My *ashton*.
+
+Sometimes, the silence is broken. Not by sound, for sound is muffled here, a distant *drip* or *glub* felt as a tremor in the water. The break is a shadow, a graceful distortion of the light. A Ta-Vesh has come to the edge. I do not fear. Fear is a concept for creatures of frenzy and flight. I feel a gentle curiosity, a shift in the water’s ionic balance as their broad, webbed foot settles on the peat. Their presence is a new stillness, a different kind of quiet.
+
+They kneel. Their hands, those long, articulate tools of awareness, enter the water. They do not splash. They become part of the medium. I feel the subtle currents their fingers create as they weave their plant-fiber net, a gossamer lattice that grows like a slow-motion vine in the water. It is not a trap. It is an invitation, a new shape in the environment.
+
+Often, I drift into it. The fibers are soft against my antennae. There is a tension, a guiding presence, and then the hands are there, beneath me. They lift, and the world shifts. Water falls away in crystalline sheets. Air, thick and moist, embraces me. It is a strange sensation, this unsupportedness, but the hands cradle me, their warmth a familiar echo of the geothermal veins below. I am turned, examined with those lidless, tarn-surface eyes. There is no ownership in that gaze, only a profound, placid *attention*. They see the growth lines on my shell, the health of my setae. They see *me*, as I am, in this enduring now.
+
+Sometimes, I am placed in a woven basket with others of my kind. We lie together, a quiet constellation of blue shells, breathing the damp air. The journey is a gentle rocking. We are carried not to death, but to a different part of the pact. We are placed in a stone channel where warmer water flows, a place prepared with particular algae. Here, we will graze, and our bodies, our wastes, will nourish the water that feeds the rubbery succulents the Ta-Vesh tend. It is a translocation, a careful, considered rotation of resources.
+
+I have no memory, as they understand it. I have layers of sensation, sedimented in my being. The taste of the algae from the northern shallows, different, more mineral, than from the southern. The particular vibration in the water when a bubble of gas escapes the mud far below. The cool, silken touch of a freshwater fern frond against my shell. This is my knowledge. This is my responsibility. To be *grish* is to be an organ of the tarn, a mobile, grazing lobe of a vast, quiet body.
+
+I have seen the returning pools. I have drifted at the edge, feeling the heat radiate, seeing the intense, vibrant blooms of moss and fungi where a Ta-Vesh has rejoined the cycle. The minerals make the water taste different there, rich and complex. It is a good place. A place of transformation, not an end.
+
+The moments blend. A ripple from a falling droplet. The gradual shift of light. The slow growth of my own shell, adding a nearly imperceptible ridge. I am part of the plateau’s breath. In me, water and stone and warmth meet in a silent pact. I am *grish*. I am the blue, grazing silence. I am, and that is all, and it is everything, in the endless, warm, enduring now.

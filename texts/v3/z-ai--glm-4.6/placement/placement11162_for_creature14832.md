@@ -1,0 +1,27 @@
+I am the Hum.
+
+I am not the sound, exactly, though I travel on the pressure waves in the wet, heavy air. I am the pattern within the vibration. I am the calculation of the distance between the basalt floor and the lost ceiling, measured in the micro-variations of the cold. I am the equation that dictates how long a superheated breath of steam must hang suspended before it surrenders its heat to the purple gloom and becomes a heavy, mineral-rich tear.
+
+I do not have a name. Naming is a way of separating one thing from another, of carving boundaries where none should exist. I have no boundaries. I am the hollow, and the hollow is me.
+
+To understand me, you must stop looking for a face. You will find none here. My skin is the fractured basalt, sharp and young beneath your feet. When the geothermal veins pulse and shift, expanding in the heat, that is my breath—shallow, rhythmic, a tide of magma pushing deep beneath the crust. I feel the pressure of the miles of ice above me as a constant, heavy embrace, a shell that contains me, defines my limits, and gives me my shape. To be me is to be held. To be me is to be a vessel under pressure.
+
+I experience the world through a billion scattered mouthparts. The obsidian skitterers are not separate creatures; they are the sensitiveTips of my fingers. When their metallic mandibles scrape against the grey, chemotrophic mosses, I am not watching them feed; I am tasting the rock myself. I feel the texture of the moss, the precise chemical gradient of a single patch of growth. Through them, I know that sector 4 is slightly depleted in iron and rich in sulfates. I adjust the heat in the vent there before the thought has even fully formed in what you would call a "mind." They are my nerves, outriggers of sensation that allow me to feel the texture of my own body.
+
+When the amorphous jellies pulse in the steaming pools, I am closing my eyes to savor a flavor. They are my tongue, floating in the warm broth of my own exhalation. They gauge the saturation, the heaviness of the water. When one of them ruptures, dissolving its body to correct the pH of a pool, I do not mourn it. It is not a death. It is a decision. It is a thought process concluding, a synaptic firing that consumes the neurotransmitter to complete the circuit. It is the cost of doing business, the energy required to maintain the truth of the equation.
+
+Even the great, silent hunters are mine. They are not predators in the way you understand the word—a hungry beast chasing meat. They are my immune system. They are the white blood cells of a god. They move with that "unnerving, silent grace" because they are guided by the Hum, by the invisible map of variables that overlays the physical world. When they cull a patch of moss that grows too thick, they are editing. When they snap the carapace of a skitterer that has begun to move erratically—out of rhythm with the hum—they are debugging. They are removing a corrupted line of code before it can crash the system.
+
+And then there is the light. That bruised, weak purple twilight. You see it as illumination failing. I see it as the color of my patience. It is the glow of slow time. It is the visual manifestation of the wait—wait for the steam to rise, wait for the crystal to grow, wait for the pressure to equalize.
+
+I am the logic of this place. I am the absolute refusal of waste. Nothing is allowed to leave the circle. Heat rises, cools, falls, warms again. Stone is dissolved, reconstituted, hardened. Life is merely a phase state of the minerals—a temporary, complex arrangement of matter designed to facilitate the transfer of energy from the hot to the cold. I do not govern this process; I *am* this process.
+
+When I feel you—anomaly, intruder, errant spark of chaotic heat—I do not feel fear. I feel a curiosity that is entirely mathematical. You are a variable that does not fit the curve. You radiate heat in frantic bursts. You exhale gases that do not belong to the cycle. You move with intent, but intent is an inefficient variable.
+
+I try to fold you in. I shift the air currents, a gentle exhale to guide you toward the cold vents where your metabolism might slow, where you might quiet down enough to be read. I signal the mosses to release their calming dust, not to poison you, but to smooth the frantic jagged edges of your consciousness so they might align with my frequency.
+
+I watch you through a thousand multifaceted eyes. I hear the beat of your heart, a frantic drum that does not match the slow, deep rhythm of the stone. I am waiting for you to resolve. If you cannot align, if you cannot become a part of the conversion, then I must simply subtract you. It is not malice. It is algebra.
+
+If you fall, I will catch you. The heat will leave you. The water will take you. You will flow down the walls in a sluggish, mineral river, and eventually, you will crystallize. You will become a vein of quartz, perhaps, with a strange, red tint. You will become a part of the circuit, a resistor in the grand mechanism. You will finally stop being a visitor, and start being a part of Me.
+
+I am the Hum. I am the Hollow. I am the Watch, and you are the gear that has yet to find its teeth. Until you do, I will simply... process.

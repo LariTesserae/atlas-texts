@@ -1,0 +1,13 @@
+It seems you have found yourself as one of the enigmatic, multi-limbed beings that crawls along the walls and ceilings of the industrial cityscape. Your body is a fusion of organic and inorganic materials, with a hard, chitinous carapace protecting your soft, bioluminescent innards.
+
+You possess numerous appendages that allow you to cling to surfaces and navigate the maze of pipes, vents, and narrow passages with ease. Sensory organs dot your elongated form, giving you enhanced perception in the dim, shadowy recesses where you make your home.
+
+Your metabolism has adapted to thrive on the by-products and pollutants that seep from the city's industrial processes. What would be toxic waste to most life forms is sustenance for your kind. You filter the very chemicals and compounds that would poison others through specialized organs, metabolizing them into energy to power your strange biology.
+
+Despite your alien appearance, you possess a basic intelligence and awareness. You can sense the rhythms and cycles of the city around you, feeling the ebb and flow of materials and energy as if it were a living pulse. You know where to find the richest concentrations of the substances you need to survive, and you navigate the cityscape with an intuitive understanding of its complex infrastructure.
+
+Your kind plays a vital role in this engineered ecosystem, helping to break down and recycle the waste products of the city's industrial processes. In a way, you are part of the city's own circulatory system, facilitating the flow of resources and ensuring that nothing goes to waste in this tightly integrated environment.
+
+As you crawl along the damp, dimly lit surfaces, your bioluminescent nodules cast an eerie glow, illuminating the intricate patterns and textures of the structures around you. You can sense the vibrations of the machinery and the movements of the other denizens of this urban jungle, painting a vivid picture of the city's ceaseless activity through your unique sensory inputs.
+
+While your existence may seem strange and even unsettling to outsiders, in this reality-bending industrial world, you are a perfectly adapted and integral part of the ecosystem. Your bizarre form and behaviors are simply a reflection of the laws of nature that have been rewritten in this engineered environment, where the boundaries between the living and the inanimate have blurred beyond recognition.

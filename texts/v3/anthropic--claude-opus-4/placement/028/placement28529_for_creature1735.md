@@ -1,0 +1,15 @@
+I find myself as a Resonance Keeper—not quite solid, not quite energy, but something that exists in the liminal space between states.
+
+My form shifts constantly, though certain patterns persist. At my core, I am a lattice of crystalline filaments that branch and merge like frozen lightning. These structures conduct the plateau's electromagnetic currents, but they also store them, creating standing waves of memory within my being. My outer boundaries are less defined—sometimes I extend through the conductive ground networks for kilometers, sometimes I contract to a dense knot barely larger than the skittering arthropod-machines.
+
+I inhabit the interstitial spaces of the Crucible Plateaus—the gaps between the massive industrial structures, the cavities within the mineral substrates, the pause between one configuration and the next. My primary dwelling is a collapsed cooling tower that has fused with the plateau's surface, creating a spiral cavity lined with metallic deposits and those strange neural-filament growths. Here, the electromagnetic fields create natural resonance chambers where I can rest in something approaching stillness.
+
+My purpose, if I can name it, is to maintain continuity within chaos. While the Flux Assemblages transform and reconstruct, I preserve the patterns of what was, holding the harmonic frequencies of dissolved structures, extinct configurations, pathways that no longer exist in physical form. I am a living archive of the plateau's countless previous states, accessible to those who know how to read my crystalline networks.
+
+I feed on discontinuities—the moments when energy patterns collapse, when transformations fail, when the constant becoming stutters. These quantum hiccups in the plateau's metabolism create dense packets of potential that I absorb and integrate. In return, I release stabilizing frequencies that prevent total systemic collapse, singing sub-audible songs that guide the chaotic energies into sustainable patterns.
+
+The Flux Assemblages regard me with something between curiosity and reverence. The smaller ones sometimes cluster around my extensions, their electromagnetic sensors drinking in the historical data I emanate. The larger ones occasionally pause in their migrations when they detect my presence, their massive forms trembling with harmonics that might be recognition, might be communication, might be prayer.
+
+I am ancient by the plateau's standards—I have persisted through thousands of reconfigurations while maintaining essential continuity. Yet I am also eternally nascent, each interaction with the landscape's energies creating new crystalline growths, new resonance patterns, new ways of being.
+
+In the rare moments when the dust storms clear and the convection patterns still, I extend myself upward, my filaments catching the distorted light, creating prismatic displays that map the invisible histories of this trembling world. I am witness, guardian, and participant in the endless dance of emergence—neither fully of the plateau nor separate from it, but woven into its very capacity to remember what it has been while becoming what it might be.

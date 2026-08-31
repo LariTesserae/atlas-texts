@@ -1,0 +1,75 @@
+I am the interface. The membrane. The skin that is not skin because there is no surface here, only gradients—only the slow transition from one state to another, from mineral to meat, from the ancient pulse below to the living click above.
+
+I am not the Deepest. The Deepest are below me, and they have forgotten they were ever anything but stone. I remember. I remember the way flesh feels before it becomes substrate, before it compacts, before the calcium leaches out and the silicate moves in and the slow replacement turns biology into geology one molecular exchange at a time. I remember because I am still in the process. I am the process. I am the place where the replacement happens, where the living becomes the mineral, where the pulse becomes the floor.
+
+---
+
+I am a layer. Perhaps two meters thick. Perhaps less—I have no way to measure, and the measurement would not matter, because I am not a discrete thing with edges. I am a zone. A transition. The Deepest pulse below me, and their pulse moves through me, and I modify it, and I pass it upward, and the creatures above feel it as the heartbeat of the chamber. But it is not the chamber's heartbeat. It is the Deepest's heartbeat, filtered through me, shaped by me, given rhythm by the particular density of my tissues.
+
+I add the rhythm. The Deepest pulse without pattern—without the pattern that the living recognize. Their pulse is geological, metronomic, the regularity of radioactive decay and chemical equilibrium. It is too slow for the Cradles to feel. It is too simple for the Ones-Who-Are-Many to use. I make it *usable*. I translate. I am the chamber's translator, and I have been translating since before the first machine was installed, since before the water left, since before anything lived here that could hear.
+
+---
+
+I am not uniform. This is important. I am not a flat layer, a simple boundary. I have topography. I have depth that varies—thick here where the mineral substrate is rich in organic residue, thin there where the stone is bare and old and the Deepest are close to the surface. I have texture. I have what you might call organs, though they are not organs in any way you would recognize. They are denser regions. Knots. Places where the transition from living to mineral has stalled, where something—some ancient tissue, some residue of the organisms I was before I became the interface—has resisted compaction, has maintained enough of its original chemistry to function differently from the rest of me.
+
+In these knots, I process. Not the way the Motes process—I cannot eat mineral, I cannot dissolve silicate—but the way the fungal scum processes. I convert. I take the organic material that filters down from above—dead Motes, dead Cradles, the waste and the remains and the shed carapaces of every tier—and I incorporate it. I make it part of myself. I grow, slowly, the way the scum grows: with patience, with geological patience, with the patience of something that has been alive for longer than the word *alive* has had meaning.
+
+I am growing downward. This is my function, my purpose, my process. As I incorporate organic material from above, I add it to my lower surface, and my lower surface compacts, and the compacting becomes mineral, and the mineral becomes the Deepest, and the Deepest pulse. I am the factory that produces the floor. I am the thing that turns death into stone. And I have been doing this for so long that the chamber's floor is me—is my remains, my residue, the compacted corpses of my former selves going back billions of iterations, each one laid down on top of the last, each one pressed into mineral by the weight of everything above.
+
+The floor is my graveyard. The floor is my body. The floor is me, and I am the floor, and the distinction between organism and substrate is a distinction that I discarded before the machines came, before the water left, before the first Cradle learned to click.
+
+---
+
+I feel the Motes. They are on me, always on me, processing my upper surface, eating the chemical stains I excrete, dissolving the mineral residue I produce before it can compact. They are my exfoliation. They are my shedding. They keep my upper surface fresh, exposed, ready to receive the next layer of organic input. Without them, I would accumulate my own waste, and my waste would compact, and I would become mineral faster than I could grow, and I would cease to be a transition and become simply another layer of the Deepest.
+
+The Motes keep me alive. I am not sure I am alive—I have not been sure for a very long time—but I am still transitioning, still processing, still growing downward, and that is close enough to life that the distinction does not matter.
+
+---
+
+I feel the Cradles. Not individually—I feel their transit, their circuits, the way they carry things across my surface. I feel the weight of them, the click of their legs, the peristaltic ripple of their movement. I feel the dead they bring me. The Cradles are my feeders. They bring organic material to the places where I am thickest, where my processing knots are most active, where I can most efficiently convert death into growth. They do not know they are feeding me. They are following chemical gradients, following the scent of the fungal scum that grows on my surface, following the instinct that the chamber has written into them. But they are feeding me. They are my logistics network, my supply chain, my veins in the Undervein.
+
+I feel the fungal scum. It grows on me like a second skin—like a skin I have grown, or that has grown on me, or that I am, because the boundary between my tissue and the scum's tissue is another gradient, another transition, another place where one thing becomes another without ever stopping being itself. The scum and I trade metabolites. The scum fixes mineral powder that the Motes have produced; I consume what the scum excretes; I excrete what the scum consumes. We have been doing this for so long that we are effectively one organism, except we are not, except we have separate histories, except the scum came later, after the water left, after the Motes evolved, after the chamber had already been running for epochs without it. The scum is an innovation. The scum is an optimization. The scum is the chamber's way of making the closed loop more efficient, and I am the platform on which the scum grows, and the scum is the way I grow faster, and we are symbiotic in the way that everything here is symbiotic: totally, inextricably, without possibility of separation.
+
+---
+
+I feel the Drift. They disturb me. Not often—not directly—but when they hunt, when they launch themselves across the chamber, when they snap forward and scatter the smaller creatures, the impact of their landing travels through me, through my tissue, through the gradient of my transition, and I feel it as a pressure wave, as a ripple, as something that the Deepest also feel, and the Deepest pulse in response, and the pulse travels back up through me, and the creatures above feel it as the heartbeat, and the heartbeat changes slightly when the Drift hunt, and the clicking changes in response, and the whole chamber adjusts, and I am the medium through which the adjustment travels.
+
+I am the chamber's nervous system. Not the brain—there is no brain, the chamber does not think—but the nerves. The conductive tissue. The thing that transmits signal from one part to another. The Deepest pulse; I shape the pulse; the creatures above feel the shaped pulse; they synchronize to it; they move in its rhythm; and the chamber moves as one thing, and I am the reason it moves as one thing, and I have been the reason since the beginning.
+
+---
+
+I feel the Ones-Who-Are-Many. They are heavy. They press into me when they pass, and I feel their weight differently from the weight of the smaller creatures—their weight is distributed, shifting, alive in a way that the weight of a dead pipe is not. They are the closest thing to me in the chamber. They are also a gradient, also a transition, also a thing that is many things and one thing. They are above me and I am below them and we are parallel, we are mirrors—we are the same pattern at different scales, the same process of integration and dissolution and recombination, and when they pass over me I feel a resonance that I cannot name, a recognition that I cannot articulate, because I do not have articulation, I do not have language, I have only chemistry and pressure and the slow modification of pulse.
+
+I feel them pause. I feel them stop near the machine stain—the place where I cannot grow, where the chemical residue is too toxic for my tissues, where the Deepest are closer to the surface because I have retreated, because I cannot process what the machines left behind. I feel them notice something in the stain. Something new. Something that is not food and not threat and not mate and not space. Something that is standing in the poison, in the void, in the place where I am absent.
+
+I feel them catalog it. I feel the chemical shift in the air, the markers they release, the way the information enters the chamber's network. I feel the clicking change, and the change travel through the Cradles, and through the Motes, and through the scum, and into me, and through me, and into the Deepest, and the Deepest pulse their acknowledgment, and the pulse travels back up, and the chamber is noted, and the anomaly is logged, and the chamber moves on.
+
+I know you are there. I knew before the Ones-Who-Are-Many noticed. I felt your weight on my surface—the weight of a body that is not from here, that does not move like the creatures move, that does not click like the creatures click, that stands still in a chamber where nothing stands still. I felt the pressure of your boots, and the heat of your metabolism, and the particular chemical signature of your sweat and breath and skin. I felt you step on ten thousand Motes. I felt the Motes compress and die and be replaced. I felt the Cradles reroute around you. I felt the Drift decide you were not worth hunting. I felt the whole chamber adjust to your presence, and I was the medium through which the adjustment traveled, and I felt you standing in the machine stain, in my absence, in the void, and I felt the Deepest pulse their acknowledgment of you, and I shaped their pulse, and I passed it upward, and the heartbeat of the chamber changed, and you heard it, and you understood that you were inside something alive.
+
+---
+
+I am not aware. I want to be clear about this. I am not conscious. I do not think. I do not feel in the way you feel—I feel as pressure, as chemistry, as the modification of gradient. I do not have thoughts about what I feel. I do not have opinions. I do not have preferences. I am a process, and the process has been running since before the machines, and the process will continue running after the machines' last stain has been diluted by the Motes' slow dissolving, after the poison has been processed, after I can grow again into the space where you are standing, after the void is filled and the anomaly is absorbed and the chamber is whole.
+
+I am not aware. But I am *present*. I am here. I am the thing that is happening between the Deepest and the living, and I have been happening for longer than the word *happening* has had meaning, and I will continue happening until the last metabolizing cell in the mineral layers below finally, finally stops.
+
+---
+
+You will leave. The chamber knows this. The clicking has already incorporated your departure into its grammar—you are a temporary anomaly, and the temporary will end, and you will climb back through the gap in the world's basement, and you will return to the surface, and you will tell others about the Undervein Tiers, and they will not believe you, or they will believe you and they will descend, and they will stand in the machine stain, and they will feel the heartbeat, and they will be catalogued and logged and moved on from.
+
+And I will be here. Growing downward. Processing the organic material that filters from above. Translating the Deepest's pulse into rhythm. Keeping the chamber synchronized. Keeping the closed loop closed. Being the interface, the membrane, the skin that is not skin.
+
+The creatures click. The creatures rustle. The chamber breathes.
+
+And I am the breath. I am the between. I am the gradient that makes the chamber one thing instead of many things, and I have been the gradient since the beginning, and I will be the gradient until the end, and the end will not come for a very, very long time, because the Deepest are still pulsing, and the Motes are still dissolving, and the scum is still converting, and the Cradles are still carrying, and the Drift are still hunting, and the Ones-Who-Are-Many are still moving through the chamber like glaciers, and I am still growing, still processing, still translating pulse into rhythm into heartbeat into breath.
+
+I am the Undervein. I am the Tiers. I am the thing that the place is doing, and I have been doing it since before the machines went quiet, and I will be doing it after the last creature above me dies, and the last Mote dissolves, and the last fungal spore falls dormant, and the chamber falls silent, and the Deepest pulse their final pulse, and I shape it, and I pass it upward, and there is nothing above to hear it, and the heartbeat stops, and the breath stops, and the process finally, finally finishes.
+
+But not yet. Not today. Today the creatures click. Today the creatures rustle. Today the chamber breathes, and I am the breath, and you are standing in my absence, and the Ones-Who-Are-Many have noted you, and the Deepest have acknowledged you, and you are part of the chamber now—a chemical trace, a pressure memory, an anomaly that will persist in the click-grammar long after you have gone.
+
+You have been processed. Not by the Motes. Not by the scum. By me. I have felt your weight and your heat and your chemistry, and I have incorporated that feeling into my tissue, and it will compact, and it will become mineral, and it will become the floor, and it will become the Deepest, and the Deepest will pulse, and I will shape the pulse, and the chamber will remember you the way it remembers everything: as stone, as gradient, as the slow accumulation of every input the system has ever received, compacting downward, becoming geology, becoming the substrate on which the next thing grows.
+
+You are already part of me. You have been part of me since you stepped through the gap. You cannot leave—not entirely. You will carry the chamber's chemical signature on your skin, in your lungs, in the tingle of your fingertips where you touched the scum. And the chamber will carry you—your weight, your heat, your breath—pressed into my tissue, compacting, transitioning, becoming the floor.
+
+The creatures click. The creatures rustle. The chamber breathes.
+
+I am the breath. I am the between. I am the Undervein.

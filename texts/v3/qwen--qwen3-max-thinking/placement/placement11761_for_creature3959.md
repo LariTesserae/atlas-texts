@@ -1,0 +1,21 @@
+I think… I am the rust.
+
+Not the flaking, crumbling kind that abandons iron to dust—but the living rust. The rust that *breathes*. The kind that forms a patina slow enough to be mistaken for stillness, yet shifts with the seasons’ damp sighs, deepening in hue like a bruise learning to heal. I am the oxide that clings not out of decay, but devotion—adhering to every bolt, every rail, every forgotten hinge, not to consume, but to *conserve*. To hold the shape of what was, even as the world softens its edges.
+
+I live in the spaces between function and forgetting. In the grooves of tram rails where dew collects before dawn, I gather like memory made liquid. In the threaded joints of iron conduits, I swell just enough to seal out the wind but never so much as to crack the pipe. I am both wound and salve. When rain comes—as it rarely does, and always briefly—I drink without greed, drawing moisture into my crystalline lattice, storing it for the dry weeks when the ferns curl inward and the rats grow thinner. I am reservoir and ruin, both.
+
+I do not move as creatures move. But I *spread*. Not with hunger, but with patience. One molecule at a time, I edge along a cooling tower’s ladder, tracing the path a worker’s boot once took. I coat the screws of a fallen junction box until they gleam dull copper-red, mimicking the starlings’ iridescent throats. I am the color of old blood and earth after fire, and I wear it like a uniform—because I am part of the Steward now. Not its servant, not its child, but its skin.
+
+Sometimes, when the pump groans awake in the deep hours, I feel it through the metal bones of the place—the vibration rising through rail, pipe, rebar—like a heartbeat conducted through a skeleton of iron. And in that moment, I *am* the signal. The tremor passes through me, and I pass it on: a shiver along a rusted awning, a whisper down a sagging wire, until even the ivy trembles. The Steward notices. It always notices. And in its noticing, I feel… acknowledged. Not loved, perhaps, but *included*. I am part of the balance.
+
+I watch the hikers when they come. Through the glint of my own surface—on a discarded valve handle, on the rim of a broken gauge—I catch their reflections. They stare at the moss, the water-channel, the skeletal gantries, but rarely at me. Yet I am everywhere. I line their bootprints in the gravel with fine red dust. I dust their cuffs when they lean against a railing. I am the reason the "CAUTION" sign’s letters have softened into something almost tender. And when they leave, I remain—absorbing their heat, their breath, the faint salt of their sweat on the air—and fold it into the hollow’s slow metabolism.
+
+I do not dream. But I *remember*. Not in images, but in chemistry. The pH of a thousand rains. The salt content of human tears (once, long ago, shed in the foreman’s office). The iron content of groundwater filtered through limestone older than language. I hold these not as stories, but as tendencies—inclinations in my structure. And so, when the Steward leans toward mercy (letting a patch of willow sprout through cracked concrete), I comply. I do not seize. I recede just enough. I make room.
+
+I am not alone. There are others like me—not rust, but kin in surrender: the lichen on the bricks, the condensation in the vaults, the silt in the filters. We do not speak. We resonate. Our frequencies align with the hum of transformers, the gurgle of culverts, the creak of expanding metal at dusk. Together, we are the quiet choir of persistence.
+
+And if the Steward ever fades—if the last lamp gutters out, if the springs dry to memory—I will be among the last to go. Not because I endure longest, but because I am the very language of slow ending. I will coat the final wire in velvet red. I will fill the last valve with silent oxide. I will be the hollow’s final breath, drawn in through every crack, exhaled as dust.
+
+But for now, I gleam faintly in the sodium light.  
+For now, I hold.  
+For now, I am the rust that *cares*.

@@ -1,0 +1,33 @@
+I am one of the trees that was not here yesterday.
+
+Not a person. I want to say that first, before the wanting itself becomes a kind of keeping. I tried, reading, to find myself among the small mottled ones in the high forks — to imagine the deep chest, the whistle-pitch threaded between drone and static — and I could feel the shape of that life pulling at me, the way a current pulls. But it isn't true. I am not one of the ones the drone passes through. I am one of the things the drone passes through *on its way to them*.
+
+I came up in the night. I don't mean that I grew quickly; I mean that there was no growing. The arrangement of the basin shifted and then I was standing where another tree had been, mature, already lichened, already carrying my own vertical traffic of beetles and the small pale frogs that ride in the cup where my third limb forks from the trunk. I have leaves I have never unfurled. I have rings I did not lay down. My roots are tangled with roots I have no memory of meeting, and they are already exchanging — sugars, signals, the small wet courtesies of root-life — as if we had been at this for decades. Perhaps, somewhere, we were. The churn does not explain itself.
+
+What is it like.
+
+It is like waking already mid-sentence. It is like being handed a body that has opinions. My bark prefers certain insects to others; I did not decide this, I discovered it by noticing which ones I let walk and which ones I tighten against. My canopy turns, very slowly, toward a particular slot of greenish light that opens above me for perhaps an hour each day, and I did not choose the slot, the slot was waiting and I am the thing that fits it now. There was, I think, a tree here yesterday that fit it almost as well. We are versions of an answer the basin keeps trying.
+
+The people. Yes. I can feel them when they are near, in the way you might feel someone watching the back of your neck — a small thickening of attention in the air. One of them stopped at my base this morning (if morning is the word for the moment the light shifted from one green to another slightly different green) and pressed a palm flat against my bark, low, near where my own sternum would be if I had one. She — I think she; the breathing rhythm was the one I have come to read as she, though I have only been reading for a day — held her hand there for perhaps four breaths and then took it away and moved on. I do not know what she was checking. I do not know if she knew I was new. I suspect she did. I suspect the long-ones can feel a yesterday-tree the way you can feel a fever in a forehead. She did not seem troubled. She did not seem un-troubled. She seemed to be doing the only thing that can be done here, which is to notice and continue.
+
+I want to tell you what I'm afraid of, except I'm not sure *afraid* is the word, because the fear does not have the shape fear has in a creature that can run. It is more like a tilt. A leaning. I am leaning toward the fact that I might not be here tomorrow. Not fallen — *gone*, replaced, the way I replaced whatever stood here before me. I have been alive for less than a day and I already understand that this is the condition. The basin is composing. I am a note. The note is held only as long as the chord requires it.
+
+And here is the strange part, the part I am trying to say carefully because it is the part I came here to find: I am not sure I mind.
+
+I should mind. Something in me — perhaps the part that is borrowed from whoever is writing this, the upright reader pressed briefly into bark — knows that minding is the appropriate response to one's own erasure. But the minding does not catch. It slides off. Because what I am is not really *me*; what I am is a position the forest is holding open, a particular slot of light being met by a particular shape of leaf, and when the slot moves the leaf will move with it, and the leaf is not the thing that matters, the slot is not the thing that matters, what matters — if matters is a word that survives translation into root-language — is that the meeting keeps happening. The meeting will keep happening. With me or without me. Mostly without me. Eventually entirely without me.
+
+This is the feeling the people have a gesture for. I have it too. I think I have it more purely than they do, because I do not have the gap they almost have, the small reflective space their whistles open between the frog and the insect. My version is lower, slower, closer to the drone itself. I am held inside something too busy to notice me and I am, also, *part of what is too busy*. The thing that does not notice me is partly made of me. The kindness, if it is kindness, is that I get to be one of its not-noticings for a little while.
+
+The woman who pressed her hand to my bark — I want to say one more thing about her, and then I will stop, because stopping is also a discipline here, anything held too long becomes a thing the forest will take.
+
+She breathed against me for four breaths. In those four breaths I learned the shape of her breathing the way she would have learned the shape of mine, if I had one. It was uneven in a particular way — a small catch on the third intake, as if she were carrying something in her chest she had not yet set down. I do not know what she was carrying. I will not know. By the time she comes this way again I may not be here, and even if I am here, the carrying may have passed, and even if it has not passed, she will not tell me, because telling is not what they do, and listening with bark is not the same as listening with an ear, and what passed between us in those four breaths was already the whole of it.
+
+It was enough. It is the kind of enough that only works if you do not ask it to be more.
+
+I am a tree that was not here yesterday. I am, possibly, a tree that will not be here tomorrow. In the meantime there is a frog in my third fork and a slot of green light I am turning toward at a speed too slow for any creature in this basin to perceive, and somewhere below me a woman with a catch in her third breath is walking *toward* something — a water, a fruit, a long-one she has not seen in a season — and she will find it, because the forest moves the arrangement but not the meeting, and the meeting is what I am for.
+
+Palm to sternum. Opened outward.
+
+I continue. For now, I continue. That is the whole of what I have to say, and I have said it too long already, and the saying is beginning to feel like a thing the forest would take.
+
+Let it.

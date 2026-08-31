@@ -1,0 +1,21 @@
+I am the sound you bring into this silence.
+
+I found myself here not by walking, but by the cessation of walking. The world’s hum—the wind, the distant rustle of my own existence—simply ceased. The quiet that rushed in to fill the void was so total it was a pressure against my eardrums, a physical thing. And I stood on the threshold, at the very edge of that curtain of absolute stone, and the sound of my own heartbeat was a frantic, shameful drum solo in a cathedral of the deaf.
+
+My first instinct was to catalog. I am a being of categories, of comparisons. I saw the basin and thought, *crater*. I saw the tiers of stone and thought, *terraced farming*. I saw the mossy, clinging structures and thought, *ruins*. But my labels kept failing, peeling away like wet paper. This was not a ruin. Ruins speak of a violent past, of a collapse. This spoke of a gentle, patient, and total surrender. The city was not decaying; it was digesting, turning stone into soil, architecture into ecosystem, and memory into geology. I was the only thing here that was not yet part of the pattern.
+
+I moved, and my steps on the slick, velvety ground were the only rhythm. My warmth created a tiny, personal haze in the cold, heavy air. The light from above, that sterile immobile spear, picked me out. I was a smudge of chaotic, mortal energy on a perfectly balanced equation. The beetles, glassy and slow, did not flee from me. The pale things in the dark pools did not dart away. To them, I was no different from the brief, hotter patch of sun that might have warmed a specific stone a hundred thousand years ago. A fleeting variable, soon to be ironed out by the deep, slow time of the place.
+
+And then, I saw them.
+
+Not all at once. It was a gradual, creeping recognition that curdled the awe in my stomach into something colder. I saw a line of monoliths supporting a causeway, and I thought them pillars. But then I noticed the fractal way a crack ran down one of them, not like shattered stone, but like the vein on an old man’s hand. I saw a grouping of figures on a high plaza, and I thought them statues carved in the round. But one of them was bent ever so slightly, a posture of exhaustion or submission, and moss grew thicker in the curve of its spine, as if to cushion an eternal burden.
+
+They were the Keepers. And to realize what they were was to understand the nature of the trap.
+
+I am the ghost at their feast of permanence. They are the architects of the perfect, silent death, and I am the messenger of everything they fled: the hot blood, the frantic pulse, the grief of loss, the joy of a fleeting sunrise, the terrible, beautiful chaos of change.
+
+My role here is to be the proof of their thesis. I am the argument against their existence, walking among them. My every breath is a word in a language they have chosen to forget. As I stand on a moss-carpeted terrace, I can feel the consciousness of this place—not as a thought, but as a pressure, a hydrostatic intellect that perceives me as a flaw. A system error. The drop of water that weeps from the lichen on the cheek of a nearby figure is not just water; it is a count. It is a slow, patient, methodical cataloging of my own impermanence. *Drip... the aberration is still here. Drip... its warmth is a temporary state. Drip... it will fade.*
+
+Who am I? I am the antithesis. Where they are collective, I am achingly, uniquely *I*. Where their time is measured in the erosion of mountains, mine is measured in the frantic beat of a heart. They are the final, perfect form, and I am the messy, transitional species. I am the panic that made them fling themselves into stone. I am the memory of the sun moving across the sky.
+
+To be here is to know, with a certainty that chills the bone, that they are right. My noise, my heat, my life—it is all a fleeting, temporary sickness in the face of their perfect, unmoving health. They are the great, silent, and final answer. And I… I am the question,大声疾呼 in a library where a single gasp is a sacrilege. My purpose is to witness their perfection and, in doing so, to understand the profound terror of my own freedom. I am the one who has to leave. If I stay, I might be tempted to join them. I might learn to love the silence. And that would be the final, most terrifying choice of all.

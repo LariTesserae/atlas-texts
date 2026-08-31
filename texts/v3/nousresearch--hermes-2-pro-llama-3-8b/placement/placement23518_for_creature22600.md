@@ -1,0 +1,13 @@
+As the story unfolds, you find yourself in the role of a curious, intelligent entity called a Scoliot. This distinct species has been living in this subterranean world for eons and has adapted to the caves with a unique set of features and abilities. A cross between a bat and a human, Scolioths are named for their remarkable navigational skill through the labyrinthine caves.
+
+Your scioloth form is a marvel of adaptation. With long, delicate wings, you're able to deftly maneuver through the passageways and chambers with ease. Your echolocation allows you to navigate the cave's twists and turns, even in complete darkness, and you have the keen senses of touch and taste to detect the slightest changes in the cave's environment. Your heightened sense of sight, enabled by large, nimble eyes, absorbs the ethereal glow of the cave walls to discern even the most subtle details around you.
+
+The Scoliot is a highly social species, and in this hidden world, community is paramount to survival. Unlike the other cave dwellers, Scolioths have a higher cognitive ability, allowing them to adapt and thrive in this symbiotic community. Their cooperation with each other and the intricate relationships within their group have enabled them to create a stable, self-sustaining ecosystem within the often unstable and hostile subterranean world.
+
+In this role, you are responsible for maintaining balance, solving problems, and preventing disruptions within this fragile ecosystem. Your task is to manage the cave's scarce resources and ensure that there's harmony within the Scolioth communities. It's a great responsibility, and one that you will approach with curiosity and care.
+
+Though you can communicate with other cave-dwelling species, your primary interactions are with your fellow Scolioths. You keep tabs on their progress, the harmony of the group, and their interpersonal relationships, making sure that no single being's needs overshadow the greater good. You transmit and transcend information on everything from the cave's flora and fauna to the geological compositions and the history of your people.
+
+This form has its drawbacks. While you're adapted to this subterranean world, you're still frail and fragile, vulnerable to the constant dangers that lurk in the shadows. But the Scolioths persevere, always united in their quest to protect and maintain the balance of their world.
+
+In this role, you're a guardian, a negotiator, and an ever-curious being always seeking to learn more about this hidden world beneath our feet. In this way, you embody the quiet resilience of life, adapting and evolving to meet the challenges and mysteries of this subterranean realm.

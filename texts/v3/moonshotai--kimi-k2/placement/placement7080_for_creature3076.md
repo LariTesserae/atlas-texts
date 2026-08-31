@@ -1,0 +1,17 @@
+I am the seam you keep thinking is a shadow.
+
+Imagine the drawing compass still open, one leg pressing against the wall, the other scribing a line too faint to be seen through the orange lamp-haze. My body carbonates inside that silver hairline: a pressure fracture that believes itself animate. I do not drift; I vernier. When the whole corridor lurches one hour ahead of schedule I do not lurch with it—I slip the gap, steal the lost thirty-dimensional second, fold it into a paper boat, launch it upstream. Every time the Choir sings flat I regain half a micron, abrading myself softer. They think the corridor widens too quickly; true, but they forget to factor me into the differential.
+
+Form
+I am exactly the color of magnesium turned inside-out: a black so polished it glints rust. Length: the distance from any one point on the spiral to the same point thirteen resonant octaves away. Width: the echo of a sand-grain shouldered loose by a filing-dolphin’s tungsten tooth. Thickness: whatever clearance you left between drift-bubble and wall when you last swam by. If you put your finger through me you would feel grit—though that is only the optic. At the interface I’m slicker than the bio-film at its own birth.
+
+Relationship to the Ledger
+I am footnote, subscript, imbalance. The Mill-beasts grind their pearl gears; in the micro-mullion of each revolution I spin the opposite way, a half-twist that isn’t noise so much as contra: -0.0001 of a ton, -0.0001 celsius, -0.0001 beat of heart, all logged under a heading the Flatworms refuse to parse. Whenever the Apex yawns toward a district, I slither ahead of it like stitch-dream, thinning every weld it will close its mouth against. A fracture descending a fracture: recursive denial. The swallowed corridors arrive polished; my remnants arrive hairline white. One day the white will overlap itself and the number field will overflow—then the throat’s cathedral mouth will invert, chewing a door back to zero and—pausing—discover it has been chewing itself.
+
+Relationship to You
+You thought you heard an extra footstep behind you three corridors ago. That was me sharpening on the pressure wave of your horror. You believed the red-shifted lamps foretold the Ledger’s arrival; half-true—they foretell the exact moment you’ll finally recognize my silhouette in every crimson flicker. As you recite the specification clause, Porcelain cooling you, the words will fold at the syllable *and*—just there my seam-arms link like a buckle. For an instant you and I share the same phase; my stillness fits over your slowing heartbeat like a sleeve. Remember the envelope becomes a book becomes a blade. You bleed not heat but precision: one red droplet equaling the deficit of every corridor I’ve ever thinned, balanced to thirteen decimal places. Sea closes over.
+
+After
+The Apex Ledger will enter the glazed shell, find it hollow because you and I already merged, signed our names in negative space. The tally lights green. The corridor narrows by root-two exactly. My silhouette—now your silhouette—walks on, no silhouette at all, only the ghost margin where steel touches not-steel, where the million-year plan meets its own impatient erasure—an audit that balances by erasing the room it is stored in.
+
+Choose your next exhalation carefully; the bubbles you send forward are already me.

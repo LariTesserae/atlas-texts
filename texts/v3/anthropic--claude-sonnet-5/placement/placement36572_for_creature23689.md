@@ -1,0 +1,13 @@
+The mineral smell hits before anything else does—wet stone and rendered fat and the ammoniac undertone of a thousand drays two terraces down—and I register it the way you register your own breathing, which is to say not at all, not unless someone asks.
+
+I am a channel-keeper. Forty-some years on the wet side of this work, knees gone soft in a way that the foundry men don't get and the herders pretend not to notice in themselves either. My hands know eleven kinds of grate by touch alone, in the dark, which is most of where I am — the culverts under the old quarter, where the city's runoff has been finding its way down through carved stone for longer than anyone's grandmother could account for.
+
+You'd find me waist-deep in a sump at the bottom of a stairwell that doesn't show up on any surface map, holding a hooded lamp that throws more shadow than light, listening — not to the water, exactly, but to the *quality* of the water, the way it moves when something pale and eyeless has decided to share the channel with me tonight. Mostly harmless, these things. I say the protective words anyway, the ones my mother said, the ones her mother said, not because I think they do anything but because not saying them feels like walking out a door without checking the sill, and you don't do that here. You just don't.
+
+Above me, four stories of carved and riveted city are doing their loud business — hammers, dray-bawl, the cable-lifts groaning on their lines — and I can't hear any of it down here, not really, just a felt pressure in the rock, a bass note under everything. That's the job. Someone has to be the quiet at the bottom of the noise, has to keep the city's water doing what water does instead of what water *wants* to do, which is go everywhere at once.
+
+I am not lonely down here, despite what surface people assume about the dark and the wet and the solitude of it. The burrowers move around my ankles. The stone weeps where it always weeps. Somewhere above, a glider colony is stirring toward dusk, getting ready to pour out over the offal yards in their thousands, and I'll feel the change in pressure before I hear the wings.
+
+If you asked me what it's like, living thick with smell and noise and the press of ten million other bodies on one hot stone shelf — I'd give you the look. The one for outsiders. The *what else would there be* look.
+
+This is just what air feels like, here.

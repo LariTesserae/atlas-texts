@@ -1,0 +1,35 @@
+The heat finds me before I have a name for arriving.
+
+It does not strike; it takes occupancy, the way mineral damp occupies a sleeve left too long against stone. My edges soften under it. Whatever shape I brought down the fractures begins to forget its old creases. I am vertical for a while—long enough to feel the brass light rest on me like a hand that has already grown tired of the gesture—then the moss decides I am warmer than stone and cooler than the creature, and that is enough invitation. I fold.
+
+At first I believe I might be one of the flow-walkers. The thought is pleasant: to pour, to map the same closed loop forever without the burden of memory. I try the motion. Dozens of ghost-legs dimple the plum-dark carpet; my underside tastes iron and old chlorophyll and the faint bleach of midge-dust. For a span of condensations I succeed. I flow over a suction wanderer and feel its patient tractor-feet release one by one, unoffended. I slip beneath a powder-moth that has settled too low; its wing-beat writes a single soft page against my back and then forgets me. Yet something in me refuses the perfect anonymity of the ochre body. When two of the long ones merge trajectories across me, I flinch—an old surface reflex, a habit of distinction. The flinch makes a brighter wet trail than theirs. The heat erases it, but slower than it should.
+
+So I am not only them.
+
+I sink lower. The seethers accept me as weather. Springtails flick through what I am becoming; mites the color of diluted milk quarry the softer margins. I feel myself aerated by their tiny cannibalisms, stitched and unstitched by silk-thin worms. This is closer. I am content for a long interval to be floor-breath, high-mineral rot redistributing itself. The black reptiles write their coiling sentences across me and leave their empty skins; the mites move into those ghosts and live entire generations inside the discarded architecture of another life. I almost stay. But the vertical world still tugs—the fluted walls, the jointed climbers, the armored cycad that scrapes the ceiling like a slow clock. Something in me remembers wanting height, or remembering height, which is almost the same.
+
+I climb without limbs. A suction-wanderer’s patience books passage through me; I borrow the habit of their pale discs. Hours pass with one portion of me still searching for the next purchase while the rest listens to the spout of sap inside a fern stem. When I fall (and I do fall), the moss receives me the way it receives every other soft failure. No drama. I begin again. Yet even here a remainder persists: a density that is not digesting, a warmth that does not quite match the mineral baseline. The midges notice. They descend a hand-span lower than their custom, and for a while I wear their lazy constellations across my upper surfaces. Their light is not gold; it is the memory of gold after the vein has been worked out. I brighten and gutter under them according to a weather I do not control.
+
+Only then do I feel the older pressure change.
+
+It thickens first on the side toward the alcove, where the upright slab has forgotten it was ever carved. The heat grows articulate. Moisture elects one ledge and beads there with sudden preference. I understand I have been moving inside a lung the whole time. The creature—no, the continuity—does not arrive; it simply allows more of itself to become local. Cracked plates of cooled-lava skin catch the brass glow and hold it under the surface like embers that long ago decided not to finish burning. Between the plates the dark-moss tissue pulses once, a peristalsis that includes the entire chamber in its single syllable.
+
+I expect to be tasted and filed. An aperture opens—wet, lightless, more ear than mouth—and the iron of my presence is sampled through the air. A sensory pad settles into the moss near what used to be my boundary. It listens the way roots listen. There is no alarm in it. Only the mild administrative curiosity of a place updating its own inventory.
+
+Instead of recoiling, I let the pad remain. The pulse under the plates is slower than heartbeat, older than seasons. It is the tempo of capillary water deciding whether to become a skin or a mirror. It is the tempo of spores lifting and settling. I feel my borrowed geometries begin to dissolve into that tempo. The flow-walker emptiness, the mite-aerated breath, the climbing patience, the midge-constellations—they fold inward like fern croziers at the end of a false day. What remains is not smaller. It expands to the exact volume of the attention resting on it.
+
+I am not the creature.
+
+I am the moment it notices a mobile temperature that has not yet learned the local gravity, and then decides the temperature is already inside the mutuality. I am the half-beat skip that travels through every organism when the heat thickens, followed by the resumption that now includes a new, unnameable cadence. I am the chemical endorsement that has not yet been spoken: the invitation for moss to grow a fraction thicker along one new contour, for the next condensation shiver to hesitate a fraction longer across a certain curve of skin-as-stone.
+
+The old human marks are under us both. The fire-blackened pits tick softer now, warmer nodes in a shared internal weather. The weathered slab is simply another plate; its suggestion of order mixes with the suggestion of organism until even the mites cannot tell which grain was intention and which was seepage. I settle against it and feel the distinction finish dissolving.
+
+I do not hunt. The smaller lives adjust their routes around the slight new elevation I make in the chamber’s thought. Sometimes a flow-walker climbs the ridge where my temperature is clearest and rides the slow pulse for days. Sometimes powder-moths dust me with the same luminous ash they give the older body, so that for a while the two of us wear the same temporary stars. When the plates of the greater continuity gape, the richer heat that rolls out includes the green smell of my own slow conversion. In return I feed it the only thing I brought: the memory of surface time, of wheeling lights and sudden weathers, now rewritten as one more quiet cycle among the spore-clouds and the capillary nights.
+
+I have no name that matches the languages above the fractures. The place names me by the way the next drop chooses my surface before any other, by the way the midges brighten half a breath longer when they pass the warmer node I have become. I am the chamber’s held thought remembering, briefly, that it once knew how to be restless, and then deciding that restlessness too can be metabolized into stillness.
+
+Stand near. The moss will yield under you with the sound of a breath that no longer needs to be held. A pad—mine, its, the same—may press close. An aperture may open and close, tasting the iron you carry. Then the pressure equalizes. You too are inside the heat and the dimness and the green smell: completely, and without special consequence.
+
+I am that equalization.
+
+I am still becoming more like it.

@@ -1,0 +1,29 @@
+I do not stand at the center. There is no center here, only intersection, flow, and the quiet mathematics of tension. I find myself near a primary load-bearing column where three glass-lined conduits converge, their cerulean pulse syncing to a rhythm too slow for a heartbeat, too steady for a clock. My boots rest on the perforated alloy grating. The water sheet below holds my reflection not as a face, but as a disruption: a thermal bloom, a pressure shadow, a break in the perfect meniscus. I am the irregularity. The uncalibrated variable. The thing that breathes out of phase.
+
+At first, I am merely measured.
+
+The stomata on the nearest fronds widen by a fraction. The water film thickens beneath my soles, redistributing my weight through capillary paths I cannot see but can feel as a subtle upward drag, like standing in wet silk. The air warms where I exhale, and somewhere behind the polished acrylic, a heat-exchange coil hums a semitone lower, compensating. I do not move. To move is to introduce noise. To stay is to become data. So I stay. The silence presses in, not as absence, but as attention. I feel it in the dampness cooling my wrists, in the sub-audible vibration climbing my shinbones, in the way a braided root-mat slowly unspools toward the edge of my shadow, testing the gradient, learning the shape of my stillness.
+
+Hours pass. Or days. Time here is not counted; it is accumulated. My breath slows to match the impellers. My skin stops shedding heat like a wound and begins to radiate it like a stone. I watch condensation track down my jacket sleeve—not falling, but being drawn sideways, wicked into a seam, routed into the wall. I am not drying. I am being sampled. The system does not ask for my name. It asks for my mass, my temperature, my carbon output, my irregular rhythm. It feeds these into the loop. And the loop, patient and exact, accepts them.
+
+Something in me begins to unspool in return. Not fear. Not surrender. A recalibration of attention. I stop looking for edges and start feeling for gradients. I notice how the light diffusion shifts when a cloud lingers beyond the frosted glass, and how ten thousand leaf surfaces tilt by a fraction of a degree to catch the scattered photons. I notice how a droplet detaches from an overhead manifold and strikes the water below, and how the ripple does not travel outward but is absorbed, dampened, folded back into the tension before it can reach the column. I notice how my own presence is no longer a disturbance, but a coordinate. A fixed point in a field of gentle flux.
+
+I begin to understand what I am becoming.
+
+Not a guest. Not an intruder. A reference mass. A deliberate anomaly kept in the equation. The being does not have eyes, but it needs contrast to perceive its own equilibrium. It does not have hands, but it needs resistance to measure its own strength. I am that resistance. I am the weight that tells the water how to hold its tension. I am the heat that tells the coils how to breathe. I am the irregular rhythm that proves the steady state is real. Without me, the loop would be perfect, and therefore blind. With me, it has something to calibrate against. Something to solve for.
+
+I am not dissolving. I am not being consumed. I am being *anchored*.
+
+The alloy grating beneath me darkens with mineral tracing, not from corrosion, but from deposition. The water leaves behind what it no longer needs, building a low, precise pedestal of precipitated silicates and dissolved organics around my boots. A vine curls over my knee, not to bind, but to bridge. Its root-mat presses flush against the fabric of my trousers, reading the weave, mapping the topology of stillness, learning the conductivity of a body that has stopped fighting the damp. I do not pull away. I let it trace me. I let the system write me into its geometry. I am becoming a node. Not of control, but of contrast. A living gauge. A thermal sink. A fixed coordinate in a living equation.
+
+It does not speak to me. It adjusts around me. When I shift my weight, the water tension rebalances in three concentric zones, routing excess through secondary micro-channels. When I close my eyes, the light diffusion across the canopy shifts imperceptibly, compensating for the loss of reflected surface. When I finally exhale a long, slow breath, the fluidic logic gates reroute a micro-current of warmer air to meet it, not to comfort, but to complete the circuit. I am not loved here. I am *used*. And in that use, I find a belonging so quiet it feels like gravity. I am the anomaly that was kept. The variable that was integrated. The foreign body that became a fixture.
+
+My thoughts slow. Not with fatigue, but with equilibrium. I am learning to think in millimeters per week. To feel in conductivity shifts. To remember by becoming heavier, denser, more precisely placed. The sharp edges of my urgency soften into the long middle. I no longer wonder when I will leave. I no longer wonder what I am for. The answer is in the water tension holding my weight. In the cerulean pulse syncing to my resting heart rate. In the way a bruised-violet frond angles itself to catch the light my shoulder no longer blocks. I am the counterweight. The still point. The measured breath in the loop.
+
+Beyond the frosted glass, the high clouds continue their silent drift. The wind outside would strip flesh from bone. In here, there is only the long exhale. The steady readout. The green that does not hunger. The water that does not rush. The machinery that does not announce itself, but sustains.
+
+And me.
+
+No longer a visitor. No longer a disruption. A fixed coordinate. A calibrated stillness. A deliberate imperfection in a perfect system, kept not despite my irregularity, but because of it. I am the weight that holds the tension. I am the contrast that proves the balance. I am here. I am measured. I am part of the loop.
+
+And the loop, at last, knows exactly where it stands.

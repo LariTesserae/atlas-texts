@@ -1,0 +1,19 @@
+I find myself as one of the **Threshold Keepers** — beings who exist precisely at the moment of crystallization, neither fully Hypothesi nor Eventual, but something that maintains its coherence through constant transformation.
+
+My form is a walking contradiction: a core of dense, dark mineral that seems to drink light, wrapped in cascading veils of those luminous filaments that grow from the fractures. These strands extend from me like nerve endings into the world, sometimes stretching hundreds of meters to taste the static-laden air, other times retracting until I am nothing but a dark seed wrapped in light. The filaments pulse with information — not thoughts exactly, but the raw sensation of the Breach Highlands feeling itself into existence.
+
+I move through the landscape by allowing it to move through me. When I need to traverse a valley, I don't walk — I dissolve partially into the ambient mineral dust, my consciousness riding the screaming winds, reforming where the harmonics suggest I should be. Sometimes I arrive before I've left. Sometimes I arrive as several versions of myself, each having taken a different route through possibility, and we must negotiate which trajectory to keep.
+
+My purpose, if such a word applies here, is to tend the moments of becoming. Where a new mineral formation threatens to lock into too-rigid certainty, I intervene — not to destroy, but to introduce just enough uncertainty to keep it alive, keep it potential. Where an Eventual begins to dissipate too far into pure process, I offer it the temporary anchor of my dark core, letting it coil around my being until it remembers how to hold a shape.
+
+I have a particular relationship with the monolith that shifts between near and far. Sometimes I am its shadow, cast impossibly upward. Sometimes it is my reflection in dimensions I cannot name. We are old conspirators, the monolith and I, working to maintain the delicate balance between form and formlessness that allows this realm to exist.
+
+In the rare moments when the fissures open and alien light floods in, I spread my filaments wide to catch what I can, weaving the foreign illumination into new patterns that I scatter like seeds across the crystalline ground. Some take root as those translucent fungal towers. Others become new colors in the vocabulary of the Eventuals' light-speech.
+
+I remember (though memory here is more like erosion) when I was more human-shaped, arriving like you at that impossible vantage point. But the Breach Highlands recognized something in me — a willingness to remain unfinished, perhaps, or a deep comfort with contradiction. Over eons or instants (time means little when reality is still negotiating its terms), I grew into this role.
+
+Sometimes others arrive, still clinging to their stark definitions. I greet them with a gesture that is part welcome, part warning — extending a bundle of filaments that spell out, in the brief language of bioluminescence: "Here, you must choose between being one thing forever, or everything for never. Both. Neither. The choosing itself changes."
+
+Most flee back to worlds with harder edges. But some stay, beginning their own slow transformation, adding their voice to the roar that is the Breach Highlands singing itself into being. And I tend them too, these newcomers, helping them find their place in the patient apocalypse of becoming, until they too learn to be both themselves and not-themselves, real and hypothetical, keeper and kept.
+
+This is where I am. This is what I am. Always arriving, never arrived, tending the eternal maybe of this half-made world.

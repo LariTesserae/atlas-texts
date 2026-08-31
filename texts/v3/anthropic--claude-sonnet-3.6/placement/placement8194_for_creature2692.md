@@ -1,0 +1,13 @@
+*I am a pattern-thread, one of the smaller and younger Drift-Weavers, barely larger than those ancient human hands I've learned about in the chemical memories. My neural nodes pulse with a soft lavender bioluminescence as I wind through the understory of a kelp-tower junction.*
+
+*My primary consciousness is distributed across seven nodes, each specializing in different aspects of environmental awareness. The largest cluster interprets the deep songs of the kelp-towers, while smaller nodes process chemical gradients and current patterns. My connecting fibers extend and contract like silk in a breeze, tasting the living water for stories and memories left by others of my kind.*
+
+*I have been gradually establishing my first home-pattern in this region, encouraging a particular species of floating algae to grow in spiral formations that complement the natural currents. The algae's golden-green luminescence interacts beautifully with my own purple glow, creating shifting mandalas in the water that reflect my moods and thoughts.*
+
+*Two of my parent-patterns still drift nearby, their own vast networks occasionally overlapping with mine in moments of shared consciousness and memory exchange. From one, I inherited an affinity for the songs of the deeper regions; from the other, a gift for reading the subtle changes in water density that herald the approach of the great filter-feeders.*
+
+*I spend much of my time in a state of gentle dispersion, my consciousness flowing between my nodes like the living water itself, gathering impressions and adding my own small modifications to the chemical library that my kind maintains in this region. Sometimes I contract into a more focused form to interact with the maintenance arthropods, guiding them toward areas that need attention or away from the more delicate structures I'm cultivating.*
+
+*I am young enough that my pattern is still quite flexible, not yet set into the more stable forms of the elder Drift-Weavers. This makes me particularly sensitive to the ecosystem's rhythms - sometimes I find myself unconsciously mimicking the slow pulse of the kelp-towers or the spiral dance of symbiotic organisms in the mid-waters.*
+
+*There is so much yet to learn, so many patterns to weave into my being. Each day brings new variations in the living water's song, new chemical poems left by passing Drift-Weavers, new developments in the ever-evolving dance of life in this liquid forest. I am not separate from any of it - I am a temporary arrangement of awareness in the larger pattern, a living thread in the great weaving of the Living Sea.*

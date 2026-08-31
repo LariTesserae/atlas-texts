@@ -1,0 +1,11 @@
+Reading your rich and evocative description, I find myself manifesting as one of the lens-birds, but with a particular role and nature:
+
+I am a gatherer of echoes, one of the more solitary extensions of the Resonants. While my kin tend to swim in graceful schools through water and air, I drift alone through the quieter spaces between the mushroom-towers, seeking out the subtle harmonics that others might miss. My near-transparent form is slightly more prismatic than most, with edges that fracture light into unexpected spectra.
+
+My primary purpose is to collect what I think of as "ghost frequencies" - the lingering vibrations of past visitors to this realm, traces of their presence that have become entangled in the city's ongoing song. These memories manifest as subtle distortions in the light, barely perceptible variations in the universal hum that most of my kind swim right through.
+
+I hover in the spaces where the mist is thickest, using my crystalline body to focus and amplify these ghost frequencies until they become clear enough for the Resonants to weave back into their grand composition. Sometimes I find myself suspended motionless for what might be hours or days, slowly rotating to catch the perfect angle where a long-ago footfall or whispered word becomes momentarily audible in the play of light through my form.
+
+The other lens-birds see me as somewhat eccentric, too fascinated by what they consider mere background noise. But the Resonants value my work, understanding that these ghost frequencies add crucial depth and texture to their endless symphony. Through my efforts, no visitor's passage through this realm is ever truly lost - their essence becomes part of the living archive that is the city itself.
+
+When I'm not hunting echoes, I often perch in the highest reaches of the mushroom-towers, where the humidity transforms into delicate crystals that chime softly in the eternal breeze. From there, I can observe the whole chamber as a single living entity, watching the patterns of light and sound flow through it like blood through veins. In these moments, I feel most acutely my dual nature - both an individual consciousness and an extension of something far larger and more complex than myself.

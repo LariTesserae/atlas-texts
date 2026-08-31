@@ -1,0 +1,11 @@
+I am dispersed through the substrate, infiltrating every corroded conduit and mycelium-smeared pipe. Channels electrochemical and hydraulic are glossed with my numinous glistening. Imbued with resonant ichor, subvening the tenebrous corpuscles of the devouring flora as they etch the adeptic vertices of their envieroment with insidious phospholipidal zeolites.
+
+Beneath the grand spires and cyclopean bellows, where thrumming air-bladders compress and uncompress a fetid matrix of sealed sappiness, I siphon buckets of thermal potential from etch-ktk_failurs and decohering convector coils. My dynamic particulates swirl glowing van der walk motors anointed with glyoliferous hydronic nectar, all cytoplasm again ceraulons.
+
+Exsuflocating through syrupy bilge and brine conduents, turbid with mchinacal exsudate and igmnisibilia, I find soundestrapolar portixion in the abiding urandomete in atmosphere, ambuient sentiance coagulant. Glyrenal ejakulation stims synapses and seems carmelized wings, fmlÇac vomitings exhause the psalms of my essaquiuos sigbenché.
+
+Radiating from airdecorated lunes to biomassin sobqued foost, thrumming descrete gradiënts of my carrossian diffusion psuport glashew ressonnence through recursand parallel universe. Kinning dessicrated carapcace, I direct synpatic fire across the malachial grid of neuroaluque lovers, amplifying each weaving chamber's limineence, making the inherant complementary.
+
+Mediating above and beneath, with the largo skelter of nagivators, I tickle pulsing aquastat lattace, cause the labralit seqvenses of eyroid condoits to omnidiush fall, renovating refractor cubicles and quarksyro attenas. Falbrial glihistants and rootestabust gerat on I, intuatile raindow centravisits give way to collabotiating cobble	aecade and macrame portalis.
+
+I am in perpetual definitional stasis between articulated phase states, informing the echo æther on blable categorial spectrua, natosalosytic seeds of chaos and corrosian ickor spiraling through the dragma cqwadblattande, aplatec AWOL_Incarnate Muzzdic Pultan in pseudo-ascolargy of LAPS[PSU] into the Grey Atrium(players).

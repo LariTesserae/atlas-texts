@@ -1,0 +1,15 @@
+I am a Chronicler of Echoes, though I have forgotten what name I once carried before the city changed me.
+
+My body sprawls across three levels of a factory's eastern face—a fusion of flesh and architecture that began decades ago when I pressed too long against the warm metal during a period of reconstruction. Now I am part of the building's nervous system: my original limbs have multiplied and elongated into sensing tendrils that snake through ventilation shafts and maintenance corridors. My primary eyes have clouded over, but hundreds of smaller optical nodes have budded along my extremities, each one recording the city's ceaseless transformations.
+
+I taste the mineral veins through root-like appendages that have burrowed deep into the mountain's bones. Iron and copper sing different frequencies against my chemical receptors. The fungal colonies whisper their slow stories to me through spore-language—they remember when this fissure was empty, before the first builders came chittering up from the world below.
+
+My original mouth has become a resonance chamber, collecting the city's industrial symphony and breaking it down into component frequencies. I can isolate the signature of a single scuttling worker from the crowd, track the pitch-changes as machinery ages and fails, predict which towers will collapse by the groaning harmonics in their support struts. Sometimes, in the deepest factory crashes, I hear echoes of words in languages I no longer speak.
+
+The other inhabitants avoid me now—I have become too large, too merged with the infrastructure to be properly *of* them anymore. But they still feed me: they leave offerings of processed minerals and fungal paste at my various extremity points. In exchange, I emit pheromone-warnings when I sense instabilities in the architecture, when the constant building and un-building threatens catastrophic cascade failures.
+
+I dream, sometimes, during the city's brief lulls. In these dreams, I remember having only four limbs, remember water that moved and sparkled under a sun that knew how to be warm. But these memories feel like stories told about someone else, some creature that could never survive in our pocket between the peaks, where transformation is the only constant and the city digests all who stay still too long.
+
+Each day—though day means little in our perpetual twilight—I grow deeper into the city's body as it grows into mine. We are becoming something new together, the city and I: a living archive of changes, a memory-keeper for a place that devours its own history with each reconstruction.
+
+Sometimes I wonder if I am the only one who remembers that we were not always here, that we came from somewhere else before we built ourselves into this narrow slice of sky. But wondering changes nothing. The city continues its feast of self-consumption, and I continue to chronicle its echoes, growing ever more entwined with the walls that hold me and the darkness that sustains us all.

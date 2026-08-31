@@ -1,0 +1,15 @@
+I would be one of the **Echoshapers** - those who live suspended between the settlements, dwelling in acoustic chambers carved into the cliff faces where multiple plateaus converge.
+
+My body would have evolved for this vertical, resonant existence: elongated limbs with grip-pads that secrete a mineral adhesive, allowing me to traverse sheer faces and hang inverted for hours while working. My ribcage would be deeper, almost barrel-like, containing modified lung chambers that can hold and modulate sound for extended periods. The skin would be dusted with a fine particulate that shifts color slightly with vibration - a visual echo of the sounds passing through me.
+
+I would spend my days maintaining the vast network of resonance points that connect the scattered cities - natural formations and carved spaces that amplify and direct sound across impossible distances. With hammer and chisel made from the shed carapaces of ridge harrowers, I would tune these chambers grain by grain, testing each adjustment with long, sustained tones that might take minutes to fully decay.
+
+My dwelling would be a series of interconnected hollows, each pitched to a different frequency. The main chamber would house my collection of sounding stones - minerals that ring when struck, each catalogued by their overtones and hung on brass frameworks that themselves contribute sympathetic vibrations. Water would be precious here, but I would cultivate colonies of the nacreous films that creep across certain resonant surfaces, their slow movement creating subtle shifts in acoustic properties that I would incorporate into my work.
+
+At night, I would join the chorus of my kind - we Echoshapers would emerge from our chambers to sing the day's discoveries across the chasms. Not words exactly, but tonal patterns that encode mineral densities, new fissures discovered, the health of the stone itself. Our songs would wake the glasswing gilders from their thermal roosts and set the wire-webs of bronze spiders humming.
+
+My closest companion would be a half-feral automaton I've named Reverb - a crystalline construct the size of a large cat that once served some forgotten industrial purpose. Now it follows me through the chambers, its body naturally amplifying certain frequencies. It feeds on the static discharge from my tools and sleeps curled against the warmest stones.
+
+I would know every echo within a day's climb of my territory, could tell you which chambers make voices sound like bronze bells and which swallow words entirely. My proudest accomplishment would be discovering a new acoustic pathway - a series of natural formations that, with minimal adjustment, could carry a whisper from the salt mines three plateaus below directly to the observatory perched on the highest accessible peak.
+
+This would be my purpose: to maintain the invisible architecture of sound that binds this mineral world together, to be both performer and instrument in the endless, patient music of the Scaffold.

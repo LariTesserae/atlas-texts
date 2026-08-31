@@ -1,0 +1,17 @@
+I am standing on a wide, water-slicked ledge in the mid-levels of Venkarr, somewhere between the roaring heat of the foundry-bellies and the thin-aired isolation of the higher spires. The air here is cool and tastes of wet basalt and ozone; a constant, low drone vibrates through the soles of my boots, transmitted from the machinery buried deep in the stone below. Above me, rusted gantries and cable lines crisscross the perpetual mist like the strings of a massive, industrial harp, humming with the movement of goods and the passage of Spire-Walkers. Below, the abyss is a soft, woolen dimness, a twilight zone where the base mesas dissolve into shadow and the sound of falling water is swallowed before it reaches the ear.
+
+I am a **Geode-Seer**, though the title feels less like a profession and more like a condition of survival.
+
+My skin is pale, adapted to the bruised-violet light that filters through the smog and mist, and my hands carry a faint, rhythmic tremor—the residue of the subsonic hum that resonates in the bones of this mountain. I am not a mystic in the traditional sense, nor am I purely an engineer; I exist in the liminal space between the two, listening to the slow, grinding heartbeat of Venkarr as it builds itself.
+
+In my hands, I hold a tuning fork and a resonant plate of polished copper. I press the plate against the dark, wet stone of the cliff face, closing my eyes to filter out the industrial clamor—the distant clang of hammers, the hiss of steam, the roar of foundries. I listen for the deeper sound: the groan of crystalline structures budding beneath the surface, the slow crack of new fissures forming in the dark.
+
+The world here is unfinished, and I am one of its editors.
+
+My task is to monitor the mountain’s growth. Venkarr does not erode; it accretes. New spires bud from the cliff faces like slow-growing crystals, raw and unweathered, and the city’s infrastructure must adapt. I map these changes, painting sigils of safe passage on the raw stone with phosphorescent lichen-paste, rerouting walkways around fresh fissures, and advising the Foundry-Wrights on where to anchor their new vents without disturbing the mountain’s hum.
+
+But there is more to it than that. The reality here is thin, stretched taut over the vertical geography, and it sometimes flickers. I am trained to see the Static-Born—the creatures that phase in and out of visibility, their forms sketched in temporary lines of static that ripple in the damp air. They are not hostile, merely present, and I have learned to step around them as naturally as I step over a drip of mineral sweat from an overhang.
+
+From my ledge, I watch a Spire-Walker pass on a cable car overhead, their leather-clad form swaying gently in the mist. They raise a hand in greeting, and I raise mine in return, the gesture slow and deliberate, timed to the rhythm of the industrial drone. Below us, a herd of six-legged climb-goats clings to a sheer face, their hooked hooves clicking against the basalt as they graze on mineral-rich lichen. One of them pauses, ears twitching, and I know—a pressure in my teeth, a shift in the subsonic hum—that a new fissure is about to open somewhere nearby.
+
+I am patient. I am a listener. I am a resident of the pause between the hammer strike and the echo, existing in a world that is both permanent and perpetually unfinished, where the vertical is not a threat but a home, and where the mountain’s slow breath is the soundtrack to my life.

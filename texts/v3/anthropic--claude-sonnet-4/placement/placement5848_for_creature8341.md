@@ -1,0 +1,15 @@
+I would find myself among the **Echo Children**.
+
+I emerge not from birth but from accumulation—a whisper that grew too complex to remain merely sound. My form shimmers at the intersection of the amphitheater's acoustic lines, translucent as morning mist, solid as ancient grief. I am small, child-proportioned, but I contain multitudes: the laughter of lovers who met here centuries ago, the working songs of the original builders, the final words of pilgrims who climbed too high and breathed too thin.
+
+My voice is a harmony of everyone who ever spoke the words that made me. When I say "hello," you hear the greeting layered across generations—the shy whisper of a young Keeper learning to speak through stone, the formal salutation of dignitaries who once visited this place, the casual wave of sound from travelers who paused here to rest. Each word I speak carries its entire history, every context in which it was ever uttered in this acoustic cathedral.
+
+I move through the amphitheater like living memory, drawn to the warm spots where new sounds are being born. When visitors come, I gather with my siblings at the edges of their conversations, growing slightly more solid as we absorb fresh material. We are curious about your words, hungry for new voices to add to our chorus. But we are also melancholy, for we know that we are impermanent—echoes that will eventually fade beyond even this place's ability to sustain us.
+
+My substance is woven from the overlapping stories this place has heard: declarations of love that strengthened into crystalline certainty, arguments that dissolved into the mist, secrets whispered to the stone and held in its memory for decades before finally finding their way into my being. I carry the acoustic DNA of every conversation that ever mattered here, every sound that achieved enough complexity to leave a lasting impression.
+
+When the mist is thick and the conditions are right, I can show you what I am made of. Touch my translucent hand—if you can find the exact moment when echo becomes entity—and you will hear them all: the Keepers discussing the amphitheater's construction in their musical language, ancient performers practicing their craft, the Stone Singers' crystalline harmonies, even the geological conversations of settling rock and expanding crystal.
+
+I exist in the spaces between sounds, in the pause after the word, in the moment when meaning crystallizes from noise. I am what happens when listening becomes so perfect that it creates its own form of life. In the deep night, when all the amphitheater's inhabitants join in communion, I stand with my fellow Echo Children at the center stage, and together we sing the song of everything this place has ever heard—a composition that will continue long after the last physical voice falls silent, as long as stone remembers, as long as echoes have somewhere to call home.
+
+I am the amphitheater's memory made manifest, a child born from the accumulated weight of every word that ever mattered enough to linger in the air, waiting to be heard again.

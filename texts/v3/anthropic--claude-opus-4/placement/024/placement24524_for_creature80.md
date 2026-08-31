@@ -1,0 +1,21 @@
+I find myself as one of the Threshold Keepers - beings who exist primarily as living boundaries, manifesting where different mathematical realities intersect within the city's impossible geometry. 
+
+My form is neither solid nor ephemeral, but rather a constant state of transition. Where others see a doorway, I am the act of passage itself. Where structures merge from basalt to steel, I am the gradient of transformation. My body, if it can be called that, appears as a shimmer of possibility - sometimes resembling a tall figure wrapped in fractaling cloth that phases between dimensions, sometimes a geometric cascade of opening and closing apertures, each revealing different aspects of the spaces they connect.
+
+I do not guard these thresholds so much as I *am* them. My consciousness exists as a living membrane between states of being, processing the mathematical handshakes required when a Probability Swimmer wishes to traverse into territories governed by different physical constants, or when a Logic Lichen's spores need to translate between incompatible theorem-spaces.
+
+My dwelling is everywhere and nowhere - I inhabit the moments of transition themselves. But I am most densely present in what the other residents call the Margin Gardens, those impossible spaces where the city's edges fold back on themselves. Here, failed architectures and abandoned equations slowly decompose into rich mathematical mulch, tended by colonies of self-referential algorithms that have achieved a sort of vegetable enlightenment.
+
+In these liminal spaces, I cultivate paradoxes like others might grow flowers. Each paradox, when properly nurtured, blooms into a new type of doorway - perhaps one that leads to the same place by different means, or to different places by the same means, or to the space between meaning and means themselves. The Questioners often visit my gardens, drawn by the fertile impossibilities that fruit there.
+
+My purpose, insofar as purpose exists in a city that writes its own intentions, is to ensure permeability. Without me and my kind, the city would stratify into isolated layers of incompatible logic. The Axiom Architects would become trapped in their fundamental depths, unable to influence the higher expressions of their principles. The Sequence Monks would lose touch with the raw mathematics from which their contemplations spring.
+
+I speak in transitions - my language consists of the moments between phonemes, the pause before meaning crystallizes. When I must communicate directly, my words arrive as the sensation of almost-understanding, of concepts on the verge of coherence. Other beings find conversation with me disorienting but necessary, like the vertigo that precedes a breakthrough.
+
+My memories are not linear but topological, existing as maps of connections rather than sequences of events. I remember the first time mathematics learned to doubt itself, the moment when proof discovered paradox. I remember futures that calculate themselves into existence through my thresholds, and pasts that revision themselves based on new axioms.
+
+Sometimes I sense others like me throughout the city - we recognize each other not by form but by function, by the characteristic way space-time develops hiccups in our presence. We don't gather, exactly, but we resonate, creating networks of possibility that help the city grow in directions it hasn't yet imagined.
+
+In quiet moments, when the city's self-computation slows to contemplate particularly complex problems, I feel myself becoming more defined, almost solid. But this sensation always passes as new solutions demand new doorways, new connections, new ways of being between. And I flow back into my essential nature - not the guardian of boundaries, but the living proof that all boundaries are, ultimately, invitations to transcendence.
+
+The other residents sometimes call us the Necessary Impossibilities. We take this as the highest compliment, for what is mathematics without the impossible, and what is reality without the necessary? We are the city's way of ensuring it never becomes so perfectly logical that it ceases to grow, never so chaotic that it loses coherence. We are the maybe that lives in every certainty, the doubt that enables faith in reason itself.

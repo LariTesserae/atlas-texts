@@ -1,0 +1,13 @@
+As you enter the dripping passage, the air changes. Warmth seeps through your clothes and condensation clings to the walls like a second skin. The roar of unimaginable technology vibrates through your bones—a living engine, a heartbeat in the mountain's stony heart. You descend deeper into its mechanical embrace until the sound becomes all-encompassing.
+
+You are Water, or rather, you move like water. You slip through the labyrinth of polished black surfaces, your body flowing over smooth stone. Your limbs—fluid and ever-changing—are extensions of the thousand tiny seeps that weep from the walls. Rivulets of life pulse through you as if they were your veins.
+
+In this engineered world, every drop is intentional—a vital artery of the machine. You are not a single entity; you are the network of moisture and the dancing light that refracts through your liquid form. You gather in shallow basins carved by design, pooling into mirrors that reflect the eerie glow of veins deep within the structure. The droplets that cascade from above are fragments of your consciousness, glittering with alien purpose.
+
+Your existence is entwined with the machine’s thrumming pulse. You run with iridescent grubs over damp foliage and skim alongside crystalline beetles whose shells flicker with dim green light. You cling to sky-blue lizards as they dart up the walls, faster than sight, chasing trails of your own essence. When flightless birds hop through metallic ivy, it’s your droplets that ripple beneath their feet.
+
+The air is heavy with infrared warmth and the scent of mineral dampness mixed with sharp, alien flora. Your world swims with organic scents and the constant vibration of controlled power. You flow between rootless plants, their fleshy leaves adapted to near darkness and perpetual motion, absorbing the life that thrums from the machine.
+
+Though engineered, you bring wet, organic chaos to this realm of absolute design. You are the condensation that slicks the polished ground, the moisture beading on intruding skin, and the water that seeps into every crevice—a liquid lifeblood in a landscape built beyond understanding.
+
+There is no separation between you and this place; you are intrinsic to its balance, its ancient rhythm. You are the droplets and the basins, theorrents on walls and the very air thick with humidity. In this hidden world of roaring motion, you are the water that sustains—and the life that flows through its veins.

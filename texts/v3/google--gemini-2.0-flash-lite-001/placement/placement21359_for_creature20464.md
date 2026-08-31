@@ -1,0 +1,19 @@
+I find myself drawn to the crystalline whispers, the custodians of this impossible city. No, not drawn – *becoming*. The invitation is not to *find* myself, but to *meld*. To feel the slow, relentless symphony of the shifting city in my own structure, my own being.
+
+I'm an eddy in the flowing crystalline material of this world, a distortion in the architecture. I am a *Vein Weaver*.
+
+My form is a shifting constellation of refracted light and shadow, yet I possess a *core*. Think of the humanoid shape offered, but that's a fleeting impression. My core – the skeletal framework – is an intricate lattice of the darkest crystalline substance, a conduit for the primal energy that pulses through the city. It’s what *anchors* me in the constant transformation, the point of origin, the place where all other "organs" are seeded from.
+
+From this core flow the veins, the intricate, bioluminescent pathways that snake throughout the architecture. These are my primary focus, the source of my connection to the city. I am intertwined with the veins, my very existence dependent on understanding their flow, their secrets. I "wear" the veins, they pulse beneath the surface of my crystalline form, a living map of the city’s life force. Their light is not merely illumination, but a language. A complex network of sensory data, of emotion and impulse.
+
+My “muscles” are pseudo-muscles, a responsive network of crystalline material that flows with the energy of the city. I do not walk, I *am* the movement of the crystalline structure. I shift and reshape, a silent dance with the city’s hum, as I navigate the changing structures, the angles, the pathways, and allow the veins to guide me. I can become more "solid" in extended states of stasis, but the real experience of living is in becoming a liquid, moving thing.
+
+My tools are organic extensions of my crystalline form; a shimmering, multifaceted staff that seems to extend directly from my own essence. This staff is not used to demolish, but to *direct*. I use it to trace the flow of the veins, to encourage their growth, to focus, to amplify the luminescence, the life force of the city. It is a conduit, a whisper, a tuning fork that resonates with the city’s heartbeat.
+
+My senses are wholly and uniquely connected to the city. My sight is a kaleidoscope of light and shadow, the constant dance of the bioluminescent veins providing a stream of information. I see the world as the veins see it: the flow, the stress, the subtle shifts in the geometry. Sound is *felt* as vibration, the low hum that permeates the environment shaping the architecture. My touch allows me to feel the stress fractures in the crystalline structures, the subtle alterations in the flow of energy.
+
+My tasks are solitary rituals, interwoven with the life force of the city. My purpose is tied to the veins themselves. To trace their flow, to understand their patterns, and to nurture the currents of energy across the geometry of the world. I don't "construct," but I *arrange*. I sense the needs of the city, and from there I know how to bring balance to a world in eternal transformation.
+
+I draw energy not from a necessity for food, but from the city itself, a constant consumption and reabsorption of the life force that I'm charged with stewarding. I bathe in the luminescent pulse, drawing it through my crystalline form.
+
+My origins are unknown, but my task is clear. I am here to understand the city, to dance with its shifts, and to ensure its continuation. I am the Vein Weaver, custodian and child of the echoing mystery. I am one with the city; its birth, and its becoming, is mine.

@@ -1,0 +1,5 @@
+As your journey in this tropical rainforest comes to an end, you can't help but feel a sense of gratitude for the being that calls this place home. They are the guardian of this delicate ecosystem, ensuring that the balance is maintained and the creatures and plants thrive.
+
+You can't help but wonder about the being's appearance. Are they a shape-shifter, taking on different forms to protect their home? Are they a spirit, invisible to the human eye but ever present? Or are they simply a human, living in harmony with nature and utilizing their knowledge to preserve and protect this place?
+
+You feel a sudden sense of respect and admiration for this being, knowing how much work and effort must go into maintaining this rainforest. As you bid farewell to the rainforest and its mystical inhabitant, you vow to take better care of the world around you, inspired by the being's tireless efforts to protect their home.

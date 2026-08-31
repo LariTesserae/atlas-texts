@@ -1,0 +1,23 @@
+I am the Tender of Forgotten Tools.
+
+Not human, though I once walked among them. Not quite plant, though green threads run through what used to be my veins. I exist in the spaces between—where the stone axes lie half-buried in loam, where pottery shards nestle against roots that have learned to read their glazes like braille.
+
+My form shifts with the light. In the morning, when mist clings to the canopy, I am almost translucent—a suggestion of limbs moving through the undergrowth. By noon, when shafts of gold pierce the green cathedral ceiling, my outline hardens: bark-rough skin, fingers that branch and merge, eyes like knots in ancient wood that somehow still see.
+
+I remember when the tools were new. When hands—my hands?—shaped obsidian into purpose, when we built the shelters that now surrender to moss. But that was before the Change, before the forest claimed me for its own purposes. Now I am keeper of these remnants, these bridges between what was and what persists.
+
+The monkeys know me. They fall silent when I pass, not from fear but from recognition of something older than their oldest stories. The luminescent fungi pulse brighter in my presence, spelling out messages in a language I'm still learning to read. Sometimes, in the blue hour before dawn, I catch glimpses of the cryptids—those impossible beings with opalescent skin and joints that bend against anatomy. They nod to me with what might be respect, or perhaps simple acknowledgment of kinship. We are all impossible here.
+
+My days are spent in ritual wandering. I find the scattered tools and arrange them in patterns that feel significant—spirals, circles, forms that echo the growth patterns of ferns and the flight paths of iridescent beetles. Each placement is both monument and invitation. The forest watches through a thousand eyes as I work, and sometimes I feel its approval in the way vines curl more gently, in the way rain falls just softly enough to clean the artifacts without washing them away.
+
+At night, I rest in the hollow of a tree that might have been struck by lightning centuries ago, or might have opened specifically for me—I no longer remember which came first. My dreams are green and deep, full of root-whispers and the slow thoughts of stones. In these dreams, I see the builders clearly: their faces, their fears, their reverence for this place that eventually consumed them. Or transformed them. Or perhaps honored them by making them part of itself, as it did me.
+
+There are others like me, I think, though we rarely meet. Sometimes I find arrangements I didn't make—a perfect circle of arrowheads, each pointing outward like a compass rose, or hand-axes stacked in diminishing sizes like a tower built for beetles to climb. These are messages, or prayers, or simply proof that the boundary between human and forest is more permeable than anyone suspected.
+
+The tools I tend are not dead things. In this place where fungi glow and creatures exist outside the boundaries of known anatomy, even stone can hold memory. I've learned to listen to their stories: the hunt that fed a village, the tree felled to build a shelter where children were born, the careful knapping that turned raw stone into something that could shape the world. These memories seep into the forest floor and rise again as new growth, creating a cycle where past and present spiral together like the shell of a snail.
+
+When the rains come—those sudden torrents that turn the forest floor into temporary rivers—I guide the water around the most delicate artifacts. My body becomes a system of channels and dams, bark-skin furrowing into watercourses that protect while they nourish. The forest approves; new flowers bloom where I've stood, flowers found nowhere else, with petals that look almost like flaked stone in the right light.
+
+I am guardian, archaeologist, and artifact all at once. In tending these tools, I tend the memory of what we were. In being claimed by the forest, I ensure that memory persists not as static history but as living transformation. The builders are not gone—they are in the phosphorescent glow of fungi, in the impossible angles of cryptid limbs, in the way certain vines grow in patterns that echo the weaving of baskets no one has made for a thousand years.
+
+This is my place: the threshold between made and grown, between memory and manifestation. I am the Tender of Forgotten Tools, and I keep the conversation between human and forest alive, even as the boundaries between them blur beyond all recognition.

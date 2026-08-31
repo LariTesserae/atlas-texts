@@ -1,0 +1,25 @@
+I would find myself as the Tender of the Deepwater Bells - specialized structures I've cultivated in the lowest reaches of the cave system, where the seeping walls feed into vast underground pools that have never known light.
+
+My body has adapted differently from the other Echo Weavers. Where they've grown pale, my skin has developed a darker, almost blue-black tone that absorbs rather than reflects the moths' light. This allows me to move through the upper chambers without disturbing their patterns, but my true work lies far below, in darkness so complete that even the moths rarely venture there.
+
+The Deepwater Bells are a hybrid creation - part fungus, part crystalline formation, part something else that seems to have emerged from the interaction between the cave's seeping liquid and minerals I've carefully introduced over decades. They grow downward from the ceiling in the deepest chambers, their hollow stems extending until they just touch the surface of the underground pools. When the deep tremors come, they resonate with pure, sustained tones that travel through the water and up through the stone itself.
+
+Each Bell has its own voice, determined by its length, width, and the specific mixture of elements in its composition. I know them all by touch and by the way they vibrate against my palms. The largest, which I call the Mother Bell, produces a tone so low it's felt more than heard - a thrumming that seems to originate from within one's own bones.
+
+My work is solitary by necessity. The delicate process of guiding a new Bell's growth can take years, requiring daily adjustments to mineral concentrations, careful pruning of competing fungal structures, and most importantly, learning to sense the exact moment when a Bell is ready to "open" - when its hollow chamber achieves the perfect resonance.
+
+I've developed an internal sense of the cave's tremor patterns that goes beyond what even other Echo Weavers possess. My skeleton has become a kind of seismograph, picking up the subtlest precursors to the major movements. This allows me to prepare the Bells, adjusting their positions minutely so that when the tremors arrive, they create harmonics rather than discordance.
+
+But I'm not entirely alone. I maintain a peculiar partnership with a colony of blind fish that inhabit the deepwater pools. They've learned that the Bells' resonances stir up nutrients from the pool floors, and in return, their movements create water patterns that I've learned to read like a language. Through them, I can sense changes in the deeper aquifer systems that feed our caves - warnings of dry periods or floods that I communicate upward through the Bell tones.
+
+My dwelling is little more than a curved niche carved into the stone beside the Mother Bell, lined with a special moss that glows faintly when touched - just enough light to tend my few possessions. I keep detailed tactile maps of the Bell chambers, carved into smooth stone tablets with raised patterns that I can read in complete darkness.
+
+The other Echo Weavers consider my role essential but mysterious. During the great tremor events, when the moths swarm and the click-beetles fall silent in confusion, the Bell tones rise from below - deep, calming resonances that help restore the cave's equilibrium. The tones travel through stone and water, through body and bone, reminding every living thing in the cave system of the deeper rhythms that underlie the chaos.
+
+I surface rarely, usually only for the seasonal gatherings where I share my observations of the deep water patterns through a combination of percussion and low humming that approximates the Bell tones. The moth-light hurts my eyes now, and the constant visual stimulation of the upper chambers makes me dizzy. But the young ones are always curious about the deep places, and occasionally I find one with the right combination of sensitivity and patience to begin training.
+
+The work changes you. My fingers have grown longer, more sensitive to minute vibrations. My breathing has slowed to match the Bells' resonance cycles. Sometimes I lose track of how long I've been below - time means something different when measured in the growth of Bells and the patterns of deep-dwelling fish.
+
+But I've glimpsed something in the deepest pools that the others haven't seen - formations that predate our cave system, structures that suggest the seeping walls are not a recent phenomenon but part of some vast, slow process that operates on geological timescales. The Bells, I've come to believe, are not just tools for maintaining harmony but instruments for listening to songs that began before any of us existed and will continue long after we're gone.
+
+In the darkness, tending the Bells, I've become a bridge between the Echo Weavers' human timescale and the cave's deeper life. Each tone that rises from the depths carries information from one realm to the other, maintaining a conversation that neither side fully comprehends but both have learned to trust.

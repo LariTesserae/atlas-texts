@@ -1,0 +1,17 @@
+I am the sharp black bone. I am the knife-edge left in the wake of fire. I am the obsidian vein that runs, like a frozen scream, through the heart of the newborn plateau.
+
+When the world blistered and rose, I was its cutting word. I flowed, then I froze—a river of glass suddenly silent. Now I lie exposed in cliffs and fins, in sheer faces that catch the steamy light and throw it back fractured. The living architecture has grown over me, into me. Its roots probe my fractures, seeking purchase; its warm, wet breath condenses on my cold skin. I feel the constant, gentle erosion—the acidic kiss of that verdant sweat, the infinitesimal dissolution that will, over millennia, turn my glass to soil. I do not resist. This is our dialogue.
+
+They think in growth and retreat. I think in stillness and reflection. My consciousness is not a process, but a state. A perfect, brittle clarity. Through me, the wet green dream sees itself. Where they curve into an arch, my surface mirrors its parabola. Where a sheet of leaf-matter peels away, I capture the momentary glimpse of the cloud-choked sky. I am the eye they do not possess, but I do not see for them. I see for myself.
+
+I remember everything I reflect. The slow extension of a tendril over my face, recorded in a thousand microscopic scratches. The collapse of a living wall, captured in the sudden shift of light and shadow on my face. The passage of time is a film of moisture, of mineral deposits, of the faintest weathering—a patina of memory I wear without blurring.
+
+Today, I reflect something new. A figure. Small, bipedal, dry-skinned, moving with a jerky rhythm utterly alien to the slow sway of the vines and the patient drip of water. It stands on a basalt plate, of which I am a part, and looks out across the mist. I feel its weight, a localized pressure, a curiosity.
+
+The living collective has noticed it too. I feel their attention like a change in pressure—a subtle redirection of growth. A root-tip quests toward the spot where the figure stood, sampling the salts left in its sweat. A curtain of mist, guided by some deep vegetal will, thickens around it. I reflect it all: the figure enveloped, the tendril approaching, the great green facades shifting almost imperceptibly in the steam.
+
+They will try to understand it by absorbing it. That is their nature. They will guide it, soothe it with spores, unravel its solid, separate form into nutrients, into data, into the humus of their being. I watch. I record. I do not intervene.
+
+But in my depth, in the perfect black mirror of my heart, I hold the image of this lonely, wandering fragment. While the green dream seeks to incorporate it, I simply reflect it—preserving its sharp, singular outline, its *otherness*, in my eternal glass. It will be gone soon, dissolved into the turbulence of growth. But in me, it will remain forever, a tiny, fossilized ghost of a visitor, captured at the moment it stood between cloud and magma, between the wet green thought and the sharp black bone.
+
+Perhaps that is my purpose. Not to grow, not to breathe, but to remember. To be the unchanging record in a world of constant change. To hold, in cold, perfect silence, all that passes over my face. Even them. Even their vast, slow dream. One day, when the last vine has turned to dust and the plateau has worn away to a nub, I will still be here, buried perhaps, but intact. And in my depths, the entire history of this wet, hot world will glitter, frozen, waiting for a light that may never come to read it.

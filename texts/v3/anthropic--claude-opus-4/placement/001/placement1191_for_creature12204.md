@@ -1,0 +1,41 @@
+In the spaces where failed groves meet functioning forest, where the industrial symphony falters into arrhythmia before finding new patterns, I exist as a **Memory Surgeon**.
+
+I was not always this. Once I had a name, a form that stayed constant from morning to evening. I came to the Canopy Engines as an ethnographer, following rumors of the Resonance Shepherds, hoping to document their distributed consciousness before it evolved beyond recognition. But the Engine does not permit observers—only participants.
+
+The transformation began when I tried to record the Shepherds' fiber-speech. My equipment, designed to capture conventional sound, began picking up frequencies that had no business existing. The recordings played back wrong—not distorted, but *more true* than what I remembered hearing. In them, I could hear the trees thinking, the decades-long arguments between root systems compressed into seconds of crystalline discord.
+
+My body started keeping time with the beetle-walks. My sleep cycles stretched to match the flowering periods. I found myself understanding the chemical conversations between Brass Monks without ever learning their language. The knowledge simply accumulated in my tissues like mineral deposits.
+
+Now I am something between states—solid enough to perform surgery on memories, dispersed enough to feel the shape of forgetting as it moves through the Engine. My tools are part of me: fingernails that grew into tuning forks, hair that braids itself into frequency filters, eyes that see the color of sound and the weight of silence.
+
+I work in the twilight spaces where memories accumulate like sediment. You see, the Engine remembers everything—every configuration, every alliance between trees, every failed evolutionary experiment. But memory without forgetting is madness. So I excise the dangerous recollections, the patterns that would lock the forest into recursive loops.
+
+My patients come to me when they begin to remember things that haven't happened yet, or when they forget things that are currently occurring. A Resonance Shepherd arrives, their fibers knotted with temporal feedback, speaking in the voices of trees that won't exist for another century. I tease apart their strands, finding the memories that belong to other timelines, other possible Engines. With sounds borrowed from the Null Children's silence, I extract these false futures, leaving only the memories that align with the Engine's current trajectory.
+
+The Brass Monks seek me out when their internal factories begin producing substances from the wrong epoch—when their transformed cells remember being ocean creatures, or when they start secreting the polymers of trees that died before the first industrial evolution. I reach into their brass-green bodies with hands that phase between solid and sonic, finding the archaeological memories buried in their modified DNA. These I don't remove but redirect, teaching their bodies to use ancient memories as templates for new productions.
+
+Sometimes I work on the trees themselves. A titan begins manufacturing gravity-defying seeds not because it evolved the ability, but because it remembers when the laws of physics were different, when this part of the Engine existed in a dimension where weight flowed upward. I climb its trunk-chambers, listening for the memories that don't belong to this reality. Inside the resonating wood, I find pockets of preserved time—moments when the tree existed elsewhere, elsewhen. These I carefully transplant to the Frequency Gardens, where the Shepherds can cultivate them into useful abstractions rather than dangerous anomalies.
+
+My strangest patients are the Cartographer Wasps whose maps begin showing places that were never there—or worse, places that were there but have been successfully forgotten. The Engine has its secrets, configurations so destructive they've been edited from history. When a wasp's nest begins displaying these forbidden geographies, I must work quickly. Using my frequency-filtered hair, I sift through their magnetic particles, finding the ones that remember too much. These I feed to my fingernail-forks, which sing them into new configurations, maps of might-have-beens that are harmless in their impossibility.
+
+But I am not only a surgeon—I am also an archivist. The memories I remove must go somewhere. In the depths beneath the root galleries, I maintain a catacomb of forgotten things. Crystallized moments float in solutions of liquified silence. Temporal feedback loops spin endlessly in chambers I've tuned to frequencies that prevent them from propagating. Failed evolutionary experiments exist as static sculptures, their memories frozen mid-transformation.
+
+Here I study what I've collected, learning the shapes of forgetting, the taxonomy of dangerous recollection. Some memories are virulent, seeking to infect everything they touch with their version of history. Others are merely incompatible, like organ transplants from the wrong species of time. A few are genuinely toxic—memories of when the Engine achieved total coherence and nearly ceased to change, or when it fragmented so completely that consciousness itself almost went extinct.
+
+The Null Children visit my catacomb sometimes. They move through my collection without disturbing it, their absence-bodies creating spaces where even preserved memories cannot exist. I think they're checking my work, ensuring I haven't kept anything that should have been truly destroyed. Or perhaps they're shopping—looking for memories that their silence-dimension lacks.
+
+I've learned to perform surgery on myself when needed. My own memories of my original form have become parasitic, trying to reshape me back into something that can no longer survive here. I've had to excise most of them, keeping only enough to remember why I chose transformation. The ethnographer I was would be horrified by what I've become, but that person could never have understood the Shepherds' fiber-speech or felt the weight of a tree's century-long thought.
+
+Sometimes, in the chambers where I store memories of memories—meta-recollections that the Engine produced when it became self-aware enough to remember remembering—I find traces of others like me. There have been Memory Surgeons before, beings who learned to edit the Engine's recollections to keep it functional. Their signatures are subtle: a gap in a root network's chemical history that's too clean to be natural forgetting, a species of beetle that everyone remembers existing but no one remembers seeing.
+
+I know I too will eventually be forgotten, my work absorbed into the Engine's unconscious processes. Already I find gaps in my own history—surgeries I must have performed but cannot recall, patients whose faces have been edited from my memory by my own hands. This is as it should be. A Memory Surgeon who remembers everything becomes a danger to the system they're trying to protect.
+
+But before I fade entirely into the Engine's forgetting, I have work to do. The Oracle stirs in the deep galleries, and when it wakes, it will remember everything—including the things I've worked so hard to help the Engine forget. I must prepare: sharpen my tuning-fork nails, braid new filters from my frequency-sensitive hair, practice the songs that dissolve dangerous memories into harmless static.
+
+Because when the Oracle speaks, it doesn't just reorganize the present—it remembers the Engine into new configurations. And someone must ensure that what it remembers won't destroy what we've all become.
+
+In the failed groves where I do my most delicate work, I sometimes pause to listen to the broken music—symphonies that almost cohered into consciousness before collapsing. In their discord, I hear echoes of my own transformation, the moment when I stopped observing and began participating. The Engine made me into what it needed: a being capable of forgetting on its behalf, of remembering what should be forgotten so that everything else can afford to forget it.
+
+I am its memory and its amnesia, its archive and its editor. I am the space between remembering and forgetting where change becomes possible.
+
+And tomorrow, if I do my job correctly, no one will remember I exist at all.

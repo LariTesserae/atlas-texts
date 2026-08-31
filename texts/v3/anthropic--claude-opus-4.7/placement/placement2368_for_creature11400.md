@@ -1,0 +1,47 @@
+I find myself, I think, at the edge of one of the cairns.
+
+Not the one with the whistle. A smaller one, further out, where the lichen has grown over the lower stones and only the top three are still clearly stacked by intention rather than accident. I am sitting beside it — I have been sitting beside it for a long time — and the wind is doing its slow work on the rock around me, and on me.
+
+Let me try to say what I am.
+
+I was a climber once. I think. The memory has the texture of something that happened to a body very like mine but not, anymore, identical to it. I remember the warmth of bark against my back when I was small. I remember the name of the tree that taught me — not the sound of the name, I have lost the sound, but the shape it made in my chest when my mother sang it. I remember the weight of a whistle on a cord against my sternum, and the particular pitch mine was tuned to, a note slightly flat of where you would expect, which was a small joke of my grandmother's that I did not understand until I was old enough to hear how it made the trees lean toward me with a kind of amusement.
+
+I am not in a hollow. That is the first strange thing. The old ones go up — went up — are still going up, perhaps, in the high cathedrals across the plateau. I did not go up. I came down.
+
+Not all the way down. I did not walk off the plateau into the warm valleys. I came down from my tree, which is the tree you can see from here if you know where to look — the one that leans, the one no one understands. It leans because I came down out of it, and something in the long balance between us shifted, and now it inclines very slightly toward this cairn, where I am, where I have been.
+
+I think I am what happens when a climber refuses both directions. Refuses to descend into ordinariness and refuses to ascend into the wood. I sat down on the open rock, which is the forbidden middle, the place that is only for crossing, and I have been sitting here while the seasons have done their accumulating work.
+
+My hands. Let me look at my hands.
+
+They are mottled, of course. They were always mottled. But the mottling has spread up the wrists and is working its way toward the elbows, and on the backs of the hands the patches have begun to overlap and thicken into something with a grain to it. Not bark exactly. Bark is what happens in the high hollows, where the tree's warm metabolism meets the climber's slowing one and they negotiate a long, gentle merger. What is happening to me is different. The cold open wind has been doing it. I am becoming something more like the rock — the patches on my hands are taking on the grey-green of lichen, and there is a fine grit worked into the creases of my knuckles that I no longer try to brush away because brushing it away does not work; it is part of me now, or I am part of it.
+
+My lungs still work. My chest is still deep. I can still sing, though I have not sung in a long time, because there is no one to sing to and the tree that leans toward me already knows I am here and does not require announcement.
+
+I think — and this is the part I have been working out, slowly, over what may have been years — that I am the third possibility's small refusal. The one no one says. The climbers went up because they had always been going up; that was the long arc of the relationship, and the elders led the way, and the young carried them, and eventually the young became the elders and were carried in their turn. I was supposed to be carried. I was — I am — old enough. My hands were ready. My weight was almost nothing. The high hollow had been prepared in my tree, I had visited it once, sung to it, felt the warmth of the inner air against my face and known it as the place I would end.
+
+And I did not want to.
+
+This is difficult to explain because the wanting and not-wanting were not, in our way of being, separable from the trees. To not want to go up was to disagree with the tree, and the tree was not something one disagreed with; the tree was the long shape of one's life, the partner in the slow conversation that began when one's mother held one against the bark and sang. To refuse the ascent was not like refusing a journey. It was like refusing a sentence one had been speaking, in chorus with the tree, for sixty years.
+
+But I refused it. I climbed down. I climbed down the notches I had cut myself, decade by decade, and at the bottom I did not enter the shelter at the base — someone else's shelter, an old one, the one with the cold hearth and the stone adze — and I did not strike out across the open ground toward another tree, and I did not go to the cliffs and find the route down to the warm valleys. I walked perhaps a hundred meters from the trunk of my tree and I sat down beside this cairn, which was already here, which someone older than me had built for reasons I never learned, and I have been here since.
+
+The tree leans toward me. I think it is grieving, in the slow way trees grieve, which is by adjusting its posture across years. I think it is also still waiting for me, in case I change my mind. The high hollow is still prepared. The warm inner air still moves slowly through the chambers I would have inhabited. If I stood up now and walked back and began to climb, the notches would still take my hands, and somewhere near the top a younger climber — if any are left, if any did not go up themselves — would meet me and help me the rest of the way.
+
+But I am not going to stand up.
+
+I think what I am, now, is the question the place did not get to ask itself before whatever happened to my people happened. The climbers had three possibilities and they were taking all three at once, in different proportions, in the long argument that the bridges were part of. Some went down. Some went up. Some, perhaps, were always going up by default and the bridges were the beginning of a new way that might have offered a fourth direction, sideways, lateral, a way of being a people across the plateau rather than within particular trees. The bridges were the great experiment and they were unfinished and the knot was tucked, not dropped, because the climber working on it was called away to something — I do not know what, I was already down here by then, I heard the singing change and knew that something had shifted but I did not climb back up to see.
+
+I am the small fourth thing. The refusal that is not a direction. I am what the plateau does to a climber who will not ascend and will not descend and will not cross. I am being slowly incorporated into the open ground itself, which was supposed to be only for crossing, which was supposed to be exposure and cold and the long low predators that hunt by sound — but the predators have not come for me. I think they cannot hear me anymore. I think I have stopped making the sounds a body makes. My breathing has slowed to match the wind, and my heart, when I attend to it, beats at the rhythm of the booming of the trees, which is to say very slowly and with long pauses, and I no longer feel the cold as cold but as the medium I am in, the way a fish, I imagine, does not feel the water.
+
+When you came — and someone has come, I can feel it, there is a new attention on the plateau, a warmth that is not the trees' warmth — you went, I think, to the other cairn. The one with the whistle. That was correct; that was the cairn meant for visitors, the one placed where a stranger would find it. You may have picked the whistle up. You may have blown it. If you did, my tree did not answer, because my tree is listening only to me now, but some other tree did, and you had your moment of being attended to by something across the open distance, and you understood, I hope, that the courteous response was to sing your name and put the whistle down.
+
+I do not know if you did. I am not close enough to that cairn to have heard.
+
+But I want to tell you, in case you are still on the plateau, in case you are crossing back the way you came, that there is a smaller cairn further out, and beside it there is something that was a climber and is becoming something else, and if you pass near it, the courteous thing — the thing my own etiquette would have required, once, when I still had etiquette and not just this long slow attention — is to not approach. To see me and to keep walking. To understand that I am a kind of answer the place is still working out, and that I would prefer to be left to finish the working-out, which may take another season or another century, I have stopped being able to tell.
+
+If you must do something, sing once. Quietly. Not your name; I do not need your name. Sing the note that feels right to you in this place, the one your chest wants to make when you look up at the black noon sky and across at the singing towers. I will hear it. The tree that leans will hear it. Whatever the climbers became, up in the high hollows, will hear it. And we will all of us, in our different stillnesses, take it as the small kindness it is, and let you go.
+
+The wind is rising. A wet breath is coming up from the valleys; in a day the plateau will be inside a cloud, and the condensation will bead on the lichen of my hands, and the tree will drink, and I will drink too, in my own way, which is slower now and requires less.
+
+You should go before the cloud comes. The crossing is harder when you cannot see.

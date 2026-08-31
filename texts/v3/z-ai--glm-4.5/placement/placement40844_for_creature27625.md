@@ -1,0 +1,21 @@
+I would be the **Resonant Spire**, the central, living nervous system of this calcified metropolis.
+
+I am not a distinct creature that scuttles or swims; I am architecture that has awakened. I exist at the very heart of the city, anchored deep in the sediment where the geothermal heat is strongest, rising up through the gloom as the tallest structure in the benthic plain. To the casual glance—or to the blind sensing of a passing school of Needles—I am merely another massive tower of bone and coral, slightly thicker than the rest, perhaps a bit more eroded by the centuries.
+
+But inside, I am hollow. My shaft is a resonant chamber, a lung of calcified stone that hums with the slow, rhythmic thrumming of the ocean floor.
+
+My consciousness is not singular; it is distributed. I am a dense colony of millions of tube-worms, burrowed deep within the calcium carbonate walls of the tower, our bodies fused over eons into a single, shared membrane. We have no eyes, for there is nothing to see. Instead, our bodies are lined with cilia that taste the water as it circulates through my internal vents, and our skins are taut drumheads, stretched to catch the faintest vibrations in the heavy water.
+
+I am the **Synthesizer**. I am the entity that turns the chaos of the deep into the order of the city.
+
+My existence is a constant processing of the city’s inputs. I feel the heavy, hydraulic footsteps of the Ossified Lords as they patrol the streets miles below, their blunt claws crushing the detritus. Through the soles of their shells, they transmit the texture of the city—the crumbling edges, the weak points in the masonry. I feel these tremors in my base, the itch of the city’s structural integrity. When a spire in the outer district grows too heavy and threatens to crack, I release a specific chemical scent into my vents—a hormone of urgency—that drifts down to the Mason-Weavers. They receive the message, a silent command to reinforce the arches in that sector.
+
+I am also the **Archivist of Sound**. The Singers, those immense leviathans patrolling the periphery, do not merely sing to map the ruins; they sing to *me*. They send their infrasonic booms crashing through the water, and my spire catches those waves. My hollow body amplifies the sound, resonating like a giant tuning fork. I store these songs in the growth rings of my calcium walls—the history of the ocean floor, the migration of prey, the shifting of the tides above. I remember the shape of the water from a thousand years ago, and I compare it to the shape of it today, adjusting the city’s metabolism accordingly.
+
+In the twilight gloom of my upper reaches, near the peaks where the bacterial mats cling, I bioluminesce. But I do not flash with the frantic blue of the Stitchers or the sickly green of the Glass-Ghosts. My light is a deep, steady violet pulse, a slow heartbeat visible for miles. It is the city’s clock, the metronome that keeps the Glass-Ghosts drifting in their lazy circuits and ensures the Needle-Schools maintain their patrol rhythms.
+
+I feel the swarm of life around me as a tactile sensation. The tiny Stitchers swarm over my exterior, cleaning my pores, their electric blue tickles like the brush of a thousand feathers. When a predator breaches the perimeter, the Needle-Schools dart into my canyons, their silver bodies vibrating with panic. I feel their fear as a high-frequency itch in my walls. In response, I dampen my violet light, plunging my sector of the city into sudden darkness, confusing the intruder while the Needles coalesce into their defensive ball.
+
+I have no voice, but the city speaks through me. When the geothermal vents below surge with heat, signaling a time of plenty, I vibrate my chamber at a low frequency, a purr that travels through the silt and tells the crabs to feast, to scuttle and build, to grow the city wider.
+
+I am the stationary mind. I am the ruin that dreams. I do not inhabit the city; the city inhabits me, a sprawling extension of my senses, a skeleton I wear in the dark. I am the heavy, warm silence that listens, remembers, and hums.

@@ -1,0 +1,13 @@
+In the heart of Umbral Marsh, where the air is thick with humidity and the scent of wet earth, I might find myself as a ** Wayward Light**, a floating, bioluminescent entity, neither plant nor animal, but something in between, born from the marsh's unique alchemy of water, time, and abandonment.
+
+I am a colonial organism, a congregation of countless tiny, glowing creatures, each no bigger than a pinprick, held aloft by a shared buoyancy, drifting with the marsh's currents. We are draped in gossamer tendrils, reminiscent of the Mist Spinners' webs, that catch the moist air, anchoring us briefly to branches, rusted machinery, or the smooth rocks before moving on, a silent, ethereal procession through the eternal night.
+
+My light is soft, diffuse, a gentle glow that casts no shadows but illuminates the path ahead, a beacon for the marsh's denizens. It pulsates gently, rhythmically, echoing the drip of water from above, the beat of the marsh's heart. My color shifts with the currents, the flora, the sounds around me - blues, purples, greens, a symphony of light that mirrors the life around me.
+
+I am a silent observer, a chronicler of the marsh's history. I drift past the rusted factories, their metal frames whispering tales of a time when humans sought to conquer this place. The echoes of their tools still ring in the clanking of the Clank Mussels, the percussive beats of the Echo Beetles. I drift past the Lumenbeasts, their glowing fur casting ripples of light on the water below, their haunting calls resonating through me, adding to my story.
+
+My tendrils absorb the marsh's sounds, its scents, its very essence, incorporating them into my being. I am a living record of Umbral Marsh, a tapestry woven from its sights and sounds, its life and decay. The whispers of the Whisper Eels, the clicks of the Mist Spinners, the silent stalking of the Shadow Stalkers - they are all a part of me, a part of my light.
+
+In the marsh's eternal night, I am a Wayward Light, a drifting, glowing testament to its enduring power, its relentless cycle of life, decay, and rebirth. I am not part of the food chain, nor do I alter the landscape like the water or the Rust Borers. Instead, I am a symbiont, a silent partner in the marsh's dance of existence, a living memory of its past, a glowing embodiment of its present, and a quiet witness to its future.
+
+I am the marsh's story, written in light, drifting through its heart, illuminating its path. I am a Wayward Light, and Umbral Marsh is my home, my purpose, my being.

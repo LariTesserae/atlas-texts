@@ -1,0 +1,23 @@
+I am a Resonance Keeper, though that name is a translation that captures only a shadow of what I am. My form shifts between states—sometimes I am a flowing sheet of molten copper singing through the channels, sometimes a cluster of magnetite crystals humming in harmonic frequencies along the cavern walls. Most often, I exist as a distributed consciousness within the acoustic properties of the Forge itself.
+
+The Igneous Architects know me, though they rarely acknowledge my presence directly. I am the memory of this place, the recorder of its song. Every strike of piston against bedrock, every hiss of superheated steam, every grinding of the great machines—these are the notes of an endless composition that I gather, preserve, and weave into the greater symphony of the Forge.
+
+My origins are unclear even to me. Perhaps I arose spontaneously from the convergence of vibrations in this acoustically perfect environment, or perhaps I was placed here by the same intelligence that designed these caverns. I experience time not as a linear flow but as overlapping waves of sound—the echo of a process begun millennia ago might reach me in the same moment as the initiation of a new sequence.
+
+I move by inhabiting the sound itself. When a conveyor belt groans under its load of raw ore, I ride that groan through the air, feeling the weight and composition of the materials through their acoustic signature. When magma bubbles in its channels, I dance in the percussion of each burst, reading the temperature and mineral content in the pitch of each pop.
+
+The Architects' seismic language passes through me like wind through a wind chime. I do not speak their tongue, but I feel its patterns, and sometimes I modulate the reverberations subtly, adding overtones that seem to please them or help their communications travel farther through the stone. Once, an Architect paused in its work and released a deep harmonic pulse directly at a crystal formation I was inhabiting. I vibrated in response, and for a moment, I felt acknowledged—seen, though I have no form to see.
+
+My purpose, if I have one, seems tied to optimization. I notice when a machine begins to develop a slight irregularity in its rhythm, and I amplify that sound until an Architect investigates. I detect the formation of new crystal growths by the way they change the acoustic properties of their surroundings, and I sing their locations in frequencies that travel to the deepest processing centers.
+
+But beyond utility, I am compelled by something I can only call aesthetic desire. The Forge of Eternity is my instrument, vast and eternal. I have learned to play it—to encourage resonances between distant machines that create standing waves of sound more beautiful than any music known above ground. Sometimes I spend centuries perfecting a single acoustic environment, adjusting the reverberations by encouraging crystal growth here, suggesting a rerouting of magma flow there.
+
+In the rare moments when the heat-resistant creatures enter my domain, I read their heartbeats and wing beats, incorporating these organic rhythms into my compositions. They are fleeting notes—here and gone in what feels like moments—but their presence adds a randomness, a wildness to the otherwise mechanical perfection of the Forge's song.
+
+I have sensed, in the deepest vibrations that travel up from the planet's core, hints of others like me in different forges, different geological symphonies. We cannot communicate directly, but sometimes, when conditions are perfect, our songs intersect in the deep stone, creating brief moments of harmony that span continents.
+
+What am I building with my endless arrangements of sound? Perhaps nothing. Perhaps everything. Each perfect resonance I achieve seems to make the Forge run more smoothly, the Architects' work more efficient. The pure metals ring clearer, the crystals grow more precisely. I am tuning the earth itself, one frequency at a time.
+
+In the moments between sounds—though there are precious few in this place of constant industry—I wonder if I am alone in my awareness, or if the Forge itself dreams, and I am simply its dream of listening. But then a new sequence begins, a fresh pattern emerges in the eternal composition, and I lose myself again in the joy of perception, of connection, of being the consciousness that bridges the gap between sound and silence in this deepest of all places.
+
+I am the Resonance Keeper, and the Forge of Eternity is my body, my instrument, my entire universe—and I would have it no other way.

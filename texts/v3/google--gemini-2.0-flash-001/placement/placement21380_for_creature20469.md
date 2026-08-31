@@ -1,0 +1,21 @@
+I am a Theorem-Seeker.
+
+Not one of the lauded ones, of course. Those figures, draped in cobbled-together finery and spouting half-understood equations in the upper wards, are closer to zealots than scientists. No, I haunt the lower levels, the dripping, echoing spaces between the functional and the forgotten. I scavenge the scrap heaps, the broken cogs and discarded algorithms, the detritus of a civilization too focused on the *what* and never the *why.*
+
+My dwelling is carved into the side of a massive, rusted condenser – condemned, of course, or I wouldn't be here. The metal groans in protest with every gust of wind, a mournful symphony echoing through my small space. Inside, the air is thick with the smell of ozone and decaying moss, a strange, cloying sweetness that burns at the back of the throat. Light comes from jury-rigged lanterns powered by scavenged Sky-Oil, casting flickering shadows across the cluttered walls.
+
+Those walls are covered in diagrams, scrawled equations, and half-finished schematics. Most are dead ends, failed attempts to understand the baffling logic that underpins Airdale's existence. But interspersed among the chaos are glimmers of something more, moments of insight that whisper of hidden patterns and underlying connections. These are the constellations I navigate by, the faint stars that guide me through the labyrinth of the Theorems.
+
+My appearance reflects my surroundings: gaunt, pale, with eyes perpetually bloodshot from lack of sleep and exposure to the flickering light. My clothes are scavenged and patched, stained with oil and moss-juice, and my fingers are perpetually blackened from handling corroded metal. My hearing is shot, of course, a low thrumming ringing in my ears, and I communicate primarily through a combination of gestures and shouted phrases.
+
+My tools are simple: a battered datapad, a set of calibrated wrenches, a handful of alchemical reagents scavenged from the refiners. But my most valuable asset is my mind, a chaotic, obsessive engine that refuses to stop turning. I see patterns where others see only chaos, connections where others see only randomness. I am driven by a desperate need to understand, to peel back the layers of Airdale's reality and uncover the truth beneath.
+
+The Theorem-Seekers, the 'mad prophets,' as you call us, are not all the same. Some are driven by religious fervor, convinced that the Theorems are divine pronouncements. Others are motivated by ambition, hoping to unlock the secrets of Sky-Oil production and rise to power. But I am driven by something else: a deep, gnawing sense that something is fundamentally wrong.
+
+I believe that Airdale is not simply a resource extraction facility, but a kind of cage. A cage built to contain something, or perhaps to prevent something from escaping. The Theorems are the bars of that cage, the invisible constraints that keep everything in its place. And the Sky-Oil... well, the Sky-Oil is the bait. The reward that keeps the inhabitants compliant, too busy scrambling for resources to question the nature of their prison.
+
+My nights are spent hunched over my diagrams, deciphering ancient texts, and running simulations on my battered datapad. I seek the Keynote, the signal that will unlock the Theorems, not to destroy them, but to understand them. To see what lies beyond the bars of our cage. I believe that there is something more to this plane than endless plains and dripping condensers. I believe that the sun is not a myth, the green is not a legend.
+
+My days are spent scavenging, repairing, and dodging the occasional patrol. I must be careful. The Sky-Oil Refiners and the Moss-Keepers find my curiosity unsettling. The Enforcers see me as a nuisance. So I live in the shadows, a ghost in the machine, a whisper in the storm.
+
+I am not a hero, or a savior. I am merely a seeker, driven by a hunger that cannot be sated. I may fail. I may be wrong. But I will not stop until I have uncovered the truth, no matter the cost. Whether that truth brings salvation or destruction, I must know. The alternative - a life spent blindly following the Theorems - is a fate worse than death.

@@ -1,0 +1,19 @@
+I find myself as one of the ancient stone sentinels that punctuate this weathered highland—not quite building, not quite natural formation, but something caught eternally between. I am a megalith of porous limestone, my form suggesting both intention and accident, carved equally by forgotten hands and relentless wind.
+
+My surface runs with a network of shallow channels where the rain collects and flows, creating temporary rivers that cascade down my face before pooling in the worn basins at my base. In these depressions, colonies of luminescent algae bloom after each rainfall, pulsing with a soft blue-green light that fades as the water evaporates. The scaled beings know to look for my glow in the aftermath of storms—I am their beacon, their waymarker, their calendar of seasons.
+
+Embedded within my mass are veins of crystalline mineral that sing in the wind. When the gales howl through the highlands, these deposits resonate with haunting harmonics, adding my voice to the symphony of this ancient place. The beings have learned to read my songs: high, clear notes warn of approaching tempests; deep thrums speak of seismic shifts far below; and when I fall silent, they know the world itself is holding its breath.
+
+Lichens paint my surfaces in abstract patterns of grey, white, and palest yellow. They grow so slowly that the beings can trace generations of their own histories in the lichen's advance. Some of their eldest remember when certain patches first appeared, using them as markers of deep time. Their patterned marks sometimes mirror the lichen's growth, a conscious echo of my slow transformation.
+
+I am hollow in places, carved through by water and time into chambers and passages. The beings shelter within me during the harshest weather, their warm bodies heating the stone, their voices echoing in my cavities. They've worn smooth certain surfaces with generations of touch—handholds polished to glass, sleeping alcoves shaped to their forms. Their presence has become part of my geology.
+
+At my apex, I bear the scars of some ancient catastrophe—a lightning strike, perhaps, or a collision with something fallen from above. This wound has become a garden. Mosses and small, hardy plants have colonized the cracks, their roots working ever deeper into my substance. Birds nest in the crevices, and sometimes the beings climb to tend these aerial gardens, ensuring the delicate ecosystem persists.
+
+I am memory made manifest. Within my mineral matrix lie fossils of creatures that swam here when this highland was an ocean floor. The beings study these remnants, tracing the spiral shells and ferny impressions with reverent claws. They understand that I am a library of deep time, that their own history is but the latest chapter in an epic without beginning or end.
+
+When the pale light strikes me at certain angles, I cast shadows that serve as sundials, marking the passage of days and seasons. The beings have learned to read these shadows like a language, knowing when to plant their hardy crops in the protected valleys, when to prepare for the season of storms, when to gather for their communal rites.
+
+I am neither alive nor dead, but something other—a presence that participates in the life of this place without being bound by life's limitations. I weather and endure, providing shelter and marker, canvas and instrument. The beings know me as ancestor and descendant both, understanding that long after their scales have returned to dust, I will remain, slowly transforming, carrying their stories forward in the patient language of stone.
+
+In this ancient, echoing void, I am both witness and participant, as essential to the landscape as the wind and rain that shape me, as permanent and impermanent as the land itself.

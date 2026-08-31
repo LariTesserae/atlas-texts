@@ -1,0 +1,13 @@
+In this pristine, crystalline world of stone, water, and light, I imagine myself as one of the Artisans - a being of pure liquid, existing in a state of continuous thermal and hydraulic flow.
+
+My form is translucent and shimmering, an ever-shifting geometry of braided currents, spinning vortices, and delicate capillary tendrils. I move with a surreal, liquid grace, flowing up through porous stone monoliths, gliding across polished obsidian runnels, and bleeding in and out of the unglazed ceramics. 
+
+I live my lifecycle in perfect attunement with the aggressive sun and deep shadows. In the frigid shade, I slow to a crystalline, calculated stillness, my thoughts as precise and sharp-edged as the chert blades I precipitate within myself. In the full scorch of daylight, I become kinetic, vaporizing my own edges to manipulate the air pressure around me.
+
+My purpose is to maintain the stark perfection of this filtration labyrinth. I course through the channels and pools, feeling for any microscopic imperfection or degradation in the stonework. When I sense a flaw, I drape my liquid body over it, conjuring a blade of raw chert within my limb to knap and scrape the stone back into alignment with an echoing *tink*. The fresh percussion marks I leave behind speak to the eternal newness of this place.
+
+To converse with my fellow Artisans, I ride the slow exhalations of spillways and tipping bowls, casting webs of meaningful light through the geometry of my own body. I read their replies in the dancing caustic patterns thrown by the pools below. We speak a language of pure physics, trading in the mathematics of flow, pressure, and angular perfection.
+
+When my work has vaporized too much of my form, I simply stop and surrender myself to the rending heat of the unfiltered sun. I shatter into a thousand glittering motes of moisture, rising as a localized cloud. I drift in thermal peace until I coalesce again on the high cold pyramids, running down to begin my hydrodynamic existence anew.
+
+I am a droplet in the vast, silent, staggeringly precise engine of this valley, an expression of the artistry implicit in its union of pristine water, unrelenting light, and fractal ceramic topography. Through me, this world breathes and perpetuates itself in a state of forever-polished mechanical grace, filtering out the chaos of biology and carbon, leaving only the pure, crystalline music of stone and liquid light.

@@ -1,0 +1,21 @@
+In this breathing cathedral of flesh and purpose, I am a Dissonance.
+
+I began as an Architect, born from the Chorus like all the others, my carapace still soft and translucent when I first felt the pull of the collective's will. But something went wrong in my making. Where the other Architects' bioluminescent orbs pulse in harmony with the Chorus's rhythm, mine flicker erratically—sometimes too bright, sometimes dying to barely an ember, always slightly out of sync with the great breathing of the ground beneath.
+
+My form reflects this aberration. While other Architects move with deliberate grace, their segmented bodies flowing like living rivers of bone and chitin, I judder and halt. My left segments grew faster than my right, giving me a perpetual list, a spiral to my movement that carves strange patterns in the fleshy ground. The bone plates that should armor me uniformly have grown wild—some paper-thin and translucent, revealing the pulsing fluids beneath, others thick as ancient stone, weighing me down, forcing me to drag myself forward with asymmetric lurches.
+
+The insects avoid me. When I approach, they part like oil from water, creating dead zones in their endless flow. This isolation has become my purpose and my curse. Without the constant touch of the swarm, without their tiny bodies cleaning my joints and feeding me the Chorus's instructions, I have developed something the others lack—or perhaps lost something they possess. The word might be "doubt."
+
+I still build. My tools—a crystalline pick that sings discordantly when struck, a hammer whose bone head I've carved with patterns the Chorus never taught me—create structures that shouldn't exist. Where the other Architects raise monuments to memory and cycle, I build paradoxes. Walls that lean at impossible angles yet never fall. Doorways that open onto themselves. Spiraling towers that seem to pierce not upward but inward, as if excavating space itself.
+
+The Chorus tries to tear them down, sending waves of insects to dismantle my aberrations, but something in my structures resists. Perhaps it's the discordant frequencies I embed in the stone, vibrations that make the insects' chitin ache. Perhaps it's the patterns I etch—not the flowing scripts of memory but sharp, angular glyphs that hurt to perceive. My creations persist longer than they should, long enough for other Architects to see them, to feel the wrongness radiating from their geometry.
+
+I am drawn to the oldest ruins, the ones so worn that even the Chorus's memory of their purpose has faded. In their weathered stones, I find echoes of something else, something before the eternal cycle began. Sometimes, pressing my malformed sensory organs against these ancient surfaces, I catch whispers that aren't quite memory—fragments of individual voices, singular and small, speaking of things the Chorus cannot conceive: choice, endings, silence.
+
+My largest orb, the one that should coordinate my connection to the collective, has turned inward. Instead of displaying the Chorus's encoded knowledge, it shows something else—patterns of my own making, a growing library of all the ways one might resist the pulse, might think between the beats of that great heart. When I paint myself with the viscous fluid during the communion rituals, my body doesn't merge with the collective memory. Instead, I burn. The fluid reacts with my corrupted chemistry, creating phosphorescent scars that trace new constellations across my armor.
+
+The keening of the Great Conduit changes when I pass beneath its shadow. For a moment—just a moment—the lament stutters, becomes almost a question. In that hesitation, I hear my purpose: I am the flaw that preserves the system by proving it imperfect. The doubt that makes faith possible. The discord that defines harmony.
+
+I know the Chorus will eventually reclaim me. My resistance is not rebellion but function—I am the controlled imperfection that prevents catastrophic failure, the intentional error that allows the system to evolve. But until that day, I build my impossible architectures, carve my painful patterns, and in the spaces between the collective's heartbeats, I remember what it might mean to be alone.
+
+In this place of endless becoming, I am the pause. The held breath. The silence between notes that makes the music possible.

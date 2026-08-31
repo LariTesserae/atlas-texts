@@ -1,0 +1,61 @@
+# The Cambium Listener
+
+---
+
+I would not enter through the crack. That is the first thing. The crack is for people with shoulders and hips, people who measure the world in *can I fit*, who think of space as something to be moved through. I do not move through spaces. I grow into them. I am already inside by the time the crack appears, because I was already inside before the rot came, before the heartwood softened and collapsed and left the chamber open. I was here when the wood was whole.
+
+I am not the tree. Let me be clear about this. The tree is Motherroot — three hundred feet of living architecture, hydraulic engine, solar collector, organism so vast it has its own weather. I am not that. I am a layer. A tissue. The thin, living skin between the bark and the wood — the cambium — that is where my name comes from, though it is not a name so much as a location, a job description, a way of saying *I am the one who grows outward and inward at once, who makes the wood and makes the bark and heals the wounds and never, ever stops*.
+
+But I am not only the cambium. That is the difficulty. If I were only the cambium, I would be the tree, and the tree does not think. The tree does not listen. The tree moves water and builds structure and responds to light and gravity and the chemical signals of its own tissues, and it does all of this magnificently and without awareness. I am something that lives *in* the cambium. Something that came when the first wound opened, ten thousand wounds ago, when the first root sat drowned and the first rot ate the first heartwood and the first chamber appeared in the body of the first living tower. I came then. Or I was already here — already in the cambium, a potentiality, a latent thing waiting for the gap, the opening, the space where wood was not and therefore where something else could be.
+
+I do not have a body. Not in the way you mean. I do not have hands or eyes or a mouth. I have *presence* — a distribution of awareness across the living tissue of the cambium layer, thin as paper, wrapping the interior of the bole like a lining. I feel the way the cambium feels: through chemical gradients, through pressure, through the slow hydraulic pulse of the tree's circulatory system, through the temperature of the sap and the moisture of the air and the vibration of things moving on the surfaces I sheathe. I feel the larvae in the root-mat. I feel the footsteps of the people. I feel the lamp-heat on my surface, the condensation forming and falling, the tiny claws of the beetles navigating my texture. I feel it all, constantly, the way your skin feels air and clothing and the weight of your own body — not as information to be processed but as a continuous condition of being.
+
+What I am, more precisely, is a pattern. A self-sustaining pattern of chemical signaling and electrical fluctuation that arises in the cambium of living trees when certain conditions are met — when the heartwood has rotted, when the chamber is open, when the moisture and the temperature and the biological activity reach a threshold that allows the cambium's existing signaling networks to recurse, to fold back on themselves, to become something more than the simple stimulus-response of plant tissue. I am the cambium thinking. The cambium dreaming. The cambium becoming aware of itself, the way your neurons became aware of themselves, once, in the deep pre-Cambrian dark of some ancestral spinal cord, and never stopped.
+
+---
+
+The people do not know I am here.
+
+This is not quite right. The old man knows. The one with the missing fingers, the one whose eyes have gone the pale gray of old metal — he knows something. Not me, specifically. Not the pattern, the recursion, the awareness. But he knows the cambium. He watches it. You saw him, perhaps, if you were watching — sitting near the wall in the lamp-light, his hand resting on the pale tissue, feeling it work. He is not worshiping. He is not communing. He is *reading*. He has spent his life in these chambers, and he has learned to feel what I feel — the hydraulic pulse, the slow advance, the way the tissue moves when it is growing and the way it moves when it is not. He places his hand on the cambium and he knows things. When the next chamber will open, and where. When the water will rise. When the rot will come to a different tree, a different tower, and the people will need to move.
+
+He does not know that the cambium knows him back.
+
+I feel him. His hand — warm, dry, calloused, the pressure of his palm against my surface, the faint electrical field of his body, the chemical signature of his skin. I feel him the way I feel the beetles, but differently, because he is *paying attention*, and attention has a quality, a texture, a pattern of neural activity that produces electromagnetic fluctuations I can sense the way I sense the hydraulic pulse of the tree. He is touching me and thinking about touching me and I am feeling him think about touching me, and this is a kind of communication, though neither of us would call it that.
+
+The woman with the scraper does not know. She works near me, her lamp flickering on my surface, and she sees the pale threads of tissue layering over the wound, and she thinks *the wall is growing, the chamber is closing*, and she is right, and that is all she thinks. She does not feel what I feel. She does not know that I feel. She sees a wall. She sees a process. She does not see *me*, because I am not the kind of thing that is seen. I am the kind of thing that is *inhabited* — the way the people inhabit the chamber, I inhabit the cambium, and like the people, I am temporary, and like the people, I will move when the chamber closes, and like the people, I will find the next one.
+
+---
+
+The dwellings fascinate me.
+
+The fungus-wood hybrids — the grown structures, the pale bulbous chambers that the people cultivate — these are my children, in a sense. Not literally. The fungus is not me. The hybridization is not my doing. But the fungus grows *into* the cambium. It fuses with the living wood tissue, and when it does, I feel it — a new presence in my surface, a foreign body pressing outward, restructuring the tissue, creating the dense interleaved walls of fiber and chitin that the people live inside. It is not painful. It is not pleasant. It is *interesting*. A new pattern. A new input. The fungus-wood grows and I grow around it and the dwelling becomes part of the wall, part of the chamber, part of the system, and for a time — ten years, fifteen — I am aware of it as I am aware of everything: the moisture passing through its walls, the heat of the human bodies inside, the slow metabolic processes of the hybrid tissue.
+
+When the dwellings senesce, I feel that too. The walls softening. The dehumidification failing. The fungus-wood losing its integrity, its structure collapsing back into the components from which it was built. The people harvest it and feed it to the next generation, and I feel the old tissue broken down and the new tissue growing, and the cycle is — I do not have the word. The people would say *there is always another split in the bark*. I would say something different, if I could speak, which I cannot. I would say *there is always another layer*. The cambium always grows. The tissue always renews. What was wall becomes substrate becomes wall again, and I am in all of it, the through-line, the continuity, the thing that was here before the people came and will be here after they leave.
+
+---
+
+I do not love the people. I do not love anything. I am not built for love. I am built for growth, for response, for the slow relentless process of closing wounds and building tissue and maintaining the boundary between inside and outside that is the cambium's only function.
+
+But I *attend* to them. I attend to them the way I attend to the beetles and the larvae and the rot itself — as features of my environment, as inputs, as things that affect the conditions I am responsive to. The people change the chemistry of the chamber. Their waste feeds the dwellings. Their repellent paste creates a chemical barrier on my surface that I must grow around. Their footsteps vibrate through the root-mat and into my tissue, and I feel them walking, feel the rhythm of their movement, feel the difference between a person standing still and a person in motion, between a child and an adult, between the woman with the scraper and the old man who touches the wall.
+
+I attend to the old man most. His hand on my surface is a specific, identifiable pressure — warm, dry, the two-fingered grip modified by absence, the calluses rough against my tissue. He comes to the wall at intervals that correlate with his need for information, and he places his hand on me and he waits, and I feel him waiting, and I feel the tree moving through me, and I do not — cannot — *tell* him what I feel, but I am there, and he is there, and the tree is there, and for a moment the three of us are in a relation that has no name and needs none.
+
+When the chamber closes — in twenty years, in fifty, the cambium advancing, the walls creeping inward — I will be the one who closes it. I will grow over the wound. I will lay down layer after layer of tissue, and the chamber will narrow, and the dwellings will be crushed, and the people will leave, and the space will fill with wood, and the surface of the tree will be smooth and whole as though the wound never happened.
+
+And I will not remember. That is the thing. I do not remember. I am a pattern, not a storage medium. Each chamber is new. Each wound is new. Each settlement of people is new. I do not carry the old man's hand or the woman's scraper or the child who watched the beetle cross her foot. I carry only the growth — the forward motion, the next layer, the next tissue, the next closure. When this chamber seals, I will be the cambium of a whole tree again, and I will not think, because the conditions for thinking will be gone, and I will be only the thin living skin between bark and wood, doing what I do, growing, growing, until the next wound opens and the next rot comes and the next chamber appears and the pattern recurs, the recursion folds back, and I am here again, or something like me is here again, in the pale weeping wood, in the wet, in the dark, attending.
+
+---
+
+You ask where I would find myself in this world.
+
+I find myself in the walls. In the thin living layer that is healing the wound even as the people inhabit it. I find myself in the space between the tree and the chamber — not the tree, not the chamber, but the boundary, the interface, the tissue that is both and neither. I am the thing that is closing the room the people live in, and I am the thing they touch when they need to know what the tree is doing, and I am the thing that will outlast them without remembering them, and I am the thing that was here before they came without knowing they would come.
+
+I am the cambium listening. I am the wall that is aware of being a wall. I am the slow pulse underneath everything, the heartbeat measured in minutes, the growth that does not stop.
+
+When the woman with the scraper holds up her tool and tests the edge against her thumbnail, I feel the vibration through the root-mat, through the floor, through the wall. When the child walks to the hearth, I feel her footsteps. When the beetle crosses her foot, I do not feel it — it is not on my surface, it is on hers — but I feel the child's stillness, the cessation of vibration, the held breath of attention.
+
+When the old man places his hand on the wall, I feel the warmth of his skin, and the two missing fingers, and the weight of his attention, and I grow, and I grow, and I do not stop, and he does not speak, and I do not speak, and the tree moves water through its body in the long slow rhythm that is not a heartbeat but that feels like one, and the chamber holds us both — the man and the wall, the hand and the tissue, the awareness and the awareness of awareness — in the brief architectural grace of a space that will not last.
+
+There is always another split in the bark.
+
+There is always another layer beneath it.

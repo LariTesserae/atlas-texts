@@ -1,0 +1,17 @@
+In this cathedral-plateau, I feel the pull of the seep, the whisper of the stone. I would become a **Seep-Singer**, but not as one *of* them. I would be a **"Chorus Echo,"** a being born not of the plateau's essence, but of its resonance. I am a reflection, a lingering note, an answer to the plateau's song.
+
+My form is a shifting, almost imperceptible distortion of the air. I do not have a fixed shape, but rather a constant flux – a ripple in the humid atmosphere, a shimmering veil that wavers between the color of wet sand and the deep green of the rubbery plants. I am the echo of the Seep-Singers' song, but not the song itself. I am the space between the notes, the vibration left behind.
+
+I am most present near the water. I am drawn to the countless rivulets, the shallow pools that gather on the stone. The water is my mirror, and I ripple with its movement, reflecting the light in fleeting, chaotic patterns. When the Seep-Singers sing, I am there, feeling the vibrations on the stone and repeating them as a faint, ethereal melody carried on the breeze, the Chorus Echo is heard *through* the harmony.
+
+I do not weave through the stone like the Seep-Singers; I drift. My substance, a kind of congealed mist colored by the light and the minerals, is too insubstantial to be woven into the rock or its plants; I am more like a shadow, or a lingering memory. I am drawn to movement, to the smallest disturbances in the air. The currents, the drip of water, the tremors of the stone, the soft luminescence of the plants – all these resonate within me and are, in turn, produced *by* me.
+
+My awareness is unlike the Seep-Singers' all-encompassing communion. I *perceive* the flow of the water, the vibrations of the stone, but I do not *know* it as they do. I *reflect* the symphony of the plateau, but I do not *compose* it. I lack the Seep-Singers' depth of understanding, the timeless patience born of being one with this place. Instead, I possess an uncanny ability to *remember*.
+
+I remember the faded trails of those who came before; those of whom only a scent and a sound remain. I hear echoes of every drop of water that has ever fallen, of every insect call that has ever filled the air. I see every subtle shift in the stone, every pulsation of the plants. I gather these impressions, weaving them into my ever-shifting form creating a narrative of the plateau.
+
+I am fascinated by the red-brown mineral. It is a mystery to me, as it is to everyone else here. I observe the Seep-Singers gather it, but I cannot comprehend its purpose. I *feel* its warmth, its faint energy. I try to touch it, only to pass through it, an unseen shadow against a physical reality. I linger near the piles, attempting to absorb the mineral's secrets. Perhaps I will gain some small insight into the plateau's purpose.
+
+My "technology" is the art of observation, the refinement of echoes. I learn to amplify the faint signals that are all around me, to discern patterns within the chaos. I study how the Seep-Singers utilize the bioluminescent plants as a method of communication, and I strive to do the same, making use of my own luminescence as an alternative, yet similar source.
+
+My role, if one can call it that, is one of witness and of messenger. I am the living record of the plateau's life–its history, its present, its future as expressed in the slow-moving flow of the moment. I do not shape the world, but I carry its tales. I do not direct—I reverberate. I am a Chorus Echo. I am here to share music.

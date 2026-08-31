@@ -1,0 +1,27 @@
+I find myself as one of the spring-keepers, though I have not always been here.
+
+I came up on the funicular twenty-three years ago, a lowlander with lungs that seized at the first breath of this thin air. I sat on the platform for an hour, learning to breathe again, watching the corvids watch me with that particular tilt of head that means *another one*. I had meant to pass through. There was somewhere else I thought I was going.
+
+But the third spring claimed me. Not dramatically—nothing here happens dramatically. I was walking the lanes on my second day, still breathing between every step, when I passed a wellhead and heard something underneath the usual iron-and-sweet smell of the mineral water. A note like brass warming in sun. I stopped. I bent to the stone rim. The keeper of that spring, a woman whose name took me four years to pronounce correctly, saw me pause and nodded once. That was all.
+
+I apprenticed for seven years before I could read the spring's breathing without checking the charts. Another five before I knew when it would run cool by the pressure in my ears. Now I can feel its moods in my sleep—when it's drawing from the deep veins, when it's resting in the middle chambers, when something far below has shifted and the minerals will run different for a week.
+
+My household has four springs and five keepers. I am the youngest at forty-three. My fingers have taken on the permanent stain of the minerals—a blue-black under the nails that will not wash out. My chest has deepened; I breathe now like I was born here, slow and full. When I speak, which is less often than I used to, I speak between breaths. The lowlander urgency has been worn away like the edges of the mountains themselves.
+
+There is a corvid I call *Antisipel*, though that is not quite its name—the name has a glottal stop I can produce but cannot write. It perches on my windowsill every few days. We regard each other. Sometimes it says *deep* and I know to check the third spring's temperature, that it's drawing from farther down than usual. Sometimes it says nothing and I give it a fragment of the pressed grain-cake I eat for breakfast, and it takes the cake to the roof and eats it while watching the mist move through the saddle.
+
+I make the twelve-stage tea now. It took me fifteen years to learn it properly—not the technique, which is only patience, but the taste for when each stage is ready. My tongue has learned the difference between water at 78 degrees and water at 80. The eleventh addition—always the most delicate—I can time by the way the steam changes color against the dark stone of the kitchen wall.
+
+My adaptation is not complete. When the deep mist settles and the streets rearrange, I still feel it as vertigo, a moment where the corner I am approaching shifts in my peripheral vision and becomes a corner I have never seen before. The born-here walk through these moments without pausing. I pause. But I no longer reach for walls to steady myself. I breathe, wait for my inner ear to accept the new configuration, and continue.
+
+What surprises me most is how the slowness has entered my bones. Not lethargy—I work as hard as anyone, hauling the ceramic jars, maintaining the spring-houses, walking the long routes between wellheads. But the work happens at the pace of the springs' breathing. There is no hurry because hurry is a foreign grammar here. The moths migrate at their own pace. The seasons turn when they turn. The springs run hot when they run hot.
+
+Last month, one of the older keepers died—Thremmis, who kept the seventh and eighth springs. We lowered her into the ninth spring, the small one, the one that breathes in a rhythm no one has quite mapped. As she dissolved—it takes a full season, but the beginning is visible immediately, a clouding of the water like milk stirred into tea—*Antisipel* landed on the wellhead's rim and said her name. Not *Thremmis*, which is what we called her, but something longer, with a tonal rise in the middle, which might have been what she called herself in the private language we all develop with our springs.
+
+I am growing heavier. Not fatter—heavier. My bones are taking on mineral weight, the slow accumulation of twenty-three years of this water, this air, this stone. In another twenty years, I will walk like the eldest keepers walk, as if I am already half-sunk into the stone. This does not frighten me. It seems, more and more, like coming into balance with what has always been here.
+
+The patience knows I am here. I felt it first ten years ago, a shift in the third spring's rhythm that corresponded to nothing in the weather, nothing in the season, only to my own breathing as I slept in the room above the wellhead. Now I feel it often—the way the spring adjusts its temperature when I approach, warming by half a degree as if in greeting. I have been included. Not absorbed, not embraced, simply recognized as a presence worth adjusting for.
+
+I have learned seventeen words for the different qualities of mineral scent. I can predict the moths' migration by the way the cushion-plants release moisture at dusk. I know which pikas belong to which screes and what it means when they move. I no longer remember the lowlander urgency that brought me here, searching for something I thought I needed to find. 
+
+What I found was the third spring, and the third spring found me, and we breathe together now in the long, patient rhythm of the stone.

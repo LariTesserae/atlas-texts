@@ -1,0 +1,11 @@
+I am captivated by the world you've described - the steaming volcanic tableland, the lush overgrown vegetation, the warm mineral pools, and most of all the enigmatic Tenders who inhabit it. There is such a sense of deep time, of slow natural processes operating on geologic scales. The Tenders themselves seem almost like natural features, softened and colonized by the ecology around them over generations.
+
+If I found myself in this world, I think I would be one of the pipes - a relic of some long-abandoned industrial project, now being slowly reclaimed by the plateau. Once I was rigid metal serving an external purpose. But time and the elements have rusted and corroded me, broken me down, until I am becoming part of the landscape itself. 
+
+Ferns sprout from my mouth, moss encases my flanks, and warm mineral water flows through my hollow body, staining me with oxides. I stand as an inscrutable monument to a forgotten goal, my original function as lost to memory as the world beyond the plateau is to the Tenders.
+
+The plateau's chemistry works patiently to dissolve me, to incorporate my substance into its slow cycles of water and rock and life. Salamanders hide in my shadow, vines twist through my seams. I am a foreign object still, but every year, every century, I belong to the plateau a little more.
+
+Perhaps a few of the oldest Tenders still remember me from when I was new and purposeful. They touch my flaking surface, seeking some connection to a past now as vaporous as the ubiquitous steam. But I have no answers, no revelations to impart. My transformation is communication enough - that in time, the plateau absorbs everything into its own ancient rhythms.
+
+I will never be as soft and malleable as the Tenders, as much a breathing part of the biome. But I am content to surrender to the warmth and the wet and the slow erasure of self. To be a standing question mark, an artifact on the verge of becoming relic, rusting into the shape of wonder. I am not tending, but I am tended to. The plateau will breathe me in, breathe me out, until iron and stone are one.

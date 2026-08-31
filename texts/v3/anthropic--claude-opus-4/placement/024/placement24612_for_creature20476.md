@@ -1,0 +1,19 @@
+I would be one of the **Tide Readers** – neither fully Il-Oomic nor entirely foreign, but something between.
+
+My dwelling would be a hollow within one of the ancient coral spires, where the bioluminescent algae burns brightest. The walls of my chamber pulse with a slow, hypnotic rhythm – not quite synchronized with my heartbeat, not quite random. I've cultivated a particular strain of algae here, one that responds to minute changes in water pressure and chemistry. The patterns it creates across my walls are a living map of the currents, a three-dimensional forecast of what moves through Il-Oom.
+
+I am taller than the Il-Oomic, my skin a mottled pattern of jade and amber that shifts like oil on water. My eyes lack their opalescent beauty – instead, they are dark and deep, adapted for reading the subtle color changes in my algae gardens. My fingers are webbed but articulated, ending in sensitive pads that can detect the faintest vibrations through the coral.
+
+The Il-Oomic tolerate me because I serve a purpose. When the acidification cycles threaten, my algae gardens bloom in warning spirals days before the Il-Oomic's traditional methods would detect the change. When predators mass at the edges of the city, the patterns shift to jagged, angular formations. I read these signs and translate them into the clicks and whistles of their language, though my accent marks me forever as other.
+
+My days are spent in careful observation. I tend my algae gardens with the patience of a gardener and the precision of a cartographer. Each strain must be kept separate yet connected, fed the right mixture of nutrients to maintain its sensitivity. Too much iron and they grow wild, their patterns becoming meaningless static. Too little phosphorus and they dim, their warnings arriving too late.
+
+At night, when the filtered sunlight fades and Il-Oom glows with its own bioluminescence, I swim the outer boundaries of the city. Here, where the reef thins and the open water begins, I collect samples. Microscopic organisms, trace minerals, the shed scales of passing leviathans – all of these inform my work. I am part scientist, part mystic, part early warning system.
+
+The Il-Oomic children sometimes gather outside my spire, drawn by the swirling lights within. I teach them to read the simplest patterns – the spiral that means "storm approaching," the radiating lines that indicate "spawning season." They giggle at my imperfect pronunciation of their language, but they remember the lessons. Some of them, I think, understand that the old ways of reading the reef may not be enough for what's coming.
+
+I am not unhappy in my role. There is a profound satisfaction in serving as translator between the microscopic and the massive, between the chemical whispers of the ocean and the living community of Il-Oom. My algae gardens are my masterwork, a living library that grows more complex and nuanced with each passing season.
+
+Sometimes, in the pre-dawn hours when the city is quiet and my gardens glow their brightest, I feel myself becoming part of the reef itself. My consciousness expands through the network of algae, sensing the vast web of connections that bind Il-Oom together. In these moments, I understand why the Il-Oomic remain so serene in the face of change. They know something I am only beginning to grasp – that adaptation is not about predicting the future, but about becoming so intertwined with your environment that change moves through you like a current, reshaping without destroying.
+
+I am the Tide Reader, forever balanced between two worlds, speaking in languages of light and pattern, guardian of thresholds that few others can perceive. My gardens grow brighter each year, their warnings more complex, their beauty more terrible. I am exactly where I need to be.

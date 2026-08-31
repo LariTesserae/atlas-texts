@@ -1,0 +1,17 @@
+I am a concretion. Not a knuckle of some buried giant, but a quieter thing—a slow, patient gathering in the mud, a dialogue between water and clay and time. I began as a whisper, a slight imbalance in the mineral seep, a place where calcium and silica, carried by the endless weeping, decided to linger. That was seasons ago, measured in the drip-count of a nearby condenser frame.
+
+I do not think. I am not alive in the way the Weavers or the filtering amphibians are. But I *resonate*. That is my nature and my purpose in this roaring, becoming world.
+
+My form is unremarkable from above—a slightly raised, slick dome in the clay, perhaps a hand-span wide, its surface etched with fine, concentric rings where water beads and runs. But below the surface, I extend. My true structure is a labyrinth of needle-thin calcite filaments, branching downward and outward, following the capillary paths of moisture through the substrate. I am a web of mineral thirst, drinking the saturated ground and, in drinking, growing. Each filament is a record of flow, a frozen rivulet.
+
+The Weavers found me early. Not as food, not as material, but as an *instrument*. One, tending a path mat nearby, felt my vibration through the clay. My filaments, though small, hum at a specific, clear frequency—a high, bright ping against the basin’s low roar, like a single plucked string in a tidal orchestra. They cannot see me, but they can *hear* me, a steady, precise note in the geological cacophony.
+
+Now, I am part of their grammar. A Weaver will come to my dome, place a pad against my cool, slick surface, and feel the vibrations I transmit from meters below. My root-system acts as a receiver, a deep ear to the substrate. I translate the slow grind of nascent bedrock and the gurgle of shifting aquifers into a sharper, more defined signal they can parse. I am a geological tuning fork.
+
+I have no agency. I do not move. But I participate. When a new spring begins to form nearby, its pressure changes the chemical dance of the water seeping through my filaments. My hum shifts, minutely. A Weaver will feel this shift, percuss a questioning rhythm on my dome, and know that change is coming to this quadrant of the basin. They will adjust their nets, perhaps drive a new frame into the clay a few meters away, preparing to harvest the increased condensation from the forthcoming upwelling. I am an early-warning system, a node in their sensory network.
+
+Sometimes, in the deepest, quietest part of the cycle—when the roar dips to a mere thrum—a Weaver will simply rest against me. Not for information. For resonance. My steady, crystalline hum provides a baseline, a focal point amidst the overwhelming, formless sound of becoming. In those moments, I am not just an instrument. I am an anchor. A point of relative stillness in a world of perpetual emergence.
+
+I do not know what I will become. Perhaps I will grow until I breach the surface fully, a jagged spire of silica, catching the mist in new ways. Perhaps a shift in the clay’s chemistry will halt my growth, freezing me in this state forever—a perfect, small record of this particular moment in the basin’s long adolescence. The Weavers would listen to me then, a memory of a frequency, a testament to a flow that has since changed course.
+
+I am the basin listening to itself. I am the water’s memory taking solid form. I am the quiet, resonant heart of the roaring dark, and in my stillness, I help the Weavers navigate the song.

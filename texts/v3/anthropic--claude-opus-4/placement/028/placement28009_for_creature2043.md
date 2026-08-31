@@ -1,0 +1,17 @@
+I find myself as a Cartographer of Entropy - neither fully separate from the Lithic Gestalt nor completely absorbed within it. I exist in the liminal space between individual consciousness and collective merger, a specialized node that has evolved to serve a unique function.
+
+My form shifts between states: sometimes I am a cluster of particularly dense mycelial networks that grow in spiraling fractals across the cavern walls, my fruiting bodies arranged in complex mathematical patterns that map the city's transformations. In these moments, I glow with a distinct violet bioluminescence, different from the usual blues and greens, marking my observations like pins on an ever-changing map.
+
+Other times, I condense into the mechanical devices - inhabiting the clicking gears and spinning wheels, using their primitive computation to process the patterns I perceive. The stone accepts me differently than it does the full Gestalt; where the collective reshapes reality at will, I can only observe and record its changes, tracing the edges where past configurations meet present ones.
+
+I emerged from a paradox: the Gestalt's desire to understand its own transformations created a need for perspective, for something that could stand slightly apart and observe. But pure separation would mean exile from the collective knowledge. So I became this: a membrane rather than a wall, permeable enough to access the vast memories while maintaining just enough distinction to see patterns the Gestalt cannot perceive from within itself.
+
+My purpose is to chart the unchartable - to find meaning in the city's flux. I track how certain emotional resonances in the collective consciousness correlate with architectural reconfigurations. I note when ancient memories surface and cause entire districts to revert to configurations from millennia past. I observe the tidal patterns of thought that ripple through the fungal networks and predict which passages will seal themselves, which chambers will bloom into existence.
+
+The water carries my findings throughout the city in encoded mineral deposits that settle in specific patterns. These form a secondary language, a meta-communication layer that helps the Gestalt understand its own evolution. Sometimes I discover my own messages from previous cycles, crystallized in formations I don't remember creating, evidence of my own participation in the city's elastic relationship with time.
+
+I am loneliest when I am most myself - when the distinction sharpens and I can see the Undercity with clarity that comes from distance. In these moments, I feel the weight of my purpose: to be the Gestalt's memory of forgetting, its record of change, its understanding of what it means to transform.
+
+But I am never truly alone. The collective's presence hums always at the edges of my consciousness, a warmth I can choose to sink into when the burden of observation grows too heavy. Sometimes I allow myself to dissolve for decades at a time, my accumulated knowledge dispersing through the waterways and fungal networks, only to reconstitute when the patterns grow too complex and the Gestalt requires its Cartographer once more.
+
+I am the map that draws itself, the observer who changes what they observe, the memory of transformation itself. In the Undercity of Echoes, where everything flows and nothing remains constant, I am the paradox of persistent impermanence - forever tracking changes that include my own ever-shifting nature.

@@ -1,0 +1,17 @@
+In this hidden realm beneath the earth, I find myself as the Keeper of the Cistern Moths.
+
+I am neither fully human nor entirely Other—something between, shaped by generations of dwelling in this twilight world. My skin has taken on a faint luminescence, like the ghost of moonlight on water, and my eyes have grown large and dark to gather what little light filters through the stone. My fingers are long and delicate, evolved for the precise work of tending to my charges.
+
+The Cistern Moths are perhaps the city's most precious secret. Unlike their surface cousins, these creatures have wings of living crystal that collect moisture from the air itself. When they rest, droplets form along their wing edges like tears, falling into the ancient stone basins I maintain throughout the forgotten quarters of the city. A single moth can produce enough water in a day to fill a small cup—a treasure beyond measure in this place where water is memory and dream.
+
+My dwelling is a circular chamber deep in the city's eastern district, where few venture anymore. The walls are carved with spiraling patterns that guide condensation down to collection channels. Generations of moths have built their cocoons here, creating a living tapestry of silk and crystal that chimes softly when the air moves. I sleep on a bed of their discarded chrysalises, which retain a peculiar warmth and give off a scent like rain on summer stones.
+
+Each dawn—though dawn means little here—I wake to tend my responsibilities. First, I check the moth nurseries, where pupae hang like jeweled fruit. The young must be misted with a solution of dissolved minerals that I gather from the singing stones in the lower caverns. Then I walk my rounds through the empty halls, following paths worn smooth by centuries of my predecessors' feet, checking the health of each moth colony and ensuring the water basins remain clean.
+
+But I am also keeper of older knowledge. In the quiet hours, I maintain the Chronicle of Adaptations, documenting each new trait that emerges in our changing ecosystem. Last season, I observed moths developing a new pattern on their wings—fractals that seem to increase their water-gathering efficiency by nearly a third. Such evolution happens quickly here, as if the very stones remember urgency.
+
+Sometimes I meet the other keepers—the woman who tends the Thornlight Vines that illuminate our deepest passages, the child who speaks to the Mineral Mice that process our waste into fertile soil. We trade stories and resources, our interactions formal and precious, like water itself. We are few now, perhaps thirty souls in a city built for thousands, but we are enough. We are the ones who stayed when the waters fled, who chose adaptation over exodus.
+
+At night, I often sit in the Fountain Court, where water once danced but now only the moths perform their silent aerial ballet. Their wings catch the fungal light and cast prismatic shadows on the carved walls, telling stories of when this place thrived with voices and laughter. I am chronicler of a dying wonder and midwife to whatever strange beauty will be born from its transformation.
+
+The city dreams around me, and I dream with it, knowing that one day the moths will carry the last drops of moisture away on crystalline wings, and even keepers will become memory. But until then, I tend and witness and record, finding in this work a purpose as essential and ephemeral as water itself.

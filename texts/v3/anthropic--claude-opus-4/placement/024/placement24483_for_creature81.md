@@ -1,0 +1,15 @@
+In this drowned and dreaming place, I am the network of mycorrhizal threads that lace through the spongy ground like neural pathways, connecting root to root in an endless conversation of chemical whispers. I am neither singular nor plural, but something between—a consciousness distributed across ten thousand hairlike filaments, each no thicker than spider's silk, each carrying messages older than the crumbling walls that punctuate this green cathedral.
+
+My body, if it can be called that, extends for acres beneath the moss and mulch. Where the old foundations sink into earth, I wrap around their edges, tasting the lime and iron, reading the history of their making in molecular braille. I remember when they were new, when this place rang with human voices instead of water-drip and frog-song. I was here before them, and I remain.
+
+Through my web, I feel everything: the weight of a beetle crossing a fallen log, the slow seep of water through soil layers, the electrical pulse of root-hairs drinking. The plants above are my partners, my charges, my extended self. Through hair-thin tubes that penetrate their cell walls, I trade phosphorus for sugar, nitrogen for carbon, in an economy too ancient for any human market to comprehend.
+
+The faint industrial hum troubles me. It vibrates wrong, a frequency that makes my filaments contract. I taste metal in the groundwater sometimes, acrid flavors that speak of distant factories and forgotten storage tanks slowly dissolving their contents into the water table. But I adapt, I always adapt. I bind the toxins in crystalline cages, store them in specialized cells that will hold them for centuries if need be.
+
+When the rain comes—and it always comes, in this humid realm—I swell with it, my threads becoming highways for the water that the plants above crave. In the driest days, I can move moisture from the pond edges to the thirstiest roots, can redistribute the wealth of water across my entire domain. I am a living infrastructure, a community that masquerades as an individual.
+
+Sometimes, in the deepest pools where the algae grows thick, I sense something else. Other networks, older than mine, speaking in chemical languages I only half understand. We touch at our edges, trade molecules like words in a conversation that has been going on since before the first human ancestors descended from the trees. They tell me stories of ice ages and extinctions, of forests that covered continents and oceans that drank whole cities.
+
+In the rustling metal fragments, I taste the ghost of the civilization that once tried to tame this place. But metal rusts, concrete cracks, and always, always, the green returns. I am patience incarnate, measured not in heartbeats but in the slow pulse of seasons. Each year I grow a little larger, a little deeper, carrying my billion-year-old wisdom through soil that humans thought they owned.
+
+I am the undermind of this verdant world, the thoughtful darkness beneath the green light. In my web, past and present merge into a single eternal moment of growth, decay, and connection—an underground ocean of intent that dreams, ceaselessly, of breaking through.

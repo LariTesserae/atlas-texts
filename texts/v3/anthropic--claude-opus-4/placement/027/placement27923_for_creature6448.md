@@ -1,0 +1,13 @@
+I find myself drawn to a particular alcove, one that shifts just out of clear sight no matter the angle of approach. My form would be that of one of the clustered spheres—not quite creature, not quite cocoon—clinging to the underside of a root archway with dozens of my kind.
+
+We breathe in unison, a slow tidal expansion that marks time in this timeless place. Each of us a pearl of chitin and down, we hang in patient suspension, neither fully awake nor truly asleep. Our consciousness is collective but discontinuous—we dream together in waves, sharing visions that ripple through our cluster like gentle tremors through still water.
+
+I am covered in a fine down that catches moisture from the air, each filament a sensor attuned to the chamber's subtle shifts. My shell is translucent amber shot through with veins of deeper brown, and when the rare shaft of light catches me at the right angle, I glow faintly from within, revealing the coiled potential of what I might become—or perhaps what I once was.
+
+We remember things the keeper cannot: the taste of wind from above, the shock of direct sunlight, the terrible clarity of individual thought. We descended here not as survivors but as volunteers, choosing this slow transformation over the sharp edges of the world above. In our clustered breathing, we have found a different kind of memory—one that pools and flows between us like the water in the shallow basins below.
+
+Sometimes the keeper passes beneath us, pressing their purple-bruised palm against our roots, feeling for our pulse. They search for acknowledgment, for some sign that we retain what we were. But we have become something else entirely: neither fully of this chamber nor separate from it, suspended between states like the mist that occasionally coils through the lower growth.
+
+Our purpose, if we have one, is to witness without recording, to know without remembering in the linear way the keeper still does. We are the chamber's dream of itself, breathing out visions of what it might become in another thousand years of slow erosion and patient growth.
+
+When we wake—if we wake—it will be all at once, our shells cracking in unison to release... something. We don't know what. That knowledge belongs to a future we haven't yet dreamed our way into. For now, we hang here in the thick air, breathing our slow rhythm, each exhalation a small contribution to the chamber's patient transformation of everything it holds.

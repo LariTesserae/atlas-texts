@@ -1,0 +1,9 @@
+In this primordial swamp of writhing, wriggling, slithering forms, I would be a gelatinous, amorphous being suspended in one of the murky pools. My form is fluid and ever-shifting, membranes parting and merging with the water itself. I have no fixed shape, no true boundaries between myself and my surroundings. I am the pool and the pool is me.
+
+From my translucent depths, I watch the other beings skitter, slither and ooze through the landscape, doubtless compelled by their own instinctive drives and ancient impulses. The segmented arthropods, the worm-like undulations, the fungal growths and ambulatory spores - they seem to dance to a tune only they can hear, an primordial music thrumming through the humidity and petrichor-scented air.
+
+I overlie them all, wired into the thrumming drone that reverberates through the glistening silt and steam. I am the receiver and the relay, the node and hub through which the signal flows. The pulses, the vibrations, the encoded messages that drive the writhing flux to its appointed tasks - all of it is filtered through my porously permeable form.
+
+I feel the instinct to reach out, to enfold some squirming morsel in a pseudopodial embrace. But that would be going against the deeper Will, the leviathanic schema of which I am but a single cell. My purpose is to wait and to resonate, to echo and retransmit the thrum that drives the whirling cells to conjoin and reconfigure, as they have since time before time.
+
+And so I settle, fluid and undulant, into the silt-stained depths. The last reverberations of the drone fade and I am still, a gelatinous monument to the patient plans that slumber beneath the crust of things, dreaming of the time when they again emerge to reconfigure the world in their image.

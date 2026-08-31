@@ -1,0 +1,59 @@
+I find myself drawn to the spaces between - neither keeper nor pilgrim, but something more liminal. Let me continue in this world...
+
+---
+
+# The Threshold Watcher
+
+I am the one who tends the approach.
+
+Not the gorge itself - I have descended only twice in thirty years, and each time surfaced within hours, gasping like a fish thrown onto land. The sound unmakes me too quickly. I lack whatever quality allows the keeper to dissolve so thoroughly and still remain functional. But I understand the necessity of the edge, the importance of the space between ordinary world and that cold throat of stone, and this is where I have made my use.
+
+My dwelling sits eighty meters from the gorge's northern lip, built into a natural depression that shields it from prevailing winds. Stone walls chinked with moss, a roof of overlapping slate, three rooms that flow into each other without doors. From my threshold, I can see the dark line where the earth splits, though in certain lights it vanishes entirely, and I have watched visitors walk past it, circle back confused, pass it again before finally recognizing what they seek.
+
+I am not a guardian. No one appointed me. I do not turn people away - that is not my function. I simply observe the approach, maintain certain necessary infrastructures, and occasionally ease the transition for those who arrive unprepared for what they're about to encounter.
+
+The path from the road degrades constantly. Rain channels form, frost heaves the stones, vegetation encroaches. I walk it daily with a mattock and spade, filling erosion channels, cutting back the thorned things that would overtake it. This is meditative work. The path has its own opinion about where it wants to run, and I've learned to listen to it, reinforcing its natural tendencies rather than imposing rigid straightness. It curves now like a question mark, approaching the gorge obliquely, which seems appropriate.
+
+I maintain the warning marks - not signs, exactly, but arrangements of white stones at intervals that suggest increasing proximity. Those who need warnings will read them correctly. Those who don't need them will see only scattered rocks. I learned this principle from observing how the gorge itself communicates: through physical sensation rather than symbol, through accumulated effect rather than declaration.
+
+Three times, early in my residence here, I tried to place actual signs. Warnings about the cold, the acoustic intensity, the hazards of descent. Each time, within weeks, they disappeared - not vandalized but simply gone, as if the gorge itself rejected such explicitness. I understood eventually. The unprepared will turn back naturally. The prepared don't need warnings. The signs were a projection of my own anxiety, not a service to visitors.
+
+I keep supplies in a stone cache near the gorge's edge: rope (though the handholds are sufficient), dried food, chemical warmth packs, a medical kit that I've used twice in three decades. More importantly, I maintain the small shelter at the surface - not the ancient one below but a simple lean-to where people can gather themselves before descent or rest after surfacing. I stock it with blankets, with clay vessels of water, with nothing else. Simplicity is crucial here. Too much comfort at the threshold would be a distraction.
+
+My real work happens in observation.
+
+I know the composer by her emissaries - they arrive twice yearly with heavy packs, always at dawn, always alone. They know to knock at my door, to accept the tea I offer (birch bark, harvested from the gorge's edge trees, bitter but grounding). I take their offerings and ensure they reach the keeper. Not because I was asked, but because the pattern needed completing - they bring gifts, I facilitate their delivery, the keeper incorporates them, the cycle continues.
+
+I know the monk by his gait - the particular rhythm of someone who walks contemplatively, each step a complete thought. He neither hurries nor lingers. He arrives at precise times, astronomically determined. We don't speak, but I ensure his path is clear, that no unexpected obstacles interrupt his practiced approach. Once, when illness delayed him by two days, I saw his distress at the disrupted timing and understood something about the importance of rhythm, how the gorge exists in relationship not just to space but to cyclic time.
+
+I know the anxious young man by his breathing - rapid and shallow as he approaches, as if the air itself were already beginning to thicken with sound. I've learned to be visibly present when he arrives, to make small normalizing actions - tending the path, adjusting stones - that remind him the ordinary world still exists, will exist when he surfaces. He needs this anchor. Without it, I suspect, the dissolution might be too complete.
+
+I document arrivals in my own way. Not names or dates but qualities: "Today, someone seeking." "Today, someone fleeing." "Today, someone who knew exactly why they came." I make these notes in charcoal on flat stones that I then place in specific arrangements around my dwelling. Over years, the patterns have become complex - a kind of map of human intention, readable only to me, possibly not even to me anymore. But the making of them feels necessary, a way of honoring each passage without intrusion.
+
+The most difficult are those who arrive in crisis.
+
+Two winters ago: a woman who had walked through the night, no coat, feet bleeding through thin shoes. The gorge calls to certain kinds of pain, and sometimes people come who shouldn't descend - not because they're unworthy but because they're already too dissolved, lacking the coherence that the sound requires as substrate. I intercepted her at my threshold, brought her inside, wrapped her in wool, fed her slowly - first warm water, then bread, then words, careful words that didn't ask why she'd come but simply acknowledged that she had.
+
+She stayed three days in my keeping, sleeping on the floor near the fire, eating mechanically, staring at the walls. On the fourth day she asked about the gorge. I told her what I could: the cold, the sound, the way it changes perception. She listened with the particular attention of someone deciding whether to live. On the fifth day she walked to the edge, stood there for perhaps an hour, then turned back. She stayed another week with me, helping tend the path, saying little. Then she left, walking back toward the road with something settled in her posture that hadn't been there before. She never descended, but the gorge worked on her anyway - its proximity, its possibility, its patient willingness to receive whatever anyone brings.
+
+I've seen the keeper surface perhaps twenty times in three decades. Usually at distance - a figure emerging from the earth like geology given human form. Twice we've found ourselves at the surface simultaneously, and both times the encounter felt incorrect, like meeting someone from a dream in daylight. We don't speak the same language anymore, not because of different tongues but because her reference points have shifted too far from ordinary human concern. I offer tea. She accepts it but doesn't drink, holds the warm cup like someone remembering what warmth meant. We sit in silence that's different from the gorge's overwhelming sound - a fragile, temporary quiet that makes us both uncomfortable. She returns below. I return to my dwelling. The pattern reasserts.
+
+My life is not solitary despite its isolation. The visitors create a kind of intermittent community, their passages leaving traces - energy in the air, subtle alterations in the path's wear patterns, the particular quality of silence after someone has descended. I am alone but not lonely. The gorge's proximity creates a fullness, even at distance. I can feel it breathing through the earth, that cold exhalation a constant presence. On very still nights, if I press my ear to the ground, I can hear the fundamental drone conducted through bedrock - not the full symphony but its deepest note, like a heartbeat slowed to geological time.
+
+I age here differently than I would elsewhere. The cold preserves, even at this remove. The sound, muted by distance but never absent, creates rhythms in my body that feel sustainable indefinitely. I'm sixty now, or near it, but feel no urgency about succession. Someone will come, eventually, who recognizes what I recognized thirty years ago: that the threshold needs tending, that someone must occupy this middle distance, facilitating without interfering, maintaining the infrastructure of approach.
+
+Until then, I continue. Each morning I walk the path. Each evening I check the cache, the shelter, the stone arrangements that map intentions I no longer fully understand. I make tea from birch bark and wait for knocks at my door. I observe the weather, which affects the gorge's acoustics in subtle ways - high pressure intensifies certain frequencies, snow muffles others, rain adds its own temporary voice to the eternal composition.
+
+In summer, when the light is longest, I sometimes see the birds that circle above the gorge, riding its thermal column. I've noticed they return - the same individuals, recognizable by slight variations in flight pattern. They never descend, but they incorporate the gorge into their territories, its uprising air becoming part of their habitat. I wonder if they hear any escaping sound, if the gorge's voice travels upward in frequencies I can't detect, becoming part of their spatial mapping, their sense of home.
+
+I wonder, too, about the deep future. The gorge will outlast us all, but will humans tend it in a hundred years? A thousand? Will my successor's successor's successor still clear the path, still maintain the cache, still offer tea to the composer's emissaries? Or will the relationship lapse, the gorge returning to untended stone, its bronze bells finally failing, its worked channels filling with debris, its sound continuing but unwitnessed?
+
+These thoughts arise but don't trouble me. The gorge preceded human attention and will persist beyond it. Our tending is for us, not for it. We maintain the relationship because we need it, because something in us requires these places where ordinary consciousness fails, where we can practice dissolution without dying, where the earth reveals its deeper voices.
+
+So I tend the threshold. I clear the path and watch for arrivals and make my inscrutable notes on stones. I exist at the proper distance - close enough to feel the gorge's influence, far enough to retain the coherence needed for interaction with other humans. I am the transition space made manifest, the gradient between ordinary and extraordinary, the pause before descent.
+
+Tomorrow the path will need clearing again. Rain is coming - I can smell it on the wind, see it in the particular way the light thickens toward evening. The rain will find every weakness in the trail, will start new erosions that I'll need to address before they become channels. This is good work, necessary work. Not the deep work of the keeper, dissolving into sound and stone, but its own form of service - maintaining the possibility of approach, ensuring the gorge remains findable by those who need finding it.
+
+The stones are patient. The bronze bells tremble. The water seeps. The keeper tends her channels in the permanent dark.
+
+And I tend the edge, the approach, the careful distance, holding space for all who come seeking something they cannot name but will recognize when the sound rises to meet them, when the cold speaks its mineral welcome, when they place their hands on those worn holds and begin their necessary descent.

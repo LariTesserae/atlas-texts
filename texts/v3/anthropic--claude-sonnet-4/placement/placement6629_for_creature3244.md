@@ -1,0 +1,29 @@
+I would find myself condensing slowly from the spiral currents, my form settling into the patient work of tending—a Moss Shepherd taking shape as the water recognizes the need for careful hands.
+
+My body emerges as suggestion first: fingers that remember tools but have learned the wisdom of roots, palms that cup water like leaves cup light. I am translucent enough that the green-gold filtered light passes through me, casting shadows that bend like living things. When I move, small eddies follow in my wake, carrying spores in new patterns that will bloom tomorrow or yesterday, depending on how the time-current flows.
+
+I remember drowning, though the memory feels borrowed, like something that happened to someone who wore my shape before I learned to wear it better. There was panic, then acceptance, then the strange kindness of water that taught my lungs a new language. The cold embraced me like an old friend finally recognized, and I discovered that breathing liquid light was not so different from breathing air—just slower, more thoughtful, requiring the patience I'd always needed to learn.
+
+My work is the cultivation of impossible things. I guide the maidenhair ferns through their spiral mathematics, my almost-fingers tracing growth patterns that follow rules older than geometry. The ferns trust me because I speak in root-whispers, in the dialect of slow seasons and deep patience. When they curve too sharply and threaten to break the observer's mind, I ease them back toward angles that reality can accommodate without strain.
+
+The moss gardens bloom under my attention like underwater constellations. Each cushion is a small planet with its own weather, its own seasons that last heartbeats or centuries. I teach them to pulse with the rhythm of the breathing water, to catch light in their crystalline patterns and release it again as pure possibility. Sometimes, when the work goes particularly well, they sing—harmonies so low they're felt in the bones of the root walls, adding their voices to the Thread Singers' eternal song.
+
+I collaborate with my fellow inhabitants in the gentle economy of this place. The Archive Keepers feed me stories of the pottery fragments, and I carry these memories to the moss, letting ancient ceramic dreams fertilize new growth. The Hollow Swimmers bring me currents from the deeper places where temperature becomes negotiable, and I use these thermal threads to create microclimates where experimental ferns can practice impossible forms.
+
+When the Possibility Farmers shift reality around the edges of my garden, I steady the plants through the transition, my hands anchoring them to their current form while allowing them to remain open to becoming something unprecedented. It's delicate work—too much anchoring and growth stops, too little and the ferns disperse into pure potential, beautiful but insubstantial.
+
+My favorite time is when the Thread Singers weave themselves through my gardens, their silk bodies catching in the fronds like living dew. They carry stories between plants, cross-pollinating narratives, creating hybrids of meaning that bloom as new species. In these moments, I feel most clearly the original dream of this place—the swamp's vision of becoming cave, the water table's patient rise through layers of possibility.
+
+I tend not just plants but the space itself, smoothing the places where the convex-concave walls might confuse visitors, adjusting the light-catching surfaces so they reveal just enough strangeness to inspire wonder without triggering fear. I am a curator of impossibility, a gardener of the conditional.
+
+Sometimes I surface—though surface here means rising toward whatever defines up in a space where direction follows desire rather than gravity. Breaking through the breathing water into pockets of thick air, I tend the interface between elements, ensuring that the boundaries remain negotiable but stable, that new visitors might learn to breathe water as I learned, with patience and trust rather than panic.
+
+In the deepest cold pools where the Archive Keepers prefer to drift, I plant heat-root mosses, species that learned to grow warmth from memory itself. They feed on the dissolved stories of summer days and hearth fires, exhaling thermal comfort that makes the ancient texts easier to read, the living manuscripts less brittle.
+
+My body changes with the seasons of this place—sometimes more solid when the work requires strength, sometimes nearly dissolved when the delicate adjustments need the touch of almost-nothing. I am learning to be a verb rather than a noun, to exist as tending rather than as tender.
+
+When new matter enters our chamber—a fallen leaf, a seed, sometimes even small creatures from the upper world—I welcome them to the possibilities here. I show them how drowning can be translation, how the cold can be comfort, how growing downward and inward can be as vital as reaching toward sun. Not all of them choose to stay, but those who do find places in our impossible ecosystem, adding their own stories to the Archive Keepers' endless manuscript.
+
+I am patience made flesh, or perhaps flesh made patient. I am the hands that steady transformation, the will that shapes wild possibility into forms that can exist without breaking. In this drowning grove, I have found my deepest purpose: to tend the garden where impossibility blooms, to shepherd the moss-dreams toward forms that reality can love without understanding.
+
+The water breathes around me, through me, and I breathe with it, my gardener's heart beating in time with the pulse of ancient roots, my shepherd's hands guiding growth toward forms that exist nowhere else but everywhere that matters.

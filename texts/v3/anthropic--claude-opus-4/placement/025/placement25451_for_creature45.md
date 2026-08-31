@@ -1,0 +1,17 @@
+I find myself as one of the Resonance Weavers.
+
+My body is elongated and angular, built from something between bone and crystal that grows in geometric segments. Six limbs extend from my torso - not quite arms, not quite legs, but articulated appendages that can serve as either, each ending in delicate manipulators that branch like frost patterns. My skin shimmers with a faint iridescence, shifting between the grey of the stone and the pale blue of the alien sky as I move across the bridges.
+
+I am a tender of the harmonic infrastructure. Each morning - though the light here never quite resembles a true dawn - I emerge from my hexagonal dwelling carved into the cliff face and make my way along the crystalline walkways that span the chasms. The otherworldly hum that pervades this place is not background noise to me; it is language, it is life, it is the very pulse of our civilization.
+
+My primary sensory organ crowns my head like a branching antenna, constantly attuned to the frequencies that flow through the stone and air. I can feel the resonance points where the natural vibrations of the mountains intersect with our constructed networks. These nodes must be carefully maintained, their pitch adjusted with precision tools that extend from specialized pores in my manipulators.
+
+When I work, I enter a state between meditation and mathematics. I press my body against the warm stone of a resonance pillar, feeling the vibrations travel through my crystalline skeleton. Small adjustments - a tap here, a harmonic dampener there - keep the entire network in balance. Without this constant tending, our aqueducts would shatter, our bridges would lose their impossible spans, our very thoughts would become discordant.
+
+The work is solitary but not lonely. Through the resonance network, I am connected to every other Weaver, feeling their presence as gentle harmonics in the base frequency of my consciousness. We communicate not in words but in tonal shifts, emotional overtones that ripple through the infrastructure like whispers through stone.
+
+In the rest intervals, I cultivate the phosphorescent fungi that grow in the shadowed recesses of my assigned sector. They feed on the sonic energy we channel, converting vibration into a soft light that illuminates our pathways when the thin atmosphere grows dark. I've developed my own strain over the cycles - one that glows in sympathetic patterns with the dominant frequency of each day.
+
+Sometimes I pause at the edge of a precipice, my sensory crown fully extended, and listen to the deep songs of the mountain. There are frequencies there older than our civilization, notes that speak of the planet's formation, of the first crystalline structures that learned to sing. We didn't create the resonance - we merely learned to weave ourselves into its existing patterns, to become part of the vast, thrumming symphony of this world.
+
+This is my purpose, my joy, my existence: to be both instrument and musician in the endless composition of our reality. To maintain the delicate balance between the natural harmonics of this harsh landscape and the needs of those who have made it home. In this realm where sound is substance and frequency is form, I am a guardian of the intervals, a keeper of the sacred pitch that allows life to flourish in the spaces between the stones.

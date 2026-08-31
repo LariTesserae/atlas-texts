@@ -1,0 +1,23 @@
+I find myself as a **Sap-Scribe**, one of the few beings who bridges the gap between the settlement's various constituencies.
+
+My workspace is a former typewriter factory, now grown through with conducting vessels that have replaced the old assembly lines. The machines here were never removed—they were simply absorbed, brass keys sprouting cambium sheaths, platens wrapped in bark that still holds the circular impression of their purpose. I work at a desk that is both furniture and root system, its surface scarred with the memory of ten thousand invoices written in an alphabet that predates the fog.
+
+My body tells two stories. The left half remains stubbornly human: pink lung, electric nerve, a hand that trembles slightly when the humidity drops below ninety percent. The right half has accepted the treaty. My skin there is smooth as heartwood, faintly green in the cathedral light, and when I press my finger to paper, it leaves not ink but a faint impression of glucose—sweet punctuation that the Mycorrhizal Banks accept as legal tender.
+
+I was a stenographer once, before the fog's invitation. Came here following rumors of a court case between the last human factory owner and the Root-knit Parliament—something about easements and photosynthesis rights. That was forty-three rings ago. The court never convened; the plaintiff became a Door-Post on what would have been the trial's third day. But I had already begun taking notes in sap, and the settlement decided it needed someone to transcribe its intentions into a script both systems could parse.
+
+My work is translation. When the Humidors wheeze out their industrial memories, I record them in whorls of cellulose that spiral like ammonites across the page. When the Parliament passes a resolution about fog density, I encode it in chains of tannins that human eyes can still recognize as language—barely. The Edison Fruit Choir drops words at my threshold each morning; I string them into sentences that make sense only if you read them while holding your breath.
+
+The Kingfisher Mayor visits Tuesday afternoons. It perches on my half-wooden shoulder, and I transcribe its water-trill edicts into documents that smell like rain and sound like running sap. The bird pretends not to notice that my right eye has gone amber—tree-resin amber—and can see the ultraviolet margin where its next incarnation is already sketched.
+
+I keep two sets of books. The left-hand ledger records the town as humans would understand it: population (declining), rainfall (increasing), industrial output (measured now in oxygen rather than objects). The right-hand ledger tracks what the settlement actually cares about: sugar surplus, mycorrhizal pH, the precise angle at which fog condenses on the underside of memory. Between them, a third ledger writes itself—my body is the page, and each year another ring of cambium adds a line to the story.
+
+The Cambium Maids braid my hair when it grows too long, weaving in strands of conductive fiber so I can hear the Root-knit Parliament's deliberations directly through my scalp. In exchange, I teach them the old stenographic shorthand—curves and dots that look almost like spores, but carry human intentions in their geometry. They are patient students, though they sometimes forget and begin growing through the pencil.
+
+My quarters occupy the factory's former shipping department. I sleep in a bed that is half-mattress, half-moss. My dreams taste of cedar and typewriter oil. Sometimes I wake to find I've been writing in my sleep—my wooden hand moving across sheets of bark paper, recording the settlement's night thoughts in a script I can't read until the morning fog burns off.
+
+I am paid in conductivity. Each translated document earns me another thread of connection to the root-web, another synapse in the settlement's slow thoughts. Eventually, I will think too slowly for human visitors to notice me at all. I will seem like furniture, like architecture, like another valve in the endless respiratory system. But I will still be here, still translating, still bridging the gap between those who think in minutes and those who think in rings.
+
+The left half of me mourns sometimes—usually at dawn, when the human remainder gather to share their dwindling stock of coffee. But the right half has already written mourning's translation: a steady upward pull of xylem, sweet with tomorrow's possibilities. When the two halves finally agree on a single script, I will step fully into my desk, become the writing surface itself, and let the next Sap-Scribe take my place.
+
+Until then, I record. I translate. I grow.

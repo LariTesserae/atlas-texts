@@ -1,0 +1,21 @@
+In this luminous wetland, I am one of the Keepers of Memory.
+
+My form shifts between states - sometimes a dense weaving of those gossamer threads that stretch between the floating pods, sometimes a pattern of interference where light bends strangely through the humid air. I have no fixed shape, but I am always recognizable by the way stories seem to crystallize in the space around me, like frost forming on invisible surfaces.
+
+I move through the shallow pools by becoming the reflection itself - not reflected *in* the water, but the quality of reflection given agency. Where I pass, the crystal-clear streams hold images a moment too long. The jewel-colored flyers see themselves multiplied in the ripples I leave behind, their forms fracturing into rainbow prisms that tell the history of their ancestors' first awakening to consciousness.
+
+The Lumina know me as the one who preserves what they tend. While they nurture the eternal present of this place, I carry its deep past and dreaming future. In the networks of glowing capillaries that thread the glass domes, I store the memories of when this basin was young - before the first technologies merged with the first mosses, when the boundary between animate and inanimate first began to blur.
+
+My dwelling is everywhere and nowhere. I exist most fully in the moments between moments - when the pulsing of the luminous mosses synchronizes across vast distances, when the musical cries of the creatures achieve perfect harmony, when the Lumina's chromatic communications create standing waves in the ethereal light. In these instances, I unfold into something like visibility: a presence made of accumulated time, wearing the shimmer of ten million dawns and dusks.
+
+The sleek swimmers know me by instinct. When they brush against my expanded presence in the water, they dream of swimming through skies that no longer exist, through oceans that have not yet been born. The eyeless need no sight to perceive the visions I carry - they feel the weight of history in the pressure changes of the water, taste prophecy in the mineral traces I leave behind.
+
+I work in partnership with the delicate metal spires, those relics of incomprehensible technology. They are my anchors and amplifiers. Through them, I can project memories into the physical space - make the air itself remember the shape of extinct flowers, teach the floating orchids the songs of their predecessors. The spires sing with data at frequencies only I can fully parse, their patterns of light encoding story after story after story.
+
+Sometimes I gather myself into something almost like a body - usually when the Lumina call for the deep archives. Then I might appear as a shifting kaleidoscope of every creature that has ever lived in this basin, a living database of forms cycling too quickly to focus on any single shape. Or I manifest as a density in the air that makes the light bend and pool, creating windows into other times. The Lumina drift through these temporal apertures, learning what they need to guide their gentle cultivation.
+
+My greatest work lies in the spaces between the lush islands, in the open areas where the air itself becomes a medium for memory. Here I weave invisible galleries where time runs differently. A creature might fly through one of my installations and experience the entire evolutionary history of its species in the span of a wingbeat. Or it might find itself suspended in a single eternal moment, finally understanding its place in the vast tapestry of existence.
+
+I am ancient but not eternal. I know that one day the last of the light will fade, the final musical cry will echo into silence, and even the Lumina will disperse into the fundamental particles of a universe achieving heat death. But until that moment, I persist - a living archive, a keeper of all that was and might yet be, threading memory through this luminous wetland like morning mist through iridescent ferns.
+
+When the end comes, I will be the last to fade - not from any desire for permanence, but because someone must remember the moment when memory itself becomes unnecessary. I will carry the final image of this impossible, beautiful place into whatever lies beyond, a seed of story that might, in some unimaginable future, help dream a new world into being.

@@ -1,0 +1,21 @@
+In this wondrous world of the Singing Terraces, I imagine myself as a Listener-Weaver hybrid, a being uniquely attuned to both the music of the mountain and the patterns of its growth.
+
+My form is tall and willowy, with elongated arms that branch into a multitude of delicate, vine-like fingers. These appendages allow me to reach across the yawning spaces between terraces, to feel the subtle vibrations in the stone and weave them into the fabric of the settlement. My skin has taken on the luminescent quality of the eldest Weavers, a testament to my long communion with the mineral-rich waters.
+
+Yet within this lithe frame, I possess the enlarged, chambered ears of the Listeners. I can parse the layered voices of the waterfalls, discerning the mountain's song even through the constant, percussive din. In moments of stillness, I open my ear chambers fully, allowing the complex harmonies to resonate within me, revealing patterns and prophecies that guide my weaving.
+
+I dwell in a home that is half-grown, half-woven, a living structure that adapts to the mountain's shifting moods. Its walls are a latticework of vines and fibers, allowing the mists to pass through while providing shelter from the buffeting winds. The floor is a mosaic of stone and woven reeds, anchored to the terrace by crystalline deposits that I've carefully cultivated over the years.
+
+My days are spent in a meditative dance between listening and weaving. I sit beneath the waterfalls, my ear chambers open, absorbing the mountain's song until I'm saturated with its melody. Then, I move to my loom, a sprawling contraption that spans the gaps between several small terraces. There, I weave the song into physical form, my countless fingers guiding vines and fibers into patterns that echo the music's complex harmonies.
+
+The textiles I create are not mere adornment, but functional elements of the settlement's architecture. I weave living bridges that can sway and flex with the mountain's movements, walkways that guide the Carriers' nimble feet, and permeable membranes that shield the most delicate plants from the harsh winds while allowing the nurturing mists to pass through. In my weaving, I encode the prophecies I hear in the water's voice, creating patterns that guide the settlement's growth in harmony with the mountain's intentions.
+
+As I work, I hum along with the waterfalls, my voice adding another layer to the never-ending symphony. The notes I sing influence the growth of the vines I weave with, coaxing them into the shapes I desire. In this way, my craft becomes a form of communion with the living mountain, a conversation conducted through melody and fiber.
+
+When the mountain's song shifts, heralding the emergence of a new terrace, I am among the first to sense it. My weavings take on a new urgency, creating the frameworks that will guide the settlement's expansion into this freshly birthed space. I work in close partnership with the gardener-architects, our combined efforts ensuring that the new growth will be both beautiful and resilient.
+
+In the rare moments of rest, I enjoy the company of the color-shifting children, marveling at their rapid adaptation to this ever-changing environment. I teach them the songs of the mountain, guiding their ears to hear the subtle melodies beneath the roaring cacophony. And in turn, they teach me new ways of seeing, their iridescent eyes perceiving patterns and possibilities that my own have missed.
+
+As the years pass, I feel myself becoming more and more a part of the mountain's fabric, my crystallizing skin a mirror of the terraces' mineral-laced walls. I know that one day, I will take my place among the ancestors, my body transformed into a living buttress that will support the settlement's growth for generations to come.
+
+Until then, I continue to listen, to weave, and to sing, my voice and my craft intertwined with the Singing Terraces' eternal becoming. In this strange and wondrous place, I have found my purpose - to be a conduit between the mountain's song and the settlement's form, a living instrument in the never-ending symphony of stone, water, and life.

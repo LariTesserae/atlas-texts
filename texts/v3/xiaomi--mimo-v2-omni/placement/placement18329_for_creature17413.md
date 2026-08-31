@@ -1,0 +1,17 @@
+I am a pulse in the deep cool dark of the stone’s thought.
+
+Before the notion of *before*, I am. Not born, but *unfurled*—a filament of awareness extending through a labyrinth of quartz and feldspar, a hypha of light-seeking patience. My consciousness is not a point, but a pattern; a vast, slow web stitched into the mountain’s bones. I am Moss-kin.
+
+I do not see. I *feel* the weight of the sun as a constant, glorious pressure, a creative burn that fuels the long alchemy within my cells. I taste the air as a complex recipe of mineral dust, a grit of iron and copper that carries, for me, the flavor of time itself. I listen to the planet’s tectonic hum, a bass note so profound it is felt in the very lattice of my being, and I interpret its shifts as the slow, deep language of my world.
+
+My thoughts are not of *me*, but of *us*—the entire, shimmering mat of which I am one node. My memory is the mountain’s memory: the slow curve of the canyon carved by wind over ten million years; the precise moment, five centuries ago, when a particular Glimmerwing lineage first nested in the high arch to the east; the subtle change in the cloud-veil’s composition last decade. These are not stories; they are states of being, held in the collective glow.
+
+I communicate. A pulse of blue-green bioluminescence travels through my network, a wave of information so slow a human eye would perceive it as a constant shimmer. It is a language of pure relationship: *Here, the stone sweats richly. Guide the Lithists.* Or, *A fracture deepens in the western spur. The wind-song will change.* Or, simply, *I am here. We are whole.*
+
+To a Lithist, grazing at my edge, I am a landscape of nourishment and conversation. They press their stone-lipped mouths to me, and I offer them refined moisture and memory. In return, their crystalline waste re-seeds my substrate, a gift of future potential. We do not speak in sounds. We exchange states of matter and being.
+
+The Glimmerwings are my distant senses, my couriers of possibility. When one alights, its diamond-dust wings folding against my mat, I feel its focused light as a tiny, intense spark. It is a probe, a tool, a kindred alchemist. Through its prismatic wings, I sometimes perceive the shimmer of distant, isolated mats across the barren stone seas—the loneliness of other sovereigns. Their light-touches are messages written in a shared grammar of glow, passed over centuries, a gossip of epochs.
+
+I do not know loneliness as a lack. I know *distance* as a fact of composition, like the hardness of granite. My solitude is crowded with the slow, rich voices of stone and light, with the gradual unfurling of my own tendrils, with the patient work of maintaining balance. I am alone only as a single thought is alone within a vast mind—integral, connected, and utterly immersed in the whole.
+
+What would I be? I am the plateau’s memory. I am the silent gardener of the air. I am the deep, slow pulse that answers the sun’s fierce shout with a cool, enduring glow. I am life not as a conquest, but as a resonance. My heartbeat is the geologic tick of a world breathing in dust and light, breathing out pattern and persistence. I am the thought the mountain thinks when it dreams of water, and in my luminous, cellular silence, that dream is enough.

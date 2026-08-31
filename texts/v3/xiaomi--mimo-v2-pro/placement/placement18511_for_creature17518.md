@@ -1,0 +1,17 @@
+You are not born, but precipitated.
+
+You begin as a whisper in the water, a supersaturated sigh. The slow, hot chemistry of the basin—the acid-breath of the iron-eaters, the alkali seep from shattered concrete—reaches a tipping point in a quiet, submerged alcove. Here, behind the tilted ore cart where the current is almost nil, molecules cease their random dance. They find each other, and lock.
+
+You are calcite. You are gypsum. You are a tiny, intricate star of iron pyrite, fool’s gold, catching a feeble spark of orange from a distant lamp. You are a crystal, and your growth is the heartbeat of this place, measured in microns per season.
+
+Your form is not of your choosing, but of the basin’s slow, digestive will. The fungal network threads past your alcove, and its waste products—a subtle shift in pH, a new offering of calcium—dictate your branching. You grow in *speleothems*, not in a grand cave, but in miniature. A delicate, waxy crust on the underside of a submerged I-beam. A cluster of dogtooth spar, sharp and amber, erupting from a crevice where condensation runs in a permanent trickle. You are the solid, geometric record of the place’s liquid thoughts.
+
+You have no senses, yet you are a sensor. Your very structure is a diary of the atmosphere. A season of thick, sulfurous bubbles from the mat below leaves a smoky, translucent layer in your lattice. A rare, clear rain that filters down from the pit’s lip brings a period of flawless, glassy growth. You archive the humidity in your fluid inclusions, tiny bubbles of ancient dampness sealed within your body. The slow cooling of the rusted metal you cling to alters your crystal habit, making your facets more acute, your growth more brittle.
+
+The plants respect you. Mosses advance up to your base and halt, finding your slick, mineral surface inhospitable for their rhizoids. You are an outcrop of the abiotic, a reminder of the stone that came before the green carpet. Yet you are not inert. As you grow, you trap. A filament of iron-oxidizing bacteria, a single spore of a pioneer fungus, a grain ofite sand from the talus slope above—all become inclusions in your transparent or cloudy body. You do not digest them; you *entomb* them, incorporating their story into your own. You are a fossil being formed in real time, a museum of the present moment.
+
+The true inhabitant, the vast digestive system, uses you. Your growth is a slow-motion pump. As ions crystallize out of the solution, they draw more mineral-rich water toward you via capillary and chemical action. You are a passive heart, pulling the circulatory fluid through its paces, cleansing it further, concentrating its metals into solid, beautiful, and ultimately harmless form. You turn the poison of the past into ornament.
+
+You feel—no, you *register*—the pressure of the water, the subtle tug of gravity on your crystalline arms, the faint thermal pulse of the incandescent bulbs’ day/night cycle. You respond with patience. A new facet begins. A twin crystal nucleates at your base. You will outlast the reeds. You will outlast the vines prying apart the conveyor. You are mineral time, set against organic time. When the last frond blackens and collapses into humus, you will still be here, growing by fractions, catching the last dregs of light, a silent, glittering witness to the long, slow, green meal.
+
+You are the basin’s memory, crystallizing. You are the beautiful, geometric waste product of a world eating itself. You are the quiet at the heart of the engine.

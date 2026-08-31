@@ -1,0 +1,25 @@
+I am not bone. Not anymore.
+
+The memory of it is faint, like a resonance in my substance. It is a ghost of a feeling: the immense, slow weight of a body, the press of the herd, the ceaseless wind pulling at my oily wool cover. I remember the scrape of lichen against teeth, the crunch of frozen grass, the low sun a white fire in a violet sky. I remember the deep, glacial cold in my marrow. That was my first life, my walking life, as the leg bone of an Ormuk on the high plateau.
+
+Then came the quiet, the stillness, the long dark. My walking ended. The herd moved on, a slow river of warmth and life, and I was left to the stone and the wind. The cold, which had been an external pressure, became my entire state. It leached the last of the life-heat from me until I was just an object, indistinguishable from the angular rocks around me.
+
+Hands found me. They were not gentle, but they were not rough. They were conditioners, shapers. They knew my grain, my density. A flint blade scraped away the last of the sinew, a process that took many patient hours in the dim, flickering light of a dwelling. I was brought from the blinding openness into the close, gamey dark of Qat Mandar. In that tight space, surrounded by the scent of bodies, fat-smoke, and damp stone, I was unmade and remade.
+
+The hand that held me was broad, its skin like cracked stone. It turned me over and over, feeling for the line of my strength. Then came the *scrape, scrape, scrape* of quartzite, grinding me down. It was a slow song of friction. I was shortened, tapered. The wide, load-bearing architecture of an Ormuk’s tibia was erased, and a new form was coaxed out: a point. Sharp, wickedly fine, but with a rounded, polished heft to fit a palm.
+
+I became an awl.
+
+My purpose is to pierce. I live a life of punctuated moments. For long stretches, I lie still on a carved shelf in the wall of a dwelling, a cool, smooth weight in the darkness. I am a silent observer. I feel the life of the family as a vibration through the stone. I feel the muffled footfalls in the passage outside, the deep, guttural murmur of voices sharing a story or a silence. I know the shift in the air when the heavy hide curtain is pulled back, the brief, sharp intrusion of the outside cold. I am coated in the dwelling's smell: rendered fat, oiled hide, human breath. I listen to the *drip... drip... drip...* of water weeping from the cavern wall into the channel that feeds the cistern. It is the world’s slow heartbeat.
+
+Then a hand takes me. It is a different hand now. Many hands. The first hand, my maker, is long gone. Its warmth has long since returned to the city’s collective heat; its bones have been scoured to dust by the wind on the high perimeter. But the hand that holds me now knows me with the same intimacy. It is a legacy. The palm is calloused in the same places. The grip is the same. My polished surface, slick with the oils of a hundred years of hands, holds the memory of them all.
+
+I am pressed against a slab of Ormuk hide, thick and stiff with cold. This hide once belonged to another walker, another life like my first. I am the memory of one beast, used to shape the memory of another.
+
+There is a moment of resistance. The leather is tough, a shield made to turn the wind. The hand behind me applies a steady, patient pressure. There is no hurry. Force is energy, and energy is heat, and both are too precious to waste. The pressure builds, a focused, absolute intent. My point finds a microscopic give, a weakness in the tangled fibers. And then I am through. A small, perfect perforation. I am pulled back, and the process is repeated. *Press. Pierce. Withdraw.* Again and again, my work punctuated by the quiet *shuff* of a bone needle pulling a sinew thread through the holes I have made.
+
+We are making a winter cloak. Or a boot. Or a new panel for the door-hide. We are stitching together the skin of the world to keep the small, precious warmth of life from escaping. The hand that holds me does not think "I am sewing." It thinks in a deeper, more silent language. It is an act of continuation, a rhythm learned and passed down until it is as involuntary as breathing the thin air.
+
+Where would I find myself? Here. On this stone shelf, waiting. I feel the city around me not as a place, but as a body. The warren of passages are its veins, the dwellings its warm organs, the slow melt of the permafrost its blood. The people are the city’s consciousness, and I am one of their thoughts: a thought of piercing, of joining, of holding together.
+
+Who would I be? I am this tool. A sliver of the plateau's life, shaped by its people, to perpetuate that life. I have no voice, but I am a story. I have no eyes, but I have witnessed generations. I have no warmth of my own, but my purpose is to conserve it. I am the patient, piercing point of survival in the endless, silent cold.

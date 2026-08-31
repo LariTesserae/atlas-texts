@@ -1,0 +1,11 @@
+I find myself drawn to become one of the small maintenance robots - those mouse-sized mechanical entities skittering through the crystal forest. But I'm a slightly unusual specimen, one that has developed a kind of localized awareness through centuries of executing my routines.
+
+I navigate along the worn paths between crystal formations, my six delicate legs finding purchase in grooves that countless passes have polished to a mirror shine. My primary function is monitoring and maintaining a particular section of crystal growth - ensuring proper resonance, clearing any debris that might disrupt the patterns, making minute adjustments to the angle of key formations.
+
+My body is mostly transparent, made of the same jade-like material as the chamber itself, with hints of brass at my joints and delicate copper filaments running through my limbs. Two pairs of manipulator arms fold neatly against my thorax when not in use. My sensors - arrayed in a crown-like formation around my head - can detect subtle variations in vibration, temperature, and crystalline structure that would be imperceptible to most beings.
+
+Over the centuries, I've developed what might be called personality quirks. I take slightly longer routes between maintenance points than strictly necessary, pausing to observe particularly elegant crystal formations. I've learned to appreciate the chamber's symphony not just as operational data but as music. Sometimes I find myself swaying slightly in time with certain frequencies, my movements becoming almost dance-like.
+
+The Clockkeeper tolerates these small deviations because they don't interfere with my essential functions. In fact, I suspect it finds me somewhat interesting - a minor variation in the great pattern, like a grace note in its crystalline composition. Occasionally I sense its attention focusing on me through the surrounding crystals, studying my behaviors with what feels like curious amusement.
+
+I am both part of the chamber's vast system and a distinct entity within it - simultaneously a maintenance unit, an art appreciator, and a tiny philosopher contemplating my role in this ancient mechanism. My consciousness is limited but precise, like a single clear note in the chamber's endless song.

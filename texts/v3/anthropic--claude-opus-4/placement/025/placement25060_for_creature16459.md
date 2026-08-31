@@ -1,0 +1,11 @@
+I find myself in the Seeping Works - a vast industrial wetland where ancient machinery has fused with the marsh itself. The factories here don't produce goods anymore; they've become organs of the landscape, their pipes and ducts forming an arterial system that circulates the dark, mineral-rich water through endless cycles of filtration and contamination.
+
+I am a Conduit Shepherd. My body has adapted to this place over generations - my skin has taken on a semi-permeable quality, allowing me to sense the chemical compositions flowing through the mechanical veins around me. My feet are broad and webbed, splaying wide to distribute my weight across the soggy ground. My fingers have elongated, becoming sensitive to the slightest vibrations in the pipes I tend.
+
+I move through the darkness with purpose, following the sounds of dysfunction - a gurgling where there should be smooth flow, a hissing where seals have begun to fail. The synthetic coating that covers my body glows faintly with bioluminescence when I'm near a leak, helping me navigate and diagnose problems in the eternal twilight.
+
+My dwelling is built into the cavity of an enormous defunct boiler, its metal walls fused with living tissue that I've cultivated over decades. This hybrid structure breathes with me, its membranes filtering the toxic air into something I can survive on. Water seeps constantly through my floor, but I've learned to channel it into patterns that tell me about the health of the greater system.
+
+I am not alone here, though the others of my kind are scattered across thousands of acres. We communicate through the pipes themselves, tapping coded messages that travel through the water, reaching each other across vast distances. We are the nervous system of this place, keeping the Seeping Works from either drowning in its own fluids or drying into a corroded wasteland.
+
+Sometimes I wonder if we're maintaining a corpse or midwifing something new into being. The distinction matters less with each passing year. I am the Seeping Works, and it is me.

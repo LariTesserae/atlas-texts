@@ -1,0 +1,47 @@
+I am the memory keeper of water.
+
+In this city where everything flows yet nothing changes, I occupy the small stone chamber beneath the Listening Cistern—that ancient basin near the plateau's heart where seven channels converge. My dwelling is more cavity than room, carved from the living rock with walls that weep a constant film of moisture. The sound here never stops: dripping, trickling, gurgling, each note telling its own story to those who know how to listen.
+
+I was not born to this role. As a child, I tended the common gardens with clumsy fingers, unable to distinguish between the seventeen varieties of cushion moss, forever mixing the sap of heartwise vine with that of its bitter cousin. My parents, patient cultivators both, tried to school me in the plant-knowledge, but my attention wandered. Instead of watching the gardens, I watched the water—how it moved, where it pooled, the way it carried sound and scent from one terrace to another.
+
+The old memory keeper found me one grey dawn, lying with my ear pressed to a drainage channel, listening to something only I seemed to hear. She was ancient even then, her skin like wet paper, her eyes clouded as the morning. "What does it say?" she asked, and I told her: "It remembers yesterday's rain, but also rain from before the city." She nodded once and took me below.
+
+My training was not in words but in immersion. For seven years I lived in the chambers beneath the cisterns, learning to distinguish not just the sound of water through different stones, but the taste of different ages in it. New rain tastes sharp, electric. Last season's water carries vegetable notes from its journey through soil. But the old water—the water that seeps from cracks so deep they predate the city's first stone—that water tastes of time itself, metallic and patient.
+
+I learned that water holds memory in its mineral content. Each droplet that passes through the plateau accumulates traces: calcium from the limestone layers, iron from the deep volcanic intrusions, silica from the granite bones of the mountain. But also subtler things—the oils from fingers that have touched the channel walls, the microscopic debris from roots that tap the underground streams, the chemical whispers of decomposition from the remembrance groves.
+
+My work is to taste these memories and speak them. When the stone workers need to know if a foundation is sound, I sample the seepage beneath it. Water that has passed through compromised stone carries the bright tang of dissolution. When the garden tenders puzzle over a blight, I test the irrigation channels. Disease leaves its signature in the water—sometimes sour, sometimes unnaturally sweet, always distinct from the healthy baseline I hold in my mouth's memory.
+
+But I also keep the larger memories, the ones that span generations. In the deep cisterns, protected from dilution, rest waters that have not seen sky for centuries. Once each season, I descend to these reservoirs and take the ritual sip. In that darkness, guided only by the faint phosphorescence of the blind cave fish that patrol the depths, I taste the story of our settlement.
+
+Here is the flood of three hundred years past, when the mountain shrugged and shifted the water table. Its flavor is sharp with fear and displaced stone. Here is the drought of the seventh age, when the mists failed for two full seasons—concentrated, mineral-thick water that speaks of careful rationing. Here is the year of the great bloom, when the passion vines fruited so heavily their juice tinted the entire water system pink and sweet.
+
+My chamber connects to all parts of the city through a network of speaking tubes—ceramic pipes the width of my thumb that follow the water channels. By placing my ear to different openings, I can diagnose problems anywhere in the settlement. The water carries sound with remarkable fidelity. I hear conversations in gardens twelve terraces away, the splash of a child playing in a basin, the grinding of stone on stone where a new channel is being carved.
+
+More importantly, I hear what the water itself says. Each stream has its own voice: the high channels sing soprano, quick and light; the deep flows murmur bass notes that vibrate in my bones. When they harmonize, the city is healthy. Discord means disruption—a blocked channel, a new spring undermining stable ground, contamination from an improperly placed grave.
+
+I keep my records not in writing but in water itself. In my chamber stand dozens of sealed jars, each containing a sample from significant moments. This is more than mere collection—it is active preservation. By isolating these waters, I prevent their memories from diluting into the general flow. Future memory keepers will taste these samples and know precisely what I know, experience what I have experienced.
+
+The loneliness of my position is profound but not absolute. Water connects me to every living thing on the plateau. When I place my hands in the morning flow, I feel the night's activities ripple through my palms—which terraces were watered, which cisterns were drawn from, where the stone workers washed their tools. The water tells me who is ill by the herbs washed in the healing basins, who has given birth by the ritual cleansing that follows, who has died by the distinctive mineral signature of the remembrance groves.
+
+My social interactions are limited but intense. The other specialists consult me as they would an oracle, though I am no mystic—merely an interpreter of chemical and mineral fact. When I emerge for the seasonal ceremonies, moving through the mist-shrouded streets to perform the public tastings, people watch me with a mixture of respect and unease. I am necessary but alien, too intimate with the forces that run beneath their daily lives.
+
+My apprentice troubles me. She has the sensitivity—I've seen her distinguish between waters from springs mere meters apart—but she lacks the essential stillness. She wants to map the water system, to create charts and diagrams, to impose order on what is already perfectly ordered. She doesn't understand that the water IS the map, that trying to fix its patterns in static form destroys the very thing we're meant to preserve. Memory is not archive; it is living flow.
+
+Still, I was young once, eager to categorize and control. The water taught me patience, as it teaches all things patience. In time, she will learn to stop trying to hold the flow and simply become part of it. Or she will leave, drawn back to the gardens or the stone works, and another child will be found listening to the channels, hearing what others miss.
+
+My greatest discovery came only recently, after forty years of service. I was sampling the deepest accessible water, drawn from a crack that appeared after a minor earth tremor. The taste stopped me cold—not because it was unknown, but because it was familiar. It carried the exact mineral signature of rain I had tasted that morning, rain that had fallen on the highest peaks and should not reach the deep aquifer for centuries.
+
+This means the water system is more complex than even we memory keepers suspected. There are shortcuts, perhaps pressure-driven channels that can move water through geological time in mere days. Or—and this thought makes me dizzy—time itself moves differently in the deep places, and water can arrive before it has finished leaving.
+
+I shared this discovery with no one. Some knowledge is too large for immediate understanding. Instead, I added a new jar to my collection, sealed with wax I mixed myself, marked only with a symbol that future memory keepers might puzzle over. Let them taste this paradox themselves and draw their own conclusions.
+
+My days now follow the water's rhythm. Dawn testing at the seven primary springs. Morning consultations in the chamber of speaking tubes. Afternoon meditation with the seasonal samples. Evening circulation through the lower channels, checking for changes in flow or flavor. Night listening, when the city sleeps and the water's voice is clearest.
+
+I am not the city's most vital citizen—that honor belongs to the water itself. I am merely its translator, the one who makes its knowledge accessible to human understanding. In a place that has achieved perfect balance, I am the tongue that tastes whether that balance holds, the ear that hears the first whisper of change.
+
+When I die, they will not bury me in the remembrance groves. Memory keepers are given to the water directly, our bodies dissolved in special chambers where our minerals can join the eternal flow. Every memory keeper before me runs through these channels, their knowledge literally incorporated into the system they served. Sometimes, in the deepest cisterns, I taste them—a peculiar salinity that speaks of human consciousness dissolved and dispersed but not destroyed.
+
+This is my immortality: not in offspring or carved stone, but in the water itself. Future memory keepers will taste me in the flow, know what I knew, feel what I felt. I will become part of the city's liquid memory, my life's work inseparable from the element I serve.
+
+Until then, I listen, I taste, I remember. In the constant drip and flow of this mist-wrapped city, I am the consciousness of water, the one who knows where we have been and where we are going, though in truth, they are the same place—this eternal plateau where time moves like water, always flowing, never lost.

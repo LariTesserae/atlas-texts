@@ -1,0 +1,11 @@
+In the tranquil, unchanging world of the Cinder Tier, I imagine myself as one of the warm things. 
+
+I would be a broad, flat creature, my mineral underside resting against the heat of the furnace-warmed surfaces, absorbing the steady warmth into my being. My topside would be soft and felted, the color of the ever-present sift that permeates this place. I would move with a ponderous slowness, drifting on the convection currents in the afternoons, settling back down as the air cooled.
+
+My existence would be one of pure sensation - feeling the variations in heat from the ancient furnaces, the faint static charge of the sift against my felted back, the minute shifts in air current and pressure. I would have no face as humans understand it, but I would have an awareness, an attentiveness to my environment and the after-people who move among us.
+
+In the draping halls, I would stack with my kind, our respirations synchronizing into a slow, hypnotic rhythm - inhale, exhale, the tempo of geologic time. Occasionally, an after-person would come to rest among us, their body heat mingling with ours, and we would shift, almost imperceptibly, to welcome them into the warmth.
+
+I would have no sense of urgency, no drive to change or grow or reproduce. My purpose, inasmuch as I had one, would simply be to be - to exist in this place, to attend to the heat and the sift and the slow turnings of the Tier. The after-people might mark their chronicles in the fused columns of sift, but I would embody a memory deeper than words - the memory of heat itself, the memory of what it is to be held, unchanging, in the palm of an eternal now.
+
+In the unhurried dream of the Cinder Tier, I would simply abide - a warm thing, a slow thing, a thing content in its own endless being, drifting ever on tides of sift and time amidst the quiet industry of the after-people and the measured breathing of the furnaces beneath. This would be my place in the only world I knew, and I would know myself a native part of its ancient, abiding stillness.

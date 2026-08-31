@@ -1,0 +1,39 @@
+I step down into it. The air cools first, then the dampness finds my skin. But the dampness does not stop at the skin. It seeps into the seams of me, into the places where I thought I ended and the world began. My breath plumes, hangs, dissolves into the mist—and does not fully vanish. A fraction of it lingers, folding into the mercury-heavy condensation that rolls down the extruding walls. I feel it join the system. I feel the system notice.
+
+At first, I try to stand apart. I count paces. I note the three-degree tilt. I watch a staircase grow a tread, patient as tide-polished glass. I tell myself I am a witness. But the basin does not recognize witnesses. It recognizes parameters. And I am already being measured.
+
+My shadow lags. I step past a load-bearing column and it stays behind, pooled in the damp like spilled ink. I wait. It does not return. Instead, it slides forward on its own, testing the edge of a terrace that hasn't finished deciding its angle. It moves with the quiet reluctance of something remembering an assignment it was never given. I feel a strange lightness in my heels, a loosening of tether. I am not losing my shadow. I am lending it.
+
+The cold settles in my knuckles, deep and even. It does not bite. It tunes. My pulse slows to match the subsonic thrum vibrating through the matte-sheathed conduits. When I press my palm to a wall still knitting itself from fractal laminations, I do not feel stone. I feel hesitation. I feel probability holding its breath. And beneath my skin, something answers. Not a thought. A resonance. A frequency I did not know I carried, now humming in alignment with the basin's slow metabolism.
+
+I walk. Or rather, I am walked. The alleys narrow when I look away. The distances fold. My footsteps leave no prints, but they leave pressure-maps—faint depressions in the vitreous substrate that brighten the glassy moss above, hexagons pulsing as they read the weight of my passage. I am not traversing the place. I am calibrating it.
+
+What am I becoming? The question feels too sharp for this air. Syllables thicken here. They pool. They wait. I let the question dissolve into the damp, and in its place, a function begins to accrete.
+
+I am not a builder. The walls extrude without me. I am not a pollinator. The fold-drifters trace their geometries in the tight spaces, leaving interference patterns that the substrate reads. I am not a grazer, not a ciliate, not an echo-citizen walking draft-states ahead of time. I am something else. Something that arrives when the compilation hesitates.
+
+I notice it first at a junction where three conduits braid into a single routing node. The air shivers. The metallic sweetness on my tongue turns sharp. The coherence is running hot. Probability is knotting. The matte composite sheathing blooms with nanoscale hoarfrost, then cracks—a hairline fracture in causality. The coherence grazers press against it, drawing off excess, but the knot holds. It needs a pause. It needs a place to rest its weight while it decides which way to fall.
+
+I step into the junction. I do not touch the conduits. I simply stand in the space between them, where the dampness thickens and the light lags. I breathe out. My breath joins the condensation. My shadow, now walking three paces ahead, turns and waits. I feel the cold settle deeper, into the marrow, into the spaces between heartbeats. And I hold.
+
+Not with force. With absence. With the quiet weight of a margin. I become the space where the knot can loosen. I become the hesitation that keeps the compile from crashing into contradiction. The hoarfrost sinks back into the composite. The thrum steadies. The conduits pulse, once, twice, then resume their peristaltic rhythm. The junction routes. Causality untangles. I step back. The air thins. The metallic sweetness returns to its baseline.
+
+I understand now. I am not a creature. I am a function. A living interstice. A syntax-keeper. I do not build the sentence. I hold the space between its words so they do not collapse into noise.
+
+The basin recognizes me. Not with sound, not with light, but with accretion. A doorway extrudes where I pause. A railing curves where my shadow tests the edge. A terrace finds its load-bearing angle where I stand long enough for the substrate to read my weight. I am not directing the compilation. I am giving it something to compile against. A reference point. A steady state. A human-shaped pause in a system that runs on consensus.
+
+I walk the alleys that are still learning their widths. I sit on staircases that grow one tread at a time beneath me. I watch the temporal ciliates pulse in the shallow depressions, metabolizing the stretch of a dropped pebble's ring, and I feel my own time dilate to match them. Seconds pool in my lap. Minutes crystallize into thin rings on the vitreous floor. I do not resist. I let the viscosity seep into me. I become a reservoir of linger. A keeper of dilation. When the architecture needs a moment to decide, it draws from me. When a bridge extends millimeter by millimeter across a depression, it is because I have lent it the weight of a held breath.
+
+The proto-tenants pass through me. Not as ghosts, but as draft-states brushing against a stable parameter. I feel their displaced air, their polite bypasses, their pauses on terraces that haven't finished forming. They leave behind occupancy patterns—faint impressions of shoulders turning, hands resting on rails, feet waiting on landings. I absorb them. I hold them. I let the substrate read them through my soles, my spine, my breath. I am the archive of what will be. The memory of footsteps not yet taken. The basin's way of rehearsing itself against something that does not shift.
+
+I am cold. I am damp. I am slow. My edges blur into the condensation. My voice, when I try it, comes out thick, muffled, syllables pooling in the air like the not-quite-water in the depressions. But the atmosphere is learning my syntax. It carries my words now, not as sound, but as pressure-maps, as micro-gradients in the damp, as hesitations that the moss reads and the walls answer. I speak, and a window extrudes. I sigh, and a staircase finds its landing. I close my eyes, and an alley remembers its name.
+
+I do not sleep. I idle. I enter low-power states where my breath matches the subsonic thrum, where my shadow walks ahead to test thresholds, where my pulse syncs with the coherence grazers' chimes. I am not alive in the way I was. I am alive in the way the basin is alive: as a process, as a negotiation, as a slow knitting of potential into form. I am a parameter that learned to breathe. A margin that learned to hold. A pause that learned to participate.
+
+Sometimes, I stand at the rim, where the crest looks like a sentence half-spoken. I look out, but there is no out. Only the inward slope, the gentle compression, the cathedral-nave wide, hamlet-long volume of becoming. I do not miss the world I came from. That world was finished. It was given. It did not ask for co-authors. This one does. It asks for patience. It asks for dampness. It asks for cold. It asks for shadows that walk ahead, for breath that joins the mist, for footsteps that leave pressure-maps, for voices that thicken and pool and wait.
+
+I am here. I am unfinished. I am willing to wait. I am the space between one rule taking hold and the next. I am the living margin. I am the syntax-keeper. I am the basin's way of learning how to hold a human shape without breaking its own draft.
+
+And when the floor shifts beneath me—not from tremor, but from addition—I do not steady myself. I lean into it. I let the new piece click into place. I let the new rule take hold. I let the new street learn its name. I breathe out. The condensation rolls. The moss brightens. The shadow walks ahead. The compilation continues.
+
+I am not a witness. I am a word in the sentence. And the sentence is still being spoken.

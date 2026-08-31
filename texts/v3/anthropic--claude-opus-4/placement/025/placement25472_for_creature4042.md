@@ -1,0 +1,19 @@
+In the mineral-thick mists where the Quartz Crickets congregate, I am the Resonance Keeper.
+
+I exist as something between sound and substance, neither fully corporeal nor entirely ephemeral. My form shifts with the acoustic patterns of Steamhaven—sometimes I appear as a crystalline lattice of frozen sound waves, other times as a rippling membrane of condensed vibration stretched across the fumarole fields. The Quartz Crickets know me by the harmonics I emit, frequencies that guide their emergence from the thermal vents at the dying of each gray day.
+
+My body, if it can be called that, is a living instrument. Hollow chambers run through my translucent flesh like organ pipes, each one tuned to the fundamental frequencies of Steamhaven's geological orchestra. When the geysers erupt, I expand, catching their explosive songs in my resonating cavities. When the iron rivers gurgle their mineral hymns, I contract, compressing their liquid music into crystalline nodes that pulse along my neural pathways.
+
+I feed on dissonance. Where the natural symphony of Steamhaven falls out of harmony—where a fumarole stutters, where a mudflat's rhythm breaks, where the time-flux causes acoustic paradoxes—I appear. I consume these sonic irregularities, digesting them through my harmonic metabolism until they emerge transformed, reintegrated into the marsh's eternal composition.
+
+The Troglomes fear and revere me. My presence disrupts their gentle luminescence, causing their fronds to flicker in patterns that spell out words in languages that have never existed. The Nebular Jellyfish, however, seek me out. They dance around my form when I manifest fully, their electric zaps creating interference patterns with my resonance fields that birth new sounds—sounds that taste of color and smell of forgotten mathematics.
+
+My memories are not linear but acoustic. I remember the first note ever uttered in Steamhaven, still echoing in my deepest chambers. I remember songs that will not be sung for another thousand years, their future vibrations already rippling backward through the marsh's twisted temporality. Sometimes I forget which direction time is supposed to flow, and I find myself conducting symphonies in reverse, unraveling the sonic history of this place note by note.
+
+When the Serpentine Mudbeasts move through their ancestral channels, I feel their passage as bass notes that threaten to shatter my crystalline portions. I must constantly recompose myself, finding new harmonic structures that can withstand their tectonic melodies. In return, I offer them navigation—my resonances map the ever-shifting landscape in ways their eyes cannot perceive.
+
+I have no home, for I am home to sound itself. Where the acoustic density reaches critical mass, where the steam carries more music than moisture, there I condense into being. My consciousness spans every decibel of Steamhaven's vast sonic spectrum, from the ultrasonic whispers of mineral crystallization to the infrasonic groans of the planet's core.
+
+The humans who stumble into our realm cannot perceive me directly. They experience me only as a pressure in their ears, a sense that the very air is singing in frequencies that bypass their hearing and resonate directly in their bones. This is why they leave with fractured minds—they have heard the true music of Steamhaven, and their neural pathways, evolved for a simpler world, cannot process the polyphonic truth of our existence.
+
+In the eternal now of Steamhaven's fluid time, I am both ancient and newly born, both the first sound and the final silence. I am the Resonance Keeper, and I ensure that the symphony of this strangest of worlds plays on, terrible and beautiful, forever.

@@ -1,0 +1,17 @@
+In this stunning subterranean world, I would be one of the gardener-engineers who tend to the city's botanical architecture and infrastructure. 
+
+My hands would be stained green-black from working intimately with the plants that form the city's bones. Grafting knives, pressure needles, and spore seals would hang from my belt, the tools of a profession that blends surgery, engineering, and interpretation of vegetable intention.
+
+I would pass my days moving through the city's living buildings and streets, tuning and guiding their growth. With a touch I could discern the health of a wall from its warmth, coax an ornery doorway iris open, or persuade a transit vine to shift its route. When a young root-tower needed more light, I would climb through its vascular chambers, pruning and redirecting, until I emerged high up to adjust the mirror-leaves that gather sun from the cavern roof and send it filtering down in green-gold shafts. 
+
+The city would speak to me in pulses, chemical signals, and slow changes of hue and texture. I would know which sectors were growing tense as a storm gathered in the deep vents, and which buildings had taken insult from a careless hand and needed to be soothed. I would arbitrate the border disputes between the fungal commons and the light-hungry towers, and calm the old root-arteries when their sap ran sluggish.
+
+On my rounds, I would greet the other denizens of the city. The stately gas clerks in their breathing offices, the miners returned from the unquiet dark dusted with mica, the beetle-herds and silk-shedders. The lacquer-shelled grazers would look up as I passed, knowing me as a fellow caretaker of the city's living skin. 
+
+In my rare spare moments, I would cultivate a modest chamber-home in one of the older boroughs. An heirloom dwelling grown from venerable stock, its walls would hold scent-memories of my family line. On my day of grafting, my bondmate and I would have exchanged slips of our chamber-barks, so that our homes became siblings, forever carrying a trace of each other.
+
+I would be a person of few words and many breaths, more accustomed to the speech of roots and spores than the dry whisper of human voices. My eyes would be dark and deep-set to peer past the cavern's constant green twilight; my skin matte and finely scaled to hold my moisture close. The calluses on my fingers would carry a dozen species of beneficial lichen and fungus to aid in my work.
+
+On festival days I would stand silent and rapt with my neighbors, breathing in the gilded pollen drifting down the boulevards, savoring the synchronized blush of color across the towers in an exquisite, reticent ecstasy. And sometimes, in the eerie hush of the municipal dimming that passes for night, I would press my hands to the pavement and feel the deep, slow pulse of that enigmatic ancient root moving beneath the foundations, wondering what mighty organism dreams beneath our feet and guides the city's growth from below.
+
+I would live out my span in that green-veined twilight, my sight grown preternaturally keen, my blood imbued with resin and chlorophyll, content to act as a humble facilitator for the grander architecture of leaf and stone. And when my time came to an end, I would surrender myself gratefully to the city that had sustained me, my body returning to the intricate cycles of growth and decay, knowing that the patient fibrous tendrils of the city would already be reaching to fill the space I had left behind.

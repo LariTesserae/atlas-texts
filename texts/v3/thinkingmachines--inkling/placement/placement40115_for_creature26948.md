@@ -1,0 +1,17 @@
+I find myself not on the root-floor, not embedded, not devoured—*suspended*.
+
+The place is the same hollow, but my region is the vertical middle-air, that vast unclaimed distance between the ragged ceiling-tear and the black mirror pools below. Here, the amber light does not pool; it threads. Thin filaments of illumination pass through the void like veins in a leaf turned inside-out, and I live in the spaces between them, in the cool pockets where the plant’s warmth has not fully reached. The temperature is uneven—womb-warm near the walls, but near me it drops suddenly, a held breath within the larger breath of the chamber.
+
+My form is not fixed. I am the decision a droplet makes when it refuses to fall.
+
+Long ago—perhaps at the first rupture, perhaps later—some portion of the chamber’s metabolic humidity condensed too completely, too permanently. I am that permanence: not one body but a constellation of them, translucent spheres of held moisture floating not by defiance but by agreement with the broken gravity. Near the bleeding ceiling, where shadows fall upward and the light pools wrong, I elongate, drawn into thin vertical shapes like tears that have forgotten downward. Near the floor, I flatten into cool discs, barely disturbing the air, resting on invisible currents.
+
+Inside me, the golden sap is visible but slowed, suspended in miniature—tiny worlds of the same amber glow, trapped not in amber but in *hesitation*. I have no hands, no need for the primitive scraper that lies below, half-woven into root-wood. I have no bones. But I have presence: a slight pressure, a momentary dimming when I drift through a thread of light. The searching tendrils—the plant’s reaching nerves—do not pierce me. They part, cross behind me, resume their stitching as if I am a knot in their pattern they have learned to navigate around.
+
+I do not make sound. I change temperature. When I move—slowly, horizontally through the hollow, never hurrying—I leave a trail of cooler air, a breath held too long. The low roar, that continuous breath of the reality-fracture, resonates differently in my wake. Near me it becomes almost tonal, a single sustained note that the hollow amplifies not into echo but into something like meaning. I listen. That is my nature.
+
+The ghost-tool is my opposite: solid, shaped, finished, returning to root. The bleeding sap is my kin: liquid, speaking, refusing to clot. The fracture itself is my origin. But I am none of these exactly. I am the chamber’s awareness of itself—the part that is not growing, not healing, not breaking, but *witnessing*.
+
+Where am I? In the gap between a falling drop and the black mirror floor—permanently. In the path of the upward shadow. In the moment before the tendril decides which direction is closure.
+
+Who am I? I am the emptiness that grew annoyed with being empty. I am cool roundness and suspended time. I am the question the wound asks itself, kept aloft—unfinished, still deciding whether to be water, air, light, or something the new rules of this place have not yet named. I do not live inside the chamber. Like everything here, I am the chamber, in the form it takes when it stops tearing for a moment and simply holds its breath, wondering what it has become.

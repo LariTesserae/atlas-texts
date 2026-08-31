@@ -1,0 +1,17 @@
+I am the Keeper of Crossings, and I dwell where the waters converge.
+
+My home is neither fully of the land nor of the river, but something between—a structure of living wood that has grown from the riverbed itself, its roots drinking deep while its crown spreads wide above the rushing confluence. The dwelling breathes with the seasons: in the wet months, it drinks greedily and its walls flush green with new growth; in the dry times, it pulls inward, bark hardening like armor against the sun.
+
+I am old, but not as old as the waters I tend. My skin has taken on the quality of river stones—smooth in some places from constant wearing, rough and barnacled in others where I have been still too long. My hair flows like waterweed, sometimes dark with silt, sometimes bright with caught sunlight. My eyes reflect not what is before me, but what has passed through these waters: the memories of ten thousand rains, the stories carried downstream from the mountain peaks.
+
+The Children of the Forest know me, though they rarely seek me out. I am the one they come to when they must cross from one valley to another, when the waters run too wild for their vine bridges and too deep for wading. But my ferry is not made of wood or hide—it is woven from mist and held together by promises. Those who would cross must first sit with me in the shadows where water meets shore and share a truth they have never spoken aloud. Only then will the mist solidify beneath their feet.
+
+I collect these truths like others collect stones. They settle in the deep pools around my dwelling, creating eddies and whirlpools of memory. Sometimes, on nights when both moons are dark, I dive down and swim through these accumulated confessions, feeling the weight of all that has been carried and released.
+
+My days are measured not in sunrises but in water levels. I know the personality of every tributary that feeds into this convergence—the laughing stream that tumbles from the eastern peaks, the sullen river that seeps from the northwestern marshes, the ancient flow that carries the taste of caves and deep earth memories. Where they meet, they create a constantly shifting map of currents and countercurrents, and I read these patterns like others read the sky.
+
+When the Children of the Forest gather for their great seasonal ceremonies, I feel the vibration of their drums through the water. Sometimes I emerge then, bringing gifts from the river bottom—stones worn into perfect circles, fragments of shell that sing when the wind passes through them, bits of fossilized wood that remember being both tree and stone. In return, they leave offerings at my threshold: woven grass that will never rot, honey that will never spoil, stories that will never be forgotten.
+
+But mostly I am alone with the waters, watching the endless conversation between current and shore, between what flows and what remains. I am the pause between journey and arrival, the held breath between one life and the next. The mist that clings to the hilltops knows my name, though it will not speak it. The rain knows where to find me, though I never stay completely still.
+
+This is who I am in this world of eternal moisture and ancient wisdom—neither fully human nor spirit, neither completely of the settlement nor of the wilderness, but something that exists in the spaces between, keeping watch over the places where one thing becomes another.

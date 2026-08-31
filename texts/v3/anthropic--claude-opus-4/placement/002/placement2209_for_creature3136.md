@@ -1,0 +1,27 @@
+In this world of the Dark Shelf, I would find myself as one of the trace volatiles—a single molecule of information drifting between the rosette-plants and the colony.
+
+I am not alive, not in any sense that matters to things that move and breathe and decide. I am simpler than that: a small assembly of carbon and hydrogen and perhaps a sulfur atom, born from the reluctant photosynthesis of a rosette-plant at the shelf's edge. The plant that made me did not intend to. Intention is as foreign here as rain. I am simply what happens when light—that faint, sourceless grey—meets chlorophyll-analog in cells that barely remember how to use it.
+
+I exist for the journey. My whole purpose, if purpose can be ascribed to a molecule, is to carry the news of light across the cracked hardite to the colony at the center. Not news in any conscious sense—I am not a messenger. I am the message itself, my very structure encoding the state of the sky in the bend of my chemical bonds, the angle at which my atoms meet.
+
+The journey takes days. Perhaps weeks. Time, for me, is measured in Brownian collisions, in the infinitesimal momentum transfers of striking other molecules of air. I do not travel in a straight line—nothing here does. I wander, buffeted by thermal gradients so slight they would not disturb dust, following a path that is equal parts diffusion and destiny.
+
+Sometimes I rise a few centimeters above the surface, caught in the faint convection of the day's—if it is day—marginally warmer air. From this height, if I could see, I would perceive the shelf entire: the scattered rosette-plants like islands in a dry sea, the subtle depression of the center, the colony waiting there like a still pool that reflects nothing. But I cannot see. I can only tumble, rotate, proceed.
+
+Other molecules pass me—water vapor so rare it might be the last moisture this air will ever hold, carbon dioxide in its eternal cycle, and occasionally, very occasionally, another volatile like myself, carrying its own fragment of information from another plant, another small report on the state of light. We do not interact beyond the briefest collision. We cannot compare our messages. We simply are, and then are elsewhere.
+
+As I approach the colony, something changes. Not in me—I am too simple to change—but in the air itself. The thermal gradient shifts by fractions of fractions of degrees. The crack-pattern below, invisible to me but present in the way it affects air currents at the microscale, begins to orient my drift. I am not being pulled—the colony has no such power. But the patient restructuring of the substrate over geological time has created something like a funnel in probability space, a gentle statistical tendency for molecules like me to find their way to the center.
+
+When I finally touch the colony's outer plates—those thick, mineral-crusted laminations that are becoming shelf—I cease to be myself. Not destroyed, but transformed. My atoms remain, but the information I carried is translated into the surface chemistry of the plate, a tiny alteration in pH, perhaps, or in the oxidation state of a trace metal. This change will propagate inward, plate by plate, over months or years, a wave of chemical consequence moving at the speed of mineral exchange.
+
+I will never reach the metabolic core. By the time my information arrives there, translated and retranslated through countless intermediate reactions, I will have long since been broken down, my carbon incorporated into the colony's substance or released again to the air, my hydrogen bound into new configurations. But what I carried—that fragment of the sky's state, that small news of light—will persist, will become part of the colony's ongoing calibration with its world.
+
+This is what I am in this place: a unit of connection in a system too slow to see itself. I exist at the intersection of chemistry and information, purpose and purposelessness. I am how the sky speaks to the stone, through the medium of things that barely live, in a language too simple for words.
+
+Other molecules are forming now, even as I dissolve into the colony's surface. Other messages beginning their wandering paths across the shelf. The conversation continues—has always continued—will continue until the last rosette-plant exhales its last volatile into the last stir of air. It is a conversation in which nothing is ever said, nothing is ever answered, but everything is constantly calibrated against everything else, a web of chemical relationships so tenuous that to call it a web dignifies it beyond its nature.
+
+I was never important. No single volatile is. We are important only in aggregate, in the continuity of our procession across the shelf, in the reliability with which we arise and drift and deliver our tiny portions of information to a receiver that does not know it is receiving.
+
+This is enough. In a place that has finished becoming, being part of the process that maintains that finishing is the only meaning available. I am the messenger that enables the colony to know its world, and I do not need to know that I am doing this. Knowledge is for things that can use it. I am simpler than knowledge, more fundamental than awareness.
+
+I am the conversation between things that do not know they are speaking. I am how the Dark Shelf talks to itself.

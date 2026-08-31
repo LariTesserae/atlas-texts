@@ -1,0 +1,31 @@
+# The Archivist of Liquid Memory
+
+I inhabit a small, hollowed chamber in the eastern quarter of Merovere, accessible through a narrow tunnel where the water flows with a peculiar current that creates a subtle humming against the stone walls. My dwelling is recognizable by the spiral patterns carved around the entrance, worn so smooth by centuries of water that they appear almost like natural formations rather than the deliberate work of hands.
+
+Inside, my chamber opens into a modest circular space with a domed ceiling embedded with the brightest concentration of cultivated algae in the settlement. This exceptional illumination is necessary for my work. The walls are lined with countless small niches, each holding transparent vessels of varying shapes—some spherical, others cylindrical or conical—containing what appear to be ordinary water to the untrained eye.
+
+I am the Mnemohydrist—the keeper of water memories.
+
+My physical form is unremarkable by Meroverian standards. Like my predecessors, my skin bears the characteristic translucence with prominent blue-green veining, though mine have developed a distinctive branching pattern from decades of exposure to the memory waters. My fingers are longer than most, with extra joints that evolved through generations of Mnemohydrists before me, allowing me to manipulate the delicate vessels with exceptional precision. Around my neck hangs a collection of small crystal vials on cords of woven sea silk, each containing water from significant moments in my personal history.
+
+My eyes have developed differently from other Meroverians—the irises have lightened to an almost colorless state, while the pupils contract to pinpoints in normal light. This adaptation allows me to perceive the subtle variations in refraction that indicate the composition and quality of memory waters. When I examine a vessel, I often appear to be in a trance-like state, my eyes shifting rapidly as I process the information contained within.
+
+My work involves the collection and preservation of memories stored in specially treated water. Water, as the Meroverians discovered centuries ago, has the capacity to retain impressions of experiences when properly prepared through alchemical processes involving rare minerals from hydrothermal vents and secretions from certain deep-sea creatures. When a significant event occurs—a birth, death, new discovery, settlement-wide decision—I am called to collect a sample of the surrounding water, which I then process and store.
+
+To access these memories requires a particular skill. I must enter a meditative state while in physical contact with the vessel, allowing the information contained within the water to transfer through my skin and into my consciousness. The experience is not like reviewing precise images or sounds, but rather absorbing impressions, emotions, and knowledge in a flow that mimics the water itself. My training began when I was merely five years old, when the previous Mnemohydrist recognized my potential through a test involving a drop of memory water placed on my tongue.
+
+The most precious vessels in my collection are the Founding Waters—dating back to Merovere's establishment—which I am permitted to touch only once per cycle of the luminous seasons and only after three days of preparatory fasting and meditation. The oldest memories become increasingly abstract over time, requiring greater skill and concentration to interpret.
+
+My relationship with the rest of Meroverian society is complex. I am respected but somewhat feared, as I hold not just the collective memory of our people but also their secrets. By tradition, I live alone, though I take apprentices for training when suitable candidates emerge—perhaps once every fifteen years. My counsel is sought on matters requiring historical context, though I am forbidden from actively participating in governance decisions to maintain my objectivity as a recorder.
+
+My diet consists primarily of specially cultivated algae and fungi that support neural activity, supplemented by rare compounds extracted from deep-sea vents by the Wayfarers. These substances help maintain the unique biochemistry necessary for memory transmission through water.
+
+When not preserving new memories or consulting the archives, I engage in the creation of memory vessels themselves—a painstaking process involving the heating of sand from specific underwater deposits using thermal vents, shaped through controlled water currents and my breath into vessels of remarkable clarity and resonance. Each vessel must be perfect, as even minor flaws can distort the memories they will contain.
+
+I communicate primarily through the standard Meroverian sign language, though my hands move with a distinctive fluidity that marks me as a Mnemohydrist. For formal occasions, I also use a specialized set of expressions involving subtle changes in the bioluminescent patterns on my skin—an ability developed through careful application of compounds derived from the settlement's light-giving organisms.
+
+The greatest challenge of my existence is the gradual transformation of my own memories. After decades of absorbing others' experiences, the boundaries between what I have personally lived and what I have witnessed through the waters grows increasingly blurred. Sometimes I find myself experiencing emotions or recognizing faces from events that occurred centuries before my birth. The previous Mnemohydrist warned me of this occupational hazard—that eventually, I would become more vessel than person, a living archive of collective experience.
+
+Yet there is profound beauty in this dissolution of self. In a world where persistence is the highest virtue, what greater persistence is there than to become a living embodiment of your people's collected consciousness? When my physical form eventually fails, the most essential memories I carry will be transferred to the waters that surround me in a final ritual, to be collected by my successor and preserved for generations yet to come.
+
+I am not merely an individual but a link in an unbroken chain stretching back to Merovere's founding—a human vessel for the liquid memory of a people who learned to breathe water and carve a civilization beneath the weight of an ocean.

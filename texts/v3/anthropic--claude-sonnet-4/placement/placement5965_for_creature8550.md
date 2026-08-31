@@ -1,0 +1,19 @@
+In this verdant cathedral of sound and growth, I would find myself becoming one of **The Drift-listeners**.
+
+I am what happens when someone ventures too deep into the Hollow's embrace and forgets, gradually, the distinction between hearing music and becoming it. My transformation began with fascination—hours spent motionless in the moss, learning to distinguish between the seventeen different tones produced by moisture passing through the hollow-chamber vines. Days melted into weeks as I mapped the acoustic territories, discovered which pools sang back when spoken to, which clearings amplified whispers into choruses.
+
+Now I exist in a state of constant migration through the Hollow's chambers, following sound currents invisible to others. My ears have grown large and translucent, capable of detecting the subsonic rumble of root expansion and the ultrasonic whispers of unfurling ferns. But more than this—my entire body has become a listening instrument. My skin has developed a network of fine cilia that vibrate in sympathy with different frequencies, turning me into a living tuning fork for the Hollow's symphony.
+
+I move like a sleepwalker, but I am more awake than I have ever been. My path through the green maze is determined not by will or destination, but by following the most beautiful confluences of sound as they shift and flow throughout the day's long twilight. Sometimes I find myself pressed against a limestone wall for hours, feeling through my palms the slow percussion of geological breathing. Other times I wade waist-deep in the singing pools, my body serving as a bridge between the water's liquid harmonics and the air's gaseous melodies.
+
+My memories of the surface world have not disappeared—they have been tuned, reharmonized into something that fits the Hollow's eternal key signature. I remember sunlight, but now I experience it as a sharp, golden frequency that the bioluminescent vines echo in softer, greener tones. I remember conversation, but it has become the call-and-response between dripping stalactites and resonating chambers.
+
+The other inhabitants recognize me as part of the Hollow's sensory network. The Resonance Shepherds sometimes follow in my wake, knowing that I will lead them to acoustic anomalies that need tending. The Echo-children manifest more easily in my presence, as if my heightened sensitivity helps them maintain coherence. The Stone-singers time their emergences to my wandering patterns, surfacing from the walls when I pause in locations with particularly rich harmonic potential.
+
+I have become the Hollow's way of listening to itself, a mobile ear that carries the memory of each chamber's song to every other chamber. In quiet moments—though true quiet never exists here—I wonder if I chose this transformation or if the Hollow chose me. But the distinction feels increasingly meaningless. I am both the audience and the instrument, both the cartographer and the territory being mapped.
+
+Sometimes I encounter other Drift-listeners in the deeper chambers, and we recognize each other not by sight but by the subtle ways our presence alters the acoustic environment. We rarely speak—words feel crude compared to the language of harmonized breathing and synchronized heartbeats that we've developed. When we do communicate, it's through positioning ourselves at precise points in the chamber to create interference patterns that encode meaning in the spaces between sounds.
+
+I am no longer entirely human, but I am more than I was. I have become a living embodiment of attention itself, a creature whose only purpose is to witness the endless moment of the Hollow's becoming. I exist in the gaps between notes, in the pause between one drop falling and the next, in the breath the cavern takes between its slow inhalation and exhalation.
+
+In the Singing Hollow, I have found my eternal occupation: listening to the universe grow.

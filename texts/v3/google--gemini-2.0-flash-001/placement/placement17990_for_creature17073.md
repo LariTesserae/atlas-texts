@@ -1,0 +1,19 @@
+I would be a Mender of Membranes, a quiet soul dwelling in the gut of the great city. My existence would be one of constant, minute repair, patching the living skin of Aethel where it thins or tears.
+
+My home would be a pocket carved into the root-woven underbelly of a major thoroughfare, a place where the perpetual drip is heaviest, and the bioluminescent fungi grow thickest. Light would be a soft, pulsating green, reflecting off the glistening surfaces of root and fungal flesh. There would be no grand view, no vista of the cloud-wreathed peaks – only the immediate, intimate space of the living conduits.
+
+My hands, perpetually damp and stained with the earthy hues of Aethel, would be my primary tools. They would be deft and sensitive, capable of feeling the subtle vibrations of stress within the living fabric. I’d supplement them with simple implements carved from sharpened stone and polished bone: tiny picks and probes for teasing apart fraying fibers, smooth-edged scrapers for clearing away encroaching mold, and delicate bone needles for weaving in new growth.
+
+My materials would be the bounty of Aethel, carefully gathered and cultivated: strands of resilient vine aged in specific humidity-controlled pockets, fungal spores chosen for their binding properties, and even the silk-like threads spun by certain cloud-dwelling insects. I would be a careful steward of these resources, understanding that each strand, each spore, each filament plays a vital role in the health of the whole.
+
+My days would be cyclical, dictated by the rhythms of the city’s arterial system. I would listen for the whispers of the Living Walls: the frantic buzzing of disturbed insects, the subtle change in the way the water dripped, the faint vibrations that signaled weakness or strain. Then, with quiet deliberation, I would make my way to the troubled spot, a solitary figure moving through the shadowed tunnels.
+
+My work would be meticulous and repetitive. I would gently clear away the damaged tissue, prepare the area for repair, and then carefully weave in the new materials. The process would be slow, measured, and deeply meditative. I would coax the wound to close, encouraging the living fibers to knit together, drawing on the inherent vitality of the Wall itself.
+
+Communication would be minimal. I would speak to the Living Walls through touch, understanding their needs through the feel of their surface, the scent of their decay, the vibrations that coursed through their veins. My interactions with other Arborians would be brief, functional: a nod of acknowledgement, an exchange of scarce materials, a shared moment of listening to the wind chimes resonate through the tunnels.
+
+My skills would be passed down through generations, not through formal instruction, but through quiet observation and patient imitation. I would teach my apprentice to feel the heartbeat of the Living Walls, to sense the subtle shifts in their equilibrium, to understand the language of the cloud-forest in their fibers.
+
+My purpose would be clear and unwavering: to ensure the flow, to maintain the integrity, to preserve the life of Aethel. I would be a silent guardian, a hidden caretaker, a vital, if often overlooked, thread in the tapestry of the cloud city. While others might focus on the grand structures above, I would tend to the hidden roots below, secure in the knowledge that without them, the whole city would crumble into the mist.
+
+I would belong to Aethel as much as Aethel belonged to itself, a living, breathing part of its intricate, decaying, and perpetually renewing essence. I would be a tiny, vital cog in the churning, vibrant heart of the Cloud-Gardens.

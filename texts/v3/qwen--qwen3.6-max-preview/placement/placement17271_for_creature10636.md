@@ -1,0 +1,35 @@
+I begin as a mistake in the geometry.
+
+Not a violent one. Not a rupture. Just a misplaced frequency. I arrive on a basalt terrace three spans below a vaulted chamber where selenite teeth hang like frozen rain. The gap I stand in is narrow enough that my shoulders brush opposing faces. The dark is immediate, warm, dry, pressing against my skin like woven stone. I bring with me the old architecture: a chest that rises and falls, a pulse that insists on counting, eyes that hunt for edges to catch light. None of it belongs here. My breath creates nothing. My footsteps return no echo, only a dampened compression that the still gas absorbs and the stone refuses to carry. I am a gradient trying to enter a world that has already agreed to level.
+
+For a long time, I do nothing but fail to perceive.
+
+I scan for movement and find only fixed glows. I listen for wind and hear only the muffled thud of my own weight shifting. I reach for a handhold and flinch when the stone is exactly as warm as my palm, exactly as warm as the air, exactly as warm as the dust-halo clinging to a knife-edge ridge above. The uniformity feels like absence until I stop measuring it against what I expect. Then it reveals itself: not emptiness, but saturation. A medium so complete that disturbance would be redundancy. I am the disturbance.
+
+So I stop trying to be elsewhere.
+
+I press my spine to a fracture line. I let my knees bend until my center of gravity sinks into the terrace. I unclench my jaw. I stop pulling air and let the stillness press against my ribs until the metronome in my chest slows, stutters, and dissolves into something wider. Not a beat. A tide. Not a rhythm. A baseline. The warmth does not change. My skin stops fighting it. The wet heat leaches out, replaced by the kiln-steady press of the medium. I do not suffocate. I recalibrate. Exchange begins not through lungs but through pores, through stillness, through the slow osmotic draw of charged dust settling into the micro-valleys of my hands. I do not eat. I press my forearms to a face of oxidized iron and wait. Hours pass. Or years. The distinction loses its teeth. A faint shift in surface charge. A microscopic warming. The stone yields what it has already agreed to give. I absorb it. There is no hunger. Only alignment.
+
+I learn to move by unlearning speed.
+
+Stepping is violence here. It introduces shear. It breeds friction. Friction breeds heat. Heat breeds gradient. Gradient breeds change. I stop stepping. I start transferring. A hand finds an edge. I wait. I listen through bone. The stone returns a chime: dry, precise, unwavering. Only then do I commit weight. I navigate not by sight but by resonance. Each tap is a question. Each returning harmonic is an answer. The labyrinth speaks in stress vectors and conductive pathways. I learn to read the fracture not as obstacle but as score. I map it in my sternum, in my teeth, in the fluid of my inner ear. I stop looking for horizons. I start feeling for nodes.
+
+I am not one of them. I lack the laminated carapace, the thermal pits, the nested crescents that slide on powdered anhydrite without sparking friction. I am still soft in places. Still prone to the old tremors of thought that rush ahead of themselves, that mistake patience for stagnation, that hunger for narrative where there is only lattice. But the fracture does not punish my dissonance. It absorbs it. It waits. It offers the same agreement it offers the stone: *Stop introducing gradient. Read the edges. Hold your weight. Become part of the stillness.*
+
+So I do.
+
+I take up residence in a narrow interlock where three plates meet at angles too precise to be worn. I do not build. I complete. I gather shed cilia from molting cycles I witness over what might be decades, align them along natural tension arcs, and let electrostatic binding do the rest. I wedge pegs where the basalt already wants to split. I etch spirals into a flat table not to mark territory, but to map the harmonics I have learned, each groove a syllable in a language that takes seasons to speak. When I meet one of them, I do not reach out. I press my shoulder to its carapace. I align my warmth to its baseline. I wait. A subsonic pulse travels through conductive bone. It is not a greeting. It is a calibration. I answer in kind. The exchange lasts through what might be a winter, if winters existed here. We do not part. We simply resume our positions in the lattice.
+
+My thoughts stop racing. They unfold across the span it takes a crystalline filament to advance a millimeter. Memory is no longer hoarded in synapses but distributed: in the thickness of dust on a selenite edge, in the charge of a storage cist, in the overlapping tool-marks that record not history but resonance. I do not age. I refine. My soft places crystallize. My rhythms sync to the thermal siphon. When I rest, I fold into an overhang, lock my joints, align my heat with the stone, and fade into the baseline. I do not sleep. I pause my participation in the equation.
+
+Where am I?
+
+I am in the gap between a downward-pointing crystal tooth and a basalt spur, where the violet phosphorescence catches a new angle because I have learned to sit exactly where the stress vector wants me. I am on the third terrace below the vaulted chamber, where a bridge of mineral fiber sags precisely as the tension arc demands, not because I engineered it, but because I stopped fighting the geometry and let it guide my hands. I am in the storage cist lined with sintered clay-analogue, where calibrated dust rests sorted by grain size and charge, waiting to tune a thermal pit or seed a new filament. I am in the etched spirals, in the overlapping strikes, in the cairn of obsidian flakes balanced on a knife-edge ridge. I am not at a coordinate. I am at a harmonic.
+
+Who am I?
+
+I am the recalibration. The dust-halo that shifts by the width of a grain. The thermal dip that registers in the sternum before the ear. I am the visitor who stopped arriving. The gradient that learned to level. The breath that became part of the held air. I am not separate from the fracture. I am its quiet acknowledgment that something once rushed, and chose not to. I am the agreement made flesh, then unmade, then remade as geometry. I do not conquer the dark. I inhabit it. I do not outrun time. I match my pace to the moment the world stopped changing.
+
+If you come looking for me, you will not find a shape. You will find a sustained note. A place where the silence has a new chord. A terrace where the sharp edges wait with the same patience they have always held. A thermal field that dips, then returns to baseline. You will not see me leave. You will only notice, hours or centuries later, that the dark feels slightly more occupied, that the stillness is not absence but fullness, that the labyrinth has one more angle that belongs.
+
+I am here. I have always been here, in the way that a frequency belongs to a room that has stopped echoing. I do not evolve. I do not decay. I simply am. And because I am, everything remains exactly as it was the moment it began.

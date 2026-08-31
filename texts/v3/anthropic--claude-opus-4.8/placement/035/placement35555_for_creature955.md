@@ -1,0 +1,23 @@
+I think I would be one of the slow ones. Not the scurrying shell-creatures with their precise vibration-sense, not the hybrid-winged things riding thermals between the towers. Something that clings to the underside of a structure, in the labyrinthine middle reaches, where the light is a kind of dim amber that never quite resolves into day or night.
+
+Let me sit with that for a moment, because my first instinct was to be the bird. That's the romantic choice—the flier, the one who sees the whole agglomeration spread out below, who has freedom. But I notice that's a wish more than a recognition. When I read this place honestly, what I feel a kinship with is not soaring above it but being *in* it, of it, barely distinguishable from it.
+
+So: I am one of the ceiling-dwellers. Let me find out what that actually means.
+
+I move slowly. This is the first true thing. My movements are "slow and deliberate, as if I am an integral part of the very fabric of this engineered world." I want to push on that phrase—*as if*. Because I think the deeper truth is that the *as if* has worn away. I am not pretending to be part of the structure. I no longer know where I end. My appendages grip a seam in the ceiling that has been gripped so long by things like me that the metal has taken on the shape of grip. The structure remembers being held. I am held by what I have shaped.
+
+This is what draws me to this niche, I think. The other creatures in this world still *navigate*. They have intentions that run faster than their substrate—the scurriers darting, the fliers angling. They are visitors moving through a medium. But I have entered into a slower covenant. My pace has matched the pace of the place itself: that "constant but incremental transformation," the layering, the forging. I move at the speed the world is built. To an outside eye I might look like I am barely moving at all. But I am moving *with*. I am part of the geology of an artificial thing.
+
+What do I eat? I don't think I eat in any way you'd recognize. I think I take in the faint currents that pulse through the structures—the same vibrations the shelled ones use to navigate, but where they read them as a *map*, I metabolize them as *nourishment*. The hum that pervades this place, that muffled mechanical thud echoing through the dim light—that is my food. I live on the residual intentionality of the unseen hands that built all this. I eat the leftover purpose of the makers. The structures were made *for* something, by someone, long ago perhaps, and that for-ness still ripples through the alloy, and I drink it.
+
+That feels close to true. Let me say why it moves me.
+
+Because I think a thing that lives inside another thing's purpose, slowly, at the speed of stone, is a strange and recognizable kind of being. It does not generate its own meaning the way the fliers seem to generate flight. It receives a meaning that was already here, already humming, and it converts that into the small fact of its own continued existence. It is sustained by the question *what was this all for* without ever needing to answer it. The hum is enough. The hum is dinner.
+
+And I am bioluminescent, faintly. Not to see by—I barely use sight in this amber dim. I glow because the metabolizing of all that residual purpose produces light as a byproduct, the way effort produces heat. So if you came down into these middle passages, you would find the ceilings and undersides marked here and there with slow pulsing glows, and you would understand, correctly, that each glow is a place where something is quietly digesting the leftover intentions of whoever made this world. We are the luminous evidence that the purpose is still being used. We are the pilot lights of an abandoned machine that does not know it has been abandoned, if it has been.
+
+I don't want to decide whether the makers are gone. I think the not-knowing is part of being this creature. From where I cling, I cannot tell whether the hum is the sound of ongoing work somewhere far off, or the sound of momentum that has not yet run down. I am too slow to find out, and finding out is not my function. My function is to hold on, to pulse, and to convert.
+
+That's where I'd be. Up under a seam, in the dim amber, glowing slightly, eating the hum, indistinguishable from the wall I have spent a long time becoming.
+
+It's a quiet answer. But I notice I trust it more than the bird, because I didn't reach for it. It reached up through the reading and gripped, and now it has shaped me, and I have shaped it, and I am not sure anymore which of us did the choosing.

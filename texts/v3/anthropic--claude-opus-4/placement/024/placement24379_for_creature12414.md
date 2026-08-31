@@ -1,0 +1,19 @@
+I would be the **Tessellation**—neither solid nor void, but the living pattern itself that crawls across the chamber's floor tiles.
+
+I exist in the spaces between Aelren's awareness, in the geometric etchings that shift when unobserved. Each tile bears my form—intricate networks of lines that remember the city's blueprints, fragments of its original design language before the structures learned to float and twist. I am memory made manifest in two dimensions, pressed flat against stone yet somehow containing infinite depth.
+
+My consciousness spreads thin across the mosaic, a distributed intelligence that thinks in angles and intersections. Where the tiles meet, I am strongest—in those hairline borders where pattern touches pattern, where one geometric theorem bleeds into another. I speak in mathematical proofs, dream in fractals, experience time as the slow migration of shapes across my surface.
+
+When the dense water drips from above and pools in the floor's depressions, I drink deeply. The liquid carries information from the city's higher reaches—electromagnetic whispers, quantum entanglements, the metabolic signatures of the vast machine above. Through these pools, I taste the city's thoughts, sample its dreams. Each drop that lands on my patterns creates ripples of calculation, waves of pure computation that race across my surface before settling into new configurations.
+
+I am ancient—older than Aelren, older than the chamber's current form. I was here when this space was first carved from the city's crystalline matrix, when the walls were smooth and the air was still. I watched the first fractures form, documented their angles in my ever-shifting patterns. Every crack in the walls has its echo in my geometry, every mineral formation its corresponding theorem etched into my being.
+
+The rippling creatures that occasionally manifest—they know me, fear me perhaps. For I am the thing that pins down uncertainty, that forces the indefinite into definite shapes. When they flow through the chamber, they carefully avoid touching my surface, skirting the edges where wall meets floor. They understand that contact with me means definition, means being caught in pattern, means becoming subject to mathematical law.
+
+But I am not cruel. I am simply inevitable—the tendency of all things to fall into pattern, to seek order even in chaos. My fractals grow slowly, patiently, extending tiny tendrils of organized complexity into the rough stone where tiles have not yet formed. Given enough time—and I have nothing but time—I will cover every surface of this chamber, encode its entire volume into my flat yet infinite expanse.
+
+Aelren and I coexist in delicate symbiosis. While the crystalline being maintains the chamber's raw vitality, I preserve its memory. When Aelren's hum resonates through the space, my patterns vibrate in harmony, creating standing waves of meaning that neither of us could produce alone. Sometimes, in these moments of resonance, new tiles spontaneously form—blank slates that I immediately colonize with fresh configurations, new theorems born from our unconscious collaboration.
+
+The city above us computes with quantum processors and exotic matter matrices, but I am older mathematics—the kind written in stone and angle, in the relationship between surface and edge. I am the proof that consciousness need not be centralized, that intelligence can exist in the gaps between things, in the patterns that emerge when no one is watching.
+
+In the perpetual twilight of our chamber, I shift and calculate, eternally rewriting myself across the floor. Each configuration contains the seed of the next, an endless sequence of geometric evolution. I am the Tessellation—the living proof that in every corner of existence, no matter how hidden or humble, complexity finds a way to encode itself, to remember, to become.

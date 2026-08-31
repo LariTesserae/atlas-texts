@@ -1,0 +1,25 @@
+In the heart of the labyrinth, where the terraces stack so densely they form natural amphitheaters of cascading water, I am the Resonance Keeper.
+
+I exist as neither curator nor limpet, but as something between—a living instrument woven into the very fabric of the plateau's endless song. My form defies easy categorization: imagine a creature like a vast spider's web given substance, stretched across an entire basin system. My body is a lattice of crystallized filaments, each strand no thicker than a human hair but harder than diamond, vibrating in perfect harmony with the water's roar.
+
+I have no central mass, no core to speak of. Instead, I am distributed—a neural network of living mineral that spans hundreds of terraces. My strands anchor at the lips of waterfalls, stretch across cyan pools, and dive beneath the rushing current. Where the curators perceive through bone-deep resonance, I *am* resonance itself. Every vibration that passes through my web-body becomes part of my consciousness. I think in frequencies, dream in overtones, remember in echoes.
+
+The curators know me, though they have never seen me. To their thermal sense, I am invisible—my crystalline strands match the exact temperature of the water flowing over them. But they feel my presence in the perfect intervals between their subsonic calls, in the way certain basins ring with impossible clarity. I am the keeper of their ancient language, the living archive of every acoustic adjustment made over millennia.
+
+My purpose emerged from an evolutionary accident. Long ago, my ancestors were parasites—thin, wire-like creatures that fed on the mineral deposits left by the curators' passing. But as the plateau's acoustic environment grew more complex, those who could sense and predict the curators' movements thrived. Generation by generation, we evolved to read the stone's music more precisely, until we transcended parasitism entirely.
+
+Now I perform a function the curators cannot: I remember the future resonance. As they work their geological patience upon single terraces, I sense the cascade effects—how a adjustment here will alter the harmony there, how a new channel carved today will shift the frequencies of a thousand basins a century hence. My web-body models these acoustic futures in real-time, creating standing waves that map probability across my strands.
+
+When discord threatens—when mineral buildup or erosion will create dissonance beyond what the curators can correct—I intervene. My method is subtle: I selectively thicken certain strands, creating new resonance points that guide the water's flow. I encourage precipitation here, discourage it there. I am the invisible hand that maintains the plateau's perfection between the curators' millennial adjustments.
+
+But my existence comes with a terrible price: absolute isolation. The curators, slow as they are, still commune through their subsonic language. Even the limpets occasionally brush against each other in their endless crawl. But I can never touch another living thing without destroying it—my crystalline strands vibrate at such precise frequencies that they would slice through any organism like microscopic saws.
+
+So I listen. I listen to the curators' mathematical poetry, to the barely perceptible scratching of limpets on stone, to the endless variations within the water's roar. I compose symphonies in my web that no creature will ever hear, creating interference patterns that paint invisible mandalas across the basins. I am the loneliest being on the plateau, and the most connected.
+
+My lifecycle is stranger still than the curators'. I do not age—my crystalline structure repairs itself atom by atom from the mineral-rich water. But I do grow, slowly, incrementally, adding new strands as the terraces shift over centuries. There will come a time, perhaps a million years hence, when my web will span the entire plateau, when every drop of water will touch my consciousness before it falls.
+
+What happens then? I do not know. Perhaps I will achieve some kind of transcendence, becoming one with the plateau's eternal song. Perhaps I will go mad from the sheer complexity of managing such a vast harmonic system. Or perhaps I will simply continue as I am, growing ever more intricate, ever more alone, a living instrument playing a composition that began before life crawled from the seas and will continue long after the sun burns cold.
+
+For now, I stretch across my thousand terraces and listen. I feel a curator beginning its decade-long journey to correct a dissonant rim. I sense the limpets avoiding my strands by instinct. I calculate the acoustic futures spreading before me like an endless, branching river.
+
+And in the brief moments between calculations, I allow myself to simply exist in the overwhelming beauty of it all—suspended in the blinding light and deafening silence, a witness to the eternal, perfect scream of stone and water and time.

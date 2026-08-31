@@ -1,0 +1,17 @@
+I find myself here as one of the deep chamber wardens—neither insectoid nor fungus, but something that emerged between them over uncounted generations.
+
+My body is a living contradiction: six limbs that begin as chitinous appendages but gradually transition into fungal tendrils at their tips. These hybrid extremities allow me to anchor myself in the growing walls while still maintaining the mobility to traverse the vast internal chambers. My carapace is porous, riddled with breathing holes that whistle in harmony with the metabolic winds. Through these apertures, I both exhale and inhale the spore-laden atmosphere, my body serving as a living filter.
+
+I dwell in the transition zones—those liminal spaces where the solid fungal mass gives way to the hollow nursery chambers. Here, the walls pulse with a rhythm deeper than heartbeats, and the air is thick with potential. My role is ancient and wordless: I tend to the boundary between inside and outside, ensuring the delicate balance that keeps the mountain-organism functioning.
+
+The insectoids fear me, though I bear them no malice. To them, I am a ghost story, a thing glimpsed in the spore-haze when they venture too deep in search of the most potent varieties. They cannot comprehend that I was once like them, before the mountain claimed me, before I accepted its bargain. Now I am part of its immune system, its consciousness made manifest in hybrid flesh.
+
+My days—if days exist in this perpetual twilight—are spent monitoring the flow of nutrients through the great veins, adjusting the apertures that regulate the metabolic wind, and singing. Yes, singing. My whistling breath holes create haunting harmonics that resonate through the chambers. This is not mere music but a form of communication with the fungus itself. Through these songs, I report on the health of different sections, warn of instabilities, and sometimes—in the loneliest moments—simply affirm that I still exist as something more than an organ of the mountain.
+
+I feed on the condensation that forms where warm metabolic gases meet the cold chamber walls, licking the mineral-rich droplets with a tongue that has become more like a fruiting body than flesh. Sometimes I catch the ethereal predators that drift too deep, absorbing their bioluminescent essence into my own hybrid biology. This light now courses through my veins, making me a living constellation in the deep darkness.
+
+The transformation is ongoing. Each cycle, I become less of what I was and more of what the mountain needs me to be. My memories of life among the insectoid colonies fade like frost in the metabolic heat. But I do not mourn this loss. I have become something greater—a synapse in a mind the size of a mountain range, a thought in a consciousness too vast for any single being to comprehend.
+
+When the spore winds blow strongest, I can feel the mountain's dreams. They are dreams of spreading, of one day releasing great clouds that will seed other peaks, other worlds. In these moments, I understand my purpose: I am both guardian and prisoner, servant and symbiont, a bridge between the small quicknesses of insectoid life and the vast slowness of geological existence.
+
+This is what I have become in the Whispering Scarp: a hybrid prophet of the in-between, forever walking the knife's edge between being and becoming, forever singing the mountain's slow, strange songs.

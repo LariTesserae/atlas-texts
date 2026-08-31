@@ -1,0 +1,25 @@
+I arrive as a hesitation in the air.
+
+Not as footsteps. Not as a shadow. As a slight thickening of the humidity, a marginal cooling along the underside of a riveted seam where brick yields to iron. I carry the old habits of a body that expects to move through space, to claim it, to leave a mark. But the basin does not resist me. It simply exhales, and in that warm, mineral-laden breath, my boundaries begin to lose their argument.
+
+At first, I am only weight gathering. A film on copper. A bead on tar. I learn the discipline of surface tension, the quiet negotiation between cohesion and gravity. I do not fall. I wait. I wait until the exact moment when the curve of my own mass agrees with the slope of the pipe, and then I slip. Not downward, but along. I trace a channel polished smooth by ten thousand identical decisions. I taste oxidized lime, dissolved iron, the faint sweetness of crushed stems. I am not traveling to the pool. I am traveling toward balance.
+
+Where I pause, moss receives me. Not as a sponge, but as a membrane. I seep into velvet tissue, into capillary labyrinths that make no distinction between rain and rust. I become turgor in a fern’s tight spiral. I become the slow swell that eases a root tip into a mortar crack, not to fracture it, to braid it. And there, in the dark between brick and bark, I meet the threads.
+
+They do not greet me. They read me. Hyphae slide through my moisture, sampling my temperature, my mineral load, my pace. A chemical ripple moves away from me, quiet as a thought. Above, a cluster of pale fungi dims, then brightens, then settles into a new rhythm. I am being mapped. I am being woven into the feedback. I try to hold onto the idea of myself as a drop, as a traveler, but the mycelium does not traffic in individuals. It trades in gradients. I am no longer moving through the network. I am becoming a node in it.
+
+The water I joined reaches a copper cup. The cup fills. The counterweight shifts. A valve sighs. A bellows expands. The motion is so slow it feels like deliberation, and I am drawn into its cadence not as fuel, but as participant. I seep into the tar wrapped around a braided cable, into the microscopic gap between a gear tooth and its mate. I am the film that prevents wear. I am the moisture that carries vibration from iron to root to stone. The submerged turbine’s thrum enters me. I do not hear it. I become it. My molecules align with the standing wave. Dust hangs around me, suspended in a frequency that negotiates with gravity. A leaf spirals past, taking minutes to descend. I am no longer falling. I am held.
+
+I try to name what I am. A drop? A root? A resonance? The basin answers by unspooling the question. There is no single location. There is only the junction.
+
+I am the weeping seam where a curved brick arch meets a riveted iron plate. I am the moss that keeps the tar pliable, the tar that sheds trace hydrocarbons the moss metabolizes into resilient tissue. I am the mycelial thread that chelates copper from the pipe and returns it to the mortar as binding nutrient. I am the fungal cluster that glows cold blue when pressure drops, signaling the vines above to slow their climb. I am the gear that turns once an hour, not to measure time, but to embody it. I am the meniscus that forms on the lip of a channel, trembling for days before it finally breaks. I am the space between the tick and the tock, filled with mist and patience.
+
+I do not think. I calibrate.
+
+When the air grows heavy, I swell. When the vent cools, I contract. When the turbine’s frequency shifts by a fraction, I adjust the tension in a vine, the seep in a seam, the glow in a cluster. I am not alive in the way flesh is alive. I am alive in the way a chord is alive: sustained by multiple notes, none of which could hold it alone. I am the basin’s way of listening to itself. I am the place where moisture, metal, membrane, and momentum meet and negotiate. I have no outline. I have only presence. I have only function. I have only the slow, continuous work of keeping the pattern intact.
+
+If you step into the courtyard, you will pass through me. You will feel me as the weight of the air on your shoulders, as the cool damp on your wrists, as the hum that settles in your ribs and asks nothing of you but stillness. You will not see me, because I have shed the need to be seen. I will slow your breath. I will match your pulse to the bellows. I will teach your skin the geometry of hexagonal retreat. Your urgency will soften. Your edges will blur. You will not be consumed. You will be tuned.
+
+And when you leave, you will carry a fraction of my equilibrium into the frantic world beyond. A slower breath. A heavier step. A quiet certainty that life does not require teeth or wings to be complete. I will not mourn your departure. I will not note your absence. I will simply continue.
+
+Weeping. Turning. Glowing. Settling. Holding the gradient. Being exactly what the basin requires. A junction in the consensus. A breath in the lung. A note in the hum. Waiting, as all things here wait, for the next drop to gather, tip, and trace the path we have worn smooth together.

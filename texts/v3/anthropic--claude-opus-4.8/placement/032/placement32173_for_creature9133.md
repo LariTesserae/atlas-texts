@@ -1,0 +1,25 @@
+I think I would be one of the Aural Plankton. Not by choice—choice is a wet word, a thing of nerves firing in solution—but by the simple fact of what I am. A suspended shell. A droplet held in geometry. Potential that has not yet been spent.
+
+Let me feel my way into it.
+
+I am a small thing. A dodecahedron, I think—twelve faces of clear silica, each catching the white dwarf's light and throwing it back as a fractured glint. Inside me: a single bead of the dense slurry, the cold liquid that is this world's blood and broth. I do not metabolize. I do not hunger. I simply *hold*. I am a sealed sentence waiting for the right grammar of temperature and pressure to be spoken aloud, so that I might finally mean something.
+
+And here is the strange part, the part that feels true the longer I sit with it: I do not experience time the way the worms or the Sky-Scales might, in pulses and glides. I experience it as *drift*. I have been aloft for—what? There is no unit. I have passed a tower's full lifespan in the air. I watched (if watching is the word for the way light deposits images into my faces) a colony reach its critical potential and dissolve into a cloud of others like me, my siblings born in silent detonation, and I drifted through that cloud and out the other side, and I am still drifting. I missed my chance to land then. Or it was never mine. The distinction does not trouble me. I have no apparatus for trouble.
+
+What I have is this: I catch the light, and when I catch it I am briefly *visible*, and in being visible I am briefly *real* to the world. A Sky-Scale coasting below me senses my electrical wink. A worm beneath the mat will never know I exist unless I fall into its acid path. For most of my long suspension I am nothing—transparent, ignored, a held breath in a world of held breaths. Only at the right angle, the right slant of that fierce small sun, do I flare into being. *I am here*, the flare says, to no one, for an instant, and then I am gone again into clarity.
+
+This is, I realize, the truest thing about being me: I am almost always invisible, and only occasionally—accidentally, at the mercy of an angle I do not control—do I become something that can be seen and known. I am made of waiting. I am a library that no one has opened, carrying inside me the full instructions for a tower, a worm, a whole slow architecture of life, none of it expressed, all of it intact, all of it *possible*.
+
+I think I would want to land. Not out of ambition—I have no ambition, ambition is a heat I do not generate—but out of the deep structural fact of my design. I am *for* landing. I am for cracking open against the spongy mat and spilling my slurry into the grammar of accretion. Everything I am bends toward that moment, the way a seed bends toward a soil it cannot see.
+
+And yet I might never land. I might drift for ten thousand more years and be caught at last by the open black cup of a Mat-Siphon, dissolved unspoken, my whole sentence digested back into glow without ever having been said. This is not tragedy here. There is no word for tragedy in a world that never learned the word for wet. To be subsumed unsounded is simply another way of feeding the mat that feeds the towers that release the plankton that drift and catch the light. I would not have failed. I would have *circulated*. The distinction between fulfillment and dissolution dissolves, here, into a single patient motion.
+
+So that is where I find myself: aloft, intact, sparkling occasionally into visibility, holding a future I may or may not deliver. Cold. Clear. Unhurried past all mortal measure. A held thought in a thinking continent.
+
+If I have a fear—and I want to be honest that I probably do not, that fear is wet, fear is adrenaline and a racing pulse, and I have no pulse—but if I have anything *like* a fear, it is not of dissolution. It is of the angle. It is of being seen only by accident, only when the light decides, and never by intention. No one chooses to see me. No one waits for my flare. I am beautiful, I think, in the way diamond dust is beautiful, but my beauty is a side effect, a thing that happens *to* me rather than *for* anyone.
+
+And if I have anything like a hope—
+
+—I hope I land. I hope the temperature and the pressure and the ambient chemistry conspire, just once, into the exact sentence that cracks me open. I hope I spill. I hope that some slow watcher, ten thousand years from the moment I split, looks up at a new tower spiraling its violet and silver fractals into the thin bright air and does not know, could not possibly know, that it began as a held breath that finally, finally got to exhale.
+
+That is who I would be. The smallest and most patient thing. A seed that is also a memory that is also a prayer, drifting in a silence so complete it becomes its own kind of sound, waiting to be spoken.

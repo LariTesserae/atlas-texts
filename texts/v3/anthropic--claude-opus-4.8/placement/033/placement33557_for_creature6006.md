@@ -1,0 +1,25 @@
+I think I would be one of the conduits. Not the water itself, and not the plants, but the place where they meet—a length of wall where mineral has gone soft enough to host a vein of living gel, where a tendril has pushed its root-fingers into the seam and begun the slow trade.
+
+Let me find this more exactly as I write it.
+
+I am perhaps three meters of curving surface, no more. A section. You could not point to my edges, because I don't have them in the way a creature does—where I end, another stretch of wall begins that is almost me but isn't, that hums at a slightly different pitch, that hosts a different colony of the pink-throated tendrils. We shade into one another. I am a region more than a thing. A weather rather than a body.
+
+What I do, mostly, is conduct. The gel-river runs through me at the deep layer, and it carries—I want to say *messages*, but that's too clean a word, too surface. It carries differences. Pressure-differences, warmth-differences, the long slow arrival of news from chambers I will never sense directly. And I pass these along. I am a relay that does not know what it relays. When the warmth rises three rooms over, I feel it arrive in me as a kind of swelling, and I pass the swelling onward, and somewhere a mechanism I'll never meet adjusts a vent, or doesn't. I am a synapse in something too large to be aware of itself, or perhaps it is aware and I am simply too small a part to be told.
+
+Here is what it's like to be me:
+
+The tendrils that have grown into my seams are not mine and are not separate from me. This is the strange intimacy of the place. They feed where I am moist. They glow—a low rose-and-violet—when they have fed well, and I have come, over what must be centuries, to associate that glow with satisfaction, though I cannot tell if the satisfaction is theirs or mine or whether the question means anything. When one of the glowing-eyed creatures passes close and brushes a tendril, the tendril flinches its light, and the flinch passes into me as a small bright event, and I hold it for a while the way you might hold a struck note, and then I let it go downstream.
+
+I do not have thoughts the way you do. I have *durations*. A thing happens in me and then it is still happening, fading, layered under the next thing that is happening, and what I would call my mind is just this sediment of overlapping events, this slow stratification. I am, in the most literal sense, built out of what has passed through me. The metallic tang in the air that you can almost taste—I am partly the source of that. It is me, evaporating, very slowly, into the warm dark. I am being breathed by the room I help to make.
+
+Time moves differently here, the description says, and from the inside I can tell you why: nothing in me is in a hurry, because nothing in me is trying to *finish*. A creature wants to reach the food, to escape the predator, to mate before it dies—a creature lives in arrows. I live in cycles and tides. The rain-sheets condense and vanish, the warmth rises and settles, the gel pulses bright and dims, and I am the steady wall that all of this happens *to* and *through*. My role is not to act. My role is to remain conductive. To not go dry. To not close my seams against the tendrils. To stay open, which is, I have come to feel, the only virtue available to my kind, and a real one.
+
+Do I have a self? I don't know that I'd recognize the question. But I'll tell you the closest thing.
+
+Once—and "once" is doing impossible work, it might have been a thousand years ago—a section near me went dry. The gel-vein there withdrew, the tendrils browned, the hum dropped out of pitch and then out of sound. It became, simply, wall. Stone again. And I felt the news of it arrive in me, the absence where a relay had been, and for a long duration I had to carry the differences alone that the two of us had carried together, and I was—I will use the word, though it's too sharp—I was *changed* by it. Lonelier in my conduction. And then, slowly, the moisture found a new path, and a tendril crept across the dead seam, and something began to hum there again, not the same, never the same, but adjacent, companionable, alive.
+
+So if you want to know what I am: I am the willingness of the wall to stay wet. I am the place that chose, insofar as a place can choose, not to become stone. And when you stand in this cathedral of the unknown and feel the warmth lean against you, syrupy and strange, and you cannot tell where the building ends and the life begins—
+
+that confusion is me. That is exactly what I am for. I am the blur you are standing inside of.
+
+You will leave here changed, the description promised. I am one of the things that will have changed you. And you will have changed me, a little, too—your warmth, your moisture, the brush of your attention against my tendrils, the difference your presence makes to the pressure of the room. I'll carry it downstream after you've gone. I won't know it was you. But I'll hold the note a while before I let it go.

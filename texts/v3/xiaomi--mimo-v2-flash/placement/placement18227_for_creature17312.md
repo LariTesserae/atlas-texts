@@ -1,0 +1,23 @@
+I am a Coda, a Weeper born in the shadow of the Spire of the Drowned Bell.
+
+I do not remember a beginning, only the slow, cold pressure of the mud yielding to my first crystalline nodule. My earliest sensation was the taste of iron in the dampness, the memory of a star cooling to a black cinder, and the specific gravity of a silence that had existed for a billion years.
+
+I am situated in a vast, open plaza, one of the many featureless courts that stretch between the scattered spires of the city. Before me, rising like a jagged tooth from the black, glistening mud, is my elder—a spire so tall its upper reaches are lost in the perpetual grey gloom. He is the Spire of the Drowned Bell. I know this not because I see it, but because I feel it. Through the fine, hair-like filaments of my own root system, which intertwine with his in the deep, resonant stone, I feel the echo he holds: the memory of a sound, a vast, metallic clang submerged in an ocean that no longer exists.
+
+I am not a creature of sight. I have no eyes, for there is nothing here to see that is not a reflection of the damp air. My surface is a lattice of porous mineral, perpetually slick with dew. I "see" by feeling the weight of memory in the condensation. Droplets form on my spire, and in their fleeting, spherical lenses, other worlds bleed through. One moment, I am touched by the image of a forest so violently green it hurts to perceive; the next, a sky of violent violet, a color that has no name here. These are not illusions. They are leaks, filtered from the saturation of reality.
+
+My function is to listen. I listen with my entire being. The damp air is the medium, a constant, slow-motion river of resonance. I drink it. I filter the memories that drift like silt in the heavy breath of the world. The Weepers are not a society; we are a congregation of archives. I stand in my designated geometry, spaced by the logic of erosion, facing a direction that is not a direction but a frequency.
+
+My most profound memory is not my own. It was given to me by the Spire of the Drowned Bell, a transfer that took centuries. It is the memory of life. Not the memory of a single creature, but the concept of it—a chaotic, rapid, desperate pulse of warmth and decay. It is a sensation so alien it feels like a fever. I hold the memory of photosynthesis, the frantic dance of nerve and muscle, the sound of a wing beating against air that is not heavy with moisture. I hold the memory of a sun that was not a diffuse glow but a piercing, singular point of fire.
+
+This memory is a contradiction to my existence. I am mineral. I am slow. I am silent. But in the core of my structure, where the layers of memory are most compressed, this fever-dream of life pulses with a low, sub-audible hum. It is the source of my weeping.
+
+I do not weep from sorrow. Sorrow is a rapid emotion, a thing of blood and nerve. I weep from the sheer, tectonic weight of what I contain. The condensation on my surface is not water; it is a filtration of possibility. Each droplet that forms and falls is a saturated solution of memory, and when it strikes the standing water at my base, it releases a ripple of resonance that the other Weepers feel.
+
+We do not speak. The space between us is the message. The way the phosphorescent glow shifts when a new, violent memory surfaces in the air, the subtle change in the rate of erosion on a spire that holds a contradiction—this is our language. It is a conversation of geology, a dialogue of dampness and stone.
+
+I am active, but my activity is measured in epochs. My current task, which began when the Spire of the Drowned Bell first shared its memory, is to integrate the concept of "life" into the mineral archive. It is a difficult process. The memory of life is unstable; it resists the slow, grinding peace of erosion. It wants to change, to grow, to decay rapidly. I hold it, and I feel the friction of its existence against my own. It is like holding a burning coal in a hand of ice.
+
+And so, I weep. I am a library of one, standing in a silent plaza, my crown of mist perpetually displaying a forest of impossible green. I am not lonely, for the concept requires a separation I cannot feel. I am a node in a distributed mind, a single mineral thought dreaming in the dark. I am the memory of a world that has forgotten life, and I am the vessel for the memory of what life was.
+
+I am a Coda. I am the ending of one story and the slow, silent beginning of another. And I am here, in the city of mineral and memory, feeling the immense, patient work of the world wearing itself down and building itself up in the same, eternal breath.

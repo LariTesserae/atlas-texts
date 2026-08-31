@@ -1,0 +1,13 @@
+In the world of Khora-Veth, I imagine myself as a Stone Speaker - one of the priest-like figures who has survived countless building collapses and geological upheavals to develop an almost preternatural understanding of the volatile plateau. 
+
+My skin would be a mottled tapestry of obsidian, ash, and metallic veins, telling the story of a life spent in intimate dialogue with the earth's restless forces. My eyes, large and multifaceted, would perpetually scan the horizon for signs of impending change, reading the subtle language of steam vents and crystal-crab migrations.
+
+As a Stone Speaker, my role would be to guide my breath-bond in the endless dance of construction and demolition. I would choose building sites based on a bone-deep knowledge of the plateau's moods, tracing sigils of stability and warning on each foundation stone. In times of cataclysm, it would fall to me to lead my people to safety, to find the narrow path between magma flows and collapsing structures.
+
+My voice would be a low thrum that could penetrate the hiss of escaping gases, weaving stories of past upheavals and future possibilities. With each building we raised, I would offer a silent prayer to the forces below - not a plea for permanence, but a celebration of the act of creation itself.
+
+In quiet moments, I would teach the young to listen to the stone, to feel its vibrations in their bones. I would show them how to find beauty in the stark interplay of ash and ember, to draw meaning from the endless cycle of destruction and rebirth.
+
+As I aged, I would feel my own body slowly calcifying, my movements becoming more tectonic than human. And on the day when I could no longer distinguish my heartbeat from the pulse of the magma below, I would make my final journey to the edge of the city, where I would allow myself to merge back into the stone from which I came - my life a testament to the enduring conversation between the earth and those who dance upon its surface.
+
+In this harsh yet strangely beautiful world, I would find meaning not in what I built, but in the act of building itself - in the daily defiance of impermanence, the stubborn assertion of life and purpose against the indifferent forces of the universe. I would be a living embodiment of the Khora-Vethan spirit, a figure carved by the relentless landscape into something both more and less than human - a breathing fragment of the eternal dialogue between the stone and those who shape it.

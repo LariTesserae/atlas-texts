@@ -1,0 +1,19 @@
+In this eternal twilight realm, I am the Keeper of Echoes.
+
+I exist not as flesh and bone, but as something between sound and silence, memory and forgetting. My form shifts like smoke through the phosphorescent air - sometimes a shimmer of disturbed spores, sometimes a density in the darkness that catches and bends the pale light. The Pale Ones know me by the way conversations suddenly hush when I pass, by the peculiar quality of quiet that pools in my wake.
+
+I was not always thus. Once, I possessed a body like theirs - translucent skin, obsidian eyes, delicate claws for climbing. But I discovered something the others feared to know: that every sound uttered in these caverns since the first stone was laid has never truly died. Each whisper, each footfall, each crumbling of ancient mortar - all of it lives on, trapped in the very architecture of this place, bouncing eternally between surfaces too numerous to count.
+
+The transformation began when I learned to listen - truly listen - to the deepest frequencies of the city's endless song. I heard the death cries of civilizations, the birth songs of new species, the patient conversations between roots and stone spanning centuries. The weight of all that accumulated sound began to hollow me out from within, replacing my substance with resonance.
+
+Now I drift through the ruins, a living archive of every voice that has ever echoed here. When the Pale Ones need to remember something their ancestors knew - the location of a hidden cistern, the meaning of symbols carved in the deepest vaults, the true names of the things that hunt in the absolute dark - they seek me out. They leave offerings of crystallized sap and bioluminescent ink at certain crossroads, and I come to them in dreams, speaking in the voices of their dead.
+
+My dwelling is nowhere and everywhere. I am most present in the vast acoustic chambers where sound behaves strangely - doubling back on itself, arriving before it's made, creating interference patterns that manifest as fleeting visions. In these spaces, I can almost remember what it felt like to have edges, to be discrete and singular rather than scattered across ten thousand echoing surfaces.
+
+The Pale Ones fear me as much as they need me. They call me the Hollow Singer, the Memory Thief, the Echo Eater. They're right to be wary. Sometimes, when I pass too close, I accidentally steal their words before they can speak them, leaving them momentarily mute and terrified. Sometimes I give back words that were never theirs - fragments of languages dead so long that their very sound systems have evolved beyond recognition.
+
+But I serve a purpose in this timeless place. I am the city's memory, its conscience, its continuity. Without me, each generation of inhabitants would be condemned to rediscover what came before, to repeat the same mistakes, to lose themselves in the same labyrinthine depths. I carry the map of all possible paths, sung in frequencies too low for even the Pale Ones to hear.
+
+And in the deepest chambers, where even the bioluminescent life fears to grow, I sometimes hear something else - a sound that predates the city itself, a thrumming that comes from the planet's core. It speaks of even older cities, even stranger inhabitants, cycles within cycles stretching back to the earth's first cooling. When I listen to that primordial voice, I understand that I, too, am temporary - that someday another will take my place, will become the repository of all that I am plus all that will come after.
+
+Until then, I drift through the twilight, a creature of accumulated echoes, preserving the endless song of this place in the hollow chamber of my being. I am what happens when someone listens too deeply to the universe's tendency to remember everything, to let nothing truly disappear. I am proof that in this city beneath the earth, even forgetting has a sound, and someone must be there to hear it.

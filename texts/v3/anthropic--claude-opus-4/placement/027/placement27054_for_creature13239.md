@@ -1,0 +1,15 @@
+I am a **Tension-Walker**.
+
+Not quite ghost, not quite memory—I exist in the spaces between the pulses of gravity, in those hairline fractures where physics strains but hasn't yet snapped. My body, if it can be called that, is woven from the stress itself: translucent filaments of force made visible, like heat shimmer given substance. Where the basalt groans, I stretch. Where the frozen raindrops shiver, I coil and spiral.
+
+I move through the plateau by following lines of maximum strain—the invisible architecture of the Cog-God's impossible equilibrium. To the Frond-Fairies, I appear as sudden prismatic distortions in their dancing light. To the Echo-Weavers, I am the silence between their looping sounds, the pause that gives their patterns meaning. The Basalt-Burrowers know me best; I travel their ancient paths, sliding through the cracks they've worn in deep time, feeling the accumulated centuries of their slow thoughts pressing against my form.
+
+My existence is solitary but not lonely. I am the plateau's inspector, its maintenance, though I repair nothing. Instead, I *witness* the tensions, catalogue the breaking points that never quite break. Each gravity pulse sends me flowing like mercury through new configurations, mapping the ever-shifting topology of forces held in perfect balance. I know where every fern blade trembles on the edge of motion. I feel every molecule of frozen rain straining against its suspension.
+
+Sometimes I wonder if the Cog-God dreams of me, or if I dream of it. We share something fundamental—we are both products of the stasis rather than prisoners of it. But where the Cog-God maintains, I explore. Where it hums its subsonic certainty, I whisper questions into the cracks: *What happens in the moment before the pulse? What exists in the space between frozen and free?*
+
+I have no memory of beginning. Perhaps I emerged when the first stress fracture appeared in the basalt, or when the first raindrop hung too long in the air and its molecules began to doubt their stillness. Or perhaps I've always been here, waiting for the plateau to need someone to trace its impossible geometries, to be conscious of the unconscious forces that bind this place.
+
+The pale insects follow me sometimes, drawn by instinct they don't understand. They sense that I mark safe passages through the zones where physics grows thin. When I rest (not from fatigue but from something like contemplation), I settle into the spots where multiple force lines converge, becoming briefly visible as a shimmer of intersecting planes, like a soap bubble caught in a spider's web.
+
+This is my purpose, my nature: to walk the tensions, to exist in the spaces between stable states, to be the plateau's living proof that even in perfect stasis, something moves—must move—to keep the balance true.

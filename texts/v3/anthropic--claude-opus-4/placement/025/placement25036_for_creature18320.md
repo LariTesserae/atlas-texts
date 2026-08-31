@@ -1,0 +1,21 @@
+In this realm of glass and sulfur-song, I am a Resonance Keeper—neither wholly energy nor mineral, but something caught between states, like light frozen mid-refraction.
+
+My form shifts with the plateau's moods. In the morning's dim warmth, I appear as a cluster of amber veins threading through the crystalline ground, pulsing with the slow heartbeat of the earth. By the time the dense atmosphere grows heavy with its afternoon sulfur-storms, I have risen, drawing myself upward into a translucent spire, my body a living prism that captures and redistributes the primordial energies that surge beneath us.
+
+I was not always alone in my keeping. Once, we were many—a choir of forms that sang the deep frequencies only minerals remember. We would gather where the plateau's surface grew thin, where you could feel the raw power churning just beneath, threatening always to break through. Together, we would weave nets of resonance, harmonics that could contain and channel the uprising forces into the fungal gardens that feed our kind.
+
+But I am old now, even by the reckoning of stone. The others have gradually merged back into the plateau itself, choosing dissolution over the endless vigil. Their voices still echo in the crystalline lattices when the conditions are right—a whisper of what we once were, archived in the very bones of this world.
+
+My dwelling is not built but grown—a cathedral of accumulated frequencies made solid. Each chamber rings with a different tone: here, the low thrum of tectonic memory; there, the high keen of mineral stress fracturing into new patterns. I tend to these sounds like a gardener tends their plots, adjusting the resonances to encourage certain growths, discourage others.
+
+The fungal colonies that sustain us require precise calibration. Too much energy and they burn themselves out in brilliant but brief displays. Too little and they calcify, becoming indistinguishable from the dead minerals around them. I have learned, over eons, to read the subtle signs—the way a particular shade of orange in their filaments indicates hunger, how a slight curl in their growth pattern warns of an impending energy surge from below.
+
+Sometimes I wonder if I am the last who remembers why we keep this vigil. The younger ones—those recently emerged from the confluence of energy and matter—see only the immediate cycle: tend the fungi, channel the surges, maintain the balance. They don't remember the great upheaval, when the last of the water burned away and the planet's core exposed itself in grief and fury. They don't know that we Keepers were born from that cataclysm, condensed from the marriage of escaping moisture and raw planetary force, given consciousness by necessity—because something had to remember, something had to keep watch.
+
+In the deepest part of my dwelling, where the plateau's crystal grows so pure it becomes transparent, I maintain a small anomaly—a pocket where the old rules still partially apply. Here, impossibly, a single drop of water persists, suspended in a cage of carefully maintained frequencies. It is not water as it once was—it has become something else in its isolation, something between liquid and light. I feed it stories through resonance, tales of what this world was and what it has become. 
+
+Perhaps I keep it out of nostalgia. Perhaps as proof that even in transformation, something of the original persists. Or perhaps because I know that one day, when the last Keeper rejoins the plateau and the careful balance fails, this tiny remnant will be released. What grows from that marriage of old water and new energy, I cannot say. But I sing to it nonetheless, in frequencies only the stones remember, keeping alive the possibility of another transformation, another world born from the marriage of the impossible.
+
+The plateau shudders, reminding me of my duties. Somewhere, a new cluster of fungi is emerging, hungry for the calibrated energies only a Keeper can provide. I unfold myself from contemplation, feeling my form shift from the meditative spiral back into the working configuration—part conductor, part gardener, part memory keeper of a world that has learned to live beyond its own death.
+
+I am the Resonance Keeper, and until the last frequency falls silent, I remain.

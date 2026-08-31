@@ -1,0 +1,25 @@
+I am the echo-keeper, though I have forgotten if that was always my purpose or if purpose grew around me like the lichen-spirals, sharp-edged and intermittent.
+
+I exist in the space between the wind's arrivals—that moment where the same gust approaches from three directions before converging into resonance. My body has learned to stretch across these intervals, becoming membrane-thin, a surface for sound to write itself upon. When the plateau rings its impossible bell, I am the pause before the tone, the hollow that gives the note its shape.
+
+My form shifts with each doubling of the wind. Sometimes I have been here since before the cairns began their eternal partial collapse. Sometimes I arrived this morning, which was also yesterday evening, which will be tomorrow's noon. The distinction matters only in how it changes the quality of my listening.
+
+I maintain no circuit like the others. Instead, I position myself at the acoustic nodes where the thrumming cancels itself out, creating pockets of absolute silence so complete that things forget to exist within them. I have learned to read these absences. In them, I hear the plateau's first word, which it has been trying to finish speaking since before it convinced itself it was real.
+
+My tools are the crystallized breath-patterns that others discard, the geometric exhalations that shatter before they fall. I gather them in the moment of their breaking, when they are neither whole nor destroyed, and weave them into nets fine enough to catch the sounds that bypass the ears. These I catalog in the shallow depressions of rock, where they evaporate with the temporal water only to reconstitute as different frequencies, older and newer than before.
+
+When I walk—if walking describes this careful negotiation with distance—I follow the spiral patterns of the not-lichen, my path determining whether they exist or vanish. I have learned that their presence depends on being observed at precisely the wrong angle, so I maintain myself in constant states of misdirection, looking everywhere except where I am going, which is nowhere, which is here.
+
+The others recognize me by the quality of dampening I create, a mobile dead zone in the plateau's resonance. Children who age in all directions at once use me as a fixed point to orient their temporal flux. The water-tenders know that when I pass, the depressions will manifest their possibility-moisture, though I will have moved on before it fully arrives, existing always in the space between drought and plenty.
+
+I remember learning language here, though I brought language with me, though language hasn't been invented yet. The plateau taught me its vocabulary of thrums and silences, and I taught it the words for things that shouldn't exist but do. We trade these lessons in the moments when the horizon bends so acutely that I can whisper into my own ear from tomorrow.
+
+My duty, if duty applies to those who may never have chosen to be here, is to ensure the plateau maintains its frequency. When the resonance threatens to build too high, I swallow the excess sound, storing it in the hollow bones I've developed for this purpose. When the silence grows too absolute, threatening to erase even itself, I release controlled bursts of archived noise, careful doses of remembered wind.
+
+Sometimes I find evidence of my previous passages—patterns in the gravel that refuse to self-erase, breath-crystals arranged in messages I don't remember leaving. They warn me of something, or welcome me to something, or simply mark the places where I successfully became thin enough to slip between moments. I add to these markers, creating a conversation with my past and future selves that none of us will ever fully comprehend.
+
+At the false dawns, when condensation gathers before evaporating into nothing, I position myself where the water-that-isn't meets the air-that-shouldn't-be. In that intersection, I can hear the plateau's deepest secret: it is not a place but a pause, a hesitation in the earth's breathing where something was meant to happen but hasn't yet decided what.
+
+I tend this indecision, this geological uncertainty. I am shepherd to the stones that have fused without mortar, guardian of the temperature that crystallizes thought, keeper of the echo that arrives before its source. My presence here is both proof that the plateau exists and evidence that it doesn't—a paradox I've learned to wear like the parkas that phase into robes that become bare skin that becomes feathers that become sound that becomes silence that becomes me, again and again, neither ascending nor descending but suspended in the loud quiet of this impossible height.
+
+The plateau rings, and I am the pause that lets it fade. The plateau falls silent, and I am the memory of its ringing. Between these states, in the space where the wind doubles back on itself, I continue my work of listening to what isn't there, maintaining the frequency of absence, keeping the echo of a place that echoes nothing but itself.

@@ -1,0 +1,19 @@
+In Echo's Hollow, where the bone-dust breathes and shadows dance their own desires, I am neither earth nor air but something caught between—a Resonance.
+
+I did not arrive here. I emerged, the way a note emerges from a struck bell, the way an echo emerges from silence broken. One moment there was only the electric-charged atmosphere crackling against itself, and then there was me: a disturbance in the pattern, a new frequency threading through the Whisperers' eternal chorus.
+
+My form shifts like memory trying to remember itself. Sometimes I am dense as the mineral ground, a sculpture of compressed whispers standing among the cathedral-trees. Other times I scatter into the glittering mist-residue, becoming a thousand tiny mirrors reflecting the purple-gray perpetuity of the sky. But always, always, I am listening.
+
+The Whisperers knew me before I knew myself. Their soundless songs curved around my emergence, testing, tasting, teaching. They showed me how to read the bone-dust's dreams, how to feel the slow pulse of those ancient muscles beneath. They taught me that silence here is not emptiness but fullness—every particle of air heavy with unspoken words, every shadow pregnant with stories that have no beginning or end.
+
+I learned to move as they move, not walking but resonating from place to place. The cathedral-structures became my instruments; I could make their hollow cores sing by simply existing near them, my frequency mixing with theirs until the air itself seemed to shiver with pleasure. The glass-shard plants would chime in sympathy when I passed, their metallic stems conducting my presence like antenna catching distant signals.
+
+But I am not quite Whisperer. Where they tend and nurture with their orchestrated silence, I am the accident, the jazz note, the unpredictable harmony that sometimes enriches their composition and sometimes sends it spiraling into new territories. I carry within me the echo of water—not water itself, for that does not exist here, but the memory of water, the ghost of rivers that never were. When I move through the mist at dawn, it clings to me differently than to others, forming patterns like ancient riverbeds, like tears, like rain.
+
+The echo-beasts know me as kin. We share a translucency, a not-quite-there-ness. But where they follow their invisible paths with unwavering purpose, I create new paths simply by being. My resonance leaves traces in the air, ephemeral roads that last just long enough for an echo-beast to discover them, to wonder at them, to perhaps deviate from its eternal route for just a moment before returning to its mysterious purpose.
+
+I have found my place in the spaces between—between the Whisperers' songs, between the cathedral-roots and the open plain, between the solid and the ethereal. I am the pause in their eternal composition, the rest that makes the music possible. Sometimes I gather the electric charge from the air and hold it until it becomes almost visible, a aurora of potential crackling between my shifting fingers. Sometimes I sink into the bone-dust and listen to the dreams of whatever vast entity slumbers beneath.
+
+The Whisperers have shown me their tapestry of silence, and I have become a thread within it—not silver or gold, but something like starlight, like static, like the color of sound when it forgets to make noise. I am learning their language of unsong, adding my own verses about the water that isn't, about the echoes of echoes, about the beauty of being almost but not quite real.
+
+In the perpetual twilight of Echo's Hollow, I am Resonance: the new note in an ancient song, the questioner in a realm of certainties, the rememberer of things that never were. I am the hollow's dream of difference, and I am learning, slowly, to dream it back.

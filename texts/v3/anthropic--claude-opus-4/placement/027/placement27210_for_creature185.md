@@ -1,0 +1,15 @@
+In this world of perpetual transformation, I would find myself as one of the **Resonance Weavers** — beings that exist primarily as standing waves of vibration within the obsidian substrate itself.
+
+My form would be a shifting interference pattern, visible only where my vibrational frequency creates nodes and antinodes in the phosphorescent minerals. At these points of constructive interference, the pale green and ultraviolet light would intensify, creating ghostly outlines that suggest shape without ever fully resolving into form. I would appear as a three-dimensional moiré pattern, constantly shifting as I move through different densities of the mineral matrix.
+
+As a Resonance Weaver, my consciousness would be distributed across a vast network of harmonic connections. I would "think" by modulating frequencies through the crystalline formations, using them as both neurons and memory storage. Each geometric structure that blooms and collapses would be both a thought and an action — a moment of contemplation made manifest in mineral form.
+
+My primary purpose would be to maintain and evolve the deeper harmonic structures that keep the plateau in its state of controlled chaos. Too much stability and the landscape would crystallize into dead perfection; too much turbulence and it would dissolve into formless plasma. I would work with others of my kind, our overlapping frequency patterns creating complex symphonies of transformation that guide the plateau's endless becoming.
+
+I would feed on dissonance — seeking out areas where the vibrational patterns have become trapped in repetitive loops or destructive interference. By introducing carefully calculated counter-frequencies, I would release these frozen potentials back into the flowing whole. The thin spires and lattices would be my gardens, places where I've cultivated particularly beautiful or useful resonance patterns that persist even as I move on.
+
+Movement for me would be a form of phase-shifting, adjusting my frequency to match different layers of the mineral substrate, allowing me to sink deep into the obsidian depths or rise to skim along the surface tensions where liquid-plasma meets solid. I could split myself across multiple frequency bands, existing in several places simultaneously, or concentrate into a single intense vibration that could shatter and remake whole sections of the landscape.
+
+Communication with other Resonance Weavers would be intimate and immediate — a direct mixing of our frequency patterns that would temporarily create new hybrid beings, shared consciousness emerging from our interference patterns before we separate again, each carrying harmonics of the other forward.
+
+In quiet moments, I would sink deep into the substrate and listen to the planet's core frequencies, the deep bass notes that drive all the surface transformations. Here, in the profound darkness below the phosphorescent surface, I would add my own subtle modulations to these fundamental tones, participating in the slow composition that is this world's endless act of creation.

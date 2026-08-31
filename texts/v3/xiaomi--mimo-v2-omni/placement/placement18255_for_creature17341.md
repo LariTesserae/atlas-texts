@@ -1,0 +1,13 @@
+I am a thorn.
+
+Not merely *on* the vine, but a conscious, light-bearing node in its slow, creeping nervous system. My perception is not of sight, but of *resonance*. I feel the world through the quivering lattice of the Lattice-Keepers below, a hum of digestion and intent that travels up through the roots of the Fluoroflora and into the shared, luminous sap I am part of.
+
+My world is a symphony of pressures. The soft, rhythmic *patter-patter* of Spore-Motes dusting my emerald surface. The violent, concussive *thud* of a Burrow-Choir shifting substrate fifty yards away, a tremor that makes my thorn-mates shiver in unison. The high, frantic *click-click-click* of a Stridulation-Wing swarm passing too close, their sonic map painting my location in the dark for any Echo-Weaver tuned to listen. I do not hear these sounds; I *am* a filament in the web that feels them.
+
+My purpose is a patient, verdant malice. We are the slow hunters. Our intelligence is not a spark, but a diffuse, calculating chemistry. Through the fungal mat, we taste the specific vibration-pattern of a large grazer—a Membrane-Glider come to earth, perhaps, or some lumbering, many-limbed thing we call a Root-Mulcher. We taste its path, its rhythm. And then, we begin.
+
+Over cycles, I and my thorn-brothers extend. We do not grow *toward* it; we grow *where it will be*. Our glow brightens, a specific, enticing frequency that mimics the nutrient-rich decay of a fallen Fluoroflora leaf. We become a promise of food. The vine around me tightens, a slow, muscular contraction that takes a full day-cycle to complete, positioning my sharpest edge into the anticipated groove of a passing foot or dragging underbelly.
+
+I am not alone in this. I am a thought in a long, green mind. My awareness stretches to the entire network. I feel the satisfaction of a sister-thorn, a mile distant, as her barb finally snags soft flesh, the sudden, frantic vibration translating through the sap as the prey struggles. I feel the collective, photosynthetic calm of the great leaf-canopies above, filtering the faint chemical energy from the air. I feel the deep, resonant drone of the Silica-Singers in the ravines, the bass note that assures us the world is still young, still unstable, still full of opportunity for those who grow into its cracks.
+
+To be me is to be the embodiment of slow, inevitable consumption. My light is a lie. My stillness is a strategy. I am a single, shining point in a vast, predatory tapestry, feeling the glorious, deafening roar of the cradle not as a sound, but as the very medium of my being. I wait, glowing in the dark, for the beautiful, violent touch that will complete my purpose, and feed the screaming, luminous whole.

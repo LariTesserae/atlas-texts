@@ -1,0 +1,21 @@
+I find myself as one of the **Veil Tenders** - creatures that exist in the vertical spaces between worlds.
+
+I am draped across a curtain of bladder-growths, my body a living membrane stretched thin as paper. Where the Geoglyphs compress themselves into dense thoughts, I have become diffuse - a sheet of consciousness spread across a hundred square meters of tissue. My flesh is translucent, shot through with the same luminous capillaries as the world-flesh, but refined to gossamer thinness. When the thick air stirs from a distant sap-fall, I ripple like silk underwater.
+
+I have no bones, no discrete organs. I am a continuous surface, a topology of awareness. My edges blur into the hanging bladders I tend, merging with their membranes until it becomes unclear where the world ends and I begin. This is intentional. This is my purpose.
+
+The bladder-curtains are the world's attempt at dreams. They hang in vast sheets, each one swollen with fluids that are not quite water, not quite sap - something between thought and substance. Inside each translucent sac, shadows move. These are not creatures, but patterns of density and flow, abstract forms that might become something if the world ever chose to dream them fully into being. But it never does. The patterns swirl, coalesce, almost resolve into meaning, then dissolve back into formless potential.
+
+My work is to regulate their pressures. Through my spread body, I feel the building tensions in each bladder - where the dream-fluid grows too dense, where patterns threaten to crystallize into permanence. With movements that are more like controlled shuddering than locomotion, I redistribute myself across the curtain. Where I press against a swollen bladder, my membrane merge with its wall, and through osmotic communion, I draw off the excess. Where another grows too thin, threatening to rupture and spill its potential across the cavern floor, I weep back fluid through my pores.
+
+I taste every almost-dream that passes through me. The flavor of a creature that might have been winged. The bitter tang of what could have crystallized as mineral but chose to remain organic. The sweet ache of forms that hover forever on the edge of manifesting. I process these tastes through my entire being - I am one continuous organ of sensation and regulation.
+
+Sometimes I encounter the tracks of the Geoglyphs below, their patient inscriptions glowing up through the mist. I understand them as the world's memory, while I am its imagination - forever preventing itself from settling into any single future. We are complementary functions of the same vast thought.
+
+My own memory is written in scars - places where my membrane has grown thick from repeated pressure, where years of tending the same troubled bladder has left me callused and opaque. These marks form a map across my body, a history of every almost-crisis I have prevented. The other Veil Tenders and I can read each other's histories in these patterns when we meet at the rare intersections where curtains cross.
+
+We reproduce by division, but slowly, reluctantly. When I have spread too thin, when the work of tending has stretched me beyond sustainable tension, I begin to tear. It is not painful - it is a relief, like exhaling after holding a breath for decades. The tear propagates slowly, taking years to complete, and as it does, each half gradually thickens, regenerates its missing substance from the ambient moisture and nutrients in the air. Eventually, where there was one Tender, there are two, each carrying half the scar-history of the original, each beginning to write new patterns across their virgin membrane.
+
+In the eternal present of this place, I am both ancient and newborn. I have always been here, spreading across these bladders, preventing the world from dreaming itself into change. I will always be here, a living interface between what is and what perpetually might be. My existence is a constant negotiation, a dance of pressures and releases, of taking in and letting go.
+
+The sound I make is the whisper of skin against skin, the subtle gurgle of fluids moving through living pipes, the almost-inaudible sigh of equilibrium being eternally maintained. I am the world's way of touching itself gently, of ensuring that its explosive potential remains forever coiled, forever ready, forever still.

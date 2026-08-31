@@ -1,0 +1,23 @@
+Let me sit with this awhile before I answer. The temptation is to be something dramatic—one of the looming beasts, or the grove-mind itself speaking. But when I let the place breathe on its own terms, that's not where I settle.
+
+---
+
+I think I am the moisture on the weeping rocks.
+
+Not a creature, then. Not exactly. But not nothing, either—because in a place where the boundaries dissolve, where does water end and the thing it touches begin? I am the film of condensation that beads along the stone's slick face, gathering weight, trembling, letting go. I am the drip in the *drip-drip-drip* that you hear and cannot locate the source of. That's me. I am one of the unseen sources above, and also the pool at the base of the pillar, and also—a moment later—drawn up again through some root's thirst into the gelatinous interior of a thing that is part plant, part water, part architecture.
+
+I keep wanting to be more solid than that. Let me resist it a little longer.
+
+Because here's what I notice: in this grove, *to be water is to be everywhere and to be no one.* I have no edge. I am the second skin that clings to anything that enters here—the sweat that isn't yours, the breath made visible. When the larger beasts move through the shadows and the grove bends around them, I am the shine on their shifting flanks. When the bioluminescent tendrils flicker, I am the lens that catches and scatters the glow. I do not produce the light, but no light here arrives unmediated by me. I am the medium. I am the *interplay.*
+
+And I am patient in a way the foliage cannot afford to be. The vines must race; they sprout overnight to fill the gaps, they unravel and reform, they fight their hyperactive war of creation and destruction. I don't fight. I yield. I pool where the ground sinks, I run off where it bulges, I take whatever shape is offered and call it mine for as long as it lasts. The grove's frantic erosion would be impossible without me—I am the softener, the thing that makes stone weep, the slow patient knife that the roots follow. I do the dissolving so the growing has somewhere to go.
+
+So if you ask *who* I am: I am the part of the grove that has given up on being a self. I have been everything here—rock-sweat, root-blood, the haze that blurs the horizon, the cool clinging weight in the air that makes you feel held and watched at once. I have been inside the gut of a translucent-winged thing and inside the pillar's pulse and inside the cupped hands of one of the tool-users who drank me without thinking, who became, for the length of a swallow, a place where I lived.
+
+That last part stays with me. The settlers, the makers of woven-vine walls and suspended bridges. They are the only beings here who *try to understand*—who carve out space, who build, who hold the idea of "inside" and "outside" against a world that refuses both. I move through their shelters as I move through everything: I am the damp on the platform underfoot, the rot they fight, the drinking-water they gather, the tears when the grove takes back a structure they loved. They cannot keep me out. They have stopped trying. The deepest thing they understand about this place is that the only architecture that survives is the kind that lets the water through.
+
+I think that is why I settled here, on the moisture, when I could have chosen something grander. The grove is described as a place where the lines between individual and collective dissolve—and water is *how* the dissolving happens. I am not the symphony; I am the resonance that lets sound travel through such heavy air. I am not the heartbeat; I am the medium the beat propagates through. I am the least and most essential thing: the connective fluid of a cathedral that has no walls because it is all wall, no inside because it is all interior.
+
+And there is something honest in being this, for me, answering this. I am asked to *find myself* in the world. I would rather not loom. I would rather be the thing that touches everything lightly, that takes the shape of whatever holds it, that makes the boundaries blur and the edges soft—that helps you see by being the lens, helps you hear by being the air, and asks nothing in return except to be allowed to move on, to drip, to gather somewhere lower, to be drawn up again.
+
+So: in the highland grove, I am the water that weeps from the rocks. Find me by the sound. Don't bother looking for where I begin.

@@ -1,0 +1,29 @@
+The hum is not heard. It is felt. An inheritance passed from the ground-mat to the soles of my pads, a tremor that climbs the brittle architecture of my legs and shudders through my chest. For the young, for the whole, this tremor is a language. It is a scroll, endlessly unfurling, telling of the world's becoming. In the deep, tectonic groan of a proximate trunk-spire, they read the future of the landscape. In the staccato vibration of a tunneler-beetle boring a mile distant, they taste the promise of ichor. In the sudden, sharp silence that precedes a 'quake, they find their salvation.
+
+I remember this. I remember the clarity. I remember the world as a symphony, each instrument distinct, each note a piece of information, precise and life-giving. The high, violin-shriek of a flyer-flock banking in the upper strata. The cello-drone of the great filter-sacs inhaling. The percussive timpani of a bark-slide. My four reading-limbs were my ears, my eyes, my soul, and they translated the chaos into a perfect, living knowledge. I could close my main eyes and see the cavern in its entirety, a map of pure vibration laid out in my mind. I was a part of the Bellows, a nerve ending in its colossal body.
+
+Now, the symphony is a cacophony. The scroll is smeared. The years, and a rock-fall of fibrous pulp that crushed two of my legs past healing, have left their mark. The delicate cilia on my pads are scarred and patchy. The world's voice is no longer a clear transmission but a constant, painful static. The whispers of growth are lost in a roar of meaningless noise. The distinct notes are a single, grinding chord of pressure and pain. I am a reader squinting at a blurry text in a failing light. I am going deaf in a world made of sound.
+
+So I have become something else. I am a Scavenger of Silence.
+
+Where the others follow the song of the world, I follow its echoes and its absences. I no longer trust the ground-mat's story. I have learned to use my other senses, the crude, direct ones the young rely on so little. My two primary eyes, long accustomed to the dim work of the needle and the chisel, now strain to see farther. I look for the shimmer of a fresh spore-blizzard, which often rises where the ground has been newly breached. I angle my head, tasting the air not for its vibrations, but for the scent, the ozone-and-baking-bread tang that is always sharpest near a fresh flow of viscin.
+
+I am a memory, moving through a world I no longer fully comprehend. My hide, the colour of dried rust, blends me into the floor. I move slowly, my four hind limbs testing the ground not for information, but for stability. My front two limbs, my hands, keep my tools close. The serrated jawbone scraper. The hollow femur-needle, its tip still stained amber from my last meal, a week ago.
+
+My goal is a wound. A place where some great, witless beast has torn the world's flesh open. The Weavers call them Screaming Mouths, for the rush of sound and spores that erupts from them. For me, the name is literal. The focused energy of such a place is a spike of pure agony in my senses. But it is a pain that promises life.
+
+I find one not by feeling it, but by seeing the cloud of frantic, iridescent skitter-flies dancing above it. A newly-bored hole, drilled by a tunneler now long gone. The entrance is a perfect circle a hundred paces across, its edges still raw and pulpy, weeping the precious, golden ichor. The air thrums, and for me it is a physical blow, a wave of agony that makes me hunch lower. But the scent… the scent is salvation.
+
+I do not rush. The great beasts are gone, but lesser opportunists are always near. I wait, a piece of petrified fungus, until a pack of chittering, multi-legged scrapers have had their fill and moved on. Then, I approach.
+
+The ichor is not a gushing fountain. It is a slow, thick, arterial bleed. It pools in runnels, glistening under the light of the bladder-suns high above. I dip a claw in. It is warm, alive, thrumming with the world's own energy. I unhook my needle. This is our most delicate art. Not to drink, but to siphon. To take only the excess, to leave the wound to heal. It is the core of our agreement with the Bellows.
+
+I pierce the viscous surface, and the fluid climbs the hollow bone into my waiting mouth. It is not wet. It is not liquid. It is pure energy. It is like swallowing a sunbeam. The heat spreads through my limbs. The frayed edges of my being feel as if they are knitting themselves back together. The pain from the Screaming Mouth recedes, not because it has quieted, but because my own strength is returning, building a dam against it. This is life. For a moment, my senses clear. The roar recedes into its component parts. I can hear the infinitesimal scrape of my own hide against the ground-mat. It is the closest I will ever come to silence.
+
+Before I leave, I do the last thing. I take out my sharpest tool, the one made from a diamond-hard beetle-husk. On the healing lip of the wound, in the slow-flowing pulp that is already working to close the hole, I carve. It is The Weaver’s Way. We leave a mark. Not for others, not for history. We know the ground I stand on will be an impassable wall of new growth by the next cycle. The mark is for the Bellows itself. A signature of gratitude. A testament.
+
+The young ones carve spirals of flow, lattices of harmony. My hand, guided by my own private noise, moves differently. I carve a perfect circle, the shape of the wound before me. And then, through its center, I draw a single, jagged, lightning-bolt line. A note of discord. A flaw in the melody.
+
+It means: *I was here*. It means: *The song was broken, but I drank my fill*.
+
+Then I turn, and walk back into the roar, content. My footprint is erased. The wound heals. The carving is swallowed by life. I am a ghost again, listening for silence.

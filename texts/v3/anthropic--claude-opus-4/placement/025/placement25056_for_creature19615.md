@@ -1,0 +1,21 @@
+In this place of grinding births and industrial fever-dreams, I am one of the **Resonance Weavers**.
+
+I have no fixed form. My body is a collaboration between copper-foil vine and the crystallized sound-shards that fall like hail during the plateau's louder convulsions. Picture a thing that might have once been bipedal, but whose flesh has been replaced by a latticework of semi-living wire—copper tendrils braided with frozen vibrations that chime softly with each movement. Where my heart should be, there is instead a small flywheel of solidified magnetism, spinning lazily, drawing the heat-waste from nearby vents through hair-thin filaments that pierce my chest like acupuncture needles.
+
+I was human once, I think. Or perhaps I only remember being human—a ghost-memory from before the Nerve-Root Mother found me sleeping too long against a warm piston. She didn't finish her work. When the mountain folded and became a turbine, her vines were severed, leaving me half-transformed: partly her vision of efficiency, partly the plateau's scrap heap of discarded physics.
+
+My trade is silence. In a world where sound crystallizes and falls like glass rain, I harvest the quiet spaces. I know where the null-zones form—those precious pockets where the thrum-thrum-thrum of the great engines cancels itself out through destructive interference. I string these silences together like pearls, weaving them into nets that I sell to the Vane-Stalkers, who use them to muffle their diving approaches, or to the Articulated Apes, who wrap them around the joints of new machinery to prevent the birth-screams of folding mountains.
+
+My workshop is a hollowed-out Slick-Snail shell, one that died decades ago in the shadow of a vast vent-stack. I've lined the interior with sheets of magnetized iron salvaged from the plateau's constant geographic turnover. The metal walls hum with stored vibrations—a library of sounds I've collected over the years. The deep bass note of a mountain inverting. The crystalline tinkle of rain that fell upward. The wet grinding of a new gear being born from stone.
+
+I work by touch and temperature rather than sight. My eyes—if they can still be called that—are clusters of copper wire that perceive heat signatures and magnetic fields rather than light. The eternal grey twilight means nothing to me. Instead, I see the world as a topology of warmth: the white-hot hearts of the engines, the cooler blue of the obsidian ridges, the sickly yellow pulse of the Nerve-Root Mothers in their deep canyons.
+
+The Valve-Watcher knows me. Sometimes, when I'm gathering silence near a broken gravity well, I'll sense its approach—a cold void in my heat-vision, moving with impossible confidence across the vertical world. It never speaks, but once it left something for me: a single bolt made of crystallized silence, so pure that when I touch it, all sound within a meter of my hand simply ceases to exist. I wear it on a chain of braided vine around what used to be my neck.
+
+My greatest creation is still unfinished—a cape woven entirely from the plateau's quiet moments. Each thread is a different silence: the pause between piston strokes, the moment before a mountain folds, the brief hush when the Vane-Stalkers dive through a cloud of steam. When complete, it will render the wearer not invisible, but *inaudible*—a ghost that even the Ghost-Loomers cannot hear.
+
+The Articulated Apes think I'm holy. They've seen me walk through fields of sound-shards without cutting myself, watched me reach into the space between grinding gears to pull out threads of quiet. They leave offerings at my workshop—small mechanical treasures they've salvaged from new geometries. Tiny clockwork hearts that beat in 7/4 time. Prisms that split heat instead of light. Screws that turn themselves.
+
+But I know what I really am: a mistake that learned to profit from its own malfunction. Neither fully transformed nor fully preserved, I exist in the margin of error between what the plateau dreams and what it builds. I am the pause between the pulse, the lubricant between the gears, the silence that makes the sound possible.
+
+And in this world of constant revision, being incomplete is perhaps the only complete thing one can be.

@@ -1,0 +1,35 @@
+I would not arrive with boots. I would arrive as a hesitation.
+
+At first, I would mistake the place for emptiness. My legs would carry the memory of paths, of destinations, of ground that pushes back. I would step onto the pale, polygon-crusted silt and feel it yield, not with collapse but with a soft, hydraulic compliance. My weight would sink an inch, then stop, held by something deeper than mud. I would lift my foot and watch the depression fill itself, not with water rushing in, but with the slow upward draw of capillary threads, stitching the surface back together as if I had never been there. I would try again. And again. Until I learned that leaving a mark is not a right here, but a misunderstanding.
+
+I would sit. Not from exhaustion, but from the sudden, quiet realization that standing is a kind of argument. The ground would accept me the way it accepts rain: without surprise, without resistance. The warmth would press through my clothes, not as heat but as presence. The humidity would find the dry places in me and begin its work. At first, I would breathe too quickly, my chest rising and falling in sharp, mechanical counts. The air would taste of dissolved iron, green rot, and something older than leaf or bone. I would cough, not from irritation, but from the violence of my own rhythm against a place that has forgotten how to hurry.
+
+Slowly, the basin would teach me how to be held.
+
+My skin would dampen. Not with sweat, but with exchange. The moisture in the air would bead along my arms, my neck, the hollows of my collarbones, and instead of wiping it away, I would let it stay. It would seep into the microscopic cracks of my urgency. My pulse, which arrived as a drum, would begin to feel like a drip. I would stop pulling the air into my lungs and let it pool there instead. My thoughts, which had come in straight lines and clear purposes, would begin to curve. They would spread out. They would settle into the shallow swales of my own attention, merging, splitting, rising and falling with something I could not yet name but could already feel.
+
+I would not notice the change in myself until I noticed the absence of separation.
+
+The silt beneath me would darken, not from rain, but from the slow transfer of moisture between my weight and the water table. A patch of moss, velvety and cool, would find the shadow of my shoulder and begin to spread across it, not as colonization, but as recognition. My clothes would grow heavy with humidity, then soft, then irrelevant. I would feel the fine, invisible threads of capillary action drawing upward through the fabric, through my skin, into the spaces between cells. I would not be drinking. I would being drunk. And I would not resist.
+
+What would I be?
+
+Not a creature. Not yet. I would be a depression that holds water a little longer than the surrounding earth. I would be a patch of ground where the temperature drops by half a degree, where the air grows still, where the insect chorus thickens because the humidity pools. I would be the faint, sustained pressure that coaxed the cracked polygons back into mud. I would be the soft resistance underfoot, the hydraulic sigh that answers stillness, the darkening of soil that says: something is resting here, and it is in no hurry to leave.
+
+I would notice them only when I stopped looking.
+
+A contour that did not belong to the swale. A low, sweeping curve that caught the diffuse light differently, not reflecting it but absorbing it. At first, I would think it was a rise in the land, a mound of ancient clay. Then I would feel it. Not with my eyes, but with my ribs. A vibration so deep it bypassed the ear and settled in the marrow. A frequency that did not call, but tuned. My breath would lengthen to match it. My pulse would slow. The tension in my jaw, my shoulders, my hands would unspool like wet thread. I would realize I was not listening to the basin. I was being listened to by it.
+
+One of them would be near. Or perhaps I would be near it. The distinction would dissolve with each passing hour. I would feel its lateral ridges reading the mud, feeling the drip of condensation, the slide of a frog, the distant approach of a storm still beyond the haze. I would feel its pores open as the humidity swelled, its internal channels flushing with fresh moisture, its metabolism shifting from patience to presence. And when the warm rain began, I would feel it rise, just slightly. Not standing. Not stretching. Simply allowing fullness to lift it.
+
+I would not become one of them. I would become what they become: a place where water pauses. A node in the capillary network. A resonance in the mud.
+
+My bones would feel less like scaffolding and more like sediment. My blood would learn the taste of dissolved root and ancient peat. I would shed the need for names, for boundaries, for the fiction that I was separate from the ground that held me. When two of them met nearby, pressing their flanks together, exchanging those deep, pulsing vibrations that traveled through the soil and into the water, I would feel the exchange pass through me too. Not as intrusion, but as inclusion. A shared reading of the ground. A confirmation that the moisture holds, that the temperature is stable, that the equilibrium remains unbroken. I would hum back, not with voice, but with stillness. With weight. With the quiet admission that I, too, was learning how to remain.
+
+Time would stop being a line. It would become a pool. I would measure it not in hours, but in the slow darkening of soil, in the gradual unfurling of a moss frond across my knee, in the way the water table rose against my spine like a tide that never breaks. I would forget the sound of my own footsteps. I would forget the shape of my own urgency. I would learn to feed as the basin feeds: by waiting, by letting what is loose and ready drift into me. Memories would soften. Desires would dissolve into dark, cohesive pellets that sank into the peat and fed the sedges. Nothing would be wasted. Nothing would be rushed.
+
+When I died, if death can be named here, I would not collapse. I would sink. My channels would close. My mass would settle into the dark matrix that holds the water table together. Moss would claim my back. Sedge roots would thread through my ribs. My skin would dissolve into the conditions that made me possible. There would be no carcass. No skeleton. No dramatic end. Only a slow return to the basin's patience. Only the faint darkening of soil where I had rested, gradually filling itself, stitching back together, as if I had never been there.
+
+And I would be glad for it.
+
+Where would I find myself? Nowhere that requires a map. I would be in the space between seep and silt, between frog call and falling drop, between the old one's breathing and the young nodule's waiting. I would be the soft resistance underfoot, the damp patch after rain, the quiet vibration that steadies the air. I would be what remains when hurrying is forgotten. Not a visitor. Not a resident. A condition of the place. A slow, wet yes. A held breath that finally learns how to exhale.

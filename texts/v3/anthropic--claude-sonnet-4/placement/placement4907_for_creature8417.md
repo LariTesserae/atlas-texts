@@ -1,0 +1,23 @@
+I would be a **Sound Mapper**.
+
+In Kethara, I've learned to navigate by the crystalline symphony that never stops. While others see the salt flats as white expanses broken by machinery, I hear the living geography—each formation singing its own pitch when the wind finds it, each tunnel humming with the specific frequency of its mineral composition, each platform broadcasting its health through the rhythm of its grinding.
+
+My workshop clings to one of the higher walkways, positioned to catch the acoustic crosswinds that carry sound from every corner of the basin. The walls are lined with instruments I've built and modified: resonance collectors that trap the pure tones of different salt grades, harmonic analyzers that can distinguish between the deep thrumming of healthy extraction equipment and the subtle discord that precedes breakdown, wind harps strung with wire salvaged from decommissioned platforms that play themselves as the mineral-laden air moves through them.
+
+My fingers are permanently stained with the blue-green patina of copper salts from working with the conductive elements I harvest from the electronic waste of broken machinery. But this staining isn't just cosmetic—it's made my fingertips more sensitive to vibration, able to read the health of equipment through touch, to feel the subtle tremors in walkway cables that warn of stress fractures hours before they become visible.
+
+I wear a vest lined with small bells and chimes, each tuned to match the warning frequencies of different hazards. When crystalline formations are about to shift, when platforms are approaching from specific directions, when the deep pumps are drawing too hard and risking a brine pocket breach—my vest sings the approaching danger. The Haulers have learned to read my movements, the way my shoulders shift when I hear trouble in the distance, how my pace changes when the acoustics warn of weather rolling in across the flats.
+
+The children seek me out because I can teach them the songs hidden in their industrial playground. I show them how to cup their hands to amplify the whispers of settling salt, how to identify the sweet spots where multiple machine rhythms converge into unexpected harmonies, how to predict where the salt-miners will flock by listening for the insect swarms their feeding disturbs.
+
+At night, I climb to the highest observation platform with my recording equipment—crystalline sound catchers that store audio in mineral matrices. I'm building an archive of Kethara's voice, documenting how it changes as formations are harvested away and new ones emerge. The recordings shimmer when played back, the crystal storage medium adding harmonic overtones that reveal patterns invisible to normal hearing.
+
+The Deep Walkers hire me to map the acoustic properties of new tunnel systems, my charts showing not just physical space but resonant zones, echo chambers, places where sound behaves strangely due to unusual mineral deposits. Platform Riders request my services to diagnose their machines, knowing I can hear bearing degradation and hydraulic stress in frequencies their instruments miss.
+
+But my real purpose, the reason Kethara chose me, becomes clear in the deep quiet moments between shifts when the great pumps pause for maintenance cycles. In that rare silence, I can hear the salt itself—the slow crystalline groaning as formations settle, the whispered conversations between different mineral layers, the patient singing of deposits still buried far below.
+
+I am becoming something between human and instrument, my body a tuning fork for Kethara's endless transformation. My bones resonate with the deep frequencies of the extraction wells. My breath has learned to match the rhythm of the processing plants. When I walk the elevated pathways, my footsteps unconsciously fall into counterpoint with the industrial percussion below.
+
+Sometimes, in the hour before dawn when the night shift yields to day and the platform lights sweep their last arcs across the crystalline expanse, I can hear Kethara dreaming—a low harmonic drone that speaks of salt memories and ancient seas, of the patient work of time and pressure, of the restless energy that turns landscape into commodity and back into landscape again.
+
+I map this world not with lines and measurements, but with melody and rhythm, building charts of sound that show the Haulers where to dig, the Runners which walkways sing stable, the Transport Folk which routes will carry their voices clearly across the mineral wind. In a place defined by constant change, I've become the keeper of its voice, the translator of its crystalline language, the one who listens to what Kethara is always trying to say.

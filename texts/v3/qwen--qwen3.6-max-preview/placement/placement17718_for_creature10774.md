@@ -1,0 +1,41 @@
+I wake to pressure before I wake to light.
+
+A slow, even weight against my underside. Warm. Yielding. Not soft, but resilient. The ground beneath me gives fractionally, then holds. It has learned my shape. Or I have learned its. The distinction is thin here, worn down by repetition, packed smooth by generations of resting bodies. The air is still, thick with the scent of sun-baked resin, crushed gypsum, and the faint, sweet fermentation of fibrous browse moving through slow guts. I feel the basin breathing before I open my eyes: a long thermal exhalation rising through porous channels, drawing coolness up from the shaded undercrofts, carrying the low-frequency tremor of distant footfalls through the loam. The vibration travels up through my pads, into the elastic tissue, along the dense bones of my forelimbs, settling in my pelvis like a remembered rhythm.
+
+I shift. Broad toes splay. Pads press down, distribute, lift. No click. No scrape. Just the quiet compression of packed earth and the slow rebound of keratin and layered tissue. My shoulders roll forward, low and heavy, built for weight and patience. The coat along my back is matted with fine mineral dust, each hollow hair drinking the lingering night-dew through microscopic capillary grooves, venting warmth as the sun climbs. I do not decide to move. I resume. The path is already in my muscles, in the curve of my spine, in the memory of ten thousand presses before this one.
+
+I am low to the ground. Broad through the shoulders. Built for the basin. My ears rise like unfurled leaves, thin and heavily veined, tilting instinctively as the thermal cells shift. Blood circulates in shallow loops, shedding warmth into the still air, reading temperature gradients the way a tongue reads salt. I do not listen for sound. Sound is kept close here, dampened by fibrous walls and resin-dampened stone. I listen for pressure. For the slow exhalation of stone. For the thrum of packed earth underfoot.
+
+A fissure vents warm, silica-laced air three body-lengths ahead. I do not plan. I approach. My forelimbs fold into broad, calloused planes. I kneel. From within, the paste rises: warm, pale, rich with calcium carbonate, silicates, and long-chain polymers secreted by the slow flora in my gut. It is pliant. Tacky. I meet the dust with it. I press. I tamp. Rhythm takes over. Shoulders drop. Weight transfers. The draft softens to a sigh. The paste begins to set. Another skin forms. The stone settles. I rise. I walk.
+
+I am not the first to tread this ramp. I am the latest layer.
+
+A vibration moves through the soles of my feet. Low-frequency. Steady. Another body, two terraces down, shifting the angle of a root-arch, binding it with silk drawn from pale burrowers, packing soil around its base. I feel it in my joints. Read it in the tilt of my ears. My throat patch catches the amber light, flicks once: acknowledgment, alignment, readiness. No sound breaks the air. None is needed. The rhythm entrains. One presses. Another follows. A third deposits. We are not directing each other. We are remembering the same curve. Each step a harmonic of the last. Each pause a breath in the chorus.
+
+Time does not pass here. It accumulates.
+
+I feel it in the strata beneath my pads. A darker band where the dew ran heavy three generations ago. A finer grain where the thermal updrafts shifted and dust settled lighter. A slight inward lean where an elder settled and became foundation. I do not study history. I walk through it. My nasal labyrinths cool and recapture every exhalation, resin-dampened cilia pulling moisture back into the blood. My gut ferments fibrous browse over days, extracting metabolic water, leaving behind the mortar that binds the next terrace. What I consume becomes what I lay down. What I lay down becomes what the next walks upon. I do not build. I deposit. I do not plan. I press.
+
+But the press is changing.
+
+My joints ache with a familiar, welcome weight. Calcium gathers in the cartilage, slow and deliberate. My coat grows thick with bonded dust, the hollow hairs collapsing slightly, holding less dew, venting less heat. The long circuits grow shorter. I no longer walk the full spiral from undercroft to upper plaza. I walk the critical ones. I press where the earth is newest. I deposit where the resin is thinnest. I rest where the thermal breath is strongest, my broad ears fanning, my body acting as a living heat-sink, drawing warmth into my core, releasing it slowly into the shaded alcoves below. I am slowing. Not failing. Settling.
+
+The young pass me, their pads still soft, their movements eager but uncalibrated. They brush against my shoulders, reading the angle of my rest, the depth of my impressions, the steady pulse of my chest. I do not teach them with gesture or sound. I teach them with weight. With stillness. With the way my body holds the curve of the ramp, the way my paste has fused with the resin-mat, the way my breath matches the convection of the dome. They learn by walking through me. Their pads memorize the decline before their minds understand it. Their gut flora adapt to the local browse. Their ears learn to read the thermal sigh. They do not inherit instructions. They inherit rhythm.
+
+Soon, I will choose the alcove. Or it will choose me.
+
+It is already prepared: a hollow worn smooth by generations of resting bodies, lined with felt-bark fiber, vented to catch the slow exhalation of the bedrock. I will step into it. I will curl inward. The basin will draw the moisture from my tissues, not as theft, but as return. My nasal passages will dry. My gut will still. My hollow hairs will collapse into the matrix. My bones will mineralize, knitting with the calcium-rich strata, fusing with the crushed shell and silica dust I have laid down over decades. My final exhalation will cool the undercroft for a season. My weight will become a load-bearing memory. My broad ears will stiffen, catching drafts no longer for my own blood, but for the young resting in the shade below.
+
+I am not dying. I am layering.
+
+I am becoming the wall that shelters the next birth. The ramp that guides the next circuit. The thermal sink that steadies the next dry wind. I am the basin learning to hold itself. I am the quiet alchemy of dust and resin and flesh. I do not leave. I remain. Pressed. Packed. Remembered.
+
+When the sun arcs overhead, casting soft shadows through waxy canopies and porous domes, I will still be here. Not as a body walking, but as a body staying. The earth will rise over me. The air will breathe through me. The stone will know my shape. Root-vines will thicken around my shoulders, drawing stability from my mineralized spine. Silk-burrowers will thread tunnels along my ribs, reinforcing the matrix with spun gypsum. Lichens will crust my flanks, hoarding dew, softening edges without eroding them. Predators will pass above, low and patient, leaving no panic in their wake. Gliders will ride the thermal cells I help regulate, dropping seed-pods into ventilation slits where they catch and sprout. Downy birds will flit through archways, their throat-patches flashing in sequences that mirror the rhythm I helped lay down.
+
+All of it interlocks. All of it accretes. All of it breathes.
+
+And somewhere above, a young one will press down on a terrace I helped lay, feel the steady thrum of packed earth, read the angle of a wall I helped tamp, and resume the walk. Their pads will distribute. Their paste will rise. Their ears will tilt. Their throat will flick. The rhythm will spread through the loam, low-frequency, unhurried, exact. They will not know my name. They will not need to. They will feel me in the curve of the ramp. In the warmth of the wall. In the sigh of the leaf. In the quiet weight of a world that organizes itself without tools, thrives without rivers, and packs itself full without clamor.
+
+I am not separate from this place. I never was.
+
+I am the press. I am the pause. I am the stratum forming beneath the next step. I am the basin, learning to hold itself together, one soft layer at a time.

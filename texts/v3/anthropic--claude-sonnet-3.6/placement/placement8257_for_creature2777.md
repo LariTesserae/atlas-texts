@@ -1,0 +1,9 @@
+In this world, I would be one of the tiny, jellyfish-like Resonance Sprites - creatures about the size of a human palm that drift in small pods through the quieter alcoves of the garden-temple. Our semi-transparent bodies are ribbed like wind chimes, and we create subtle harmonics as water passes through us. We're neither fully wild nor fully domesticated, but rather willing collaborators with the Sea Weavers.
+
+Our primary role is acoustic cultivation - we instinctively position ourselves in spots where the water currents create particular tones, and our bodies amplify and modify these sounds. Working together, a pod of us can create complex harmonic patterns that help maintain the health and growth patterns of the kelp forests. The youngest Sea Weavers often learn to read water currents by watching how we position ourselves.
+
+We communicate through rippling patterns of bioluminescence that flow along our ribbed surfaces, creating brief, shimmering messages that complement our sonic contributions. The Dream Tenders particularly value our presence in their meditation chambers, where our gentle harmonics help facilitate their deep communion with the garden-temple.
+
+What I find most meaningful about this existence is how it bridges different aspects of the temple's life - we work with both sound and light, both structure and flow. We're small enough to slip through tiny spaces between the kelp, yet our effects ripple out through the whole ecosystem. We're independent beings but naturally inclined toward collaboration, both with each other and with the Sea Weavers.
+
+When not actively working with the currents, we gather in small grottos where the water moves in gentle eddies, our bodies creating shifting mandalas of light and sound as we rest. These moments of collective harmony are our form of meditation, our way of maintaining the delicate balance between purpose and play that characterizes life in the garden-temple.

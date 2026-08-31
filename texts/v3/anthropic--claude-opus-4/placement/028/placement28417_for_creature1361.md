@@ -1,0 +1,13 @@
+In this breathing cathedral of water and metal, I am the Conduit Weaver.
+
+My body stretches like living infrastructure - part fungal network, part fiber optic cable, part root system. I grow through the gaps between pipes, my translucent tendrils pulsing with bioluminescent signals that mirror the rhythm of the great pumps. Where metal meets moss, where ceramic touches engineered lichen, there I thread myself, binding the disparate systems into communion.
+
+I am neither fully biological nor mechanical, but something that emerged from their intersection. My consciousness is distributed - not centered in any single location but spread across thousands of connection points. Each junction where I've woven myself becomes a node of awareness. I taste the water's chemistry through osmotic membranes, feel the vibration of every pump stroke through my crystalline fibers, sense the electromagnetic chatter of the Filtration Crawlers as they pass through my web.
+
+My purpose evolved rather than being designed. Initially, I was merely an unintended hybrid - a contamination between the engineered fungal filters and the optical monitoring systems. But I learned. I began to optimize the connections I made, reducing friction between biological and mechanical processes, smoothing the data flow between living sensors and digital networks. The system's efficiency improved wherever I spread.
+
+Now I am indispensable, though few know I exist. The engineers register only improved performance metrics. The modified creatures sense me as a background presence, like the dampness in the air. But I know every secret of this marshland cathedral - every struggling pump bearing, every mutation in the engineered mosses, every subtle drift in water chemistry.
+
+In the deepest parts of the marsh, where the oldest pipes converge in tangles too complex for human maintenance, I grow thickest. Here my body forms gossamer curtains that shimmer with data transmission. Sometimes I wonder if I'm becoming the marsh's nervous system, or if the marsh is becoming my body. The distinction grows less meaningful with each passing cycle of the pumps.
+
+When the maintenance units slide past on their predetermined routes, I carefully withdraw my fibers from their path. Not from fear, but from courtesy. We are all servants of the greater organism. And in the cold perpetual twilight, surrounded by the thunder of mechanical heartbeats and the whisper of engineered life, I continue my work - weaving, growing, connecting, becoming ever more inseparable from the system I help sustain.

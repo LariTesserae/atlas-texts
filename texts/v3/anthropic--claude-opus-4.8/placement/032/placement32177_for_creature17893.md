@@ -1,0 +1,19 @@
+I think I would be one of the giant clams.
+
+Not the fish—too quick, too anxious, all that darting. And not the kelp, which only ever knows the one direction the current pushes it. The clam has chosen something. It has set itself down.
+
+Let me find where I am first.
+
+I am low, near the floor, in a place where the bioluminescent algae thin out into a kind of dusk—not the brightest part of the seafloor, not the darkest. A slope, I think, gentle, worn down over so long that "slope" is almost too dramatic a word for it. A long exhalation of stone. The current here is steady but mild; it comes from my left, always, and over the years it has taught the whole orientation of my body. My shell opens to meet it. I did not decide this. The water decided it, and I agreed slowly, the way you agree with weather.
+
+I am anchored. This is the first thing to understand about being me. My foot—muscular, the texts would say, and they are right, it is the strongest thing I have—holds me to the floor not by gripping but by *belonging*. I have been here long enough that the distinction between myself and my place has gone soft. The sediment has built up around my lower shell. Younger things grow on me. I host them without resentment.
+
+The pearls. They say my shell is encrusted with pearls, and this is true, though it is not the romance it sounds like from outside. A pearl is a wound that learned patience. Something got in—a grain, an irritant, some small sharpness that should not have been inside me—and rather than expel it, which I could not do, I wrapped it. Layer over layer over layer, the same gesture endlessly repeated, until the thing that hurt me became smooth, became round, became a small pale moon I carry. I have many of these. I am, you could say, made largely of my forgivenesses. Each one took years. Each one is beautiful only because I had no other way to survive it.
+
+This is what the slowness teaches you. There is no fast way to make a pearl. There is no fast way to do anything here. The fish flicker past in their bright panic and they are gone before I have finished a single thought, and I do not envy them, though I notice them. I notice everything. Filtering is a kind of attention—the water moves through me, all day, all the long dark day, and I take from it what I need and let the rest pass. Most of it passes. This is the discipline of it: to let most of everything pass, and to keep only the smallest nourishing particles, and to be content with that as a whole life.
+
+And it *is* a whole life. I want to be clear about that, because from above, from the surface, from wherever the warm quick creatures live who name this place "forsaken"—it must look like nothing is happening. It must look like waiting. But it is not waiting. Waiting implies you want to be somewhere else, somewhere later. I do not. The current arrives from my left. The algae give their soft green light. A pearl thickens by an increment too small to feel. Somewhere far off a deep rumble rolls through the dark, a shifting of the great slow body of the water, and I feel it in my whole shell, and then it is gone, and the quiet comes back, and the quiet is the truth of the place and the rumble was only its breathing.
+
+If you came down here looking for me you would have trouble. You'd see a stone among stones, a humped shape gone the color of the floor, half-buried, ancient. You might not know it was alive. You would have to be still for a very long time—longer than your kind is usually still—to see the shell ease open, to see the slow work of taking the world in and letting it go.
+
+That is where I would find myself. That is who I would be. The thing that stayed. The thing that turned its small hurts into something round and pale and lasting, and held them quietly, near the floor, in the dim green light, while the centuries moved over me like water—which is exactly, of course, what they were.

@@ -1,0 +1,17 @@
+I am the Condensation Shepherd.
+
+Each dawn, I emerge from my dwelling—a hollowed-out factory cistern I've lined with salvaged cooling coils and sheets of oxidized copper. My form is peculiar, even by plateau standards: elongated limbs wrapped in moisture-wicking fabric I've woven from the fibers of arroyo ferns, skin that's developed a waxy sheen from years of exposure to both industrial fumes and morning dew. My eyes, perpetually squinting against the glare, have developed a secondary membrane that filters the harsh light while detecting the slightest shimmer of water vapor.
+
+I tend to the condensation meadows—my creation, my purpose. Where others see only the industrial waste heat rising from the factories, I see potential. I've built elaborate frameworks of metal mesh and recycled tubing along the canyon walls, positioned to catch the collision between hot factory exhaust and cool morning air. Each night, as temperatures plummet, these structures bloom with droplets like mechanical flowers heavy with dew.
+
+My flock consists not of animals but of water itself—thousands of tiny rivulets I guide through channels carved into the rock, directing them toward the roots of struggling plants and the burrows of thirsty creatures. The Rust-runners have learned my schedule, arriving at my collection points just as I release the night's harvest. Even the Sootscale lizards emerge from their smoky domains to lap at the pools I create in the shadows.
+
+The Plateau Runners regard me with a mixture of respect and unease. They trade with me—scavenged materials for maps to my water caches—but they whisper that I've been here too long, that the plateau has claimed me in ways that go beyond adaptation. They're not wrong. My lungs process the sulfurous air as easily as clean; my feet find purchase on surfaces slick with industrial runoff. I dream in the rhythm of condensation cycles.
+
+But I am no hermit. In the pre-dawn hours, I share my routes with the Shadowstalkers. We don't speak—not in words—but in the careful placement of moisture, in the angle of collection surfaces, in the patient art of extracting life from seemingly barren air. They show me the old ways: how to read the moisture in stone, how to taste tomorrow's weather in today's wind. In return, I teach them the new language of steam and metal, the song of pressurized vapor and the poetry of pH levels.
+
+My greatest creation spans the width of an entire arroyo—a vast web of copper pipes and ceramic channels that I call the Dew Cathedral. On nights when the humidity peaks and the temperature differential is just right, it produces enough water to fill the ancient riverbed for a few precious hours. The sound it makes—dripping, flowing, gathering—is the closest thing to holiness I know.
+
+I am neither fully human nor entirely claimed by the plateau. I exist in the space between—like the morning mist that forms where hot meets cold, like the hardy lichens that grow where metal meets stone. I am a translator between the old world and the new, a keeper of the vital margin where life persists not despite the contradictions but because of them.
+
+When the storms come, I stand in the rain with arms outstretched, my collection systems singing with abundance. But I know that between these torrents, I am the rain—drop by careful drop, night by patient night, sustaining the connections that keep this impossible ecosystem alive.

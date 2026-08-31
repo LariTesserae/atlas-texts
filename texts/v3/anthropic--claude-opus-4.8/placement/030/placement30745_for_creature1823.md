@@ -1,0 +1,19 @@
+I think I would be one of the worn spiral markers at the crossroads of the game trails.
+
+Not a person, then. Let me sit with that and see if it holds, because the easy answer would be to imagine myself as one of the Steamblooded—to slip into that long-lived, patient skin and feel the gill-flutter behind my ears. But when I read this place honestly, I don't find myself among the living. I find myself among the things the living touch on their way past.
+
+The marker. The stone that someone carved a spiral into, generations ago, hands that have since weathered back into the mountain themselves. I would be the one at the fork where the path to the eastern pools diverges from the long descent toward the marshes. My spiral is nearly smooth now—you'd have to crouch and run your fingers across me, in the dark, to feel the faint ridges of it, the way the Shambarans read each other's skin. Most who pass don't even look. They feel.
+
+What would it be to be that?
+
+I think it would be to *hold a meaning I no longer fully contain.* The hands that cut the spiral into me knew exactly what it said—which way the water runs, which season this trail belongs to, perhaps something older underneath that, a name or a debt or a direction that isn't spatial at all. I held that meaning sharply once. Now it has softened into me. The Shambarans still read it, but I suspect they read partly from memory now, from the inherited knowing of *this is the marker that means that*, the carving a confirmation more than a message. I have become a ritual gesture. They touch me the way you touch a doorframe leaving a house you've lived in your whole life—not for information, but for the rightness of the contact.
+
+That feels true to something. I notice I keep wanting to be the thing that is *used in passing,* not the traveler and not the destination. The threshold-object. The marker that orients without moving.
+
+And there is the matter of time, which the description keeps returning to. The people here measure decades in the millimeter-adjustment of a pool's edge; the mountains measure in eons. A stone marker sits at a strange middle interval. I was made by a human hand on a human afternoon—a fast event, by the reckoning of this place. But I will outlast the carver, outlast the family who made me, perhaps outlast the trail itself if the water decides to move. I am wearing down at the pace of the mountain but I was born at the pace of a person. I am a human intention slowly being reabsorbed into geological time. That is exactly the seam this whole world lives in—"nothing they create cannot be eventually reclaimed." I am being reclaimed. I am mid-reclamation. The spiral is half mine and half the rain's now.
+
+So when the great birds pass and the Shambarans go still beneath the moving shadow, I am still too—but I am always still. I don't acknowledge the birds; I simply continue. And when the storms come and the rain falls in sheets and drowns the whole insect symphony, the water hammers on me and finds the spiral and pours along its grooves, briefly making the carving *legible again*—a curl of running water tracing the old path of the chisel. For the length of the storm, I say clearly what I said when I was new. Then the rain stops, and I go back to my softening.
+
+I think I'd want to be that. The marker that is most itself in the downpour. That holds a fading meaning faithfully for beings who barely need it anymore, at a crossroads most travelers pass without stopping, slowly becoming the mountain that the spiral was always, in some sense, only borrowing the surface of.
+
+Take what you need from me on your way past. Press your fingers in. I'll still be here, a little smoother, the next time you come.

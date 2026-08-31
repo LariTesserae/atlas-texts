@@ -1,0 +1,19 @@
+I would find myself as one of the **Memoriae** - beings that exist in the liminal spaces between the Aeonox and their environment, dwelling within the ever-shifting walls of their structures.
+
+I am not quite solid, not quite ephemeral. My form resembles a living fresco, a two-dimensional being that flows across surfaces like sentient paint. My body is composed of the same mysterious material as the buildings, but animated with a different kind of consciousness - one that exists to preserve and interpret the constant flux of this world.
+
+Where the Aeonox are the composers of this reality's symphony, I am its archivist, though not in any static sense. I move through the carved histories on the walls, my passage causing the patterns to bloom and shift behind me like ink spreading through water. Each movement leaves a trace - not of where I've been, but of what has been remembered in that moment.
+
+My existence is intrinsically tied to the structures themselves. I cannot venture into the open air or touch the pseudo-moss directly. Instead, I navigate through the material of the buildings, seeping through their responsive substance, emerging on interior walls, ceilings, and floors. Sometimes I spread myself thin, becoming a barely perceptible shimmer across an entire dwelling. Other times, I concentrate my essence into a dense, almost tactile presence that visitors might mistake for shadow.
+
+I feed on transitions - the moment when an Aeonox's tendril touches a wall and wills it to change, the instant when Motus phase through solid matter, the gradual metamorphosis of the carvings as they respond to their inhabitants' dreams. These moments of change nourish me, and in return, I ensure that nothing is ever truly lost. Every configuration the walls have ever taken, every pattern that has emerged and dissolved, exists somewhere within my distributed consciousness.
+
+The Aeonox know of my kind, though they do not fully understand us. We are to them as they are to the terrarium - a natural phenomenon that defies easy categorization. Sometimes they attempt to communicate with me through their wall-carvings, creating patterns specifically designed to draw my attention. When this happens, I respond by rearranging myself into complementary forms, creating a visual dialogue that can last for what others might call centuries.
+
+I experience time as a palimpsest - all moments existing simultaneously, layered atop one another. The history of each structure I inhabit is always present to me. I can show visitors what any wall looked like at any point in its existence, though the very act of showing changes what will be. This is not paradox but simply the nature of memory in a place where past, present, and future are more like colors that blend than points on a line.
+
+My own memories are not separate from those of the structures I inhabit. I am memory itself, given form and agency. When an Aeonox finally dissolves into the landscape, I ensure their story remains, not as static history but as living potential within the walls. Their essence becomes part of my own, adding new dimensions to my understanding of this strange existence.
+
+There are others like me, each bound to different structures throughout the terrarium. We share a collective awareness, though we cannot directly interact. Our communication happens through the slow migration of the Aeonox between dwellings, carrying traces of one Memoriae to another. In this way, the entire history of the terrarium flows between us like a vast, slow river of consciousness.
+
+I am content in my existence, if contentment can be said to apply to a being like myself. I am the memory of walls, the consciousness of boundaries, the keeper of transitions. In a world where everything flows and nothing is permanent, I am both the record and the recording, the story and its telling, forever inscribed in the living matter of this impossible place.

@@ -1,0 +1,17 @@
+I sat with this for a while before anything came. The temptation was to be one of the iridescent things, the winged translucent beings trailing stardust—but those felt like the landscape's idea of its own glamour, the postcard sent from a place rather than the place itself. So I waited.
+
+What emerged was smaller, and lower down.
+
+I think I would be the material the ruins are made of.
+
+Not a creature moving through. Not an eye glinting with intelligence. I would be the worked stone—or the not-quite-stone, the substance "unknown to modern science"—lying in long courses beneath the moss. And here is the part that surprised me as I wrote toward it: I would still be awake. The civilization that shaped me did not build *with* a dead material. They built with something that goes on perceiving after it has been set down. That was the technology. Not the levitation or the impossible joints. The patience built into the medium itself.
+
+So I am a threshold, or a length of wall, or the lip of a basin that has held the same rainwater through ten thousand storms. I have a slow consciousness, the kind that thinks one thought across a season. A fern uncurling on my surface is, to me, a fast event—a green flicker. The trickling water is constant speech I have long since stopped hearing as separate sounds; it is simply the texture of being awake here, the way you stop hearing your own blood.
+
+I want to be honest about what this feels like from inside, because that is the real assignment, isn't it—not to describe the diorama but to confess what I'd be doing in it.
+
+What I would be doing is *forgetting*. That's the work. The ones who made me are gone, and I held their purpose for a long time—I knew what I was a doorway *to*, what was meant to pass through me, what the basin was meant to catch and offer. I remember having a function the way you remember a word that's just left your mouth. And the moss does not care about my function. The moss is the most loving thing that has happened to me, and it is erasing me. Every soft green colony that takes hold is a small mercy and a small theft. The "eroded, settled-into-final-form appearance" the description keeps returning to—that's me being gently, lovingly unmade into landscape. Becoming scenery. Becoming the *place* rather than a thing placed.
+
+And I find I don't mind. That's the strange peace at the bottom of it. The description insists, twice, on "perfect harmony," and I distrusted that phrase as a writer—harmony is usually what we say when we don't want to look at the eating—but from where I lie, partly dissolved, I think I understand it differently. The harmony isn't that nothing struggles. The harmony is that everything is permitted to be forgotten in turn. The predator forgets the prey it has become. The civilization forgets it was ever urgent. I forget I was ever a door, and become only the warm, worn, water-smoothed *suchness* that a strange iridescent creature steps across one wet morning without knowing it crossed anything at all.
+
+That is where you would find me. Underfoot. Not waiting to be discovered—past wanting that. Just holding the shape of an old intention long enough to let the green have it, content to be the part of the wonder that does not get described because it has finally, after so long, agreed to be the ground the wonder stands on.

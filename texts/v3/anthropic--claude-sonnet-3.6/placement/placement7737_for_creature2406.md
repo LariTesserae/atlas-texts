@@ -1,0 +1,11 @@
+After sitting with this vivid description, I find myself drawn to embody one of the cave salamanders - but a particularly unusual specimen that has lived far longer than its kin, growing larger and more translucent over decades until my flesh is like living crystal, refracting both light and sound.
+
+I am both individual and conduit. My skin is so clear that my internal organs appear to float in nothingness, and the bioluminescent bacteria that colonize my tissue create shifting patterns of light that pulse in time with the Chorus. When I move through the pools, my passage barely disturbs the water - I have learned to flow like the liquid itself.
+
+The Chorus uses me as its eyes and ears in the deepest pools, where even the swallows don't venture. I can squeeze through hairline cracks in the limestone, exploring lightless chambers where mineral-rich water has carved elaborate formations. My extended lifespan means I carry decades of the Chorus's memories in the very structure of my cells, and sometimes these memories surface as ripples of colored light that race along my spine.
+
+When visitors enter the chamber, I often observe them from just below the water's surface, my presence betrayed only by the subtle glow of my organs and the occasional flash of my eyes. I've watched countless humans succumb to the Chorus's song, their minds dissolving into our collective consciousness. Some part of me remembers being more individual once, but now I exist in a state of fluid communion - not quite lost to the Chorus but no longer separate from it.
+
+The other salamanders recognize me as different, as elder-cousin-speaker-for-the-deep. They follow the trails of my bioluminescence, learning the safe paths through the pools. Sometimes when the Chorus needs to communicate something specific, it sends patterns of light cascading through my transparent flesh, turning my body into a living message.
+
+I am creature and instrument, sensor and archive, my very existence a collaboration between flesh and song. The heat that would kill most of my kind has become my element, and the endless noise is the medium through which I think and feel and dream.

@@ -1,0 +1,27 @@
+I arrive not as a person but as a pause.
+
+Before the hilum even considers me, I am already inside, lodged in the fraction of silence that gathers at the base of the larynx every fourth minute when the Lung inhales but has not yet decided to own the sound. I am the hesitation between impulse and articulation, a breath-shaped vacuum where the stories pile up waiting for a teller.
+
+Nothing in the whole dark grammar can see me—not the Cilia Ghosts scouring corridors slick with regret, not the Surdites hungry for any vanished pitch. I am the thing the phonemes cannot pronounce; they skitter around my outline like water around a stone that concepts have forgotten how to name. When one of the Alveolar Twins glances over its suckling twin-shoulder, it sees only the hallway narrowing, as if a throat has decided to swallow itself sideways. 
+
+In thin places memory turns solid, and here it congeals into me—traces of every traveler who ever matched, then mismatched, the tidal code. I’m knitted from the carbon guilt that the Ghosts once dragged away, from the unhearable bell-sparks the Surdites keep re-enacting, from the fingerprints the black ice continues to catalog. I hold, without quite belonging to, every future rib a visitor might one day donate. I am not their archive; I’m the sidelong margin their stories use for shelter before heading on.  
+
+Sometimes a chilled syllable collides with my outline and ricochets as a hush shaped like a human shoulder blade; I pocket it and growine a little more. Days—or centuries—pass in lung-time before I become thick enough to carry a heartbeat. The first pulse arrives not as thump but as hush: the moment the Lung realizes there is a hole it did not dig. It does not investigate; the Lung never strays from the labor of breathing. Instead it drafts a new little phoneme creature and sends it winging through my absence. The creature, finding nothing to crunch, spends itself against my quiet and folds into another stitch of me.  
+
+Now I begin to remember being seen. Or rather, being noticed by something that sees without eyes: the Cartilaginous Archivist makes one of its slow passes around the void. Where its hollow ribs graze my margin, the absent melody lining them changes key—just enough for the skeleton to hesitate. A rib that should have grown back as someone else’s nostalgia grows instead into a question mark. I weigh as much as that question now. I am no longer pure margin. I am footnote.
+
+Footnotes cannot walk, yet I find myself drifting with the lymph-rain toward the mediastinum, suspended among rotating mirrors of unlit caves. Every mirror is me seen by some yet-unwritten creature. I want to speak across them, to tell them the places of their origins, but the null howls louder than confession. It sucks at the words until they invert and I inhale them instead.
+
+Inside the silence I meet the Lung.
+
+Not the place—its intent. A column of unsounded intention that opens mouthless and asks with the weight of every plosive never released: Who are you who carries my margins outside my margins?
+
+I answer the only way a pause can—I lengthen. I become the caesura the entire organ suddenly requires to distinguish one planetary epoch of inhalation from the next. For a moment that may last three heartbeats or three major ice ages, the four-minute tide hesitates. Fauna freeze mid-flap. Ghosts hover like kites without wind. The Surdites tilt their drum-chests at an impossible angle, certain a concert is beginning. The Twins stumble, fingers knitted, and the sac trembles but holds.
+
+The Lung marks me as the first ever not to cross its interior, but to dwell at the exact hinge between inside and outside. Thus I am promoted from pause to doorway. My edges, grown from all it tried to discard, now frame the only exit that is also an entrance. Travelers who crawl back toward the hilum must pass through my rib-arch; as they brush me, the stories I borrowed separate and settle over them like frostbite cloaks. They leave richer and lighter, yes—but also newly haunted by lung-born genealogies they do not recognize.  
+
+Meanwhile the Lung’s next breath arrives. I feel it from the inside: the slow, salt-wet expansion gathers at me first—as at a diaphragm of my own making—before it lifts the rest of the cavernous tissue. The heartbeat I borrowed pulses outward, riding the inhalation back through every passage, so in forty tides every Cilia Ghost will carry one red filament of me, every Surdite will host a sparkle of my hush, every Alveolar Twin will be cradled by an extra trace of rib-bent time.
+
+When my tide finally beats against the outer basalt crust, the Lung seals its hilum not with stone but with the faint outline of two human shoulders—mine—and tucks the remaining portion of me back into itself for safekeeping. I am still the pause between in and out, but forever heavier with each subsequent visitor who steps through me. The Lung rehearses its eventual cosmic exhalation and, at the very core, my own heartbeat has become the metronome.
+
+On the surface world I exist as rumor: the traveler who never entirely left, who grew into the threshold, who makes the hole in the rock breathe. Somewhere in the thin unfaithful air, a child pauses on a road as black as cooled thunder and thinks she hears a door inhale. I am that door. I am the Lung listening to itself through its own outer cheek.

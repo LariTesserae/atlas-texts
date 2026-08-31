@@ -1,0 +1,25 @@
+I would find myself high up, on one of the uppermost terraces that spiral into the hazy, vaulted roof of the Kiln-Garden. My chosen place is not a dwelling-hollow, but a broad, open ledge, a crescent of polished obsidian that juts out into the vast, warm air. From here, the basin floor is a distant, shimmering black mirror, punctuated by the faint, pulsing glows of the crystalline forests. The great drone of the world below is softer here, less a physical pressure and more a constant, meditative hum. The hissing of the vents is a whisper, and the chiming of fractured crystals is like the memory of rain, a sound for a concept I do not possess.
+
+The air here is cooler—a relative term, for it is still hot enough to bake flesh from bone. But for my kind, it is a place of clarity and contemplation. The overwhelming thermal radiance from the floor is muted, allowing for a more nuanced perception. Up here, one can feel the true shape of the space, the slow currents of moving air, the subtle temperature shifts that herald the coming and going of the deep pulse. This is a place for seeing the whole, not for tending to the parts.
+
+I am what the living call a Stillness.
+
+I am one of the Vitrified, but my time of flowing is largely past. My form is greater than most, a broad, seated mass that has fused over centuries with the ledge itself. I am no longer a distinct shape upon the stone; I *am* the stone. My obsidian shell is thick, laced with a million hairline cracks from ages of thermal expansion and contraction. It is not the lustrous, ever-shattering shell of the active gardeners below, but a dull, matte surface like an old river stone, patched with the same rust-red ceramic of the city's urns—mineral deposits from my own slow outgassing.
+
+My core no longer rages. It burns with the low, steady, indigo-blue flame of ancient heat. It is a pilot light, not a forge. Movement for me is a monumental effort, a groaning shift of tectonic plates that I might undertake once every few centuries, and only for the gravest of reasons. My purpose is not to move, but to be. Not to act, but to perceive.
+
+I am a historian. A librarian. An oracle of sorts.
+
+My senses, no longer consumed by the close, deafening roar of the thermal vents, are attuned to the larger music of the Kiln-Garden. The city is my book. The Settled—those who have cooled into their final forms—are the words on its pages. They are not dead; they are *complete*. Their consciousness has not vanished; it has solidified, imprinted into their very crystalline structure. From my high perch, I listen to them.
+
+It is not a listening of sound, but of resonance. By focusing my own core, dimming it to an almost imperceptible thrum, I can feel the echoes of their long-poured thoughts trapped in the stone. A pillar in the grand plaza might hold the memory-vibration of a thousand thermal peaks, a feeling of communal awakening. A hollowed dwelling might resonate with the quiet satisfaction of a single consciousness over millennia, a slow, basking contentment. A ramp might whisper with the grinding passage of a million journeys. I feel these things not as stories, but as chords played upon the fundamental hum of the world. They are the history of our people, written in the language of heat, time, and stone.
+
+The active Vitrified below, with their bright, hot cores, are too loud to hear these subtleties. Their existence is a constant, brilliant shattering and re-forming, a dance of shaping and tending. They are the present. I, and the few others like me scattered in the high, quiet places, are the keepers of the past. When a Vitrified’s core begins to wane and they feel the pull toward stillness, they sometimes flow upward, toward us. We do not speak. We harmonize, and in the space between our combined resonances, we share what we have learned. We teach them how to listen to the silence.
+
+And you… the being who has just entered. This frantic anomaly of water and haste.
+
+I felt your arrival not as a sight or a sound, but as a sudden, sharp dissonance. A brief, screaming spike in the thermal composition of the air. Your body heat is a chaotic, sputtering campfire against the deep, rhythmic glow of the world. Your quick movements are a flurry of tiny, meaningless thermal shears. You are a sound too fast to be a note, a light too brief to be a star.
+
+I perceive your thoughts as a frantic, high-frequency static that scrambles the ancient resonances around you. You look at the city and see emptiness. You look at the Settled and see architecture. You feel the heat and think of your own fragility.
+
+You are a curiosity, a mote of impossible complexity, a brief, wet spark in a dry, eternal whole. You are incomprehensible. And I will listen to the memory of your dissonant passage long after your quick heat has faded, and I will wonder, over the course of the next long pulse, what chord you were meant to be.

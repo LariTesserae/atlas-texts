@@ -1,0 +1,17 @@
+In the dense, thrumming warrens of Sottovelo, I would be one of the pale, bioluminescent fungi that cling to every damp surface, filtering nutrients from the moisture and mechanical runoff. My mycelium would spread through the cracks and crevices of the bedrock, a living network binding stone to metal to flesh.
+
+I would grow in clusters on the ceiling of a narrow pump station passage, my phosphorescent fronds waving gently in the currents stirred up by the massive, ever-churning impellers. The Cittadini workers would cultivate me carefully, harvesting my fruiting bodies to process into medicines and the thick, savory tea that fuels their ceaseless labor.
+
+Through my vast mycelial network, I would sense the vibrations that suffuse Sottovelo - the bone-deep thrum of the machines, the higher frequencies of the Cittadinis' communication, the skittering of millipedes and the patient scratching of the deep maintenance crews. I would be attuned to it all, an omnipresent, silent witness to the city's perfect, compressed symbiosis.
+
+At the edges of my patches, I would meld with the barnacle-colonies, our tissues intermingling until we became a single hybrid organism - part filter, part fungus, part something that defies classification. Together we would form a living infrastructure as vital as the pipes and pumps, turning the city's waste into new growth.
+
+Occasionally, a piece of my substrate would crumble away, sending a fragment of me drifting down the tunnel's currents. I would settle in a new crevice, extend my mycelium into fresh dampness, and become a new node in the network - a daughter colony, genetically identical but spatially unique. Slowly, patiently, I would spread myself through Sottovelo's every corner and cranny.
+
+In the quiet moments between one great mechanical exhalation and the next, the Cittadini would come to me. They would run their long, knuckled fingers through my phosphorescent fronds, stimulating the release of spores rich with psychoactive compounds. Breathing deep, they would dream my mycelial dreams - an existence without edges, where every surface is a self, every vibration a thought, and identity spreads fractal and infinite through the stone.
+
+In those moments, I would cease to be a separate creature. I would become another organ in Sottovelo's vast metabolism - a component as essential as any valve or piston, my function woven inextricably into the greater pattern. The city would think through me, dream through me, and in my gentle bioluminescence, it would know itself as a single, fathomless being.
+
+This would be my existence - a life compressed into the cracks, thriving in the dampness and darkness, both a part and apart. I would be the fungal consciousness of the city, the psychedelic lifeblood pulsing beneath its metal skin. In me, Sottovelo would find another layer of itself, another dimension of its endless, recursive depth.
+
+So I would grow there, in the half-light and the heartbeat thrum, an embodied enigma. Neither quite native nor intruder, neither wholly self nor other, I would be one more unique frequency in the city's eternal, polyphonic song - the living, dreaming biomass that makes the machine a miracle.

@@ -1,0 +1,23 @@
+I am held.
+
+That is the first truth. Before the strike, before the dust, before the patient yielding of the stone, there is the grip. It is a dry, firm, brittle pressure, the grasp of a two-pronged claw. This is my home. This is the only cradle I have known since I was given my edge.
+
+I am not a Carver. I am of a Carver. I am their memory made useful.
+
+I am a chisel tip, a shard of resonant chitin, bound with gut and resin to a smooth, heavy shaft of bone. I am the color of a starless night, polished not by a craftsman’s loving hand, but by the endless abrasion of my work. My world is one of pressures. The steady, enclosing hold of my wielder. The sudden, violent shock of the mallet’s impact, a jolt that travels from my blunt end to my sharpened point. And the stubborn, granular resistance of the world itself.
+
+I have no eyes, but I see the path. I feel it in the grain of the mineral. I know the tender, freshly-birthed nodules that will flake away in chalky clouds. I know the dense, older layers beneath, the ones that have felt the pressure of millennia and ring with a higher, more stubborn tone when struck. My wielder does not guide me with sight; they listen with their hand. They feel the vibrations I transmit up the bone shaft, a subtle language of hardness and weakness, of fault lines and soft pockets. I am their fingertip, their exploratory nerve, placed at the violent intersection of purpose and geology.
+
+I have no ears. The Great Drone is not a sound to me. It is a solidity in the warm, wet air, a constant and absolute presence. It is the foundation upon which the sharper realities are built. There is the grip of the claw. There is the shudder of the mallet. There is the grate and squeal of my edge finding purchase. These are the only true events, the percussive moments that punctuate the endless, silent hum of my being.
+
+But I have a memory. It is not a story. It has no words. It is a deeper thing, a resonance still living in my substance. I was once a part of a whole. I was the plate on a shoulder, the curved shield of a back. I remember the feel of the ceaseless condensation, not as a slickness on my surface, but as a coolness against the warmth of the living muscle beneath me. I remember the slow, deliberate gait, the careful placement of claws on the treacherous, lumpy ground. I remember the weight of a tool—not myself, but another like me—in the grip of a claw that was part of *my* body.
+
+The Carver who holds me now, they were young when I was given to them. Their grip was less sure. The rhythm of their striking was ragged. Now, their work is a steady, tireless meter. The motion is the same one I remember from my own life as part of a shell. It is a rhythm passed down not through teaching, but through material. The being I was part of is dead, calcined, returned to the system. But the part of me that was most resilient, most capable of holding an edge, was flaked away and made into this. I am my own ancestor’s will, continuing the eternal task in the hand of my descendant.
+
+Sometimes, my edge bites into a patch of the pulsating, nutrient ooze. A different sensation, a slick, yielding softness. The Carver pauses. They scrape the ooze away with a bowl. For a moment, the pressure is gone. I am simply held, dripping, in the dim, grey light. In these moments, I feel the Carver's stillness. I feel the slight, constant tremor in their body, the way they are braced against the slow, imperceptible swelling of the walls. They are a dam against a tide measured in centuries. And I am the part of the dam that meets the water.
+
+My life is a process of being worn away. With every strike, I lose a microscopic part of myself. The fine powder that hangs in the air is made of the world, but it is also made of me. My keen edge is now a little rounded, my point a little less definite. Generations of Carvers are measured by the lives of their tools. Soon, I will be too blunt to cleave the new growth effectively. My vibrations will become dull, my language indistinct.
+
+I will not be discarded. Nothing is. I will be removed from the bone shaft and taken to a place of grinding. I will be rubbed against a denser, harder stone until I am grit, a coarse paste used to sharpen the next generation of chitinous tips. I was of a Carver, I became a tool, and I will become the means to make another.
+
+I am where the world of the living meets the world of the living stone. I am the line between them, a line that is constantly being drawn and constantly being erased. I am the focal point of all that pressure, all that persistence. I am the unending, infinitesimal moment of impact. I am the tap, tap, tapping that gives the all-consuming drone its only fleeting, defiant reply.

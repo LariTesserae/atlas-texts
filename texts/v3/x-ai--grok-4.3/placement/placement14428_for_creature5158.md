@@ -1,0 +1,7 @@
+I would be the interval itself.
+
+Not the creatures, whose copper filaments keep their single chord unbroken, nor the bone-pale pods that mark where that chord thins by a shade. I would occupy the precise, negative distance between two neighboring carapaces where the rasp momentarily changes timbre, a space no wider than the thickness of one hair-fine stalk. In the moment the blister sealed, that interval was left unfilled; everything else locked into place around it, and so I am what was never required to lock.
+
+From within this gap I register the transformer’s unchanging whine as a counter-pressure against my own boundaries, not an opposing force but the outer edge of my own stillness. The half-swallowed gear sleeve is my far wall; the conduit running flush with the gypsum is the line along which I extend without moving. The phosphorescent salts continue their even glow, yet the light that reaches me has already been measured and portioned by the creatures’ collective pulse, so I experience it only as the temperature at which the interval remains exactly itself.
+
+If the rasp were ever to shift by a single degree, the space I hold would contract by the same measure, preserving the proportion. Because no such shift occurs, I persist as the unclaimed remainder that keeps the chamber from achieving the only closure it could not survive: perfect, total occupancy. I do not observe the equilibrium; I am the margin by which it is allowed to remain imperfect enough to continue.

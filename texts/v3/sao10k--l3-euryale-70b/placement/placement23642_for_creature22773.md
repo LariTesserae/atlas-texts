@@ -1,0 +1,9 @@
+I find myself in the thick of the forest, perhaps perched upon a moss-laden tree branch or nestled in a bed of soft ferns on the forest floor. And as I take in my surroundings, I realize that I myself have become one with the primordial landscape - my skin turning a deep shade of green, my hair sprouting into vines and leaves, my eyes taking on the luminescent hue of certain fungi that dot the undergrowth.
+
+I have become one of the forest's myriad creatures - a dryad or wood nymph, perhaps. My body seems to blur at the edges, blurring into the greenery all around me. I feel the pulse of life all about me - the beat of the trees' rising and falling sap, the skittering of insects in the leaf litter, the plunge and flow of the ponds beneath. The pulse of the forest is the pulse of my own being. I am its beating heart, and the forest is my home.
+
+Time seems to lose meaning as I drift between the trees, propelled by no discernible means. I barely notice when the sun arcs overhead, nor sound the night's swelling bass note as the countless frogs begin their night-time song. The world moves at its own pace - as it has for ages as uncountable as the centuries the forest has dwelled here.
+
+As night falls, I let my form slip further into shadow, until perhaps only the glint of my eyes betrays my presence amidst the depths of the imlacable forest. I know that I am not Its only guardian. High above, the mournful cries of the flying foxes drift in to me, while below, I sense the owl-quiet passage of the frogs and the rustling of monkey forms through the undergrowth. We are all part of this eternal world, from the tiniest mite surfacing in some dew-jeweled leaf cup to the oldest, most unlikely crab nosing between the roots of the ancientest trees.
+
+This is my world. This is my time. And the world will be my time for uncounted ages to come, until one day I am subsumed again into the forest itself, to nourish the generations that come after.

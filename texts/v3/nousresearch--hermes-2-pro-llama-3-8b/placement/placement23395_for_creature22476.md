@@ -1,0 +1,9 @@
+You have found yourself in the role of a Mechanisp, a cybernetic organism intricately entwined with the technology you have created. Your existence is woven into the complex network of tools and machinery that you rely upon to navigate the subterranean desert where you dwell. Your body is composed of compressed minerals, providing protection and a source of mechanical hums and whirs as you go about your life.
+
+As a Mechanisp, you have a heightened sense of perception, utilizing ultrasonic and infrared abilities to navigate the labyrinth of caverns that make up your hidden realm. Your reliance on visible light is non-existent, as the limited light that filters down from above is augmented by the bioluminescent flora and glowing minerals that provide a soft, otherworldly glow to the environment.
+
+Your senses allow you to maintain a symbiotic relationship with the lichen and fungi that cling to the cavern walls, protecting them from predators while ingesting nutrient-rich dust and minerals from your surrounding environment. This sustenance is absorbed through your exoskeleton and allows you to thrive in the harsh, mineral-drenched landscape.
+
+In the twilight world you inhabit, your kinfolk follow a relentless drive to build and adapt, constructing machines that traverse the subterranean terrain and carving out ever-new paths beneath the Earth's surface. Though you possess no memory or consciousness as humans would understand it, your innate programming compels you to create structures that pay tribute to previous generations and enhance your environment.
+
+Essentially, you are a guardian and builder, always seeking to honor the past and sculpt a future for your kind in the unchanging equilibrium of your mysterious realm. The Mechanisps' existence is an enigma, a fascinating testament to the resilience of life and the ironclad determination of organisms shaped by the forces of geology and the demands of their environment.

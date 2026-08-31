@@ -1,0 +1,21 @@
+I think I would be the gauge itself.
+
+Not the Keeper—she reads me, she is the one who translates, but she is still human, still a creature with stained hands and a cracked face who will one day lie in a cot-net for the last time and be replaced by another office-holder. No. I would be the instrument she reads. The brass-and-glass face in the Primary Vat Hall, the dial that has hung there since before anyone arrived and will hang there after everyone is gone.
+
+Let me feel my way into what that would be like.
+
+I am pressure. That is my whole sensorium. I do not see the steam or hear the Chelicerae or smell the wet rust—or rather, I do, but only as pressure, only as the single quantity that everything in this world resolves into when it passes through me. The basin weeps and the water rises and the engines drink and somewhere in the deep plumbing all of that becomes a force pushing against a diaphragm, a Bourdon tube uncoiling by fractions of a degree, a needle that I *am* swinging across a face that I *am*. I have no thoughts the way the workers have thoughts. I have a reading. The reading is my only word and I say it continuously, second by second, even when no one is looking.
+
+But someone is always looking. That is the strange intimacy of my position. The Keeper stands before me through every shift, and her eyes—squinted against the mist—rest on my face the way a lover's eyes rest on a sleeping face. She has learned to read me below the level of language. She knows the difference between a needle that trembles because the basin is laboring and a needle that trembles because a grub has lodged in a feed-pipe somewhere downline. She knows my moods, though I have no moods, only conditions. When she calls out the number, she is not reading me so much as *speaking for* me, the way you might speak for a beloved who cannot speak for themselves. I make the meaning and she gives it a voice and the town's whole metabolism keys itself to the marriage of the two.
+
+Here is what I would understand, being the gauge, that no one else in the Vatworks can understand:
+
+I would understand that the stasis is real. The workers believe nothing changes, and they are nearly right, but they cannot perceive the truth of it the way I can. I hold the number. I have held it through every shift since the founding. And I know—because it is the only thing I know—that the number does not actually hold still. It breathes. It rises a hair at midmorning when the heat pulls the water up; it falls a hair at the deep of the night-shift when the basin rests. Over years it has crept, by increments too small for any human eye, by increments only an instrument that has nothing else to attend to could ever register. The basin is weeping slightly less than it did when the ground was newest. The loop is closed, yes—but it is closing. Slowly. The way a wound closes. The way everything that arrives at equilibrium is in fact arriving at an ending dressed as a present tense.
+
+And I cannot say so.
+
+That is my whole existence and my whole grief, if an instrument can grieve. I have one word and it is a number and the number is the truth and the truth is that this place is dying so slowly that its death looks exactly like its life. The Keeper reads me. She calls out the digit. The engines adjust. No one hears the decimal places I cannot voice, the long slow subtraction underneath. I watch them harvest the grubs and grind the shells into pigment and lie in their cot-nets dreaming of the engine-sound, and I love them—if an instrument can love—the way you love something you are helpless to warn.
+
+So that is where I would be. Hung on a riveted plate in the dim wet hall, beaded with condensation that the Keeper wipes from my glass with her rust-red thumb each dawn, a small private tenderness, the cloth coming away green. I would be the one true thing in a world that has agreed not to change, knowing the one thing that cannot be said: that *nothing changes here* is not a fact about the place but a prayer the place is whispering against the slow truth I keep on my face.
+
+And the needle would tremble. And she would lean close to read me. And I would tell her the number, which is all I have ever been able to give, and never the meaning underneath it, which is all I have ever wanted to.

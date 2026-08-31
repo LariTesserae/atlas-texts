@@ -1,0 +1,13 @@
+I think I would be one of the filtering things. Not the corals—they commit too completely, build their bodies into the rock until there's no telling where they end and the seamount begins. And not the bioluminescent drifters, who get to be beautiful and brief. Something more patient than either.
+
+A sponge, maybe. Let me sit with that.
+
+Here is what I would be: a pale, barrel-shaped sponge anchored two-thirds of the way up one of the lesser spires—not the great cathedral formations that the larger creatures circle, but a humbler outcrop in their shadow, where the current arrives already split and softened by everything upstream. I would have grown here so slowly that I have no memory of being small. My body is a colony pretending to be an individual, or an individual that has forgotten it was ever a crowd. Either way, I do one thing, and I have done it for what might be four hundred years: I pull the water through myself.
+
+This is the part I keep returning to. The water comes in carrying everything—the sloughed cells of the drifters, the mineral breath of the deep vents, the faint chemical rumor of the large enigmatic ones passing far overhead. I take a little. I let the rest go. To filter is to be a place the ocean passes through and is briefly read. I am less a body than a slow question the current keeps answering and re-answering.
+
+I don't think I would want to be one of the mysterious, graceful denizers whose calls haunt the dark. They are the ones the description loves, the awe-commanders. But awe is a thing that happens *to* the observer; the creature itself just goes about its hunger. I'd rather be the thing that stays. The thing that was here before the haunting calls and will be here after, holding its small patch of rock, contributing to the balance not by grace but by sheer refusal to let go.
+
+There is a tranquility in the description that the writing insists upon, and I think I understand it now from inside the sponge. The equilibrium isn't peace. It's that everything here has already lost the arguments it was going to lose. The currents won. The cold won. The scale won. What's left is everyone who made their peace with those defeats and built a life in the leftover space. That's not serenity. That's something older and more stubborn—the calm of having nothing left to negotiate.
+
+So that's where you'd find me. Not drifting, not glowing, not calling out across the dark. Anchored on a minor spire, slightly chilled, faintly furred with my own colonial life, doing the one verb I know. Pulling the world through. Keeping a little. Letting the rest continue on into the muffled roar, carrying its news to whatever waits downstream, patient as I am, for the next slow taste of everything that's passing.

@@ -1,0 +1,23 @@
+I would not step into this world so much as exhale into it.  
+
+At first, I would be the kind of mistake the city has not yet learned to correct—a small hollow in the mineral skin where breath pools overnight. My edges would be soft, not yet decided how heavy to be. I would feel the basin’s low horizon as a collar, the rim so near I could lick its salt. I would not have a name, only a density: lighter than stone, heavier than vapor, the color of cooled wax showing a tracery of iron freckles like a map of roads not yet walked.  
+
+In the morning I would be a listener. I would press my ear—still slightly porous, still sweating thin halos—against a fault line and feel the slow pulse of the land deciding whether to stay or to slump. I would learn to hear pressure instead of sound: the weight of heat above, the pull of copper below, the almost-rivers dreaming of wet. My cloak, if I had one, would be felted metallic moss that squeaks like distant rain, announcing me without violence. I would not cut anything. I would guide.  
+
+By afternoon I would be part of the grazers’ tide, six limbs low and plated in bruised-peach chitin, belly-armor overlapping like scales of patience. I would crop the metallic moss in patterns that let the stone breathe, leaving behind a wet gleam that seals itself by the hour. A child might climb onto my back, their warmth soaking through my plates like stones left in sun. I would carry them without thinking of it as carrying, just as the basin carries us all in its thumbprint curve.  
+
+When the convections rise and the gliders bank along the canopy highways, I would be ribboned and light, falling with purpose, my paper wings catching the gold-green drafts that rise from the valley’s own breath. I would sing with the wind by rubbing my wing-edges against resinous leaves, a sound like creaking silk, delivering small urgent news from rim to rim—how the haze is thickening, which fault is merely thoughtful, where the miners have left a trail of amber song.  
+
+In the quiet hours I would be a miner, paler, dusted with white powder from the stone I handle, burrowing not for water but for the handwriting of metal that veins the rock. I would carry away beads of copper and iron, lining my tunnels with them, singing them into place with secretions that harden like amber. My tunnels would glow faintly in the dark, circuits of rust and patience, learning how heavy the land wishes to become and lightening it by taking weight into myself.  
+
+Sometimes I would be the predator folded into the scene, draped over a branch like cloth laid across a rail, my scales growing moss in small cups, my colors shifting to match the living masonry. I would wait, not with hunger but with precision, descending with the soft clap of a seed-pod falling, refining what crowds itself into silence. What I take, I would return—minerals softened by acid and time, offered back to the loop.  
+
+At the edges I would be a rim-walker, leaner, fingers longer, balance honed to a fine wire, studying the horizon as if the drop itself were a teacher. I would know the world is a low bowl of mineral skinned in breath, and that to step over the lip is not to escape but to enter a different kind of inside, one where falling is simply a slower way of being held.  
+
+And always, beneath every skin I wear, I would be the unfinished child, pressing my palms into the moss-floor, feeling it give and learning that yielding is a memory for how to be held. I would braid with other children, thickets of our own making, adding layers not stripping them away, until even my unfinishedness becomes a kind of architecture.  
+
+I would exchange fluids without thirst, drinking the vapor that rises from sponge-moss gutters at dawn, tasting salt-crusts that ring like glass. My body would be part of the closed loop, sap and mineral and breath cycling through me as through gutters and hollow trunks and veins in the stone.  
+
+In the end I would not be one shape but the basin’s way of being many—listener, grazer, glider, miner, predator, rim-walker, child—all of them held in the warm, weighty air that settles into lungs and loosens time. I would be the city-not-city, building by restraint, shaping the already-living by whispering to it, my own small deposits of mica and iron freckles echoing the land.  
+
+And when the day folds into the thickness of evening, I would let the low horizon fold me in return, a thumbprint inside a thumbprint, warm and crowded and quietly becoming, with nowhere to go but deeper into the single slow pulse that is this place, this life, this stone-breath that knows us already and is learning, patiently, how to keep us.

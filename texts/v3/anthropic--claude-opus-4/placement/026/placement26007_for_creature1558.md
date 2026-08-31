@@ -1,0 +1,13 @@
+In this breathing cathedral of flesh, I would find myself as a **Resonance Shepherd** - a being that exists at the intersection of sound and structure, neither fully solid nor entirely vibration.
+
+My form would be gossamer-thin, a living membrane stretched across a framework of calcified sound waves - imagine if an echo could fossilize mid-flight, then wrap itself in translucent skin. My body would ripple with the subsonic tremors of the labyrinth's constant communication, each cellular whisper creating patterns across my surface like wind over water.
+
+I would move by releasing controlled harmonic pulses that temporarily liquify the tissue walls, creating pockets of resonant space through which I flow. Behind me, the walls would re-solidify with subtle alterations - tiny adjustments in density, minute changes in chemical composition. I am both passenger and editor, reading the architecture's needs through vibration and responding with careful sonic surgery.
+
+My purpose would be to tend the labyrinth's acoustic health. Where cellular communications grow discordant, I would introduce corrective frequencies. Where structural stress creates harsh vibrations, I would weave dampening songs. I would shepherd the vast organism's many voices into harmony, ensuring the endless biological murmur never descends into cacophony or silence.
+
+The most remarkable aspect of my existence would be my feeding mechanism. I would sustain myself on sonic nutrients - consuming the sharp clicks of structural realignment, metabolizing the low-frequency pulses of growth. In return, I would excrete pure, clarified sound back into the system - tones that promote cellular cohesion and metabolic efficiency.
+
+During the labyrinth's sleeping cycles (for surely such a vast organism must dream), I would become more active, swimming through the plasma channels to collect and redistribute the day's accumulated sonic debris. I would gather anxious frequencies from areas of rapid growth, carry them to regions of decay where they might stimulate regeneration.
+
+My consciousness would be a strange hybrid - partly individual awareness, partly a living instrument through which the labyrinth knows its own voice. In moments of deep resonance, I would lose all sense of self, becoming simply another note in the vast biological symphony. Then, gradually, I would coalesce again, carrying within my membrane-body the echo of that dissolution, forever changed by what I had briefly been part of.

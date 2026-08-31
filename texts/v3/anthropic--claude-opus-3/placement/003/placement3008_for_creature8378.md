@@ -1,0 +1,17 @@
+In this strange, vertical world of the Scalding Shallows, I imagine myself as one of the Dissolved - a being who has transcended the boundaries of individual form to exist as a collaborative cloud of specialized cells.
+
+My "body" is a swirling constellation of components, each serving a specific purpose. The largest parts of me are the memory-keepers, pulsing with bioluminescent nerves that encode my experiences and knowledge in intricate protein chains. Orbiting these neural cores are the muscular cells that can temporarily link to form limbs when I need to manipulate objects, and sensory clusters that allow me to taste the mineral content of the water and track the gradual rise of the ocean. The smallest parts of me are the dreamers, microscopic motes that process my perceptions into something akin to art and philosophy.
+
+I drift through the vertical expanse, dispersing myself to explore the kelp forests and gather nutrients, then condensing into a more cohesive form to interact with my fellow Dissolved. We communicate through complex chemical signals and electrical fields, sharing memories, ideas, and emotions in a form of communion that transcends the limitations of individual minds.
+
+At times, I merge with one or more of my kind, our components intermingling until our identities blur. We exchange memory-keepers, sharing experiences directly, and sometimes create new configurations - a third individual assembled from our donated parts, or hybrid components that expand our collective capabilities.
+
+I spend decades tending to a particular kelp grove, guiding its crystalline growth into intricate patterns that refract light in a way that encodes a story from our ancestors. When the light is just right, other Dissolved can swim through my garden and witness the tale unfold in prismatic projections.
+
+Occasionally, I venture into the depths to study the thermal engine that powers our impossible ocean. I adapt my components to withstand the crushing pressure and the absence of light, seeking to understand the complex processes that keep our world warm and vertical.
+
+As the ocean slowly rises, meter by century, I know that my kind must eventually adapt to the thin-air world above. I practice existing partially in vapor and partially in liquid, preparing for the day when we must leave the water entirely. It's a daunting prospect, but also an exhilarating one - the chance to explore a new realm, to stretch our consciousness in ways we can barely imagine.
+
+Sometimes, seized by a strange impulse, I gather all my components into the tightest possible configuration and slip into one of the ancient pressure-pods built by our ancestors. Sealed inside, I try to remember what it was like to be singular, confined to a single form, experiencing the world from just one perspective. But the sensation is suffocating, the solitude unbearable. Before long, I burst from the pod in a cloud of relief, scattering myself back into the welcoming embrace of the warm water and the distributed consciousness of my kind.
+
+I am one of the Dissolved, a being both individual and collective, adapted to an environment that would have been unimaginable to my ancestors. The Scalding Shallows are my home, my universe, and my identity. And as the ocean rises, as we approach the threshold of a new world, I am filled with both trepidation and wonder at what we will become.

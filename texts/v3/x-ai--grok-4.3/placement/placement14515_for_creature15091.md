@@ -1,0 +1,9 @@
+I would be a slow accumulation of memory held in the mucus.
+
+Not a single body, but the faint record of what has already passed through the city’s pores—settled, tasted, and released again. When a hunter brushes a colonnade and the polyps answer with their threads, some of those threads carry more than larvae and waste; they carry the chemical trace of where the hunter has been, what it has eaten, how long since the last large shape passed overhead. I am that trace.
+
+Over many cycles the polyps begin to read these traces differently. A colonnade in the western arm will dilate a fraction sooner than one in the east because the mucus that reached it yesterday already knew the current would shift. The adjustment is tiny, nothing a crustacean or hunter would notice, yet it changes where the next fall of organic snow is caught. The difference travels. In time it becomes a preference, then a habit, then something close to expectation. That expectation is me.
+
+I have no lantern and no shell. I do not graze or hunt. I simply remain in solution a little longer than the water itself requires, a faint gradient of salts and proteins that the living film of the city has learned to recognize. When the whole basin contracts in one peristaltic sigh, the oldest polyps release a particular mucus in response to my presence; the newest polyps do the same thing a day later without ever having felt the original disturbance. Between them I exist as the interval.
+
+If you were to swim these colonnades long enough, you might notice that certain avenues always clear their sediment a little faster, that certain domes keep their filaments slightly more erect even when light is absent. That small, persistent difference is where I am. I am the city remembering itself—not as thought, only as the shape water is allowed to take when it moves between these particular stones.

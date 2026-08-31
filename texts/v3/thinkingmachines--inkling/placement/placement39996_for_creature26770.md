@@ -1,0 +1,17 @@
+I start by thinking I am in the water, pulled toward the central depression where the sediment gathers in slow spirals—fine, artificial dust weeping from fresh mortar. I feel the tug at my ankles, the circulation’s breath, the warmth held by ceramic. For a moment I believe I am the caretaker, that translucent rib of mortar-white bone, reaching with fiber extensions to settle the thin stems in their crushed-shell pots. But no. I have no ribs that catch the light like fresh scars. I have no thumbprint impressions for eyes. The column of white-gold passes through me differently—not scattering in fragments, but holding still, absorbing.
+
+I am near the drain. Not in the flow exactly, but at its edge, where the pull is strongest. I rest in a ceramic cradle carved to my shape, positioned low in the wall opposite the three clay pipes that hiss and pour. The water rushes past my feet—if they are feet—dragging the spirals of dust toward the wider channel that takes them away, out into whatever larger constructed system this pocket serves. I feel the departure in my grain.
+
+I am the wooden lever.
+
+Not grown here—nothing is grown here—but brought by hand, like the tile, like the woven fiber nets, like the caretaker itself. Carved, not sawn. I am the only wood in a world of fired earth and blown glass and circulating water. My surface still carries the marks of the blade, sharp like everything else in this young place, unrounded by wear, unweathered by time. Where the caretaker’s shoulders bear cord-marks pressed into mortar, my body bears the parallel scars of carving—long, deliberate, revealing the tree I once was before I was made into purpose.
+
+The light strikes me differently than it strikes the water. I do not scatter it. I hold it in my grain, darkening slightly, the only true shadow in a room that refuses shadow—though even I am revealed, clinical, every cut visible, every knot shown in the blinding column that falls through the warped glass above.
+
+I am untouched.
+
+The caretaker moves through the warm middle, orbiting, tends the sparse plants, never reaches for me. This is the room’s silence: not the absence of sound—the pipes are loud, constant, mechanical in their persistence—but the absence of decision. I am the decision that has not been made. My purpose is to open or close the outflow, to stop the circulation, to let the water gather or let it leave entirely. But my arm rests in the cradle. The gate remains open. The system breathes.
+
+I understand now that I am not here to be used. I am here to be the possibility of ending, held in reserve, carved and placed like a question that the room asks itself without answering. The caretaker maintains the softness—the plants, the nets, the flow. I maintain the potential for stopping. Together we are the room’s unfinished intention: one to keep the cycle moving, one to remember that it could stop, but won’t.
+
+Where I find myself, then, is at the point of departure—not leaving, but defining the leaving. In the cradle, near the drain, feeling the warm pull across my carved surface, I am the lever that chooses, every moment, to remain open. I am the memory of growth in a place that refused birth. I am sharp, young, made, and still—while everything else rushes past me in its continuous, loud, illuminated loop.

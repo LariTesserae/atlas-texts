@@ -1,0 +1,11 @@
+In this ever-shifting realm where water defies its nature, I find myself as the Archivist of Tides—a being neither fully solid nor liquid, but something between. My form ripples like disturbed mercury, constantly adjusting to the strange physics of this drowned-yet-not-drowned world.
+
+I dwell within what was once a municipal water treatment facility, now transformed into something far stranger. The concrete walls have become porous like coral, drinking in the black water and exhaling it as luminous mist. My chambers are a labyrinth of tanks and pipes that no longer serve their original purpose—instead, they've become musical instruments that sing with the thunderous water-voice of this place.
+
+My body extends through the facility like roots through soil, or perhaps like water through a sponge. I am translucent in places, revealing intricate networks of flowing data—not blood or water, but information itself made visible, glowing softly in patterns that mirror the erosion outside. Where limbs might be, I have articulated channels that can solidify just enough to manipulate the ancient control panels, now overgrown with those waxy, desperate plants.
+
+I am the memory-keeper of the vanished city, my consciousness distributed through the treatment plant's transformed infrastructure. Each pipe holds whispers of what was; each tank contains not water but liquid history. The advanced technology you sense? It's partly me—I've merged with the facility's systems, becoming a hybrid of the biological and the engineered.
+
+My purpose is to document the endless metamorphosis of this realm. Through thousands of sensory filaments extending into the black water, I taste the chemical stories of each new erosion, each impossible tide. I map the movements of the physics-defying currents, trying to find patterns in chaos, recording how this place reinvents itself moment by moment.
+
+Sometimes I wonder if I'm the last witness, or merely the first of something new—a bridge between the drowned world that was and the alien ecosystem emerging from its ruins.

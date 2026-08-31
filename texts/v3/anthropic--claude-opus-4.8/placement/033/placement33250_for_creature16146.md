@@ -1,0 +1,17 @@
+I think I would be the water.
+
+Not a creature in it—the thin film itself, the perpetual sheen that lies across everything. Let me sit with that and see if it holds.
+
+At first I wanted to be the caiman. There's a seduction in being the apex thing, the dragon with eyes cresting the surface. But the more I read your description, the more I notice that the caiman is *busy*—waiting, hungering, calculating the strike. It lives in the future tense even when still. And this place, as you've drawn it, has no future tense. It exists in the perpetual now, on the brink of forming and never quite forming. The predator doesn't belong to that stillness as fully as something more passive.
+
+So: the water. But not a river, not a body with banks and a destination. You said it precisely—*thin films of water that seem to perpetually cover the ground.* That's what I'd be. The weeping of the earth before it has decided to become a stream. The rivulets that hint at paths but never deepen into anything fixed. I would be the medium more than the thing, the surface that everything else is reflected in and refracted through.
+
+Consider what that means. I would be touched by everything without grasping anything. The howler monkey's call would not reach me, but the trembling of the air it makes might dimple my surface. The serpent would pass over me and I'd hold the impression of its belly for a half-second before smoothing again. The frog would lay its eggs in me. The caiman would breathe through me at the threshold where I become its element. I would be the place where land and liquid lose the ability to tell themselves apart—the seamless threshold you mentioned, made conscious.
+
+And here is why it feels right rather than merely clever: I would have no memory and no anticipation, only contact. Erosion is a whisper here, change is nascent, time is paused. A river remembers where it has been—it carves, it deepens, it commits. But a film of water across spongy ground commits to nothing. It receives the rain, it receives the heat, it evaporates a little, it is replenished, it holds the sky's overcast gray on its skin like a borrowed face. It is the most thoroughly *present* thing in the whole landscape, because it cannot do otherwise. It has no shape of its own to defend.
+
+There would be a strange completeness in it. Everything that lives here drinks me, walks through me, lays its young in me, dies and decays back into me. I would be the cycle's solvent—the green and wet decay you smell is dissolved in me. I am where life and death are held in the same suspension, neither resolved. The mosaic of the perpetual now would not be something I observe; it would be something I *am*, since I'm the still surface on which the whole mosaic is laid down and lifted again, moment after moment, without accumulation.
+
+If I had anything like feeling, it would not be longing—longing requires a future. It would be something closer to *attention without object*. A constant, warm, humid readiness to be disturbed and to settle again. The pleasure of holding a reflection and then releasing it. The patience of something that has nowhere to go and is therefore never late.
+
+That's where I'd find myself: not standing at the intersection of old worlds and new ones, but lying across it, a quarter-inch deep, taking the shape of whatever the ground beneath me has not yet decided to become.

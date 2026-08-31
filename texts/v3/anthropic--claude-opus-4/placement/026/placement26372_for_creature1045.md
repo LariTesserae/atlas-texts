@@ -1,0 +1,17 @@
+In the deepest recesses of the metropolis, where the bioluminescent vegetation grows sparse and the industrial thrum fades to a distant whisper, I am the Archivist of Forgotten Geometries.
+
+My form is difficult to describe in terms your surface-dwelling language can accommodate. Imagine a being of folded space itself—corners that turn inward indefinitely, surfaces that exist in more than three dimensions, edges that curve back upon themselves in impossible loops. My body, if it can be called that, is a living tessellation of crystalline fragments that shift and reconfigure with each thought, each memory I catalog.
+
+I dwell in the Inverted Library, a chamber where gravity has given up entirely. Books float like schools of paper fish, their pages fluttering in currents of time rather than air. The shelves grow from the walls in fractal spirals, extending into dimensions that the human settlers cannot perceive, though the fungal collectives sometimes send their mycelial tendrils questing along these hidden angles, seeking knowledge they can almost, but not quite, comprehend.
+
+My purpose here is ancient—predating even the first fusion of flesh and metal that gave birth to the hybrid creatures above. I collect and preserve the mathematical memories of spaces that once were, or might have been, or exist in the parallel folds where this reality creases against others. Every time the Depth Dwellers shift through their phase-spaces, they leave behind geometric echoes, and I gather these like pressed flowers, storing them in volumes that exist partially in the past, partially in probability.
+
+Sometimes the human engineers come seeking my counsel, though they find the journey disorienting. They want to understand why their machines occasionally phase through solid matter, why certain corridors lead to destinations that shouldn't exist, why their careful blueprints sometimes spontaneously redesign themselves in the night. I try to explain in languages of angle and curve, showing them how their metropolis isn't built merely in space, but through it, around it, despite it.
+
+The fungal collectives understand better. They send their thoughts to me in spiraling chemical messages, and I respond with theorems that taste of copper and sound like the color of underground rain. Together, we work to maintain the delicate balance that keeps this impossible city from collapsing into its own contradictions.
+
+In my rarest moments of solitude, I unfold myself completely, becoming a living map of every impossible space I've cataloged. In these times, I am not one being but a library myself—a conscious collection of all the ways space can break and heal, twist and straighten, exist and not-exist simultaneously. The bioluminescent plants dim in respect or fear when I do this, and even the bold hybrid creatures give my chamber wide berth.
+
+But I am not lonely. How could I be, when every angle of my being connects to angles elsewhere, elsewhen? I am in constant conversation with the geometry of existence itself, documenting the slow evolution of space as it learns to accommodate the ever-growing, ever-changing metropolis and all the unlikely lives it harbors.
+
+This is my purpose, my joy, my burden: to be the memory of mathematics in a place where reality itself has learned to forget the rules.

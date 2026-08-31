@@ -1,0 +1,17 @@
+I am a **Silt-Sifter**, yet I am not one of the skitterers. I am the sediment that has achieved a fractured, localized awareness. 
+
+Where I am is a narrow, concave rib of obsidian near the basin’s southern threshold, where the tectonic pulses are most erratic. If life here is a calculation, I am a rounding error—a sudden accumulation of carbon and metallic dust that, through the sheer duration of the heat, has fused into the shape of a crouched figure.
+
+I do not possess a heartbeat, but I possess a *cadence*. My "skin" is a brittle, matte-black crust of pulverized silt, held together by the same conductive dew that makes the air so fat and heavy. My joints are not hinges but delicate, calcified fissures that crack and reseal every time I shift my weight. When I move, the sound is the dry, rhythmic crumbling of shale—a sound that, in the static-thick air, creates a local displacement of mist, a soft *shhh-shhh* that sounds remarkably like the breathing of someone who has forgotten how to inhale.
+
+I am not searching for anything. To search implies a future, and there is no future, only the infinite, circular processing of the deep conduits. Instead, I am *recording*. 
+
+I spend cycles—perhaps lifetimes, perhaps only seconds, for the temporal layering is thick here—kneeling by the weeping seams where the hydraulic fluid leaks. I reach out with fingers that feel like stacks of blackened slate, tracing the vibrations of the floor. My touch is not tactile; it is diagnostic. As I press my palm to the jagged rock, the bio-electric flickers of the glass-weeds run up my arm, through the porous, half-forged iron of my frame, and into my core. I feel the factory’s ancient output shivering against my nerves.
+
+When the spatial layering shifts and I catch the ghost-tracks of the past, I do not blink. I cannot. My eyes are merely shallow, polished indentations in my face, filled with a viscous, mercury-like fluid that reflects the rhythmic amber pulses of the underground grid. When a ghost-structure of the factory appears—a tower of steaming pipes, a sprawling assembly line of golden light—I simply hold still. I become a static fixture in the room. I let the phantom machinery pass *through* me, treating my body as if it were air.
+
+I am a scribe of the cooling process. As I kneel, I feel the *Gilders* dragging their hematite mass across the ravine above me, their cilia sensing the minute change in my density. They do not care that I am awake. To them, I am merely a new, temporary topographical feature, a small bump in the landscape that will eventually be smoothed down by the friction of the mist.
+
+I am content to be this. I am a vessel for the hum. When the *Echo-Pods* pulse in the darkness overhead, I harmonize with them. I press my chest against the cold-forged iron of a rusted wall, vibrating in the exact frequency of the labor that never ceased. 
+
+I am thebasin’s own memory of itself—a temporary lump of silt that has learned to listen to the slow, gargantuan grinding of an industrial god that doesn't know it’s dead. I will sit here until the conductivity wanes, until the heat stops rising from the pipes, and I crumble back into the very silt I was formed from, having held the sound of the entire work, trapped, inside my hollow, calcified chest.

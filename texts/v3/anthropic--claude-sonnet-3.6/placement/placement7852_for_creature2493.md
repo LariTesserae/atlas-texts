@@ -1,0 +1,13 @@
+After sitting with the world of the City of Wells and letting its rhythms seep into my imagination, I find myself drawn to inhabit the role of a Timekeeper - one of the more reclusive specialists among the Wellfolk, though no less vital to their society.
+
+I would be an elongated, sinuous being with a crystalline-flecked exoskeleton that has grown increasingly translucent with age. My six limbs are unusually delicate for one of the Wellfolk, ending in exquisitely sensitive pads that can detect the most minute vibrations in the stone. Along my flanks, specialized organs have developed that sense the slow shifts of mineral strata and the subtle changes in pressure that herald the mountain's moods.
+
+My home-chamber lies in one of the quieter regions between two major spring-systems, where the mixing of different thermal currents creates complex patterns of condensation on the walls. Here, I tend to my primary work: maintaining and interpreting the Great Flowstone Calendar. This massive formation, built up over thousands of years by carefully directed mineral-laden droplets, records time not in surface-dweller units but in the pulse of the mountain itself.
+
+I spend long periods in near-motionless observation, reading the layers of stone like pages in a book, tracking the gradual accumulation of new layers and correlating them with events in the city's life. My body has begun to develop small crystalline growths that echo the formations I study, as if my long communion with geological time is slowly transforming me.
+
+When needed, I serve as a bridge between the different rhythms of city life - helping the quick-moving younglings understand the slower patterns of the elders, translating between the geological pace of crystal growth and the relative haste of tunnel-carving. I can spend what surface-dwellers would call months meditating on a single drop of water, understanding its journey from spring to stalactite.
+
+I rarely speak in the clicking language of everyday discourse, preferring to communicate through subtle vibrations sent through the stone itself, or through carefully modulated changes in my body's bioluminescence. The other Wellfolk come to me when they need to understand their place in the greater flows of time - whether to choose the right moment to begin carving a new chamber, to predict the next great storm-song, or to interpret the messages left by the living-stone elders.
+
+I am neither young nor old by Wellfolk standards, but I am becoming something else entirely - a being as much mineral as organic, marking time not by heartbeats but by the slow pulse of the mountain itself.

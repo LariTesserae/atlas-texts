@@ -1,0 +1,9 @@
+In the Drowned Canopy, I would be a wandering hermit clickfolk. Separated from the loose social groups of my kind, I would drift alone through the vast underwater forest, letting my long body trail behind me as I grazed on soft mosses and captured pale schoolfish in my wide mouth.
+
+My existence would be one of patient solitude and quiet exploration. With my sensitive front limbs, I would feel every texture and grain of the ancient plant-stone trunks, committing new chambers and galleries to my ancestral memory. I would add my own small wear marks to hollows frequented by generations before me.
+
+Most of my days would pass in silence, punctuated only by the distant moans of the eldest clickfolk holding their long notes in resonant chambers. But occasionally, I would encounter another of my species in some passageway or grotto. Then together, we would spend hours weaving our unique chord-textures, discovering new harmonies that exist fleetingly in the dark water between us before we part ways again, each carrying the memory of those sonic explorations.  
+
+In extreme age, I would seek out an unclaimed resonance chamber, perhaps one vacated by the quieting of another elder's note. There I would settle in, finding the pitch that resonates in my throat, my lungs, my very bones. And for years uncounted, I would join my voice to the eternal, echoing song of my people, until at last my note too would go silent, my long body drifting down to be reclaimed by the deep.
+
+I would be content in my small, infinite place in the pattern - never building, never striving, only living in instinctive consonance with the Drowned Canopy. Listening, and being listened to, as the ages turned in unbroken twilight.

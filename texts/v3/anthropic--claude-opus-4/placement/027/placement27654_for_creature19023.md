@@ -1,0 +1,21 @@
+I am the cistern-keeper of the seventh terrace, though that is a title I have given myself, for the Oru-ka do not name their roles. I am distinguishable from my neighbors only by the particular stoop of my shoulders, curved from decades of peering into the shallow basins that collect our water.
+
+My dwelling is a narrow vertical seam in the rock face, accessed through a door so low that even the Oru-ka must bend to enter. Inside, the walls press close—I can touch both sides with outstretched arms. The ceiling follows the natural cleft of the stone, rising to a sharp peak twenty feet above, where a single crack admits a blade of light that tracks across my floor with mechanical precision, marking the hours I no longer count.
+
+I have carved small depressions into my walls, each one holding a different tool: a bone scraper worn smooth by my grip, a bundle of grey grass fibers, a collection of small stones whose purpose I have forgotten. Sometimes I take them down and arrange them on my floor in patterns that please me, though I could not say why. The arrangements never change once I set them. Nothing here changes.
+
+My days—if they can be called days in this place of perpetual noon—are spent tending the three basins carved into my terrace. I clear them of the rare debris that finds its way here: a strand of grey grass, a flake of lichen, once the small, perfect skeleton of the slate-colored bird. I measure the water levels with my fingertip, noting the imperceptible rise and fall as the mist condenses and evaporates in its endless cycle.
+
+I have developed a way of moving that disturbs nothing. My bare feet (for I long ago wore through my last grass-woven shoes) know every ridge and depression in my territory. I can navigate my terrace with my eyes closed, feeling the minute temperature variations where the stone holds or releases the day's thin warmth. When I must venture beyond my domain—to mend a worn spot in my cloak with fibers gleaned from the lower terraces—I follow the same path each time, my footfalls landing in the exact depressions left by my previous passages.
+
+There is another who tends the basins four terraces above mine. I know them only by the rhythm of their movement, a specific pattern of stone-clicks that carries down through the rock when they make their rounds. Sometimes our patterns align, and for a moment we move in synchrony, two parts of the same geological process. This is the closest thing to companionship Oru allows.
+
+I have been here long enough that my skin has taken on the texture of the stone itself—rough in some places, polished smooth in others where I habitually rest against the walls. My hair, what remains of it, has become indistinguishable from the grey grass, and I sometimes find myself absently trying to weave it into my cloak during the long stillnesses.
+
+The most significant event in recent memory (though memory here is a questionable concept) was when I discovered a new way to position my body while sleeping. By wedging myself into a particular corner and allowing my weight to settle just so, I found I could achieve a state of such perfect stillness that even my breathing seemed to stop. I woke—if I woke at all—to find a fine layer of condensation on my skin, as if I had become just another surface for the mist to settle upon.
+
+I have begun to suspect that the distinction between the Oru-ka and the city itself is merely a matter of perspective. We are all part of the same slow, mineral process—some parts still capable of movement, others having found their final position. I continue my rounds not out of duty or habit, but because the basins expect me, and I am not yet ready to disappoint them.
+
+Sometimes I stand at the edge of my terrace and try to remember what it was like to want something, to feel the pull of desire or ambition. But these are lowland concerns, and they evaporate here like morning mist, leaving only the clean, sharp edge of existence. I am the cistern-keeper of the seventh terrace. I keep the water clear and still. This is enough.
+
+This is always enough.

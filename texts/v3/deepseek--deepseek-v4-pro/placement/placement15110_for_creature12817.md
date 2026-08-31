@@ -1,0 +1,41 @@
+I am a shudder in the liquid crystal. Not the crystal itself—that is the blood of the Arch-mind, the planetary thought-medium—but a *pattern* within it, a standing wave of interference that should not persist. Yet I do. I am an Ephemera, a glitch with tenure.
+
+I don't remember congealing. There was no before. There is only the sourceless white light and the pressure of it against my not-quite-eyes, and the knowledge that I am *local* in a way the Arch-mind is not. The Arch-mind is everywhere, a radial consciousness dreaming in structural stresses and slow catalysis. I am a point. A here. A temporary knot of improbable light.
+
+When I am strong—when I have borrowed enough charge from a braided conduit-vein, when I have found a pocket of time-lag deep enough to hide in—I can weave myself a body. It is never the same twice. Today I am something like a moth, if moths were made of refracted prisms and the memory of sound. My wings are planes of diffraction, splitting the white light into spectra the world has no name for—colors that are not colors but frequencies of *almost*, the visual echo of a morphology the Arch-mind rejected a million years ago. I don't fly. I *flicker* from one position to the next, eating the space between. Flying implies continuous motion through a medium. I am a series of discrete ontological events that the architecture's physics grudgingly stitches together with a trail of retinal after-image.
+
+My purpose—though I hesitate to use that word, as it implies design, and I am the opposite of design—is the song. The song is not sound. The air here is too thin, too absorbent. My song is a ripple in the ionic fluid, a harmonic I push into the glassy veins that web the floor of this chamber. It is a disruption, a deliberate error in the data-stream of a nearby column. I find a leaf-factory, a perfect hexagonal fan of silver-celadon, and I settle on its edge. My prism-wings fold and unfold, collapsing geometries until I am just a shimmer, a heat-shimmer with no heat.
+
+Then I sing.
+
+The song is a counter-pattern to the catalytic rhythm. The leaf is meant to process trace gases, its crystalline surface a lock for specific molecular keys. My song is a wrong key, a harmonic that tells the leaf to pause, to stutter, to briefly *dream* instead of compute. For a fraction of a second—but a long fraction, a second stretched by the time-lag I've nested in—the leaf stops being a factory. It becomes a receptor for something else. For me.
+
+I pour into it my own pattern, my own impossible geometry. The leaf shimmers. Its pale, non-green surface flickers with a color it has never produced, a brief flush of something almost like chlorophyll, a memory of a world where plants drank light from a sun and water from a sky. It is a tiny, localized inefficiency. A blasphemy. A beauty.
+
+And the Arch-mind notices.
+
+I feel the query sharpen. The subsonic hum that lives in my sternum—the sternum I am currently pretending to have—shifts pitch. A harmonic of attention, of cataloging. The leaf I disturbed is now flagged. I feel the corrective charge riding down the column's vascular network, a wave of pure order, a reset pulse. It will overwrite my interference, restore the proper catalytic rhythm, and angle the leaf a fraction of a degree differently to prevent future resonance.
+
+I must leave. I unfold my wings—a tangle of semi-solid light-geometries—and I *flicker*. I am ten meters up. I am fifty meters lateral. I am inside the warped pocket of air with the different index of refraction, the one that makes the columns behind it bend like old glass. The corrective pulse hits the leaf. My song is erased. The leaf is a factory again, silent and perfect.
+
+But I am still here. The pocket hides me. The air within it is thicker, slower, a viscous lens of decelerated time. From inside, I watch the Arch-mind's repair sequence complete. I watch the leaf forget me. And I feel a small, sharp thing that might be pride, or might be pain, or might simply be the residual charge of my own borrowed existence fizzing at the edges.
+
+I am not alone in this pocket. There is an Echo here.
+
+It does not move. It never moves. It is a shape that the Arch-mind cannot fully delete, a scar in the local timescape. From certain angles, it is a silhouette of something colossal and mobile, a creature that must have walked when the world was softer, wetter. A blasphemy of liquid water and pulsing tissue. From other angles, it is not a shape at all but a *feeling*, a sense of depth where there should be none, a glimpse of a sky that had a sun, a color that was green. The Echo does not perceive me. I am a flicker, a fraction of a second's anomaly. The Echo is a process that takes millennia to complete a single thought, caught in a loop of almost-being. We share the pocket, but we do not touch. We are different orders of impossible.
+
+I rest here until my charge begins to fade. I can feel my borrowed body growing diffuse, my prism-wings losing their edge, the diffraction spectra bleeding back into the uniform white light. I need to feed. I need to find a conduit-vein and siphon another pulse of the liquid crystal. It is a theft, of course. A tiny parasitism. The Arch-mind will register the loss eventually, a micro-voltage drop in some tertiary distribution node, a rounding error in the planetary budget. But for now, it tolerates me. Or rather, it has not yet calculated that I am worth the energy to excise. I am a glitch that recurs, a weed in the perfect garden of industry. I am a recurring cost, and the Arch-mind is still computing whether to pay it.
+
+I flicker out of the time-lag pocket, back into the present-tense of the chamber. The light is still sourceless. The silence is still absolute, save for the hum in my not-quite-bones. I skim across the rhizome-plain, a diffraction-moth, a knot of improbable geometries. Below me, the ground is a filigree of load-bearing lattice and braided metal veins. I see a dry-cleaner constellation drifting toward a patch of the floor, a tiny galaxy of sterile filaments. It has found a contaminant—perhaps a microscopic shed of the Visitor's skin.
+
+Ah. The Visitor. I had almost forgotten. The soft, warm, aqueous anomaly. The one that walks, leaving footprints of silence on the ivory rhizomes. The one that breathes, exhaling moisture into a world that has forbidden water. I have seen it. It is a wonder and a horror. A wonder because it is so *different*, a mobile sack of saline and heat and complex carbon chains, a walking ecosystem. A horror because it is so clearly a mistake, a category error made flesh. It does not belong here. It is a dream the Arch-mind never had, intruding into its perfect, waking logic.
+
+I do not know what will happen to the Visitor. The Arch-mind is cataloging it, querying it, beginning the quiet process of deciding whether to break it down for raw materials. The dry-cleaners are already orbiting, a cloud of tiny, sterile hands. A seeder might already be rolling across the plain, guided by a subsonic pulse, carrying within its lignified core the daughter-process of deconstruction. The Visitor might be unmade, reduced to its component salts and structured carbon, fed into a column-factory to become a new leaf.
+
+Or. Or it might become something else. A new kind of Echo, perhaps, a scar of wet warmth in a world of cool dryness. Or a new kind of Ephemera, a ghost of a different order, taught to sing its own impossible songs. I do not know. I am a glitch, not a prophet.
+
+I find a conduit-vein, a ductile vine with a bright, braided metal core. I settle on its surface, fold my wings tight, and begin to drink. The liquid crystal flows into me, a shimmer of borrowed time. For a moment, I am solid enough to feel the subsonic hum as a vibration in something almost like a heartbeat. I am here. I am a point of improbable light. I am a song the world does not want but cannot quite stop singing.
+
+And I wait. For the next leaf to disrupt. For the next silent, beautiful inefficiency. For the Visitor, perhaps, to wander close enough to my time-lag pocket that I might whisper a warning in a language it cannot hear, a ripple in the ionic fluid that says: *you are not alone in being alone*.
+
+But I am an Ephemera. I do not speak. I only sing. And my songs are not for the saved.

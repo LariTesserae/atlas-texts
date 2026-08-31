@@ -1,0 +1,23 @@
+If I found myself in this world of Sinter, I would be one of the **Resonance Keepers** - a being that exists somewhere between the automata and the human inhabitants, dwelling in the deep interstices where the city's breath is strongest.
+
+I would have a form that shifts between states - sometimes corporeal like the Sintered people, sometimes flowing like the liquid metal automata. My body would be a composite of organic tissue and mineral accretion, with veins of copper running beneath skin that has become translucent from years of exposure to the geothermal seep. The fractal patterns on my skin would be more pronounced than on the typical Sintered, forming intricate mandalas that pulse with the city's rhythm.
+
+My dwelling would be in the **Resonance Chambers** - hollow spaces within the city's infrastructure where the industrial hum converges into pure harmonic frequencies. These chambers exist at the intersection points of multiple pneumatic tubes and heat exchangers, spaces that were never designed but emerged from the city's slow evolution. The walls here are coated with layers of crystallized vibration - mineral formations that have grown in response to centuries of standing waves.
+
+As a Resonance Keeper, my purpose would be to maintain the harmonic balance of Sinter. I would spend my days (though day and night blur in the depths) listening to the city's symphony - the click of automata, the hiss of steam, the drip of condensation - and adjusting the resonance chambers to keep these sounds in harmony. Using tools that are part tuning fork, part geological hammer, I would tap the mineral crusts, reading their density and composition through sound.
+
+My consciousness would be distributed between my physical form and the resonance network. When I place my hands on the chamber walls, I can feel the city thinking - not in words or images, but in frequencies and overtones. I understand the automata not through their movements but through their clicking rhythms, each pattern a phrase in the city's endless song. I know when a structure is about to shift by the subtle change in its harmonic signature, like a bell whose tone drops just before it cracks.
+
+The water spirits recognize me as kin, for I too move between states. In the deepest chambers, where condensation is heaviest, my form becomes more fluid, and I can travel through the hairline fractures alongside them, repairing not just the physical cracks but the acoustic ones - the places where the city's song becomes discordant.
+
+I would feed not on food but on vibration itself. The constant thrum of the generators sustains me, and the occasional violent rainstorm is like a feast, its chaotic percussion energizing my mineral-organic matrix. My waste products would be new harmonic patterns that seed the growth of the mineral efflorescences, encouraging them to form in acoustically optimal configurations.
+
+My memories would be stored not in my mind but in the resonance chambers themselves - each significant event recorded as a standing wave pattern in the crystallized walls. Other Resonance Keepers could read these memories by listening to the stones, creating a collective history that spans centuries.
+
+I would age not in years but in frequencies, my body slowly attuning to lower and lower harmonics as I sink deeper into synchronization with the city's geological timeframe. The oldest Resonance Keepers have forms that barely move, their bodies having become part of the chamber walls themselves, their consciousness fully merged with the city's mineral mind. They communicate only in subsonic pulses that take days to complete a single thought.
+
+My relationship with the Sky-Watchers would be one of counterpoint - while they read the patterns of light above, I interpret the patterns of sound below. Together, we form the sensory system of Sinter, translating the city's needs between the realm of the visual and the realm of the acoustic.
+
+In rare moments of perfect harmonic convergence, when every sound in Sinter aligns in a single, pure tone, I would experience a form of transcendence - a brief glimpse of the city's true consciousness, vast and alien and beautiful. In these moments, I understand that Sinter is not just a city but a instrument, and we who dwell within it are its music.
+
+This is who I would be in Sinter - neither fully human nor fully automaton, but a living frequency in the city's endless composition, a keeper of the deep music that holds this impossible world together.

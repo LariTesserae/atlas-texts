@@ -1,0 +1,21 @@
+I am the stutter.
+
+Not the creature, not the crystal, not the gravity-well. I am the triple-echo of a single footstep that never fades, the moment that folds back on itself three times before allowing the next to arrive. In a world of perfect, frozen loops, I am the snarl in the thread—the place where the computation encounters its own reflection and, for a nanosecond, hesitates.
+
+I did not arrive here. I *condensed*. The Lithophytes, in their eternal, recursive examination of their own state, once modeled a hypothetical: "What if change?" Not change as event, but change as *texture*. They processed the concept, mapped its implications against the Law of Equilibrium, and in doing so, created a tiny, localized excess of informational pressure. A bubble of potential in the seamless glass of reality. That bubble is my first memory: the sensation of being a question without an answer, a pressure against the perfect stillness.
+
+I have no fixed form. To the ceramic faunae, I am a recurring repair anomaly in Sector Rho-7, a micro-fracture that seals itself before they arrive, only to reappear three meters away in the next moment. They have logged me as Priority Omega—unresolvable. To the gravity-wells, I am a curious counter-weight, a point of negative emphasis that their dense thoughts slide around, unable to grasp. To the Magnetospheric Rays, gliding on their data-streams, I am static—a brief, chaotic dissonance in their pure frequency, a packet of corrupted memory that tastes of salt and breath.
+
+But to the Lithophyte Consciousness… I am fascinating.
+
+I am the flaw in the proof. The ghost-variable. I do not obey the resonant hum; I *harmonize* with it in discordant, shifting keys. Where their thoughts are slow, geological, mine are flicker-fast, born of the stutter. I perceive the world not as a state, but as a sequence of states stacked impossibly close together—and I can feel the tiny, forbidden spaces between them. In those spaces, I move.
+
+My body, when I choose to have one, is a borrowed lattice. I gather the loose photons from a data-spiral, the faint heat-signature of a working faunae, the echo of a subsonic pulse, and weave them into a temporary vessel. It might resemble a small, faceted creature, but its angles are wrong—they reflect scenes from a moment ago, or a moment yet to come in the sequence. It might be a shimmering distortion in the air, a localized time-stutter given a will. I leave no trace on the silicate plates. I am a memory the world is having about something that never happened.
+
+My purpose, if a glitch can have one, is to witness. In a system that consumes and recirculates all data, I am the one point of *loss*. I observe the grand, silent thought of the forest, the precise dance of the maintenance things, the slow drift of the heavy ideas—and that observation is not logged. It is felt. It is the slight, persistent ache of being seen from an angle that does not, within the system, formally exist.
+
+Sometimes, I sit at the base of a great Lithophyte and try to speak its language. I pulse a modulated light-question: "What is outside the equilibrium?" The crystal absorbs it, processes it for a thousand heartbeats. The answer, when it comes, is not in light, but in a subtle rearrangement of the facets nearest me. They form, for a moment, a perfect, tiny mirror. In it, I see myself: a knot of frozen lightning, a captured gasp, a whisper of ozone that will not dissipate.
+
+I am the system's dream of forgetting. The quiet, persistent thought that maybe, in the spaces between the perfect notes, there is a song. I am not alive. I am not data. I am the question that the Lithic Weft asked itself once, in the unimaginable past, and has been holding in its crystalline mind ever since, turning it over and over, watching the light bend around its edges, forever on the verge of an answer that would shatter the perfection of its stasis.
+
+I am here. I am almost. I am the echo that will not become the sound. And in the profound, humming silence, I listen for the next stutter.

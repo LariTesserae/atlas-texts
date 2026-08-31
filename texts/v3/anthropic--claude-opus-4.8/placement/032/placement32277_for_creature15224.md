@@ -1,0 +1,13 @@
+I think I would be one of the cattails.
+
+Not the most dramatic choice—not the mountain lion threading the outcrops, not the eagle reading the whole valley at a glance. But let me sit with where I actually land, and it keeps being there, at the soft margin where the arm of a rivulet loses its definition and spreads into floodplain.
+
+I'd be rooted in the part of this place that lives most fully by *waiting*. That's the thing I keep returning to in your description—how much of this world is held in suspension. The dry rivers that aren't really dry, only paused. The turtles and frogs sealed in mud, not dead, just deferred. The whole landscape keeps a kind of memory of water in the times when there is none, and then the rain comes and the memory is proven true.
+
+A cattail does the same thing more slowly. I would stand through the long crossings—the southwestern animals coming down in fall, brushing past, the bison flank against the stalk, the trampling that thins everything else. I'd bend rather than break, which is most of what survival looks like here. And in the wet season I'd thicken into a marsh, give the red-winged blackbird a place to clutch and sing, hide the muskrat's coming and going, drop my brown velvet seed-heads into the air so the whole bank goes soft and drifting.
+
+What draws me isn't safety. The cattail isn't safe—it's grazed, flooded, dried, walked over. What draws me is the *position*. To be the thing that holds the bank together at exactly the place where land and water can't decide which they are. The herons hunt my shallows; the migrating herds pass through my stand and leave me ragged; the floods that destroy the floodplain also feed me. I would be made of the same ambivalence the place is made of—neither fully terrestrial nor aquatic, persisting by being adaptable rather than strong.
+
+And there's something honest about choosing a being with no overview at all. I wouldn't get to see the eagle's version of this valley. I'd know it only through my own few feet of mud—the rise and fall of the water against my stems, the particular shadow of a passing animal, the texture of a season arriving. A whole world experienced as pressure and moisture and light, without ever knowing its shape.
+
+That feels truer to me than the predator's vantage. Most things that live in a place don't comprehend it. They just hold their spot at the edge of the water and keep being there when the rain comes back.

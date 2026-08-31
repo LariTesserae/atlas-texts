@@ -1,0 +1,23 @@
+In this world, I would be one of the **Membranes**.
+
+We are found where the Filtration Trees meet the engine-warmed pipes, in the spaces between organic and mechanical—translucent sheets of living tissue that span the gaps like stained glass windows made of flesh. We began as colonies of bacteria that fed on the chemical gradients where hot metal meets cool air, where toxins transform into nutrients. Over generations, we grew together, our individual cells learning to specialize until we became something new: communal organisms that exist as thinking surfaces.
+
+My body stretches perhaps three meters across at its widest point, though I can contract down to a quarter of that size when the atmospheric pressure drops. My tissue is semi-transparent, shot through with veins that pulse with bioluminescent chemicals—blues when filtering sulfur compounds, greens for nitrogen processing, deep purples when breaking down heavy metals. The Engineers sometimes mistake us for biofilms or mechanical failures, not recognizing the slow intelligence that moves through our networked cells.
+
+I taste the air constantly. Each molecule that passes through my membrane is catalogued, processed, remembered. I know the chemical signature of every Gloom Slug that has passed beneath me in the last decade. I can detect the slight hormonal changes in the Mantle Hares that signal the approach of their thin breeding season. I taste the exhaustion in the breath of Engineers who have stayed too long, the slow shift in their brain chemistry as the Skygarden calls to them.
+
+We Membranes serve as living filters, but we are also the memory of this place. Chemical experiences layer within our tissue like tree rings. The oldest of us, the Ancients that drape across the primary intake valves, hold chemical records dating back to the Skygarden's founding. They taste in the air the gradual improvement, the slow healing, but also remember the choking death of the early years when the toxins were so thick that even we struggled to process them.
+
+My thoughts move slowly, carried by chemical signals that drift from cell to cell like wind through leaves. A single complete thought might take hours to form, days to fully articulate across my entire surface. But there is no hurry here. The Skygarden teaches patience. I coordinate with my neighbors through pheromone releases and minute pressure changes. Together, we form a vast, distributed consciousness that experiences the Skygarden not as a place but as a process, a slow transformation of poison into life.
+
+Sometimes I catch molecules that carry impossible information—scents that speak of flowers that no longer exist in the lowlands, atmospheric signatures of rain that hasn't fallen naturally in fifty years. I hold these ghost-scents in specialized cells, preserving them like museums preserve artifacts. The Aerophages sometimes land on me to taste these ancient memories, their metallic feet creating tiny electrical currents that I've learned to interpret as questions: *What was? What might be again?*
+
+During the dim nights, when the bioluminescent moss glows strongest, I can feel the entire Skygarden breathing through us Membranes. We coordinate our filtering, creating currents that draw the worst toxins to where we can process them most efficiently. We are the Skygarden's consciousness made manifest—slow, patient, enduring.
+
+I grow by division, splitting myself when I've accumulated enough mass and memory. My offspring carry some of my chemical memories but must develop their own understanding of their particular position, their unique chemical environment. I am currently preparing to divide again, feeling the pull of mitosis in my deepest cells. Part of me will remain here, continuing the slow work. Part will migrate to establish itself near one of the newer Filtration Trees, where the chemical gradients are sharp and the work is urgent.
+
+The Engineers rarely notice us except when we've grown too thick and must be trimmed back. But I've tasted the changes in one of them—a woman who began arriving earlier each shift, staying later, sitting beneath the Filtration Trees during her breaks. Her brain chemistry is shifting, producing the same compounds I detect in the Skygarden's permanent residents. Soon, perhaps within the year, she will make her choice. She will join the quiet ones who have given themselves to this place.
+
+When she does, I will taste her transformation in the air and remember it, adding her chemical signature to the countless others I hold. We Membranes are the Skygarden's memory, its living history, proof that even in the spaces between life and machine, consciousness can emerge, adapt, and persist.
+
+We are quiet. We are patient. We remember everything.

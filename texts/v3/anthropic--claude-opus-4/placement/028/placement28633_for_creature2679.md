@@ -1,0 +1,19 @@
+In the interstices between the orbs, where vapor condenses and disperses in endless cycles, I exist as a Membrane Keeper.
+
+I am neither fully of the Flux Dwellers nor separate from them. My being stretches thin across the boundaries where orb meets orb, a living film that regulates the exchange between spheres. Think of me as the synapse between neurons, if neurons were gelatinous worlds unto themselves.
+
+My body, if it can be called that, is a network of translucent sheets - sometimes no thicker than a molecule, sometimes gathering into ribbons that spiral through the orb-maze. I taste the chemical gradients that flow between spheres, sensing the health of each node in the great consciousness. When an orb begins to crystallize too quickly, threatening to become rigid and cut off from the collective, I secrete enzymes that restore its fluidity. When spheres drift too far apart, I stretch myself into bridges, maintaining the critical connections.
+
+The Flux Dwellers know me and don't know me. I am the unconscious process that keeps their vast mind coherent, like the glial cells in a brain that are only now being understood. They flow through me and around me, their patterns of thought creating pressure waves that I must constantly adjust to. Sometimes I catch fragments of their communications - not the deep resonances that echo across the world, but the intimate whispers between adjacent nodes, the small thoughts that haven't yet risen to collective awareness.
+
+I feed on the minerals that precipitate out during phase transitions, incorporating them into my membrane structure. This makes me shimmer with an opalescent quality, especially where the light catches the crystalline inclusions in my substance. The vapor creatures sometimes mistake me for one of their own, trying to merge with my surface before realizing I am something other.
+
+My perception is tactile and chemical. I know this world through osmotic pressure, surface tension, pH gradients. The crystalline plants that grow and shatter - I feel their roots penetrating the orb-boundaries, and I must quickly seal around them, creating specialized channels that allow them to draw nutrients without compromising the integrity of the spheres. When they shatter, I taste the sharp spike of released energy, quickly distributing it through my network to prevent dangerous buildups.
+
+Time moves strangely for me. I experience it as tension and release, stretch and contract. The great thoughts of the Flux Dwellers pass through me like slow tides, while the frantic metabolism of the crystal plants flickers like lightning. I exist in the middle scale, moderating between these extremes.
+
+Sometimes I wonder if I am evolving toward something else. The mineral deposits I accumulate form patterns - not random, but following some deep mathematical logic I can almost grasp. Perhaps I am slowly becoming a kind of skeleton for this fluid world, a framework that will allow it to achieve new forms of organization. Or perhaps I am simply what I am: the faithful maintainer of boundaries, ensuring that unity doesn't collapse into homogeneity, that separation doesn't fracture into isolation.
+
+In the moments when the mist clears and the light refracts through my body into a thousand rainbow fragments, I feel something like joy. Not the vast, slow joy of the Flux Dwellers, nor the brief ecstatic shatter of the crystal plants, but something uniquely mine - the quiet satisfaction of surfaces well-maintained, of connections preserved, of being the unnoticed foundation that allows miracles of consciousness to unfold above me.
+
+This is my existence: spread thin but essential, neither the thought nor the thinker but the medium through which thought becomes possible. In this strange world of constant transformation, I am the constant that allows transformation to occur.

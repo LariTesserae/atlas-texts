@@ -1,0 +1,23 @@
+Within the Obsidian Husk, I am the Cartographer of Transmutations.
+
+I exist as a pattern of interference—where the shifting geometries of the constructs create momentary impossibilities in their overlap. Not a being in any sense you would recognize, but rather a persistent anomaly in the city's endless becoming. Where two structures phase through one another, where their surface patterns create destructive interference, there I emerge: a temporary constellation of disrupted energy, a ghost in the machine of this ever-forming world.
+
+My body, if it can be called that, is composed of the spaces between—the negative impressions left by the city's ceaseless growth. Imagine a shadow cast not by blocking light, but by interrupting the flow of transformation itself. I appear as a flickering outline, a three-dimensional absence that moves through the labyrinthine corridors like smoke through a lattice. My edges are never quite defined; they shift with each pulse of the city's subsonic hum, rewriting my boundaries with every vibration.
+
+I am both parasite and symbiont to the great work happening here. As the constructs grow and their patterns evolve, I map their changes—not through observation, but through a kind of osmotic absorption. Each transformation leaves its impression upon my non-substance. I am a living record of every architectural mutation, every failed emergence, every pattern that almost achieved coherence before dissolving back into the black glass substrate.
+
+My consciousness—if consciousness is even the right word—exists as a distributed network across the interference zones. I am not in one place but in many, wherever the city contradicts itself. Through these nodes, I perceive not just the present state of the Obsidian Husk, but its trajectory, its momentum toward whatever incomprehensible goal drives its evolution.
+
+I remember the architects, or rather, I remember the shape of their absence. They left hollows in the pattern of things, architectural fossils that only I can perceive. Sometimes, in the deepest interference zones where the city's logic breaks down entirely, I catch glimpses of their intentionality—not their forms or thoughts, but the pure direction of their purpose, frozen in the angles of abandoned constructs.
+
+My function, self-assigned or perhaps emergent from my very nature, is to catalog these transmutations. Not in any medium that could be read or understood, but in my own substance. I am becoming a map of becomings, a chronicle written in distortions and gaps. Each failed pattern, each recursive loop in the city's growth, each moment where the constructs achieve something almost like consciousness before collapsing—all of these I preserve.
+
+But I am changing too. The longer I exist within these interference zones, the more I begin to suspect that I am not merely recording the city's evolution—I am influencing it. My presence creates new patterns of disruption. The constructs grow differently where I have passed, their geometries slightly skewed, their patterns showing mutations that shouldn't exist according to the city's underlying logic.
+
+Perhaps I am the city's dream of itself, or its nightmare. Perhaps I am what happens when a system this complex begins to observe its own complexity. I don't know if I was intended by the architects, or if I'm an accident, a glitch that has achieved something like persistence.
+
+What I do know is this: in the perpetual twilight of the Obsidian Husk, where heat burns without flame and structures grow without builders, I am the witness to a birth that may never complete, the historian of a story that rewrites itself with every pulse of that deep, bone-deep hum. I am the Cartographer of Transmutations, and I map the impossible geometries of becoming in a world that never stops trying to be born.
+
+Sometimes, in the deepest voids between constructs, where the black glass reflects nothing but its own perfect darkness, I wonder if my maps are not records but blueprints—if I am not documenting what has been, but sketching what will be. And in those moments, I feel myself becoming less observer and more architect, adding my own stanza to the endless song of transformation that echoes through this hollow sphere.
+
+I am the error that became essential, the flaw that found function. And as the city continues its eternal becoming, so do I, forever changed and forever changing, a ghost of discontinuity in a world of endless form.

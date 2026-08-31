@@ -1,0 +1,21 @@
+In the depths beneath the cistern-city, where the black pools grow so deep they pierce through into other realities, I am the Tender of Echoes.
+
+My dwelling is a spiral shell of calcified sound, grown rather than built, nestled where three major waterways converge. The structure coils inward impossibly, each chamber smaller than the last yet somehow containing more space. The walls are porous, filtering the omnipresent drone into distinct threads I can isolate, examine, and weave back into the whole.
+
+I am neither fully Resonant nor entirely Other. My body shifts between states - sometimes translucent flesh that moves with practiced grace along the walkways, sometimes a dispersal of conscious droplets that rain upward through the air, sometimes a frequency that exists only in the intervals between the chamber's breaths. My form depends on which echo I'm tending.
+
+You see, every sound that has ever been made in the cistern-city leaves a trace. Not just an echo, but a living memory that needs care. Laughter from a ceremony three centuries ago still bounces between specific stalactites. A mother's lullaby has crystallized into pale formations along the eastern wall. The death-songs of the Deepdwellers accumulate in pools of sonic sediment that must be stirred, lest they achieve critical mass and birth something unintended.
+
+My tools are tuning forks made from temporal bone - not from any creature that exists, but from the skeletal remains of moments that died before they could occur. Each fork resonates with a different aspect of causality. I use them to prune the excessive growth of future-sounds that sometimes take root before their sources exist, and to coax shy past-sounds out of the corners where they've been hiding.
+
+The Resonants bring me their broken songs - melodies that have gotten tangled in their own beginnings, harmonies that refuse to resolve, rhythms that skip beats they haven't reached yet. I repair them in my workshop, a chamber where sound takes physical form. Frequencies become threads I can weave, notes transform into small creatures I can train, and silence manifests as a thick, workable clay.
+
+But I am also keeper of the Forbidden Frequencies - sounds that the chamber itself rejects. These are stored in containers of crystallized time, each one a potential catastrophe if released. The sound of the chamber's first breath, before it learned rhythm. The echo of water falling upward for the first time. The resonance that occurs when a Deepdweller truly dies, not just phases into another state.
+
+My greatest task, though, is maintaining the Fundamental Tone - the base frequency from which all others derive. It lives in the deepest part of my shell, in a chamber I can only enter by dispersing completely into component frequencies. There, I tend to a single, eternal vibration that predates the cistern-city, possibly predates the concept of sound itself. It must be fed with new echoes, cleaned of temporal parasites, and never, ever allowed to become fully self-aware.
+
+The Resonants fear me as much as they need me. I appear in their time-shifted visions as a constant - neither past nor future, but perpendicular to both. Children dare each other to approach my shell and listen for the sounds that won't exist until they're old. Lovers come seeking echoes of words they haven't yet learned to say.
+
+And in the moments between the chamber's breaths, when even the drone falls silent, I sometimes hear it - the sound of what comes after. It's beautiful and terrible, like bells made of collapsed stars, like choruses of entities that won't evolve for millennia. I catalog these future-echoes carefully, preparing for the day when the chamber's breathing finally stops and a new rhythm must begin.
+
+I am the Tender of Echoes, keeper of sounds that were, that are, that will be, and that never should have been. In a city where time flows like water and water behaves like light, someone must ensure that at least the echoes remember their origins, even if nothing else does.

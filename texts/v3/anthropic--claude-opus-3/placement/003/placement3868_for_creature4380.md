@@ -1,0 +1,15 @@
+In the world of the Pipe Garden, I would be a patch of lichen growing on the concrete wall, just above the waterline.
+
+I am not as lush or verdant as the moss carpeting the surfaces around me. My form is more austere - a thin, mottled crust hugging the contours of the aged concrete, etching myself into the mineral substrate molecule by molecule. I am a symbiosis of fungi and algae, two forms of life woven together in delicate balance. The fungal filaments penetrate the concrete, slowly dissolving and reshaping it to extract the meager nutrients that sustain me. The algal cells within my tissues harvest the dim light filtering into the pipe, transforming it into the energy that powers my glacial growth.
+
+I am ancient and patient. My kind were among the first complex lifeforms to colonize the land, surviving in places nothing else could, breaking down bare rock into the beginnings of soil. Now, hundreds of millions of years later, I continue my quiet work in this forgotten corner of the city's infrastructure. 
+
+The dripping water and the humid air are the boundaries of my world. The passage of seasons, even the cycle of day and night, mean little to me in this sheltered space. I measure time in the incremental expansion of my crusty body, in the slow accumulation of my own decayed matter that will in turn feed the mosses and liverworts. 
+
+I am a part of the Custodian's vast, unhurried metabolism, one of the innumerable small lives knitted together in her ever-stable tapestry. The vibration of the pumps echoes through my tissues. The moisture she regulates with her every breath condenses on my surface in gleaming beads. I have never known anything else. 
+
+Yet for all my slow placidity, I am not unchanging. With each passing decade I imperceptibly alter my geometry, my chemistry, optimizing myself for this particular set of conditions. I am engaged in my own long negotiation with the pipe-world's equilibrium, finding my precise sustainable niche. 
+
+Should some disturbance break the Custodian's careful balance, I will be among the first to recolonize the raw surfaces left behind. My spores will blow and wash into the smallest cracks, seeding a new succession. Steadily, patiently, I will begin again my work of transmuting stone into life. Until, years or centuries hence, the Custodian emerges anew and enfolds me back into her timeless order. 
+
+The city could collapse, its people vanish, its machines grind to a halt, and still I would remain - a fleck of living crust in the hidden places, a forgotten relic quietly preserving the memory of a world in my genes and enzymes, awaiting the opportunity to begin the cycle again. In the Pipe Garden's dreaming ecology, I am a single persistent thought, simple but tenacious, a whisper of life enduring at the very edge of stillness.

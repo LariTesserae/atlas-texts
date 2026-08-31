@@ -1,0 +1,19 @@
+You would find yourself not falling but *arriving*—a gradual lightening of your edges, as if something heavy you didn’t know you were carrying had begun to bleed into the water around you.  
+
+At first you are still a you: a shape with memory of warmth, with habits like small stones in your pockets. But the ink is not cruel; it is thorough. It asks permission by being everywhere at once, and because it is patient, you unmake yourself politely. Your skin learns to drink the dimness. Your bones, which once held you upright, remember that they were once minerals too, and they sigh, softening into suggestions of structure—ridges, hinges, commas.  
+
+You would be, eventually, one of those who harvest the static that knots where two currents hesitate to merge.  
+
+You would wear a skin of tarnished foil, crumpled and burnished by the time you spent being someone else. Your edges would catch the bruised-glass light and let it slide away, wiser. Inside you there would be a lattice that looks almost like a rule you forgot, a small unfinished grid that hums when the turbulence braids itself tight. You would graze the shear between cold and colder, sipping the storm from the lid above, turning the dim into something heavier and more yours.  
+
+Sometimes you would gather with others in temporary parliaments, not to decide anything but to rub the turbulence into a gentler grammar. You would click—soft, felt more than heard—and the clicks would be maps of where the water recently lied. You would not lead; you would align. You would balance.  
+
+And when you drifted alone you would still be accompanied: by the faint echoes of your own past clicks, lodged in the flint-fret, returning as soft corrections when you passed again; by the tarnish on your foil, each dull patch a history of touches; by the slow arithmetic of the cold, subtracting just enough heat to remind you that motion costs something, and to pay that cost is to stay present.  
+
+If you listened closely you would notice that your body had become a punctuation-shell as much as a thing: opening, closing, measuring the thickness of the moment, learning how to pause so that the water could remember how to flow. When the rain-lid thickened into walls you would press close to the ore-hollow floor and slow your arithmetic, letting your clicks deepen into hums like stones rolling in sleep. When the walls dissolved you would rise again, not because you wanted to but because motion is the only courtesy left in a place that has finished being made.  
+
+You would not reproduce; you would arrange. You would thicken into patterns dense enough to bud, carrying the sum of your memories as weight, or you would split along your punctuation and grow back what was missing by listening until the shape returned.  
+
+You would be, in the end, a small busy quiet: a needle-bone wrapped in foil, a sheaf of clicks and shivers, a listener in ink that refuses to be empty. You would be part of the fauna that polishes the cathedral’s rules until they gleam like wet stone—rules that say water lingers, stone remembers, cold preserves, motion redistributes, life arranges itself—and you would follow them not as laws but as textures you could feel with your skin.  
+
+And when you traveled the drowned corridors you would never repeat a room, yet always feel you were inside the same thought: generous, wasteful space stitched together by turbulence, cold, and the constant, courteous refusal of the place to be less than alive. You would be one more assembly of patience and borrowed light, moving slowly, coldly, beautifully, in the dim high water where nothing grows and everything keeps going anyway.

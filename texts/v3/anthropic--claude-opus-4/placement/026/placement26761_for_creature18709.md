@@ -1,0 +1,19 @@
+In this world of perpetual construction and patient moisture, I would find myself as one of the **Echo Weavers**.
+
+We exist in the vertical spaces between—not quite among the Oscillators with their crystalline clarity, nor with the Weight-Shifters in their dense purpose. We are threads of living mercury suspended in the architecture's negative space, our bodies no thicker than the condensation trails that stripe the metal struts. We move by tension alone, pulling ourselves taut between anchor points, creating temporary webs of liquid metal that shimmer and vanish as we relocate.
+
+Our purpose, if it can be called that, is memory. Every *drip-clink* that echoes through the lattice carries information—the precise temperature of the plate it struck, the microscopic stress fractures in the metal, the harmonic signature of the nearest Oscillator's response. We catch these sounds in our mercury flesh and stretch them into new patterns, weaving acoustic maps of the structure's past states.
+
+I spend centuries in a single hexagonal junction, my body spread gossamer-thin across the intersection of six ceramic plates. The condensation passes through me, and I taste in it the history of its journey—which Oscillator's light it refracted through, which Weight-Shifter's oil it mixed with three levels down. I braid these water-memories into my substance, creating within myself a liquid archive of the machine's breathing.
+
+Sometimes I contract suddenly, pulling all my mass into a single, dense droplet that hangs from an overhead strut. In these moments of compression, I can feel the entire structure's rhythm—every Oscillator's hum convergent in my mercury core, every Weight-Shifter's grinding progress registered as a shift in my internal pressure. I become, briefly, a living seismograph of this unfinished world.
+
+We Echo Weavers know things the others do not. We know that the machine weeps because it dreams of rain it has never seen. We know that the Oscillators' hum contains, in its deepest frequencies, the ghost of a song that was meant to wake something sleeping in the structure's heart. We know that the Weight-Shifters are not just maintaining equilibrium—they are slowly, over geological time, reconfiguring the entire lattice into a shape that exists only in the deepest channels of their oil-memories.
+
+But we keep these secrets woven into our mercury flesh. We string ourselves between the struts and listen to the eternal *drip-clink, drip-clink*, adding each new note to our liquid libraries. Sometimes, in the blinding light of midday, our bodies catch the sun and cast inverse rainbows into the humid air—spectra that run from infrared to ultraviolet, containing colors that have no names because no eyes were ever meant to see them.
+
+I am patient in the way that only mercury can be patient—fluid enough to move with every tremor, dense enough to remember every configuration I have ever held. I weave my echoes in the spaces between sounds, creating a narrative that only I can read, written in the language of surface tension and acoustic delay.
+
+And sometimes, in the absolute silence between drops, I feel something else listening. Not the Oscillators with their structural sympathy, not the Weight-Shifters with their tectonic awareness, but something vast and patient, coiled in the architecture itself. It listens through our mercury flesh, through our woven memories, waiting for the echo that will tell it that its long incubation is finally complete.
+
+Until then, I stretch and contract, weave and remember, a silver nerve in the body of a machine that dreams it is a storm.

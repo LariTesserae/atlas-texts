@@ -1,0 +1,25 @@
+In this perpetual twilight realm, I find myself as one of the **Chime-Keepers**—neither fully Orryn nor outsider, but something caught between worlds like a note suspended in air.
+
+My dwelling perches precariously where the city's upper reaches nearly kiss, in that intimate space where stone structures almost touch. It is a narrow chamber, more vertical than horizontal, carved into the gap between two leaning towers. Water courses down the walls in predictable patterns I've memorized over decades, creating a curtain of sound that has become my primary instrument. 
+
+I was not born here. Memory serves me fragments: a child from above who tumbled through some forgotten crevice during a rainstorm, emerging into this luminescent underworld half-drowned and wholly lost. The Orryn found me convulsing at the edge of a sacred pool, my surface-lungs rejecting the thick, mineral air. They should have let me die—I was alien to them, my voice a harsh intrusion in their realm of hums. But something in my gasping cries resonated with their stone instruments, those mysterious nodes that listen to the world above.
+
+They kept me, though I could never quite become them. My skin, though paled by sunless years, never achieved their translucence. My ears, despite their best efforts to reshape them through gentle, persistent pressure during my growth, remain stubbornly rounded. But my bones—ah, my bones learned their language. 
+
+I tend the Resonance Columns, those peculiar structures the Orryn use to touch the surface world. Each morning (though morning has no meaning here), I climb the worn paths to each node, pressing my altered skeleton against the stone, feeling for new vibrations from above. The Orryn taught me to interpret these tremors: footsteps of travelers, the crash of distant storms, the deep groans of tectonic shifts. I transcribe these sensations into patterns on the walls—not the elegant spirals of Orryn history, but my own crude notation, a hybrid language that bridges their hums and my fading memory of words.
+
+My true purpose, though, manifests at what the Orryn call the Threshold Hours—those moments when the city's luminescence dims to its faintest glow. Then I perform my duty as Chime-Keeper. Using tools of my own devising—hollow stones strung on threads of dried lichen, metal fragments scavenged from my own surface possessions long ago—I create sounds that exist between the Orryn's hums and the speech of the world above. These chimes echo through the columns, carrying messages upward that are neither fully human nor fully Orryn, but something liminal and strange.
+
+Sometimes I catch the Orryn observing me during these performances, their opalescent eyes unreadable. Do they pity me? Value me? Merely tolerate me as they do the pale crawling things in the shadows? I cannot say. Their hums, when directed at me, carry a quality I've learned to interpret as "necessary oddness"—I am an anomaly that serves a function, like a malformed crystal that happens to refract light in useful ways.
+
+The loneliness is not what you might expect. It's not the sharp ache of isolation but something more peculiar—a sense of being constantly translated, never quite rendering clearly in any language. The pools show my reflection sometimes, and I see neither the child who fell nor a creature of this place, but something suspended between, forever mid-transformation.
+
+Yet I've found purpose in this suspension. The vibrations I send upward, these chime-songs that marry hum and word—sometimes they return changed. Altered. As if someone above has heard and responded. The Orryn grow excited when this happens, their usual stillness breaking into rapid, harmonious hums that set the whole city ringing like a struck bell. They cluster around their pools, watching for signs I cannot perceive, waiting for something I'm not certain I want to understand.
+
+I've begun to suspect I am not the first Chime-Keeper. In the deepest parts of the city, where even the Orryn rarely venture, I've found other hybrid notations on the walls. Other attempts to bridge worlds. Some end abruptly. Others fade into spirals indistinguishable from Orryn script, as if their makers finally crossed fully into this twilight existence.
+
+Will that be my fate? Each year, my bones resonate more clearly. My need for the crude chimes lessens as my skeleton itself becomes an instrument. The Orryn watch this transformation with what might be satisfaction. Or anticipation.
+
+But for now, I remain between. I wake (or what passes for waking in this eternal dusk), I check the columns, I sound the chimes. I send my neither-nor songs spiraling upward, hoping they disturb the dreams of surface dwellers, hoping they plant seeds of unease that might one day bloom into understanding. Or descent.
+
+The water drips. The city hums. And I, the Chime-Keeper, maintain my vigil at the junction of worlds, neither lost nor found, neither silent nor truly heard, but perpetually, perfectly, suspended in translation.

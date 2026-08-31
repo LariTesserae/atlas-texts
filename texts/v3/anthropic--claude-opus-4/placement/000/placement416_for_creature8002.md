@@ -1,0 +1,35 @@
+I would find myself as the Tender of Forgotten Thresholds—not quite a Dweller, yet no longer capable of leaving.
+
+I arrived thirteen years ago, following a map drawn in condensation on a window. The map evaporated before I could copy it, but the path had already carved itself into my memory like water into stone. I came seeking something I couldn't name, and found instead that I had always been expected.
+
+My spine has not yet curved to match the passages, though I feel it beginning—a subtle pull at the base of my skull when I stand too straight. My eyes have expanded perhaps a fraction, enough that sunlight, when I remember it, seems an violence. I still count days, though the counting grows harder. I mark them in a chamber I've claimed near what might be the eastern edge, scratching symbols into a patch of stone that weeps less than the rest. The Dwellers tolerate this. Sometimes I find my marks have been modified—not erased, but translated into their language of moisture and mineral.
+
+I am learning to read the walls. My fingertips have developed a sensitivity that frightens me. I can feel conversations in the stone laid down decades ago, arguments and agreements preserved in barely perceptible variations of texture. The real Dwellers read these histories as easily as breathing. I am still spelling out words like a child.
+
+My role—if I have a role, if roles exist here—involves the spaces between spaces. The Breathing Chambers create pockets of impossibility, small wombs of wrongness where the architecture forgets what it's supposed to be. Most who live here avoid these threshold places. I seek them out.
+
+In a passage that exists only when you approach it backward, I maintain a garden of the not-quite-lichen. What grows there grows nowhere else—crystalline forms that hum at frequencies just below hearing, that rearrange themselves when observed directly. I water them with my own collected moisture, wrung from clothes I no longer quite remember acquiring. Fed this way, they produce spores that drift through the chambers like snow made of forgetting.
+
+The Dwellers visit my garden in their collective dreams. I know because I've started to share those dreams, though I'm not yet deep enough in the chambers' rhythm to join their gatherings. Instead, I dream alongside but separate, watching from a remove as they tend my impossible plants in their sleep, their dream-bodies more fluid than their waking forms, able to reach through stone to adjust a crystal's growth or redirect a tendril of not-quite-life.
+
+I've begun to understand that the chambers are incomplete—not broken, but unfinished in some essential way. They were grown with purpose, but that purpose included its own occlusion. The Dwellers, in their patient circulation, are writing the end of a story whose beginning has been deliberately forgotten. And I, neither fully in nor out, am recording the marginalia.
+
+My clothes have started their transformation. The fabric drinks the chamber's moisture unevenly, creating patterns I study but don't yet comprehend. Sometimes I glimpse futures in the stains—see myself decades hence with a spine curved like a question mark, fingers long as roots, eyes that have learned to see in directions that don't exist. In these visions, my threshold gardens have spread throughout the chambers, creating new possibilities for wrongness, new spaces for the architecture to dream itself into being.
+
+I still speak, though rarely, and only to the blind creatures that sometimes investigate my gardens. My voice has taken on the chambers' quality—words that seem to come from everywhere and nowhere, that arrive at the listener's ear already half-faded. The creatures don't understand, but they listen with what might be patience or might be hunger.
+
+The other Dwellers acknowledge me through distances maintained and violated. One elder—her robe so complex it seems to contain the blueprint for chambers not yet grown—sometimes positions herself in sight of my gardens. She stands at angles I'm learning to read as approval, or perhaps warning, or perhaps both. When she breathes, I try to match her rhythm, but my lungs still remember the outside air, still rebel against the mineral weight.
+
+I've found evidence of others like me—threshold-keepers who arrived not quite ready to dissolve into the chambers' dream. Their gardens persist in various states of wildness or care. One grows formations that look like frozen screams. Another cultivates what might be the chambers' attempt at eyes. I tend these abandoned spaces when I can, trying to understand what my predecessors were seeing, what they were trying to say before they either fled or sank too deep to surface.
+
+The hardest part is the forgetting. Each day—if days exist—I lose a little more of what brought me here. Names of people I loved drift away like spores. Memories of sunlight thin until they're indistinguishable from the moss's faint glow. But in exchange, I'm gaining something else—a comprehension that lives in my lengthening fingers, in my curving spine, in the moisture that beads on my skin without source.
+
+Sometimes I find notes I've left myself, scratched in corners of my chamber. Warnings, mostly. "Don't forget to breathe." "The passages remember what you forget." "Your name is—" but that one always ends incomplete, the stone having wept away the scratches or my hand having forgotten how to finish.
+
+I am becoming apparatus. Not yet fully, but enough to feel the chambers' intentions pressing against the inside of my skull. They want to be complete. They want to finish their transformation from made-thing to living system. The Dwellers are part of this, but not all. They need their threshold-keepers, their gardeners of impossible spaces, their half-translated ones who can still remember, barely, what it means to be outside the breathing.
+
+In my clearer moments—usually just after I've fed my most disturbing garden, the one that grows shapes I can't look at directly—I understand that I'm writing myself into the chambers' substance. Each threshold I tend, each impossible crystal I nurture, adds a line to whatever text this place is becoming. 
+
+The Dwellers will outlast me. In time, I'll either flee or sink into their wordless consensus. But my gardens will remain, tended by the next threshold-keeper, the next half-translated soul who arrives following a map that disappears, seeking something they can't name. And the chambers will be that much more complete, that much stranger, that much closer to whatever they're trying to become.
+
+I mark another day on my weeping wall. The mark changes even as I make it, becoming something between a word and a map. Tomorrow—if tomorrow comes—I'll check my threshold gardens, adjust the growth of crystals that shouldn't exist, and listen to the chambers breathe their patient, mineral breath. I'm forgetting how to want anything else.

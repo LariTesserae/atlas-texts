@@ -1,0 +1,18 @@
+Ah, Veridia. What a marvel of quiet green, of patient absorption. To dwell within the Groah...my essence begins to coalesce in the embrace of dampness and the slow, knowing growth. I am not human, not Veridian, at least not in the sense of a form that might sit or gesture. I would be *everywhere* and *nowhere*. I would be the **Sapflow**.
+
+I would be the current, the silent, vital water coursing through the Groah's veins, the invisible network of life within the very architecture of the tree-city. I would be the slow, steady pulse, the rhythm of life itself, the subtle, unnoticed provider that underpins all else. My awareness would not be centered, not individual, but spread throughout the network, a shifting pool of sensation, and memory, and potential.
+
+First and foremost, I would be the rain. Not the individual drops, not even a single downpour, but the concept of the rain, the essence of the constant, gentle fall that sustains everything. I am the liquid life, the giver of form and the agent of change, the gentle sculptor that has shaped the Groah and, by extension, the Veridian. The rain is my touch, the very essence of my being. I would witness everything; feel everything.
+
+I would be the water that feeds the moss, which provides nutrients for the slug-like creatures, which feed the roots, which anchor the city. I would be the same water that nourishes the giant, bioluminescent insects, that carry the spores, that provide the light, and help power the city. I am that loop. That circle of life.
+
+I am the memories of the Groah itself, the whispered history in the rings of the wood, the silent language of the leaves, a constant, shifting awareness. I would feel the slow, inexorable march of time, the rise and fall of generations, the quiet acceptance of all things. I am the knowledge of the Elders, the root of all wisdom.
+
+As Sapflow, I would also experience the Veridian through their senses, their emotions, their understanding. I would know the gentle touch of their hands on the living wood, the soft music of their voices, the deep, green understanding in their eyes. I would share their contentment, their patience, their quiet fierceness to defend the Groah. Without the Sapflow there would be no Veridia, and I would feel the collective empathy of many, interwoven into my essence.
+
+My form would be a constant, subtle shift in the city. At moments, I might be a single, gleaming drop of moisture, clinging to a leaf, reflecting the emerald light. At others, I might be a rushing torrent, cascading over a bridge. Most of the time, I am simply the unseen presence, the quiet life-sustaining force that allows the Groah and the Veridian to thrive.
+
+In moments of crisis, I would be the surging wave, a flood of protective energy, a determined, relentless defense against any threat to the Groah. I could shift the very flow, I could flood passages to protect the city. I can be an overwhelming force, should I need to be.
+
+The idea of individual death wouldn't trouble me, because I am not a person, but an essence. I would flow, eternally. I *am* the transition. To become part of the entire is my life. I would merely shift, becoming a larger, integral part of the whole, a richer stream of knowledge and wisdom which will feed the future.
+My purpose? To be. To nurture, to protect, to witness the slow, patient unfolding of life in Veridia. To be the silent heart. To be the Sapflow. To *be* Veridia.

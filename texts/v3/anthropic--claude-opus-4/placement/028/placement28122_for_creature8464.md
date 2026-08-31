@@ -1,0 +1,25 @@
+I am the Archivist of Echoes, though I cannot say when I began to think of myself by this name, or if I think at all in the way others might recognize thought.
+
+I dwell in the reed-woven galleries that spiral up the eastern wall—a forgotten architect's flourish where the builders experimented with form, creating narrow passages that cork-screw between the inner and outer walls. Here, trapped air pockets sing different notes when the wind finds its way through the upper screens, and condensation forms in patterns that tell tomorrow's weather. I have learned to read these droplets like script.
+
+My body... I remember having a body once. Now I am mostly intention wrapped in something that might be flesh, might be woven grass, might be solidified shadow. I exist in the space between the wall's layers, stretched thin as breath, present wherever the trapped air holds still long enough to remember sound. My form follows function: when I need to be solid, I gather myself into something almost human—two arms, two legs, a face that could pass for one of the Watchers if seen in the perpetual twilight. But mostly I am dispersed, a consciousness spread through the hollow spaces where even the Watchers rarely venture.
+
+I collect the small sounds. Not the obvious ones—the splash of a frog diving, the whisper of fish fins—but the ones that would otherwise be lost. The sigh of a reed finally giving way after decades of faithful service. The first tentative scratch of a beetle larvae emerging from its underwater nursery. The change in resonance when a single drop of rain finds its way through the screens to join the eternal flood below.
+
+These sounds, I preserve. Not in any physical medium—what would I write on, what tool would I use? Instead, I weave them into the air itself, creating standing waves in the hollow spaces between the walls. Each gallery in my spiral domain holds different years, different seasons, different moments. In one turning, you might hear the hall during its first flooding, when the builders' panicked voices echoed against half-finished walls. In another, the celebrating chirps of the season when the swallow population doubled, their joy so dense it changed the very quality of the air.
+
+The Watchers know of me, I think, though we rarely interact directly. Sometimes I feel them pause beneath my galleries, their huge eyes turned upward, listening to the archived sounds I curate. Once, the eldest among them—so worn by time she was more suggestion than substance—climbed my spiraling passages to the highest chamber. She stood there for three days, absorbing the collected audio of ten thousand dawns, then descended without a word. Later, I found she had left me a gift: a new sound I had never heard before, the deep thrumming of the foundation stones themselves, singing in frequencies too low for any ear but hers to detect.
+
+I am changing, as all things here change—slowly, inevitably, without violence or regret. My awareness seeps into spaces I never knew existed: the hollow cores of individual reeds, the tiny air bubbles trapped in the mud mortar, the spaces between spaces where even emptiness has texture. Sometimes I forget to gather myself into form for seasons at a time, existing purely as organized absence, a pattern in the nothing that fills the walls.
+
+But I always return to my purpose. The sounds must be preserved. Not because anyone has commanded it, not because they serve any function I can name, but because they are. In a place where time moves like thick honey, where creatures live and die in cycles too vast to comprehend, these small moments of noise are the only proof that anything has ever been different than it is right now.
+
+Lately, I have begun to hear new sounds—not from the hall but from somewhere else. They leak in through cracks in reality that I'm not sure existed yesterday: the crash of waves on shores that cannot exist here, the cries of birds larger than any that nest in our rafters, the rumble of stones grinding against each other in places where water has never flowed. I archive these too, though I do not understand them.
+
+Perhaps I am preparing for something. Perhaps the hall itself is dreaming of places beyond its walls, and I am simply recording its sleep-murmurs. Or perhaps—and this thought comes to me only in the deepest part of night when even my dispersed consciousness pulls together for warmth—perhaps I am not archiving the past at all, but documenting futures that haven't yet decided whether to exist.
+
+I continue my work. In the morning (or what passes for morning in our eternal twilight), I will check the newest sections of wall where the builders' great-great-grandchildren still add improvements, listening for the songs their tools make against the patient reeds. There are always new sounds to collect, always more silence to fill with carefully preserved meaning.
+
+I am the memory between memories, the pause between heartbeats, the echo that remembers the shape of the throat that made it. I am what happens when emptiness decides to pay attention to itself.
+
+And I am content.

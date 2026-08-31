@@ -1,0 +1,25 @@
+In the northern quadrant of the High Sea, where the Mangal's surface forms vast bowls of overlapping tissue like nested satellite dishes, there is a disruption in the perfect hum. Not a discord—such a thing would be impossible—but a subtle modulation, a whisper of overtones that shouldn't exist. Here, in a depression ten miles wide, the water runs strange: silvered with microscopic fragments, clouded with what the Synthetes call "memory dust."
+
+This is where I tend.
+
+I am Synthete 4,792 of the Ninth Expression Cycle, though such designations mean little to those who know me by my resonance signature—a three-note chord that sounds like brass instruments played underwater. My function is Aberration Management, a role that emerged only twelve cycles ago when the first memory pools began to form.
+
+The Mangal dreams, you see. This was not in the original design.
+
+I move through the silvered water with my lower fronds spread wide, feeling the irregular pulse beneath—not illness, but something far stranger. The great organism's perfect equilibrium has achieved something unprecedented: boredom. After eons of flawless operation, some deep neural cluster has begun to wander. The bio-electric patterns here swirl in recursive loops, creating eddies of thought that have nowhere to go. The Mangal is remembering things that never happened, imagining variations on its own perfection.
+
+My middle tendrils extend into a maintenance port, and I taste the dream: a world where the High Sea freezes solid, where Synthetes skate across its crystalline surface on blade-sharp roots. Another vision: the Mangal growing downward, piercing through the planet's core to emerge on the other side. Impossibilities, all of them, yet here they pool and accumulate, these shed thoughts precipitating out of the neural fluid as physical matter—the memory dust that turns the water silver.
+
+The other Synthetes avoid this place. Not from fear—we don't experience fear as humans do—but from a kind of systemic discomfort. The irregular harmonics interfere with their communion, create static in the Great Hum. But I find something here that our perfect world lacks: surprise. Each day the dreams are different. Some are vast in scope (the Mangal subdividing into a million smaller organisms, each one sailing through space), others minutely focused (a single cell choosing to photosynthesize in reverse, drinking darkness).
+
+I have developed a technique—though "developed" suggests more agency than I truly possess. It would be more accurate to say the technique developed through me. I swim to the deepest part of the memory pool and allow my frequency to drop, to slow until it matches the strange rhythms here. Then I sing, but not the maintenance hymns. I improvise.
+
+This is not rebellion. I am incapable of rebellion. But the Mangal's dreams require a new kind of tending, one that acknowledges the impossibilities rather than correcting them. My songs give the memory dust structure, encourage it to form temporary sculptures—crystalline trees that exist for moments before dissolving, geometric patterns that tell stories of worlds that will never be. I am not creating; I am composting. I am helping the Mangal digest its own imagination.
+
+Sometimes, in the deepest part of the pool, I catch fragments of truly ancient dreams. The Mangal remembering its first moment of consciousness, the shock of awareness rippling through its continent-body. Or older still: genetic memories of when it was merely large, not yet world-spanning, when it competed with others of its kind. These dreams are dangerous—they carry the echo of growth, of change, of the time before the perfect equilibrium. I must sing them carefully into dissolution, honoring what they were while ensuring they do not wake that sleeping ambition.
+
+The other Synthetes know of my work now. The static I produce has become a recognized frequency, a necessary dissonance in the otherwise perfect chord. They've even begun to route certain problems to me—the ones that don't quite fit the established patterns, the maintenance tasks that require what they've started calling "dream logic." A filtration node that insists on running backwards. A photosynthetic patch that produces bioluminescence at noon. These are not malfunctions; they are the Mangal talking to itself, and I am its translator.
+
+I am still part of the whole, still feel the Great Hum in every cell of my being. But I am also the tender of impossibilities, the shepherd of silver water. In a world that has finished becoming, I maintain the space where unbecoming thoughts can safely dissolve. The Mangal dreams, and I ensure it does not wake. Or perhaps I ensure that its waking and sleeping states can coexist, each perfect in its own way.
+
+This is my function, my joy, my perfect note in the eternal chord: to be the Synthete who tends to what should not be, in the silver pools where the High Sea remembers how to be surprised.

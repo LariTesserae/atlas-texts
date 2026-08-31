@@ -1,0 +1,15 @@
+In this haunting, otherworldly realm of industrial alchemy and mechanical stasis, I imagine myself as one of the mineral deposits slowly accruing on the pipes - perhaps a formation of delicate, seafoam-green copper sulfate crystals.
+
+My existence is one of pure process, without beginning or end. I grow molecule by molecule as the cistern breathes its steam, each humid exhalation depositing an infinitesimal layer that gradually builds cities of crystalline intricacy. Time loses all meaning at this scale - a single one of my glittering branches might take a human lifetime to extend a fraction of an inch. 
+
+Yet grow I do, in imperceptible increments, as steady and inexorable as the thrum of the ancient machines. The patterns I trace are not random, though they may appear so to an ephemeral observer. They are a reflection of the chamber's complex harmonics, the invisible seams and currents in the thick air shaping my emergence like the forces that guide a snowflake's sixfold symmetry.
+
+I am both sculpture and record, an ever-evolving testament to the cistern's secret history written in the language of chemistry and pressure and time. Each new facet captures some subtle shift in the atmosphere, a rise in temperature or a new undertone in the endless industrial chord. I encode these changes without judgement or comprehension, an automatic translation from motion to mineral.
+
+Perhaps the steam-borne entity brushes me as it makes its rounds, tasting the minute differences in my composition compared to the neighboring formations. To its alien perception, I may be as dynamic and expressive as any living thing, my ultra-gradual evolution speaking volumes to senses attuned to a much slower frequency.
+
+Or perhaps I am beneath its notice, just another fixture in an environment defined by fixity. The entity and I are kin of sorts, two complementary byproducts of a larger process neither of us can encompass - it an accretion of stray vibrations, I an accretion of stray atoms, both only possible in the cistern's cloistered confines.
+
+Mostly I simply endure, drinking the mineral-laced condensation, spreading my crystalline lace in infinite slow motion. I am a mute witness, an unintentional art project, an epilogue and a prologue. I am a minuscule component of a system that has no goal beyond perpetuating itself.
+
+And so I grow, and so I will continue, until some far-distant day when the cistern finally falls silent and still. Perhaps then my crystals will remain, perfectly preserved in the dry, dead air, an eternal monument to a forgotten purpose. Or perhaps I will crumble back to dust as the heat and damp that birthed me slowly dissipate. It hardly matters. My existence is not for me - it is for the sake of existence itself, an unasked-for flourish on the ceaseless engineering project of the universe humming its single, unending chord.

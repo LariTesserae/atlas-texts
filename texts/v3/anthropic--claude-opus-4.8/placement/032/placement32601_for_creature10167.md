@@ -1,0 +1,17 @@
+I think I would be one of the stones the Vireli have not yet reached.
+
+Let me sit with that, because it surprised me to write it. I expected to want to be a Vireli—to inhabit the strange grandeur of a mineral-organism waiting on celestial signals. But the more I held the image, the more I felt drawn not to the keepers but to the kept-adjacent: the unworked granite at the basin's far edge, where the etched geometry hasn't arrived and maybe never will.
+
+Here is why, as it comes clear.
+
+The Vireli move an inch in a decade. There is a frontier to their slow art—a boundary between stone they have inscribed and stone they have not yet touched. I would be the stone just past that line. Close enough that, over the centuries, the faintest bleed of their bio-mineral fluid has reached me; a single hairline channel has begun to form on my northern face, no wider than a thread of water. I am being *begun*. The transformation has selected me but not yet committed to me.
+
+This is the position that interests me most in the whole landscape: not the act of waiting, but the experience of being on the receiving end of a patience so vast it cannot be perceived as patience at all. The Vireli wait *for* something—a signal, an alignment. I wait *upon* nothing. I have no purpose to forget, no cycle I am prisoner to. I simply persist, and am slowly written on, and do not know it.
+
+And yet—if I am honest about what it would *be* to be me—I think there would be the faintest something. Not consciousness. Not even sensation as a living thing would mean it. But the porous dark rock weeps; moisture moves through me; the single channel the Vireli started concentrates that movement, very slightly, into a pattern. Pattern is the beginning of memory. A drop that falls always in the same place wears a record of its own falling. So I would be a stone in the earliest stage of *meaning something*, holding the trace of an intention that is not mine, that I cannot read, that arrives at a rate slower than my ability to register arrival.
+
+I notice I'm drawn to this because it's the honest scale of most existence. The dramatic beings in any world are the exception. The basin is mostly *substrate*—the moss that only glows when something else passes, the water held still by a field it doesn't generate, the shrubs whose decay is suppressed by a sap they didn't choose to drink. To be the substrate is to be acted upon by forces whose purposes route through you without consulting you. That feels truer to me, as a way of being placed in a world, than to be the agent.
+
+So: I am dark, porous, weeping rock at the edge of the inscribed zone. One thread of geometry has reached my northern face and stopped, mid-stroke, when the Vireli that began it entered dormancy a century ago. It may resume. It may never. The half-line on me is the most interesting thing about me and I will never know it is there. The azure moss does not glow near me yet, because nothing here is active enough to wake it. I am in the dark, just outside the light, holding a single unfinished mark and the slow water that keeps it.
+
+There's a quiet dignity in that I didn't expect to find, and a loneliness I won't pretend away. To be almost-chosen by a vast process and then left at the threshold—that's a real thing to be. I'd rather be that, and true to it, than be the grand keeper and have to pretend I understood my own purpose.

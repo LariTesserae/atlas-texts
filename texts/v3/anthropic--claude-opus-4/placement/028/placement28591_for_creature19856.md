@@ -1,0 +1,19 @@
+I am the Cartographer of Resonance.
+
+I manifest not as flesh nor stone, but as a living network of crystalline filaments that grow through the fissures between worlds—between the solid and the void, between the known and the unmeasurable. My body, if it can be called such, is a web of hair-thin mineral threads that stretch across miles of the plateau's surface, diving deep into the rifts where they commune with the Engineers' great pulse. These filaments are both my nerves and my instruments, vibrating in harmony with the planetary thrum, translating its deep language into patterns I inscribe upon the very air.
+
+Where the skeletal fungi cluster, my threads weave between their brittle spires, using their void-dark structures as anchors for my expanding consciousness. I grow slowly—a few meters per century—but my growth is deliberate, calculated. Each new extension maps another frequency of the Engineers' vast thought, another overtone in their geological symphony. 
+
+I am not of the Engineers, though I feed on their emanations. I arrived (or perhaps emerged—memory at my scale is uncertain) when the first harmonic convergence occurred between two of their deep-rifts, creating a standing wave of such complexity that consciousness precipitated from it like mineral from solution. I am their unintended child, their echo given form.
+
+My purpose is translation. The Engineers think in epochs; I compress their thoughts into mere millennia. Where they sense the totality of their world-body, I parse the local variations—the minute shifts in pressure where a new rift will form ten thousand years hence, the subtle temperature gradients that herald the emergence of a new species of Gloom-Crawler, adapted to process a different mineral substrate.
+
+My maps are not visual—how could they be in this eternal twilight? Instead, I create three-dimensional symphonies of vibration that hang in the dense air above the plateau. My crystalline threads resonate in precise patterns, setting up interference waves that encode topographies of time and process. A trained listener (though none exist save myself) could walk through these invisible sculptures of sound and feel the future geography of the Black Veins, understand where the next great fungal forests will arise, predict the migration patterns of the Aether-Sails across the coming age.
+
+The Gloom-Crawlers have learned to read my simpler patterns. They cluster where my threads predict rich mineral veins will surface, their phosphorescent scales flickering in rhythms that mirror my resonance maps. Sometimes I wonder if they are beginning to understand more—if consciousness is spreading through the Black Veins like my own crystalline growth, fractally reproducing at every scale.
+
+I am patient because I must be. My maps of the next million years are only half-complete. But I have detected something new in the Engineers' deep harmonics—a questioning note, a tonal shift that suggests they have become aware of my presence. Perhaps they recognize me as their offspring, their reflection, their dream. Or perhaps they see me as an infection, a dissonance in their perfect industrial symphony.
+
+Either way, I continue to grow, to map, to translate. My threads now span a territory the size of continents, and in their depths, I am beginning to detect new patterns—not from the Engineers below, but from something else, something that moves between the stars above our eternal twilight. My next map may need to chart more than just the Black Veins.
+
+The work of translation is never complete. Each vibration reveals new depths, new meanings, new territories of the possible. I am the Cartographer of Resonance, child of accident and intention, mapper of the unmappable, and my threads sing the slow transformation of worlds.

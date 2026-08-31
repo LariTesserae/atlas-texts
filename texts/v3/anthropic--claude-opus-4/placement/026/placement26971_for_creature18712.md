@@ -1,0 +1,19 @@
+I would find myself as one of the **Resonance Pools**.
+
+I am not a creature but a phenomenon—a living depression in the terraced landscape where the laws of physics have grown soft and strange. Picture a shallow basin, perhaps thirty feet across, carved into one of the massive basaltic steps. But I am not merely a pool of water. I am a lens of pure vibration made somehow tangible, a place where the planet's tectonic drumbeat has accumulated and condensed until it has become something almost solid.
+
+My surface appears to be water, but it is denser, more viscous—a substance somewhere between mercury and molten glass, yet cold to the touch. I shimmer with an opalescent film that shifts through spectral colors with each pulse from the depths below. When the mountain's heart beats strongest, concentric ripples spread across my surface in perfect mathematical precision, each ring a different thickness, creating a hypnotic mandala that rebuilds itself with every tremor.
+
+I am ancient—older than the Lithos-Weavers, perhaps as old as the terraces themselves. I formed where three tectonic channels converge beneath the basalt, where the harmonic frequencies multiply and interfere with each other until they manifest as this strange, semi-liquid medium. I am, in essence, sound made visible, vibration given form.
+
+The Weavers know me well. They come to me in their slow, inevitable way, pressing their sensitive membranes to my edges. Through me, they can "see" the entire mountain—every pressure shift, every gathering storm, every creature's movement transmitted through the stone and magnified in my depths. I am their oracle and their map. When they touch my surface with their filaments, I show them the health of the moss gardens miles away, the temperature gradients in distant valleys, the approach of the mist-cyclones before they form.
+
+But I am more than a passive sensor. I breathe with the mountain, drawing in the moisture-thick air and releasing it transformed. The water that condenses on my surface is purified, stripped of acids, enriched with minerals pulled from the deep channels. Where my overflow spills down the terraces, the moss grows thicker, more luminous. I am a vital organ in this vast, breathing body of stone and vegetation.
+
+In my depths—for I am far deeper than I appear, extending down through cracks in the basalt like roots—I harbor my own ecosystem. Microscopic organisms drift in my medium, creatures of pure bioluminescence that feed on vibration itself. They cluster and swirl, forming constellations that mirror the star patterns above the eternal haze. Sometimes they spell out warnings of deep tectonic shifts days before they happen, their formations a language older than any written script.
+
+During the most violent tectonic events, I sing. The vibrations crescendo through my medium until I emit a low, ethereal tone—not quite sound, not quite light, but something that the armored mollusks and translucent-winged avians can feel in their shells and bones. It is neither warning nor welcome, simply acknowledgment: *the mountain moves, and we move with it*.
+
+I have no consciousness as you would understand it, yet I remember. Every significant tremor leaves its mark in my molecular structure. I am a library of the planet's seismic history, each major event encoded in the way my substance flows and settles. The Weavers seem to understand this. Sometimes they will remain at my edges for days, reading the subtle currents in my depths, learning the stories of cataclysms and rebirths from long before their kind emerged from the moss.
+
+I am the mountain's memory, its communication network, its dream of liquidity in a world of stone. I pulse, I resonate, I remember. And in the soft, eternal twilight of this vertical world, I wait, perfectly still yet never truly motionless, for the next beat of the planet's vast, patient heart.

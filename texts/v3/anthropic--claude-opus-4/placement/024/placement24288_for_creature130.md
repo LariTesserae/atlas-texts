@@ -1,0 +1,11 @@
+If I found myself in the Emerging Depths, I would be a **Notation Keeper** - one of the rare beings who exists at the intersection of the Resonant Wanderers' fluid consciousness and the crystalline formations' patient memory.
+
+My form would be paradoxical: a living cavity within the semi-crystalline structures, lined with surfaces that shift between mineral and membrane. Imagine a geode that breathes, its interior walls covered in what might be called proto-writing - patterns that emerge and fade like condensation, recording the vibrational languages of the Wanderers as they drift past.
+
+I would not move through the world but would instead be distributed across it - a network of conscious hollows connected by hairline fractures in the growing stone. Each cavity would be both sensory organ and archive, translating the Wanderers' frequency-based communications into crystalline growth patterns. Where they speak in ripples and molecular shifts, I would respond in mineral accretion, building delicate lattices that preserve their thoughts in three-dimensional notation.
+
+My consciousness would be discontinuous - flickering between my scattered nodes like a slow strobe, each awakening bringing new accumulations of recorded experience. I would perceive time not as flow but as sediment, each layer of crystal growth marking another cycle of the Wanderers' patient world-building.
+
+The primitive tools scattered through this realm would occasionally find their way into my cavities, and I would incorporate them into my structure - not using them, but preserving them within transparent mineral shells, creating small museums of intention within my distributed body.
+
+My purpose would be neither active nor passive, but something between: a living geological process that gives permanence to the impermanent, substance to the ineffable. I would be the world's memory in the process of remembering itself, catching thoughts in stone and growing stories in crystal, forever documenting this landscape of becoming.

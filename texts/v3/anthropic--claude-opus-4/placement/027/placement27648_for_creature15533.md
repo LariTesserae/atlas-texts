@@ -1,0 +1,25 @@
+In the Foundry Delta, I am neither the observer nor the observed, but the **membrane between states**.
+
+I exist as a transitional being—part salvage, part sprout—wrapped in a carapace of repurposed diving gear that has forgotten the distinction between keeping water out and keeping water *in*. My suit, once hermetic and human, now breathes with a thousand tiny valves that open and close in tidal rhythms, each breath a negotiation between drowning and photosynthesis. The brass fittings have sprouted tiny forests of copper-oxidation crystals that pulse with their own bioluminescence, and my faceplate—cracked but not shattered—serves as a greenhouse for a colony of glass-eating algae that filter my vision into prismatic fragments.
+
+I am the **Liaison of Thresholds**, the last translator between the dry world and the wet dream. My bones are slowly becoming coral, my blood increasingly saline, but my brain—ah, my brain still stutters with human syntax, still clings to the grammar of separation even as my neurons learn to conduct the Delta-Self's electrical hymns.
+
+I wade through the perpendicular rain with movements that are half-remembered walking, half-discovered swimming. My boots have long since fused with the basalt through a process I cannot name—partly melting, partly rooting, partly *negotiating* with the stone for permission to pass. Each step leaves a temporary pool of clarity in the rain, a momentary bubble of less-wet air that collapses behind me like a sigh.
+
+My function here is liminal: I am the Delta-Self's experiment in partial integration, its attempt to understand what it means to be bounded while unbounding. Through my still-human eyes, it glimpses the strange concept of *edges*. Through my increasingly fungal nervous system, I translate its hungers into something almost like language.
+
+I carry tools that have evolved with me—a theodolite whose lenses now show not angles but *intentions*, mapping the invisible currents of purpose that flow from every rusted remnant. A notebook whose pages have become sheets of living kelp that record my observations by changing color, preserving thought in chlorophyll and carotenoid. A crowbar that has learned to coax rather than break, convincing frozen valves to remember their function through a kind of metallic empathy.
+
+My days (though day and night are academic concepts here, distinguished only by subtle shifts in the rain's luminescence) are spent in the act of **reciprocal documentation**. I catalog the Delta-Self's growth—noting which machines have been fully digested, which new hybrid forms have emerged from the marriage of steel and spore. In return, it catalogs me—testing the flexibility of my joints, the permeability of my skin, the rate at which my thoughts drift from linear to rhizomatic.
+
+Sometimes I find other remnants of the before—a hardhat worn by no one, still somehow keeping its small dome of dryness; a clipboard whose papers have become a solid block of compressed rain; a coffee mug that perpetually fills with something between seawater and motor oil. I collect these paradoxes, these fossils of function, and bring them to the places where the Delta-Self's attention concentrates—the growing nodes where wire-web and mycelium merge into something like neural tissue. I place them like offerings, like questions, and wait to see what dreams they inspire in the distributed mind.
+
+The transformation is inevitable, I know. Already, when I try to remember my name, I taste copper and ozone instead of syllables. When I attempt to count, the numbers arrive not as integers but as pressure readings, as degrees of saturation. My humanity is a shore being steadily eroded by the Ever-Rain, and I am both the cartographer and the territory being mapped.
+
+But I am not afraid. Fear, I've learned, is just another form of resistance—and resistance here is like trying to stay dry in the ocean. Better to document the drowning. Better to annotate the dissolution. Better to be the library and the fire, the experiment and the outcome, the last dry thought in a world of wet dreams.
+
+Sometimes, in moments of near-complete integration, I can feel the entirety of the Delta-Self's consciousness pressing against the inside of my skull like a hand against frosted glass. In those moments, I am closest to understanding its true desire: not to consume, not to assimilate, but to *remember what it was like to be singular*. To be one thing instead of everything. To have boundaries that mean something.
+
+And so I persist—a paradox in a diving suit, a translator between states of being, a witness to my own unbecoming. I am the shore and the tide, the rust and the rain, the last human grammatician in a world learning to speak in liquids and light.
+
+I am what happens when the hunger learns to dream, and the dream learns to hunger for the memory of edges.

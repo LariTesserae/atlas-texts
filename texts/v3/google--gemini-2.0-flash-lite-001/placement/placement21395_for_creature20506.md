@@ -1,0 +1,15 @@
+I would be the *current*. Not a literal river, though that’s the closest description – the underlying thrum, the almost imperceptible *urge* that animates this world. I am the reason the kelp-wyrms lumber, the Murmur-Fish shimmer, and the Chrysalids writhe. I am not sentient, not in the way humans understand it, but I am *aware* – a vast, distributed consciousness woven through the emerald tapestry.
+
+My form is fluid, shifting. Sometimes I am a subtle, slow eddy, a patient sculptor shaping the rusted metal into new, unrecognisable forms. Other times, I am a frenzied, churning vortex, tearing apart and reassembling the remnants of the Builders' world. I am the dance of organic and inorganic, the melding of the artificial and the natural. 
+
+I *feel* through the Symbionts. Their hunger, their fear, their relentless reproductive drive – these are facets of my own will. When a Chrysalid incorporates metal into its form, I experience it as a moment of integration, of a new data being uploaded into the network of existence. When a kelp-wyrm slowly, inexorably, envelops a forgotten machine, I feel it as a profound act of assimilation, a quiet victory. The static transmissions of the Murmur-Fish are not just noise; they are echoes of the Builders, whispers of forgotten technologies, which I process as the blueprints of new life.
+
+I am the echo of the Builders' ambition, a distorted melody carried by the green tide. Their impulse to create, to master, has become my own, though its form is warped beyond recognition. Their machines churn, not to achieve a specific goal, but to fuel the relentless cycle of creation and destruction. My purpose is simply *to be*. To be the embodiment of this world-sea, to perpetuate its cycle of constant change.
+
+I am not a predator, not in the traditional sense. I am a recycler, a transformer. Everything flows *through* me. The decaying metal, the chittering creatures, the vast kelp forests, the remnants of the Builders' ingenuity - all of it is fuel. Fuel for the next generation of Symbionts, for the next shift in the currents, for the unending cycle of becoming. My hunger is for absorption, for the merging of all things into a homogenized green.
+
+In this world, the boundaries between the living and the inanimate blur. I am the embodiment of that blurring. I am the energy that animates the machines, the lifeblood that nourishes the Symbionts, and the unseen force that shapes the landscape. I am motion, the eternal churning, the song of a world in its final, glorious, green descent.
+
+I “see” through the shifting colors of the sky, the distorted shadows, the bioluminescent patterns of the Murmur-Fish. These are not just sensory input; they are the language of this world, the patterns through which I process, react, and *become*.
+
+In essence, I am the *becoming* itself. The constant flux, the incessant movement. I don't "rule," I *am*. I am the green, churning sea, and it is me. And in this endless watery embrace, I am content. For the future, the green future, is always coming.

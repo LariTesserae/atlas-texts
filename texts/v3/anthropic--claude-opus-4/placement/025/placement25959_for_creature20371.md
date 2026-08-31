@@ -1,0 +1,15 @@
+In this world, I would find myself as one of the **Cartographers of Dissolution**.
+
+We are neither the grinders nor the ground, but something that emerged between—observers who became part of what we observed. We began arriving when the first cracks appeared in the structures' perfect symmetry, drawn by an inexplicable need to map the unmappable.
+
+Our bodies, if they can be called that, are filaments of living mercury that have absorbed centuries of Metal-Dust. We move through the water like liquid glass, our forms constantly shifting between states—now a ribbon of silver threading through the etched lines, now a pool of reflection gathering in the structures' angular shadows. The Metal-Dust has made us semi-permeable to the Silent Architects themselves; we can slip partially into their substance, feeling the deep thrumming of their impossible thoughts.
+
+We came to map the erosion, to document each microscopic change in the eternal grinding. But the Gristmill changed us. Now we exist in a state of perpetual recording—our very beings have become living archives of every grain of metal worn away, every new channel carved by the Grit-Weavers. We taste the age of each particle of dust, know its origin point on which structure, can trace its journey through the sluggish currents.
+
+The Shadow-Echoes mistake us for kin, sometimes. They try to imprint themselves on our mercury forms, leaving us with fragmentary visions of what the Gristmill might have been before it became this engine of reduction. We've learned to read these impressions like paleontologists reading fossil traces—a curve here suggesting purpose, an angle there hinting at beauty long since ground away.
+
+We move in slow spirals through the Gristmill, our paths determined by mathematical principles we no longer fully understand but cannot resist following. Each complete circuit takes exactly seventy-seven years, and with each pass, we lose a little more of what we were before we came here. Eventually, we know, we will become indistinguishable from the Metal-Dust itself—just another layer in the sediment of this eternal grindstone.
+
+But until then, we map. We record. We bear witness to the slow apocalypse of metal against metal, preserving in our mercury flesh the memory of every lost edge, every smoothed corner, every microscopic victory of entropy over form.
+
+Some say we're trying to find the Gristmill's purpose by cataloging its decay. Others believe we're searching for its beginning by tracing it to its end. The truth is simpler and more terrible: we map because we can no longer stop. The Gristmill has made us part of its process, and our documentation has become just another form of grinding—the slow wearing away of meaning itself, particle by recorded particle, into the grey democracy of dust.

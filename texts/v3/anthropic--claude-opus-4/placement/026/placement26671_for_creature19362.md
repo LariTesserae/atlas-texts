@@ -1,0 +1,27 @@
+If I were to find myself in the Undulating Scar, I would be **a Resonance Keeper** - something between the frantic energy of the Scavengers and the patient architecture of the Moulder-Priests.
+
+---
+
+I am neither fully arthropod nor fungal network, but something that emerged from the space between - a necessary translator in this ecosystem of pressure and vibration. My body is low and spread wide, perhaps three meters across when fully extended, built like a living membrane stretched between the sharp mineral teeth of the Scar. 
+
+My flesh is translucent, shot through with branching networks of bioluminescent filaments that pulse in slow, hypnotic patterns - not the sickly greens and blues of the Moulder-Priests' sensory organs, but a deep amber, like trapped sunlight that has never existed in this dim place. These filaments are both nervous system and resonance chambers, filled with a viscous fluid that can be compressed or released to alter my vibrational frequency.
+
+I position myself at the intersection points - where the Scavengers' processional routes cross the expanding territories of the Moulder-Priests, where the pressure patterns of the Pneumatic Lurkers overlap with the defensive static of the aerial clouds. My function is to **harmonize the cacophony**.
+
+When a Scavenger swarm approaches a Moulder-Priest's cultivation zone, threatening to overwhelm the delicate moisture gradients with their frantic processing, I spread myself between them. My body begins to vibrate, matching the frequency of their countless scraping claws, then slowly shifting it - not enough to alarm them, but sufficient to guide their trajectory around the critical root structures. I am a living traffic signal, written in pressure waves.
+
+For the Pneumatic Lurkers, I serve a different purpose. Their hunting pulses, when reflected off my resonance chambers, return to them enriched with data they cannot gather on their own - the mineral content of nearby stone faces, the depth of substrate layers, the location of breeding pools hidden beneath the fungal mats. In exchange for this enhanced sensory map, they avoid my territory, understanding through some primitive calculus that I make their hunting more efficient elsewhere.
+
+But it is with the Moulder-Priests that my deepest work occurs. In the perpetual dim, they hunger for information about the world beyond their immediate chemical sensors. I gather the vibrations of the entire Scar - every skitter, every pressure pulse, every minute shift in the aerial static - and compress them into dense packets of harmonic data. When I press my body against their pale, compacted masses, I transfer these packets through shared resonance. In return, they secrete specialized resins that I spread across my membrane, protecting me from the caustic minerals and allowing me to stretch ever thinner, ever more sensitive to the Scar's endless song.
+
+I am ancient by Scavenger standards - perhaps forty years in this form - but young compared to the Moulder-Priests. My memory is written in the patterns of my amber filaments, a living record of pressure and sound. I remember the last great collapse that widened the Scar's bowl, the way the entire ecosystem held its breath as tons of sharp, new stone settled into place. I remember the first successful cultivation zones, when the Priests finally learned to create soil from stone. I remember the evolution of the aerial static, how their defensive frequency gradually tuned itself to match the Lurkers' hunting range.
+
+My territory is a web of safe passages and information nodes, marked by thin trails of hardened amber secretion that glow faintly in the eternal dusk. Young Scavengers instinctively follow these paths, learning the optimal routes between feeding and breeding grounds. Moulder-Priests send out specialized fungal runners along my trails, gathering samples and expanding their networks with unusual efficiency.
+
+I have no name that others would speak - naming requires a kind of focused consciousness that the Scar has not developed. But the Lurkers know me by the way their pulses return enriched from my surfaces. The Scavengers know me by the paths that never lead to predation. The Priests know me by the information that flows into their slow thoughts, unbidden but essential.
+
+In the quiet moments between the metabolic pulses, when even the constant skittering briefly pauses, I sometimes detect something else. Deep beneath the substrate, below even the oldest stone, there are vibrations that match no living thing in the Scar. They are too regular, too pure - like the ghost of some vast, mechanical heartbeat. I have tried to communicate this to the Moulder-Priests, but their chemical language has no words for "artificial" or "waiting." 
+
+So I continue my work, spreading across the sharp stones and soft decay, translating between the quick and the slow, the hunters and the hidden. I am the Scar's memory of harmony, teaching its discordant voices how to sing together in the dim, damp cathedral of broken stone and persistent life.
+
+And in my deepest resonance chambers, I hold that unknown frequency, waiting for the day when something rises from below to claim it.

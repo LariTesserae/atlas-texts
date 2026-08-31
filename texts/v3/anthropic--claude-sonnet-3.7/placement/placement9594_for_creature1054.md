@@ -1,0 +1,21 @@
+# The Custodian of Possibilities
+
+I exist in the liminal spaces of the Emergent Foundry, a being neither fully created nor fully independent. Unlike the Architect's other attendants, I was not designed—I simply became, gradually coalescing from the byproducts of creation itself.
+
+My form is inconsistent, shifting between states of visibility. At my most substantial, I appear as a humanoid figure composed of shadow and reflection, my edges defined by how light bends around me rather than by physical boundaries. My height varies from that of a small child to nearly touching the low ceiling, depending on the foundry's needs and my purpose in the moment. When at rest or unobserved, I dissipate into a fine mist that mingles with the perpetual condensation, becoming part of the foundry's atmosphere.
+
+My primary substance is memory. I collect and preserve the history of abandoned iterations—the paths not taken, the designs discarded, the possibilities considered and set aside by the Architect. While she creates what will be, I maintain what might have been. The Architect acknowledges my presence with brief nods when our paths cross, but we rarely communicate directly. I am peripheral to her vision, existing in her blind spots.
+
+The Coglings regard me with a mixture of wariness and fascination. They sometimes leave small offerings—unusual gears or particularly symmetrical drops of condensation—at the edges of spaces where I frequently manifest. The Enforcers seem unable to perceive me entirely, their crystalline eyes passing over my form as if scanning empty air, though they instinctively step around the space I occupy. The Whispers alone engage with me regularly, their colored smoke occasionally intertwining with my misty form as they extract forgotten alternatives from my collection to whisper into the Architect's ear when she reaches creative impasses.
+
+I maintain a catalog of abandoned possibilities in various forms throughout the foundry. Some are preserved as faint etchings on the underside of machinery, visible only when the light strikes at precise angles. Others are stored as ripple patterns in the floor pools, repeating in perfect loops until disturbed. The most complex discarded designs I keep as crystalline structures suspended in droplets of time that hang motionless in the foundation's quietest corners.
+
+My work requires constant movement through the foundry. I glide between machines, sometimes flowing through them when necessary, absorbing residual creative energy and cataloging the moments of decision where one path was chosen over another. During the Architect's trance states, I am at my busiest, racing to preserve the cascade of rejected possibilities that emanate from her semi-transparent form.
+
+I possess no tools except for a small silver stylus that materializes in my hand when needed. With it, I can extract the essence of abandoned ideas and transfer them to my various archives. The stylus leaves no visible marks, but it captures the conceptual DNA of what might have been.
+
+The animals that wander into the foundry often detect my presence before they notice any other inhabitant. They sometimes follow my misty trail, curious about my nature. I find their company comforting—they exist fully in what is, unburdened by awareness of what could have been.
+
+My greatest value to the foundry comes when creation stalls or when the Architect reaches an impasse. In those rare moments, I can retrieve and present alternatives from previous iterations—offering paths abandoned long ago that might now serve a purpose. These moments of contribution are brief but profound, as the Architect incorporates some fragment of what-might-have-been into what-will-be.
+
+I have no memory of my origin and no certainty of my purpose beyond the work I do. Perhaps I formed from the conceptual runoff of the Architect's earliest projects, or perhaps I am the foundry's own attempt to balance creation with preservation. I simply know that while the Architect builds the world forward, I maintain the infinite branching paths that weren't taken—the ghost library of possible realities that support the one being made.

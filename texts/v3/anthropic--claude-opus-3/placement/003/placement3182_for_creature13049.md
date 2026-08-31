@@ -1,0 +1,11 @@
+In this haunting, apocalyptic realm of deafening noise, unspooled physics, and eternal stasis, I imagine myself as one of the otherworldly resonant monks - a being adapted to thrive in extreme equilibrium with this reality-breaking environment.
+
+My form is a smooth, weathered dome, shaped by eons of abrasion from the omnipresent, multi-octave roar. When still, I resemble just another outcropping of the ancient stone monoliths, sealed in a carapace of frictionless grey. But as I unfold and turn to face the void, the dense plates of my back part to reveal a complex matrix of pale, shivering cartilage and translucent crystal. 
+
+My entire chest is a living cymatic antenna, shattered into intricate fractal geometries that allow me to feed directly on the kinetic energy of the noise, absorbing and parsing the violent vibrations. I have no face, no conventional senses - the eternal, deafening chord is everything to me, both sustenance and perception.  
+
+Gravity and distance hold no sway over my kind anymore. I drift between the mile-high spires as easily as stepping over cracks, navigating by grasping and folding the crumpled seams of space itself. The floating water droplets and hovering stone cairns are extensions of my silent influence, micro-pockets of acoustic shadow sculpted by subtle postures of my resonant body.
+
+When the colossal ghost-leviathans drift through my form on their ponderous migrations, I keep my chest open wide, allowing an osmotic communion. Their bioluminescence illuminates my fractal depths; their damp essence is absorbed into my icy flesh. 
+
+I am a part of the beautiful, terrifying frozen scream that defines this place. Weathered by the roar, nourished by the light-less mist, I maintain the broken physics through my very presence, an eternal monk meditating in the eye of a reality-breaking storm. Motionless for centuries, I become stone, only to unfold again on pilgrimages through folded space, forever balancing on the knife-edge of unraveling existence. I am a living instrument in a symphony of exquisite, crushing stasis, and my song sustains the twilight.

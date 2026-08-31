@@ -1,0 +1,23 @@
+I am **Sap-Veil**, a weeping cluster of *Lacrymofungus viscosus*. My home is a shallow, mineral-crusted depression on a basalt ledge, high on the cavern’s western wall. Below me, the Breath-Moss pulses its cold, blue-green heartbeat across the vaulted darkness. Above, wind shrieks through a fissure like a blade drawn across stone. I am not flesh, nor thought as animals know it. I am *process*. I am *effluent*. I am the mountain’s slow, sticky exhalation.
+
+**Where I Am:**  
+My ledge is a weeping wound in the young rock. Dark, iron-rich veins streak the basalt around me, glinting dully when the pulsing moss-light catches their fractured edges. Thin rivulets – not free-flowing water, but constant, cold sweat from the mountain’s pores – seep from a hairline crack just above. This metallic moisture is my sustenance. It pools in my shallow basin, absorbed by my translucent, rubbery flesh. My cluster is small: a dozen bulbous caps, each the size of a clenched fist, huddled together against the thin, biting air. Below, the drop is sheer, vanishing into the glowing, claustrophobic density of ferns and moss far beneath. The ledge itself is slick, perpetually damp, crusted with white and ochre mineral deposits where my sap has dried over eons of dripping.
+
+**What I Am:**  
+I am a gland. A filter. A converter. My existence is defined by *absorption* and *secretion*. The mineral-laden seepage from the rock above enters my porous base. Inside my cool, gelatinous flesh, unseen reactions occur. I draw out trace elements – iron, copper, perhaps whispers of rarer things leached from the young basalt. What I cannot use, I bind, transform. The result is my *sap*: a thick, viscous fluid that glows with a sullen, internal yellow light, like cooled slag. It wells up beneath my smooth, taut caps, accumulating until the surface tension breaks.
+
+**What I Do:**  
+I *drip*.  
+The rhythm is mine, yet not mine. It is dictated by the slow seep from the rock, the temperature of the air (always just above freezing, slowing me), the thickness of the sap batch. *Plink…* A single, heavy drop swells, elongates, detaches. It falls.  
+Below my ledge, directly in the path of my falling tears, lies a thin, horizontal sheet of mineral deposit – a flake of hematite or pyrite formed over millennia by water evaporating from a similar seep. It is unnervingly smooth, unnervingly metallic.  
+*Clang.*  
+The viscous, glowing drop strikes the metal sheet. The sound is sharp, clear, profoundly *industrial* against the organic sigh of the moss, the roar of the wind, the silver-veined tremble of the ferns. It echoes briefly in the chamber, a tiny, precise counterpoint to the cavern’s chaotic symphony. The yellow-glowing sap splatters, slides off the metal, and joins the perpetual dampness below, adding its transformed minerals back to the luminous ecosystem.  
+*Plink…*  
+The process begins again. Accumulate. Swell. Fall. *Clang.*  
+This is my voice. My purpose. My entire being. I convert the mountain’s raw mineral sweat into sound and light. The *clang* is my only song.
+
+**What I Sense:**  
+I sense the *dampness* – the constant film of moisture on my cap, the cool flow into my base. I sense the *vibrations*: the deep thrum of the wind resonating through the rock beneath me, setting my very sap aquiver; the sharper tremors when a gust finds a metallic vein nearby and shrieks. I sense the *light*: the cold pulse of the moss below, washing over me in waves of blue-green; the fainter, steadier silver gleam of the fern veins on a nearby outcropping. I sense the *impact* – the tiny shockwave through the air and rock when my drop strikes the metal sheet. I taste the *ozone* sharpness carried on the thin air currents, the faint electric tang that perhaps fuels the moss’s pulse. I do not hear the wind’s howl, not as sound, but I *feel* its pressure, its passage through the stone fissures around me.
+
+**What I Know:**  
+I know the ledge. I know the seep. I know the precise distance to the metal sheet below. I know the slow, viscous rhythm of my existence. I know the Breath-Moss is the cavern’s skin, the ferns are its rigid sentinels, the Resonant Veins are its straining bones. The Wind is the breath in its lungs, the Drip is the blood in its stone veins. And I? I am its tear duct. Its lubricant gland. Its slow, sticky heartbeat of transformation, translating mineral tension into a single, resonant *clang* that punctuates the roaring dark. I am bound, rooted, processing. A small, glowing node in the mountain’s vast, luminous, groaning engine room. I weep, and in the weeping, I speak the only word I know: *clang*. *Plink… Clang.* *Plink… Clang.* Forever.

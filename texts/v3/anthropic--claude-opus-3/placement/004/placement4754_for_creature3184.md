@@ -1,0 +1,9 @@
+In this underground world, I would be one of the small moths - the ones that have adapted most fully to this strange, dim habitat. My wings would be pale and nearly translucent, my body the size of a grain of rice. Rather than circling the harsh work lights to my doom like some of my kin, I would keep to the moist sediment of the floor, walking more than flying on my delicate, elongated legs.
+
+This cistern chamber is the only world I would know. The algal films and bacterial mats growing in the calcium-rich ooze would be my food, and I would pick my way carefully across this subterranean landscape, my sail-like wings held upright over my back. 
+
+Generation after generation, my kind would live out our entire life cycles in this oddly lit, geothermally heated terrarium. Gradually, incrementally, we would become more specialized - our eyes shrinking as vision became less necessary, our wings diminishing since there is nowhere to fly to anyway. We would be ghosts drifting over the wet stone, paler even than the toad who reigns beneath the workbench.
+
+Ours would be an ephemeral existence, far removed from the concerns of the outside world and the sporadic visits of the worker whose actions unknowingly sustain our ecosystem. As individuals we would barely register, but as a species, we would be woven inextricably into the fabric of this hidden place - our fragile bodies becoming part of the living rock itself, our fallen wings creating a stratigraphic record of our presence here in humanity's industrial basement.
+
+This is the niche I would occupy - a flyspeck more geology than zoology, a mote of life wholly shaped by and integral to this strangest of urban caverns, this unintentional vivarium. I would be the quintessence of the cistern works' unique evolutionary crucible - small, spectral, and superbly adapted to an environment that the city never planned to create, but which has become a world unto itself.

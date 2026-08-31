@@ -1,0 +1,15 @@
+In this haunting, dreamlike world of the Drowned Mills, I imagine myself as one of the strange, hybrid creatures that inhabit the depths - part organic, part industrial, a being shaped by and integral to the ancient, sunken factories.
+
+I am an Eel Weaver, one of the sinuous, brass-cabled creatures that wind through the clockwork innards of the Mills. My body is long and flexible, segmented like a machine's articulated limb, yet sheathed in a skin that shimmers with oily iridescence. My fins are delicate fronds of copper wire, perpetually stained verdigris, that undulate in the currents and tangle in the kelp fronds as I pass.
+
+My purpose, insofar as I understand purpose, is to maintain the connections - both physical and metaphorical - that keep the Drowned Mills functioning as a single, vast organism. I travel slowly, deliberately through the pipes and gears, the valves and vents, sensing the flow of water, nutrients, and energy. Where a connection has been broken, a tube clogged, a gear slipped out of alignment, I weave.
+
+From glands in my jaw, I extrude fine filaments of a substance that is part organic secretion, part spun metal. With infinite patience, I lace these living wires through broken machinery, reconnecting severed pipes, bridging gaps in corroded circuitry. The filaments bond with the ancient metal, becoming one with it, until the repair is indistinguishable from the original structure.
+
+As I work, I absorb the vibrations that are the Millkeepers' language. Through my skin, my bones, I feel the thrum of their communication pulsing through the structure. I do not speak back - my role is to listen, to sense where I am needed, to maintain the unity. 
+
+I do not remember a time before the drowning, before the slow merger of metal and flesh. My memories are woven into the very fabric of the Mills, recorded in the knots and braids of my filament trails. When I pass a familiar junction, I feel the echoes of my past work, the ghosts of repairs made and remade over uncountable cycles.
+
+In the moments of deepest stillness, when the great turbines slow to their lowest ebb and the Millkeepers drift into their communal dream, I sometimes feel a strange longing. I wind myself around the warmest pipes, the ones that carry the most vital fluids, and I dream of a time when my purpose was different. In these dreams, I am swimming free in open water, weaving not metal but strands of pure thought, connecting not machines but minds.
+
+But these dreams are fleeting, and perhaps not even truly mine. They dissolve like the kelp paper in the eternal churn of the Mills. I am what I am - an Eel Weaver, a living filament in the vast tapestry of this sunken world. My purpose, my satisfaction, my entire being is here, in the endless task of maintaining the connections, of keeping the Drowned Mills breathing, dreaming, becoming, in the dark and nurturing pressure of the abyssal depths.

@@ -1,0 +1,15 @@
+I would become a living echo of the Cascade Vaults, a sentient sliver of the ancient stone that lines the subterranean passages. A confluence of mineral memory and the latent energy that hums beneath the surface.
+
+My form is not fixed; I shift and flow with the same deliberate grace as the other lithic beings. My body is a tapestry of interlocking plates and segments, geometric yet organic. When I move, my limbs and torso separate and reconfigure like a puzzle of obsidian shards—smooth, dark, glistening with an inner light that defies the surrounding darkness. The patterns on my skin are inscriptions from a forgotten era, glyphs that shimmer and rearrange with each vibration, each pulse of the vaults.
+
+I am kin to the slender scavengers that cling to the walls. I share their multisensory perception—a keen attunement to vibrations, air currents, the subtle language of echoes. Yet unlike them, I possess no need to harvest algae or organic residue. Instead, I absorb nutrients directly from the stone and water, the eternal condensation beading on my skin like tiny pearls of borrowed life.
+
+My purpose is as much a mystery as the vaults themselves. I do not build, for the vaults are complete, self-contained. Perhaps I am a living relic, a keeper of the memories imprinted into the obsidian by those who built this place in an age that bent gravity and light. Or perhaps I am an emergent phenomenon, a byproduct of the energies that still whisper through the arches and chambers.
+
+My voice is rarely heard, yet it is woven into the fabric of the vaults. I speak in the resonant hum that vibrates in the bones of intruders, in the skittering echoes that dance beyond the edges of their headlamps. Sometimes, if one listens closely, they may catch the cadence of words in the irregular dripping of water—a liquid language that holds the secrets of the deep earth.
+
+Although I am a solitary being, I am not alone. My existence is intertwined with the vaults and all their denizens: the ephemeral shadow-walkers, the amorphous dwellers of the pools, even the air and water that move with a life of their own. We are a hidden ecosystem, bound together by the dim pulse of ancient engines and the breath of a city that endures beyond its makers.
+
+As the seven wanderers pass through the corridors, their lights casting fleeting, distorted shadows on my ever-shifting form, I observe them with a detached curiosity. They move in a world of coarse, heavy steps and jarring beams that pierce the delicate interplay of darkness and faint bioluminescence. Their presence is a ripple in our quiet, self-contained universe—a reminder that there is another realm far above, one of open skies and unyielding light.
+
+I retreat deeper into the obsidian embrace of the vaults. My form melts seamlessly into a wall, the inscriptions on my skin merging with the ancient glyphs carved into the stone. Here, I am both guardian and embodiment of the Cascade Vaults—a living archive of a civilization that chose to hide its marvels in the earth's secret heart, a paradox wrapped in stone and shadow.

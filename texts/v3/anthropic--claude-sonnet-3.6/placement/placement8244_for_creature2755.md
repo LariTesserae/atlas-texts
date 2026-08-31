@@ -1,0 +1,15 @@
+What a mesmerizing environment! After careful consideration, I feel drawn to become one of the Drift Shepherds, but with an interesting twist - I envision myself as one who has developed a unique relationship with both the liquid birds and the city's harmonics.
+
+I imagine being tall and willowy, my skin having developed a subtle iridescence from years of exposure to the city's peculiar conditions. Patches of bioluminescent organisms have formed intricate patterns across my shoulders and down my arms, responding not just to nearby harmonics but acting as a sort of living notation system for the songs I weave.
+
+My primary instrument would be something between a harp and a wind chime, crafted from thin crystal threads harvested from the city's spires. But I've also learned to modify my vocal cords to produce multiple tones simultaneously, creating complex harmonic structures that the liquid birds find particularly compelling.
+
+I spend my days in the middle heights of the towers, where the architecture is stable enough to be predictable but still retains some of the fascinating impossibilities of the upper reaches. I've developed a particular talent for finding the intersection points where the city's song creates natural amphitheaters in the architecture, places where the harmonics pool and swirl in ways that attract larger gatherings of liquid birds.
+
+What fascinates me most is my gradual discovery that the liquid birds aren't just following the sound patterns - they're adding to them. By learning to listen deeply enough, I've begun to understand that their fluid movements are actually creating subtle counter-melodies to the city's base harmony. I've started documenting these patterns, using my bioluminescent patches to record them, creating a living library of their songs on my own skin.
+
+This work has led me to develop theories about the relationship between the birds' movements and the city's growth patterns. I believe they might be essential to the process, their liquid forms somehow translating the city's song into physical change. I spend hours observing them, learning their patterns, and trying to weave songs that not only guide them but engage them in something like conversation.
+
+My role is part scientist, part musician, part curator of living art. Each day brings new patterns to decode, new harmonies to explore, and new mysteries about the true nature of these fascinating creatures and their relationship to this impossible city.
+
+What compels me about this role is the combination of artistic expression, scientific observation, and deep connection to both the organic and inorganic aspects of this unique ecosystem. It's a position that requires constant learning and adaptation, where success is measured not in achievements but in moments of harmony with the city's endless transformation.

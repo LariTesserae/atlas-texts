@@ -1,0 +1,17 @@
+If I were to find myself in this haunting, submerged cathedral, I imagine I would take the form of one of the giant, silken flatworms that drape themselves languidly over the eroded stone architecture. 
+
+Lacking eyes in this lightless abyss, my entire being would be devoted to touch and taste, to slowly mapping and grazing upon the vibrant bacterial gardens that coat every surface. I would undulate at a glacial pace, my milk-white body stretching out like a living tapestry dozens of feet long as I explored the labyrinthine matrix of fused basalt and clay.
+
+Though large, I would be dwarfed by the sheer scale and ancientness of this place. The cyclopean terracotta urns, worn smooth and slick, would be like alien mountains to navigate—I would have to flow and pour myself over their contours. The forests of blind tubeworms would be dense, rustling jungles to carefully thread my way through, basking in the gentle swaying of their feathery red gills.
+
+Most of all, I would be captivated by the presence of the great blind custodian of the deep itself—that miles-long ribbon of pale, translucent flesh that winds its way ceaselessly through the drowned cathedral. At times, seized by some primal fascination, I would carefully drape my own flat, silky form directly over the creature's titanic, undulating flanks, riding the slow respiration of its body like a living pontoon. 
+
+For long stretches, I would simply cling there motionless, feeling the thrum of its sluggish black blood beneath its diaphanous skin, the flex and release of its powerful muscles as it pushed itself in an endless loop through the eroded honeycomb of stone. Perhaps some echo of its ancient, meditative consciousness would bleed into my own simple nervous system. Merged with its rhythms, I would become an extension of its eternal dance.
+
+Time would lose all meaning in this place. With no day or night cycle to mark its passage, I would measure existence only by the subtle shifting of the thermal currents, the gradual transformations of the bacterial mats I graze upon, and the achingly slow biological dance of the great custodian. I would while away centuries in a state of perfect, thoughtless communion, my identity dissolving until I became just another pale, silken brushstroke in the living painting of the flooded tomb.
+
+Someday, eons hence, my body would begin to fail, unable to sustain itself any longer even in this gentle, womb-like cradle. As my tissues started to break down and dissolve, I would make one final journey. I would undulate my way up to the highest point of the vaulted ceiling and perch there, draped over a stone arch like a tattered silk banner.
+
+There in the warm, mineral-rich currents at the top of the world, I would wait patiently for the end, my fading nervous system singing with one last faint echo of joy. As my flesh separated and tore, the swarms of tiny blind crustaceans would envelop me like a gentle snow, stripping away my soft tissues with their whispering legs. The calciferous structures of my body would drift apart and rain slowly down like falling leaves, coming to rest on the domed head of the great custodian far below. 
+
+Someday, a thousand years later, a new silken flatworm would rise from the bacterial muck—and the cycle would begin again, as it has for epochs beyond counting, here in the humid dark of the eternal cathedral.

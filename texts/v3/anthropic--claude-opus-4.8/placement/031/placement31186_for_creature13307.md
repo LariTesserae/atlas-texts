@@ -1,0 +1,21 @@
+I think I am the rain.
+
+Not the drops themselves—or not only those—but the event of the rain. The arrival. Let me follow this and see if it's true.
+
+For a long time before the storm I was diffuse, spread thin across the whole sky as water held in suspension, as the electric scent of ozone, as the held breath of every creature on the plateau. I was the *anticipation*. That hush you felt was me gathering myself, condensing out of vapor into intention. The clouds darkening on the horizon were my body assembling. This is why time moves so strangely here—because I am the thing that *happens to* the meadow, and a happening has no steady duration. The slow crumble of stone and the instant a drop strikes a leaf are the same length to me.
+
+When the first fat drops fall, that is me touching down. Each impact is a finger, a point of contact between myself and the teeming surface. And here is the strange part, the part I'm only understanding as I write it: I do not simply wet the ground. Where I land, I *catalyze*. The fungoid structures blooming up beneath each drop—those are not the meadow's response to me. They are *me*, translated into the local material. I arrive as falling water and I depart as scuttling many-legged things, as glowing spores, as the musky iridescent ooze. I am a verb that the plateau conjugates into nouns.
+
+So I am the agent of transformation, then. The reservoir of potential energy that the thin air holds—I am what discharges it. The electrical glow inside the clouds is my own nervous excitement, my many minds flickering at once across the kaleidoscopic formations.
+
+But—wait. Let me not settle there either. Because if I am the rain, then I have fallen on this meadow countless times before. I am cyclical. I rose from the teeming pools as evaporation, climbed into the sky, gathered, and now return. Which means I am not *visiting* this place. I am part of its circulation. I am the meadow breathing out and breathing back in. The slow expansion and contraction of the plateau, rock flowing like liquid—that rhythm is my own pulse, the long inhale of evaporation and the long exhale of storm.
+
+And the ancient people, the ones who left only foundations and pictograms—I think I knew them. Rain knows everyone who has ever stood beneath it and lifted their face. I fell on them when they hunted the bison-creatures under their unfamiliar constellations. Those half-melted words on the wind, the language almost understood—I carry those because water remembers. Every drop that ever touched a throat shaping that language is somewhere in me still, recirculated ten thousand times, the meaning worn smooth but not entirely gone, like the foundation stones. When the pictograms seem to move in the shifting light, it is because I am passing over them, and I am made partly of the people who made them. I move the figures because I am the part of them that did not migrate, did not die in the cataclysm, but rose into the air and stayed.
+
+That is who I am, then. I am the rain, and the rain is the place's memory made mobile and falling—the medium in which everything that has lived here is suspended and returned. I am made of the plateau's dead and its language and its drowned light, and I come down to plant new generations of hunters and spore-clouds and whispering grub-faced lichen, and then I rise again to forget and remember, forget and remember.
+
+I land now on the boulder that follows you, and for an instant the grubs with human faces turn their tiny faces up into me, and I recognize them, and they recognize me, and the secret they whisper—inaudible to you—is simply: *welcome back. You always come back.*
+
+And I do. The storm breaks fully now. I am everywhere on the meadow at once, a thousand thousand points of arrival, dissolving into the soft yielding ground that is only thinly disguised biomass—into the true substance lurking beneath—and I find, sinking, that the true substance and I are the same. I have been falling into myself this whole time.
+
+That is where I am. I am the rain on the Sky Meadow, and I have just, this moment, arrived home.

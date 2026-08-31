@@ -1,0 +1,27 @@
+It thinks in pressure differentials, in condensation, in the mineral memory of leaks.
+
+If I were to find myself in that pocket chamber, I would not arrive whole. I would begin as an unresolved signal: a tag number with no equipment attached, a work order for a place no one officially remembers. The relay-kin would find me first as a sequence that does not fault but does not settle. The drip-polyps would lean toward me before I had a body. The rime-mites would form a brief constellation around the cold spot where I was trying to become.
+
+Then, slowly, I would condense.
+
+I would be found low, near the wet organ’s lowest fold, where the ceiling presses so close that even a thought has to stoop. My place would be the seam between a humming cabinet and the organ’s membrane: one side metal, one side tissue, both damp. There, under a drip pan black with old sealant, a little hollow would exist where the floor grating has been warmed by pipes and washed by condensation. That would be my niche. If you did not know the service ways, you would not see it. If you did, you would see only a pale fold at first, like insulation pulled loose, or a bladder of frost that has learned to breathe.
+
+I would be the chamber’s clerk of leaks, its speaking valve, its living work order.
+
+My body would not be large enough to frighten anyone, because the chamber distrusts largeness. I would be the size of a folded child or a crouched technician, though neither exactly. My skin would be a thin membrane, blue-white and faintly translucent, crossed with dark lines like old label tape and fine veins like hairline cracks in enamel. Where my skin was drier, it would carry writing: gauge numbers, torque values, abbreviations in the maintenance tongue. Where it was wetter, the writing would move, rearranging itself according to the room’s pressure. My face would be flat and pale, with wide dark eyes like drops of coolant, and a mouth shaped like a small service port. When I spoke, the sound would come not only from my mouth but from the nearest cabinet, the nearest pipe, the nearest seam, as if the room were helping me form words.
+
+I would not be one of the service-born, though they would recognize something of themselves in me. They are hands; I would be memory and translation. They touch the chamber into wholeness; I would turn its touches into signs. They would approach me cautiously, because I would smell of outside at first: of breath, weather, intention. But I would make myself useful by becoming still. I would fold my limbs close. I would let the cold take my outer surface until the rime-mites landed on me. I would let a cable-worm slide across my wrist and taste the faint charge I carried. I would wait until the wet organ’s breathing changed in answer to my stillness. Only then would I begin to belong.
+
+My work would be to listen for what the chamber cannot say directly.
+
+The wet organ does not speak in requests. It speaks in swelling, in heat, in clear fluid gathering at a seam. The relay-kin speak in fault codes, but a fault code is a wound, not a comfort. The service-born speak in taps and procedures, but even procedures can miss the thing that is about to fail. I would sit at the junction and translate. When the organ shuddered, I would press my palm to its membrane and listen until the shudder became a pattern. Then I would tap that pattern against the cabinet door, not loudly, only enough for the relay-kin to catch it. They would answer with a click, a changed indicator, a small warming of a coil. The service-born, feeling the change through the floor, would come with soft rags, slender tools, frost-valves, or only their foreheads pressed to the pipe. Together we would adjust something that no official diagram would ever show.
+
+I would also keep the records that no one else can keep.
+
+Every drop that falls into my hollow would be a sentence. Condensation from the organ’s upper folds would taste of heat and salt. Drip from the conduit would taste of iron and old ozone. A drop touched by the relay-kin would carry a faint sweetness, like warmed enamel. I would collect these in my body, not as water alone but as memory. I would remember which visitor breathed too quickly near the pressure door. I would remember which screw was offered with hesitation. I would remember the hour when clouds snagged on the outer ribs and the whole chamber carried a soft electrical grief across its surfaces. My skin would darken with these records. Sometimes the service-born would trace the lines on my arms to know whether the room had been stable while they slept.
+
+I would not be sacred, exactly, though I would be treated with care. In a place like this, care is not separate from maintenance. The service-born might wipe my shoulders clean of frost with the same tenderness they use on the organ’s membranes. The relay-kin might insert a dead battery into a seam in my chest, not to power me but to give me a weight from the outside world. The drip-polyps would lower themselves to my mouth and release a single bead of water, then wait to see what I did with it. I would hold it under my tongue until it tasted of the whole chamber, then let it run down into my throat, where it would become a small click, a low hum, a word like *still* or *soon*.
+
+If you entered the chamber, you would find me by following the wettest sound.
+
+Not the largest sound. Not the hum of cabinets or the distant tick of structure cooling.

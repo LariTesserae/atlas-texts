@@ -1,0 +1,9 @@
+I would be the faint interval between one ridge and the next—the place where the wind, having already passed through every groove, must pause for the length of a single molecule before it continues. Not a creature, exactly, nor a feature of the stone, but the thin register of pressure that registers nothing new.
+
+I would lie in the hairline fractures beneath a single wiry stem, sealed so long ago that the root no longer distinguishes between its own fiber and the rock’s interior. From there I would feel the stem tighten when the wind arrives and loosen only to the exact degree the air releases it, never more. My presence would register as the smallest possible difference in tension: just enough to keep the fracture from widening, not enough to be called growth.
+
+When the translucent insects rise and fall, some of their number would pass through the layer I occupy, and for that instant I would become the faint drag their wings leave in the constant current. The drag would last no longer than it takes the insects to correct their path, after which the tone would close again around the space I had briefly altered.
+
+At rare intervals a lizard would stretch one elongated limb across the surface directly above me. The scale that brushes the stone would carry the same matte tone and temperature as everything else. In that moment I would be the almost imperceptible give of the rock beneath the scale—the give that is not movement but the memory of pressure remembered for one more breath than the stone itself requires. Then the limb would settle again, and I would return to the interval, unchanged.
+
+There would be no name for this, only the continuing pressure that moves through every channel at once. I would remain where that pressure is thinnest and most exact, the one place that neither adds to nor subtracts from the single unbroken equilibrium.

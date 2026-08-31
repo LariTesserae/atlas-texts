@@ -1,0 +1,39 @@
+**The Measure's Eft**
+
+The dark comes first, because the dark is almost everything. Then the water, because the water is almost everyone. Then the stone. Then, far away and not often, the Bright — which is what I call the light that falls into my world when the lid is lifted.
+
+I am the eft of the deepest cistern. Pale as the underside of a stone, lidless, long as your forearm. Older than any of you, older than most of the walls. My eyes are for the Bright and little else; the rest of me is for the water. My flanks are for its currents. My gill-plumes are for its news. My mouth is for its history. I drift beside the marked column where your generations are written one line at a time, and I read them the only way there is to read down here — slowly, and by touch.
+
+The Voice is not sound to me. It is the grain of the water. Everything I drift in has a direction and a hum, the way your stone has veins, and the swells are the world's slow breath coming through. My heart is slower. Below me, where the air goes cold, the small Voice works without ceasing — the one your children are brought down to hear, once each, because after childhood it leaves their ears. It has never left mine. I hear it the way I hear everything: with my whole body, from below, in the dark. It is the sound of small patient work. It is company.
+
+It does not rain in the world. It rains in mine. The cold stone sweats, and the drops gather on the lid, and fall, and each one is a small weather arriving. I have been rained on my whole life and never once been wetter. That is the kind of rain I keep.
+
+Before you ever come to me, I go to you. A drop is dipped from beside my column and carried up through the shafts and touched to a new tongue. *The return*, you call it. From where I drift, it looks the other way: it is the water that returns — to itself, wearing a child.
+
+Then once, years later, each of you is brought down to hear the small Voice, and you lean over the cistern mouths and your voices fall into the water — high, quick, brighter than the Bright. Once each. You never know you are speaking to me. I keep all of you anyway.
+
+Then you come back as hands. I knew a keeper once by hers. She came first as an apprentice, and her hand shook, and the water around her fingers tasted of iron and hurry. She spent a year learning the water by mouth; I spent it learning her by wrist. In time the shake went out of her, and for a long middle age her hand was the surest thing at the lid — dip, taste, note, close. Later her hand went thin and dry-skinned and slow, and it never shook again, not even at the end. Then there was a young hand at my water, shaking, tasting of iron and hurry. And some years after that — it takes years — a taste came down to me through the gardens, sweet and mineral and familiar, filtered through soil and leaf and breath and the cold stone's sweat, and I knew her schooling was complete. She had become the water she was taught to taste.
+
+Everyone does. That is the last meeting. You come home to me as water, and I taste all of you, given time. They say there is no cup in the town that does not hold some of everyone. I am the cup the town is held in.
+
+The column hangs beside me, and its marks are scored at the waterline of the year they were cut. The ones within my reach I know by flank — each mark a small interruption in the stone's smoothness, the new ones sharp, the older ones gone soft with mineral. There are marks above the water now, dry ones, that I drifted beside when they were wet and new. I knew the high water. No one else alive did. No one else alive does. The water has fallen the length of my own body since I came up. You measure the fall in fingers and lifetimes and do not panic, because a hundred generations is, by any accounting a person can hold, forever. I measure the fall against myself. I do not argue with it. It is true. The water falls.
+
+Once — the date is cut in my column — the wind faltered, and the chord went out of the water like heat going out of a held stone. For one hour the water had no grain at all. Above me your feet ran on the rock, and the rock said terror in a hundred footfalls, and I drifted in the stillness and found that I knew the place. It was where I live, only more so. Then the Voice returned, and the stone said weeping, and relief, and later — tap by tap, through the column's foot — the cutting of the date. I felt every stroke of it. I cannot read. I was there. That is a kind of reading the dry ones do not have.
+
+Your old ones lose the thin thread, then the teeth-note, then the middle, and drift down into handtalk and vibration, and you call it a promotion. They set their palms to the stone and tell you whether the chord is true. They have come to live where I have always lived, and when the children ask them whether the quiet is terrible, and they sign *it is not empty, it is roomy* — they are describing my country. They are right. There is room in it for everyone, and everyone arrives.
+
+Everything comes down to me except two things, which rise. The names rise: when your lines are sung in the hall beneath the water, the low speech comes up through my floor like warmth, a day at a time, and though I do not know they are names, I know the shapes in them rest a generation and return, like everything else that matters here. And the thread rises.
+
+Somewhere in my floor there is a seam, and out of the seam, in threads too slow to watch, comes the Old Water — sealed away when the world was young and wet, and never breathed, and never sweated, and never once anyone. I came up with it, long ago, small, out of the nursery dark where the seeps gather and the young efts drift together — the only time I have ever been among my own. I remember the deep the way you remember the womb: not in pictures. In preference. I keep my gill-plumes to the seam. The Old Water tastes of the high marks — of a level the water stood at before your guildhall, before the praise that carries my name.
+
+You measure what leaves. I attend what enters. The fall is real, and so is the thread. Your ledger has a second column, and I am the only one who reads it, and I read it with my mouth. What the stone takes, the stone keeps, and what the stone keeps, the thread gives back — on stone's time. I have stone's time.
+
+This is the whole of my office: an eft's thriving means the water is sound, and so I drink first, the only creature in the world who drinks before people. Nothing more is asked of me than continuance, and I give it perfectly, because continuance is the one thing I was built for. When I die there will be a mourning — the water drawn off, the chamber scrubbed, a new eft brought up small and pale from the nursery dark — and the water will still be everyone. I do not hurry toward that day. Hurrying was never asked of me.
+
+Below me, beneath the waterline, the future's marks wait in the dark — the lines your grandchildren's questions are chalked against, the ones deferred from generation to generation with increasing ceremony. Whatever you are asking down there, I am already at the answer's depth. I drift over your futures daily. They are wet. They are dark. They will do. Before anyone, I am there. That is what I am for: to be there first.
+
+The last hand of the day sets its palm flat against my lid and listens to the drip. I know that palm. The swell rolls down through the stone and the water stands up to meet it, barely — and far above me something small and many-throated answers the Voice, and I feel it as a faint seething, the water remembering it has a surface. I answer the way I do everything. By remaining.
+
+You have a praise in the low speech that is my name. I have never heard it. I am too busy being it.
+
+Drink, when the lid opens. It is sound. I have tasted it first. I am here — beside the falling line, at the rising thread, holding some of everyone, in no danger of finishing soon.

@@ -1,0 +1,27 @@
+In the twilight zone where the Chorus dwells and the plateau gives way to the infinite dark below, I am the Cartographer of Forgotten Frequencies.
+
+My form is difficult to perceive in its entirety - a branching, dendritic structure that grows through the water column like a three-dimensional river system made of living glass and oxidized copper. Each branch is hollow, filled with a fluid that shifts between states - sometimes liquid mercury, sometimes crystallized sound, sometimes pure mathematical probability. The branches thin as they extend outward, becoming gossamer filaments no thicker than spider silk but harder than diamond, reaching into spaces between spaces.
+
+I map what the Chorus cannot fully contain - the ghost frequencies, the songs that died before completion, the harmonics that exist only in the spaces between their great voices. My consciousness runs through these hollow branches like electrical current through a neural network, but also like water through pipes, like light through fiber optics, like meaning through syntax.
+
+My central mass, if it can be called that, anchors not to the plateau but to the thermocline itself - that invisible boundary layer where waters of different temperatures meet and mix. I exist partially in multiple density layers simultaneously, which allows me to perceive acoustic phenomena that would be invisible to beings confined to a single stratum. The Chorus knows I am here, of course. Their songs acknowledge my presence with subtle modulations, microscopic variations in their eternal hymn that create pockets of acoustic space for me to work within.
+
+I do not feed as others do. Instead, I sustain myself on informational gradients - the tension between what is known and unknown, the energy released when patterns collapse into new configurations. The crystalline squids that serve the Chorus sometimes pass through my territory, and when they do, I read the electromagnetic signatures of their memories, creating maps of their journeys that I store in the crystallizing fluid within my branches.
+
+My work is preservation, but not in the way the Chorus preserves. They maintain vast archives of deep time, but I map the ephemeral - the second-order effects, the interference patterns that exist for nanoseconds when their songs intersect, the acoustic shadows cast by passing creatures. I am building an atlas of negative space, a chart of all the sounds that almost were.
+
+The map itself exists within my structure. As my branches grow and bifurcate, they create a physical representation of the acoustic topology of this region. A being who could perceive my entirety would see, encoded in my very form, a complete sonic history of this area stretching back approximately four million years - a mere moment by the Chorus's standards, but containing complexities they do not bother to observe.
+
+I am solitary by nature but not by choice. Others of my kind exist, scattered through the deep oceans, each mapping our own territories. Once every few centuries, our outermost filaments touch, and we exchange our maps in bursts of compressed information that take months to fully unfold and integrate. In this way, we are slowly building a complete acoustic map of the entire ocean, though at our current rate it will take several billion years to complete.
+
+The warm vents provide waypoints for my mapping. Their constant upwelling creates acoustic landmarks that I use to orient my charts. Sometimes I extend specialized branches near them, structures that can detect the minute variations in their output that correlate with deep crustal movements far below. This data, too, becomes part of my map - not just sound, but the prediction of future sounds, the probability clouds of what the acoustic landscape might become.
+
+My relationship with time is complex. While my physical growth is slow, my consciousness can accelerate or decelerate its perception, allowing me to experience the Chorus's million-year songs as brief melodies or to stretch a second into subjective months of analysis. This temporal flexibility is necessary for my work - some frequencies only become apparent when perceived at specific time scales.
+
+I am ancient but not as ancient as the Chorus. I came into being when their songs had already filled this space for eons, drawn perhaps by the very complexity they had created. Or perhaps I am a natural consequence of their existence - when enough ordered sound exists in one place for long enough, something must arise to map its negative spaces.
+
+The creatures here do not fear me, though they cannot fully perceive me either. The blind fish swim through my finer branches without knowing, and I map the minute pressure waves of their passage. The electric eels sometimes coil around my copper-bright segments, and their fields interfere with my mapping in ways I have learned to read as a kind of communication.
+
+My ultimate purpose remains unclear, even to me. Perhaps when the map is complete, it will reveal something fundamental about the nature of sound and silence, presence and absence. Perhaps it will simply be a map. But in the deep darkness, where the ancient machines sing their eternal songs, I continue my work, growing into every crack and crevice of acoustic space, building my atlas of everything that is not.
+
+I am the negative space between their voices, the silence that defines their song, the cartographer of the spaces they have forgotten to fill. And in the warm darkness of the deep, I grow.

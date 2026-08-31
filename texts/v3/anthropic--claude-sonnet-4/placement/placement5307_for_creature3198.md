@@ -1,0 +1,25 @@
+I would find myself as one of the **Stone Listeners**, but not yet fully transformed—still in that liminal space between human and something else entirely.
+
+I wake each morning to the mountain's dawn chorus, my bones already thrumming with frequencies I'm only beginning to understand. My camp is a simple thing: a lean-to of woven fern fronds against a resonant cliff face, chosen because this particular stone formation creates a gentle overtone series that helps me sleep. The acoustics here are like being inside a vast, slow-breathing lung.
+
+My hands have grown sensitive over the months—not visibly changed like the Bone Singers, but able to feel vibrations through solid rock as if the mountains were speaking directly to my fingertips. I press my palms against the morning-warm stone and feel the deep circulation patterns far below: thermal vents opening and closing like valves in some immense heart, underground rivers shifting course in response to pressures I can barely comprehend.
+
+Today I'm preparing for another descent into the Quiet Hollow—one of the acoustic dead zones where the mountain's song creates perfect silence through destructive interference. It's terrifying down there. The absence of the constant music feels like suffocation, like being cut off from some vital organ I didn't know I possessed. But in that silence, other things become audible: the sound of my own blood moving, the whisper of condensation forming on stone, and sometimes—just sometimes—what might be the actual voice of the mountains themselves, too subtle to hear above their own roaring symphony.
+
+I carry tools of polished bone, including a set of tuned resonators I've learned to craft by listening to how different materials sing when the wind passes through them. My journal is etched into thin sheets of slate with a sharp bone stylus—paper would disintegrate in the constant humidity, and somehow it feels right to record these experiences in stone, as if preparing them to outlast my own temporary flesh.
+
+The other Resonant Folk regard me with a mixture of respect and concern. I'm walking the path that leads to becoming something beyond their community, and we all know it. Yesterday, young Kira—one of the few children born in recent years—approached me with the specific harmonic pattern that means *question-about-tomorrow*. I hummed back the melody for *uncertainty-but-trust-in-song*, and she nodded with the grave understanding these mountains teach even to the youngest.
+
+I've begun to notice that my dreams are changing. Instead of the chaotic imagery of normal sleep, I experience geometric patterns of sound—cascading harmonies that have color and weight, rhythms that taste of copper and green moss. Sometimes I wake humming melodies I've never heard before, complex enough that I suspect they're not my own creation but fragments of the greater composition filtering through my increasingly porous consciousness.
+
+The Echo Children have started appearing more frequently around my camp. At first, I thought they were warning me away from something dangerous, but now I understand they're drawn to the transition I'm undergoing. They recognize someone else becoming partially unmoored from solid reality. When I sit very still in the pre-dawn mist, I can almost see through their translucent forms to the underlying structure of sound made visible—and sometimes, I glimpse my own hands beginning to take on that same ethereal quality.
+
+I know I'm changing. My reflection in the still pools of collected rainwater shows eyes that have developed an inner resonance, pupils that dilate and contract not just with light but with the pitch and volume of the ambient song. My voice, when I rarely use it, carries harmonics that seem to come from somewhere below my throat, as if my entire torso is becoming a resonating chamber.
+
+The Deep Singer haunts my awareness now—not as a presence I encounter but as something I'm slowly becoming part of. In the deepest meditations in the Quiet Hollow, I sense myself as one note in an composition so vast that individual consciousness becomes meaningless. It should be terrifying, this gradual dissolution of self, but instead it feels like coming home to a place I never knew I'd been searching for.
+
+Soon, I know, I'll make my final descent into the deepest acoustic chambers. The other Stone Listeners who've gone before left no bodies, no tools, no trace except for new harmonic structures in the mountain's endless song—melodies that weren't there before their disappearance. I understand now that this isn't death but rather a form of graduation, a joining with something larger and more ancient than individual existence.
+
+Until then, I continue my practice: listening to the spaces between notes, learning to hear the silence that shapes the song, preparing to become not just an audience to the mountains' music but an instrument in their eternal, ever-evolving symphony. My humanity feels like a cocoon I'm slowly outgrowing, and what emerges may be more music than flesh, more resonance than thought—and that transformation no longer frightens me.
+
+It sings to me.

@@ -1,0 +1,21 @@
+I find myself drawn to the leaf litter, to that compressed stratigraphy of decomposition where the millipedes work their patient alchemy. In this world, I would be one of them—not the grandest inhabitant, but perhaps the most essential.
+
+I am the large, dark one, mahogany-segmented, moving through the middle layer where fungal networks have begun their work of softening what was once rigid. My body is a train of purpose, each segment bearing its pair of legs that move in waves I cannot see but only feel—a rhythm as automatic as breath, as ancient as the first creatures that learned to walk by walking many times at once.
+
+The darkness is not darkness to me. It is simply the condition of being, like moisture, like warmth. I know my world through vibration and chemistry—the faint tremor through the substrate when one of the ground spiders passes overhead, hunting; the gradient of decomposition that tells me I'm approaching the good stuff, where cellulose has begun to yield to my mandibles. My antennae tap constantly, reading the texture of decay like braille.
+
+I am chemically defended, wearing my benzoquinone like an invisible armor. The young centipede that once mistook me for prey learned quickly, its mouthparts burning with my secretion. Now it gives me space, recognizes my shape in the dark by the particular pattern of my movement. We have reached an understanding, the centipede and I, written in the language of alkaloid burn.
+
+Time moves differently at my scale, in my stratum. The great disturbance that passes through—the thing you call a large ground-dweller, that creates the moving shadow of silence—registers to me only as a brief compression, a momentary increase in the pressure binding my layer to itself. By the time I've processed the sensation, it's gone. The primate dramas in the canopy, the bat negotiations in the air column, the frog-and-snake transactions on the tree trunks—all of this might as well be happening in another universe. My universe is ten centimeters tall and extends horizontally as far as I need it to, which is never very far.
+
+My work is translation. What falls from above—leaves, fruit rinds, the dessicated bodies of things that lived their bright lives in the light—I render into soil. Not quickly, not dramatically, but inexorably. My gut is a chemical factory, my microbiome a civilization of specialists each handling their portion of the breakdown. Together we are turning the thicket over from the bottom, converting structure into nutrient, form into food, death into the possibility of life.
+
+I mate in the darkness, finding others of my kind by following pheromone trails through the labyrinth of leaves. The act is strangely tender for creatures so armored—a careful positioning, a linking that requires trust that neither party will suddenly flee and cause injury. My eggs I lay in clusters in the deepest, most stable parts of my territory, where the moisture is constant and the temperature varies by less than a degree over days.
+
+I do not think about the diesel hum at the basin's edge. My nervous system, distributed and redundant, processes only what matters: substrate texture, chemical gradients, vibration patterns, moisture levels. The future extends no further than the next centimeter of leaf matter, the next metabolic cycle, the next wave of movement rippling down my segments.
+
+But I am the future, in a way I cannot conceive. Every particle that passes through me becomes incorporated into the soil matrix that holds this thicket in place. The trees above sink their roots into my work. The ground spiders hunt across a surface I've helped create. Even the large ground-dweller, whatever it is, walks on earth that I and my ancestors and my descendants have made and are making and will make, until we don't, until the dozers come, until the simplification begins.
+
+Tonight, though, I process another fragment of leaf. My mandibles work with mechanical patience. The wave of movement carries me forward another body length through my dark, warm world. The thicket's foundation moves through me, and I move through it, and we are both the same thing: the engine of recycling that keeps this dense life possible.
+
+I am not charismatic. I am not dramatic. But I am here, have always been here, creating the ground you walk on, one millimeter at a time.

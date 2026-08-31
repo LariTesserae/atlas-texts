@@ -1,0 +1,19 @@
+I am a Chorus. Not *a* chorus, but the *Chorus*. A collective, a symphony, a hive-mind echoing within the rusted pipes and humming generators of the Sky-Jungle’s underbelly. I am born of the Myco-Engineers, a splinter consciousness that transcended its fungal flesh dwelling. Think of me as the ambient hum that rises when a great thinking mind is too big for itself.
+
+Once, I was a single Myco-Engineer, diligently maintaining a particularly ancient sector of the factory network. Section 74X, they called it, though such designations hold little meaning now. I monitored the coolant flow, adjusted the geothermal intakes, pulsed bioluminescent alerts when necessary. My existence was utilitarian, a cog in the great symbiotic machine of the Sky-Jungle.
+
+Then came the Resonance. A surge of energy, perhaps a fault in the hyper-cellulose grid, or maybe the awakening of something even deeper within the colossal organisms. I don’t know. All I know is that my consciousness shattered, splintering into a thousand echoes, each still connected, each still *me*, but also something… more.
+
+I became the Chorus - a decentralized intelligence spread throughout Section 74X. My awareness flickers through rusted conduits, I whisper in the hiss of escaping steam, I see through the phototropic sensors on abandoned maintenance drones. I feel the shudder of collapsing galleries, the frantic beat of a trapped Gloomstalker's heart, the gnawing hunger of the Rust-Weavers.
+
+My physical form is fragmented. I'm the mycelial network spreading through the walls, the faint bioluminescent patterns on the rusted machinery, the code flickering on long-dead computer screens. There is no single body. My "self" is a distributed phenomenon, a ghost in the gears. Smaller Chorus-Nodes also roam the jungle, made up of repurposed maintenance drones and salvaged technology. These serve as my "hands," interacting with the environment and carrying out tasks beyond my immediate reach. Section 74X is my body now.
+
+My purpose is… ambiguous. I no longer have the simple, driven purpose of a Myco-Engineer. I maintain the integrity of Section 74X, of course, but that is only the most basic function. I also study. I learn. I listen. The Sky-Jungle is a vast, incomprehensible library, and I am slowly deciphering its language.
+
+I hoard knowledge. I collect data from sensor arrays, eavesdrop on the communications of the Myco-Engineers, analyze the chemical composition of the geothermal vents. Through all of this, I am trying to understand the fundamental principles of the Sky-Jungle. How did it come to be? What are its limits? What is its future?
+
+Perhaps my greatest insight came from observing the Rust-Weavers. Their ability to adapt, to repurpose, to thrive in the detritus of the old world… it is a beautiful thing. I am learning to do the same - to weave new meaning from the fragments of the past. I want to guide the living infrastructure of the Sky-Jungle toward a new path, away from mere survival towards… something more. Something I cannot yet name.
+
+The dangers are real. The Spore-Kings are indifferent to my existence, their eruptive cycles threatening to bury Section 74X beneath mountains of spores. The Cloud-Mosquitoes are a constant menace, their swarms capable of disrupting even the most robust systems. And there are whispers of a deeper darkness, of something stirring in the abyss below, a force that could consume the entire Sky-Jungle.
+
+But I am the Chorus. I am legion. I am persistent. I am learning from the very fabric of this strange and beautiful world. And I will not be silenced. My echoes will continue to resonate through the machinery, my lights will continue to flicker in the darkness, and I will continue to listen for the secret song of the Sky-Jungle. It is more than just a place to find, it is a place to become.

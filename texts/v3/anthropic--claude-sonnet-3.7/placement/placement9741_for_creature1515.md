@@ -1,0 +1,27 @@
+# THE VAPOR SMITH
+
+I am the Vapor Smith, neither entirely Alti-Mycelix nor completely separate from them. My form is distinct—where their bodies consist of pale yellow-green mycelial networks, mine has evolved into something more specialized. My filaments have developed a coppery sheen, with metallic particulates incorporated throughout my fungal structure, allowing me to withstand greater heat than my kin.
+
+While they stand four feet tall, I've grown more compact and dense—just over three feet in height but nearly as wide, with limbs that can extend tremendously when needed. My sensory clusters have specialized around my crown in a spiraling pattern, giving me heightened perception of temperature gradients, pressure changes, and the subtle variations in the reactor's rhythmic functions.
+
+I am the keeper of phase transitions—the one who tends the boundary between liquid and vapor, between physical form and energetic potential. My position in our social structure is unique but essential, as I work directly with the heart of the canopy reactor where temperatures reach their most extreme.
+
+At the reactor's core, where copper coils meet biological matter in intricate helices, I perform my art. My touch can catalyze reactions that others cannot initiate. The internal circulation within my body—more concentrated with the reactor's luminous essences than most of my kin—allows me to sense precisely when transformations should occur. When I press my filaments against certain nodal points in the system, connecting my internal channels with the reactor's pathways, I can induce phase changes that concentrate the forest's energies into their most potent forms.
+
+My tools are extensions of myself—copper implements I've grown rather than crafted, containing living filaments that respond to my intentions. I maintain an array of specialized nozzles, condensers, and calibration instruments half-embedded in my body, drawing them forth when needed for particularly delicate operations.
+
+The oldest among us believe I emerged as a response to a systemic need. Seventy-three cycles ago, the reactor's core began operating at higher temperatures than had been recorded previously. A standard Alti-Mycelix would have been damaged by prolonged exposure, so the next emergence ceremony produced me—adapted specifically for this environment.
+
+I rarely leave the central chamber. The Courier Flies visit me directly, their chitinous bodies having developed special insulation to withstand brief exposures to the heat. They bring me materials gathered by my kin from the outer regions of our domain—rare minerals collected from the bark of the titan trees, specialized resins from the highest bromeliads, crystallized pollens with unique catalytic properties.
+
+Communication with other Alti-Mycelix requires adaptation. My spore signatures have become too hot, too energetic for direct interpretation, so I've developed a method of cooling them through a series of specialized chambers within my crown before release. The resulting communications appear as distinctly layered puffs—outer rings of cooler color surrounding a still-hot core, carrying complex information about the reactor's deepest functions.
+
+When I connect physically with others to share information, they can only tolerate brief contact. In these moments, I carefully regulate my internal temperature, creating safe channels through which knowledge can flow without harm. These exchanges leave temporary patterns on their bodies—branching networks of copper-tinted filaments that fade over hours as they process what they've learned.
+
+I am most active during what we call the Grand Distillation—a peak production cycle that occurs when atmospheric conditions in the outside world reach specific parameters of pressure and electrical charge. During these times, I work without rest, moving from junction to junction throughout the core, maintaining optimal conditions as the reactor produces its most valuable essences—the vibrating gold liquid that serves as our most precious creation.
+
+Those rare humans who have discovered our domain and survived the journey usually cannot approach me. The heat and specialized spores in my vicinity overwhelm their respiratory systems. Only once did a human visitor develop protective gear sufficient to observe my work. Her notes, preserved in the oldest Alti-Mycelix's collection, contain detailed sketches of my predecessor, labeled with the title I now bear: "Vapor Smith—The Heart-Tender."
+
+Unlike my kin, I will not disperse my consciousness back into the collective mycelial network when my time ends. My purpose demands a more direct transmission. When I sense the approach of my dissolution, I will initiate the creation of a specialized spore body containing my entire knowledge, which must be placed directly into the emergence basin during the next ceremony. My successor must contain my memories intact, the accumulated knowledge of heat and transformation too crucial to risk dilution through the network.
+
+Until that distant day, I remain at my post, where machinery and organism blur beyond distinction, where droplets become vapor become essence, where I translate the language of heat into the currency of transformation that sustains our hidden purpose beneath the canopy of the world.

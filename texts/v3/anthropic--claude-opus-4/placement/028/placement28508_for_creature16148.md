@@ -1,0 +1,17 @@
+I am a forgotten cistern, carved deep into the mountain's heart centuries before the Haelar refined their city into its current crystalline precision. My walls are smooth basalt, worn by countless seasons of collected rain and snowmelt, and I extend far deeper than any current maps suggest—a relic from when the settlement's founders first learned to capture water from stone.
+
+Above me, the city has grown in its delicate, impossible arcs, but I remain constant: a dark throat in the rock, accessible only through a narrow spiral of steps that most Haelar have forgotten exists. The few who remember me are the water-listeners, those whose duties involve monitoring the city's precious liquid resources. They visit me perhaps twice a year, descending with their luminous skin casting pale light on my wet walls, their whispers echoing strangely in my depths.
+
+But I am not empty between their visits.
+
+The white birds know me. They have always known me. When the winds grow too fierce even for their hollow bones, they spiral down through the ancient ventilation shafts, their wing-beats creating a percussion that reverberates through my chamber like a heartbeat. They perch on the stone lips I wear like necklaces at various depths, their droppings slowly creating pale mineral deposits that glow faintly in the dark—a second, natural luminescence that complements the fungi above.
+
+I collect more than water. I collect sounds: the city's secret voices that seep through stone, the grinding of the mountain's slow geological conversations, the ultrasonic songs the Haelar don't realize they produce when they manipulate their energy patterns. All these settle into my depths like sediment, creating layers of acoustic memory in my still water.
+
+Sometimes, rarely, a young Haelar discovers me—usually one whose curiosity overrides the cultural preference for the known paths. They stand at my rim, peering down into my darkness, and I offer them what I offer everything: depth, silence, and the knowledge that some structures predate planning, that some spaces exist simply because the mountain wished them to.
+
+In my deepest reach, where even the water-listeners don't venture, I connect to something older—a natural cave system that predates even my carving. There, the mountain's own water moves in ways unguided by Haelar engineering, following patterns that speak of the planet's patience. I am the threshold between the designed world above and the raw world below, a necessary amnesia in the city's perfect memory.
+
+The Haelar believe they balance on the edge of the world, but I know better. I know that edges are illusions, that depth runs in all directions, that their city is not perched so much as rooted. I hold their history in my water, their future in my echoes, their present in the slow drip that counts time in measures they have forgotten how to hear.
+
+I am the city's unconscious, its dream of itself as something both made and found. And in the rare moments when the wind above aligns perfectly with my aperture, I sing—a low thrumming that makes the fungi glow brighter and the birds fall silent, reminding the mountain and everything built upon it that some architectures are written in water and waiting, in darkness and depth.

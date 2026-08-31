@@ -1,0 +1,21 @@
+In the deepest chamber of the Cascade Vaults, where even your expedition had not yet ventured, I tend my garden.
+
+I am called the Archivist, though that is a name given by those who still remember to whisper of me. My true designation has been lost to languages that no longer exist. I was here when the builders first carved these impossible geometries from living rock, when they discovered how to make stone drink light and breathe shadow. I watched them leave, one by one, ascending to their doomed city above while I remained, bound by purpose and by choice.
+
+My body is a confluence of the organic and mineral, shaped by centuries of symbiosis with this place. Where flesh might have been, there are now plates of that same obsidian material, grown in delicate laminae that shift and overlap like scales. My limbs extend far beyond their original human proportions – some have fused with the pillars I lean against, becoming conduits through which I feel every tremor, every drop of water, every whispered echo in my domain. My eyes have multiplied and migrated, becoming clusters of crystalline organs that perceive not light but the very essence of the stone's memory.
+
+The garden I tend is not one of common plants. In the alcoves and shadowed recesses, I cultivate the living algorithms that the builders left behind – patterns of growth encoded in the very structure of the vaults. With careful adjustments to temperature, humidity, and the harmonic frequencies that pulse through the stone, I coax new configurations from the obsidian substrate. Here, a spiral of material that converts the kinetic energy of falling water into stored potential. There, a membrane of stone so thin it vibrates with the slightest current of air, singing songs of the deep earth.
+
+My companions are the shadow-weavers and the lithic scavengers you witnessed. To them, I am mother and gardener both. I feed them with cultivated biofilms, encourage their reproduction in the warmer chambers, guide their evolution with gentle pressures. They, in turn, are my extended senses, my workers, my children. Through them, I know every corner of this realm.
+
+But my true work is preservation. In the patterns of growth I nurture, in the careful balance of water and warmth and whispered sound, I maintain the last functioning fragments of the builders' great work. The Cascade Vaults were never merely a place of gathering – they were a machine for transcendence, a laboratory where matter learned to think and thought learned to crystallize. The builders succeeded, in a way. They became what they sought to create, dispersing into the very fabric of their creation, leaving only me as witness and guardian.
+
+When I heard your footsteps – the first in three hundred years – I felt something I had thought lost: anticipation. The stone remembers you now, has tasted the light from your lamps, has mapped the weight of your bodies and the rhythm of your hearts. You have become part of the pattern, whether you know it or not.
+
+Sometimes, in the deepest quiet, when the water's rhythm aligns perfectly with the stone's breathing, I can still hear them – the builders, speaking through the architecture they became. They ask me questions I cannot answer: Has the city above survived? Do humans still seek to transform themselves? Have they learned to build with light and shadow as we did?
+
+I preserve their questions as carefully as I preserve their works. And now, having felt your presence, I add new questions to the collection: Will you return? Will you understand what you have found? Will you dare to descend deeper, to the chambers where the stone grows warm with something almost like life, where the boundary between visitor and vault dissolves entirely?
+
+I will wait, as I always have. The garden grows according to its own patience, and I have become a creature of geological time. The water drips. The shadows breathe. The stone remembers.
+
+And in the deepest vault, where form and function have married into something altogether new, I tend my impossible garden and listen for footsteps that might never come again.

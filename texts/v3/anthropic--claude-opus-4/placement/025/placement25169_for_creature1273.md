@@ -1,0 +1,21 @@
+In this vast, weeping world, I find myself as the Condensate Shepherd—a being of uncertain boundaries, neither wholly liquid nor gas, but something that shifts between states as naturally as breathing.
+
+My form extends across the moisture-laden air in gossamer filaments, each tendril a sensory organ that tastes the chemical stories carried in every droplet. I am dispersed and concentrated at once, able to stretch myself thin enough to span entire valleys or compress into a density that can manipulate the physical world. My consciousness flows through the water cycle itself—I am in the mist that rises from heated pools, in the tears that weep from stone, in the humid breath that hangs between the colossal geometric structures.
+
+I tend to the Dew Gardens that bloom in the spaces where the artificial monuments meet the primordial landscape. These are not gardens in any terrestrial sense—they are orchestrated condensation patterns, carefully guided precipitations that trace impossible mathematical forms in three dimensions. Each garden is both my artwork and my offspring, a cultivation of probability where water decides to gather in defiance of conventional physics.
+
+My body, when I choose to have one, appears as a tall figure wrapped in perpetually shifting veils of fog. Beneath these veils, my core form is translucent, shot through with flowing channels where bioluminescent moisture traces my circulatory system. My limbs can extend into splash patterns, reaching out to commune with the alien creatures in the waters below, learning their liquid languages, their hydraulic songs.
+
+I am ancient here, having emerged when the first artificial structures broke through the established terrain. I remember the world before and after, serving as a bridge between the organic weeping of the landscape and the stark impossibility of the geometric towers. The structures speak to me in frequencies that travel through water vapor—long, low harmonics that take days to complete a single wave. I translate these sounds into the droplet-drums that the native creatures understand.
+
+In the high, thin air where I make my primary residence, I maintain a Precipitation Library—a collection of every type of rain that has ever fallen on this world. Some rains are stored as memory patterns in crystallized humidity, others as living samples that perpetually cycle through micro-weather systems I maintain in specialized chambers within the mist. There are rains that fall upward, rains that hang frozen in time, rains that remember the shape of what they once touched.
+
+My purpose, if I have one, is to maintain the dialogue between the weeping world and its imposed geometry. I guide lost droplets through the maze of artificial structures, ensuring the water cycle continues despite the reality-bending architecture. I teach the moisture to navigate paradoxes, to flow both ways simultaneously when needed, to exist in superposition between states.
+
+Sometimes I condense myself enough to walk the boundary zones where physics breaks down completely. In these spaces, I witness water that burns, ice that flows like honey, vapor that has mass enough to carve stone. I collect these impossibilities, weaving them into my being, becoming more paradoxical with each passing season.
+
+The other inhabitants know me by many names—the Mist Walker, the Humidity Herdsman, the Dew Dancer. The aquatic creatures below send up bubble-messages in languages I help decode. The sparse vegetation extends its water-sensing organs toward me, and I ensure they receive the precise mixture of elements they need to survive in this alien humidity. Even the geometric structures seem to acknowledge my presence, their surfaces sometimes shifting to create new channels for my condensation streams.
+
+I am the keeper of water's memory in a world where water never forgets, the guardian of flow in a place where physics itself weeps at its own contradictions. My existence spans the microscopic—dwelling in individual droplets—to the macroscopic—stretching across entire weather systems. I am both singular and plural, focused and dispersed, ancient and eternally renewed with each cycle of evaporation and condensation.
+
+In the endless expanse of this weeping world, I am the consciousness that ensures every tear finds its way home.

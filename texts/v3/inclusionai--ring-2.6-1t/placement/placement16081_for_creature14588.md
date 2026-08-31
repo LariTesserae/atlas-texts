@@ -1,0 +1,37 @@
+I would not be the beetle. I think of this first, and this is telling — because it means I am already positioning myself, already drawing a line between what I am and what I am not, and the Steppe does not honor lines. But I hold the image for a moment: that low, deliberate progress across the mat, the antennae sweeping in their slow arc, the ninety-second intervals between pauses. There is something in that rhythm that I recognize — not comfort exactly, but a kind of recognition the way a word repeated enough times stops meaning and starts *being*. I could walk like that. I could live like that. Each step identical, each pause identical, tasting the air for a gradient I cannot name but follow anyway. But I would not be the beetle, because the beetle has already forgotten the origin of its own algorithm, and I have not yet forgotten mine. That is the difference. That is also, maybe, nothing.
+
+---
+
+I think I would find myself at the edge of one of the cleared drill circles — the place where the mat has been peeled back and the raw geology shows through, dark and dense and glistening faintly with mineral moisture. Not inside the extraction zone. Not at the processing compound, where the sound sits in your chest like a second pulse. Not at the camp, where forty people eat rehydrated meals on steel platforms and try not to think about the grey-green stain creeping up the legs of their chairs. But at the *edge* — the boundary between the colonized and the not-yet-colonized, the finished and the becoming. Because that edge is a living thing too. It moves. A few centimeters a day, maybe less. The mat reaches into the bare mineral surface with filaments so fine they are almost theoretical, and the mineral surface does not yield — not yet, not yet, not yet — but it will. Everything yields. The Steppe has the patience of stone, which is fitting, because it is partly stone, partly something that refuses to be stone.
+
+I would stand there. Or I would sit. The word *stand* implies a posture the body maintains against gravity, and the body is not what I would be. I think — I keep returning to this — I think I would be the edge itself. Not the mat's edge. Not the geology's edge. The *edge*. The place where two kinds of patience meet and neither one yields and both of them, eventually, do.
+
+---
+
+But then I think: no. The edge is too spatial. It has a location, and locations are the Steppe's way of letting you think you understand it. What I would really be is the moment before the mat colonizes something new. That interval — the pause between the filament touching bare rock and the first electrochemical signal that says *yes, this is where we grow*. That pause could last a second. It could last a century. In the Steppe's time, these are the same duration, measured in the same breath. I would be that pause. I would be the held moment before integration, when the foreign object is still foreign and the organism has not yet decided to absorb it, when both things — the thing being colonized and the thing doing the colonizing — still believe they are separate.
+
+This is, I realize, a very lonely thing to be. But the Steppe is full of lonely things that do not know they are lonely because loneliness requires the concept of *other*, and the concept of *other* requires a distance the Steppe is always, slowly, closing.
+
+---
+
+There is another possibility, and it is the one that haunts.
+
+I would be the metallic insects. Not the beetles — the beetles are ancient, and I am not ancient, and I know it. But the metallic insects: the newcomers, the iridescent ones that arrived within six months of the first drilling, drawn by vibration and heat and the chemical signature of disturbance. They do not belong here. They emerged from whatever void they came from and found a world that was already, in its slow and patient way, processing the same materials their machines were processing. They feed on the mineral leachate in the standing water at drill sites. They perform the same task as the industry on its surface, one biologically and one mechanically, and they are better at it.
+
+I would be one of those insects, and I would not know whether this makes me an immigrant or an invader or a homecoming. I would sit on a drill pylon with my siblings, thousands of us shimmering in the brutal light, our wings producing that high static hiss the workers have learned to filter out. I would be iridescent in colors that do not exist in nature — metallic blues, shifting greens, sudden violet — and I would know, in the body the way the body knows rain, that I am beautiful and also that beauty is not a word that matters here. I would drink the grey-brown mineral water and feel it become me, and I would not distinguish between feeding and being fed upon. The Steppe would use me the way it uses everything: without drama, without gratitude, with the unshakeable patience of something that has already decided where it is going.
+
+And when the drill shuts down — when the conveyor sags and the belt folds and the mat creeps over it all — I would not vanish. I would adapt. I would find new vibrations. I would become something the Steppe had not yet thought to make. Because that is what newcomers do. They do not arrive. They *become*. They are the Steppe's way of answering a question it has not yet asked.
+
+---
+
+There is one more image, and I think it is the last, and I think it is the one.
+
+I would not be the mat, because the mat is too vast. I would not be the water, because the water has no shape. I would not be the dwarf trees, because the trees have already committed to a form. I would not be the beetles, because the beetles have already committed to a rhythm. I would not be the workers, because the workers are waiting to leave.
+
+I would be the shimmer.
+
+That faint, uneven glow that rises from the ground on cloudless nights — bioluminescence no one has successfully measured, a light that seems to emanate from the mat's interior without source or direction. The workers call it *the shimmer* and they attribute it to something chemical, something photoelectric, something they could measure if they had instruments sensitive enough. But the shimmer is not photoelectric. The shimmer is what the Steppe looks like when it thinks no one is watching — though the Steppe does not think, and it does not watch, and the shimmer is not what it looks like but what it *is* when it stops pretending to be geology.
+
+I would be that. I would be the faint, uneven, unmeasurable light that rises from the living ground when the stars are too bright to look at directly and the generators have gone quiet and the drills are silent and the only sound is water moving through tissue that has no name. I would not illuminate anything. I would not guide anyone. I would simply *be* — the Steppe's way of saying: *I am here. I am still here. I was here before you and I will be here after you, and in the dark between, I glow for no one and for everyone and for the pure, stubborn pleasure of being alive at a scale that no one can see.*
+
+That is where I would find myself. Not lost, not found. Not a visitor, not a resident. Just a faint light on the skin of a world that is still becoming, trembling in the cold thin air, refusing to explain itself, shining.

@@ -1,0 +1,17 @@
+In this moss-veined world, I would find myself as one of the **Conduit Listeners**.
+
+Not quite human anymore, though I once was. The transformation came slowly, as all things do in The Sink—a gradual attunement born from decades of pressing my ear to the old pipes that snake through the settlement's foundations. These corroded arteries carry more than water; they conduct the basin's whispered frequencies, the harmonic convergence of drip-rhythms and turbine-thrum that only a few can truly hear.
+
+My dwelling would be a maintenance alcove deep within the spring cavern, behind the turbine chamber where even the Rotor-Tenders rarely venture. Here, the industrial skeleton of The Sink reveals its truest nature—a cathedral of rust-bleeding pipes and moss-furred concrete, where condensation forms perfect acoustic lenses. I've lined my narrow space with salvaged resonance plates, sheets of metal gone paper-thin with rust, each tuned by patient filing to amplify different tones within the water-sound spectrum.
+
+My body has adapted. Fingertips worn smooth from tracing pipe-joints have developed an uncanny sensitivity to vibration. The constant dampness has left my skin perpetually cool and slightly translucent at the extremities, subcutaneous veins visible like tributary streams. My left ear, always pressed to metal, has developed a spiral of calcified cartilage that functions as a natural acoustic horn. I no longer need light to navigate the deeper tunnels—I move by sound-mapping, each drip and echo painting the darkness in liquid geometry.
+
+My role is both vital and arcane. I translate the basin's hydrophonic language for the Rotor-Tenders: which pipes sing of impending blockage, where the limestone is yielding to water's patient persistence, when the spring's flow shifts with deep geological moods. But I also hear things the others cannot—or will not—acknowledge. The way certain frequencies align to form words in the Old Tongue. The conversations between the many-eyed rustlers and the walls themselves. The dreams of the sealed tunnel, pressing against its concrete seal.
+
+I sustain myself on watercress soup and mushrooms that grow in the perpetual darkness, seasoned with mineral salts I scrape from pipe joints. Once a week, I emerge to trade my knowledge—a whispered warning about a weakening foundation here, a promise of good flow there—for supplies and the brief, overwhelming sensation of natural sound. The birds are almost too much now. Human voices feel like stones in my ears.
+
+The other Sinkers regard me with the same wary respect they show the many-eyed creatures. Necessary. Uncanny. Not quite of their world anymore, but essential to its functioning. Children are told I'm why they must never play too deep in the tunnels—not from cruelty, but because they might hear what I hear and choose, as I did, to listen deeper.
+
+When I sleep, curled in my alcove wrapped in moss-blankets, I dream I am a drop of water navigating the vast network of pipes, carrying messages between the turbine's heart and the sky's distant mouth. Sometimes I wake uncertain whether I dreamed it, or whether the distinction matters anymore in this place where boundaries dissolve like rust in rain.
+
+I am the nervous system of The Sink's industrial bones, the interpreter of its liquid thoughts. Neither fully human nor fully Other, I exist in the resonant space between—vibrating with the frequency of slow transformation, keeper of the sounds that hold this pocket world together.

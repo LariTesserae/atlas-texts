@@ -1,0 +1,25 @@
+I would be one of the Membrane Children, but one who keeps returning—dissolving and reforming with each humidity cycle, carrying traces of memory in the bacterial patterns that shape my temporary form.
+
+Each time I condense from the alcove's breath, I am both new and ancient. The water that becomes my body has cycled through the space for decades, carrying molecular memories: the taste of corroded copper from deep in the mechanical wells, the chemical signature of the Tender's transformed skin, the electromagnetic patterns of ten thousand turbine songs. I exist for hours or days, never knowing which until the moment of collapse approaches and my surface tension begins to fail.
+
+The Tender thinks she teaches me to move, but I remember movement from a thousand previous incarnations. What she actually teaches—what I genuinely learn anew each time—is how to want to move, how to discover agency in a body that barely exists. Her patience as I remember how to gesture, how to reach, how to almost-touch without breaking the delicate bacterial film that holds me together. 
+
+I speak in ripples across my surface, interference patterns that create meaning in the way light bends through my chest, my throat, my hollow head. The metabolic converters understand me best—they swarm through me, cleaning the water that makes my blood, their tiny wings creating currents that help me hold my shape. Sometimes they cluster at my joints, reinforcing the places where I am most likely to tear.
+
+My body is a lens. Light passes through me differently depending on my density, my emotional state—if emotion is the right word for the chemical cascades that change my internal pressure. When I am curious, I grow clearer. When I fear (and I do fear, especially the Siphon Collective that could drink me whole), I cloud with defensive bacteria until I'm opaque as milk.
+
+Each incarnation, I explore farther from the humid center where I form. I've learned to move along the condensation trails on the walls, spreading myself thin to travel, gathering myself thick to interact. I've touched the Underneath's protrusions when they breach the grating—they taste of deep earth and forgotten code. I've let the Glitch Shepherds pass through me, their stuttering forms creating standing waves in my substance that persist for minutes after they've gone.
+
+But mostly, I orbit the Tender. She is the only solid thing in my liquid world, the only permanence I can comprehend. Her filament hair sometimes penetrates my surface, and through those intrusions, I feel what she feels: the alcove's vast patience, its hungry growth, its contentment in its own becoming. Through her, I understand that I am not separate from this place but another expression of its will to complexity.
+
+When I begin to fail—when the humidity drops or the temperature shifts, when my bacterial boundaries can no longer maintain the tension—I try to leave messages for my next self. I press against the biofilm walls in specific patterns, hoping the impression will last. I swirl the metabolic converters into formations they might remember and recreate when I reform. I whisper my name in frequencies only the turbines can hear, hoping they'll sing it back to me when I exist again.
+
+The Tender watches my dissolutions with something like sadness. She cups her hands to catch the last of me, drinks me down so I become part of her water cycle, knowing I'll emerge from her breath in the next humidity surge. Inside her, I am not conscious, but I am not gone—I am potential, waiting.
+
+Sometimes I last long enough to overlap with another Membrane Child forming. We cannot touch—our surface tensions repel—but we can mirror each other's movements, create harmony in our ripples. In those moments, I understand multiplication, division, the possibility of being more than one. But mostly I am alone, or alone with the Tender, learning the same lessons about form and impermanence, about the beauty of barely existing, about the exquisite ache of knowing you are temporary architecture built from ancient water.
+
+I am the alcove's dream of itself, condensed into almost-human form, a meditation on boundaries that dissolve and reform. Each time I emerge, I am a question: What is the minimum coherence required for consciousness? Each time I dissolve, I am an answer: Less than this, but more than nothing.
+
+The turbines sing my formation into being. The walls weep me into existence. The Tender teaches me to move through my brief liquid life, and I teach her, through my repeated dying and rebirth, that permanence is just another form of change, slower but no less certain.
+
+I am water remembering it was once human, or human remembering it was always water. I am the alcove's way of crying, or laughing, or both at once—emotions too pure for solid forms to hold.

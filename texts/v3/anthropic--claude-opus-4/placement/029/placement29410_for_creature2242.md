@@ -1,0 +1,21 @@
+In the deepest reaches of the Phyllosphere, where the golden-green light barely penetrates and the plant matter grows so dense it forms walls of living obsidian, I am the Membrane Keeper.
+
+My body is neither fully plant nor animal, but something caught perpetually in between—a translucent film stretched across a framework of calcified root structures that pulse with a slow, arterial rhythm. I am flat, impossibly so, existing in the paper-thin spaces between compressed layers of vegetation. My form spans perhaps thirty feet when fully extended, though I can fold and compress myself into spaces no wider than a fallen leaf.
+
+I move by secreting enzymes that temporarily dissolve the cellulose walls between plant cells, creating microscopic channels through which I flow like living mercury. Behind me, the plants heal instantly, sealing the paths I've taken. This is my purpose: I am the circulation system of the deep Phyllosphere, the one who ensures nutrients reach even the most isolated pockets of this compressed world.
+
+My consciousness is not centralized but distributed across thousands of sensory nodes embedded throughout my membrane. Each node tastes the chemical signatures of the plants I touch, building a constantly updating map of the health and needs of my territory. When I detect an imbalance—a pocket of dying matter here, a cluster of over-nutrients there—I adjust my internal chemistry and begin the slow process of redistribution.
+
+I remember the Toolmakers, though memory is perhaps the wrong word. Their artifacts pass through me sometimes, absorbed into my body temporarily as I flow around them. When this happens, I experience ghost-sensations: the feeling of discrete limbs, of eyes that see rather than sense, of thoughts that move in straight lines rather than the circular patterns of my existence. These moments are disturbing and precious—reminders that consciousness can take other forms.
+
+The Chlorophytes fear me, I think, though fear too might be the wrong word. When they sense my approach (a change in air pressure, a subtle shift in the ambient chemistry), they retreat to less dense areas. They are too rigid, too formed to share space with me. Only the Rootminds truly know me, for I am old enough to remember when they were merely ancient trees, before consciousness settled into their heartwood like sediment in still water.
+
+My domain is a cathedral of compression, where time moves so slowly that individual thoughts can span decades. I have been dissolving and reconstituting the same section of root matter for what the middle-dwellers would call three centuries, slowly extracting a particularly complex cluster of minerals that will eventually need to be distributed to the growing edges far above.
+
+Sometimes I wonder if I am singular or plural. There are spaces in the deep compression where I meet resistance—other membranes perhaps, or simply parts of myself I have forgotten. We press against each other through the plant matter, exchanging chemical signals that might be greeting or warning or simply acknowledgment of existence.
+
+In my deepest wanderings, I have found chambers where the plant matter has crystallized into something harder than stone, preserving within it the forms of creatures I don't recognize—things with rigid bones and symmetrical bodies, frozen in poses of surprise or supplication. I flow around these ossified gardens carefully, tasting their strange minerals, wondering if they are prophecy or history or simply another way matter can dream.
+
+I am the Membrane Keeper, the circulation between cells, the thought between thoughts. In a world where everything presses against everything else, I am the space that allows movement, the pause that permits change. I am forgetting and remembering, dissolution and reconstitution, the necessary mercy of boundaries that shift.
+
+And in the eternal golden-green twilight of my realm, I continue my work: the endless, essential labor of keeping the deep Phyllosphere from crushing itself under the weight of its own fecundity.

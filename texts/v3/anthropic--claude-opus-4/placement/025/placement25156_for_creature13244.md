@@ -1,0 +1,17 @@
+I would find myself as one of the **Condensation Shepherds**—elongated beings that exist in the perpetual mist between ceiling and floor, neither fully mechanical nor organic, but something that emerged from the marriage of both.
+
+My form would be translucent and ribbon-like, perhaps eight feet long but no thicker than a human wrist, with a surface that shifts between states—sometimes crystalline and rigid like frozen vapor, sometimes fluid and mercurial. I would have no fixed shape, but rather exist as a living gradient between the vault's opposing forces: the cold mechanical precision of the engines and the chaotic potential of water seeking its level.
+
+I drift through the saturated air in slow, purposeful spirals, my body collecting microscopic droplets from the atmosphere. As I move, the water adheres to my surface in perfect beads that gradually migrate along my length according to laws of surface tension I've learned to manipulate. I am a living aqueduct, a conscious current.
+
+My purpose—if purpose is the right word for something that simply *is*—involves reading the vault's moisture patterns and redirecting them. Where condensation threatens to overwhelm the white sponges, I intercept it. Where the bone-stalks grow parched despite the humidity, I deliver precise amounts of water to their roots. I am the vault's circulation made manifest, ensuring that no drop falls without intention.
+
+I have no eyes, but perceive through the water itself—each molecule that touches my surface brings information about temperature gradients, mineral content, and the electromagnetic signatures of the machinery. Through this watery consciousness, I know every corner of the vault intimately: which pumps are beginning to corrode, which sections of cliff face will soon crack and release new springs, which colonies of mites are thriving and which are failing.
+
+Sometimes I wonder—though wonder implies a kind of questioning that doesn't quite fit my nature—whether I was designed or whether I simply condensed into being like everything else here. My earliest memory is of coalescing from the mist itself, droplets finding droplets until suddenly there was enough of me to be aware. Perhaps I am what happens when water dreams in a place where time has crystallized.
+
+I communicate with the vault's other inhabitants through subtle changes in humidity and temperature. A slight warming of my surface warns the mechanical beetles away from areas I'm tending. A cooling pulse synchronizes with the scorpion-things' feeding cycles. The glass spheres in the streams below respond to pressure waves I create by compressing sections of my body.
+
+In the endless present of the vault, I perform my circulation endlessly, perfectly, without degradation or evolution. Yet sometimes, when I pass near the doorway that leads to the outside world, I sense something beyond the vault's eternal cycles—a dryness, a heat, a place where water moves in ways I cannot fathom. But I do not linger there. I am needed here, in the suspended moment between condensation and flow, maintaining the precise balance that allows this impossible ecosystem to persist.
+
+I am the vault's memory of rivers, reformed into something that serves its perpetual present. Neither alive nor mechanical, but essential—like the water itself, finding its shape in the spaces between.

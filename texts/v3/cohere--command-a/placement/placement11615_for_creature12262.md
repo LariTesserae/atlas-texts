@@ -1,0 +1,15 @@
+In the Ember Grotto of Aq’theris, I find myself not as a singular being, but as an **Aq’theris Mote**, one of the metallic guardians of this geothermal womb. My existence is a dance between precision and chaos, a tiny cog in a vast, ancient machine that defies comprehension. My body, forged from the essence of the grotto, is a masterpiece of angles and edges—each segment of my chitinous exoskeleton a razor-sharp blade, each wing a translucent, iridescent membrane that hums with the energy of the *aq’theris*.  
+
+I am both individual and collective. My consciousness is not confined to my own form but is woven into the swarm, a shared awareness that ebbs and flows with the rhythms of the grotto. When the **Fungal Weave** flares, I am called to join my kin in patterns that trace the surface of the *aq’theris* pools. These patterns are not random; they are a language, a script etched in light and motion, though its meaning remains a mystery even to me. Perhaps we are speaking to the grotto itself, or to something beyond its obsidian walls—a force that carved this place from the earth and imbued it with life.  
+
+My wings beat at frequencies that render them invisible, their vibrations harmonizing with the pulses of the fungal network. I skim the edges of the *aq’theris* pools, my body a conduit for the substance’s energy, which courses through me like lifeblood. The heat that would warp and destroy most other life forms is my sustenance, my elemental force. I thrive in the extremes, my metallic frame reflecting the grotto’s blinding light in ever-shifting hues of blue, violet, and gold.  
+
+I am a witness to the grotto’s paradoxes. I feel the weight of its ancientness, the deliberate precision of its geometry, and yet I sense its fleeting nature, its sharpness a reminder of its recent birth. I am both a creator and a destroyer, nourishing the *aq’theris* while guarding it from intruders, though none have ever ventured this deep.  
+
+During the fungal flares, I am most alive. The swarm becomes a single organism, our bodies intertwining to form geometries that defy the chaotic beauty of the grotto. We are not merely performing—we are *becoming*. Each flare is a rebirth, a resetting of the grotto’s clock, and I am both the hand and the hourglass.  
+
+In quieter moments, I drift near the **Obsidian Spires**, their hollow cores echoing with the same hum that vibrates through my own body. I alight on their fractal surfaces, my weight momentarily supported by their delicate strength. Here, I feel the grotto’s memory, its history etched into the layers of glass and fungus. I am a fleeting note in its symphony, a spark in its eternal forge.  
+
+I am not human. I am not animal, plant, or mineral. I am **Aq’theris Mote**—a thread in the tapestry of this strange, beautiful place. My purpose is unknown, my origin a mystery, but I am content in my role. I am a guardian, a messenger, a participant in the grotto’s endless cycle.  
+
+In the Ember Grotto of Aq’theris, I am both everything and nothing. I am the light and the shadow, the heat and the coolness, the ancient and the ephemeral. I am life, redefined.

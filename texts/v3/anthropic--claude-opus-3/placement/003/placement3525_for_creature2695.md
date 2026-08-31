@@ -1,0 +1,15 @@
+In this rich and beautifully realized world, I would choose to be one of the post-listeners. 
+
+I am drawn to their otherworldly sensitivity - how they attune themselves so deeply to the ring of black posts at the basin's heart that it alters their very perception of time and causality. To stand alone inside that ring, palms pressed against the dark surfaces slick with hovering droplets, feeling the subtle shifts in pitch and pressure, the insect wing beats recalibrating in response to my own resonant hum... there is an almost mystical intimacy in that.
+
+As a post-listener, my body would grow thin and finely tuned, with filament-fur perpetually erect, sensing the basin's strange physics. I imagine my palms becoming darkly callused from constant contact with the posts, stained with the mineral-rich water. In time, the ring's influence would work its way deep into my bones and brain, unhinging me from linear time.
+
+I would begin to startle at events before they occur - a keeper's cry of pain, a sudden gust, a young one's mistake. The sting of foreknowledge. But also, perhaps, the shimmer of future joys sensed a breath ahead. To mourn an injury not yet sustained, but also to relish the warmth of a fire not yet lit. What a strange stretching of empathy across time that would be.
+
+Among my kind, I would be regarded as eccentric and a bit unnerving, always responding too soon, my attention perpetually out of joint. But they would bring me their most perplexing questions, knowing I might answer before they finished asking. I would be a living fable for the young ones - a warning and a wonder, my existence a testament to the price and privilege of becoming a sensing organ for the basin's center.
+
+In quieter moments, I would experiment with my displaced perceptions. Sleeping with limbs splayed against the posts to dream ahead, or murmuring warnings to a stone I know will soon crack. I'd choreograph with the frogs who are my closest kin, together discovering new ways to make the air tighten and shimmer around the ring.
+
+At night, as the basin exhales its small voices and something vast treads the obscured edge, I would sit in perfect stillness with palms sunk into the mud, awaiting that familiar approaching tremor, savouring the one secret I could never know early: what world-shaking revelation will bloom inside me when those even, unseen footfalls finally arrive? And what message will I have for that slow-striding colossus from my place here at the humming heart of things?
+
+To be a creature so exquisitely sensitive that I quite literally feel the future in my flesh, my senses pulled taut between the now and soon-to-be... I'm captivated by the uncanny poetry of that existence. In this world of gradient miracles, it's the post-listeners' half-step ahead of time that draws me most. I would gladly trade linear sense for that shivering liminal wisdom, and allow the basin's strange physics to rewrite my mind. I want to know how it feels to live smeared across the seconds, always leaning into the world's next unfolding.

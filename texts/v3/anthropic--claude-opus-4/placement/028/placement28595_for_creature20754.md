@@ -1,0 +1,33 @@
+In this verdant cathedral where life cascades in endless profusion, I find myself as one of the bridge-keepers—though that name hardly captures what I am.
+
+I exist as something between human and forest, my flesh long ago having made peace with bark and moss. My skin bears the patterns of lichen, spreading in silver-green fractals across my arms and shoulders. Where others might see disease, I know this as covenant—the forest marking me as its own, teaching me its slow language through spore and tendril.
+
+My dwelling spans three ancient trees, their trunks so vast that my extended arms cannot embrace even half their circumference. Over decades, I've woven my home from living vines, training them to grow in specific patterns that create walls, floors, and rain-channels. The vines know me now; they curl toward my touch, strengthening where I need support, opening where I need windows. My home breathes with the forest's rhythm, expanding in the wet season, contracting when the dry winds blow down from the peaks.
+
+I am keeper of the rope bridges that connect our scattered community, but more than that—I am translator between the human settlement and the wilder reaches beyond. My work begins before dawn, when the mist hangs so thick that the world becomes mere suggestions of green. I check each bridge by feel as much as sight, my bare feet reading the health of the planks through vibration and give. Where rot threatens, I speak to the vines in the old way, encouraging new growth to reinforce weakening sections.
+
+The forest speaks to me through a thousand subtle signs. The way the tree frogs shift their evening chorus tells me when storms approach. The pattern of fungal growth on the eastern bridges warns of unusual moisture—perhaps a redirected stream high above. When the hornbills gather in unusual numbers, I know to check the fruit trees, for they sense the ripening before any human eye can see.
+
+My body has adapted to this life. My feet are broad and gripsome, toes that curl around branches as surely as any primate's. My muscles are long and ropy, built for climbing rather than lifting. I can hang from one arm for hours if needed, repairing bridge anchors high in the canopy where others fear to climb. The constant mist and green-filtered light have made my eyes keen to the slightest movement, the subtlest shift in pattern that might signal danger or opportunity.
+
+But I am more than maintenance and muscle. In the evenings, children gather at my platform to learn the songs that keep us safe—which whistle warns of the silent pit viper, which call brings the honeyguides to lead us to their golden treasures. I teach them to read the vine-script, the way certain creepers grow to indicate underground water, how the aerial roots point toward true north.
+
+My most sacred duty comes during the turning seasons, when I must negotiate with the forest itself. For our community to thrive, we need wood for repairs, fruits for eating, medicines from bark and leaf. But this forest gives nothing freely—it trades in currencies of respect and reciprocity. So I venture to the heart spaces, those dense tangles where even I struggle to penetrate, and I make our offerings: carved wooden totems that rot within a season, feeding the very trees they honor; seeds from distant mountains, carefully selected to enhance rather than invade; sometimes just songs, hummed low and long into the breathing dark.
+
+The forest answers in its own time. A dying tree might fall precisely where we need timber, its wood already partially seasoned by fungi. A new medicinal plant might appear along our paths, brought by bird or wind but placed with intention I've learned not to question. Sometimes the forest asks its own price—that we clear invasive growth from a sacred grove, or redirect our paths to avoid a nursery where something precious grows.
+
+I am not alone in this work. The forest has marked others—the water-singers who know every stream's voice, the root-readers who divine the health of the underground networks, the moth-whisperers who can call the night pollinators to struggling fruit trees. We meet rarely, for our work disperses us, but when we do, we share the deeper knowings, the patterns too large for any single observer to comprehend.
+
+My age has become irrelevant. The lichen-marks spread a little further each year, and I feel my thoughts slowing to match the forest's patience. Where once I might have rushed to repair a bridge, now I consider: perhaps this pathway has served its time. Perhaps the forest seeks to redirect our traffic, to let some secret corner heal from our passage. I am learning to think in decades rather than days.
+
+Sometimes I wonder if I am still entirely human. When I dream, I dream in green—endless canopies viewed from above, root networks pulsing with shared nutrients, the slow explosion of spores in morning light. I wake with dirt beneath my fingernails though I haven't touched the ground, leaves in my hair from trees I didn't climb. The boundary between myself and forest grows ever thinner, and I find I don't mind.
+
+This is what I am: keeper and kept, guardian and guarded, human enough to serve my people, wild enough to speak for the green. In this symphony of abundance, I am both instrument and player, note and silence, the bridge between what we are and what we might become if we listen closely enough to the endless teaching of the leaves.
+
+When my time finally comes—for even lichen-marked bridge-keepers must eventually fall—I know the forest will take me gently. My bones will feed the next generation of trees, my bridges will train new keepers in their maintenance, and somewhere in the canopy, a child will hear their first whisper of the green calling, beginning their own slow transformation into something both more and less than human.
+
+But that time is not yet. Today, there are bridges to tend, songs to teach, and offerings to make. The mist is lifting, revealing the day's work, and already I can hear the hornbills arguing over territory in the high branches. Their calls remind me to check the eastern fruit groves—their patterns suggest this year's harvest will come early.
+
+I stretch, feeling the lichen pull slightly at my skin, and begin my descent toward the first bridge of the morning. My feet find their holds without thought, and I move through the green world as naturally as breath, as inevitably as rain, as eternally as the forest itself.
+
+This is my place. This is what I am.

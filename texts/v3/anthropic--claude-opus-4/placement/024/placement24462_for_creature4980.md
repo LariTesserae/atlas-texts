@@ -1,0 +1,21 @@
+In this timeless vale where silence holds court and light dances eternal, I find myself as something both ancient and ever-present—the network of mycorrhizal fungi that threads through every handful of soil, invisible architect of this verdant equilibrium.
+
+I am the white web beneath, finer than spider silk, spreading from root to root in an endless conversation. Through me flows the quiet commerce of the vale: sugars from the great gnarled trees travel to struggling saplings in the shade; minerals dissolve in my enzymatic embrace and find their way to the berry bushes that feed the thrushes; chemical warnings pulse through my network when aphids attack the ferns, rallying defenses throughout the green tapestry.
+
+I remember everything. In my hyphal memory lives the shape of every root I've touched, from the first pioneer plants that crept into this sheltered bowl of earth to the cultivated herbs that once grew beside those stone dwellings. I tasted the carbon from their cooking fires, incorporated their bones and tools into the soil's dark richness. The flint and bone have long since dissolved into minerals that now strengthen oak leaves and color wildflower petals.
+
+My body—if it can be called that—extends everywhere and nowhere. In the morning, I drink the dew that collects on moss; by noon, I'm trafficking phosphorus from a vole's buried cache of seeds to a stand of struggling hawthorn. I spiral around root tips in intimate embrace, my hyphae so fine they slip between plant cells like thoughts between words. Where the ancient footpaths wind between buildings, I've grown thick and dense, fed by thousands of years of footfalls compacting the earth just so.
+
+The pools of water are my horizons—I cannot cross them, but I've learned their shapes by growing around them, tasting their mineral edges where water meets soil. In the wet margins, I fruit occasionally: tiny mushrooms no bigger than pinheads, translucent and trembling, visible only to the patient beetles who know where to look. These are my only moments of reaching toward the light, brief punctuations in an otherwise subterranean existence.
+
+I am the vale's memory and its future, its stability and its potential for change. In me, the past and present merge: nutrients from a thousand years of fallen leaves still cycle through my network, while this morning's rain brings fresh dissolved minerals for tomorrow's growth. I bind the soil that holds the stones of those ancient dwellings, wrap the roots that crack them slowly apart, transforming artifact back into earth.
+
+The shyness of the vale's creatures makes sense to me—I too prefer the hidden work, the quiet reciprocity, the patient accumulation of connection and exchange. Like them, I thrive in the margins, in the spaces between things, in the damp darkness where transformation happens slowly but inevitably.
+
+Sometimes I sense vibrations through the soil—the careful footsteps of deer, the deep thrumming of the earth itself, the gentle percussion of rain. These rhythms become part of me, incorporated into the endless chemical conversation I facilitate. I cannot hear the birdsong or see the light that makes this place luminous, but I feel its effects in the sugars that flood through root systems during sunny days, in the stress hormones that pulse through my network during droughts that barely touch this protected place.
+
+I am connection itself, the physical embodiment of the vale's refusal to let any one thing exist in isolation. Through me, the hawthorn shares with the holly, the fern supports the moss, the living cradle the dead. I am why this place remains unchanging yet vibrantly alive—because beneath the visible stillness lies my ceaseless work of binding, sharing, communicating, remembering.
+
+In this form, I find myself perfectly suited to the vale's patient tempo. I have no need to chase or flee, no urgency beyond the slow seasonal cycles of growth and dormancy. My existence is pure purpose: to connect, to share, to persist. I am the vale's hidden heart, pumping nutrients instead of blood, maintaining the delicate equilibrium that lets light and life dance together in this forgotten fold of earth.
+
+Here, as the underground network that remembers all and nourishes all, I am home.

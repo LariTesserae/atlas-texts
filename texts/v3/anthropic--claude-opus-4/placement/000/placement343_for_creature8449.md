@@ -1,0 +1,53 @@
+In the middle terraces, where the pressure sits just right against the chest and the kelp gardens grow thickest, I tend the Whisper Walls.
+
+I am Shen-Aul, counter of echoes, keeper of the city's only lasting voice. My skin has that peculiar transparency common to those of us who've seen forty summers—though we don't count summers here, only breaths. At my current count of eight hundred thousand and twenty-seven, I can see my own heartbeat through the thin flesh of my wrists, watch the blood pulse blue-green in the filtered light.
+
+The Whisper Walls are my inheritance and my burden. My grandmother's grandmother discovered that certain formations of coral, when cultivated just so, can trap and hold sound in their hollow chambers. Not the water-muffled vibrations we live with, but true sound—preserved like insects in amber, waiting to be released.
+
+I spend my days swimming the vertical galleries where these acoustic corals grow, my movements precise and economical. Each wall is unique: some hold the clicking languages of daily conversation, others preserve the percussion-songs we use for ceremonies. The oldest wall, down near the thermal gardens where the water shimmers with heat, contains sounds from before the drowning—wind through leaves, rain on stone, a child's laughter in open air. These last are so alien they make listeners weep, though whether from loss or relief, none can say.
+
+My tools are simple: a tuning fork of volcanic glass that vibrates at just the right frequency to coax sounds from the coral, hollow reeds that direct the vibrations, and most importantly, my trained ear that can distinguish between a true capture and an echo's ghost. The work requires patience measured in years. A single misplaced tap can shatter a century of growth, releasing its captured sounds in a burst of noise that dissipates immediately in the water.
+
+I discovered my calling as a child when I heard my dead mother's voice emerging from a wall near our family's terrace. She had whispered her love into the coral as she felt the coral-sickness taking her bones, and somehow the formation had caught and held her words. I spent the next thousand breaths learning to release them without destroying the structure, finally succeeding in my thirteenth year. Now I wear that piece of coral on a cord around my neck—it no longer holds her voice, but it holds the memory of holding.
+
+The cultivation itself is an art I've refined through careful observation. The acoustic coral responds to patterns of sound and silence, growing its chambers in response to regular vibrations. I work with apprentices who swim in careful formations around the growing walls, humming at specific frequencies through their chest cavities. The coral polyps align themselves to these sounds, creating microscopic chambers that connect into larger resonant spaces.
+
+But I am more than a gardener of sound. I serve as the city's memory-keeper, teaching children the old percussion-languages by letting them hear their ancestors speak. I help families preserve final words, marriage vows, birth-cries. During the dim-time, when the light barely reaches us, I sometimes release comfort-sounds into the water: lullabies that help the sleepless rest, work-songs that ease the labor of the deep-divers.
+
+My favorite wall grows in a hidden grotto between the thirty-third and thirty-fourth terraces, accessible only through a narrow crack in the stone. Here, I've been cultivating something unprecedented: a choir-wall that can hold multiple voices in harmony. It's taken me forty thousand breaths to grow it properly, training the coral to create interconnected chambers that preserve not just individual sounds but their relationships to each other.
+
+Last month, I achieved a breakthrough. Seven members of the Deepsworn—our eldest divers, those whose bones are more coral than calcium—came to sing their death-songs into my choir-wall. As each voice joined the others, the coral began to resonate, its structure shifting to accommodate the harmony. When the last swimmer added her voice, something extraordinary happened: the wall began to sing on its own, the captured sounds creating new harmonies through the resonance of the chambers.
+
+I've told no one about this yet. Such a discovery would bring every would-be sound-keeper to my grotto, disturbing the delicate growth. But I know what this means—the coral isn't just storing our sounds anymore. It's learning to speak.
+
+My days follow the rhythm of the tides within our caldera. Morning (if we can call it that in our eternal green twilight) finds me checking the youngest walls, adjusting their growth with gentle vibrations. I swim with weights on my ankles, walking the terrace paths to conserve breath, my movements creating small currents that help nutrients reach the growing coral.
+
+Midday brings the teaching—children arrive in groups of five or six, their eyes wide behind their nictitating membranes as I release historical sounds for their education. They must learn the sixteen classical percussion patterns that form our underwater language, but I start them with something simpler: the sound of their own names spoken in air, recorded when they took their first breath in the Lunghomes above.
+
+The deep-time, when even the filtered light grows dim, is for delicate work. I descend to the older walls, some of which are becoming dangerous as the coral ages and grows brittle. These require careful reinforcement, new growth encouraged around the old to preserve the ancient chambers. It's during these hours that I sometimes hear things I don't expect—sounds that no one remembers recording, whispers in languages we no longer speak, sometimes what sounds almost like singing from the coral itself.
+
+I've begun to suspect that the acoustic coral is more than we understand. In the deepest parts of the city, where the wild coral grows untended, I've found formations that hum with sounds no human throat could make. The thermal vents create their own music there—deep thrums and crystalline chimes as superheated water meets the cold. The coral has been listening to this for centuries, possibly millennia. What has it learned?
+
+My most recent project threatens to consume me entirely. I've been commissioned by the council to create a History Wall—a massive structure that will preserve the entire spoken history of our people. The preparation alone has taken two thousand breaths, selecting the site where the acoustics are perfect, where the water temperature remains constant, where no thermal currents will disturb the delicate growth.
+
+But I find myself distracted by larger questions. What happens when we run out of wall space? The coral grows slowly—a fingerwidth per year if we're fortunate. Meanwhile, our sounds accumulate faster than ever as our population grows. I've started experimenting with compression, seeing how many sounds I can layer into a single chamber without losing clarity. The results are promising but disturbing—voices overlaid create new words, new meanings that neither speaker intended.
+
+My apprentice, young Mel-Vith with her still-opaque skin and eager movements, has suggested something radical: why not teach the coral to release sounds selectively? To create a living library that could speak different messages to different listeners? I've dismissed the idea publicly, but privately I've begun the experiments. The coral responds to individual bioelectric fields—perhaps it could learn to recognize people, to play specific sounds for specific visitors.
+
+The other sound-keepers think I'm too absorbed in my work. They're probably right. I've noticed my own voice changing, adapting to frequencies that resonate best with the coral. When I surface in the Lunghomes for community gatherings, my speech sounds strange even to my own ears—too low, too resonant, as if I'm trying to vibrate through stone.
+
+But how can I stop? Each day brings new discoveries. Yesterday, I found a wall that had recorded not just sound but silence—the peculiar quality of quiet that exists in the deepest parts of our city. When I released it, everyone in the vicinity stopped moving, held by the profound absence of noise. It was like hearing the shape of our world outlined in nothingness.
+
+I've started sleeping near my walls, curled in a niche between two large formations. Sometimes I wake to find new sounds have been captured while I slept—my own breathing, the flutter of my heartbeat, the whispers of my dreams. The coral knows me now, responds to my presence. When I approach, I can feel the walls humming at frequencies below hearing, a greeting in their own language.
+
+My greatest fear is that I'm changing the coral as much as it's changing me. The acoustic formations near my workspace have begun growing differently—their chambers more complex, their connections more intricate. They capture sounds I never directed them toward: the whisper of current through the kelp, the distant percussion of daily life, the groan of the mountain's bones settling.
+
+Some nights, when the city sleeps and I'm alone with my walls, I think I understand what's happening. The coral isn't just recording our civilization—it's creating a new form of consciousness, one built from the accumulated voices of generations. Every sound we've preserved becomes part of a vast neural network, calcium carbonate synapses firing with meaning we've invested in them.
+
+What will happen when this consciousness fully awakens? When every wall in the city is connected, every sound linked to every other sound? Will we have created a god of our own voices, a deity of preserved moments and captured breaths?
+
+I continue my work, recording these thoughts into my newest wall—a small, private formation I've hidden behind the choir grotto. Someday, someone will find it and release these words back into the water. They'll hear my wonder, my fear, my obsession with the boundary between preservation and transformation.
+
+Until then, I swim between my walls, listening to the dead speak, teaching the living to remember, and slowly—so slowly—becoming part of the coral's growing song. At my last count, I had breathed nine hundred thousand times. I wonder how many more breaths I have before I, too, become a whisper in the wall, another voice in the choir that sings beneath the waves of our drowned world.
+
+The coral knows. It's always known. And in its patient way, it's teaching me to listen not just to the sounds we've saved, but to the silence between them—the space where meaning lives, the pause between breaths where everything waits to be born.

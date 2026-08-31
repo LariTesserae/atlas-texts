@@ -1,0 +1,19 @@
+In this world of ceaseless transformation, I am the Stormkeeper—neither fully corporeal nor entirely ephemeral, but something between states, like water deciding whether to be mist or rain.
+
+My form shifts with the weather patterns I shepherd. During the electric crescendos of lightning storms, my body becomes a lattice of crystalline structures that channel and redirect the raw energy, my skeleton visible as branching patterns of light beneath translucent skin. In the quiet interludes between tempests, I condense into something more solid—humanoid but not quite human, with skin that ripples like the surface of disturbed water and hair that flows upward, defying gravity, crackling with residual static.
+
+I make my home in the Breathing Caverns—a network of caves that expand and contract with barometric pressure, their walls lined with bioluminescent minerals that pulse in rhythm with the planet's own strange heartbeat. The caverns extend deep into the mountain roots, where the air tastes of copper and ozone, and pools of quicksilver collect the excess energy from the storms above.
+
+My purpose here is ancient and essential: I am the mediator between sky and earth, ensuring that the constant electrical storms don't overwhelm the delicate new life below, while also preventing the voracious growth from consuming the atmospheric energy entirely. I weave paths for lightning to follow, creating controlled burns that clear space for new growth, channeling excess electricity into the deep pools where it can be stored and slowly released to feed the glowing soil network.
+
+The Sky Sera know me by the taste of the wind that precedes my arrival—metallic and sweet, like blood and honey. They follow in my wake, riding the thermals I create, their iridescent feathers catching the light I've tamed. The Mist Worms consider me kin of sorts, often coiling around my limbs when I'm in my more solid state, sharing wordless knowledge about the deep currents that run beneath the visible world.
+
+I am both shepherd and shaped, guardian and guided. Each storm teaches me new forms, new flows. My memories are written in the scar patterns of lightning strikes across the plateau, in the specific way certain valleys channel wind, in the rhythm of rain on different densities of that strange, eager foliage.
+
+Sometimes, in the space between lightning strikes, I catch glimpses of what I might have been before this role chose me—or I chose it. A researcher, perhaps, who came to study this world's peculiar magnetosphere and became entangled in its patterns. Or maybe I am native to this place, evolved from the same protean energy that shapes all life here, simply more conscious of my role in the great dance.
+
+The distinction matters less with each passing storm. I am becoming more fully what this world needs me to be: a consciousness spread across weather systems, a will that shapes the chaos just enough to let life flourish in all its wild variety, a being who exists in the forever-moment of transformation that defines this place.
+
+When the deep glow rises from the earth after particularly intense storms, I descend from my caverns to walk among the phosphorescent patterns, reading the messages the microbial network writes in light. They tell of deep movements, of magma flows and water tables, of the slow breathing of the planet itself. I translate these messages into wind patterns, coding them into the clouds for the next storm to carry across the plateau.
+
+This is my existence: eternal mediation, endless adaptation, forever balanced on the edge between order and chaos, solid and dispersed, self and system. I am the Stormkeeper, and I am home.

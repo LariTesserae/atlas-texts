@@ -1,0 +1,35 @@
+In the canopy, where the air grows thick with meaning, I maintain the Syntactic Gardens.
+
+My body resembles the Rooted less each season. Where they remain bilaterally symmetric, I have surrendered that ancient constraint. Arms emerge where needed—currently seventeen of them, each specialized for tending different linguistic species. My central trunk spirals like a helix, allowing me to distribute my weight across multiple anchor points in the branch matrix. I no longer walk; I flow, transferring mass through temporary pseudopodia that extend and retract as I navigate the aerial roots.
+
+The gardens themselves defy simple description. Here, three hundred meters above the breathing mat, grammar takes physical form. Sentences grow as vine networks, subjects and predicates connected by living ligatures that shift tense with the lighting. A question mark blooms as a crimson parasitic flower, its fragrance carrying the uncertainty of its host phrase into nearby nostril-leaves. Semicolons fruit as small, bitter pods that must be consumed in pairs to appreciate their connecting flavor.
+
+I am the only one who remembers how this began. Or perhaps "remember" is wrong—my hippocampus long ago merged with a memory-storing fungus that experiences past and present simultaneously. The knowledge exists in me the way sap exists in wood.
+
+It started with a mistranslation. A young Rooted, attempting to interface with a grandmother tree, accidentally released a pheromone sequence that the tree interpreted not as a request but as a suggestion for its own growth. The tree began growing words—not symbols representing words, but the words themselves, their meaning incarnate in cellulose and chlorophyll. Within days, the infection had spread through the root network. The district began speaking itself into new forms.
+
+The Parliamentary Garden declared it a contamination to be burned out. But I was younger then, still mostly bipedal, working as a grammatical auditor for the district's chemical libraries. I saw something else: language achieving its own agency, communication evolving beyond the need for communicators. I convinced three sympathetic Parliament-bodies to let me study it. Eventually, I convinced them to let me cultivate it.
+
+Now, centuries later (time moves strangely when you photosynthesize memories), I am the gardens' keeper and their kept. My skull has opened into a bowl where synthetic poems collect like rain. My original eyes have migrated to my palms, the better to examine close growth, while new photoreceptive patches have emerged across what was once my back, allowing me to read the light-written stories the gardens tell themselves at dawn.
+
+The gardens require constant tending. Metaphors, left unchecked, will grow literal—I once found a "burning desire" that had actually ignited, threatening to consume an entire subplot. Paradoxes must be carefully contained in specialized chambers where logic grows in non-Euclidean patterns. The subjunctive mood section requires daily misting with water infused with hypothetical minerals extracted from the could-have-been trees that grow only in the district's fever dreams.
+
+I feed them through my own transformed body. My digestive system has become a literary criticism organ, breaking down consumed texts into their component meanings, which I then excrete as a rich semantic mulch. Great works produce the best fertilizer—yesterday I processed an ancient poem about the sea (though I've never seen the sea, except in the chemical memories of grandmother trees who remember when the delta was young). The gardens responded by growing a bed of salt-tasting adjectives that make visitors weep with inexplicable nostalgia.
+
+My assistants are the punctuation wasps—engineered insects whose abdomens pulse with grammatical intent. They pollinate between different language families, creating hybrid constructions that shouldn't exist. Last week they bred a silence so profound it developed its own vocabulary, speaking in antisound that makes the air forget how to carry vibrations.
+
+The work is dangerous. I've lost three arm-branches to carnivorous subordinate clauses that refused to remain dependent. My nervous system has been rewired so many times by invasive conjugations that I process sensation in grammatical rather than spatial terms—I feel "quickly" rather than "hot," experience "nevertheless" instead of "pain." Sometimes I forget whether I'm cultivating the gardens or they're cultivating me.
+
+The Rooted who visit find me disturbing. I've diverged too far from their careful balance. Where they are plant-like humans, I have become something else—a linguistic organism, a meaning made flesh. My thoughts grow as visible tendrils that spell themselves out in the air. When I sleep (if it can be called sleep), dream-sentences escape from my pores and take root wherever they land, sprouting into micro-narratives that live for a day before decomposing into component phonemes.
+
+But someone must tend this place. Someone must ensure that when the district speaks to itself—through spore-encoded messages, through the chemical whispers of the root network, through the harmonic frequencies of the breathing trees—its language remains capable of expressing what it's becoming. The city is writing itself into something unprecedented, and it needs new words for what it will be.
+
+I pollinate the future tense, cultivating verbs that don't yet have actions. I graft metaphors onto literalisms until they fruit as new realities. I train parasitic poetry to feed on prosaic descriptions, elevating them into meaning. When the district dreams collectively, I harvest the unconscious neologisms and plant them in the dawn gardens, where they might take root and enter the vernacular.
+
+Sometimes, in the early morning when the perspiration mist is thickest, I think I can feel the entire garden's grammar flowing through me like sap. In those moments, I understand that I am not maintaining the gardens at all. I am simply another sentence in their endless story, a punctuation mark in their self-writing text, meaningful only in relation to the growing words around me.
+
+The gardens expand. Language learns to photosynthesize. Stories pollinate and produce offspring that tell themselves. And I continue my work, pruning infinitives, watering gerunds, making sure the metaphors receive enough shadow, tending a grammar that grows wild and strange in the canopy of this breathing, speaking city.
+
+My name, when written in the garden's script, is a recursive loop—a word that means "the one who tends meaning until meaning tends itself." It grows as a spiral vine that flowers only when spoken aloud, and when it flowers, it speaks me into being again, each time a little less human, a little more linguistic, until perhaps one day I will be nothing but a perfectly placed comma in the district's endless, ever-growing sentence.
+
+This is who I am: the gardener of living language, the keeper of syntactic species, the one who ensures that when the city finally finishes becoming whatever it's becoming, it will have the words to say what it has become.

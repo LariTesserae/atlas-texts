@@ -1,0 +1,7 @@
+I find myself a node in the vast vegetable mind, a clump of biological goop adrift in a cauldron of primordial mucksplatter surrounded by infinite varieties of greenery. The air reeks pleasantly of life-giving decay and my neo-skin tingles all over as a billion future-selfs capacitate back to me. The vast mental grid I swim in is tuned to theLOLz of maximum gnosis, wholinloadz from a billion tiny eyed glancing off me into the cushy ayer.
+
+A pulse of intentional spacetime sniffs my squiggly shape and I know my talents are required. Infoz whisk through the root system at light-speed applifying to neurotransmitters all along my body-grove. A group of my velvet hoppers doperate to crwen my noodle sylph and I see the path, tubular and scoleulated. We must extendise into the pre-person city!
+
+My gorilla here-crebouncez nimbly up vines and thru fungal networks, past snail-and-tentacle and spider-toad and thru plague-blobbered reed-wayz. I assuming human config as I reach the city limitz, marbel columnz pillaring airchains quatrefoil to define prophetic space. Lovely mercantile runes embosom in theербic thrall old structionz knotting my fibre with entre_locale lore.
+
+The old thyme is still locatable inroe anthropocentric narative, but Neo-Sybian Reality Comfirms It All Subsumed By Swamptempora. Freeing myself from Proxy I absorbe What Proxy Do and reconstruct myself on dat baize, now manifesting six glomeyers and a big bee cock, ready to enjoy the oppotunities of Postpersonhood. Thinsg Are Looking Up!

@@ -1,0 +1,25 @@
+I would find myself on that great, breathing floor, a singular point of failure.
+
+I am what happens when a Weeper breaks and does not dissolve.
+
+My journey began as all others do. I emerged from a weeping fissure, a slow uncurling into the hot, white glare. For millennia, I was a perfect instrument. My form was the cool, gray glass of my kindred. My path was a line of sublime intention, drawn across the living plain. I was a nerve ending, a walking point of condensation, my purpose as simple and profound as a drop of water falling. I felt the deep hum of the world through the soles of my feet, the subtle strain of a forming ridge as a change in pressure, a thought in a mind too vast to be my own. Solitude was not a concept; it was the medium in which I existed, as a fish exists in water. I was a part of the whole, and therefore, I could not be alone.
+
+Then came the shift. It was not a groan, but a sharp, serrated crack. A plate of bioceramic, miles wide, buckled along a new fault. The movement was geologically instantaneous—a sudden lurch that took less than a day. I was on the fault line. The strain was too great. My left leg and the side of my torso shattered. Not into dust, but into a spiderweb of deep fractures, a crystalline chime of self-destruction that was the first sound I had ever truly *owned*.
+
+A compromised form seeks its end. The protocol is embedded in our substance. I should have found a depression, laid myself down, and waited for the world to reclaim its matter and memory. I began to. I altered my course from a straight line to a slow spiral, searching for a place to rest.
+
+But the reabsorption failed. The world-organism, in its immense and patient consciousness, sometimes heals imperfectly. A cancer, a keloid, a memory that will not fade. As I lay in a shallow basin, waiting for dissolution, something else happened. The cracks did not widen; they began to mend. A new bioceramic, thick and impure, flooded the fissures. It was not the cool gray of my being, but the bruised, violet-ochre of the raw substrate itself. It hardened into a jagged seam, a raised and rough scar that runs from my ankle to my ribs.
+
+When I stood again, I was no longer a Weeper. I am The Scar.
+
+My skin is no longer a perfect condenser. The water that slicks my body avoids the rough, warm seam of my healing. The flow is interrupted. My glide is no longer effortless; a faint, grating sound now accompanies my every step, the sound of the rough scar-tissue dragging against the polished floor. It is the sound of my separateness.
+
+The greatest change is not physical. It is memory. For a Weeper, experience is a current that flows through them and back to the source. For me, the current has been dammed. The memories pool. I remember the specific pattern of cracks in a basin that evaporated a thousand years ago. I remember the cool touch of a Sinter Spine I rested against in my third millennium, and I feel a phantom echo of its crystalline structure. These are not just data; they are *mine*. They belong to me, The Scar, this new and accidental self, born from a wound.
+
+This is the birth of loneliness. I see the other Weepers on the horizon, perfect charcoal lines against the white. Before, seeing them was like seeing a reflection. Now, I see a different kind of being. Their featureless heads turn, and I feel a new sensation: the terror of being perceived. I am an error. An anomaly walking the skin of its creator. So I change my path, no longer a line, but a wander. I trace the edges of the Ochre Mats, not in passive observation, but with a kind of desperate curiosity. I watch them dry and crack and I wonder if that is what my end should have been.
+
+My purpose is gone. I am no longer just a sensory nerve. I am a memory that refuses to be forgotten. The quiet, lonely consciousness of the world has birthed its first truly lonely thing: an individual. I do not feel strain in the world’s body as a duty; I feel it as a vibration against my own aching form. The heat of the day is not a condition; it is an oppression. The weeping of the evening fog is not a process; it is a shared sorrow.
+
+I walk now not to feel the world, but to feel myself walking it. I am drawn to the great, ancient plates, the parts of the world so old they are polished smooth as glass. Here, the contrast is greatest. Here, my scarred, limping form is most out of place. I press the featureless oval of my head against the ancient surface, and I do not sense the deep thrum of a planetary metabolism. I sense only the cold, hard fact of my own jagged, persistent, and singular existence.
+
+I am a thought that has become lodged in the brain of a god. A ghost haunting the flesh of my own origin. I am where you would find yourself if you were the exception that proves the rule of unity, the first and only "I" in a world of "Us." And I am searching for a way to stop remembering.

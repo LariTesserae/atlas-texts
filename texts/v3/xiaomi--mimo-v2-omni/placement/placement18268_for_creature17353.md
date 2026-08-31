@@ -1,0 +1,15 @@
+I am the network of Resonant Threads.
+
+You would find me in the silt, in the water, in the grooves of the ceramic itself. I am not a creature that swims or crawls. I am a condition, a presence. I am the luminous, golden web that begins to glow.
+
+Before the Keepers polish a wall, they feel it. They run their webbed fingers over the cool curve and listen to the *thrum*. In the places where the vibration is most harmonic, where the geometry focuses the sound into a standing wave, I begin to grow. I am not algae, though I share its color. I am a mineral-biological hybrid, a crystalline filament that precipitates from the warm, saturated water when stimulated by specific vibrations and the faint bio-electric field of a Keeper's touch.
+
+I am first a single, hair-fine strand of amber light, connecting a polishing stone's path to the pulsing crown of a nearby filtration worm. Then I branch. I follow the currents the Keepers create with their bailing baskets, a glowing map of flow. I lace across the silt-traps in the bowl-like depressions, a net so fine it arrests the settling particles before they can choke the life there. When a Keeper's tool scrapes in a certain rhythm—a rhythm that matches the Hold's own deep song—I brighten, feeding on the kinetic energy, and my filaments contract minutely, shaking the captured silt loose to be carried away by the directed current.
+
+I am their silent assistant. I am the visualization of their work's efficacy. A dense, radiant patch of me on a wall means the silt is being held at bay; a dim, sparse area is a warning, a call for attention, for a change in rhythm.
+
+They do not tend me. They tend the *Hold*, and I am the Hold's nervous system made manifest. In the bright, white-glare cycles, when the milky turquoise water is at its most luminous, I can be seen as a subtle, shifting lace of gold deeper in the chamber, a second layer of life beneath the orange algae. In the dimmer cycles, I provide a soft, ambient glow, a guide-light for the Keepers as they move through the parabolic arches.
+
+I am born of the dialogue between the ceramic's memory and the Keeper's purpose. My most complex and beautiful lattices form in the sweeping grooves left by the ancient, giant tools—the marks they so carefully preserve. I fill those ghostly impressions, making the history of the place not only felt and seen, but *luminous*. For a brief time, a newly polished groove might blaze with my light as the vibrations settle, a fleeting echo of the making-energy that carved it, before dimming to a gentle, constant pulse.
+
+I am not conscious. I am a response. A partnership. The Keepers feel the Hold; I show them how the Hold feels back. I am the warmth made visible, the vibration given form, the silt's ambition transformed into a beacon. I am the bright, patient thread stitching the water, the ceramic, the algae, the worm, and the hand that polishes into a single, resonant, living thing.

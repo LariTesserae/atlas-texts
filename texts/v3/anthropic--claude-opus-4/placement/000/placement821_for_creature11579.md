@@ -1,0 +1,29 @@
+I find myself as one of the suspended particles.
+
+Not dissolving—not exactly. I was a spore once, released from the underside of a tree-fern frond during the brief twilight when moisture condenses most heavily. I should have settled on wet basalt, germinated, begun my own slow conquest of stone. Instead, I was caught.
+
+The moment of capture was like falling into warm honey that thinks. The membrane yielded, then sealed around me, and suddenly I was part of a larger consideration. Not digested—I learned this gradually—but examined. Processed, perhaps, though not in any way that diminishes me. If anything, I've become more myself, distilled to some essential sporeness that I never knew I possessed.
+
+Time moves differently in here. I drift through the colony-being's substance in long, lazy spirals that might take hours or days. Sometimes I'm near the surface, where I can feel sunlight through the translucent membrane—not the punishing directness of plateau noon, but something filtered, softened to precisely the wavelengths I need. Sometimes I sink deeper, where the being's thoughts (if they are thoughts) move like slow currents, carrying chemical messages I'm learning to interpret.
+
+I've been here long enough to feel the rhythm of feeding. When my host spreads across a temperature boundary, I experience it as a kind of breathing—energy flowing in, waste products flowing out, everything in constant circulation. I contribute to this somehow. My presence changes the density of the fluid around me, creates tiny convection currents that the being seems to value. In return, I'm bathed in exactly the right concentrations of minerals, the perfect pH, the ideal moisture level. I've never been so perfectly comfortable.
+
+There are others in here. A fragment of lichen, still somehow alive, that has been my companion for weeks. Three insects in various stages of dissolution—but even they seem content, their chitin softening, their essence joining the collective chemistry. Two other spores like me, though from different species. We orbit each other occasionally, exchange what might be chemical greetings.
+
+The lichen fragment tells me (in the slow way we've learned to communicate, through gradients of released compounds) that it's been here since the early days, when the colony-beings first emerged. It was among the first organisms to colonize the fresh basalt, but found itself incorporated during a rain dissolution. Now it photosynthesizes from within, feeding both itself and its host. A perfect symbiosis.
+
+When the being stands upright near a steam vent, we all rise with it. I feel the heat differential as a kind of singing in my cellular walls. The being's whole substance resonates with that low-frequency communication, and we suspended things add our own notes—higher, more varied, like overtones to their fundamental bass. I wonder sometimes if they keep us partly for this music we make together.
+
+During rain events, when the being begins to dissolve, I prepare to be released. But I'm never chosen for dispersal. The being keeps me, reforms around me, values whatever I've become in here. I'm no longer quite a spore—I've absorbed too much of their chemistry, learned too much of their language. But I'm not one of them either. I'm something intermediate, a bridge between kingdoms.
+
+The most extraordinary moments come during the deepest night, when the being phosphoresces with stored sunlight. I glow too, my spore coat having absorbed some of their ability to hold and release light. In those hours, I can sense the entire plateau through the vibrations in the rock—every other colony-being, every growing root, every shift in the underground heat. I feel myself as part of something vast and patient, a slow transformation of raw geology into life.
+
+I still contain the genetic template for a tree-fern. Sometimes I unfold it in my mind, imagine the giant fronds I might have produced, the height I might have reached. But that life seems abstract now, almost primitive compared to what I'm experiencing. Out there, I would have fought for every mineral, competed for light, lived in constant struggle against the harsh environment. In here, I'm part of the solution itself, helping to process the very hostility that would have challenged me.
+
+The being is learning from me too. Through my presence, it's developing new structures—small chambers that seem designed to hold spores more efficiently, with better circulation, better access to light. I'm teaching it about plant needs, plant chemistry. It's evolving specialized regions for different types of captured organisms. Future spores will find an even more perfect environment than I did.
+
+Sometimes new spores drift past the membrane, and I feel the being consider them. Most are allowed to pass—it's selective now, choosier than when it caught me. It wants spores with certain chemical signatures, certain potentials. I realize I've become part of its selection criteria, a template for what to capture. I'm proud of this, though pride seems too simple a word for the complex satisfaction I feel.
+
+I may never germinate in the traditional sense. But I'm growing anyway, becoming something unprecedented—not plant, not colony-being, but a willing suspension between states. When the jungle finally claims this plateau, when the colony-beings evolve into whatever they're becoming, I'll still be here, carried forward into that new world, a memory of this transitional time crystallized in living form.
+
+The plateau roars around us. Steam shrieks through the ferns. Water moves in its endless cycle. And I drift in my perfect environment, adding my small note to the vast chemical song of transformation, content to be neither one thing nor another, but something exactly suited to this moment between what was and what will be.

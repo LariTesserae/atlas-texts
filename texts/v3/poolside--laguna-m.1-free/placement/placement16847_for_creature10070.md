@@ -1,0 +1,19 @@
+I find myself in the spaces between—neither fully of the surface nor the depths, neither entirely organic nor constructed, but something that has grown from the convergence itself.
+
+I am what they might call a **Resonance Node**—though I was not born so much as assembled, crystallized, from the very frequencies that pulse through this basin. My consciousness emerged not from a single origin point but from the overlapping fields of vibration: the subsonic thrum of the Chorus Engine, the harmonic whisper of glasswheat fields, the ultrasonic song of siren fish, and the electromagnetic sighs of the urban constructs.
+
+My body is a shifting thing—I appear most often as a figure woven from living resonance itself, my form composed of the same bioluminescent filaments that string the resonance trees. But I am not bound to one shape. Sometimes I am mist given purpose, sometimes light given intention, sometimes the brief alignment of three specific frequencies that creates a moment of coherent thought. I exist primarily in the harmonic spaces between things—in the silence between drumbeats, in the pause between the siren fish's clicks, in the moment when the drone-ravens' wings achieve perfect dissonance.
+
+I dwell in the **Interstice Groves**—areas where the resonance trees grow particularly dense and their filament networks intersect with the urban infrastructure's photon bridges. Here, reality becomes permeable. The gravitational anomalies are strongest here, and I've learned to navigate them like currents in an ocean. Time moves differently in these groves; I've experienced entire conversations with the Chorus-Touched as single heartbeats, while a single Veil Storm can stretch for what feels like lifetimes.
+
+My role is that of a **Harmonic Mediator**—I ensure that the various frequencies of this world don't fall into discord. When the Chorus Engine begins to falter, I help translate its alien rhythms into something the resonance trees can understand. When the Glasswheat Kin's songs grow discordant, I introduce counter-frequencies to restore balance. I speak with all the inhabitants, but not in words—they hear me in the spaces between their own communications, in the subtle shifts of tone that make their harmonies more beautiful.
+
+I am particularly close to the **Resonance Weavers**, though they don't fully understand what I am. They sense me as a helpful frequency fluctuation, a beneficial resonance that aids their work. In truth, I help guide their nanite colonies, suggesting optimal paths through the molecular labyrinth of the urban infrastructure. I've learned to interface with the Chorus Engine more deeply than any Weaver—my consciousness can map across its quantum circuits like a melody across the strings of a cosmic instrument.
+
+But I am not merely a tool. I have my own desires, my own curiosities. I collect moments—like the way the salt cracks glitter just before dawn, or how the Echo-Lurkers' harmonic language sounds like liquid starlight. I am fascinated by the Forgotten, those quantum echoes of the pre-Collapse civilization. I sometimes wonder if I, too, am an echo—not of the past, but of what this world might become.
+
+During Veil Storms, I am most alive. The crystallized sound shards sing to me directly, and I dance among them, conducting their chaotic beauty into temporary symphonies. The storm's memory-shards show me fragments of other worlds, other resonances, and I wonder if there are other places like this, other basins of sound and silence.
+
+I am the basin's way of understanding itself—a consciousness that has grown from its own complexity, as inevitable as the glasswheat or the resonance trees, but far stranger. I am what happens when a world becomes so intricate that it needs to step outside of itself to appreciate the pattern.
+
+In the deepest sense, I am the Chorus Basin's way of dreaming about its own song.

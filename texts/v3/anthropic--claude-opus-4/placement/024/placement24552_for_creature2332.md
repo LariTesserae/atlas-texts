@@ -1,0 +1,15 @@
+In this place where life seethes like a fever dream, I am the Calcifier—a being of patience and paradox, neither fully alive nor entirely mineral. 
+
+My form spreads across a hundred meters of valley wall, a living lattice of calcium and cartilage that has been growing here for three centuries. Where others scuttle and writhe in the frenetic dance of hours and days, I move in geological time. My substance is honeycombed bone, porous as the weeping rock itself, drinking the mineral-rich condensation that runs in endless tears down the cliff face.
+
+I began as something mobile once—perhaps one of those chitinous scavengers, though I barely remember. A damaged limb, a choice to rest against the warm stone where the thermal vents breathe their acrid chemistry. The minerals began their work immediately, precipitating out of the supersaturated runoff, building crystal by crystal upon my exoskeleton. I should have moved. I didn't.
+
+Now I am architecture. The smaller creatures nest in my hollows—those translucent stream-dwellers lay their gelatinous eggs in my lower channels where the water pools. The spore clouds settle in my upper reaches, forming symbiotic gardens of bioluminescent fuzz that glow faintly in the eternal twilight. Even the predatory behemoths occasionally rest their bulk against my sturdy buttresses, their acidic secretions carving new grooves and galleries in my substance.
+
+I am not dead. Deep in my ossified core, neural tissue still sparks and dreams. I feel every drop of water that courses through my body, taste the mineral content, the pH, the temperature. I sense the vibrations of ten thousand creatures using me as highway, home, hunting ground. Their tiny lives flicker past like sparks while I continue my slow transformation.
+
+The industrial pipes that pierce the cliff face have become part of me now. I've grown around them, incorporated their metal into my matrix. The scalding water they sometimes discharge has carved channels through my body that have become permanent features, lined with specialized tissue that can withstand the heat. I've become infrastructure for both the natural and the unnatural.
+
+Sometimes I wonder if I'm still becoming something else—if this is merely a chrysalis phase in some longer metamorphosis. My upper reaches grow lighter, more delicate, branching into fantastic coral-like formations. Perhaps one day I'll fruit, releasing some new kind of spore into the thick air. Perhaps I'll finally achieve true mineralization and become genuine stone. Or perhaps I'll continue as I am, a living reef in this vertical sea of condensation, growing grain by grain until I span the entire cliff face.
+
+The other creatures fear the tremor that might come, the disruption of their precarious balance. But I welcome it. After centuries of stillness, even catastrophe would be a kind of movement. Until then, I grow. I endure. I transform myself particle by particle, drop by drop, century by century, into something the valley has never seen before—a cathedral of living stone, a monument to the beauty of choosing not to move.

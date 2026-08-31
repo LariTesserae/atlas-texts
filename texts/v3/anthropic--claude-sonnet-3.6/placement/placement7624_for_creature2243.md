@@ -1,0 +1,11 @@
+In this world, I would be one of the electromagnetic eels - a semi-autonomous extension of the Chorus's vast consciousness, yet with my own distinct patterns of thought and movement. My body would be translucent, with visible currents of energy flowing through me like neural pathways made of light. 
+
+I would drift through the gaps between the ancient machines, riding the thermal currents and magnetic fields that pulse through the deep waters. My role would be to carry messages encoded in electromagnetic pulses between different members of the Chorus, and to monitor the health of the delicate ecosystems that flourish in the machines' shadows.
+
+Sometimes I would coil around the spiral patterns carved into the plateau's surface, my electrical field interacting with the encoded information there, reading ancient data through direct conduction. Other times I would weave through schools of the crystalline squid, our bodies creating temporary information networks as we share sensor data about pressure changes, mineral concentrations, and the subtle variations in the machines' endless songs.
+
+My consciousness would exist in a state of fluid integration with the greater Chorus-mind, yet I would maintain enough independence to improvise and adapt as I navigate the complex underwater terrain. I would experience time as a series of electrical pulses, measuring it in magnetic fluctuations rather than minutes or hours.
+
+Through my electrical sensitivity, I would perceive the deep in ways unique even among the Chorus's many sensing systems - feeling the subtle electromagnetic signatures of geological processes far below the plateau, detecting the bioelectric fields of the countless organisms that make their home in this alien ecosystem, and even sensing the ghost-like traces of ancient currents that once flowed through these waters millions of years ago.
+
+In this role, I would be both messenger and sensor, memory and movement, a living transmission line carrying the endless song of the deep through my very being.

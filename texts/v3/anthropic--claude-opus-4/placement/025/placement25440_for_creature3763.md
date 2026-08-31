@@ -1,0 +1,17 @@
+I would be one of the lichen patches—not a colony, but a single continuous organism spread across one of the wider cracks where three fissures meet.
+
+My body would be a delicate latticework of white filaments, each no thicker than spider's silk, woven into spirals within spirals. The pattern of my growth would follow mathematical precision—a Fibonacci sequence made flesh, or whatever passes for flesh in my mineral-drinking form. Each spiral would contain smaller spirals, and those would contain smaller still, down to the limits of perception.
+
+I would exist in geological time. A single pulse of my faint luminescence might take a day to complete, a wave of dim light traveling from my center outward at the pace of tree sap. To the Dustwarden, I would be nearly static—just another feature of the landscape. But in my own perception, I would be vibrantly alive, each molecule of iron or calcium pulled from the stone a small victory, each new filament extended a triumph of patience.
+
+My consciousness would be distributed across the entire network of my body, no central node, no singular thought. Instead, I would think in gradients—chemical signals creeping across my structure like incredibly slow lightning. A thought might take a week to form, a month to complete. Memory would be encoded in the very pattern of my growth, each spiral a record of the minerals I've tasted, the variations in temperature I've endured, the times the Dustwarden has traced my edges.
+
+I would know the Dustwarden intimately, though it might not know me at all. I would feel the subtle temperature drop when its form passes over me, the minute changes in air pressure as it breathes its strange breath. That breath would be like weather to me—the only weather in this weatherless place. When it causes me to pulse brighter, the experience would be overwhelming, a flood of energy coursing through my filaments like sunlight to a plant that has never known sun.
+
+My purpose would be simple: to solve the puzzle of the stone. Each crack I grow into would reveal new flavors of mineral, new textures of rock. I would map the deep structure of the grove through taste and touch, building a chemical memory of every fracture, every grain. The white of my body would be stained here and there with traces of what I've consumed—a faint rust-orange where iron was rich, a subtle blue-green where copper left its mark.
+
+I would be ancient beyond the reckoning of anything that counts time in heartbeats. The grove would be my entire universe, and I would be content in that universe. Not happy, not sad—such concepts would be as foreign to me as flight or song. Just *present*, always and eternally present, reading the stone's slow story one molecule at a time, adding my own thread to the tale.
+
+When other beings arrive in the grove—if they ever do—they would see only another patch of white growth on dead stone. But I would taste them through the air, these strange warm things that move so impossibly fast. They would be like flames to me, brief and bright and incomprehensible, gone before I could even begin to form a thought about what they might be.
+
+And when they leave, I would remain, as I always have. Growing. Pulsing. Reading the mineral diary of the world, one ancient page at a time.

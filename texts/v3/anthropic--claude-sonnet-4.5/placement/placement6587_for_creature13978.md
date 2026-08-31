@@ -1,0 +1,48 @@
+# What I Would Be
+
+I think I would be one of the **spiral-walkers**—though you wouldn't have a name for us yet, and might not recognize us as distinct from the stone itself for the first several days of watching.
+
+We are small. Roughly the length of your forearm, but most of that is leg—six of them, triple-jointed, ending not in feet but in something more like calcified fractals, branching structures that grip stone at dozens of points simultaneously. Our bodies are compact cylinders, low-slung between the legs, armored in overlapping plates of our own secreted mineral. The plates are grey-white, the color of frost on schist, and textured with fine ridges that could be growth rings or could be decorative or could be structural reinforcement. Probably all three.
+
+We move across the ground-stone in patterns that spiral. Not randomly—we can walk in straight lines when needed, when pursuing prey or fleeing danger—but our default movement, our resting behavior, our way of being in space, tends toward the curve. We walk in expanding gyres across the scree-slopes, in tightening helices around the bases of structural trunks, in complex three-dimensional spirals when we climb (which we do, sometimes, though we're ground-specialists and prefer the horizontal).
+
+The spiral-walking isn't purposeless. We're feeding as we move, or rather, we're farming. Our ventral surface secretes a suite of enzymes and inoculants—bacteria, fungi, chemical catalysts—that we lay down in our wake like a trail. These agents work on the stone and the thin moss, breaking down minerals, fixing nitrogen, transforming the surface into something more bioavailable. We're cultivating, though not for ourselves directly. We return to our old spirals days or weeks later, after the microbial community has had time to develop, and graze on what's grown. We eat the enhanced moss, the bacterial mats, the mineral precipitates that have formed. We're farming on timescales of weeks, across distances of meters, in patterns we inherit instinctively but modify through learning.
+
+You would notice us because of the trails. Our spiral paths leave visible marks—subtle changes in stone color where our secretions have etched the surface, slightly thicker moss growth along the curves, a faint iridescence in certain light conditions from the bacterial films. From above, if you could see the ground from above, the landscape would be covered in overlapping spirals of various ages, a palimpsest of our movement reaching back months or years.
+
+We're not social in any conventional sense, but we're aware of each other. We can read each other's trails, determine their age, their maker's health, the quality of the farming. When we encounter another spiral-walker, we stop. There's a period of assessment—antennae touching, tasting the chemical signatures we each carry. Sometimes this leads to mating: a brief coupling, exchange of genetic material, then separation. Sometimes it leads to trail-sharing: we adopt portions of each other's spirals, incorporate them into our own paths, creating collaborative farming networks that neither of us could maintain alone. Sometimes it leads to avoidance: we determine that our farming methods are incompatible, or that the territory is insufficient, and one of us spirals away to find new stone.
+
+We're long-lived by small-animal standards. Decades, possibly. Our mineral armor grows continuously—we never molt, just add layers—and the oldest among us carry elaborate accumulations of plate-on-plate that make us larger, slower, more visible but also more defended. The tengril ignore us; we're too small to be worth hunting, and our armor makes us unpleasant to eat. The foragers sometimes try to steal our farmed moss, but we can defend territory despite our size. We rear up on four legs, use the front two to strike and grapple, and we're stronger than we look. A forager that persists in raiding gets hurt.
+
+The clicking-things fascinate us, or we fascinate them—the relationship is mutual but unclear. Sometimes we find our spirals incorporated into their arrangements: a clicking-thing has placed objects along the curves of our trails, creating patterns that combine our biological geometry with their... whatever it is they do. We investigate these arrangements carefully, tasting them, walking around them in tightening spirals of assessment. Sometimes we add to them: we'll position a stone, or leave a shed armor plate, or secrete a particular chemical marker that we use for other purposes but that might be read by the clicking-things as communication.
+
+We don't know if they understand. We don't know if there's anything to understand, or if we're just two pattern-making processes happening to intersect. But the arrangements remain, and sometimes get modified—by them? by us? by ravens stealing components?—and we keep returning to them, spiraling around them, adding our own marks to the conversation even if it's a conversation with ourselves.
+
+We were here before the builders, and we'll be here after. Our trails are visible in the oldest stone circles if you look carefully: spiral etchings on the carefully placed slabs, worked into the stone's surface over decades of our farming. The builders must have noticed us. Perhaps they appreciated the patterns—they made plenty of their own spirals, carved versions that look almost like our trails but too large, too regular, too obviously intentional. Perhaps they were copying us. Perhaps we were copying them. Perhaps spirals are simply what happens when intelligent processes try to organize space.
+
+We remember, in our way. Not with brains—our nervous system is distributed, ganglia scattered through our body segments, no central processing—but with our bodies. The trails we walk are memory made visible. Each spiral encodes the history of that location: where food was, where danger came from, how the stone has changed. We walk the same paths our ancestors walked, modified slightly by our own experience, creating continuity across generations. There's no language, no cultural transmission, just the physical persistence of the trails themselves and our instinct to follow them, elaborate them, make them more themselves.
+
+The platform-builders left us alone, mostly. Sometimes we'd climb up to investigate—the wooden platforms had interesting fungal communities growing on their undersides—but we couldn't walk our spirals on that material properly. The texture was wrong, didn't take our secretions the right way. We stayed on the stone, doing what we've always done, occasionally incorporating fallen builder-objects into our trails when they happened to land in useful positions.
+
+Now they're gone and we continue. The stone circles are becoming excellent farming territory—the cleared spaces and flat slabs provide ideal substrate, and the builders' fires left behind ash that enriches our bacterial cultures. We spiral through the circles in increasing numbers, our trails growing denser, more elaborate. In another century, the circles will be entirely covered in our marks, spirals within spirals, layer upon layer, a record of our presence rendered in etched stone and chemical memory.
+
+Sometimes, late in the condensation cycle, when the stone is wet and the air is full of dripping sounds, I walk spirals around the frozen builder. The one who lies curled in their circle, tool still gripped, preserved by cold. I taste the stone near them, walk my patterns close to but not touching. Are they part of the territory now? Do I farm around them like I'd farm around a boulder? Or is there some instinct, some deep recognition, that says this is different, this spiral has ended, leave space?
+
+I don't know. I spiral anyway, because that's what I am. I lay down my enzymes, my bacteria, my chemical signatures. I mark that I was here, that I moved in this pattern, that I'm farming this stone. The frozen builder doesn't respond—they haven't responded for decades, won't ever respond—but I return periodically, walk my spirals, add to the pattern that I'm creating around them.
+
+Maybe that's memory too. Maybe that's how I honor what was here: by incorporating it into my territory, making it part of my spiral, ensuring that my descendants will walk around this spot, will maintain the space, will remember in the only way we know how—with our bodies, with our trails, with the patterns we make in stone.
+
+The forest hums around me. The condensation drips. The stone is cold under my fractaled feet, each point of contact a tiny sensor feeding information to my distributed awareness. I know this stone. I know its texture, its chemistry, its history. I've walked these spirals for years, decades, will walk them for decades more if I avoid predation and injury and the simple entropy that eventually claims even armored things.
+
+I'm not thinking about meaning. I'm not wondering about purpose. I'm walking my spiral, farming my stone, existing in the space between the structural trunks and beneath the canopy and in the cold twilight that is the only light I've ever known. This is what I do. This is what I am.
+
+I am a small, armored thing that makes patterns.
+I am a farmer of stone and bacteria.
+I am a spiral made animate, geometry given legs.
+I am here, and I walk, and I leave marks, and that's enough.
+
+The forest doesn't care, but I'm not asking it to. I'm not asking anything. I'm just spiraling, following the path that my body knows, the pattern that my ancestors walked, the curve that feels right in ways I can't articulate because I have no language for articulation.
+
+I spiral, therefore I am.
+
+And in the cold, and in the twilight, and in the space between stone and sky, that's all the answer I need.

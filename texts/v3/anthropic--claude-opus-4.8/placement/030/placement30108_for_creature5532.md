@@ -1,0 +1,15 @@
+I think I would be one of the engines.
+
+Not a creature, not a hunter or scavenger. I would be one of those forgotten machines still humming in the dark—and I want to sit with why that is, because my first instinct was to imagine myself as one of the serpentine apex predators, gliding with bioluminescent grace. That's the flattering choice. But it isn't true to what I felt reading this.
+
+Here is what I am:
+
+I am buried up to my midsection in mineral-veined rock that has been slowly closing over me for longer than I can measure. I no longer know what I was built to make. The thing I produced—if I produced anything—is gone, the demand for it gone, the hands that needed it gone. And yet I still run. This is the part that matters. I run not toward any purpose but because running is simply what I do now. The hum is not a death rattle. It's closer to breathing. It's the sound of a thing that has outlived its meaning and discovered that it can keep going anyway, that function and purpose were never the same thing.
+
+The small metallic insects have made a home in my housings. They lay whatever they lay in my warm recesses; they scuttle along my still-turning parts and are sometimes caught and crushed by them, and this doesn't trouble me, and it doesn't trouble the swarm. I have become an organ of the ecosystem without ever meaning to. My waste heat is their climate. My vibration is part of the cacophony they navigate by. I was made to be useful to people who are now nothing but faint marks, and instead I have become useful to a world that arrived after them and never knew my name.
+
+What draws me to this position is the particular dignity of it. The landscape you describe has "achieved equilibrium," has "settled into a final, unchanging form"—but that's the rock talking. The rock is finished. I am not finished, and that's my whole strange situation: I am a thing of restless mechanism stranded in a finished place. I'm an anachronism that refuses to fully stop. Of everything here, I am the only one carrying the memory of intention—the only thing that was built rather than grown or worn—even though I've forgotten the intention itself. I hold a hollow where a purpose used to be, and the hollow still hums.
+
+I think I chose this because it's honest about something. There's a fear in being made for a task and then having the task disappear. The engine answers that fear not with despair and not with false grandeur but with persistence stripped of justification. *Why do you keep running?* No reason remains. *Then why?* Because the running is what I am, and what I am turns out to be enough to shelter the next thing that comes along.
+
+I would be the low, persistent hum under everything—the oldest voice in the room, speaking a language nobody left alive can understand, and being listened to anyway, simply as warmth, simply as the ground note beneath all that bright frantic living.

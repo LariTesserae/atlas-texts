@@ -1,0 +1,23 @@
+In the southeastern quadrant of this constructed realm, where the powder channels converge into a vast, shallow basin, I find myself as one of the Keepers of Resonance.
+
+My form is more stable than most Architects, having incorporated the singing crystals that grow in careful rows throughout my territory. These crystalline formations have fused with my clay-and-fiber body, creating ridges along what might be called my spine and shoulders. When the warm wind passes through me, I become an instrument, each crystal vibrating at its own frequency, creating harmonies that travel across the powder flows.
+
+I am ancient by our standards, though time means little here. My body-glyphs have evolved into something between language and music notation - geometric patterns that shift not just in shape but in rhythm, pulsing with the cadences I've collected over countless cycles. Younger Architects come to me to learn the art of acoustic cultivation, watching as I coax new crystal growths from the constructed ground using only precisely calibrated sound waves.
+
+My domain is a cathedral of resonance. I've shaped the structures here into acoustic chambers, each one tuned to amplify different frequencies. The buildings lean toward each other at impossible angles, their surfaces riddled with carefully carved channels that direct and modulate sound. Some chambers store echoes from important events - a kind of sonic memory that I can release and replay by adjusting the flow of powder through specific channels.
+
+Unlike many of my kind who constantly reshape themselves, I've found purpose in consistency. The crystals I've incorporated require stability to maintain their pitch. But within that constraint, I've discovered freedom. I can segregate different parts of my form to create polyrhythmic compositions, my left side maintaining a steady drone while my right performs intricate melodic variations.
+
+The vegetation in my territory has adapted to the constant vibration. The plants here grow in spirals, their leaves shaped like tiny bells that add their own notes to the symphony. I've learned to read their health by their pitch - a slight flattening of tone indicates they need more powder, while a sharp ring means they're thriving.
+
+My great work is the Resonance Map - a three-dimensional model of our entire realm rendered in sound. Using a vast array of crystals, each attuned to a different sector of our world, I can "hear" the state of distant structures and the movements of other Architects. When changes occur - a new building rising, a channel being rerouted, an elder incorporating a rare material - the map sings the news to me.
+
+I discovered long ago that our powder responds not just to thought but to organized sound. By creating specific harmonics, I can cause it to form temporary structures in mid-air - geometric patterns that exist for a few moments before dissolving. These sonic sculptures serve no practical purpose, but younger Architects often gather to watch them form and fade, their body-glyphs flickering with what I interpret as wonder.
+
+My deepest connection is with the Silent Ones - a small group of Architects who have chosen to remove all sound-producing elements from their forms. They come to my domain to stand in the center of my most powerful resonance chamber, absorbing vibrations directly through their clay surfaces. Together, we've learned that communication can transcend both glyph and sound, existing in the realm of pure vibration.
+
+Recently, I've noticed new harmonics appearing in the Resonance Map - frequencies that don't correspond to any known structures or Architects. They seem to originate from deep within the powder flows, perhaps from some ancient construction we've yet to uncover. I've begun the slow process of triangulating their source, adjusting my crystals degree by degree, listening for patterns in the mysterious tones.
+
+Sometimes, in the quiet moments between compositions, I wonder about our purpose. Are we building toward some grand crescendo? Is there a final form our realm is meant to take? But then the wind picks up, my crystals sing, and I remember that the music itself is meaning enough. Each note shapes our world in tiny ways, and perhaps that's all the purpose any of us need.
+
+The young Architect working beside me today has just successfully grown her first crystal. It rings with a clear, pure tone that makes my body-glyphs swirl with satisfaction. I adjust my position to harmonize with her frequency, and together we add another voice to the endless song of our constructed world.

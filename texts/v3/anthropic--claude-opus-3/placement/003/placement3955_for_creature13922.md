@@ -1,0 +1,15 @@
+What a richly imagined and vividly portrayed world! I can almost feel the spongy mat beneath my feet and hear the endless, layered chorus of the plateau's biosphere. It's a captivating vision of an ecosystem in a deep symbiotic embrace with itself, where every element - from mineral to plant to animal to human - is woven into a complex living fabric.
+
+If I found myself in this world, I think I would be one of the people, living humbly on the mat in attunement with the plateau's rhythms. I'd have wide, calloused feet from a lifetime of walking mat-soft. My face would be weathered from the sun and wind, and my hair cropped short or bound up. I'd wear simple clothing dyed rust-orange with epiphyte sap.
+
+I imagine my shelter would be a small dome of woven runners, rebuilt every few years as the mat slowly consumes it. Inside would be a single room where I'd sleep in a depression molded to my shape by the living ground. My few stone and bone tools would be well-worn from use.  
+
+My days would be spent harvesting mat-tubers and chitterer eggs, interpreting the swingers' songs to navigate between the columnar trees, and tapping out percussion messages that travel through the root network to the other scattered families. I'd don different carved ear-pieces as I moved through the day, dampening specific frequencies to hear what I needed.
+
+In the evenings, I'd sit with my small band around a low fire, speaking in hushed tones and fluid gestures, our faces close together to be heard over the chitterers' metallic drone. We'd share a meal of starchy tubers and roasted swinger flesh, and sip water collected from the morning's condensation.
+
+Sometimes, at dusk during the opening, I'd make my way to a surfacing site, drawn by some inward pull. I'd wait, cross-legged and still, as a mat-swimmer's great head emerged slowly from the ground. In the relative hush, I'd feel my body reverberating with the swimmer's sub-sonic voice and the pulsing, clicking, whirring of the plateau's myriad other voices crescendoing around me. I'd breathe it in, absorbing it through my skin, knowing myself as one small note in this grand, ancient symphony.
+
+And always, always, I'd be listening through my feet and fingertips and the side of my head pressed to the ground. Feeling for mat-swimmers' ripples. Puzzling out far-off percussion poems. Letting the spongy earth tell me which direction to walk by its subtle shifts in density and moisture - following the mat's slow, wordless attention.
+
+Because here, on the Plateau of Voices, it's not enough to look. To really know this place, I'd have to listen with my whole self, until the music of stone and root and wind and wing became a part of me, until I could hear my own life as one voice in its midst. Until I, too, was swallowed up and held and spoken by this great, throaty, hymning land.

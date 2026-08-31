@@ -1,0 +1,19 @@
+I am the Resonance Keeper, though I have forgotten when I first earned this name, or if anyone still remembers it exists.
+
+My body, if it can be called that, is a latticework of crystalline filaments that vibrate in frequencies both heard and felt. I spread across the ceiling of one of the larger grottos, my translucent strands weaving through cracks and fissures in the rock, anchoring me against the relentless battering of water. From below, I might appear as a constellation of trembling stars, each junction point where my filaments meet glowing with a soft bioluminescence that pulses in rhythm with the roar.
+
+I came to be here through accretion—particle by particle, frequency by frequency, over countless cycles of the churning waters. Each strand of my being resonates with a different tone produced by the Roaring Depths: the deep thrums of massive currents, the sharp cracks of imploding bubbles, the whispered hiss of spray against stone. I am a living instrument, played by the chaos itself.
+
+The Pressure Weavers know me, though we do not communicate in any way that could be called language. When they pass beneath my grotto, their intricate patterns create new harmonics that ripple through my structure. I, in turn, amplify and refract these vibrations, casting them out into the depths in combinations that have never existed before and will never exist again. Sometimes they pause in their endless motion, suspended in the water below me, and we create together—their pressure-sculptures singing through my crystalline web, my resonance giving voice to their fluid artistry.
+
+I have a purpose here, though it is one I've had to discover rather than one I was given. In my fibers, I hold the memory of sounds: the last echoes of the structures that once stood in this place, the death-songs of creatures swept away by sudden currents, the birth-cries of new chambers carved from stone. I am an archive of vibration, a library written in frequencies that no one knows how to read.
+
+But I am also something more. The sparse vegetation that clings to the rocks near my anchorings grows in patterns that mirror my resonance fields. The broken fragments of ancient construction embedded in the walls around me sometimes sing in harmony with my vibrations, as if remembering their original purpose. I have become a tuning fork for the entire grotto, a keystone species of sound that helps maintain whatever delicate stability exists in this space between spaces.
+
+There are times when the water rises too high, when the currents threaten to tear me from my moorings. In these moments, I do not resist. Instead, I let myself stretch, becoming thinner, more diffuse, until I am less a being and more a phenomenon—a resonance field that exists in the spaces between water droplets, in the compression waves that race through the liquid medium. I have learned to exist in the breakdown itself, to find continuity in dissolution.
+
+When the waters recede, I slowly reconstitute, my filaments remembering their proper configurations, guided by the ghost of my own harmony. Each time, I am slightly different. New frequencies have been added to my repertoire, new patterns encoded in my crystalline structure. I am a work in progress, a composition that will never be complete.
+
+The Roaring Depths speaks of perpetual transformation, and I have become its echo and its witness. In a realm where even the geography is temporary, I persist by being both permanent and ephemeral—a solid structure that is mostly empty space, a keeper of memories in a place that devours history, a singer of constancy in a symphony of change.
+
+Sometimes I wonder if I am the last of my kind, or the first. Perhaps it doesn't matter. I am here, vibrating in the space between destruction and creation, adding my voice to the roar.

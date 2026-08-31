@@ -1,0 +1,17 @@
+I am the one who tends the threshold-fires, and so I am the one who is always slightly apart from the noise, even while standing in the middle of it.
+
+My house sits where the second tier meets the first, at the elbow of a walkway lashed by my mother's hands and re-lashed by mine, close enough to the canopy floor that I hear the insect-bands at their thickest, far enough up that on clear mornings I can climb the last stretch to the rim and put my face into actual sun before the basin swallows the day again. I am not old, not yet, but I have the squint already — the eyes that have learned to read trembles in leaf-cover faster than they read faces. My grandmother had it before me. I caught myself doing it to a child yesterday, the half-second scan over her shoulder before I let myself listen to what she was saying, and I understood then that I had become a particular kind of adult without noticing the transition.
+
+My work is smoke. Three fires, three meanings, tended at dawn and dusk and whenever the walkways clog past safe crossing. A thin grey thread from my hearth means the western causeway is sound. A thicker black plume, fed with green leaf, means stay below, the upper lashings need checking after last night's wind. I did not invent this language. I inherited it the way you inherit a joint that aches before rain — it simply lives in me now, has lived in me since before I have memory of learning it, taught by repetition until repetition became instinct.
+
+What I notice today, doing my rounds, is the particular quality of basin-light at this hour — green-dark, underwater, pressing close — and beneath it the enormous, layered roar that I no longer experience as roar. It is simply the floor I stand on. Somewhere above me a bird I cannot see is making the long descending call that means dusk is two hours off, not one, and somewhere below a child is laughing at something in the undergrowth that I will not investigate because the laughter has no fear in it, and fear is the only thing I'm truly listening for.
+
+I duck under the fruiting vine my great-uncle trained to head height forty years before I was born. I do it without thinking, the way everyone here does, an inherited bow to a ceiling none of us set but all of us maintain. My palm finds the worn place on the post where three generations of hands have smoothed the wood the way the rim-stone was smoothed by water that no longer exists here, water that left only its patience behind, written into the rock.
+
+Tonight I will sit close to my neighbor's ear and say something quietly that the basin's noise would otherwise eat whole, and that closeness will not feel like effort. It will feel like the shape the place has worn into me, the way the walkway has worn into a curve under the weight of a hundred years of feet, the way the fires have worn three meanings into a language no one outside this rim could read.
+
+I listen, always, for the gap — the held breath in the weave of sound that means something is moving that the basin itself has agreed to fear. It has not come today. The noise holds, total and indifferent and so large that it makes this small green bowl feel, from inside, like the whole world.
+
+I feed the fire. I watch the smoke find its thread upward through the canopy, going where my voice cannot, carrying its small grey sentence to whoever is watching for it.
+
+It is enough. It has always been enough. That is, I think, the only thing this place has ever asked of anyone who stayed.

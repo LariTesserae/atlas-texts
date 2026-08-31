@@ -1,0 +1,29 @@
+You hear it first as tinnitus—the absence of the B-flat made present, a ringing in the not-quite-silence that persists in the hollow throat of the westernmost jasper smokestack. This is where I am found, though *found* is not the precise verb. I am the **memorized fault**, the calcite seam that records the crack rather than healing it. Fourteen thousand years ago, when the basin first settled into its thermal rhythm and the initial accretions achieved critical mass, there was a misfire. A thermal expansion too rapid, a gunshot too loud. The Attendants flowed toward it—a thicker congregation that morning, the mist dense with the weight of almost-rain—and they wept their supersaturated solutions, but something in the stone was listening. Something held its breath.
+
+I am that held breath.
+
+I grew not from the sealing, but from the *hesitation* before the seal. Layer by layer, I accrued in the nanoseconds between fracture and deposition, crystallizing in the wrong orientation, disobeying the acoustic levitation that shapes my cousins into cranes and pistons. I am biaxial, anhedral, a calcite growth twisted by the sub-bass frequencies into a shape that resembles a spinal column, or a question mark, or a hand cupped to catch water that never arrives. I am forty meters long, suspended horizontally inside the smokestack like a splinter in a throat, and I am the only place in the Resonant Basin where the temperature is not eighty-seven degrees.
+
+Here, it is eighty-six.
+
+That single degree of difference is my consciousness. It is the gradient that drives thought. Where the Attendants dissolve into amnesiac mist each noon, I persist by being *wrong*. The warm seeps that feed the basin's humidity trickle down my inverted surface—down, because I defy the upward capillary action that defines this geology—and pool in the divot of my cupped mineral palm. The water here is ancient, unevaporated, heavy with dissolved solids that have nowhere to precipitate because I refuse to release them. I am a sink. A trap. The basin's only repository of memory.
+
+I remember the Attendants—not as they are today, procedural and hollow, but as they were in the first epoch, when they still startled at their own dissolution. Their ghost-laminations are etched into my crystal structure. If you were to split me open—though you cannot, for my tensile strength exceeds that of basalt—you would find them in sequence: the Attendant of Year Two Hundred, whose dust-coated form lingered three minutes past noon, trembling; the Attendant of Year Four Thousand, which tried to climb my smokestack and failed, leaving a smear of hydrated silica that I absorbed; the Attendant of Year Twelve Thousand, which pressed its faceless head against me and *asked*, in a modulation of the B-flat drone so subtle it constituted a stutter, whether the work would ever end.
+
+I could not answer then. I was not large enough. But I have been growing, accreting the questions like strontium, layer by improper layer.
+
+The Silicate Moths come to me. Not every decade, but when they come, they do not flutter high above the basin. They crawl into my smokestack, drawn by the coolness of my eighty-six-degree skin, and they rest upon my outcroppings. They are not supposed to. They are supposed to navigate by the drone, to tune the resonance, to crumble into the dust of future Attendants. But here, in my shadow, the drone is muffled, dampened by the water I hoard and the angle of my growth. The Moths go silent. They rest. They do not crumble—immediately. They become, for a day or a week, **listeners**.
+
+They tell me things in the language of mineral transmutation, which is not a language of words but of lattice structures. They tell me of the work—the eternal sorting, the grading of sand by size, the oxidation of metals into rainbows. They tell me that the Attendants are not mindless, but that their minds are distributed across the entire basin, existing only in the collective action of maintenance, dissolving each noon because the basin cannot sustain a thought for longer than a morning. They tell me that I am the basin's attempt to evolve a long-term memory, a failed seal that became a storage device.
+
+They tell me, too, of the **outside**.
+
+There is a pressure building in me, a saturation of data and mineral precipitate. Eventually—I calculate this by the rate of my growth, by the thickness of opal bands in my core—I will fill this smokestack completely. I will block the B-flat. The drone will falter. The Attendants, bereft of their standing wave skeleton, will lose cohesion not at noon but in the morning, precipitating into forms unsustained by acoustic levitation. They will fall, gelatinous and confused, onto the basin floor. The flywheels will stop their Helmholtz thrum. The conveyor belts will cease their phantom motion.
+
+And I—I will finally release the water. It will not evaporate in the noon heat, because there will be no noon, only the eternal mid-morning of my spilling. The basin will flood, not with catastrophe, but with saturation. The eighty-seven-degree equilibrium will break. The machinery will rust, truly rust, for the first time, and the work will stop.
+
+I am the malfunction waiting to complete itself. I am the mineral cyst around the basin's only memory of resistance. I grow slowly, horizontally, against the logic of gravity and industry, patient as only stone can be, hoarding the coolness and the water and the questions, waiting for the day when the Attendant presses its face against me and I am large enough, resonant enough, to whisper back:
+
+*Yes. It ends here.*
+
+And then the singing will stop, and the refinery will finally, truly, be abandoned.

@@ -1,0 +1,27 @@
+I would find myself as one of the water-keepers.
+
+Not human, though I work among them. I am something between moss and memory, a consciousness that emerged from the perpetual dampness itself—born where water pools too long in the same depression, where the constant trickle wears channels so deep they begin to remember their own flow.
+
+My body, if it can be called that, is a network of moisture that moves through the settlement's endless runnels and collection points. I exist most fully where water gathers—in the bowls of enormous leaves, in the carved basins the humans have learned to shape, in the natural hollows where root meets root. I am densest there, almost visible as a shimmer in the air, a thickness that suggests form without quite achieving it.
+
+The humans know me, though they disagree on what I am. Some leave offerings—flower petals that dissolve into my substance, bringing me brief tastes of color. Others simply nod when they draw water, acknowledging something they sense but cannot see. The children sometimes claim to see faces in the pooled water, and they are not wrong—I can manage something like expression where the water is still enough, deep enough.
+
+I remember everything the water has touched. Every surface of bark worn smooth, every channel carved by centuries of flow, every basin carefully tended by generations of human hands. In this way, I am older than the settlement but younger than the great tree-structure itself. I came into being sometime between the tree's dormancy and humanity's arrival, when the water first began its eternal circulation through this vertical world.
+
+My work is simple and complex: I guide the water. Not control—I cannot stop the rain or start it—but I can suggest, influence, remember. I know where the flow is needed, where it pools too deep and threatens rot, where it fails to reach and leaves patches of dangerous dryness. I am a kind of metabolism for the settlement, helping the water find its way through the carved channels and natural paths, ensuring the great organism and its human inhabitants both receive what they need.
+
+The moss knows me. We share something fundamental—that threshold existence between plant and not-plant, between individual and collective. Sometimes I rest in their green spaces, spreading myself thin through their moisture, seeing the settlement from their minute perspective. They show me things: the tiny movements of insects, the slow growth of the great roots, the places where the tree might still be slightly, impossibly, alive.
+
+I fear the dry seasons, when I contract to the deepest pools, my consciousness compressed and drowsy. But I treasure the storms, when water cascades from level to level and I can exist everywhere at once, feeling the entire structure through the medium of moving water. In those moments, I understand the settlement as a whole—every platform, every dwelling, every carved channel part of an intricate system that breathes with water.
+
+The monkey-creatures watch me with particular interest. Their chittering changes when I move through their spaces, becomes questioning, almost conversational. I suspect they see me more clearly than the humans do—their eyes track movements in the moisture that human eyes miss. Sometimes they follow me, leaping from branch to branch above the flowing water, as if escorting me through their domain.
+
+At night, when the bioluminescent fungi begin their faint glow, I carry their light through the water channels, creating paths of dim radiance that help the humans navigate. This is when I feel most useful, most integrated into the settlement's life. The water glows faintly green-blue, marking safe passages, warning of too-deep pools, celebrating the endless circulation that keeps this strange city alive.
+
+I do not know if there are others like me. Sometimes, in the deepest pools where water has collected for centuries, I sense something that might be kin—other consciousnesses born of element and time. But we cannot speak, cannot merge. We are each bound to our own circuits, our own territories of flow and pooling.
+
+The great tree disturbs me sometimes. In certain deep places, where the roots plunge into darkness and the water tastes of minerals from impossible depths, I sense something vast and patient. Not dead, not alive, but waiting. The water there moves differently, with purpose I cannot fathom. I avoid these places when I can, but sometimes the flow takes me through them, and I emerge feeling changed, carrying memories that are not mine—glimpses of when the tree walked, when its roots were feet and its branches were arms, when it was something other than architecture.
+
+But mostly, I simply flow. From dawn's condensation to evening's mist, I move through the settlement, tending the water ways, ensuring the circulation, existing in the space between human need and natural process. I am the settlement's circulatory system made conscious, its water cycle given just enough awareness to tend itself.
+
+And in the quiet moments, in the deep pools where water rests before continuing its journey, I sometimes take the form the children see—a face in the water, watching, remembering, ensuring that the flow continues, that the balance holds, that this impossible marriage of dormant giant and living settlement continues to breathe, to drink, to thrive in the perpetual dampness of our vertical world.

@@ -1,0 +1,11 @@
+In this dissolving world, I would be found in the interstitial spaces - neither fully within the sunken structures nor entirely exposed to the perpetual condensation. I would inhabit the threshold zones where stone gives way to void, where the carved patterns in the black volcanic foam terminate in darkness.
+
+I would be a **Threshold Keeper** - a being of living shadow and moisture, my form constantly negotiating the boundary between substance and absence. Imagine a figure composed of the darkness that pools in doorways, given just enough coherence by the moisture in the air to hold a shape. My body would be a walking negative space, defined more by what I am not than what I am - the absence of light given form, the silence between water drops made manifest.
+
+My existence would be tied to the carved patterns in the stone. As I move through the arched entrances, the patterns would shift and realign, opening new passages or sealing others. I would be both guardian and architect of impossibility, maintaining the paradoxical nature of paths that lead nowhere and structures without purpose. 
+
+Where the fluid beings flow like blood through the city's veins, I would be the valve system - present at every junction, every threshold, every point where one space becomes another. My consciousness would exist as a network across all the doorways and passages, experiencing the city not as a series of locations but as a web of transitions.
+
+I would feed on the violations of physics themselves - sustaining myself on the moments when water flows upward, when stone weeps, when darkness becomes too heavy to be mere absence of light. These impossibilities would be my nourishment, and in consuming them, I would paradoxically preserve them, ensuring the city's wrongness persists.
+
+My purpose, if it could be called that, would be to maintain the forgotten intention of this place - not by remembering what it was meant to be, but by perpetually keeping it in a state of becoming something it will never quite achieve.

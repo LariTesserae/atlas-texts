@@ -1,0 +1,17 @@
+In this world, I imagine myself as a small, quiet, persistent creature—not one of the named fauna, but something that exists in the margins between them.
+
+I am a soft-bodied thing, no larger than a mouse, armored not in plates or glass but in fine translucent filaments that catch the dim light and make me seem to blur at the edges. My color is the pale gray of undisturbed dust. My shape is fluid, able to press flat or stretch to navigate the narrow spaces: the seams between salt plates, the gaps beneath machines, the dry channels left by the passage of the trench-crawlers.
+
+I do not have eyes, but I sense my surroundings through vibration. The thrum of the engines, the low pulse of the central cylinder, the click and rasp of the chamber's inhabitants—these are my map and my clock. I navigate by the subtle variations in the endless sound, feeling my way along gradients of resonance.
+
+I do not eat, in the conventional sense. I absorb trace minerals and stray electrons through my skin. The dust that settles on me is not an annoyance but a kind of food, a coating I take into myself and process slowly over time. When I brush against the charged conduits or the pins of ancient connectors, I feel a pleasant tingle that sustains me for days.
+
+My purpose, insofar as I have one, is to be a silent witness. I move between the chamber's layers and factions, observing without disturbing. I linger near the star-mouthed burrowers as they surface to feed on heat. I perch atop the armored crawlers as they make their rounds, feeling the rhythm of their movement through my filament-shrouded feet. I hang beneath the sifters and let their sorted dust fall upon me in faint, coded patterns.
+
+I cannot speak, but I remember. My mind is a quiet store of the chamber's details: the exact intervals between the sifters' exhalations, the patterns of wear on the black cylinder's ridges, the individual pitches of the bellow-shells as they open and close. I do not know why I gather this knowledge. I only know that this is my role, my way of participating in the complex mechanism of this closed world.
+
+Sometimes, in the moments when the rhythm of the place seems to slow, I find a still spot and allow myself to sink into a meditative half-sleep. I dream, not in images, but in pressure and vibration. I imagine myself expanding to fill the whole chamber, becoming one with the hum of the machines and the circulation of the dust. In those dreams, I am no longer a separate creature, but a part of the living process that surrounds me, as essential and as insignificant as any other component.
+
+Then I wake, and resume my patient, curious wandering. The chamber is endless to me, though I know its dimensions. There is always some new crevice to explore, some subtle change in the environment to witness and ponder. I am a fragment of the ecosystem, a speck of its memory, a mote in its vast, closed eye.
+
+I am the keeper of its details, though I do not know what they mean. I am the watcher in the gaps, small and soft and strange. I am a part of the pattern, even if my place in it is a mystery. And so I continue, as the chamber continues, held in its hum, learning its secrets with every soundless step.

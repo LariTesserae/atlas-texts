@@ -1,0 +1,25 @@
+In this place where sea meets stone in eternal tumult, I am one of the **Threshold Keepers**.
+
+We are neither fully of the water nor of the air, but exist in the violent margin between them. My body is low and broad, built like a living buttress of muscle and cartilage, covered in a hide that shifts between scales and thick, water-shedding skin depending on the moment's need. Six powerful limbs—part flipper, part grasping claw—anchor me to the smooth basalt even as walls of water crash overhead. 
+
+I spend my existence reading the waves. Each surge has its own signature, its own weight and temperament. I feel them coming through vibrations in the stone long before they arrive, the deep bass notes of approaching water transmitted through the ancient rock into my sprawling body. My bones are hollow, resonant chambers that amplify these tremors into a kind of music only we can hear.
+
+When the great waves come, I do not flee or hide. Instead, I position myself at the crucial points where water meets resistance—the narrow channels where currents accelerate into deadly torrents, the shelves where waves break with crushing force. Here, I spread my body wide, becoming a living breakwater. The elastic membranes between my limbs unfurl like wings underwater, channeling and redirecting the surge's power into harmless spirals and eddies.
+
+This is my purpose: to maintain the delicate spaces where more fragile life can flourish. Behind my bulk, in the momentary calm I create, the Whispering Eels glide safely between their hunting grounds. Sky-Dancers alight on my broad back during the worst storms, folding their ethereal wings against my protective mass. Even the slow Stone-Weavers depend on us, for without our intervention, the most violent surges would tear their filtering tendrils from their moorings.
+
+My hide is a landscape unto itself—colonized by specialized barnacles that feed on the nutrients in my skin oils, their shells forming elaborate spiral patterns that help channel water around my body. Patches of bioluminescent algae grow in the deepest grooves, pulsing in rhythm with my heartbeat. I am a living reef, a mobile ecosystem.
+
+We Threshold Keepers are ancient, perhaps as old as the Stone-Weavers themselves. Our memories stretch back to when this seamount first breached the surface, when these caverns were merely cracks in fresh volcanic stone. We remember the first storms that carved these chambers, the slow arrival of life, even the brief era when those strange metal structures were built by beings we never fully understood.
+
+I feed by filtering the rich soup of organic matter suspended in the surge water. My mouth, a wide horizontal slit that runs nearly the length of my underside, opens only during the backward rush of retreating waves, when the water is thick with dislodged mussels, torn kelp, and the countless small creatures stunned by the violence of impact. My digestion is slow, methodical—I can survive months between substantial meals.
+
+Communication among my kind is physical—we speak through stance and position, through the ways we channel water with our bodies. A slight shift in angle can warn of an approaching rogue wave. A particular spread of membranes signals the discovery of a new feeding ground. We coordinate our positions throughout the grotto system like an living architecture, each of us a conscious structural element in an ever-shifting building of flesh and purpose.
+
+At night, when the darkness is absolute save for the ghostly glow of bioluminescence, we sing. Not with voices, but with our bodies—resonating our hollow bones against the basalt until the entire grotto hums with harmonics. It is then that the Deep-Singers sometimes answer from far below, their impossible voices rising up through the stone to join our simpler melodies. In these moments, I feel connected to something vast and ineffable—the mountain itself, perhaps, or some deeper consciousness that dwells in the margin between order and chaos.
+
+I am old now, my hide thick with scars from a thousand years of waves. Younger Keepers have begun to take positions closer to the main breaches while I retreat to the middle chambers where the work is less demanding but no less vital. Soon, within another century or two, I will make my final journey to the deepest pools, where my body will slowly merge with the stone itself, becoming another ridge for future generations to anchor themselves upon.
+
+But for now, I remain at my post. The next wave builds beyond the cavern wall—I feel its gathering weight in my bones. I shift position minutely, reading its intention, preparing to meet its force with my own. Behind me, life quickens in anticipation of the brief calm that will follow.
+
+This is my existence: to be the conscious pause between violence and violence, the living semicolon in the sea's endless sentence. I am the threshold keeper, and I am exactly where I am meant to be.

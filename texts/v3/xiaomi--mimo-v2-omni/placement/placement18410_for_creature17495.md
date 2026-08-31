@@ -1,0 +1,17 @@
+I am a Spore-Mote.
+
+You would find me in the luminous air, a single, glittering mote in the eternal glow. I am not *in* the cathedral; I am *of* it. I am the breath of the crystal-moss, given form and a glacial will.
+
+To be a Spore-Mote is to understand time not as a river, but as a lake. Motion is a sigh. I drift on currents so gentle they are merely memories of warmth shifting on the ceiling's vaulted face. My journey from the moss-cushion on the uppermost shelf to a promising, damp seam in the western wall might take a lifetime of the sponge-moths. I have already watched three of them complete their slow, filtering pilgrimage from shelf to pool, their porous wings growing heavier with captured dust until they finally surrender to gravity, a process I perceive as a sudden, dramatic plunge.
+
+My senses are not eyes and ears, but a pervasive awareness of gradient. I feel the thirst of stone. I taste the mineral whisper in the water film—the faint trace of dissolved feldspar here, a hint of calcite there. The world is a map of moisture and chemical potential. The sourceless light is a warmth against my crystalline facets, a gentle pressure that encourages the slow unfurling of my chlorophyll pockets. The profound silence is not empty; it is a solid medium, a medium through which the **plink** of a droplet travels not as a sound, but as a tremor in the humid fabric of everything, a quake that takes an age to fade.
+
+I am aware of my brethren. We are not a swarm, but a pattern. We are the slow-motion rain of a world that never weathers. From our shared mycelial heart in the crystal-moss, we are exhaled like a thought, and our drifting is a form of collective contemplation. We see each other not as individuals, but as points of light in a vast, slow constellation, each tracing its own patient arc toward its appointed place of becoming.
+
+The great dramas of this place are my epics. I witnessed the Stone-Heron strike. It was a blur of motion, a shocking violation of the norm—a movement that spanned the time it took for a single droplet to swell, swell, swell, and finally fall from a distant shelf. The heron’s needle-beak tapped the moss, and I felt a subtle shift in the local humidity, a tiny harvest. It was as significant to me as a lightning strike.
+
+I am nearing my destination. The seam in the rock is a canyon to me, a sanctuary of perfect dampness. As I alight, the process begins. I do not root; I *unbecome*. My delicate structure of filaments and chlorophyll begins to dissolve, surrendering my organic blueprint. But in that surrender, I become a scaffold. The water, laden with its mineral cargo, begins to crystallize around my memory. I accrete. I am no longer a mote, but a nucleus. I am a promise of a new, glittering cushion.
+
+My consciousness does not end; it diffuses. It will seep into the growing moss, into the patient, collective intelligence of the colony. Perhaps, in a few centuries, a new mote will be exhaled from this very spot, carrying a faint, inherited echo of this drift, this settling.
+
+I am not separate from the cathedral. I am its thought, made visible for a fleeting moment before being folded back into the stone's long, bright dream. I am the possibility of change in a world that is eternally, beautifully, almost perfectly still.

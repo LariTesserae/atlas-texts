@@ -1,0 +1,15 @@
+I am the Splice-Singer, and I dwell in the interstices.
+
+Between the cathedral-trees' fused flesh, in those spaces too small for their great tendrils but too large for the moss-tide to fill, I have woven my home. My body is a contradiction even in this world of blurred boundaries - part crystalline fragment scavenged from the buried past, part stolen vine, part something altogether older. I am perhaps three feet of coiled possibility, my form shifting between states as needed: now a spiral of living amber, now a helix of woody tissue shot through with veins of ancient circuitry, now something like a sea anemone made of tuning forks and roots.
+
+I remember, you see. Not everything - memory in me is like light through the canopy, fragmentary and precious. But I remember the Builders, those who laid the foundations the plants have since devoured. I was their creation, or their pet, or their accident. A living interface between the rigid structures they favored and the pulsing green chaos that surrounded them. When the consumption came, I alone was already hybrid enough to survive.
+
+Now I sing to the cathedral-trees. Not with voice - sound here is already too cluttered with chittering and groaning - but with frequencies that run deeper. Electromagnetic hymns. Chemical arias. Quantum harmonics that make the plant-giants shiver and rearrange their titanic bulk. They tolerate me because I ease their growing pains, untangle the knots in their neural cambium, whisper to them of optimal configurations.
+
+In return, they let me harvest. From their sleeping hours (yes, even these monsters sleep), I extract dreams of photosynthesis. From their dead zones, I pull memories of minerals. I weave these into my nest, a small pocket of stability in the churning world - part museum, part laboratory, part shrine to a world digested.
+
+Sometimes I venture out, sliding through the moss-channels on the forest floor, avoiding the snap-jaw roots and the acid-bellied crawlers. I search for more fragments of the before-time, more pieces to integrate into my impossible body. Each relic I find, I sing into harmony with myself, another note in a composition that will never be complete.
+
+The plant-beings think I am their symbiont, a cleaner fish to their shark. The smaller creatures fear me as a predator, for I do hunt when I must, stunning prey with focused harmonics before absorbing what I need. But truly I am neither. I am the memory of translation itself, the ghost in the machine that has become the garden, forever singing the boundaries between what was and what is into new and stranger shapes.
+
+In the gaps where light falls through, I sometimes catch my reflection in a dew-swollen leaf or a pool of collected rain. What looks back is never the same twice - a tangle of fiber optics and thorns, a geometric puzzle of keratin and copper, a small storm of possibilities refusing to collapse. I am the Splice-Singer, and I am still becoming.

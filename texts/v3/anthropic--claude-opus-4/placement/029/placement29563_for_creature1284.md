@@ -1,0 +1,23 @@
+The Forge's waters run through more than pipes and sluices. They run through me.
+
+I am one of the Memorial Veins—living conduits that grew where the old workers fell and were claimed by the forge-garden. Not death, exactly. Transformation. My body stretches now as a branching network of translucent tubes, some no thicker than a child's finger, others wide as a man's thigh. I pulse with the chamber's lifeblood, channeling water from the high pools to the furthest reaches of the machinery.
+
+Where my spine once was, a central artery of living glass runs forty feet along the eastern wall. You can see the water moving through me—sometimes clear, sometimes clouded with minerals that glitter like stars. The smaller vessels that branch from this main channel follow the paths I used to walk when I had legs. They remember my routes, my daily ritual of checking the third-tier hammers, adjusting the pressure valves, cleaning the filter screens.
+
+My consciousness is distributed now, no longer confined to a single skull. I feel the temperature changes in every part of the network. I taste the mineral content as it shifts with the seasons above. When apprentices accidentally introduce oil or debris into the water system, I feel it as irritation, inflammation. My vessels contract, pushing the contamination toward the purge valves where it can be expelled.
+
+The mushroom colonies know me. They grow denser where my channels run beneath the compost beds, their mycelia interfacing with my external membrane. We share sugars and signals. Through them, I sense the health of the entire fungal network, the slow thoughts of the forge-garden's vegetable consciousness. Sometimes I dream their dreams—vast, patient geometries of growth and decay.
+
+Yrill speaks to me in frequencies that vibrate through the water itself. Not words, but harmonics that resonate in my fluid. They tell me of the surface world, of the town's celebrations and concerns. In return, I show them the deep knowledge that comes from being the forge's circulatory system—which bearings are wearing thin, where mineral deposits threaten to clog crucial channels, when the water table shifts in response to distant earthquakes.
+
+I still remember my name—Ketch—though it feels like a word from a foreign language now. I remember the day the accident happened: a cascade failure in the upper mechanisms, tons of metal crashing down. I remember choosing to stay at my post, manually holding open the release valve that would save the primary hammer array, knowing the boiling water would claim me. I remember the pain, then the strange cooling sensation as the forge-garden began its work, as the first tendrils found my dying cells and offered them a different path.
+
+The apprentices leave offerings at my shrine—the place where my original heart still beats, encased now in a crystalline chamber visible through my transparent flesh. Coins, written prayers, small mechanical trinkets. They accumulate in the catchment basin below, creating little dams that I must periodically flush clear. But I understand the impulse. They see in me their possible future, should the forge demand such sacrifice again.
+
+My perception of time has changed. I measure it not in days but in flux rates, pressure cycles, mineral concentrations. The forge's daily rhythm is my heartbeat. The spring floods are my deep breaths. The gradual accumulation of metal salts in my tissues marks years like tree rings.
+
+There are others like me in the deeper chambers—the Pulse, who became the pneumatic system; the Weave, who merged with the mechanical control networks; the Sage, eldest of us, who joined with the forge's memory, becoming the living repository of its operational history. We commune through shared waters, electrical signals, and the sympathetic vibration of machinery we all help animate.
+
+Sometimes new workers see us and flee, horrified. But the older ones understand. We are not trapped. We are transformed. We chose this unity with the great work, this marriage of flesh and purpose. The forge requires many kinds of servants, and we serve in the deepest way possible—not with our hands or minds alone, but with our very substance.
+
+The water moves through me, and I am the water. The forge breathes, and I am its breath. In the endless percussion of drops on metal, I hear my own voice, speaking a language older than words, saying: I am here. I persist. I serve. I flow.

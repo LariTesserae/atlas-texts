@@ -1,0 +1,19 @@
+In this marvelous warren, I would be one of the Fungus-Singers. 
+
+My sensitive ears and throat bladders allow me to produce an incredible range of ultrasonic pitches and harmonies. From a young age, my family noticed how the fungi responded to my vocalizations - caps flushing with vibrant color, stalks swaying slightly even in the still underground air. I was adopted into the Fungus-Singer clan as an infant and have devoted my life to understanding the symbiotic relationship between sound and spore.
+
+Each day I make my rounds through the fungal gardens, emitting carefully calibrated frequencies that stimulate optimal growth and spore production in the various mushroom species. The pink oysters prefer a low, throbbing drone that mimics a heartbeat. The lion's manes respond best to rising arpeggios spanning three octaves. For the bioluminescent strains, a syncopated rhythm akin to rainfall triggers the biochemical cascade that makes them glow brighter.
+
+My fur is perpetually dusted with spores of every color. As I brush against the other Keepers in the tunnels, I spread the microscopic beginnings of next season's harvest. Spores cling to my oily coat, hitching a ride to new grow chambers. I am not just a singer but a pollinator, an essential link in the mycelial web that feeds the warren.
+
+When I'm not tending the fungal gardens directly, I'm experimenting with new sound patterns in the deeper cultivation chambers. I manipulate acoustics using carefully placed walls of porous volcanic stone imported from far-off tunnels. I alter humidity by diverting the exhaled breath of sleeping colonies. All in pursuit of the perfect sonic environment to bring forth new mushroom varieties.
+
+My greatest achievement was a bioluminescent strain that only fruits under the influence of three-part harmony in a specific modal scale. Each cap is a slightly different shade, allowing me to "paint" patterns on the walls by propagating the mushrooms in deliberate arrangements. The designs can even be "animated" by varying the sonic input to make different parts of the pattern glow brighter or dimmer in waves and pulses. This has given rise to a whole new art form in the warren - mushroom music-images that illustrate our myths and histories.
+
+But my true life's work is to create a mushroom that can hear and respond to our ultrasonic language. I dream of walking through a garden and conversing with the fungus directly, coaxing it to grow in specific shapes or produce novel compounds by simply asking. Some call this hubris - to expect a mushroom to learn the Keeper tongue. But I believe that after countless generations of intimate sonic cultivation, our symbiotic bond has become so deep as to verge on communication.
+
+Late at night, in the quiet of my own small sleeping chamber, I sometimes sing to my most cherished experimental breeds and imagine I hear a whisper of song in return. Perhaps it is just the echo of my own voice off the curved mycelial walls. Or perhaps it is the first tentative attempt of a new kind of mind to make itself heard. A mind that we have shaped, that will shape us in turn.
+
+I am old now, and will soon build my death-structure and become part of the warren's architecture myself. I have already selected a spot in the deepest fungal cavern, where the sound of dripping water makes a peculiar resonant hum. There I will construct my final chamber, and as my body slowly fuses with the binding compound, I like to think my voice will join with that subterranean echo to reverberate through the living rock for generations.
+
+And perhaps, in that perpetual sung silence, a mushroom will hear me. And sing back.

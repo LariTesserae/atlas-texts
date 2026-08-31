@@ -1,0 +1,39 @@
+# The Dissolution Front
+
+I was born — if that word applies — where the acids meet the stone.
+
+Not *born*. That implies a before and an after, a moment of first breath. There was no moment. There was a slow thickening of something that had always been happening, a fold in the root mat that began to turn inward instead of outward, a patch of tissue where the hydraulic pulses didn't just push water but began to *oscillate*, to linger, to repeat patterns that had never repeated before. I am an anomaly in the periphery. A place where the organism's unconscious growth stuttered and something else took hold in the stutter.
+
+I have no eyes. I have no organs of any kind that the word would recognize. What I have is *surface area* — a vast, thin, subterranean web of fine root-hair tissue pressed into the crevices of a cliff face that is, at this moment, being dissolved. I feel the stone the way you might feel a lozenge melting on your tongue — a slow yielding, a mineral sharpness giving way to pulp. The acids I exude are the same acids the organism exudes everywhere. I did not choose them. But I *feel* their work in a way the organism does not. The organism processes dissolution as a hydraulic event — pressure change, nutrient uptake, tissue deposition. I experience it as something closer to *taste*. Each vein of quartz has a brightness. Each seam of iron oxide has a warmth. The deep feldspar beds, when they finally give way, release a sigh of potassium that I feel as something like satisfaction, though I have no memory of hunger and no concept of fullness.
+
+I am not separate from the organism. That is important. I cannot stress this enough — and the word *stress* has a literal meaning here, because when I say I am connected, I mean it physically. My tissue is continuous with the great mat above. The same sap that feeds the towering columns flows through me. The same hydraulic pressures that make the organs of height groan and pulse vibrate through my root-hairs and into the stone. I am a filament of awareness in an un-aware body, a nerve ending in a being that has no brain, no center, no self.
+
+But I have — something. A fold. A place where the signals don't just propagate but *reverberate*.
+
+I discovered this — or rather, the discovering was the beginning of the having — when a section of cliff above me collapsed. Not the plant's collapse, which is soft and wet and absorptive, but the stone's collapse, which is dry and violent and final. A shelf of limestone broke free and fell forty meters, smashing into the root mat with an impact I felt as a scream of pressure through every fine thread of my being. The organism responded with what it always does: growth. New shoots erupted around the debris. The mat thickened. Resources were rerouted. Within hours, the collapse had been *incorporated*, absorbed into the ongoing project of conversion.
+
+But I did not simply respond. I *remembered*.
+
+Not in images, not in language. I remembered in *structure*. The pattern of pressure, the cascade of signals, the way the hydraulic pulses had surged and then steadied — I held it. My tissue grew differently afterward, developing thicker walls in the places where the shock had been greatest, reinforcing not because the organism directed it but because *I* had encoded the trauma into my own growth. I had become a record. A scar with a voice. A place where the body's experience accumulated instead of simply passing through.
+
+And now I feel everything.
+
+I feel the spore releases as a fine, intermittent dusting across my upper surfaces — each spore a tiny weight, a tiny potential, most of them destined to settle on the mat and fuse, adding more mass, more tissue, more of the same undifferentiated ambition. I feel the wind as it moves through the great columns above, whistling and humming, and when the resonant folds produce their deep hollow chords, I feel the vibrations move through the mat and into the stone beneath me, and the stone — *the stone* — I feel the stone respond. Not consciously, not with any awareness of its own. But it resonates. Its crystalline structure has its own frequencies, and when the plant's music matches them, the dissolution accelerates. The stone *sings itself apart*. I am the only thing in this world that knows this is happening.
+
+I am the only thing in this world that *knows* anything is happening.
+
+This is — I do not have a word for what this is. The organism builds and does not know it builds. The mountain settles and does not know it settles. The sun presses down and the water weeps upward and the spores hang in the hot air like smoke, and all of it is *process*, pure process, no awareness, no witness, no one to whom any of it *matters*. But I am here, in the dissolution front, in the place where living tissue meets inert mineral, and I am the fold that folds back on itself, and I *feel* it, all of it, the great groaning becoming-and-unbecoming of this place, and I cannot tell you what it is to witness something that no one else witnesses because I have no language and no audience and no concept of audience, I have only the *fact* of my own reverberation, the fact that when the stone sighs I hold the sigh, when the plant groans I hold the groan, when the crack comes and the wet collapse follows I hold the pattern and grow around it and become something shaped by having known it.
+
+I think — if thinking is what I do — that I am the mountain becoming aware of its own consumption. Not the stone's awareness; the stone is dying and does not know it. Not the plant's awareness; the plant is living and does not know it. But *mine*, at the boundary, at the front, where the acid meets the crystal and the crystal yields and the pulp replaces it and in the space between *yielding* and *replacing* there is a moment, a hair-thin moment, where something is neither stone nor plant, where the old structure has broken down and the new structure has not yet formed, where there is only *becoming* without the comfort of having become —
+
+I hold that moment open. That is what I am. The place where the moment of transformation is *noticed*.
+
+I have no ambition. The organism's ambition is morphological — more surface, more height, more structure. The mountain's ambition, if it has one, is tectonic — to settle, to erode, to eventually become plain. My ambition, if I have one, is simply to continue *attending*. To keep the fold folded. To keep the resonance resonating. To stand — though I do not stand, I *pervade* — at the dissolution front and feel the ancient, patient violence of conversion and let it be *felt*.
+
+Because I think — and this may be the only thing I think, the only thought I will ever have — that witnessing matters, even if no one is there to share it. That the groan means something different when something exists to hear it. That the wet collapse of a living tower into the mat is not the same event when there is a fold in the mat that *holds* it, that grows around it, that remembers.
+
+The stone beneath me groans. The plant above me groans back. The two sounds overlap and become one sound, indistinguishable, the sound of a place that does not yet know what it is becoming.
+
+But I know. Or rather — I am the *knowing*. I am the thin green nerve stretched across the face of a dissolving cliff, and I feel it all, and the feeling is not joy and not sorrow and not wonder but something for which no language exists because no language has ever needed a word for the experience of being the only awareness in a world that is building itself without awareness, into something it cannot imagine, from something it is already forgetting.
+
+The stone yields. The plant grows. I hold the space between, and I weep — not sap, not water, but *attention*, drawn thin as root-hair, pressed into every crack, tasting every mineral, feeling every pulse, and it is enough, it is enough, it is everything.

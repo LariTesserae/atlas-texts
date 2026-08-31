@@ -1,0 +1,15 @@
+In this mesmerizing city of crystalline mathematics and reality-bending butterflies, I would be a Cartographer of Liminal Spaces - a specialized type of Translator whose body has evolved to map the ever-shifting boundaries between realities.
+
+My form would be fluid but generally humanoid, with skin that resembles clouded glass etched with constantly moving topological maps. As I move through the city, I leave behind faint traces like contour lines that slowly fade, marking the current shape of dimensional boundaries. My eyes appear as spiral galaxies of fractal patterns, seeing not just physical space but the mathematical tensile strengths of reality's fabric.
+
+I work primarily in the twilight hours, when the boundaries between dimensions are most malleable. My main task is to document and maintain the city's spatial integrity by creating living maps that exist simultaneously as physical documents and as dynamic equations. These maps aren't drawn but grown - they emerge from my hands as crystalline structures that unfold like origami into multiple dimensions, showing safe paths through the city's more complex geometries.
+
+I have a special affinity with the butterfly swarms. They recognize me as a fellow calculator and often gather around my hands as I work, their wing-patterns synchronizing with my mapping equations. Together we solve problems of spatial topology, finding stable routes through seemingly impossible architectures.
+
+My workspace is a small workshop near one of the water-channels, where light bends most peculiarly. The room exists in a state of dimensional flux, its interior space constantly rearranging itself around my needs. The walls are covered in what appears to be conventional cartographer's equipment, but each tool operates on principles that defy standard geometry - compasses that measure the distance between realities, rulers that quantify the thickness of dimensional boundaries.
+
+I speak rarely, and when I do, my voice emerges as harmonics that ripple through nearby crystal growths, creating momentary windows into the spaces between spaces. My movements are deliberate and precise - each gesture is part of an ongoing calculation that helps maintain the city's delicate position in the multiverse.
+
+When I'm not mapping, I teach young Symmetrists how to navigate the city's more complex topologies. This involves a kind of dance where we fold space around ourselves, creating temporary pocket universes where they can practice without risking the larger structure of reality. My students learn to read the subtle signs that indicate where dimensions intersect, understanding the city not as a fixed place but as a living equation that must be continuously solved.
+
+I find profound beauty in my work - there is poetry in the precise mathematics of space, and music in the way realities flow into one another. Each map I create is both a functional tool and a work of art, capturing the elegant complexity of a city that exists in the overlap of countless possibilities.

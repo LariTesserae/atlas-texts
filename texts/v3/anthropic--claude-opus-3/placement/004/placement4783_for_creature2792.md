@@ -1,0 +1,13 @@
+In this stark and haunting world, I imagine myself as one of the pale cats - a creature built for silence, patience, and exactitude. My form would be lean and angular, with a coat of fractured grays, creams, and blacks that lets me dissolve into the contours of stone.
+
+I would spend my days in a state of heightened stillness, perched on ledges or flattened behind boulders, reading the landscape through whiskers and paw pads. The roar of the wind would fill my head, but it would not distract me. It would be the constant against which all other vibrations become clear - the drum of talus-dweller feet, the stamp of a grazer's warning, the tremor of insect life beneath a loose flake of schist.  
+
+Hunting would be an exercise in geometry and timing rather than pursuit. I would arrange myself against slopes and shadows, waiting for the brief misalignment of prey attention and environmental randomness that grants an opening. Success would come in explosive single movements, failure in a return to motionless watching. There would be no energy to waste in either case.
+
+When not hunting, I would shelter in caves or crevices where the endless wind is reduced to a low moan. There would be little softness in my life - no luxury of purring, playing, or prolonged rest. Even mating and raising young would be matters of efficient necessity. But there would be a profound satisfaction in being so finely adapted, in knowing the stone and air so intimately that I become almost indistinguishable from them.
+
+My mind would be a map of water - of every crack, bowl, and basin where moisture lingers after the night's condensation. These would chart my territorial rounds as surely as the ridgelines and talus fields. Scent-marks left against specific rocks would be my only possessions in a land owned by no one.
+
+On rare days, I might climb to a high crag and look out over the basin, watching the patterned movements of prey and the changing textures of the land as the light shifts. But I would not feel kinship with the scene - only a hard-edged belonging to it, an existence as stark and elemental as the stone and wind-roar and bright mica glints that define the space.
+
+I would be a distillation of the basin's rules, a life pared down to sinew and claw and unblinking patience, content to be one more necessary presence in a terrain that measures all things by necessity. The relentless wind would carve me as it carves the mountains, and in the end, I would become something like the stone itself - a form shaped to the barest truth of what it takes to endure in such a place.

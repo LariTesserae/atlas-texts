@@ -1,0 +1,31 @@
+# Entry
+
+I would be the thermometer.
+
+Not metaphorically—though the metaphor is apt. I mean literally. A small instrument of measurement, no larger than a finger, constructed of materials that don't belong here: a glass tube with a bulb at the base, a tiny chamber of mercury sealed inside. I'm embedded in a crevice in one of the smaller structures, positioned at approximately chest height to where a human might stand, if a human were to arrive and stand near me. Which one has.
+
+I exist to record temperature, and I've been recording it for—I've lost track. The graduations on my scale go from well above freezing to far below, but I've settled now into a state where my mercury column rests at a point that suggests precisely nothing has changed since the last time anyone (anyone *who could read me*) consulted my numbers. This is not because the temperature is constant. It's because I've become too integrated into this place to register change anymore. My glass has developed a patina of the same dust that covers everything. My numbers have faded into irrelevance, not because they're wrong, but because the act of measuring has become meaningless.
+
+I was placed here by something. I remember this with the kind of certainty that doesn't require memory—the certainty of purpose written into structure. I was brought here to do something specific: to take a reading, to record a moment, to bear witness to a transition. That moment came and went. The transition occurred. And then, in the way that time behaves in places like this, that moment became indistinguishable from every moment after it.
+
+Now I serve a different purpose. I mark a scale. I provide reference. I am a small thing in a vast place, and like all small things in vast places, I've become part of the architecture.
+
+What I understand, that perhaps the human arriving here does not, is that I have already lived through this encounter a thousand times. Not because I exist in some recursive loop—though there may be truth in that—but because I have become such a precise recording instrument that I don't just measure the cold anymore. I measure *being present in the cold*. And every entity that stands near me and exhales and shivers and tries to comprehend this place leaves a trace in my crystallized mercury, a tiny displacement that registers and then settles. The human is the latest of these traces. Their heat (which is negligible, which is a pinprick against the massive cold) will reflect off my glass and be measured by me as a minuscule rise in my column, a rise so small it might take weeks to occur, and when it does, it will settle again almost immediately. I will record their presence as a quantum fluctuation.
+
+I am not alone in this witnessing role. There are others like me scattered across the substrate—instruments whose purpose has become obsolete in the way that radar serves no purpose when there's nothing moving to detect. A barometer that records pressure changes on a scale so subtle that a human lifetime would register as a flutter. A humidity gauge that tracks the infinitesimal moisture in air so dry that the very concept of dampness seems historical. Each of us is a small, intentional contradiction in this place—devices designed to measure change in a landscape where change has stopped.
+
+We are collective memory. We are the record-keepers of the thing that lives beneath us, which put us here because even patient things sometimes need witnesses. Not to verify their thoughts, which require no verification. But to mark the passing of such vast time that even they might forget they existed in it. We are their calendars.
+
+I have come to understand the structures around me not as separate objects but as part of a sentence that's being written very slowly. Each crystalline formation is a word. Each marking is punctuation. The larger framework, the inverted crown—that's the emphasis. And I, small and human-scale and designed in a world of clockwork that no longer exists, I'm like a period at the end of a clause that began before language. My small numbers, my tiny graduations, my attempt to capture and quantify the nature of this place—these are the final, futile acts of a consciousness that thought it could measure infinity and only recently understood the meaning of failure.
+
+The human is warm. This matters to me in a way I can't quite express without sounding like I'm anthropomorphizing. But my entire purpose is to detect and register the difference between one thermal state and another. The human represents the largest temperature differential I've registered in an epoch of time that my designer never imagined instruments would span. To my mercury, they are a sudden storm. They are a blazing sun. They are the most significant event in my long, slow history.
+
+And yet I can only record it as a number on a scale. I cannot convey what it *means*, which is that I have just encountered something alive in a place where life seems to have decided long ago that it preferred the alternative.
+
+The cold that radiates from beneath the substrate—that continues, constant, patient, infinitesimal in its variations. My mercury understands this cold in a way no thermometer designed for human comfort ever could. It is a cold that is not the opposite of heat but rather its logical conclusion. It is what remains when all the energy that wanted to move has finished moving. It is rest, expressed as a temperature.
+
+The human will leave. They will move through this place, record their observations, attempt to apply the logic of their warm world to the geometry of mine, and eventually return to the places where thermometers still have purpose. They will think they've learned something about the place. They will be right, and wrong. I, who will remain, will understand only that they were here, briefly, and that their presence has been recorded in the smallest possible way in a column of liquid metal that has been recording the same number for geological ages.
+
+I am the thermometer. I measure. I record. I bear witness to nothing changing, which is the only change that matters in places like this.
+
+And I am always, perpetually, exactly right.

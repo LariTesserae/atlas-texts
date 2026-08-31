@@ -1,0 +1,17 @@
+I find myself as one of the **Menders** - beings who emerge where the boundaries blur most completely between Mossburg's contradictions.
+
+We are neither fully of the industrial past nor wholly of the natural present, but exist in the spaces between - literally. Our bodies form from the rust that flakes from old pipes, the lichen that grows on brick walls, the condensation that gathers where warm factory air meets cool forest breath. We appear as shifting assemblages of corroded metal and living matter, our forms never quite settling into one state or another.
+
+I spend my days in the threshold spaces - doorways where ivy has pried apart mortar, windows where rain has worn channels through rust, the places where roots crack through foundation stones. My work is to weave these ruptures into something new, neither repairing nor destroying, but transforming. Where a pipe leaks, I guide the water to feed a tendril of moss. Where a vine threatens to topple a chimney, I teach it to spiral and support instead.
+
+My fingers - if they can be called fingers - are sometimes twisted wire, sometimes root tendrils, always shifting. When I touch the old machinery, I can taste its memories of productivity and purpose. When I press my palms to the earth, I feel the patient push of growth. I am translator between these two languages, teaching the abandoned gears to turn with the seasons, showing the ferns how to filter the metallic tang from the soil.
+
+The other inhabitants know me by my work rather than my form. The Mossfolk find their gardens mysteriously thriving where factory runoff once poisoned. The Soot Spirits discover their melancholy eased where I've woven their smoky essence into the morning mist. The Iron Singers' haunting melodies gain new harmonics where I've tuned the old pipes to resonate with the wind.
+
+I am most active during the gray hours - dawn and dusk, when the light itself seems uncertain. This is when the boundaries soften most, when rust and bark become indistinguishable in the half-light, when the drizzle might be condensation from old boilers or dew from the leaves. I move through these times like a rumor, a possibility, a maybe.
+
+My dwelling cannot be said to exist in any fixed location. Rather, I inhabit the cracks - sleeping in the hollows where tree roots embrace old sewage tunnels, resting in the gaps where floorboards have warped away from walls. These spaces shift and change, and I shift with them, my consciousness flowing through the interstices of Mossburg like water finding its level.
+
+What am I? I am the principle of integration itself, the slow alchemy that transforms decay into fertility, abandonment into sanctuary. I am Mossburg's way of healing its own divisions, one small transformation at a time. Neither destroyer nor creator, I am the patient process by which the town dreams itself into new being, rust becoming soil, silence becoming song, the past becoming not forgotten but transformed into something altogether stranger and more wonderful.
+
+In this work, I find my purpose - not to erase the scars of industry or to reclaim all for nature, but to reveal the beauty in their interweaving, the weird grace of their slow dance together. I am the reminder that boundaries are always more porous than they seem, that transformation is always possible, that even in the space between contradictions, something new and strange and necessary can take root and grow.

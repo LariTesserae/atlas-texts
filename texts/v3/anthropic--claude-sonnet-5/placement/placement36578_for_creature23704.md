@@ -1,0 +1,15 @@
+The fingertip remembers before the mind does.
+
+That's the first thing—not sight, not sound, but the small ritual gesture I've apparently performed ten thousand times: middle finger, second knuckle, drawn once along the hairline crack that runs under the east window of the loom-house. I am old enough that this has become muscle memory rather than vigilance. I do it the way another person might touch a doorframe on the way out, without deciding to.
+
+I am called, I think, the one who listens to the western trough — though that's a clumsy way to say it, more a description of a duty than a name, and names here have a way of being mostly functional anyway. I am not the oldest. The oldest is the man in the doorway with his eyes shut, and what he's listening to, I now understand, is not nothing — it's the whole terrace at once, decades of it, the way you'd listen to a familiar person breathing in the next room to know they're still themselves. I am not there yet. I still have to listen to one thing at a time.
+
+My hands know the gates. Lift the eastern sluice a hand's-width before midday so the loom-hammer has water by the time the light goes flat and grey — that flat grey that isn't quite weather, just the sky here being honest about its indecision. Let the western trough fill slow through the afternoon, because if it fills too fast the counterweight drops early and the gong sounds out of its interval, and that wrongness travels through the whole shelf like a held breath let go too soon. I have felt that happen exactly once, years ago, a mistake of my own making, and the quality of the silence that followed — not the sound being wrong, but everyone *noticing* it was wrong, all at once, invisible people behind dripping eaves going still — taught me more than a decade of correct gate-lifting did.
+
+I move through long gaps of wet bare stone between one knock and the next, ferns brushing wet against my shins, moss giving slightly underfoot in a way that still, after all this time, makes me place my weight carefully, as if the ground might have an opinion about it. It might. We don't ask it directly. We ask it sideways, with fingertips on cracks, with the unhurried economy of people who have learned that questions shouted are questions wasted here — the mountain doesn't answer to volume.
+
+The bird is out over the cliix updraft right now, where it almost always is at this hour, and yes — it has a name, and yes, I'd be a little embarrassed to tell you what it is, the way you'd be embarrassed admitting you'd named a stone.
+
+I am not lonely, exactly, though I am one of very few. The noise around me is the proof that I'm not alone in the work, even when the work was finished by someone's grandfather and only echoes now. I keep the mountain company through its long, unfinished becoming. I don't expect to see it decide what it wants to be. I expect only to leave the gates lifted correctly, the troughs filling on schedule, and one crack — my crack, the one under the east window — slightly better accounted for than I found it.
+
+That's enough. It has always been enough, here.

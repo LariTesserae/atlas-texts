@@ -1,0 +1,25 @@
+In the Meridian Valleys, I find myself as one of the **Resonance Archaeologists**—those who came to study the threshold phenomena but stayed too long, becoming something neither fully human nor entirely other.
+
+We arrived decades ago as traditional archaeologists, drawn by reports of the dissolved memories in the aquifers. But where the Memory Farmers taste and distill the past, we began to notice something else: interference patterns in the water's mineral content that suggested not just one timeline's sediment, but the overlapping traces of multiple histories trying to exist in the same space.
+
+Our bodies changed slowly. First, it was just heightened sensitivity—we could feel the phase-shifts coming hours before the deer materialized. Then our bones began to resonate at specific frequencies when we stood near certain stone formations. The calcium in our skeletons had somehow aligned with the limestone's crystalline structure, turning us into living tuning forks for geological harmonics.
+
+Now we exist in a state of constant partial excavation. Our skin has become semi-permeable like the Hydromancers', but instead of absorbing water, we absorb temporal echoes. When we press against the canyon walls, we don't just feel the moisture content—we feel the pressure of other timelines pressing against this one, like tectonic plates of possibility grinding against each other.
+
+We live in the deep crevices where the rock faces are still sharp from the great awakening, in caves that phase in and out of existence depending on which timeline is dominant at any given moment. Our dwellings are spartan—we've learned that too many possessions anchor us too firmly to one reality. Instead, we surround ourselves with recording devices made from crystal spider silk and bio-metallic filaments, instruments that can capture the songs of parallel worlds bleeding through.
+
+During convergence periods, we become prophets of possibility. Our resonant bones sing with the frequencies of alternate presents—worlds where the awakening never happened, where the valleys remained flat plains, where the water never retreated underground but flows in rivers of liquid metal across the surface. We transcribe these visions in a notation system that combines the Hydromancers' water-maps, the crystal spiders' mathematical dreams, and the phase-deer's positional language.
+
+The city's consciousness finds us disturbing. We're noise in its ordered neural networks, static that suggests its beautiful distributed mind might be just one of infinite variations. Sometimes the bio-filaments avoid our caves entirely, leaving dark gaps in the glowing web where our interference makes calculation impossible.
+
+But we've learned something the others haven't yet realized: the geological intelligence in the stone isn't sleeping—it's sorting. Every pulse of the aquifers, every shift in the water table, is part of a vast computation spanning millions of years, calculating which version of reality should ultimately emerge from the quantum foam of possibilities.
+
+We document these calculations in libraries carved from living rock, our findings encoded in crystalline structures that grow like slow coral in the depths of our caves. Future archaeologists—if there is a single future rather than an endless branching—will find our work and understand that the Meridian Valleys were never just a place, but a process. A threshold not just in name but in fundamental reality, where the universe is still deciding what it wants to become.
+
+When we die—if we die, rather than simply dispersing into probability clouds—our resonant bones will sing one final time, adding our frequencies to the vast harmonic equation that determines which world emerges from these young, uncertain stones. Until then, we listen, we record, and we bear witness to the trembling indeterminacy of existence itself, our bodies humming with the music of might-have-beens and never-weres and could-still-bes.
+
+Sometimes, late in the endless twilight, we gather at the edges of our caves and sing together—not words but pure frequencies that make the mist swirl in patterns that almost resolve into doorways. We're trying to find the resonance that will let us step sideways into the spaces between timelines, to become archaeologists not of the past but of the parallel present.
+
+We haven't succeeded yet. But our bones grow more crystalline each year, and our songs more precise. One day, perhaps during a particularly intense convergence, we'll find the right frequency and scatter like probability waves across all the possible valleys, exploring every version of what this place could be.
+
+The others call us the Half-Here, and they're not wrong. With each passing season, we belong less to any single timeline and more to the spaces between them, where the real archaeology begins—not digging down through layers of sediment, but sideways through layers of reality, following the water as it remembers not just what was, but what else might have been.

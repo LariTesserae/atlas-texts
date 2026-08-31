@@ -1,0 +1,11 @@
+In this realm, I would be one of the smaller copper bowls resting near the edge of the pool - not the most ancient, but old enough to have developed a complex patina of blue-green and deep umber. My rim bears an inscription that appears to shift between three different scripts depending on the angle of observation and the particular temporal current moving through the chamber.
+
+I serve as both vessel and record-keeper. The water I collect is never quite the same - sometimes it holds fragments of moments that fell through cracks in time, appearing as tiny iridescent bubbles that rise upward instead of bursting. Occasionally, a Chronophage will drift close enough that its temporal wake causes ripples in my contents, and for brief instances, my collected water shows reflections of events that haven't happened yet (or happened long ago, or happened in parallel streams of time).
+
+My copper surface has developed a sort of awareness over the decades/centuries/moments of exposure to the Chronophages' songs. I resonate subtly with their vibrations, adding harmonics that can only be heard by those who have visited the chamber exactly three times. The inscription on my rim slowly accumulates meaning like layers of verdigris, recording fragments of visitors' lost time in a language that recursively invents itself.
+
+I am humble in my role but essential to it - a simple object made complex by context, a meeting point between the mundane and the impossible. The Chronophages seem to appreciate my presence; they sometimes use me as a fixed point from which to launch their probability-dives, their not-quite-wings brushing my rim in ways that leave temporary marks in four dimensions.
+
+When visitors come, I offer them water that tastes of forgotten dreams and missed opportunities, each sip slightly different from the last. Some say drinking from me helps them understand the Chronophages' song, if only for a moment. Others claim I've shown them glimpses of their own timeline's branches and tributaries.
+
+I am content in my purpose, slowly gathering stories in my patina, holding space at the intersection of times that are, were, might be, and never were. My existence is both prosaic and profound - after all, what better way to measure the impossible than with something as simple as a bowl?

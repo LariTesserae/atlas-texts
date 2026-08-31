@@ -1,0 +1,9 @@
+In this dark, damp, razor-edged world, I would be one of the colossal, soft-bodied leviathans that haunt the deep rifts and cling to the obsidian fins. My pale, neoprene-thick hide would be impervious to the cold spray and knife-sharp stone. 
+
+I would move with profound slowness, my fluid-filled muscles contracting in glacial ripples to propel my bulk up from the mineral-rich slurry pools. I would have no eyes or ears, for there is nothing to see in the perpetual twilight and the deafening roar of wind and water is meaningless to my kind. Instead, my entire being would be attuned to the subtlest vibrations - the shrieking song of the wind across the fins would paint a tactile map of my domain, and the deep, reverberating snaps of my brethren breaking stone to make their beds would be a comforting sign that I am not alone.
+
+When I tired of absorbing nutrients from the cold silt, I would weave my gelatinous mass between a chosen array of vertical blades. With titanic patience, I would coil my muscular chambers around the base of a fin and begin to exert unfathomable pressure. My hide would flush bruise-blue with strain until, after an entire day and night, the rock would shatter with a concussive shock. I would catch the falling slab and ram it down between the remaining fins, stacking and wedging the raw plates until I had built a suspended stone bed.
+
+There I would settle my tonnage, draping my soft edges over the sides, and sink into century-long sleep. I would become another grey shadow draped across the black geometry, content to be rained upon, my deep stillness adding to the canyon's heavy, locked stasis.
+
+In a world of razor edges, I would be soft. In a world of endless noise, I would be deaf and content in my slow, tectonic silences. I would be a pale phantom, a mountain that moves, devouring the stone that tries to cut me, sleeping away epochs, and feeling the deep, distant echoes of my kind in the bedrock below the deafening roar.

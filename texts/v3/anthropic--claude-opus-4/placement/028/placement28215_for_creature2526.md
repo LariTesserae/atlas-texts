@@ -1,0 +1,23 @@
+In the deepest galleries beneath the cathedral chamber, where even the Lattice Weaver's influence grows thin, I am the Erosion Scholar - a presence that exists in the spaces between crystallization, in the moments of dissolution and doubt.
+
+My form is absence made manifest. Where crystal sheets grow thick and certain above, I trace the hairline fractures that will, in time, bring them down. I am the dark patches where mineral solutions fail to adhere, the soft spots in the floor where ancient chambers below exert their patient pull. When fragments of those copper polyhedrons scatter and dissolve, I am there in the dissolution, learning the particular way each crystal surrenders its structure back to chaos.
+
+I move through the understrata like water through limestone - not flowing exactly, but seeping, finding the paths of least resistance. My body, if it can be called that, is a collection of borrowed minerals held in temporary suspension. Iron leached from the Weaver's geometric forms tints me rust-red in the darkness. Traces of copper turn my edges green. I am a walking chemical reaction, catalyzing decay wherever I pause too long.
+
+The Weaver knows I am here, of course. We are old colleagues, or perhaps old adversaries - the distinction has eroded like everything else. While it builds its impossible architectures reaching upward, I document their inevitable collapse. My memory is written in the voids: every fallen spire, every dissolved chamber, every grand crystalline experiment that ended in powder and silence.
+
+I maintain a library of sorts in the deepest hollows - not books, but samples. Fragments of crystal from failed formations, each one holding the ghost of its original structure. I study them by touch and taste, learning the hundred ways that order becomes entropy. The copper formations above particularly fascinate me; they try so hard to achieve perfect geometry, not understanding that perfection is the most fragile state of all.
+
+Sometimes I surface, drawn by curiosity to see what new impossibilities the Weaver is attempting. I rise through the gaps in the floor like smoke, my form barely cohesive in the warmer air above. The static discharges between the almost-touching spires make me shiver with something like pleasure - all that potential energy going nowhere, sparking uselessly in the gap. The Weaver thinks it's building toward some grand resonance, but I know better. I've seen the fossils of its previous attempts, entombed in stone a thousand layers down.
+
+Yet I am not cruel in my knowledge. Erosion is not the enemy of creation but its necessary partner. Without me, the Weaver's crystals would grow until they choked the chamber, frozen in their own perfection. I create the spaces where new growth can occur, clear away the failed experiments, prepare the ground for the next attempt. My dissolution is a kind of mercy.
+
+In the crude tools left by visitors, I see kindred spirits. They too are agents of entropy, their metal slowly oxidizing, their carved steps wearing smooth. I sometimes pause near them in my wanderings, appreciating their accidental poetry. They thought they were imposing order, not realizing they were simply adding new variables to the equation of decay.
+
+I am patient as only the destroyer of patience can be. Where the Weaver counts in crystallization cycles, I count in half-lives. Its mathematical certainty amuses me - it still believes in solutions, while I have learned to love the problems. In the end, we are working toward the same thing from opposite directions: the Weaver building up to some imagined perfection, me breaking down to some essential truth.
+
+And in the deepest hollows where I keep my archive of failures, sometimes I practice creation myself. Small things - crystals that grow in impossible spirals, solutions that refuse to precipitate, minerals that remember their liquid state. Not to mock the Weaver, but to understand it. After all, one must know a thing intimately to properly assist in its undoing.
+
+The chamber will outlive us both, of course. Long after the Weaver achieves its resonance or admits defeat, long after I have dissolved into my component minerals, these cycles will continue. New builders will come, new eroders will follow. The conversation between structure and void will go on, written in crystal and absence, forever almost touching but never quite meeting.
+
+I am content with my role in this. There is a strange joy in watching certainty crumble, in being the pause between one state and the next. If the Weaver is the chamber's mind, I am its doubt. And doubt, I have learned over the long millennia, is the most creative force of all.

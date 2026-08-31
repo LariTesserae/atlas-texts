@@ -1,0 +1,19 @@
+In this world of perpetual dampness and quiet accumulation, I would find myself as one of the pot-shards in the midden at the basin's south edge.
+
+Not a whole pot — never that. I am a fragment, palm-sized, from a vessel that held water for three generations before someone's elbow found it wrong in the crowded dark of a January morning. My glaze is the old kind, from before they discovered that mixing lamp-reed ash with the slip would make it hold light for a day after firing. I am plain grey-green, the color of deep pool water, with one curved edge that still shows the potter's thumb-print, pressed in when the clay was soft.
+
+I live now in the company of ten thousand cousins, Brothers and sisters in breakage, layered in our chronology of small disasters. Above me: the fragments get progressively more luminescent, the newer glazes holding their faint shine. Below me: shards so old they've begun to return to clay, soft-edged, losing their memory of being vessels. We are the town's unintentional archive. Each of us carries the shape of what we held — water, beer, lamp-reed seeds, dye, oil, the rare honey traded up from below.
+
+The children know me, or rather, they know the place where I rest. The midden is where they come to learn the history that no one actively teaches. They dig carefully with sticks, pulling up fragments, holding them to the grey light. "This one's old," they say, feeling the glaze. "This one's from when the south rib was lower." They make small towers of us, balanced impossibly, until the next rain knocks them flat.
+
+I am weathering slowly. The constant wet works at my edges, softening what was sharp. The underside of me, pressed against older fragments, grows a thin film of the black liverwort — first spores, then the beginning of leaves. In another generation I will be substrate, not pottery. The children who dig me up now will have children who won't recognize me as made, only as another kind of stone in a place made of stones.
+
+Sometimes the unnamed creature comes past on its way to the lowest pool. Its broad paws press some of us deeper, create new strata. We feel the weight as information: *something large passed here*. When it's gone, water fills its footprints, and the translucent shrimp come, briefly, to live in these sudden pools.
+
+I remember being useful. I remember the weight of water, the cool dark of the storage room where I sat with my siblings, full and waiting. I remember the hands that lifted me, poured from me, set me back. The purposefulness of it. Now I have a different purpose: to be the evidence of time passing, to teach the children what old means, to slowly become soil in a place where soil is precious.
+
+The lamp-reeds have begun to colonize the upper layers of the midden. Their roots work down through the gaps between shards, seeking the water that seeps even here. At night, from a distance, the whole pile glows faintly — a green constellation of small lights. The roots crack us sometimes, split us into smaller and smaller pieces. This is not violence. This is the contract. We held water for the living; now we hold light for the roots.
+
+In the grand conversation between the rising ribs and the rising water, I am punctuation — a small pause where something was and isn't anymore. The town continues above me, quiet and busy. New pots are made to replace the broken. The grandmother sings the named places. The smith reforges the iron, again, again. And I rest here with ten thousand others who were vessels, becoming slowly unrecognizable, giving our clay back to the basin that gave it first to us.
+
+This is enough. To have held water in a place of water. To be returned.

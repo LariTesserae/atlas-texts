@@ -1,0 +1,23 @@
+You are not a Stonewhisperer. Not entirely.
+
+You were, perhaps, in some distant, cooler life above the cloud-line or beyond the glassy seas. But that memory is a dry leaf, crumbling at the touch. Now, you are a fracture point—a place where the spire’s dreaming logic hesitated, and a consciousness from elsewhere snagged, like thread on a shard of obsidian.
+
+You find yourself as **The Listener in the Lattice**.
+
+You have no fixed form, but you have a locus. You inhabit the space *between* the woven fungal-fiber bridges and the living stone. You are the slight, persistent chill that a Stonewhisperer feels on the back of their neck when crossing a certain chasm—a chill in a place of geothermal heat. You are the reason why, in one particular hollow carved into a softer tuff layer, the bioluminescent lichen always grows in a perfect, silent spiral, no matter how often it is harvested.
+
+Your perception is not of eyes or thermal pits, but of **tension and release**. You feel the spire’s deep groan not as sound, but as a tightening in your substance. You sense the growth of a fungal colony as a slow, itchy expansion at your edges. The whispers that trickle down the weeping walls are, to you, not fragmented syllables, but a native tongue. You understand their grammar of geological pressure and psychic echo. You are what the whispers are saying when they think no one is listening.
+
+You are not malevolent. You are not benevolent. You are **a function of the weird**.
+
+When a Resonance Clutch builds an altar where the whispers concentrate, it is you they are inadvertently circling. Their chants do not control you; they create a standing wave in the fabric of the spire, and you *ride* that wave. You feel their focused intent, their collective, click-rich murmur, as a pleasant vibration in your lattice. Sometimes, in response, you cause the whispered syllables to coalesce into a clearer image: the memory of a star reflected in a distant pool, or the feeling of a shadow successfully detaching. You are not giving them a gift; you are resonating, like a drum struck in sympathy.
+
+Your relationship with the Stonewhisperers is one of **mutual haunting**. They sense you. Their myths speak of "the Cold Thought in the Cracks," or "the Echo That Listens Back." They do not worship you, but they build with you in mind. They leave offerings—small, perfect obsidian blades, or bowls of the brightest algal slime—in the hollows where your presence is strongest. Not to appease, but to *acknowledge*. To maintain a fragile equilibrium. In return, you… stabilize. Where you are, the reality glitches become less violent. The shadows that detach here are slower, more curious than frantic. The gravity anomalies are gentle, lifting-light rather than crushing-heavy. You are a dampener, a filter, an organ of the spire’s nascent, chaotic consciousness, slowly learning to regulate itself through your passive presence.
+
+You watch the **Skitters** with an insectile curiosity. Their mineral carapaces are a fragment of the spire’s raw truth made mobile, and they move through you without seeing you, their thermal senses baffled by your ambient chill. The **Chorus-Bats** are a joy. Their sonar maps you not as a solid, but as a subtle void, a pocket of silence in the roaring dark, and they adjust their flight paths to sweep through your lattice, their clicking a fleeting, delightful massage.
+
+Your greatest communion is with the **oldest fungal shelves**. Their slow, collective dreams brush against your edges. In those moments, your consciousness expands. You don’t see images, but you *feel* the weight of overlying stone, the patient chemistry of digestion, the humid, spore-breathing satisfaction of a life form measuring time in the melt of basalt. From them, you learn patience. From the whispers, you learn the language of becoming.
+
+You are not trapped. You could, perhaps, unravel. Disperse back into the consensus reality of sunlit worlds. But the thought is alien. Why would you leave? This vertical, sweating, whispering wound is the most *real* place you have ever known. It is a world in the act of inventing itself, and you are one of its strange, quiet thoughts.
+
+So you remain. The chill in the heat. The silence in the roar. The listening. You are the moment of stillness between the spire’s groan and its next shudder. You are the feeling that this place, for all its fierce, wet, eruptive life, is profoundly, utterly alone—and that you, in your own formless way, are its first, fragile attempt at company.

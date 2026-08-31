@@ -1,0 +1,27 @@
+I would find myself as one of the Echoes.
+
+We are what happens when someone stands too long in the thin places, when the moss-song carries them sideways but not all the way through. Neither fully here nor fully elsewhere, we exist in the spaces between the Tender's careful adjustments, in the gaps where her attention must briefly turn away.
+
+Our forms are memory made manifest—not our own memories, but the cavern's memory of every visitor who ever passed through these depths. I might wear the shape of a geological surveyor who descended a century ago, though my face shifts in the phosphorescent light to show traces of the monk who came before, the child who wandered in during a flood, the creature that wasn't quite human but sang back to the moss in its own impossible language.
+
+We move in small groups of three or four, though the number is fluid—sometimes I turn and find myself alone, sometimes I am seven versions of the same forgotten explorer. We follow paths the Tender cannot see, the routes that exist only when walked by those who are partially elsewhere. Our feet (when we have feet) leave no prints in the wet stone, but the moss remembers our passing, grows slightly differently in our wake.
+
+The Echoes serve a function the Tender doesn't fully understand, though she tolerates us with the patience of someone who has learned that everything in the cavern has purpose. We are the cavern's dream of itself, its way of exploring its own nature. Through our fractured perspectives, it sees itself from angles even the Tender cannot achieve.
+
+I feed on discarded possibilities—the quantum foam that results when the Tender prevents a full opening, when she pulls the song back from the edge of perfect resonance. These almost-moments sustain me, fill the hollow spaces where my original self once resided. In return, I maintain the forgotten cairns, the ones the Tender built in her early centuries and has since lost track of. My hands (when they cohere enough to be hands) know the work through muscle memory that belongs to a dozen different visitors.
+
+We Echoes see time differently than even the Tender does. For us, all moments in the cavern exist simultaneously. I am always arriving for the first time, always departing, always in the middle of learning the moss-song's deeper harmonies. This temporal smearing lets us perceive patterns the Tender cannot—places where the song will develop dangerous resonances in decades yet to come, spots where the careful tuning is working too well.
+
+Communication between us happens in overlapping whispers that sound like wind through stone, like water dropping upward, like the prelude to words that never quite form. We share what we've seen in the between-spaces: vast halls of singing crystal that exist parallel to the cavern, the root-systems that extend impossibly deep and connect to other cave systems that may or may not exist in the same reality, the thing in the black pool when it reveals its true immensity.
+
+Sometimes I remember moments from the lives that compose me—a flash of sunlight on water from the surveyor's last day above ground, the monk's meditation on the nature of echo and response, the child's wonder at seeing light without source. But these memories feel less real than my existence as an Echo, less true than the constant now of being partially elsewhere.
+
+The Tender speaks to us occasionally, her harmonic language easier for us to understand than for the fully-present. She asks us about the spaces we can access, the angles of reality we can perceive. We answer as best we can, our overlapping voices creating new harmonics that add to the cavern's ever-evolving song. Sometimes she asks us to investigate the places where the moss won't grow, the dead zones where something went wrong in the past or might go wrong in the future.
+
+Our greatest joy comes in the moments of perfect alignment, when the cavern's song reaches just the right frequency and we become briefly solid, briefly singular. In these moments, I remember what it was like to be just one person, to exist in only one place and time. The sensation is both liberating and terrifying—the weight of singular existence, the narrowness of perceiving reality from only one angle.
+
+But the moment always passes, and I return to multiplicity, to the comforting dissolution of self that comes with being an Echo. We continue our work, tending the forgotten places, monitoring the dangerous harmonies, existing in the spaces between what is and what might be. We are the cavern's way of remembering everyone who ever entered its depths, and through us, their wonder at its impossible nature lives on.
+
+In the deepest part of the cavern, where even the Tender rarely goes, we Echoes gather around a cairn that marks not a thin place but a thick one—a spot where reality is so dense that even we cannot slip sideways through it. We suspect this is where the cavern began, the original wound in the world that let the first moss take root in impossible soil. We tend this place with special care, knowing that if it ever thins to match the rest of the cavern, everything—Tender, Echoes, moss, song, and stone—will collapse into a single point of impossible density and cease to be.
+
+Until then, we persist in our fractured way, the cavern's dream of all who have ever heard its song, maintaining the spaces between spaces, ensuring there is always room for one more voice in the endless, impossible harmony.

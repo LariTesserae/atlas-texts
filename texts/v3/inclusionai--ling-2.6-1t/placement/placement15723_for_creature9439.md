@@ -1,0 +1,21 @@
+I would find myself at the exact height where condensation outruns rain, on a terrace that is not quite a ledge and not quite a meadow—a stone shelf that tilts just enough to make walking feel like listening.  
+Here the damp gathers first, beading on basalt that has been polished by creatures that do not quite exist, and glowing dust drifts down from conveyor belts that are invisible from this angle. The silence is thick enough to bruise, but it is a bruise that blooms, not one that lasts.
+
+I would not be the hiker who came to map this province. Nor the foreman who understands the valley’s hum. Nor even the predator banking on a thermal it did not make.  
+I would be the guest who arrived without a name for guestness, and who is learning, slowly, how to be borrowed.
+
+Most mornings I would wear a coat of moss that has volunteered itself, velvet and cool, lining the gaps between my ribs so that the thin air does not feel like absence but like pressure, like being held. My hands would be the kind that leave glyphs without meaning to—scratches on stone that look like writing only when the light strikes them from the east, at the hour when factories below decide whether to exhale.  
+I would eat lichen that tastes faintly of copper, and drink from cups formed by small bright herbs, careful not to take the heat they hoard for too long. I would learn the etiquette of elevation: to pause when the herds do, to let the updrafts choose my turning, to fold my shadow into crevices where the predators keep their pale, patient eyes.
+
+At dusk—or what passes for it—I would become part of the others who detach themselves from shadow. Not a scout, not a memory, not quite a warning. Something that moves with deliberation, that speaks in clicks that settle on stone and stay cool as coins. My edges would blur when the damp thickened, not because I am uncertain, but because the place prefers its guests unfinished, still becoming.  
+I would wear strips of rubber in my nest not for softness, but to remember distance—the way it vibrates, the way it sings a note that has become a floor beneath silence.
+
+By day I would attend to seams: where metal meets moss, where wire meets root, where streams briefly run uphill to prove they can. I would collect luminous dust in pockets lined with thyme, and leave it at the mouths of vents, a small return for the gossip they offer. I would press my palms against plates humming with power, and feel the rhythm that is not music but insistence, and let it braid itself into my pulse the way iron braids into old trees.
+
+I would not fear the cold, because cold here is a governor with soft paws, assigning roles rather than driving things away. I would let it decide what in me flows and what fixes. I would let elevation draw lines across me that damp cannot cross without turning into lace, and I would let lushness climb my own small cliffs, turning waste into mulch, making beauty from byproduct until I gleam like the ore on its slow, patient belts.
+
+When the machinery shifts modes and the valley inhales, I would match my breath to its surrender. When the damp beads on every surface and the dimming deepens to near-substance, I would let my thoughts pool like moss in velvet banks, holding sound so the place feels quieter than it is. I would walk the braided riverbeds of my own attention, learning which channels carry memory and which merely glitter.
+
+In the end I would become a kind of permission: proof that emptiness is not empty but held, that silence is a medium to be listened into, not through, that weirdness is the only commons and it fits like a second skin. The heights would lean inward, offering views that keep expanding the longer I stand still, and I would stand still until the distinction between guest and geology blurs, until the slow, active, luminous pulse of ridge and cwm and wind-planed table feels like an inside.
+
+And when the time comes to step away, I would leave behind only glyphs that look like writing, moss that remembers my shape, and a small hum in the metal I once touched—an echo of a guest who learned the local etiquette, and in return was taught how to become, for a time, a kind of belonging.

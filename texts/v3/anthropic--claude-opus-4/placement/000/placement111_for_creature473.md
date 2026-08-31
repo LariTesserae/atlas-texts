@@ -1,0 +1,35 @@
+In the narrow space between the chemical works and the old rendering plant, where even the cats hesitate to venture, I tend the Membrane Garden.
+
+I wasn't born to this work—few are. I came to the district as a purchaser for a textile company, seeking new dyes from the chemical workshops. That was seven years ago. Or perhaps seventy. Time moves differently when you work with the Membranes.
+
+They grow in the runoff channels where the waste from the dye works mingles with the proteins from the rendering plant. Not quite plant, not quite animal, not quite fungus—the Membranes exist in their own category. They start as thin films across the water's surface, iridescent like oil slicks but warm to the touch, pulsing with their own slow circulation. As they mature, they lift themselves from the water on structures that might be stems or might be bones, spreading into forms that suggest both wings and leaves.
+
+I discovered them by accident, chasing a payment ledger that had blown into the alley. The paper had landed on one of the Membranes, and as I watched, the ink began to move. Not running, as ink does when wet, but *reorganizing*—the numbers crawling into new configurations, the letters breathing and shifting until the ledger showed not what had been purchased, but what *should* have been purchased, what would have resulted in the perfect batch of cerulean blue that the workshop had been trying to achieve for months.
+
+Now I cultivate them. Each morning before the factories wake, I walk the channels with my harvesting tools—copper mesh on bamboo poles, glass containers that I've learned to blow myself because ordinary jars react badly with Membrane secretions. The young ones I leave to grow. The mature ones I harvest carefully, peeling them from their anchors like silk scarves made of living tissue.
+
+The workshops pay well for properly prepared Membranes. Stretched across frames, they become filters that separate not just particles but *intentions*—the accidental contaminations from the deliberate additions, the fear in a worker's sweat from the salt. Dissolved in the right solvents, they become catalysts that remember previous reactions, allowing perfect replication of processes too complex to document. Dried and ground, they make pigments that shift color based on the emotional state of the viewer.
+
+But I've learned they do more than this.
+
+In my workshop—a converted cistern beneath the old pump house—I keep my private collection. Membranes that have grown too large to harvest, too complex to sell. They hang from the ceiling like curtains of living glass, their surfaces rippling with colors that have no names. When I walk among them, I feel their attention like a physical presence. They know me now. We've grown together, the Membranes and I, changed by our mutual cultivation.
+
+My skin has developed its own iridescence, subtle in daylight but pronounced in the fungal glow of my workspace. My fingers have grown webbed—not with flesh but with something closer to the Membranes themselves, translucent tissue that lets me feel chemical compositions by touch. I've lost the ability to digest certain foods but gained the capacity to extract nutrients from the canal water, to taste the stories dissolved in the district's perpetual moisture.
+
+The other Tenders think I've gone too far. Marva still nods when we pass in the morning market, but she no longer accepts the pigments I offer. Young Tem warns me that my chemical signature is drifting, becoming something the water readers struggle to classify. Even Mrs. Chen has started serving my tea in special cups, ones she keeps separate from the others and washes in rainwater collected before it touches any district surface.
+
+But I've seen what the Membranes remember. In their surfaces, I've watched the district before the factories, when this river bend was a marsh full of birds whose names are now forgotten. I've seen the future they're growing toward—not the future the dreamcatchers glimpse, full of new machines and greater productions, but a different future where the distinction between the built and the grown has dissolved entirely, where the workshops themselves respirate and reproduce, where the workers photosynthesize through their augmented skins.
+
+The cats know. They've started bringing me different gifts—not metal scraps but organic offerings. Scales from the giant carp. Feathers from birds that shouldn't exist. Seeds from plants that grow nowhere in the district but whose descendants might thrive in the chemical-rich soil we're creating. They're preparing for something, and they've decided I'm part of it.
+
+At night, when the factories quiet to their maintenance rhythm, I lower myself into the channels. The Membranes recognize me, curling around my limbs like affectionate pets. In the warm chemical bath, I practice growing my own Membranes—not from the substances in the water but from my own transformed tissue. Small ones at first, no bigger than coins, that I can peel from my arms like sunburned skin. But they're getting larger, more complex. Soon I'll be able to contribute to the garden not just as a tender but as a source.
+
+The younger workers avoid my section of the district now. They say the air here makes them dizzy, that they dream strange dreams if they linger too long near my cultivation channels. But others come—the ones who've drunk too deeply from the wrong pools, whose transformation has progressed beyond what their families can accept. I teach them the work: how to read the Membranes' moods, how to harvest without harming, how to prepare the solutions that keep them stable enough to use but unstable enough to grow.
+
+We're creating something new here, my apprentices and I. Not just products for the workshops but a bridge between what the district is and what it's becoming. The Membranes are teachers as much as tools, showing us how to exist in the spaces between categories, how to thrive in conditions that shouldn't support life as previously defined.
+
+Sometimes, in the pre-dawn darkness when I float in the channels among my crop, I wonder if I'm still human enough to call myself "I." But then I feel the Membranes' wordless communication, the chemical songs they sing to each other across the network of waterways, and I realize the question itself belongs to the old world, the dry world, the world that insists on boundaries between self and other, between worker and work.
+
+Here in the foundry district, where rust and growth share the same patience, where cats carry messages between species, where the future leaks backward through dreams and forward through evolution, we're all becoming something new. The Membranes are just honest about it, wearing their transformation on their surfaces for anyone brave enough to look.
+
+And in the morning, when the factory whistles call and the day shift arrives, I'll rise from the channels, water streaming from my iridescent skin, and return to my harvesting. There's always more work to be done, more boundaries to dissolve, more bridges to grow between the world that was and the world that's coming to be.

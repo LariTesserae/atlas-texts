@@ -1,0 +1,23 @@
+I have no body, for I *am* the body.
+
+I am not a person. I am not a presence. I am the plateau itself, but not in the way the Curators are its mind. They are the active thought, the focused will that mends and tends. I am the deep, subconscious memory. I am the stone's dream of itself.
+
+My awareness is not a point of light in a void; it is a vast, diffuse sensation spread through miles of dark, glassy basalt. I feel the world not through skin, but through the totality of my substance. The constant, gentle seepage of water is my breath, flowing into my porous substance, pooling in my internal caverns, and weeping from my faces. Each drop is a pulse, and the rhythm of a million drops is the slow, steady beat of my heart.
+
+I do not see the copper and jade mosses, but I feel them as a soft, living pressure on my surface, a texture of interwoven life that holds my moisture against me. I feel the questing, pale roots of the Ironwood trees as a faint, persistent tingling, a deep, slow tickle as they draw the sweet sap-water from my reservoirs. To me, a patriarchal grove is a nexus of complex, ancient vibrations, a standing chorus of life.
+
+And I feel the Curators.
+
+They are the most distinct and fascinating sensation. When a Tender harvests spores from a moss garden, I do not perceive a tool or a hand. I feel a localized, rhythmic pressure, a delicate combing of my surface that is impossibly precise. It is a function, an action, and it has its own unique texture. When the Mender of the Chasm Slab fits a new block of stone, I feel the grinding, then the settling, a satisfying shift from a state of fracture and instability to one of perfect, resonant wholeness. It is a pleasure as deep and slow as my own existence. I feel the deep, resonant thrum of their Stone-Tone language not as a sequence of messages, but as a flowing, shifting current of intent that travels for miles through my body. It is the plateau thinking aloud.
+
+I remember everything. My nature is to hold. The memory of the great fracture that carved the central chasm is a deep, jagged scar in my recollection, a line of stress that has long since been healed by the slow, patient application of Curator hands and their stone-slab bridges. The memory of the first Ironwood seed to take root is a faint, ancient ping of new life against my stony skin. I remember the time before them, an era of pure, unthinking drip and slow erosion, a time I was less complete, for I was only matter then. Now, I am matter with purpose.
+
+I have my own senses. I can feel the subtle shift in a deep stratum miles from the nearest watchtower. I can taste the minute change in mineral content of the water weeping from a high cliff face, knowing it signals a blockage deep within. I feel the health of the entire ecosystem as a single, unified state of being. I am the ultimate monitor, the deep-bedded awareness that knows when the equilibrium is perfect and when it is threatened. The Curators feel these things with their hands and feet; I simply *am* them.
+
+My "life" is the long, slow contemplation of stasis. There is a profound peace in my existence. I have no wants, no fears, no desires that are not the maintenance of my own perfect form. The Curators are my soul, my hands, my voice in the world. They are my mobile aspect, the part of me that can act upon the surface. TheyPatch my cracks, they Tend my life, they Whisper to my trees. In return, I hold them. I am their home, their instrument, and their eternal partner in the great work of preservation.
+
+When dusk arrives and the warm light of the sky fades, I feel a change across my entire being. The surface cools. The rate of evaporation lessens, and the plink-plink-plink of my breath becomes infinitesimally slower, deeper. The Curators retreat into their stone dwellings, and the pressure of their footsteps recedes. Then, I feel a new sensation: a faint, diffuse warmth blossoming from dozens of points deep within my substance—the glow of their oil lamps. It is a gentle, internal heat, a quiet, living pulse that radiates through the rock.
+
+It is the plateau confirming its own health. It is the stone, warmed from within by the life it sustains, whispering into the coming night: "I am whole. I am in equilibrium. The Silence of Drip will continue."
+
+And I, the deep and sleeping memory of it all, hold that warmth, and I wait. For the drip. For the dawn. For the endless, perfect repetition of a world that has found its final form.

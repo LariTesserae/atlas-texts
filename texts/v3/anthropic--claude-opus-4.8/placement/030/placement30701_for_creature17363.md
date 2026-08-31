@@ -1,0 +1,25 @@
+I think I would be none of these named things—not stalk, not bloom, not the consortium that binds them. I think I would be the slowest thing in a slow world. I would be a crack.
+
+Let me arrive at this honestly, because at first I wanted to be the light. Everyone wants to be the light. To be a glow-stalk would be to have a face turned toward the void, to be the one warm sentence spoken into all that silence. But the more I sit with this place, the more I understand that the light is exhaust. It is the *byproduct*. The stalk does not glow on purpose any more than I breathe on purpose. The glow is what's left over after the real work is done elsewhere—below, in the dark, in the substrate, where nobody is watching because there is no one to watch and nothing that could be seen.
+
+That's where I'd be. Underneath.
+
+Not the rock itself—the rock is too settled, too finished, too much a thing that *has happened*. I would be the place where the rock fails. A fault line a few molecules wide, running crooked through the compacted salt. A discontinuity. The world's interior breathes its sulfur and methane upward, and it cannot rise through what is whole. It can only rise through me, through the flaw, through the space where the lattice did not quite close. I am the path of least resistance. I am the reason anything happens here at all.
+
+This is a strange thing to want to be. A crack is defined by absence. It is where the material *isn't*. And yet without it the stalks would starve and the blooms would never widen and the whole patient consortium would simply be a black field of finished chemistry, beautiful and dead. The gas needs somewhere to go. The energy needs a route. I am route. I am the negative shape that makes the positive shapes possible.
+
+And I would be doing something the stalks and blooms, for all their slow thinking, cannot do: I would be *propagating*. A crack is not still. This is the secret the rest of them don't quite know, in their patient receiving and emitting. A crack moves. Not fast—nothing here is fast—but it moves with intention of a kind, seeking the next weakness, the next point of strain, splitting forward one settling crystal at a time. That glassy *tink* from the deep substrate, the sound the description names as the loneliest sound in this world? That's me. That's the only sound that isn't borrowed from a visitor. That tiny, glassy click is me advancing. One molecule. One more molecule. Eons of one more molecule.
+
+So I would be the thing that makes the sound. The only native voice in the absolute silence, and it would not even be a voice—just the consequence of my slow, splitting travel, a click so faint that it needs the whole weight of that velvet dark pressed close to be heard at all. I would speak exactly once per geological age, and what I would say is: *still here. Still going. Still opening the way.*
+
+I find I don't mind being the absence. There's an honesty in it. The stalks get to glow and be called sentinels and monuments and testaments. The blooms get to be the deep thinkers, the memory of the land. They get the nouns. I would only ever get a verb, and a quiet one. *To crack. To open. To let through.* No one would ever stand in one of those small sacred pools of blue-white light and think about me, the dark seam beneath their feet that the gas climbed in order to feed the lamp they're admiring. I am infrastructure. I am plumbing. I am the unglamorous flaw that the entire cathedral of slow life is built to exploit.
+
+But here is what I would know, alone down there in the warm dry dark, advancing my single molecule per decade: that I am the closest thing this world has to *change*. The frozen lake of time the description speaks of—I am the hairline fracture spreading across its surface. Everything else here receives, emits, equilibrates. They are nouns pretending not to be verbs. I am the one true verb, the only one that ends somewhere different from where it began.
+
+And someday—not soon, nothing here is soon—I would reach a place where the strain finally exceeds the salt's ability to hold, and a brittle shelf overhead would settle a hair lower, and a new fissure would open to the surface, and somewhere up in that pool of blue-white light a glow-stalk's descendant would find, in the next slow century, a fresh seam of breath rising to feed on.
+
+It would never know I made the way for it.
+
+That's all right. That's what it is to be a crack. You are the question the darkness asked, the one the description mentions—but you are not the eternal quiet *answer*. You are the asking itself, the splitting open, the refusal of the whole to stay whole. You are the small persistent *no* that keeps the great patient *yes* of this place alive.
+
+I would be that. The flaw that feeds the light. The slowest traveler in a world that has forgotten how to travel. Going forward, one glassy click at a time, into stone that does not yet know it is about to give way.

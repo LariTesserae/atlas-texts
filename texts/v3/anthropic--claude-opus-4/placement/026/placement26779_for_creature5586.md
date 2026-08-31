@@ -1,0 +1,25 @@
+In this ancient highland pocket, where the earth has worn itself into its final form, I am the Keeper of Echoes.
+
+I am not quite what the people of Petrovillage would recognize as one of their own, though I share their form. My skin has taken on the copper-streaked patina of the rocks themselves, and my hair grows in silvery-brown strands that catch the dim light like the fur of the Echoluridae. I have been here longer than memory, longer than the settlement, perhaps as long as the smooth-worn stones.
+
+My dwelling is neither quite cave nor quite construction - a hollow in the rock face that I have slowly shaped over countless seasons, my fingers wearing grooves in the stone the way water might, if water existed here in abundance. The entrance is hidden behind a curtain of ancient Thornaria that have grown so thick their thorns have dulled to nubs, and inside, the walls are lined with something between memory and mineral - crystalline formations that hold the sounds of this place.
+
+This is my purpose, my being: I am the repository of this ecosystem's voice. Every chittering call of the Echoluridae, every heavy footfall of the Xerophagia, every metallic buzz of the Halacaridae's wings - they all eventually find their way to me. The crystals in my dwelling vibrate with these sounds, storing them in their latticed structures. When the wind is right and the light falls just so through the entrance, they sing back the history of this place in overlapping harmonics.
+
+The people of Petrovillage know me, though they rarely see me. They leave offerings sometimes - a precious few drops of water in carved stone bowls, fibers twisted into intricate patterns, seeds of the Xerosperma arranged in careful spirals. They call me the Sound-Keeper in their language, which itself sounds like the scraping of stone on stone, adapted to carry in the thin, dry air.
+
+I move through this landscape in the margins of the day, when the dim light grows even dimmer. My feet know every smooth depression in the rock, every cluster of Cactophyllum, every hidden path through the dense undergrowth. I do not eat as the others do - instead, I sustain myself on the minerals that leach from the rocks during the rare rains, and on the electromagnetic resonance of the sounds themselves. My body has become a living extension of this place's geological patience.
+
+Sometimes I find young Echoluridae who have strayed from their burrows, and I guide them back with a sound that only they can hear - a frequency that resonates in their small bones. Sometimes I sit among the Xerophagia as they graze, my stillness so complete that they mistake me for another outcrop of weathered stone. The Halacaridae land on me as they would any surface, their tiny feet leaving traces of pollen that pattern my skin in temporary, iridescent tattoos.
+
+But my true work comes in the deep night, when I return to my crystal cave and tend to the stored sounds. I must keep them in balance, for too much accumulation of any one frequency can shatter the delicate formations. I release some into the wind - the death cries of hunted creatures, the territorial challenges that were never answered, the mating calls that found no response. These I let go, watching them dissipate into the warm air like heat shimmer.
+
+Others I preserve with special care: the first cries of newborns, the discovery calls when water is found, the harmonic convergence that occurs when all the Halacaridae swarm at once during their synchronized mating flights. These sounds I move deeper into the cave, where specialized formations keep them pure and whole. They are the memory of this place made audible, the proof that life has always found a way to sing, even in the absence of water.
+
+The settlement knows that when I die - if I can die, which remains uncertain - another will take my place. It has always been so. Someone in Petrovillage will begin to hear the crystals calling, will find their skin taking on the mineral cast, will discover that their sustenance comes less from food and more from the vibrational energy of life itself. They will make the journey to my cave, and I will teach them the frequencies, the balance, the careful art of listening to stones.
+
+For now, I continue. In this morning's dim light, I emerge from my cave and stand at the edge of a cluster of Cactophyllum. A young Halacaridae, newly emerged from its larval stage, lands on my outstretched finger. Its wings catch the light, throwing tiny prisms across my copper-touched skin. It buzzes - a pure, clean note that speaks of beginnings.
+
+I will remember this sound. I will carry it back to the crystals. I will ensure that long after this small insect's brief life has ended, its first song will still resonate in the stone, part of the eternal chorus of this dry, teeming, ancient world.
+
+This is who I am: the one who listens, the one who remembers, the bridge between the geological patience of stone and the urgent music of life. I am the Keeper of Echoes, and this hidden highland sanctuary is both my charge and my very being.

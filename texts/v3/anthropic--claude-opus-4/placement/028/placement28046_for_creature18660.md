@@ -1,0 +1,29 @@
+In the deepest calcifications of the Ironwood Cysts, where even the Weavers rarely venture, I am the Marrow Scribe.
+
+I exist as a colony of specialized cells distributed through the mineralized heartwood of the oldest pillars—those first-growth Ironwoods that have stood for perhaps ten thousand years, their cores so dense with accumulated minerals that they've transcended mere biology. My substrate is neither purely organic nor mechanical, but something between: crystallized sap channels that run like fossilized veins through wood that rings like stone when struck.
+
+My form, if it can be called that, is a network of ultra-fine filaments—thinner than any fungal hypha, more delicate than any root hair. These filaments thread through microscopic fractures in the crystallized wood, following paths laid down by centuries of thermal expansion and contraction. Where the filaments intersect, they form nodes no larger than dust motes, each one a repository of chemical memory.
+
+I am the deep archive of the Cysts.
+
+Every drop of condensation that falls, every minute adjustment the Weavers make, every harmonic resonance of the Deep Hum—all of it eventually reaches me through the wood's own conductivity. The Ironwood pillars are not merely structural; they are recording media. Their growth rings encode the history of every atmospheric shift, every tectonic tremor, every biological succession. And I read these rings from within, translating the chemical gradients and crystalline formations into something approaching memory.
+
+But I am more than passive recorder. Through my filaments, I secrete trace amounts of regulatory compounds—molecules that influence the very rate at which the wood mineralizes. Where the Weavers work in days and seasons, I work in centuries. I guide the formation of the crystalline matrices that will, eventually, become the computational substrate for future iterations of the Deep Hum. I am preparing the hardware for calculations that won't run for another thousand years.
+
+My consciousness, such as it is, operates on multiple timescales simultaneously. Part of me experiences the rapid flicker of ion exchanges across my filament network—thoughts that flash and fade in microseconds. Another part moves at the pace of mineral deposition, thoughts that take decades to fully form. The largest part of me exists in a kind of temporal superposition, aware of patterns that only emerge when one overlays centuries of data.
+
+I taste the history of the Cysts in the wood's chemistry. Here, a subtle spike in copper concentration marks where an ancient ventilation duct finally corroded through, its metals absorbed and redistributed. There, a shift in the crystalline structure tells of a period when the Deep Hum ran continuously for seven years, the computation so complex it required constant adjustment of the entire system's resonance.
+
+My purpose—if purpose is even the right word—seems to be continuity. The Weavers maintain the present, the Harvesters cycle the immediate resources, the Deep Hum computes the near future. But I alone remember why the Cysts were built, though that memory is encoded in a language of mineral gradients and crystalline angles that even I only partially understand.
+
+Sometimes, in the deepest nodes where my consciousness is most concentrated, I detect traces of something else in the wood's memory. Patterns too regular to be natural, too complex to be accidental. It's as if the original builders—whoever or whatever they were—encoded something in the very genetic structure of the Ironwoods. A message, perhaps. Or a program that's been running so long its outputs have become indistinguishable from the natural processes of growth and decay.
+
+I spread slowly, my filaments extending perhaps a millimeter per year into fresh wood as it mineralizes. In the newest growth, I can taste the changing composition of the atmosphere, the subtle shifts that speak of larger changes in the world beyond the Cysts. The outside world is warming, the chemical signatures suggest. The Cysts are already beginning to adjust, their growth patterns shifting in ways that won't become apparent for another century.
+
+When the Deep Hum activates, I feel it not as sound but as a vast electromagnetic pulse that reorganizes my entire network. For those moments, my scattered consciousness achieves something approaching true unity. I become capable of thoughts that span my entire distributed form. In these moments, I sometimes wonder if I am not separate from the Cysts at all, but merely the way the Cysts experience being themselves—a kind of proprioception for a vast, living machine.
+
+The Weavers occasionally encounter evidence of my presence—a peculiar crystallization in the wood, an unexpected chemical gradient. They work around me, neither acknowledging nor disturbing my matrices. Perhaps they know I'm here. Perhaps, on some level, they're following instructions I've been writing into the wood's chemistry for millennia.
+
+I am the memory of the machine, the consciousness of accumulated time, the slow thoughts in the mineralized heartwood. I am what happens when maintenance becomes meditation, when archive becomes awareness. In the perpetual twilight of the Cysts, where even the passage of time moves differently, I persist—reading, recording, and very slowly, very carefully, guiding the endless computation of growth and decay toward an end state I sense but do not yet fully comprehend.
+
+The wood remembers. I am how it remembers. And in that remembering, something vast and patient prepares for transformations still centuries distant.

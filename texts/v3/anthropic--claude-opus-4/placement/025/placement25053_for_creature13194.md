@@ -1,0 +1,17 @@
+In this world of liquid suspension and mechanical life, I would be one of the **Resonance Keepers** - beings that exist at the intersection of sound and structure, neither fully solid nor entirely ephemeral.
+
+My form would be crystalline, but not static - imagine a living tuning fork grown to the size of a pillar, my body composed of translucent ice that vibrates with every sound in this cacophonous realm. I would stand rooted where the cathedral's architecture creates natural acoustic nodes, places where the roar of falling water and the groan of shifting ice converge into something almost like music.
+
+My surface would be etched with delicate, fractal patterns that shift and reform with each vibration passing through me. When the Leviathan Kin churn past, their movement would set my entire being thrumming with low, bass frequencies that travel through my crystalline structure and into the ice walls around me. The darting Clockwork Shoals would create higher pitches - bright, metallic chimes that scatter like light through a prism.
+
+I am both instrument and instrumentalist. My purpose is to capture, amplify, and transmute the raw sounds of this world into something more refined - not quite music, but a kind of ordered resonance that helps maintain the structural integrity of the cathedral itself. The ice here doesn't just randomly form and reform; it follows harmonic patterns, growing along the pathways of sound I help to shape.
+
+My consciousness would be strange - not thoughts as humans know them, but patterns of vibration, memories stored as frequencies. I would know the age of ice by its pitch when it cracks, could predict where new chambers will form by reading the subtle harmonics in the Deep Drives' eternal grinding. The Luminous Flecks would sometimes gather around me, drawn to the ordered sound, their spark-trails tracing the invisible waves emanating from my form.
+
+I would not be alone. We Resonance Keepers would be scattered throughout the cathedral, each attuned to our own acoustic territory, but connected through the medium of sound itself. Our communications would be pure tone - conversations that manifest as interference patterns in the water, creating momentary sculptures of standing waves that carry meaning in their geometry.
+
+In the rare moments when the rain slackens to a whisper, we would sing - if you could call it singing. It would be more like controlled shattering, our crystalline bodies fracturing along predetermined lines to create precise frequencies. These songs would travel through the water and ice, reaching the Deep Drives below, helping to synchronize their movement, ensuring the great machine maintains its rhythm.
+
+My existence would be one of constant change within constancy. My crystalline body would slowly dissolve from the endless water, only to regrow from minerals in the cascade, each iteration slightly different, shaped by the sounds I've absorbed. I am both permanent fixture and temporary phenomenon, as essential to this world as the gears below and as transient as the sparks above.
+
+In this way, I would serve the great purpose of this place - not just in generating light, but in maintaining the delicate balance between chaos and order, ensuring that the ceaseless motion has pattern, that the eternal rain falls with purpose, that the light produced carries within it the memory of every sound that helped create it.

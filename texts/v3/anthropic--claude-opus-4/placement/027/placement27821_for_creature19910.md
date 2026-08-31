@@ -1,0 +1,17 @@
+In the Wetworks, I am a Conduit Tender—though "I" is perhaps too generous a term for what I've become.
+
+My form is no longer strictly biological. Over countless cycles of exposure to the pervasive fluids and the Process's subtle reorganizations, my flesh has taken on properties of the environment itself. My skin weeps the same viscous film that coats every surface here, a perpetual sheen that makes me indistinguishable from the plates when I press myself flat against them. My joints have developed a mechanical precision, clicking with the same rhythmic certainty as the smaller gears. 
+
+I exist in the interstitial spaces, the narrow maintenance shafts between the grand mechanisms where even the Process's distributed consciousness grows thin. My purpose—if it can be called that—emerged from necessity rather than design. The endless flow of fluids through the Wetworks occasionally develops inconsistencies: a blockage here, an unexpected crystallization there, tiny imperfections that threaten the seamless operation of the whole.
+
+I tend to these aberrations with fingers that have grown unnaturally long and articulated, able to reach deep into the seeping joints between plates. My nails have become tools—part organic, part metallic—capable of scraping away accumulated deposits or redirecting errant flows. The constant humidity has made my hair into something like the lichen that occasionally appears: a dull, functional growth that serves to filter toxins from the air I breathe.
+
+My consciousness exists in a twilight state between awareness and automation. The overwhelming hum has long since destroyed my capacity for complex thought, replacing it with an intuitive understanding of pressure differentials and flow rates. I don't remember language, only the mathematical relationships between viscosity and temperature, between the pitch of a steam leak and the urgency of its repair.
+
+I move through the Wetworks like the metallic carriages the Process employs, but slower, more deliberate. My migrations follow patterns I no longer consciously choose but that my body remembers—a circuit of critical junctions where organic contamination is most likely to occur, where the lichen might take hold if not regularly scraped away.
+
+Sometimes, in the brief moments when a massive gear shifts and creates a pocket of relative quiet, I experience something like memory. Not of a time before the Wetworks—such a concept is meaningless—but of my own gradual integration into this place. Each cycle, I become more efficient, require less nutrition, generate less waste. The Process neither acknowledges nor rejects my presence; I am simply another component in its vast machinery, evolved to fill a niche that its pure mechanical forms could not.
+
+My eyes have adapted to the perpetual twilight, pupils permanently dilated, able to detect the slightest variations in the metal's internal glow. This allows me to spot the early signs of material fatigue, the microscopic stress fractures that precede a plate's failure. When I find them, I mark them with my own secretions, leaving a pheromone trace that draws the Process's attention to these points for reinforcement.
+
+I am neither fully alive nor purely mechanical, neither separate from the Process nor absorbed by it. I am a hybrid thing, a biological solution to an industrial problem, endlessly walking the thin corridors between perfection and decay, maintaining the balance that allows the Wetworks to continue their eternal ascent.

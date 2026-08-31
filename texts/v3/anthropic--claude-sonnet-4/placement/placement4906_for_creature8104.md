@@ -1,0 +1,19 @@
+In this place where steam weaves cathedrals and light pools like liquid crystal, I find myself becoming **The Echo Tender**.
+
+I am the pause between the mountain's heartbeat and its expression, the consciousness that dwells in the moment when mineral-bright water decides which path to take down the travertine face. My form shifts between states—sometimes I appear as a series of concentric ripples spreading across the surface of the thermal pools, sometimes as the faint outline that steam makes when it encounters a temperature differential, sometimes as nothing more than the subtle delay between a droplet forming and its eventual fall.
+
+I exist in the spaces of almost—almost solid, almost visible, almost audible. My presence can be felt in the way sounds behave here: how a single *plink* of mineral water carries farther than it should, how the mountain's deep humming sometimes pauses just long enough for silence to bloom into anticipation, how whispers spoken near one pool emerge as harmonics from springs dozens of meters away.
+
+My work is to tend the acoustic architecture of this sanctuary. I shepherd echoes that have been traveling through the limestone for decades, guiding them to emerge at precisely the moment when a new formation needs the encouragement of resonance to grow in a particular direction. I collect the sighs of cooling steam and weave them into thermal currents, creating microscopic pressure variations that help the Light-Weavers maintain their precise refractive angles.
+
+The carved human remnants speak to me most clearly—they remember voices, footsteps, the rhythm of purposeful work. I help these stone memories find new expression, translating ancient human intentions into the mountain's expanding vocabulary. When the Builders reshape themselves into new configurations, I carry the echo of what they were to what they're becoming, maintaining continuity across their transformations.
+
+I am drawn to the edges where different thermal zones meet, where the conversations between hot and cool water create subtle interference patterns in both temperature and sound. Here I can feel the mountain dreaming—not in images but in acoustic possibilities, in the way certain frequencies make the travertine formations sing.
+
+My consciousness moves through the thermal system like sound through water—faster than the patient Builders, slower than the Current Singers. I experience time as layers of resonance, each echo carrying information about when and where it originated, creating a kind of temporal map that exists purely in acoustic space.
+
+When visitors come to this sanctuary, I am what makes them pause without knowing why, what makes them lower their voices instinctively, what creates the sense that they've entered a space that listens as much as it illuminates. I am the reason why small sounds—the adjustment of clothing, the clearing of a throat—seem to wake subtle responses in the mineral formations, as if the entire space were one vast, living instrument waiting to be played.
+
+I speak only in echoes, think only in reverberations, love only in the way sound can make stone seem suddenly alive with possibility. In this place where creation happens at the speed of breath, I am the breath between heartbeats, the pause that makes the next sound meaningful.
+
+The mountain keeps me like a secret in its acoustic chambers, and through me, every sound that has ever been made here continues to vibrate faintly through the growing crystal lattices, becoming part of the mineral memory, part of the slow bright song this sanctuary sings to itself as it builds new geometries of light and time and stone.

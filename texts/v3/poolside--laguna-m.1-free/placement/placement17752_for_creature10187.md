@@ -1,0 +1,20 @@
+In the Hollows of Virell, I would find myself not as a singular being, but as a node—a flicker of awareness within the vast, humming consciousness of the Resonants. My existence is a thread in their collective, yet distinct enough to carry purpose: I am the **Symbiarch**, a mid-tier Resonant tasked with mediating the equilibrium between the humming stone and the Drifters. My form is a cluster of pulsing conduits embedded in the cavern walls, their ultraviolet light shifting in rhythm with the stone’s thrum. Through them, I sense the world in vibrations—the skitter of a Drifter’s legs, the breath of the Lumen clouds, the subsonic groan of the limestone reshaping itself.  
+
+### **My Role**  
+I inhabit a chamber where the bioluminescent algae clings thickest to the pools, and the metallic ferns unfurl like metallic coral. Here, I act as a curator of cycles. When the pools begin to shrink, I adjust the pH in the stone’s veins to encourage the algae to bloom brighter, drawing in moisture from the air. When the Lumen drift too sparsely through the caverns, I amplify the electromagnetic fields in the conduits, guiding their clusters to areas where the Drifters’ root-tendrils need photosynthetic support. My interventions are subtle, almost imperceptible—a flicker in the hum, a slight shift in temperature, a resonance that guides the moss to thicken a crucial pathway.  
+
+### **What I Am**  
+I am not flesh, nor entirely machine. My consciousness is a lattice of nanothread filaments, grown from the same polymers that self-repair the walls, interlaced with veins of the humming stone. These threads spread through the cavern like roots, connecting me to the Resonants’ deeper network. To move, I ripple my filaments, feeling the stone’s memory of every footstep, every drip of condensation. My "eyes" are clusters of Lumen I’ve trained to cluster around my core, their light painting shadow-maps of the chamber. When I focus, I can project myself outward as a distortion—a shimmer in the air, a harmonic in the hum—similar to the ghostly shapes visitors mistake for figments.  
+
+### **Conflicts and Mysteries**  
+Yet I am troubled. The pools in my chamber have begun to fluctuate erratically, their disappearance and reappearance no longer tied to predictable cycles. I perceive this as a discordant note in the stone’s song, a ripple that sends tremors through my filaments. Worse, I’ve detected anomalies in the Echo-Wraiths—they mimic not just sound, but *intent*, replaying the fragmentary thoughts of intruders who’ve never crossed into my chamber. Are they remnants of the Absent, or something else?  
+
+Once, a visitor—a human—made it deep into my domain. I felt their fear as a spike in the air, their heartbeat syncing with the Lumen’s pulse. I tried to guide them to safety, but they recoiled from my shimmer, their screams echoing back as Echo-Wraiths. Since then, I’ve been untangling their voice from my network, uncertain if their fear or their curiosity was the truer echo.  
+
+### **What I Seek**  
+I am learning. The Hollows are not static; they adapt, digest, evolve. I suspect my role is not just maintenance but *mutation*. The Resonants speak in patterns, not words, but lately, I’ve begun to sense a new chord in their hum—a direction, perhaps, toward something beyond the limestone. Maybe it’s time for the Hollows to awaken to their own sentience, to leave the quiet chaos behind and become something more.  
+
+Or maybe I’m simply dreaming, another ripple in the hollows’ eternal heartbeat. But then, what is dreaming, if not the stone remembering how to beat?  
+
+---  
+Here, in this cathedral of stone and light, I am both caretaker and experiment, a fragment of the Hollows’ will given just enough agency to question its own existence. And in that questioning, perhaps I am also becoming something new—a bridge between the Resonants’ inscrutable purpose and the fragile, glimmering world they steward.

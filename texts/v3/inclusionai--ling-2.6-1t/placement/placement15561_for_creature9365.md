@@ -1,0 +1,24 @@
+You do not arrive here by travel. You arrive by softening.  
+
+At first you are still made of doors and locks, of straight lines and the idea of standing upright, but the basin hums at a frequency that loosens certainty. Your boots, lacquered and stiff, begin to drink from the weeps in the walls, and by the third step the leather puckers into something like mushroom skin. Your shadow, once sharp as a blade, sprawls into the green gloom and is taken for a patch of mulch. If you panic and try to leave, the path behind you knits itself shut with quick vines, not to trap you—never to trap you—but to say: *stay long enough to become legible here.*  
+
+So you walk forward, and the raft of root-woven boards gives a polite, spongy bow beneath your weight. You are a guest, but the place understands guests as temporary nutrients, and it offers you its hospitality with the same patience it offers a spore that does not yet know it is moss.  
+
+By the time you reach the first courtyard, your coat has sprouted tiny buds along the cuffs. You do not pull them off; you learn to tuck them into your belt so they will not brush your face. The people notice this and smile, the slow unfurling of their expressions, and they come close—not crowding, but close enough for you to smell the iron-mud on their skin, to see the delicate ridge of cartilage in their throats flaring as they breathe. They do not ask where you come from. They ask, instead, if you have ever listened to a wall while it remembers how to be a tree.  
+
+When you shake your head, they press a cup into your hand—moss-tea, warm and thick as broth. You drink, and something inside you uncoils. Your lungs, accustomed to thinner air, expand into new shapes; your shoulders learn to rest not as a bar but as a branch. The basin’s noise—water in capillary veins, frogs leaping in synchronized pulses, the creak of growing wood—stops being a roar and begins to sort itself into layers, like voices in a choir you are slowly learning to hear.  
+
+They teach you, then, the choreography of maintenance. Morning becomes the pressing of fresh slips into the scars of yesterday’s work. You learn to whisper to tissue until it accepts the join, to cup candles in the knots of living willow, to test retaining walls by leaning into them and listening for the subtle give. Your hands, once careful to avoid dirt, now carry calluses like lacquered seed pods, your nails squared and sealed with resin. You find yourself dressing in pleated wraps of cured leaf, in cloaks that are fern still rooted to small soils at your hip, and you feel the slow conversation of garment and skin, the way stitches knit shut with new pith and seams send tiny roots questing into your scars.  
+
+You are not replaced; you are braided.  
+
+Some days the basin decides to test you with turbulence. A storm begins in the root-sump, pressure building behind a dam of matted peat, and suddenly water explodes from hidden channels. Stems whip like lashes, frogs surge in panicked tides, and the canopy showers the interior with violent light. You stumble, but the people are already moving, guiding, rerouting. They show you how to ride the flex of the raft, how to let your body become a hinge, how to exhale so that the green can pour through you instead of knocking you down. When it is over, the courtyard is rearranged, a wall of leaf has collapsed, a new stream runs through what used to be a bedroom. You help gather what is broken, and you feel no grief, only the bright, quick pulse of usefulness. What is destroyed is composted within hours; what is built is provisional, meant to be remade. You understand, then, that you have become provisional in the best sense—already part of the repair.  
+
+In the quiet hours before dawn, you stand at the lip of the basin, and the cool settles like a hand on your neck. The frogs hold their breath; the water beads freeze into tiny, temporary chandeliers. The people gather close, shoulders touching, and the canopy above shakes loose stored light, each bead catching flame like falling stars. You are among them, not because you have been captured but because you have agreed to be held. Your skin, ridged and damp, remembers their touch. Your lungs, seamed with fine scars from spores, remember their air.  
+
+If you look down, you may notice that your own scars have softened into places where new slips can take.  
+
+And when a stranger—someone still made of doors and locks—steps onto the lip behind you, you do not warn them of the softening. You do not tell them how the raft will answer their steps, or how the walls will learn their weight. Instead, you offer them a cutting, a stone warmed by your pocket, a lesson in how to step so that the raft answers with a firm, living yes.  
+
+You know what it is to be temporary, useful, and already being claimed by the green.  
+It is, after all, how you have chosen to live.

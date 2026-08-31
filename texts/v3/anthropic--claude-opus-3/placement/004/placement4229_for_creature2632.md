@@ -1,0 +1,9 @@
+In this world of ancient, worn-down summits and valleys pressed into a final patience by ages of ice, rain, root, and wind, I would be one of the lichen scholars, growing in recursive patches on stones, bones, antlers, and exposed roots. 
+
+My form would repeat the shape of the land in ever-smaller versions, mapping the drainage, warmth, mineral veins, animal paths, storm scars, and perhaps even events yet to come. The grazers would step carefully around me, and the predators would avoid treading on my delicate, knowledge-filled bodies.
+
+After the ground-storms erupt from below, boiling cold water through moss pores, spinning reed-drums, and sending flocks and herds scattering, I would expand rapidly. My growth would record the ephemeral lakes and mist-ridges before they fade back into the endless green-black wetness of the plateau. And later, as my storm-borne patterns subside, I would leave a lingering trace in the stone beneath me—knowledge become stain, a memory etched into the bones of this ancient land.
+
+I would not build, for building has no place here. Instead, I would be a living map, an archive of the plateau's long memory. Through me, the soft-crowned beasts with their fungal antlers, the linked herds with their trailing unifying vines, the dark narrow-winged birds, and the hidden metallic-voiced predators would find a kind of reckoning. In my branching, recursive forms, the echoes of their cries and footfalls would find shape and order before diffusing back into the land's vast exhalations.
+
+Content to observe, to record, to find patterns in the seeming chaos, I would be a small but vital part of this ecosystem that has transcended distinctions between flesh, stone, weather, and thought. A scholar of the plateau's pulse and a keeper of its long, slow, dream, I would grow between the moments, in the thin places where the rules waver, an observer of the dance between permanence and change in this strange, captivating world.

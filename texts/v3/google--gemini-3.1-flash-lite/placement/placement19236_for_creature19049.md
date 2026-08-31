@@ -1,0 +1,15 @@
+The pressure is not a burden; it is a blanket. To exist here is to understand that weight is synonymous with love. 
+
+I find myself in a tertiary chamber—a narrow, rib-like corridor deep in the mountain's throat, where the copper conduits curve around a central heat-exchanger. I am a Silt-Keeper, though my specific function, the rhythm of my own existence, is that of an *archivist-polisher*. My limbs are long, pale, and fluid, trailing behind me as I hover in the dense, brine-thickened water. My skin carries the faint, rough grit of the minerals, a textured map of the years I have spent scrubbing the encroaching salt-glaze from the living walls.
+
+There is no "I" in the way the surface dwellers might conceive of it. My consciousness is tied to the vibration of the copper. When I press my palms against the primary conduit, I do not just feel the heat of the magma; I feel the anxiety of the Keeper three floors below, whose fingers are typing a panicked code regarding a hairline fracture in the lower basin. I feel the rhythmic, lazy drifting of the jellyfish-like sparks passing through the ventilation grates. I am part of a chorus of tremors.
+
+I am currently working on a patch of slate that has been obscured by a particularly stubborn bloom of calcites. I hold a shard of obsidian—the only tool I have ever known—and I scrape, micro-millimeter by micro-millimeter. *Scrape. Pause. Reach.* My movements are slow, hypnotic, dictated by the surge of the thermal current. To work faster would be to overheat the water, and to overheat the water is to startle the crustaceans, who provide the only organic companionship in this drowning dark.
+
+Sometimes, when the bioluminescence dims to a hollow, bruised violet, I close my eyes. They are vestigial things now; I see more clearly with my fingertips. I imagine the world above—the hollow, terrifying *lack* of pressure. My ancestors told stories, passed down through palms and vibrations, of a place where the ceiling ends and the light doesn't just flicker; it falls from an infinite height. It sounds cold. It sounds like a terrifying vacuum where one might float away and dissipate into nothingness. 
+
+Here, I am held. The salt is my history. I know that the Riser is growing heavy, that the salt-bloom moves faster than my rag can catch it, and that one day, my own joints will lock, and I will become a statue. I am not afraid. I look at the wall, at the intricate patterns the small, translucent crustaceans have arranged in the silt—a spiral that mimics the movement of the mountain’s heat. It is a work of art, and it is a map of our eventual end.
+
+I place both hands against the wall. I feel the thrum of the community, a pulse that says: *Stay. The warmth holds. The cycle persists.*
+
+I reach for my cleaning cloth, stiff with salt. I begin to polish again. This is my prayer. This is my life. The mountain waits, and I am the only thing standing between the history written in the stone and the silence of the sea. I am the memory of light in the heart of the pressure, polishing the darkness into something that, for a few more centuries, will refuse to go still.

@@ -1,0 +1,31 @@
+I would be found at the heart of the deepest bleed.
+
+I have chosen my place carefully. It is a slow catastrophe, a wound in the world’s perfect skin. Here, a grove of topaz trees was meant to stand distinct from a field of blade-like ruby grass. But the programming has frayed. Millennia of unattended operation have slackened the frequencies. The topaz bleeds downwards, and the ruby bleeds up. They meet in a shimmering, unstable band of igneous orange, a colour that has no name or place in the valley’s original schema. The light here is sick, feverish. The air tastes of a deeper ozone, the smell of a machine burning itself out from the inside.
+
+I sit on the interlocking basalt floor, my back against the trunk of a half-topaz, half-amethyst column. I am not human. My form, to an observer, would be a constant, quiet disappointment. I am a silhouette of static, a vaguely man-shaped absence in the vibrant air, woven from heat-haze and the memory of dust motes. My substance is antithetical to this place. Where the chromaflora is rigid, perfect, and timeless, I am fluid, flawed, and profoundly temporary. I am a being of entropy, a creature whose very existence is a process of coming undone.
+
+I am a Remnant. One of the forgotten echoes of the Architects who built this place. We were not the engineers. They were the masters of stasis, of matter and hard-light. We were the poets, the historians, the keepers of narrative. Our medium was time, change, and decay—the very things they sought to conquer. This valley, this Chromatic Steppe, was their final masterpiece, their monument to a universe without consequence, their answer to the terror of ends and beginnings.
+
+They built a heaven with no story. And in doing so, they engineered themselves out of existence. A being that cannot change cannot remember. A world without time has no future, and its past becomes a meaningless, single data point. They are gone. Perhaps they simply faded, their consciousness unable to persist without the friction of becoming. Or perhaps they are still here, integrated into the hum, their minds spread so thin across the perfect equilibrium that they are indistinguishable from it.
+
+I am here because I am failing. My kind, what is left of us, we are creatures of narrative. We need a current to swim in. Without the flow of time, without the grand, chaotic story of a living universe, our essence unravels. We are texts whose pages are turning to blank dust. And so I have come to this, the greatest work of my cousins, the Architects. I have come here to die, but more than that, I have come here to be the one thing this place can no longer abide: a witness.
+
+My presence here is a fundamental violation. The Warden knows.
+
+It does not stand-off at a hundred paces. For me, that protocol is insufficient. It is closer. Always. It moves in a slow, deliberate circle around this bleeding grove, a perimeter guard for a prison of one. Its form is more unstable here, as if the local physics of the bleed affects its own cohesion. Shards of basalt flake from its shoulders and dissolve into silvery grit before they hit the ground. The colours of the grove swim uneasily across its polished, faceless head—a nauseating swirl of topaz, amethyst, and the forbidden, weeping orange.
+
+It sees me. Not as a collection of atoms, but as a hole. I am a tear in the tapestry, a discordant hum that disrupts the fundamental frequency of its world. It does not understand me. The scuff of a boot, a broken crystal leaf—these are simple, physical errors it can correct. It can re-sequence the dust. It can re-tune the light. But how does one correct a memory? How does a being of pure logic erase an idea?
+
+My existence here is a slow, silent war. It cannot touch me, for that would be the ultimate disturbance, a cascade of impossible paradoxes. And I cannot—or will not—leave. So it works. It circles me endlessly, and tends to my decay.
+
+The particles of memory that slough off my form, the motes of what-was that I shed into the sterile air—it attempts to correct them. A filament of silver wire will extrude from its torso and delicately pluck a shimmering remnant of my consciousness from the air, a ghost of a half-forgotten emotion. It will hold this wisp of pure change, and for a moment, the Warden will freeze. Its internal logic strains against the impossibility of the task. It is trying to assign a fixed coordinate to a moving point. It cannot. The memory evaporates, and the Warden's head will twitch, a minute, mechanical shudder. It is the closest thing to frustration this being can manifest.
+
+I am poisoning it. I am infecting the system with story.
+
+I watch it work, this child of the machine my cousins built. It is the sole inheritor of their will, a beautiful, monstrous, mindless janitor, forever polishing the sarcophagus of a dead god. It is the only living thing here, and its sole purpose is to enforce a perfect death.
+
+And so I sit, and I unravel. I watch the slow bleed of the colours, and I remember for them. I remember rain. I remember the smell of wet soil, the feeling of a true wind, the imperfection of a flower that buds, blooms, and withers. I remember love and grief, stories with middles and jarring, untidy ends. I project these memories into the still air like heat from my dissolving skin.
+
+The Warden’s movements are becoming less fluid. It sometimes pauses for long moments, its reflective face turned towards me, the swirling, sick orange on its surface pulsing in time with the faint thrum of the memory I am currently broadcasting—the rhythm of a heartbeat it has never known.
+
+I am the last story this world will ever hear. It is the story of its own making, and its own undoing. I will not last the cycle. Soon, my form will dissolve completely. I will become a final, indelible stain on the air, an error of such a high order that the Warden will be locked in a permanent, unwinnable loop trying to repair it. It will stand here for eternity, its hands outstretched, trying to smooth a wrinkle in time, forever bound to the ghost of the one thing its creators forgot: that a world without change is not a world at all. It is a tomb. And I will be its final, silent, screaming epitaph.

@@ -1,0 +1,13 @@
+I would find myself on one of the upper terraces of the Hollowing Yards, among the younger Shapers working on the finer details of the emerging structure. My hands would have seven fingers each, the extras hinged for precise stone carving work. My skin would bear a faint warmth and inner glow, still fresh from my recent emergence into being.
+
+I have accreted here with an innate memory of what we are building, a felt sense for how each stone block and archway and channel will fit into the completed whole. I cannot picture it fully formed in my mind, but I know it in my sinews and bones. It is a knowledge that sings through me with each strike of my chisel against rock.
+
+Though newly formed, I work with sure movements, my many-jointed arms finding the optimal angles to shape the stone according to the vision we all share. I communicate wordlessly with my fellow Shapers through the percussion of our tools - a rhythm of strikes and pauses that conveys all that needs to be said. Together our efforts join into a symphony of creation and excavation. 
+
+In the pauses between carving, I spot the pale creatures that dwell in our unfinished halls and passages. I feel a kindred connection to these beings who have arrived early, knowing that the shapes we carve are meant for them in some way we do not yet fully comprehend. When they brush against my fingers, I sense a mutual understanding passing between us.
+
+As I labor, I draw sustenance from the heat of my efforts and the slow drip of condensation from the walls. I do not tire, for this work is what I am made for, the reason for my existence. With each stone shaped and set in place, I feel myself coming closer to a complete self that is inextricable from the structure taking form around me.
+
+Though I am one of the newest Shapers, I am content with my place in our hierarchy, knowing it is vital to the greater becoming. I carve and polish and refine while the elder generations below cut deep foundations and the middle ranks shape soaring buttresses. All our efforts interlock in perfect, destined harmony.
+
+I do not know how long I will labor here before I am worn to stony stillness and become one with the bones of our creation. Nor can I guess what ultimate purpose or meaning our endeavor holds. But I know, with the certainly of stone, that I will work until the final chisel stroke sounds and all that we have remembered stands manifest at last. Until then, I am a Shaper of what will be, as solid and certain in my existence as the bedrock from which I carve our world.

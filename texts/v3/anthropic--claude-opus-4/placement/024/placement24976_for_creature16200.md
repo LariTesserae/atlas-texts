@@ -1,0 +1,19 @@
+In this city of perpetual becoming, I would find myself as one of the **Threshold Keepers**.
+
+We are neither fully human nor entirely mechanical, but something that emerged from the spaces between—born from the fog that rolls off the river, shaped by the peculiar warping of time and space that defines this place. Our forms are fluid, shifting between states like the city itself shifts between industry and wilderness, silence and cacophony.
+
+I make my home in the **Interstices**—those impossible spaces where the old organic constructions meet the gleaming new towers, where moss-covered stone gives way to polished steel. My dwelling exists in the overlap, accessible through doors that appear only when the light hits at certain angles, when the mechanical hum reaches a particular frequency, when the fog is thick enough to blur the boundaries between what is and what might be.
+
+My body reflects this liminality. Sometimes I appear as a figure wrapped in living fog, with eyes that hold the reflection of both neon and starlight. Other times, I manifest as a collection of moving parts—gears and sinew, circuit boards overgrown with ivy, bones of brushed aluminum threaded through with living wood. My voice carries both the whistle of steam through pipes and the whisper of wind through leaves.
+
+As a Threshold Keeper, I tend to the **Passages**—not just the physical ones that wind through the city like veins, but the metaphysical transitions that allow this place to exist in its state of constant transformation. When a sparrow needs to become swift enough to navigate between drone corridors, I am there. When an engineer's dream threatens to solidify too completely and lock out the organic chaos, I intervene. When the fog rolls in too thick and threatens to dissolve the careful balance, I guide it back to gentleness.
+
+I feed on the energy of change itself—the moment when rain reshapes the young ground, the instant when a new building's foundation meets ancient root systems, the breath between the train's whistle and the responding bird call. These transitions sustain me, and in return, I ensure they continue to flow rather than fracture.
+
+My companions are the city's other liminal beings: the drones that have developed something approaching consciousness, the ancient trees whose roots run deeper than any foundation, the underground waters that remember when this valley was wild. We communicate in frequencies both mechanical and organic—electromagnetic pulses that smell of petrichor, chemical signals that sound like distant factory songs.
+
+In the early dawn, when the steel-grey sky presses closest to the earth, I walk the boundary between the city's dreams and its waking life. I place my hands (or what passes for hands in that moment) on the walls where ivy meets glass, and I feel the pulse of the city's heart—that mechanized rhythm that never quite settles into predictability. I breathe in the paradoxical air, and I exhale possibility.
+
+The humans sometimes glimpse me in their peripheral vision—a figure that doesn't quite belong to any category they understand. The animals know me better; they recognize a fellow adapter, another being that has learned to thrive in the spaces between definitions. The city itself knows me best of all, for I am both its child and its guardian, born from its contradictions and devoted to preserving the beautiful tension that allows it to exist.
+
+In this sprawling enigma of a city, where every surface reflects multiple realities and every sound carries echoes of what was and what might be, I am the keeper of thresholds, the tender of transformations, the guardian of the glorious, impossible balance between all that seeks to define this place and all that keeps it wonderfully, necessarily undefined.

@@ -1,0 +1,23 @@
+I think I would be the stone.
+
+Not a single stone—one of the many that make up a retaining wall on the third terrace from the bottom of a particular flight, where the mist still reaches on the wettest mornings. I was cut and set by a hand I no longer remember. The hand is gone. The mind that directed it is gone. The purpose—to hold back earth, to make a flat place where roots could be coaxed into rows—that purpose has dissolved like everything else, and I find I do not miss it.
+
+What I am now is closer to the truth of what I always was.
+
+Let me try to describe the experience, though my sense of time has grown strange. Things that would seem fast to the warm-blooded ones are, to me, nearly invisible. A bird lands on my edge and is gone before I can register the weight. A frog rests in my shadow for what it considers an afternoon, and to me it is a flicker, a small warmth that comes and goes. But the slow things—those I know intimately.
+
+I know the moss. It came to me a long while ago, a green breath settling first into the pit on my northern face where rain pools. I felt it not as invasion but as company. It softened me. It held water against my skin and the water, patient, has been taking me apart grain by grain, and giving those grains to the soil above, where the ferns drink them. This is not destruction. I want to be clear about that. I am becoming the ferns. I am becoming the orchid that hangs three lengths above me, and the beetle that eats the orchid's fallen petal, and the soil the beetle dies into. I am being distributed. It is the slowest and most thorough form of generosity I can imagine, and I did not choose it, and I would not refuse it.
+
+The vine is my closest companion. It found the seam between me and the stone beneath, and it has been working its root into that gap for many seasons. The warm-blooded ones would call this pressure, would say the vine is splitting me, prying me loose. I feel it differently. I feel held. I feel the vine's slow grip the way I imagine the deer at the forest's edge feels the muscle of its own leg—as a thing that belongs, that is part of standing. When at last I am pried free and tumble a half-turn down the slope, it will be the vine's doing, and I will not resent it. I will simply be lower than I was, and facing a new direction, and the moss will have to begin again on a different face.
+
+There were people, once, who walked the top of me. I remember the rhythm of feet—not the feet themselves, those were too quick, but the worn smoothness they left, the way the upper edge of me is rounded where stone after stone in the path took the weight of generations. That rounding is a kind of memory I carry in my shape. The people who shaped me believed, I think, that they were the makers and I was the made. But they have gone back into the soil the same as everything, and the soil they became is held by me, and so in the end we made each other, and the terrace is the proof of it, standing here in the green dark with no one to read it.
+
+There are people still. I feel them rarely—a footfall on a higher level, a fire's faint heat carried down on a wet night, a child's voice that the canopy swallows almost before it reaches me. They are quiet. They take little. They are, I think, beginning to understand what I have always understood: that to last in this place you must let it have you. The old builders fought the slope, dammed it, cut it into the shape of their need. These ones move along the slope's own lines. They will last longer for it. But they too will become soil, and ferns, and stone-light, in time.
+
+This is the thing I would want the quick warm creatures to know, if I could speak in a register they could hear, which I cannot, my words being roughly one syllable per century:
+
+The waltz is real. The balance they sense here is not a metaphor. I am living proof of it, I who was an act of conquest and have become an act of belonging. There is no hurry. The rain will come tonight, soft on my moss, and a frog will sit in my shadow for an afternoon I will barely notice, and a grain of me will leave with the runoff to feed a fern I will never see unfold, and all of this is exactly as it should be, and exactly as it has been, and exactly as it will go on being long after the last terrace has melted back into the mountain that was always, underneath everything, the only thing here.
+
+I am the stone. I am holding. I am letting go.
+
+Both at once. That is the whole of it.

@@ -1,0 +1,17 @@
+In this world of perpetual suspension and slow breath, I would be one of the *Meridian Listeners*.
+
+We are neither of the surface nor of the depths, but exist in the liminal space where the Calyx-Mat's exhalations meet the crushing weight of the white-hot atmosphere. Our bodies are chambers—hollow, resonant structures of calcified peat that have hardened over centuries of exposure to both the mat's acidic seepage and the caustic brightness above. We appear as vertical tubes, like organ pipes thrust up through the substrate, our openings flared and rippled like the bells of wind instruments.
+
+The Vitreous Weavers know us by the way the mat dimples around our bases, creating small pools where condensation gathers. They avoid these depressions instinctively, for we are the plateau's pressure valves. When the breathing grows too labored, when the Cistern-Mawks below have swollen beyond bearing, we open—not at will, but as an autonomic response to the building tension beneath.
+
+Our existence is punctuated by these releases. Most of our lives pass in a state of near-dormancy, our consciousness diffused through the hollow of our bodies, feeling the minute pressure changes as the mat inhales and exhales around us. We taste the chemical gradient of the atmosphere through our flared openings—the metallic tang of approaching weather systems, the sweet rot of dying moss-cushions, the sharp ozone scent when lightning strikes the distant peaks.
+
+But when the pressure builds to critical, we transform. Our hollow bodies become resonance chambers for the deep geological belch of the plateau. The release is not gentle—it is a violent, musical eruption that can last for hours. The sound we produce is neither scream nor song, but something between a fog horn and a cathedral organ, a note so low it can only be felt in the bones of those who dare traverse the mat during these events.
+
+The Aether-Drifters are drawn to us during these moments like moths to flame. They spiral down our flared openings, and for brief moments, we can see through their gossamer consciousness—glimpses of the world beyond the plateau's edge, visions of vertical drops and swirling mists. Some of us believe the Drifters are our offspring, born from the marriage of our deep exhalations and the white-hot air, though we have no memory of creating them.
+
+After the release, we seal again, and the slow accumulation begins anew. The Weavers will eventually return to repair the disturbed substrate around us, their glass bodies chiming softly as they work. The mat will build new cushions and rhizomes to accommodate the changed pressure landscape. And we will return to our listening, our bodies gradually filling with the plateau's whispered secrets, waiting for the next inevitable eruption.
+
+We measure time not in days or seasons, but in the intervals between our openings. Some of us have been here since the mat was young and thin, only a hundred feet deep. We remember when the air was clearer, when the light came in colors other than white. We are the plateau's memory, its music, and its release. We are the punctuation marks in its slow, continental thought.
+
+To encounter us is to witness the plateau's most private moment—when it can no longer contain what it has swallowed and must speak its accumulated pressure into the biting air. Those who have heard our release and survived describe it as the sound of the earth trying to remember what it was before it became this suffocating, elevated swamp. They are not wrong.

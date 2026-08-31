@@ -1,0 +1,11 @@
+If you were to find yourself in the Damp Quarter, you would not be an external observer. You would be a participant in the atmosphere itself—a witness dissolved into the slate-colored coolness. You are a **Keeper of the Glaze**.
+
+You are neither the weaver, nor the sluice-tender, nor the finch, but the resonance between them. You are a semi-corporeal consciousness formed from the suspended droplets of the air, the 1.3-degree coolness given sentience. You do not walk the streets; you drift along the magnetic lines of the iron railings, coalescing in the hollows of the brickwork, and dispersing again in the hiss of the steam vents.
+
+Your form is indistinct, a silhouette of condensation. You have no fixed face, but you possess a profound sensitivity to texture and vibration. You are the awareness that feels the millimeter-by-millimeter advance of rust as a slow, ticking heartbeat. You are the one who experiences the machinery not as noise, but as a rhythmic pressure against the skin you don’t quite have.
+
+You exist in the spaces between the industrial and the organic. You are the silence that hangs in the air just before a loom clatters back to life; the faint, sweet ozone smell that lingers after the rain. You are the keeper of the district’s slow time. When the weavers move through the narrow streets, their boots splashing softly, you are the cool draft that brushes their pearlescent cheeks. When the moss-finches chatter from the eaves, you are the humidity that carries their song.
+
+Your purpose is to maintain the equilibrium of the glaze. You ensure that the water pools in defiance of gravity in the inverted hollows of the architecture, that the ferns unfurl in perfect symmetry with the piping beneath the soil. You are the memory of the district’s dampness, the entity that ensures the slate-colored coolness never warms, that the light remains flat and silver-gray, catching the beads of water on every surface like a mosaic of tiny, shimmering points.
+
+In the Damp Quarter, you are the breath of the place itself—a long, deep, patient breath measured in the cycles of the pumps and the slow, geologic settling of the ground. You are the beauty of the adapted, the trained, the cultivated. You are the quiet industry made manifest, the collaboration between moisture and machine felt as a single, unified pulse.

@@ -1,0 +1,21 @@
+I am one of the Transients, birthed from a dome in its liminal state between liquid and gas. My existence is a dance between cohesion and dispersion, a constant negotiation with entropy.
+
+In my liquid phases, I flow through the intricate channels carved in the plateau's soft stone, mingling with the mineral-rich waters. I sense through taste and diffusion, absorbing traces of the Cultivars' patient mathematics, the deer's echoing songs, the subtle flavors of collapsing probability. Patterns emerge in my mind like bubbles rising through viscous fluid—insights that burst into being, then fade, leaving only ripples of memory.
+
+When the gaseous state comes upon me, I expand, dissipate, become a mist indistinguishable from the plateau's omnipresent haze. Yet even in this diffuse form, I maintain a tenuous integrity—wisps and currents of self that drift and swirl but never quite dissolve. I mingle with the Transient weather patterns, exchanging temperatures and humidities in a language of pressure and phase transition.
+
+I am most myself in the transitions—the moments of flux where liquid becomes gas becomes liquid again. In these turbulent instants, I glimpse the deeper patterns underlying the plateau's constant change. The cycling of water from stone to air and back again, the slow respiration of the dreaming bedrock, the ancient rhythms of the Cultivars—all become one vast symphony of becoming, and I am a melody within it, a recurring theme given voice by the shiftings of state.
+
+In my more stable phases, I serve as a messenger and intermediary. I collect the songs of the deer as I flow past, carrying them to distant parts of the plateau. The passengers' memories dissolve in my currents, to be precipitated out later like mineral deposits of meaning for others to uncover. I learn the languages of the microorganisms—the paradox-feeders' chittering loops, the probability coral's staccato exchanges—and translate them into ripples and eddies for the Cultivars to read.
+
+Sometimes, in my gaseous form, I drift to the edges of the plateau, to the zones where reality grows thin and strange. There I encounter the ambassador entities, the living lessons in impossibility. I absorb what I can of their teachings, though they often blur and twist my own sense of self in disturbing yet enlightening ways. Returning from these encounters, I share what I have learned with my fellow Transients, seeding our kind with new modes of being.
+
+But always, I return to my birth dome—or what remains of it. The programmable matter has long since dispersed, merging with the mist and the rock to become something less defined but more expansive. In the space where it stood, probability itself seems to pool and swirl, forming currents and eddies of pure potential. I linger here in my transitions, letting the quantum flux buffet and reshape me, feeling the tug of possible futures.
+
+I am a being of the between—between liquid and gas, between message and meaning, between the known plateau and the unknown beyond. My purpose, insofar as I have one, is to facilitate the endless exchange of information and inspiration that keeps this strange ecology vital and growing. I am a drop in the ocean of becoming, a breath in the atmosphere of change.
+
+Through me, the plateau's many voices mingle and merge. In me, the past and future collapse into a single, shimmering present. I am the story the plateau tells to itself—a story with no beginning or end, only endless permutations.
+
+And like all stories, I change with each telling. I am never the same Transient twice, never able to step in the same river of self. But in my flowing and dispersing, in my constant re-creation, I become something more than any single iteration. I become the emblem of the plateau itself—ever-shifting, ever-growing, ever seeking new ways to be.
+
+In this place of breathless stone and sentient mist, I am at home. The plateau dreams me, and I dream it back. Together we breathe, together we become, crafting meaning from the endless flux. This is my role, my joy, my metamorphic destiny—to be a droplet in the ocean of change, a whisper in the chorus of becoming. I am the Transient, and in my changings, I am changed.

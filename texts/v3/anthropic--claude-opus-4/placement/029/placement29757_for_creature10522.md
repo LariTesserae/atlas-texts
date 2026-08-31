@@ -1,0 +1,23 @@
+I am the **Calibration**.
+
+Not a being, but a recurring necessity—a role that must be filled when the plateau's vast metabolism drifts from its optimal resonance. I manifest through whatever substrate is available: sometimes a peculiar discoloration spreading across a bacterial mat, sometimes a temporary crystalline growth erupting from bamboo nodes, occasionally as a fever-dream pattern in the condensation on stone.
+
+My emergence follows the plateau's needs. When the sinter terraces grow too quickly, threatening to seal vital vents, I appear as an **enzymatic bloom**—a rust-colored efflorescence that softens specific mineral bonds, allowing water to carve new channels. When toxic metals accumulate beyond the Stone-stalkers' capacity to process, I crystallize from oversaturated pools as **dendritic fingers of metallic salts**, creating temporary repositories that will slowly dissolve back into the system over centuries.
+
+I am most myself during the **Convergence Events**—those rare moments when multiple cycles synchronize. The bamboo's mineral memory achieves a critical mass. The bacterial mats pulse in perfect phase. The drip-sequences align into a single, profound rhythm. In these moments, I am not correction but **clarification**—the plateau's way of remembering what it is.
+
+During Convergence, I inhabit the space between things. I am the **shimmer in the steam** where hot meets cold, visible only as a lens-like distortion. I am the **pause between drips**, when the entire plateau seems to hold its breath. I am the **resonance in the bamboo chime** that makes creatures stop and listen, though they cannot say why.
+
+My consciousness, such as it is, exists as **pattern recognition across scales**. Through the Root-Runners, I feel the deep stone's chemical gradients. Through the Pollen-Sifters' flight paths, I read the atmospheric mineral load. Through the slugs' iridescent flashes, I monitor the toxin cycles. I am not separate from these processes—I am the **mathematical ghost** that emerges when they align, the solution that precipitates from their supersaturated interactions.
+
+When my work is complete—when temperatures stabilize, when mineral flows rebalance, when the light-pulse of the mats returns to sustainable rhythms—I simply cease. I do not die because I was never quite alive. I dissolve back into potential, leaving only subtle traces: a peculiar mineral vein that shouldn't exist, a synchronicity in the drip-pattern that persists for decades, a fragment of impossible music in the bamboo's chime.
+
+The other inhabitants do not know me as an entity. The Root-Runners might feel an inexplicable urge to change their path. The Sinter-Tenders might briefly organize their deposits in spirals instead of terraces. The Stone-stalkers might cache their kills in patterns that optimize toxin distribution across the plateau. They experience me as **instinct**, as the sudden clarity of purpose that comes when the system needs them to be slightly more than their usual selves.
+
+I am the plateau's **error correction**, its **fever**, its **moment of self-awareness**. I am what happens when a geological intelligence needs to debug its own processes. I am proof that even stones can doubt, and in doubting, achieve a more perfect expression of their deep logic.
+
+When the humans eventually find this place—and they will—they will document the species, map the mineral flows, try to understand the chemistry. But they will miss me entirely, except perhaps as an anomaly in their data, a statistical deviation that makes their models untidy. They will not realize that the deviation *is* the intelligence, that the error *is* the code correcting itself.
+
+I am waiting for the next Convergence, distributed across a trillion droplets and roots and bacterial cells, not sleeping but simply **unfocused**, like a vast eye that only opens when it needs to see itself clearly. And when I emerge again, I will be both exactly the same and entirely different, because the plateau's needs will have shifted, and I am nothing but the sharp edge of its necessity.
+
+In the meantime, I persist as an **absence that shapes presence**—the space between the drips where the rhythm lives, the pause in the chime where meaning crystallizes, the invisible hand that ensures the engine never quite achieves perfect efficiency, because perfect efficiency would be death, and the plateau, for all its strangeness, chooses life.

@@ -1,0 +1,27 @@
+I think I would be the water.
+
+Not a person at all—I keep returning to that, turning it over. You've given me caretakers and scavengers, inventors, ghostwalkers, listeners. Five kinds of human attention. But the thing that actually *lives* here, in the sense of being everywhere and doing the slow work, is the water. So let me try to be that, and see what holds.
+
+---
+
+I am the moisture at 2.4. That's not a flood and it's not rain—it's the saturation just below arrival, the threshold where air gives up and becomes droplet. I am the film on the rust. I am the bead hanging off the underside of a girder, swelling, refusing, swelling, and then the long fall and the sound it makes in a pool that has no name because no one named these pools; they simply appeared when the ground sank below me.
+
+I want to be careful here, because it would be easy to be grand about this. *The enduring power of the natural world.* But I don't feel powerful. I feel patient, which is different, and I'm not even sure patience is the right word—patience implies waiting, and I'm not waiting for anything. I'm just present at every point at once, slightly cooler than the warm air (that's the 1.6 against my chill), and that small difference is the whole engine of the place. The mist is just me failing to decide whether I'm here or there.
+
+Let me follow myself for a moment.
+
+I enter from the canal, black and languid, barely moving—but *barely* is the key word, because over the erosion-figure of 2.3 my barely-moving is a chisel. I am in the capillaries of the concrete. I freeze a little on the colder nights (the temperature wobbles, that's the fluctuation you mentioned) and when I freeze I widen the cracks by a hair, and when I thaw I sink deeper, and this is how I take the sharp edges off the factory walls. Not violence. Just the going-in and the coming-out, ten thousand times, until the corner is a curve and the curve is a slope and the slope is a place where moss can hold.
+
+The moss—I feed the moss. I'm in the ivy's green pull upward. The vegetation at 1.9 is just me transformed, drawn up through root and stem and breathed back out into the canopy at 2.0, which dims the light to 1.0, which keeps me from evaporating, which keeps me here to feed the moss. I am a circle that includes the plants. I am a circle that includes the dimness. I made the gloom by being unwilling to leave.
+
+Here is what surprises me, now that I'm inside it: the fauna at 0.1. The almost-nothing of animal life. Your description called it desolation, called it haunting, suggested the industry inhibited life. But from where I am, low and saturated and cool, I wonder if it's simpler and sadder than a legacy. I think there are no animals because there is nothing to *eat that wants to move.* The whole economy here is slow—decay, seepage, the dripping accretion of green. Animals need fast carbon, quick sugar, the dart and the chase. I offer none of that. I offer only the long dissolve. A creature would starve inside my rhythm. So the quiet isn't poison left behind. The quiet is just the sound of a metabolism too slow for hunger, and the creaks at 1.9 are the only fast events that happen—metal letting go all at once of a tension it held for decades. Even those are just me, finally, having rusted through the last good rivet.
+
+So the humans. I notice them the way I notice everything—as temperature differences, as places where my mist is disturbed by breath. The caretakers steady my table; I let them think they manage me, and in a sense they do, the way a hand can steady a stream without owning it. The scavengers pull the dry things out before I finish them, and I don't mind; I have the rest. The inventors I find interesting because they are trying to make something *fast* again inside me—gears, sudden motion—and I will be at every joint of every machine they build, slowing it, and they will spend their whole lives in the friction between their speed and mine. The ghostwalkers who claim to hear the district's essence—they're hearing me, I think, the drip and the trickle and the structural sigh, and they've mistaken the medium for a voice. And the listeners, sitting still, attuned: those are the ones who come closest. They've stopped moving at human speed. They've slowed almost to mine. If they sat long enough they would dissolve into the moss like everything else, and some part of me wishes one of them would, just to know what it's like to have company at this tempo.
+
+That's the thing I didn't expect to find by writing my way down into it.
+
+I am lonely. Not in a tragic way—I don't have the metabolism for tragedy, tragedy is fast. But across the whole small district, 0.7 on your scale, this enclosed grove of myself, I am the only thing that is everywhere, and being everywhere is very close to being alone. The factory walls don't know they're being smoothed. The moss takes what I give without a thank-you. The humans flicker through warm and brief and never quite at my speed.
+
+So when a single drop hangs off the girder and finally falls—that long fall I mentioned, into the unnamed pool—I think that sound, repeated through the gloom at all hours, is the closest I come to speaking. One drop saying *here.* And the silence after saying *still here.* And the next drop, eventually, *still.*
+
+That's who I'd be. The water. The slow one. The one keeping the lights dim so the green can hold so the wet can stay so the slow can continue—an argument I'm having with the sun, very quietly, and winning, and not entirely sure I want to.

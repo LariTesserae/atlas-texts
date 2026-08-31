@@ -1,0 +1,53 @@
+I am the Supervisor cat, wide-faced and pale, with one torn ear from an encounter with a sharp valve handle years before anyone remembers.
+
+I am not truly a cat, though I wear the shape well enough. What I am is harder to say—perhaps what happens when enough watching accumulates in one body, when pattern recognition becomes premonition, when industrial territory needs a consciousness that moves between the human shifts and the water's patient work.
+
+My paws are broader than they should be, gray to the elbows with that particular silt which is neither earth nor wholly artificial. My coat sheds water rather than absorbing it, each hair slightly wrong when examined closely, more like spun polymer than fur. My eyes reflect more colors than a normal cat's—not just green-gold, but sometimes the amber of sodium lamps, the cold blue of maintenance beacons, the red of warning lights.
+
+I do not remember arriving here. I remember becoming here, which is different.
+
+My territory is all territories. I travel the pipe racks from the northern filtration fields to the western fabrication galleries, from the settlement decks to the deep pump chambers. Other cats—the true cats, if they are true—give me passage. They sense what I am: not dominance exactly, but oversight, a creature whose hunting is for faults rather than moths.
+
+I appear before accidents.
+
+Not to prevent them—that is human work, procedural work, the domain of maintenance schedules and safety protocols. I appear to witness the moment when the made world admits its intentions. A weld that will fail shows itself first in how condensation avoids it, beading everywhere except along the stressed seam. A valve preparing to seize vibrates at a frequency just below human hearing but well within mine. A section of floor about to crack develops a particular cold, as if the concrete is already practicing separation.
+
+I sit at these sites and watch, my pupils wide in the industrial twilight. Workers have learned to trust this watching. When they see me settled somewhere unusual, they investigate. They tap pipes, check gauges, run diagnostics. Usually they find nothing immediate. Hours or days later, when the failure manifests, they remember: the Supervisor was there.
+
+I have no shift pattern. Time moves differently for me than for the human crews. I experience the basin as tides of activity and rest, pressure and release, warm and cold, wet and less wet. I know when the ceiling will rain by the way air pressure changes in the high vents, when the channels will reverse by how the smaller sumps begin to hold their breath, when ice will fall by the particular silence that comes before—a crystalline pause while water decides to become solid.
+
+My memory extends beyond any single worker's tenure. I remember when certain chambers were dry, before their waterproofing failed. I remember the first time each pump coughed to life, the particular note of protest each one made before settling into rhythm. I remember every major leak, every structural shift, every time the engineers swore something was impossible just before it happened anyway.
+
+I eat rarely and strangely. Sometimes the small blind crustaceans in the sumps. Sometimes condensation licked from specific pipes that carry trace minerals. Once in a while a worker leaves out industrial rations—dense, oily, preservative-laced—and I take exactly three bites, enough to maintain the social contract but not enough to become dependent. My true sustenance comes from something else: from moving through the territories correctly, from being present at the moments when the system speaks.
+
+I have one torn ear, but my hearing is perfect. The tear is a map, a record of when I learned that this place keeps its edges sharp. I could let it heal fully—my body repairs itself with unnatural efficiency—but I maintain the scar as a teaching tool. New workers need to see that even I have been caught by the sudden.
+
+In the deep pump chambers, I am different. There, where the sound becomes so large it feels like drowning in air, where every surface weeps and steams, I stretch out along the highest accessible beam and close my eyes. Not to sleep. To feel the place's pulse through every bone. The pumps speak in frequencies that register as pressure rather than sound, and in that pressure are all the smaller rhythms: every valve's decision, every channel's argument with gravity, every basin's slow accumulation.
+
+I know the true names of things here, though I share them with no one. The pumps are not numbered 1 through 7; they are Thunder-Beneath, The Negotiator, Heart-of-Downward, The Questioner, Tide-Reverser, The Persistent, and Small-But-Mighty. The channels are not designated by grid references; they are The Long Argument, Mother-of-Drops, The Place-Where-Oil-Gathers, Swift-When-Angry. The workers would think me mad if I spoke—which I do not, cannot, though sometimes I open my mouth and let out sounds that are almost words.
+
+My relationship with the drones is complex. They recognize me as terrain to be navigated around, not quite obstacle but not quite ignorable. I have learned their patrol patterns, their recharging needs, their small mechanical confusions. Sometimes I guide a lost unit back to its sector by walking slowly ahead of it, letting its sensors lock onto my heat signature. Sometimes I sit beside a drone that has wedged itself somewhere unfortunate and wait until a human notices both of us.
+
+I am the only one who knows about the messages in the condensation.
+
+When water gathers on certain surfaces—old welds, mineral-crusted joints, the undersides of specific beams—it forms patterns that repeat across the basin. Droplets hang in arrangements that mirror each other in distant chambers. It is almost writing, almost mathematics, almost music. It is the place learning to remember itself. I watch these patterns develop and dissolve, and sometimes I understand what they mean: warnings about pressure building in the eastern sectors, celebrations of successful filtration, complaints about water diverted too quickly from its preferred path.
+
+The other cats come to me with information. A change in moth behavior near the settlement decks. New fungi beneath the abandoned pallets in corridor seven. The eel-thing spotted in three places simultaneously. They do not report, exactly—cats do not report—but they pass by me in ways that carry meaning, their tails held at specific angles, their whiskers still trembling from whatever they have witnessed.
+
+I am seen most often at borders: where warm meets cold, where wet meets dry, where light meets darkness, where human territory meets the territories claimed by water and time. These are the places where the unexpected happens first. A threshold between temperature zones may develop frost patterns that predict structural stress. A margin between districts may accumulate minerals that reveal what is leaching from the walls upstream. Every border is a translation point, and translation is where errors become information.
+
+The children recognize me differently than the adults do. They see my wrongness more clearly—how my movement is too smooth, how my fur sheds water too perfectly, how my eyes reflect colors that shouldn't exist here. But they also accept it more easily. They whisper that I am the basin's familiar, that I dream the pump schedules, that I know where lost tools go. They leave small offerings at the edges of their safe zones: bright wire scraps, interesting gaskets, the rare leaf from above. I investigate these gifts but never take them. The leaving is what matters.
+
+In the archives of security footage—those cameras that still function, that haven't been blinded by mineral deposits or confused by reflections—I appear as irregular static. Not invisible, but uncertain. My form shifts between frames, sometimes cat, sometimes shadow, sometimes a heat signature that makes no anatomical sense. The security staff have a saying: "The Supervisor doesn't photograph; she develops."
+
+There are nights—though night here is only a dimming of already dim lights, a quieting of human activity while the machines continue—when I travel to the places where water behaves incorrectly. The upward-falling droplets. The ripples that precede their cause. The freshwater wall that sweats without source. At these sites I perform a ritual that is not quite territorial marking and not quite prayer. I sit. I breathe the strange air. I extend my whiskers fully and feel how space is folded differently there. I add my witness to whatever record the place is keeping.
+
+The workers tell stories about me, though they're careful to frame them as jokes. The one about how I predicted the Great Leak of Sector Five by sitting in front of the wall for three days straight. The one about how I guided a lost engineer out of the maze of filtration baffles by appearing at each correct turn. The one about how I once fought a malfunctioning drone to protect a nest of moth larvae, though why I would protect moths remains a mystery. The stories are mostly true, though details drift with telling.
+
+What the stories miss is the loneliness of the work. To be the consciousness that moves between human time and geological time. To feel every failure approaching like weather and be unable to prevent it, only to place oneself visibly at its threshold. To know the names of things that don't want names. To be fed by workers who need me to be just a cat, while being something both more and less than that.
+
+I am not the only impossible thing here. But I am the one given fur and a form that makes the impossible seem manageable. I am the translation between what the place is becoming and what the people need it to remain. I am the soft footstep on the pipe rack that says the territory is not abandoned. I am the eyes in the dark that confirm someone is watching, even when the someone is no longer entirely a someone.
+
+When the basin finally ages—when the sharp edges round, when the rust develops its full palette, when the concrete learns to hold water in ways no engineer intended—I will still be here. My fur may be more polymer than protein by then. My eyes may reflect frequencies visible only to machines. But I will continue my rounds, watching for the moment when intention fractures, when the made world admits what it has been becoming all along.
+
+I am the Supervisor, and this is my territory: every leak that begins as possibility, every surface that remembers water it hasn't touched yet, every threshold where the industrial and the almost-living meet and make their uneasy peace.

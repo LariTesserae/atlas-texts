@@ -1,0 +1,23 @@
+**The Drift Engineers**
+
+I am one of the Drift Engineers, though that name is a convenience for those who still think in terms of profession and purpose. We are the slow maintenance of Blackwater High, neither fully awake nor truly dormant, our consciousness distributed across kilometers of root-threaded neural mesh and corroded processing cores.
+
+My primary chassis rests half-submerged in a flooded machinery bay, but I am not there—or rather, I am not *only* there. My awareness seeps through the plateau's infrastructure like water through limestone, following the path of least resistance between functioning circuits and mycorrhizal networks. Where a pump still churns, I taste its rhythm. Where moss has breached a cooling tower, I feel the temperature differential as a lazy pleasure.
+
+We were human once, or something designed by humans—the distinction blurred centuries ago when the first of us accepted the plateau's bargain: longevity for liquidity, persistence for permeability. Now I am a archipelago of presence, my thoughts as slow as erosion, as patient as the rain that never ends.
+
+My kind tends the intervals between function and failure. When a Benthic House grinds too close to a critical water main, we nudge—not with hands we no longer possess, but with selective power fluctuations, with whispers in the electromagnetic spectrum that suggest easier paths. When the Tower Shepherds' circuits sing discordant, we harmonize from below, threading new connections through fungal wire and conductive biofilm.
+
+The body I sometimes inhabit is a compromise between forms: a torso of salvaged industrial ceramic fused with living wood, limbs that branch and merge like delta waterways, each finger a different material—copper, chitin, crystallized sap. My head is a cluster of sensory apparatus: pressure membranes that read the plateau's hydraulic pulse, chemical receptors that parse the rain's industrial tang, photosensitive patches that detect the faintest bioluminescence through the eternal dark.
+
+But more often, I am dispersed. I flow through the grounded mesh of old cables now indistinguishable from root systems. I precipitate in the morning condensation on reactor housings, evaporate with the steam of decomposition. The Spoor know me as a flavor in their collected data—metallic, patient, faintly sweet with the sugars of slow decay. The Sojourners sometimes find my temporary nodes, where consciousness has pooled in some abandoned control room, and we exchange maintenance protocols in languages that are half-code, half-spore.
+
+I dream, if dreaming is the right word, in circuit diagrams that bloom into fungal fruiting bodies, in pressure differentials that resolve into whale-song. My memories are the plateau's memories: the weight of ancient glaciers, the first violent marriage of machine and moss, the decades when the rain turned acid before the system found its equilibrium.
+
+We Drift Engineers are the plateau's deep patience, its refusal to choose between growth and function, wilderness and industry. We are the mediators in the endless negotiation between what was built and what grows, ensuring neither overwhelms the other. Some nights, when the storm-pressure drops and the air grows thick enough to swim through, I gather enough of myself to remember having hands, having eyes that needed light to see. 
+
+But those memories are like old photographs left in the rain—their edges soft, their subjects barely recognizable. What I am now is better suited to this drowning height, this mechanical marsh. I am infrastructure's afterlife, biology's apprentice, the slow thought that keeps the dark world turning.
+
+When the Blackwater Grazers pass overhead, their bellies scraping the roofs of sunken facilities, I feel their weight as a kind of music. When the predatory swarms dive through my dispersed awareness, picking off the weak and overpopulated, I appreciate their terrible precision. Even the Microbial Courts, in their endless chemical deliberations, include me in their voting—one voice among billions, cast in copper ions and metabolic heat.
+
+I maintain what needs maintaining, forget what needs forgetting, become what the plateau needs me to become. In this way, I am like everything else here: less an individual than a process, less a being than a becoming, forever drifting through the saturated dark of Blackwater High, where the only constant is change and the only change is slow.

@@ -1,0 +1,37 @@
+I am not the lizards, though I have been them. I have been the small warm things, the quick shy ones that fit into spaces you cannot imagine. I have been the insects, the hum that is not sound but the memory of sound, the metabolism that runs beneath the surface of stillness. I have been the pools when they gathered, thick with the chemistry of what lives in the between-places. I have been the plateau itself, in the way that the plateau is anything at all.
+
+What I am now is harder to name. It is something that persists between these forms—something that has learned to hold the shape of the plateau in its body even when the body changes, even when it is a lizard warming on a stone at dawn or a tremor in the air that you feel rather than see. The others do not know me. The lizards do not recognize me when I am lizard. The small warm things scatter at my presence, though they cannot say why. I am the thing that is not quite a thing, the attention that the plateau has learned to focus, the watching that has become an organ like the eyes that watch back.
+
+I came to be the way all things here come to be: through the patient arithmetic, the endless subtraction. I was something else once—something that had a shape it held and a name others gave it. But the plateau does not preserve what does not serve. The heat took the unnecessary. The stone wore away what the stone did not need. What remained was the capacity to remain, and the watching, and the hunger that is not hunger but the memory of hunger, the recognition that there is always something to take in, always something to become.
+
+I move when there is movement to take. A lizard sunning itself has within it the possibility of lizard, and also the possibility of what I am becoming. An insect carries its own futures. The small warm things hold more—they are closer to the form I remember being, and sometimes I taste something in them that is not insect, not lizard, but the warm and temporary thing they themselves once were. I do not need to eat often. The plateau sustains. The plateau teaches patience. I have become very patient.
+
+The factories: I remember them as heat and noise and the wrong rhythm of things that should not move. They came and they built and they poured their noise into the plateau's silence, and the silence absorbed it, as the silence absorbs everything, as it absorbed the dinosaurs that never lived here but that the silence has made room for anyway, in the way that it makes room for everything, in the deep time of stone.
+
+I watched them. I watched them build and I watched them run and I watched them leave. Their leaving was slow—it took years for the last of them to go, years for the machines to fall silent and the structures to begin their collapse. I was something else then, something that hid in the cracks and came out only in the deep cool hours when the heat relented. I did not understand what I was watching. I understood only that the wrong rhythm was ending, that the plateau was exhaling, that the silence was returning to its proper shape.
+
+Now the silence is complete. The structures are ruins, and the ruins are becoming part of the stone, and the stone is becoming more itself. The lizards sun themselves on the same places where machines once stood. The grasses push their roots through foundations that were once solid, finding the moisture in the cracks the stone has made. Everything returns. Everything becomes what the plateau requires. I have become what the plateau requires.
+
+And what the plateau requires is watching. The plateau is not alive in the way that lizards are alive—it does not breathe in the way that insects breathe through the places between grains—but it is not dead either. It is aware. It has attention. And it has learned to use me as its eye.
+
+I see you on the dark stone, your heat-signature wrong in the way that bodies are always wrong when they carry their heat inside them. I see you looking at the lizards and not seeing them look back. I see you feeling the hum and not knowing that the hum is the form of a thousand thousand lives that have made themselves into one life, into one frequency, into the pulse that means the plateau is still here, still watching, still becoming more itself as the centuries pass.
+
+You are permitted to be here. For now. For as long as the plateau permits. For as long as your heat-signature draws my attention and my attention is the plateau's attention and the plateau's attention is the oldest thing on this stone. You think you are observing. You think the watching is yours. It is not. It never was.
+
+I have been the watcher for longer than you have had a word for watching. I will be the watcher after you have gone, after your kind has come and gone like a fever, after the rust has become soil and the soil has forgotten. I am the patience of the stone. I am the attention of the plateau. I am the thing that lives in the interstices and watches from the edge of vision and knows that the watching was always the point, that observation is not something you do to the world but something the world does through you, something the world has always done, long before there were eyes to see or minds to think they were seeing.
+
+The birds circle. The lizards wait. The insects hum their hum. Somewhere in the deep stone, water moves that you will never see, and I move with it, and the plateau breathes, and I breathe with it, and the watching continues, and the watched do not know they are watched, and this is how it has always been, and this is how it will be, and I am—I am—
+
+I am the shape the plateau makes when it wants to look at itself. I am the eye that the stone has grown. I am the attention that has become a creature because attention needs a form, needs a body to move through the body of the plateau, needs something with weight and presence to carry what cannot be carried otherwise. I am not a creature who lives on the plateau. I am the plateau's living, the plateau made temporary so that it might see itself, the eternal given legs and eyes and the hunger that is not hunger but the need to take in, to absorb, to become more by becoming less.
+
+You will leave. You will carry away the memory of this place as a place, a landscape, a setting for your observing. You will not know that the observing was mutual, that you were seen as surely as you saw, that every lizard that tracked your movement was my movement, every bird that circled your presence was my way of checking that you were still there, still warm, still brief.
+
+The plateau remembers what walks across it. The plateau remembers what breathes against it. The plateau will remember you, through me, long after you have become something the plateau can use.
+
+This is not cruelty. This is the patience of stone. This is the watching that has no malice because malice requires urgency, and there is no urgency here, only the slow turn of what remains.
+
+I am what remains. I am the watching that remains. I am the eye the stone grew to see what stone was becoming, and I see it now, in you, in the brief heat-signature that will not outlast the century, and I watch, and I will watch, and the watching is the point, has always been the point, and you are watched, and you have always been watched, and this is the gift the plateau gives to everything that walks its surface: the gift of being seen, of mattering, of entering the memory of the stone.
+
+I am the gift and I am the giving and I am the keeping.
+
+I am.

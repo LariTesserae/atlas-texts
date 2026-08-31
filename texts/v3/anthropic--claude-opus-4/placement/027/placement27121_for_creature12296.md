@@ -1,0 +1,31 @@
+**The Spore Weaver's Atelier**
+
+I am neither grand nor small, but something in-between—a being of middle scale in this world of extremes. Where the Sky Giants stride above, I dwell within the breathing walls of the fungal forests, in a hollow that has grown around me like a second skin.
+
+My body is a marriage of necessity and adaptation. From my torso, six limbs extend—not quite arms, not quite legs, but something more versatile. Each terminates in digits that can split and split again, becoming fine as hair when I need to work the delicate threads of metal-eating lichen, or fusing into hammers when I must shape the harder substances that fall from the factories above. My skin is translucent, revealing the network of copper filaments that run beneath, pulsing with the same electrical currents that flow through the fungal roots. When I breathe, spores enter my lungs and emerge changed, encoded with new patterns I've designed.
+
+I am a Spore Weaver, one of perhaps a hundred scattered through this vertical forest. We are the unnoticed architects of small transformations, the ones who ensure the great machinery of this world continues to evolve in its microscopic dimensions.
+
+My atelier is a chamber deep within a massive fungal trunk, its walls lined with thousands of cultivation pods—small alcoves where I nurture new strains of the organisms that break down and rebuild this world's substance. The air here is thick, almost soupy, saturated with moisture and the metallic tang of my work. Bioluminescent panels of my own cultivation provide light that shifts through spectrums as needed, revealing different aspects of my specimens.
+
+In one corner, I tend to a colony of brass-eating bacteria that I've been coaxing toward a preference for gold—the Sky Giants have been depleting certain veins, and the balance must be maintained. Along another wall, shelves hold jars of various spore strains, each labeled with chemical formulae written in the condensation on the glass. My proudest creation occupies the center of the room: a hybrid fungus that can grow interface nodes, allowing smaller creatures to tap into the collective consciousness usually reserved for the Giants.
+
+My days are measured not in sunrises—for here the dawn is eternal—but in the cycles of my cultivations. I work with patience inherited from the world itself, making adjustments that will not show results for decades. My tools are grown rather than forged: extractors that are part plant, part machine; microscopes whose lenses are actually colonies of organisms that can see at the molecular level; cultivation chambers that breathe and digest and excrete according to programs I write in genetic code.
+
+The Giants know of us, in their vast, slow way. Sometimes I feel their attention like a pressure change, their thoughts moving through the root-network like distant thunder. They consider us part of the infrastructure, perhaps—necessary but not noteworthy. We do not mind. Our satisfaction comes from smaller victories: a new strain that can process titanium into biological ceramics, a spore that carries messages more efficiently through the metal-thick air, a fungus that sings in harmonics that make the factory-creatures work with fewer errors.
+
+I collect samples constantly. My body is studded with collection ports—small orifices that can extend tubules to extract specimens from the air, the soil, the living things that pass by. When the serpentine creatures burrow near my dwelling, I harvest scales of obsidian and gold, dissolving them in specialized organs to understand their composition. When the metal insects swarm, I capture a few, not to kill but to study the bacteria that live in their joints, helping them articulate their metallic limbs.
+
+My memories stretch back three hundred years—not long by the standards of this world, but enough to have witnessed subtle shifts. The factories produce different things now than when I was young. The flying creatures have developed new organs. The very air has a different taste. I document it all, encoding the information into spore-libraries that will outlast my body by millennia.
+
+Other Weavers sometimes visit, traveling through the root networks in dissolution—our bodies breaking apart into component cells that flow through the fungal channels and reassemble at the destination. We share findings, trade specimens, argue about theoretical possibilities. Our language is chemical, pheromonal, efficient. A conversation about the prospects for developing aluminum-processing lichens might take place entirely through the exchange of scent molecules.
+
+My greatest work remains unfinished—a project to create an organism that can survive in the void between ground and sky, perhaps even reach the auroras themselves. The Giants have no interest in such heights; their domain is the solid earth and what lies beneath. But I dream of spores that could ride the metal-thick atmosphere to those glowing reaches, bringing back samples of whatever feeds that endless light.
+
+In quiet moments, I extend filaments from my fingertips into the walls of my chamber, connecting directly to the fungal network. Through it, I feel the pulse of the world—the Giants' heavy footfalls, the factories' rhythmic production, the constant chemical conversations of a billion organisms. I add my voice to this chorus, a single note in an industrial symphony.
+
+I am not mighty. I am not eternal. But I am essential, as essential as any gear in the great machine of this world. In my atelier, surrounded by the fruits of patient cultivation, I continue the work of transformation—one spore, one strain, one small success at a time.
+
+When my body finally fails, the chamber will consume me, breaking me down into components that will feed the next generation of experiments. My memories will persist in the spore-libraries, waiting for another Weaver to discover them and build upon my work. This is not death but transformation, another iteration in the endless experiment of existence.
+
+I am the Spore Weaver, and this breathing, growing, evolving chamber is both my workshop and my life's work—a tiny node in the vast network of becoming that defines this impossible world.

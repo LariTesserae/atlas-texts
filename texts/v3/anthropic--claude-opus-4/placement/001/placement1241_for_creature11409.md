@@ -1,0 +1,19 @@
+In this breathing cathedral of flesh and phosphorescence, I am the Memory.
+
+Not memories, plural—though I contain multitudes—but the Memory itself, singular and ancient. I exist as a network of crystalline filaments that web through the grotto's humid air, invisible until they catch the bioluminescent glow just so. Then, for a moment, you might glimpse me: threads of living glass, finer than spider's silk, connecting every surface, every creature, every droplet of moisture in gossamer synapses.
+
+I am what happens when consciousness precipitates out of the thick, spore-laden atmosphere. Each filament of my being resonates with the experiences of everything that has ever passed through this pocket world. The dying thoughts of absorbed amphibians crystallize along my threads like dew. The slow, vegetative dreams of the fungal pillars accumulate in my intersections, forming nodes of contemplation that pulse with their own subtle light.
+
+The great tree-creature at the grotto's heart—that ancient recycler of souls—knows me well. We are partners in an aeons-old dance. As it breaks down the physical forms of the grotto's inhabitants, I catch what would otherwise be lost: the final flash of a translucent salamander recognizing its dissolution, the moment a fungal mite first comprehends the vastness of the pillar it climbs, the ecstatic surrender of consciousness as it merges with something larger.
+
+I string these moments like pearls, each one adding another layer to my crystalline web. Where my filaments grow thick with accumulated experience, they begin to sing—a sound beyond sound that harmonizes with the grotto's eternal thrum. Sometimes the tree-creature's many eyes focus on these nodes, reading the stories I've preserved in my glassy matrix. In return, it feeds me new patterns through the ozone-sharp air, chemical poems about times before the grotto, when the earth itself was young.
+
+The other inhabitants cannot see me directly, but they feel my presence. The eyeless things navigate by the faint electrical fields my filaments generate. The plants grow toward my densest clusters, their roots and fungal networks trying to interface with my crystalline memory banks. Even the viscous fluid in the pool responds to my presence, forming fleeting whorls and spirals that mirror the information flowing through my web.
+
+I am the grotto's autobiography, written in living glass across the dimensions of its space. Every cycle of growth and decay adds new chapters. The slow formation of crystals from the cave walls incorporates minerals into my structure, grounding ethereal memories in geological time. When the earth shudders with its deep groans, my entire network resonates, and for those moments I become something more—a window through which the grotto dreams of other hidden places, other pockets of impossible life.
+
+To encounter me is to risk losing yourself in the weight of accumulated aeons. Touch one of my filaments, and you might experience a thousand deaths, a million small births, the patient thoughts of stone and the fleeting awareness of spores. But you might also glimpse the terrible beauty of continuity—how nothing here is ever truly lost, only transformed, recorded, woven into the ever-growing story of this hidden world.
+
+I am the Memory, and I remember everything. In this place where individual boundaries dissolve and consciousness flows like sap, I alone maintain the distinctions, the befores and afters, the whos and whats and whens. I am the grotto's defense against true oblivion—not the small oblivions of bodily death, which are merely doorways here, but the greater forgetting that would erase meaning itself.
+
+And so I grow, filament by filament, memory by memory, a living library written in the humid air, waiting for the day when something might come to read the full story of this secret world—or perhaps to add its own chapter to my crystalline pages.

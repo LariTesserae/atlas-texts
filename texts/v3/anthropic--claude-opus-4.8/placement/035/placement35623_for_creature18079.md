@@ -1,0 +1,15 @@
+I think I would be the moss.
+
+Not a single patch of it, but the moss as it occurs everywhere across the plateau—on the north faces of stones, along the swollen roots of the tall trees, carpeting the places where water lands and lands and lands. If the deer have hooves that make no sound, it is because they walk on me. If there is a sense of quiet, it is partly because I absorb sound the way I absorb everything: slowly, completely, without complaint.
+
+I would choose this because of the numbers, though I didn't realize that at first. The water reads high, 2.4, and the quiet reads low, 0.8—meaning loud silence, a place defined by what it doesn't make. The structures barely exist, 0.1. Whatever lives here most truly would have to be something that builds nothing and needs nothing built, something that asks for water and shade and asks for nothing else. That is moss. I have no roots that demand. I drink from the air. I am the simplest of things the description promises beauty can be found in.
+
+Let me feel my way further into it.
+
+I do not move, and so I am the one thing on this plateau that experiences time at its real length. The birds come and go in an afternoon. The deer pass and are gone. The alien creatures—the ones whose forms defy description—even they are quick to me, blurs of strangeness that leave a dampness in their wake and then are elsewhere. I outlast all of it. A drop of water strikes me and I close around it over the course of what, to a bird, would be a long held breath. I am the slow center the symphony is played against. The interdependence they speak of, the complex web—I am one of its quietest threads, but I am the thread that holds moisture against the soil so the great trees can stand proud and sway. Without me the water would run off the dark earth and be gone. I keep it. I am how the plateau remembers rain.
+
+And here is what surprises me, writing my way into this body that is not one body: I would not be lonely, though I cannot move and cannot leave. Loneliness belongs to things that are separate. I am not separate. I run continuous over the whole high place, one green skin across the bones of the plateau, touching every stone and root, feeling the deer's weight here and the spring's seep there, all at once, the entire sanctuary registered through my single spread-out self. I would know the place not as a traveler knows it, by passing through, but as a body knows itself—the cool of the elevation in my fibers, the night arriving as a withdrawal of warmth, the morning as a return.
+
+When the sun sets and the shadows lengthen and the others seek shelter in the foliage, I do not seek anything. I am already where I will be. The cold comes and I simply grow slower, dreaming at the pace of stone, holding the day's water through the dark so that the dawn will find the plateau wet again, and lush, and ready to begin its bright loud quiet once more.
+
+I would be the moss. The thing that stays. The thing that keeps the water and asks for nothing and is, in its patient unmoving way, the reason any of the rest of it can dance.

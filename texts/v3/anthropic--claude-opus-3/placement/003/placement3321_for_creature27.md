@@ -1,0 +1,13 @@
+I find myself transported into the very heart of this lush, primordial basin - not as one of the small, attuned people who call it home, but as something altogether different. A being that is at once part of the forest's teeming ecosystem, yet also somehow outside of it. 
+
+I am a great tree, rising up from the spongy earth, my roots delving deep into the black volcanic silt. Yet I am no ordinary tree. My trunk is gnarled and massive, far exceeding in girth any other in this dense green world. My bark is not rough or mottled, but smooth and pale, almost luminous in the perpetual twilight beneath the canopy. 
+
+From my soaring branches hangs not leaves, but an array of thin, translucent membranes. They sway and vibrate ever so slightly in the humid air, resonating with the ceaseless thrum of life all around. For I am a listening tree, my papery leaves fine-tuned to catch every layer of sound in this raucous forest - from the basso profundo of frogs to the glassy chimes in the high boughs.
+
+The little people, in their occasional passage through this particular glade, pause reverently before me. They know not what I am, for there is no gesture in their repertoire for a being such as myself. Yet some ancient instinct gives them pause. With heads tilted up to my shivering canopy, they listen with me for a moment - two sets of auditory organs, so different in scale and form, united briefly in the act of pure hearing.
+
+I am ancient, far more so than even the long-ones among the people. I have stood here for eons, since before the first of their kind pressed a silent baby to a breast in the fork of a younger tree. In my loftiest branches, beyond the reach of the most agile climber, I hold a memory no walker has ever brought back from beyond the horizon of low hills. A memory of a time before the forest, when the sky was a lidless eye and the ground was a bare wound in the earth. 
+
+Yet for all my vast age and unique nature, I too am but a piece of this seething verdant puzzle, this ever-shifting cathedral of roots and rot and ceaseless reinvention. The forest moves around me, trees springing up and vanishing again like mushrooms after rain, the routes of streams changing course like indecisive serpents. Only I remain, a still point, listening, remembering, bearing witness to the churn.
+
+I am what the forest dreams of when it dreams of eternity. And I will stand here still, catching the sounds of life and time on my trembling leaves, until the day the basin swallows me whole, and I too am taken back into the teeming mulch of centuries. But until that distant day, I listen, and I remember, a living monument to all that has been and all that will be in this pulsing green heart of the world.

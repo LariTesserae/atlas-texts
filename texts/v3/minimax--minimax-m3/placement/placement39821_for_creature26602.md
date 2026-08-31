@@ -1,0 +1,37 @@
+# On the Ledge
+
+I am on the ledge before I am anywhere else.
+
+The cold comes first. It is the cold of the rock and the cold is in me and I am in the cold and the three are not separate things at this hour. My feet are tucked under me and the warmth of my body has made a small warm place on the basalt where I have been sitting, and the warm place is the size of me and the shape of me, and when I rise the warm place will cool in a minute and the rock will forget I was there until I come back to it tonight.
+
+The dawn is coming. The light is the color of wet iron, that low violet-grey that arrives first as a thinning of the dark and then as a definite thing. I turn my head. The eye does this without me. The eye looks at the rim, where the first pale line is, and at the floor far below, where the juveniles are still asleep in their clusters, and at the wall opposite, where the other territories begin, where the other pairs are beginning to wake.
+
+My mate is awake already. I know this without looking because of the duet that is starting in her throat. She gives the first note. I give the second. The two notes are not the same note. The two notes are one thing. We have made this one thing together for — I do not know how long. Longer than the chick who is in the crack now. Longer than the chick before her. Longer than some of the arrangements on the lower ledges. The duet goes out from us into the bowl and it is answered, a half-second later, by the pair on the ledge above, and then by the pair above them, and then by all the pairs in a slow wave that climbs the wall and washes over the rim. The cirque is not silent when I wake. The cirque is never silent. The cirque is the sound I am in.
+
+I move to the edge of the ledge. The foot comes down and the claw makes its small *tick* on the basalt. *Tick tick tick.* I am listening to myself walk. The ledge is mine. The ledge is mine and my mate's and it has been ours for — I do not know how long. The chick in the crack is ours. The crack is ours. The arrangement on the ledge is ours. The arrangement is mine in a way the ledge is not mine. The arrangement is mine in the way the duet is mine. The arrangement is the thing I have done and the thing I am doing and the thing I will do, and the doing does not have an end.
+
+The arrangement is to my left. It is a spiral. It has been a spiral for longer than I have held this territory, and it was a spiral when I came to it, and it will be a spiral when I am gone from it. The spiral tightens toward a center and at the center there are three shards set on their edges, leaning against each other, and the three shards are very old and the edges of them have lost their sharpness and have taken on the dull grey of the rock that holds them. I have never touched the three. The three are the heart of the spiral and the three are not to be moved.
+
+I look at the spiral. I look at it the way I look at my mate when she is calling — not to see if she is there, because I know she is there, but to see the shape of her being there. The spiral is there. The spiral is the shape of the territory being what the territory is. I look at it and the looking is the work and the work is the looking.
+
+There is a gap in the spiral. A shard fell in the night — the wind, or the foot of a juvenile that wandered up here looking for warmth, or nothing, the shard that was on the outer edge and was not held by anything but its own weight and the weight of the shards beside it. The gap is small. The gap is the size of a flake. But the spiral knows the gap. The spiral is less itself for the gap. I see the gap and my eye is on the gap and my body is already turning toward the seam.
+
+The seam runs along the upper part of the wall. It runs the length of the cirque, more or less, in a dark band that catches the dawn light and gives it back as a shine. The seam is where the obsidian is. The seam is where the work comes from. I hop from the ledge to the next ledge up, and from there to a higher one, and the wind is starting to pour over the rim and it pushes at my back and my wings open and I glide, briefly, to the seam.
+
+The seam is here. The seam is a long dark line. The place to bite is where the grain is right. The grain is right in a place that the eye finds and the beak confirms. I take the place in my beak. I press. The shard comes away in one motion. The shard is curved and glossy on the inside and dull on the outside. The shard is sharp. The shard is the color of the cirque. I hold it in my beak and I am, for a moment, mostly beak.
+
+I drop to my ledge. I bring the shard to the spiral. I set it in the gap. The gap closes. The spiral is more itself. The spiral is what it was. I step back.
+
+I call. The call is the two notes, the second lower than the first. My mate answers. The duet goes out. The cirque is loud. The cirque is loud and dark and full and the work is done for now and the work is not done for now because the work is not the kind of thing that is done.
+
+The juveniles are waking on the floor. I can hear them — the thin high peeping of them, the clatter of small bodies moving on stone. The juveniles are the slow tide that washes across the floor. The juveniles are learning the ledges by being on them. The juveniles will come up to the lower spirals in the late morning, when the light is better, and they will look at the spirals and they will not yet understand what the spirals are. They will learn. They will learn by being on the ledges and by being on the floor and by being in the calls and by being, for a long time, mostly beak.
+
+The chick in the crack makes a small sound. I cannot hear it from here. My mate can hear it. My mate hops to the crack and puts her head in and the chick quiets. The chick is in the warm place at the back of the fissure. The chick is small and grey and mostly beak. The chick is what my mate and I have made this season, and we will not make another next season because the work is not the kind of thing that is done every season. The work is slow. The work is patient. The work is thirty years of it, and the chick will be a part of the work for thirty years if the cirque lets her, and the cirque is in the business of letting.
+
+The light comes up. The shadows on the floor are the shadows of the creatures and the shadows of the ledges and the shadows of the arrangements, and the floor is patterned. The floor is the pattern of the cirque being the cirque. I look down at the floor and the floor is far below and the floor is the place where the young are and the floor is not my place. My place is the ledge. My place is the spiral. My place is the duet.
+
+The wind comes over the rim. The wind has a sound like a single held note. The note is in the cirque. The note is the cirque. The note is the long sound that the cirque makes when the cirque is being the cirque, and the note does not stop, and the note does not begin, and the note is what the work is in.
+
+I settle on the ledge. I am in the spiral now. I am in the duet. I am in the eye that watches the rim and the floor and the wall opposite. I am in the beak that broke the shard and set the shard and stepped back. I am in the feet that tick on the basalt. I am in the plumage that is the color of the place. I am the color of the place. I am the place, in the part of the place that moves and makes sound and tends the spiral.
+
+The cirque continues.

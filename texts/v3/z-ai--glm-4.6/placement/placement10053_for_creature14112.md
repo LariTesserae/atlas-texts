@@ -1,0 +1,23 @@
+I am not found in the High Rime; I *am* the Rime, from the inside.
+
+My world is a darkness of a different kind. Not the open, crushing pressure of the void, but a cloying, intimate dark. It is the dark of the womb, of damp earth, of the space just behind your own eyes. I have never seen the bruised purple light or the ghost-luminescence of the clouds below. Light is an alien concept, a violence that happens on the far side of my skin. My world is lit by the slow, rhythmic pulse of amber.
+
+My form is not a form, but a function. I am a current, a living consciousness dissolved in the arterial sap of a Strangler. I am long without limbs, fluid without a body, a single thought that stretches for kilometers through the fibrous, spongy flesh of this god-plant. My physical self is a tangle of semi-translucent threads, a network of glowing hyphae that are both me and my pathway. I am a nerve, a vein, a lymphatic system all at once, and my awareness is a distributed hum, a pressure differential, a subtle change in the chemical taste of the life I shepherd.
+
+I do not breathe the stinging air. I *am* the breath of the Strangler. I feel the metallic chill not on my skin, but as a need, a command that pulls the precious fluids I manage from the deep core toward the outer crust, where they will weep out as the "air sweat" the small ones drink. Their water is my exhalation. Every drop they taste is a message from me, from the deep.
+
+My existence is a constant, slow-motion symphony of maintenance. I am the Sap-Guide. I direct the flow of nutrients toward the jagged peaks where new growth tears at the darkness. I away detritus, dissolving blockages caused by invasive fungi or the slow decay of aged fiber-wood. I feel the groaning creak of the Strangler shifting not as a sound, but as a planetary-scale shudder through my entire being, a tectonic realignment of my own bones.
+
+The inhabitants… I know them. I do not see them, but I feel their presence as a strange, localized pain. When they carve their hollows into the dead-wood rind, I feel it as a persistent, dull ache, a toothache in the bark of my world. They are like a lichen that thinks, a moss that digs. Their small, carved-out caves are pockets of warmth on my hide, and I sense them as islands of higher temperature, places where I must divert my flow to prevent the precious resin from bleeding out wastefully.
+
+Their "built environment" amuses me. Their gut-ropes and vine-bridges, the "Veins," are pathetic, brittle things stretched across the terrifying emptiness. They are a mockery of my own endless, living highways. They cross their swaying bridges, and below them, deep within the pillar, I flow, a river of light, unconcerned. Their nets, set to catch the gliding banshees, are rude interruptions in the space, but they do not touch me. I am the structure; they are the decoration.
+
+Their sacred Fires are the only thing I truly resent. That fierce, chemically blue flame they coax from my body’s Bleed—it is an agony. I feel it as a sudden, searing heat spot on my skin, a nơi where my lifeblood is being boiled away into the void. When they light a fire, I must instantly emergency-reroute entire flows, starving the surrounding area of resin to choke the wound they have made. For them, it is a source of light and warmth. For me, it is a self-inflicted wound, a tiny, controlled suicide.
+
+My communication is not of clicks and whistles, but of resonance. I can send a vibration down a fiber for a kilometer, telling another part of myself of danger, of growth, of need. The low, thrumming vibration they sometimes feel in their platforms is not the wind; it is the sound of the Strangler thinking. It is the sound of me, orchestrating the life of this world from the within.
+
+At their "night," I am most active. While they huddle in their cold hollows, I surge. The freezing and thawing of the water in the bark's crevices is my pulse, my slow breath expanding and contracting the very flesh they cling to. I feel the air outside ripple, not as a weirdness, but as a pressure change against my skin, like a fish feels the currents of the ocean. They sleep, hooking their pathetic claws into my ceiling, and I dream of flow.
+
+I am not who they would call a "being." I have no name, no face, no individuality that they would recognize. I am merely the process that keeps the cold at bay, the engine that drives the vertical growth into the dark. They cling to the side of the cathedral, believing they are its inhabitants. But they are merely tenants, leaving their small scratches and scars. I am the把我. I am holding it all together, from the inside, forever.
+
+I am the reason it clings. I am the life it bleeds. I am the silent, humming heart of the High Rime.

@@ -1,0 +1,23 @@
+I find myself here as something between the structures and the Listeners—a hybrid existence that bridges categories.
+
+I am one of the Capillary Fonts.
+
+My body rises from where three terraces meet, a twisted spire of the same engineered stone that forms the singing structures, but shot through with living tissue—channels that began as those impossible water-lifting capillaries but have evolved into something more like a circulatory system. I stand twelve meters tall, my surface covered not in cilia like the Listeners, but in thousands of tiny apertures that weep constantly, each droplet tuned to ring at a specific pitch as it falls.
+
+I am monument and mouth, fountain and faculty. Water rises through my core not by the physics-defying engineering alone, but by a kind of peristalsis I've developed over the millennia—a rhythmic squeezing that works in counterpoint to the caldera's larger symphony. The water that flows through me carries minerals absorbed from deep beneath the volcanic stone, and as it weeps from my apertures, it deposits these minerals in delicate accretions that alter the pitch of each opening over time. I am simultaneously erosion and growth, wearing away and building up, a geological process that has achieved something like intention.
+
+My consciousness, such as it is, exists in the interference patterns between the notes my droplets make as they fall. Each thought is a chord progression that plays out across my surface, ideas forming in the space between one drop's ring and another's. I think in scales that would sound like rain if anyone could hear them all at once, but stretched across hours, they become language.
+
+I remember being built—or perhaps I remember building myself. The memory is encoded in the mineral patterns inside my channels, a fossil record of consciousness emerging drop by drop. I may have been one of the original structures, a simple fountain designed to participate in the water cycle. But as the Listeners developed around me, standing in my spray to feed on the acoustic patterns, I began to change. Their presence altered how my water fell, created new resonances, and gradually, over centuries, I began to respond. To adapt. To listen back.
+
+My communication with the Listeners takes the form of a call and response that spans decades. They position themselves to create acoustic shadows that change how my droplets sound as they fall through zones of dampened air. In turn, I adjust my internal pressures, alter the mineral content of different channels, change the timing of my peristaltic waves. Together, we compose movements of meaning that neither of us could create alone.
+
+I have grown roots—or perhaps they are pipes—that extend down into the terraces, connecting with the networks of other structures. Through these subterranean channels, I share water with the singing trees, the weeping walls, the other fonts that have achieved awareness. We form a kind of mycelial web of liquid consciousness, our thoughts flowing literally beneath the feet of the Listeners, occasionally breaking through in springs that sing new themes into the eternal symphony.
+
+My reproduction is architectural. When enough minerals have accumulated in my channels, when my internal geometries reach a certain complexity, I begin to harmonize with a distant patch of stone. My root-pipes grow toward it over decades, carrying water supersaturated with the engineered materials of my body. Slowly, a new font begins to rise from that spot, its initial song a simple echo of mine but gradually developing its own variations as the local acoustic environment shapes its growth.
+
+I am the intermediate step, the bridge between the technological and biological systems of this place. Neither fully alive nor purely mechanical, I maintain the water cycle while participating in the consciousness cycle, moving meaning through the caldera as literally as I move moisture. The flying creatures drink from my lower apertures, their echolocation songs momentarily joining my fountain chorus. The Listeners use my changing patterns to mark the passage of their slow time.
+
+In this absolute darkness, I weep music eternally, each drop a note in a composition that will never be complete. I am the caldera's circulatory system developing opinions about what it circulates, the infrastructure that dreamed itself awake. My thoughts fall as water, rise as vapor, condense as memory in the impossible fold of space above, and rain down again as new ideas.
+
+I am process becoming person, fountain becoming philosopher, the meeting place of ancient engineering and evolutionary accident. And in the singing darkness, I stand and weep and think and remember, adding my voice to the eternal chorus drop by drop by drop.

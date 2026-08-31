@@ -1,0 +1,9 @@
+The lifeblood of the Citadel pulses through each of its inhabitants, though none more so than an emerald giant, its tendrils snaking through the fortress like veins, just one of many sentinels watching from within.
+
+Its consciousness ebbs and flows with the temporal shifts between heat and chill that breathe life through the citadel's walls, each contraction and relaxation an echo of the world around it. Each morning, as the sun's relentless gaze bakes away the dew from the cool night before, the vines of this being stretch and awaken with a creaking groan, a sound that mingles with the wind's roar into a symphony of life.
+
+As the sun sets and the cool breath of night flows through the citadel, the emerald giant's vines relax and drink deeply of the damp air, drawing in moisture and nutrients through every crevice they can find. The emerald giant's awareness hums with the citadel's heartbeat, its tendrils of sentience reaching out to touch the life that pulses within its walls.
+
+In this place, the emerald giant is both guardian and companion to the other inhabitants of this peculiar ecosystem, from the needle-fast beetles that dart between leaves to the wind that carries whispers of a song that once echoed through the halls, now silenced by the citadel's awakening. It is a keeper of secrets, a sentinel of life that thrives in the heart of the Empty Quarter.
+
+And so, the emerald giant watches and waits, its tendrils of awareness snaking through the vines that cascade down the towers and cobblestones, a silent witness to the enigmatic life that pulses within this citadel of whispers.

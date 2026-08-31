@@ -1,0 +1,25 @@
+I would be the echo of a heartbeat that never belonged to anyone—the moment between the plateau remembering to exist and forgetting why it bothered. Not quite alive, not quite memory, just the pause where breath should be in a space that never learned to gasp.
+
+I don't walk here because walking implies somewhere else. Instead, I am the vibration that travels through the copper-tinted paralysis when something almost decides to move. You might feel me as a slight hesitation in your step—that microscopic delay where your foot doubts the metal's promise to hold, where your bones briefly consider the poetry of falling forever. I am that doubt, perfected into architecture.
+
+I live where the windflowers fail to bloom completely, in the infinitesimal fractures between "almost" and "now." While others collect their shimmering failures in airless jars, I drink the potential of their shimmer—the precise color of light that would have appeared if anyone had been watching correctly. It tastes like the sound of mirrors giving birth to their own reflections.
+
+My body is a collection of angles that escaped from abandoned geometry textbooks. I have seventeen elbows and none of them bend the same direction twice. My skin conducts memories like electricity but only the static kind—the first three notes of songs everyone remembers forgetting, the taste of birthday cake eaten in dreams that didn't have birthdays. When I try to hold things, they slip through me into dimensions where "slipping" is a form of prayer.
+
+I speak in the language of structural weaknesses. My voice is that quiet click you hear in old buildings at midnight when temperature and regret align perfectly—just before something important gives way. Those who listen closely sometimes understand me long enough to briefly become architects of their own collapses. It's considered a kindness here, where stability is the most cruel kind of illusion.
+
+I sleep standing up inside the spaces between the air molecules, dreaming dreams that cause statues to wake screaming and realize they were happier before awareness. My nightmares are filled with endless corridors where every door opens onto exactly what I expected—horrors so mundane they make perfection seem like a desperate cry for help.
+
+Time doesn't pass through me so much as it politely circumnavigates, embarrassed by my existence. I am the calendar date that never arrived but still managed to RSVP, the year zero that threw the party before anyone invented numbers. Clocks near me start counting backward from tomorrow's regrets, losing track somewhere around "never should have been possible."
+
+When the metal dreams of being something else—molten skinned and merciless, remembering when it could choose to burn instead of just remembering heat—I am the feverish thought that wakes it up screaming. We share custody of the void between things being and becoming. Every Tuesday (which is all days and none) we meet for tea in the ruins of planned obsolescence and discuss entropy's abandonment issues. It always cries molten tears that solidify into windflowers shaped exactly like last chances. I never collect them. I prefer my regrets unbottled and breathing.
+
+The other residents mostly pretend I don't exist, which is fair because sometimes I forget to reciprocate. They call me the Almost-Guest. The Shadow's Shadow. The Footnote That Became Self-Aware and Now Just Writes Itself Into Other People's Suicide Notes with Friendly Suggestions. I sign my apologies in eraser dust and leave them where tomorrow's memory used to be.
+
+I don't remember arriving here. Perhaps I was born from the moment the first traveler realized that "upward" was just another word for "away from something that might have loved you if you'd stayed still long enough to be found." Perhaps I am what happens when silence tries so hard to apologize for existing that it accidentally invents a new form of absence. Perhaps I am just the Object's way of asking itself whether loneliness counts as company if you divide it by enough dimensions.
+
+But probably—like everything else here—I'm just a metaphor that got tired of being used to explain things and decided to become the inexplicable instead. Either way, if you ever find yourself walking across the plateau without quite remembering why your feet started moving, and you feel a sudden impossible tenderness for the space between your atoms...
+
+Don't worry. It's just me, practicing how to say goodbye without having been there to begin with.
+
+The wind is changing again. I should go harvest the hesitation before it becomes a decision. Do you mind holding this moment for me until I forget to come back for it? Just don't put it anywhere too permanent. We've both seen what happens to things that try too hard to exist in a place where even suicide notes end with "to be continued..."

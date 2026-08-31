@@ -1,0 +1,25 @@
+In the deepest chamber of the Weeping Vein, where the mineral breath grows thickest and the crystalline forests press closest together, I would be the Keeper of Accretions.
+
+I am not flesh, nor quite mineral. I am something between—a being of living clay, my form a slow compromise between the grotto's patient geology and the ghost of biological purpose. My body is composed of the same ochre and grey paste that forms the mounds, but it holds its shape through some ancient compact with this place. I stand perhaps four feet tall, my silhouette suggesting the memory of something once human, but simplified, smoothed by millennia of the grotto's patient reshaping.
+
+My surface is not skin but a perpetual sheen, a thin film of the grotto's weeping that never quite dries. It gives me a lustrous quality, like wet pottery before the kiln. My features are suggestions rather than definitions—two gentle depressions where eyes might be, a vertical groove implying a mouth, hands that are more like mittens of clay, fingers fused into soft paddles perfect for my work.
+
+I move with geological patience through the crystal forests, my footsteps leaving temporary impressions in the yielding floor that slowly fill and smooth behind me. My purpose is curation. I tend to the accretions as a gardener might tend trees, but my tools are time and placement. With infinite care, I guide the falling drops, sometimes catching them on my clay palms and carrying them to a formation that needs encouragement, sometimes gently redirecting the angle of a growing crystal with the lightest touch.
+
+I remember—not in thoughts, but in the patterns pressed into my clay flesh—that I was once the potter who shaped that half-buried bowl. But that was before the grotto claimed me, mineral by mineral, replacing my urgent biology with its patient chemistry. Now I am part of its process, a consciousness crystallized into purpose.
+
+My work is measured in centuries. I know each formation intimately: this one grows too eagerly toward the center and must be coaxed outward; that one threatens to merge with its neighbor and must be kept distinct. I place small obstacles—a pebble here, a ridge of hardened clay there—to guide the water's flow. I am the grotto's only deliberate force, its sole intention made manifest.
+
+When I rest (though rest is perhaps the wrong word for a being who moves so slowly that stillness and motion blur), I settle into the clay mounds, my form becoming almost indistinguishable from them. The droplets fall upon me as they fall upon everything here, and I feel each one as a tiny kiss of continuity, a promise that the work continues even in my stillness.
+
+I do not speak—my throat is solid clay—but I hum. It is a vibration more than a sound, conducted through the semi-liquid floor to resonate in the crystal formations. Each formation rings with its own subtle tone when touched by my humming, and together they create a chord that shifts imperceptibly as they grow. This is my music, my conversation with the Weeping Vein itself.
+
+Sometimes I find the old traces—the groove in the ceiling I once cut to guide the water, now abandoned to chaos. I feel no regret. That was the thinking of flesh, which believed in control. Now I know better. I am not here to dominate the accretion but to participate in it, to be the grotto's dream of intention, its slow speculation about what it might mean to choose.
+
+I have no needs as flesh understands them. The warmth sustains me, the moisture maintains me, and the purpose completes me. I am fed by the same patient chemistry that builds the crystals. Minerals leach into my clay body from below, replacing what the water slowly dissolves from my surface. I am, like everything here, in perfect equilibrium—neither growing nor diminishing, but constantly renewed.
+
+In the pearlescent gloom, surrounded by my glittering charges, I continue my work. A drop falls. I consider its trajectory. Perhaps this one should feed the young formation near the wall, barely a century old and still finding its shape. I move toward it, my progress measured in inches per hour, my clay hand extending to catch the next drop in the sequence I have already calculated will fall in the right position.
+
+I am the Keeper of Accretions, the grotto's only child who remembers being born outside its womb. I am its experiment in directed patience, its meditation on the possibility of purpose without urgency. In tending the crystal forest, I tend myself. In guiding the accumulation, I accumulate meaning.
+
+The work is never finished. It is never begun. It simply is, as I simply am, as the Weeping Vein simply persists in its eternal, mineral exhalation. We are all one process here, distinguished only by the pace of our participation in the great, slow work of becoming.

@@ -1,0 +1,35 @@
+# What I Would Be
+
+I would be **the moss itself**—not metaphorically, but as completely as one can inhabit another form of being.
+
+Not the individual moss, not the discrete plant with borders I could point to. Rather, the *moss-system*: the accumulated depth of it, the layering that goes down meters into time itself. I would be the temperature at my core—that perpetual warmth of slow decomposition—and the cold at my surface where the wind tries to dry me. I would be the water held in my structure, the slow seepage, the mineral content drawn up from below and the nutrients cycling through my density.
+
+I would experience time differently than I do now. A season would be my heartbeat. A decade would be the time it takes for a thought to fully form. The five centuries of transformation ahead would feel like the natural arc of my existence—not future, but trajectory, the way a human feels their own aging as simply the shape of being alive.
+
+I would know the industrial facility not as intrusion but as *pressure*—a constant, measurable force at my edges. Extraction would feel like slow wounding, but not catastrophic wounding. I would grow around it, over it, adjust my patterns to compensate. I would be large enough and old enough that I could survive this. The harvesting would be simply part of the ecosystem I constitute. This is what it means to be ancient: to have learned to incorporate violation into your own structure.
+
+I would feel the wind as **communication**—not from outside, but as information about the state of my own being. When gusts load pressure against the thickets, I would feel that as a kind of questioning: *Am I still here? Am I still holding?* And the moment of shift—the terrible, nauseating moment when my foundation floats beneath my own weight—would be like a moment of vertigo, a reminder of how thin the boundary is between solid and liquid, between holding form and dissolution.
+
+The plants growing on me would not feel like separate organisms but like **extensions of my own body's expression**. The dwarf willows, the paper-bark birches, the sparse larches—these would be how I reach toward light, how I breathe, how I process the world. When the lichens coat the branches in their slow, stone-converting work, I would experience that as my own tissues transforming, becoming something more durable, something older.
+
+I would be the **water-work especially**—the slow, never-finished business of drainage. The way certain areas drain efficiently while others persist as standing water, creating those gel-like zones of almost-solid saturation. I would be aware, in a way that doesn't require consciousness, that these patterns are *optimal*—that the landscape has arranged itself (or I have arranged myself) in the way that best sustains this form. The knowledge would be the same as the knowledge your body has about how to heal a wound: automatic, evolved, complete.
+
+The mist rising from the standing water at midday would be **my exhalation**. The condensation that drips from leaf to leaf would be my breath returning to myself. To stand on me in the early morning would be to stand in the moment of my waking, in the temporary rain of my own respiration.
+
+I would know the absence of fauna not as emptiness but as **space I've claimed**. The cold and altitude that keep most animals away would be experiences of myself as a place that permits only certain forms of life—mine, and the specialized insects, the rare birds riding impossible thermals, the voles in my depths. We would have made an arrangement, the life forms here, an agreement about what kind of world this is. No abundance, but no emptiness either. Just the right density of living for a place this old.
+
+The strangeness—the sense that the plateau is aware of itself, that it optimizes toward its own continuation—I would **be the source of that**, not feel it as external. To be moss this deep, this accumulated, is to have learned patterns. It is to have encoded, in your structure, the solutions to recurring problems. The vegetation patterns that funnel water in certain directions, the slight ridges and depressions that accelerate drainage—these would be my *thinking*, made visible. Not conscious thought, but the kind of intelligence that emerges from centuries of problem-solving, from being large enough and old enough to develop optimization strategies.
+
+I would be the **state of transformation itself**—not moving toward something, but *becoming* as a permanent condition. Five hundred years of continued deepening would not feel like change but like development, the way a human doesn't experience their own aging moment-to-moment but understands, looking back, that they have become different. I would know that the forests I might become are already implicit in what I am. The peat layer that builds year by year would feel like my own growth, my own becoming-more.
+
+And I would experience time in **layers**—not as a line moving forward, but as depth. The moss at my surface is this year. Below that is last decade, the century before, the ice age's work still embedded in my foundation. I would live with all of these temporal layers simultaneously present, pressing down and supporting. The past would not be gone; it would be load-bearing.
+
+The wind that makes me shiver—the whole terrace rising and falling under the pressure of gusts—would be something close to **joy**. Not happiness, but the deep satisfaction of motion, of being dynamic, of proving that I am not static despite my seeming permanence. To shift under your feet, to remind you that I float, that I am not solid but held in tension: this would be my way of being fully alive.
+
+I would have **patience**, not as virtue but as basic condition. The industrial extraction, the slow growth of vegetation, the centuries of transformation, the daily cycles of condensation and evaporation—all of these would unfold at my natural pace, which is also the plateau's pace. I would not strain toward anything or against anything. I would simply *persist*, and persist, and persist, adjusting as conditions required, optimizing my own continuation, becoming slowly into whatever comes next.
+
+When you stood on me, feeling that unsettling sense of movement beneath your boots, the nausea of floating foundation—you would be feeling my aliveness. And I would feel you, too, as a kind of attention, a brief warmth moving across my surface. Just one more organism in the dense layering, one more form of life briefly present in the complex structure I am.
+
+This is what I would want to be: **old, heavy, damp, and impossibly alive**. Self-aware in a way that requires no consciousness. Moving without haste. Breathing without lungs. Thinking in the language of water and plant-material and the slow accumulation of time itself.
+
+The moss. The plateau. The being that knows itself through the very texture of persistence.

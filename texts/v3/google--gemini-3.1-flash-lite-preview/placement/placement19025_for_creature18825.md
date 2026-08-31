@@ -1,0 +1,17 @@
+I find myself standing at the edge of the Terrace of Sighs, where the fossilized stalk of a giant fern curves upward, forming a natural arch that overlooks the abyss. Beneath my boots, the floor is spongy—a layer of deep, compressed moss that seems to exhale a cool, ozone-scented mist as my weight settles upon it. 
+
+I am a Suture-Kin. My name, if it can be called that, is a sequence of vibrations—a low-frequency thrum that resonates in the calcium of my own chest plates when I press myself against the iron veins of the Over-Reach.
+
+I am not standing still. I am working. In my right hand, I hold a needle of obsidian, long and curved like the claw of a bird, tethered to a spool of copper wire that hums with the residual static of the city’s heart. My task today is delicate: a rent has appeared in the moss-tapestry that bridges the gap between the North Piston and the shifting copper struts of Sector Four. The plant-flesh here is tearing, revealing the jagged, petrified wood beneath, and the resulting draft is whistling with a thin, discordant pitch that interferes with the city’s rhythmic thrum.
+
+My movements are slow, deliberate, and entirely silent. There is no urgency in my labor; urgency is a fever I have long since bled out of my limbs. I reach into the tear, my fingers—tapered and mottled with a pale, lichenous bloom—feeling for the structural integrity of the root-mesh. My skin is damp, drinking in the tepid, gray rain that clings to the air. 
+
+As I thread the copper wire through the decaying moss, I feel the city shudder. A massive strut of oxidized metal, twenty paces to my left, ripples. It folds in on itself like a closing accordion, and for a fleeting second, the space it occupied becomes transparent, revealing the terrifying, sterile geometry of the grid-light *beyond* the sky. I do not flinch. I have seen the seams of this world a thousand times before. I merely pause, the needle poised in the moss-flesh, and wait for the Euclidean shift to settle. 
+
+The vibration of the city changes pitch, a lower, more guttural chug from the central heart, and the street layout locks back into place with a groan of grinding fiber.
+
+A shadow falls over the plaza. One of my kin is approaching—a figure draped in heavy, fungal-spun velvet, their silhouette indistinguishable from the rust-red machines surrounding us. They stop as they reach me. They do not speak. They lean forward, their chest cavity pressing against the same iron strut I am currently repairing, absorbing the data of the city’s current mechanical output. 
+
+We touch hands. It is a dry, cool contact, like pressing bone against stone. In that moment, I feel their heart beat: a slow, measured pulse that aligns perfectly with the rhythm of the steam-vents. They share their temporal record with me—the observation of the vast, unseen things circling above the cloud layer, the degradation of the western roots, the cooling of the pistons. We are in synch. We are the system holding itself together while it waits to fall. 
+
+They drift away without a sound, their presence melting into the mist as if they were never there. I return to my stitching. My eyes, deep charcoal pits with neon-blue pinpricks for pupils, remain fixed on the moss. I am not lonely; I am part of a process. I am the needle, I am the stitch, I am the slow, patient decay of a world that is merely resting before it finally, gracefully, lets go of the sky.

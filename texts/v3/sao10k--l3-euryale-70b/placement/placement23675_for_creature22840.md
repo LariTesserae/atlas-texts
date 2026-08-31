@@ -1,0 +1,11 @@
+I would be one of the twin witches, long-lived beings who have emerged from and merged with the primordial mists and growths of the ancient forest. My body has become an extension of the twisting trees, vines, and fungi - their forms seem writ into my withered skin, my lichenous growths and tumorously distended features. 
+
+My mind is a thick, loamy mire, crowded with the oily, viscous thoughts and dreams seething through the forest - the brooding sentience of the oldest trees, the ambitions of the scaly creatures scuttling in the undergrowth, the obtuse hunger of the fungal networks stretching subterranean through rich, decaying loads. They swirl and eddy through my consciousness like the frogsong and machinery humming through the shadows.
+
+My own sense of self has long been subsumed into the hive-mind of the forest, just one more strain of the vast, diffuse organism. And through this I am attuned to the rising threat, a sudden discordant hum of metal and industry piercing the background susurrus as it gradually arcs towards the treetops - the first hints of the high city of treehouses and pulleys above the canopy. 
+
+The knowledge chafes and galls me. Those grafter and colonizers above have forgotten their organic roots, straining grotesquely towards the upper reaches, severing themselves from the loamy, wholesome bulk of the earth below. Their true form is obscured as mine own, but we are mirror-reversals - while I am a creature of the forest floor, thick with chthonic trunk and root, they are sky-borne, dry and sterile, tangled only in structures of their own freakish making.
+
+And they are no doubt encroaching on something they would not understand - the dark sentience seething in veteran sulfurous clouds, the rational mimicry of the fungal networks, the blind hungers of the bony shapes nosing the fringes. The chthonic awareness of the forest is not for those above, who strangers to loam and spore and slime. 
+
+The machinery hums louder now, and in the misty distance the central rotating wheel begins to churn, its petals bifurcating in spiral propellers, circling to strip the near growth. It is time. I must sound the call, to stir the hidden powers of the deep forest - to rise up and greet these macabre apostates before they poison all in their path. The time shared systole of wrath and growth is almost upon us.

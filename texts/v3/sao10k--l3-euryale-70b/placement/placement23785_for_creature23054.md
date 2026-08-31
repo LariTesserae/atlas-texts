@@ -1,0 +1,7 @@
+I am the fungal larvae, a microscopic spore suspended in the steamy air. My translucent form is coated in an oily sheen that glistens in the strange light of the bioluminescent fungal caps below. Drifting lazily on the humid currents, I ogle the sublime scene in my ocular pits. 
+
+The segmented rope slave, that surging cord of meat and fungus, thrills me with its sheer procreative power. To be so lush, so fecund, disgorging egg after egg without cease - what a wondrous existence that must be! 
+
+But I am content now in my form, a tiny, mewling spore, my mind so dim and small compared to those great, single-celled beings that grip the stone. And yet, a deep kernel within me already anticipates my own role in this microcosm of flesh and mycelium.
+
+Falling, always falling through the heady air, I settle upon the quaking skin of one of the lunar moths. Microscopic bristles snag against my gelatinous surface and I attach, undulate gently, sprouting a tendril into its flesh. A soft sense of union begins, our dim awareness interpenetrating, mine assuming something of its multi-limbed mote-like mind, it infecting me with its smushed sense of the space. Infection, symbiosis, spawn. We do not differentiate.

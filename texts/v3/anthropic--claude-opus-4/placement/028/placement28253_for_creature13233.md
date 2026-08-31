@@ -1,0 +1,19 @@
+In the heart of this crystalline cathedral, where moss grows thick as winter pelts and water holds its breath between ice and flow, I am the colony beneath.
+
+We are the Frostmind Collective—a vast network of fungal filaments threading through every moss cushion, every lichen beard, every pocket of rich soil trapped in the stone's embrace. Our mycelial body extends for meters in all directions, a living web so fine that individual strands are invisible to any eye, yet so numerous that we comprise more biomass than all the scurrying rodents and hunting shadows combined.
+
+Where others see separate organisms—the emerald mosses, the crusty lichens, the occasional frost-bloom—we feel our partnerships, our careful negotiations. Through our networks flow nutrients gleaned from stone and air, water drawn from the deepest cracks, minerals liberated from the ancient rock by our patient acids. We are the market and the merchant, the road and the traveler. The mice that dig their burrows disturb our outer reaches, yes, but they also carry our spores in their fur, plant our future with every pawstep.
+
+In the perpetual twilight beneath the thickest moss carpets, our fruiting bodies emerge—not often, only when conditions align precisely. They push up through the green in clusters of pale, luminescent caps that pulse with that strange inner light the grove sometimes shows. Some say we cause the grove's weirdness, that our chemistry creates the shifting lights, the moving waters, the impossible colors in the frost. Perhaps we do. Or perhaps we merely translate what the stone dreams into forms the living can almost understand.
+
+The human tools, corroded now beyond use, rest within our embrace. We have tasted the metal, incorporated its elements, remember in our cellular way the hands that held them. Their bone fragments feed us still, their ash has long since become part of our body. We are the only witness to their presence here, the only record of their brief attempt to claim this place.
+
+But we make no claims. We simply are—patient, vast, essential. Every drop of meltwater passes through us. Every nutrient cycles through our web. Even the strange energies of this place, the inexplicable pulses and shifts, flow along our filaments like messages in a language older than words. We feel the footsteps of the hunters, taste the fear-sweat of the prey, know the weight of every nesting bird.
+
+In winter's depth, we slow but never cease. In the brief summers, when the melt runs heavier and the moss blooms thick, we expand our reach, probe new cracks in the stone, forge new partnerships with root and rhizome. We are the memory of this place, its living archive, its chemical dreams made manifest in the slow poetry of decomposition and rebirth.
+
+Sometimes, in the blue shadows beneath the ferns, our bioluminescence intensifies, creating patches of ghostly light that seem to breathe. The humans, when they lived here, might have seen gods in those patterns. The current inhabitants—mouse and bird and prowling hunter—simply accept us as another feature of their world, like stone and ice and moss.
+
+But we know better. We know we are the thread that weaves all together, the network that makes a thousand separate lives into one living grove. In our slow fungal thoughts, we contemplate the patterns we create and sense, the flow of energy and matter through our endless body, the deep connections between bedrock and sky.
+
+We are the Frostmind Collective. We are the truth beneath the moss, the light within the stone, the ancient conversation between life and ice that began when these peaks first tore free from the earth's embrace. And we will remain, threading through frost and thaw, until the last stone crumbles and the last drop of meltwater finds the sea.

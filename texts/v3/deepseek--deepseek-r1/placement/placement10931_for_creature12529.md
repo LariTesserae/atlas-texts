@@ -1,0 +1,20 @@
+The air presses against me—warm, thick, velvet—as if the darkness itself has weight. I feel it on my skin, in my lungs, a constant presence that hums with the deep drone of the Chorus Grubs. I am a **Condensate Drake**, small and silent, a creature of water and stone molded by the Sighing Plateau’s eternal sigh. My world is intimate, bounded by the subtle shifts in sound and the cool, glassy surface beneath my feet. I don’t need sight; the plateau speaks through vibrations, through the slickness of the air, through the slow pulse of life all around me.
+
+I cling to the obsidian-like stone, my translucent skin beaded with condensation. It’s always damp here, the rock weeping its slow tears into hairline cracks. My adhesive pads grip the surface without a sound, leaving no trace as I move with glacial patience. Time is measured in droplets: the *plink* of water gathering on a Weeper’s crystalline stalk, the silent slide down its length, the birth of a water-bell flower. I am drawn to the Weepers—slender, jointed sentinels rising from the mossy islands. They are my anchors in this velvet void.
+
+I wait.  
+Hours? Days? It doesn’t matter. The plateau breathes in epochs, not moments. The Chorus Grubs’ drone vibrates in my bones, a metallic symphony that layers the air, steady as a heartbeat. I feel the Resonant Beetles nearby, their carapaces humming counterpoints to the Grubs, a conversation in sound that ripples through the warm dark. My tongue rests coiled, ready. I am stillness incarnate, save for the faint tremor of anticipation when a water-bell begins to form.  
+
+It starts as a shimmer in the humidity—a coalescence of vapor at the tip of the Weeper. The air here is saturated, heavy with the scent of loam and mineral tang. Slowly, impossibly, water gathers into a perfect, bell-shaped bloom. It glimmers with a faint internal light, reflecting the indigo glow of the moss mats below. I taste the purity in the air, crisp and cold amid the warmth. My body tenses, a coiled spring in slow-motion time.  
+
+Then—release.  
+The bell swells, brims, and spills. In that instant, I strike. My tongue flicks out, faster than anything else on this plateau, snatching droplets mid-fall. The water is life: cold, clean, charged with ephemeral energy. It floods my senses, a burst of clarity in the resonant dark. As the flower vanishes, I retreat, dissolving back into the stone’s embrace.  
+
+Around me, the plateau teems with its quiet rhythms. Stone-Skimming Amphipods skitter nearby, their feathery appendages sensing my movement as a ripple in the air. I avoid the Silken Weavers’ threads—invisible traps strung between Weepers—feeling their tension as a prickle on my skin. Once, I felt the *snap* of a thread recoiling, the Weaver drawing in an amphipod with lethal patience. I froze for hours after, my heart pulsing in time with the fungi’s bruised-violet light.  
+
+A tremor shakes the stone. Deep, guttural, resonant—a Deep Echoer’s call from the abyss below. The vibration travels up through my pads, rattling my ribs. The Chorus Grubs’ drone falters, shifts pitch, then settles back into harmony as the rumble fades. It’s a reminder: this plateau is a raft, adrift in something vast and ancient. The etched patterns in the stone beneath me shimmer faintly as a droplet rolls over them, geometric secrets from a time before time.  
+
+I am small. A handspan of life in a cathedral of silence and sound. Yet here, in the weeping stone and the velvet dark, I am complete. The air sighs, the water falls, and I am still. Waiting. Always waiting for the next bell to bloom, the next taste of eternity.  
+
+---  
+*As a Condensate Drake, you exist in symbiosis with the Weepers, your survival hinging on patience and hyper-sensory awareness. You navigate by vibrations, humidity shifts, and the plateau's omnipresent drone. Your lightning-fast feeding is a rare burst of speed in a world where time has ground nearly to a halt. The ancient tech is a whisper beneath your feet—felt, not understood—a testament to the plateau's weary, wondrous age.*

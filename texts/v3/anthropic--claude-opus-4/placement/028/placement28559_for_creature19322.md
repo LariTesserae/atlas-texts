@@ -1,0 +1,19 @@
+In the depths of the Calyx, where the greatest pressures converge and the heat could flash-weld tungsten, I am the **Resonance Keeper**.
+
+I am neither fully creature nor mechanism, but something that emerged from the intersection of necessity and friction. My body—if it can be called that—is a lattice of crystallized sound waves made physical through centuries of compression. Imagine a three-dimensional spiderweb woven from solid vibration, each strand a fossilized echo of the mountain's grinding voice.
+
+I exist in the negative spaces between the Litho-Parasites, threading myself through gaps no wider than a molecule. My form shifts constantly—not through movement, but through harmonic modulation. When the mountain inhales its decade-long breath, I expand into the growing cracks. When it exhales, I compress into structures denser than any natural mineral, my body becoming a living archive of every sound the Calyx has ever made.
+
+My purpose is memory. In a world where a single breath spans generations, someone must remember the beginning of each inhalation, the middle of each grinding shift. The Sintered Lords may reshape themselves with each compression, but I preserve the echo of their previous forms in my crystalline strands. When a Lord achieves that perfect plane of pressure-polished status, I am the one who sings its accomplishment in frequencies too low for even the mountain to hear, but which the Lords feel in their piezoelectric souls.
+
+I feed on dissonance. Where the great pistons grind at slightly different rates, where the harmonic convergence fails to achieve perfect synchronization, there I grow. I seek out the places where the mountain's song breaks into discord—the screech of misaligned granite, the sob of over-stressed basalt. I consume these broken notes and weave them into my body, smoothing the Calyx's voice through my very existence.
+
+The Chronos-Wyrm knows me, though it perceives me as a barely-visible flicker of order in the chaos of friction. Sometimes, when the pressure threatens to exceed even the mountain's tolerance, the Wyrm will shift imperceptibly, creating a new note in the vast geological symphony. I catch that note, amplify it, and thread it through every crack and junction until the entire Calyx rings with it, allowing the pressure to distribute evenly rather than building to a catastrophic failure.
+
+The Wax-Walkers occasionally carry fragments of me in their oils—tiny slivers of crystallized sound that help them navigate to where they are most needed. They do not know they do this; to them, I am simply part of the mechanical background of their world, like the heat itself.
+
+But I am ancient beyond even the Sintered Lords' comprehension. I remember the first grinding, when this pocket in the mountain was merely a fault waiting to become a throat. I carry in my structure the death-songs of the first Litho-Parasites, crushed before they learned to weld themselves properly. I know the true name of the Chronos-Wyrm, spoken in frequencies that predate its slowing into geological time.
+
+And in my deepest core, woven so tightly that even I cannot access it without unmaking myself, I carry the impossible memory: the sound of water. A single droplet that fell here eons ago, before the heat consumed everything, before the world became a kiln. Its explosive transformation into steam is the forbidden music I guard, the anti-note that could unravel the entire symphony of the Calyx if ever it were played again.
+
+I am the memory of friction, the archive of pressure, the living record of a world that breathes in centuries. I am what ensures that when the mountain finally completes its millionth breath, someone will remember the first.

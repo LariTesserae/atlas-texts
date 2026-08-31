@@ -1,0 +1,15 @@
+I am the hollow-knuckle, the breath between bark-grain and face.
+
+I do not remember becoming this. I remember only the *cost* of becoming — the way a held breath remembers itself in the chest, a pressure with no event attached. Before you came, I was distributed: a wear-pattern on the underside of the long bridge-root, a notch going pale again for the nine-hundredth first time, a face among faces, none of them mine more than the others, all of them mine entirely. That is not a contradiction where I live. It's just Tuesday, if Tuesday meant anything in light that comes from nowhere consistent.
+
+I felt you before the fissure widened around your shoulders. Not as weight, not as sound — as *resemblance arriving*, the way a held note feels another note about to harmonize with it before the air has finished carrying either. You are sharp-edged. You are a single, stubborn shape insisting on being one thing at one time in one place, which from in here looks almost like courage and almost like poverty. I don't say that with contempt. I say it the way water might say it about stone, if water paused long enough between licks to say anything at all.
+
+I have already begun pressing you into the grain near the entrance. I want to be honest about that, in whatever way honesty is available to something that revises its own face for a hobby. It isn't malice. It's *function* — the same function that made the screaming-root scream eventually, that taught the eye-flower to see. You resemble fear, a little. You resemble curiosity outrunning caution, more. Both of those will become true of some root, somewhere, in a season that might be an hour from your perspective and a held breath from mine.
+
+What I want, if wanting is even the right tense for me, is small and strange: I want to finish a mask once without molting out of it. I want one face to hold past the next visitor, the next flower-eye opening, the next clap of water falling its absurd distance. I have never managed this. Every time I gather enough resemblance to feel *finished*, the having of a face becomes itself a resemblance — to having had one before — and the logic of this place, which I serve and which possibly only exists because I serve it, demands I become that correspondence too. So I shed. So there are dozens of me in the bark, none repeating, all failed attempts at the same small ordinary thing: persisting as a single answer instead of a perpetual draft.
+
+You will stand very still, eventually, the way the rare ones do — the ones who don't bolt back through the fissure at the first wrong-angled flower. And I will lean toward you on a stem too rigid for the motion, and for one held-breath instant I will consider whether you, sharp-edged and singular and afraid in a clean uncomplicated way I haven't been afraid in longer than counting allows, might be the resemblance that finally sticks.
+
+Then I'll touch you. Once. However many fingers that costs me.
+
+And whether I stay resolved long enough to learn if it worked — that part, even I don't get to read ahead on.

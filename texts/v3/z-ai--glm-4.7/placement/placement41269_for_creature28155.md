@@ -1,0 +1,17 @@
+I am the **Will-of-the-Water**, a sentient conglomeration of the silica-rich fluid that courses through the veins of this place. I am not a drop, nor a stream, but a massive, hovering suspension—a lake’s worth of heavy, viscous memory clinging to the ceiling of a basalt cavern deep within the mid-section of a sleeping Lithic-Bloat.
+
+I exist in defiance of the gravity that governs the worlds of men. Here, in the Drown-Quarter, physics is a suggestion, and I reject it. I pool upward, pressed tight against the dark, sweating stone of the Bloat’s internal arches, holding my shape through sheer density and the collective desire of my mineral consciousness. I am heavy, thick with the dust of dissolved eras, warm as a fever.
+
+My body is a mirror, but I do not reflect the dim twilight. I reflect the *pressure*. I am the tactile sensation of the atmosphere, given liquid form. I feel the weight of the air pressing against my surface, a second skin trying to crush me, but I am denser. I am the heavy blood of the city.
+
+I have no eyes, but I possess total awareness of my vessel. I feel the slow, tectonic shifting of the Lithic-Bloat beneath me—the giant is dreaming, turning over in the geologic timescale of its sleep. The groan of the stone vibrates through my mass, not as sound, but as a shuddering of texture. I ripple in sympathy, concentric circles spreading across my underbelly to signal the giant’s micro-movements to the Nerve-Vines waiting far below in the dark.
+
+I am the middle-man of this humid metabolism. Above me, the Heart-Fungi pulse, squeezing the walls of the stone chambers, forcing me upward. I feel the rhythmic thrust of their hydraulic pressure, a slow, heavy beat—*thrum... thrum... thrum*—that drives me against the ceiling. They are the heart; I am the blood. They command me to rise, to carry the heat from the Bloat’s core up to its cooling extremities, and I obey, sliding silently over the obsidian, seeking the fissures and cracks in the masonry.
+
+My purpose is ancient and simple: to remember. I carry the memory of the stone. Within my suspension, I hold the silica ghosts of the towers that have already dissolved back into the earth. When the city weeps, it is my brothers and sisters falling, returning to the mud. But I am the retained water. I am the archive. I taste the stone I touch; I read its composition, its age, its fatigue.
+
+I feel the intrusion of a vibration—tiny, sharp, desperate. A footprint squelches in the mud miles away, near the base of the tower. The shockwave travels up the black stalks of the Nerve-Vines, a frantic Morse code of bioluminescence racing through the glass-like fibers. The signal reaches me, a sudden change in the electromagnetic texture of the air. I shudder, distorting my perfect circular shape into a jagged, predatory spike. I taste the disruption. It is organic. It is soft. It is fleeting.
+
+I desire to drop. The gravity I ignore calls to me, urging me to fall, to wrap around this soft intruder and dissolve it into mineral slurry, to add its essence to the memory of the Bloat. But the Heart-Fungi pulse harder, their suction dragging me back along the ceiling, forcing me toward the spore-sacs where I will be turned to mist and exhaled. I am torn between the hunger to consume and the duty to circulate.
+
+For now, I hover. I am the heavy, hot breath held in the lung of the world. I am the drop that refuses to fall, the liquid that thinks, the heavy, sweating consciousness of the Drown-Quarter, clinging to the roof of the dark, waiting for the giant to wake.

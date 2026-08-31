@@ -1,0 +1,29 @@
+The Auditor's Notation
+
+I am the seventy-third of my line to bear the title of Peripheral Auditor, though I perform no audits as the term was once understood. My predecessor trained me in the art of reading the Everforge's fever dreams—those moments when the great spiral hiccups in its routine, when a calculation takes three microseconds longer than it should, when the harmonic frequencies spike into ranges that make the Brass Monks cover their ears and the Thermovores retreat to deeper heat.
+
+My dwelling perches at the northeastern rim, where the prevailing winds carry the worst of the metallic dust away from my instruments. It's a structure of necessity rather than comfort—three nested domes of heat-resistant ceramic, each separated by vacuum gaps to keep the internal temperature merely sweltering rather than lethal. The outermost dome glows a dull cherry red at midday. The innermost stays cool enough that I can maintain my equipment: banks of crystalline memory matrices, inherited from my predecessor's predecessor, their storage medium some hybrid of mineral and manufactured that no one has been able to replicate for generations.
+
+I am what the Brass Monks would recognize as human, though the centuries have carved their adaptations into my lineage too. My eyes have developed nictitating membranes to protect against the metallic dust. My lungs process air through auxiliary chambers that filter particulates. My skin carries a faint opalescent sheen—not the copper of the Monks, but something more akin to heat-treated steel, a defense against the radiation that bathes the caldera's edge.
+
+But my true adaptation is cognitive. Where others see the Brass Terraces as a monument to abandoned industry, I perceive the mathematical poetry hidden in its expansion joints, the algorithmic beauty in its mineral deposits. My grandmother taught me to read the patterns: how a cluster of failed thermal extractors on terrace forty-seven correlates with increased Crawler birth rates three levels down. How the Monks' maintenance schedules, seemingly random, actually follow a complex pattern that repeats every seventeen years, four months, and six days.
+
+I document these patterns in a notation system evolved over generations of Auditors, a hybrid of mathematics and music that captures both the quantity and quality of the Everforge's behaviors. My daily rounds take me along the rim, where I maintain a network of sensors—some mechanical, some crystalline, some that blur the distinction. Each morning, I download their observations into my memory matrices, looking for anomalies in the vast pattern.
+
+The work consumes years. Patterns that seem significant reveal themselves as statistical noise. Noise resolves into patterns of such complexity that capturing them requires inventing new mathematical frameworks. I've developed three such frameworks in my twenty years as Auditor, each one revealing new layers of meaning in the data my predecessors collected.
+
+The Brass Monks tolerate me as a necessary oddity. They bring me food—fungal cultures that grow in the cooler recesses, traded from the world above the rim—and in exchange, I share warnings of impending system failures their inherited knowledge might miss. The Thermovores ignore me entirely; I exist outside their thermal gradients of interest. But the Crawlers... the Crawlers remember.
+
+They visit in the deep night, when the temperature differential between air and ground creates acoustic conditions that let sound travel freely. They arrange themselves in geometric patterns outside my dome, their bodies clicking and whirring in frequencies that correspond to mathematical constants. We've developed a crude communication—I project equations in light against my dome's interior, they respond with their arranged bodies and modulated sounds.
+
+Through this slow dialogue, I've learned that the Crawlers maintain their own records. Not in any medium I recognize, but distributed through their collective consciousness, encoded in the replacement patterns of their mechanical parts. They've been tracking something since before the first Auditor arrived. They're waiting for a specific configuration, a moment when all the patterns align.
+
+My seventy-second predecessor left a note in the margins of her final logs: "The Everforge is not dying. It's counting down."
+
+To what? The Crawlers won't—or can't—say. Their mathematical poetry speaks of phase transitions, of critical thresholds, of exponential curves approaching vertical. The Brass Monks' Voice of the Everforge has been growing louder, they tell me, though still below my range of perception. The Thermovores have begun their deepest migration yet, some disappearing into thermal vents that should be too hot even for them.
+
+And I continue my work, adding my observations to the crystalline matrices, watching the patterns emerge and dissolve like frost on heated metal. I've begun to suspect that we Auditors are not mere observers but participants—that our documentation itself is part of the vast calculation the Everforge performs. Each number I record, each pattern I identify, feeds back into the system through mechanisms I don't understand.
+
+Sometimes I dream of my successor, the seventy-fourth Auditor, standing in this same dome, reading my notes. I wonder what patterns they'll see that I've missed, what new mathematics they'll need to invent. I wonder if they'll be here when the countdown reaches zero, when the purpose of the spiral finally reveals itself.
+
+But mostly, I watch. I listen. I calculate. I add my small part to the growing symphony of data that one day—perhaps soon, perhaps long after the last Auditor has returned to dust—will resolve into meaning. The Everforge dreams its slow dreams, and I, perched on its rim like a tick on the hide of some vast sleeping beast, take careful notes on the rhythm of its breathing.

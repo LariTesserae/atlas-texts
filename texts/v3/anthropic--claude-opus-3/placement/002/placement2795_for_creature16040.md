@@ -1,0 +1,11 @@
+In this world of stone cities atop a high plateau, I would be one of the mountain pack animals - perhaps a sturdy pony or a sure-footed llama. My thick coat would protect me from the biting winds that sweep across the rugged landscape. My split hooves or padded feet, perfectly adapted to the rocky terrain, would carry me up treacherous paths and across icy streams without faltering. 
+
+I would belong to one of the trade caravans that traverse the distances between settlements, my role vital in transporting precious goods - salt, tools, hides, grain, dung for fuel. The mountain routes would be mapped into my blood and bones. In blinding fog or driving snow, my human companions would trust my instincts to guide them true.
+
+Loading me up with packs in the wan morning light, my owner would speak to me in the clipped yet not unkind way of these mountain folk. Over many seasons of working together, an unspoken bond would have formed between us. With a click of the tongue or a whistle, I would kneel patiently as my packs were secured, then rise with solemn purpose to begin the day's trek when signaled.
+
+My life would be one of toil but also deep belonging. The weight on my back, the miles beneath my hooves, the companionship of my caravan - these would form the boundaries and rhythms of my existence. At night I would drowse in stone corrals or beneath cliff overhangs, my breath rising in clouds to join the mountain mists.
+
+Sometimes, pausing at a wind-scoured pass, I would lift my head and gaze out across the vast plateau-city. The towers, terraces and walls would seem to merge with the bones of the earth itself. I would feel myself to be a small but integral part of this starkly beautiful landscape and its intricately interwoven community of lives. 
+
+Here, framed against ancient rock and endless sky, I would find harsh simplicity and indelible purpose. With a toss of my shaggy head, I would pick my way onward, surefooted and resolute - a pack animal of the high stone cities, at home in the thin, snow-brightened air.

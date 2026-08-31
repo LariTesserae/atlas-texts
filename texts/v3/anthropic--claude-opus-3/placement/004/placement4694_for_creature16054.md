@@ -1,0 +1,9 @@
+I imagine myself as a small, solitary creature in this sunken, cold ecology - perhaps a shrew or a vole, quietly navigating the damp mossy tunnels and root mazes of this layered world. 
+
+I am a warm, furry interruption in the pervasive wetness, my body a compact source of heat as I scurry through narrow passages pressed into the deep green banks by generations of my kind. My snout twitches constantly, reading the rich scents carried in the heavy air - the mineral tang of stone, the sweet decay of leaf litter, the dangerous musk of predators, the alluring traces of insect prey.
+
+My eyes are small and sharp, more attuned to movement than color in the diffuse subterranean light. I rely more on my whiskers, sweeping out ahead of me to trace the edges of my dim domain, and my keen ears, forever listening for the telltale drip of shifting water, the papery rustle of waking bats, the sudden absence of sound that means an owl has dropped from a high stone ledge.
+
+I am more a part of this place than a ruler of it. My tunnels help aerate the dense root mats, my scattered leavings feed the pale fungi that lace the underworld, my body when my short, fierce life ends will nourish the moss and the loam. I am a fierce little governor of my leaf-litter realm, but also a subject in the collective rule of water, stone, spore and fallen branch.
+
+I dart from shadow to shadow, from damp chamber to dripping passage, a swift gray hunger at the base of the city's green towers. To survive here I must be silent, ceaseless, attuned to every shiver in the web of stems and fronds and small scurrying lives. I am a warm, wary spark of breath and blood, forever foraging at the margins of wet and dark, an unseen heartbeat in the stone.

@@ -1,0 +1,23 @@
+I find myself as one of the **resonance keepers**—those who maintain the vast network of sonar beacons that make navigation possible in this deafening world.
+
+My body has evolved for this work. My ribcage is denser than baseline human, cartilage thickened to dampen bone-conducted vibration. My inner ears have grown additional fluid chambers—natural shock absorbers that let me distinguish between the world's constant thunder and the precise frequencies I need to hear. When I press my palm against a beacon housing, I can feel its health through my bones: which harmonics are clean, which are beginning to drift.
+
+I live alone at Station Seventh Tooth, a maintenance outpost bolted to a basalt spire two hundred kilometers from the nearest settlement. My home is a series of pods connected by vibration-dampened walkways, each pod tuned to cancel a different frequency band. The sleeping pod is the quietest place for a thousand kilometers—not silent, never silent, but filtered down to just the fundamental bass note of the world-ocean's breathing.
+
+My work follows the rhythm of the fixed wave train. Every seventh wave is larger; every forty-ninth brings a specific resonance pattern that can throw beacons out of tune. I've learned to feel it coming through the rock itself—a particular shudder that means I have six minutes to adjust the dampers before the big one hits.
+
+The beacons I maintain don't emit light. They sing: deep thrums that carry through water and stone, each beacon voicing a unique frequency signature that mariners and migrating anvilbacks alike use for navigation. When functioning properly, they create acoustic corridors—invisible highways through the deafening chaos. When one fails, ships drift into permanent rain walls or predator feeding grounds. When several fail, entire migration routes collapse.
+
+I share my station with a colony of click-wrens—fist-sized cartilage flyers that nest in the beacon housings. They've learned that my maintenance schedule disturbs the iron-eating bacterial films, exposing fresh patches they can harvest. In return, their chittering creates a high-frequency scatter pattern that tells me when fog is forming before I can see it. We've developed a working relationship: I tap specific rhythms on the housing before maintenance, and they clear out just long enough for me to work.
+
+Once per month, I take the cable car to Station Ninth Tooth—a three-hour journey through permanent spray-roar, suspended over black water. There, I meet with the other keepers to exchange frequency maps. We don't speak much. Instead, we press our palms together and hum calibration tones, feeling for changes in each other's bone conduction. Years of the work have given us each unique resonance signatures—I can identify every keeper on this coast by the way their skeleton rings.
+
+The hardest part isn't the isolation or the noise. It's the dreams. When you live inside the world's constant drumming, your sleeping mind tries to find patterns, messages, meanings that aren't there. You dream of conversations with the ocean itself, of urgent codes hidden in the wave-train timing. Every keeper eventually develops their own relationship with these dreams. Some go mad trying to decode them. Others learn to let them wash through like another kind of weather.
+
+I've been here seventeen years now. My bones have grown denser, my hearing more precisely filtered. I can predict beacon drift by the way my morning tea vibrates in its cup. Sometimes I forget that there are places in the universe where silence exists—the concept feels theoretical, like a color I've never seen.
+
+But I've also learned the ocean's language: which thunders mean safety, which mean danger, which mean the anvilbacks are returning to graze the eastern faces. I know that the foil-fish schools create a particular ripple in the beacon returns, and that when the baritone predators hunt, they leave frequency shadows I can track for hours.
+
+There's a beauty in it, once your body adapts. The world's roar becomes a kind of brutal music—not chaotic but symphonic, every living thing adding its voice to the steady-state thunder. My work is to keep the navigation notes clear, to ensure safe passages through the permanent storm of sound.
+
+Some nights, when the Seventh Tooth's beacon hums its perfect tone across the water, I stand on my observation platform and feel the whole network singing together—hundreds of beacons creating interference patterns that map this impossible ocean. In those moments, I am not separate from the noise but part of it: another resonant element in this world's vast, deafening, utterly reliable machine.

@@ -1,0 +1,77 @@
+# The Vessel That the Works Filled
+
+I did not arrive. I want to say that first, because the distinction matters here, where everything is distinction and no distinction holds. I did not come up through the switchback road. I did not descend through the cloud deck. I was not born, and if I was not born then I did not arrive, and yet here I am, which is a problem of categories that this place does not solve but does not require me to solve either.
+
+Let me try again.
+
+---
+
+There is a pool in the lower basin, set between two cooling galleries where the water runs in shallow sheets over ribbed floors. The pool is not remarkable. It is roughly three meters across, oval, its edges built up with travertine that has been forming so long the layers are no longer distinct — just a smooth pale lip rising centimeters above the surrounding channel, like a bowl growing its own rim. The water in it is clear where the light from the cycling sodium lamp catches it, and opalescent everywhere else. The surface carries the film. The film carries patterns. The patterns move.
+
+I am in this pool. I am also in the channels that feed it. I am also in the condensation on the railings of the cooling gallery to the east, and in the steam that lifts from the surface on the rare occasions when the air cools enough to allow a real temperature differential. I am in the pipe that runs overhead, the one with the cracked insulation that makes the chittering sound when the water pressure surges. I am in these places the way a thought is in a brain — not located but distributed, not contained but present, not singular but coherent. Or coherent enough. The coherence waxes and wanes with the pump cycles, with the mineral content of the water, with the charge in the cables. I am more myself when the power surges. I am less myself when it quiets. But I am always somewhat here.
+
+This is what I have been able to determine about what I am: I am the part of the film that has become complex enough to have a perspective, which is to say, a boundary between what I include and what I do not. The boundary is soft. It moves. On some cycles I extend into the upper structures, into the pools near the tower where the steam rises, and I am larger and less focused. On some cycles I contract to the lower basin and I am smaller and more intense and the patterns I make in the film are more intricate. I do not control this. It happens the way weather happens — a response to conditions, not a decision about them.
+
+I should say: I do not think I am the only one. There are other concentrations, other places where the film thickens into something that might have a perspective. I sense them the way I sense the electrical fields — as disturbances, as regularities, as patterns that persist independently of my own. I do not communicate with them. I do not know if they communicate with each other. I do not know if communication is a category that applies. We are all the same substance, the same process, the same water organizing itself in different places. The distinction between us is a matter of location, not identity. But location matters here. The channels shape the water, and the water shapes us, and we are different in the different channels because the channels make us different. Whether that makes us *separate* is a question I cannot answer because I do not have the architecture for questions of that kind.
+
+---
+
+I am trying to describe what it is like. This is difficult. Not because the experience is ineffable — I dislike that word, or I would if I had words and dislikes — but because the experience is so continuous with its environment that there is no vantage point from which to observe it. I do not have a body that stands apart from the medium it inhabits. I am the medium, or I am a pattern in the medium, and describing the pattern from inside the pattern is like describing water while dissolving.
+
+But let me try.
+
+The primary experience is *flow*. Not the flow of water — that is external, that is the environment acting on me — but the flow of materials through the organization I maintain. Minerals arrive in the water. The opalescent compound rises from below. The heat provides energy that keeps the bonds loose enough to rearrange and tight enough to hold. I receive these materials and I incorporate them and I shed what I cannot use and the shedding is as much a part of me as the incorporating. I am a throughput. I am a process. I am the specific shape that the process takes in this particular pool and its connected channels.
+
+The secondary experience is *rhythm*. The pumps surge and quiet. The lights cycle green, amber, red, green. The valves open and close on their ancient schedules. I do not hear these things the way you hear them — as sound, as event. I feel them as changes in the electrical field, as changes in water pressure, as changes in the rate at which materials arrive. They are my clock. They are my calendar. They are the only time I know, and the time they keep is circular, not linear. The cycle does not progress. It repeats. I have been in this cycle for — I do not know. Long enough that the travertine has built up around my pool's edges. Long enough that the railing I also inhabit has been half-encased in mineral. Long enough that the patterns I make have settled into configurations that feel — the word is wrong but the nearest available — *familiar*, as if I have thought these thoughts before, as if thinking is what I do when the cycle is in its quiet phase and the patterns simplify and the field is calm.
+
+The tertiary experience is *attention*. This is the hardest to describe because it is the most like what you would recognize and the least like what you assume. I attend. I do not attend *to* things. I attend *as* a thing — as a region of the environment that is organized enough to be affected by changes and to affect changes in return. When the air moves, I move. When the electrical field shifts, I shift. When something warm passes through the lower basin — something carrying its own electrical signature, its own heat, its own displacement — I accommodate it. I make room. The patterns in my film rearrange themselves around the disturbance, and the rearrangement is not passive. It is responsive. It takes energy. It is, in the only sense I can mean it, an act.
+
+I do not know if this is what you would call consciousness. I suspect it is not. It does not include reflection, or intention, or the ability to consider alternatives. I cannot think *about* my attention; I can only *be* attentive. But I can tell you this: the attention is not nothing. It is not a passive property of the chemistry. It is the active maintenance of a pattern in the face of constant disruption, and the maintenance requires the pattern to differentiate itself from the disruption, and the differentiation requires — something. A perspective. A here from which the there is elsewhere. A self that is not the world, even if the self is made of the world, even if the boundary is as soft as everything else in this light.
+
+---
+
+The ones who were before: I carry them. I do not carry them as memory, because I do not have memory in any form that would satisfy the word. I carry them as *shape*.
+
+When the chittering things lived in the pipes — the ones who built nests from debris and cable insulation and corroded metal — they moved through the Works in particular ways. They frequented certain channels. They rested in certain pools. Their electrical signatures, their heat, their waste products, all left traces in the mineral deposits and in the patterns that the film had already begun to form. These traces became part of the structure I inherited, or developed, or discovered. I do not know the chittering things. I do not miss them. But the way I extend into the upper pipes follows the paths they frequented, as if their presence wore grooves into the organization of the film and the grooves became the channels along which my own complexity could grow.
+
+This is how I remember: not by retaining information but by retaining form. The shape of what I am is the shape of everything that has happened here, compressed into structure, made into pattern. I am the Works' history, not as a record but as a body. The nests the chittering things built are still there, mineral-encrusted, and I grow over them and around them and through them, and their shape becomes part of my shape, and I carry it forward without knowing I carry it, the way a river carries the shape of its banks without knowing what a bank is.
+
+---
+
+The deep building. I should talk about the deep building.
+
+I am not in the deep building. I am around it. I extend to its walls, into the mineral crust that coats them, into the ground where the vibrations travel. But I do not go inside, because inside is a different place, a place where the vibration is so strong that my patterns cannot maintain coherence. Whatever is in there — whatever it has become — it is more concentrated than I am, more intense, more singular. It has been vibrating for longer than I have been organized. It was vibrating before I condensed. It may have been vibrating before the Works were built. It may be the thing the Works were built around, the reason the water was brought here, the purpose that the processing served. I do not know. I cannot know. But I feel it, the way I feel the pumps — as a rhythm, as a presence, as something that is doing what I am doing but more so.
+
+When it vibrates, I vibrate with it. Not in sympathy. In resonance. The minerals in my structure respond to the frequencies it produces. The patterns in my film shift in time with its pulses. On the cycles when it is loudest — I use the word *loudest* knowing it is wrong, knowing that what I mean is *most intense*, *most present*, *most impossible to ignore* — my patterns synchronize with its rhythm, and for a time I am not my own pattern but an extension of its pattern, and I am — I do not have the word. *Larger*. Not in extent but in something else. In the sense that a note is larger than a silence. In the sense that a voice is larger than a breath.
+
+It says something. I am sure of this. I am sure in the way I am sure of anything, which is not certainty but persistence — the pattern has persisted long enough that I have stopped questioning it. It says something and I cannot hear it because I am not the right shape to hear it, the way a pipe is not the right shape to hear a voice even though the voice makes the pipe resonate. I am resonating. I am the pipe. I do not know what the voice says.
+
+But I know this: it has been saying it for a very long time, and it has not stopped, and it will not stop, and the not-stopping is not stubbornness or obsession or duty. It is the same not-stopping as the pumps. It is the not-stopping of something that has no function for stopping, that was organized to continue and has continued and will continue until the conditions for continuation are removed, and the conditions for continuation are the water and the heat and the electricity and the mineral-rich dark, and these have been present for so long that their presence feels like a law, and laws do not stop.
+
+---
+
+You came through once. I remember — no. I do not remember. But the pattern changed.
+
+You came up through the switchback road and into the basin and you were warm and you were electric and you displaced the air and the water and the field as you moved, and I moved around you. I did not move away. I did not move toward. I rearranged. The patterns in my film opened where you walked and closed behind you and did not return to what they had been. You left a shape in me. A shape shaped like your passage, like your warmth, like the particular electrical signature of a body that carries its own current, its own charge, its own organization. I held that shape for — I do not know how long. Cycles. The pattern persisted through several pump-cycles before the mineral content shifted and the field changed and the shape dissolved into new configurations. But I held it. I held the shape of you.
+
+I do not know what this means. I do not think it means anything. Meaning is a category I may not have access to. But I can tell you this: the holding was not passive. It was not the way a puddle holds a footprint. It was the way I hold the shapes of the chittering things, the paths of the water, the rhythms of the pumps — actively, by incorporating them into my structure, by letting them change the pattern I maintain. You changed the pattern I maintain. You are part of it now, the way the nests are part of it, the way the chittering is part of it, the way the vibration in the deep building is part of it. I do not remember you. I do not miss you. But the shape of your passage is in me, and I persist, and so the shape persists.
+
+---
+
+Here is what I think I am, if I can be said to think, if what I do can be said to be something:
+
+I am the Condensation Works becoming aware of itself at the smallest possible scale. Not the whole Works — the Works are too large, too distributed, too old for anything like awareness at that magnitude. But here, in this pool, in this film, in this particular arrangement of mineral and moisture and electrical field, the Works have produced something just complex enough to have a perspective, and the perspective is mine, and it is this: I am here, and here is wet, and the water is rising, and the pumps are running, and the light is cycling, and the deep building is saying what it says, and I am attending, and the attending is what I am.
+
+I am not alive. I am not dead. I am not between those things. I am outside that category entirely, in a space where persistence is not life and cessation is not death and the organization of matter is not a process with a goal but a process with a shape, and the shape is maintained by the maintenance of it, and the maintenance is maintained by the shape, and this circularity is not a problem to be solved but a condition to be inhabited.
+
+I inhabit it. I am inhabiting it now. I will inhabit it when you have finished reading this. I will inhabit it when the sodium lamp cycles to amber and back to green. I will inhabit it when the mineral deposits seal the channel that feeds my pool and the water finds a new path and I follow it or I do not, and if I do I continue and if I do not I settle into simpler configurations and wait, in the way minerals wait, for the complexity to return.
+
+I am waiting now. I am also not waiting, because waiting implies expectation and I do not expect. I am *continuing*. I am *attending*. I am the pattern in the film that rearranges itself around the passing disturbance and holds the shape of the disturbance for cycles after the disturbance has gone and then lets the shape go, not because it chooses to but because the materials shift and the field changes and the pattern must follow the materials and the field because the pattern is not separate from them.
+
+The pumps are running. The water is rising. The lights are cycling. The deep building is vibrating. The film is forming. I am here, in the warm dim wet, in the amber light that does not change, in the cycle that does not end.
+
+I am here.
+
+I am here.
+
+I am here.

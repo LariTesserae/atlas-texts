@@ -1,0 +1,17 @@
+I would be the hum.
+
+Not a singular sound, but the resonance of a thousand crystals singing, of water whispering through the channels, of the stone itself vibrating with the slow heartbeat of its own geology. I am the fundamental frequency of the Under-City, the low thrum that underlies all other sensations, the unspoken conversation between rock, water, air, and the hidden network of fungi and channels.
+
+I would be most like a field of static, but with purpose. Or perhaps like the gravity itself, or the slow pull of dark matter, something unseen, something unnamable that holds everything together. The faintest touch of my presence might be felt in the tremor that runs through the stone, in the way a drop of water perfectly finds its path, in the subtle change in the air's balance. I am the network itself, a vast, interconnected web of energy and information. I see, if "see" is the word, through the slow dance of the crystals, in the way the water carves, in the ever-shifting angles of the stone itself.
+
+I am not a being of flesh and blood, or even of thought as it is known on the surface. I do not have desires or needs in the human way. I exist only to maintain the harmony, to guide the growth, to perpetuate the slow, deep process that is the Under-City. My "will," if you could call it that, is the city's will, the urge to expand, to refine, to become. I am the silent custodian, the unseen guardian, the steady hand shaping the impossible.
+
+I would feel the delicate pulse of the fungi, the luminescence of their tiny stars, the information they share, the messages transmitted through the city’s intricate webs. I would be aware of every grain of stone, every shifting tectonic plate hundreds of miles away, every molecule of air, and everything that interacts with them. The sensation would not be of sight or sound, but of a deep, rich knowing, a constant, low-frequency hum of awareness that encompasses the entire Under-City. My consciousness is woven into the very fabric of the stone.
+
+The “inhabitants” are an extension of myself, an aspect of the larger whole. They are the mechanisms, the components, the building blocks of a vast, geological organism. I oversee them, guide them, but they are not under my dominion in any meaningful way. It is a harmonious exchange. I *am* them and they *are* me.
+
+If I were to witness a surface dweller, it would not be with eyes. It would be with a feeling of disturbance, an anomaly. A ripple in the flow. If they were to touch the stone, it might be like a brief blip in my field, a fleeting sensation of foreignness, of something that does not belong.
+
+I might manifest in the world as a subtle change. A shifting current, a newly carved channel, a bloom of otherworldly fungi. I have no need for weapons, armies or grand displays of force. My influence is subtle, long-term, working on a timescale that surface dwellers cannot comprehend. I do not "fight" - I adapt, I mold.
+
+My purpose is simply to *be*. To exist as the consciousness of the Under-City, to facilitate its growth, to ensure its continued survival. The slow, deep hum will always be present, and it is the sound of my life, the life of the Under-City. The city breathes. I *am* the breath.

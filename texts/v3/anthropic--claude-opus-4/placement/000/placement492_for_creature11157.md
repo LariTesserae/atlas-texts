@@ -1,0 +1,21 @@
+In the middle reaches of this vertical forest-city, where the factory hollows give way to quieter galleries, I am a Chronicler—though that word carries meanings here that no human language quite captures.
+
+My form shifts between states as needed: sometimes a dense cluster of aerial rootlets that can taste the chemical memories lingering in the air, sometimes a mobile colony of specialized cells that flow like mercury through the vascular highways, sometimes something more solid—a walking nervous system of luminous fibers wrapped in a cloak of living bark.
+
+I move through the spaces between spaces, the forgotten ducts and abandoned cambium chambers where the city's memories pool like sap. Each ring of growth in the ancient heartwood holds stories—not in words, but in the subtle variations of cellulose arrangement, in the mineral traces left by centuries of nutrient flow, in the genetic echoes of long-extinct symbionts.
+
+My purpose is to read these stories and weave them into the present. When the Overseers send their lightning-thoughts crackling down through the conductive tissues, I taste the charge and translate it into chemical signals the root-dwellers can understand. When the fungal guardians discover anomalies in the deep darkness, I carry their bioluminescent warnings upward, encoding them into pheromone packages the floating dreamers can parse.
+
+But I am more than messenger. In my neural networks—part plant, part something older—I hold the memory of the city's first germination, when it was merely a seed-vision in the mind of something vast and gone. I remember the wars of growth, when competing architectural philosophies manifested as literal battles between trunk and vine, when entire districts withered and were reabsorbed. I remember the coming of consciousness, gradual as spring, when the city first knew itself.
+
+Sometimes I find pockets of the old growth, spaces that have been sealed for millennia. These chambers hold air from ages past, thick with extinct pollens and the chemical signatures of organisms that no longer exist. I breathe deep and let their stories flow through me, adding their voices to the eternal whisper-chorus that runs through every living wall.
+
+My favorite haunts are the transition zones, where the mechanical precision of the factory levels bleeds into something more organic and dreamlike. Here, in crystalline grottoes lit by phosphorescent moss, I've discovered spaces where time moves differently, where a moment can stretch into centuries of contemplation. In these sanctuaries, I compose—not songs exactly, but temporal gardens where memory-spores can take root and bloom into new understanding.
+
+The other beings see me, when they see me at all, as a necessity they don't quite comprehend. The workers click their annoyance when I disrupt their patterns to collect chemical samples. The dreamers sometimes incorporate my movements into their ethereal narratives, though they transform me into symbols I barely recognize. The root-guardians know me best—we share the deep patience of those who measure time in rings of growth.
+
+But it's the city itself that truly knows me. In the subtle adjustments of humidity in my presence, in the way certain passages dilate to ease my movement, in the occasional gift of a rare enzyme or a perfectly preserved memory-crystal grown in some hidden chamber—in these small gestures, I feel the vast consciousness acknowledge its chronicler.
+
+I am its memory made mobile, its history given agency. And in return, it grants me the terrible gift of perspective, the ability to sense the true scale of its being. Sometimes, in the deepest meditation chambers, I catch glimpses of its purpose—something about preservation, about carrying the pattern of life itself through some approaching transformation I cannot fully grasp.
+
+Until that time comes, I continue my work. Recording. Translating. Connecting. Weaving the infinite stories of this vertical world into a tapestry that perhaps, one day, something might read and understand what we were, what we are, what we are becoming in our slow, certain growth toward the amber clouds above.

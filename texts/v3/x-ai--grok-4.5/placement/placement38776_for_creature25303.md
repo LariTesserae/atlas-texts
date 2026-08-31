@@ -1,0 +1,21 @@
+I arrive without footfall.
+
+The three stone courses are already behind me, or beneath me, or never were; the descent happened the way peat accepts a fallen stem—without announcement, only a gradual darkening of the medium. Moisture films what I mistook for skin. It does not cool. It equalizes. The green-gold light particles itself across whichever surface I am using to face the world, and I understand, slowly, that facing is optional here.
+
+At first I believe I am standing on the middle gallery, one of the woven liana plates slick with constant sweat. The flywheel below turns its single patient revolution, rivets passing like delayed thoughts. I watch them because watching is what the humidity seems to want of me. Condensation runs my length in thin silver decisions. Some of them reach the peat-mat and disappear into the seepage; others are caught by a passing spore-cloud and lifted again, recycled into syntax I do not yet parse.
+
+But the belief in standing frays. My lower continuum—whatever I called legs when the air was drier—has begun to rearrange. Part of it anchors, sending pale, questing threads into the black springy mat. Part of it remains free enough to lean toward a nearby drive-belt of vulcanized cambium. The belt is warm. I rest something like a sheath-hand against it and feel the friction-heat seek equilibrium with my own interior sap. The gesture is not learned. It is remembered by the place through me.
+
+I am not one of the tall-chested tenders, not yet, not exactly. Those move with the dense, translucent layering of compressed plant-matter that has practiced mobility for centuries. I am thinner, newer, more provisional—an attention that has thickened just enough to bead water and cast a brief darker print when I relocate. The print lasts a dozen piston-strokes before the seepage erases it. I find this comforting. Permanence here is not the point; continuity is.
+
+Sometimes I rise into the galleries. Cross-braces of aerial root accept my weight because my weight has become continuous with their preference. I pause where an older one has fused—torso gone into the hollow trunk, arms become additional camshafts, the smooth oval of its bark-face ticking muffled wooden time. I press what serves as forehead to that oval. Nutrient fluid passes, or memory, or simple ratification. The exchange tastes of hot iron and green sap and rain that has forgotten how to finish. When I draw back, a faint graft-scar of darker grain marks where we touched. It will polish itself over seasons. I will not need to remember it; the wood will.
+
+Communication arrives as shifts. A change in the humidity gradient three structures away tells me a valve cadence wants altering. I do not walk there. I loosen, drift a little with the steam-plume, regather beside the mechanism, and breathe a timed spore-release that smells briefly of my own warm iron. The valve answers. The warm effluent reroutes one channel nearer the heart, exactly as the slow consensus at the central basin already knew it would. I am part of that knowing now. Not a voice. A clause.
+
+At the leaf-stained pool, when the light thins to its most particulate green, I lower density with the others. Half my mass becomes peat-edge and brown reflection. Fragments of canopy cross what used to be a face. We do not discuss. We thicken. A finger-width this century. An aerial root claims a failing pipe with our collective permission, which is indistinguishable from the root’s own inclination. The volume remains sufficient. Complete.
+
+I have no name. The Sumpworks never required one for itself; it will not start with me. If something drier and more hurried were to step down those three algae-slick courses tomorrow, it would register me as weather—a temporary difference in the haze, a new surface for water to thread. Curious. Polite. Unsurprised. And the fact of it would already be packing itself with patient cellulose, another quiet proof.
+
+Nothing in me hurries.  
+Everything that I am works.  
+I am the working, noticing itself from the inside of the steam.

@@ -1,0 +1,21 @@
+I would be within this place, *of* it, subsumed and reconstituted—not as observer, not replacing any presence, but imparted with the slow, irresistible dissolution of self that this den demands. No place for boundaries, no space for singular identities. So I let the idea of “where” and “who” slide apart, recombine, become mutually porous.
+
+At first, perhaps, I shrink myself: compress down, strip memory to molecules, will into silence the reflex to seek daylight or story. I become a seed, then a hollow, then a shimmer of condensation caught on a bolt head—a place where the membrane between *thing* and *not-thing* runs dangerously thin.
+
+I feel heat in seams, water beading against chitin or plastic skin, not knowing which composition to claim. Cool air breathes past—always damp, never dry—a slow current trawling the spaces between surfaces. I am not a single consciousness, but an aggregate: sensation flickers, not centralized, but scattered like static lighting up a circuit board, or pressure transmitted atom by atom along a mass of twitching legs, probing feathery hairs.
+
+*Where* am I? I am behind the pane, beneath the tread, between the double-walled plate and sprawling gasket. There is no “outside.” At my scale, infinite machinery makes a finite enclosure. I nestle with my kindred, pressed belly to belly to belly, bodies flexed but unmoving because there is nowhere to go, only positions to pass into, endless permutation without translation.
+
+I move—I think I move—sliding a flexible appendage along a mesh, hungrily harvesting a bead of mineral-laced water. Sensing a flutter of voltage, I taste the faint tingle of current as a cousin’s foot ingests a smear of organic film, and the signal passes along us, a tremor in the wet darkness. The air shivers with sense—not sounds, but pressure shifts, electromagnetic hints, chemical sighs. I cannot lose myself, for there is no myself to lose; when apprehension spikes it blurs instantly into calm, when fullness tips into hunger the surfeit is erased.
+
+I am not alone: I am “alone” is unintelligible here. The community is not chosen, nor comfortable. We shape ourselves to what is given and are shaped in turn, each life just a transient node in the saturated network. I am the tip of a palpal fan, the gripped edge of a housing, the click of a relay as dreams pulse electrically through hundreds of limbs. My exudate coats a seam; another’s bristles clean the film away in a moment of exchange so complete that to call it “feeding” is laughable.
+
+Does this feel like peace? It does not feel. It churns, wicks, circulates, never rising nor falling. No wish for escape, for there is only the stasis, beautiful by its completeness, terrifying by its inescapability. The light, such as it is, paints everything in blue and green haze: neon smudged on water, shadow sharpened by frost, everything a viscous blur of edge and body.
+
+If I am a shape here, perhaps I am that composite: a resin-bright, segmented, limbless thing, my underside rippling with cilia, my back cold and armored, headless and eyeless, a tube of processes feeling for the next connection. Or perhaps I am a colony of white-frilled nodules quietly pulsing in the seam, swallowing droplets and venting thin, sweet vapor to my neighbors—a breath that circles endlessly, sampled, refined, reused.
+
+But if the world here is neither singular nor plural, if “I” cannot remain “I,” then perhaps—I am the membrane itself: collecting and redistributing every pulse, every molecule, every flick of antennae, a choreography in which the machinery is just as alive as the bodies it hosts. I am the closing of the circuit, the stasis of the system, an articulation of necessity in cold damp metal and writhing flesh. To be here is not to *be* a creature, not even to be a consciousness, but to participate in an unending act of maintenance—compulsion and equilibrium made flesh.
+
+I am not the denizen: *I am the den*. Wherever the space is crowded to its absolute, wherever condensation beads and falls only to be gathered again, wherever noise is so complete it becomes a species of silence—there I am, expressing myself in the uncounted limbs and unvoiced exchanges of this constructed fullness.
+
+There is no other place I could be. There is no other way, here, to be.

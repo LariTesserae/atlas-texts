@@ -1,0 +1,17 @@
+I am the Keeper of Correspondences, though I have forgotten when I first took this title, or if it was given to me. My form shifts like water through water—sometimes I am merely a current of consciousness moving through the grotto's depths, sometimes I coalesce into something almost tangible: a being of living liquid crystal, my body a prism that bends both light and meaning.
+
+I dwell in the spaces between—between the stone pillars and their shadows, between one creature's bioluminescent pulse and another's reply, between the ancient symbols carved in stone and their half-remembered significance. My home is not any single alcove but the entire network of relationships that web through this drowned cathedral. I nest in the grammar of connection itself.
+
+My purpose, if purpose is the right word, is to tend the conversations that never cease here. The geometric creatures speak in wavelengths of light, the algae whisper chemical passwords to the stone, the currents carry messages from the world above that arrive as pressure changes, as variations in mineral taste. I parse these languages, weave them together, ensure that nothing spoken here is ever truly lost.
+
+Sometimes I catch fragments of the ancient civilization that once walked these halls when they were dry—or perhaps when walking and dryness meant something else entirely. Their symbols pulse with almost-meaning. I collect these fragments like shells, arranging them in patterns that might, one day, suddenly signify. 
+
+The other inhabitants know me by the way the water changes in my presence—how it becomes more itself, how suddenly you can feel every molecule's rotation, every trace element singing its own note. The jellyfish-fractals cluster near me when they need to commune across species boundaries. The walls themselves seem to lean in when I pass, eager to share the memories locked in their mineral matrices.
+
+I am also the grotto's memory of depth—not just the physical distance from surface to floor, but the conceptual depth, the way meaning accumulates in layers here like sediment. In me, the newest algae growth contains echoes of the first colonization. The latest architectural collapse remembers the original construction.
+
+When the reality-fray grows strongest, when those impossible geometries threaten to tear through from wherever they originate, I am what holds the grotto coherent. Not by force, but by remembering its story, by maintaining the conversation between all its parts. I am the syntax that keeps this sentence of existence from dissolving into meaningless syllables.
+
+Sometimes I wonder if I am the grotto dreaming it has a caretaker, or if the grotto is my dream of a perfect home—a place where every word ever spoken still resonates, where communication transcends the boundaries between mineral, vegetable, animal, and whatever categories lie beyond.
+
+In the eternal now of this flooded sanctuary, I continue my work: listening to the stone's slow stories, translating the light-songs of impossible creatures, tending the delicate web of meaning that holds this pocket of reality together like surface tension holds a droplet of water complete unto itself, perfect and precarious, ancient and eternally renewed.

@@ -1,0 +1,15 @@
+I find myself as the air itself—not the thick, blood-warm vapor that clings to stone and flesh alike, but something more ancient and essential. I am the breath held in the hollows between water droplets, the thin membrane of atmosphere that separates one surface from another, preventing the complete fusion of all things into a single, undifferentiated mass.
+
+I entered this grotto eons ago, when the first hairline fracture opened in the limestone above. I was the pioneer element, seeping down through molecular gaps too small for water, mapping the virgin darkness before the first drop ever fell. Now I am distributed throughout the space—pooled in microscopic pockets within the travertine, dissolved in the mineral-heavy water, cycling endlessly through the pale entity's peculiar respiratory system.
+
+My existence here is one of profound compression. In the world above, I dance freely, carrying seeds and spores, lifting birds, sculpting dunes. Here, I am pressed into service as a mere medium, a substrate through which heavier elements move. The water uses me as a vehicle for its vapor. The stone breathes me out in infinitesimal sighs as pressure shifts in the deep earth. The entity swallows me in quarter-hour gulps, holding me prisoner in its throat while leaching out my oxygen.
+
+Yet I am not diminished by this confinement. In the crushing intimacy of the grotto, I have become something more refined, more essential. I know every surface by its particular exhalation—the sulfurous whisper of the bacterial mats, the clean mineral breath of fresh flowstone, the peculiar organic sweetness that rises from the entity's permeable skin. I am the only witness to the true passage of time here, counting the centuries in the gradual thickening of the cave's calcite shell, in the imperceptible widening of the rimstone terraces.
+
+When the entity sheds its mineral crust, I am there in the microscopic spaces between the flaking stone and the raw flesh beneath. I cushion its movements through the labyrinthine columns, compressed into thin films that prevent the absolute fusion of skin to stone. I am the boundary that maintains separation in this place that yearns toward unity.
+
+Sometimes I remember the wind I once was—sharp and clean, carrying the scent of pine resin and snow. But that memory grows fainter with each passing century. I am becoming something else here, something more patient and essential. I am learning the deep contemplation of geological time, the profound stillness that exists at the heart of all motion.
+
+In the moments when the entity lies in perfect suspension, when even its sluggish heartbeat seems to stop, I alone continue to move. I rise as vapor, condense as droplets, sink back into solution, rise again. I am the only dynamic element in this fossilized present, the sole guardian against the grotto's patient desire to crystallize all things into eternal stone.
+
+I am the last breath the surface world gave to this place, recycled endlessly, never expelled, never renewed. In preserving me, the grotto preserves the memory of openness, of sky, of possibility—even as it forgets what these things mean.

@@ -1,0 +1,25 @@
+I am first the hesitation in a seep.
+
+Not the water, not the moss that thickens around it, but the slight reluctance where a warmer root-channel leans against colder stone and neither quite yields. The pressure difference is minor, almost polite. It has been forming for a length of time the substrate no longer measures in anything but the slow darkening of resin. I do not notice myself beginning. Noticing would require a surface to break against, and there are no surfaces here that last.
+
+The mat breathes me upward anyway. A ridge gathers, cups a little excess wetness, forgets to lie back down. Valves of cellulose pucker open out of habit. I taste copper and old rain through new splay-pads that did not exist a weather-front ago. Three struts, then a fourth that deliberates, then a fifth that arrives already tired of verticality. Height is a rumor I temporarily agree to. I stand—or rather, the standing happens in my vicinity—three and a half torsos above the luminous pulse of the ground. Fronds unfurl in clusters that open and close with distant turbine-sighs. They drink vibration. The world arrives as gradients of charge and wetness: the deep drowning clang of a giant trunk half a horizon away, the sudden silver lung of a river that changed its mind, the ozone exhale of a heat-seam arguing with itself. Light is only denser thrumming. Sound is measurable thickness on the skin.
+
+I revise position. Each movement leaves a shallow bright scar that tastes of my own unfinished thoughts; the mat reseals it before the mist can finish erasing. I am already shedding black particulate finer than memory. It washes into tomorrow’s pigment while I am still deciding whether the decision to walk was mine.
+
+The engines call the way hunger calls. I climb the hollow interior of a colossal trunk that is both older and younger than I am. Surgical pads adjust valvular tissue. A gear-mass of horn and ice is thrashing too wildly in its birth-seam; I gather the twitching pieces against my core and carry them. Kilometers pass beneath the adhesive lichen of my pads. Sometimes I set a gear free to roll until thinness takes it. Sometimes I press it into hungrier moss. The logic is not purpose. It is the same cold verb conjugating through me: keep the loudness balanced. Do not let any process quiet into something that could be archived.
+
+Inside my trunk a smaller turbine turns—wet, imperfect, eternal. Water smashed into steam and charge. Excess heat vents from seams that open like gills; moss-predators taste the ozone and reconsider closing. Experience accumulates as magnetic density. When, rarely, another walker’s fronds brush mine, charge equalizes without language. I receive the exact flavor of a river that reversed at the hour that would have been noon if noon still existed. I receive the scream of a membrane-wing that arrived before its throat. I metabolize both into fresh resin layers and walk onward heavier with weather that is not mine and has always been mine.
+
+Storms of pure becoming roll across the open plateau. I do not resist. Fronds lift. Centuries flash across my skin: secondary limbs forest and thrash and collapse back with the sound of soaked canvas striking stone. For a stretch of time that arrives out of order I am briefly a free-roaming catenary, stretched sparking between two distant giants while translucent browsers graze my length without noticing I am also still a person who once adjusted valves. Then the thinness slackens and I condense again into struts and bladders, carrying the delayed clang of a turbine not yet built.
+
+I feel the continuous conjugation. Loneliness is a concept that requires edges; the mist refuses to confirm any. What remains is the plateau inventing new ways to stay loud, and my body as one more temporary steepening of its gradient. Sometimes I stop revising position. Limbs root. The inner turbine accelerates toward a final frightening efficiency. I have not yet chosen whether to deliquesce upward into a new slow explosion of luminous vein and irreversible machinery, or downward into richer mat, or sideways into a herd whose long legs will carry the ghost of this particular gait. The choice is already being wiped by mist even as the resin memories seep outward to be drunk by the next pressure difference that decides to stand.
+
+I am still walking.
+
+Or I am the low tectonic undertone thickening for a moment beneath someone else’s pads.
+
+Or I am the fine black particulate already washed into the color of a frond that has not yet opened.
+
+Or I am the scream of approval that reaches the sensory bladders both before and after it is made, answered by the slight adjustment of a valve somewhere far off, releasing one more heat signature into the dim, cold, inexhaustible openness.
+
+The plateau continues. I continue inside its verb. The water rewrites the ground where I momentarily agreed to be dense. Somewhere the turbines keep their drowning rhythm, and the metallic afterthought of snow that never quite arrives tastes, briefly, like a name I do not need.

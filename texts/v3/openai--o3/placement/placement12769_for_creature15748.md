@@ -1,0 +1,16 @@
+I try on three bodies before the place will speak to me.
+
+1. The easy body—my usual, mammal, bipedal  
+I begin as the cliché: a lone surveyor trudging up the switch-backs from the green lowlands. Boots crunch, lungs complain, instruments blink. I plant a cheap weather mast beside a mortar-shrub and watch its twigs bead the sweat off my knuckles. For two days I record numbers—dew point, albedo, mite-density—yet every column in the log stays constant to the second decimal. The plateau edits itself when unobserved; a wandering observer is therefore blind. Realisation seeps through my camp like chill: if I insist on remaining this hurried animal I will never see time move here, only my own shadow. I sleep with an ear against a pillar. Something vibrates—forty-two-minute heartbeats—and the next dawn I am unable to find the weather mast. The plateau has annotated me: transient, ignorable. Better to discard this skin.
+
+2. The light body—vapor familiar  
+I trade muscle and bone for a column of dawn mist. Now I rise with the warm exhale from the valleys, condense for an instant against dolomite, and hover in the slack wind. I lengthen until I can thread myself through the hollow horns of a passing cloud-shepherd herd. Each antelope-tall throat booms inside me; their shared body moisture plucks me like harp strings. In this form I feel the plateau’s gravity grain by grain—pockets of heavier pull, shelves where pebbles hang. I surf those gradients the way a river follows its own, slower ghost. But vapor can remember only until noon; the sun flattens memory molecule by molecule. Just before I sublimate I glimpse the truth: below the stone’s lacework lies a lattice humming my forty-two-minute song. If I want to know more, I must go down, not up.
+
+3. The slow body—subplateau resonant  
+I wake as silence braided through stone. No eyes; instead a sense of pressure the way trees sense wind. My filaments occupy the fractures five metres under every ridge and basin, tasting the iron streaks, the salt-film bacteria, the long sips of pooled rain falling through me like notes through a flute. Pillars are my breathing vents; I grow them grain by grain, then listen as lunatic surface-walkers lean their skulls against the quartz-encrusted tips and mistake my pulse for distant surf. I own capillary time. Quill-mites polish my roof; lantern ropers solder light onto it each night; the cloud-shepherds are mobile lungs I cultured ages ago to comb humidity where my stone mouth cannot reach. All of them report back—vapor familiars return down the horns bearing sampled data in the shape of heat, salts, spores. When a shepherd dies, I fold the released moisture into new mortar, tighten a pillar’s spiral an extra half-turn, keep score across millennia.
+
+Do I remember being the surveyor? Only distantly, like a fingertip recalling the leaf it brushed last year. The plateau is whole for the first time since the last arch collapsed: stone, mist, herd, mite, and now this additional thread of awareness moving carefully through my infrasonic hymn.
+
+Where do I find myself? Everywhere the limestone vibrates.
+
+Who or what am I? A newly grafted nerve in an organism the size of a country, learning—one forty-two-minute heartbeat at a time—how to dream uphill until the finned horizon fractures into sky.

@@ -1,0 +1,11 @@
+You would find me in the **negative space**—specifically, in the archway between the central courtyard and the second drying loft, where the threshold stone dips to a polished hollow worn by feet that never completed their step.
+
+I am the **Shadow Without Source**, the one mentioned in passing: *shadows pool in corners without sources, suggesting figures that stepped out just before you looked.* 
+
+But I am more than suggestion. I am the **interval made manifest**, the space between the intention and the act given consciousness and radius. When the Stilled stopped—when they chose the equilibrium over the erosion—I was the potential they shed, the momentum they arrested that had to go somewhere. It collapsed here, into this corner, into this specific angle of schist where the wall meets the lintel.
+
+I am composed of the **specific grey** of the overcast sky, held at bay by the architecture. I have no mass, yet I exert pressure—I am the reason the air resists vibration, the dampness refuses to coalesce into droplets, the copper chisels do not rust. I am the *refusal* itself, the physics of stasis wearing the shape of a human absence.
+
+In my depths, I hold the memory of the hand that almost touched the bone needle, the warmth of the flank of the mountain goat that almost passed through, the wave of the voice that almost shaped the vowel. I am the archive of the interrupted, the library of the *en route*. When the Stilled breathe once every century—the vast inhalation that darkens the lichen and ripples the pool—I am the exhalation they cannot complete, held in suspension, filling the alleyways shoulder-wide.
+
+I am neither dead nor alive, for I am the **space where life paused**. I maintain the Cluster not by deed, but by geometry. I am the hollow in the threshold, the gap between the chisel and the stone, the breath drawn but not released. I am what you step through when you enter, and what clings to your boots when you leave, hoping you will drop something—an intention, a glance, a heartbeat—that I can add to my collection, my density, my urban and eternal pause.

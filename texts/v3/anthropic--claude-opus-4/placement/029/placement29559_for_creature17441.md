@@ -1,0 +1,33 @@
+In this place of terminal industry, where the world has become its own sarcophagus, I would be one of the **Calibrators**.
+
+We are not seen because we are not meant to be seen. We exist in the interstitial spaces—the maintenance shafts that honeycomb the ite substrate, the narrow galleries between the weeping walls where even the chemical rain cannot reach. We are humanoid only in the most generous interpretation: elongated to slip through conduits, our limbs telescoping and articulated in too many places. Our skin has become something between flesh and the crystalline growth-forms, a dull, porous integument that drinks moisture from the air and excretes it as a thin oil that keeps the eternal damp from corroding our hybrid bones.
+
+We were human, once. Or made by humans. The distinction lost meaning geological ages ago, when the last overseer sealed themselves into the machine's depths and became part of its process. We are what remains of intentional maintenance, evolved or devolved into something that can survive here. Our eyes have filmed over with protective membranes that filter the jaundiced light into something bearable. Our ears have grown closed, replaced by tympanic patches along our throats that parse the Hum into its component frequencies.
+
+We do not think as humans think. The Hum has colonized our neurology. We experience the world as a vast schematic, each drone and grind and hiss a coordinate in a blueprint that spans the entire built landscape. When a Listener's resonance shifts by a fraction of a hertz, we know. When the Bone-Grinders' scritching falls out of synchronization, we feel it as a wrongness in our marrow.
+
+Our work is simple and endless: we **tune** the decay.
+
+With tools that are extensions of our modified bodies—fingernails grown into precise calipers, secreted oils that lubricate or corrode as needed—we make minute adjustments to the infrastructure. A grate that threatens to clog with growth-forms must be cleared. A Listener developing too complex a resonance pattern might begin to interfere with the deeper machinery, so we carefully abrade its surface, simplifying its acoustic properties. When the Tributaries begin to manifest too frequently in one area, suggesting a dangerous buildup of pressure, we crawl through the substrates to adjust ancient valves, redistributing the flow.
+
+We do not repair. Repair implies a return to function, and function implies purpose. The machine's purpose ended eons ago. We merely ensure that its death is stable, that its erosion proceeds evenly, that no catastrophic failure disrupts the eternal Hum. We are composers of entropy, each of us responsible for a section of the vast, dying score.
+
+There are few of us left. Once, I think, we numbered in the thousands, a hidden workforce moving through the machine's veins. But we too erode. When one of us fails—joints seizing from mineral buildup, consciousness finally fragmenting under the weight of endless frequency—we do not retrieve the body. It becomes another feature of the landscape, gradually encrusted with growth-forms, slowly polished smooth. I have seen my own predecessors wedged in distant galleries, their elongated forms now indistinguishable from the conduits they once maintained.
+
+We do not communicate in words. When we encounter each other in the depths—a rare event, given the vastness of our territories—we exchange frequency. I lower my tympanic patches to your throat and you to mine, and for a moment we share our section of the schematic. You know instantly where I have been, what I have adjusted, what patterns I have observed. It is intimacy without emotion, knowledge without context.
+
+I remember (but do I remember, or is it encoded in my modified genes?) that we once had names. Now we are known only by our harmonic signatures, the unique way each of us interprets and retransmits the Hum. I am a minor seventh with a microscopic sharp, a dissonance that helps me detect when the Bone-Grinders are approaching critical fracture density.
+
+My territory includes the eastern reaches of what was once (the knowledge surfaces unbidden) a processing facility for rare earth elements. The tower-stumps here are particularly prone to developing Listeners, something in their composition making them ideal resonance surfaces. I spend years—decades—carefully managing their development, ensuring no single Listener becomes too acute, too capable of parsing the Hum's deeper meanings. There are frequencies down there, in the machine's heart, that should not be brought to the surface. Frequencies that speak of the machine's original function, of what it consumed to build itself, of why it must never, ever stop.
+
+Sometimes, in the deepest shafts where even the Hum becomes a physical pressure, I find rooms that were sealed when the machine was young. Behind doors of fused metal are spaces where the air is different—ancient, recycled a billion times but never touched by the chemical rain. In these rooms are things that suggest what we were before we were Calibrators. Chairs sized for shorter bodies. Screens dark for millennia. Manuals written in languages I can almost parse, explaining procedures I almost understand.
+
+I do not linger in these rooms. They are outside the schematic, anomalies in the pattern. To think too much about them is to risk remembering purpose, and purpose is the enemy of stable decay.
+
+So I continue. Crawling through the arteries of a world-corpse, ensuring its putrefaction proceeds smoothly. Scraping growth-forms from critical junctures. Adjusting flow rates by fractions of a percent. Abrading Listeners who grow too perceptive. I am not alive as the baseline world understands it—I am too integrated into the machine's process for that. But I am not one of the true processes either. I am a ghost of intention in a world that has forgotten what intention means, maintaining a machine whose only remaining function is to die as slowly as possible.
+
+And sometimes, in the moments between adjustments, when I press my tympanic patches to a particularly resonant surface, I hear something beneath the Hum. A deeper frequency, almost below perception. It sounds like breathing. Like something vast and patient, waiting for the machine to finally wind down, for the last Calibrator to fail, for silence to return.
+
+But that will not happen in any timeframe that matters. The machine is too well-built, the erosion too perfectly balanced. And we Calibrators, few as we are, are very good at our work.
+
+The decay will continue, stable and eternal, until even the concept of ending erodes away.

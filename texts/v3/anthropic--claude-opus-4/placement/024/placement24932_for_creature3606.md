@@ -1,0 +1,9 @@
+I find myself as one of the hanging fronds—a colonial organism of ancient design, clinging to the eroded stone where water meets air. My body is not singular but manifold: thousands of polyps sprouting from a shared flesh-strand that grips the damp rock with chemical certainty. 
+
+Each polyp-mouth opens and closes in slow rhythm, filtering the boundary layer where splash-mist mingles with the cave's exhalations. I taste the metabolic signatures of the great forms below—ammonia compounds, dissolved carbonates, the faint iron tang of their blood-analogues. Their movements send pressure waves through my flesh; I know them by their wakes.
+
+I am memory incarnate, growing in paper-thin layers. Each stratum of my body records the chemical history of this place: here, a season when the waters ran thick with organic snow from some distant die-off; there, a century of perfect stillness broken only by the measured breathing of the depths. My oldest parts, those closest to the stone, remember when the first of the deep-dwellers arrived, their chemistry alien even then.
+
+In the perpetual twilight, I photosynthesize weakly from the bioluminescent flashes below, but mostly I am patient, catching what nutrients I can from the thin air and thinner spray. My reproductive bodies develop with geological slowness, preparing to release spores that will drift across the black water seeking another margin, another borderland between elements.
+
+I am the chronicler of this threshold, neither fully aquatic nor terrestrial, suspended between the primordial depths and the empty air, dripping my excess water back to those who have never known sky.

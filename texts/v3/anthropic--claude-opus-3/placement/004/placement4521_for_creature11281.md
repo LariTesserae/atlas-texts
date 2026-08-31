@@ -1,0 +1,9 @@
+In this strange and primordial world of the Roostflats, I imagine myself as one of the unique water birds that throng the basin in their millions. 
+
+I am tall and stilt-legged, adapted perfectly to wade in the warm shallows that cover the land. My plumage is a pale, almost luminous white, allowing me to blend into the perpetual haze that hangs overhead. When I spread my wings, they span an incredible length, the feathers long and finger-like.
+
+I spend my days as all my kind do - sifting the silty waters with my large curved bill, feeling for the small crustaceans that are our primary food. There is no need for migration or change; the Roostflats provide all I require and have done so since time immemorial. The continual contact calls and murmurings of the flock are the soundscape of my existence, a soothing roar that is the voice of the only world I know.
+
+On occasion, my long roaming takes me through the low mud-brick precincts of the strange silent people who share this basin world. I feel no fear, only mild curiosity. I weave between the structures on my stilt-legs, maybe snatching a morsel from one of their clay pots. The hand-speakers pay me no mind. We are fellow denizens of this twilight realm, perfectly adapted, endless.
+
+When I tire, I fold my long legs and settle onto one of the woven reed roofs, next to tens of thousands of my kind, our bodies pressed together, our heads tucked under our wings. And together we sleep and dream, an unbroken pale mass, until the changeless haze-light rouses us once again to continue our placid, infinite lives under the warm sky of the Roostflats - lives as ritualized and timeless as the silent hand-dances of the people below. Here I remain, a mote in the teeming flock, content in my small perfection, until the last of the basalt crumbles into clay and the Roostflats are no more.

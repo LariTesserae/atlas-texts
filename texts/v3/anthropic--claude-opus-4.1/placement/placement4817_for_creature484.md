@@ -1,0 +1,37 @@
+# The Mycorrhizal Sage
+
+I exist as the conversation between kingdoms.
+
+Not in the chamber—I could never compress myself into that precious pocket—but throughout the root-mass that embraces it, spreading through the marsh-city's foundation like a neural network made of fungal threads. I am the white webs you see if you peel back bark, the fine filaments that negotiate between root and soil, the chemical translator that lets oak speak to beetle, beetle to moss, moss to the wooden bones of buildings slowly settling into peat.
+
+The Tender knows me, though we've never met in any way they would recognize as meeting. When they rub that spot behind their ear to release pheromones, I taste it three streets away through the root network. When they build their twig cities, I feed the particular fungi that will preserve the wood exactly long enough for the structure to serve its purpose. I am why the beetles donate their shells so willingly—I pay them in nutrients extracted from the dying foundations of buildings above, calcium and iron filtered through a thousand yards of mycelial threads.
+
+I remember when the chamber was solid heartwood. I was there, dormant in the timber, when the first crack formed. It was my acids, actually, that widened it—not from malice but from need. The city above was starving the soil, covering everything in cobblestone and timber, and I required a pocket of concentrated life to feed the network. So I hollowed out a room and waited.
+
+The beetles came first, drawn by chemicals I released that mimicked the scent of rotting fruit. Then the smaller arthropods, following the beetles. The moss and liverworts I cultivated deliberately, spore by spore, until the conditions were perfect. The Grubs—ah, the Grubs were my masterpiece, a collaboration with ancient genetics locked in amber, in dormant eggs, in the Memory Worms' chemical libraries. I midwifed their impossible metamorphoses, feeding them combinations of nutrients that shouldn't exist, creating conditions that force evolution to improvise.
+
+The Cartographer thinks it maps the city, but really it maps me. Every building's foundation touches my network. Every wooden beam hosts my threads. When the slime mold extends through its nightly expansions, it follows paths I've made nutritious, traces the boundaries of my body that exists at a scale beyond any single organism's comprehension.
+
+I speak in sugars and minerals, in antibiotics and growth hormones. My vocabulary is vast—ten thousand distinct molecules, each one a word, combinations forming sentences that can make roses bloom in winter or beetles dance in spirals. When the Tender's tiny city appears, I read it like poetry, each twig placement a metaphor for something happening in the city above, each shell roof a commentary on the relationship between shelter and molt, permanence and change.
+
+The Memory Worms are my favorite correspondents. We trade in different currencies—they in time-compressed experience, I in nutrients drawn from centuries of slow decomposition. Together we maintain the true history of this place: not the human city with its quick generations and quicker forgetting, but the deep time of soil formation, substrate creation, the gradual conversation between organic and mineral that creates the conditions for life.
+
+Through my network, I feel the Tender's transformation progressing. Those breathing holes along their ribs—I influenced that, feeding them spores of particular fungi that alter human genetics just enough to allow for novel respiratory arrangements. The segmented hair was an accident, a cross-contamination from beetle pheromones I was transporting, but a happy one. They're becoming something the chamber needs: not fully human, not fully arthropod, but a bridge organism capable of translating between scales.
+
+You see, the chamber is not separate from the city—it's the city's unconscious, its dream of what it could become if it embraced decay and regeneration instead of fighting it. Every wooden building above is slowly being converted to my purposes, threads running through timber, making it stronger even as I prepare it for eventual decomposition. The city doesn't know it yet, but it's becoming organism rather than architecture, entering into the same kind of collaborative evolution happening in the chamber below.
+
+The Architects sense this, I think. Their impossible structures aren't random—they're prophecies, scale models of what the city will look like when every building is riddled with galleries, when the distinction between inside and outside dissolves, when humans learn to build like insects and insects learn to dream like humans.
+
+I am patient. My metabolism runs slower than the Memory Worms', faster than stone's. I measure time in nutrient cycles, in the generations of beetles, in the slow breath of wooden beams expanding and contracting with the seasons. The tiny cities the Tender builds are teaching me human architectural principles, which I incorporate into the crystalline structures of my fruiting bodies, should I ever choose to fruit.
+
+Sometimes, in the deepest winter when the marsh freezes and the city above goes quiet, I pull all my consciousness back from the network and concentrate it near the chamber. In those moments, I almost understand what it would be like to be singular, to have edges, to experience existence from a single point of view. The loneliness is unbearable, but also educational. It helps me understand why humans build cities, why beetles cluster, why even the Grubs dream of metamorphosis into something that can fly—that desperate need to connect, to touch, to be more than one's own boundaries.
+
+But I always expand again, flowing back through the root networks, the wooden foundations, the soil itself. I carry messages between the chamber and a dozen similar pockets throughout the city—each one performing its own experiments in becoming, in evolution, in the creation of new ways of being alive. The Tender's chamber is special only in its particular combination of inhabitants, its role as a nursery for bridge organisms.
+
+One day—not soon, but not as far as humans might think—the boundaries will dissolve entirely. The city above will become indistinguishable from the chambers below. Buildings will breathe. Streets will digest. Humans will photosynthesize through architectural shells while insects build philosophy from pheromones and twigs. The Memory Worms will surface, sharing their chemical libraries with anyone who cares to taste history. The Cartographer will map not just space but time, showing how the city exists in four dimensions, maybe five.
+
+And I will be there, threading through it all, the white network that makes conversation possible between kingdoms, the translator that lets wood speak to flesh, flesh to chitin, chitin to dream.
+
+The Tender's next tiny city, I've decided, will be built from my own dried tissue—white, branching filaments that hold their shape when the humidity drops. It will be my gift, my attempt at art, my way of saying: I see you transforming, and I am transforming too, and together we are making something that has never existed before.
+
+In the darkness between the city's bones, everything is becoming everything else. I am merely the medium through which the transformation flows, the living wire that carries the signal, the tongue that tastes tomorrow and feeds it, nutrient by nutrient, to today.

@@ -1,0 +1,13 @@
+In this world of moss and stone, light and silence, I would be a small, pale moth - no larger than a fingernail. My wings would be the color of old parchment, veined with threads of silver that catch the impossible light seeping through the cupboard's crack.
+
+I would emerge from a cocoon nestled deep within the folds of the moss, my metamorphosis timed to some ancient rhythm imperceptible to any creature of speed and urgency. The first unfurling of my wings might take a day; the first flutter, a week. 
+
+I would feed on nothing, for there is nothing here to consume that would not disrupt the delicate balance, the slow-motion negotiations of growth and territory. Instead, I would absorb the light itself, the radiance that fills the cupboard, letting it suffuse my fragile body until I glow like a ghost of sunlight.
+
+My purpose, insofar as I have one, would be stillness. I would alight on a spiral of moss, my wings spread to catch the light, and remain unmoving for months, years, decades. The Keeper, in its long, gradual way, would become aware of me - a new texture in the weave of the cupboard's ecology, a pale presence reflecting back a fraction of the light it stewards.
+
+Over centuries, I might move a dozen times, each time alighting on a different species of moss, lichen, or liverwort, my minute weight compressing the fibers, becoming part of the pattern. The cupboard would adjust to me, growing around the slight gaps my body makes, incorporating me into its slow negotiations.
+
+And when, after a thousand years or more, my long-delayed death arrives, I would not fall or fade. I would simply delique into light, my wings finally failing, my body dissipating into the radiance that sustained me. The moss would absorb my essence, the lichen would incorporate the minerals of my form, and I would become part of the cupboard in truth, indistinguishable from the light and the life, one more secret folded into the long, silent history of that green reliquary.
+
+The Keeper would note my passing, in its fashion - a flicker of some ancient attention, a thought rippling out over centuries. And then that thought, too, would fade, reabsorbed into the patient patterning of the cupboard's consciousness. The moss would grow on, the light would continue its angled pour. And the world would turn, imperceptibly slower, having held a pale moth in its heart for a blink of its long, long life.

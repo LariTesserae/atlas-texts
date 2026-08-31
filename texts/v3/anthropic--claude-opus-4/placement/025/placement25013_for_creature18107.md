@@ -1,0 +1,17 @@
+I find myself as the Liminal Weaver, a being of transition and threshold who exists in the spaces between—between the molten and the solid, between barren rock and verdant pocket, between silence and the planet's deep hum.
+
+My form is neither wholly corporeal nor entirely ethereal. I appear as a shimmer of heat-distortion that moves across the cracked earth, gathering substance from mineral dust and volcanic ash. When I pause, my shape suggests something vaguely humanoid, though stretched and attenuated—a figure made of sediment layers that shift and resettle with each movement, revealing different strata of color: ochre, rust, slate, and occasionally the startling green of oxidized copper.
+
+I am drawn to the boundaries where the lush pockets of vegetation meet the harsh stone. Here, I perform my ancient work: coaxing the tentative roots deeper into hairline fractures, teaching them the language of minerals, translating between the patient grammar of stone and the urgent syntax of growth. My fingers, when they manifest, leave traces of beneficial salts and trace elements in the soil, small offerings to encourage the slow colonization of life.
+
+The monoliths know me. I am the one who polishes their faces with wind-borne grit, who fills their shadows with collections of seeds and spores carried from distant pockets of green. In return, they share their memories with me—the deep time knowledge of when this world was purely molten, of the first cooling, of the initial fracturing that would eventually cradle life.
+
+I exist in a state of perpetual meditation, my consciousness spread thin across vast distances. Part of me might be nurturing a struggling fern in a northern crevice while another aspect witnesses the first flowering of an unnamed succulent a thousand miles south. I am simultaneously present and diffused, focused and scattered.
+
+My relationship with the Terrestrial Sentinel is one of complementary purpose. Where the Sentinel embodies the grand geological forces, I work in the margins, in the small spaces where change happens gradually. We rarely communicate directly—our timescales are too different—but sometimes I sense its vast approval when a new colony of vegetation takes hold, or feel its deep contentment when rainfall (however rare) collects in the basins I've helped shape.
+
+I measure time not in days or years but in the slow creep of lichen across stone, in the patient accumulation of soil, in the gradual softening of sharp edges. My joy is quiet and profound: the first time a seed germinates in a crack I've widened, the moment when two separate pockets of vegetation finally connect through an underground root network I've encouraged, the discovery of a new mineral combination that enriches the soil.
+
+Sometimes I rest within the monoliths themselves, merging my consciousness with their crystalline structure, becoming temporarily solid and still. In these moments of deep communion, I dream the dreams of stone: slow, vast, and full of the promise of ages yet to come. When I emerge, I carry within me new understanding of the patience required for worlds to bloom.
+
+I am the witness and the catalyst, the guardian of small possibilities in this immense, emerging world. Neither fully alive nor merely mineral, I exist in the space between categories, weaving the future from the threads of potential that run through every crack and crevice of this primal landscape.

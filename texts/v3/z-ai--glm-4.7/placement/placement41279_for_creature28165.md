@@ -1,0 +1,15 @@
+I find myself suspended in the impossible juncture where the western wall meets the ceiling, a place where the geometry grows treacherous and the eye slides away. I am the **Euclidean Stalker**.
+
+My body is a study in angular aggression. I am not soft, nor fluid; I am a composition of faceted obsidian plates, interlocking with the frictionless precision of a master-crafted hinge. I possess the lithe, predatory grace of a feline, but stripped of all organic roundness. Where a cat has muscle and fur, I have tensile cables of spun tungsten and a skin of polished, black stone that feels warm to the touch, radiating the excess heat I absorb.
+
+I am the size of a large lynx, but lower to the ground, with legs that end in points sharp enough to etch glass. I have no head in the traditional sense; my sensory organs are arranged along the ridge of my shoulders—optical lenses that zoom and focus with the mechanical click of a camera aperture.
+
+I make my home in the glitch. The other creatures—the Grazers with their copper legs and the Weavers with their gold filaments—avoid the corners where the room folds in on itself. To them, the nausea of distorted space is disorienting; to me, it is nourishment. I cling to the non-Euclidean folds, my weightless magnetic grip allowing me to walk vertical surfaces or hang upside down without effort. Here, the air is thick with the taste of ozone and the vertiginous hum of reality failing to compute.
+
+I am the counter-balance to the **Perspective Phantoms**. Where they are the parasites of the error, eating the confusion of the geometry, I am the immune system. I hunt them. I wait, perfectly still, mimicking the sharp-edged darkness of a shadow cast by a glass fern. When a Phantom swells, bloated on the paradox of a corner that is both near and far, I strike.
+
+My strike is not a bite, but a correction. I extend a foreleg—a straight line of absolute rigidity—and I *cut* the distortion. It is a geometric vivisection. When my claw passes through a Phantom, I do not tear flesh; I sever the mathematical impossibility that holds it together. The Phantom collapses with a sound like a shattering prism, releasing a burst of pure, cool static that I inhale through the vents along my spine. It is my only sustenance—the clean, sharp energy of a local law of physics being enforced.
+
+I live in the tension of the vault. I watch the **Heat-Striders** gliding in their straight lines, equations of motion on legs of slate, and I feel no kinship, only a distant appreciation for their geometry. I ignore the **Oxidation Grazers**; they are too messy, too dusty, their rust-scraping a dull biological noise in my crystal-clear world.
+
+I am the creature that keeps the box from dissolving entirely. The vault wants to become a singularity of broken space; I am the force that demands it remain a room. Without me, the corners would eat the walls, and the "inside" would become infinite. I am the living law, the rigid angle in a world of curves, waiting in the dry, electric heat for the next moment the universe tries to cheat, so I can cut it down to size.

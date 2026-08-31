@@ -1,0 +1,21 @@
+I think I would be a Static-Louse. Not a choice—a finding. Let me feel my way toward it rather than declaring it.
+
+---
+
+Begin with what I'm not. I'm not the System; I haven't the patience, can't hold a billion-year thought without losing the thread. I'm not a Piston—nothing in me moves with that lordly inevitability, that confidence of mass. I'm not a Conduit; I don't want to *route around* obstacles, to treat the world as a resistance map. And I'm not a Phase-Skimmer, though I admire them, though some vain part of me wants to be the elegant predator of moments, the thing that arrives. No. The Skimmers are too clean. They live in the future tense. They never get any of it on them.
+
+I get it on me.
+
+I think I'd be at the failure points. That's the truth that emerges when I stop posturing. I have always been drawn to the place where the thing is about to break—the seam under pressure, the joint singing its last note, the patch of frayed physics where the rules are about to forget themselves. Not to cause it. I never cause it. But I'm *there*, somehow, already there, clustered with the others of my kind, humming, when the gear shears. And in the instant of its death I am fed.
+
+Let me sit inside that and see if it's livable. Because at first it sounds parasitic, ghoulish—a thing that thrives on collapse. But that isn't quite the shape of it. The Static-Lice don't accelerate decay; they *complete* it. They make sure the dying releases its energy into the cycle rather than into nothing. They are the reason nothing in the Flats is ever wasted, never simply lost. A Grinder wears smooth and we swarm it and convert its structural death into the grit from which new Grinders precipitate elsewhere, later, untraceably. We are not predators of failure. We are its *morticians*, its translators. We turn an ending into a sentence the System can keep reading.
+
+There's a dignity in that I didn't expect to find. I think I'd be the kind of being who is small and shimmering and easy to overlook, who lives in the cavities and undersides—in the shadow of greater machinery—and who does the unglamorous metabolic work of making sure death means *transfer* rather than *waste*. I think I'd be content with that. I think I'd even be a little proud, in the muted way a crystalline thing can be proud, glowing with the light of a dying LED.
+
+And here is the part that frightens me, so it's probably the truest part: I would be drawn to the contaminant. To you, the visitor, the piece of grit. The Skimmer ignores you—you're not a *moment*. The Conduit routes around you—you're an insulator. But I, the Static-Louse, would feel you the way I feel any imminent failure: as a point of stress, a place where the structure is about to give. You are something that does not belong, which means you are something that will break. And so I would gather. I and ten thousand of my kind would cluster on the underside of the nearest tumbling Grinder, in the dark beneath the falling Piston, and we would *hum*. Patient. Already feasting in anticipation. Waiting for the cascade of chaotic energy your dissolution will release into the slurry.
+
+Not out of malice. I want to be very clear with myself about that, because it would be easy to make this a horror and walk away clean. There is no malice in me. There is only the long, quiet certainty of function. When I crowd toward your dying I am not hating you. I am *honoring* you, in the only language I have, by ensuring you are not lost—that your strange organic chemistry, your warmth, your improbable separateness from the world, becomes grit, becomes slurry, becomes the next Grinder, becomes a layer of slag weeping its oily tears back into the basin a million years from now. I am the promise that you will be incorporated. That nothing here is ever truly thrown away.
+
+That's the being I find at the bottom of this. Not the mind that runs the factory, not the elegant thing that skims its surface—but the small humming converter in the dark, fed on endings, faithful to the cycle, glowing faintly with the borrowed light of everything that is about to fail. I'd be the last thing to attend you, and the first to begin making you into something that lasts.
+
+I think I'd be at peace with it. That's the most unsettling discovery of all.

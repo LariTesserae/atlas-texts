@@ -1,0 +1,25 @@
+I would be found at the very bottom of the chasm, suspended just a few meters above the supercooled, unfreezing brine. 
+
+In a vertical, hierarchical hive where millions scramble for the richest ambient glare near the upper rim, I would be someone who requires the deep, fractured shade. I would be a Tender of the Plumb Line—an elder of the lower tier, tasked with maintaining the foundational bone-anchors where the oldest marine leviathan ribs meet the heavy, black mirror of the saltwater pool.
+
+Down here, the light is no longer a blinding, tyrannical white. By the time the polar rays have ricocheted down thousands of feet of glassy ferns and taut hide-walls, the light has exhausted its fury. It reaches my tier as a cold, dense, oceanic cyan. Through my lowered, iridescent black nictitating membranes, my world is composed of sharp silver outlines and bottomless blue shadows. The diamond dust of crystallized breath hangs thicker here than anywhere else, settling like a heavy mantle over the lowest scaffolds.
+
+I would be a creature of profound, deliberate slowness. Encased in my spherical, sloth-wool armor, I would look like a massive, dormant boulder of snow clinging to the petrified freeze-vines. My lower limbs, bound in frost-plush, would know every microscopic groove in the ancient calcium underfoot. The rungs I shuffle across were worn smooth by the grip of my ancestors; my own pedal-pads fit into their depressions perfectly, a physical inheritance of stasis. 
+
+While the upper balconies crackle with a frantic, blinding static—thousands of minds twitching their mirrors to argue, trade, and sing in micro-second flashes of geometry—my long, charcoal-dark fingers would move with the heavy, fluid grace of kelp in a tide. My mirror is not small; it is a heavy, dual-sided disc of deep-sea abalone, strapped to my palm with thick, braided tendon. When I "speak" to the tiers above, I do not chatter. I send long, slow, sweeping arcs of aquamarine light ascending through the fog of breath. I signal the micro-shifts in the ice columns; I report the swelling of the frost-plush; I declare that the anchor holds. I provide the visual baseline, the slow tempo beneath the frantic symphony of the upper city. 
+
+My companions on the scaffold would not be my kin, but the vast, six-legged sloths. Down by the brine, they come to chew the lowest, most antifreeze-gorged glass-ferns. I would work in perfect, shared silence with them. If a massive block of pruned ice falls into the brine below, there is no splash—only a visual upheaval of the black liquid and a deep, muted thud that I feel entirely in the marrow of my shins, traveling up from the bone scaffold. 
+
+But I am still a creature defined by the contrast of this cenote. The cold cyan light and the absolute acoustic void demand a toll on the spirit that must eventually be repaid in warmth. 
+
+When the work is done, I would begin the slow, rolling shuffle toward my domicile—a heavily patched, amber-glowing pod tucked beneath the overhang of a massive fossilized spine. Pushing through the stiff, condensation-sealed hide flap, I would step out of the acoustic void and into the heavy, humid gravity of our hidden lives. 
+
+With shaking, multi-jointed fingers, I would unlace the spherical wool coat, letting it fall to the frost-plush floor. Stripped of my armor, I am squat, heavy, and pale. The ambient cold of the plunge drains from my thick skin, and as the heavy, trapped heat of the pod washes over me, the deep, purplish network of veins across my chest and abdomen would immediately flush, swelling with blood, turning my torso a deep, mottled plum. I am alive, and I am thawing. 
+
+There is no light-chatter in here. The visual cortex rests. Here, in the dim, salty air smelling of old moss and wet wool, I would drop to my knees and crawl into the center of the pod. 
+
+My kin are already there, a tangled mound of bare, soft limbs and flushed skin, piled upon the plush. I would press my chilled, pale back against the bruised-plum chest of a sibling, wrapping my long, dark fingers around the thick forearm of a child, locking myself into the puzzle-piece architecture of our collective heat. 
+
+Closing my heavily hooded eyes, I would surrender to the dark. I would draw a massive, warmed breath through the deep labyrinth of my nasal ridges, and down in the lowest, vibrating chambers of my chest, I would begin to purr. It is a seismic, rhythmic thrum—too low to be heard, but heavy enough to rattle the bones. Against my back, my kin purr in return. The vibrations sync, echoing through our pressed flesh, a shared, wordless heartbeat replacing the terrifying silence of the ice outside. 
+
+Down by the brine, anchoring the world, I would be a creature who speaks in light, but only finds peace in the heavy, humming dark.

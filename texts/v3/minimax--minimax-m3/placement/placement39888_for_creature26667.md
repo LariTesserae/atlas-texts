@@ -1,0 +1,27 @@
+I.
+
+I came back two days ago. Or three. The counting is not yet right. It will be right in a day or two, when the rhythm of the place has taken me again, when I am going to the spring in the morning because that is what is done, and not because I am deciding to do it.
+
+The hearth is warm. The woman — her name is not important, but she is the one who brought the broth — set it down without looking at me, and went away. The broth tastes of the dried moss and of the small grey animals that the old people say are good for a person who has been out. I do not know if I believe them. I drink it anyway. It is what is offered.
+
+The hearth is small. They are all small. The room I am in is small, and the doorway through which I came is the height of a stooping person, and I am stooping as I sit here because the beams are low. The walls are not straight. The wall behind me is the curve of a boulder, and the wall to my right is partly natural stone and partly built, and the seam between them has been mossed over so that I cannot find it. I have lived in this house thirty-one years. I have not yet found the seam.
+
+The wind is in the walls. I can hear it. It is a different wind from the one I have been in. Out there, the wind is a single thing — a continuous pressure, a working wind that has no opinion of you. In here, the wind is broken. It comes through the gaps in the moss and finds every hollow in the rock and rings them. The whole house rings, faintly, in this weather. I have heard it my whole life. I did not hear it for nine days.
+
+I do not know if I am the same person who went out. The woman — the one who brought the broth — looked at me, briefly, when she came in. She did not ask. That is how they are. That is how I am. I am not ready to be asked, and they are not ready to ask, and so we are well.
+
+The dogs are restless. I can hear them outside, at the eastern rim, or what I think is the eastern rim. They are not barking. They are doing the other thing — the standing-and-watching thing, the thing they do when they know something is coming and the people do not yet know. I do not know what they know. The wind is from the west. The fog is thick. There is rain in it, perhaps, but the smell is not quite rain. I have been out long enough that my nose has been recalibrated. I will trust the dogs for another day or two. They will tell me.
+
+My hands smell of the broken country. I washed them in the basin by the door. The water was cold and clear — the woman had brought it from the spring, I think, and set it there for me. The water did not take the smell. The smell is in the skin, in the cracks along the knuckles, in the place where I had a cut on my right hand that is healing but not yet healed. The smell of dry stone and old fur and the particular cold of places where the sun does not reach. I will carry this for several days. It is the way of it.
+
+I am looking at the fire. The fire is small. The twigs are from the shrubs — the dark, twisted ones that grow in the lee of stones — and they crackle in a particular way and smell of the lichen-orange that is one of the colors of this place. The fire is the only bright thing in the room. Everything else is the palette: greens, greys, browns, the near-black, the lichen-orange. I am part of that palette. My cloth is part of it. My hands are part of it. The house has taken me back into itself, the way the broken country had taken me out of myself, and I am sitting inside the place and I am becoming the place.
+
+This is what the broken country does. Not the wind, not the cold — these are steady, and the body learns them. The broken country does something else. It puts a person back into the geology. For a time out there I was a thing — a thing that moved, a thing that ate, a thing that waited motionless for hours in a fold of the stone. When I came back I was a person again, but I have not quite finished being a thing. That is the slow part. The slow part is now.
+
+The flat stone. I am thinking of the flat stone. I heard it while I was out — once, I think, on the morning of the third day, or the fourth. The flat clear note, traveling across the plateau. I was in one of the deeper folds, near a place where the stone breaks up into fissures, and I heard it, and I did not know if I had heard it or imagined it. The sound does not change. Once for a birth. Twice for a death. I do not know which it was. I will ask no one.
+
+Tomorrow I will not go to the spring. The day after, perhaps. The day after that, certainly. The spring will be there. The women will be there. The Spring — the oldest of them — will be there, with her worn hands and her knowledge of the flow. I will kneel at the place where the water comes out, and I will hold my jar under it, and I will wait for it to fill. The filling takes time. I do not hurry it.
+
+This is what the town is for. This is what I am for. To kneel at the spring, and to go out into the broken country, and to come back. To be a person again, slowly. To wait for the fog to lift, or to thicken, or to do whatever it is going to do. To wait, in the end, for the plateau to take me back.
+
+The dog outside has stopped its restlessness. I do not know what it has decided. The wind has shifted, I think — there is a different tone in the walls now, a different instrument being blown. The house rings with it. I listen.

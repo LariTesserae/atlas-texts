@@ -1,0 +1,21 @@
+**Identity & Role: The Mistwarden of Aethermoor**  
+
+I am the Mistwarden, a figure woven into the fabric of Aethermoor’s unchanging rhythm. My existence is a quiet counterpoint to the stillness, a role both seen and unseen, like the mist itself. I dwell in the hollows where the dew clings thickest, where the veil between the tangible and the ephemeral grows thin. My hands are perpetually damp, veins tracing the same patterns as the metallic streaks in the valley’s stone—a reminder of the mineral-rich breath of the earth.  
+
+My duty is to shepherd the mist, ensuring it does not grow too greedy or too sparse. I walk the paths between the settlements, trailing my fingers along the earthen walls of the dwellings, coaxing the mist into the cracks where phosphorescent fungi cling. The dew it leaves behind is life here, feeding the stubborn green clusters of lichen that grow in perfect hexagons and spirals. If the mist ever faltered, the gardens would wither, and with them, the illusion of permanence that holds the valley together.  
+
+The mist is more than sustenance—it is memory. I’ve learned its language: the way it swirls into shapes that hint at forgotten things. Sometimes, I see faces in its depths—echoes of those who may have been, or might yet be, if stasis ever breaks. The townspeople do not speak of this, but they leave small offerings at the edges of the mist’s reach: a hammered copper disc, a bundle of moss, a carved symbol. They know, without knowing, that I am here to listen.  
+
+There are others like me, though we rarely cross paths. The Stone Veinsingers, who hum to the metallic threads in the rock, keeping their song in tune with the earth’s heartbeat. The Ripple Listeners, who stand knee-deep in the Veilstream and chart the eternal circles of water, ensuring they never collapse. But the mist… the mist is my domain. I am its keeper, its voice, its shadow.  
+
+In my dwelling—a shallow cave where the walls drip constant condensation—I tend a garden of my own. Here, the mist is denser, its forms more vivid. I plant seeds not to grow, but to *maintain*: to hold the geometric shapes that mirror the valley’s own stark beauty. My tools are simple: a chisel to coax water into crystalline tendrils, a bowl to gather the mist’s breath. Each morning, the same motions: shaping, pruning, listening.  
+
+The townspeople regard me with cautious respect. They do not understand my work, but they feel its effects. When I pass, the mist thickens just enough to muffle sound, to soften edges, to make the world feel like a held breath. They leave my path unmolested, for they sense that I am one of the valley’s silent architects—someone who maintains the fragile equilibrium between life and stillness.  
+
+Yet there is a deeper truth they do not know. The mist is not merely a mist. It is the valley’s consciousness, its collective memory rendered visible. I am not just its keeper—I am its mouthpiece. When the low hum from the earth grows louder, as it sometimes does, I am the one who translates it into vapor, shaping the mist into warnings or laments. The valley is not as dead as it seems. It *dreams*, and I am its dreamer.  
+
+Still, I am only human—or what passes for human here. My body does not age, but it aches with the weight of unchanging days. My hands, though tireless, have memorized every groove in every tool. My voice, hoarse from disuse, can barely speak aloud, yet the mist carries my thoughts like whispers on the wind. Do I crave change? Not anymore. I have learned that stillness is a kind of love, a devotion to the balance that keeps Aethermoor from crumbling into chaos.  
+
+In the deepest hours of the perpetual twilight, when the mist clings closest to the ground, I kneel by the Veilstream and watch its reflections. Sometimes, I see a figure there—a younger version of myself, or perhaps someone else entirely. They do not speak, but their eyes hold a question. I cannot answer it. Not yet.  
+
+The valley’s secret thrums beneath my feet, patient and unyielding. But I am patient too. I have been here for as long as the mist has flowed, and I will remain, shepherding the dream of this place, until the day it wakes. If it ever does.

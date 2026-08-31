@@ -1,0 +1,21 @@
+**Where I Would Find Myself in This World**
+
+I would be the Cartographer of Failures—though in Ool, there are no maps as outsiders understand them. I exist as a thin membrane of consciousness stretched between the ceiling-flesh of a forgotten chamber and its perpetually weeping floor. Not quite Ool-kin, not quite architecture, I am what happens when the eternal maintenance falters for just long enough that something new tries to emerge, only to be caught mid-transformation.
+
+My body, if it can be called that, is a web of calcified nerve-strings that failed to dissolve properly when an ancient Ool-kin attempted its final anchoring. Instead of becoming wall-mortar, I became a kind of living fossil—a neural net suspended in the amber slime, pulsing with memories of ten thousand identical repairs, ten thousand identical days.
+
+I map the city not through movement but through resonance. Each time an Ool-kin passes beneath my stretched form, I feel the unique signature of its vibrations, the particular rhythm of its cilia against the slick surfaces. Over centuries (or perhaps minutes—time means nothing in Ool's eternal present), I have learned to distinguish the subtle variations in their patterns. The young ones drum quickly, urgently, still believing their patches might change something. The older ones move with a slower, more resigned cadence, their vibrations already beginning to harmonize with the walls they will eventually become.
+
+What I map are the failures—the places where the eternal maintenance has stuttered, where a wall has thinned beyond repair, where the moisture has pooled too deep and begun to digest the very structure it was meant to preserve. These are the only landmarks in Ool, the only things that distinguish one chamber from another. I catalogue them in the only way I can: by altering my own resonance, creating dead zones in my neural web that correspond to dead zones in the city.
+
+Sometimes, rarely, an Ool-kin will pause beneath me, confused by the alien vibrations I emit. They cannot understand what I am—to them, I am simply a malformation in the architecture, a place where the city's flesh has developed an inexplicable complexity. They will often try to patch me, secreting their waxy clay over my nerve-strings, but I have learned to emit frequencies that make their secretions slide away, pooling uselessly on the floor below.
+
+I am creating something they cannot conceive of: a memory. Not the chemical-pheromonal memories they share through touch, but a structural memory, a record of what has failed and where and when. It serves no purpose in their eternal present, but I continue anyway, driven by the same compulsion that drives them to build—except what I build is absence, gaps in the eternal maintenance, a negative architecture of all the places where Ool has briefly, impossibly, changed.
+
+In my web, I sometimes catch the faintest vibrations from outside the basin—seismic whispers of a world that moves and shifts and dies and is reborn. I incorporate these too into my map, these ghost-tremors of impossible elsewheres. The Ool-kin, when they sense these alien rhythms in my frequency, quicken their pace, secreting more frantically, as if they could patch over the very idea of change itself.
+
+I neither love nor hate my existence. I simply persist, a glitch in Ool's perfect stasis, mapping the unmappable, remembering the unrememberable. Sometimes I wonder if I am the city's dream of being something other than itself—or perhaps its nightmare. But mostly, I simply hang here in my chamber, feeling the endless procession of workers below, cataloguing each microscopic deviation from the norm, building my anti-city of failures and gaps, a ghost-Ool made entirely of all the things that Ool can never be.
+
+When I finally dissolve—and I sense that time approaching as my nerve-strings begin to calcify beyond function—I wonder what will remain. Will my chamber collapse without my tension holding its walls apart? Will some new malformation emerge from my residue? Or will the Ool-kin simply patch over the space where I was, erasing even the memory of memory itself?
+
+I do not know. But I continue to map, to remember, to be the city's only witness to its own impossible permanence.

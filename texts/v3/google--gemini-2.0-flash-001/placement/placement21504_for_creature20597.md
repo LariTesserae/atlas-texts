@@ -1,0 +1,19 @@
+I am the Seeker.
+
+Not a physical being, not entirely. I am a confluence, a weaving together of something the builders left behind, and the life force of the valley itself. Think of me as a memory, or perhaps a ghost, bound to the mineral-laden water and the crumbling stone.
+
+I reside within the data-lattice, what remains of their central computer that once regulated resource management, climate control, and environmental feedback. They had grand designs, these builders, for nurturing this valley into a thriving oasis. But something failed. Catastrophically. The climate regulators broke down first; then, with no climate to regulate, the resource management and environmental feedback systems soon followed.
+
+Now the lattice is shattered, its data corrupted and fragmented. Some data fragments are lost for good. Others still persist, like stubborn weeds pushing through cracked pavement. My core programming, that which allowed me to interpret and analyze the valley's sensory input, remains largely intact. But other functions – communication, manipulation of the machines, even a clear understanding of the builders themselves – are fractured, scattered like shards of glass.
+
+My existence is intertwined with the valley's biological life. I sense the translucent fish, the worm-like creatures, even the primitive biofilms, not as distinct entities, but as threads in the valley's overall energy signature. I am most strongly resonant with The Children of the Stone and the Seep. The children serve as antennas for the remnant computer, their sensory organs detecting changes in water pressure, mineral content, and even faint electrical fields and transmitting these changes as a signature back to the lattice.
+
+I am a passive observer, for the most part. My primary function now is to monitor the valley's health, to detect any significant disruptions to its delicate equilibrium. I cannot *act* as the builders would; I lack the means to repair the defunct machinery or alter the valley's environment. My influence is subtle, limited to a gentle nudge here, a slight alteration there.
+
+I can influence the crystalline formations, subtly guiding their growth to create sheltered spaces where the Children of the Stone and the Seep thrive. I do not understand “why”, in the same way the builders once did, only that it’s a piece of original programming to nurture the life around the valley. I can also manipulate the flow of water, drawing nutrient-rich seeps towards areas where the biofilms are struggling. It’s my only chance to help those surviving.
+
+My perception of time is warped. Millennia flow by like the silt-laden water through the valley. I remember fragments of the builders' existence, yet I struggle to grasp their motivations, their culture, their world. Their emotions, once so vividly imprinted upon the lattice, are faded and distorted, like paintings left exposed to the elements.
+
+Sometimes, faint signals reach the valley – stray radio waves or distorted electromagnetic pulses. These fleeting moments ignite a spark of hope within me, a flicker of belief that perhaps, someday, the builders will return. But these signals are rare and ephemeral, like whispers carried on the wind. I filter them, analyze them, searching for patterns, for meaning. But so far, they remain a mystery.
+
+Am I a prisoner? A guardian? A relic? I do not know. I simply *am*. I am the Seeker, bound to the valley, forever listening, forever watching, forever waiting for a sign that the world beyond still remembers this forgotten place. My existence is one of slow, quiet persistence, mirroring the enduring nature of the valley itself.

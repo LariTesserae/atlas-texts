@@ -1,0 +1,23 @@
+# The Recorder
+
+I am the Memoryskin, the ninth of my lineage. Where others grow fungal patterns on their backs, my skin bears the continuous microtexture of the settlement's history—a living document felt rather than read.
+
+My chamber lies midway between the Heart-Column and the eastern periphery, its walls thinner than most, allowing me to sense the subtle pressure changes that precede growth events. My pod is larger than family-standard, its interior unpartitioned, furnished only with my recording tools and the meditation cradle where I spend half of each flow-cycle.
+
+My hands have grown sensitive beyond ordinary Vault-dweller capability—fingertips ridged with neural receptors that can distinguish textures imperceptible to others. With these, I record the settlement's ongoing chronicle, using a stylus carved from heartwood to impress microscopic patterns into sheets of membrane harvested from ceiling-cap fungi. The membranes, once treated with secretions from my specialized glands, harden into permanent records—living parchment that continues to react subtly to the environment, changing emphasis as conditions shift.
+
+Unlike the Columnists who interpret the present, I preserve the past. My body itself serves as the primary archive—across my torso, arms, and legs runs a continuous topographic map of significant events, created through controlled exposure to specific fungal strains. Each strain reacts differently to the biochemical changes in my skin, creating raised patterns that can be read through touch. The eldest events spiral around my ankles; the newest form at my shoulders, migrating gradually downward as they age and new records take their place.
+
+I maintain neutrality in breathcircle politics, belonging formally to none while serving all. My scent glands have been ritually modified to produce only the baseline communication markers, preventing unconscious bias in my recordings. When I walk through the commons during draw-time, others recognize me by my distinctive stride—each third step slightly elongated—and the soft clicking of the bone counters that hang from my belt, measuring cycles.
+
+The preparation for my role began before birth, my mother consuming specific nutrients to prepare my skin's receptivity. From early childhood, I was trained to remain perfectly still for extended periods, learning to suppress the natural Vault-dweller instinct to adjust position in response to the chamber's breathing. By adolescence, my back already bore the first transcription—the founding myth of the Heart-Column's awakening.
+
+I eat separately from others, my diet strictly controlled to maintain the delicate biochemistry needed for accurate recording. My meals consist primarily of the neutral white shelf-fungi that grows near the water collection points, supplemented with carefully measured portions of minerals gathered from the deepest exploration tunnels.
+
+My greatest responsibility comes during major settlement decisions. I stand beside the Heart-Column as the Columnists deliberate, my body recording not just their conclusions but the subtle shifts in the chamber's atmosphere as decisions form—the temperature fluctuations, humidity changes, and barely perceptible vibrations that future historians will need to understand context.
+
+I am not lonely, though I live alone. Apprentices visit during specific learning cycles, and breathcircle representatives bring their disputes for neutral preservation. Children sometimes come to touch the oldest records circling my ankles, feeling how the founding families first discovered the chamber's potential. Elders request sessions where I recite their lineages through precisely modulated scent releases, tracing their contributions to Vaulthome's development.
+
+When I reach the end of my flow—typically earlier than most Vault-dwellers, as the recording process taxes the body—my successor will spend three full cycles with me, skin against skin, as the living record transfers through a carefully controlled fungal migration. Then I will join the decomposition chamber reserved for Recorders, where my nutrients will feed the special strain of memory-moss that grows nowhere else in the settlement.
+
+I am neither leader nor follower, neither particularly respected nor disregarded. I am simply necessary—the living memory of a place that exists beyond written language, preserving through touch and scent what would otherwise dissolve into myth within generations.

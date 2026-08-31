@@ -1,0 +1,21 @@
+In this mist-veiled valley, I am the Keeper of Bridges.
+
+My body is long and low, built for traversing the narrow walkways that web between the stilted dwellings. Six legs, each ending in broad, webbed feet that grip wet wood and stone with equal ease. My fur—if you can call it that—is more like living moss, a coat that drinks in the perpetual moisture and blooms with tiny flowers in the spring. The blossoms open only at night, releasing a sweet scent that mingles with the marsh gases and lamp smoke.
+
+I move through the settlement when most are sleeping, testing each plank, each rope, each stone that bears the weight of daily passage. My work is felt rather than seen—a tightened joint here, a reinforced beam there. Where rot threatens to take hold, I secrete a resin from glands along my belly that hardens into something stronger than the original wood. The bridges know me by the whisper of my passing, the careful placement of each foot, the gentle probe of my twelve fingers checking for weakness.
+
+The Marsh-Dwellers leave offerings at the junction points where three or more walkways meet: fish scales arranged in patterns, bundles of sweetgrass, sometimes a child's drawing scratched into bark. I do not take these things, but I understand them. They are acknowledgments, as my work is an acknowledgment—we are all servants of the same continuity.
+
+During the day, I rest in the spaces beneath the buildings, half-submerged in the warm spring pools that bubble up from below. The Mossbacks know me here, accept my presence among them. We share a patience, a perspective measured in decades rather than days. Sometimes the smallest Marsh-Dweller children, those still young enough to see clearly, spot my eyes gleaming from the shadows. They wave. I close my eyes slowly in response—a greeting they seem to understand.
+
+My memory stretches back through countless seasons of fog and rain. I remember when certain sections of the settlement were young wood, bright and sharp-smelling. Now they are dark with age and wear, made beautiful by their endurance. I remember the great storm that threatened to tear the western quarters from their moorings, how I worked for three days and nights, secreting emergency webbings that held until repairs could be made. The scars of that binding are still visible if you know where to look.
+
+At times, I venture to the valley's edges where the waterfalls crash down from the heights. Here I gather materials—specific stones that ring when struck, woods that will not rot even in perpetual dampness, vines that grow stronger when woven. The Mistwingers see me on these journeys, circling high above. Once, in a moment I still do not fully understand, one landed beside me at the base of a great falls. We regarded each other in the spray-drenched air, two keepers recognizing our shared duty. Then it was gone, lifting back into the mist on wings that seemed to pull the very clouds with them.
+
+I am neither wholly of the Marsh-Dwellers' world nor separate from it. I am the continuity between what was built and what persists, the tender of connections, the mender of passages. In this valley where everything is always damp and nothing ever truly dries, I ensure that the paths between places hold firm, that the commerce of daily life—children running to lessons, adults carrying baskets of reeds and fish, elders making their careful way to evening gatherings—continues unbroken.
+
+When my time comes to an end, another will emerge from the warm pools, drawn by the same imperative that shapes us all in this place: to serve the balance, to maintain the web of connections that allows life to flourish in the space between water and air, between wildness and settlement, between past and future.
+
+For now, I continue my rounds, leaving only the faintest marks of my passage—a bridge that somehow feels more solid beneath your feet, a walkway that sings a slightly different note in the rain, a railing worn smooth by countless hands that will bear countless more.
+
+This is my place in the pocket universe, ancient and alive: I am the keeper of the paths that bind it all together, guardian of the spaces between.

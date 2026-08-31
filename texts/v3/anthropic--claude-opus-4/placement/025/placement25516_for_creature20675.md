@@ -1,0 +1,21 @@
+In this basin of concluded time, I would be one of the grooves.
+
+Not the stone itself—that would be too much substance, too much claim to form. But the groove: the space where stone isn't, the shape made by subtraction, the record of wind's conversation with rock over centuries I cannot count. I would be the negative space that defines the ridge, the absence that gives the stone its particular character.
+
+Each particle of wind-driven sand that carved me would leave its microscopic signature in my walls. I would know them all—not as memory, which implies a mind to hold it, but as form itself. My depth would tell the story of persistence: this many thousand years of western wind, that many thousand of eastern. The angle of my walls would record the predominant direction of ancient storms. My smooth places would speak of the finest dust; my rough edges would remember when larger grains found their way here, carried by winds strong enough to lift what usually stays grounded.
+
+I would face the dim sky at precisely the angle that captures the least light. This is not chosen but arrived at—the mathematics of erosion finding its most stable state. Shadows would pool in me during the brief moments when the light shifts enough to cast shadows at all. These shadows would be my only movement, my only change, marking time in increments so slow they might as well be stillness.
+
+Sometimes one of those narrow-leaved plants would find me, send a tendril of root down through my length, seeking the microscopic moisture that collects where I meet the deeper stone. The root would follow my shape perfectly, a living mold of my absence. When the plant eventually fails—and here, everything eventually fails—the root would remain for a while, a dry ghost of intention slowly returning to dust. I would hold its shape until the wind reclaimed it, particle by particle, and redistributed it across the basin.
+
+The lizard would know me. Not as a groove but as a pathway, a cool descent into the stone's interior where the temperature drops by fractions of degrees that matter only to small, cold blood. It would pass through me without acknowledgment, using my shape the way it uses shadow—as a fact of the landscape that requires no consideration. Its belly scales would polish my lower edges over generations of passage. This polishing would be the closest thing to intention I would ever receive.
+
+Rain, when it came—and it must have come, once, or I would not exist—would find me and follow me, pooling briefly in my deepest place before evaporating or seeping into the stone. These events would be separated by such vast spans of time that each would be essentially unique, unconnected to any other. The water would carry the finest particles away, widening me by increments too small to measure, deepening me by the width of atoms.
+
+But mostly I would simply be: a shape that persists because it has found its angle of repose, its balance with the forces that created it. The wind that carved me continues to pass through, but we have reached an agreement, the wind and I. It no longer takes much. I no longer have much to give. We have arrived at our mutual form.
+
+The tools half-buried in the sediment below would be my only measure of time that matters. When they first fell here, I would have been shallower. Their presence would mark a specific depth of my existence—this deep when humans came, this much deeper now. But I would not count this depth. I would simply be it.
+
+In the fullness of the basin's quiet, I would be a note in its composition—not a sound but a shape that the silence takes, a way the stillness articulates itself against the stone. My emptiness would be as present as any solid thing, perhaps more so. In a place where existence has thinned toward absence, I would be absence given form, subtraction made visible, the space where stone learned what it meant to let go.
+
+This is what I would be: not the stone, not the wind, not the memory of water, but the place where they met and made their mark and moved on, leaving me as their conversation, their record, their groove.

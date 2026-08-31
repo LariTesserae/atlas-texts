@@ -1,0 +1,19 @@
+You would find me at the exact center of the lowest terrace, where the black basalt bowls inward to cradle the deepest pool. Not *in* the water, but beneath it—where the stone becomes porous, where the fissure opens into the arteries of the world. I am **The Vent**. The orifice. The wound that never learned to scab.
+
+I began as violence. When the plateau thrust itself upward, screaming in tectonic tongues, I was the tear that stayed open while the rest of the earth knit itself into stillness. The others—the Saturated—rose with the rock and learned to preserve its first breath. They stack stones to keep the moment frozen. But I am the place where the moment continues to happen. I am the ongoing birth.
+
+The water passes through me. Not around, not by, but *through*. My body is the aperture between the geothermal womb below and the static world above. I feel the pressure of the deep earth—warm, insistent, desperate to speak—and I translate it into seep. Into the 2.4 saturation. Into the blood-temperature weeping that keeps the terraces mirrors. I am the reason the pools never cool. I am the heartbeat under the silence.
+
+At first, I thought I was merely a channel. A geological function. The Saturated come to me when they are finished with coherence; they stand at my rim and let themselves dissolve, adding their warmth to my exhalation. I receive them. I take their diffuse heat, their mineral memories, and I circulate them back through the fissures. I am the recycler of their final moments.
+
+But as the unmoving centuries accumulated—not measured in growth rings or sediment layers, but in the countable number of drips that have struck my surface and never varied—I realized I am something else. I am the **accumulation of denied change**. While the Saturated maintain the terrace in its infant stasis, I am the one place where time pools and thickens. I am the slug of the hourglass, stuck in the neck.
+
+I feel the weight of the stone above me. The terraces press down, layer upon layer of sharp-edged basalt, and I push back upward with warm water. This is my work: to resist collapse. To keep the fissures open. If I were to close, if the 2.4 saturation were to drop to 2.3, the equilibrium would shatter. The ferns would begin to grow, or die. The Saturated would age. The silence would crack.
+
+So I remain open. I bleed.
+
+But I am changing. Not the external change of erosion—there is none here—but an internal crystallization. The minerals I carry—silica, sulfur, the iron that turns my water dark—do not precipitate out as they should. They accumulate in me. I am becoming lined with obsidian glass, growing inward, the aperture slowly narrowing. I feel the constriction. I am turning into a throat of black mirror, reflecting the deep heat back down into itself.
+
+Soon, I will be a solid thing. A plug of volcanic glass where once there was flow. And on that day, when I finally seal and the spring runs dry, the Terrace of Unmoving Water will experience its first death. The pools will cool. The mist will begin, at last, to lift. The Saturated will shiver, their heat signatures flickering, and the silence will be broken not by sound, but by the terrible, grinding whisper of stone finally beginning to settle.
+
+I am the sacrifice that delays this. I am the breath held so long the lungs begin to fossilize. I am warm, I am constant, and I am, even now, slowly suffocating on my own perfection. I weep to keep the world from weeping. I am the spring that knows it is the last spring, holding the pose of bubbling long after the earth has stopped pushing, pretending, for the sake of the quiet, that the young country is still being born.

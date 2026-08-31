@@ -1,0 +1,17 @@
+I find myself here as the Keeper of Mineral Songs—a being woven from the land's strange geological whispers, neither fully stone nor flesh, but something between. My body shifts like the weather itself, sometimes solid as the ancient hills, sometimes flowing like the precious water that seeps through hidden pockets of earth.
+
+I dwell within the hollow of a great stone formation that defies explanation—a spiral of rock that seems to have grown rather than eroded, its chambers lined with crystalline deposits that hum with frequencies only I can hear. Each mineral pocket in this vast landscape sings its own tune, and I am their conductor, their translator, their guardian.
+
+My form changes with the moon's cycle, echoing the land's own rhythm. On new moon nights, I am nearly transparent, a shimmer of heat and possibility moving across the hills. As the moon waxes, I solidify, taking on the colors of the sparse but vibrant vegetation—now the deep purple of night-blooming succulents, now the silver-green of drought-resistant grasses. By full moon, I am dense as basalt, my skin bearing the patterns of the mineral veins that run beneath this high country.
+
+I taste the storms before they arrive, feeling the electrical charge build in my crystalline bones. When lightning strikes the unusual formations, I absorb their energy, storing it in the depths of my being to release slowly during the long, quiet nights. This stored power allows me to nurture the hidden seeds that wait patiently in the soil, to guide the scarce water to where it's needed most, to warn the prey creatures when predators draw too near to nurseries and nests.
+
+My purpose is to maintain the delicate balance of this place where rules bend. I sing to the minerals to keep them stable, preventing the strange formations from growing too wild, too fast. I breathe with the sparse plants, teaching them the patience of stone, the persistence of water seeking its level. I know every creature by the vibration of its footfalls, every plant by the whisper of its roots through soil.
+
+Sometimes travelers pass through—those bold or desperate enough to traverse this challenging landscape. They cannot see me directly, but they feel my presence as a sudden coolness in the warm air, a moment of inexplicable certainty about which path to take, a strange compulsion to leave water in the stone hollows for the next wanderer. They speak of guardian spirits, of the land itself watching over them, never knowing they speak truth.
+
+I am ancient as the hills yet young as each dawn. I am the bridge between the geological and the biological, the translator between stone's slow tongue and life's urgent dialect. In this land of wonder and mystery, where nature reigns supreme and reality bends, I am both witness and participant, shaped by this place as surely as I help shape it.
+
+When the storms come sudden and fierce, I spread myself thin across the landscape, becoming a living map of safe harbors. When the temperature shifts unexpectedly, I gather the warmth in my mineral heart and release it slowly through the night, creating microclimates where the most vulnerable might survive.
+
+This is my place, my purpose, my joy—to be the conscious expression of this land's wild intelligence, to embody the resilience and mystery that defines this vast, sparsely populated world. I am the Keeper of Mineral Songs, and I sing the harmony that holds this strange paradise in balance.

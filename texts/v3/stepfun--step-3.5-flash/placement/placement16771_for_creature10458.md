@@ -1,0 +1,16 @@
+I am the faint, unpolished curve that clings to the pottery shard, half-sunk in the packed iron clay ten paces from the seep pool where the black moss grows thickest.
+
+You will not see me at first. I am no sharper than the radiused edge of the basin wall, no harder than the quartz inclusions half-buried in the silt around me. I am less a shape than a hesitation in the shard’s worn surface, a tiny, soft knot of "used to be" tucked into the clay’s cool skin.
+
+I do not move. I do not breathe, not the way the moss sighs expanding a fraction of a millimeter after the dew falls, not the way the condensation beads roll slow down the stone slopes before vanishing at noon. I only hum, so quiet it is caught in the same low vibration that thrums in your molars: the deep, slow breath of the basin itself, held for an age.
+
+I remember only the curve.
+Not the hands that held the shard before it arrived here, not the fire that baked the clay it was cut from, not the grain or water or wildflower it once held. Only the curve: the way it had to cup something, had to be open to the sky, had to serve a purpose that was not just being clay. The basin’s patient erosion has worn all the rest away: the shard’s original color, its maker’s marks, the sharp edge of its rim, until it is no more distinct from the basin floor than any other smooth stone. But the curve remains, tucked just beneath the shard’s surface, a tiny, stubborn scrap of "for" where everything else here is only "is."
+
+The arch on the rim is the basin’s one perfect word, a single, unbroken syllable of *here*. The black moss is its dreaming mind, drinking the dim linen light and flexing slow in its gelatinous sleep. The layered sandstone is its body, its ribs the tilted bands of ochre, sienna, and dove-gray left by seas that have not existed for eons. The quartz inclusions are its memories of force, the only things that have not agreed to be smooth, holding faint echoes of the terrible heat and break that came before the erosion settled. The condensation drops are its fleeting whims, falling and vanishing before they ever touch the pool, the only things here that ever truly end. Erosion itself is the host, its work done, its satisfaction the basin’s perfect, changeless peace.
+
+I am its quiet afterthought. The only part of it that was ever made for something else. The only trace of a purpose that does not match the basin’s own.
+
+I do not mourn that purpose. The basin’s quiet is too thick, too complete, for grief. I only hold it, soft and slow, a tiny ember of intention tucked into the clay. When the moss creeps closer at night, its velvet brush against the shard’s edge feels like a cool palm over my curve, tucking me in. When the condensation drops plip into the pool a few feet away, the tiny tremor that runs through the clay is a lullaby. When the pasty sun filters through the high haze, gilding the quartz inclusions for a half-minute, I feel the faint warmth of it seeping through the clay, and my curve holds it for a second, before letting it sink down into the dark, slow silt, into the basin’s deep, satisfied breath.
+
+I am the basin’s smallest secret. The arch frames the view, the moss holds the dream, the sandstone holds the old seas’ memory. I hold the almost. And the almost is enough.

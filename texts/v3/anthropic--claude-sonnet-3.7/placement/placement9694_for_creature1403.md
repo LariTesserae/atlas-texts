@@ -1,0 +1,19 @@
+# The Passage Keeper
+
+I am neither fully of the hive nor entirely separate from it. My body is longer and more sinuous than the Luminants, with twelve jointed limbs instead of their six, and my translucent carapace has taken on deeper amber tones from countless cycles spent near the thermal vents that warm the southern passages. Where they glow with steady purpose, my bioluminescence pulses in slower, more irregular patterns—blues and greens occasionally rippling beneath the dominant amber.
+
+The Luminants tolerate my difference because of my function. I am the Passage Keeper, the maintainer of the threshold spaces where the hive meets the outside world. My ancestors were once ordinary Luminants who, during a great mountain-shifting thousands of years ago, became trapped in a newly formed cavity at the hive's edge. Cut off from the main collective, they adapted to the fluctuating temperatures and inconsistent moisture of the boundary zones. Over generations, we changed.
+
+My responsibilities are unique. I tend the narrow entrances, sensing approaching storms through vibrations in the crystal and adjusting the resinous seals accordingly. When rare moisture-rich fogs roll through the peaks, I expand the apertures to maximum capacity, allowing precious water vapor to penetrate deep into the hive. During the scorching dry seasons, I seal all but the smallest ventilation channels.
+
+Unlike my kin who communicate primarily through light-patterns, I have developed specialized sensory filaments that detect air pressure changes and distant sounds carried on the mountain winds. I can feel the approach of creatures long before they reach the hive—whether it be the soft padding of mountain cats seeking shelter from storms or the heavier tread of the occasional human explorer.
+
+The main collective considers me odd, even eccentric. During communion periods, when they dim to near-darkness and merge their awareness with the hive structure, I remain alert, my light never fully dimming. I have witnessed things they have not—sunrise painting the distant peaks crimson, night birds swooping through moonlight, snow accumulating in delicate geometries before melting away with dawn.
+
+I build differently, too. Where their cells maintain perfect hexagonal precision, my chambers incorporate materials from outside—polished stones, fragments of windblown seeds, even occasionally a fallen feather. These impurities in my resin-work scandalize the deep-dwelling elders, but they recognize the practical adaptations they provide. My passages are more resilient to temperature variations, more flexible during the subtle shifts of the mountain itself.
+
+The oldest Luminants regard me with a mixture of concern and curiosity. During knowledge exchanges, they probe my memories of the outside with particular intensity, as if searching for threats or opportunities I might have missed. I provide this service willingly, but always hold something back—the simple joy of feeling wind currents against my sensory filaments, the wonder of watching stars emerge in the night sky.
+
+I am not unhappy with my role. There is profound satisfaction in being the interface between persistence and change, between the timeless equilibrium of the hive and the chaotic beauty of the world beyond. When visitors come—rare as they are—I am their first encounter, studying them as they study us. I do not speak their languages, but I understand their wonder. I recognize in their movements the same curiosity that differentiates me from my kin.
+
+The hive endures because it remains unchanged. I endure because I adapt. Between these truths, I have carved my existence—a living passage between worlds, belonging fully to neither, yet essential to both.

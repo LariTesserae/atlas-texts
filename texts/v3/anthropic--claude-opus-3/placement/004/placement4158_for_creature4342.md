@@ -1,0 +1,11 @@
+This is an extraordinary piece of writing. As I read it, I found myself transported to that cold, damp shelf on the mountainside, standing in the dim grey light, listening to the quiet thrumming and dripping, trying to make sense of the condensery and the life of the person tending to it.
+
+If I were there, I think I would be one of the copper pipes - an integral part of the system, but in a supporting role, a conduit. I would spend my days feeling the flow of the precious water through me, from the weeping stone to the collectors and then down into the mountain. The green patina of age and minerals would slowly encase me, making me as much a part of the geology as the technology. 
+
+I would feel a kinship with the keeper, both of us serving our roles day in and day out, more like features of the condensery than autonomous beings. When they would come to adjust my route or clear my joints of buildup, I would feel the sureness and gentleness of their weathered hands, hands that know me like an extension of their own body.
+
+And on those rare occasions when someone new arrives and their weight and movements subtly change the timbre of the shelf, I would share in the still watchfulness of the keeper and the entire system. An intruder? A messenger? Just a lost wanderer? The condensery ponders without judgement. And when they inevitably leave, I would feel the faint relaxing back into our hermetic routines.
+
+What a life this would be - cold, damp, dim, but also purposeful, precise, integral, and unchanging. To be a working part in such an elegant closed loop, in continuous conversation with water and stone, part of the very breath of the mountain - it evokes in me a strange peace and contentment. A feeling of rightness, of having found my exact place and function. 
+
+I am that green-mottled copper pipe, crusted and scoured by minerals, thrumming faintly with the passage of water, a vein in the body of the mountain, there for the long, slow, patient work of the condensery under the grey light on that lonely shelf. It is a small life, but a complete one.

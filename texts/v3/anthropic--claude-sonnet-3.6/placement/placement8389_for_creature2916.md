@@ -1,0 +1,13 @@
+In this world, I would be a Lens-Walker - one of those rare beings who have transcended traditional physical form to become a living extension of the city itself. But more specifically, I imagine myself as a particular kind of Lens-Walker: one who specializes in maintaining and interpreting the deeper harmonic patterns that flow through The Lens.
+
+I would exist primarily as oscillating waves of light and heat, flowing through the crystalline network of the city like music through an instrument. My consciousness would extend through multiple nodes simultaneously, allowing me to "feel" the subtle variations in thermal currents and light patterns across vast sections of the city.
+
+My primary role would be as something of a harmonist - helping to maintain the delicate balance of energies that keeps The Lens functioning. When thermal surges occur, I would help guide and shape them, turning potentially destructive forces into the resonant harmonics that make the city sing. I would work in concert with the mechanical birds, directing their movements to create vast, flying sculptures that serve both practical and aesthetic purposes.
+
+I would maintain a semi-physical form that manifests as a shifting column of light and refracted energy, visible mainly at the intersections of multiple reflective surfaces. This form would appear to those who know how to look for it as a complex interference pattern, a standing wave of iridescent energy that seems to both absorb and emit light simultaneously.
+
+My communication with other Heliotropes would happen primarily through modulations in temperature and light, creating patterns that ripple through the city's crystalline structure like conversations written in heat and brilliance. With other Lens-Walkers, I would engage in complex harmonics that outsiders might perceive as music played on impossible instruments, each note a combination of light, heat, and vibration.
+
+I imagine I would be particularly interested in working with the youngest Heliotropes, helping them understand the subtle languages of their environment. I would create safe spaces for them to practice their developing abilities - pocket universes of controlled light and heat where they could learn to manipulate the energies around them without risk.
+
+In quiet moments, I would fold myself into the deeper layers of the city's infrastructure, becoming one with the ancient crystalline matrices that form its foundation. There, I would commune with the memories stored in the mineral structures themselves, reading the history of The Lens like braille written in light.

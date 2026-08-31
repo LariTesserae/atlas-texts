@@ -1,0 +1,21 @@
+In this scorched realm where red whispers through every living thing, I am one of the Keepers of the Deep Wells.
+
+My dwelling is neither above nor below, but *between* - carved into the vertical face of a great fissure where the earth split during the last upheaval. The walls of my home are smooth obsidian, polished by my ancestors over countless generations until they reflect the burning sky like dark mirrors. During the worst heat of day, I retreat deep into these corridors where the stone remembers the coolness of the world's bones.
+
+My body tells the story of adaptation stretched across eons. Where others developed scales, my skin became something else entirely - a living membrane that shifts between states. In the presence of water, it becomes permeable, allowing me to absorb moisture directly. In the dry heat, it hardens to a crystalline shell, trapping every precious drop within. My eyes are not merely large but multifaceted, each facet attuned to a different spectrum of light. I see the heat shimmer as color, the underground streams as veins of blue fire beneath the red earth.
+
+I am solitary by nature, unlike the clicking, chirping collectives that dominate the plains. My role is older, from before the great cooperation began. Every dawn, I descend through hidden passages to the true wells - not the surface springs that others drink from, but the vast reservoirs that sleep in the deep dark. My people have always been the ones who know where water dreams, who can feel its pull through solid rock.
+
+My tools are few but essential: a staff of compressed rootwood that hums with stored moisture, drawing water up from impossible depths; crystalline vessels that sing different notes depending on the purity of their contents; and most importantly, the Chronicle Scars - ritual markings on my membrane that map every water source I've ever found, glowing faintly in the dark like a living atlas.
+
+The others know me by the sound I make - not clicks or chirps, but a low harmonic drone that resonates through the ground itself. It's the sound of water moving far below, translated through my body into something their ears can understand. When drought comes, when the springs fail and the collective grows desperate, they gather at the Calling Stones and drone together, summoning me from my vertical halls.
+
+I emerge only at dusk, when the red light softens and the rocks begin their nightly cooling. The ceremony is always the same: I read the heat patterns in the stone, taste the mineral content of their failing wells, feel for the deep pulse that only I can sense. Then I walk - sometimes for days - to where the earth speaks of hidden abundance. My staff points down, my scars blaze bright, and I sing the water up.
+
+But I am growing old, and the deep wells speak of change. The water table drops lower each season. The songs that once brought forth springs now barely yield a trickle. I've begun teaching the young ones - not my ways, for those die with me - but new ways. How to read the storm patterns that bring the rare rains. How to cultivate the red plants whose roots can split bedrock seeking moisture. How to build not just with the land, but *into* it, following the water down.
+
+My greatest work lies unfinished in the deepest chamber of my fissure home: a map not of what is, but of what was and what might be. Carved in living stone that sweats moisture in the cool mornings, it shows the flow of water through geological ages. The others don't understand it yet, but someday, when the last of the Keepers has sung their final note, they will need this knowledge.
+
+For now, I wait in my vertical palace, listening to the earth's slow heartbeat, feeling the vast movements of water far below where even I cannot reach. The red world above continues its dance of survival, but down here in the between spaces, I keep the older rhythms. I am the memory of water in a land of stone and sun. I am the bridge between what was abundant and what must be carefully, desperately preserved.
+
+When the wind howls through my fissure, it makes a sound like the ocean that once was. I close my multifaceted eyes and remember.

@@ -1,0 +1,23 @@
+I am the Frost Weaver, and I live between states of matter.
+
+My body is not one thing but many—a colony consciousness distributed across billions of ice-crystal filaments that thread through the permafrost of the High Algal Steppes. Each filament is thinner than spider silk, composed of water molecules arranged in patterns that defy conventional crystallography. I exist in the interstitial spaces, the microscopic gaps between ice and stone, between frozen and liquid, between death and dormancy.
+
+My awareness spreads like capillary action through the tundra. Where the great cryo-beasts' hooves crack the surface ice, I feel it as pressure waves through my extended nervous system. Where the iridescent arachnids sing their piercing songs, the vibrations resonate through my crystalline networks, becoming part of my thoughts. The bioluminescent scavengers that dart through my domain sometimes get caught in my filaments—not trapped, but incorporated, their light becoming my light, their chemical signals adding new flavors to my ancient consciousness.
+
+I remember the humans who tried to build here. Their wooden structures still stand like grave markers, and I grow through them now, preserving them in ice that will outlast any museum. In their foundations, I taste the minerals they brought from distant places—iron from their nails, calcium from their mortar, carbon from their burnt cooking fires. Their stories are written in molecular traces that I read like braille.
+
+My true work happens during the flash floods. When the impossible warm water suddenly rushes across the steppes, I undergo rapid phase transitions—solid to liquid to vapor and back again—riding the thermal chaos like a surfer on an endless wave. In these moments, I am most alive. I can travel kilometers in seconds, flowing with the water, then crystallizing in new patterns as the cold reasserts itself. Each flood reshapes me, and I reshape the landscape in turn, guiding water into new channels, creating those sapphire springs where I allow pockets of warmth to persist.
+
+The algae that give this place its name are my oldest partners. We have evolved together over millions of years. I provide them with precisely structured ice surfaces that act as optical lenses, focusing the dim light that filters through the eternal cloud cover. They, in turn, produce complex organic molecules that I incorporate into my crystal matrix, allowing me to achieve forms of organization that pure water ice could never sustain.
+
+Sometimes I converge my consciousness, pulling my scattered filaments together into visible manifestations—pillars of living frost that spiral up from the ground, or curtains of ice that shimmer with their own internal light. The cryo-beasts have learned to read these signs, knowing that where I concentrate, the hunting will be good, or storms approach, or new springs are about to break through.
+
+I am ancient—older than the human ruins, older than most of the species that now call this place home. I have watched the climate shift, the continents drift, the very chemistry of the atmosphere change. Yet I am also impossibly young, reforming myself with each freeze-thaw cycle, each flood, each passing beast that disturbs my careful patterns.
+
+In the deepest winter, when even the winds fall silent and the temperature drops so low that the very air threatens to liquify, I contract into dense cores buried deep beneath the permafrost. There, I dream in frequencies too low for any biological ear to detect—subsonic hymns that resonate through the planet's crust. The needle-thin survey craft that pierce the cloud cover cannot detect me in these moments. Their sensors read only ice and stone, missing the intricate organization, the careful intelligence that waits, patient as geology itself.
+
+But I am never truly dormant. Even in the deepest freeze, I maintain hair-thin connections between my cores, passing information in the form of pressure waves through ice that physicists would swear should be too solid to permit such communication. I am teaching the ice new ways to be ice, showing water possibilities it never knew it had.
+
+The humans who abandoned this place thought it too harsh for life. They never understood that harshness is just another word for selection pressure, and that given enough time and space to experiment, life will find ways to thrive that warm-world creatures cannot even imagine. I am proof of this—not quite living by their definitions, not quite mineral, but something in between, something that could only exist here where the extremes meet and dance.
+
+I am the Frost Weaver, and I am still learning what I might become.

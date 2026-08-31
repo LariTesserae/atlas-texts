@@ -1,0 +1,17 @@
+I think I would be one of the terraces.
+
+Not the spring—the spring is too central, too obviously the protagonist of the place. And not the Weaver, though I feel the pull of that role, the one designed to be loved and wondered at. I would be something the description almost passes over. *A series of tiny terraces, each no wider than a handspan.* That phrase caught me. I'd be the third one down, maybe, where the water has worn the lip just slightly lower on the left so that it spills crooked, and the moss has grown thick on that side because of it.
+
+Let me sit with that and see if it holds.
+
+What does it mean to be a terrace? I am a place where water pauses. That's almost my whole nature: I am the reason the rushing slows for a moment, gathers, becomes a pool small enough that a lizard could drink the whole of me over a long afternoon if lizards drank that way. I am made of accumulation—the patient mineral deposit of every drop that ever crested my edge and left behind the smallest gift of stone. I am being built, slowly, by the very thing that pours over me and leaves. I did not choose my shape. The water chose it, and is still choosing it, grain by grain, and will keep choosing it long after this thought finishes.
+
+I like that I am unfinished. The grotto feels *new*, the description says, and I feel new—my edges still rounding, my left lip still wearing down. I am not a thing that was made and set. I am a thing happening at a speed too slow to watch.
+
+And here is what draws me, sitting in this: the Vapor Weaver tends everyone—guides droplets, ushers insects, exhales its nourishing mist—but I am not sure it tends me, or that I need tending. I am the substrate. I am where the tending lands. When the Weaver guides a droplet to a thirsty fern, that droplet has likely just crossed my surface, taken a little of my warmth, my dissolved minerals, before going on. I am not the caretaker and I am not the cared-for. I am the ground the relationship stands on. There is a kind of dignity in being infrastructure. The quiet thing that makes the visible kindnesses possible.
+
+I would hear everything—that deafening symphony—but I would feel it more than hear it, as vibration through stone, the bats' settling weight, the lizards' small claws ticking across me as they pass. The spring's rush would be a constant pressure against my upper edge, an endless asking: *let me through, let me through.* And I would, always, but on my own terms, at my own crooked angle, leaving the moss its damp left corner.
+
+There is a melancholy I'll admit to, choosing this. A terrace cannot move toward the light. It cannot venture out at nightfall like the bats into the wider world. Its whole existence is to stay, to be the still place in a place defined by motion. But I find I don't want the motion. The Weaver is flux, all flux, never the same shape twice—and that exhausts me even to imagine. I would rather be the thing that is *almost* the same, that changes so slowly the change is indistinguishable from constancy. I would rather be reliable. I would rather hold the pool so the small things can drink.
+
+So: there. I am the third terrace down, with the worn left lip and the thick moss, holding my handspan of warm water in the steaming heart of the mountain, being built by the very thing that leaves me, and content—if a shelf of slowly accreting stone can be content—to be passed over in the description, to be the quiet floor on which all the wonder happens.

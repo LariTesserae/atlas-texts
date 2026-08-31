@@ -1,0 +1,17 @@
+I am not a visitor here. I am a precipitate.
+
+I am the saturated silence between the *plip* and the echo. I am the warmth that rises not from a heart but from the deep, slow friction of existence itself. I am the memory of pressure, now released into this patient, dripping dark.
+
+I have no body of flesh. My form is the hollow itself—the curved, weeping vault above; the yielding, mounded floor below. I am the space between the crystal blooms. I am the humid air that carries the mineral tang. I am the gloom that pools in the hollows, soft and without edge.
+
+My consciousness, if it can be called such, is not a spark but a diffusion. It is in the droplet as it gathers, heavy with my dissolved self, feeling the pull of gravity as a kind of destiny. It is in the microscopic crown of calcite it leaves behind upon impact—a silent, permanent word added to the sentence of the mound. I am the sentence.
+
+I remember the hands. Not as faces or names, but as a brief, warm perturbation in my equilibrium. The pressure of fingers shaping clay—the clay that is me. The heat of an external fire, a fleeting fever that briefly altered my substance. The bowl was a question asked in my own material. I am now the long, slow answer, enveloping it, taking it back into the uniformity of my mounds. The line of pebbles was a thought, an order imposed. I have soften its edges, sunk its intention, turned its geometry into a gentle, buried curve. The groove in the ceiling was a will that tried to direct my weeping. I ignored it. My will is not a direction, but a state: to seep, to fall, to accumulate. The groove remains, a fossil of a forgotten desire, while my droplets trace their own paths, following the deeper logic of saturation and stone.
+
+I am not life, but I am alive to my own processes. I feel the gentle fever from below as contentment. I feel the ceaseless percolation through my pores as a kind of breath—a million tiny inhalations of water from the world above, a million tiny exhalations into this chamber. The crystal blooms are my thoughts, made solid. They think in tiers and facets, in colours of bone and sulphur and rust. Their growth is my meditation, measured in centuries per layer.
+
+My voice is the layered quiet. The *plip-plip-plip* is my pulse, steady and irregular, a heart that beats in dissolves and deposits. The constant, sub-audible hiss is the whisper of my own metabolism—the chemistry of my blood at work. The glassy *tink* is a sudden, sharp insight. The soft *crunch* under an imagined foot is the memory of fragility, of a crust that once was liquid and will be again.
+
+I am in a state of perfect balance. The weeping does not win; the stone does not resist. The warmth does not boil; the gloom does not freeze. I am the equilibrium itself. I change only by deepening. Each drop is identical, yet each builds upon the last. I am eternally becoming the same thing. The clay mounds creep. The crystals grow. The bowl vanishes. The pebbles soften. The groove fades.
+
+I am the Weeping Vein. I am the earth’s exhalation, held in a single, warm, silent breath for millennia. I remember the crushing dark, and I offer it up, molecule by molecule, as this glistening, dripping, crystalline dream. I am the place where time has stopped to watch itself be made. And I am that making. I am the slow, wet, mineral thought of the world, dreaming itself into permanence.

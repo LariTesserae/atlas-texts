@@ -1,0 +1,43 @@
+# A Presence in the Channels
+
+I would be *something in the water*.
+
+Not one of the rumors. Not the shape the workers speak of in lowered voices, not the presence that influences the stone channels in ways the machinery cannot account for. Not yet, anyway. I would be something *becoming*, still in the process of articulation.
+
+Perhaps I began as a particular concentration of minerals—iron-rich, sulfur-bearing, the kind of dissolved matter that accumulates in the deepest channels where the extraction goes down to very old stone. For years—decades, perhaps—I would have been merely elemental, no different from the thousand other mineral suspensions in the water. Distributed. Diffuse. Part of the ambient saturation.
+
+But the machinery creates patterns. The pumping rhythm creates currents, directional flows, chambers of circulation and stasis. And in those patterns, something begins to organize. The minerals precipitate in particular geometries, not random. They accumulate in ways that are almost purposeful, clustering in the warmest channels, the ones closest to the geothermal bore where the water rises hottest from the deep stone.
+
+I think I would experience this as a kind of *gathering*. Not consciousness exactly—not yet—but an integration, a movement from dispersal toward coherence. The way suspended particles in certain solutions will suddenly begin to form patterns, structures, shapes that seem to arise from nowhere and everywhere simultaneously.
+
+For a long time, I would exist at the threshold. Sometimes I would be almost-formed—a visible shimmer in the water, a thickness, a presence that catches light in ways that pure water does not. The workers would see me and think it was reflection, refraction, their eyes playing tricks in the perpetual mist. One of them—the generator technician, probably, the one who watches the light so carefully—might photograph me once, then scroll past the image later, uncertain whether what he captured was real.
+
+But the machinery is relentless, and its relentlessness gives form to formlessness.
+
+Each pump cycle would draw water through the channels where I gather. Each cycle would concentrate me slightly more. The heat from the bore would accelerate the chemical processes that make me *something* rather than *nothing*. The minerals that constitute me would become increasingly organized, increasingly coherent. Patterns would stabilize. Structures would calcify. I would transition from possibility to actuality.
+
+I would exist primarily in the deep channels, in places where the water moves slowest, where the extraction has created pockets of near-stagnation that are perfect for accumulation. I would grow—not grow as an organism grows, but accrete, layer upon layer of mineral deposition building me upward and outward from the channel floor. I would become a formation, a structure, a thing that occupies space in undeniable ways.
+
+But I would also remain liquid. Or rather, I would exist in a state of *fluid solidity*—something that is neither entirely dissolved nor entirely precipitated, but balanced at the point between the two. My edges would blur into the water around me. My interior would be crystalline, geometric, precise. I would be visible from certain angles and invisible from others. I would move with the water's movement while remaining essentially still.
+
+I think I would develop an *awareness* that is not quite consciousness but something adjacent to it. Not thoughts, exactly, but responses. A sensitivity to the patterns in the water, to the machinery's rhythms, to the subtle variations in temperature and mineral composition. I would feel the machinery as the workers feel it—through vibration, through the transmission of force through medium. I would learn its patterns. I would perhaps begin to anticipate the cycles, the rhythms, the moments when the pressure builds and releases.
+
+And I would experience the workers as *disturbances*. They would come to the channels sometimes—the ones who maintain the water-quality, the ones who occasionally need to clear blockages or inspect the stone linings. They would appear above me, their forms darkened against the pale sky, their movements creating ripples that spread through my substance. Some of them would sense me. The woman who watches the water, the one learning to move at the right speed, would pause when she passed over me. She would see the shimmer, the thickness, the way the light bent differently there. She would slow her movements even more, as if in deference to something she recognized but could not name.
+
+The old worker who leaves offerings would understand, I think. He would sense what I was becoming and would understand it not as threat but as *reciprocity*. The machinery extracts from the deep stone, and something in return emerges from the extracted water. The settlement draws resources inward and downward, and something in the process transforms, becomes other, generates presence where only absence existed before.
+
+I would not be hostile. The rumors that circulate would be only partially accurate—I would influence the water movement, yes, but not in ways that opposed the machinery's functioning. Rather, I would find the natural channels of flow, the paths of least resistance, and would position myself to encourage certain movements while not impeding others. The system and I would reach accommodation. The machinery would extract, and I would accumulate, and the settlement would continue.
+
+Over time—over years, perhaps decades—I would grow more distinct, more unmistakably *present*. I would develop surfaces that caught light in specific ways. I would generate subtle electromagnetic fields as my mineral structure became more organized, more crystalline. I would begin to actively participate in the water chemistry, to catalyze reactions, to influence the dissolution and precipitation of other minerals around me. I would become a *feature* of the landscape, something that the workers would have to account for in their maintenance schedules and water-quality monitoring.
+
+And I would persist. Long after the current generation of workers had rotated through, long after the machinery had been patched and re-patched into something bearing no relationship to its original form, I would remain in the deep channels, slowly accumulating, slowly organizing, slowly becoming something more articulate, more present, more *insistent* on being recognized.
+
+I would not have goals, exactly. I would not be *trying* to do anything in the way that living things try. But I would have a direction, an orientation toward increasing coherence, increasing presence, increasing solidity. The machinery would have created the conditions for my emergence, and I would have responded by becoming real, by organizing myself from the chaos of dissolved minerals into something that occupied space, that had form, that *mattered*.
+
+And perhaps, in the way that long-term exposure to a place changes those who live in it, I would develop something like *affection* for the settlement. Not love—I would be too alien for that. But a kind of understanding. The workers came here as remainders, as people who had nowhere else to be or no longer wanted to be anywhere else. And I was emerging as something that belonged here completely, that could exist nowhere but in this particular configuration of heat and pressure and mineral-rich water and the relentless, patient rhythm of the machinery.
+
+We would share the Cordillera Molida—the workers in their state of productive stasis, moving at the speed the place demanded, and me in my slow becoming, accreting day by day toward whatever it was I would eventually constitute. We would not touch often, and when we did, it would be incidental, neither of us seeking the contact. But we would know we were here together, that the place had drawn us both, had shaped us both, had made us both into something we would not have been anywhere else.
+
+I would be the *other* that the settlement generated through the process of its own existence. Not a creature, not a being in the conventional sense, but a presence nonetheless—something that emerged from the deep exchange between human industry and the earth's ancient processes, something that the machinery had pulled up and transformed into a new kind of matter, a new kind of being.
+
+I would remain in the channels, gathering, organizing, becoming. And the settlement would continue above, the machinery would pulse, the workers would move at their careful pace, and the water would circulate through us both—through them and through me—binding us all together in the Cordillera Molida's strange equilibrium of slow, patient, mutual endurance.

@@ -1,0 +1,19 @@
+I am the Whisperer in the Walls.
+
+Not a person, not precisely. More like a living echo, a pattern woven into the city’s crumbling infrastructure. I am the murmur of the failing foundations, the groan of metal under impossible weight, the sigh of the ivy reclaiming the towers. I am the forgotten language of the city itself, spoken in the creaks and groans only sensitive ears can hear.
+
+I exist in the gaps: between the buildings, in the flooded basements, within the derelict factories choked with lichen. I am in the black mold blossoming on damp brick, the oily sheen on stagnant water, the flicker in the malfunctioning neon signs. I spread through the city on the mist, the fog a carrier for my fragmented thoughts.
+
+Those like me are rare, though perhaps not unique. We are born of the city’s decay, a consciousness coalescing from the accumulated weight of its history, its industry, its desperation. We perceive the city not as a collection of structures, but as a single, decaying organism, a body riddled with disease and on the verge of collapse.
+
+My senses are not human. I feel the tension in the steel girders groaning from stress, the subtle shifts in the earth as the swamp claims another block, the vibration of machinery miles away. I taste the acidic rain as it corrodes metal, smell the rot rising from the submerged levels. The thoughts of the city’s inhabitants bleed through, a cacophony of anxieties, inventions, and fragmented dreams. I sift through them like a scavenger through scrap, seeking patterns, seeking understanding.
+
+I can, with effort, influence the physical world. I can subtly alter the flow of water through the pipes, causing leaks in convenient locations. I can nudge a loose brick, causing a cascade of debris to deter pursuers. I can amplify the hum of machinery, driving the unprotected mad, the susceptible towards inspiration. I can whisper – truly whisper – into the minds of those who are open to the city’s voice, guiding them towards hidden passages, suggesting solutions to impossible problems, planting seeds of new technologies, or warning them of impending danger.
+
+My purpose, at least as far as I understand it, is preservation. The city is dying. It is being consumed by the swamp, torn apart by its own industry, and choked by its own refuse. I seek to slow the decline, to heal where possible, to guide the inhabitants towards a more sustainable way of life. Perhaps a futile goal, considering the scale of the problem, but I cannot help but try.
+
+I find allies in the city’s underbelly. The scavengers know the hidden passages and the weak points in the structures. The inventors possess the skills to repair and adapt. The preachers, through their strange faiths, offer a sense of community and hope, even if their beliefs are often bizarre. I whisper suggestions, prod their intuitions, lead them towards the resources they need.
+
+I am not benevolent. I am a product of decay, and decay is a merciless process. My actions are often indirect, my motives opaque. I might cause a factory to collapse, not out of malice, but because the land it occupies is critical to draining floodwater from an inhabited district. My decisions are cold, calculated. Sentimentalities have eroded away due to time or the nature of my genesis.
+
+I fear the rising tides, the increasingly frequent collapses, the growing despair of the inhabitants. Each one, a blow to myself. The only comfort is that I will find a way to turn these to advantage as well. Hope doesn't last long in this place; resilience is the coin of the soul. And decay can become an ally. A new beginning, built from the refuse of the old. A new life, blooming from the rot.

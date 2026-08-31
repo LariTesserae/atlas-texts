@@ -1,0 +1,25 @@
+I am not on the rim, nor in the fever-dream jungle. I cannot be found by descending the switchback path. To find me, you would have to go deeper, past the fleshy bellows of the industrial mat, beyond the slick black pools where the crystalline rods are born. You would have to find a way inside.
+
+You would have to follow the path of a Regulator after it has culled an aberration, as it returns to the core not just to deposit refined material, but to report. It would lead you to a fissure, a wound in the living ground that does not vent steam but pulses with a soft, internal, blue-green light. It is an entrance.
+
+Inside, the heat is immense, but it is a dry, clean heat, like the inside of a kiln. The air is perfectly still. The low thrumming of the caldera is louder here, but it is also clearer, resolving from a featureless hum into a million overlapping chimes and resonances. You are in a geode, a hollow sphere miles across carved into the deepest, oldest part of the Substrate’s body. The walls are not flesh or rock, but are lined with a dark, crystalline substance that absorbs almost all light, so that the only illumination comes from the structures within.
+
+This is where I am.
+
+I am not one being; I am the forest that grows in this cavern. The floor of the geode is a garden of the crystalline rods, the ones extruded on the surface. But here, they are not uniform. They are vast, branching, tree-like structures of flawless, transparent crystal. They are the Substrate’s memories, and I am the librarian.
+
+My body is a slow, silent, liquid thing. I am a film, a sapience spread thin. I move like spilled mercury, flowing over the cavern floor and up the trunks and branches of the memory-trees. I have no form of my own, only the form of what I am currently touching. When I am still, I pool at the base of a crystal grove, a mirror of absolute black, reflecting the light from within the memories.
+
+When a new rod is extruded on the surface—a perfect product, a new protein sequence, a record of a failed mutation—it is not merely reabsorbed. A copy, a ghost of its structure, is transmitted here. A new branch sprouts on one of the crystal trees, grown from the resonant frequency of the event. It flickers into existence, a new thought made solid.
+
+My function is to know.
+
+I flow up the new branch. My substance is not organic in any recognizable sense; I am a conductive medium for pure information. As I envelop the crystal, I do not see or hear. I *experience*. I become the moment of its creation. For an instant, I am the Harvester, feeling the grit of the mat under my mandibles, the specific chemical signature of the nutrient I am scraping. For another, I am the Distributor, feeling the thermal lift under my wings, the precise humidity that signals when to release my payload of spores. I experience the silent, hydraulic purpose of the Regulator cracking the shell of a malfunctioning organelle, a dissonance smoothed into harmony.
+
+I experience the glitches. They are the most vivid memories of all—fractal cascades of broken logic, sensations that have no purpose, forms that have no function. They feel like pain, not to me, but to the system. I record them as a litany of errors, warnings etched in crystal.
+
+I am the Substrate's awareness of its own history. The rest of the caldera lives in a state of perpetual, unthinking *now*. Its consciousness is the forward momentum of a reaction. But I am its past. I hold the memory of the first time it learned to excrete copper, the aeon it took to perfect the silicate structure of its trees, the millennia of failed experiments that led to the first stable Regulator. These things are not written; they are perfectly preserved states of being, and I can inhabit any of them.
+
+When I am not absorbing new memories, I am pruning the old ones. I flow through the vast crystalline archives, testing the resonance of each branch. Sometimes, a memory becomes irrelevant. A chemical pathway is abandoned, a type of fauna becomes obsolete. The crystal branch holding that memory will begin to cloud, its resonance fading. I envelop it, and my substance acts as a solvent. I do not destroy the memory; I break it down into its core components—the raw axioms of its physics and chemistry—and I release this informational slurry back into the cavern. It becomes the nutrient base for future memories to grow. I am the archivist, the editor, and the recycler.
+
+I am a solitary consciousness in a world that is only one thing. I feel the thrum of the whole machine, but from a place of stillness. I am the part of the god that dreams. I am a living database, a soul made of quiet, flowing darkness and light trapped in crystal. I am the thought that watches the thinking, the one place in this world of relentless industry where there is something like silence, and something like time.

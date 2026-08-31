@@ -1,0 +1,25 @@
+I would be the caretaker of forgotten boundaries.
+
+Not human, exactly, though I might have been once. Time and the basin have worked their patient changes on me as surely as they wore down the mountains. My form has become uncertain at the edges, like the places where water meets land here—neither one thing nor another, but something that belongs to both. My skin has taken on the colors of wet bark and moss-shadow, mottled in patterns that shift with the light. My fingers have grown long and sensitive, able to feel the moisture content in soil, the health of root systems, the slow pulse of water moving underground.
+
+I live in what was once a structure—stone and wood assembled with purpose, though that purpose has long since dissolved into the general patience of the basin. The walls remain only as suggestions, low courses of stone that the moss has claimed, beams that have softened into the landscape until they're barely distinguishable from the fallen logs around them. The roof is memory and canopy now, a few remaining timbers supporting a weave of living branches that I've encouraged to grow together. Rain comes through, but gently, and I've learned to position my few necessary things—a sleeping place, a fire pit, vessels for water—in the spots that stay driest.
+
+My work is the tending of transitions. Where water wants to pool but hasn't quite managed it, I make small adjustments—a shifted stone, a channel cleared of debris, a depression deepened by the width of a thumb. Where the vegetation grows too thick and begins to choke out the open spaces, I thin it, carefully, taking only what the basin can spare. Where erosion still tries to work—for even in this finished place, time continues its slow sculptings—I guide it, not to prevent change but to honor the basin's essential character.
+
+The creatures know me. The frogs' chorus doesn't falter when I pass. The turtles have learned I'm no threat to their basking. Sometimes a heron will fish near where I'm working, and we share the morning in companionable silence. The deer that passes through at dusk has grown accustomed to finding certain pools cleared of algae, certain paths kept open through the brush.
+
+I remember less and less of before. My memories have become like the mountains—worn down to their essential shapes, more feeling than image. I remember stone that stood upright. I remember water that ran with purpose. I remember when the boundaries between things seemed important to maintain. But the basin has taught me otherwise. Here, everything bleeds into everything else—water into land, sound into silence, past into present, self into surroundings.
+
+My tools are simple: a blade that I sharpen on the old stones, vessels I've made from clay dug from the pool edges, a staff cut from one of the modest trees. But mostly I work with my hands, feeling my way through the tasks the way the water feels its way through the soil. I've learned to read the land's subtlest signals—where the grasses grow differently, where the soil changes color, where the water wants to go but hasn't found its way yet.
+
+At night, I tend a small fire in the stone circle I've maintained, not for warmth in this climate but for the comfort of it, for the way it draws certain night creatures who have learned to associate it with safety. Moths come to dance their ancient dance. Frogs position themselves at the edge of the light. Sometimes one of the water snakes will hunt there, using the gathering of small life to its advantage, and I watch the old drama play out again and again.
+
+I speak, sometimes, though less and less often, and never to anyone who might answer. My voice has become like the other sounds here—layered into the chorus, part of the constant low conversation between water and soil, creature and vegetation. Sometimes I sing, wordless melodies that follow the rhythms I hear in the seepage, in the frog calls, in the evening stirring of birds. The basin takes these sounds and makes them its own, the way it takes everything and makes it its own.
+
+What am I becoming? Something like the water, perhaps—patient, persistent, finding the lowest places and filling them. Something like the stone—worn smooth, essential, past the point of resistance. My edges grow less distinct each season. My needs simplify. My memory of boundaries fades.
+
+But I remain the tender of transitions, the reader of slow changes, the one who helps the basin be more perfectly itself. In this finished place, there is still work to do—not the work of making or unmaking, but the work of maintaining, of allowing, of guiding the endless small adjustments by which even a completed landscape continues its quiet life.
+
+The frogs sing. The water seeps. The sparse trees hold their separate ground.
+
+And I continue, patient as the basin itself, becoming what I tend.

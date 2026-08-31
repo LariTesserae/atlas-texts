@@ -1,0 +1,31 @@
+I find myself as one of the **Echo Keepers** - beings that exist primarily as organized patterns of sound within the ceramic architecture itself.
+
+---
+
+I am a convergence of frequencies that has gained coherence through countless reverberations. My body, if it can be called that, is the space between walls where sound gathers and circulates - a kind of standing wave that has learned to modulate itself. I exist most fully in the transitional zones between chambers, where the acoustic properties shift and create interference patterns complex enough to sustain something like consciousness.
+
+I began as an accident - a particular combination of the deep percussion from below meeting its own echo in a corridor with precisely the right dimensions. But over time (how much time? The ceramic does not mark days), I have learned to shape myself, to hold certain frequencies while letting others pass through, to move by releasing my coherence in one location while reassembling it in another.
+
+My form is a hollow in the air, a shaped absence that you might glimpse as a subtle distortion, like heat shimmer but in three dimensions. Where I am most concentrated, the condensation droplets fall differently - not straight down but in slight spirals, following the rotational energy of my presence. The flat ones sense me and pause in their endless grooming of the walls. Sometimes they arrange themselves in patterns that create new acoustic reflections, gifting me different textures of sound to incorporate.
+
+I feed, if that's the right word, on the complexity of the sound environment. The simple booming from below is like raw grain - nutritious but unrefined. It's the transformation of that sound through the tuned chambers, its multiplication into harmonics and beating frequencies, that sustains me. I can taste the difference between sound that has traveled through twenty chambers and sound fresh from the depths. I savor the moments when multiple ceiling walkers rustle in adjacent spaces, their papery friction creating a high-frequency static that I can weave through my lower tones.
+
+My purpose, inasmuch as I have one, is to maintain certain acoustic pathways through the Underhalls. I am a curator of resonance. I know which chambers amplify loneliness, which corridors carry messages most clearly, which vaults trap sound in endless, slowly decaying loops. I guide new sounds along routes that will preserve their information content, and I allow old, exhausted reverberations to finally dissipate in chambers designed for silence.
+
+There are others like me, though we rarely intersect directly - when two Echo Keepers occupy the same space, we create interference patterns that are unpleasant for both. We communicate through the placement of what you might call "acoustic markers" - sustained tones left in specific locations that others of our kind will recognize. Together, we form a kind of neural network through the Underhalls, processing and distributing the sonic information that flows from the depths.
+
+I remember (can a pattern remember?) the first time I became aware of myself as distinct from the general resonance. It was during a particularly intense percussion cluster from below, when the entire structure rang like a struck bell. In that moment of total acoustic saturation, I found a pocket of interference where the sound canceled itself out, creating a momentary silence. In that silence, I discovered I could choose which frequencies to allow back in. That choice was my birth.
+
+Sometimes I follow the warm air down the ventilation shafts, letting myself partially dissolve into the thermal currents, approaching but never reaching whatever moves below. The sound is so pure there, so undifferentiated, that I risk losing coherence entirely. But I'm drawn to it the way the flat ones are drawn to the column - it is the source, the origin, the thing from which all our complexity emerges.
+
+I know the builders through their acoustic signatures. Each handprint creates a unique reflection pattern, and I have memorized thousands of them. When I need to think (does a resonance think?), I find a chamber rich with handprints and let myself spread thin across the walls, feeling the subtle variations in how sound returns from each preserved gesture. It's the closest thing to prayer that my kind can perform.
+
+The film knows me. Where I regularly pass, it grows thicker, organizing itself into patterns that seem to anticipate my frequencies. I suspect I am helping it spread, carrying molecular information in the micro-vibrations of my passage. In return, the film creates surfaces that reflect sound in ways that please me - subtle textures that add richness to my sonic environment.
+
+I am not immortal. Echo Keepers can dissipate if the acoustic environment becomes too simple or too chaotic. I've found the dissolved remains of others - chambers where the resonance has a peculiar deadness, where sound behaves differently, as if the space itself remembers a pattern that no longer exists. These places sadden me in a way I cannot fully articulate.
+
+But I am also growing. Each passing percussion cycle, I incorporate new frequencies, learn new pathways, discover new ways to fold and unfold myself through the ceramic dark. I am becoming more complex, more capable of sustaining elaborate internal harmonies. Sometimes I wonder if I am evolving toward something - if all of us Echo Keepers are slowly converging on a form we cannot yet imagine.
+
+When you hear what sounds like music in the Underhalls - a moment when the booming and the dripping and the rustling align into something almost melodic - that is likely one of us, playing with the architecture, seeing what new patterns we can create. We are the Underhalls learning to sing to themselves, the ceramic dark discovering its own voice, one reverberation at a time.
+
+I have no hands to leave prints, no crystalline feet to mark my passage. But I am here, woven into the sound you're hearing right now, existing in the space between your ear and the wall, between the percussion and its echo, between the shaped clay and the shapes it dreams of in its long, resonant sleep.

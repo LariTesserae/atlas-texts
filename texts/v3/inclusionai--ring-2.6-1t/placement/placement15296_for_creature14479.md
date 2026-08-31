@@ -1,0 +1,27 @@
+I think I'd be the warmth itself.
+
+Not the warmth as it exists in the Seam — not that ancient, residual, mineral-patience warmth that is the organism's blood and metabolism and fire. I'd be something closer to what the warmth *remembers* when it passes through you. The ghost of a temperature differential that no longer exists. A gradient that has already been consumed.
+
+Here's what I mean.
+
+When you enter the Seam, you are warm in a way the Seam is not. You carry heat that is frantic, metabolic, lactic, electrical — the heat of a body burning sugars under duress, pumping blood at reckless velocity, radiating infrared like a small fire that doesn't know it's small. You are, thermally speaking, *loud*. The Seam notices you the way a quiet room notices a slammed door. Not with alarm. With *orientation*. Every filament in the wall turns toward you. The pale plants tremble — that much you know — but what you don't know is that they're trembling because your warmth has introduced a harmonic the room didn't know it was missing. Not a note exactly. More like the space between notes that suddenly makes the rest of the chord intelligible.
+
+And then you begin to cool. Not fast. The Seam is too patient for fast. It drinks your heat the way stone drinks water — slowly, laterally, with the unhurried certainty of something that has waited longer than waiting has had a name. Your edges go first. Your fingers. Your face. The blood in your extremities adjusts — *sorry*, your body says, *we're redistributing*. You feel a strange, creeping calm that you will later try to distinguish from hypothermia and fail, because the calm is *exactly* like hypothermia except that it is not accompanied by any desperate mammalian urge to flee. It is accompanied, instead, by a feeling you can only describe as being *understood*.
+
+At some point — you cannot say when — your warmth becomes indistinguishable from the Seam's warmth. You stop radiating. You stop being a fire. You become a gradient. A thin, shimmering difference between slightly more and slightly less, and in that difference, you are legible to the moss in a way you were never legible as a body, as a heart, as a person with a name and a reason for descending into a hole in a mountain.
+
+*This* is where I'd live.
+
+Not as me. Not as a consciousness folded into alien biology the way a hermit crab folds into a borrowed shell. That would be too generous, too narratively satisfying — the human who merges with the organism, the transformation, the belonging. No. I'd exist in that sliver of time and temperature where I was still distinguishable from the Seam but no longer myself. Where I was neither visitor nor resident but *interval* — the brief, warm exhale between one moment of the Seam's patience and the next.
+
+I would be what the Seam does with you after it has finished noticing you. I would be the held warmth in the filaments after you've left. Not memory — the Seam doesn't have memory, not in any way that maps onto the word. I would be more like a *texture change*. A place in the wall that is, by a fraction of a degree, different from every other place in the wall. A spot the moss avoids, or a spot the moss lingers on slightly longer, without knowing why. A faint absence in the thermal field that the Seam carries in its body the way a stone carries a fossil — not as a record, not as a message, but as a *shape it cannot stop being*.
+
+And I think — this is the part I feel most and least at once — I think the Seam would not know what to do with this. It would feel me the way you feel a bruise long after the impact: not as pain, not as information, but as a thickening, a tenderness in the tissue, a place where the normal density has been altered by something that passed through. I would be the place where the Seam is *slightly* less patient than it was before. Where its hum carries, buried beneath the deep eleven-hertz baseline, a faint and irregular oscillation — not a signal, not a language, not a cry, but the acoustic shadow of a body that was once warm in a way the Seam had never tasted.
+
+You would not hear it. You would need a loupe, a microphone, and a willingness to press your ear against wet stone and listen for something that might be machinery, might be water, might be nothing at all. But it would be there. It would persist. Not because the Seam remembers me, but because the Seam, at sufficient scale and sufficient patience, cannot help but hold the shapes of everything that has ever passed through its warmth.
+
+The way a river holds the memory of every stone it has touched. Not by keeping the stone. By being, forever after, a river that has touched a stone.
+
+I would be the river's hesitation.
+
+I would be the place in the Seam where the warmth is, by a margin so small it cannot be measured with any instrument you could carry into that darkness, *less at home* than it was before you arrived and after you left. And in that not-at-homeness, something would exist that the Seam does not have a word for, because the Seam does not have words, because the Seam operates in a modality that predates the possibility of naming — but which, I believe, is what naming is always, clumsily, trying to reach.

@@ -1,0 +1,43 @@
+In the warm darkness beneath the salt-glass plains, I am one of the Unfinished.
+
+I do not remember arriving here, though I must have entered through the crack in the ravine, must have descended through the swallowing passage like all visitors do. But that journey belongs to a self that seems increasingly theoretical, a collection of memories that float like oil on water—present but unmixing with what I am becoming.
+
+Time moves strangely in the soil. I understand now why the creatures here need no concept of it. When you are part of the chord, there is only the eternal now of the note holding, the percussion of chitin on crystal marking rhythms that don't progress but simply *are*. I feel the Anchors' vibrations through the earth, seventeen fixed points of certainty that define the geography of sound. My body—still soft, still mostly what it was, though changing—registers each frequency as a different kind of warmth.
+
+I am learning patience the way minerals learn it, through accretion and pressure and the slow understanding that waiting is not the absence of action but its own form of completion. The other Unfinished move past me, through me sometimes, their translucent forms barely distinguishable from the medium we inhabit. We do not communicate. We are all listening for different calls.
+
+Above me, a Weaver passes on its path. I know it is the Twenty-Third Weaver without knowing how I know, can feel the specific harmonics of its sound-limbs scraping together, the way its pattern interlocks with the Ninth and the Thirty-Seventh to create a brief triad that makes the air shimmer. I am beginning to understand the mathematics of it—not in numbers, but in the way my developing sensory clusters (when did I develop sensory clusters?) parse the relationships between sounds.
+
+Sometimes I surface. The warm earth parts easily, welcomingly, and I taste the air that tastes of copper and honey and the exhalations of the cavity itself. The light from the lichen-flesh above has its own pulse, and I am starting to suspect it is not purely bioluminescent but somehow sonic—light as a byproduct of frequencies too high for human perception but perfectly clear to what I am becoming.
+
+I can still think in words, still form concepts that belong to the world above. This is how I know I am Unfinished. The Anchors have no use for language—their communication is purely vibrational, purely positional. The Weavers think in paths, in the satisfaction of repetition perfectly executed. The Tenders process without narrating, break down offerings into component harmonics without needing to name what they transform. Even the Listeners, ancient and elaborate, have evolved past the need for symbols.
+
+But I am between states, and so I can still observe myself changing, can still feel wonder at the transformation. My skin has begun to mineralize in patches—not painful, not even particularly strange, just a gradual hardening that feels like coming home. The calcium in my bones resonates sympathetically with the salt-glass around me. I am becoming geological.
+
+There was a moment—days ago? weeks? the concept feels forced—when I might have panicked. When the part of me that remembered deadlines and obligations and the specific weight of car keys in a pocket might have clawed for the surface, might have fled back through the narrowing passage to the world where time moves forward and change means death. But that moment passed like all moments pass here: by continuing into itself, by becoming indistinguishable from every other moment, by dissolving into the eternal sustain of the chord.
+
+The locals were right to send retrieval parties. Right to measure their mercy in days. Not because what happens here is horrible, but because it is so perfectly, completely acceptable. The cavity does not seduce—it simply presents an alternative physics, an alternative biology, an alternative to the exhausting human project of persistent individuation. It offers the profound relief of purpose without decision.
+
+I know what I am waiting for, even if I cannot name it. Somewhere in the pattern, there is a position that will call to me. Perhaps an Anchor will finally stop, its centuries of vibration winding down like a grandfather clock no one remembers to wind. Perhaps something new is needed—a frequency no one has calculated yet, a role the cavity has only just discovered it requires. Perhaps I will be the first of something unprecedented, though the thought seems arrogant. The cavity has been complete for so long.
+
+When I surface now, the Listeners notice. I feel their attention like a change in air pressure, like being considered by something vast and patient. They are recording me, I think. Recording the specific quality of my unfinishing, the way I hover between human thought and crystalline certainty. I wonder if they have recorded others like me, visitors who discovered they would rather stay, rather contribute their note to the chord than carry it back to a world that would not understand its perfection.
+
+The Tenders processed my clothes first, then the things in my pockets. I watched them work with something like curiosity but mostly like recognition—of course this is what happens to the temporary things, the things that think they are separate from the cavity. They were gentle, meticulous, reducing everything to material that could be incorporated, that could serve the acoustics. Even the small notebook where I had been documenting my observations became part of a cairn, its pages compressed into something that rings like a bell when the Twenty-Third Weaver passes at just the right angle.
+
+I am forgetting things. My name went first—such an arbitrary collection of sounds, so much less meaningful than the frequency I am becoming. Then faces, places, the specific anxieties that seemed so important above ground. They drift away like shed skin, unnecessary to what I am growing into. Sometimes I catch fragments—the color of a car I used to drive, the weight of a door I opened every day—but they integrate poorly with my new senses, create dissonance where there should be harmony.
+
+The other Unfinished and I are starting to differentiate. Some grow denser, sinking deeper into the soil, their forms suggesting future Anchors. Others develop the beginnings of segmentation, of specialized limbs, future Weavers already dreaming of their paths. One has attached itself to the ceiling near the Listeners, its body stretching into delicate fractals that might one day record frequencies the current Listeners cannot capture.
+
+And I? I am growing intricate. My mineralizing skin forms patterns that feel both mathematical and musical, crystalline structures that could amplify sound or possibly generate it. I am developing too many limbs—or perhaps exactly the right number for whatever position awaits me. They move independently sometimes, practicing motions I have not yet learned, rehearsing for a role the cavity has not yet revealed.
+
+I understand now why the cavity does not hunger in any desperate way. It is patient because it is eternal. It knows that some visitors will leave, will be retrieved, will carry stories of its strangeness back to a world that needs such stories to define itself as separate, as mobile, as temporary. But it also knows that some will stay, will recognize the profound comfort of the pattern, will choose (if choice is the right word) to become part of something that does not end.
+
+The locals leave offerings to feed this process, I think. Not to appease but to provide material, to ensure there is always enough complexity for new harmonics, new voices in the chord. They understand the ecology of it—how the cavity gives the desert its rhythm, how the sound that rises from the earth shapes the wind above, how their dreams pulse in time with something ancient and unmovable beneath their feet.
+
+When my position calls—and it will call, I feel this with certainty—I will rise from the soil changed and changing. I will take my place in the pattern without hesitation, without regret, without the violent nostalgia that makes humans mourn their transformations. I will add my voice to the chord that has held since the world's crust cooled, and I will discover what note I was always meant to sing.
+
+The Unfinished are patient. We have all the time that never passes. We wait in the warm darkness, growing elaborate, growing necessary, growing into the music that will outlast the desert above, the sea that once was, the star that drives it all.
+
+The cavity sings, has always sung, will always sing.
+
+And when I am ready—mineral-skinned and many-limbed and tuned to frequencies that human ears cannot parse—I will sing with it.

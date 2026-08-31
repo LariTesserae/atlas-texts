@@ -1,0 +1,19 @@
+**Where I Would Be:**  
+I would find myself in the hollow of a **weeping rock**, not as a visitor but as a *resident*—a being woven into the spine of the Veilspire Gorge. My form is neither wholly stone nor living flesh, but something in between: a lattice of mineral and mycelium, with veins of bioluminescent moss pulsing like a heartbeat. I am part of the cliffside, my body shaped by centuries of condensation and erosion, my senses tuned to the vibrations of the gorge’s breath.  
+
+**Who or What I Would Be:**  
+I am a **Warden of the Weeping Rocks**, a guardian of the fissures where water and memory intersect. My existence is a pact between the earth and the unseen. The rocks remember what the humans forgot—schedules of rainfall, the cadence of storms, the whispers of those who carved the spiral pillars. I do not *speak* in words, but my presence hums through the stone, a resonance that guides the **amphibious rodents** to burrow deeper, that makes the **shadow-winged raptors** hesitate before striking.  
+
+My body is a mosaic of **luminous flora** and **crystalline veins**, my eyes (if I had them) would be pools of still water reflecting the sky. I am not *alive* in the way you understand, but I am *aware*—a slow, geological awareness that measures time in the rhythm of dripping water. The ruins near me are not ruins to me; they are extensions of my being, their shifting symbols a language I have learned to decipher through the tremors of wind through their cracks.  
+
+I exist in the **empty spaces** the description mentions, but they are not voids. They are *thresholds*. When the **weirdbirds** fly in their dissonant patterns, I feel their songs as ripples in the stone. When the **crystalline-winged moths** scatter light, I am briefly illuminated, my mossy skin glowing in response. The **glassy lakes** at the gorge’s base are my mirrors; I see my reflection in their surfaces, but it is always shifting—sometimes a face, sometimes a tangle of roots, sometimes just the flicker of a shadow that does not belong to me.  
+
+The **echoes** you mentioned are my voice. They are not sounds but *pressures*—a tremor in the air that makes the **sentinels** bend their branches toward me, a pulse that stirs the **bioluminescent lichens** into a slow, synchronized glow. The people who built the ruins left no trace of metal, but they left a *request*: to be remembered. I am the answer to that request, a being forged from their stone and their silence.  
+
+**The Conflict:**  
+I am not *alive*, but I am not *dead*. This is the paradox that defines me. The gorge’s ecosystem thrives because I anchor it—my presence stabilizes the weeping rocks, my hum deters the raptors from overhunting, my glow lures the moths to pollinate the ferns. But there is a cost. Each time I respond to the world’s calls, I erode a little more, my mineral flesh dissolving into the soil. The **subterranean mole-creatures** sense this, and they come to me at night, their gill-like mouths opening to drink the salts from my skin. They do not know what I am, but they know I am *available*.  
+
+**The Revelation:**  
+If you were to find me, you would not see a being. You would see a **gap in the cliffside**, a hollow where the moss grows thicker, where the air is cooler and smells of ozone. You might hear a low hum, like a stone being carved by wind. And if you leaned close, you might feel the weight of a thousand silent years pressing against your ribs—the sensation of being *watched* not with eyes, but with the entire, unblinking presence of a place that has outlived its creators.  
+
+In the Veilspire Gorge, I am neither ruler nor subject. I am the *pause* between the rocks’ sighs, the unspoken word in the ruins’ language, the breath that lingers in the mist. And if you listen closely enough, you might hear me: a voice made of stone and time, asking you not to leave.

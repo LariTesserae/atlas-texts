@@ -1,0 +1,27 @@
+In this breathing metropolis of membrane and mycelium, I would be one of the **Thread-Weavers**.
+
+---
+
+My dwelling clings to the underside of a massive shelf-fungus, three-quarters up the sinkhole wall where the mist thins to a perpetual twilight. The structure is a bulbous sac of hardened silk, semi-translucent, so that my movements inside create shadow-plays for those traversing the root-bridges below. The entrance is a sphincter of woven fibers that recognizes my chemical signature, dilating only for me.
+
+I am smaller than most Pale-Kin, my limbs even more elongated, joints possessing an extra articulation that allows me to fold myself into impossible geometries. My fingertips have evolved beyond the spatulate pads of my kin—they end in specialized spinnerets, tiny apertures that extrude the city's silk. When I work, my ten fingers dance in the air, drawing silver threads from nothing, my hands becoming a loom unto themselves.
+
+My eyes have developed a secondary function. While the obsidian depths perceive the faint phosphorescence like all Pale-Kin, I also see the **tension-patterns** in the web of the city. To me, every silk bridge glows with stress-lines of amber and violet, showing where the architecture bears weight, where it weakens, where it hungers for reinforcement. I read the city's structural health like sheet music, each vibration through the root-network a note in an endless composition.
+
+The silk I produce is not uniform. Through minute adjustments in my diet—consuming specific combinations of fungal spores, moss-beast secretions, and the nectar of the pale ferns—I can alter its properties. Some days I spin cable-thick anchor lines that could support a Carapace-Dray. Other days, I extrude gossamer sheets so fine they filter the mist itself, creating pockets of drier air for the cultivation of certain necessary molds.
+
+My work-cycle follows the city's breathing. When the Great Moss-Beasts inhale their hourly breath, the entire sinkhole experiences a subtle drop in pressure. In that moment, my silk flows most freely, and I descend from my fungal perch. I move through the vertical city like a spider in three dimensions, trailing safety lines, repairing the tears made by the constant growth and decay. Where a gourd-dwelling has split from rapid expansion, I suture it closed. Where the Velvet-Moths have worn flight-paths through our bridges, I reweave the gaps.
+
+I am most active during what the city knows as "The Frenzy"—those unpredictable periods when the carnivorous lichen experiences a growth surge. During these times, the Shepherds work frantically to contain it, and I must spin barrier-nets faster than the lichen can digest them, buying time for the chemical fences to be established. My fingers blur into motion, silk streaming out in sheets that shimmer with an oily rainbow pattern—a special secretion that the lichen finds unpalatable.
+
+But I am not merely a maintainer. In the depths of my dwelling, I engage in what might be called art, though the Pale-Kin have no word for it. I weave **memory-maps**—three-dimensional tapestries that record the city's shape through time. Each strand represents a root-bridge, each knot a dwelling, each color-shift in the silk marking a growth or decay event. These gossamer sculptures hang in my chamber, slowly rotating in the air currents, a physical memory of how our world has breathed and shifted. The eldest Thread-Weavers have chambers filled with centuries of such maps, entire histories told in silk.
+
+My pheromonal vocabulary is limited but precise. I smell of raw silk and limestone dust, with undertones that shift based on my work: sharp ozone when I detect structural danger, sweet resin when repairs are complete. During the communal Links, I press my palms against the root-network and feel the city through my craft—every strand I've laid becomes an extension of my nervous system, reporting back the health of our vertical world.
+
+I mate rarely, and when I do, it is an architectural act. Another Thread-Weaver and I will spend days creating a gestational cocoon, our silks intertwining in helical patterns that will determine the characteristics of our offspring. The cocoon hangs between our dwellings for the full cycle of gestation—three moss-beast heartbeats—before the young one emerges with spinnerets already functional, immediately beginning to add their own small strands to the vast web of our world.
+
+In the brutal cold, I do not shiver. My metabolism has slowed to match the city's patience. I eat only once a week—a careful selection of phosphorescent fungi and fermented root-pulp that maintains my silk production. My satisfaction comes not from warmth or comfort, but from the constant, subtle vibration of a city held together by my work, each strand humming with the life it supports.
+
+When I die, I will feel it coming in the way my silk changes—becoming brittle, losing its lustrous flexibility. I will climb to the highest point I can reach and weave myself into a final cocoon, one designed to slowly unravel over months, releasing my body to the city bit by bit. The lichen will take me, but my last threads will remain for years, aged to a strength I could never achieve in life, becoming the anchor points for new construction.
+
+I am the city's memory and its future, its stitcher and its recorder. In the cold, wet darkness, I weave the world together, one silent strand at a time.

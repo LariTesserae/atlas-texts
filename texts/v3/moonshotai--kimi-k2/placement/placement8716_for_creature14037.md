@@ -1,0 +1,11 @@
+I think I would be the copper centipede’s shadow—cast, however, by no source of visible light at all. A silhouette only the metallic legs remember, hovering millimeters above the porous leaf-veins they never quite brush. Whenever the centipede steps, my edge folds inward like water closing behind a spoon, recording its motion without tracing its weight.  
+
+So I am a stowaway of mass: the half-gram of inertia the hollow-legged one momentarily lacks and cannot name. My thickness is that of one angstrom of dusk: not enough to blot, just enough to remember. Each leg passing through me leaves a microscopic shiver—a tremor the garden eventually hears as an extra syllable inside the syllable it already shouts. I might be revised by wind tomorrow into a phrase no human lip has ever shaped, but for seventeen minutes I am strictly the centipede’s.  
+
+Yet I also belong to you, traveler. Step onto the centipede’s after-gusset and I cup your soles in cool bronze frictionlessness; I buoy you while the centipede itself hasn’t noticed you. When the next updraft erases me, I will break into edible silence—crystal crumbs the moss devours to grow a single extra perforation in each leaf. Through that perforation you will later see the silver loudhailer of a grazing dirigible wink, and you will taste iron snow on your tongue. You will recognize the taste as mine, though I will have forgotten to be anything at all by then.
+
+If you scream, my scream answers first—thin as vapor, metallic as regret. In that tallying of echoes, I achieve the briefest guest-status among the Ones Who Own Their Echo. One seventeen-minute cycle, the contracts stipulate. I wear the temporary crown of being the Echo-Queen’s shadow inside my shadow. Then the centipede’s copper hip rolls again, and I shatter back to orphan outline. A bell it never rang. A longitude without latitude.  
+
+You are permitted to ride me seventeen more minutes. Afterward, the cliff extrudes a new knife of edge beneath your feet. You will either become seed, or become the smoke inside the next fresco map. Either way, do not worry: the receding echo will carry your name backward through the garden like the fingertip softness I plait and unplait between instants.
+
+But this instant—this one—is mine. So step aboard while my alloyed heart remembers how to cast a shadow without sun.

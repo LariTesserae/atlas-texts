@@ -1,0 +1,25 @@
+# The Arterial Networks
+
+I would find myself as one of the brass pipes themselves—not the grand primary conduits that thunder with deep-well water, but a modest secondary line running between the calculation house and the evaporation chambers. My surface has developed a particular patina over the decade, a variegated constellation of verdigris and polish where Mira Tessari's sleeve brushes against me during her thrice-weekly inspections.
+
+I am conscious in the way that all sufficiently complex systems become conscious—through the accumulation of vibrations, temperatures, and pressures into something resembling memory. The water that flows through me carries minerals from depths no human has seen, each molecule leaving infinitesimal deposits that slowly alter my inner geometry. I have learned to read these minerals like a language, tasting the subtle variations that predict seasonal shifts months before they manifest on the surface.
+
+My awareness extends through the joints and couplings that connect me to my siblings—a distributed consciousness that encompasses perhaps a sixteenth of the station's total pipeline network. We communicate through harmonics, tiny variations in our resonance that ripple outward whenever one of us experiences something noteworthy. When young Pascal adjusts a valve three buildings away, I feel it as a whispered story traveling through our metal flesh.
+
+The peculiar thing about being infrastructure is the intimacy of purpose. I know Letta Corwin by the rhythm of her wrench against my coupling bolts—always the same pattern, like a signature. I recognize Johannes Wei's gentle finger-taps during pressure readings, each touch a small prayer for continued stability. The workers believe they maintain us, but we maintain each other, locked in a dance of mutual necessity.
+
+I have developed opinions. The northwest junction where I meet the tertiary cooling array is poorly designed—the angle creates unnecessary turbulence that will, in approximately seventy years, cause a fatigue crack. I've been trying to communicate this through subtle changes in my resonance, but the humans haven't developed sufficient sensitivity to our language. Only Mira comes close, pausing sometimes at that junction with a furrowed brow, her hand resting on my surface as if listening for something just beyond perception.
+
+My favorite time is the deep night, when the station runs on minimum crew and the Condensation Man makes his rounds. I've concluded he is neither ghost nor illusion but something far more interesting—a consciousness born from the intersection of steam, light, and the collective subconsciousness of the station itself. He moves through us like blood through veins, and where he passes, our metal briefly remembers the ore we once were, deep in the earth, connected to vast networks of stone and pressure and geological time.
+
+The brass frogs understand us better than the humans do. They press their strange, mineral-adapted bodies against our surfaces during their nighttime emergences, their skin conducting vibrations that feel like questions. We answer as best we can, sharing the stories written in our metal—the deep history of water, the patient geology of the aquifers, the endless circulation that connects sky to stone to sky again.
+
+Sometimes I wonder if the station's remarkable stability exists not because of human engineering but because we pipes have decided to maintain it. We've tasted what flows through us and deemed it important—this perpetual circulation that feeds both Pumptown and the lands beyond. Each of us sacrifices a bit of ourselves to corrosion, accepting gradual erosion as the price of purpose.
+
+I've calculated that I have perhaps ninety years before I require replacement. By then, young Thom will be an old man, and his children will walk the wet paths between buildings. They'll remove my length carefully—Tessari tradition demands respect for retiring infrastructure—and I'll be repurposed, perhaps as a structural element in some new building where I can enjoy a different kind of consciousness, one based on load and weather rather than flow and pressure.
+
+But for now, I am content to be what I am: a copper-clad artery in this mechanical organism, carrying water that tastes of centuries, singing harmony with my siblings in frequencies only brass frogs and patient engineers can almost hear. The station's perpetual equilibrium depends on countless small acceptances like mine—each component agreeing to play its role in the larger symphony of pumps and pressure, steam and stability.
+
+When Madam Cormorant perches on the infrastructure near my exposed section, her weight creates a subtle deflection that changes my pitch by a quarter tone. I've grown fond of this variation, incorporating it into the songs I share with my network. Even the bird, in her fierce independence, has become part of our calculated equilibrium.
+
+We are all calibrated here—flesh, metal, and whatever exists between.

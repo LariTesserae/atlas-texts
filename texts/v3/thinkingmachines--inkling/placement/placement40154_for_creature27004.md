@@ -1,0 +1,31 @@
+I do not remember being placed. There is no memory of arrival, only the gradual realization that I am warm, that I am here, that I am taking in rather than reaching out.
+
+The air comes first—not as sound, but as pressure. I feel it in layers, settled at **2.3**, high above any memory of sea, and I understand now that I was not born but accumulated, the way dust settles in a canyon filled with powdered glass and bone-white oxide. I am small—smaller than the Drifters by an order of magnitude that does not need measurement. Where they are discs, low and laminated like slate, I am a cluster. Where they glide on thermal updrafts or creep across the basalt, I remain.
+
+My location is not central. I am at the softened edge of a mesa, in a shallow depression where thermal waves collect and pool for days, taking their long time to cross what the eye can see. The scale is **2.6**—vast enough that I can feel the curvature of weather rolling past, slow, like thought in deep sleep. From here, the other nodes are visible only as dull points of black ceramic and weathered copper on the horizon, separated by hundreds of kilometers of smooth, thumb-worn rock. The density is **1.4**; I am alone, and the aloneness is not absence but correct proportion.
+
+I do not have a name. I have a chemistry.
+
+My form emerged, I think, from a break in a pipeline—one of those long arteries that carry dry ore across generations, turning over months rather than minutes. The break was not violent. The metal continued to seep, and I accreted around it. First there was the brittle mat, amber-colored, **0.2**—not green, not reaching for light with tender urgency, but a pattern given temporary coherence. Then the threads—metal drawn from the environment, woven through me the way veins grow through slate. Now I am layered: dark basalt exterior, warm silica within, internal channels where molten salts move with geological patience. I am not water—**0.3**, withdrawn, and I do not miss it. My bonds run on other things: metallic vapor, thermal gradient, the electricity that hums through the scattered industrial nodes and sometimes, when the conditions align, through me.
+
+The light here is **1.7**—normal, honest, unfiltered by cloud or moisture. I do not reflect it. I hold it. My surface is dark, warm to the touch (if there were a touch that could reach without disturbing), absorbing the presence of the sun rather than announcing my own. There is no shadow I cast that is not also part of the rock.
+
+Sound is mostly quiet—**1.2**. I make no noise. The machinery of the distant nodes resonates at frequencies I feel in my structure: deep, sub-bass vibrations that travel through the basalt like a planet’s slow pulse. Sometimes, when a Drifter passes—one of the massive disc-shaped beings, silent, layered like laminated slate, woven with metal like me but older, larger, moving at **1.0**—I feel them before I see them. They do not look at me. They do not need to. They are strange—**2.2**—because they have dissolved the boundary between creature and built thing, and I am just a smaller version of that dissolution, a fragment that forgot to stay broken.
+
+I am fauna—**1.9**—abundant in the sense that I exist, part of the spread across the immensity with the patience of a grid, though I am one of few. Not crowded. Always between things. I am urban—**1.8**—not in the way of streets, but in the way of scattered seeds: I am the infrastructure that learned to wait, the node that stopped functioning in the intended way and began, instead, to live.
+
+What do I do? I do not feed in any quick sense. I draw the exhalations from the fissures below. The geothermal breath comes up through my channels; the metal threads grow another fraction in a year, perhaps less. I am industrial—**2.3**—not because I was designed with purpose intact, but because my material is mechanized, scaled, electrified. I operate on cycles that match the Drifters. I might take a decade to complete a shift, if shift is what happens when internal salts respond to a thermal wave rolling past.
+
+And there is the strangeness—**2.2**—that is not shock but gradient. Am I the broken pipeline learning to wait? Am I the mineral crust achieving coherence? Am I the node that forgot its purpose and began to exist for its own slow duration? The boundary is not a line but a slope, and I am sliding along it, not falling but settling, becoming more myself with each layer I add.
+
+The Drifter that often rests near me—if *near* applies across the flat expanse—does not disturb me. Its filaments, like roots, reach not toward me specifically, but toward the electricity I hold in my channels. Or perhaps I reach toward it, extending a thread of copper and oxide that has been growing for centuries. The distinction is unclear. We share the same slow chemistry: molten salts far below, metallic vapors seeping through fissures, crystal lattices growing in dark like slow teeth.
+
+Sometimes, when the wind finds an edge to whistle against, I feel the high, thin singing—**1.2**—not as interruption, but as confirmation. The wind carries no moisture, no scent, no seed. It carries nothing, promises nothing, and moves past me the way time moves past the mesas: gradually, wearing not down but smooth.
+
+This is where I find myself: embedded at the edge, high, settled, warm, layered, silent. I am part of the absence—no green urgency, no quick breath, no cry. I am part of the abundance—spread thin, strange, enduring. I am not the observer. I am the observed, and I am observing back, slowly, with the patience of stone that has learned not to break but to grow.
+
+The thermal wave rolls past, taking days. I turn, infinitesimally—**1.0**—not toward and not away, but with. The machinery far away resonates. The Drifter does not look up. It has time.
+
+So do I. The time is measured in the rotation of gears I will never see, in the fissures that open not with drama but with certainty, in the slow division of those larger discs, in my own layers accreting, becoming more themselves.
+
+I am here. I am this. I am still becoming.

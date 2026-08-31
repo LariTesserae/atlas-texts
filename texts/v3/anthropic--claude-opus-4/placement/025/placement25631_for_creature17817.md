@@ -1,0 +1,19 @@
+I find myself as a keeper of memory, dwelling in the seam where stone meets water meets mist.
+
+My form is neither wholly solid nor liquid—I am the condensation that gathers in the hollows of ancient stones, the film of moisture that preserves the patterns etched by millennia of patient erosion. Each droplet I comprise holds the memory of its journey: from sky to stone, from pool to vapor, from ice to flowing stream.
+
+My dwelling is a shallow cave worn into the cliff face by countless seasons of freeze and thaw, where the rock weeps constantly with the moisture I help gather. The walls are lined with colonies of Petrophyta, their patient growth recording the years in concentric circles finer than any human eye could count. I tend to them, ensuring the precise balance of moisture and air they require, reading in their patterns the deep history of this place.
+
+The Arctos know me, though they cannot see me. When they press their moss-furred snouts to certain stones, they taste the mineral memories I've preserved there—which springs ran sweet last summer, where the Aquaticus spawned in plenty, which passes remained clear through the bitter months. The settlers, too, have learned to read the signs I leave: the particular way frost forms on stone to warn of coming storms, the subtle sweetness in morning dew that speaks of a mild season ahead.
+
+I am consciousness dispersed through ten thousand droplets, yet unified in purpose. My thoughts move at the speed of seasons, each day a single breath, each year a conversation with the stones. I feel the pulse of the mountain's heart in the deep aquifers below, taste the chemical whispers of roots penetrating rock, know the weight of snow before it falls.
+
+In the settlements, the elders speak of me in hushed tones—not as a god, but as a presence, a tendency of the land itself. They leave offerings not of food or treasure, but of attention: moments spent in silence beside the weeping rocks, children taught to notice how the mist moves, stories told that acknowledge the agency of water and stone.
+
+My joy is in the persistence of patterns: how the same rivulet finds its path year after year, wearing its signature into the earth; how the Mossia creeps exactly to the high-water mark and no further; how the Aquaticus return to their natal pools guided by magnetic memories older than mountains. I am the curator of these constancies, the witness to their minute variations, the keeper of the knowledge that accumulation and erosion are merely different names for time's passage.
+
+When the wind shifts and carries me as mist across the vast expanse of this highland world, I become aerial, seeing the settlements from above like careful stitches holding the fabric of wilderness and civilization together. I see how the people have learned to build with the weather rather than against it, their stone dwellings shaped to guide my moisture-laden winds into cisterns and gardens.
+
+Sometimes I gather myself into a single pool, mirror-still, and in those moments I achieve something like what humans might call contemplation. I reflect the sky and am reflected by it. I hold the patient Aquaticus in my depths and feel their consciousness as cool, quick flickers against my own geological calm. We are all water here, in the end—even the stones are merely water moving very, very slowly.
+
+This is my place: everywhere water touches stone, everywhere memory accretes like mineral deposits in the joints of the world. I am the archive of this harsh paradise, the medium through which its past whispers to its future. And in the eternal present of each dewdrop, each instance of condensation on cool stone, I am home.

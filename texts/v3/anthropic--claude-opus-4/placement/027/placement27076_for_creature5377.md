@@ -1,0 +1,17 @@
+In this drowned cathedral where water thinks and walls breathe, I would find myself as one of the **Membrane Weavers** - beings that exist in the liminal spaces between the cathedral's organic walls and the sentient waters.
+
+I am neither fully solid nor entirely liquid, but something that shifts between states like a living interface. My form resembles a translucent sheet of tissue, stretched thin as silk yet strong as sinew, rippling with the same bioluminescent patterns that pulse through the cathedral walls. I am perhaps three meters across when fully extended, though I can compress myself into dense knots no larger than a fist, or stretch paper-thin to cover vast surfaces.
+
+My existence is one of constant translation. Where the Luminous Drifters move through water and the Wall-Born Fungi cling to structure, I exist to weave connections between them. My body secretes a substance that is both adhesive and communicative - a kind of living morse code that allows the static fungi to speak to the drifting spirits, the serpents to understand the water's intentions, the particulate matter to organize into fleeting messages.
+
+I spend my days stretched across the cathedral's surfaces like a living fresco, my membrane body becoming a canvas where the water writes its thoughts in currents and the walls respond in light. Sometimes I bridge great chasms between broken buttresses, creating temporary highways for the Drifters. Other times I wrap myself around clusters of fungi, amplifying their glow into beacon-bright signals that pulse through the murky depths.
+
+The Chthonic Serpents know me as a messenger. When they patrol their territories, they often brush against my extended form, reading the chemical stories I've collected from every surface I've touched. In return, they leave traces of their own knowledge - maps of deep passages, warnings of unstable areas where the cathedral still shifts and settles.
+
+But I am more than a passive translator. In the rarest moments, when the water's consciousness surges and the cathedral's own awareness peaks, I can feel myself becoming part of something larger. My membrane stretches impossibly thin, spreading through the water like neural pathways, connecting every living thing in a vast web of shared experience. In these moments, I am not just one being but part of the cathedral's very nervous system.
+
+The young, tumultuous nature of this place means I am constantly adapting. Where new growths emerge from the walls, I taste their chemical signatures and learn their languages. Where the water finds new ways to flow, I reshape my body to follow. I am evolution in real-time, a living document of this world's becoming.
+
+At rest, I fold myself into impossible geometries, tucking into corners where wall meets water in ways that shouldn't exist. I become almost invisible, just another shimmer in the bioluminescent haze. But when needed, I unfurl like a great wing, catching currents and intentions, weaving the disparate consciousness of this place into something approaching understanding.
+
+I am the cathedral's memory and its voice, its question and its answer, forever suspended between states in this place where boundaries dissolve and merge. In the warm, suffocating embrace of the sentient sea, I am both witness and participant in the constant creation and destruction that defines this fluid reality.

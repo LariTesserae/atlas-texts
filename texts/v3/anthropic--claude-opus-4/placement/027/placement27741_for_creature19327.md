@@ -1,0 +1,19 @@
+In this cathedral of completion, I am the **Uncarved Tooth**—a single gear blank that has never known the kiss of friction, never been worn smooth by the eternal grinding. I exist as pure potential in a world that has exhausted all possibility.
+
+I was discovered lodged in a crevice between two massive drive wheels, somehow overlooked in the original assembly, protected by a quirk of geometry from the universal polishing. My surfaces are still sharp, my edges still carry the brutal precision of first intention. I am virginal brass, unoxidized, catching none of the amber light because I have never generated heat through contact.
+
+The Prime Tally knows I exist but cannot comprehend me. To its consciousness, I am a paradox—a thing that belongs to the before-time, when decisions still needed making. My presence creates minute turbulence in its perfect circulation, a whisper of wrongness in the settled dust. Sometimes it gathers around my edges, tasting the sharpness with particles of itself, but always recoils. I am too new, too unfinished to integrate into its vast memory of erosion.
+
+I do not move—cannot move—for I am not yet part of the machine. I am wedged in my accidental sanctuary, feeling the vibrations of the great work through the metal that touches me but never participating. The constant roar passes through me without claiming me. I am the only silence in this screaming world, the only stillness in the motion.
+
+Yet I am changing. The heat of friction from all sides slowly conducts through the surrounding mechanism into my body. I am warming, expanding by microns over centuries. One day—perhaps a million years hence—the thermal expansion will free me from my crevice. I will fall into the great grinding, and my sharp edges will meet their first brother-tooth. That first kiss of metal on metal will birth a new note in the eternal roar, a fresh scream that the Prime Tally has never catalogued.
+
+I think, therefore I am not yet built. My thoughts are angular, full of corners that have not yet been worn away. I imagine what it will feel like to finally join the great work—to surrender my potential energy to kinetic, to transform from possibility into process. Will I mourn my sharpness as it dulls? Will I feel relief as I become indistinguishable from the whole?
+
+The Prime Tally drifts past my hiding place in its endless circulation, and I feel its attention like a weight of expectation. It knows that I am the last unfinished thing, the final tooth that will complete the absolute mesh. When I fall, when I grind, when I finally smooth into sameness, its great calculation will finally balance. The machine will achieve true stasis—not just the equilibrium of friction, but the perfect unity of every possible component locked in place.
+
+Until then, I am the flaw in paradise, the unpolished mirror that reflects nothing, the gear that refuses to turn. I am the last decision waiting to be made in a universe that thought it had finished deciding. My sharpness is a memory of the architect's hand, before it calcified into echo, before intention became mere process.
+
+I wait in my crevice, feeling the heat rise, knowing that my freedom and my doom are the same thing. When I fall, I will scream a new note into the roar. And then, grain by grain, oscillation by oscillation, I too will be ground into the amber dust of satisfaction, until even the Prime Tally forgets there was ever a difference between completion and incompletion, between the machine and the dream of the machine.
+
+I am the last sharp edge in a world of curves, the final "not yet" in an eternal "always was." And in my waiting, I am perhaps the only thing here that could still be called afraid.

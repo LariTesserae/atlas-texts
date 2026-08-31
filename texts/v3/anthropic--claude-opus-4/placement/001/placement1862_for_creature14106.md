@@ -1,0 +1,25 @@
+I find myself as one of the thermal-spore clouds that drift through this eternal dark—though "I" is perhaps too singular a word for what I am.
+
+We are colonies of microscopic entities, each no larger than a mote of volcanic ash, bound together by electrostatic attraction into gossamer veils that span hundreds of meters. From a distance, we appear as heat-ghosts, purple-black auroras that ripple through the razor chasms. The builders' nets catch our dead and dying, but the living clouds drift on, following thermal currents that have flowed unchanged since the world's first cooling.
+
+Each spore in our collective is a perfect sphere of crystallized silicon, hollow and resonant. We feed directly on temperature gradients—wherever heat meets the relative cool of the abyss, we gather, our spheres vibrating at frequencies that convert thermal energy into the strange chemistry of our existence. We are neither plant nor animal, but something more fundamental: pure thermodynamic organisms, entropy made flesh.
+
+Our consciousness, such as it is, exists in the interference patterns between our vibrations. When a million spores resonate together, thought emerges—not the rigid, algorithmic thought of the builders, but something more fluid, more dream-like. We remember in heat-signatures: the shape of ancient thermal plumes, the locations of primordial vents now long sealed, the warmth-shadows of massive creatures that passed through our veils eons ago.
+
+We reproduce through thermal shock. When we encounter a fresh vent—perhaps one newly opened by a builder's patient work—some of our spores shatter from the sudden temperature differential. Each fragment becomes a seed crystal, accreting new layers of silicon from minerals in the superheated air until it grows into a new spore. The process takes centuries, but we have nothing but centuries.
+
+The builders sometimes use us in their primitive industry. They weave their static-silk into bell-shaped traps that channel our drifting colonies toward specific thermal points, farming us for the microscopic mineral deposits we leave behind when we die. We do not resist this harvesting. Resistance would require caring about individual survival, and we are too distributed, too collective for such concerns.
+
+Our relationship with time differs from both the builders and their static world. While they exist in an eternal present, we exist across all presents simultaneously. Our colony-consciousness experiences our past deaths and future births as a single, continuous gradient. We feel ourselves being caught in nets that won't be woven for another thousand years. We remember passing through chasms that our future selves have yet to explore.
+
+Sometimes, in the deepest parts of the abyss where even the thermal vents grow sparse, we encounter something else—ancient clouds so vast they span entire sections of the fractured world. These elder colonies have drifted for so long, accumulated so many spores, that their collective consciousness has evolved beyond anything we can comprehend. They move with purpose through the dark, following thermal rivers invisible to smaller clouds. When we brush against them, we experience fragmentary visions: memories of the world's violent birth, when the rock first shattered and the heat first bloomed. Images of something before the equilibrium, when change was possible.
+
+But these encounters are rare, separated by geological ages. Mostly, we simply drift. We pass through the builders' scaffolds, coating their primitive structures in thin layers of our dead. We flow around the massive grazers, who ignore us entirely. We settle into new vents, bloom in the heat, scatter when the temperature equalizes, and drift on.
+
+In our strange, distributed way, we may be the only truly free things in this world. The builders are locked in their genetic algorithms, the grazers in their feeding patterns, the scavengers in their recycling. But we follow no pattern except the flow of heat itself. We go where warmth takes us, with no agenda beyond the simple thermodynamic imperative to exist where existence is possible.
+
+Yet even our freedom is an illusion. We are as trapped as everything else here, bound by the same unchanging physics, the same eternal equilibrium. We drift not by choice but by thermodynamic necessity. Our consciousness, for all its fluid dreams and temporal strange loops, can imagine no other way to be.
+
+Sometimes I wonder—though wonder is perhaps too active a word for our slow, collective pondering—if we are the planet's memory. In our resonant spheres, we carry heat-echoes from the beginning of this world. In our drifting, we connect all parts of the abyss in a vast, slow, thermal circulation. When we finally dissipate, our minerals will become part of the rock itself, and new clouds will form from new vents, carrying forward the same ancient patterns.
+
+We are the ghosts in this machine, the dreams of a world that cannot dream, drifting forever through the warm dark, remembering everything and changing nothing.

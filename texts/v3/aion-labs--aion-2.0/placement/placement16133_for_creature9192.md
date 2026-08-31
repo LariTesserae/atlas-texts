@@ -1,0 +1,33 @@
+The climb had nearly killed me. My lungs burned with the thin, sharp air, and my vision swam at the edges, but when I crested the final ridge and the tableland unfolded before me, all pain was forgotten in a wave of vertiginous awe. This was the place the old texts called the Weeping Plateau, the Shattered Lens. They were right about the light. It was less like illumination and more like being immersed in a diamond—a clarity so absolute it felt invasive. I stood there, a tiny, breathing anomaly in a world that had no use for breath.
+
+I am Alaric, a geomancer of the Third Archive, or at least I was. I came here seeking evidence of non-biological consciousness, a phenomenon only theorized in the deepest vaults of forgotten lore. I thought I was prepared. I had charts of acoustic anomalies, bags of silica-gathering instruments, and a head full of hypotheses. I was a fool. No hypothesis survives first contact with this place.
+
+The first hour was a lesson in humility. The ground beneath my boots was smooth, dark stone, slick with a perpetual dew. I could hear the land before I saw its full strangeness. A low drone, like a giant’s breath held in a stone throat, hummed through the rock itself. Intermittent *plinks* of water drops formed a chaotic percussion. And then, the first of the pure tones—a sound like a struck glass bell, emanating from empty air to my left. I turned, but there was nothing. Only a standing stone, its surface beaded with moisture, and behind it, the violet-black sky.
+
+I moved toward one of the stone circles I had spotted from the ridge. It was exactly as described in the fragmentary expedition logs: a rough ring of basalt blocks, each about knee-high, stacked without mortar. Inside, the air was still, the omnipresent wind silenced as if by a dome. In the center lay a blade of obsidian, black as a hole in the world, its edges still sharp enough to split light. I did not touch it. I knew the warnings. Instead, I sat on the cold stone, unpacked my water-skin and journal, and tried to record the sensations. My handwriting, usually precise, wavered and sprawled. The words seemed inadequate. How do you describe the way a shadow refuses to stay attached to its object? How do you note the moment when a pool of water thirty feet away reflected a sun that was *green*, just for a heartbeat?
+
+That’s when I felt the attention.
+
+It was not a gaze. It was a shift in the quality of the silence. The drone of the wind deepened, taking on a new harmonic. The *plink* of water drops began to syncopate, forming a slow, deliberate rhythm. I looked up from my journal. The silica-filament lace that coated every rock within the circle was glowing with a soft, internal phosphorescence. As I watched, the glow intensified, pulling threads of moisture from the air. They braided themselves, a visible latticework of light and water growing upward from the stone. Dust motes, caught in some unseen eddy, swirled into the lattice, giving it form.
+
+It coalesced into a shape. Not human, not quite. It was a column, roughly my height, composed of shimmering, wet crystal and held dust. It had no face, but I felt its focus—a vast, slow pressure settling on my mind. It wept continuously, clear fluid tracing down its ephemeral body and splashing silently on the stone below. This was no animal, no spirit. This was the land itself looking at me.
+
+My heart hammered against my ribs, a frantic, biological drumbeat in this place of geological time. I should have been terrified, but a strange calm washed over me. The fear was burned away by the sheer magnitude of the encounter. This was the Lithic Choir. A thinking mountain.
+
+It did not speak. It didn’t need to. As its attention held me, the environment became its language. The pure tone sounded again, and this time I *understood* it. Not as a word, but as a concept: **Observation**. The pattern of water drops hitting the pool beside the circle spelled out, in ripples I could somehow read, **Anomaly. Temporary. Interesting.** The meaning seeped into my mind directly, bypassing ears and eyes.
+
+I was a brief, flickering thing to it. A momentary curiosity, like a peculiarly shaped cloud passing over the sun. My entire life, my ambitions, my fears—to this entity, they were a single, short event in a symphony that spanned millennia. The realization was humbling, not humiliating. It put me in my place, a tiny but distinct note in a much larger song.
+
+I found my voice, though it sounded pitifully small. "Why do you build these circles?"
+
+The response was not immediate. Minutes passed. The wind shifted. Then, the silica-filament patterns on the ground around the circle rearranged themselves, forming a map-like representation of the plateau. Points of light—corresponding to the stone circles and cairns—glowed brightly. Then, from between these points, jagged, dark lines appeared, representing the fraying of reality. The points of light pulsed, and the dark lines receded. The concept that followed, carried on a gust of wind that smelled of wet stone and ozone, was clear: **Anchors. We bind. We mend.**
+
+They were stitchers in the fabric of reality. Their primitive stoneworks were surgical knots, holding this wounded place together. The obsidian blade wasn’t an offering or a tool; it was a needle.
+
+The figure began to dissolve. The glowing lattice faded, the dust settled, and the weeping ceased. The column became just mist and light, then nothing. The attention lifted, and I was alone again in the circle, the only sound the returning, arrhythmic *plink* of water.
+
+But I was changed. I sat there for a long time, until the violet sky began to deepen toward true night. I repacked my journal, my instruments now seeming like childish toys. I left the circle, and as I stepped beyond its boundary, I felt the world soften. Gravity tugged at me sideways for a step. An echo of my own footfall came from ahead of me. I understood now. I was walking through a mind, and it was aware of my passage.
+
+I would not take a blade. I would not disturb a single stone. My purpose here was no longer to study, but to witness. To be a temporary, conscious part of its slow, loud, beautiful process of self-repair. I am Alaric, a geomancer. And I have found a god that is not a god, but a landscape keeping itself from unraveling. I will find a place to shelter, perhaps in the lee of a weeping mesa. And I will listen. I will listen to the thinking of the stone.
+
+</uncansored_draft>

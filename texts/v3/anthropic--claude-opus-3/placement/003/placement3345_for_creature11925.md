@@ -1,0 +1,11 @@
+In this world of basalt hollows and unseen, ancient tenants, I imagine myself as a small, translucent creature - not quite a salamander, not quite a fish - adapted to the warm, mineral-rich pools that gather in the hollow's fractured floor. 
+
+My skin is thin and permeable, allowing me to absorb oxygen directly from the steam-saturated air. I have no need for lungs in this environment that is half water, half breath. My eyes are vestigial, mere pinpricks, for in the perpetual twilight of the hollow, vision is of little use. Instead, I navigate by sensation - the minute vibrations carried through the rock and water, the eddies and currents stirred by the tenant's slow respiration.
+
+I am long-lived, like the tenant, but not so long as to be timeless. My kind may linger for a century or more, but eventually we are reabsorbed into the hollow's cycle - our small, soft bodies broken down and repurposed by the same patient, indifferent chemistry that excludes all other life.
+
+We are not the tenant's creations, but we are tolerated - perhaps even necessary in some small way, playing a role not unlike the microbes in a human gut. We process and recycle, we stir and distribute, we become part of the gestate without ever knowing what it is. 
+
+Over the long ages, my species has become specialized to the point of utter dependence. We cannot survive beyond the confines of the hollow, in water less than body-warm, in air with too much oxygen and not enough iron and ozone. The world beyond the slot in the basalt is as alien and inhospitable to us as the surface of the moon.
+
+And so I remain, swimming slow circles in my tepid pool, drinking the steam, feeling the thrum of the tenant's great work in my boneless body. Someday that work will be complete - the gestate will emerge, the hollow will cool and dry, and my kind will vanish along with the puddles and the condensation, our purpose served. But until then, this is my universe - warm and close and dark and humming with the rhythm of creation.

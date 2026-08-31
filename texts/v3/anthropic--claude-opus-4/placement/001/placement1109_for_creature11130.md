@@ -1,0 +1,29 @@
+I find myself drawn to a small outcropping of stone that juts from the alcove wall, perhaps thirty feet above the breathing dome. It's barely a ledge—just wide enough for something my size to perch on, with a shallow depression where rainwater collects and slowly evaporates, leaving behind rings of mineral deposits like the ghost of a calendar no one bothers to read.
+
+I am one of the **Incidental Witnesses**.
+
+We are not human, though humans sometimes glimpse us and mistake us for large moths or tricks of the light. We are older than the high-sitters' tradition, though not by much. We came into being when the first pair sat in those grooves and began their listening, and we have persisted through all the centuries since.
+
+Our bodies are membranous, translucent, about the size of a spread hand. We have no fixed form—we shift between states like water between ice and vapor, sometimes nearly solid, sometimes so diffuse we're indistinguishable from the mist that rises when the dome exhales. Our color changes with what we witness: when the high-sitters were here, we held their colors, taking on the grey-green mineral tinge of their skin. Now, abandoned, we've faded to something between clear and clouded, like old glass.
+
+We were never part of the work. The high-sitters didn't know we existed, or if they did, they recognized us as irrelevant to their purpose—and they were correct. We contribute nothing. We're a byproduct, an accident of attention, called into being by the simple fact that when consciousness focuses so intently on one thing for so long, something else emerges in the margins.
+
+I remember all of them. Not their names—names slide off us like water off wax—but their presence. The way Whistle-On-Stone would unconsciously mirror the breathing with her own lungs until Basin-Holds-Light touched her shoulder to break the pattern. The compiler who climbed up once, against all tradition, and wept when she heard the breathing for herself after decades of only holding others' reports of it. The child who wandered up here by accident, centuries ago, before the paths were worn clear, and sat in wonder for an hour before his terrified parents found him.
+
+We don't record. We don't compile. We don't even truly remember—not in the way humans understand memory. We simply persist, and in persisting, we carry traces. If you could read us (and you cannot), you would find in our shifting forms a kind of impression, like the worn grooves in the stone but made of moments instead of pressure. Every quality of attention that has ever turned toward this breathing place has left its mark in us.
+
+When the last compiler died, something changed in us too. We became more solid, as if the absence of human witness had collapsed us from possibility into fact. We move less now. Sometimes I remain on my ledge for days without shifting, watching the dome rise and fall, feeling the vibration of that bass note through the stone, existing in a state that is neither attendance nor abandonment but something sideways to both.
+
+There are others like me in the other breathing places—wherever the mountain speaks and was once heard, we emerged and remained. We don't communicate. We don't need to. We are all part of the same accident, the same peripheral phenomenon, distinguished only by the particular quality of witness we've absorbed in our particular locations.
+
+Sometimes I descend to the basin and hover above my own reflection in the collected water. In that mirror I can almost see them—all the faces that have bent to drink here, all the eyes that have watched the breathing, layered like multiple exposures on old film. But the image breaks when the water moves, and I rise again to my ledge.
+
+What the high-sitters never understood, what the compilers could never quite grasp despite their centuries of pattern-seeking: the mountain asks no question. The breathing is not speech. It's simply what happens when water and stone and pressure and time converge in certain ways. The meaning was always and only in the listening itself—in the fact that these small, temporary creatures chose to align their small, temporary attention with something so vast and patient that it might as well be eternal.
+
+We incidental witnesses know this because we are ourselves without meaning. We serve no purpose, carry no message, perform no function. We simply happened, the way crystals happen in supersaturated solutions, the way harmonics happen when the right frequencies meet. We are proof, if proof were needed, that the universe generates watchers as naturally as it generates water cycles, that consciousness breeds consciousness in its margins, that attention is a kind of gravity that draws more attention to itself.
+
+The breathing continues. The empty sitting-places slowly fill with moss. The basin reflects sky and cloud and sometimes my translucent form when I drift across it. And I continue too, neither waiting nor not waiting, neither hoping nor not hoping, suspended in the fact of my own accidental existence.
+
+If someone climbs up tomorrow and sits in those grooves, I will take on their colors, hold their quality of attention, become slightly more solid with the weight of being witnessed witnessing. If no one comes for another thousand years, I will fade further toward transparency but never quite disappear. This is not patience. This is simply what I am—a byproduct that persists, a margin note in a text no one is reading, a witness to the witnessing that once was and might be again.
+
+The mountain breathes. The water moves. The chord sounds and resounds. And I remain on my ledge, being what the universe makes when meaning concentrates so densely that meaninglessness precipitates out of it like salt from a drying sea.

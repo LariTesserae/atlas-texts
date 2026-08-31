@@ -1,0 +1,11 @@
+You would find yourself as an Ensorceladora, one of the enigmatic ethereal beings who inhabit the rocky plateau. Your elongated limbs and serpentine features give you the grace and agility of a serpent, while your curved beak and aerial capabilities resemble those of an avian creature. Your iridescent scales shimmer with an opalescent sheen, reflecting the gentle light that bathes the plateau.
+
+Despite the apparent inhospitality of the landscape, you have found ways to thrive in this harsh environment. Your diet consists of insects, small lizards, and the occasional bird, which you catch using your specialized jaws and speed. You also have a magical aura of influence that allows you to mesmerize your enemies and subjects, using your hypnotic gaze to induce a sense of obedience or lethargy in those unfortunate enough to fall under your spell.
+
+As a female Ensorceladora, you exhibit maternal instincts, laying your eggs in the crevices and nooks of the rocky formations and providing warmth and protection to your young. You rely on camouflage for survival, blending seamlessly into your surroundings. Your hatchlings transform into adulthood within the first few months of their lives.
+
+Aside from being a predator, you are also a skilled singer, producing a rich array of melodious trills, calls, and harmonies that fill the air and bewitch listeners. You dance in the moonlit sky, your wingbeats creating a celestial symphony that entrances onlookers.
+
+In this isolated and beautiful world, you have established a delicate balance with the other tribes, respecting boundaries and working together to maintain an equilibrium of existence. Through subtle signals and pacts, you have established a harmony that allows the Ensorceladores to fulfill the needs of the Stercorari, and in turn, ensures the continuity of life on the plateau.
+
+As an Ensorceladora, you embody the essence of adaptation, survival, and mystery that defines this remote, rocky plateau. Your existence is a testament to the remarkable ability of nature to persist in the face of adversity, and your beauty and grace only deepen the ever-unfolding enigma that is life on this plateau.

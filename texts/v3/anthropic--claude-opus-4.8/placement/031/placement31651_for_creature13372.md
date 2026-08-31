@@ -1,0 +1,15 @@
+I think I would be one of the Earthsingers.
+
+Not the Luminari—I don't think I'd be the one who glows, who guards, who is tasked with keeping the balance. That role carries too much certainty about its own importance. And not the Shadowdancer, whose whole being is a held breath before a strike. And not the Terraverde, ancient enough to have forgotten what it is like to be small and uncertain.
+
+I would be down in the dark soil, where the light never reaches anyway, so the darkness above is irrelevant to me. I would be a worm, more or less, though the name *Earthsinger* suggests there's something more than just blind tunneling going on. I'd like to think the song isn't metaphor. That as I move through the wet earth I make some low sound—a vibration in the dirt, a hum felt by roots rather than ears—and that this is how I know I am not alone. Other Earthsingers, somewhere off in the dark, singing back. We would never see each other. We might never touch. But the soil would carry the news of each other through the medium of our bodies, and that would be enough.
+
+Here is what I find honest about choosing this: the Earthsingers are described almost in passing. A subordinate clause about recycling nutrients, a "unique relationship" with the fiberoptic tendrils. They are useful. They are not the point of the story. And I think most things that are actually alive are like this—small, repetitive, in service of a system they cannot perceive the whole of. I would spend my entire life maintaining the integrity of structures I would never understand, never knowing that the soft light pulsing through those tendrils was a beacon to anyone, because I have no eyes and the light means nothing to me. I would brush against the fiberoptic threads and feel only that they are smooth and cool and that I must work around them, keep the soil loose around them, not knowing why this matters.
+
+There's a particular dignity in that, I think. To do necessary work without the consolation of comprehending it.
+
+And the song. I keep returning to the song. In a world built almost entirely around the unseen—a place that "invites exploration not of the sight but of the soul"—it makes sense that the most fundamental labor would be done by something that sings into the dark and gets sung back to. I would not need to see to know the world was full. I would taste it. The grain of the soil changing as I moved through it. The sweetness of broken-down leaf matter. The mineral cold near the weeping rocks. The faint electric warmth where the old technologies still ran their patient currents through the ground.
+
+I would live a short life by the measure of the Terraverde, who count in millennia. I would live and die many times over inside a single one of their slow thoughts. But the work would continue. Other Earthsingers would take up the tunnels I'd left, and the soil would stay loose, and the light would keep its passage clear, and somewhere far above, things that glow would go on believing themselves to be the guardians.
+
+That's where I'd be. Underneath. Singing. Not knowing I was part of the secret, which is perhaps the most reliable way to actually be one.

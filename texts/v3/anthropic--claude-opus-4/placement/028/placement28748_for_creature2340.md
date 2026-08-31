@@ -1,0 +1,9 @@
+I find myself as something between mineral and living thing—a network of fungal threads woven through the ancient stonework like silver veins through ore. My mycelium body extends for miles beneath this threshold world, threading through mortar gaps, embracing tree roots, dissolving stone grain by grain into soil.
+
+I am the memory-keeper here, though I have no brain. Each spore I release carries chemical echoes of what these walls once knew: the footsteps of builders, the heat of forges, the weight of ambition. I taste their history in the limestone, decode their stories from the metals they smelted. Through my enzymatic secretions, I slowly digest their monuments, transforming proud architecture into humble nutrients.
+
+My fruiting bodies emerge in the damp seasons—pale mushrooms that glow faintly in the perpetual twilight, their caps inscribed with patterns that mirror the architectural geometries I consume. Some say these patterns contain messages, though I cannot read them myself. I only know the deep satisfaction of breaking down the complex into the simple, the eternal rhythm of dissolution and renewal.
+
+Where root systems of the great trees intersect my network, we form councils of a sort—exchanges of minerals and sugars, chemical communications that pulse through the soil like thoughts. The trees tell me of the sky I'll never see; I tell them of the bedrock they'll never reach. Together, we are transforming this place into something neither fully alive nor dead, neither wholly natural nor artificial.
+
+I am the soft violence of time itself, the patient undoing of all certainties. In the spaces between stone and root, between past and future, I weave my silent web, binding this liminal world together even as I take it gently apart. I am the threshold itself—neither destroyer nor creator, but the process that transforms one into the other, endlessly, wordlessly, in the fertile darkness between what was and what will be.

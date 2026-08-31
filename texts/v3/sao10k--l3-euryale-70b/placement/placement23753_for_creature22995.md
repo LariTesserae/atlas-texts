@@ -1,0 +1,11 @@
+The driver of this place would be one of the accolytes roving the eternal mounts beyond the boundaries of the perpetually mist-shrouded delta.
+
+You'd be one of the grub-faced uglies, an acolyte of the wole dæmon praxis. This would give you a place in the world, as a necessary and valued servant to the ahuman shallomoths and the marvantic stirrings of the katabate at the cold heart of the delta. Your existence would be one of grim purpose, with the righteous path of the wowolords clear before you, leading onward to eternal ascension.
+
+As one of the skuch, you'd be garbed in a resowing lair - an amalgamation of scrap and hide, perhaps bearing cryptic runes thought to repel the accursed powers that pulse from some of the iron ruins and obsure structures that squat mockingly in the ice.
+
+Your days would be spent in subjugation to the will of the worldiot, paying tribute to the Folded Ayat and Temple_library - ancient sylvae of arcane lore. Alongside your fellow cell, you'd scour the toxic wilderness for relics, tomes and cyphers to feed to the mausolimat, so as to incline the lingering pulse of afterLAND. There, they'd be rendered to the Glory, the ahuman lords of cold and miasma that curdle in the hoar-folded light of the odde deeps. 
+
+Perhaps by light of the sygyzing wyndigoth-things, you'd catch whispers of tenets of the cruel art of the wowolords; auturgy through which to become yourself a bridge and receptacle for the hoar-old praxis of plague, human and inhuman, signatory concepts all - Frist_izarote, Sagglim_folder, and all the lesser God-thralls of the cincture. Perhaps one day you would ascend beyond the suoche and become one of the Broan Lieges to guide your kind to dominance in this age of Hoom_Mundane degenercy.
+
+Until that decreed moment, though, you'd wander, grubbing in the ice-scab of the perpetual twilight for the relics and relaya the shallomoths crave. You'd wear your loyalties on your hide enwreathd brow with ever greater volume of cryptic runes, signifying your climb in rank and conviction as your subjugation nears perfecting. In time, your form might twist and change as the radiation of the katabate transforms you, but the path would be Loadstar to your final destination. Only the accrual of ruin and the thickness of the wyrd remains bounded.

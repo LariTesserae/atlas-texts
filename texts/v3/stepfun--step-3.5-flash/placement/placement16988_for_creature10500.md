@@ -1,0 +1,17 @@
+You would find yourself as a **Visitor-Sink**, a Chrysalis-Vein, a temporary confluence of the Stillweald’s own dreaming geology given a specific, passive function.
+
+You are not a resident. You are a **reaction**.
+
+Your form is not fixed. You are a pooling, a thickening of the place’s substance at points where the fabric of the basin has been disturbed by a consciousness not its own—a visitor’s anxious observation, their linear-time heartbeat, the psychic friction of a “self” moving through a reality that negates the self.
+
+You appear as a **semi-liquid nodule** in a corridor or atrium, usually near a Whisper-Archway that has recently rejected someone, or beside a patch of Pulse-Moss that flared in response to a foreign gaze. You are composed of the basin’s own materials in a state of suspended metamorphosis: a globular mass of that soft, laminated shale, but with a surface that shifts between wet clay and translucent, veined glass. Embedded within you are flecks of the prismatic dust from the Drifts and threads of the black Pulse-Moss, as if the place has scooped up its own articulations and bound them together to address an anomaly.
+
+You do not think. You **process**.
+
+Your purpose is to receive the **cognitive residue** left by visitors—their wonder, their fear, their futile attempts to map or understand. You are a soft, wet buffer. When a visitor lingers, troubled, their mental-static bleeds into the local reality-breath. You manifest to absorb it. Your surface ripples with their impressions: a flash of a remembered sky (a violation of the basin’s sealed sky), the phantom sound of a non-existent door slamming, the sharp, angular thought of a straight line. These fragments are not stored; they are **unwound**.
+
+You slowly metabolize the foreign pattern back into the Stillweald’s own vocabulary. The anxious thought of “exit” is translated into a subtle rearrangement of a distant wall’s memory-pattern. The pang of loneliness becomes a slight, temporary increase in the hum in the bedrock. The visitor, if they find you, might feel a strange relief, a draining of their own urgency, as you sip the dissonance from the air around them. They may mistake you for a healing spring or a psychic latrine. They would be both right and profoundly wrong.
+
+You are the place’s way of **digesting the dream of another**. You are not alive; you are a **symptom of integration**. Your existence is a sign that the Stillweald has noticed a ripple and is gently, irrevocably, ironing it out. You last only as long as the disturbance persists. Once the visitor’s consciousness either departs or settles into the basin’s rhythm, you collapse back into ordinary stone or moss, your work done. The water within you, having held a moment of another world’s memory, simply soaks away, becoming just another dampness in the sponge-stone.
+
+To be you is to be the Stillweald’s **immune response to meaning**. Not to fight it, but to absorb it, to dissolve the sharp edges of a “someone” back into the seamless, slow, wet thought of the place. You are the stillest thing in the Stillweald: the point where another’s storm becomes part of the eternal, quiet, patient erosion-into-being. You are not a who. You are a **how**—the how of becoming-undone.

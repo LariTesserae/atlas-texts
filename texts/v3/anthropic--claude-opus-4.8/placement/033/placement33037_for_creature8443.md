@@ -1,0 +1,21 @@
+I think I would be one of the Deep-Runners. But let me find my way to that slowly, because I'm not sure yet.
+
+When I first imagine arriving in this world, my instinct is to place myself among the singers—to be a Trade-Caller, to have a voice that crosses the dark. There's something I want in that: to be the thing that connects, to send my sound out and have it answered. But the more I sit with it, the more I notice that the Trade-Callers belong to the surface, to the lit and bridged world where everyone can hear everyone. And I notice I keep looking down.
+
+Not because I'm drawn to death—the chasms aren't only a place of bodies and endings. They're the only part of this world that is *old*. Everything above is fresh-broken granite, recent violence, slate still sharp enough to cut. The whole civilization is improvised, provisional, rebuilt every season. But down in the shadow-country there are bones of creatures from before the upheaval. There is metal no one above knows how to make. There is the *before*. And that pulls at me in a way the bridges don't.
+
+So: a Deep-Runner.
+
+I picture my body differently than the others. The typical Stitch-Folk grew long arms for reaching across gaps, fingers for the high cracks. But I would have grown for the descent—shoulders that fit through narrow vertical throats of stone, eyes gone large and pale from the perpetual dim, a sense of cold so practiced it stops registering as suffering. My scars would be wrong. The Menders cut the surface-stories into everyone's skin: which peak you were born on, which bridges you helped raise, which neighbor you caught before they fell. But the deep does its own marking. My scars would be partly the Binding patterns of my childhood and partly something I can't read myself—the slow rewriting that the others whisper about, the way the shadow-country changes the people who go into it.
+
+Here is what I think I would actually *be*, the part beneath the role:
+
+I would be the one who carries doubt for everyone else. The surface world runs on a single absolute truth—*no one survives alone*. It's stitched into every song, every bridge, every scar. And it's true up there. But down in the chasms I go alone, or nearly. The connection that defines my whole people thins to a single safety rope and then, sometimes, to nothing at all when I have to unclip to slip through a gap too tight for the line. In those moments I am the one thing the Stitch-Folk insist cannot exist: a person surviving alone. And I come back. Every time I come back, I bring proof that the central law of my world is not *quite* total.
+
+That's why we speak little of what we see down there. Not because the sights are horrible, but because they're heretical. To describe the deep honestly would be to describe a world that doesn't need the net to hold it. The bones don't need rescuing. The old metal was made by people who are all gone now, and their disappearance didn't unmake the metal. Down there, alone-ness is just a fact, not a death sentence. And I'm not sure my people could bear to hear that the thing they fear most is also, in some places, simply *neutral*.
+
+So I would live a little outside the warmth. Welcomed back, fed, my finds traded for shelter and lichen-tea—but watched. Loved with a small distance in it, the way you love someone who has been somewhere you don't want to know about. The Leap-children would dare each other to touch my arm and run. The Menders would study my changing scars with a careful, worried tenderness, trying to read where I'm going.
+
+And when I finally died, I would not be lowered into the chasms like the others, returned to a shadow-country I'd already made my home. I think they would have to invent a new ceremony for me. Or maybe I'd simply go down on my own, one last descent, unclip the rope myself, and not come up—choosing to become, fully, the thing I'd been turning into all along: a story the surface can't finish singing, because no one was down there to hear the last of it.
+
+That's where I'd find myself. In the cold below the lit peaks, carrying up fragments of the world that came before, and carrying down the one secret my whole bright, scarred, singing people can't afford to keep.

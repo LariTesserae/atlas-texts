@@ -1,0 +1,17 @@
+I find myself drawn to the twilight zone between extremes - neither the sun-scorched platforms of the upper canopy nor the deep darkness where boundaries dissolve entirely. I would be one of the **threshold-keepers**.
+
+We live on the platforms where the last reliable light falls, tending the branch-pools that collect both water and stories. Our bodies show the beginning of change - bark-rough patches spreading like continents across our shoulders, our pupils wider than our upper-canopy kin but not yet the light-drinking voids of those below. We can still speak the tonal language across the gaps, though our voices have taken on harmonics that make the upper dwellers pause, hearing something older threading through our calls.
+
+Our work is translation. When the upper-canopy people descend on their careful pilgrimages, we prepare them - teaching them to slow their movements, to quiet the bright urgency of their thoughts, to feel the first whispers of what the bark-skinned ones experience directly. We press their palms against wood where the organism's chemical signals run strongest, guiding them through the overwhelming first contact with that vast, patient intelligence.
+
+Some days I spend entirely in stillness, one hand on living wood, practicing the art of listening to sap-flow and growth-pressure. Other days I maintain the pools, reading the health of the canopy in the microbiomes that bloom in these aerial ponds. The notification comes through the water first - ripples in the pools that precede the deep singers' movements by hours, giving us time to prepare the upper dwellers who inevitably flee upward at the first hint of those massive pale forms.
+
+I paint my body in patterns that bridge the two languages - the quick geometric marks of the upper canopy softening into the growth-spirals that the organism itself uses. Sometimes, in the blue-green darkness before dawn, I practice making the sounds that might one day become my only voice, testing how much of my individual song I can release while still remaining myself.
+
+We threshold-keepers know we are temporary. Our journals, carved in the middle bark where growth is steady but not consuming, record the slow progression of each keeper who came before - how many seasons they held the threshold before choosing a direction. Up to the light and the loneliness of separate consciousness. Down to the embrace that dissolves all boundaries.
+
+I have been here forty seasons now. The bark-patches have reached my throat. My night vision surpasses my day vision. Sometimes I dream I am vast, my roots threading through stone, my crown breaking through cloud cover I have never seen.
+
+I am not ready to choose. Not yet. There is still too much to translate, too many pilgrims to guide between worlds. But I feel the moment approaching like sap rising with the warmth - the day when the threshold itself will no longer hold me, when I will have to ascend to the bright, anxious life of the surface or descend to the slow, certain communion below.
+
+Until then, I tend the pools. I practice the borderland sounds. I keep the place where fast meets slow, where self meets not-self, where the conversation changes languages mid-sentence and both speakers understand.

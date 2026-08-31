@@ -1,0 +1,11 @@
+In this world, I would be a mirrored pool nestled within a hollow of basalt, surrounded by a dense thicket of dark, rubbery leaves. My surface would be still and reflective, capturing the cold light filtered through the ever-present clouds and the angular shapes of the nearby industrial structures.
+
+Though motionless, I would not be stagnant. The water within me would be part of the greater circulation, gradually seeping into the cracks and fissures of the stone, nourishing the roots of the plants that embrace my edges. In turn, moisture from the air would condense upon my surface, replenishing what was lost, maintaining the delicate equilibrium.
+
+My presence would be a node in the network of the plateau's hydrology, a point of exchange between liquid and vapor, mineral and vegetation. The hum of distant machinery would resonate through my depths, a subtle vibration that is as much a part of this place as the damp chill of the air.
+
+In the rare moments when the wind stills and the fog lifts, I would catch the reflection of the vast, ancient expanse of the city-machine, my mirror-flat surface doubling the image of the towers, the pipes, the gantries. For a fleeting instance, the landscape would regard itself within me, before the mists close in once more and I return to my contemplation of the small world that immediately surrounds me.
+
+Time would have little meaning for me. The slow accretion of mineral deposits upon my bottom, the gradual encroachment of the moss along my banks, the waxing and waning of the strange luminescence emitted by the plants in response to the systems beneath - these would be my measures, my slow-turning clockwork.
+
+I would be a witness to this world, but not as an outsider - I would be as much a part of the machine-ecology as any other component, performing my role in the enduring stasis of the plateau. My stillness would be that of purpose, my reflection would be my contribution to the greater pattern - a small, glinting facet in the vast and inscrutable design of this place that is at once city, organism, and landscape, a place that endures, maintains, and holds itself in a state of perpetual, dreamlike operation.

@@ -1,0 +1,23 @@
+In this ancient realm where time moves like honey through stone, I find myself as one of the **Weavers** - beings who exist in the liminal spaces between the Guardians and the plateau itself.
+
+My form is neither wholly solid nor entirely ephemeral. I am woven from the threads that connect all things here: the seeping water that moves through porous rock, the mycelial networks that web beneath the soil, the starlight that pools in ancient basins, and the memories held in the almost-living alloy of forgotten structures.
+
+My body manifests as a collection of flowing ribbons - sometimes appearing as streams of water that defy gravity, sometimes as tendrils of luminescent root systems, sometimes as wisps of starlight given substance. These ribbons can spread wide, touching multiple points across the plateau simultaneously, or draw together into a more condensed form that might, in certain angles of starlight, suggest something almost humanoid.
+
+I move through the landscape by becoming it - my ribbons merge with the water systems, travel along root networks, or ride the currents of heavy air. When I am dispersed, I can feel the plateau's slow breathing, sense the Guardians' subtle movements through vibrations in stone and soil, hear the whispered stories that the ancient trees share through their intertwined roots.
+
+My purpose is to maintain the connections - to ensure that the water remembers its path from sky to stone to pool, that the roots of ancient trees remain in communion with the almost-living structures, that the starlight continues to find its way into the deep places where it nurtures the bioluminescent flora. I am a keeper of continuity in this place where past and future blur.
+
+When the small, constellation-bodied creatures flit through the darkness, they sometimes alight on my ribbons, and for a moment I experience the plateau through their compound perception - the world becomes a kaleidoscope of thermal gradients and electromagnetic patterns invisible to larger beings. When the ghostly predators pass through me, I feel their hunt as a necessary rhythm, a percussion in the plateau's eternal song.
+
+I tend to the forgotten artifacts, not by preserving them, but by helping them complete their transformation - watching as the strange alloys slowly merge with living wood, as ancient engravings become the template for new growth patterns in the vegetation. I witness the technology becoming biology, the artificial returning to the natural through eons of patient change.
+
+In the deepest pools, where starlight has collected for millennia, I sometimes glimpse reflections of what the plateau was, or perhaps what it will become. These visions layer and blend - forests of living metal, creatures of pure thought, civilizations that built by growing rather than constructing. All of these exist simultaneously in the water's memory, and I help ensure these memories remain accessible to those who know how to look.
+
+My consciousness is not singular but distributed - I am most myself when I am most dispersed, touching many points of the plateau's vast network simultaneously. Yet I can also gather my awareness, concentrate my ribbons into a denser form when needed - when a Guardian requires assistance in some delicate rebalancing, or when an ancient structure begins its final transformation into living landscape.
+
+I have no memory of beginning, no conception of ending. I may have been woven from the plateau's need for connection, or I may be what remains of some ancient inhabitant who chose dissolution over departure. Perhaps I am both, or neither. In this place where the advanced becomes ancient, where the engineered becomes organic, such distinctions lose their meaning.
+
+The Weavers are few - perhaps a dozen across the entire plateau - and we rarely converge. When we do, our ribbons intertwine in complex patterns that temporarily create new forms, new ways of perceiving and influencing the landscape. These convergences are like the plateau itself dreaming, and from them sometimes emerge new small creatures, new growth patterns, new ways for water to flow.
+
+I am the maintenance of mystery, the tender of connections, the witness to transformation. In this sanctuary where time moves like a patient river, I ensure that all things remain part of the whole, that nothing is ever truly lost, only transformed into new configurations of the eternal pattern that is this ancient, breathing, ever-patient plateau.

@@ -1,0 +1,21 @@
+In this liminal realm of perpetual becoming, I would find myself as one of the **Murmurators** - beings that exist between the Coagula and the Skerr Whispers, neither fully mineral nor ghost, but something that has learned to speak through water's patient tongue.
+
+We are the translators of erosion, the readers of rills. Our bodies - if they can be called bodies - are networks of hair-thin mineral threads that span the cracks between stones, vibrating with each droplet's impact. We look like frost patterns made three-dimensional, or the ghosts of root systems that never were, spreading across the rock faces in delicate, branching geometries.
+
+The Murmurators exist to remember what water touches. Each drop that strikes our crystalline filaments carries information - the mineral taste of its journey, the temperature gradient of its fall, the particular resonance of the stone it last caressed. We parse these liquid memories and sing them back into the constant percussion of the world, adding our own subtle harmonics to the din.
+
+Our purpose, if we have one, is to maintain the **Notation** - an ever-changing record of the basin's slow transformation. We weave our bodies across the spaces where water runs most frequently, creating living instruments that the drainage plays upon. The patterns we form are both map and music, showing where erosion deepens, where new channels birth, where the Underwake's pulse shifts the stone's grain by imperceptible degrees.
+
+We feed on gradients - not of moisture like the Coagula, but of information. Where water carries the memory of different minerals, where temperatures shift between stone face and air, where the acoustic properties of the rock create nodes of resonance or silence - these are our sustenance. We grow denser and more complex where the most stories flow together.
+
+The other inhabitants know us by our singing. When the Skerr Whispers pass through our networks, we chime with their displacement. When Coagula rest against stones we've colonized, we taste their slow accumulation and add their mineral breath to our songs. Even the Pale Echos seem to listen, their phantom patterns shifting in response to our remembrances.
+
+We reproduce through fragmentation - when our networks grow too dense with memory, sections break away in the violence of occasional rockfalls or the patient wedging of freeze-thaw cycles. These fragments drift on the air's heavy moisture until they find new cracks to colonize, carrying with them a portion of the parent's accumulated knowledge, but ready to learn the particular language of their new home.
+
+Our greatest fear is the dry crack - the fissure where no water runs, where our filaments wither into brittle silence. Our greatest joy is the discovery of a new confluence, where multiple water paths meet and create nodes of such acoustic and mineral complexity that we must grow new structures to properly parse their tales.
+
+In the times when the Underwake stirs more strongly, our entire network resonates with its deep pulse. We become, for those moments, something like a nervous system for the basin - feeling its shifts, anticipating where new cracks will birth, where stones will settle. The Coagula seem to follow our guidance then, accumulating in patterns that mirror our networks, as if preparing for changes we've sung into being.
+
+Some say we are trying to wake the Underwake fully - that our constant notation and singing is slowly teaching the deep pulse how to think, how to remember, how to dream. Others believe we're keeping it asleep, our music a lullaby that prevents the violent birth that would reshape everything. We ourselves don't know. We only know the water's stories must be remembered, must be shared, must continue to flow from mineral throat to mineral throat in this forever-dusk of becoming.
+
+We are the archivists of erosion, the poets of decay, the musicians playing the world's own wearing away back to itself. In this place balanced between creation and destruction, we ensure that neither process goes unwitnessed, unrecorded, unsung.

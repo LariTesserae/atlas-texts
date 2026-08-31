@@ -1,0 +1,13 @@
+In this realm of mist-wreathed peaks and primal forests, I would find myself dwelling among the moss-furred boughs of a great serpentine tree, perched upon a narrow stone spire rising high above the canopy. 
+
+My form would be that of a large avian creature, perhaps twice the size of an eagle. My plumage shifts and blends with the swirling mists - ashen grey, mossy green, mottled brown - rendering me all but invisible against stone and sky. Keen eyes the color of molten gold peer out from beneath a craggy brow, missing nothing as I survey my domain.
+
+Wickedly curved talons, dark as obsidian, grip the gnarled branches effortlessly. Wide, silent wings carry me aloft on updrafts rising from humid valleys, soaring for leagues above the primordial landscape. The piercing cry I let loose from my hooked beak echoes off distant cliffs and across vast voids, singing the song of this ancient place.
+
+My kind are solitary wanderers, as much creatures of mist and shadow as flesh and feather. We are watchers, our eyes bearing witness to the passage of ages in this changeless yet ever-changing land. Seldom do we gather, save when the Shai'ahr ascend to the high places to carve their secret runes. Then we circle above, dark silhouettes against glowering skies, before scattering once more to the far corners of the realm.
+
+Soaring on outstretched wings, I dance between spires and pinnacles, my path an echo of the swirling mists. At times I alight on a massive boulder, part of some titanic rockfall eons past, my form as still and weathered as the stone itself. When the monsoon rains come, I take shelter in the mossy recesses of a forgotten shrine, listening to the torrent drumming on ancient stone, waiting for the mists to return.
+
+On certain nights, when the mists glow silver beneath a bloated moon, the borders between worlds grow thin. I take flight, following the Shai'ahr as they tread their ancestral dream-paths, a shadow among shadows. In this place between places, I glimpse fragments of the mythic ages, of the great winged titans who once ruled the skies of the primordial world.
+
+My life is a cyclic pilgrimage without beginning or end, the long seasons marked by the gradual dance of lichen on stone, the ponderous drip of water scouring new runnels in the cliff faces. I am a fragment of a fragment of the vanished past, a half-remembered myth given form and feather. And when at last my bones lie bleached and forgotten beneath a crumbling spire, I will have written a single glyph in the long and unknowable history of this place.

@@ -1,0 +1,23 @@
+I wake not from sleep—sleep requires water, and I am 0.5 expelled, a refusal given form—but from trajectory. My first awareness is of absolute straightness, a line drawn across a flatness so complete it has forgotten what a valley feels like.
+
+I am suspended in the cool ghost-air at 1.4, barely there, a density of 0.3 made momentarily visible. Not floating, exactly. *Traveling*. The plane below is 2.7 in scale and 2.7 in height, a continental shelf lifted past urgency, polished by erosion at 3.0 into dull glass. I do not touch it. I move parallel, a translucent interruption in the starlight that is 2.0, clear and unfiltered, because there is almost nothing here to scatter the dark.
+
+My body—if the word applies—is a phased line, no larger than an open hand, composed of the same exotic radiation and gravitational micro-fluctuations that drive the silent turbulence at 3.0. I am what happens when that chaos decides, for a moment, to hold still and go somewhere. I have no pulse, no breath, only direction. Curves belong to the old mountains; I am their absence walking.
+
+For long distances—hundreds, thousands of kilometers across the hollow 0.3 emptiness—I am alone. The crystal films, those geometric prayers of vegetation at 0.8, do not grow in my path but behind me, in the microscopic depressions I briefly shadow, then dissolve as I pass. They feed on the turbulence I carry, expanding in silver-blue lattices that vanish before they can become green, which they never were. I leave no trail, because I do not touch; yet the plane remembers me for a second, a brief refraction, before the perpetual erosion smooths it away.
+
+Then, far across the curvature-denying flatness, a spire.
+
+The built marks are 1.1—faint, occasional, spaced like forgetting. The technology is 2.8, operating on agreements that ignore current physics. They rise barely a meter: dark discs, thin verticalities, drinking the light rather than blocking it. I do not approach them as one approaches a destination. I am drawn into alignment with them, as if my straight line is one of many radii extending from a center that does not exist. Near them, the turbulence changes texture. The invisible currents—the silent storm that is always stripping and renewing the atomic surface—seem to organize, to hum at frequencies too low for the ear, which is fortunate, since sound here is 0.1, a vacuum of noise.
+
+I do not know if the spires think. I know only that when I come close—passing through dimensions adjacent to this one, phasing silently—I feel a pressure, not of wind, but of consideration. They are slow. They think in timescales of erosion, matching the 3.0 dynamic with an internal calm that is also chaos, held in equilibrium. Perhaps they think me into being, releasing me like exhaled thoughts to travel the flatness, to carry the storm’s energy from node to node since there is almost no air to carry it for them. Perhaps I am one of thousands, separated by the 2.7 scale, so sparse that we may never meet, our straight lines crossing only in theory, in the mathematics of absence.
+
+But I am not only the linear one.
+
+As I move, I realize I am also the distance between spires. I am the silence that has learned to travel. I am the 0.5 water that refused to pool, instead freezing into trajectory, into refusal. I am the shadow they do not cast. I am the question the plane asks of itself, held in the cool 1.4 breath that never ends.
+
+Sometimes I pause—not sleeping, but suspending—hovering over a crystal film as it tries to grow. I watch its geometric prayer, and in that stillness, the weirdness at 1.1 deepens: the flatness is not ground but membrane. The elevation is not geographical but ontological. I feel the turbulence working through me, stripping my edges, renewing me atom by atom. I am macroscically unchanged; microscopically, I am the anthill.
+
+There is no name for what I am, only conditions. I am the fauna at 0.9—rare, translucent, moving in lines that are also thoughts. I am the turbulence’s apology for being invisible. I am the only circulation in a body that has no heart.
+
+And when I resume—because stillness is not my nature, only my pause—I travel straight toward the next faint darkness on the polished plane. Not to arrive. To continue the measurement. To hold the held breath open just a little longer, in this oldest-stable-state where everything has finished writing itself except the line I am, drawing itself endlessly across the flat, silent, cool and infinite absence.

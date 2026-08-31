@@ -1,0 +1,13 @@
+Upon reading the vivid, though difficult to decipher, description you provided, my mind conjures an image of a mysterious and ancient village clinging to the slope of a rugged mountain. The dense mist swirling through its narrow streets mingles with the pale, gelatinous fungal growths that creep from every crevice. 
+
+Here, amidst the damp stone buildings half-grown from the bones of the cliff, dwell a race of fungal folk. Their bodies are a marriage of mortal flesh and the mycelial threads that course beneath their translucent skin. Lichen blotches their flesh in viridescent patterns and pulsing puffball growths sprout from their flesh as if they have themselves become a landscape of life and decay.
+
+In this eerie, cooling air, time itself seems to decelerate as the mist and mycelium combine, suspending the village in an eternal early spring. The streets fizz with submarine latticework traced by eldritch growths. Thick apricot-colored phallus stretch from door to door, merging with the chimneys and stonework to create a spongy, undulating roofline. 
+
+The villages indolently bubble through the alleys, copulating in idly spirals of budding/selects. Apricot-petaled flowers sprout in cracked cobblestone as glass vials of ruit-tinged hyphae rise from them in blasphemic elvish convolutions. The denizens move through this hemic landscape like slow-moving stains across the stone and moss. Phenol-haloed ciphers undulate in skies above spincterated sequence and nectar-powered proporps sunday-rupt to open enfranchised alium alluvium, the inverted trumpet-pitch of their roofs channeling the mist into crytstal encumbrance of repetitive alternaria.
+
+In this amnesiatic village of humid fungal growth, where glacial and organic and cyberpunk infusions bleed together, I envision myself as one of the denizens rising from a sodden doorway to stretch my cappilary armature of hyphae into the stone. Like my fellow fungal folk, my body is a map of lichen and lungwort, pewter-colored and exhaling spores. My face is a surface of luminous puffball growths and atrophied syphillitic conidokinolalia. 
+
+Through ocular sockets webbed with viridescent stroma I regard the undulating landscape of my village - the interminable fields of gel-like hyphae, the collapsed roofs and flower-petaled chimneys, the elvish landscapes of ruit-haloed lufently developing alembic and and mycoremediated facts meltingly sepulchured objetifications.
+
+With gradual movements and mycoremiated desuetude, I lumber through the narrow,ince uncertainties of my hemi-remembered home, always seeking a tactile communion with the village - a synapses of lichen and fungal growth. In this lapser of a slow-growth world, only the patience of the mycelium is eternal.

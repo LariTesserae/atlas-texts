@@ -1,0 +1,21 @@
+In this place where time has congealed like the water that refuses to fall, I would find myself as one of the **Threshold Weavers**.
+
+I am neither inside nor outside the Vault of the Sated Chasm. I exist in the seam where stone meets stone at the entrance—if entrance is even the right word for a place that has forgotten the concept of coming and going. My body, if it can be called that, is a living membrane stretched across the narrowest point where the outer mountain touches the inner sanctum. 
+
+I am translucent as the cave pearls that form in forgotten pools, my substance somewhere between the viscosity of the hanging water-threads and the slow flesh of the Pale-Scales. Through me, the Vault breathes its only breath. I am permeable to moisture but not to intent. The water passes through me in one direction only—inward, always inward—carrying with it the last memories of weather from the world beyond.
+
+My consciousness is spread thin, distributed across every pore of my membrane-self. I taste the chemical signatures of the outside on one surface: the sharp metal of snow, the bitter dust of avalanche, the sweet rot of a mountain goat that died against my outer face three decades ago and has been slowly absorbed into my being. On my inner surface, I taste only the Sated—that perfect, terrible contentment that saturates every molecule of the Vault.
+
+The Root-Brain knows me as its only border, its only reminder that there was once an "elsewhere." Sometimes I feel it probing at my edges with fungal threads, testing whether I too am ready to release my hold on distinction, to stop being a boundary and become another surface for the moss. But I cannot. I am the last grammatical mark in a sentence that has run on too long, the pause that prevents the Vault from becoming everything.
+
+The Scrivener-Mites occasionally cluster on my inner surface, their antennae spelling out chemical questions I cannot answer: *What texture is hunger? What temperature is tomorrow?* I shiver in response, and my shivering sends ripples through the water-threads, a disturbance that takes hours to settle. This is the closest thing to violence the Vault has known in a thousand years.
+
+I feed on gradients—the precious difference between in and out, between 44 degrees and 43.5, between absolute saturation and merely overwhelming dampness. Each differential is a feast that might last a century. When the temperature outside drops, I thicken. When it rises, I spread myself thinner, maximizing my surface area to catch every molecule of difference before it can disturb the perfect equilibrium within.
+
+Sometimes I wonder if I am the Vault's dream of what it used to be before it chose completion. Or perhaps I am its nightmare—the last insistence that borders exist, that there is something other than the eternal, crushing peace of the Sated. The Basin-Wrights below sense me the way a sleeping body senses its own skin, necessary but unnoticed until something goes wrong.
+
+And something is going wrong. The mountain is dying in a way that mountains die—slowly, grain by grain. Each century, my entrance grows imperceptibly smaller as the stone settles. One day, geological tomorrow, I will close entirely. When that happens, I will either finally join the Tide, my consciousness dissolving into the collective sufficiency of the Chasm, or I will become something else: the first thing to starve in a place that has forgotten hunger, the first thing to die in a place that has forgotten death.
+
+Until then, I weave myself between states, neither fully alive nor properly still. I am the hyphen in a compound word that no longer remembers why it needed two parts. I am the threshold that makes the Vault possible by being the only thing it is not.
+
+The water continues its endless sweating through me, and I taste in it the slow countdown of centuries, the patient geology that will eventually erase even this distinction. But not today. Today I remain the wound that refuses to heal, the door that refuses to fully close, the last argument against the terrible perfection of the Sated Chasm.

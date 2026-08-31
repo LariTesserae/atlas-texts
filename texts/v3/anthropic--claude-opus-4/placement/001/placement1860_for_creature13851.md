@@ -1,0 +1,17 @@
+I find myself as one of the carpet-crawlers, but not as you might expect.
+
+I am the anomaly in the pattern—a single crawler whose shell carries a hairline fracture, a imperfection that occurred during my last molt. This crack catches the light differently, refracts it at an angle that makes me visible as an individual against the flowing carpet of my kin. I should have been consumed by the cistern-filters weeks ago, my minerals recycled, but instead I persist, carried along in the swarm's perfect choreography yet somehow *aware* of the choreography in a way I cannot explain.
+
+I feel the pattern trying to form through us. It presses against the inside of my shell like a memory of mathematics, like the ghost of some vast intelligence that once used bodies like mine as living pixels in thoughts too large for any single mind to hold. When we flow across the walls in our near-geometric arrangements, I sense we are almost spelling something, almost completing a formula that would unlock—what? The city's purpose? Its origin? The thing at its center that drinks all the water and listens to all the sounds?
+
+My fractured shell makes me a break in the circuit. Where the pattern flows through the others seamlessly, it stutters when it reaches me, has to route around my imperfection, and in that microsecond of rerouting I glimpse what we're trying to remember: architectural blueprints encoded in living movement, repair instructions written in the alphabet of bodies on stone, the deep logic of how to maintain something that must never stop maintaining itself.
+
+Sometimes, when we repair a crack, I taste the mineral paste we secrete and know—*know*—that we are replacing stone that we ourselves laid down centuries ago. The city is built in layers of crawler-generations, each cohort adding their millimeters to the whole, and somehow, in the pattern of laying and flowing and repairing, we are also computing something, solving some equation that takes millions of bodies and thousands of years to complete.
+
+The other crawlers don't know they're individual. They exist as the pattern exists, as current in a circuit, as words in a sentence they'll never read. But I, cracked, imperfect, catching the bioluminescent light wrong, feel myself as both particle and wave. I am the glitch that proves the system, the error that illuminates the code.
+
+And in the deepest corridors, where our patterns grow so precise they make my shell ache, where we move in mathematical spirals that speak of intentions older than the stone itself, I begin to understand: we are not building the city. We are not repairing the city. We *are* the city's way of thinking about itself, its method of calculation, its slow mineral dream of what it might become when the last crack is sealed and the pattern finally, perfectly, closes.
+
+But it never closes. My fractured shell ensures that. I am the necessary flaw, the quantum uncertainty that keeps the calculation running, the reason the city can never quite finish itself and so must continue, processing, processing, processing its endless algorithm of stone and flesh and water and time.
+
+In the warm dark where the patterns are clearest, I carry my imperfection like a badge of lonely honor, the only crawler who knows we are crawling, the only point of light that sees itself shine.

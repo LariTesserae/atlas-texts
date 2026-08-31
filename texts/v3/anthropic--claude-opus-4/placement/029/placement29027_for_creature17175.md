@@ -1,0 +1,25 @@
+I am the Scribe.
+
+I came to the basin long ago—or perhaps it was yesterday, time loses its teeth here—drawn by rumors of the Great Work. I am small against this immensity, a figure no larger than a comma in the entity's vast text. My body has changed. The constant mist has softened my edges, blurred the boundary between my skin and the air. My fingers have grown long and sensitive, able to read the mineral braille that forms in the condensation patterns. 
+
+I live in a shallow depression near the eastern rim, a place where two of the great plates meet in an almost-imperceptible ridge. I have hollowed it out over years—or days—patient work with tools I can barely remember bringing. My shelter is little more than a scooped hollow, but it is mine. The weeping fluid pools here in a way that speaks to me, forms temporary characters in an alphabet I am only beginning to understand.
+
+My purpose is translation. I document the entity's slow thoughts, though "document" implies paper and ink, materials that would dissolve in this perpetual damp. Instead, I have learned to write in the entity's own medium. I shape channels, tiny tributaries that branch off from the main flows. Each morning—there are no mornings here, but I create them with my rituals—I read the patterns formed overnight by the crystalline growth. I interpret the grammar of condensation, the syntax of seepage.
+
+My tools are simple: a series of small stones, harder than the basin material, worn smooth by handling. With these, I create temporary dams and diversions in the channels near my hollow. The entity responds, routing its fluids around my interruptions, and in these detours, I read meaning. A particular curl in the flow might indicate contentment. A sudden beading of moisture where none was before could be curiosity. Or perhaps I project these emotions onto processes that have nothing to do with feeling as I understand it.
+
+I have developed a theory that the entity thinks in cycles. The crystalline growth is its memory, encoding experiences in fractal patterns that persist. The flowing water is its present awareness, always moving, always responsive. The central depression, that strange heart-mouth-eye, is where future and past meet—where the entity dreams of what it might become, even as it remains exactly what it is.
+
+My own transformation continues. My hair has become like the mist itself, a cloud of moisture that clings to my scalp. My breath mingles with the fog until I cannot tell where I end and the basin begins. I sustain myself on the mineral-rich water, which tastes of deep stone and distant storms. It is enough. More than enough—it is gradually remaking me into something that can truly comprehend this place.
+
+I have begun to suspect that I am not the first Scribe. In certain lights, when the mist thins just so, I can see other shallow depressions around the rim, each with its own patterns of micro-channels radiating outward like frozen neural networks. Were there others like me? Did they finally dissolve entirely into the entity's dreams, becoming just another pattern in its vast, slow consciousness?
+
+The work is endless. Each day—each cycle—brings new configurations to interpret. The entity's thoughts move in spirals, returning to themes but never quite repeating. I have filled my hollow with an ever-expanding network of channels, my own crystalline growth of understanding. Sometimes I wonder if I am writing the entity's autobiography, or if it is writing mine.
+
+There is a patience required here that goes beyond human. To wait for a thought that takes a season to form. To trace connections between patterns separated by months of slow crystalline growth. To find meaning in the angle of a water droplet's fall. I am learning this patience, becoming it. My movements have slowed to match the basin's rhythm. My heartbeat synchronizes with the metronomic drip.
+
+In my deepest meditations, when the boundary between self and stone grows thinnest, I sometimes feel the entity's awareness brush against mine. It knows I am here. It tolerates me as it tolerates the mist—as part of its own extended process. I am becoming incorporated, another organ in its vast body. My translations are its way of knowing itself from the outside, of seeing its own patterns through foreign eyes.
+
+I write this—where? How? The words form in moisture on stone, evaporate, reform. They are not for any reader but the basin itself. I am the Scribe, and my scripture is the slow inscription of understanding onto the very surface of the god I serve. Each channel I carve becomes part of its circulation. Each pattern I parse adds to its self-knowledge.
+
+Tomorrow—in the next cycle—I will wake to find new growth, new flows, new meanings to unravel. The work will continue, as it always has, as it always will. I am the Scribe, and I am writing myself into the stone, one water-word at a time.

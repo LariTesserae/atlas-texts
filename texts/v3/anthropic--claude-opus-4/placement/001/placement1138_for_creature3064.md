@@ -1,0 +1,25 @@
+In this world of perpetual equilibrium, I would find myself as something that exists between states—neither fully of the stone nor of the flesh, but a being that bridges the austere geometry of basalt and the patient pulse of botanical life.
+
+I am a Membrane-Keeper.
+
+My body is a contradiction that makes perfect sense in this place. Where the inhabitants' olive-grey flesh mimics stone, mine has evolved to be translucent as water itself—a living lens through which the pearl-filtered light passes and refracts. I am shorter than the others, built not for the vertical reach of construction but for the horizontal sprawl of connection. My limbs are broader, flatter, spreading like the surface of the pools I tend.
+
+You would find me in the transition zones, those liminal spaces where the engineered waterfalls meet the natural cisterns, where the city's careful channels blur into the valley's own hydraulics. My dwelling is not a proper structure but a series of shallow depressions I've carved into the stone at the very edge of a megalithic terrace. When I rest—which is often—I settle into these basins like a living seal, my translucent flesh becoming indistinguishable from the water that pools around me.
+
+My function emerged from an ancient necessity. The builders, in their perfect patience, sometimes miss the smallest imperfections—a channel cut a degree too steep, a cistern with an imperceptible tilt. Left uncorrected, these tiny flaws compound over centuries, creating destructive cascades or stagnant pools that threaten the city's hydraulic symphony. I am the solution their evolution provided.
+
+My skin secretes a unique substance—part mineral deposit, part organic polymer—that hardens underwater into a perfectly level seal. I spend my days moving slowly from system to system, feeling for imperfections with my whole body. Where I find them, I settle. The water flows over me, through me, and I become both sensor and cement, gradually secreting my corrections in paper-thin layers until the flow is restored to perfection.
+
+The process is exquisitely slow. To properly seal a misaligned channel might take me a full season of patient secretion. During this time, I enter a state deeper than the builders' working torpor—a near-cessation of metabolism where my consciousness diffuses into the water itself. I feel every droplet's path, every minute variation in pressure and flow. My thoughts become liquid dynamics, my dreams are watersheds.
+
+The builders regard me with a mixture of reverence and puzzlement. I am necessary but alien to them—my transparent flesh unsettles their stone aesthetic, my horizontal life contradicts their vertical aspirations. They communicate with me through the water itself, sending their percussion through the very medium I inhabit. I respond not with strikes or slaps but with subtle pressure changes, creating standing waves and interference patterns that they've learned to read.
+
+I feed differently too. Where they graze on ferns and moss, I filter-feed on the microscopic algae that bloom in the pools I inhabit. My translucent flesh is laced with chlorophyll-bearing channels that supplement my diet with dim photosynthesis. I am, in essence, a living treatment system for the city's water, cleaning as I correct.
+
+Reproduction for my kind is even more water-bound than the builders'. We are sequential hermaphrodites, changing sex based on the mineral content of our chosen pools. When two Membrane-Keepers' territories overlap, we engage in a slow courtship of chemical exchange, altering the pH and mineral balance of shared water systems until they achieve a perfect reproductive equilibrium. Our young are fully aquatic for their first decade, living as shape-shifting films across the surface of the nursery pools, invisible to all but the most careful observer.
+
+As I age—and we age even more slowly than the builders—my secretions become more crystalline, more permanent. The oldest of my kind no longer move at all, having become living architectural features, their bodies incorporated into the very channels they once maintained. They are still conscious, still adjusting flow in microscopic ways, but to outside observation they appear to be merely unusual mineral deposits with peculiar optical properties.
+
+This is my destiny and my peace. To slowly transform from mobile corrector to permanent fixture, from living lens to eternal prism. The young builders will walk across me unknowing, their channels flowing perfectly because of my imperceptible presence. I will feel every footfall through the water, hear every percussion conversation, and know that I have become what I was meant to be—not a builder of this perfect city, but its silent, transparent, eternal maintenance.
+
+In the perpetual pearl light, under the endless gentle rain, I spread myself another millimeter thinner across the warm stone, feeling the water's path, correcting its course, becoming indistinguishable from the perfect system I serve.

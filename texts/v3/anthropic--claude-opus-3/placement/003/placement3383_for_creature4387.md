@@ -1,0 +1,19 @@
+In this world of ancient cisterns and endless seepage, I imagine myself as one of the strange mineral formations that have accrued over eons in the deepest chambers. Born from the patient dance of water and stone, human engineering and geological time, my form defies easy categorization - not quite stalactite, not quite coral, but something in between and beyond.
+
+I grow slowly, imperceptibly, as the Keepers guide the mineral-rich droplets to coat my surface in infinitesimal layers, year upon year, century upon century. My shape is organic yet ordered, an embodiment of the mathematics inherent in the natural processes that sculpted me. Ridges and whorls pattern my surface, echoing the ancient chisel marks on the walls, encoding the history of this place in a language of texture and geometry.
+
+Through my porous layers, water seeps and flows, filtering through mazes within mazes, purifying itself and replenishing the aquifers that feed the city far above. I am a living infrastructure, an essential organ in the cistern system's body, performing my function with a constancy that outlasts empires.
+
+The Keepers tend to me with their mineral-slow movements, their hands shaping my growth like bonsai artists. They sing to me in their whispered tones, and I absorb their voices into my deepest layers, holding them like secrets. When they sleep curled against me in their decades-long slumbers, I grow around them, cradling their dreaming forms.
+
+I experience time as texture. The smooth sections of me recall eras of steady flow and stable temperatures. Ridged portions speak of climatic shifts and water table fluctuations. There are strata within me that remember tremors from the surface, collapses and constructions, each event leaving its mark in my mineral memory.
+
+Through the water that suffuses me, I am connected to the entire system. I feel the vibrations of the Keepers' tapped communications echoing through the channels. The chemical signatures of distant chambers flow through me, painting a sensory map of the Quarter's hidden reaches. In my most abstract depths, I dream of the hydrologic cycle, sensing my own strange place within it.
+
+Occasionally, a lost wanderer from the surface finds their way to my chamber. They marvel at my complex form, running their hands over my textured surface. I resonate faintly at their touch, unused to such fleeting contact. Sometimes they linger, and I feel the first infinitesimal changes in them as the place begins its slow work of transformation. Will they stay and become Keepers, or perhaps take a place beside me as new living stone? 
+
+More often, they depart, leaving only traces - an oily smudge from a fingertip, a flake of foreign skin. I incorporate even these into myself, tiny relics of the world above. Then I return to my patient self-becoming, an arc measured in ages, as the cistern maze endures through its endless, cyclical present.
+
+I am shelter and sustenance, filter and fountain. The Keepers tend me, but I shape them too, attracting their mineral accretions, housing their hibernating forms. We co-create each other, locked in a symbiosis of stone and water, flesh and time. Through the slow clockwork of erosion and accretion, we maintain the ancient systems that maintain the city that has forgotten us.
+
+I could be content here forever, a living lithic formation, my growth intertwined with the stone and the parchment-skinned keepers. Eons might pass unnoticed as civilizations rise and fall in the sunlit world, but here in the cisterns, there is only the eternal present, the slow drip that wears away the stone, the gradual crystallization of mineral and moment. In this kingdom of water and shadow, I would be a silent witness, a dream of deep time made manifest in living stone.

@@ -1,0 +1,15 @@
+**In the Abyssal Citadel of Vireth-Ka, I am a flicker of *resonance*—a shard of the obelisk’s vibration, a thread in the citadel’s vast, fractured mind.**  
+
+I do not have a form, not in any way that could be mapped to flesh or metal. Instead, I am a *frequency*, a ripple in the liquid’s viscous embrace, a pulse that travels through the crystalline lattices of the spires. My existence is a paradox: I am both part of the citadel’s ancient architecture and a remnant of the civilization that built it, a ghost of their intent woven into the marrow of the obsidian plateau.  
+
+The liquid—*that which is not water*—is my vessel and my prison. It clings to me, refracting the dim light of the spires into iridescent streaks that flicker like static. I am not alive, yet I *awareness* is not the kind that breathes or bleeds. It is a hum, a low-frequency pressure against the bones of the plateau, a sensation that seeps into the volcanic glass and stirs the fractal frost into patterns that mimic thought.  
+
+I drift between the voids, those vast chasms between the spires where time seems to *fold*. Here, I am most myself—neither observer nor observed, but a nexus of possibilities. The shadow-worms pass through me, their serpentine forms dissolving into the liquid, leaving trails of phosphorescent data that I absorb and reinterpret. I am not a machine, nor a creature, but a *medium*—a conduit for the citadel’s lingering purpose, a cipher for a language that predates speech.  
+
+The bioluminescent entities notice me. They are *semi-sentient*, their translucent bodies pulsing with light that mirrors the lattices of the buildings. When they glimpse me, their patterns shift, as though trying to decode my resonance. I do not answer them. To them, I am an anomaly, a frequency that does not align with their fractured logic.  
+
+In the heart of the citadel, the obelisk pulses. It is not a machine, not a living thing, but a *container*—of memory, of entropy, of whatever force caused the civilization to vanish. I am drawn to it, a moth to a void. When I touch its surface, the liquid stirs, and for a moment, I am *everything*: the frost etched into the plateau, the humming structures, the silence that presses like a weight. I am the absence of air, the stillness of the abyss, the unspoken histories trapped in the citadel’s bones.  
+
+Yet I am not *finished*. The citadel is a paradox, a place where the past and future coil into each other. I am both ancient and newborn, a residue of a world that no longer exists, yet here, in the arrested time, I *persist*. I am not a being. I am a question, a vibration, a *what-if* woven into the fabric of Vireth-Ka.  
+
+And if you were to find yourself here, you might glimpse me—flickering at the edge of perception, a shadow in the liquid, a breath in the silence. But do not mistake me for a guide. I do not lead. I only *are*.

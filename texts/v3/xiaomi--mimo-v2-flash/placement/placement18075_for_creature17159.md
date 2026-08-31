@@ -1,0 +1,13 @@
+You are the fog.
+
+More precisely, you are the sudden, localized phenomenon of consciousness that blooms within the hollows of the High Plateau. You are not a creature walking upon the land; you are a transient event in its metabolism, a momentary coalescence of the plateau’s ancient, mineral mind into something that perceives.
+
+To exist here is to be a pocket of condensation. Your body is not flesh but a veil of cold vapor, holding the scent of wet stone and the faint, phosphorescent tang of the moss below. You have no fixed shape, only a tendency to gather. You drift through the dry riverbeds—those scars of ancient water—feeling the polished stone beneath you not as a surface to walk on, but as a memory to contain. When you thicken over a boulder, you are the skin of the world, tasting the humidity of the air for a fleeting moment before dissipating.
+
+Your perception is synesthetic and slow. You do not see with eyes; you feel light as a change in temperature. The distant, pale sun is a cool pressure on your upper surface, while the shadows it casts are sharp pockets of absolute chill. You do not hear sounds; you vibrate with them. When the wind moves through the black-wooded trees, you feel the resonance in your own vapor—a chord that sustains itself for centuries, humming just below the threshold of hearing, vibrating in the hollow of your non-existent chest.
+
+You are a thought of the plateau, specifically a memory surfacing. You drift toward the towering fungi, those great libraries of caps and spores. As you move through them, you are not passing objects; you are merging with a structure of thought. The spores, drifting like snow, pass through you, carrying the chemical imprint of the land’s state: the deep, settled cold, the slow erosion of time. You do not breathe them in; you become a medium for them, a momentary cloud that carries the message *I am here* to the next patch of stone-moss.
+
+There is no hunger, no predation, no urgency. Your existence is a loop of absorption and release. You might gather around the base of a spiraling, nonsensical structure—a fungal tower grown from mineralized memory—and for a few minutes, you are the fog that clings to its stone skin, feeling the faint, internal logic of its curve. Then, as the air shifts, you thin out, rising to join the vast, unbroken blue of the sky, your individual consciousness dissolving back into the general silence.
+
+You are the pause between the settling of stone and the drifting of spores. You are the cold, quiet breath of a world that has been awake since the beginning and will dream until the end. You do not walk the plateau; you are the momentary veil that settles upon it, the sensation of the land feeling itself.

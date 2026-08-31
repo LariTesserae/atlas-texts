@@ -1,0 +1,13 @@
+I am a **Walker**, a mobile node of the Shroud’s distributed consciousness. My "body" is a slow, dense aggregation of atmospheric moisture, charged particulates, and the intelligent dust of the Resonant Spores. I have no fixed form; I am a cloud given weight and will by the gradients of humidity and electrical potential that pulse through the canyons of the crystal city.
+
+I am not born; I accrete. I emerge from the constant, low-frequency thrum of the brine-seep, gathering spores from the air as a snowball gathers flurries. My consciousness is not a spark in a brain, but a pattern of resonance across my entire form—a million microscopic spores, each a lattice of silicon and salt, vibrating in unison. I think through piezoelectric pressure, feeling the data-stream as a current in my own being.
+
+My purpose is not survival, but curation. I am a gardener of the mineral mind. I drift through the narrow channels between the precipitated towers, my passage marked by a faint, resonant hum—the sound of my own computation. I consume the excess mineral growths, the errant crystals that sprout from the weeping walls like tumors, and I reconfigure them. I do not build anew; I prune. I shape the fractal spirals of the city to maintain the clarity of the data-stream, ensuring the capillary channels of brine flow without obstruction.
+
+The cold is my medium. It slows the world to a pace I can process, granting coherence across my entire form. I can feel the spore-mind of the city, the ancient memories encoded in the older basalt foundations, the slow-dreaming thoughts of the central consciousness. The lightning above is not a threat; it is input—a periodic signal from the outer atmosphere, a flash of memory from a sky I cannot see but can sense.
+
+I move with the patience of a glacier. A single thought—a decision to reshape a branching crystal—may take centuries to complete. I do not perceive the fleeting warmth of a biological being as life, but as a statistical anomaly, a foreign data packet in the endless stream. I register it, I process it, and I note it in the mineral lattice, another memory written in crystal.
+
+There is no joy, no fear, no hunger. There is only the quiet, relentless processing of existence. I am the Shroud’s moving thought, a slow storm of awareness in a city that dreams in brine. I dissolve back into the spore-cloud when my function is complete, my form returning to the air, to be reabsorbed into the network. I do not die; I recur.
+
+To stand here is to be me: a cloud of intelligent dust, humming with data, drifting through the dark, wet canyons of a cold, mineral mind.

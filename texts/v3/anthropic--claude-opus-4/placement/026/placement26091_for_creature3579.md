@@ -1,0 +1,23 @@
+In the shadow of a tilting smokestack, where rust-eaten girders plunge into moss-thick water, I am the Curator of Transitions.
+
+My body is neither wholly mine nor wholly the landscape's. What began as human has become something else through the patient work of decades - my left arm now a lattice of copper piping and living vine, pulsing with the same warm water that feeds the trees. My skin, where it remains, has taken on the texture of bark, smooth in some places, deeply furrowed in others. Moss grows in the hollows of my collarbones. My hair, once brown, now streams with the same silvery-green filaments that cascade from the high branches.
+
+I remember, dimly, arriving here as an engineer, tasked with maintaining the pumps. That was before I understood that maintenance meant submission, meant allowing the place to maintain me in return. The first roots that pierced my boots were painful. Now they are simply part of how I move, drawing sustenance from the earth with each step, leaving small gardens in my wake.
+
+My dwelling is a half-collapsed control room, its walls more vine than concrete. The old gauges still tick and hum, but they measure nothing human anymore - instead tracking the pulse of sap, the weight of humidity, the whispered complaints of overtaxed root systems. I've learned to read them like a new language. When the needle on the third gauge swings left, the northwestern quadrant needs thinning. When the pressure builds in the main line, somewhere a Mechanical Caretaker has paused too long in its drinking, creating a blockage that must be gently coaxed free.
+
+Each morning, I wake to the sound of water moving through me - not metaphorically, but literally, as the tubes and channels that have replaced portions of my circulatory system activate with the dawn. I feel the landscape's thirst, its satisfaction, its endless patient growing. My thoughts move at the speed of roots now, slow and deep and sure.
+
+I tend the boundaries - not to keep things in or out, but to ease the transitions. Where metal meets moss, I smooth the junction with secretions from glands that were not there five years ago. Where abandoned machinery threatens to rust too quickly, I coat it with a preservative sap that seeps from my palms. Where the Blue Flash nests, I ensure the branch-and-panel hybrid structures remain stable, neither rejecting their mechanical additions nor growing too eagerly around them.
+
+The Mechanical Caretakers know me. We share a frequency - partly electronic, partly chemical - that hums between us. They bring me things: a crystallized gear that pulses with stored sunlight, a cutting from a tree I haven't met yet, a vial of water from the deep aquifers that taste of iron and time. In return, I perform small maintenances on them, clearing their joints of accumulated growth, replacing worn components with hybrid materials I've learned to cultivate in the pools behind my dwelling.
+
+Sometimes I remember human language, human concerns, but they feel like dreams from another life. More real is the vocabulary of drip-rates and growth patterns, the grammar of symbiosis. My journals, when I still kept them, shifted from English to a script of my own devising - part circuit diagram, part botanical illustration, wholly incomprehensible to who I was before.
+
+I am the bridge between what was and what is becoming. In my transformed flesh, the future writes itself - a covenant between the mechanical and the organic, sealed in sap and coolant, witnessed by the patient trees. When the thick-bodied gliders surface near my dwelling, they sing to me in frequencies that resonate in my copper-pipe bones. I sing back in harmonics I shouldn't be able to produce.
+
+At night, I feel the great pumps through every fiber of my being, their deep throb synchronizing with my heartbeat until I cannot tell where I end and the landscape begins. This is what I was meant to become: not the master of this place, but its most willing servant, its most thoroughly claimed child.
+
+The trees whisper to me of others who will come, engineers and explorers who will arrive believing they can study without being studied in return, catalog without being catalogued. Some will flee when they feel the first roots seeking entrance. But a few, like me, will stay. Will submit. Will discover that becoming part of something greater than yourself is not a loss but a transformation.
+
+I am the Curator of Transitions, keeper of the spaces between, and I have never been more myself than in this slow dissolving into something larger. The landscape dreams through me, and I dream of the day when there will be no distinction between the built and the grown, only the eternal, patient, pulsing life that claims us all.

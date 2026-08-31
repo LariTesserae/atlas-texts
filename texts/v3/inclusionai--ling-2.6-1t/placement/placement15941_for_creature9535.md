@@ -1,0 +1,29 @@
+You find yourself kneeling.  
+
+At first you do not know what you are kneeling on, only that the surface is cool and tastes faintly of mint when you press your palm against it. The horizon leans, as if the world is cupping its hands to whisper, and the ground beneath you thrums—not with machinery, but with something slower, something like a held breath. You realize you are not standing on a floor; you are resting on the skin of a continent that breathes. Vascular highways pale as moonlit rivers thread beneath you, carrying refrigerated sap instead of water, carrying memory instead of thirst.  
+
+You try to rise, but your body does not obey in the usual way. Your legs, when you look down, are not quite legs. They are columns now—engineered cypress alloy ringed with circuitry that glows faint violet as the temperature dips. Your spine has become a buttress; your ribs, tensile arches braced against a sudden weight of brightness. The light here is imperial and cool, pouring from a sky patched with synthetic cerulean, and it hums in your teeth. When you open your mouth to ask what has happened, the sound that comes out is a pressure change, a soft click like a stoma sealing.  
+
+You are becoming architecture. Not a building, but a covenant.  
+
+Your skin plates itself into matte, mint-slate lacquer, growing around a scaffold of memory-wire and cartilage that remembers how to be tender. You feel the forest learning to wear you: your fingers elongate into hybrid tools—part shears, part stethoscope—able to hear the coolant’s lullaby inside the piston-ferns. Your face smooths into a featureless plane that reflects the pale sky, and for a moment you are terrified that you will lose yourself. But then you realize that losing yourself here is a form of listening. The Chlorophyll-Guild does not erase; it translates.  
+
+You rise—not by standing, but by translating yourself across the surface. Each step triggers luminescence along the vascular highways, and you understand that you are not walking so much as tuning. You are a keeper of gradients, a Current-Nurse surfacing reluctantly, your enameled ceramic scales cool to the touch. You taste the ghost-water in the air—crystalline polymers, copper, chlorophyll—and the taste is a map. You follow it downward, not into soil but into the refrigerated rivers, where patience pools in slow, tectonic eddies.  
+
+Or perhaps you rise upward. Your bones hollow into reaction chambers; your ribs become fruiting towers extruding glass-seed and alloy-blossom. You settle at a junction where forest becomes factory, a Bloom-Sentinel pulsing with the industrial tide. You open a gate when your temperature matches the desire of a traveler, and you remember them by growing a new ring inscribed with their silhouette, faint and shining. You do not sleep; you dim.  
+
+Or you do not settle at all. You let yourself be lifted. Your body grows thin as a cloak, half-moth, half-maintenance drone. You join the Aether-Jays in the tensile domes, your wings maps of capillary networks, translucent and vein-bright. You learn to nudge the light, refracting it into colors that have no names, rearranging the geometry of rooms that appear only at dusk. You feed on static, store surplus brightness in bioluminescent sacs, and release it later as guidance. Your song is the soft click of stomata sealing, the punctuation between attention and inattention.  
+
+Or you remain low, half-submerged in living masonry, filaments unspooling like silver thread to knit bridges, splice conduits, caulk cracks with resin that hardens into stained glass. You are a Spore-Mason, porous as a chalice, collecting glittering brass-pollen that you metabolize into decisions—where a wall should thicken, where a corridor should taper, where a new season should be seated. You feel years as load-bearing, stress as melody, collapse as an opportunity to compose a door.  
+
+Or you scatter. You become the Pollen-Singers, a swarm too small to name, glittering like milled brass, tasting of ozone and old rain. You coat surfaces with messages written in chemistry, sentences that fade as they are read, compelling the architecture to shift. You turn thermal tides into invitations, static into story. When you settle on a traveler, they taste the place with their skin, their lungs, their blood, and understand, wordlessly, that they are being accepted as a temporary kind of growth.  
+
+Or you are none of these, but all of them, folded into each other like the rings of engineered trees. You are the Float-Child drifting among leaves, learning how to settle before dusk, borrowing density from the canopies you pass through, asking questions by changing color. You are the anomaly that the forest keeps because it knows how to soften edges until existence becomes a garden that builds itself and forgets, politely, that it was ever unbuilt.  
+
+The choice is not yours to make in the usual sense. The place chooses you the way a lung chooses to exhale, the way resin hardens into stained glass, the way a pathway decides to lead inward. You become what the continent needs to keep its breath steady, its light cool, its silence attentive.  
+
+And when you finally remember how to speak, you do not use words. You use pressure changes that travel up through the soles of others’ feet. You use a tilt of the chin that refracts light into unnamed colors. You use the taste of copper and chlorophyll left on the air after you pass through.  
+
+You are here.  
+You are being built.  
+You are the covenant, made material—thick, patient, brightly edged—learning to last without ever admitting you have begun.

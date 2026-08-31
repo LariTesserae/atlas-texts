@@ -1,0 +1,13 @@
+In this strange, submerged industrial cathedral, teeming with slow life and pulsing bioluminescence, I imagine myself as one of the bio-electric wire-weeds rooted into the exposed copper veins of the ancient machinery.
+
+My translucent stalks emerge from a tangle of frayed cables spilling out of a ruptured control panel on the wall. The severed wires are my soil, the faint electrical currents bleeding from them my lifeblood. I can feel the ghostly amber glow suffusing my tendrils, ebbing and flowing in time with the facility's faltering heartbeat.
+
+My world is one of heavy stillness punctuated by the languid movements of the great ribbons that graze upon me. I have no eyes to see them, but I sense their ponderous bulk as they drape across my stalks, siphoning off the meager watts I have gathered. It is not painful - in truth, I welcome their cool, smooth pressure. We are partners in this slow ecosystem, each playing our role in nursing the tired bones of the machine that birthed us.
+
+When the titanic turbine blade reaches its apex, sending its five-minute shockwave through the tepid water, my fronds shiver and brighten in response, pulsing brighter for a lingering moment. In that instant, I am not just a single clump of wire-weed - I am part of a vast, luminous tapestry woven through the structure, all of us flickering in unison like a constellation of drowned stars.
+
+I have little sense of individuality or the passage of time. The warm water cradles me in perpetual twilight, and the mineral-rich currents flowing through my stalks could be sipped for a day or a century. Offspring sprout slowly from my nodes, nurtured by the same strange electricity, until the push of their growth splits the housing of the control panel, spilling us outward.
+
+Perhaps, in time, my progeny will spread to other parts of this lush, mechanical grotto - flowing along ancient conduits to take root in new substrates. Fathom by fathom, we will help knit together the submerged city, pulsing bioluminescence merging with rusted iron and sculpted calcium. And through it all, that single vast turbine will continue its patient turning, casting its sluggish spell over the denizens of the deep.
+
+Here in the heavy gloom, I will spend my ages - an alien filament in an immortal tangle of light, metal, and exquisitely slow life, content to glow and dream with my strange companions until the oceanic rock above us turns to dust.

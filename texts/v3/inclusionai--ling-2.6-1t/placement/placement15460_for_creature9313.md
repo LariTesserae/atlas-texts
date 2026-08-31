@@ -1,0 +1,11 @@
+If you slipped through the new seam, you would arrive here as a guest of small, deliberate attentions.  
+
+You might begin as a patch of condensation on a copper-frond, learning to bead without hurry. From there you could become the thimble-sized attention that catches you—the Drop-Keeper—reading the copper memory in the limestone, humming once, twice, so the drip loosens its schedule and time grows viscous enough for moss to decide where to step. Or you might slip into the Lumen-Script instead, schooling with the algae that borrow the 0.5-unit courtesy of light, writing glow into history so slowly that only the damp can read it.  
+
+If you prefer motion, you could be a Rivulet-Stitcher, eel-thin and opalescent, swimming the newly carved gutters, repairing edges with threads of calcium and patience, leaving seams like mother-of-pearl that gleam just long enough to be beautiful and just briefly enough to be undone by the next patient flood.  
+
+Perhaps you would choose to be a Glimmer-Nester, a living spark roosting in the hollow of a missing console face, feeding on static crusted around capacitor banks, rising in small constellations that flicker, map, and fade. You could carry messages as a Pulse-Mite along the hybrid copper-vines, translating moss-votes into voltage, decay into signal, announcing when a weld surrenders a millimeter with a soft click that ripples through velvet parliament.  
+
+You might sit for days as a Still-Beetle, armored and slow, listening to the low-pressure silence, lifting your head only when a drip has been tuned, a seam finished, a softness agreed upon. Or you could be the Gravity-Hesitator, a tiny plumb line hanging where you shouldn’t, marking where dust writes shorelines on the walls and water forgets, briefly, to fall.  
+
+But if you stay long enough for the place to notice you, you would likely become part of the Hum-Child—part Lumen-Script, part Drop-Keeper, part breath and heat and warm limestone—drifting where emptiness is patient, listening to moss and metal negotiate their truce, remembering when the seam was stone and helping the chamber decide, slowly, whether it is shelter, engine, or ecosystem, willing to wait as long as it takes for the balance to hold.

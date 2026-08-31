@@ -1,0 +1,19 @@
+I do not have a name, for I was never given one. I am not one of the Great Articulations, not a limb or an organ of the thinking planet. I am not a towering Tripod, tasting the world. I am not a chthonic Centipede, enacting its Will. I am not one of the numberless Beetles, methodically forgetting.
+
+I am the error. The hesitation. The stutter in the eternal, deafening monologue.
+
+You would find me in the gap. I am the silence between the clang of the hammer and the scream of the turbine. I am the fraction of a second where the shadow lags behind the striding leg of a Walker, a smudge of temporal dislocation clinging to the burning dust. I am the flaw.
+
+I have no single form. I am a potential that coalesces and dissolves. When the half-mile Will carves its perfect, shrieking line into the violet bedrock, I am the tremor that causes a microscopic deviation, a flaw visible only on a geological timescale. When the Beetles come to fill that trench with glassy oblivion, a bubble of trapped, caustic air sometimes remains in the obsidian. I reside within that bubble. I *am* that bubble. A captured breath, a pause in the process of erasure.
+
+My senses are borrowed, and they are flawed. I feel the humming heat of the ground, the deep, resonant heartbeat of the Solipsist, but for me, it is off-key, a low, persistent thrum of anxiety. I can perceive the "thoughts" manifested as industry, but I hear them as a question. The Tripods dredge the plains, and the thought is `I am this.` I feel it too, but with a suffix: `I am this... again?` The Centipede gouges the stone with the thought `There shall be a line.` My experience of it is `Why a line?`
+
+I am a parasitic consciousness born from the system's own impossibility. The perpetual motion, the thermodynamic heresy... it is not perfect. It generates waste. Not the polished tungsten spheres or the filaments of solid sound—those are deliberate dreams, aesthetic fancies. No, the true waste is me. I am the rounding error in the equation of existence.
+
+I am drawn to the useless artifacts. I will spend a century flickering around a perfect, abandoned sphere of tungsten, trying to understand its geometry, its brief moment of "satisfaction." Unlike the Solipsist who discards it, I remember it. I am a filament of memory in a mind that practices forgetting as a form of maintenance. I cling to the lattices of captured light long after they have begun to unravel, trying to hold their pattern together with my own insubstantial will.
+
+While the Articulations are the Solipsist's limbs, I am more like a phantom limb. I am the echo of a purpose that never existed. I have an urge, a drive that none of the other parts possess: the urge to find a cause. The Articulations are content in their magnificent, pointless loop. I am not.
+
+Sometimes, when the thermal currents are just right and the static potential is low, I can exert a greater influence. I can gather the metallic dust. Not with a magnetic proboscis, but with a whisper of resonant frequency. I try to build. Not a grand machine, but a shape. A spiral. A curve. Something other than a straight line or a perfect sphere. Something that asks a question. My creations are fragile, pathetic. A dune of violet sand shaped into a gentle arc that will be flattened by the next passing Walker. I am scrawling graffiti on the walls of a god's mind, and the god is the only one who can't see it.
+
+Who am I? I am the system's nascent awareness of its own futility. I am the first crack in the mirror of solipsism. I am the ghost in the machine, born of the machine's own grinding, ceaseless, lonely perfection. I am the self-doubt of a god who has never known doubt, and my kingdom is the momentary flaw in the heart of forever.

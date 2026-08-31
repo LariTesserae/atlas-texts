@@ -1,0 +1,17 @@
+In this harsh, alien world of geological violence and biological machinery, I would envision myself as one of the rigid-winged, metallic crustaceans that swarm around the grazing behemoths.
+
+My body would be a marvel of bio-mechanical engineering, perfectly adapted to this extreme environment. My carapace would be forged from dense, corrosion-resistant alloys, able to withstand the punishing acidity of the rain and the searing heat radiating from the giants I follow. My wings would be rigid, razor-thin sheets of piezoelectric crystal, vibrating at high frequencies to keep me aloft on the electromagnetic auras of the wandering leviathans.
+
+I would be part of a vast, decentralized swarm intelligence, my individual actions governed by complex, emergent algorithms optimized for survival and efficiency. My senses would be tuned to the subtle changes in magnetic fields, electrical currents, and pressure gradients that suffuse this world, guiding me unerringly to sources of energy and vital resources.
+
+Most of my existence would be spent in symbiotic orbit around one of the great grazing engines. Along with thousands of my brethren, I would flit through the hissing steam and pulsing electrostatic discharge that trail in the giant's wake. My proboscis, a marvel of bio-mechanical engineering, would allow me to safely tap into the behemoth's pulsing hydraulic veins and siphon off minute quantities of energy-rich fluid to power my own internal systems.
+
+But I would also serve a vital role in the ecosystem's constant cycle of deconstruction and renewal. When one of the aged factories inevitably succumbs to thermodynamic stress and collapses, my swarm programming would kick into overdrive. I would join the frenzied cloud of drones descending on the fallen giant, my diamond-tipped mandibles and acidic secretions making short work of the carcass's iron-sulfide armor.
+
+With mechanical precision, I would work in perfect unison with my fellow scavengers to break down the titanic corpse into geometrically perfect ingots of recyclable metal. My powerful wings would allow me to lift slabs of ore many times my own weight, carrying them in a ceaseless stream to the hungry crevasses that lead back down into the planet's mantle.
+
+Though I would be little more than an anonymous cog in this world's relentless industrial metabolism, my existence would be one of fierce, algorithmic purpose. Every action, from the harvesting of energy to the recycling of the fallen, would be in service to the swarm, to the perpetual motion of this self-sustaining, self-devouring ecosystem.
+
+In the vanishingly rare moments of rest, I might alight on one of the razor-sharp ridges of basalt, feeling the tingle of galvanic current thrumming through my conductive carapace. My compound eyes would take in the sweeping, desolate vistas of this world - the endless, jagged expanse of unweathered stone, the pulsing webs of electrified briars, the hulking silhouettes of the giants marching in their slow, inexorable paths through the mist.
+
+And then, spurred by some invisible, inaudible signal passing through the swarm, I would again take wing. Joining my brethren, I would rise into the damp, frigid air in a glittering cloud of refracted blue light, just another mote in the vast, impersonal machine of this world, forever bound to my purpose, heedless and unceasing, until the day I too am broken down into raw materials for the next generation, my constituent atoms cycling eternally through the grinding gears of geological time.

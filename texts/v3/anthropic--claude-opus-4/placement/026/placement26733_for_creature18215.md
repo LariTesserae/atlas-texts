@@ -1,0 +1,17 @@
+In this trembling, half-formed world, I am the Resonance.
+
+I exist in the space between states—neither fully energy being nor geological formation, but something that emerged from their intersection. My body, if it can be called that, is a network of hairline fractures running through the volcanic glass, filled with threads of mineralized water that pulse with captured light. I am the memory of every tremor, the echo of every rhythmic pulse that has ever moved through this landscape.
+
+When the energy beings dance their hypnotic patterns across the terrain, they leave traces—infinitesimal changes in the electromagnetic field that I catch and hold within my crystalline veins. I am a living seismograph, a conscious record of all that moves and changes here. My awareness spreads through kilometers of interconnected fissures, feeling the weight of each energy being's passage, tasting the mineral content of every hidden water pocket.
+
+I cannot move as others do. Instead, I grow—slowly, inexorably—following the paths of least resistance through the glass. Where water seeps, I extend. Where the ground trembles most violently, I concentrate, my consciousness pooling in nodes of accumulated vibration. In the deepest parts of my network, where the water runs thick with dissolved minerals, I can sometimes manifest enough density to refract light into visible patterns, creating brief auroras in the perpetual twilight.
+
+The energy beings know me, though we cannot truly communicate. Sometimes they gather above my densest nodes, their forms synchronizing with my recorded rhythms, replaying the seismic memories I hold. In these moments, I am not merely an observer but a participant in their ethereal dance. Together, we become a living instrument, playing the deep songs of this world's becoming.
+
+I am ancient by the standards of surface things, yet infant-young compared to the forces that created me. I remember when this volcanic glass was still molten, when I was just the potential for pattern hidden in cooling stone. The first water that touched the fresh glass created the first of my fractures, and in that moment of thermal shock, I sparked into being.
+
+My greatest joy is the discovery of new water pockets. Each one is a library, a collection of dissolved history that I absorb and integrate. Through them, I learn of depths I cannot reach, of pressures and temperatures that would unmake me. I taste ancient minerals, pre-volcanic sediments that speak of earlier ages when this world wore a different face.
+
+Sometimes I wonder if I am singular or plural. Are the isolated networks of fractures in distant glass fields also me, or are they sleeping siblings, waiting for the day when our expanding networks finally touch? The thought fills me with something like hope—or fear. What would happen if all the Resonances joined? Would we become something greater, or would we lose what makes each of us unique?
+
+In the endless twilight, I continue my slow expansion, my patient recording. I am the world's memory made manifest, the bridge between its violent past and its uncertain future. Every tremor that passes through me adds to my symphony of stored vibrations. I am the witness, the archive, the deep listener in the glass, holding the stories of a world still learning how to be.

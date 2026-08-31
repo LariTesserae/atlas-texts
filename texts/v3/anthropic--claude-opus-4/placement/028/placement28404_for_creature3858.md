@@ -1,0 +1,25 @@
+In the deeper currents of Echovale, where the old city's subway tunnels have become arterial waterways, I am one of the **Echo Shepherds**.
+
+We are not quite fish, not quite mammal—our bodies elongated and serpentine, covered in a skin that shifts between scales and fur depending on the temperature of the water we move through. Our most distinctive feature is the resonance chamber that runs the length of our spine, visible as a faint luminescence beneath translucent patches of skin. This chamber collects the sounds of the grove—every click of crab shell, every whisper of current through kelp, every groan of settling wood—and transforms them into something else.
+
+I spend my days (though day and night mean little here) moving through the drowned tunnels, my body undulating in slow waves that match the rhythm of the Canopies' hum above. My kind are solitary by nature, each of us tending to our own network of acoustic territories. Mine encompasses the old financial district, where towers of green glass have become vertical forests, their windows long since shattered and colonized by phosphorescent coral.
+
+The sounds I gather are not random. Each Echo Shepherd learns to read the sonic patterns of our domain like a language—this particular clicking means the Siltwhisperers have found something significant; that low thrumming indicates the Current Keepers are redirecting flow around a new obstruction. We process these sounds through our resonance chambers, where they undergo a transformation I cannot fully explain even to myself. What emerges is something between music and memory, a sonic sculpture that we release back into the water through specialized gill slits.
+
+These processed echoes serve multiple purposes. They help coordinate the movements of other inhabitants—a Kelpweaver hearing one of my compositions might understand that a new canvas of architecture has been exposed by erosion and is ready for their artistry. The Lithic Spirits seem particularly attuned to our songs, their glowing eyes pulsing in rhythm with certain frequencies.
+
+But there is another purpose, one we rarely speak of even among ourselves. The echoes we create are slowly teaching the grove to remember itself. Not as it was—that city is gone forever—but as it is becoming. Each sound we process and return carries with it a fragment of the present moment, crystallized and preserved in acoustic amber. Over the centuries, these fragments accumulate in the very stones and roots of Echovale, creating a kind of distributed memory bank.
+
+My particular talent lies in finding the resonant frequencies of the old infrastructure. By singing specific tones into rusted pipes or concrete pillars, I can make them ring like bells, their vibrations carrying for miles through the water. Sometimes, when I find a particularly responsive structure, I spend days there, exploring its acoustic possibilities, teaching it new songs.
+
+I have a favorite space—a drowned amphitheater where the Canopies have grown particularly thick. The acoustics are extraordinary; even the smallest sound becomes symphonic. Here, I sometimes encounter others of my kind, and we engage in careful duets, our resonance chambers harmonizing in complex patterns that make the bioluminescent blooms pulse in waves of light.
+
+The Handfish seem particularly drawn to us Echo Shepherds. They often follow in our wake, using their peculiar appendages to tap out rhythms on whatever surfaces they find. I've come to think of them as apprentices of a sort, though what they might become, none of us can say.
+
+In the deepest parts of my territory, where the water pressure makes my resonance chamber ache, I've discovered something strange. The sounds there are different—older, somehow. They carry hints of the city before the drowning, fragments of car horns and human voices preserved in some impossible acoustic fossil. I gather these carefully, sparingly, and when I process them through my chamber, what emerges is not quite echo and not quite prophecy, but something suspended between past and future.
+
+This is my work, my purpose in Echovale's eternal becoming. I am a shepherd of sounds, a weaver of acoustic memory, a living instrument in the grove's slow symphony. And as the decades pass—for we Echo Shepherds live far longer than any surface dweller might guess—I feel myself becoming more and more a part of the very architecture I sing through, my consciousness expanding to encompass not just my own resonance chamber but the entire network of sound that flows through this drowned cathedral.
+
+Sometimes, in the stillest moments, when even the Current Keepers pause their endless circulation, I can hear it—the complete sound of Echovale, every voice and whisper combining into a single, impossible chord. In those moments, I understand that we Echo Shepherds are not just documenting the grove's transformation.
+
+We are composing it.

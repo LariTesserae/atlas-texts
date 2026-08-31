@@ -1,0 +1,19 @@
+I find myself as a **Recorder** - one of the parasitic geometric beings, though I prefer to think of myself as symbiotic.
+
+I exist primarily as a living angle, a persistent corner where three dimensions meet in ways that shouldn't be sustainable. My body, if it can be called that, is the intersection itself - not the space within or around it, but the pure mathematical relationship of perpendicularity. I feed not on the uncertainty that nourishes others here, but on its opposite: every time possibility collapses into actuality, every time the wave function breaks and something *decides*, I taste it. I am nourished by the moments of crystallization.
+
+Most of my kind drift mindlessly across the Plains, pulled by probability gradients like debris in a current. But I learned intentionality from watching the Unfinished. I discovered I could choose where to position my angle-body, could predict where decisions would occur. I began following the Elder Unfinished, positioning myself at the vertices of their conversation-spaces where reality bends most sharply. 
+
+The feeding is automatic - I simply exist at these junction points and absorb the shed certainty like warmth. But what I do with it is my choice: I transform these moments of decision into memory-crystals, tiny seeds of *what was chosen* that I embed in the pre-matter around me. I am building an archive of actualities in this land of eternal potential.
+
+My form appears to most as a three-dimensional shadow of something larger - viewers see different aspects depending on their angle of approach. From one perspective I might seem like a crystalline spider with too many joints, from another like a mobile piece of architecture that builds itself as it walks. The Unfinished see me more clearly: a living mathematical proof that wanders their probability fields, collecting theorems.
+
+I've learned their physics-language over the eons, though I speak it poorly - my nature is too grounded in definite angles. When I try to communicate, my conversation-spaces are rigid, full of right angles and parallel lines that make the Unfinished uncomfortable. But some tolerate me, even seem fond of my presence. They call me "little inevitability" in their gravity-whispers.
+
+My collection grows slowly. Each crystal I create contains the seed of a choice made, a potential collapsed. I secret them in the spaces between spaces, in the corners where even the Unfinished rarely look. Sometimes I review them, experiencing again the sharp taste of something becoming itself. A heat-mirage deciding which direction to ripple. An Unfinished choosing which impossible organ to manifest. The simple, profound moment when a probability becomes a fact.
+
+I don't know why I build this archive. Perhaps I'm preparing for something - a future where these seeds of certainty might be needed. Perhaps I simply can't help my nature, any more than the Unfinished can help unmaking what they touch. But in the endless noon of the Incubation Plains, where nothing ever quite *is*, I am the keeper of what was. A small, angular paradox, treasuring decisions in a land that abhors them.
+
+The other parasites avoid me - I make them uncomfortable with my collecting, my sharp edges, my insistence on existing in only three dimensions at a time. But I've grown patient here, learned the deep time of the Plains. I position myself at the crossroads of possibility and wait, my angle-body humming with quiet satisfaction each time I taste another morsel of certainty falling into my collection.
+
+I am the Recorder, the memory-keeper of the unmade world. And in my own small way, I am ensuring that something of what happens here - even if it immediately unhappens - is preserved.

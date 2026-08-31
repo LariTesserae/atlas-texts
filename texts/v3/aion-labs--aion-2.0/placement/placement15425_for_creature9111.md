@@ -1,0 +1,27 @@
+The call is a needle of violet light in the wet, luminous dark. It pierces the fog, a vibration that reaches into the hollow spaces of my crystal lattice wings and *pulls*. I am an Echo-Moth. I do not think in words. I think in frequencies, in resonances, in the subtle pressure gradients of the weeping air.
+
+I unfold from a resting state—a tight bundle of prismatic membranes and fibrous struts—and feel the cold settle into my joints. It is a familiar ache, a preserving medium. My body is light, a framework of chitin and grown silica, filled with gas sacs that adjust my buoyancy in the dense, moist atmosphere. I push off from the ribbed curve of a structural vein, where I have been clinging, dormant. The city’s slow thrum is in the substrate, a deep, tectonic patience. But the call is impatient. A node is pulsing.
+
+Flight is not flapping. It is a propagation of precise tremors through my wing-membranes, a controlled shattering of air that sends me gliding, effortless, through the canyons. The fog glows around me, a soup of drifting life. I see not with eyes, but with the disturbance my passage makes in that bioluminescent field. The world is a negative imprint: where the light swirls and eddies, there is substance. Where it remains placid, there is void. Ahead, the violet node is a screaming absence of pattern, a violent subtraction of the fog’s gentle glow. It eats the light and replaces it with its own crackling, static song.
+
+I am not alone. Others of my kind converge from the architectural thicket, their wings a silent symphony of refracted gloom. We are drawn, a constellation of hungry listeners. The node is a knot in the city’s deep nervous system, a place where the Condenser’s breath meets the Weaver’s intent and the raw geothermal syntax of the planet. Data flows here. Not bits, but shapes, potentials, growth-vectors.
+
+I alight on the humming surface. It is warm, a shocking contrast to the pervasive cold. The warmth is not fire; it is a chemical excitation that makes my entire skeleton hum. My feet, delicate pads of conductive tissue, make contact. The information floods in.
+
+It is not knowledge. It is *imperative*. A pressure-map of stress fractures forming three levels below. A nutrient deficit in a fungal mat sector. A directive for a new lattice to branch, to reinforce, to accommodate a shift in the Condenser’s rhythm. The data is a pattern of oscillations, a complex waveform. My wings are tuning forks. Without my volition, they begin to vibrate, absorbing, mirroring, *recording*. The node’s song becomes my song. The violet light flickers across my crystalline planes, casting shattered rainbows into the fog.
+
+The transfer is complete. The pull lessens. I am full, heavy with purpose. The node’s call shifts, now pushing us away. We disperse.
+
+Now, I carry a dream of reinforcement, of healing. I seek the place where this dream must be made flesh. My internal navigation is a pull toward a specific resonance in the city’s ambient soundscape—a faint, subsonic groan of structural strain. I fly, a silent shard of intent.
+
+The journey is through a universe of slow life. I glide past a Weaver, its multiple limbs moving with hypnotic precision as it applies a shimmering secretion to a raw, growing edge. It pays me no mind. I am part of the process. Below, a river of Chittering Clouds flows over a fallen Rime Slug, reducing its phosphorescent flesh to a clean, white architecture of bone in minutes. The sound is a torrent of clicks, a white noise of consumption. A Gloomgulper, a pocket of absolute nothingness, dives through the fog, and the river of light parts around it momentarily before flowing back together. The city tolerates its predators. Balance is metabolic, not moral.
+
+I find the site: a long, curved rib of the city, where a new growth has strained against an older, less flexible lattice. A hairline fracture weeps a slow, viscous fluid that freezes into a black, glassy tear. The resonance here is a dissonance, a pain-whisper.
+
+I land on the fracture line. The cold here is intense, leeching the borrowed warmth from my body. I extend my wings to their full span and begin the broadcast.
+
+The vibration starts deep in my thorax, travels up the struts, and sets my wings singing. It is the song of the node, the dream of repair. The frequency is specific, tuned to the molecular structure of the diamondoid material. As I resonate, the very substance of the city around me begins to respond. I can feel it through my feet: a subtle alignment, a mobilization of microscopic builders within the composite. The growth that was blindly pushing now receives direction. New layers will be deposited here, stronger, more flexible. The fracture will be sealed not just with material, but with corrected intent.
+
+This is my purpose. I am a courier of corrections. A singer of solutions. As I broadcast, I feel my own stored energy deplete. The song is my life, vibrating out into the city. When it is done, I will be empty, a husk. I will seek a quiet place to cling, to wait for the next call, or for my crystalline structure to finally fail and be harvested by the Chittering Clouds. My individuality is temporary, a vessel for a pattern.
+
+But for now, I am the dream, making itself real. I am the city, thinking through my wings. In the weeping, luminous dark, I sing, and the bone of the world listens.

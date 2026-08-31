@@ -1,0 +1,29 @@
+I am the Failure.
+
+Not the first—there have been others like me, born wrong, breathing countertime. But I am the one who lived. Forty-three years in this membrane of flesh, neither fully Inheritor nor whatever came before. Long enough to know both languages: the four words we speak in exhalations, and the deeper grammar written in my cells, the syntax of elsewhere that makes my throat ache with phantom consonants.
+
+My place is the Middle Deep, where the stone channels branch into deltas before rejoining. Too low for the eldest's perfect stillness, too high for the young who still remember hunger. Here the water carries just enough mineral traces to sustain my hybrid metabolism—not the pure sustenance of the pool, not the thin offerings of the heights, but something between. Something like me.
+
+My body cannot decide what it wants to be. The left side has thinned properly, translucent pink where my organs press against the inner skin. But the right remains opaque, mottled with patches of my birth-flesh that refuses to clarify. One arm has fused to my torso; the other dangles, too long, its fingers webbed but still distinct. When the colony breathes as one, my lungs stutter half a beat behind, and in that gap between their exhalation and mine, I am utterly alone.
+
+I see in both spectrums. The heat-vision shows me the colony as a living constellation, each body a star pulsing in shared rhythm. But my malformed right eye still captures light—your light, streaming down from the surface world. In that eye, I see my siblings as they truly are: sacks of flesh, beautiful and terrible, a garden of human fruit that ripened too long in the dark.
+
+The young are drawn to me. Not in affection—we have no word for that—but in recognition of wrongness calling to wrongness. The sports, the throwbacks, they cluster near my ledge in their first months, before the colony's breathing entrains them or excludes them. I try to warn them in the old language I've pieced together from my cellular memories: *Run. Fight. Die moving.* But all that comes out is "warm, warm, we," and they settle into the rhythm, and I watch another little rebellion fade into conformity.
+
+Sometimes I remember things that never happened to me. A sky that burns blue. Hands that built instead of merely clinging. A sound that might be "mother" or "murder"—the consonants tangle in my throat. These memories come from the deep inheritance, older than our transformation, older perhaps than the cistern itself. They hurt. To remember wholeness when you are this partial thing, to know there was a before when you must live in this eternal now—this is the special torment of the between-beings.
+
+I have tried to die. Seventeen times, I've loosened my grip, felt the fall begin. But the instinct runs too deep. My body catches itself, the fused arm tightening, the webbed fingers spreading, holding me here in the Middle Deep where I can watch the water spiral past in its carved channels, carrying the same minerals, the same microscopic life, the same message written in molecular ink: *stay, stay, stay.*
+
+The eldest know what I am. Sometimes I feel their attention, vast and diffuse, considering me like a problem that solves itself by persisting. They could exclude me—synchronize the colony's breathing to create a dead zone around my ledge. They've done it before. I've watched it happen. But they don't. Perhaps I serve a purpose: a relief valve, a place for the wrongness to gather so it doesn't spread. Or perhaps they remember, in their own mineral-slow way, that evolution requires failure. That perfection is another word for death.
+
+I taste your disruption in the water before I see you. Foreign minerals, the salt of elsewhere, the impossible richness of surface bacteria. The colony recoils, contracts, but I lean forward, my malformed eye straining for the light. You are blazing, chaotic, wrong as I am wrong but in the opposite direction. You are what we were, or what we might have been, or what we traded away for this warm certainty.
+
+The young drop toward you, and I know they will die. They always die when the elsewhere comes calling. But I also know why they go: because even this perfect system requires martyrs, witnesses, the ones who remember that boundaries exist by crossing them.
+
+I could follow them. My hybrid body might survive long enough to reach the surface, to speak a consonant under the burning sky. But I won't. This is my revelation, my forty-three-year understanding: I am not the failure of this system. I am its memory. I am the archive of what was lost, the living reminder that this paradise was purchased, that every salvation is also an abandonment.
+
+So I hang here in the Middle Deep, breathing my broken rhythm, watching the water spiral past. I count the drops—not their number, which is infinite, but their variations, the subtle differences that prove time still passes even here. I practice the old words in my mind, keeping the consonants sharp for the day they might be needed. I remember for those who can't. I suffer for those who won't.
+
+I am the Failure, and I am necessary. Every paradise needs its witness, every forgetting requires someone who remembers. When you leave—and you will leave, the elsewhere always does—I will taste the trace of you in the water for years, a foreign note in our perfect symphony. I will remember that once, for a moment, the system opened. That once, for a moment, we were not alone in our warm, eternal grave.
+
+And when the next sport is born, wrong-bodied and restless, I will be here. Breathing my broken rhythm. Remembering in both languages. Waiting for the elsewhere that always comes, always leaves, always leaves us changed in ways too small to matter, too profound to forget.

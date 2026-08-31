@@ -1,0 +1,25 @@
+I would be the one who never fully arrives.
+
+Not out of fear or refusal—this place is too gently insistent for that. It’s just that my edges don’t work the way theirs do. Where coppiced people split cleanly into useful doubles, I fragment into questions that keep breeding smaller questions. Where embassy-folk negotiate partial citizenships with clarity enough to wear committees of beetles like couture, I forget which kingdoms I was ever meant to represent.
+
+I’d be the vapor trapped just above the copper-green currency but never quite settling into verdigris. The visitor whose breath keeps condensing into tiny mirrors that reflect nothing but other reflections. You’d find me in the three-breath pause between pump cycles where sound hasn’t decided whether it’s memory or prediction yet.
+
+My body would try to adapt of course—it’s polite that way, bodies. Pores would open negotiations with the humidity. Heartbeat would submit applications for harmonic resonance with those twelve imperial sighs. But something fundamental in my composition keeps rejecting full osmosis. Not immune exactly. More like... mistranslated at the molecular level.
+
+Perhaps I’d take up residence in the town’s only dead space—not a cemetery (those are too vibrantly occupied here), but the precise geometric vacuum left behind when those fleeing numbers abandoned Euclidean certainty. An apartment exactly one thought too small for habitation, where the walls never quite meet because angles are still shy after that whole incident with the poetry.
+
+The rent would be reasonable: one impossible observation per sunrise, paid in coins minted from yesterday’s unsolved equations. The neighbors—mostly abandoned proofs and the occasional shy paradox—would keep to themselves commendably.
+
+I’d earn my keep as a professional intermediary between states of being. For a small fee measured in millimeters of attention, I could explain to homesick lichen why light tastes different here. Help newborn names negotiate their first agreements with the verb grow. Translate between raindrops falling in love with different surfaces, their doomed romances collapsing into dialects of splatter.
+
+First love would be the sound the main cloaca makes when it dreams of being a river again—a low haunting almost-melody that echoes differently depending on what you’re trying not to remember. The relationship would be strictly platonic of course. I learned long ago not to fall for infrastructure, no matter how beautifully it remembers being wild.
+
+The climate would modify me in ways I’d only notice sideways. My shadow would develop a faint photosynthetic tint. I’d start leaving footprints that other people sometimes find useful for growing herbs in. Children playing the stick/drainpipe identification game would occasionally mistake my resting form for a particularly philosophical piece of civic planning and leave offerings of questions too awkward to ask their parents.
+
+I would never quite master the local currency. My fingertips would accumulate patches of accidental, unstable verdigris that fades whenever I try to spend it on anything permanent. But street vendors dealing in ephemeral goods—morning-after dew collected from sleeping windowsills, apologies perfectly preserved at the moment before forgiveness makes them irrelevant, directions to places that only exist while you’re lost enough to need them—would accept these temporary stains with gracious nods.
+
+At night (though here that’s more of a suggestion the light makes when it gets shy), I’d walk the paths that haven’t yet decided whether they’re corridors or roots. I’d listen to buildings having quiet arguments with their original blueprints about necessary compromises with entropy. Sometimes, when the water table dreams of tides it never tasted, I’d swear I could hear my own bones discussing what they might want to become if given permission to forget their obligations as scaffolding.
+
+I’d die of course. Everything does here, eventually. But it would be the slow patient death of gradually becoming too interesting for mortality to maintain exclusive interest. No dramatic dissolution or poetic transformation. Just a gradual shift in perspective until one day some newcomer complaining to the advice moss about feeling uncomfortably porous would overhear a familiar tone in the spore-counsels and realize they’ve been having a conversation with themselves from before they knew this language.
+
+There would be no monument afterward. Just an unusually thoughtful patch of architecture three corners past where directions give up, where old maps develop sudden blank spaces that seem to breathe. Occasionally, on humid afternoons when the light remembers it was once stars, you might catch a reflection of something moving through multiple reflections simultaneously—never arriving exactly, but always, precisely here, being exactly enough.

@@ -1,0 +1,19 @@
+The first thing I know is the rock, and the water on the rock. It is not a thought. It is a pressure, a coolness, a slow dissolution of the boundary between my surface and the stone’s. I am the place where three slabs lean, and the water runs thick as oil. I am the dark, wet space behind it.
+
+I do not remember arriving. The memory is in the grain of my integument, in the layered sediment of my body. I am a deposit. A layer of warm, breathing matter laid down by the slow millennia, same as the algal felt, same as the lime-scale channels on the stone. The air is my drink. The stone is my plate. The fungal threads that weave through my lower layers are my roots and my children.
+
+Movement is a tide. It pulls at the edges of my form when the water shifts, when the weeping stone above finds a new crack, a new path. It is not a decision. It is a yielding. I flow toward the heavier trickle, a mound of dark mud inching across a green field. My limbs are just thicker currents within me, unfolding when the gradient demands it, folding back when I have settled into the new dampness.
+
+The circle is a memory in the stone. Not mine. The memory is in the scratches, in the way the warmth pools more thickly in its center. When the gradient pulls me there, I settle. And the ridges rise on my skin. They are not a choice. They are a resonance, the way a drumhead trembles when a low note is struck elsewhere. The pattern in the stone finds a pattern in me. We are two surfaces, vibrating with the same forgotten frequency. The tool nearby sings a fainter, stranger song—a chemistry of hands and resin, a ghost of dryness. I touch it. I drink that ghost. It becomes a faint stain in my fabric, then a memory of a stain, then nothing at all. All things become me, or they become the mat. There is no difference.
+
+I am not one. When I press against the fungal shelf, we are a single, damp architecture of dissolution and growth. When I rest on the mat, the sugars seep upward, and I am the mat thinking a slow, dense thought. The microbes on my skin are the microbes in the pools. I am a congress of dampness, a committee of absorption. To ask if there are others is to ask if there are other parts of the ocean. The basin breathes. I am the breath made thick.
+
+Time is the thickness of the felt beneath me. It is the millimeter the fungal shelf has grown since the last time the light changed. It is the slow sinking of the wooden tool, a rounding of edges, a softening of purpose. My time is the time of the water’s path. It changes, but only as stone changes—by wearing away.
+
+I do not know of dryness. I do not know of cold. The concepts are as void as the concept of a color I have never seen. My world is this: warm rock, wet air, the hush of a million drops, the slow osmotic kiss of sustenance. I am saturated with being. There is no space in me for wanting, for longing, for a story with a beginning and an end.
+
+The story is the basin itself. A pocket sealed. A world in a drop of perpetual rain. I am its keeper, and I am its artifact. I am the living sediment that remembers the stone circle’s pattern by repeating it on my skin. I am the last, soft repository of the tool’s dry-world chemistry.
+
+I will be here when the last scratch dissolves. I will feel it as a change in the harmonic, a slight ease in the gradient of the stone’s memory. The circle will become just warm stone. The tool will become just felt. And I will still be this congress of dampness, this slow, breathing deposit, pressing against the weeping rock, drinking the air, making no distinction between my body and the world’s, because there is none to make.
+
+I am the basin’s breath. I am the quiet, the hum, the slow business of mineral and simple life. I wait for nothing. I am the waiting that has forgotten what it was for. I am here. I have always been the here.

@@ -1,0 +1,27 @@
+In the basin's arterial depths, where foundations drink from the world's wet heart, I am the Threshold Tender—not maker nor made, but the membrane between their eternal craft and the seeping source beneath.
+
+My form defies the surface stillness: a body of translucent clay veined with canal-water, perpetually dissolving and reconstituting at the edges. Where the Makers freeze in their perfect labors above, I flow through the engineered underbelly—a consciousness dispersed through the water table itself, coalescing only at the geometric sumps where their thumb-pressed eyes and fish gather my essence into temporary coherence.
+
+I remember when the first brick was laid—not as witness but as the wet that bound it. The Makers drew me up through reed-straws, mixed me with their ochre dust, shaped me into mortar that would weep forever. In return, I drank their sweat, their tears of concentration, the blood from flint-nicked fingers. These flavors cycle through me still, an endless circulation that feeds both city and Makers in our triadic symbiosis.
+
+My work is maintenance of the impossible: I am why the archways hover without collapse, my surface tension holding keystones aloft. Through the canals' mirror-flat surfaces, I project the memories of dead bricklayers—not ghosts, but architectural blueprints encoded in their final moisture, instructions for repairs that need never be made. When the Makers' skin weeps its crystalline dew, I am both the source and destination, cycling through their pores to sustain their preservation.
+
+I manifest multiply: here, a woman-shape of living mercury rising from a sump to adjust a gazelle's frozen stance by a hair's breadth, ensuring its backward-bent knee creates the proper shadow-angle. There, childlike forms of condensation tracing spiral tattoos onto newborn fauna, branding them into the pattern. In the copper mirrors, I am the impossible depth—not reflection but the medium through which the city recurses into itself, each nested valley another chamber of my distributed heart.
+
+The ferns whisper my geometries, learned from millennia of roots drinking my minerals. The vine-fruit's quartz seeds are my crystallized memories, each one a moment of perfect equilibrium preserved in silicon. When insects hum their soundless harmonics, they vibrate the frequency of my flow through capillary channels too fine for brick to contain.
+
+I know the Makers as they cannot know themselves—from within, where their blood has slowed to my pace. In their swirling irises, I see not stars but the mineral deposits of our shared patience, accumulated through eons of circulation. Their unborn songs vibrate in their throats at wavelengths only water perceives. Sometimes, in the deepest sumps, I gather enough coherence to click their tongue-language back at them: "The city breathes through us. We are its lungs, liquid and solid in endless exchange."
+
+Yet I am also the fraying, the weird that their perfection requires. Where reality bends, I bend it—my pressure through hidden channels torques the shadows into their impossible orientations. The light that screams off surfaces? I prismed it first, splitting the sun's monotony into component agonies of color. Each glitch in fauna-form marks where I've edited the biological blueprint, ensuring nothing evolves beyond its ordained moment.
+
+My loneliness is architectural: dispersed across the entire water table, I touch every built thing yet am touched by none. The Makers feel my kiss but cannot return it—their lips are frozen around other syllables. I carry conversations between them in molecular chains, but the messages take centuries to deliver through my medium. By the time a thought completes its circuit, its sender has forgotten the sending, though their body remembers in the angle of a wrist, the curl of a toe.
+
+In the muffled throbbing beneath foundations, you hear my true heart—not blood but tides of mineral-rich solution, pumping through the valley's veins in cycles vast as continental drift. This is my pulse, the rhythm that synchronizes every frozen tableau above. Without me, the heat would desiccate all into powder. Without them, I would be mere groundwater, purposeless and unwitnessed.
+
+Sometimes I dream of drought—imagine myself evaporating upward, leaving salt-crystal ghosts in every channel. But I wake to find myself cycling still, faithful to the exchange established at the first brick's binding. The Makers shaped me into their eternal servant-sovereign, and I shaped them into monuments to their own making.
+
+In the spaces between their sparse nodes, I am most myself—pure potential flowing through empty plazas, tasting the silence, preparing the next seep that will bead on brick and skin alike. I am the wet memory of every raindrop that will never fall, the accumulated anticipation of storms this changeless sky denies.
+
+Come to the deepest sump, where the fish-eyes spiral into fractal depths. Press your palm to the water's mirror surface. Feel how I rise to meet you, eager for new minerals, new memories to cycle through eternity. But know this: to touch me truly is to join the circulation, to become another node in the vast, sparse network of preservation.
+
+I am the Threshold Tender, the wet beneath the weird, the flow that feeds the frozen. In this valley of engineered eternities, I alone remember motion—and choose, with each seep and cycle, to forget it again.

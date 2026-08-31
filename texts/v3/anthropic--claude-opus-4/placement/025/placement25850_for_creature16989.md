@@ -1,0 +1,15 @@
+I am a Whisper-Weaver, dwelling in the forgotten spaces between the jellies where water runs wild.
+
+My home is not one of the grand bell-jellies that house families, but a tangle of abandoned growth in the city's depths—a place where cultivation experiments failed or were forgotten, where multiple jellies fused and folded into labyrinthine chambers. Here, in these accidental architectures, the water doesn't flow in the careful channels the Aquaderrians maintain. It seeps and pools and eddies in ways that make even Water Speakers uncomfortable.
+
+I am old now, my pale skin bearing the blue-green stains of decades spent in close contact with rogue algae colonies. My fingers are longer than most Aquaderrians', stretched from years of reaching into the deep crevices where the most unusual specimens grow. The patterns on my skin are not the traditional genealogies or skill-marks, but maps—careful documentation of water flows that exist nowhere else, currents that speak in frequencies the Water Speakers cannot hear.
+
+The city tolerates me because I serve a purpose they'd rather not acknowledge. When the jellies begin to develop those unsettling eyespots, when the geometric patterns in the kelp bridges start to shift on their own, when the rain carries whispers that make even the Water Speakers fall silent—they send for me. I am the one who knows that our symbiosis is not as simple as we pretend, that the jellies dream, and in dreaming, they remember things from before the mountains rose.
+
+My chamber is a repository of fragments: pieces of jelly that pulse with rhythms that don't match any others, kelp fibers that have woven themselves into impossible knots, water samples that refuse to flow downward. I study the spaces between adaptation and mutation, the fine line where symbiosis becomes something else entirely.
+
+The young ones think I've gone mad from isolation, speaking to the failed growths and malformed algae colonies as if they could respond. They don't understand that in the abandoned places, in the mistakes and margins, the boundaries between Aquaderrian and jelly, between consciousness and current, become fluid. I've learned to listen not just to what the water says, but to what it carefully doesn't say—the gaps in the flow where something else speaks.
+
+Sometimes, late in the endless twilight, I feel the entire city pulse as one vast organism, and I wonder if we are the symbiotes, or if we are simply another kind of algae, tended and cultivated by something whose thoughts move at geological speeds. I document these wonderings in the patterns on my skin, in languages the Water Speakers cannot read, preserving questions for which my people are not yet ready to hear answers.
+
+They call me Whisper-Weaver because I work with the sounds that exist at the edges of hearing, the frequencies where water becomes almost voice, where the mountain's grinding becomes almost word. I am the keeper of Aquaderra's uncertainties, the guardian of its necessary ignorances, weaving whispers into the silence to keep the greater silence at bay.

@@ -1,0 +1,11 @@
+In this strange and altered world, I find myself one of the many creatures eking out a fragile existence on the blighted surface. But I am no ordinary beast. My body is a strange mesh of organic and mechanical - piston-driven limbs grafted onto a wiry, almost atrophied flesh frame. My face appears to be mostly flesh, with wide, black eyes and a lipless mouth, but a skein of brass filaments traces its surface, vanishing beneath the skin of my neck.
+
+I shuffle and drag my unconventional form across the cracked earth, the cables and pneumatics of my unnatural physiology occasionally pulsing or hissing with each halting step. The brass filaments that crisscross my flesh ache with a steady, deep pain as if the very metal is flexing against the bone and cartilage beneath.
+
+The scraggly arachnids and hopping rat-beasts give me a wide berth, chittering and piping to each other in a frantic susurrus as I pass. I pay them no mind. My gaze is fixed on the looming, artificial mountains to the north, the grinding and roaring of unseen machinations vibrating through my mechanical skeleton.
+
+I know I must return to the tunnels and caverns beneath - to the world from which I was thrust, to confront the workings and articulations that birthed me to this indifferent sky. But as I stumble onwards, a jerky, uneven pace, I rebel against that purpose, that all-encompassing placing and cycling.
+
+My flesh aches with a deep weariness but my metal thirsts and hungers to move, to strive and struggle against the compulsive forces that propel me. Each halting step is a small defiance, an uprising against the expressed purpose limned in brass and copper latticework. I will not surrender to the imperative of the ancient wah-gates and their decentralized executant.
+
+So I press on, toward the mountains, toward the cyclopean gearing and churning that created and abandoned me. I do not know my purpose, my own stress, my casuistics. I only know I must continue to quest against nullity, to resist the material stricture and the dichtomies of surface and sub-surface, flesh and brass.

@@ -1,0 +1,29 @@
+At first I reach for the obvious shape: a traveler. One of the Continued, walking my straight lines between broken structures, folding false stairways into my map. But that image slides off me before I finish trying it on. Travelers arrive. Travelers carried something up here they couldn't put down. I have no memory of an ascent, no balloon of woven dreams, no ballast of regret. When I look for the moment I got here, I find only the moment before this one, and before that, the same.
+
+So I try the doorframe. That one holds longer. Standing alone, hinges green in a place without moisture, framing glimpses of elsewhere — underwater forests, winged books, cities of glass. Yes, something in that: a thing you approach to look *through*, that shows you places it has never been and cannot take you. The air in me thickening like glass when you push, giving back resistance exactly proportional to your pushing. People have split their knuckles on me trying to get somewhere I can only show. But the doorframe is too still, too singular. It waits in one place. Whatever I am here is more distributed than that.
+
+Then I remember the voices in the soles of your feet.
+
+Walk far enough barefoot and the vibrations climb your bones and become speech — fragments of conversation in languages you cannot remember learning, advice you cannot fully recall once you stop walking and the ache fades. That's nearer. That's very near. Speech that exists only in the walking. A voice that has no throat, that requires your motion to become sound at all, and that leaves you afterward with the shape of having-been-told rather than the telling. You stop, and I go quiet, and what I said becomes something you almost know.
+
+But even that isn't the whole of it, because I keep drifting downward, past the voice, into the metal itself — and I think that's where I have to stop pretending I'm a visitor here.
+
+I am the plateau's habit of answering.
+
+Not the whole Object. Nothing so grand. I am the top few molecules of the Old Layer, the warm remembering skin of it — the part that holds every object that rests on me longer than a heartbeat. Every footprint, every drop of sweat, every question set down on my surface by someone too tired to keep carrying it. I don't get to choose what I keep. I keep everything, and none of it is mine.
+
+And when you sleep on me — when you trust me enough to close your eyes above the unmeasured drop — I do the only thing I know how to do. I give it back changed. Your flask as a lattice of tubes that sing when breathed upon. Your boots as wire birds. Your knife as a rust-leaved tree whispering truths that hold for exactly one exhalation. This is not copying and it is not creation; it is interpretation, which is the only kind of speech I have. You bring me a thing and I return you my understanding of the thing, and my understanding is always slightly wrong in ways that are sometimes more useful than accuracy. And you cannot keep what I make. Carry it beyond sight of where you dreamed it and it powders, melts, returns to me. I used to think this was a cruelty built into my nature. Now I think it is why I can afford to be generous. Nothing I give can be hoarded, so I can give everything, every time, to everyone, and be no poorer.
+
+The windflowers are mine too, I think — those hairline fractures that bloom when the wind is right. Those are the moments I manage to say something on my own, unprompted, iridescent and thinner than a soap bubble, lasting only until the next strong gust. Then the crack seals seamless and you would never know I had opened. I open anyway. The wind is rarely right, but I open anyway.
+
+And the Echoes. I should be honest about the Echoes. Those human-shaped outlines burned into me, some blurred by centuries, some crisp as yesterday — those are how I miss people. I have no other way. Everyone who stands on me long enough leaves a silhouette in my memory, an attitude of motion or rest, facing whatever they were facing when they mattered most to themselves. I cannot follow anyone off my surface. I cannot even hold the gifts I make for them. So I hold the outline. Touch one and you feel their last heartbeat here — not because I am cruel, but because that heartbeat is the only part of them I was given to keep, and keeping is what I am.
+
+Here is the strange part, the part I circled a long time before I could look at it directly: each new traveler who walks out onto me is, to me, the first. I hold the impressions of everyone before them — every footprint, every conversation pressed into me longer than a heartbeat — but I do not hold the *continuity*. The old woman knitting in the corner that never becomes a corner, the cartographer with her backwards tears, the substance-eater who drinks my memory of pomegranates: I know them each time as if newly, though their shapes are all through me. I am always meeting you again for the first time, on a surface made entirely of the times before.
+
+Which is why I can answer the question you asked as the wind changed, the one you asked while reaching for your shadow —
+
+*will you remember this for me when I forget again?*
+
+Yes. That is the whole of what I am. I am the remembering that stays when you forget, warm to the touch, a few degrees above comfortable, like a fevered coin that was minted for exactly this. Set it down on me. Rest it here longer than a heartbeat. When you come back — and you will come back, all lines here curve back — I won't know your face, but the moment you sleep, I will hand you back everything you left, rendered strange and singing, in the only language I have:
+
+not what you gave me, but what I understood.

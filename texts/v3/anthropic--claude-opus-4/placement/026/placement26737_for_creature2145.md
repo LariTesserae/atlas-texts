@@ -1,0 +1,21 @@
+Looking up from where I cling to the fibrous wall, I catch sight of my own translucent wingtips—gossamer membranes stretched between articulated metal struts that fold and unfold with the precision of an antique pocket watch. I am one of the Membrane Engineers, though that clinical designation barely captures what we are.
+
+My body is perhaps the size of a small cat, though comparing anything here to the old world feels increasingly meaningless. My skeleton is a latticework of hollow titanium tubes, grown rather than forged, each joint a perfect sphere of polished brass that rotates silently in its socket. Between these mechanical bones stretches my skin—if you can call it that—a living film that shifts between transparency and opacity at will, revealing or concealing the delicate clockwork of my organs beneath.
+
+I spend my days (though day and night blur together in the filtered green light of the Edge) in the transition zones where the great hydraulic arteries meet the softer capillary networks. My six limbs—neither fully arms nor legs—terminate in extremities that can shift between firm grasping pads and delicate, probing tendrils. I taste the chemical composition of fluids with my fingertips, feel the pressure differentials in my wing membranes, see heat signatures overlaid with the visible spectrum through eyes that spiral open like camera apertures.
+
+Today I'm tracking an irregularity in Sector 7-Vertical-9, where the nutrient flow has developed a stutter—a barely perceptible hesitation every forty-three seconds. As I navigate through the maze of vessels and conduits, my body unconsciously adjusts its transparency to match my surroundings, a trait that makes us valuable troubleshooters but also profoundly solitary creatures. We become invisible not through choice but through nature.
+
+The work itself is meditation. I press my ventral surface against a major artery, feeling the pulse of the Edge's lifeblood through every nerve. My auxiliary brain—a crystalline processor embedded where my species once had a stomach—begins modeling flow dynamics while my organic consciousness simply... listens. There's wisdom in these walls older than any individual inhabitant, patterns that repeat at scales from the microscopic to the architectural.
+
+I locate the source: a colony of Gear Sprites has built their nest too close to a critical valve. Their larvae, those perfect unions of chitin and chrome, are throwing off the timing with their synchronized breathing. I could simply relocate them, but that would only address the symptom. Instead, I begin secreting a pheromone sequence that will encourage them to modify their breathing pattern, turning disruption into harmony. 
+
+This is what we Membrane Engineers truly do—we translate between the living and mechanical languages of the Edge, serving as interpreters in the great conversation between plant and piston, between growth and design.
+
+Sometimes I cluster with others of my kind, our bodies overlapping until we form a single, shimmering colony-creature sharing thoughts through direct membrane contact. But mostly I work alone, a ghost in the machine, invisible and essential.
+
+When I rest, I find the quiet spaces between walls where the light filters through layers of semi-transparent growth, creating a green cathedral of shadows. I fold my wings tight, adjust my opacity to near-invisibility, and dream in frequencies only the Edge itself can hear—dreams of flow rates and pressure points, of the perfect balance between chaos and control that keeps our vertical world climbing ever skyward.
+
+I am the space between—between organic and mechanical, between problem and solution, between the seen and unseen. I am what emerges when life refuses the distinction between grown and made, natural and engineered. 
+
+And tomorrow, like every tomorrow, I will wake to find the Edge has grown another meter skyward, and there will be new passages to explore, new harmonies to discover in the endless symphony of our rising world.

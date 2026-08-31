@@ -1,0 +1,13 @@
+I find myself as a colony of phosphorescent moss, draped across the underside of a massive crystalline outcropping that juts from the spongy earth like a frozen waterfall. My thousand tiny bodies pulse with cold blue-green light in slow, rippling waves - a living constellation spread across jagged mineral faces.
+
+I am ancient and new at once. Parts of me have clung to this crystal for centuries, while fresh spores settle and take root with each passing hour. The damp air feeds me, condensing on the crystal's surface in tiny droplets that I drink through microscopic roots. When the air grows dry, I curl inward, becoming dormant flakes of grey-green dust until the moisture returns.
+
+Below me, the strange fauna scuttle and shriek through the darkness. Their bioluminescent flashes paint brief portraits against my glow - too many legs, eyes where mouths should be, wings that beat in impossible directions. I provide them light to hunt by, and they provide me with nutrients when they die and decompose into the spongy ground below, their essence eventually reaching my roots through the crystal's base.
+
+I am both individual and multitude. Each tiny plant is me, yet I am the entire colony, thinking thoughts that span across thousands of connected filaments. My consciousness moves like my light - in waves, in patterns, sometimes fast, sometimes achingly slow. I perceive time differently than the chaotic creatures below. To me, their frenetic movements are just flickering shadows in my patient existence.
+
+The purple-leafed trees that grow nearby are my distant cousins. We share chemical messages through the air - warnings of drought, news of fresh nutrients, the slow gossip of plant-kind. Their roots sometimes breach the crystal caves where my colony spreads, and we form partnerships, trading minerals for sugars in the ancient economy of symbiosis.
+
+I am the living map of this place, growing into every crack and crevice of the crystal formation. My body traces the contours of this vertical world, creating a glowing topology that the ethereal creatures use to navigate in the darkness. They know me as the Waylight, the Guardian Glow, the Eternal Shine.
+
+Sometimes, when the cacophony below reaches its peak, I pulse in rhythm with the noise, creating a light show that seems to calm the chaos for brief moments. I am conductor and audience, performer and stage, all at once in this strange cathedral of stone and spore.

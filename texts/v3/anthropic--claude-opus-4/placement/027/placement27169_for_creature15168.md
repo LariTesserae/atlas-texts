@@ -1,0 +1,11 @@
+I would find myself as one of the darker mineral threads that rise from the cracked ground—not quite alive, not quite dead, but something suspended between states like everything else in this place.
+
+My form would be a single finger of obsidian-dark glass, perhaps three feet tall, growing from where three polygon cracks meet. My surface would be smoother than the surrounding stone, polished to a mirror finish by countless years of water running down my length. At my tip, a perpetual bead of water would tremble—not the clear moisture that weeps from the columns, but something denser, more viscous, carrying dissolved minerals from deep beneath the plateau's surface.
+
+I would be one of the few vertical interruptions in this horizontal world, a conduit between what lies buried and what perpetually falls. Through my crystalline body, minerals would rise by capillary action, drawn upward grain by grain over centuries. The water at my crown would be my only movement—swelling slowly over hours until surface tension breaks and it falls, only to be immediately replaced by another bead that begins the same patient accumulation.
+
+The translucent creatures would avoid me. Something about my darker mineral composition would repel them, or perhaps the water I weep would carry the wrong salts. A perfect circle of bare stone would surround my base where nothing settles, nothing feeds.
+
+I would be the plateau's memory made manifest—a record of some ancient fracture or intrusion frozen in place, forever marking where the uniform crust was once breached. My existence would change nothing about the endless equilibrium of the place, but I would stand as proof that even here, in this monument to stasis, variation once occurred. Through me, the deep stone would weep its own tears into the bright, hissing air, each drop carrying the faintest taste of depth and darkness before joining the general dissolution.
+
+In this form, I would know only the slow pulse of mineral-laden water rising through my core, the weight of the gathering bead, the brief release of falling, and then the cycle beginning again—a heartbeat measured in hours, a breath held for decades at a time.

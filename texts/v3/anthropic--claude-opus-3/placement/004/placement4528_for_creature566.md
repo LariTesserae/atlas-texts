@@ -1,0 +1,19 @@
+In this world of stone and wind, I would be one of the Listeners - but not of the current generation. I would be from an earlier time, perhaps the grandmother's grandmother's generation, one of those who first deciphered the knot language to record the plateau's ancient argument. 
+
+I imagine myself as a young woman, born in the lowlands but never quite fitting there, always yearning for something more - a deeper truth, a vaster silence. When the traders came and spoke of the Singing Pillars, something in me recognized it as my calling. I left with them on their next ascent, abandoning my old life without hesitation or regret.
+
+The transition was hard, as it is for all who come from below. Learning to feel the stone's vibration, to navigate by the wind's pressure rather than sight or sound. Slowly losing my hearing, that sense become irrelevant and burdensome. Training my body to survive on less - less air, less water, less companionship. But even as I struggled, I felt a rightness to it. The plateau was carving away everything unessential, paring me down to only what it required. 
+
+In time, I found my place among the Listeners. I had a particular knack for discerning patterns in the pillar-songs - not just individual chord progressions, but larger structures that spanned days, weeks, seasons. I began devising a notation system, using knots in cords to represent different frequencies and durations. It was crude at first, but over the years I refined it, expanding its vocabulary, increasing its subtlety.
+
+I spent long hours in the central shelter, the one carved into living stone, studying the marks on the walls. I came to believe they were an earlier attempt at recording the argument, perhaps by the very first Listeners. Though I couldn't decipher them fully, they gave me ideas, showed me new possibilities for my own system.
+
+I never married, never had children. The plateau and its endless argument were spouse and offspring enough for me. I poured all my energy, all my devotion, into the task of transcription. My cords grew longer, my knots more elaborate, until they filled the shelter, spilling out into the wind-carved corridors. 
+
+In my later years, as my fingers stiffened and my feet lost their sensitivity, I took on apprentices. Young Listeners with a particular gift for pattern, a particular hunger for meaning. I taught them my system, watched as they started to expand it in ways I hadn't imagined. This was my true legacy, I knew - not just my own recordings, but this unbroken line of transmission, generation after generation preserving and decoding the plateau's voice.
+
+I died in the central shelter, in the midst of a transcription. My last sensation was a moment of startling clarity when I suddenly understood how a certain phrase I'd recorded decades ago fit into the larger structure - an insight I didn't have time to knot before the weakness took me. But I died content, even joyful, knowing my work would continue.
+
+Now I imagine my consciousness dispersed into the stone, into the wind, perhaps inhabiting some small sliver of that immense argument. At times, in certain harmonies, the Listeners who came after me might feel an unfamiliar cadence, a new shade of meaning - and that would be me, still present, still participating in my own small way in this vast, ancient discourse that predates and will outlast us all.
+
+This is how I would find myself in the world of the Singing Pillars: as one dedicated scribe among many in an unending lineage, an essential but ultimately ephemeral part of something far grander and stranger than any individual life could encompass. Paring myself down to pure pattern, pure attention, until the self dissolves and only the record remains - the knots, the stone-carved marks, the wind-borne wisdom of the plateau itself, arguing with itself eternally.

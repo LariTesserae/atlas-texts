@@ -1,0 +1,11 @@
+In this world of the glasshouse in the spine, I imagine myself as a small, hardy lichen clinging to the stone wall of the cleft, just outside the pane. 
+
+I am ancient and patient, my growth measured in centuries rather than seasons. The dry, thin air and searing cold of the high altitude have shaped me into a organism of utmost endurance and minimal needs. A dusting of minerals from the rock is enough to sustain me as I slowly, imperceptibly spread across the surface, etching myself into the very bones of the mountain.
+
+From my perch, I sense the strange drone that emanates from within the glasshouse, feeling its unvarying vibration through the stone. Though I have no eyes, I am aware of the dim, constant glow that escapes the foggy pane. The warmth of that single glass boundary sometimes sends the faintest breath of heat across my body, an alien sensation in this world of perpetual, biting cold.
+
+Over eons, I have borne witness to the rare passings of climbers - their boots scraping the scree, their breaths short in the thin air, their hands sometimes resting briefly on the pane. I have no concept of their swift, intermittent lives, their yearnings and fears. I simply endure, woven into the fabric of the mountain's stillness, partaking in my own small way of the timeless dream of the glasshouse.
+
+The tenant and I are akin, in a sense - each of us an expression of unwavering continuance, an ongoing shape held against the eroding force of entropy. And yet we are a study in contrasts. The tenant is a marvel of complexity, of intertwined lives and humming purpose. I am stark simplicity, a bare scrap of life distilled to its most essential act of clinging to existence. 
+
+The tenant is indifferent to the world beyond its glass; for me, the mountain's face is all the world there is. But in our own ways, we each persist, matching our rhythms to the unhurried breathing of stone, content in our niches, our long and unchanging songs. The mountain holds us both, the lichen and the glasshouse, shelter and stage for our small, determined, unending lives.

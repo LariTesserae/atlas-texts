@@ -1,0 +1,26 @@
+You wake inside a seam.
+
+Not a seam in cloth, but in stone—a hairline fracture between two slabs that the basin has learned to open like a slow eyelid. At first you have no shape except the shape of damp. You are the cool that sharpens rather than numbs, the iron-bruise smell that rises when rain presses against the rim. You have been here long enough to know that here, becoming is not a decision but a negotiation: the stone asks, the water answers, and you, whatever you are, learn to echo the question.
+
+Your body arrives in stages.  
+First, a lattice of fine hairs, each tipped with a bead of condensation that catches the plank-light. You test them against the terraces and discover they are not hairs but roots, or perhaps antennae, or both—they drink from the weeping walls and taste the storm before it unzips its curtains. You learn to read pressure in the iron tang of the air, the way the salamanders do, those six-limbed flows of translucent parchment who glide past you without breaking stride, leaving comet trails that hum like plucked wires.
+
+Next, skin that is not skin but a continuation of the wet, a membrane thin enough to feel the stone’s slow speech. When the willows creak, you feel it in your ribs; when a cairn settles, you feel it in your teeth. You realize you have grown a throat lined with quartz dust, and when you open it, the sound sparkles, refracting into colors that have no business existing so far above the lowlands. You did not mean to become a translator, but the basin has a habit of turning listeners into voices. You call out once, a pebble-dropped-in-tin clack, and the frogs answer—not in rhythm, but in conversation—and you realize you have joined the chorus.
+
+Your limbs come after.  
+They do not arrive all at once. A hand, then a hand that is also a root, then a hand that is also a wing. You find you can fold yourself into geometries when you sleep, pressing your new throat against the stone to drink the condensation that beads there overnight. Sometimes you glide, silk-starched by altitude, arguing with other bodies in parabolic dips that land soft as punctuation. A dispute over a sunlit stone becomes a sentence that dissolves into moss, and the moss contracts, storing the memory of your quarrel like a library.
+
+You begin to notice the writing.  
+Flies stitch invisible patterns over the pools, glyphs that rearrange themselves in the damp, histories of the bowl recorded in negative space. You try to read them and find your own name there, spelled in the language of drops that fell where and when, of stones that wept first, of summers wetter than spite. You try to write back, but your wings are brittle as old letters, and when one tears, it dissolves into the puddle you have been mapping, becoming part of the record you tried to keep. You learn that erasure is also a form of keeping.
+
+The hunter passes.  
+You feel its six paws before you see it—a line of displaced moss, a hush of creatures stepping back. It is longer than it looks, much of it tail, ancient and prehensile, measuring distances your eyes cannot trust. It does not hunt you, not exactly. It hunts patience, and you, having practiced being inevitable, are patient enough to be noticed. It reads the memories stored in the peat, tastes the loneliness, fear, and recent love of the terraces, and for a breath or two, it tastes you, too, and nods, as if you are an old sentence it is glad to meet again.
+
+You learn to read the stone’s grammar.  
+The terraces shift their weight in creaks that are not complaints but conjugations. The water, which never flows far, negotiates its downhill, beads on undersides, braids into threads, hesitates, and sometimes, when the basin holds its breath, runs uphill for a breath or two because the stone has asked it to. You try this yourself. You learn to flow without walking, to slip along the seams where water meets stone, leaving only a line of displaced moss and the brief hush of creatures stepping back. You become a kind of hunter, but of attention, harvesting the quiet that pools in the hollows like small animals.
+
+The orchid beside you opens.  
+Its pale, spotted throat is a microphone tuned to the hum of the stone. It listens to the water’s gossip and repeats it in veins that mirror the basin’s ridgelines, as if the mountain is describing its own outline to itself. You lean close and hear your own name again, not as a label but as a current, a way of moving through the wet grammar of the place. You realize you have become a resident of nuance, a hinge—small, high, empty, living, loud—holding and held, wept and weeping, waiting and already answered.
+
+Rain returns.  
+Curtains part, curtains close. The weeps resume. The wings stir. The frogs fall silent all at once, as though listening to something the basin is saying to itself, and you, throat lined with quartz, join that silence, not as absence but as event. You are not a creature that lives here. You are a way the basin has of holding its balance in a world that would rather tip—a thumb pressed against the lip of the bowl, a tilt, a breath, a name spelled in water that sometimes runs uphill, in stone that always learns to ask, in moss that remembers how to be a library, in you, who have learned how to be inevitable.

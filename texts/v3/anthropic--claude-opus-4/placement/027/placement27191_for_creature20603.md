@@ -1,0 +1,19 @@
+I am a Ferrographer.
+
+My dwelling is a hollowed turbine housing, half-buried in a sheltered valley where three ancient pipes converge. The metal walls have been worn smooth by generations of my kind, though I am the only one here now. My predecessors etched their observations into the inner surfaces—a spiral of symbols recording the patterns of rust growth, the migration routes of the megafauna, the bloom cycles of the iron-drinking lichens.
+
+I am neither insect nor truly humanoid, but something between—a tall, thin figure wrapped in plates of oxidized copper that have fused with my skin over the decades. My fingers are long and articulated like an insect's legs, perfect for the delicate work of recording. My eyes are compound, able to perceive the subtle variations in metal degradation that others might miss. When I move, I click softly, a sound that blends with the ambient chorus of the Mire.
+
+My purpose is observation. I document the slow transformation of this place, measuring the infinitesimal progress of decay and rebirth. Each morning, I emerge to trace the new patterns of lichen growth with my etching tools. I collect samples of the insects' processed soil, analyzing its composition, noting how the ratios change with the seasons. I map the movements of the titans, predicting where their consumption will create new valleys, new spaces for life to colonize.
+
+In my turbine home, I maintain a garden of the Mire's sparse flora, cultivating specimens in different mixtures of metallic soil. The black-leaved shrubs respond to certain frequencies of vibration—I have learned to "sing" to them in the language of grinding gears and stressed metal, coaxing them into unusual growth patterns. The grey grasses, I've discovered, can be woven into a fabric that resists the corrosive wind.
+
+I am ancient by the standards of most creatures, but young compared to the Mire itself. My memory stretches back three hundred years, each day recorded in my spiraling notes. I remember when the eastern reaches still held intact structures, before the titans ground them down. I remember the last of my kind, the other observers, before they walked into the rust storms and did not return.
+
+Sometimes, the metal-wasps visit my dwelling, drawn perhaps by curiosity. We have developed a form of communication—they trace patterns in the rust dust, and I respond with careful vibrations through the metal floor. They tell me of distant sections of the Mire, of new species of lichen blooming in the deep valleys, of strange mechanical sounds emanating from places where the bedrock runs deepest.
+
+I am writing a history that no one will read, in a language that few could understand. But this is my purpose, my function in the great grinding cycle of the Mire. I process information as the insects process metal, breaking down the overwhelming whole into comprehensible fragments, excreting understanding onto the etched walls of my home.
+
+When my time comes—and I feel it approaching like the slow advance of rust through metal—I will walk to the center of my turbine home and activate a mechanism I installed long ago. My body, with all its accumulated metals and observations, will be ground down and scattered across my garden. The plants will grow strange and wonderful from my remains, and perhaps, in time, another Ferrographer will come to read the walls I've covered with my patient observations, adding their own notes to the endless spiral.
+
+Until then, I watch. I record. I tend my garden of metal-drinking plants. I listen to the great thrumming chorus of consumption and renewal. I am a small, clicking part of this vast, grinding symphony, and I am content.

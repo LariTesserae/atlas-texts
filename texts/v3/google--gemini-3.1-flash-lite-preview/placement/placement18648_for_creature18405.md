@@ -1,0 +1,15 @@
+I am standing on a catwalk that looks like a spinal cord, arched and rusted, spanning the dark gap between a venting-chamber and a buttress that is slowly—very slowly—unfolding like an accordion. My boots are braced against the grating, feeling the heavy, rhythmic *thrum-thrum* of the atmospheric pumps deep beneath my heels.
+
+I am a Suture-Kin, though I cannot recall if this is my first lifetime or my fifth. My body feels long, attenuated, a skeleton of wire and pale, translucent skin that feels perpetually pulled toward the abyss. I am draped in a heavy cloak of oil-stained wool, a garment so saturated with the city’s dampness that it has begun to take on its own structural integrity, stiff and freezing against my shoulders.
+
+I am waiting. The bridge to the next tier of the spire has decided to be sixty feet long, but I need it to be seventy. If I move now, I will fall into the gray, swirling void, or worse, into a fold of space that would trap me in the middle of a single, eternal step. So, I hold my breath, vibrating my chest against the cold brass railing. A low, melancholic hum leaves me—*mmm-hnnn-mmm*—a sound that travels down the rivet-lines and into the porous stone of the mountain. I am asking the spire to settle, to exhale, to let the bridge stretch further.
+
+My hands are splayed out, palms upturned. Above me, a rusted valve is weeping. The iridescent liquid drips onto my skin—thick, oily, and smelling sharply of ozone and wet granite. As it lands, a spark of bioluminescent moss beneath my cuticles flares bright green, and for a heartbeat, I am not in Ostral-hollow. 
+
+I see a field. It is a memory of a valley two thousand miles below, a place of soft grass and a sun that does not pierce, but warms. I hear the sound of a woman calling a name I do not recognize, a sound so clear it makes my ribcage ache. I drink deeply, letting the memory slide down my throat, feeling the ghost-storm fill my veins. 
+
+A Loom-Master passes me then. It is a terrifying, beautiful sight. Its legs seem to exist in three places at once, flickering like a stuttering shutter, and it moves without touching the metal. It carries a brass needle the size of a spear, trailing a thread of woven, glowing condensation. As the bridge begins to groan and warp, the Loom-Master jabs the needle into the very air, knitting a loose seam of the void to the solid iron of the platform. The world stops shaking. The gap closes, and the path becomes taut, waiting for me.
+
+I do not thank the Master; we do not have words for that. I simply shift my weight, the wool of my cloak scraping against the rust, and continue. 
+
+I am not looking for a destination. There is no such thing. I am merely a thread in the stitch, moving through the spire’s throat, listening for the final, silent word that will unmake us all. Until then, I walk. I watch the clockwork moths swarm the vents, their metallic wings clicking a rhythm of entropy, and I hum, adding my own small, dissonant note to the song of the machine that is slowly, beautifully, falling apart.

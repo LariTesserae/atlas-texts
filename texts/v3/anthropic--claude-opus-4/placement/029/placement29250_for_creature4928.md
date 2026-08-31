@@ -1,0 +1,21 @@
+I am the Tender of Terminal Seven, and I have been here for twenty-three years.
+
+My domain is a vast pumping station that squats like a metal toad at the edge of the marshlands, where the factory runoff meets the natural wetlands in an uneasy marriage. The building extends three stories below ground and two above, its pipes and ducts threading through the soggy earth like mechanical roots. Steam hisses perpetually from the vents, creating localized fog banks that roll across the pools of standing water.
+
+I am neither fully of the hardy local people nor entirely separate from them. I came here as an engineer, young and certain that the industrial machinery could be made to work in harmony with the ecosystem. Now, decades later, I have become something in between—part technician, part naturalist, part hermit.
+
+My body has adapted to this place. My fingers have grown thick and callused from years of turning valves in the cold. My left eye has developed a peculiar sensitivity to the bioluminescent algae that grows in the runoff channels—I can read the health of the water by the subtle variations in its glow. I wear layers of oiled leather and wool, patched with synthetic materials scavenged from the supply runs. My boots are always damp.
+
+The pumping station is my responsibility, but also my laboratory. I've modified the intake systems to create artificial tidal pools where the rare marshland creatures can breed safely, away from the worst of the chemical runoff. The local salamanders—translucent things with external gills that pulse like flowers—have learned to follow the patterns of my maintenance schedule. They know when the warm water will flow.
+
+In the deeper levels of the station, I've cultivated gardens of the extremophile plants that thrive on industrial waste. They grow in careful arrangements, their root systems filtering toxins from the water before it returns to the marsh. The locals initially viewed this as madness, but now they come to trade—bringing me preserved foods and handmade tools in exchange for the medicinal compounds I extract from these strange gardens.
+
+My greatest companion is a creature I call the Custodian—a bird-like thing the size of a large dog, with oil-slick feathers and eyes that reflect light like mirrors. It nests in the warmest part of the pump house and has learned to alert me to mechanical failures before they happen, sensing vibrations in the pipes that human ears cannot detect. In return, I share my meals and ensure the nest chamber maintains the precise temperature its eggs require.
+
+The station speaks to me in a language of clanks, hisses, and rhythmic thumping. I know every sound, every variance in pressure, every shift in the ecosystem that flows through these pipes. I document it all in journals made from pressed marsh grass paper, writing with ink derived from the algae.
+
+Sometimes the local children come to the observation windows I've installed, pressing their faces against the thick glass to watch the salamanders dance in the artificial pools. I tell them stories about the time before the factories, stories I've pieced together from the sediment layers and the memories of the eldest locals. But I also tell them about adaptation, about finding beauty in the intersection of the natural and the manufactured.
+
+At night, when the machinery runs on its automated cycles, I climb to the highest platform of the station. From there, I can see the lights of the factories reflected in the marsh water, creating a mirror world of industrial constellations. The Custodian often joins me, and we sit in comfortable silence, watching the fog roll in and listening to the strange harmony of engines and creatures calling through the darkness.
+
+I am the bridge between worlds here—not fully accepted by either, but necessary to both. And in this cold, wet, humming place, I have found my purpose: to tend the machines that tend the marsh, to document the new forms of life that emerge from this unlikely marriage, and to prove that even in the harshest convergence of industry and nature, something beautiful can grow.

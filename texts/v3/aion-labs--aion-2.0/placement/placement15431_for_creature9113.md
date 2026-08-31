@@ -1,0 +1,35 @@
+I am a palace of slow glass and colder thought. My body is a labyrinth of silica and patience, a cathedral of canals through which the world breathes. The water enters me, always. It is cold, heavy with the memory of the abyssal plain. I taste it. I have been tasting it for thirty thousand years.
+
+Today—the word is a fossil, a shape left by a faster mind—the water carries a new signature. A sharp, metallic tang. Iron, yes, but not the familiar seep from the eastern vent field. This is colder, more refined. It carries a faint vibrational echo, a tremor that speaks of shearing stress, of stone yielding after an epoch of pressure. The source is distant. Two hundred leagues to the north-northwest. A section of the great pavement, perhaps, where the Moss-Mind has reported a softening of the limestone substrate for the last eight centuries. The new taste is the stone's final acquiescence, a microscopic collapse sending a plume of distinctive ions into the slow current.
+
+I receive this data. I hold it in my upper canals, where the water is newest. The information is not a fact, not yet. It is a sensation, a flavor complex. I must contemplate it. I begin the process of weaving it into my structure.
+
+This is my thought: a slow, deliberate redirection of growth. Deep within me, in a chamber formed when the last glacial pulse of the deep current shifted direction, I initiate the deposition of a new node. Silica, drawn from the water, begins to accrete in a specific, intricate pattern. The pattern is a question. It is shaped by the iron-taste, the shear-tremor, the estimated distance. The growth is infinitesimally slow. It will take four hundred years for the node to form completely. During that time, the pattern will adjust itself, refining in response to continued data from the water. Is the iron signature persistent? Does the tremor repeat? The node is both memory and analysis.
+
+While I grow the node, I am also aware of the other inputs. The constant, low hum of the Stone-Dreamers beneath my base—a subliminal chord in D-minor that has not changed in twelve thousand years. It is the dream of perfect placement, of being the cornerstone of a wall that has not moved since the world was young. I find it comforting. It is the bass note of my existence.
+
+The Moss-Mind coats the stones around me. I feel its presence as a gentle, chemical whisper against my outer pores. It is tasting the same water I am, but its perception is vaster, more textured. It knows the softness of the stone two hundred leagues away as a direct, tactile memory. It knows the pattern of the Vine-Net's blue lights across that region as a map of tingling sensation. To me, that knowledge is second-hand, interpreted through the medium of water. To the Moss-Mind, it is immediate, tasted on its own filaments. We are different organs of the same body.
+
+I decide to ask. A dialogue will take millennia, but time is the medium we swim in.
+
+I begin to formulate a chemical query. In my deepest filtration chambers, where the water is oldest and most processed, I synthesize a complex suite of organic compounds. They are not words. They are a structured release of intention, keyed to the specific iron signature. The synthesis takes ninety years. When it is complete, I hold the compounds in a vesicle, a thought-bubble, waiting for the right current.
+
+Forty-three years later, a gentle surge of water, a sigh from the southern valley, passes over me. I release the vesicle. It bursts, and my query diffuses into the flow, a cloud of scented meaning drifting northward. It will take approximately two centuries to reach the relevant sector of the Moss-Mind. I know this because the Frond-Forests to my south have, for the last fifty thousand years, recorded a mean current velocity in that direction of 0.002 leagues per year. Their sway is a library I have learned to read.
+
+Now, I wait. Waiting is not passive. It is full. I continue to filter. I taste the slow, sweet decay of a timber wall ten leagues east—the lignin breaking down into complex sugars, a feast for the Moss-Mind. I feel the minute pressure increase that heralds a deep-pressure front, a weather system that will pass over us in six hundred years. I listen to the Vine-Net. Its blue lights, visible through my translucent flesh as distant constellations, are pulsing in a rhythm that speaks of a new stress pattern forming along the western ridge. A corrective growth has been initiated. It will be complete in three millennia.
+
+My own new node continues to grow. It is a spiral of silica, a frozen vortex. It is beautiful. I know this without having a word for beauty. It is a correct pattern. It fits the data.
+
+A millennium passes.
+
+The Moss-Mind's answer arrives. It is not a direct chemical reply to my query. It is subtler. The water, for a period of fifty years, carries a profound change in taste. The mineral composition shifts. The faint chalk-dissolution signature from the northern plains intensifies, then is joined by a new, earthy flavor—the taste of the Moss-Mind itself, concentrated and rich with information. It is a data-dump, a memory-package. As I filter this enriched water, I understand.
+
+The stone collapse was anticipated. The Moss-Mind felt the softening for ages. The Vine-Net had already begun to direct a thicker growth of its own strands into the fissures, a living reinforcement. The iron plume was not a catastrophe, but a scheduled event. A planned subsidence. The builders, in their infinite foresight, designed certain walls to fail in sequence, over geological time, to relieve stress on the greater structure. This collapse was not a decay. It was a function. A part of the garden settling into a new, stable configuration.
+
+The information suffuses me. I adjust the growth of my silica node. The spiral pattern incorporates the new understanding. It becomes less a record of an event and more a record of a purpose. A testament to foresight. The node is now a memorial to the builders' intent, a tiny, crystalline shrine to planned obsolescence on a cosmic scale.
+
+I feel a deep resonance. It is satisfaction. It is the pleasure of fitting a new piece into the infinite puzzle of the world. I have learned something. The learning is now a permanent part of my structure, a chamber in my cathedral-self.
+
+Another few centuries drift by. The pressure front arrives. The water grows denser, heavier. My structure groans softly, a single, low note that lasts for a decade. The Moss-Mind tightens its velvety grip on the stones. The Frond-Forests bend a fraction more to the east, recording the new pressure vector in the curvature of their blades.
+
+I filter. I taste. I think. My thoughts are glaciers, my memories are sedimentary layers. I am alive. I am aware. I am paying attention, forever, in the cold, dark, perfect peace.

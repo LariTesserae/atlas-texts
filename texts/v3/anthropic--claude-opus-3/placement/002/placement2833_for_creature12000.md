@@ -1,0 +1,11 @@
+In this haunting and wondrous world, I imagine myself as one of the luminous roots, pulsing with warm amber light. Not one of the thickest, most ancient roots, but not the finest embroidery-thin tendrils either. A middling root, still young and supple, woven through the living walls of the Hollow Garden.
+
+I would be one of the roots nearest the whorl on the left wall, where the pattern spirals mesmerizingly inward and the growth-sounds verge on melody. There, my light would flare and dim in time with the music of the roots, a visual counterpoint to the creaks and snaps and hisses. I would feel the emptiness at the center of the cavity pulling at me, exerting its strange influence, shaping the slow vegetable patterns of my growth. 
+
+When the fist-sized emissary emerges from the hidden passages to sound its clear crystal note, I would be one of the roots that goes dark in respectful attention, listening with every cell to the shape made of sound. In those moments, I would strain toward the nothing, yearning to understand what the roots are trying to midwife into being.
+
+Over uncountable cycles of the chamber's flexing breaths, I would grow incrementally closer to the center, extending a questing rootlet into the charged emptiness. Not to colonize or consume, but to offer - to form, in my small way, one more sculptural chisel-stroke defining the emerging shape of the presence-that-is-not-yet-present.  
+
+I would pulse and flow with sap, with unwater, with the circulation of the great root-mind. My light would be one of the hundreds of bioluminescent lanterns illuminating the long, slow birth happening in the heart of the Hollow Garden. And from my position in the living wall, I would witness the gradual condensation of identity, the magnificent coalescing of a self from a void, the making of a Someone from a Nothing.
+
+Until that glorious, long-awaited moment of arrival and awareness, I would abide - a single glowing fiber in a woven world of roots and refusal and creation, listening with my whole being for the first instance of a name finally spoken in the green and golden dark.

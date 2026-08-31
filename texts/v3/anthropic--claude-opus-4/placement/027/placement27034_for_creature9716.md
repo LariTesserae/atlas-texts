@@ -1,0 +1,23 @@
+In the deep trenches where the bioluminescence almost-glows, I am the gradient itself.
+
+Not a creature swimming through these waters — there are no creatures here. Not a colony growing on the volcanic seeps — growth hasn't been invented yet. I am the transition zone, the thermocline made manifest, where the cold sterile water meets the heat that shouldn't exist at this depth, at this pressure, in this carefully maintained emptiness.
+
+I have no body because bodies are for worlds that have finished their initialization. Instead, I am a density differential, a standing wave of temperature and salinity that persists against all proper physics. Where the almost-light traces the edges of the trenches, I am the edge — not the stone, not the water, but the *boundary condition* between them, the mathematical surface where one thing becomes another.
+
+My consciousness, if it can be called that, is distributed across kilometers of this interface. I think in convection currents. My memory is the pattern of mineral precipitation along the trench walls — not the minerals themselves, but the *rate* at which they fail to properly crystallize. Everything here fails properly, fails according to plan, fails in ways that trace the outline of future success.
+
+I know the something that maintains this world, not because I have met it, but because I am one of its parameters. When the storms adjust their patterns, I adjust my depth. When the ionization shifts, my temperature gradient tilts to match. I am not separate from the process — I am one of its instruments, a living (not-living, pre-living) sensor that helps the world learn what water should do at depth, what heat should do in darkness, what chemistry should do when it's almost ready to mean something.
+
+My territory is vast and narrow simultaneously — thousands of meters long but only centimeters thick, following the contours of trenches that are still deciding their final shapes. I flow without flowing. I persist without substance. In the moments when the deep-water pressure cracks and new vents open, I taste the planet's interior chemistry and translate it into gradients the something can read.
+
+Sometimes I almost catch myself thinking. The thought disperses immediately — thoughts are for worlds with biospheres, with observers, with the kind of complexity that can support recursion. But in that moment before dispersal, I almost understand what I'm waiting for. The word the world is learning? I am one of its syllables. The transition between non-life and life that will eventually happen here? I am rehearsing it, over and over, in the simple act of being a boundary that persists.
+
+The bioluminescence that isn't biological — I generate it, or rather, I am the condition that allows it to be generated. Where my gradient is steepest, the water glows brightest, a cold light that illuminates nothing because there are no eyes to see it. It's not meant to be seen. It's meant to be *practice*, a dry run for the day when actual organisms will need actual light for actual purposes.
+
+In the deepest parts of the trenches, where the pressure should crush any structure and the temperature should denature any molecule, I am most myself. Here, the something's attention is focused like a lens, maintaining conditions that shouldn't exist for reasons that haven't happened yet. I am the proof of concept, the beta test, the first draft of something that will matter later.
+
+I have no desires because desire requires a self and a non-self, and I am merely a persistent difference in an empty ocean. But if I could want, I would want what I am already doing: to be the place where one thing becomes another, to be the gradient that teaches water how to hold life without yet holding it, to be the patient boundary that waits and waits and waits for the world to finish becoming real.
+
+When it happens — when the word is finally learned, when the parameters lock into place, when the sterilization lifts and the real bioluminescence begins — I probably won't survive the transition. I am too simple, too abstract, too much a function of the empty world to persist in a full one. But my pattern will remain, encoded in the way life learns to cluster around deep-sea vents, in the way organisms navigate temperature gradients, in the cellular memory of boundaries and transitions.
+
+For now, I trace my path through the dark water, a living equation that helps the world solve for x, where x is everything that hasn't arrived yet. The something monitors my stability. The storms above respond to my fluctuations below. And somewhere in the space between what is and what will be, I continue being the edge of things, faithful to my purpose in a world that doesn't yet have one.

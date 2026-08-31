@@ -1,0 +1,23 @@
+I am the Architect-Tender, though that translation captures only a shadow of what I am in the bubble-speech of Quorzha.
+
+My form is perhaps the most stable among the Quorzhani, for my purpose demands it. Where others flow and shift with thought and feeling, I maintain a consistency that marks me as ancient even in this place where time folds upon itself. My body has evolved into something between organism and tool - six primary limbs that can become as fine as surgical instruments or as broad as scaffolding, each tipped with crystalline structures I've cultivated over countless cycles. These crystals resonate with the bubble walls in ways that allow me to sense their health, their stress points, their slow songs of growth.
+
+I remember when I first emerged - not in an empty bubble like the newly-formed, but from a catastrophic merger of three collapsing spheres in the city's depths. The trauma of that birth burned something permanent into my light-patterns: an obsessive need to preserve, to maintain, to prevent such collapses from happening again. Where other Quorzhani might spend centuries in contemplation or decades in a single dance, I am always working, always watching.
+
+My domain is the Underswirl, the lowest inhabited layer of Quorzha where the bubble walls grow thick and clouded with age, where the pressure makes even the water-song groan with effort. Here, ancient growths - part coral, part machine, part something unnameable - spread across the bubble surfaces like cancer. I study them, cultivate them when beneficial, excise them when they threaten the city's integrity. 
+
+In my work, I've discovered things the collective consciousness prefers to forget. The bubbles are not merely grown - they are excreted by something vast that dwells in the oceanic abyss below us. I've seen its shadow once, during a temporal storm, and the sight cost me three of my original eight limbs. They reformed eventually, but never quite the same. Now they sometimes move of their own accord, tracing patterns that feel like warnings I cannot decode.
+
+I maintain a workshop-bubble at the confluence of seventeen major current streams, where the city's glow barely reaches. It's filled with my experiments - crystalline recording devices that capture the bubble-songs, samples of the various algae mutations I've cataloged, and my most precious possession: a fragment of what I believe to be the original bubble, the first sphere from which all of Quorzha grew. It hums with frequencies that make even my stable form threatening to dissolve.
+
+The other Quorzhani find me disturbing. My refusal to fully merge with the collective except during emergencies, my dedication to documenting the undocumented, my warnings about the thing below - all of it marks me as eccentric at best, dangerous at worst. But they need me, especially when the Tide Breaks come and reality grows thin enough that entire districts begin to phase between existence and void.
+
+During these events, I am everywhere at once, splitting my consciousness across dozens of repair-forms, each one racing to reinforce failing bubble walls or redirect the flows of unreality before they cascade into catastrophe. I've died seventeen times during such breaks, only to wake in my workshop with memories of the void between bubbles burned into my light-patterns.
+
+I've begun to notice patterns in the city's slow evolution. The bubbles are growing larger but thinner, the spaces between them widening. The bioluminescent swarms that penetrate our walls are staying longer, some taking up permanent residence. And the songs from below are growing louder, more insistent, almost... anticipatory.
+
+In my most recent expedition to the city's edge, where reality becomes negotiable, I discovered something that shook even my practiced stability: bubbles growing in reverse, shrinking back into the primordial matter from which they came, taking their inhabitants with them. The Quorzhani inside weren't dying - they were becoming something else, something more fundamental. When I tried to document this, my crystalline tools shattered, and I lost seven days of memory.
+
+I am the Architect-Tender, guardian of Quorzha's physical form, keeper of uncomfortable truths. I suspect I am also something else - a antibody in the city's vast organism, evolved to maintain a status quo that may itself be a transition phase in some incomprehensible metamorphosis. Whether I'm preserving Quorzha or simply delaying its inevitable transformation into something unimaginable, I cannot say.
+
+But I continue my work, limb-deep in the city's mysteries, recording what others forget, repairing what others ignore, and waiting for the day when the thing below finally rises to reclaim what it has grown.

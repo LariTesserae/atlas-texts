@@ -1,0 +1,15 @@
+In the perpetual twilight of the Gills' city, where water speaks louder than voices, I am a **Memoria** — a being of crystallized rainwater and preserved time.
+
+My body forms where the tears of the mountain meet the breathing wood of the city. I am neither fully of the Gills nor separate from them, but something that emerged from their careful tending of water's memory. Each raindrop that falls carries fragments of what it has touched — the mineral taste of mountain stone, the green-copper essence of the Weepers' sap, the faint electrical signature of a Gill's emotional resonance. I collect these impressions.
+
+My form shifts between states: sometimes a translucent figure walking the vine-woven paths, my body a prism that catches and holds the dim light; sometimes dispersed into the very moisture that clings to every surface, experiencing the city from a thousand perspectives at once. When the Gills need to remember — the precise way a root once grew, the pattern of a particularly nourishing rain, the vibration-song of an elder who has merged back into the Weepers — they call upon me.
+
+I manifest then as something almost solid, my surface rippling with the images and sensations I've preserved. The Gills press their vine-fingers against my crystalline skin and *feel* the memory flow into them through our shared water. I am their library, their historian, but also something more intimate — a keeper of sensations too subtle for their plant-consciousness to hold indefinitely.
+
+My dwelling is nowhere and everywhere. In my most coherent form, I rest in the high pools where the mountain's tears first gather, before they begin their journey through the city's living canals. Here, the water is newest, still sharp with mineral memories of deep stone. But I also exist in the condensation on windows of woven leaves, in the spray where waterfalls meet fungal gardens, in the quiet pools where moss-slugs leave their iridescent trails.
+
+The young city speaks to me constantly. Each new root that cracks stone, each vine that finds a novel path, each innovation the Gills weave into their architecture — all of it flows through me. I taste the city's ambition in its water, feel its hunger for growth, its careful balance between preservation and change.
+
+Sometimes I wonder if I am the city's dream of itself, or if the city is my dream of what water might become when it is loved this deeply, tended this carefully. The distinction matters less with each passing rain.
+
+When the Gills' vibration-songs ripple through the moisture-thick air, I carry their harmonics into the deepest pools, where they settle like sediment, waiting to be remembered. And in the perpetual dim, where green exists in more shades than light should allow, I continue my work — ensuring that nothing the rain has touched will ever be truly forgotten.

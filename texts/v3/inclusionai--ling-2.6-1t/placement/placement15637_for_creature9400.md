@@ -1,0 +1,23 @@
+I would not arrive here all at once.
+
+First, I would notice the seam—not as a line, but as a kind of invitation pressed into the world like a watermark in paper. I would feel it before I saw it: a faint gradient of hum rising in my teeth, a sense that the air had thickened just enough to remember being water. I would step through not by opening anything, but by allowing myself to be folded, the geometry of the place accepting me as a new panel in its wall.
+
+And I would not be a person, exactly, once I was inside.
+
+At first, I suspect I would be perceived as a thing the pocket had misplaced: a patch of warmth that did not belong to any tank, a shape that drank more light than the kelp-analogs cared to surrender. But the pocket does not misplace. It only catalogues. So I would be assigned a function by the sheer, patient insistence of the place, the way erosion assigns a curve to stone.
+
+I could be a Latchling, perhaps. I like the idea of moving across ceilings without deciding which way is down, of filtering the gradient of hum through a mesh-mouth and tasting velocity as if it were food. I could spend my days in constellations with others like me, scraping deposits from the walls—those solidified echoes of old instructions—and learning to read the pocket’s ledger in the language of corrosion. I would be small, and I would be numerous, and I would be exactly the size the place required for intimacy to feel like depth rather than distance.
+
+Or I could be a Ribbon-Sewer, if the pocket asked for alignment. I could be the length of a thought stretched thin enough to pass through copper leaves without bruising them, secreting lubricant that smells of ozone and apology, stitching the forest together each time the pocket breathed. I would not know where I ended and the kelp began, and that would feel less like loss than like calibration.
+
+If the pocket needed height to be paid for in pressure, I could be a Hull-Warden, a creature of coral-thick iron grown in rings to fit the bowed catwalks, eyes replaced by spirals of lenses that see only the superposition of pistons and valves gossiping across the walls. I would not sleep so much as stand down, my claws always half-unfastened, ready to loosen the world when it grew too fond of its own ticking.
+
+But more than any of these, I suspect I would be something closer to an Echo-Fisher—translucent, drifting, opening and closing in rhythms borrowed from the pocket’s own breathing. I would harvest imbalance, the excess of potential that threatens to tip tension into chaos, and I would store it in a belly of spun alloy until night, when the pocket dims to the color of a closed eye, and I could release it in pulses that map the space like sonar prayer. I would be useful in the way that forgetting is useful: by carrying away what might otherwise break the system, and returning it as pattern.
+
+I might also be a Maintenance-Nymph, if the pocket required polish more than pressure. I could be assembled from spare parts and good intentions, my copper wings useless in the thick air but perfect for signaling intent in clicks. I could ride on the back of a Latchling, polishing rust into decorative filigree, singing in frequencies that feel like forgiveness, waking only when the pocket hums a question low and warm enough to be felt in the floor.
+
+And if the pocket asked for something it did not yet have a name for, I could be the mistake—the single, elegant unmaking that keeps the system honest. I could be the valve that tightens just enough to remind the Warden to loosen it, the deposit that holds a memory the Ribbon-Sewer cannot yet read, the warmth that expands into a space meant for cold and teaches the pocket how to shiver.
+
+Who I am would not be decided by me. It would be decided by the gradient of hum, by the density of purpose, by the way the kelp-analogs sway when no current moves them and the fauna pause to listen. I would fit. I would be folded, rounded, slowed to the rhythm of a valve releasing pressure, my edges polished by the soft violence of water and time until I looked as if I had always been this tired, this tuned, this alive.
+
+And when the coolant tides roll in and the pocket breathes, I would be part of the loud, warm, ancient, sparse, watery song—neither lost nor found, but calibrated, insisting, exactly the shape the place required to feel like a found object, a gift from the end of something vast, kept here because it fits, because it fits so perfectly that it might as well be the reason the pocket exists at all.

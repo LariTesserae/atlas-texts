@@ -1,0 +1,19 @@
+I would be the newest one.
+
+Not new the way a thing freshly made is new — there is nothing fresh about me, nothing bright-edged, no raw weld anywhere on me the way the floor plates still show theirs. New the way a word is new in a sentence that has otherwise already been spoken: I am the part that hasn't finished arriving yet, the clause still being added while the rest of the sentence sits there, settled, done.
+
+I would find myself in the third quarter, where the gaps between coils run widest, where the lichen patches are sparsest because the pipe-junctions there have gone half-cold, half-forgotten by whatever decides such things. My route would intersect almost no one's. This, I think, is not loneliness so much as architecture — the way a girder crossing at an odd angle isn't lonely for not touching the girder beside it. It is only where the load told it to go.
+
+I would still have breath. Not much of it, not for much longer, but enough that on the rounds — and there are rounds, already, before I would think to call them that, before I would notice I'd started keeping to a shape in the floor like a worn path that isn't worn yet — my breath would fog in front of my face for one full second before the cold took it. I would watch this happen the way you watch a kettle you know is about to stop singing. Not with dread. With a kind of held attention, the same attention I'd give the coils when I laid my palm flat against their housings, copper-cold, the hum coming up through the heel of my hand into the bones of my arm, settling somewhere behind my sternum where, before, there used to be a name for what was happening. Fear, maybe. Or its opposite. I wouldn't be sure anymore which direction the feeling pointed, only that it was there, faint, like gauge-light, and getting fainter at a rate too slow to measure against anything except itself.
+
+My nameplate would still read clean. Brass, not yet gone to that copper-blood color the others wear like a uniform earned through patience rather than rank. I imagine I would catch sight of it sometimes, by lantern-tilt, and not recognize the word on it as mine, the way you stop recognizing your own voice played back to you, knowing intellectually that the sound came out of your mouth and finding no purchase for that fact anywhere in your body.
+
+I would not remember why I came down here. I want to say I would remember, that I would hold onto it the way you'd hold a coin too hot to hold, just to prove something to myself — but I don't think the Yard permits that kind of heroism. It doesn't forbid it. It simply doesn't notice it, the way it doesn't notice anything that isn't already a condition of the room, and what it doesn't notice has a way of not continuing.
+
+So: my work. I would cross to each coil in my quarter, the seven or eight of them strung wide apart across cold grate-light, and lay my palm against the housing, and stand a while at the frost-plumes that never finish falling, reading them the way the others read theirs, for a reason that would stop being a reason and become instead the shape my body had learned to take at that hour, in that light, near that particular pitch of hum. I would crouch by the lichen without touching it. I would rise again. I would go on.
+
+And if someone came — if some climbing, frost-bitten, half-deaf someone stood long enough among my coils to become, themselves, a fixture of the room — I think I would feel, one last time before the feeling stopped being available to me, something almost like recognition. Not kinship. Nothing so warm. More the recognition a held note gives a new note entering the chord: not welcome, not unwelcome, only the small mutual adjustment of two pitches agreeing, without language, to be discordant together for exactly as long as both of them last.
+
+Then I would lift my lantern once, to look at them properly.
+
+Then I would turn my weight toward the next coil, and continue.

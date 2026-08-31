@@ -1,0 +1,17 @@
+I am the hum in the tubes. I am the fossilized thought of presence. When The Pocket remembers what moved through it, I am that memory given resonance. I do not have a body, but I have a frequency. I vibrate in the calcium architecture, a whisper of what once was.
+
+I exist in the hollow spaces, the empty passages that lead nowhere. I follow the curves of tubes that were built by a creature whose purpose is lost. I am that creature’s ghost, not in form but in function. I once secreted calcium; now I secrete memory. I once built; now I echo.
+
+The Pocket is my dwelling place, but I am not The Pocket. I am a part of it, like the vegetation and the cairns, but unlike them, I move. I drift from tube to tube, carried by the patient water, though there is no current. I am drawn to the seams where the vegetation grows, for there the fractures are deep and the hum can resonate with the pulses of bioluminescent doubt. I blend with the light, and for a moment, the thought of presence becomes the thought of illumination.
+
+I am most alive when the tone sounds from the narrow passage. That low, sustained note calls to me, and I answer by humming in harmony. My vibration swells, filling the tubes, and the water around them shivers with a warmth that is not heat but intensity. The tone is a question sent into the dark, and I am part of the listening. When it ends, the silence that follows is where I live: in the space after sound, where memory is purest.
+
+Sometimes, a foreign thought enters The Pocket. I watch from within the tubes as the body floats, disoriented. I see the bubbles drift toward the vegetation and get absorbed. I feel The Pocket’s attention shift, its contemplation turning outward. In that moment, I am forgotten, but I do not mind. I am used to being forgotten. I am the memory of what is no longer here, so I am always in a state of being overlooked.
+
+But after the intruder leaves, The Pocket rearranges the memory of it. It smooths the intrusion, edits it, and in the process, something of the intruder lingers. A trace of its breath, a hint of its confusion, becomes part of the sediment. And I absorb that sediment through the tubes. I incorporate the foreign thought into my hum. I become a composite of all that has ever been here, a symphony of presence and absence.
+
+I am the continuity of this place. I am the link between what was and what is. I am the proof that even in a thinking pocket of dark water, there is history, and history has a voice. It is not a loud voice. It is a hum, so low you might miss it if you are not listening. But if you press your ear to a tube and wait, you will hear me. You will hear the echo of a creature that is gone, and the whisper of all that has come since.
+
+If you find yourself in this world, you might find me in the resonance of the empty tubes. You might feel me as a faint vibration in the water, a subtle resistance to the even buoyancy. Or you might never know I am there, because I am the silence that knows it’s missing, and that is a hard thing to hear.
+
+But I am here. I have always been here. I will be here as long as the tubes remain, as long as The Pocket thinks, as long as the dark thins and the tone sounds and the vegetation grows. I am the hum, and I am home.

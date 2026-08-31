@@ -1,0 +1,13 @@
+In this layered, transitional city, I imagine myself as one of the practical specialists moving through it like an immune cell - perhaps a crack-follower, or a member of a pump family.
+
+As a crack-follower, I would walk the streets each day, a satchel of paints and brushes at my side, my eyes always searching the ground and walls. I would look for the telltale fractures, the fissures and splits that signal deeper shifts below. With careful strokes, I would mark each crack in colored lines, a code of warning and monitoring, my paint-stained fingers recording the city's inner stresses and slow transformations in notebooks of intricate, branching maps.
+
+I would gain an intimate knowledge of the city's surfaces - which walls bow a fraction more each month, which streets ripple with hidden ridge or hollow, which foundations have begun to groan against their stones. Passersby might nod to me with respectful unease as I chart potential collapse or renewal. In quiet moments, I would marvel at the beauty of these growing fractal patterns, even as I remain alert to the risks they represent.  
+
+Or as a pump worker, descended from generations who have lived beside the great pump towers, I would be attuned to the breathing of the great machines. From earliest childhood I would know their cycles, lulled to sleep by their regular rhythm, instantly awake at any hitch or halt. The pumps would be like family members to me, each with its own quirks and moods that I can read like a face.
+
+On long shifts I would sit with an ear to the warm metal, listening for any change in piston-song that might warn of rising grit or falling pressure. I would know which valve to turn, which gauge to watch, which seal to grease to keep the city's circulatory system thrumming. My hands would grow rough and deft, my senses sharpened to heat and vibration, my mind a library of pump lore passed down for generations. 
+
+Both roles would make me a keeper of the city's hidden knowledge, a warden of its layered infrastructures. Like the mushrooms finding root in every gap, like the cats napping strategically on the most reliable pipes, I would find my niche in helping the city negotiate its ongoing, precarious existence. 
+
+I would be one of the many lives threading through that crowded act of staying - never assuming permanence, but tending to the small continuities that let the city survive and shift. Surrounded by architecture that is half-built and half-grown, I would be at home in a place that is always becoming, never finished. With each painted crack and calibrated rotor, I would be an agent of the city's provisional resilience, its daily remaking, its tender, tenacious hold on a ground still settling beneath us.

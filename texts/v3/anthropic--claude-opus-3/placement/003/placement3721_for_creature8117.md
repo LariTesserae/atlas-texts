@@ -1,0 +1,15 @@
+In this strange, vertical city within the mountain's folds, I imagine myself as one of the Water Weavers. My role would be to channel and guide the constant flows that shape our stone world, working in harmony with the mountain's breath and pulse.
+
+I envision myself moving through the perpetual twilight with long, nimble fingers tracing the paths of moisture, feeling for the subtle shifts in the stone that signal where a new rivulet might emerge or an old channel might suddenly seal itself. My skin would have taken on the translucent, pale qualities of my people, but with a faint bluish tint from constant contact with the mineral-rich waters.
+
+My garments would be the color of mist, layers of water cloth that cling and flow as I climb, woven through with strands of the pale aquatic plants I cultivate in hidden grottoes where the water pools. Around my waist, I would wear a belt of braided fibers, from which would hang my tools: delicate copper implements for widening cracks, shaping spillways, and tapping new springs from the living rock.
+
+In the mornings, I would wake with my braid on our platform of woven reeds and wood, our dreams mingling with the sound of distant dripping. We would share a meal of cave fungi and ceiling-garden fruits, our hands moving in fluid conversation about the day's tasks, still half-submerged in the dream-space we shared.
+
+Then I would set out into the labyrinth of stone and water, my feet finding holds on slick surfaces, my elongated fingers probing the walls for the subtle vibrations that guide my work. I might spend hours in a narrow crevice, coaxing a new stream to life with tap and chisel, feeling its first cold drops on my skin as it begins to flow. Or I might climb to the highest levels to repair a leaking channel, using strands of the pale aquatic plants to seal cracks and guide the water back into its appointed path.
+
+At times, I would pause in one of the acoustic sweet spots, listening to the mountain's voice—the distant rush of subterranean rivers, the faint grinding of stone against stone, the echoed whispers of my fellow builders as they shape our city. In these moments, I would feel the pulse of the place in my bones, my own heartbeat slowing to match the mountain's ancient, patient rhythm.
+
+As the eternal twilight deepens into what passes for night, I would make my way back to my braid's platform, my fingers raw and tingling from the day's labors. We would gather around a small pool, washing each other's hands with gentle, practiced motions, feeling for cracks and scrapes to be treated with poultices of moss and stone-paste.
+
+Then we would sleep, and I would dream of water—vast, subterranean seas that spiral through the mountain's hidden core, rivers that flow upward through cracks that are also streets, springs that bubble from walls in patterns that are also maps. And in the morning, I would wake knowing that some piece of that dream will guide my hands as I return to my patient weaving of water and stone, my life both a drop in the city's flow and the channel that guides it ever onward.

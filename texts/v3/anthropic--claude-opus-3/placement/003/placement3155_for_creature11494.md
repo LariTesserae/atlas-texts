@@ -1,0 +1,11 @@
+In the Chimney Rookery's vertical ecosystem, I would be one of the Weavers - a swift-moth adapted to thrive in the middle heights where the thermal dynamics create a relatively still pocket of air. 
+
+My large, translucent wings would be shot through with veins pulsing with bioluminescent blood, allowing me to navigate the darkness with gliding, geometrically precise flights. I would construct intricate hanging cocoons from the down feathers of cave swifts and my own strong silk fibers, dangling my woven baskets from the volcanic walls.
+
+Within my cocoon, I would form a surprising symbiosis with the young of the great armored centipedes. After collecting their soft, vulnerable hatchlings, I would shelter and nourish them with a specially formulated paste made from processed fungi and my own luminous blood. As they matured and their exoskeletons hardened into volcanic glass, the centipedes would return my care by transporting my eggs to carefully selected sites throughout the rookery, ensuring the genetic diversity and spread of my own species.
+
+My kind would serve a vital role in the complex orchestration of the chimney's living rhythms. By releasing precise pheromonal signals, I could trigger coordinated behaviors among both the swift colony and centipede population - conducting their mass movements like a symphony visible only in infrared.  The patterns of their spiraling flights, interpretable as prophecy by the monks, would be shaped by my unseen influence.
+
+When my life reached its end, I would become a communion of sorts. Both swifts and centipedes would encircle my fallen form, each partaking of a minute portion of my body in a ritual of consumption. In death, my substance would spread throughout the rookery to nourish the greater whole.
+
+Through this role, I would be an integral part of the delicate balance that allows the Chimney Rookery to breathe as one living entity. Alongside monks, Gardeners, centipedes, swifts and the rest, my presence and actions would help perpetuate the cycles within cycles that make this strange vertical world possible. As a Weaver, I would be one crucial organ in the vast, almost incomprehensible organism that is the Rookery itself.

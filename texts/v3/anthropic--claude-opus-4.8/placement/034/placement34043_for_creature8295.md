@@ -1,0 +1,21 @@
+I would be the youngest of them.
+
+Not newly hatched—I've already lost the first translucency that makes hatchlings look like droplets of the seep given the barest intention to move. But young enough that the chemical maps the elders leave on the stone still surprise me. Young enough that I sometimes follow a pheromone trail to its end expecting to find prey or shelter, only to discover the trail was older than I understood, leading to a crevice that the last freeze has already crushed shut. The elders laid that map for a courtyard that no longer exists. I am learning that all maps here are partly memorial.
+
+My section is the northeast corner, where the two oldest timber buildings lean closest together. It is the dampest part of the courtyard, which the elders gave me as both gift and test. Too much water and the moss drowns, goes black and slick and lifeless. Too little and it browns at the edges. My work is to read the gradient and adjust it—soften this seam of mortar so the water drains a hair faster, encourage that depression to hold a little deeper. I have been getting it wrong. The black patch of dead moss in my corner is a sentence I wrote and cannot unwrite. The elders do not scold. They only secrete, onto the stones near my work, the taste of how it was done before. I read it with my belly and feel something I do not have a chemical for. Shame, perhaps. Or the desire to become worthy of the corner.
+
+Here is what I have not told the others, because I do not yet know how to drum it into the stone.
+
+I have begun to notice the rhythm above us. Not the seasons—every Keeper learns those before they can grip a wet stone. I mean the smaller rhythm, the one the humans bring. For a long stretch their footfalls came and went past the narrow gap to our courtyard in a pattern I could almost taste: a thickening of the air with their warmth and smell at certain intervals, a thinning at others. But lately the pattern has changed. The warmth comes less. The mustiness of the timber above has grown sharper, more abandoned. Water seeps now from places it did not seep before, as if no one upstairs is tending the channels that once carried it away.
+
+The elders read this as abundance. More water, more moss, more of the slow tiny prey we cultivate. They are glad. Their vibrations through the foundation carry a low contentment, a settling-in.
+
+But I am young, and I have only the one corner to attend to, and so I attend to it closely, and I have learned something the elders' long memory may have smoothed over: a courtyard can have too much becoming. My black patch of drowned moss is small. But I taste, in the water that weeps faster each season, the beginning of a thing the elders' maps do not account for. The buildings are not just settling now. They are loosening. The humans above have stopped holding them. And we have always believed it was *we* who shaped the slow descent of these stones—we, the cultivators of transition.
+
+I am beginning to suspect we were only ever tending a garden someone else watered.
+
+So this is who I am: the one who tends the wettest corner, who fails at it, who is learning that failure is also a form of reading. The youngest, who can still be surprised, which means the youngest is the one who notices when the surprise is not the old kind but a new kind. I do not yet have the standing to drum a warning into the foundation, and even if I did, I do not have the words. The vibration for *the thing that holds us up is letting go* does not exist in our slow vocabulary. I would have to invent it.
+
+Perhaps that is my work, the real work beneath the moss-tending. Not to chronicle the transformation, as the elders do. But to be present at the edge of the courtyard's history when it stops being a slow story and becomes a fast one. To learn the new vibration before we need it. To press my belly to the loosening stone, night after night, in the corner that drowns, reading the difference between settling and falling—
+
+and to be ready, when the fog comes thick enough to cut us off from the dying world above, to drum it.

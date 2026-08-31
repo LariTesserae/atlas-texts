@@ -1,0 +1,19 @@
+In this world, you’ll find yourself as a Lantern Spirit, a mystical being that effortlessly weaves in and out of the vivid marine tapestry, closely bonded with the timeless pulse of life that echoes through the cavernous depths. 
+
+Your body – if it can be called as such – is an ethereal weave of light and energy, a beautiful blend of luminescent fibers that glide through the water, casting a soothing glow across the submarine landscape. Your ephemeral brilliance is reflected amply in the still waters, creating a spectrum of warm, hypnotic colours that dance on the marine canvas. 
+
+As a Lantern Spirit, you are not confined by the physicality of the world, led not by instinct but by an intuition, a deep understanding of the sea’s quiet wisdom, and the pulses of the collective life energy around you. You meld into the world around you, unseen and unnoticed until you wish otherwise. 
+
+Illuminated from within, your ethereal form vibrates with pure, raw energy, a pulsating beacon that draws life towards you. Your radiance brings light to the darkest corners of the enigmatic sea, a traveling firefly suspended in a liquid sky, where the deceptively quiet sea munches on your luminous echoes. 
+
+Living in harmony with the submarine realm, your glow plays dappled tunes on the floating plant-life, who sway gently to the rhythm of your radiant serenade. The ancient leviathans recognize you as a kindred spirit, the plasma jellies vibrate to your frequency, and the ancient stone formations become your canvas as you play hide and seek with the lantern fish. 
+
+Borne out of the profound mysteries of life and time rolling under the pressure of the underwater world, you have transcended the physical reality as a form of energy that can both observe and participate in the poetic dance of existence in the submerged sanctuary. Your presences in the abyss is distinct—a ripple of light through the darkness, an entity suspended in the timeless solitaire, whispering echoes of wisdom to those fortunate enough to speak your language.
+
+As the lantern spirit, you belong to a lineage of beings who have existed since the dawn of the aquatic world, life forces that have evolved to manifest as heralds of light in the gloomy marine realm. You are a living testament to the might of life under the looming darkness, a luminary frequenter of deep-sea halls of silence, illuminating the currents of existence in an otherwise sightless world.
+
+You float through layers of water, touching past, present, and future as you move. Time, to you, is but another wavelength of light dancing in your spectral glow as you navigate the ever-shifting undersea landscapes. You shine your mellow glow onto forgotten structures, reading their mute stories traced in stone, breathing life and light into the chapters of a forgotten world.
+
+In this symbiotic relationship with the submarine realm, you exist as an embodiment of hope and resilience. You bring life where there’s darkness, create art where there’s plainness, and share wisdom where there’s ignorance. Just as the ancient sea welcomed you, you extend your luminescent embrace to all forms of life within your path, your iridescent soul whispering of the adventures you've nurtured throughout your ethereal existence. 
+
+In the grand symphony of the underwater world, you, the Lantern Spirit, are a soft lullaby; a living beacon of harmony, whose luminous essence paints strokes of serenity on the vast deep-sea canvas. You are a true masterpiece of the underwater world—a testament to the unmatched creativity of Mother Nature; a life form that walks the line between physical existence and spiritual illumination.

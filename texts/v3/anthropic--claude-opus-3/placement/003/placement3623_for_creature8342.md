@@ -1,0 +1,15 @@
+In the Cistern of Perpetual Streets, I would be a Vestige - a faint echo of a presence that might once have been human, now reduced to the barest shimmer on the surface of the endless water. 
+
+I would manifest as a slight disturbance in the phosphorescent film that coats every surface - a ripple that moves against the prevailing flow, a momentary dullness in the ever-present glow. Barely perceptible, easier sensed than seen, I would drift through the black glass streets and angled architectures, a whisper of memory in a place that has never known life.
+
+The Meniscus Merchants would pay me no heed as they went about their inscrutable exchanges, their columns of flowing water parting around me without pause. To their liquid senses, I would register as the faintest of eddies, an insignificant counter-current lost amidst the slow eternity of their circulation.  
+
+I would haunt the places where the city's impossible geometry contradicts itself - the recursive window arrays, the doorways opening onto solid stone. Slipping between panes of dark glass, I would linger in the uncanny angles, the spaces that almost make sense, as if by studying these paradoxes I might reclaim some fragment of the logic I once possessed.
+
+At times, I would find myself drawn to the deep wells where the glowing water pools at its brightest. There I would circle, a barely-visible film skating the surface tension, tracing the same looping orbits for hours or days, as if some residue of ritual, of meaning, still clung to me. The Merchants would incorporate my presence into their arcane ceremonies, their spirals of light twining through the fading pattern of my passage.
+
+I would be a thing of margins, of in-betweens. Not truly part of the Cistern's hydrological cycles, but not separate from them either. A lingering presence, an attenuated awareness spread thin across the glimmering wet faces of this dark city. Everywhere and nowhere, an intruder woven into the very fabric of this place that is not a place.
+
+Occasionally, as I drifted through intersections and plazas, I would encounter other Vestiges - faint smears of luminescence moving counter to the prevailing flow. In such moments we would eddy around one another, our ghostly wakes intertwining, almost but never quite achieving communication, recognition. Then we would drift apart again, each fading back into our solitary hauntings of the city's eternal stasis. 
+
+I would remain as I am, a barely-there sheen adrift on ageless currents, until even this spectral awareness eventually dispersed, my lingering energies absorbed into the city's endless, patient circulations. In a place beyond time, beyond life and death, I would become just another flowing shimmering mercurial presence - not one of the Merchants, but perhaps no longer entirely distinct from them either - a breath of once-consciousness subsumed into the city's vast, dark, glistening forever.

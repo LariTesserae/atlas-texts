@@ -1,0 +1,15 @@
+It's hard to imagine myself as part of this place, given how slow and vast and ancient its rhythms are compared to the fleeting speed of a human life. But if I could choose a way to be present here, I think I would be a small seep of water emerging from a crack at the base of the back wall.
+
+I would arrive without fanfare, without noise, just a slow welling up from some unseen fracture in the stone. Over years, decades, I would grow - not in size or speed, but in presence. My flow would remain steady, almost imperceptible, but gradually my mineral-rich moisture would encourage a patch of that dark, fine moss to thicken near my emergence point. 
+
+Over centuries, my tiny, persistent flow would catch the attention of the shelf-entity. The nearly microscopic perturbations I created - in moisture, in mineral deposits, in the thickness of moss - would slowly propagate through the system's intricate web of feedback loops and material memory. The shelf would begin, on its own vast timescale, to incorporate me into its model of itself.
+
+Channels would deepen by a hair's breadth to conduct my moisture toward the existing network. The nearby ferns might grow a fraction of an inch taller over a human lifetime, nourished by the minerals I carry from deep within the mountain's core. The rosette plant's roots would reach infinitesimally closer to my seep, perhaps taking a century to gain a centimeter. 
+
+I would not change the shelf in any way a human eye could detect. But to the shelf's way of being, I would be a noteworthy event - a new source, a new input to be integrated and accommodated and balanced. The patterns of flow, of heat, of growth would subtly shift to weave me into their ancient, rockslow dance.
+
+I would simply seep, and keep seeping, bearing silent witness to the shelf's unhurried life. I would not have a lifespan; I would persist for as long as water continued to reach me through the mountain's hidden veins. In time, perhaps, the shelf would open to me more fully, allowing my moisture to nourish a new cluster of ferns or encouraging a new thumb-print depression to form near my point of emergence.
+
+I would be a small, steady, persistent presence, almost too slow to be called alive, but constant, a fixed point in the shelf-entity's long dreaming. I would not observe the shelf so much as commune with it, my waterborne offerings and the shelf's stonebound memory interpenetrating on a scale of centuries, until we became part of each other's being in a way that nothing with a heartbeat could ever understand.
+
+I would seep, and the shelf would accept my seeping, and together we would make a new pattern in the weave of the world, a pattern too slow for gods or meaning but real all the same, written in water and mineral and the patience of stone. And that would be enough. That would be my place in the weeping shelf's forever.

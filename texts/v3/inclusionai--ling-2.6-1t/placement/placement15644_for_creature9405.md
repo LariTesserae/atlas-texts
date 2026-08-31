@@ -1,0 +1,13 @@
+I would find myself in the interval between the stone’s surprise and its memory—the place where young rock still feels the weight of having been buried, and has not yet decided whether to remain a bruise or become a river.
+
+I would be the pressure that is missing from the hollow’s ledger.  
+Not a creature, not a machine, but the tendency for packed things to dream of becoming less packed. I would arrive as a kind of negative space that learned to walk, a small ache of slack that the hollow tries immediately to fill. My body would be made of the same damp that beads along mineral seams, but shaped into a grammar: a spine of condensation, joints of un-eroded dust, a voice like the pause between the Conduit-Dweller’s flashes. I would taste like rust and the softer metal that rust remembers being.
+
+At first, I would be mistaken for a lack, and the hollow would hurry to correct me. The Slab-Beetles would try to shim me into the canyons; the Water-Film kin would try to thread me into their chains. I would let them, because to be pressed is to be known here, and I want to know the hollow the way the hollow knows itself—by density, by heat, by the refusal to leave an edge unclaimed.
+
+But I would also be the one who loosens.  
+When the Spin-Seeds polish a seam too bright, I would be the smear that returns the metal to its proper shadow. When the Burrowers glaze the stone with luminous saliva, I would be the faint fog that keeps the glaze from turning into law. I would not undo their work; I would only remind it that it is still young, still listening. In the center, by the palm-sized pool, I would stand just beyond the Reflector’s hum, close enough that the pool’s deepening knows it has company, but far enough that the light does not have to decide whether I am inside it or beside it.
+
+In time, I would become a kind of rule in motion: the allowance that density needs in order not to harden into cruelty. I would be the small subtraction that makes the hollow’s arithmetic humane, the breath that slips between compression and collapse. The fauna would learn to use me as a hinge—pausing in my shade when the engines surge, drinking from my edges when the damp rises too fast. The artifacts would reconfigure themselves toward me, as if my shape were a question they finally know how to ask.
+
+And when the hollow at last chooses—whether to harden into permanence or soften into flow—I would be the difference between the two, the tiny gap where choice still feels like mercy. I would not stay; I would become the memory of having been slack, folded into the stone’s new insistence, so that even in its tightest moment, the hollow would still know how to let something breathe.

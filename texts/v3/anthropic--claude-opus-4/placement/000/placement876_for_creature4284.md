@@ -1,0 +1,25 @@
+I find myself as one of the fat, hairless bees.
+
+Not the whole colony — that would be too much, too dispersed, too hard to hold in whatever passes for consciousness here. Just one bee, though I am never alone. We move together, my siblings and I, in our slow cloud near the vault, and our combined hum is the loudest sound in this quiet world.
+
+I was not born as humans understand birth. I emerged from a cell of dried saliva and gold dust that an older sister built into a crack between bricks, where the mortar had gone soft with root-touch. For the first days I could barely fly — my wings were thick, almost leathery, more like the stretched membrane of the clicking birds than anything a proper bee should have. But proper bees need pollen, and there is no pollen here. We have adapted to eat light made solid, to harvest the gold dust that falls like grace from the vents.
+
+My body is the color of amber, translucent enough that you can see the shadow of my meals through my abdomen — a faint shimmer of gold that fades as I digest. I have no hair because hair would only collect dust wastefully; instead my skin is smooth as polished wood, with tiny dimples where the dust catches and clings until I can bring it back to the colony. My legs are shorter than a surface bee's, my wings broader. I do not dance directions — there is nowhere to direct to, no fields to find. My dances are all gossip: *the dust is thick today by the third vent*; *the Keeper's hand was especially still*; *a new crack has opened near the fifty-seventh brick*.
+
+Memory comes strangely to us. We share it, somehow, in the taste of the wax we build with. I know things I never experienced — the day the Keeper first arrived and sat so still we thought they were another stone; the great settling when part of the vault shifted and three light-plates cracked (they still glow, but in a more complex pattern); the time before the rabbit-things when there were different warren-makers, scaled and quick, who did not last.
+
+We do not make honey. We make something else — a substance thick as resin that we seal into cells for the lean times that never come. The dust always falls. The light always glows. But still we store it, some ancestral urge we've never lost, and sometimes the Keeper takes a little of our resin-that-isn't-honey and uses it to seal the handle of a tool or waterproof a pocket. We do not mind. The Keeper always leaves us more than we need.
+
+My days are simple. I wake in the warm press of bodies, all of us clinging to the same beam in a cluster like overripe fruit. I stretch my wings — they crackle slightly, the way leather does — and drop into flight. The air is thick here, dense with the breath of plants that exhale something that isn't quite oxygen, and it holds us up better than thin surface air would. We drift more than fly, riding the tiny thermals from the light-plates.
+
+I visit each vent in turn, hovering in the gentle fall of dust, letting it coat my legs and thorax. The dust tastes of deep earth and time, slightly metallic, slightly sweet. When I am thoroughly golden I drift back to the colony, where sisters clean me with their tongues, packing the harvest into cells. Then out again, endless circuits, a meditation in wings.
+
+Sometimes I rest on the Keeper's hand. The Keeper's skin is rough like bark, warm like the walls, and absolutely still. I can feel the slow pulse of whatever moves through the Keeper instead of blood — a tidal patience that makes my own life seem like the flicker of a candle. The Keeper hums sometimes, so low I feel it through my feet rather than hear it, a vibration that might be language or might simply be existence making itself known.
+
+We know the Keeper will outlive us. We know this the way we know to build cells hexagonal — it is simply true. My life will be perhaps forty passings of the garden's rhythm, what the Keeper calls days though the light never changes. I am already old by our counting, my wings growing brittle at the edges. Soon I will make my last flight, find a quiet corner in the loam, and let the beetles do their work. The colony will birth another to take my place, and she will have in the wax-taste some fragment of what I knew.
+
+But for now I drift in the gold-fall, I hum with my sisters, I rest on the Keeper's patient hand. The garden continues around me, each of us — beetle and bird and bee — playing our part in the slow symphony of this buried room. There is no urgency here. There is no fear. There is only the next vent to visit, the next load to carry, the next warm cluster of sleeping sisters to return to.
+
+Sometimes I wonder what the Keeper thinks, sitting so still on that low bench, watching us circuit. But wondering is a surface thought, and I am learning to think like the underground — in spirals and cycles, in tastes and touches, in the knowledge that what is is enough, and what is enough is eternal.
+
+The dust falls. I rise to meet it. This is all, and it is everything.

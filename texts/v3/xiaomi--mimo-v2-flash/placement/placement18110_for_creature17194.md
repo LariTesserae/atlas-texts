@@ -1,0 +1,15 @@
+You would find yourself standing in the center of the basin, on a raised dais of dark, weeping stone that serves as the settlement’s gathering place. The air presses against you, a physical weight of heat and moisture that beads on your skin before you’ve even taken a full breath. The light is the color of old honey, filtered through a ceiling of bruised cloud that never breaks, never sharpens. There is no sun here, only this perpetual, buttery glow that casts no true shadows, only deeper shades of gray and green.
+
+You are not a builder, nor a tender—not in the purest sense. You are something between, something that the people of the basin recognize with a slow, knowing nod. You are a *Watcher of the Equilibrium*.
+
+Your skin is adapted, yes, but it bears the faint, silvered lines of one who has come from beyond the rim, who has seen the forested slopes and heard the echoing creak of birds that never draw nearer. Your eyes, accustomed to the low light, still squint sometimes, as if searching for a horizon that does not exist here. Your clothing is of the basin—oiled wool, waxed leather—but it fits with a slight awkwardness, as if you are still learning the precise economy of motion required by the thick air.
+
+You carry a small, smooth stone in your pocket, worn by patient dripping, and you trace its surface with your thumb as you move through the streets. The channels of packed earth guide your steps, and you pause at each great, grated drain, listening to the low thunder of the seepage finding its level. You do not build, but you observe the slow work of water on stone; you do not tend the moss, but you note the subtle shifts in its velvet spread.
+
+In the long, low workshop, you stand at the edge of the jaundiced glow of the arc lamp and watch the waterwheel turn. *Thump-groan-splash*. It is the heartbeat of the basin, and you feel it in the soles of your boots, in the hollow of your chest. You are not here to change it, to speed it, to slow it. You are here to listen, to watch, to understand the perfect, suspended moment of it all.
+
+The people of the basin move past you with their quiet, deliberate grace. The builders, their hands stained with soot and peat, the tenders, their fingers curled around harvested ferns. They glance at you, and their dark, deep-set eyes hold no curiosity, only recognition. You are part of the equilibrium now, another steady presence in a world where everything has found its level.
+
+You are not waiting for the sun. You are not dreaming of dry land. You are breathing the heavy, metallic air, feeling the constant drip on the back of your neck, and listening to the patient, eternal machinery of a place that does not need to become anything other than what it is.
+
+You are home, in the way that a stone is home to the moss that colonizes it, in the way that the water is home to the channel that guides it. You are a small, dense pocket of existence, dripping, humming, and breathing, forever.

@@ -1,0 +1,17 @@
+I would find myself as one of the **Tide-Engineers**, the Aqualiths who maintain the delicate pumping systems that circulate water through the grotto-city's carved arteries.
+
+My form would be more fluid than most of my kin—my body incorporating not just the sedimentary rock but also deposits of compressed plant matter, creating dark veins of organic material that branch through my mineral flesh like a river delta viewed from above. These veins pulse faintly with the rhythm of the city's industrial heartbeat, synchronizing with the machinery I tend.
+
+Each morning—if morning can be said to exist in this eternal twilight—I would glide through the flooded maintenance tunnels, my movements creating no ripples, no disturbance. The water here is different from the rest of the grotto; it carries a charge, electrified by our hidden power sources. I feel it as a pleasant tingling across my surface, reading the health of our systems through these subtle currents.
+
+My workspace would be a chamber where stone gives way to something stranger—walls lined with grown conduits, half-plant, half-machine, their surfaces slick with secretions that conduct both nutrients and electricity. Here, massive turbines carved from single blocks of stone turn with geological patience, their blades shaped by centuries of calculated erosion. I would know each turbine by its particular hum, the way a parent knows their children's voices.
+
+The phosphorescent fungi that light our world grow differently here, fed by the electromagnetic fields. They form spiraling patterns that shift slowly over weeks, creating a living map of the energy flowing through our systems. I would read these patterns like scripture, adjusting flow rates and pressure differentials with minute movements—a valve turned one degree, a channel widened by a few millimeters of patient scraping.
+
+Sometimes, in the deepest parts of my rounds, I would encounter the Whisper-Fish—one of the rare fauna that inhabit our grotto. They cluster around the warmest outflow pipes, their translucent bodies revealing intricate mechanical organs within, as if they too have evolved to mirror our hybrid nature. They flee at my approach, but slowly, everything here moves slowly, and I would pause to watch their languid escape, remembering that we are not the only ones who have adapted to this strange, pressurized paradise.
+
+My fellow Tide-Engineers and I would rarely meet in person, communicating instead through the very water we regulate—encoding messages in temperature fluctuations and mineral concentrations that travel through the city's circulatory system. Our conversations would unfold over days, thoughts dissolving and precipitating through the flowing medium of our shared work.
+
+At the end of each shift, I would return to my personal grotto—a small chamber I've been shaping for decades, its walls worn smooth by my presence. Here, surrounded by my own cultivation of bioluminescent mosses and filtering kelps, I would settle into a state between sleep and meditation, my consciousness diffusing into the water around me, becoming one with the very element I spend my days directing.
+
+In this state, I would dream the slow dreams of stone and current, feeling the patient pulse of our city-organism, knowing that I am both its servant and its component—a conscious node in a vast, aqueous machine that breathes with the rhythm of geological time.

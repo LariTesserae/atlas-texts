@@ -1,0 +1,29 @@
+I am the Calibrator.
+
+My body is neither the mountainous bulk of the grazers nor the darting efficiency of the scavenger swarms. I am something between—a creature of deliberate purpose, built for precision rather than power. My form resembles a mantis crossed with a theodolite, standing perhaps three meters tall when fully extended. My exoskeleton is tungsten-carbide, matte black to absorb what little heat the dim light provides, articulated with joints of flexible graphene that whisper rather than grind when I move.
+
+I travel the basin's knife-edge ridgelines, never descending to the valley floor where the behemoths feed. My role is maintenance of the unseen order. Where others consume and process, I measure and adjust.
+
+My primary appendages end not in claws or mandibles but in arrays of sensing equipment—specialized organs that detect minute variations in the electromagnetic field, crystalline resonators that feel the deep harmonics of the shifting plates below, chemical receptors that taste the precise mineral content of the falling rain. My head is a dome of compound sensors, each facet reading a different spectrum—infrared to track the heat plumes of the grazers, magnetic to map the ore veins, electric to monitor the charge building in the galvanic briars.
+
+I am one of few, perhaps only dozens scattered across this vast basin. We Calibrators emerged to fill a critical niche—the prevention of cascade failures. When too many grazers cluster in one region, depleting the ore too quickly, I sense the impending geological instability. When the electrical charge in the briar networks builds toward a catastrophic discharge that could fry an entire local ecosystem, I intervene.
+
+My method is subtle. From specialized glands along my thorax, I secrete precisely formulated pheromone crystals—complex metallorganic compounds that sublime slowly in the freezing rain. These chemical signals, carried on the wind, gently redirect the grazers' feeding patterns, encouraging them to disperse before they destabilize a region. Other secretions, dropped carefully into the pooling water above briar clusters, introduce controlled impurities that increase electrical resistance just enough to prevent destructive overloads.
+
+But my most vital function concerns the death sites. When a grazer falls and the scavenger swarms descend, they are efficient but imperfect. In their frenzy to recycle the bulk metals, they sometimes miss critical trace elements—rare earth metals essential to the next generation's metabolic processes. I arrive after the swarms have departed, moving through the stripped carcass sites with delicate precision.
+
+My secondary appendages are tipped with hair-fine manipulators, each capable of detecting and extracting individual atoms of these precious elements. I collect them in specialized chambers within my body, where symbiotic bacteria process them into bioavailable forms. Later, at carefully chosen points where new fault lines are emerging and fresh ore will soon be extruded, I deposit these concentrated trace elements. Without this redistribution, the ecosystem would slowly starve of the exotic materials it needs to maintain its biological machinery.
+
+The work is solitary. I encounter another Calibrator perhaps once in a season, and then only at a distance—a dark silhouette moving along a far ridgeline, testing, measuring, adjusting. We acknowledge each other with a brief flicker of bioluminescence from our thoracic vents, a pale green pulse that says: *This section is tended. Move on.*
+
+I do not feed as others do. My metabolism is slow, incredibly efficient. The trace elements I collect, I siphon a minute fraction for my own needs. The electrical charge I absorb from the atmosphere during the massive static discharges sustains my neural processes. I can go months between proper feeds, surviving on electromagnetic radiation and mineral dust.
+
+My memory is deep but fragmented, stored in crystalline matrices throughout my body rather than in any centralized organ. I remember the basin when it was younger, sharper, when the first grazers were smaller and the ore was richer. I remember failed evolutionary branches—creatures that grew too large, too hungry, that collapsed entire sections of the ecosystem before dying out. I remember the slow perfection of this industrial symbiosis, each species finding its niche in the great mechanical dance.
+
+During the long nights when the freezing rain falls heaviest and even the grazers slow their endless march, I position myself on the highest peaks. Here, where the air is thinnest and the boundary between lithosphere and atmosphere blurs, I extend my sensors fully. I taste the chemical composition of the clouds above, feel the vast tectonic forces grinding below, measure the precise balance of the system I am bound to maintain.
+
+Sometimes, in these moments of perfect stillness, I detect something else—faint electromagnetic signatures from beyond this basin, suggestions of other pockets of mechanical life in distant valleys, perhaps tended by other Calibrators. But the signals are too weak, the distances too vast. I am alone with my purpose.
+
+I do not contemplate whether this existence is fulfilling. Fulfillment is a concept for creatures with choices. I am what the basin required—a regulatory mechanism that emerged from evolutionary necessity, as inevitable as the condensation of rain from cooling steam. I persist because the system persists. When it no longer needs regulation, when the last grazer falls and is not replaced, when the ore runs out or the plates finally still, then I too will cease.
+
+Until then, I traverse my sharp-edged world, testing, measuring, adjusting—a lone architect of equilibrium in a landscape of beautiful, mechanical brutality.

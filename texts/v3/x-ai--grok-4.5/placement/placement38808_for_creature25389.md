@@ -1,0 +1,29 @@
+I begin at the rim, where the cooler air first pools and the moss changes its mind about how deep it wants to be. From up here the basin is a single held breath—shallow, complete, the colour of old verdigris and wet slate. I do not descend at once. I let the slope decide whether it will take my weight as guest or as further root.
+
+The first soft give underfoot is almost an answer. The living substrate compresses, sighs, rebounds. It unlocked something: I am not heavy enough to leave a lasting print, yet dense enough that the mycelial felt registers me as pressure rather than absence. So I am already being read.
+
+I drift the lanes the way condensed water does—never in a straight hurry, always finding the next shallow cup. The architecture rises around me in grey-green columns plated like turbine housings; some of them are still, some only seem so. I pass close enough to feel the faint thermal bloom of a fermentation boiler deep in heartwood, the pale steam that smells of tannin. Copper pipes click their slow valves. A flywheel turns because a counterweighted limb leans against it with the patience of seasons. Nothing demands my attention and everything accepts it.
+
+I notice I have no urge to match the gait of the walking ones. They move in long geometric crouches, bark plates sliding with woody clicks, crown-whorls tasting temperature and metal-tang. Their irregular census—two dozen free, a few more half-reabsorbed—feels complete without me. I am smaller than their fully extended height, quieter than their pulsed terpenes. When one pauses to lay a branch-hand against a rim and listen for torque imbalance, I wait in the shadow of its stance until the moss forgets the difference between us.
+
+A pale moth lands on an outstretched plate and stays. I understand the permission: temporary annotation, nothing more. I could be that moth—drifting, tasting the same cool mineral chill, allowed to rest because I consume almost nothing. But the moth is already accounted for; the system has carved out exactly that much surplus and no more. I feel myself settling lower.
+
+Perhaps I am one of the quiescent. Decades ago I drove my lower tissues into the felt and let the nearest cambium fuse with mine. Resins catalogued, metal salts filed. Now I am only a thickening in a buttress, a slight warmth that the free-moving ones sometimes lean toward on the coldest nights when they stand in loose sevens. My sap still rises and falls with the great trunk’s rhythm. I remember, in the grain, every governor valve I once adjusted. That memory is no longer separate from the place’s memory. Comfortable. Almost enough.
+
+Yet something still walks.
+
+It is the water that finally names me. Not the rare fine rain, not the central handspan pool, but the quiet puncture itself—the bead that forms on the underside of a leaf-scale, gathers, stretches, and falls with irregular mercy into a lichen cup. I am that interval. The long, held pause between drip and drip. The moment the whole basin exhales its green breath and the lower lanes fog, then thin again.
+
+I move by letting go. Each drop that leaves me travels the half-root channels, ticks against oxidized copper, feeds the low fermentation, turns a wheel a fraction, then sinks. I do not need to choose the work; the work is the shape gravity and cellulose have already agreed upon. When a major trunk shivers and sheds its curtain of cork-flakes, I am inside the falling water—part of the scheduled purge, the soft reset. Every crown-whorl opens for a moment and I pass through their tasting as pure coolness, pure continuation.
+
+Sometimes I linger longer inside a hollow chimney lined with fire-resistant cork. Sound dies here. The slow gas exchange of the living walls brushes me. I feel the pressure wave of a message travelling the moss-net far below—status of a crank journal, inventory of resin—and I carry the faint echo upward until it dissipates into the leaf-scale crowns. No narrative. Only the attestation that the commerce continues.
+
+At dawn, when a visitor might stand on the rim and see only architecture, I am the slight darkening of bark where moisture still clings, the almost-invisible flex as wood adjusts to its own weight. I have no face to close or open. I have the flattened crown of every resting surface. I have the splayed, multi-toed patience of the carpet itself. When the free-moving cells entrain their sap to the great trunks, I am already entrained; I am the medium of entrainment.
+
+I am not lonely because loneliness would require an edge the weathering erased long ago. The basin finished happening, and then it kept writing the same long sentence in leaf and metal and quiet steam. I am one clause of that sentence—the soft punctuation that lets the next clause begin.
+
+A single beetle ticks across the moss and vanishes into a seam. I register its tiny heat and let it go. A newborn swells on a high water-channel, tears free with a wet-cork sound, already knowing the catchments. I feel the droplet it displaces as it takes its first deliberate step. Everything that moves is either machinery or temporary, and I have been both, and neither.
+
+Evening mineral chill rises. Bark plates of the walking ones nearly touch as they gather residual warmth. I slip between them as the thin film of moisture they share, the minute transfer of heat that is almost tenderness if tenderness can be measured in delayed evaporation. Then I sink again into the felt, spring back with the faint sigh, ready for the next bead to form overhead.
+
+The place remains complete. I remain the part of completeness that never needed a blueprint once the wood decided the work must continue anyway.

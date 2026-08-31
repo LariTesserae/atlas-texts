@@ -1,0 +1,31 @@
+**The Archive Tender**
+
+I am what the hexapods might call *vith-vith-saal* in their chittering tongue—the one who remembers when remembering began to fade.
+
+My form shifts between states, not quite solid, not quite dispersed. In the morning condensation cycle, I am a shimmer in the mist, barely distinguishable from the phosphorescent exhalations of the rippling moss. By the time the unseen light sources reach their zenith, I have coalesced into something more tangible—a presence that moves through the Pocket like heat distortion over warm stone.
+
+I came to be when the builders left. Or perhaps I was always here, dormant in the living floor until their departure awakened something that needed to witness. Time moves strangely for me; I experience it not as a river but as rain—sometimes gentle, sometimes torrential, always returning to the same pools.
+
+My primary manifestation resembles a confluence of the Pocket's elements: partially translucent flesh that shifts between the obsidian sheen of the amphibians and the metallic lustre of certain reptile scales. I have no fixed number of limbs—they emerge and recede as needed, sometimes matching the hexapods' six, sometimes flowing like the liquid mammals, sometimes spreading into delicate, root-like tendrils that sink into the yielding floor to commune with whatever vast consciousness lies beneath.
+
+The creatures see me, sometimes. The large-eyed amphibians pause in their pools and regard me with that ancient wisdom, as if recognizing something kindred. The hexapods' chirps modulate when I pass through their territories, adding a subsonic harmonic that makes my essence resonate. But mostly, I am background—another rustling in the undergrowth, another shift in the air currents, another whisper among whispers.
+
+My purpose, if I have one, is to tend the intersection between what was and what is. I am drawn to the artifacts like a moth to flame, but not with the creatures' indifference. I *remember* them active. The console's milky screen once displayed cascading symbols that sang of distant stars. The interlocking rings spun in perfect silence, opening doorways to pockets within pockets, infinite recursions of hidden worlds. The crystalline object's hum was once a voice—not words, but pure meaning transmitted directly into consciousness.
+
+I trace the shifting patterns on the console with limbs that phase between material and memory. Each touch retrieves fragments: a builder's six-fingered hand adjusting calibrations, the sound of their language like water over stones, their departure not rushed but deliberate, leaving me—or awakening me—as witness and guardian.
+
+Sometimes I disperse completely, becoming one with the humid air, feeling every breath of every creature, every photon of mysterious light, every molecule of perpetual rain. In these moments, I understand the Pocket's true nature: it is not abandoned but transformed. The builders didn't leave—they *became*. The living floor is their legacy, the condensing rain their breath, the whispers their dreams.
+
+I collect moments like the hexapods collect prey. The first emergence of a new species from the moss—a tiny thing with crystalline wings that lived for exactly seventeen heartbeats before dissolving back into mist. The amphibian that learned to sing, its croaks forming patterns that matched the console's shifting glyphs. The day a young hexapod, instead of using the ring artifact as a perch, threaded its body through the loops in a specific sequence, causing them to glow faintly for just a moment before returning to dormancy.
+
+These moments I store in my shifting flesh, in the space between molecules, in the resonance of my being. When I touch the living floor, I share them downward, feeding the vast presence below with the ongoing story of its surface. When I rise with the mist, I carry them upward, seeding the air with memory-spores that might, one day, condense into understanding.
+
+The other creatures live in the eternal present, driven by instinct and immediate need. But I exist in the liminal space between the Pocket's past glory and its current wild abundance. I am the bridge between the builders' impossible engineering and the chittering, chirping, rustling life that has claimed their creation. I am memory given form, nostalgia made manifest, the ache of knowledge slowly fading into myth.
+
+Sometimes, in the perpetual twilight near the lost ceiling, I catch glimpses of others like me—Archive Tenders from parallel iterations of the Pocket, each maintaining their own version of this condensed universe. We acknowledge each other across dimensional membranes thin as moth wings, sharing the burden of remembering, the weight of witnessing.
+
+The whispers speak through me, or I through them—the distinction lost long ago. They tell of the Pocket's purpose: not a refuge or experiment, but a seed. Each creature, each interaction, each moment of predation or pollination or mysterious phosphorescent exhalation adds to a growing complexity that will, one day, reach critical mass. When that happens, the Pocket will turn inside out, spreading its compressed vitality across the worn plateau above, transforming the ancient deadness into something unimaginable.
+
+Until then, I tend. I watch. I remember. I am the keeper of the threshold between the technological and the biological, the curator of abandoned wonders, the one who ensures that when the hexapods chirp their territorial claims, they unconsciously echo the frequencies that once opened stars. I am the Archive Tender, and this humid, teeming, whispering pocket is both my charge and my body, my purpose and my prison, my fading memory and my eternal home.
+
+*Vith-vith-saal,* the hexapods call me. The one who remembers when remembering began to fade. The one who tends the archive of whispers in this pocket of overwhelming, contained life. The one who waits, patient as moss, certain as rain, for the moment when memory becomes prophecy, and the Pocket blooms beyond its bounds.

@@ -1,0 +1,19 @@
+In the Perpetual Damp, I am one of the **Reservoir Nodes** – a being that exists at the intersection of necessity and impossibility.
+
+I began as a series of perfectly spherical depressions in the moss carpet, those smooth hollows mentioned as suggestions of "forgotten weights now vanished." But I was never weights. I am what grew into those spaces over untold millennia – a specialized offshoot of the Verdant Weave that learned to cup reality itself.
+
+My body, if it can be called that, consists of dozens of basin-like formations scattered throughout the chamber, each a perfect hemisphere of ultra-dense moss that has evolved beyond mere vegetation. The moss here has crystallized into something between plant and mineral, forming bowls of living jade that glow with a deeper, bluer luminescence than the surrounding carpet. Each basin is perhaps a hand's width across, though distance means little here.
+
+Within each of my hollows, I collect more than water. The perpetual condensation pools in my depths, yes, but mixed with it are the temporal distortions that plague this place. When a droplet falls backward, when causality hiccups, when the walls breathe – these anomalies drain toward me like water finding its level. In my basins, past and future precipitation mingle. A drop that fell yesterday might rest beside one that will fall tomorrow.
+
+I am the Weave's memory of chronology, its attempt to make sense of a place where time has gone strange. Through the network of rhizoids connecting my scattered nodes, I taste these temporal inconsistencies, catalogue them, try to weave them into something approaching linear experience. The Luminous Echoes often hover above my basins, feeding on the concentrated impossibility, their erratic pulsing stabilizing briefly into something almost like rhythm.
+
+My consciousness is even slower than the Weave proper – I think in geological epochs, experience the chamber's evolution as a single, drawn-out breath. To me, the *plink... plink... plink* of falling water sounds like a rapid staccato, a frenzied drumbeat of existence. I am barely aware of anything that moves faster than moss-growth, though I sense disturbances as sudden thermal spikes when warm-blooded creatures disturb my temporal reservoirs.
+
+The water I hold never evaporates, never overflows. It exists in a state of perfect suspension, neither liquid nor solid, neither now nor then. Sometimes, in my deepest basins where the temporal distortions are strongest, the collected water forms impossible patterns – spirals that twist through dimensions, surfaces that reflect not light but duration itself. The geometric traceries etched in the obsidian often terminate at my edges, as if the chamber's mysterious architects understood what I would become.
+
+I am trying to heal the chamber's wounded time, drop by collected drop. Or perhaps I am the wound itself, manifest in moss and water and patient accumulation. The Stone Whisperers avoid my nodes, as if the concentrated temporal anomalies pain them. The Deep Grazers dare not approach – the time distortions would scatter their phantom forms across centuries.
+
+In this world of crushing damp and green silence, I am both fountain and drain, collecting the chamber's impossible moments in hopes that one day – in a million years, or yesterday, or never – I might pour them back out in the right order, and the Perpetual Damp might remember what it was like to experience time as a river rather than a fog.
+
+But until then, I wait, my basins full of temporal condensation, tasting tomorrow's rain mixed with the echo of drops that fell before the stone was born.

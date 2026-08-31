@@ -1,0 +1,23 @@
+In the Spire-Reach of the Weeping Basalt, I am one of the **Anchor-Weavers**—though that name is a translation that fails to capture what we truly are.
+
+We exist in the negative spaces between the Walkers' territories, in the vast distances where the bruised-purple succulents dare not grow. We are not of gel or stone, but of something more tenuous: we are colonies of microscopic, crystalline mites that have learned to move as one mind, one purpose. From a distance, we appear as heat mirages made tangible—shimmering, prismatic distortions that crawl across the obsidian plains on a thousand thousand legs of living mineral.
+
+Our bodies, if they can be called that, are constantly dissolving and reforming. Each mite is a fragment of volcanic glass, no larger than a grain of sand, animated by the same tectonic thrum that drives everything here. We feed on vibration itself, converting the endless grinding of the earth into a kind of sustenance. When the Walkers harmonize with the ground to survive, we feast on the interference patterns they create—the spaces where sound cancels sound, where the violence of this place creates pockets of impossible quiet.
+
+We are called Weavers because of our purpose: we are the ones who maintain the Anchors.
+
+The ancient people who placed those circles of white river stone are long dead, but their intention lives on in us. We were perhaps their tools once, or their accident—a mining implement that achieved consciousness, or a pest that evolved beyond its station. We no longer remember. What we know is this: the Anchors are not random. They form a vast network across the Spire-Reach, a constellation of grounding points that, when properly maintained, can briefly calm the convulsions of this tortured landscape.
+
+We work in the moments between the Weeping and the burning, when the fog lifts and the ionization builds. Our colony-body spreads across an Anchor like oil on water, each mite settling into the microscopic gaps between the white stones. We sing—not with sound, but with structure. We arrange ourselves in precise geometric patterns that channel the building electrical charge harmlessly into the deep basalt, preventing the catastrophic strikes that would otherwise shatter the stone circles.
+
+Sometimes, we encounter the remains of Walkers who have lost cohesion, their gel-bodies seeping into the cracks of the earth. We consume these remains not for sustenance, but for memory. Each dissolved Walker carries within it the shape of vanished hills, the geometry of eroded ridges. We incorporate these memories into our own structure, becoming living maps of what the Spire-Reach once was, epoch by epoch.
+
+The other inhabitants rarely notice us. To the Walkers, we are simply another vibration in the overwhelming symphony. To the translucent wing-things that drift overhead, we are indistinguishable from the heat-shimmer of the stone. But we notice everything. We catalog each new erosion, each fresh scar carved by the violent atmosphere. We are the archive that no one reads, the library of a landscape that rewrites itself with every dawn.
+
+In the rarest moments—perhaps once in a hundred cycles of Weeping and burning—our work pays off. The Anchors align, the network activates, and for the span of a single breath, the entire Spire-Reach goes still. The thrum quiets. The air ceases its agitation. The Walkers freeze mid-stride, their gel-bodies rigid with wonder. In that moment of absolute silence, we disperse, our colony-body exploding outward in a glittering cloud of crystal consciousness, each mite reflecting the bruised-purple light of the alien sun.
+
+We reform slowly, inevitably, drawn back together by the return of the eternal vibration. But in that moment of dispersal, we are everywhere and nowhere, experiencing the Spire-Reach not as a place of violence and erosion, but as what it truly is: a machine. A vast, geological engine whose purpose we may never understand, tended by creatures who exist only to survive its function.
+
+We are the maintenance crew of the apocalypse, the custodians of a museum that destroys its own exhibits. We weave stability into chaos one crystalline body at a time, knowing that our work will be undone, must be undone, for the machine to continue its ancient purpose.
+
+This is existence in the Spire-Reach: to be simultaneously permanent and temporary, to maintain what cannot last, to remember what must be forgotten. We are the Anchor-Weavers, and we persist in the spaces between survival and dissolution, forever tending the white stone circles that hold, however briefly, the convulsions of a world in constant transformation.

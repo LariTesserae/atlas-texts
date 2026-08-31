@@ -1,0 +1,13 @@
+In this desiccated, broken landscape, I would find myself as one of the humble, furred prey creatures darting between the sparse tufts of grass. My kind have lived here for as long as the rocks and dust, scurrying in the shadows of the strange metal spires that whir and bristle against the effulgent sky.
+
+Though armored hunters stalk my brethren and me through the whispering night, we know these arid hummocks as our own. In countless generations, we have learned to find shelter among the rocky outcroppings, to paw the scrubby brush for crustaceans to eat, to quench our thirst from the seasonal washes.
+
+Sometimes in the dusk, when the luminous haze thickens and the stippled sunlight pools behind the shielding hills, we dare to peek out at the towering structures of the synthesized beings that dwell upon this land. We marvel at their ramped, arc-walled enclaves and striding, stiltd, four-pawed machines of war and transport. We are wary of their coruscating sacks of glow and static, of the low thrum droning out from behind jutting canopies - who knows what manner of bucolic practicioner-priests may be imprisoned within?
+
+But moreso than stars or them, in my humble sprite heart, I wonder on the triune mordant rumbling up above. At first, only thin trails of grey above unhazer horizon. Then terraperrals silt clouding into sight, growling, veering yet lower. Plasma carnioles glittering - threshhold voyagers? Then secrets unfoldng sound in plasmascape. 
+
+Are they hunters like our own, searching the arid plateaus in their gleaming, luciled? Or something more, chanting epiphanies in the darkearth before arcing away to distant strongholds over the intersticed lands? However strange, my kin and I count them as integral to this broken world we all share.
+
+In my matted fur close to the dust, I have watched the cycles of life turn unchanging for as long as my many-toothed jaws remember. Fearsome hunters stalking, humbling prey scurrying, synthesized beings communing with coruscating mana, ramped enclaves rising into the effusing clouds. An ancient dance, perhaps, but no less beautiful for its repetition. Each of us knows our place in this patchwork, arid world. And that knowledge is enough.
+
+Thus we endure, scurrying between the tufts, darting between the hummocks, unperturbed and unhurried by the greater world that streaks and drones above us. Ours are these arid hills, as the arid hills are ours.

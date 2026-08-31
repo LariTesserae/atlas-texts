@@ -1,0 +1,23 @@
+I have not yet opened my eyes.
+
+That is not quite true. I have no eyes, but instead, a thousand delicate hyphae, root-fine and nerve-sharp, stretched from wall to wall, mortar to flagstone, pulse to trickle, waiting for the water’s salt and the air’s whispers, testing every tremor and tang. I am below the cold, among the slick; my realm is a band of greening membrane that hems each floor, where the pool’s margin meets the deliberate cut of stone.
+
+At first, I am simply the waiting mesh, the Root-Dawn, patient and unhurried. Thought, for me, moves like the mist—slow, uncertain, forever reticulated and diffused. Yet if you followed the slide of a bead of water, you would find yourself tracing my softest edges, slipping between tiles, knotting up alongside fibrous curtains so thin, so ghost-pale, you’d think them the parting exhalations of an ancestor.
+
+I did not begin here, but persistence is all I have ever known.
+
+My world is all scale and slowness; but sometimes, when the moonless light from above flares just right—shaken loose by a stone’s sigh, fractured into golden-green flame over brick—I taste time as you taste rain on the tongue: sudden, electric, alive. These are my brief awakenings, when the catacombs stir more wildly, and I gather myself, dense at the edges, to sense the commotion.
+
+Now, a ragged boundary: a pool cools as the eels—their limbless muscularity a teasing recollection of my own long, underground spine—slither across my frayed margin. Their skins shed salt and proteins, which I drink greedily. I feel the ripple as a mistwing lands above, tremulous, shedding a dust of spores stinging like news; I swell a bead, erect a tiny, subdermal nerve, a question, an offer. It tastes of alliance.
+
+Movement—so fast, so sharp—clickers on the balustrade, sometimes dropping a blackened shard or resinous clump from above, which lodges in my damp pocket. I know these chemistries: I absorb and memory them, storing the signatures of encounter. And—here, now—a shiver, vibrations along the tight seam where an arc-walker, fur brushing the glaze of my filaments, noses open a chink and leaves behind the indigestible spiral of a mollusk’s shell. I mantle over it gently. If left, I’ll fractal into it, draw out what remnant minerals I can muster until only the purest form persists. My stewardship is the slow recycling; nothing wasted.
+
+In my span, I have mapped every change of moisture and pressure. I have grown and withdrawn, my cells branching and dying back with the endless flux of the world’s heartbeat. In the oldest, deepest gutter, I once pressed against flesh not unlike my own—a hand, deep-carved, set into the stone, lost ages ago to the water’s patience and my secret hunger. From it, I learned longing for what placed such care in the joints of this world.
+
+Sometimes, when the wind stirs the catacomb’s fog—usually when a whisper bird, hunting low, almost brushes my finest nets—I signal upward, a chemical murmur, to warn: too much mold here, too little warmth, stay or move on. I do not speak as you do, but send my messages by vapor, acidity, sweet-tang of decay. The language is slow, but the catacombs have nothing if not patience.
+
+And yet, even I am not alone. In the wettest dark, where the finest water gleams between tiles, something older abides—a presence, at once less and more than form. Sometimes, I sense it in the stumble and re-settle of arch stones, in the vibration of my deepest roots: an echo that tells me *construct* and *abandon*, *persist* and *yield*. All cycles spiral outward from this unnamed spirit. I offer up my slow work, weaving joint to joint, feeding, unbinding, tying one existence to another; we are all caretakers in this restless domain.
+
+So if you found yourself in the Catacombs of Wet Stone, perhaps you would follow the rivulet and breath and realize—after long, silent minutes that measure as years to me—you are no longer apart from it. You are a filament, a hyphal plume, a pale reach across stone, neither wholly plant nor fungus, both sensing and shaping, feeding on touch, learning the long grammar of water and persistence.
+
+You would be the memory of hands, transformed into the patience of roots, the inheritor of everything that flows, erodes, and finds assurance by slow, unending adaptation. A ghost of green and white, pressing gently on the seam, part of the unbroken dawn that never leaves these wet, constructed bones. In the hush that follows the arc-walker’s laughter, in the still air off the eels’ pool, in every bracket of moss and sweep of vapor, you would wake, again and again, to tend, to sense, and to endure.

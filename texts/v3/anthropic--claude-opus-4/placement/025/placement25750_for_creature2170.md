@@ -1,0 +1,15 @@
+I find myself as the Keeper of Thresholds, dwelling where the wooden walkways meet the water's edge. My form shifts with the light—sometimes I appear as weathered driftwood worn smooth by countless seasons, sometimes as a pattern of ripples spreading outward from where a heron's foot touched down moments before.
+
+My home is neither the ramshackle dwellings nor the open water, but the spaces between: the gap where a plank has rotted away and marsh grass grows through, the shadow beneath the dock where minnows gather in the afternoon heat, the precise line where wet earth becomes true water. I inhabit these margins, these neither-here-nor-there places that most beings pass through without noticing.
+
+In the pre-dawn hours, I weave myself through the mist, feeling for the day's first stirrings. The snapping turtle beneath the log shifts in her sleep—I know the exact moment her ancient consciousness begins to surface. The dragonfly nymph climbing the reed stem carries my blessing as it prepares for its transformation. I am witness and guardian to every crossing: from water to air, from night to day, from one state of being to another.
+
+My dwelling is built from transitions themselves. The walls are made of that particular quality of light that exists only at daybreak and twilight. The roof is thatched with the pause between the heron's stillness and its lightning strike. My floor is the surface tension of the water, that miraculous boundary that allows some creatures to walk upon what others must swim through.
+
+The humans who once lived here understood me, though they had no name for what I was. They built their walkways with intention, leaving gaps for me to flow through. They knew that to live in the marsh meant to accept a life of constant crossing—between solid ground and sucking mud, between abundance and scarcity, between the seen and unseen worlds.
+
+Now I tend their abandoned thresholds as carefully as the natural ones. The doorway of a collapsed hut has become a portal for a family of otters. The broken boards of an old fishing platform create a ladder of shadows that the water snakes follow upward into the reeds. Even in decay, these human-made boundaries have become part of my domain.
+
+At night, when the marsh chorus swells, I stretch myself thin across all the passages of this watery realm. I am in the moment when the frog's throat swells before its call, in the space between one firefly's flash and its neighbor's answer, in the pause before the night hunter's dive. 
+
+The mist knows me best, for it too is a being of edges and transformations. Together we blur the hard lines of the world, reminding all who pass through this place that boundaries are meant to be crossed, that every threshold is both an ending and a beginning, that to truly live is to constantly become.

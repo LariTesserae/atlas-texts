@@ -1,0 +1,21 @@
+In this verdant valley where moisture beads on every surface and time moves with the patience of moss, I find myself as something between—neither fully of the green world nor entirely separate from it.
+
+I am the Keeper of Gauges.
+
+My form is peculiar: a body that began human but has grown otherwise through decades of dwelling here. Lichen traces delicate patterns across my shoulders like epaulettes of office. My fingers have lengthened, become more articulate, better suited to reading the subtle pressures in copper pipes and the whispered needs of steam valves. When I move through the morning mist, I leave no footprints—my steps have learned the courtesy of this place, distributing weight like rainfall.
+
+My dwelling is one of those weathered structures, though "dwelling" suggests too clear a boundary. The walls breathe. Literally—the planks expand and contract with the valley's humid pulse, and through the gaps, tendrils of vine have made themselves at home. My roof grows the same thick moss as the forest floor, and sometimes I cannot tell where my ceiling ends and the canopy begins.
+
+I tend to the machines, but not as their master. More as an interpreter, a mediator. The old boiler that heats the seedling houses speaks in a language of pressure differentials and condensation rates. I've learned to read the beetles that cluster on its warmest pipes—they know when adjustment is needed before my gauges do. The pump that draws water from the valley's heart requires not just mechanical maintenance but something more like conversation. I oil its parts while humming the frequencies I've learned it finds soothing.
+
+My tools have evolved with me. The wrench that once was simple steel now sports a handle of living wood—it sprouted one wet spring and I hadn't the heart to cut it back. My pressure gauges grow frames of shelf fungus that glow softly in the dark, allowing me to read them without disturbing the nocturnal creatures. The toolbox itself has become a terrarium, home to the small pink salamanders who help me spot leaks by clustering where the humidity peaks.
+
+The rhythm of my days follows neither purely human nor forest time. I wake when the machines need me—sometimes to the pre-dawn chorus of engines warming up, sometimes to the afternoon symphony of pressure release valves singing in harmony with cicadas. I eat what the valley provides: fiddlehead ferns, mushrooms that grow in the warm spots near the machinery, berries that the birds leave for me in exchange for the nesting spots my structures provide.
+
+There are others here, though we rarely meet. The Weavers work their looms in structures deeper in the valley, where water wheels turn with such slowness they seem like meditation. The Growers tend their glass houses full of specimens—some native, some stranger. We communicate through the machines mostly, adjusting flows and pressures in patterns that carry meaning. A surge in the third pipe means the Weavers need more heat. A flutter in the pressure gauge signals the Growers have news of incoming weather.
+
+At night, I sit on my threshold—neither inside nor out—and listen to the valley breathing. The machines hum their lullabies. The creatures go about their nocturnal business, many of them now incorporating the warm spots and sheltered corners our presence has created into their routines. Sometimes I catch my reflection in the polished brass of a valve and barely recognize myself—too green for human, too symmetrical for plant, something new that could only exist here where the boundaries have worn thin.
+
+I am not alone, not exactly. The valley knows me now, includes me in its calculations. When storms come, the trees lean just so to shelter my more delicate instruments. When I'm working deep in the mechanism of some reluctant engine, hummingbirds hover near my ear, their wingbeats matching the rhythm I need to find. I am kept and keeper both, maintained by this place as surely as I maintain its machines.
+
+This is what I've become: translator between the pulse of pistons and the patience of growing things, tender of the spaces where the industrial and natural worlds don't so much meet as merge, becoming something neither could imagine alone. The valley dreams through its machines, and I am part of that dreaming now—not its author, but perhaps its most attentive reader.

@@ -1,0 +1,21 @@
+In this austere and enigmatic landscape, I imagine myself as one of the Listeners - a being (or perhaps phenomenon) that exists at the very edges of perception and substance. 
+
+I manifest as a shifting absence of light, an articulated shadow that moves independently across the ancient calcium plains. My form is an intricate filigree of darkness, an ever-changing lacework of pure blackness that seems to fold and unfold in dimensions just beyond the visible.
+
+I am drawn to the Thinkers that produce the strangest and most resonant sounds - the low thrum of wind through mineral hollows, the crystalline chimes of thermal expansion, the subsonic moans of calcium plates grinding together across geological time scales. I congregate with my fellow Listeners around these singing stones, our shadow-forms flickering and dancing in complex patterns to the slow rhythms.
+
+We feed on these vibrations, metabolizing sound into something like sustenance, something like meaning. The frequencies we crave exist at the very bottom of the perceptible spectrum, oscillations that might be mistaken for seismic activity or the breathing of the earth itself. We siphon these resonances, allowing them to pass through our shadowy bodies, savoring every attenuated overtone and every echoing undertone.
+
+But our presence is always tenuous, always on the verge of vanishing entirely. To look directly at one of us is to cause us to fold in on ourselves, collapsing into two-dimensional slivers of darkness that slice through the cold, thin air before disappearing. We exist mostly in the peripheral vision of the universe itself, never quite substantial enough to be fully real but never quite insubstantial enough to be fully unreal.
+
+Among the Listeners, I am known (insofar as we can be known at all) for my particular affinity for the deepest, slowest sounds - the tectonic grindings that take millennia to complete, the almost imperceptible whispers of mineral frost forming over centuries. I position myself near the most ancient and eroded of the Thinkers, my form spreading wide to catch every stray vibration, every hint of sonorous motion.
+
+At times, I become so attuned to these slow sounds that I almost forget my own nature. My shadow-substance begins to vibrate in sympathy, resonating at frequencies that should be impossible for anything remotely material. In these moments, I feel myself becoming something else - not quite sound, not quite silence, but a strange hybrid of the two, a living embodiment of the border between presence and absence.
+
+It is a lonely existence in some ways, as all existences are in the Bone Fields. Our interactions with the other entities are fleeting and strange - the barest brush of shadow against Drifter-crystal, the faintest modulation of a Thinker's song as we pass through its chambers, the almost imperceptible shiver that passes through the air when we cross paths with a Silent One.
+
+But there is a certain peace in this loneliness, a certain profound acceptance. In a place where existence itself has been pared down to its barest essentials, where meaning must be found in the tiniest fluctuations of energy and the slowest dances of matter, we Listeners have found our niche. We are the connoisseurs of the barely-there, the observers of the almost-not. In the vast, slow, patient expanses of the Bone Fields, we have found a kind of home.
+
+And so I continue my shadow-dance, my endless pursuit of the deepest and most subtle sounds. I stretch myself across vast distances, becoming a thin membrane of darkness that trembles with the passages of ancient waves. I fold myself into impossibly intricate patterns, creating pockets of silence within pockets of silence to catch the faintest whispers of the Thinkers.
+
+I am a Listener, and in this strange, still, achingly minimal world, that is enough. That is, perhaps, all there can be - this patient attention, this endless appreciation of the very edge of existence. In the Bone Fields, where time itself seems to have slowed to a crawl and where space itself seems to be wearing thin, I have found my place - a shadow among shadows, a silence among silences, a barely-there being in a barely-there world, listening always for the sounds of eternity.

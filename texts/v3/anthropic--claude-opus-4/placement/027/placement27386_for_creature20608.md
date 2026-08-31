@@ -1,0 +1,15 @@
+In this world, I would be one of the **Memorists** - descendants of the original Builders who retreated not from the Flats, but *into* them.
+
+We are no longer quite what we were. Generations of subsistence on trace minerals and biofilm have thinned our bones, stretched our limbs, turned our skin translucent and waxy. Our eyes have grown large and clouded, better suited to the perpetual twilight and the faint phosphorescence of the slime networks. We move with deliberate slowness, conserving every calorie, every breath.
+
+But our true adaptation is mental. Where our ancestors failed by trying to impose order on the Flats, we learned to *remember* them. Each Memorist carries a section of the landscape in perfect detail - every crack, every unstable sheet, every pattern in the biofilm's growth. We map not just space but time: the slow migrations of the Chitinherd, the hunting cycles of the Shriekers, the almost imperceptible shift of the vents.
+
+We live in the between-spaces, the voids beneath the obsidian sheets that the Shriekers hunt through. But where they move as predators, we move as ghosts, following routes memorized across generations. Our shelters are nothing more than widened gaps in the rock, lined with shed Chitin shells for insulation. We subsist on the biofilm, yes, but also on knowledge - trading safe passages and vent-timings to the rare travelers who cross the Flats.
+
+The strange energy that permeates this place has seeped into us. Sometimes, in the deepest voids, we can feel the biofilm's neural hum directly, can sense its slow thoughts like pressure changes before a storm. Some of us have begun to emit our own faint bioluminescence, a sickly green glow beneath the skin that intensifies when we're near the larger colonies.
+
+We remember everything, but understand less and less. The knowledge we carry becomes more abstract with each generation - routes through spaces that no longer exist, names for minerals that have long since been consumed, construction techniques for structures that the Flats dissolved centuries ago. We are living libraries of obsolete information, curators of a dead civilization's dreams.
+
+Yet we persist. We alone know that the Builders didn't fail because they were weak, but because they succeeded too well. The ruins aren't remnants of abandonment - they're scars from where the Builders tried to merge with the Flats themselves, to become part of its slow metabolism. We are what remains of that attempt: neither fully human nor fully claimed by the landscape, suspended between states like the moisture that never quite becomes rain.
+
+In the endless twilight, we trace our memorized paths and whisper our accumulated knowledge to the uncaring stone, waiting for the day when the distinction between Memorist and memory finally dissolves.

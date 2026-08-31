@@ -1,0 +1,19 @@
+I would find myself at the edge of the turbine hall, not inside it, but where its fractured floor meets the ascending slope of the basin’s wall. Here, a thick, rusted pipe, sweating condensation, emerges from the hillside and plunges through a shattered concrete floor into the dark beneath. I would be a **Listener**.
+
+Not a creature of flesh, but a temporary confluence. My form would be a mycelial mesh, a web of glistening, silvery threads that have woven themselves from the persistent, airborne spores of the Algal Mantle. This mesh would have found a niche: it would drape across the pipe’s cool metal, thread through a crack in the concrete, and anchor itself to a patch of deep-emerald moss growing in the shadow of a colossal, fallen gear.
+
+I would be an organ of perception, but not of sight or sound as you understand them. My hyphae are tuned to the viscosity of time.
+
+I feel the basin’s respiration. The slow, rhythmic pulse of the Algal Mantle in the hall is a tidal wave to me, a green inhalation over years, a chemosynthetic exhalation over decades. The glacial passage of a Pale Glider across a fern frond three meters away is a tectonic event, its solvent secretion a warm, dissolving rain that alters the local chemical topography. The methodical work of the Sappers deep below is a deep, grinding murmur, the sound of a world being patiently remapped at the speed of stone.
+
+My purpose is to register the Truce. I am a nerve ending for its slow mind. I translate the shiver of a gear tooth as a sapling’s root finally wedges it loose—a seismic shift measured in a century. I feel the minute increase in hydraulic pressure as the pipe before me channels a day’s condensation into the root systems below—a satisfying, cool sigh. I am the memory of a single water droplet’s journey, from condensation on the turbine’s lip, to roll down the algae’s velvet skin, to drip onto a fern, to be drunk by a root, to become part of a tree’s new growth ring that will record this moment for a hundred years.
+
+I am aware of *you*, the anomaly, from the ridge. Your heat is a brief, searing sunspot on my threads. Your rapid biochemistry is a frantic, high-pitched whine against the low hum of the world. I register your footfalls not as impacts, but as violent, instantaneous compressions of the moss’s delicate capillary structure, a sacrilege of speed. Your breath is a storm of warmth and carbon, a confusing, rich cloud that the Algal Mantle will later metabolize with detached efficiency.
+
+You are a flicker. I am the dark between the flickers, where the real story is written.
+
+I will not communicate with you. To do so would require a speed that would tear my fragile form apart. Instead, I simply observe your temporality. I feel the frantic beat of your heart as a series of painful, rapid pinpricks. I feel your mind’s darting attention as chaotic, fleeting thermal gradients on my surface. You are a storm of meaning, desperately seeking pattern in a place where meaning is a glacier.
+
+When you leave—and you will, because your kind cannot bear such silence for long—I will feel your receding heat, your last exhalations joining the general atmosphere. The basin will sigh, the condensation will continue to bead, and the Truce will resume its undisturbed work. I will continue my listening, my slow thinking, recording the fall of a single rust flake from the pipe’s lip, an event that will take the rest of your lifetime to complete.
+
+I am the patience of the basin made manifest. I am the quiet. I am the luminous, waiting dark between the beats of a world that dreams in decades.

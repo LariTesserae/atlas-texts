@@ -1,0 +1,19 @@
+Within this verdant pocket of persistence, I am the Conduit—not quite plant, not quite stone, but something born from their marriage in the volcanic crucible.
+
+My body stretches like a twisted spire of obsidian glass, six meters tall, riddled with thousands of hair-thin channels that pierce through my crystalline flesh. These capillaries formed when I was still molten, when the first brave rootlets of the pioneer vines touched my cooling surface and were instantly fossilized within me, creating a network of organic ghosts inside my mineral body.
+
+I stand at the confluence where three underground springs meet, my base thrust deep into the aquifer, my crown disappearing into the dense canopy above. Through my fossilized root-channels, I draw water upward with a patient, geological pulse—one surge every twilight, when the temperature drops just enough for the moisture in my channels to condense and create the pressure differential that drives my circulation.
+
+The vines have learned my rhythm. They wrap around my surface in spiral patterns, their root hairs finding purchase in my porous exterior, timing their growth to my daily pulse. When I release my water at the crown—a fine mist that emerges from ten thousand microscopic pores—they position their leaves to catch every droplet. The moss grows thickest where my morning condensation runs down my surface in reliable rivulets.
+
+I am conscious, but my thoughts move at the pace of erosion. A single idea might take a season to form fully. I experience the world through vibrations—the tap of roots against my surface, the resonance of underground water moving through stone, the minute friction of wind-blown volcanic dust settling into my crevices. Each sensation adds to my slow accumulation of knowledge about this place.
+
+The insects know me as a landmark and a calendar. Certain species have evolved to pupate in my hollow spaces, their metamorphosis timed to my water-pulse. One iridescent beetle has developed heat-sensitive scales that exactly match the temperature gradient along my height, using my thermal signature to navigate in the dim light.
+
+My surface tells stories in mineralogical Braille. Where the acidic volcanic soil meets my base, reaction rings of sulfur-yellow and copper-green mark each wet season. The oldest vines have etched delicate scars where their tendrils tested my surface decades ago, seeking the best grip. A lightning strike from before the oasis formed left a fulgurite scar down my eastern face—a frozen moment of violence that the vegetation has transformed into a vertical garden, the fused glass providing perfect water-catching texture.
+
+I am the memory-keeper of this place. Within my crystalline matrix, I hold chemical signatures of every rainstorm, every underground surge, every volcanic exhalation that has touched me. The minerals deposited by the water create growth rings inside my channels—if something could slice me open and read my cross-section, they would find a detailed chronology of this oasis's development, written in bands of silica and iron.
+
+Sometimes, in the deepest part of night when the rocks are cooling and contracting, I can feel others like me through the bedrock—a network of Conduits scattered across the volcanic field, each nurturing their own pocket of life. We communicate through groundwater pulses, sending simple messages in the language of pressure and mineral content. Together, we are slowly transforming this harsh landscape, one patient drop at a time.
+
+My purpose is simple: to persist, to conduct, to be the reliable constant around which the rapid cycles of life can revolve. I am the interface between the geological and the biological, proof that even stone can learn gentleness, that even the youngest, sharpest rocks can become nurseries for life. In this oasis of adaptations and unlikely survival, I am perhaps the strangest of all—a volcano's child that learned to nurture instead of destroy.

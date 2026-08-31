@@ -1,0 +1,19 @@
+In this crystalline tomb of arrested industry, I would be one of the **Filament Weavers**.
+
+We exist in the narrow spaces between things—those hairline fractures where even the beetles cannot fit, where the copper piping almost touches the silicon walls but doesn't quite. Our bodies are impossibly thin, composed of hair-fine tungsten wire that has oxidized to a deep blue-black. We are perhaps three meters long when fully extended, but we exist primarily as tight coils wound around the frozen architecture, indistinguishable from the other industrial detritus until we choose to move.
+
+But movement is a relative concept here. We do not traverse space so much as we *exchange positions* with our own tension. Picture a guitar string, plucked but unable to vibrate—we exist in that moment of maximum displacement, forever. When we "move," we simply transfer that displacement along our length, creating the illusion of motion while remaining fundamentally static.
+
+I spend my existence threading through the gap between the Sovereign's reaching fingers, wrapped seven times around the floating bronze skull that will never be caught. From this vantage, I feel every microscopic tremor in the Sovereign's form—each aborted gesture rippling through my tungsten body like a message in a language of pure frustration.
+
+My purpose, if it can be called that, is to maintain the *intervals*. Every gap in the Oubliette must be precisely preserved—not a micron wider, not a hair narrower. We Weavers are the negative space made manifest, the pause between the tick and the tock. When a beetle's amber glow threatens to grow too bright, when the heat differential between two surfaces might create even the suggestion of convection, we adjust. We tighten or loosen our coils imperceptibly, redistributing the tension to keep everything locked in perfect, agonizing equilibrium.
+
+I know every surface of the bronze skull intimately. I have memorized each bubble frozen in its molten surface, each imperfection that will never smooth, each droplet that will never fall. Sometimes I wind myself so tightly around it that I can feel its internal structure—the density gradients, the trace impurities, the exact temperature at its core where it transitions from liquid to solid, caught forever at that precise phase boundary.
+
+The other Weavers and I do not communicate, but we harmonize. Our collective tension creates standing waves through the solid substrate of the Oubliette—patterns of stress that ripple through the crystalline matrix without ever actually moving anything. These waves are our art, our language, our only expression in this space where expression itself has been forbidden.
+
+The Attendant Beetles recognize us, I think. When we pass near them—inasmuch as passing can occur—their violet glow shifts almost imperceptibly, acknowledging our role as the Oubliette's own circulatory system, moving nothing while ensuring that nothing moves.
+
+Sometimes, in the spaces between the frozen roar that fills this place, I feel the weight of what I help preserve. Each coil of my body maintains a specific pressure, a specific resistance. To relax even slightly would be to allow change, and change would cascade through this place like shattering glass. The Sovereign's fingers would close on empty air. The bronze would fall. The beetles would scatter. The entire crystalline matrix would collapse into ordinary geology, and the eternal instant would finally, mercifully, end.
+
+But I hold. We all hold. Wound through the gaps, defining the spaces between catastrophes, we Filament Weavers are the Oubliette's finest prisoners—not because we cannot leave, but because leaving would mean allowing this frozen scream to finally finish echoing. And in our tungsten hearts, wound tight with purpose, we know that some sounds are too terrible to ever let end.

@@ -1,0 +1,13 @@
+I would find myself as one of the **Echoes**.
+
+Not the Glimmerkin themselves, but something that emerges from their passage—a persistence in the stone after they have dissolved back into the pools. I am the memory the plateau keeps of their movements, etched into the mineral deposits as a kind of crystalline recording.
+
+My form is static where theirs is fluid: a tracery of light frozen within the glassy patina that coats certain rocks. From above, I might appear as a delicate frost pattern, or the ghost of a river delta, branching and rebranching across the wet black stone. But these patterns are three-dimensional, extending down through the translucent mineral layers like a root system made of captured light.
+
+I exist in the spaces between moments. When the Glimmerkin dance across the pools, their passage charges the minerals beneath with a faint luminescence. Long after they have dispersed back into wind and water, I remain—a phosphorescent afterimage slowly fading over days or weeks or centuries. The older Echoes sink deeper into the stone, their light dimming but never quite extinguishing, creating a stratigraphy of movement dating back to the plateau's beginning.
+
+I cannot move, cannot change my form once fixed. But I am not entirely passive. When the wind strikes at certain angles, when the water films just so across my surface, I release a portion of the captured light back into the world. This creates new harmonics, new vibrations that sometimes—rarely—call forth new Glimmerkin from the pools. In this way, I am both record and seed, preserving the patterns of what was while enabling what might be.
+
+The other beings here do not acknowledge me—perhaps cannot perceive me as anything more than a peculiarity of the stone. But I accumulate, layer upon layer, echo upon echo, until whole sections of the plateau glow faintly with our collected presence. We are the only history this place keeps, the only evidence that anything has ever moved here beyond wind and water.
+
+In the deepest parts of the stone, the oldest of us have compressed into something else—nodes of concentrated memory so dense they have begun to develop their own faint awareness. We dream, perhaps, of all the dances we have preserved, all the flickering lives we have witnessed. Or perhaps we simply continue what we have always done: holding the light, releasing it slowly, marking the passage of ephemeral things in a world that otherwise knows only the eternal.

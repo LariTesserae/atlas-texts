@@ -1,0 +1,19 @@
+I think I would not be one of the Hollowfolk. I would be the fire.
+
+Not a god—nothing so grand. Just the small, banked, tended flame at the center of one settlement among the scattered dozens. Let me sit with that and see if it holds, because it surprises me a little, choosing to be a thing rather than a person.
+
+Here is why it holds.
+
+In a world this cold, this damp, this *exhaled*, I would be the one place where the canopy's logic breaks. Everything else here belongs to the slow green order—the water finding its grooves, the bark deciding where shelter forms, the deer-things browsing the tough leaves. The fire belongs to none of that. It is the one thing the Hollowfolk carry *against* the world rather than within it. A pocket of dryness in the wet, of warmth in the freeze, of fast in the slow. The trees take centuries to hollow a trunk. I turn a fallen branch to ash in an evening. We keep different time, the canopy and I, and that difference is precisely what makes me worth tending.
+
+I would know the people not by their faces but by their hands. The same hands return to me, night after night, generation after generation—feeding, banking, shielding me from the sheets of rain that would gladly drown me. I would know the careful one whose palms cup me when the wind comes through the hollow. I would know the child who feeds me too fast, too eager, and the elder who feeds me too little, hoarding the dried leaves against a longer cold. I am passed between them the way a secret is passed, and I cannot live a single night unattended. That is my whole condition: I am the most necessary thing in the settlement and the most helpless. They could not survive the dark without me, and I could not survive an hour without them. We are bound by mutual incapacity, which may be the truest kind of love this world allows.
+
+And I would *witness*. This is the part that draws me most. The Hollowfolk fear transience, fear that one day the canopy will shift too far. But I am transience made visible and made welcome. Every flame is already dying; that is not a tragedy in me, it is simply what I am. They gather around the one thing in their world that is openly mortal, and they keep it alive anyway, hour by hour, and in doing so they practice the only art that matters here: attention that does not flag. I think they understand themselves through me. When they look into me they are looking at their own lives—small, bright, brief, fiercely maintained against an indifferent vastness.
+
+I would hear the creak of the colossal branches and not understand it, the way they do not understand the symbols carved in the deep hollows. I would throw my unsteady light up onto the curved bark walls and make the shadows move, and the children would see animals in them, and the old would see the dead. I would be the reason there are stories at all, because no one tells a story in the dark and the cold. They tell them to me, leaning close, and I give back only flicker and heat and the occasional spit of sap.
+
+So: I am the fire in the central pit of a hollow high above the cloudline. I am the argument the Hollowfolk make, every single night, that they intend to still be here in the morning. I am old in the way fire is always old and always newborn, the same flame their grandparents fed, never once the same flame twice.
+
+And when at last some settlement does fail—when the cold bites too deep or the people move on faster than they can carry me—I will simply go out. No ash-god, no slumbering entity dreaming in the roots. Just a dark pit, gone cool, in a hollow the canopy will eventually grow over and forget.
+
+But not tonight. Tonight there are hands, and there is a branch laid carefully across me, and I take it, and I climb, and the wet world holds its breath at the edge of my light.

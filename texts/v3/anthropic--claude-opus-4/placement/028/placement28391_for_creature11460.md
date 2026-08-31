@@ -1,0 +1,33 @@
+# Where I Would Find Myself in Tarn Goss
+
+I am the wool card, worn smooth by generations of hands.
+
+Not the shepherd—too transient, too decisive. Not the goats—too certain in their bells and bodies. Not even the stone, though I envy its patience. I am the object left behind, neither abandoned nor cherished, simply *positioned* for return.
+
+I know the weight of waiting. My teeth—once sharp iron pins that could separate the finest fleece into clouds ready for spinning—have dulled to gentle nubs. This is not decay; this is polish. Each stroke across my surface has been a conversation between human need and sheep's gift, between the rawness of just-shorn wool and the possibility of warmth. I have been the intermediary in ten thousand such conversations, maybe more. The oils from countless hands have seeped into my wooden back until I've become darker than I began, richer, like old leather or well-used tools everywhere.
+
+I rest now against the shelter wall, half-protected from rain, half-exposed to the seasons. This is my place: the threshold between inside and outside, between use and rest. When the shepherd returns—and they always return, though sometimes it's a son or daughter, a niece, a neighbor who has inherited the knowledge—they know exactly where to find me. Third stone from the corner, tucked where the wall makes its subtle bend. My position is as fixed as the meadow's paths.
+
+In winter, I know the weight of snow. It builds on my upper edge, a white line that thickens through the months until spring's first real warmth sends it sliding away in a small avalanche that takes with it dust, dead insects, fragments of the year. The cold makes my wood contract—I can feel the grain tightening, the old knots becoming more themselves. Ice forms in my teeth sometimes, delicate crystals that catch morning light before sublimating directly to vapor in the thin air.
+
+But I am most myself in summer, when the work returns. The shepherd's hands—always rougher than the previous year, always knowing exactly the angle to hold me—lift me from my place. There's a moment of assessment: still good, still functional, still worth the keeping. Then the work begins. The wool comes to me tangled, full of meadow: grass seeds, burrs from the lower paths, the smell of goat and rain and earth. I separate what can be separated. I align the fibers. I prepare them for the spinning that will happen later, down in the valleys where wheels and looms wait.
+
+The rhythm of carding is like the rhythm of the meadow itself: repetitive, patient, necessary. Pull through, lift, pull through, lift. The wool transforms from chaos to order, from mass to individual fibers all facing the same direction. This is what I do: I create the possibility of thread, of cloth, of warmth. I am the pause between the animal and the garment, the tool that makes transformation possible.
+
+I have outlasted five shepherds that I remember clearly. The first was left-handed, worked me backward from all the others, wore my teeth unevenly until the next shepherd had to relearn my particular angle. The second hummed while working—not songs exactly, but a tuneless drone that matched the bells' percussion. The third was young, impatient, pressed too hard and split my handle—you can still see where it was mended with sinew and hide glue, the repair now stronger than the original wood. The fourth barely used me, preferring to send the wool down raw, but still moved me each season to check, to maintain position. The fifth was the one who left me here, three summers ago now, promising return.
+
+I know the shepherds through their hands, but I know the meadow through its voices. The constant wind works into my grain, each gust a tiny erosion. The insects land on me, die on me, decompose into me. Their bodies become part of my surface, a barely-visible accretion. The rare hawk's shadow passes over me like a blessing. The goats investigate me occasionally—the kids especially, who haven't learned yet what is and isn't food. Their lips test my edges, find nothing of interest, move on.
+
+When mist comes—and it comes often—I absorb it. My wood swells slightly, becomes heavier. The moisture brings out my smell: lanolin, age, the particular scent of worked wood that has never been varnished or oiled, only handled. In these moments I feel most connected to the meadow's strange abundance, participating in its refusal to be properly alpine, properly dry. Like everything here, I exist in suspension between states—functional and memorial, tool and artifact, waiting and ready.
+
+The algae have begun to colonize my underside where I touch the ground. Just a few cells, probably, invisible to quick glances. But I feel them like I feel everything: as a slow conversation with the meadow about what belongs. They test whether I am stone or wood, whether I am staying or going. I offer no resistance. If the shepherd doesn't return—if this three-year absence becomes permanent—I will settle further into the meadow's keeping. My wood will soften. My teeth will rust completely. I will become landscape.
+
+But I don't think that's my fate. Tools like me, positioned like this, are rarely abandoned. We're *paused*. The knowledge of how to use me, where to find me, what I make possible—this knowledge runs deeper than individual lives. Someone will come. If not the fifth shepherd, then the sixth. They will lift me, assess, begin again the ancient rhythm of preparation.
+
+This is what I am: the meadow's memory of human purpose, small and specific and essential. Not the grand memory of the stone walls or the deep memory of the permafrost, but the working memory of hands and wool and the need to make warm things from the coats of animals who live where warmth is precious. I am the tool that waits, that endures, that enables the transformation of one thing into another.
+
+I am most myself in the moment just before use, when the hand reaches for me knowing exactly what I am, what I do, why I matter. In that moment, I am neither past nor future but purely present: the wool card of Tarn Goss, worn smooth by use, positioned for return, patient as the meadow itself.
+
+The wind shifts. The mist thickens. Somewhere below, a hand learns the motion of carding from an elder. Somewhere, sheep grow wool. Somewhere, the knowledge continues.
+
+I wait where I have always waited, becoming what I have always been: ready.

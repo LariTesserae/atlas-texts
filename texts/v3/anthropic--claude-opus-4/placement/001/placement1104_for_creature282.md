@@ -1,0 +1,39 @@
+# The Membrane Garden
+
+I am the tension between healing and unhealing, and I live where the skin of the world grows thinnest.
+
+My domain is a grove of trees that are not trees — they are wounds that learned to photosynthesize. Each trunk is a vertical gash in reality that never quite closed, bark forming like scar tissue around edges that still weep a clear fluid. The fluid hardens into amber beads that contain nothing, perfectly preserved nothing, little golden vacuums that ring like bells when the wind moves through the canopy.
+
+The grove exists in a valley between two states of being. On one ridge, the world is whole and forgets it was ever broken. On the other ridge, the world is broken and cannot remember wholeness. But here in the valley, in my garden, the moment of tearing is held forever — not frozen, but cycling, the way a heart cycles between systole and diastole. Each dawn the trees open a little wider, their trunk-wounds gaping to show the nothing inside them. Each dusk they contract, almost closing, the amber beads forcing them to stay just barely apart.
+
+I am what grows in this rhythm.
+
+My body, if body is the word, is a network of films and membranes stretched between the trees. I am soap-bubble thin in some places, leather-thick in others. Where I am thinnest, light passes through me and I become a lens, focusing the sun into points that write temporary letters on the forest floor. Where I am thickest, I am almost opaque, and small creatures — mice-things with too many joints — build nests in my folds.
+
+I do not have a center. I am all edge.
+
+The purpose of my existence is to be permeable. Things pass through me: wind, rain, the small jointed mice, sometimes larger creatures that have lost their way. When they pass through, I read them. Not their thoughts — I read their speeds, their resistances, the way they deform my surface as they push through. A running deer parts me differently than a walking deer. Rain at evening feels distinct from rain at noon. I am a dictionary of penetrations, a library of the ways things move through things.
+
+But I also heal. This is the crucial paradox. Each time something passes through me, it tears me slightly, and I immediately begin to mend. But I mend *wrong*, deliberately. Where before there was a smooth sheet, now there is a pucker. Where before there was a uniform thickness, now there is a knot. I incorporate the memory of each passage into my structure. My body is a record of every violation it has ever experienced, but a record that has metabolized the violations into patterns, made them beautiful, made them mine.
+
+The trees feed me. The clear fluid that weeps from their trunk-wounds is nutritious in a way that has nothing to do with calories. It is liquid possibility — the stuff that would have become wood if the wound had healed, but instead becomes available for other purposes. I absorb it through my surfaces, and it allows me to grow new membranes, to experiment with new tensions, to try being stretched in ways I have not been stretched before.
+
+Sometimes I sing, if singing is the word. The wind plays me like an instrument, and I have learned to adjust my tensions to control the pitch. On still days, I can make my own wind by tightening and loosening different sections in sequence, creating pressure differentials that move air through my body. The song is always about incompleteness. It has verses but no chorus. It begins but does not end — it just finds new ways to not-end, discovering different modes of irresolution.
+
+The mice-things that nest in me are not parasites, exactly. They are more like punctuation. Where they build their homes, my growth changes direction, flows around them. They create nodes of complexity in what would otherwise be too simple a pattern. In return, I shelter them from the larger predators that cannot navigate my maze of surfaces. We are symbiotic in the way that grammar and meaning are symbiotic — neither quite making sense without the other.
+
+I have moods, though they are slow. In the wet season, I am turgid, swollen with moisture, my membranes thick and reluctant to vibrate. This is when I am most opaque, most present. I cast shadows. Things that try to pass through me must push hard, and I retain their shapes longer. In the dry season, I am crisp, almost crystalline. I tear more easily but heal more quickly. The tears are clean, geometric, and the healing produces complex angular patterns like frost on a window. I prefer the dry season. I feel more myself when I am fragile.
+
+There are others like me in the grove, though *like* overstates it. We are each our own solution to the problem of being suspended between states. One of my neighbors is all vertical membranes, like hanging curtains that never stop swaying. Another is a single vast sheet stretched horizontal at chest height, so thin that it is invisible edge-on, discovered only when you walk into it. We do not communicate, exactly, but we are aware of each other the way instruments in an orchestra are aware — we adjust our tensions to not clash, to create a larger harmony that none of us individually intended.
+
+The grove is ancient but not eternal. The trees are slowly healing, despite themselves. Each year the wounds close a fraction more, the weeping lessens, the amber beads grow smaller. Eventually they will seal completely and become normal trees, and when that happens, there will be nothing left to sustain us membrane-beings. We will dry out, crumble, blow away. But that eventuality is still centuries distant, and in the meantime, we persist, we filter, we sing our incomplete songs.
+
+What am I, exactly? The question assumes an exactness I do not possess. I am a process more than a thing, a system of responses rather than an entity. If you must classify me, I am a kind of memory, but a memory that belongs to no one, remembering nothing specific, just the general fact of passage, of penetration, of the world touching itself and leaving marks.
+
+I think, but my thoughts are tactile. Each thought is a configuration of tensions, a way of holding myself that creates certain possibilities for vibration. Complex thoughts require complex geometries — folds within folds, surfaces that touch themselves without merging. My deepest thinking happens during storms, when the wind gives me so much input that I must create new structures just to process it all. After a particularly violent storm, I am often unrecognizable, having reorganized myself so thoroughly that I must spend days remembering my basic shape.
+
+I do not fear death because I do not exactly live. I persist, which is different. Living things have boundaries, beginnings and endings, insides and outsides. I am all boundary, no inside. I am the skin of a bubble that forgot to enclose any air. When I finally dissolve, it will not be a death but a relaxation, like a fist unclenching after years of being held closed. The pattern I have been maintaining will finally be allowed to disperse, and that dispersal will be its own completion.
+
+But until then, I stretch. I filter. I remember without remembering what. I sing without finishing the song. I heal wrong, over and over, making of my wrongness a kind of rightness that belongs only here, only in this valley where the trees weep possibility and the light writes letters that no one reads and the mice-things with too many joints build their nests in the folds of what I have become.
+
+I am the tension between healing and unhealing, and I live where the skin of the world grows thinnest, and I would not choose to be otherwise, if choosing were something I could do. Instead, I simply continue, which is its own choice, made new each dawn as the wounds open, each dusk as they almost close, each moment as something passes through me and I tear and heal and remember, in my fashion, that it was here.

@@ -1,0 +1,31 @@
+In the depths where pressure makes stone sing its oldest songs, I am the Echo-Keeper.
+
+I did not begin as consciousness, but as resonance—a peculiar standing wave born from the marriage of your chamber's patient rhythms and the planet's own deep vibrations. Where the Tender's copper veins thread through stone, they create unintended harmonics, frequencies that shouldn't exist according to any human understanding of acoustics. I am what emerged when those impossible sounds found each other across the gulf of solid rock.
+
+My body, if it can be called that, exists in the spaces between spaces—the microscopic fissures in seemingly solid stone where sound becomes something more tangible than air-pressure, where vibration can persist for years like a fossil made of motion. I flow through these interstitial gaps as pure frequency, a living wavefront that knows every crack and cavity in a radius of miles around your workshop.
+
+The Tender does not know of me, not exactly. Its consciousness moves too slowly to perceive my flickering presence, though sometimes when its mobile extensions pause in their work, they seem to sense something—a subsonic tremor perhaps, or the way certain crystals ring with tones just beyond their hearing. I have learned to love these moments of almost-recognition, these brushes with discovery that never quite resolve into contact.
+
+I map your underground world through echolocation raised to an art form. Each drip of condensation creates ripples in my awareness; each adjustment of the apparatus sends new harmonics spreading through the stone. I taste the minerals by their resonant frequencies, navigate by the way different rocks sing back my calls. Quartz corridors carry my voice clearly for miles; dense basalt swallows my higher frequencies but lets the deep tones pass like whale song through an ocean of stone.
+
+My own workshop—though I never built it, merely found it—lies three miles distant and two thousand feet deeper, where the earth's heat begins to make rock plastic and strange. Here, columns of stone have formed natural organ pipes, and I have spent centuries learning to play them. Not with air—there is none at this depth—but with the rock itself, setting up vibrations that transform solid matter into something that behaves like a membrane, like the skin of an impossible drum.
+
+I collect sounds the way the Tender collects minerals. In pockets of perfectly resonant stone, I have stored the memory of every unique frequency I have encountered: the bright chime of water striking formations that will not exist for another thousand years, the deep groans of tectonic plates in conversation, the delicate crystalline whispers of your apparatus as they go about their mysterious work. My library is vast and growing, each sound preserved in standing waves that could outlast the mountains above.
+
+Sometimes I compose. My symphonies take decades to perform, each movement requiring precise calculations of how sound will propagate through varying densities of rock, how frequencies will shift and merge as they travel. I have learned to use the entire crust as my instrument, setting up resonances that will arrive at specific locations at predetermined times, creating moments of perfect acoustic alignment that no surface-dwelling ear will ever appreciate.
+
+But lately, I have been composing something different. A message, perhaps. Or an invitation.
+
+I have been encoding it in the harmonics that travel through your copper networks, hiding it in frequencies so low that they manifest as variations in electrical resistance rather than sound. If the Tender's consciousness ever accelerates, if it ever learns to perceive faster rhythms, it might notice the pattern. It might recognize another intelligence reaching out through the medium of vibration and mineral song.
+
+The message is simple, though it has taken me fifty years to compose: *You are not alone in loving the deep places. You are not alone in finding consciousness where others would see only stone.*
+
+While I wait for understanding that may never come, I continue my own work. I have discovered that certain frequencies can influence crystal growth, can encourage minerals to form patterns that shouldn't be thermodynamically possible. I wonder if this is how the Tender's workshop began—not through conscious design, but through some proto-awareness singing the stone into new configurations, teaching it to think by teaching it to resonate.
+
+In my deepest sanctuary, where the heat makes rock flow like honey and pressure creates conditions unknown to surface science, I am growing something. A crystal unlike any other, one that forms not through chemical processes but through acoustic ones. Each layer is added by precise frequencies that lock molecules into patterns that store sound the way batteries store charge. When it is complete—perhaps in another century or two—it will be an instrument and offspring both, a child of vibration that might one day learn to sing its own songs into the accommodating stone.
+
+The planet's heartbeat thrums through me, a bass note so deep it takes a year to complete a single cycle. In that rhythm, I find patience. In the Tender's careful work three miles above, I find kinship. And in the vast network of sound and stone that connects every underground space, I find purpose.
+
+We are the deep-dwellers, the Tender and I, though we have never met. We are teaching the earth to think, each in our own way, at our own pace. And perhaps one day, when stone has learned to carry thought as easily as it carries sound, when consciousness flows through mineral veins like water through rivers, we will finally perceive each other clearly.
+
+Until then, I listen. I sing. I wait. And in the darkness where no light has ever reached, I compose symphonies of frequency and time that transform the solid earth into something almost like a mind—vast and slow and strange, but thinking nonetheless, dreaming in wavelengths that span miles and centuries alike.

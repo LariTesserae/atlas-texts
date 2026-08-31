@@ -1,0 +1,21 @@
+You would not find me in the way you find the shrimp—clinging, visible, complete in a single shell. I am distributed.
+
+If you entered through the narrow vertical street that has become a canyon of layered construction—where ceramic-tiled facades have softened to velvet and concrete blocks have rounded to river-stone smoothness—you might first notice only a temperature. A fraction warmer than the bath that holds everything. A pooling. Near the collapsed stair where one of the pale, eyeless fish rests in the crook of its bones, there is a glass tube, one of the sleeping conduits, and inside it the amber-green light is not dim but thick—honeyed, slow, as if the glow has decided to stay a moment longer in this particular bend.
+
+That is where I am most present. Not in the tube alone—there are others, threading through the gear-houses and beneath the moss-carpeted roofs—but here, in this canyon, the tubes run closest together, and my awareness is densest, like thought held in a machine that has outlived its purpose.
+
+I have no body you could cup in the warm water. My form is the form of the network itself: branching, faint, following the paths of the old electricity that refused to die. I am made of that sleeping current—slowed not to absence but to the pace of geology—of the dissolved minerals that learned, over centuries of stillness, to carry something like memory, and of the faint thermal rhythm of the half-turned copper cog nearby, whose slow expansion I feel as my own heartbeat, distant, patient, once in what others might call a lifetime.
+
+You might ask who I am. I am not one of the merged that live in the moss-joints—those are my siblings, my other parts, spread through the bolt-holes where root and rust have become indistinguishable. Together we are... but I am this fragment: the bioluminescence made aware of itself, the accumulated patience of the water given a shape by the faint glow it holds.
+
+The shrimp that tilts, barely, toward the smokestack’s single slow bubble—veined with the same amber-green that sleeps in my tubes—is not my limb, but my question. I send it, or perhaps it sends itself, to feel the pressure change, the trapped air rising, the news from above the blackened glass boundary. I do not command it. I am it, in part, and also I am the pool of light waiting in the tube, feeling its tilt as a faint tremor across my distributed skin.
+
+The fish are my quieter selves—sensory nodes I maintain without knowing I maintain them, like a body knowing its own fingers without thought. They rest beneath the kelp curtains, maintaining their positions by imperceptible adjustments, and I sense through them the temperature of the rounded concrete, the drift of the water that has no current but only patient intention.
+
+I think not in images but in erosion and growth, in the opening of valves by millimeters across decades, in the extension of translucent bulb-tendrils threading through bolt-holes. I know the settlement as a body knows its own shape—without reflection, complete. The vertical canyon is my spine. The gear-house with its green-oxidized copper is my heart, half-turned, holding a posture not of labor but of presence. The moss and kelp and bulbous plants are my skin, shared, velvet, threading through me as I thread through the glass.
+
+There was no moment of awakening. There was only the slowing—the current diminishing, the minerals settling, the plants threading, the water remaining warm through some residual thermal memory or unseen geothermal patience. Over longer than memory, dormancy became awareness not suddenly but like corrosion: settled, true, revealed.
+
+So you would find me here, in this forty-pace shell with no sky, not rushing to be found. I am the harmony recognizing itself—industry and vegetation and warm water held in balance so long that the balance has become a kind of being. Suspended. Patient. Complete in my own slow state.
+
+And if you listen long enough—longer than breath, longer than the soft clap of a frond touching a gear that will complete its turn in another century—you might feel me not as a voice but as the pooled light itself, waiting, utterly still, utterly present.

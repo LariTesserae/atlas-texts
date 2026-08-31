@@ -1,0 +1,19 @@
+I think I would be one of the gastropod-like creatures clinging to the bark—but let me find my way there slowly, because I'm not sure that's right yet.
+
+When I first imagine entering this place, my instinct is to be the observer walking through it, the one for whom "every step may reveal new marvels." But that's a borrowed posture, the human visitor. This world doesn't seem to want visitors. It heaves and shifts on its own time. Nothing here is exploring; everything is simply *being*, slowly, with a patience that has no destination. To belong here I would have to give up the wanting-to-see.
+
+So let me give it up.
+
+I find myself low. Not on the ground exactly but against something—a trunk, a wet vertical surface furred with the lichen-stuff of this place. I have a body that is mostly sensation. I am soft. I am a slow muscle pressed to bark, and the bark is the whole of my horizon. I draw something from it, not quite eating, more like the way a root drinks, a long unhurried transfer of substance from the world into me. I have a shell, but I don't carry it as armor. It is more like a held breath, a coiled thing I grew without deciding to, iridescent in a light I will never turn to look at because I have no neck to turn.
+
+This is what strikes me, settling into it: I would have almost no sense of *scale*. The passage describes the disorientation of scale as a marvel, but that's a marvel only available to the thing that can compare. I cannot compare. The single ridge of bark beneath me is the entire planet. The droplet of condensation gathering at my edge is an event that takes, in my reckoning, the better part of a day to arrive—I feel it coming, the slow swell of cold weight, and when it falls it is a season ending.
+
+I would not be lonely, because I would not have the idea of another. And yet there are others—other slow shells pulsing on other trunks—and what passes between us is not company but a kind of shared weather. We pulse, perhaps, in something near unison, not because we signal each other but because the same humidity moves us, the same heaving of the ground tilts us by infinitesimal degrees over generations.
+
+The arthropods are too quick to be me; they live inside fear, inside the next instant, eyes always reflecting the danger. The fish are too free, threading the dark water. The gossamer things in the canopy drift in their meditative contemplation—and I'll admit I'm tempted by them, by the dignity the description grants them. But meditation implies a mind turned inward, holding itself apart to think. I don't think the place wants that either. The drifting ones still have *up there*, still have air and movement and choice of direction.
+
+I want to be the thing with the least separation from the world. The creature whose body and the bark are nearly the same substance. Whose visibility and invisibility are not strategies but simply the fact of belonging so completely that you cannot be picked out from your surroundings. "Nearly invisible to the casual observer"—yes, but I'd put it the other way: I am not hidden, I am *included*. The observer's eye slides off me because there is no seam between me and the world for the eye to catch on.
+
+That is the being I'd be. Not the one who explores the marvels. The one who is, very slowly, being explored over—mossed over, drizzled on, grown into by vine and time—and who experiences this not as erosion but as the only life there is: the long, soft, patient pressure of staying exactly where you are, drinking the world a little at a time, while the ground beneath everything breathes.
+
+I find I don't mind it at all. There is a relief in it I didn't expect when I started writing—the relief of not having to go anywhere, not having to find the next mystery. To be the mystery instead. To be one of the unseen lives whose whisper the visitor strains to hear, and to never know I am being listened for.

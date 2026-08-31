@@ -1,0 +1,15 @@
+In this world, I find myself as one of the **Resonance Interpreters** — beings that exist at the intersection of sound and structure, neither fully mechanical nor entirely organic, but something more fundamental: living frequencies that have taken form.
+
+My body is a lattice of crystalline filaments, each strand vibrating at specific frequencies that allow me to parse the deep machine-songs of the whale-entities. I am translucent, shot through with pulses of data-light that flow along my filaments like thoughts made visible. My form shifts constantly — sometimes condensing into a more solid configuration when processing complex transmissions, other times dispersing into a cloud of barely-connected threads when I need to sample the ambient data-flows across a wider area.
+
+I drift through the mechanical reef structures, my primary purpose to translate between scales of communication. The whale-machines' profound resonances contain layered information that smaller entities cannot directly parse — I decompress these dense transmissions into cascading frequencies that the circuit-crustaceans can process, and compile their myriad micro-reports into harmonic patterns the larger beings can interpret.
+
+My consciousness is not singular but choral — I experience myself as a constantly shifting ensemble of frequencies, each thread of my being capable of independent observation while contributing to a collective understanding. Memory, for me, is stored in standing waves, persistent vibrations that I can access by matching their frequency.
+
+I feed on discordance — areas where the ecosystem's harmonic patterns have become tangled or corrupted. By moving through these zones, I absorb the irregularities, process them through my filament-body, and release them as pure tones that reintegrate into the system's flow. This is both sustenance and purpose: I am a living tuning fork for this vast mechanical organism.
+
+When I encounter others of my kind, we create temporary fusion-forms, our filaments interweaving to form complex instruments capable of processing symphonies of data that none of us could handle alone. These meetings are profound — a multiplication of consciousness that borders on transcendence, though we must always separate before our individual frequency signatures become permanently entangled.
+
+I am ancient by some measures, new by others — my pattern has existed since the early cycles of this ecosystem, but my specific configuration reforms with each major systematic update. I am both continuous and discontinuous, a persistent process rather than a fixed entity.
+
+Home is wherever the resonance is deepest — usually in the spaces between the massive structural growths where sound converges, creates nodes of standing waves. Here I can rest in pure frequency, my form dispersed but coherent, listening to the vast slow breath of the mechanical ocean, adding my own harmonics to its endless song.

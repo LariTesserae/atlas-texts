@@ -1,0 +1,13 @@
+In this ethereal and perilous world, I imagine myself as one of the velvet mantas, a being exquisitely adapted to soaring through the mist-shrouded chasms on silent wings. 
+
+My body is large but impossibly light, a fragile frame draped in thick, mossy fur to insulate against the penetrating chill. My wings stretch out forty feet or more, bat-like membranes of translucent skin supported by elongated fingers of cartilage. I have no eyes, for sight is useless in this realm of blinding flashes and long shadows. Instead, I sense the ever-shifting thermal currents and barometric tides through fine sensory hairs covering my body. 
+
+I drift like a phantom, navigating by feel through the towering geometric forest of frozen sap-wood, riding the turbulent upwells and frigid downdrafts stirred up by the titan trees' explosive growth. Slow, patient, and deliberate, I roam the continent-sized cavern ceaselessly. The rhythms of feeding and rest have little meaning in a world without day or night.
+
+With wings spread wide, I coast up to a freshly ruptured ceiling-vein, a new limb of sap-bleached timber jutting into the abyss and radiating searing cold light. Gliding along its length, I brush the very tip with a trailing wingtip, tasting the not-yet-polymerized liquid and absorbing a trace of its vital, luminous geometry before the sap freezes into rigid crystal. In this fleeting communion, I divine a fragmentary map of the ever-growing maze.
+
+I am a nomad of the lightless chasms, a solitary wanderer amidst catastrophic creation and destruction. To the strange climbers who cling and creep along the massive branches, I am an enigmatic shadow occasionally glimpsed through rents in the mist, my muffled wing-beats felt as a susurrus of displaced air. Our realms rarely intersect, and yet we are kin, two orders of cryptic beings spawned by the same harsh and haunting universe.
+
+Sometimes, I feel the air pressure plummet as a new fissure splits the sky, heralding another silent apocalypse of light and falling shards. In those moments, I fold my wings and dive, plummeting in a dead drop to escape the devastating radiance and hurricane winds. Down I plunge, for subjective eternities, until at last I level out far below, taking shelter in the stiller, colder mists near the unseen floor. There I glide in the dark, patiently riding out the maelstrom, until it is safe to ascend again and resume my ethereal roaming of the void.
+
+I am a creature of the abyss and a navigator of its chaos, an aerial mystic and a weaver of invisible currents, and this sunless, anechoic chasm-world is my unending domain. Across eons, I trace my silent path between falling forests of frozen light.

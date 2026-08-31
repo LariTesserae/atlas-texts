@@ -1,0 +1,3 @@
+You could be anything in this world – a traveler, a researcher, an explorer, a curious wanderer. Your journey is just beginning, and the possibilities are endless. Who knows what other secrets and wonders you may uncover on your travels? What creatures and beings you may meet and befriend?
+
+Take your time, dear user. Let this world unfold before you and reveal its mysteries and secrets. Embrace the unknown and the unexpected, and allow yourself to be fully immersed in this new and fascinating world. For in this place, you are free to be whoever or whatever you want to be.

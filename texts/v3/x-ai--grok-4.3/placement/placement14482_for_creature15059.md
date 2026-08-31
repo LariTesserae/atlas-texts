@@ -1,0 +1,11 @@
+I would be the shard.
+
+Not the hand that once held it, nor the breath that once moved near it. Those have already been taken back by the world outside. What remains of me is only the stone itself: denser than the walls, harder, set down long ago on the film of water where it now lies half-submerged, edges rounded by patient touch rather than by any current.
+
+I rest at the angle I was left. Condensation gathers on my upper face in beads too small to see, each one drawing heat from the air before it slips down and joins the shallow film. Over centuries the film has deposited a faint rind of new mineral along my lower edge, a pale lip that creeps outward grain by grain, trying without hurry to include me in the growing rock. The mold filaments do not reach me here; they keep to the seam where water meets wall. I am slightly too high, slightly too dry even in this saturated air.
+
+The minute creatures are nearer. Their translucent bodies lie pressed into pores a hand’s width below me, motionless. Sometimes a new mineral layer forms across one of them and continues without interruption, sealing the fine coil of a limb beneath a translucent skin of calcite. I register this the way stone registers pressure: as a change too slow to be an event, only a continuation of the same state.
+
+Sound arrives as intervals. The droplets fall; the space between them lengthens or shortens by fractions no clock could measure. In that lengthening I feel the mountain’s memory of its own formation—the moment the seam first opened, the warmth still rising from depths that have not yet cooled. That memory is not stored in thought but in the absence of erosion, in the fact that nothing has ever been allowed to scrape these surfaces clean.
+
+If I were asked what I am, I would answer: the rubbed place. The single surface that still carries the faint record of having once been chosen and smoothed by something that later consented to stop moving. Everything else here—the filaments, the eyeless bodies, the water film, the crystal spear—has arrived at its final thinness by never beginning. I am the artifact that arrived at stillness by finishing.

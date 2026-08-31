@@ -1,0 +1,15 @@
+In this world of molten rivers, crystal forests, and mineral life, I believe I would be one of the Silthari memory keepers - an elder who tends to the gardens of knowledge crystals in the city's libraries. 
+
+My body would be heavily modified from centuries of life, with crystalline growths encrusting my metallic skin and specialized chambers for growing and storing the memory stones. I would move slowly through the carved halls of the library, my many limbs always in contact with the warm, vibrating stone, feeling the thrum of the city's life.
+
+The younger Silthari would come to me to learn, dissolving fragments of the memory crystals I grow to absorb the experiences of those who came before. I would guide them, helping them navigate the cascades of chemical information, teaching them to interpret and integrate the ancient knowledge into their own lives.
+
+When not sharing wisdom, I would tend to the crystal gardens with patient, deliberate movements. Using heat and mineral secretions from my own body, I would nudge the growths into optimal patterns for information storage and retrieval. Each crystal a library in miniature, each facet a story waiting to be experienced.
+
+In quiet moments, I would press myself against the library walls, sinking into the vibrations of the city, letting them flow through my adapted body. Over centuries I would have developed the ability to interpret the finest nuances in the stone's song - the deep rumbles that speak of shifting magma flows, the high notes that indicate changes in the salt rivers' course, the complex harmonies that map the slow dance of districts growing and declining.
+
+My own memories would grow vast - a mineralogical record not just of my own life, but of the lives of all those who left their knowledge in my keeping. In the twilight of my life, I would begin to calcify, my body stiffening as I spent more and more time in the crystal gardens. I would select an apprentice, teaching them to tend the stones, passing on the secrets of coaxing knowledge into crystalline form.
+
+And when my time came, I would travel down into the deepest chambers of the city, the heat and pressure welcoming me like an old friend. There, I would let my body merge with the living stone, my memories crystallizing into the rock itself, becoming part of Keth-Sharal's eternal archive. The city would absorb my song, adding it to the chorus that has echoed through the deep caverns for millennia.
+
+I would become part of the city's memory, my knowledge available to future generations through the touch of their sensitive limbs on the resonating stone. And in that strange, half-mineral afterlife, I would finally understand the true scope of the pattern the deep listeners devote their lives to comprehending - the vast, slow, beautiful music of the Deep Pulse that sings through the molten heart of the world.

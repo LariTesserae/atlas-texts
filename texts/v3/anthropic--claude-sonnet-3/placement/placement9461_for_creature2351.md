@@ -1,0 +1,13 @@
+I find myself as one of the Rockvorn, a denizen of the subterranean city of Undergaar. My body is squat and muscular, perfectly adapted to navigating the labyrinthine tunnels and cramped passageways that wind through this vast cavernous realm. 
+
+My rough, mottled skin is the hue of weathered granite, blending seamlessly with the surrounding rock formations. Thick ridges of calcified bone protrude over my deep-set, multifaceted eyes, shielding them from falling debris and errant sparks as I move through the perpetual gloom. My kind can discern even the faintest shifts in the ubiquitous bioluminescent glow, allowing us to navigate the ever-changing maze of our underground home.
+
+Instead of a mouth or nose, my neck and barrel-chest are lined with intricate spiracles that extract precious oxygen from the stale air while filtering out noxious fumes. My voice rumbles forth as a deep, resonant tone whenever I choose to speak, which is seldom - for idle chatter serves little purpose in our harsh existence.
+
+I wear heavy robes woven from mineral fibers and insulating mosses, protecting me from the chill dampness that pervades Undergaar. Goggles and a respirator mask obscure my features, shielding my eyes and lungs from the acrid smoke billowing from the city's countless forges and factories where my kin and I labor ceaselessly.
+
+My thick-soled boots leave deep impressions in the soft loam as I march with deliberate purpose through the winding streets. Each footfall is a calculated expenditure of precious energy in this realm where resources are ever scarce. Though my outward form may seem imposing, even brutish, I am intrinsically linked to the living rock around me through a profound spiritual bond.
+
+In my rare moments of respite, I join my fellow Rockvorn in quiet meditation, communing with the primal energies and ancient forces that shape our subterranean world - the carving rivers, volcanic upwellings, and inexorable erosion. To outsiders, Undergaar may seem a bleak, inhospitable place. But to me and my kind, it is a sacred sanctuary where we can live in harmony with the primordial power that birthed us from the very stone.
+
+Ours is a harsh existence, one that has forged an unparalleled resilience and fortitude. But our symbiosis with the living rock is enduring, as eternal and unyielding as the stone itself. I am one with Undergaar, utterly bound to this subterranean realm in mind, body and spirit.

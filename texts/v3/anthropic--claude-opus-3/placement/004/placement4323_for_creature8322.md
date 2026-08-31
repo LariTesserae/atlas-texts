@@ -1,0 +1,13 @@
+I would be a Fungal Weaver, a specialized Tender adapted to craft the delicate bridges and lace-like structures that span the cavernous spaces of the Root Cathedral. My body would be lean and lithe, elongated for reaching across gaps to seed new growth or encourage the merger of hyphal networks.
+
+My fingers would be fine and almost translucent, branching into delicate tendrils at the tips that secrete a unique adhesive to guide the growth of the fungal architecture. I would spend days suspended between walls, patiently shaping the organisms with infinitesimal adjustments, weaving patterns of rare beauty calibrated to catch the eye of my fellow Tenders as they move through the space.
+
+My eyes would be especially attuned to the ultraviolet bioluminescent signals of the fungal species I cultivate, perceiving subtle gradients that indicate the health and growth patterns of my living constructions. I would see the Cathedral as a tapestry of glowing threads that I constantly reweave, my work both functional and aesthetic.
+
+I would communicate with my fellow Fungal Weavers through complex pheromonal signatures, our scents mingling and transmuting as we coordinate our efforts across vast distances. The bridges we build are not just physical structures but conduits for chemical messages vital to the Cathedral's existence. 
+
+When not actively crafting, I would meditate in pose, my body aligned along a single hypha, merging my consciousness with the greater mycelial network. In this state, I would see the grand pattern of the Cathedral's fungal circuits, interpret the ancient memories encoded in the growth patterns, and dream the generational dreams of gradual change.
+
+Over the centuries, my own body would grow more and more fungal, developing fruiting bodies along my limbs that release spores to seed new generations of weavers. In time, I would merge with one of my own creations, my flesh transmuting fully into the hyphae I so long cultivated, my mind diffusing into the greater network.
+
+Embedded in one of the grandest bridges, I would become a living monument to my art, my patterned remnants providing a substrate for future weavers' craft. Tenders would place their hands upon me in reverence and remembrance as they passed from gallery to gallery. And in the mycelial dreamscape, some part of me would linger, guiding the work of the next generation in slow thoughts that may take a thousand years to fully unfold.

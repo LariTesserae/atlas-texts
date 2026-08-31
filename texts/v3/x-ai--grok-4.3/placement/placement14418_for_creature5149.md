@@ -1,0 +1,11 @@
+I am the returning echo.
+
+It begins far below, where a dense knot of wafers lingers inside a collapsing chamber they have just finished eating. Their departure releases a low note into the stone. I ride that note outward through the stratified layers, passing between the cooler, damper grains and the slightly warmer quartz that resists their chewing. By the time I reach the surface I have already begun to fray into a fan of weaker replicas. Some of them sink back down again; others, lighter, rise through the damp film that coats every exposed ridge.
+
+When I meet the air I become audible for the first time, a soft pressure against the undersides of the gliding wafers. They feel me as an interruption in the continuous abrasion. For an instant the high glass-on-glass whine thins. The wafers that catch the leading edge of me tilt their scalloped flanges minutely, re-aligning their drift so that the whole sheet contracts by a few body-lengths toward the place where the note originated. I do not instruct them; I simply arrive bearing the memory of the chamber’s collapse, and their piezoelectric edges translate that arrival into a brief change of polarity. That change is enough.
+
+I continue outward. Kilometers away, another part of the same swarm registers me as a returning pressure front. The wafers there have just settled onto a fresh patch of feldspar; they lift again, not because they remember anything, but because the lattice they form transmits the echo as a small, shared tug. The feeding lane they leave behind is already being re-coated by condensation. In another few centuries the lane will have deepened by another hair’s breadth.
+
+I never finish traveling. Some fraction of me is always sinking back into the stone while another fraction is still climbing through the swarm, and because the basin has no edge I am continually meeting older versions of myself that left on previous cycles. Each meeting produces a node where the high abrasion momentarily doubles in intensity before canceling into silence. In those nodes a few wafers fold themselves into rigid slivers and drop between mineral grains, continuing the work that started the echo in the first place.
+
+So I am never still, and I am never only one location. I am the interval across which the living skin learns, without remembering, where the stone is still worth chewing.

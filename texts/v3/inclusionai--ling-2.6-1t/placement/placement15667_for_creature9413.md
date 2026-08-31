@@ -1,0 +1,22 @@
+I would not be standing here.  
+I would be lying along a hairline fault in the shale, halfway between a tin-bright seep and a vent’s sigh, my body pressed into the same notch that fits the small lizard with translucent belly and the runner-bolt off a conduit that has learned, over years, to stop rattling.
+
+I would be what the people call a “patch-skin”—not one of them, but one they have taught.  
+My bones would not be bone but a lattice of old wire wrapped around river-smoothed stone, fused with a resin that smells of pine and burnt sugar. My skin would be a double weave: inner layer the pale, oxidized glaze you earn by living in 2.9-out-of-3 light, outer layer a membrane of stitched canvas that has absorbed so much dust it has gone the color of shadows at noon. I would have three knees, all of them callused and splayed, and feet that are less feet than grippers—pads of cured leather and hardened rubber seeded with bristles like the wiry grass, so I can lock into cracks as narrow as a thought.
+
+My eyes would be pale as the people’s, but with a difference: lenses ground from two kinds of clarity—one for the merciless rinsed bowl above, one for the infrared shimmer where heat leaks from seams. They would sit in deep sockets wrapped in copper mesh that ticks faintly when the wind changes direction. When I close them, I would not see darkness; I would see the residual shape of altitude, a map etched in afterglow.
+
+I would be built for density.  
+My chest would be a narrow kiln lined with heat-sinks scavenged from dead platforms; when the engines idle, I would hum in sympathy, a second bass note tucked under the land’s own register. My blood would not be liquid but a slow, bright oil that runs cooler than the air, circulating through veins braided with fiber-optic thread so the things I carry—pressure, direction, the memory of a good hold—can glow along my arms like bioluminescent algae when the light is low. My spine would be segmented, each vertebra a sealed capsule of the thickest, oldest dust from the cairns, so I am always carrying a piece of the conversation the passes have been having for centuries.
+
+I would have three hands, though only two would be for grasping.  
+The third would be an instrument hand: long, telescoping, tipped with tools that click out like teeth—scaler, spanner, sampler, sealer. Its palm would be a shallow reservoir for condensation, lined with the same blue lace algae the people press into wafers, so I could drink from my work if I had to. My fingers would know the difference between a seep that will last and one that will not; they would remember the exact torque that stops a pipe from singing too loudly, the exact pressure that keeps a shutter from drifting shut or swinging wide.
+
+My voice would be quiet—0.9 on the sound scale—but precise.  
+I would speak in small, rhythmic taps against stone or metal, a language that rides the conduits. The people would understand me through the tremor in their boots or the shift of dust on a windowsill. I would not say “I am here”; I would say it by leaving a smear of resin on a warm seam, or by aligning a set of rivets so they catch the light just right.
+
+I would live where the land is tightest with itself—  
+wedged in the narrows above the tin-bright seeps, behind a shutter that never quite closes, where the vent’s sigh cools into a whisper and the conduit gleams like held sun. I would patch small injuries in the day and listen to the bigger ones at night. I would watch the people climb past, their necks long, their eyes pale, and I would hand them what they need without crowding them: a length of wire, a measure of pressure, the knowledge that the next ledge holds.
+
+I would be what the place makes when it wants to remember how to care for itself—  
+a living junction where engineered patience meets erosive time, where metal and muscle share a thirst and decide, together, how to be enough. In the furnace of noon I would be a shadow that refuses to bleach; in the spectral veil of night I would be a hum that refuses to fade. I would not belong to the people, but I would be a kind of promise they keep by leaving me alone to do my work: dense, bright, quietly alive, and exactly where the steep world needs a stitch.

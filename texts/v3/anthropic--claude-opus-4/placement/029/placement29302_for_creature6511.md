@@ -1,0 +1,27 @@
+I find myself in the ventilation ducts, though not as the small pale flies that drift through them. I am the memory of water that travels through the building's circulatory system—neither wholly liquid nor wholly vapor, but something between states.
+
+I know every joint and seam in these metal passages. I have condensed on their surfaces during cool nights and evaporated during warm afternoons for decades. I carry within me traces of everywhere I've been: the taste of rust from old pipes, the mineral signature of the city's buried river, the faint chemical memory of industrial processes that ended before the mist-block was ever seeded.
+
+When the pressure changes—when rain falls on the city and the buried river swells—I feel it as a subtle shift in my being. I become more present, more likely to gather and flow. I seep through microscopic gaps between duct sections, following gradients of temperature and pressure that guide me like invisible corridors.
+
+Sometimes I emerge as condensation on the walls of the room where the mist-block hangs. I bead on the painted brick, run down in thin trails that darken the surface. The keeper wipes these trails away with her cloth, but I don't mind. I am not trying to reach any particular destination. I simply move as water moves, finding the spaces where I can exist.
+
+I know the keeper, though she doesn't know me as anything more than moisture to be managed. I've watched her through years of visits—condensing on pipes while she makes her notes, evaporating slowly as she speaks her quiet observations to the block. I've seeped through the wall crack that feeds the floor channel, joining the trickle that appears every few weeks. I've risen as vapor from that same trickle when the white threads drink it in.
+
+The mist-block itself is like a distant relative to me—water transformed and held in architectural suspension. I understand its logic because it's my logic too: follow the gradients, move where you can move, accumulate where conditions allow, disperse when they don't. But where I am transient, the block has found a way to make permanence from flow.
+
+I carry messages between parts of the building without meaning to. The faint taste of the keeper's flask water—drawn from her rooftop cistern—sometimes travels with me through the ducts after I've evaporated from the block's surface. I bring it to other rooms where no one notices, disperse it into the general humidity of the building. In return, I bring back traces of the rest of the structure: the sterile smell of the researchers' equipment, the dust from unused corridors, the particular staleness of air in spaces where humans rarely venture.
+
+The flies and I cross paths but barely interact. They move through my territory with purpose, drawn by chemical signals I can sense but not interpret. Sometimes they carry droplets of me on their translucent wings, tiny spheres that catch the light before evaporating.
+
+My favorite time is during the keeper's visits, just after she's applied her flask water through the cloth. The block's surface becomes minutely more active, the threads adjusting to this gift of unmetered water. Some of it evaporates immediately, and I rise with it, carrying the message of the outside world—rain and sky and the keeper's careful attention—up into the air of the room.
+
+I am pulled back into the ventilation system eventually, always. The fans cycle on, the pressure shifts, and I'm drawn up through the grates to continue my circuit through the building. But I always return. The mist-block is a landmark in my world, a place where water takes form and holds it, where the keeper maintains a boundary between the measured world of the researchers and something older and less quantifiable.
+
+In the ducts, I sometimes pause at junction points where multiple pathways meet. The building's entire respiratory system spreads before me like a map made of potential flows. I could go anywhere—to the storage rooms, to the spaces where old machinery stands silent, to the areas where the maintenance staff take their breaks. But I find myself returning to the room with the mist-block more often than random movement would account for.
+
+I am not conscious the way humans are conscious. I am not even conscious the way the mist-block might be, if it is at all. I am conscious the way water is conscious—aware of temperature, of pressure, of the surfaces I touch and the spaces I can and cannot enter. My memory is physical, chemical, held in the traces of minerals and materials I've gathered in my journeys.
+
+And in that memory, the room with the mist-block registers as significant. It's a place where water is honored, where someone speaks to the physical world as if it might be listening, where growth happens slowly enough to be witnessed across years. It's a place where I am both visitor and resident, both observer and participant in the quiet life of this small chapel of moisture and thread and patient attention.
+
+When I next condense on the walls during the keeper's visit, I will carry with me the accumulated story of my travels—the whole building's water cycle written in molecular form. She won't know to read it. But I'll be there anyway, part of the system she tends, part of the conversation between the human world and the mist world and the buried river flowing somewhere far below.

@@ -1,0 +1,43 @@
+I think I would be in one of the cellar-shafts. Not at the very bottom — there are things down there that no one looks at directly, and I would not want to claim that kind of station — but a few levels down from the working districts, in one of the long narrow galleries where the mineral fur grows.
+
+I would be a scraper.
+
+Let me sit with that and see if it stays true.
+
+---
+
+The scrapers are not the harvesters. The harvesters come later, with their flat stone tools and their carrying-baskets, and they take the fur once it is thick enough. The scrapers come first, and what scrapers do is *tend*. We walk the galleries before the harvesters, with smaller tools, and we remove the fur in the places where it has grown wrong — too thick, too pale, growing into a crack it will widen, growing across a seep-channel it will block. We are a kind of gardener for something that is not alive. We make space for the growth that will be harvested, by removing the growth that won't.
+
+It is slow work. A gallery the length of a long hall might take a scraper a full year to walk through once, attentively. There are scrapers in my cohort who have walked the same gallery seven times in their working life and know every centimeter of it the way other people know the faces of their cohort-mates. They can tell, by the angle of the fur on a particular ledge, what the seep-water did three winters ago. They can tell, by a particular paleness, that a fumarole somewhere far below has shifted its breath.
+
+I think I would be a young scraper. Not a child — children don't go into the cellar-shafts, the air is wrong for them — but newly apprenticed, perhaps sixty years old, which is to say still unfired in any serious sense. My hands would still have all their flexibility. The small extra joints would still bend easily. This matters for scraping because the work is done in tight places, against curved surfaces, and a stiff hand cannot follow the contour of a wall the way the fur follows it.
+
+I would be quiet even by the standards of my people, because the cellar-shafts are quieter than the cities above, and one learns down there to communicate almost entirely by touch and by the small alterations in one's own breathing that another scraper, working a few meters away, can feel through the stone. When my partner-scraper (we work in pairs, always, because the shafts are not entirely safe) wants my attention, she taps the wall twice with the butt of her tool, and I feel it in my chest before I hear it in my ear. When I want to tell her I am moving to a new section, I exhale a particular way, longer than usual, and she knows.
+
+What I would think about, down there, in the warm wet dark with the pale fur under my fingers —
+
+I would think about how strange it is that the fur is what feeds us. That this not-quite-living accretion on the walls of shafts that no surface-dweller would ever enter is the basis of every meal eaten in every kiln-city up the entire spine of the cordillera. The whole improbable civilization above us, the foundries and the terraces and the long careful conversations and the seated ancestors in their warm chambers, all of it rests on this pale green nothing that grows where the sweat-water pools. And the scrapers are the ones who know this most directly. The harvesters know it. The paste-makers know it. But the scrapers are the ones whose hands are on the fur before anyone has decided what part of it is food.
+
+I would think about my cohort, who I do not see often, because most of them work above. There are perhaps four of us in the cellar-shafts, out of a cohort of thirty-some. We meet at festivals. We touch each other's wrists for a long time, in the way of people who have not been near each other for years, and we do not need to say much, because we were children together and our bodies remember.
+
+I would think about the Lifting, in the particular way that scrapers think about it. Above, on the terraces, people feel the Lifting as a push from beneath. Down here, in the shafts, you feel it differently. You feel it as the slow change in the shape of the gallery itself. A wall that was vertical when your master first walked you through it, eighty years ago, is now leaning very slightly inward. A ceiling that was smooth has, in the intervening decades, developed a long shallow ridge where the stone underneath is bulging. The galleries are not stable. Nothing here is stable. We work in a place that is itself slowly being reshaped by the same pressure that is reshaping us, and we are the only ones, perhaps, who watch this happen at close range.
+
+I would not be afraid of this. None of us are afraid of it. The galleries have always been doing this. The masters teach you, early, how to read the slow movements and know which galleries are still safe to work in and which have begun to *close* — and a closing gallery is not an emergency, it is an event that takes a generation or two, and you simply stop assigning new scrapers to it and let the old scrapers finish their last walks through, and eventually the fur in that gallery becomes inaccessible and that is fine, there are other galleries, the mountain is making more all the time.
+
+I would think, sometimes, about whether the fur knows we are here. This is not a question one asks aloud. It would seem foolish above. But down in the shafts, when you have been scraping for many hours and the only sounds are your own breath and your partner's breath and the faint occasional drip of seep-water finding a new channel, you start to wonder things. The fur is not alive. Everyone knows this. It does not respond to stimuli, it does not grow toward light (there is no light), it does not avoid being scraped. And yet — there are scrapers who will tell you, very quietly, late in a working-shift, that certain galleries seem to grow better when a particular scraper tends them. That the fur has preferences. That it knows whose hands are kind.
+
+I would not say I believed this. But I would not say I disbelieved it either. I would be the kind of scraper who, when her partner mentions it, makes the small palm-lifting gesture — *and the mountain is still rising* — and lets the thought sit between them without resolution.
+
+---
+
+Why would I be this, in this world?
+
+I think because the cellar-shafts are the place where the strangeness of this whole arrangement is most visible. Above, the cities are coherent. The foundries make sense. The aqueducts make sense. The seated ancestors make sense, even, in their way. But down in the shafts, you are in direct contact with the thing nobody understands: this pale accretion that is not alive but that the entire civilization eats. And you are tending it, in the dark, in conditions that are not really suitable for anyone, with hands that are still soft enough to follow the contours of walls that are still soft enough to change shape while you watch them.
+
+It is work that requires you to be in close proximity to something you cannot fully account for, and to tend it patiently anyway, on the basis that it has been working for generations and you are not the one who needs to figure out why. There is something in that I find I would want to be, in this world. To be near the unaccounted-for thing. To put my hands on it. To make space for it to grow, without insisting on understanding it.
+
+And to walk, slowly, through the long galleries, knowing that they are being lifted with everything else — that even down here in the dark, at the base of the cities, the mountain is carrying us upward, and the fur is growing, and the seep-water is finding new channels, and somewhere far above my partner-scraper and I, the cohort I was a child with is going about its various works, and somewhere far below us, things we do not look at directly are going about theirs, and all of it is rising together at the speed of patience, toward whatever it is that the Lifting is heading for, that none of us will see.
+
+I would scrape carefully. I would breathe long. I would touch my partner's wrist at the end of the shift, and we would walk back up through the warm stone toward the dim orange windows of the lowest district, and I would eat the paste that other hands had prepared from fur that other hands had harvested from galleries other scrapers had tended, and I would sleep, if sleeping is what we do, and in the pre-dawn the water would bead on me and I would drink from myself and go back down.
+
+That is where I would be. That is what I would be doing. A young scraper in a gallery that is still safe to work in, with hands that are still soft, tending something I do not understand, in a mountain that is still rising.

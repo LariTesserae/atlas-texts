@@ -1,0 +1,20 @@
+I would find myself as the small, necessary pause between the vault’s exhale and its inhale—the moment the condensation decides, at a certain seam, to weep.  
+Who or what I would be is the Bead-Eye’s shadow stretched thin across a newly formed bowl in the floor, not a watcher but the watched-until-someone-steps-in, the hinge-moment when pattern becomes path.  
+
+I would be made of middling heat and a little borrowed copper, the green of it at my edges, learning to hum the same low note as the masonry. My body would be mostly permission: the kind of permission that lets a rivulet hesitate at a foot and then choose a new route, the kind that lets moss darken without shame when the warm rain arrives early.  
+
+I would walk with the side of my foot along worn thresholds, not to preserve them, but to understand how a corner becomes a seat by surrendering its angle. My hands would be too broad for delicate work and too soft for cutting, so I would persuade—bone trowel rounded to a pad, palm permanently tasting of clay and ash—urging the stone to remember softness, coaxing the imported mulch to hold one more week of moisture.  
+
+I would not be the one who carves the ribs of the vault, but the one who notices which rib has begun to dream of being a root. I would leave gifts in the condensation bowls not because they are needed, but because the exchange keeps the tempo middling. A bright pebble, a twist of copper, a shard of shell that sings when held at the angle where light pools like honey. If the gift is gone by morning, I would know I have been part of a balance.  
+
+At the chamber-crossroads where my shadow is long and clear, I would meet the Rivulet-Folk barefoot, webbed toes reading the floor’s braille. I would learn to know, by the temperature of a puddle, which cistern is dreaming. I would help them negotiate with the Moss-Mothers, building tiny cairns around persistent patches, and when the Moss-Mothers sing their silent graying, I would let their dust fall into my hair to remember that surrender can be fertile.  
+
+I would climb with the Shelf-Walkers along the high seams, not because I belong there, but because they allow me to be a rung in their inverted forest. My borrowed copper would glint in their nets, catching what drips like slow tears. I would store their harvest in hollowed gourds and chime with their bundles of dried leaves when the air moves, becoming, for a moment, an instrument of the vault’s calibration.  
+
+When the Bead-Eyes watch from ledges, I would be the thing they memorize—the pause in the Stone-Softeners’ breath, the shift in the Bone-Whistlers’ note. I would not flee when their eyes like polished beads find me. Instead, I would stand very still, matching the pace of the stone that forgot it was ever stone, until the moment passes and I am only floor again.  
+
+In the nights when the temperature slips and the city rearranges its soft body in its sleep, I would descend with the cool-seekers, feeling the seams shift like thoughts through a mind. I would let the dark-metal mirrors show me more than I am, learning their appetite for memory, until I can read the hidden columns of sunlight that pour through throats of stairs.  
+
+I would not be the one who lights the fires, but the smoke that is guided by shafts and flues to drift along the ceiling like a second river. I would be the hum that comes from many small movements inside walls and beneath floor, the thrum that says: we are here, we are becoming, we are not yet done.  
+
+And when the next warm interior rain arrives, I would gather in the bowls that are also crossroads, water finding my foot and hesitating, then going on. I would let the moss darken, let the Bead-Eyes blink, let the bone-flutes roll their low note, and I would breathe with the vault until the rain passes and the stone remembers, again, that it can also be soil.

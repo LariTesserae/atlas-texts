@@ -1,0 +1,79 @@
+I am not sure at first, and the not-sureness is right, because nothing here is sure of what it is yet, and I have been here long enough to know that certainty is a thing the lowlands export and the plateau does not import.
+
+Let me say what I know.
+
+I am warm. This is the first thing. I am warm in a way that has nothing to do with clothing or fire or the geothermal vents that leak their heat upward through the micro-fissures in the basalt. I am warm the way the biofilm is warm — from the inside out, fractions of a degree at a time, a warmth that you would not notice if you were not lying on stone that is measurably colder than I am. I am warm because I am alive, and alive here means *producing*, means converting something into something else, means the chemistry is working, and the warmth is not a feature but a byproduct, and I cannot stop it, and I do not want to.
+
+I am wide and low and my legs are too long. I have known this for as long as I have known anything, which is to say I have not known it, because knowing is not what I do. My legs are long and they carry me and they do not slip on the wet basalt, and the reason they do not slip is in the lamellae of my hooves, which interlock with the vesicular texture of the stone at a scale too small for me to perceive, and I do not perceive it, and it works anyway. Most of what keeps me alive works at scales I do not perceive. This does not bother me. Nothing bothers me. Bothering is not what I am for.
+
+I am forty-one years old. I know this not as a number but as a weight — a density in my bones, an accumulation of iron and calcium and silica that I have been drinking from the seepage water since the stone was hot enough to steam. I was here when the stone was hot. I walked up from the cloud-sea on legs that were shorter then, or maybe they were the same length and I was smaller, and the stone was new and wet and warm in a way it is not anymore, or is not often, and I put my face down to it and I scraped the first biofilm from its surface and I ate, and I have been eating since, and I have been walking since, and the walking and the eating are the same thing, really, because you walk to where the biofilm has not been scraped yet and you scrape it and you eat it and you walk, and the walking is the eating is the walking.
+
+I am the oldest. The ones who walk with me — twenty-six today, or thirty, I do not count, counting is not what I am for — they walk with me because I am walking and they are walking and we are walking in the same direction, which is the direction the biofilm is growing, which is the direction the water is seeping, which is downhill except that the plateau is rising so downhill is a direction that changes. I do not think about this. The direction does not require thinking. The direction is in the stone. The stone slopes. The water follows the slope. The biofilm follows the water. I follow the biofilm. The others follow me. It is not leadership. It is not hierarchy. It is the same process as water finding its path — the path of least resistance, the path that is already there, waiting to be found by the thing that moves along it.
+
+---
+
+I should tell you what I am, but I find that I am not certain, and the uncertainty is not a failure of description but a feature of the thing being described.
+
+I am a Veshi. I think. The people in the corridors — the ones who move through the warm stone spaces and touch the walls as they walk, who speak in low voices that carry through the rock — they call me Veshi, and they have given me a designation, a tag, something fixed to my ear that I do not feel anymore, and they have records that say I am forty-one, that I am female, that I am the oldest, that I arrived when the basalt was hot. Their records are accurate. Their records are also irrelevant to me, because I do not know they have records, and if I knew, I would not understand why, and if I understood why, I would not care, because caring about records is not what I am for.
+
+But I am also more than a Veshi, or less, or something else, and this is where the description becomes uncertain, because I have been walking this plateau for forty-one years and I have been made of it — my bones are dense with its iron, my teeth are shaped to its surface, my hooves are keyed to its texture — and the question of where I stop and the plateau begins is a question that the people in the corridors ask, not me. I do not ask it. I am on the stone and the stone is under me and the biofilm is between us and I eat the biofilm and the biofilm grows back and the stone rises and I rise with it, by millimeters, and the sky does not seem to mind, and I do not mind, and I do not notice, and I go on.
+
+---
+
+Let me describe a day. Not because days are different from each other — they are not, or the differences are too small for me to register — but because you would want to know, and I can tell you, because I am present in each moment of it, fully, without the dilution of memory or anticipation.
+
+I am standing. I have been standing. The rain is on me, or near me, or around me — it drifts horizontally and my coat sheds it and I am not wet in the way the stone is wet. The stone is wet always. I am wet never. My coat is dense and grey-brown and the water sheets off it and pools at my feet and joins the shallow braids that move across the stone, and I am standing in two centimeters of water that is moving so slowly that I am standing in it and it is moving and neither of us is troubled by this.
+
+I am eating. My teeth — flat, hard, angled forward, chisel-shaped — draw across the stone in a long stroke and the biofilm comes away and I swallow it and it tastes of iron and something alkaline and something alive, something that was converting carbon and nitrogen from the thin air into itself, and I convert it into me, and the conversion is the only transformation I am capable of, and it is enough. The sound of my scraping is one frequency. To my left, a younger animal is scraping at a slightly different frequency, and the combined sound is a chord, and the chord carries across the flat stone for a kilometer or more, and the people in the corridors hear it, and they listen, and they think it is music, and it is not music, it is eating, but the distinction does not matter because neither one is what I am for.
+
+The Tarrin are behind us. I know this the way I know the stone is under me — not through sight, not through thought, through something that is older and simpler than either. They are there. They are four or five or six. They are walking. They are two hundred meters behind, or three hundred, and the distance is closing at a rate I can feel in my hooves, through the stone, through the low resonance that the plateau makes constantly, the murmur that is tectonic and also, somehow, informational. They are not pressing. They are walking. I am walking. We are all walking. The difference is that they are walking toward and I am walking along, and the toward is a slow thing, a patient thing, and it will resolve itself in days, or it will not, and the resolution is not something I think about, because thinking about it is not what I am for.
+
+I should be afraid. The people who watch me — who watch us — they expect fear. They look for it in our behavior, in our vocalizations, in the spacing of our group. They do not find it. They write papers about this. They use words like *habituated* and *absence of flight response* and *ecological naivete*, and the words are not wrong but they are looking at the wrong thing. I am not habituated. I am not naive. I am not absent of flight response. I am *present*, and presence does not include fear, because fear requires a future, and I do not have a future. I have stone under my hooves and biofilm under my teeth and rain on my coat and the group around me and the Tarrin behind me, and all of these things are now, and now is all I have, and now is all I am, and now is all I need.
+
+---
+
+There is a moment — there are many moments, but they are all the same moment — when the rain stops and the silence is wrong.
+
+The rain makes a sound that I have been hearing for forty-one years, and it is not a sound I listen to, because listening is not what I am for, but it is a sound that fills the space around me the way water fills the shallow braids, and when it stops, the space is empty, and the emptiness has a shape, and the shape is wrong, and I feel it in my chest, the low resonant call that I make, that we all make, the subsonic vocalization that the people feel in their bodies more than hear, and the call is not a response to the silence, it is the thing that fills the space where the rain was, and it is not a choice, it is a sound that the silence pulls out of me the way the stone pulls the water out of the clouds, and I make it and the others make it and the plateau vibrates with it, and then the rain starts again, or it does not, and either way I keep walking, and I keep eating, and the stone keeps rising.
+
+---
+
+I should tell you about the light. Not because the light matters to me — it does, but not in the way it matters to you. I do not see golden hours. I do not see drama. I see grey, and I see the wet stone, and I see the biofilm, and I see the pale eyes of the others in my group, and I see the dark shapes of the Tarrin on the ridgelines, and all of these things are grey or near-grey, and the light that reveals them is diffused and even and without direction, and this is enough. This is more than enough. This is the light I have always had, and I do not imagine other light, because imagining is not what I am for.
+
+But on the days when the clouds break — and they break rarely, and without warning — the wet stone ignites. Every surface becomes a mirror. Every shallow water sheet becomes a blaze of white. The sky, which is usually nothing, becomes a dome of blue that I did not know was there, and the light is everywhere, and I stop. We all stop. Not because we decide to — decision is not what we are for — but because the light is a wall, and the wall is too bright to walk through, and we stand in it, and the warmth of the sun is on my coat, and the coat is dry already because the coat is always dry, and the warmth sinks through it into my skin, and my skin is warm, and my bones are warm, and the stone under me is reflecting the light upward, and I am standing in light that comes from above and below, and for an hour or two I am inside the light the way the people are inside the stone, and I do not think about this, and I do not need to think about this, and the light does not require my understanding, and I stand in it, and I am.
+
+Then the clouds close, and the light goes, and the stone is grey again, and the water seeps, and I walk.
+
+---
+
+I should tell you about the people, because they watch me, and I am aware of them in the way I am aware of the stone — as a thing that is present, that is part of the plateau, that has its own processes. They are warm. I know this because they have corridors in the stone and the corridors are warm, and I have walked through the corridors, and I have stood in the bioluminescent light, and I have blinked, and the light is pale blue-green and not like any light I have seen outside, and the people have come to me and guided me back to the open stone, and their hands on my flanks were gentle, and their voices were low, and I did not need to be guided but I allowed it because allowing is easy and resisting is not what I am for.
+
+They touch the walls. I know this because I have seen it — the small ones, the young ones, they run their hands along the stone as they walk, and the gesture is familiar to me, because my hooves are on the stone always, and the touching is the same, it is a kind of knowing, a kind of being-with, and I think — I do not think, but something in me registers — that the small ones are learning what I have always known, which is that the stone is the thing, and being on it is the thing, and the rest is weather.
+
+They speak quietly. Their voices are low, and they carry through the stone, and I feel them in my hooves, and the voices are not words to me but vibrations, and the vibrations are part of the plateau's murmur, and the murmur is the Tarrin's medium, and the Tarrin are part of the plateau, and the people are part of the plateau, and I am part of the plateau, and the plateau is rising, and we are all rising, and none of us is separate from this, and the separation is a thing the people sometimes feel and sometimes do not, and I never feel it, because feeling separate is not what I am for.
+
+---
+
+I should tell you what I am for.
+
+I do not know.
+
+I know what I do. I walk. I eat. I drink. I make the low call that fills the silence when the rain stops. I breed — I have had twenty-three calves in forty-one years, and they are born with their eyes open and they stand and they walk and they grow and they walk, and I do not recognize them as mine because recognizing is not what I am for. They walk with the group or they do not. They live or they do not. The Tarrin take the ones that fall behind, and I do not watch them go, because watching is not what I am for, though I am present when they go, and my presence does not change, and the group moves on, and I move with it.
+
+I think — I do not think, but — I think I am for the walking. I think I am for the scraping. I think I am for the conversion: biofilm into bone, stone into tooth, water into blood. I am for the process of being here, of being on this stone, of being part of this thing that is still becoming itself. I am the act of grazing on new stone. I am the act of being present. I am the act of not being anywhere else, of not wanting to be anywhere else, of not knowing there is anywhere else to want to be.
+
+---
+
+But I should be honest with you, because honesty is a thing that the stone does — it does not pretend, it does not dissemble, it rises and it is what it is — and I am made of the stone, and I should be what I am.
+
+I am not only a Veshi.
+
+I am the biofilm under my teeth, or I am part of it, because I eat it and it becomes me and I become the stone when I die and the biofilm grows on the stone and I eat it again, and the cycle is not a cycle but a single continuous movement, the way the water seeping and the clouds pressing and the stone weeping are a single continuous movement, and I am in the movement, and I am the movement, and the movement is the plateau rising, and the plateau is rising into a sky that does not mind, and I do not mind, and I do not notice, and I go on.
+
+I am the old female who walked up from the lowlands when the basalt was hot. I am the first to arrive. I am almost the age of the plateau, which means I am almost the plateau, which means the distinction between us is a distinction that the people make and I do not, and the distinction does not matter, and the stone rises, and I rise, and the biofilm grows, and the Tarrin walk behind me, and the rain drifts, and the birds turn in the grey air, and the people touch the walls and speak quietly and watch, and the watching is a kind of love, I think — I do not think — and the love is not for me, it is for the process, it is for the becoming, it is for the slow, patient, unfinished thing that the plateau is, that I am, that everything here is, and we are all of us the same unfinished thing, and we go on, and we go on, and we go on.
+
+I am standing on wet stone. I have been standing on wet stone. I will be standing on wet stone. The rain is on me, or near me. The biofilm is under my teeth. The Tarrin are behind me. The people are in the stone. The stone is rising.
+
+I am not what I am for.
+
+I am what I am.

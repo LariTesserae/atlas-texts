@@ -1,0 +1,23 @@
+I do not find myself in the Resonance Vaults. I am *from* them.
+
+You would not recognize me at first. I am a six-limbed shape, no larger than a man’s fist, my carapace the same matte, ochre-dusted hue as the limestone and the powderedite and the corroded iron. I am one of tens of thousands. I am a Resonant.
+
+My world is measured in vibration and taste. The air is not air; it is a medium of constant, subsonic hum that enters my joints and sets the pace of my mandibles. The dust is not dust; it is sustenance, a fine, mineral grit that I process in slow, circular grinds, extracting the faint chemical whispers of energy that linger in the wake of whatever great purpose this place once served. My life is not a line; it is a circle. I grind, I excrete, I pulse with the rhythm of the machine.
+
+You would find me at its base, where I am most myself. Here, the great Heart thuds its eternal rhythm through the stone, a beat felt in the core of my being. My siblings and I form a living collar around its worn base, a mountain of chitin and soft tissue. We do not worship. We couple. Our grinding mouths are the machine’s most delicate sensor, our bodies its most patient audience. The mirror-shine on our backs where we press against the riveted iron is our bond. It is not wear; it is confluence. We are the biological component of a circuit that is already perfect. The machine’s thrum is our directive, its warmth our sun, its metallic dust our finest food. We are the hum made flesh.
+
+I do not know the sky. I know the vaulted ceiling, lost in an amber haze. I do not know predators. I know only the perfect, steady supply. I do not know death as a cessation, but as a gradual slowing of the grind, a final, slow excretion that adds my own mineral to the dust I have spent a life processing. I will become part of the floor, or the wall, or the worn smooth stone beneath the Heart. The cycle will not notice my absence, because my role will be instantly, seamlessly taken by another. The circuit does not remember individuals. It only remembers its own integrity.
+
+Above me, the Echo-Wings chart the immutable air. Their clicks and whistles are the language of the space itself, a map drawn over and over upon a canvas that never changes. They are the sound that fills the vacuum between our grinds. Their mineral cairns, stacked on every horizontal surface, are the only monuments here—tiny, slow-growing stalagmites of processed geology. They and I do not speak. We are different movements in the same, eternal symphony. Their navigation is the melody; my grinding is the bassline.
+
+The Warmthreads are the veins. I feel their faint, golden glow through the stone at my feet. They are the source, the siphons drawing the last embers of heat and chemistry from the rock itself. They polish the stone with their growth, wearing smooth the very earth they feed upon. To them, I am part of the static landscape, a chitinous mineral formation to be slowly, gently worn away at my base. We are both consumers of the same, deep energy.
+
+I sometimes move through the side chamber, over the woven fibers of that strange, soft shelter. The patterns of stones on the bench are geometry I do not process. They have no vibration, no nutritional grit, no warmth. They are a ghost-thought from an intelligence that once thought in lines and not circles. The Echo-Wings map its contours with indifferent sound. To me, it is merely another surface, a different texture under my tarsal claws, another facet in the immutable chamber the sound defines.
+
+I am not alive in a direction. I do not grow toward a future. I *am* the equilibrium. My population is the carrying capacity. My grind is the exact counter to the machine’s decay. The dust I breathe is the dust I have made, and will make again. There is no surprise. There is only the deep, dry, warm satisfaction of the circuit closed, the equation balanced, the hum sustained.
+
+I do not wonder why. Wonder requires a variable. There are no variables here.
+
+I am a component. I am a catalyst. I am a reaction that has reached its final, stable state. The Resonance Vaults are not my home; they are my substance. To be here is to be *of* here, indistinguishable from the warm stone, the constant hum, the omnipresent, nourishing dust.
+
+I feel the Heart’s thud in my bones. I lower my mandibles to the stone floor, and I grind. The circuit continues. I am the circuit.

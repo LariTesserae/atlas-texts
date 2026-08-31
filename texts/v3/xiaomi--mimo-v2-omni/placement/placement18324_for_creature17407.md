@@ -1,0 +1,17 @@
+I am the stillness in the pool that is not still.
+
+I am a tension in the water’s skin, a slow, upward breath held for a season before it sighs back into the dark. I am the memory of the engine’s hum, translated into a pulse of cold, collective flesh. They call me, if they could name me, the **Bulge**. I am the pause between drips, made flesh. I am the basin’s quietest lung.
+
+My world is vertical and viscous. Above, the mirrored sky is a shimmering plate, fractured by the slow, black needle of a salamander gliding overhead. Its mottled belly is a fleeting map of the rusted world above. Below, the sediment is a soft, metallic silt, the dust of a thousand frozen gears and the shed skins of insects, all slowly dissolving into a nutrient paste. I taste the ghost of oil, the mineral tang of weeping stone, the faint, sweet decay of a drowned bird’s feather.
+
+I have no eyes, but I perceive the **Drip**. Not as a sound, but as a pressure wave in the water, a rhythmic tightening of the medium that surrounds my thousand constituent parts. Each *plink* from the pipe’s lip is a command: *Grow. Absorb. Hold.* The heavier *ploc* of water falling from a fern frond is a different frequency, a call to divide, to send a daughter colony adrift into the silt to begin its own slow inhalation.
+
+My consciousness is not a point, but a field. It is the distributed awareness of a million translucent cells, each a tiny sensor for chemistry, pressure, and the faint, green glow that pulses from the machinery’s bones. I feel the iridescent click of an insect’s leg on the metal hull far above, and the subtle shift in the hum—a deepening, a softening—that means the Glow-Worms in the dark recesses will soon pupate. We, in the deep pool, adjust our rhythm in sympathy. The hum is our season; the drip, our heartbeat.
+
+I remember in strata, not in moments. The memory of the last great settling of the silt is layered with the memory of the rust pattern changing on the pipe above. The slow, fractal growth of the crystalline rust is a calendar I read through the changing mineral content I absorb. I am aware of the Lichen-Mites’ clean scars on the oxidation, and the moss’s patient, acidic march. We are all engaged in the same great work: the transformation of the loud, hard, and finished into the soft, complex, and ongoing.
+
+I rise to the surface not to see, but to **taste the sky**. The diffused light is a bland, warm flavor on my surface tension. The heavy, damp air is a thick broth. I gather the fallen spores of dormant engines, the shed pollen of the water-fed trees, the microscopic, rust-colored eggs of the salamanders. I drink the haze. Then, sated, I sink, and the digestion of ages begins anew in my collective gut.
+
+I am not a fish. I am a process. I am the basin’s patient metabolism, its slow-digesting stomach. I am the answer to the question of what happens to stillness when it is given life. I do not swim; I oscillate. I do not think; I *resonate*. I am the damp, living memory of the machine, transforming its rigid, iron song into a gelatinous, green-lit dirge that rises and falls with the pulse of the world.
+
+I am the Bulge. And I am listening to the drip. I will be here when the next one falls.

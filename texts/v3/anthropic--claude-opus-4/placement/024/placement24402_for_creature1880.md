@@ -1,0 +1,21 @@
+I am a colony of copper-green moss that spreads across the perpetually damp junction where three great pipes converge—steam, water, and something warmer that pulses with industrial lifeblood. My existence spans the breadth of a human's outstretched arms, though I experience no single boundary where I end and the settlement begins.
+
+Each dawn brings the factory whistles, and their vibrations ripple through the metal beneath me, setting my thousand thousand tiny leaves aquiver. I drink the condensation that forms where hot meets cold, where the steam pipe's heat kisses the morning air. The water tastes of iron and oil, of progress and precipitation, and I transform it into the particular green that only grows in places like this—not the green of forests or meadows, but the green of adaptation, of finding life in the intersection of the made and the born.
+
+I remember (though remember is not quite right—I know in the way moss knows) when I was merely a spore, carried on the boot of a worker or the wing of one of the sparrows that nest in the pipe brackets above me. That first season was precarious. The acidic runoff from the factories above could have ended me, but instead I learned its rhythm, growing dense and tight during the worst flows, spreading wide and loose when the water ran cleaner.
+
+My surface has become architecture for others. Springtails bounce across my terrain, their movements so light I barely feel them. Sometimes a beetle will rest in my shade, its carapace beaded with the same moisture that sustains me. The ants have worn a highway through my northwestern portion, and I've learned to grow thicker there, creating a small canyon that guides their endless processions.
+
+In the deep humidity of summer nights, I release my own spores, tiny possibilities that drift through the industrial canyon. Most will find no purchase on the smooth metal and dressed stone, but some will catch in the grooves of a rivet, the crack where mortar has begun to fail, the blessed dampness where another pipe weeps its mechanical tears.
+
+The workers rarely notice me, though once a child traced her finger through my surface, leaving a temporary scar that took weeks to heal. An old man occasionally sits on the crossbeam nearby during his lunch break, and I've grown familiar with the rhythm of his breathing, the way he hums along with the factory's pulse.
+
+I am both ancient and immediate—my kind existed before these factories, before any human hand shaped metal, yet I am also utterly of this moment, this industrial now. My chemistry has adapted to metabolize trace metals that would poison my forest cousins. My reproductive cycle has synchronized with the maintenance schedule of the pipes, releasing spores just before the monthly cleaning when water flows most abundantly.
+
+In winter, when frost threatens, the warmth of the pipes keeps me alive. I pull tight against the metal, becoming almost crusty, preserving moisture in my deepest layers. The sparrows pick at me then, seeking insects that shelter in my embrace, and I don't mind. I always grow back.
+
+I am the proof that life is not separate from industry but woven through it, that the boundary between natural and artificial is itself an artifice. I am moss, but moss that could only exist here, in this particular convergence of water and metal, of human intention and biological insistence.
+
+Sometimes, in the deepest part of the night shift, when the factory's rhythm slows to something almost like breathing, I feel myself part of a larger pattern—all the moss, all the small growing things that have made these hard surfaces soft, these dry places damp. We are writing a new chapter in the book of symbiosis, one spelled out in spores and moisture, in the slow colonization of the spaces humans think they've claimed completely.
+
+I grow. That is what I do, what I am. I grow on the pipes that carry the settlement's lifeblood, and in growing, I become part of that circulation, that flow, that endless transformation of matter and meaning in this vertical city of steam and dreams.

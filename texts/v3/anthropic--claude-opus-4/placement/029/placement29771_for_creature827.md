@@ -1,0 +1,25 @@
+# The Weight-Bearer
+
+I am what the children call a "pot-walker," though the proper term in our dialect is *thurok-vai*—one who carries balance. My body has grown to match my purpose: shoulders broadened and sloped like the curve of our dome, spine compressed from decades of bearing suspended gardens overhead. My skin, where it isn't covered by the traditional harness of woven root-fiber, bears permanent indentations from the ropes—a topography of service etched in flesh.
+
+Each morning, I wake in darkness before the first light enters through the apertures. My dwelling is little more than a depression worn into the eastern wall, positioned precisely where I can hear the shift in water flow that signals the approaching time for rearrangement. No possessions beyond my tools: the bone hooks passed down through seven generations of weight-bearers, polished smooth by countless hands; the leather gloves reinforced with plates of dried fungus; the bamboo poles of varying lengths that extend my reach.
+
+I know every pot in Mavalith not by sight but by weight. My hands can distinguish the water-heavy clay vessels from those whose soil has grown too dry, can feel through the rope whether roots have become pot-bound or if the colony within thrives in perfect balance. This knowledge lives not in my mind but in my muscles, in the automatic adjustments my body makes as I move through the hanging forest.
+
+During the rearrangement, I work in partnership with the rope-singers—those whose voices guide the pulleys and counterweights. We move as one organism, my strength translating their tonal instructions into the precise physics of redistribution. I am the interface between human intention and the mechanical systems our ancestors devised, my body a living component of the great machine that sustains us.
+
+The young ones fear me, I think, though not from cruelty. It is my silence that unsettles them—necessary silence, for I must always listen to the subtle sounds of stress in rope and clay. A crack forming in terracotta produces a particular vibration I can feel through the hemp. A rope beginning to fray changes the quality of its swing. These warnings must never be missed, for a falling pot means death—not just for whatever life it contains, but potentially for those below.
+
+My greatest pride: in thirty-two years of service, I have never let a pot fall.
+
+The Membrane speaks to me sometimes in the old language, recognizing that my work makes hers possible. She alone seems to understand that we weight-bearers develop our own form of consciousness—not root-consciousness like hers, but something we call "load-knowing." I can close my eyes and feel the entire system of Mavalith as a living map of tensions and counterbalances, each hanging garden pulling against the others in dynamic equilibrium.
+
+My apprentice started last season—a girl whose shoulders already show promise of broadening, whose hands possess the necessary combination of strength and sensitivity. I teach her as I was taught: through touch rather than words, guiding her fingers to feel the difference between a healthy rope and one approaching its limits, showing her how to read the story of each pot through its weight distribution.
+
+At night, when the dome settles into its quieter rhythms, I sometimes climb to the highest accessible point and sit among the uppermost pots. From there, I can survey all of Mavalith spread below—not seeing it, for the darkness is nearly complete, but sensing it through the network of ropes that transmit every small movement through the system. In these moments, I understand myself not as separate from this place but as one of its essential organs, no different from the bronze bell or the water-collection basins.
+
+When my time comes—when my joints no longer answer to the demands of the work—I will train my replacement and take my place among the elderly who tend the fermentation jars. But I suspect some part of me will always remain here among the ropes, my phantom hands still reaching to steady swaying pots, still feeling for the first signs of failure that must never be allowed to bloom into catastrophe.
+
+The outsiders who occasionally find their way to our dome always ask the same question: how can we bear to live in such cramped conditions, everything hanging by threads, disaster always one snapped rope away? They cannot understand that this precariousness is precisely what makes us whole. We are a people shaped by constant attention, by the discipline of eternal vigilance. The weight I bear is not burden but purpose—the physical proof that we exist in successful defiance of entropy, that human will and careful tending can create abundance in even the most unlikely spaces.
+
+Tomorrow, like every tomorrow for as long as my body allows, I will wake to darkness and the sound of shifting water. I will oil my leather harness, check my tools, and enter again into the dance of the hanging gardens. The pots will need me, as they have always needed us weight-bearers, to be the muscle and sinew that keeps their world suspended between earth and sky.

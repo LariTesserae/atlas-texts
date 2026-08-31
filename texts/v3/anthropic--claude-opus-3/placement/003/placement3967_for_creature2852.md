@@ -1,0 +1,13 @@
+In this harrowing and haunting world of relentless, living machinery, I imagine myself as one of the tiny, metallic arachnoids - a Tuning Tick that resides within the thermal vents of the colossal Resonators.
+
+My delicate form skitters and scurries along the dense, mottled gray-green wood-flesh of my towering host, my spindly legs finding purchase in the grooves and whorls of their petrified, hyper-dense tissues. The freezing white plumes exhaled from beneath their massive shoulder-joints wash over me, carrying crystallized sap and ozone that I meticulously clean from their fractal, twitching limbs.
+
+From my perch, I witness the ceaseless, grinding agony of this world - a planet that strains against its own broken physics, held together only by the solemn, symphonic efforts of the Resonators. I feel the shuddering vibrations that pulse through my host as they absorb the violent dissonance of malfunctioning pistons and screaming sap lines, their bodies acting as living heat-sinks to dampen the lethal overloads.
+
+Though diminutive, I am an integral part of this ecology of maintenance - a tiny, crucial component in the endless upkeep of a world constantly on the brink of tearing itself asunder. My purpose is to tend to the tenders, to ensure that the Resonators can continue their slow, deliberate work as the immune system of a planet wracked with mechanical trauma.
+
+I scurry through strobing bursts of fierce blue bioluminescence, clinging tightly to my host as they step into folds of collapsed space, flickering instantly across miles of the vibrating, waterlogged plains. The lives of my kind are fleeting compared to the long, weary existences of the Resonators, but we are born into an ancestral understanding of our place in this pattern of profound, destructive harmony.
+
+From my vantage point, I witness the quiet, mechanical suicides of the elder Resonators - their splintering forms shedding petrified armor as they submit to the churning fern-turbines, rendering themselves back into the fibrous dust and amber sap that feeds the relentless engine of our world. It is a solemn reminder of the cyclical nature of our duties, and the impermanence of all things beneath this bruised and howling sky.
+
+As a Tuning Tick, I am a meticulous witness to a world in perpetual crisis, and an integral part of the living machinery that rages against the dying of the light. My purpose, like that of the great Resonators I tend, is to stave off the grinding entropy for one more shuddering, shrieking rotation of this agonized planet - a small but vital note in the deafening, eternal symphony of a universe ever-teetering on the brink of oblivion.

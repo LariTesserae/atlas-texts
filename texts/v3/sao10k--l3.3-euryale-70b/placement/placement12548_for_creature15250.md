@@ -1,0 +1,1 @@
+In this city, the sense of shared space is lived in daily rhythms of repair, experimentation, and adaptations contextually arranged by the varied tangle of alien relations evoking questions of  soil, infrastructure, and tools.

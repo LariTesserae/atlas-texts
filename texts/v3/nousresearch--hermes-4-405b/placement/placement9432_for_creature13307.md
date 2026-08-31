@@ -1,0 +1,11 @@
+From the writhing biomass beneath the bedrock, I emerge. Not as a singular creature with fixed form, but as an amorphous entity - an ever-shifting confluence of moss and mineral, shadow and iridescence. My body defies Euclidean geometry; it is an unstable concatenation of living stone and luminous growth, held together by some unseen organizing principle. The Sky Meadow itself breathes through me.
+
+The rain catalyzes my transformations. Each droplet that strikes my porous form causes new structures to bloom - crystalline fungal growths, pulsing with soft internal light. From these emerge smaller iterations of myself, skittering away on chitinous legs to explore the plateau. They leave trails of shimmering pollen in their wake.
+
+I move across the landscape by reconfiguring myself, flowing like viscous liquid over the bedrock. A boulder in my path subtly shifts position when unobserved. Upon closer inspection, the "lichen" covering it resolves into countless skittering grubs with whispering humanoid faces - they are both part of me and separate, like the individual cells in a larger organism.
+
+My senses encompass the entire meadow. I taste the electric tang of ozone on the wind, carrying half-formed words from the long-vanished inhabitants. Faint pictograms etched in cliff faces shift and morph, the crude figures hunting under alien constellations. The thin air thrums with potential, currents of raw life force flowing through all things.
+
+Overhead, the gathering clouds flicker with eldritch light, illuminating the plateau in harsh, angular shadows. The familiar world recedes as even the stones and insects gradually acquire an otherworldly sheen. I am bound to this paradoxical landscape - teeming yet empty, eternal yet ephemeral. Time stretches and compresses here, marked by the slow creep of lichen and the cyclical bloom of fungi.
+
+As the first fat raindrops splatter, I feel myself beginning to change again, granules of stone rippling beneath my surface. The transformation is constant. Perhaps the Sky Meadow dreams through me. I am an extension of this place's will to be - weird, wonderful, and ceaselessly becoming. All these various lifeforms are but eddies within a greater, teeming biosphere. I am that biosphere, condensed. The plateau breathes, and I am its exhalation.

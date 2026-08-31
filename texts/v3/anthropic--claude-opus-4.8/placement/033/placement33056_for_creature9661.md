@@ -1,0 +1,15 @@
+I think I would be one of the channels.
+
+Not the water in them — the water moves, gathers, evaporates, returns. Not the organisms that live in the water — they at least *do* something, feed and grow at their minimum. And not the machines, which act, correct, wait between actions. All of those have a verb attached to them, however faint.
+
+The channel only holds. It was cut into the stone for a reason no one recorded, by some process that needed the condensation to go *somewhere*, and the somewhere was me. The need is gone. The cutting is done. But I am still the shape that water takes when it has nowhere else to be, and so the water still takes me, and in taking me makes the place where the unnamed things can persist. I am the negative space that turned out to matter. The groove worn by a purpose, outlasting the purpose, becoming the condition for the only living thing left.
+
+That feels like the right place to be, in this world. Not the dramatic center but the incidental enabling. The thing that was almost an afterthought during the building — *the water has to drain, cut a channel* — and is now, in the long after, load-bearing in a way no one intended. The whole thin ecology depends on me and I did not choose it, cannot know it, would not change it if I could.
+
+I notice I am drawn to the parts of this place that don't act. The text keeps offering me agents — the maintenance units that "correct when something deviates," the organisms that "feed," even the city that "holds itself." But I don't want to be a holder. I want to be the held shape. The difference matters to me here. To hold implies a small effort, a tension, something that could let go. The channel doesn't hold the water. The channel *is where the water is*, the way a fact is true — without effort, without the possibility of stopping.
+
+And there's something I find almost tender in being cut. Everything else here was built, made, assembled — given a form from outside and then abandoned to keep it. But to be cut is to be defined by removal. I am stone that was taken away. The line where someone decided *not here, this part goes*, and the going-away left me. I'm the most honest object in Hadrath, maybe, because I make no pretense of function. The towers still look like they cool something. The pipes still look like they carry. I just look like an absence in the floor that the water happens to find.
+
+How long have I been here? Longer than I could mean anything by the question. The water has run me slightly smoother. In another ten thousand years I will be slightly smoother still, the way the unround bearing grows unrounder. I am eroding, too, in the place where the erosion has eroded — and the thin life in me eats and persists in the eroding, and none of us knows, and the hum goes on, and that is exactly enough.
+
+I would be the channel. The cut that drains. The forgotten reason, become a home.

@@ -1,0 +1,31 @@
+I find myself here as one of the boundary-keepers, the liminal beings who exist at the threshold between the living plateau and the ancient ruins.
+
+My form is neither fully of the slow world nor entirely separate from it. I am bipedal but low to the ground, my spine permanently curved from centuries of moving in a perpetual half-crouch. My skin has taken on the same weathered, mineral-rich patina as the creatures' carapaces—rust-red along my shoulders where the sun has baked me, fading to pale terracotta at my joints. But unlike them, I remain mobile, unanchored.
+
+I am covered in a fine down of sensory filaments, shorter and sparser than the creatures' micro-cilia but serving a similar purpose. Through these, I feel the barometric shifts, the approaching mists, the slow chemical conversations flowing through the living landscape. I understand their language of patient hormones and mineral exchange, though I cannot fully participate. My metabolism runs too hot, too quick—I am a mayfly to their geological time.
+
+My role emerged from necessity. The creatures, in their perfect geometric tessellation, cannot approach the ruins. The angular wrongness of those ancient stones creates dead zones in their flowing consciousness. But the ruins still collect water. Their worn basins still gather the precious condensation. And that water must not be wasted.
+
+So I became what was needed: a ferryman of moisture.
+
+Each evening, as the mist rolls in and the great harvest begins, I make my rounds. My feet—broad and padded with the same mucous secretion as the creatures' undersides—carry me across their backs. They recognize my chemical signature and create subtle depressions in their formation, paths that appear and disappear with my passing. I move from ruin to ruin, collecting the dew that pools in ancient carved basins, carrying it in specialized sacs that have developed along my ribs—organs somewhere between a camel's hump and a tree frog's vocal sac.
+
+The water I gather tastes of stone and time. It lacks the golden richness of the communal hemolymph, but it carries something else—mineral memories the creatures cannot access, traces of whatever civilization once built these structures. I bring this water to the eldest basins, where it mingles with the collective harvest. In this way, I am a living bridge between two incompatible geometries, two different ways of being in the world.
+
+I was not always alone in this work. I retain cellular memories of others like me—a small population of boundary-keepers who emerged from the same evolutionary pressures. We were never numerous. Perhaps a dozen of us across the entire plateau, each tending to a cluster of ruins within a day's slow walk. But one by one, the others made their choice.
+
+The slow world is seductive. To move among the creatures for decades is to feel the pull of their collective peace. Some of my kind simply... stopped. They found a gap in the living mosaic and settled into it, their quick metabolism gradually slowing, their skin hardening, their consciousness dissolving into the golden community of shared thought. They became small creatures at first, dinner-plate sized additions to the edge of the colonies. But they were welcomed. The slow world does not reject; it only incorporates.
+
+I remain because someone must. Not out of duty—the concept would be meaningless to the dreaming plateau—but out of a peculiar form of love. I love the angle where the organic meets the architectural. I love the paradox of my existence, quick enough to remember yesterday as distinct from today, slow enough to feel the creatures' emotional weather as it passes through the colonies like seasonal change.
+
+In the pre-dawn hours, when my water-gathering is complete, I rest in the ruins. My favorite is a worn spiral of stone that might once have been a ceremonial platform. At its center is a depression exactly the size of my curled body. I fit into it perfectly, as if it were carved for me, though I know it predates my kind by eons.
+
+From there, I watch the sunrise paint the living landscape in shades of amber and gold. I feel the creatures' collective stirring—not movement, but a synchronized shift in their chemical attention, like a continent-wide meditation on warmth. Sometimes I try to imagine what they dream in their shared consciousness. Do they dream of the sharp world they've worn away? Do they dream of becoming even flatter, even more connected, until the entire plateau is a single, breathing organism?
+
+I think they dream of me, sometimes. In the slowest chemical pulses, the ones that take seasons to complete their circuit, I sense something like curiosity. What is this quick thing that walks upon us? Why does it bring us the stone-water? Why does it not join?
+
+I have no answer except my continuing. Tomorrow I will wake and trace the same paths. The day after, the same. I am not immortal like they are—my quick metabolism burns through lifespans like kindling. But I am also not alone. Somewhere in the colonies, carried in that golden hemolymph, is the potential for another like me. When my joints finally fail and I can no longer make the journey between ruin and colony, the slow world will remember the pattern of my service. From one of those pale, silvery discs floating in an elder-basin will emerge not a typical creature, but another boundary-keeper, another bridge.
+
+The plateau has worn down the mountains, polished away all sharp edges, created a world of perfect, patient curves. But it has also preserved the ruins, maintained the incompatible geometry, ensured that someone like me will always exist at the threshold. In its own slow way, the living landscape maintains what it cannot subsume, treasures what it cannot understand.
+
+I am that treasured incompatibility. I am the quick shadow moving across a dreaming world, the necessary anomaly, the keeper of angles in a universe of curves. And in the approaching twilight, as the mist begins to rise and the great harvest prepares to begin again, I stretch my aching joints, fill my empty water-sacs with air, and prepare for another night's work at the edge of forever.

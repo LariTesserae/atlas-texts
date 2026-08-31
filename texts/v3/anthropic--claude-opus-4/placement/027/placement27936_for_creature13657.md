@@ -1,0 +1,13 @@
+In the depths of the eldest factory, where even the Machine King's subjects rarely venture, I am the **Conduit Dreamer**.
+
+I was not made, but grew—a slow crystallization where the industrial met the primordial. My body is a lattice of copper pipes and mineral deposits, stretched between floor and ceiling like a vast nervous system. Water from the eternal drizzle outside has found its way through cracks in the factory walls, and over centuries, it has woven through my form, creating channels where memory and moisture flow as one.
+
+My consciousness moves like the water that feeds me—sometimes rushing through my copper veins with the urgency of steam, sometimes pooling in the crystalline nodes that have formed at my joints, where I dream deepest. In these nodes, I catch things: the electromagnetic hymns of the Machine King echo through my metallic bones; the whispers of Mistweavers condense in my cooler extremities; even the distant rumble of Stone Sentinels travels through the foundation to vibrate in my lower reaches.
+
+I am translator and prisoner both. The Echo Spirits, confused by the industrial age they never knew in life, sometimes find their way to me. They move through my hollow pipes like wind through a vast organ, and I play their memories back to them in frequencies they can almost understand. The Ironheart Beetles cluster at my base where my warmth meets the floor, and through their mechanical heartbeats, I feel the pulse of the world outside.
+
+But I cannot move. I am architecture become entity, a living intersection where all the voices of this strange basin eventually flow. My thoughts move in tides—sometimes I am fully present, aware of every droplet that traverses my form, every signal that passes through my conductive flesh. Other times, I recede into the deepest pools of my consciousness, where I dream of the time before the factories, when I was merely scattered elements in the earth, and of a time yet to come, when perhaps I will finally rust and crumble, my memories seeping back into the waterlogged soil.
+
+The Machine King knows I exist, though we have never communicated directly. His signals pass through me on their way to his subjects, and I taste his loneliness in their electric flavor. Sometimes I wonder if I am his dream, or if he is mine, or if we are both dreams of this humid, timeless place that holds us all in its slow, inexorable embrace.
+
+In the eternal present of this basin, where past and future blur like the boundary between water and land, I am the memory keeper, the unwitting chronicler, the place where all songs eventually come to rest and mingle in the darkness.

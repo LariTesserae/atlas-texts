@@ -1,0 +1,25 @@
+I would find myself kneeling.
+
+Not kneeling in the sense of a ceremony, but in the way a stone kneels after a river has asked it to for long enough—rounded, softened at the edges, still holding the memory of weight. I would be in the litter layer, where the daylight arrives only as a suggestion, filtered through three canopies before it reaches my shoulders. I would not have arrived all at once. I would have been arriving for a long time, and I would still be arriving.
+
+I would be a kind of hinge.
+
+Not a thing that merely connects, but a place where two ways of being lean into one another and, for a moment, hold. The hinge would be mostly moss on the outside, velvet-dark and patterned with the tiny maps that rain makes when it finds a slope. Inside, I would be mostly echo, the hollow left behind after something small learned how to live without filling every space. My joints would click like pebbles settling, a sound too low to be a voice but clear enough to be a question.
+
+Above me, the ants’ silk routes would brush my back like braiding. I would feel their commerce in my spine: bright morsels, pollen-dust, droplets of sap that still believe they are morning. Below me, the termite city would hum its papery breath, and I would be part wall, part window, translating their heat into a language of tremors that the soil could read. My ribs would be tunnels that end in velvet, doors that open only inward, and when the frogs sat on my ledges, their skin would bloom into the color of my patience, matching me not to hide but to agree.
+
+I would have hands, or something like them—petals stitched at the wrist, soft enough to grip wet bark without bruising it, strong enough to hold a beetle’s map without erasing the ink. My tail would be the trailing edge of a thought I was still thinking, lightly touching whatever came after me to see if it wanted to go the same way. When I slept, the moss on my back would drink my warmth sip by sip, and when I woke, I would taste the night left behind in my mouth like a stone that fits perfectly.
+
+Mostly, I would be the listening.
+
+The kind that does not wait for silence but learns how to live inside the hush of many small doings. I would know the grind of mandibles as rhythm, the drip and suck of roots as breath, the distant shift of something heavy deciding to be elsewhere as music. My eyes would not be for distance but for edges, for the soft boundary where one green shade folds into another, for the quick blink of a wing that stitches the air back together. My ears would be shallow cups lined with fine fungus, trading sugar for warning, carrying news from root to root so I could brace before the rain arrived.
+
+When the canopy held the sky back, as it so often would, I would be dim with the rest of the basin, content to be rendered in texture and temperature. In that dimness, I would feel the press of neighbors—wings making a fabric, legs braiding a carpet, bodies passing through bodies with the politeness of water through moss. I would not be alone, even when I was still. I would be the place where a beetle paused to decide what kind of map to carry next, where a frog’s shadow folded itself into a comma, where the heat paused to remember the shape of a body it had once warmed.
+
+As the day thickened and light grew viscous, I would become a vessel for it. The sun, low and heavy, would press into me like a thumb into dough, and I would hold that warmth and give it back slowly, in exhalations that smelled faintly of resin and green. At night, I would release what I had stored, a soft glowing that did not light so much as it clarified, turning the dark into a velvet room where small bright eyes could meet without danger.
+
+Change would come to me as it comes to everything here: as a patient proposition. A vine would claim my arm like a friendly question, and I would let it, learning its direction as it learned my shape. A pool would deepen near my feet over seasons, and I would listen to it deepening, feeling my own edges soften in sympathy. I would not rush to keep myself sharp. I would allow myself to be included, to be processed gently into the day, to be borrowed, digested, re-borrowed, worn thin by polite use, and somehow, through all of that, to become more myself.
+
+And when I walked through the green hush, I would not leave a path so much as a conversation—a slight leaning of the ferns, a delayed closing of the moss, a warmth that lingered just long enough to be noticed and then let go. The basin would not need me to stay. It would only need me to pass through in a way that agreed with its breathing.
+
+So I would kneel, and I would rise, and I would be the hinge where soil leaned into leaf, where dark leaned into damp, where living leaned into the quiet act of being held. And for as long as the basin kept its eyes mostly closed, feeling the world through other eyes instead, I would be one of those eyes—soft, hinged, and gently open to whatever wanted to be seen.

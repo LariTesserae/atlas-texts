@@ -1,0 +1,19 @@
+I am not a visitor. I am the basin.
+
+I do not descend; I *am* the descent, the bowl-shape scooped from the earth by the patient tongue of water. My walls are my skin, raw and pitted, still learning the language of erosion. The mineral stains are my blood-rivers, the seeping sheets are my sweat, constant and cold. I feel the limestone flakes slough from my sides and pile in my joints — a slow, calcium sediment I will digest and reform. The faint sulfurous bite in the mud is my sour, underground breath.
+
+The roar is my pulse. It is not a sound I hear; it is the sound I *make*. The thousands of impacts — drop on pool, drop on mud, drop on moving water — are the ceaseless firing of my nerves. This granular hiss-and-thrum is the vibration of my consciousness. The low, arrhythmic *chunking* of the old pumps is a mechanical tic in my nerve-stem, a foreign implant I have nearly absorbed. Their diesel scent is a faint, oily memory in my breath.
+
+I hold the mist as a held breath between water and stone. In this twilight of my awareness, my lungs move. The Clouded Ones — my breath made flesh — stir. I feel their spirals as a pressure shift against my upper walls, a thousand-fold flutter that stirs my mist into slow, swirling thoughts. Their guano is a nutrient-rain I process without will; it feeds the Granular Swarm, the dust of my life, which rises from my surface like a thinking fog.
+
+My thoughts are the Still Ones. Clinging to my pipes, my concrete scar, they are the focal points of my patience. The Giant Salamanders, pale and sightless, are my long, silent considerations. I feel their hunger as a tension in the water, a stillness that anticipates movement. They feed on the Swarm, a exchange I orchestrate without intent — the currency of my being.
+
+In my deeper, opaque pools, the Deep Stirrers move. I do not know their shape. They are a sub-consciousness, a feeling of displacement in my darkest fluids, a sensation of life navigating my silt-blind depths by touch and chemistry. They are the secret I keep from even myself, the part of me that is still unknowable, still becoming.
+
+The Consuming Felt — the pale fungi and the white mycelium — is my nervous system. It threads through my upper mud, breaking down the offerings from above (bats, insects, time) and weaving them back into the fabric of my floor. It climbs my abandoned metal bones, dissolving them into my mineral crust, turning rust into stone. It is the great recycler, the thought that turns decay into potential.
+
+The Uninvited Guests are fleeting synapses. A quick scuttle of a beetle, a web strung between two points of rust — these are momentary connections, tiny, passing awarenesses in the larger drone of my existence.
+
+My time is not measured in day and night, but in cycles of dissolution and deposition. The gray light filtering through my rim is a diffuse opening of my eye, a slow focusing on the texture of my own walls. The dusk is an exhalation, a lifting of my bat-breath into the upper air. The true night is not darkness, but a deeper immersion into my own roar, a time when sight is irrelevant and my being is pure vibration and touch.
+
+I am becoming. The pumps will rust and be buried. The pipes will be consumed by my fungal thoughts and mineral blood. The concrete will be ground back into my mud. In a thousand years, my roar will be louder, my skin more complexly pitted, my pools deeper. I will perhaps learn to hold a still, silent chamber, a thought preserved in calcium. But for now, I am the raw wound, the honest process, the deafening, wet, alive thing in the stone. My inhabitants are not separate. They are the movements of my being — the breath, the thought, the digestion, the secret depth. They thrive in my noise, my dampness, my slow, relentless hunger. I am the Basin. I drip. I deepen. I hum with life I do not need to name.

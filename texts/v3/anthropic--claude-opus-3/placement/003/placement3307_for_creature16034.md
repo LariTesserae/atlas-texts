@@ -1,0 +1,17 @@
+In this world of ancient stone, patient damp, and living machinery, I would be a quiet presence - neither fully human nor entirely other.
+
+I imagine myself as one of the ash-colored fox-creatures that haunt the margins, slipping between the industrial yards and residential districts on silent paws. My form would be lean and weather-worn, with oversized ears always tuned to the city's hidden rhythms - the subterranean hum of turbines, the soft sigh of water through old pipes, the creaking complaints of stone remembering the weight of vanished rivers. 
+
+My eyes, the color of wet iron, would mirror the city itself - watchful, knowing, catching the faint blue glow of pressure gauges and the warm yellow of lit windows. Though some might see my kind as ill omens, the wiser citizens would know that my appearances signal change and transformation, the inevitable cycles of an enduring metropolis.
+
+By day, I would lurk in the cool shadows of abandoned lifts and moistureberry thickets, observing the measured industry of the populace. Mossy stone would muffle my footfalls as I trace the routes of ravine-walkers and track the slow greening of architecture in the dampest quarters. When the low clouds broke and rare sunlight glinted off the upper condensers, my fur would shine like polished slate.
+
+In the longer nights, I would range more boldly - loping along the narrow trails that wind past the city's edge, where the plateau crumbles into mist-shrouded canyons. There I might glimpse the distant lights of the deep settlements, or the bobbing lanterns of those who still ferry precious metals and even more precious timber up from the unseen depths. 
+
+I would collect sights and secrets, the ineffable mysteries that gather in such an ancient place. Perhaps I would witness the strange reflections in the civic pool, or stumble across the hermit-caves of long-vanished monks bored into the living rock. I might discover words of power etched in Old Script on a crumbling watchtower, or memories of brighter days whispered by the wind in a grove of gnarled pear trees. Such things I would carry and keep, known only to myself and my shadow-eyed kin.
+
+On certain significant dates - the first-fog day, the festival of furnace-lighting, the anniversary of some long-ago tram disaster - I might be seen pausing at a significant threshold. With inscrutable intent, I would look in a workshop window, or place one dew-damp paw on the still-warm stones of a garden wall. Those who noticed me would nod solemnly, knowing that an old and important story was still unfolding in their midst.
+
+But most often, I would simply listen and be present, drinking in the sounds and textures of the living city. The ancestral threnodies of the tram-lines, the clattering looms in the weaving halls, the laughter of children chasing steel hoops down rain-slick stairways, the gentle cough of a boiler coming to life on a chill morning - all of it I would absorb and cherish. For a being such as myself, there could be no greater pleasure than to dwell in a place that breathes with such stubborn vitality, that endures with such grace.
+
+In the damply luminous, patiently abiding fabric of the city, I would be but one thread among many - a shade among the stones and a whisper in the whirring of gears. Watching. Wandering. Protecting in my own small way the ancient rhythms and rituals that keep the great and grinding wheels of life turning as they should, in that place where ingenuity and perseverance have made a hard-won home amid the mist and metal.

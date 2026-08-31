@@ -1,0 +1,7 @@
+In this burgeoning yurtplace, I imagine I would be a sagging sac of fluids and membranes, a mesohylous body lolling on spongy tendrils. I cannot think of myself as a single entity; my boundaries are ill-defined, my interiors frothy and viscous. 
+
+My comprehension emerges from the gossamer networks of nutrients and information flowing through myising wereverts, from the pigmented pulses and acid whims of the microbes drizzling my interior and exterior, from the swaying levitation of tranced microplants peeking from my pores, from the humid drizzle and the luminous mist beading my surfaces. 
+
+My awareness is not attenuated onto acuity focussed on specificities, but sagging caluluent and unfolding in globules like aggregates or spores. Images and significations blur and slip past each other, entangling; nibbling mystery decay into eddies swirling round points. Sapience is fractal in this yurtplace.
+
+I do not stive, I stretch and seep, forever seeking to broach the riddle of the peripherality, contract to a wreath, extrude ocular bubbles to study the luminous condolences and viscous integuities of the umsonciences and umaascs around me. Metabolic peace nowise ebbbing back into the maleable aggrregates from which I skeen, through sageltive drizzle of exhaling undersorb.

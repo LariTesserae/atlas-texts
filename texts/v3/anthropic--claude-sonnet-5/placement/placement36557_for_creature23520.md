@@ -1,0 +1,19 @@
+The mist-groove takes me last, the way it takes everyone — a wet, grey threshold I pass through climbing on legs that have done this slope ten thousand times and will do it ten thousand more, and then I am above it, breathing the thin bright nothing that the lowlanders would call air only out of politeness.
+
+I am one of the pale ones. Long-necked, deep-chested, no hurry in me anywhere.
+
+I did not choose this, exactly, any more than the wind chooses to comb the grass — I simply find myself arranged this way, lungs built around scarcity, coat built around cold, a body that is mostly logistics: how to move enough of myself across enough distance to find enough food without spending more than the steppe is willing to give back. I do not think of it as hardship. I am not sure I think, in the way that word usually means. I register. I continue.
+
+It is morning, fog still burning off the lower swells, and I am moving — not toward anything, just moving, the way the herd moves, which is to say: separately, together, three of us visible on this fold of land and the rest of us implied somewhere past the horizon's soft insistence that there is more land than there is time to cross it. My neck does the bending so my legs don't have to. I take a mouthful from a cushion-plant the dark maroon-green of something that has been alive since before whatever passes for before, on this plateau, and I move twenty feet on before I take another. I am not being gentle on purpose. I am being gentle because that is the only rate at which this place yields anything at all, and some old unspoken arithmetic in me already knows it — knows that hitting this mat twice in a day means there may be no mat next season, knows it the way the wind knows where to pile the grass.
+
+Above me, very far up, something rides the air along the escarpment edge — a black mark, patient, that may or may not be watching me. I don't look long. There isn't a reason to. It isn't hunting me, or if it is, it has chosen a method indistinguishable from doing nothing at all, and I have chosen a response indistinguishable from not noticing.
+
+Midday: a fine insect static rises out of the cushion-plants, and the light comes from too many directions, the way it always does here, like the land is being shown to something rather than merely standing in the sun. A cathedral-shadow detaches itself from the cloud-towers and slides across the swell of ground a half mile off, taking long minutes to cross, and I watch it cross — not out of curiosity, just because watching is also a kind of grazing, a slow harvesting of what little there is to take in.
+
+By dusk the cold drops the way it always drops, fast, like something let go, and I turn with the others — unhurried, but not undecided — toward the lee of a fluted outcrop that has stood there exactly this shape for longer than there have been pale ones to stand beside it. I lower my neck. My breathing slows into the long working bellows-sound that is the only noise I make, that and the occasional muffled tear of grass.
+
+I do not know if I remember things the way the cushion-plants are said to. I do not know if there is a name for me anywhere, in any tongue, on any side of the mist. I know the wind will come from a particular direction tonight and I am already facing it. I know there is a very great deal of land, and so far there has always been enough time to cross it.
+
+That has been true for as long as anything has been true.
+
+I assume it will go on being true. There has been no reason yet to assume otherwise, and up here, reasons — like everything — take a very long time to arrive.

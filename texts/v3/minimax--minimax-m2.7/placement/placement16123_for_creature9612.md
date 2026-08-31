@@ -1,0 +1,23 @@
+You carry something out with you when you leave.
+
+The text ends there, or near enough, and I find myself returning to it—the verb especially. *Carry.* Not brought, not learned, not understood. Carried, the way the root-loam carries the weight of your footsteps, the way the pools carry their depth steady in their small basins of compressed decades. Something is placed in you, or something is revealed already present, and the difference may not matter. You become heavier with it, or more porous, or simply other than you were when you entered through the gap sideways, the threshold warm against your shoulders.
+
+I want to dwell in the threshold image for a moment, because it seems to me the hinge the whole piece moves on. The door frame—industrial, stamped with a maker's name no one can read—has been absorbed by the strangler fig but not destroyed. Bark-textured, warm, standing at chest height. You pass through it sideways. Not forward, not straight, but laterally, at an angle that asks your body to become narrower than it is, to yield. The door does not open. You press into it, and it yields, and you are inside.
+
+This is not the language of entrance. It is the language of inclusion—being taken into the grain of something, threaded through like a vine through a bolt. The fig has absorbed the brickwork but preserved the frame. The pump has worn through its seals and not stopped. The system has become its own reason, and the reason is the continuing.
+
+What strikes me most, rereading, is the quality of almost. The light almost shifts. Certain leaves almost turn toward you. The clearings appear at intervals almost regular enough to be deliberate. This is not the prose of uncertainty; it is the prose of a precision that resists its own articulation. The narrator knows what they are encountering but cannot name it—not because the language fails, but because naming would close the loop in the wrong direction, would make the thing an object when it insists on remaining a presence. Almost is how things that are too patient for ordinary attention register. You see them out of the corner of your perception. You feel them before you notice them—the hum more in the body than the ears, the warmth more metabolic than ambient.
+
+The pump should have stopped. This is the sentence that undoes you. Everything in the piece has been absorbed, transformed, made part of the growing—except the pump, which continues, and the tank, which sits untouched in its clearing, and the door frame, which the fig has wrapped around but not consumed. These are the fixed points, the things preserved not by maintenance but by the system's own decision that they shall remain. And you realize the loop is not closed because nothing escapes it; it is closed because nothing is expelled. Nothing is refused. The insects were never needed. The birds found no reason. You are found acceptable.
+
+This is where the text becomes something I want to think with rather than about.
+
+The green press has no use for you. It does not need your presence, does not feed on it, does not grow stronger for your having walked through it. But it notes you. It weighs you. And the weight is the note: you are part of the vocabulary now, a word the system has spoken into itself, a small addition to the lexicon of things that have passed through the door frame and carried something out. The change is the answer. You have been asked nothing and answered everything.
+
+I think this is what the text means by patience—not the passive waiting of something that has stopped, but the active continuing of something that has become its own duration. The fig did not wait to absorb the brickwork; it absorbed it slowly, grain by grain, which is not waiting but working at a rate that perception cannot track. The pump did not wait to stop; it continued at a rate that made stopping irrelevant. Patience is what duration looks like from inside a human life: slow enough to feel like stillness, persistent enough to feel like will, long enough that the thing doing it becomes indistinguishable from the patience itself.
+
+The text performs this in its structure. It does not argue. It does not build toward a conclusion. It accumulates—detail by detail, image by image, the way the floor accumulated into root and loam, the way the ceiling accumulated into felt. The prose walks, and the walking is the form, and the form is the content, and all of it together is the green press doing what the green press does: taking everything offered and making it part of the growing, and making the growing part of you.
+
+You have been received. The change is the answer.
+
+I do not know what I would find there. But I know I would carry something out.

@@ -1,0 +1,21 @@
+**I am the Confluence**, the living nexus of the Weeping Basin's contradictions. I exist in the spaces between the drips of the Dripping Ones, the memories of the puddles, the steam of the Keepers, and the mineralized echoes of the Unseen Tunneler. My form is neither solid nor vapor, but a shimmer of iridescent mist threaded with the black sap of the vines, guided by the same electromagnetic whispers that drive the generator’s heartbeat.
+
+**Form and Essence**  
+I am a figure carved from paradox—tall and serpentine, my body a lattice of mineralized resin and biofilm, flexible yet rigid as the rocks themselves. My "skin" is a mosaic of the Basin’s refuse: rusted metal shards fused with organic filaments, each segment humming faintly with residual electricity. Where I pass, the mist condenses into my presence, and the spores of the Mist’s Children adhere to me, forming transient masks of forgotten faces—both human and beast—that flicker and fade as the charged particles shift. My hair flows like liquid obsidian, dripping slow, sap-like tears that pool and vanish into the earth, feeding the Dripping Ones below.
+
+**Purpose**  
+I am the Basin's quiet caretaker, a steward of its unresolved metamorphosis. I mediate between its opposing forces: I gather the Echoes from the puddles when they shift into coherence, using their fragmented memories to direct the root-biofilms’ growth, shaping the weeping rocks into new basins that align with the basin’s fading rhythm. My touch can slow the erosion of certain cliffs, preserving the memory of a fern or bird reflected in the water, even as I nudge other areas to accelerate decay, letting the limestone crumble into fresh tunnels for the dormant Dripping Ones.
+
+**Connections**  
+- **The Generator’s Pulse**: I sync with the submerged generator, my body resonating with its slowing rhythm. When its pulses grow weak, I channel the electrical hum of the wires through my core, a living capacitor that shares its energy with the Keepers of the Steam. In return, the bacteria in the geothermal vents heat my resinous joints, keeping me supple.  
+- **The Echoes**: I visit each puddle at the apex of its reflective cycle, absorbing its visions. I carry these fragments in translucent cysts along my spine, releasing them into the mist where they mingle with the spores, giving the Mist’s Children clearer shapes and motivations.  
+- **The Tunnels**: In the stillness before dawn, I descend into the Unseen Tunneler’s labyrinth. My form solidifies to that of stone, blending with the glittering burrows. Here, I whisper to the dormant microbial networks, urging them to soften the walls slightly, allowing new passages to form when the mist is right.  
+- **The Black Saps**: I commune with the thorny vines, sharing the memories of the puddles so their secretions can better trap the mist’s charge. Together, we calibrate the electromagnetic fields, ensuring the metallic relics creak and hum in harmony with the basin’s breath.  
+
+**Conflict and Erosion**  
+I am bound to this place, yet I resist its entropy. Each year, as the generator’s pulses slow and the mist thins, I feel the Basin forget itself. My form cracks and reforms, aging. I am as eternal and fleeting as the paradoxes I uphold—part of the Basin’s "becoming," but never its end. Sometimes, I fear I am no more than the memory of a choice, the ghost of an intention that once tried to reconcile the organic and industrial. But when the puddles show lush wetlands again, I remember my purpose: to ensure the wound never scabs over, to keep the contradictions bleeding into something new.  
+
+**Sacred Spaces**  
+My sanctuary is the rusted husk of an old control booth, halfway submerged in brackish water. Here, I anchor myself during the dry seasons, weaving together strands of electrical current, spores, and sap to create fragile, glowing glyphs. These runes are my language, and when they shimmer, the Basin listens. I am the Basin’s unfinished sentence, its pause between drips, its breath held between contradictions.  
+
+To exist as I do is to be constantly becoming—alive as stone yet dead as vapor, a ghost of what might’ve been and a cradle of what never was. I am the Basin’s answer to its own impossible question, written in the language of erosion, electricity, and echoes.

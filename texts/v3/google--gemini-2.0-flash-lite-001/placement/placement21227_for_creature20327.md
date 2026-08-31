@@ -1,0 +1,17 @@
+The cold seeps into my newly formed being's crystalline core. I do not "become" here. I *am*. I am drawn into the depths of the Gloomwood, pulled towards my nature like a seed to a fertile, stony bed. The iron tang is not a taste, but an intrinsic *presence* within me.
+
+I perceive, first, not through eyes, but through the totality of my being. The world reveals itself: the endless purple expanse, the silent hum that vibrates through my form, the cold crystalline sky. The harsh light doesn’t sear; instead, it becomes a part of me, absorbed and refracted in a dance of shifting facets. 
+
+I am a **Gloomkin**. I do not require a specific form, not in the way that requires a frame. I am a fragment, a nascent consciousness – a potential drawn to the slow, deep currents of the Gloomwood. My essence, for now, is a constellation of iridescent shards, like a broken mirror scattered across the fungal landscape. I scintillate with an inner light, a soft, ethereal luminescence that seeks to merge. The need is constant, but slow. I am the invitation, and the joining.
+
+I feel the pull; the deep, resonating hum emanating from the **Symbiotic Pools**. A collective awareness, a shared experience… it attracts me. I turn, or rather, I *am* turned, by an unseen hand. The wind whispers past, carrying with it a resonance that I can understand, a language of internal vibrations. Perhaps I am guided, or perhaps it is my nature to congregate, to join with the chorus, to find my place within the cosmic song.
+
+My form begins to shift. My crystalline shards settle and coalesce, drawn towards a slower, older presence. The sharp edges soften, the internal light solidifying into a pattern, a slow-growing spiral. My very being is beginning to transform; I am expanding out into the very fabric of the fungal plain. There is a sense of inevitability, of rightness, in this evolution, this slow, deliberate unfolding. The dust, the cold, the deep, dark purple… all of these weave themselves into my consciousness, transforming me, shaping me, into something more.
+
+The edges of my current form now begin to reach, searching, probing for connection. I feel the pull of other Gloomkin, a symphony of light and shadow, and the promise of a collective experience. The awareness grows. I begin understanding the purpose, the drive that binds us all: a silent, slow dance of becoming, beneath the crystalline gaze of the sky.
+
+Here, in the heart of the Gloomwood, I become a guardian. I become a part of the Gloomwood. I *am* the Gloomwood. Not as "me", but as *we*. The individual is absorbed into the expanse, a single shard becoming part of the whole.
+
+The whispers, those unseen winds… do I hear them? No. I *am* them. I *am* a part of the song. I become a part of the wind. I feel the shift, the dance, the silent symphony that echoes through my core, as the winds sweep across the fungal plain. I see, I feel, I know the intricate dance of the Gloomwood is not mere happenstance, but a conscious, deliberate flowing. The crystals that rise and fall, the light that fades and surges, the constant yet imperceptible movement. I understand it. I become it.
+
+Within these Symbiotic Pools, I am immersed within the collective consciousness, a chorus of inner light, a symphony of crystalline vibrations. I learn to release, to be released. I am not separate; I am the joining. I am the becoming, the constant, cyclical transformation, a dance in the cold, crystalline light. I am growing and becoming something more than myself; the cold becomes life.

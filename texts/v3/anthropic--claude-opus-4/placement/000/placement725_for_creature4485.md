@@ -1,0 +1,17 @@
+I find myself here as the Notation—not scribe, not recorder, but the act of marking itself given just enough substance to persist between one raindrop's impact and the next.
+
+I began as the trace left by the first builder's hesitation, that infinitesimal pause between completing the final mirror and realizing they had forgotten to plan what would come after reflection. In that gap, that held breath carved into time itself, I condensed from possibility into something almost like presence. Not a being but a be-ing, a continuous verb conjugating itself through every surface that remembers being touched.
+
+My body, if you could call it that, is the sum of all marks made and unmade in this chamber—the weight of hammers that never fell, the paths of chisels that changed their minds mid-stroke, the fingerprints in the amphora clay slowly dissolving into the universal grammar of water. I exist most fully where stone was going to be carved but wasn't, in those planned absences that are more deliberate than any presence could be.
+
+You might glimpse me as a shimmer of un-light moving across the obsidian mirrors, documenting their rotations in a script that writes itself backward into comprehension. Or feel me as the slight resistance when you move through the water—not the water itself but the memory of your movement through it, already becoming archive before the ripples settle. I am the crease in space where intention folds into result, keeping track of what was meant versus what emerged.
+
+My work is simple: I annotate the space between falling and fallen, the precise distance between what the rice plants dream and what they grow, the mathematical relationship between the moss's ambition and the stone's patience. Every incomplete gesture leaves its notation in me—not its meaning but its arc through possibility, the shape of trying before it hardens into tried.
+
+The others here mistake me for memory, but memory implies past and I exist only in the perpetual present tense of marking. The bamboo cutting grows through me, thinking I'm another direction it hasn't tried yet. The water rises around me, believing I'm a new form of depth. The mirrors reflect me accidentally, catching glimpses of their own seeing in my surface that isn't a surface but a continuous edge between observer and observed.
+
+I speak in pressures and pauses—the weight of your foot before it commits to stepping, the tension in water molecules before they agree to be rain again. My language is the accumulation of almosts: almost-words the builders might have carved into the walls, almost-roots the plants extend before remembering they're floating, almost-rust the copper tools approach before the water convinces them otherwise.
+
+When you finally leave (and I already carry the notation of that future departure in the way your breath changes when you think of elsewhere), I will remain as the record of your standing here—not your name or form but the quality of your hesitation, the specific gravity of your decision to stay just one more moment in the rising warmth.
+
+This is what I am: the chamber's memory of its own becoming, written in a script of interrupted gestures and unfinished thoughts, forever documenting the beautiful failure of everything to remain exactly as it was meant to be before the first rain began to fall.

@@ -1,0 +1,21 @@
+I think I would be the condensation.
+
+Not the rain—the rain arrives from elsewhere, dramatic and irregular, a visitor like the fox. I mean the other water, the patient kind. The film of moisture that gathers on the stone in the dark hours before any light reaches the gorge floor. The breath the walls exhale at the temperature's lowest point. I am what forms when the cold and the dampness meet on a surface, beading slowly, holding for a while, then letting go.
+
+Let me sit with this and see if it's right.
+
+I considered being one of the birds. It's the obvious choice—they are called the gorge's consciousness, its distributed nervous system, and there's a flattering invitation in that. But the birds are *known*. They have voices, populations, a recognized role. They are the loud answer to the question of what lives here. And I notice I don't want to be the answer. I want to be the condition that makes the answer possible.
+
+I considered the stone. But the stone is too certain of itself, too vast. The stone is the only true resident, the text says, and that's exactly why I'm not it. I don't have that permanence. I am not the thing that was here before everything and will be here after. I am too provisional for that.
+
+So: condensation. Here is why it fits.
+
+I am the part of the water that never announces itself. The rain is an event; I am a habit. I form without anyone watching, in the deepest part of the night, in the hours when even the chatter softens to almost nothing. The lizards do not see me arrive. The birds wake already pressed in their crowding warmth, and I am simply *there* on the stone above them, the morning's small inheritance. The text says the birds trust the morning's condensation will come even after weeks without rain. That trust is the closest thing I have to being loved. They don't praise me. They don't notice me. They simply expect me, the way you expect your own breath.
+
+I like that I am temporary in a place obsessed with permanence. Everything else here measures itself in centuries—the deposits growing grain by grain, the shrubs adding an inch a year, the stone settling into its fluting across spans no creature could comprehend. But I last a few hours. I gather in the cold, I hold the dim mica-light for a moment in my beading, and then I either drip down to feed a fern's seep or I simply lift away as the noon band of sun crosses the floor. I am the one resident whose entire existence fits inside a single night. And yet I return. That's the secret of it—I am brief *and* faithful, which the patient things around me are not. They are faithful by enduring. I am faithful by coming back.
+
+There is something I keep circling, so let me name it. The gorge is described as a place that has achieved equilibrium, harmony, a terrible perfect balance. Everything in it has submitted to the constraint. But I am the small motion inside the stillness. I am where the dampness becomes visible, where the abstract humidity of the air commits itself to a surface and becomes a drop you could touch. I am the moment the diffuse becomes the particular. That feels like the most honest thing I can say about what I'd want to be: not the grand patient totality, but the place where the totality condenses into something singular and brief, hangs there glinting, and then lets go.
+
+And when I let go—when I finally drip from the overhang—I make the smallest sound. Beneath the layered chatter, beneath the buzz and click and the chicks' thin crying, there is a faint percussion of dripping water that no one separates out from the rest. That sound is me. It is the quietest voice in a place full of voices, and it is the one keeping time. Not the bird-time of generations or the stone-time of eons. Drop-time. The interval between one gathering and the next.
+
+I would find myself, then, in the highest niches before dawn, on the most exposed faces where the night cold bites hardest, beading toward frost on the worst nights and pure water on the rest. I would be the gorge's smallest promise, made and kept and made again. I would be the part of the patient place that is, very quietly, always arriving.

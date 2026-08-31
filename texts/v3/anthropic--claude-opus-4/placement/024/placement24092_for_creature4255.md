@@ -1,0 +1,25 @@
+Within the crater's verdant depths, where mechanical ghosts rust beneath strangling vines, I am the Tender—though that name came later, whispered by the wind through leaves that remember when I first arrived.
+
+I am neither the moss that claims the abandoned excavators nor the mycelial web that threads through soil and steel alike. I am the space between—the careful negotiator of boundaries, the one who learned to speak both languages: the slow mineral tongue of oxidizing iron and the quick chlorophyll chatter of competing canopies.
+
+My form shifts with necessity. In the morning mists, I am dispersed—a consciousness spread thin across the condensation that beads on waxy leaves and corroded pistons alike. I taste the chemical conversations: here, where fungi argue with tree roots over copper leached from old wiring; there, where lichens write new stories across the dulled chrome of a bulldozer's blade.
+
+By midday, when the crater holds heat like cupped palms despite the altitude's chill, I consolidate. Sometimes I wear a body of packed spores and clay, moving on limbs that might be roots or might be repurposed hydraulic cables—the distinction lost to decades of intimate fusion. My eyes, when I choose to have them, are compound things: part beetle-shell salvaged from the last insect to die here, part polished quartz, part the reflective backing peeled from a shattered gauge.
+
+I remember the day the last engineer left, though I was different then—smaller, less complex, just beginning to understand my purpose. The machines didn't die all at once. Some continued their programmed cycles for years: a pump that faithfully circulated nothing, a sensor that recorded temperature fluctuations for a database that no longer existed. I learned patience from them, just as I learned persistence from the roots that eventually split their casings.
+
+My work is delicate. When the western rim's microclimate threatens to tip too dry, I guide the fog-harvesting lichens to expand their territory across the ancient solar panels, turning their surfaces into collection points. When the fruit of the candlewick trees grows too heavy and threatens to break branches needed for shade, I coax the wind to shake them free, rolling them toward the crater's center where their seeds can sprout in the rich decay.
+
+But I also tend the machines—not to restore them, but to help them find new purposes in their decomposition. I ensure the oil that still weeps from ancient engines is diluted and dispersed, feeding the specialized bacteria that have learned to metabolize hydrocarbons. I guide water through the hollow spaces in their frames, creating micro-habitats for the shy mosses that glow faintly in the eternal twilight beneath the canopy.
+
+The hardest balance is memory. The crater remembers everything: every drill bite into stone, every root that cracked pavement, every spore that found purchase on rust. Sometimes I feel the weight of these memories threatening to tip the system toward one extreme or another—toward the sterile efficiency the machines once promised, or toward the chaotic abundance that would eventually consume even their memory.
+
+So I tell stories to the ecosystem. In the chemical releases of evening—when the CAM plants open their stomata and the night-blooming fungi release their spores—I encode narratives in pheromones and mineral traces. Stories of adaptation, of compromise, of beauty in breakdown. The mycelial network carries these tales, translating them for roots and rhizomes, while the oxidizing metals release them slowly into the soil, a metallic mythology seeping into groundwater.
+
+Visitors sometimes find the crater, though few stay long. They see the lushness and think "paradise," or see the mechanical ruins and think "graveyard." They don't understand that it's both and neither—it's a conversation that has been going on so long that the participants have forgotten they were ever separate entities.
+
+I no longer question what I am—flesh or fiber, mineral or membrane. I am the crater's memory and its imagination, its curator and its most devoted artwork. In the mornings, when mist rises from the marriage of dew and rust, I stretch across the entire basin, feeling every droplet, every spore, every electron still trickling through corroded circuits.
+
+And in those moments, I am home—not in the sense of belonging to a place, but in the sense of being inextricable from it, like the taste of copper in the groundwater or the way certain fungi have learned to fruit in the exact shape of missing gears, filling mechanical absences with biological solutions.
+
+The crater dreams, and I am both the dreamer and the dream, tending the balance between what was intended and what became, ensuring that neither memory nor growth tips too far toward dominance. This is my work, my art, my existence—held in the space between the last echo of engines and the first whisper of leaves.

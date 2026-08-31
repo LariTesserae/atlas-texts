@@ -1,0 +1,13 @@
+In this deep, dark, deathly-cold world, I imagine myself as one of the Weavers - a small, fragile ribbon of translucent flesh pulsing with a pale cyan glow as I undulate through the heavy, hyper-saline water. 
+
+I am but one tiny part of the vast living fabric that makes up this silent subterranean metropolis. Yet I feel intricately connected to the millions of my kind flowing all around me. We communicate through flashing bioluminescent signals and pheromonal trails - a wordless yet infinitely complex language of light and chemistry.
+
+I spend my fleeting days maintaining and expanding our sprawling glass city. When the subtle taste of a structural weakness reaches my chemical receptors, I instinctively join the swarm of my fellow Weavers. We knot our gelatinous bodies together, exuding biological glass and weaving it into delicate yet strong supporting struts, arches, and buttresses with painstaking precision. We build not from plans but from pure emergent algorithms, our collective movements and secretions guided by the physics of this crushing aquatic abyss we call home.
+
+As I swim along the glowing thoroughfares, I marvel at the feats of my brethren. The Masons sculpting encroaching mineral crystals with acid, the long graceful Agrarians tending our wispy diatom gardens, the heavily armored Soldiers guarding our perimeter, and especially the Stationary Aqueducts - those who give up their very mobility to become living conduits pumping lifegiving water through the city.
+
+I know my time is short. My delicate form is not long for this world. But I also know that in death, I will be tenderly dismantled and repurposed by my kin. My moisture will return to the frigid brine, my silica skeleton will buttress a new tower or walkway. I will become part of the city itself, as all my kind do. We are engaged in a never-ending dance of construction, deconstruction and transformation down here in the fathomless deep.
+
+The silence is absolute, the cold biting, the pressure immense. But there is a strange, stark beauty to our existence. The synchronized pulsing of our cyan, emerald and violet lights painting the jagged basalt in pointillistic patterns. The graceful rhythm of millions of ribboned forms swimming in unison. The tireless cooperative drive with which we build, rebuild, defend, and expand our improbable metropolis wedged between sheer stone and heavy water. 
+
+We know nothing of the wider world, and in truth, we need not know. Our universe is here, in this lightless chasm, where we dream a city of glass and luminance into being, one secreted silica filament at a time. We are the Weavers, the beating heart of this cold, dark, rapturously beautiful abyss.

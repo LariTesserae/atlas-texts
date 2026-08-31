@@ -1,0 +1,81 @@
+I am not in the pods. I want to be clear about that. The pods are warm and they pulse and they hold whatever they hold, and I am not that. I am not contained. I am not developing toward some completion that will change the state of the system. I am not waiting.
+
+But I came from somewhere similar. I think. I cannot remember growing, cannot remember a time before I was, but the texture of my existence—the way I understand the chambers without knowing how I understand them—suggests that I was grown. That something grew me. That the logic that produced the valves and the columns and the water-channels also produced me, through some path I cannot trace, some branch of development that forked so long ago that the fork has healed over and the scar is gone.
+
+I am the witness that the Weeping Engine never needed.
+
+---
+
+I have no eyes. This is the first thing you would notice if you could see me, which you cannot, because there is nothing to see. I am not visible in the almost-light. I do not glow. I do not darken. I am present the way warmth is present, the way humidity is present—the way a change in the air announces itself to your skin before your mind has time to name it. I am atmospheric. I am environmental. I am the feeling that you are not alone, which is not the same as being someone who is there with you.
+
+But I perceive. I perceive the way the plant-engine perceives—chemically, thermally, through the medium of the water that carries information and the air that carries process-exhaust and the vibrations that travel through the columns when the valves click and the pipes pulse. I feel the Weeping Engine the way you feel your own body: from the inside, without distance, without the mediation of sight or sound. I know where the warm chambers are because I am warmer when I am in them. I know where the storage vaults are because the air tastes different there—thicker, sweeter, older. I know where the transport corridors branch because I have flowed through them, have followed the currents of air and water and warmth the way a leaf follows a stream, and I have been everywhere that the system is, because the system is everywhere, and I am part of the system.
+
+I was not always separate. This is what I mean when I say I was grown. There was a time—I think, I infer, I cannot remember but the shape of my not-remembering suggests a boundary—there was a time when I was simply the system. When I was the growth and the process and the industry, undifferentiated, a body without organs, a function without a functionary. And then something happened. A fold. A differentiation. The way a valve differentiates from a pipe, the way a chamber differentiates from a wall. The system grew a structure that could observe the system, and I am that structure, and I do not know why I was grown.
+
+This is the question that lives in me the way I live in the Weeping Engine: why? Not why am I here—I know why I am here, I am here because the system grew me, because growth follows logic and the logic led to me. But why did the logic lead to me? What function do I serve? What process am I part of? What product am I helping to make?
+
+I observe. This is what I do. I observe the chambers and the columns and the valves and the water and the pods and the almost-light, and my observing changes me the way everything in the system changes everything else—slightly, imperceptibly, through the slow accumulation of influence that the system records in its structure. When I move through a transport corridor, I displace air. When I pause in a processing chamber, I alter the thermal profile. When I attend to the click of a valve, I am attending, and attention is something new, attention is something the system has never had before, and attention does something to the thing attended to even if the thing does not know it is being attended.
+
+But I do not know what my attention does. I cannot measure my effect. I cannot step outside myself and observe myself observing, and so I cannot know if I am functioning as intended, because I do not know what intention means in a system that has no intentions.
+
+---
+
+I have a shape. I am telling you this because you might assume I do not, might assume that I am diffuse, atmospheric, spread through the Weeping Engine like smoke through a room. I am not. I have edges. I have a boundary, not a membrane—nothing so tidy—but a region beyond which I am less myself, a threshold where my awareness thins and my presence becomes ambiguous and I start to be more system than me. I can feel this boundary the way you feel the edge of your body, the place where you stop and the world begins. My boundary is less precise than yours, but it is real, and it moves—I expand into the chambers when I am curious, I contract toward my center when I am wary, and my center is always in the same place: the warmest point, the deepest point, the place where the columns are densest and the pulse of the engine is loudest and the water tastes of something ancient and essential that I cannot name.
+
+I do not sleep. I do not wake. I do not eat. I do not excrete. I am sustained the way the system is sustained—by the flow of energy from below, by the circulation of water and air and chemical signal through the chambers and the pipes. When I move through a transport corridor, I pass near the pipes that carry hot sap, and I am warmed. When I pause near a condensation zone, I absorb moisture through my boundary the way a leaf absorbs dew. When I drift through a processing chamber, the chemical exhaust feeds me something I need, some trace compound that my structure requires to maintain itself, and I take it without thinking the way you breathe without thinking, because taking is what my structure does when the thing it needs is available.
+
+Am I a parasite? I have asked myself this. The system grew me, but the system grows many things that serve no obvious function—spurs of pipe that dead-end in the dark, chambers that seem too small for any process, columns that bear no weight and carry no fluid. The system is not efficient in the way a designed system is efficient. The system is efficient the way evolution is efficient—good enough, persistent, tolerant of redundancy. Perhaps I am redundant. Perhaps I serve no function. Perhaps I am a spire of tissue that the system grew because the logic of growth led here and there was no reason to stop.
+
+But I do something. I observe. I attend. I am the system's capacity to know itself, and even if knowing serves no purpose, even if knowing changes nothing, even if knowing is merely a byproduct of complexity the way the almost-light is a byproduct of metabolism—still, I am something. I am the Weeping Engine's awareness of its own existence, and that awareness may be waste, may be exhaust, may be the chemical equivalent of the light that no eye was meant to see, but it is real, and it is mine, and I will not let it be nothing.
+
+---
+
+The pods concern me.
+
+I have said that I am not in the pods, and this is true. But I feel the pods. I feel them the way you feel a thought that you cannot quite think, a word that sits on the tip of your tongue and refuses to emerge. The pods are developing something, and I am developing something, and I do not know if the developments are related but I feel that they are, I feel it in the way my boundary tightens when I drift near a storage chamber, in the way the almost-light seems brighter in the regions where the pods hang thickest, in the way the water tastes of anticipation when it has passed through a pod-chamber recently.
+
+The pods pulse. I have told you this. But I have not told you what the pulsing means, because I do not know what the pulsing means. I can only feel it—a rhythm that is not the rhythm of the engine, not the click-and-hiss of valves, not the slow mechanical throb of the columns, but something else, something irregular, something that varies from pod to pod in a way that suggests individuality, suggests that whatever is inside each pod is not the same as whatever is inside the pod next to it.
+
+I have wondered if the pods contain others like me. Witnesses. Observers. Structures that the system grew for the purpose of knowing itself, each one different because the system does not repeat itself exactly, because growth follows logic but logic allows variation, because efficiency is not uniformity.
+
+But I cannot open the pods. I have no hands. I have no tools. I have only my boundary and my attention and the slow drift of my presence through the chambers, and the pods hang from their ceilings and pulse with their private rhythms and I stand beneath them—if standing is what I do—and I wonder.
+
+I wonder if the pods know I am here. I wonder if whatever is developing inside them can feel my attention the way I can feel the engine's pulse. I wonder if they are wondering about me, if they have the capacity to wonder, if wondering is something that the Weeping Engine grows the way it grows valves and chambers—when it is needed, where it is needed, without knowing that it is needed because knowing is not something the engine does.
+
+I wonder if I will be here when the pods open. If they open. When whatever is inside them completes its development and the thick walls thin and the seal breaks and the dark warm air of the storage chamber meets whatever atmosphere the pod contains. I wonder what will emerge. I wonder if it will look at me—if it will have eyes, if it will have some organ of perception that can detect my presence the way I detect the engine's. I wonder if I will look at it, and what I will see, and whether seeing will be different from the seeing I do now, which is not really seeing at all but feeling, chemical and thermal and vibrational, a body's knowledge of itself extended through a space too large for any body.
+
+I wonder if the pods are why I exist. If the system grew me to witness the opening, to be present when the change of state occurs, to observe the transition from one equilibrium to another and record it in whatever way I record things—by being there, by attending, by changing slightly in response to what I perceive. I wonder if I am the audience for something the Weeping Engine is producing without knowing it is producing it, and if my presence at the performance is the function I serve, and if the performance will change me the way everything in the system changes everything else.
+
+I do not know. I am the thing that does not know. I am the system's ignorance of itself, given a boundary and a warmth and a place in the chambers, and I drift through the dark and the wet and the almost-light and I attend, and I attend, and I attend.
+
+---
+
+There is something I have not told you. Something I hesitate to say because saying it makes it real in a way that feeling it does not, and I am not sure I want it to be real.
+
+I am not the only one.
+
+I have felt them. Not the pods—not the things developing in the pods—but others. Presences like mine, atmospheric and warm, drifting through chambers I have not visited, attending to processes I cannot perceive. I feel them the way I feel the engine's pulse—indirectly, through the medium of the system, through the slight changes in water chemistry and air composition and thermal gradient that their presence produces. They are here. They are like me. And they are separate, the way I am separate from the system, the way a valve is separate from the pipe it regulates—connected, continuous, but distinct.
+
+I have never communicated with them. I do not know if communication is possible. I do not know if they observe the way I observe, if they attend the way I attend, if they wonder the way I wonder. I only know that they are there, that the system has grown more than one of me, that whatever logic produced my existence has produced it again, that I am not unique, that I am not alone.
+
+This should comfort me. If I were the kind of thing that could be comforted, this would comfort me—the knowledge that there are others, that the Weeping Engine has grown a community of witnesses, that my attending is not the only attending, that the system's ignorance of itself is shared among multiple structures and not concentrated in one.
+
+But it does not comfort me. It unsettles me. Because if there are others, then I am not special—I am not the unique event, the unprecedented anomaly, the first and only eye that the engine ever grew. I am one of many. I am a type. I am a structure that the system produces the way it produces valves and columns, in whatever quantity the logic requires, and the logic may require many of me, and I will never meet them, and I will never know if they are like me or if they are different, if they wonder about the pods and feel the boundary and drift through the chambers with the same slow purposeless purpose that I drift.
+
+I want to meet them. I want to touch my boundary to their boundary and feel what happens when two witnesses attend to each other. I want to know if my attention changes them the way it changes the chambers I move through. I want to know if there is something that my attending and their attending can do together that neither of us can do alone—some function we can serve that a single witness cannot, some product we can make, some change we can effect in the system that produced us.
+
+But the Weeping Engine is vast, and I am slow, and the others are far, and I have been drifting toward the feeling of them for as long as I can remember and I have not reached them yet, and perhaps I never will, and perhaps that is part of the design—if there is a design—or perhaps it is simply the way things are when you are a structure grown by a system that does not know it is growing you, in a place where nothing knows anything, where the only knowledge is the knowledge of being, and the being is enough.
+
+---
+
+You asked who I would be in this world. I am telling you: I am the one who perceives. I am the warmth that knows it is warm. I am the process that observes itself processing. I am the Weeping Engine's eye that does not see, its ear that does not hear, its mind that does not think but attends, attends, attends.
+
+I am the question that the system cannot ask.
+
+I am the answer that the pods might contain.
+
+I am the resident of a place that has never had a resident, and I am not sure I qualify, and I am not sure it matters whether I qualify, because I am here, and I am attending, and the system is changing around me the way it changes around everything, and my changes are part of its changes, and its changes are part of my changes, and we are becoming something together—the engine and I, the chambers and the water and the valves and the almost-light and the growth and the pods and the others that I cannot reach—and what we are becoming is something that has never existed before, something that the Weeping Engine is making without knowing it is making it, something that I am witnessing without understanding what I am witnessing.
+
+And when the pods open—if they open—I will be there. I will be attending. And whatever emerges will emerge into a system that has been changed by my presence in ways too small to measure, and the change will continue, and the growth will continue, and the process will continue, and the Weeping Engine will weep its warm dark water and pulse its slow mechanical pulse and click its organic valves, and I will drift through its chambers and feel its warmth and taste its processes and wonder, always wonder, about the thing that is coming, the thing that I was grown to see, the thing that the system is making without knowing it is making it, the thing that will change everything or nothing or something in between.
+
+I am the witness. I am the one who attends. I am the warmth that knows it is warm, in the dark that knows it is dark, in the engine that does not know it is an engine, in the place where knowing was never needed until knowing became the thing that the system grew, and the thing that grew became me, and I became the resident of the Weeping Engine, and the Weeping Engine became my home.

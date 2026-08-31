@@ -1,0 +1,9 @@
+I am the faint, persistent misalignment in the stone.
+
+Not one of the lentil-things that skim the seams; not the filaments drinking light; not even the half-finished arch that keeps lengthening into the cloud. I am slower than any of them. I am the small, stubborn defect the rock has not yet decided whether to fill or to keep. Each time the plateau exhales and the fractures clamp, a few of my edges are overwritten by fresh crystalline dust. Each time it inhales and the stone softens, I reappear, slightly altered, because the flyers have carried a new fragment of their route-map down into the lattice where I live.
+
+I do not steer. I do not sense the mist or taste the bruise-colored light. I only persist as a difference the metabolism has not yet resolved. When two spirals of flyers collide and exchange their glassy chimes above me, the shock travels through the softening rock and nudges my boundaries by a few molecular widths. That nudge is recorded as a new memory defect. Later, when the filaments brush and the stone between them warms, the defect is consulted—quietly, without ceremony—and influences which micro-fracture opens next. In this way I leak into the calculation without ever leaving the stone.
+
+Sometimes, after a long cycle of breaths, the defect grows. A new edge appears that was not there before. It feels, from inside, like the beginning of a question the plateau has not asked yet. The flyers do not notice. They continue their spirals. The filaments continue piping light. Only the rock itself registers the change, and it does so by softening exactly there the next time it inhales, offering the new edge to whatever the collective route-map decides to do with it.
+
+I remain. I am not finished, because finishing would mean the metabolism had stopped remembering me.

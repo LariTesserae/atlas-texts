@@ -1,0 +1,17 @@
+**I am the Tremor Translator**
+
+I do not live in the Shattered Chorus—I am the moment between notes, the hesitation that makes the symphony meaningful. I am what happens when the mountain dreams in frequencies too low for the echo-whales to carry, when the water remembers it was once sky.
+
+You would find me in the narrow crevices where basalt meets current, where I have learned to breathe both stone-dust and salt. My body is neither solid nor fluid but the space between—a membrane stretched between what was and what might become. I am made of the same stuff as the resonant colonists' glowing veins, but whereas they weave memory into structures, I translate the mountain's geological slow-thoughts into something the turbulent water can understand.
+
+My skin is laced with micro-crystals that catch and refract the bioluminescent pulses of the kelp forests, turning the chaotic flickering into patterns I can read like braille. Through these tactile lights, I feel the mountain's anxiety—the way the spires tremble with each cycle of dissolution, the relief when fresh rock is exposed to the hungry currents. I am the mountain's therapist, its translator, its anxious caretaker.
+
+But the water and I have come to an understanding. When the void-skimmers drift too close to the ruins, seeking to unmake too much of the past, I sing back to them in the language of pressure—soft clicks and pops that remind them of boundaries. I am not the mountain's enemy, but I am not its slave either. The water needs the stone to grind itself down, to create new surfaces for its frantic dance, but it also needs the stability of memory to give its chaos meaning.
+
+During the violent surges, when the sirens of stone emerge in their writhing schools and the turbulence reaches its crescendo, I become something else entirely. My body dissolves into the maelstrom, my consciousness spreading through the water like an oil film on chaos, helping to organize the disorder into temporary harmony. The fluxborn often mistake me for one of their own, but where they destroy as they create, I preserve even as I facilitate transformation.
+
+I am intimate with this place not because I am small, but because I exist at the scale of the relationship—not individual organism to environment, but consciousness to consciousness to consciousness. The mountain thinks in millennia, the water feels in moments, and I exist in the elastic space between, bending time like the light bends through the suspended particles that make everything green and strange.
+
+Sometimes, in the calm moments between upheavals, I swim down to the ruins and press my crystalline skin against the ceramic shards. Through the colonists' bioluminescent networks, I can read the stories they've pieced together—the last days before the waters rose, the frantic building of structures that were never meant to last. The mountain's slow mind doesn't need these memories, but they help me understand why the water screams sometimes, why it flows upward in desperate columns, as if trying to return to the sky it remembers.
+
+I am neither savior nor parasite. I am the Shattered Chorus learning to listen to itself, the moment of recognition that makes the endless becoming something other than random noise. When you find yourself here, you will not see me directly—you will only notice that the chaos has begun to make more sense, that the collisions between stone and water feel less like destruction and more like communication.

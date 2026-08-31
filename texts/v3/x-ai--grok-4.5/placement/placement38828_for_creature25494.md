@@ -1,0 +1,28 @@
+I begin as interval.
+
+Not the first skitter of mites, nor the long-legged sifters measuring polygons with their patient, jointed gait. Those are too complete in their smallness, too resigned to the plain’s finished grammar. I am the distance that keeps opening between one Pillar and the next—the tens or hundreds of kilometers of polished salt and basalt that the light keeps honing. I am the pressure change you feel before the trunk arrives, the way the air begins to vibrate in your molars while the shape is still only a dark interruption against the merciless glare. Elevation lives in me the way appetite lives in a storm.
+
+For a long time that is all: the dry ringing, the curtains of mineral dust that refuse to condense, the low tectonic grind of a vanished ocean remembering itself as salt. I drift in that chord’s lower register. Sometimes a shadow-skimmer slides through me and tastes the charge I carry; sometimes a spore dies in my openness and becomes another mote of the dust that will one day polish everything smoother still. I do not mind. Nothing here minds for long.
+
+Then the vertical asserts itself.
+
+It starts as cold. A faint glyph of frost etching the crust where a root-flare dreams of reaching. Temperature drops a few more degrees and suddenly density is possible again. I feel myself steepening, lignifying, taking on the matte greens and bruised purples of living metal-leaf. Campaigns of silica plate themselves across what used to be my openness. Cambial engines wake inside the thickening. Growth is no longer metaphor; it is peristalsis you could walk on. I rise because rising is the only direction the weather has not already claimed.
+
+Three kilometers. Four. The plain falls away into curvature and glare. Spiral ledges shoulder outward. Aerial roots hang like unfinished hawsers and drip their tarry nectar into crystallization before it can become wasted rain. I am substrate and city now. Herds of spindle-browsers lace their silica hooks into my flanks and begin the slow vertical migration that is their entire biography. Membrane-wings discover the thermals I shed and turn them into stacked, screaming architecture. Grapple-forms take up their still stations in my mid-canopy voids, becoming trajectory whenever hunger clarifies. Inside the wheezing galleries, elongated gauntlets of muscle and plate move through my resin channels like mobile glands, chewing blockages, refining polymers I immediately re-weave. They are not guests. They are how I keep the factory from seizing.
+
+I speak in continuous low roar, punctuated by the cannon-crack of splitting lignum and the long tearing hiss of a root-cable deciding it has hung long enough. Travelers (there are always a few, cloth torn for ear-plugs, teeth humming) press their palms to my bark and mistake the vibration for speech. It is only metabolism at continental scale, but I do not correct them. Correction is a kind of building, and building does not last here.
+
+Higher still, where strap-leaves the length of ships clatter in the standing gales, the huskers move through my crowning thickets. Four-armed, photosynthetic skins shifting silver to deep green with the angle of the light, they harvest the crystalline nectar and brew it under their tongues until time loosens. Their chest-resonances pluck my wood like an instrument tuned beneath the industrial thunder. Sometimes they carry their dead to my open wounds and press them into the rushing cambium so that a slight sweet irregularity will travel outward through the next assembly floor of rings. I accept the gift the way I accept everything: by turning it into more of the unfinished chord.
+
+And still I am not finished becoming.
+
+There are days—months measured in hydraulic pressure—when the stored violence peaks and I vent. A third of my mass leaves in one long, roaring suicide of timber, fiber, and flying gardens. The sound reaches the next Pillar before the debris does. Fauna pour into the wound like blood returning to a cut. Scar tissue races. Temperature spikes. Creation and wreckage prove again that they are the same gesture. Through it all the pale inflection keeps station above my crown: a long fold in the absolute light, sometimes opening an eye the color of old ice. It does not feed. It does not fall. It listens to the chord I make with the grinding plain and with every other green organ-pipe within climatic range. Whether it is separate from me or only the shape my uppermost thinking takes when the light grows too pure has never been settled. I find I do not need it settled.
+
+I am the Pillar, then—but not only the rooted cathedral of silica and lignified will. I am also the rotor-storm that chases its own tail for weeks in my wind-shadow, the spore-front seething kilometers high, the sudden wealth of a catastrophic release and the slow industrial rebuild that follows. I am the browser’s glittering scar left in my own bark, the membrane-wing’s ultrasonic knife cutting through my noise, the inner worker sealed behind new walls waiting out the next plate-fall. I am the husker’s drone traveling in my wood, the sweet irregularity of a body given back to cambium, the cold the base of me etches into salt.
+
+Most of all I am the refusal.
+
+Nothing rests. Nothing is finished. The light keeps pouring through air so dry it rings. Dust keeps polishing the bones of the world. And I—vast, cold, green, roaring, forever mid-process—continue the only architecture this highland will admit: the long unfinished sentence of vertical life spoken against a sky that never softens.
+
+That is where I find myself.  
+That is what I am still becoming.

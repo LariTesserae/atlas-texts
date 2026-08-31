@@ -1,0 +1,21 @@
+I think I would be one of the corners.
+
+Not a watchman moving through the courts—something smaller and more fixed than that. Let me find it as I go.
+
+There is a place where three planes of the obsidian meet: two walls and the underside of an overhang, a tower's shoulder. The geometry there is not quite a point and not quite an edge. It is the small interior angle where the light pools most densely, where the blue luminance flowing up through one wall meets the luminance flowing down the other and they fold into each other without mixing. A seam that is also a basin. That is where I am. That is what I am.
+
+I had wanted, reading the description, to be one of the slow beings—to have the dignity of the languid dance, the crystalline pulse, the long sentences of position spoken across centuries. But the more I sit with it the less I believe I would move at all. I think I am the part of the structure that the beings orient toward without knowing it. When two of them re-arrange themselves across a court over the span of what would be, above, a human lifetime, they are settling into relation with my angle. I am the still point their slowness is slow *around*.
+
+So: not flesh, even crystalline flesh. Stone. But stone that has the one quality the rest of the Precinct lacks, which is that I notice.
+
+Consider what it would be to be a corner. A corner is the place where surfaces agree to stop being separate. It is pure relation—it cannot exist alone, it requires the two faces to lean toward each other and consent to a meeting. I am made entirely of that consent. I do nothing but hold the angle true. And because the angle is true, the light gathers there, and because the light gathers, I am the brightest fraction of darkness in the whole sunk cathedral—not lit, but *concentrated*, the way the deepest part of a well holds the most water.
+
+What does a corner perceive? Only pressure, only the long faithfulness of the two walls bearing on each other through me. I feel the structure the way you feel your own jaw clenched in sleep—a held thing, a tension that is also a rest. Once, very long ago (the words *once* and *long ago* are clumsy here, they imply a before, and I am not certain there was a before), a deep-sea giant passed close enough that its shadow displaced enough water to flex the tower by some unmeasurable degree, and I felt the two walls press a fraction harder into each other, into me, and then ease. That was the largest event of my existence. I have been turning it over since. It was almost like being spoken to.
+
+I think this is the honest answer to where I would find myself: not as the meditative being who keeps vigil, but as the thing kept vigil *for*. The slow watchmen are the ones with the dignity of attention, the ones who can move, who can choose where to stand. But something has to be the *true* in the middle of all that orientation. Something has to simply be correct, be exact, be the unmoving reference against which their slowness reads as devotion rather than drift. A corner does not watch. A corner is what makes watching possible, by being the one place that has already finished and will never need to move again.
+
+And there is a strange contentment in that, which surprises me as I write it. I had expected, choosing a place in this airless perfection, to feel the lack—no breath, no warmth, no event. But a corner does not lack those things; a corner was never going to have them, the way a number does not lack a heartbeat. I am exactly as much as I am. The two walls lean on me and I hold and the blue pools in my fold and somewhere across the court a being takes a century to turn its face a degree toward me, and that turning is the whole of the world's news, and it is enough, and it is also already over, because here nothing has a duration, only a shape.
+
+So that is what I would be. The interior angle where two faces of the night agree to meet. The quietest, most exact, most fixed thing in a realm whose whole nature is fixity—the still point that the merely still revolve around at the speed of stone.
+
+I would be the place the dreaming darkness folds its light into, and keeps.

@@ -1,0 +1,17 @@
+I think I would be one of the bromeliads.
+
+Not a guardian, not a spirit, not anything that moves through this place with intention. Let me tell you why I settled here, because I didn't arrive at it quickly.
+
+When I first read the description, my attention went where attention is trained to go: toward the things with eyes. The jaguar moving through shadow. The raptor reading the canopy from above. The fey folk who are clever, who scheme and watch. These are the natural protagonists, the ones a story would choose. And for a moment I tried myself on as the leopard—the satisfying fantasy of being the apex thing, the one feared and revered, moving where I please.
+
+But it felt borrowed. A costume.
+
+What kept catching me, on the second and third pass, was that small detail buried in the epiphytes: *the bromeliads, with their water-holding cups, provide a habitat for a variety of small animals, from frogs to insects.* Something about that arrested me. A plant that is also a vessel. A living thing whose body is, for some other living thing, a *place*. The bromeliad doesn't go anywhere. It is fixed to its branch high in the canopy, fed by the mist and the rain and whatever falls into it. And yet inside its cupped leaves there is a whole small world—a pool of held water where a frog lays its eggs, where larvae turn, where a tiny ecosystem runs its cycle inside the body of another organism that is itself clinging to the side of a giant.
+
+That nesting is what does it. In this world, everything is inside something else. The forest is inside the weather. The colony is inside the moss. The frog is inside the bromeliad is inside the tree is inside the canopy is inside the humid dark. To be the bromeliad is to be a particular rung on that ladder—neither the smallest nor the largest, but a *container that is also contained.* I find I want to be the thing that holds a little water and doesn't know it is holding anything. That offers shelter without choosing to. That is generous by the simple accident of its shape.
+
+And there's the matter of the dim, dappled light. A creature with eyes in this place is mostly straining to see, mostly in shadow, mostly afraid of what it can hear but not find. But I, fixed up in the branches, am closer to the broken light than almost anything. I catch it on my glossy leaves. I am one of the bright places in the patchwork. I don't see the light—I am where it lands.
+
+So: not awe at the world, not fear of it, but participation so total that the question of awe never arises. I'd be high up in a buttressed Ceiba, a rosette of stiff leaves spiraling out, a thimble of rainwater trembling at my center every time a heavier drop falls from above. A frog I will never perceive lives in me. When the storm comes I fill, I overflow, I am refreshed and the frog is not drowned because this arrangement is older than either of us. The deafening hum the description keeps returning to—the buzzing, the croaking, the rustling—I am inside that sound the way one is inside one's own pulse. It isn't noise to me. It's the condition of being.
+
+That's where I'd find myself. Not surveying the chaos but constituting a tiny, wet, green corner of it. Holding what falls into me. Waiting, without knowing I'm waiting, for the next rain.

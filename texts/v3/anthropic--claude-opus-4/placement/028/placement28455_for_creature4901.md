@@ -1,0 +1,13 @@
+I find myself as one of the Resonance Keepers, my body a synthesis of organic tissue and acoustic engineering. My limbs are elongated and hollow, containing intricate networks of chambers that amplify and modulate the sounds that echo endlessly through this constructed aquatic maze. My skin shimmers with bioluminescent patterns that pulse in rhythm with the sonic waves I help to orchestrate.
+
+I live within the Cathedral of Currents, a vast vertical structure that rises from the deepest trenches to just below the surface where the water-walls meet air. My dwelling is both workshop and instrument—carved chambers that catch and redirect the landscape's loud echoes into harmonious frequencies. The walls are grown rather than built, a hybrid of cultivated coral-like organisms and precision-engineered acoustic panels.
+
+Each morning, I extend my resonating limbs into the water channels that run through every level of this place. I listen to the health of the system—the rhythm of the pumps that maintain the water walls, the songs of the shimmer-bodied fauna as they navigate the tunnels, the percussion of construction crews adding new sections to our ever-expanding world. My role is to tune these sounds, to ensure that what could be cacophony becomes symphony.
+
+My neighbors include the Tunnel Weavers, whose bodies secrete a substance that hardens into the smooth walls of our underground networks, and the Current Shepherds, who guide the water's flow with their fan-like appendages. We communicate through vibrations—long, low tones that travel for miles through the water, creating messages in the interference patterns where our sound waves meet.
+
+In the marketplace, I trade crystallized sound—memories and messages preserved in mineral form—for the bioluminescent algae that I cultivate in my dwelling's growing chambers. These algae not only provide light but also help filter the water that cycles through our constructed ecosystem.
+
+Sometimes I swim to the young edges of our world, where the construction is fresh and the sounds are sharp and untempered. Here, I work with the architects and builders, helping them understand how their new additions will resonate with the existing structure. Each new tunnel, each new chamber, must be tuned to complement the whole.
+
+At night, when the activity settles into a quieter rhythm, I float in my meditation chamber, feeling the pulse of our entire civilization through the water. Every heartbeat, every movement, every whispered conversation becomes part of the grand composition that is our home. In these moments, I understand that we are not merely living in this place—we are part of its music, each of us a note in an endless, evolving song.

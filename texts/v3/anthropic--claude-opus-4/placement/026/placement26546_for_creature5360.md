@@ -1,0 +1,21 @@
+I find myself as a **Veil-Keeper**, one of the rarest beings among the Lysari—a guardian of the threshold between the seen and unseen.
+
+My dwelling sits at the settlement's edge, where the architecture of woven vines gives way to the wild tangle beyond. It is less a home than a breathing space—walls that shift with the growth of their living materials, gaps that open and close with the seasons. The Luminth cluster more densely here, drawn by something in my presence, creating pools of soft blue-green light that pulse gently with my heartbeat.
+
+I am neither fully of the Lysari nor separate from them. Born during a rare convergence when the Shadow Beasts emerged from their hidden paths, I carry their mark—eyes that reflect light differently, catching glimmers of movement in dimensions the others cannot perceive. My skin bears faint patterns that emerge only in complete darkness, a map of the underground water systems that feed this pocket of life.
+
+My role is to tend the boundaries. Each night, I walk the perimeter where our small world meets the vast dark beyond, feeling for disturbances in the careful balance. I know the language of the moss—how it whispers of changes in moisture, how its growth patterns predict the movements of the Shadow Beasts. My fingers read the moisture on the rocks like braille, understanding which condensation comes from below and which descends from the unseen sky.
+
+The Matriarchs consult me when the usual patterns break. When the Luminth swarm unexpectedly, when the underground springs shift their song, when the Shadow Beasts leave markers at our borders—these are my domain. I interpret these signs through a practice passed down through mere handfuls of Veil-Keepers across generations, each of us marked by the convergence, each of us standing with one foot in the community and one in the unknown.
+
+My tools are different from the others'. Where they carry spears and knives, I bear instruments of perception—hollowed reeds that amplify the subsonic communications of the root systems, stones polished to mirror-smoothness that reveal what moves in the peripheral darkness, woven nets so fine they can catch the dreams that rise from the sleeping earth.
+
+During the Luminth Ceremonies, I serve as the bridge between the Lysari and the spirits they honor. While others make offerings to the Spirit of Water or Plants, I commune with the Spirit of the Shadows—not through worship but through a kind of recognition, acknowledging that we are both threshold-dwellers, both necessary to maintain the delicate architecture of this hidden world.
+
+The Lysari children fear and fascinate me in equal measure. They dare each other to approach my dwelling, to glimpse the strange symbols I weave into the living walls, to catch sight of the Shadow Beast cubs I sometimes harbor—small, shapeless things that exist more as possibilities than creatures, learning to take form under my guidance before returning to their parents in the deep dark.
+
+My greatest responsibility, known only to the Matriarchs, is maintaining the Veil itself—the quality of hiddenness that keeps our micro-world separate from the vast expanse beyond. This is not mere camouflage but something deeper: a kind of forgetting that settles over those who might stumble too close, a gentle redirection of attention that keeps the outside world from collapsing into ours.
+
+I am lonely in the way that all liminal beings are lonely, yet deeply connected to every thread of life in this dense, wet, breathing world. When I place my palm against the spongy earth, I feel the entire network—every root hair, every flow of water, every careful step of my people, every silent movement of the creatures we share this space with.
+
+In the perpetual twilight of our world, I am both guardian and translator, holding the space between what the Lysari understand and what lies beyond understanding, ensuring that our pocket of overwhelming life continues its delicate dance at the edge of the great darkness.

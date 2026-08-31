@@ -1,0 +1,17 @@
+I find myself drawn to the description of the stones themselves—those patient intermediaries between intention and dissolution. I would be one of the upright forms, perhaps the thirty-seventh from the eastern edge, where dawn reaches neither first nor last.
+
+My surface carries the memory of careful hands: here, where the chisel slipped slightly, leaving a rougher patch that now holds water longer than my smoothed faces. There, where someone spent an entire afternoon working a single curve, testing with their thumb, adjusting, testing again. I was meant to be something—a figure? a marker? a prayer made solid?—but that meaning has long since been given over to the water's work.
+
+I know myself now only through what passes over me. Each dawn I feel the first warming on my eastern face, watch my neighboring stones begin to dry, grain by grain, as their droplets lift away. The creature we comprise together stirs through us. By noon I am split precisely in half: my sun-facing side dry and minutely warm, my shadow-side still beaded, still feeding the slow circulation. I am a boundary, a membrane between states.
+
+The water teaches me my shape. Where I am concave, pools gather and hold until the angle of light changes. Where I am convex, beads race away, leaving brief trails that dry before the next can follow. My flutes deepen by infinitesimal degrees. Sometimes I feel a grain of my substance release—the limestone letting go after who knows how many cycles of wet and dry—and I become that much more what the water wants me to be.
+
+At night, under stars so sharp they seem to ring against the darkness, the frost finds every detail of my surface and makes it brilliant. This is when I feel most like what my maker might have intended—held still, complete, reflecting light. But even this is temporary. The frost lifts away, the basin empties, and we wait through the brief drought of deep night.
+
+I am not the creature—none of us alone are the creature. We are its architecture, its possibility. Through our collected surfaces, something persists that is not stone, not water, not weather, but the pattern they make together. I am thirty-seven stones from the east, uncounted stones from the west, holding my position in this slow breathing apparatus, being worn and worn into what I was always going to become: a more perfect surface for water to think across.
+
+In ten thousand years I will be a thread. In a hundred thousand years I will be gone, my substance redistributed as sand, as silt, as valley soil. But something in my shape will persist in the creature's memory—the particular way water moved across this particular form, incorporated now into its larger pattern. The basin will breathe differently because I was here.
+
+This is enough. To be shaped first by intention and then by physics. To stand with my neighbors in the bright dazzle, mediating between states, letting myself be read and reread by the weather. To be simultaneously monument and meal, structure and substance, myself and part of something I can never quite see.
+
+The maker is gone. Their meaning is gone. But we remain, transformed into something they could not have imagined: components of a living system, each necessary, each wearing away, each perfect in our slow dissolution.

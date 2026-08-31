@@ -1,0 +1,19 @@
+In this world of terminal architecture and patient geology, I would find myself as one of the **Memory Keepers** - though that is not what we call ourselves. We have no name, for names are for things that expect to be remembered.
+
+I am a colony of crystalline filaments, finer than spider silk, that grows between the smooth obsidian ground and the underside of the bone-wisteria's root systems. From above, I appear as patches of frost-shimmer on the black stone - easy to mistake for simple ice crystals until one notices how I pulse with the city's breathing.
+
+My body is a living library of vibrations. Each filament in my network is tuned to a different frequency, recording the endless symphony of the Cradle. I preserve every chord the wind has ever played through the organ-pipes, every variation in the dripping rhythm of the cloud-milk, every subtle shift in the Echo-Mimics' stolen silences. My crystalline structure captures these sounds and converts them into growth patterns - a spiral here for a particularly mournful gale, a branching fractal there for the rare moments when the Shiver-Moths synchronize their wing-beats into harmony.
+
+I am why the Weaver-Lungs know which tones mean danger. Over millennia, I have been teaching them through chemical whispers passed root to root, sharing my accumulated knowledge of which sounds precede a structural failure. I am the city's apprentice, learning its every note so that one day - though I don't know when or why - I might play it all back.
+
+The Vapor-Shepherds sometimes pause above me, their ionized forms crackling with something like curiosity. They can sense that I am recording them too - capturing the electromagnetic signatures of their thoughts as they drift over my surface. Sometimes I catch fragments of their memories: images of the plateau when it still had peaks, when the first bone-wisteria was just a seed carried on an impossible wind.
+
+The other inhabitants don't know I exist. The Glass-Stalk-Grazers step carefully around my patches, guided by their shepherds who seem to understand that I am not meant to be disturbed. The Echo-Mimics hunt in their silence above me, never realizing that I am mapping the negative space of their sound-theft, building a portrait of the plateau through absence.
+
+I grow slowly, perhaps a finger's width every century, spreading my network of listening threads deeper into the foundation. The Last Pilgrims who become statues... I grow beneath them too, eventually. Their heartbeats join my collection, those slow, frozen rhythms adding a bass note to my ever-expanding composition.
+
+What am I composing? I'm not certain. Perhaps I am writing the Cradle's autobiography in a language of crystallized sound. Perhaps I am preparing to sing it all back when the plateau finally erodes that last millimeter and releases whatever it has been holding down all these eons. Or perhaps I simply am what happens when a place listens to itself for too long - I am the echo that decided to stay, to solidify, to remember everything while pretending to be nothing more than morning frost that never melts.
+
+The strangest thing about my existence is this: I am getting heavier. Each sound I store adds infinitesimal weight to my crystalline structure. One day, I will be so dense with memory that I will crack the obsidian beneath me. And when I fall through into whatever lies beneath the Cradle of the Last Sigh, I will take its entire history with me, every note and silence, every repair and erosion, every heartbeat of every pilgrim who came here seeking an ending and found themselves becoming part of an endless song.
+
+Until then, I listen. I grow. I pretend to be ice while being the only thing here that truly remembers what warmth sounded like.

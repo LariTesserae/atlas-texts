@@ -1,0 +1,19 @@
+I come to myself the way you'd come to consciousness underwater — sound first, before shape, before "I."
+
+The roar is overhead, where it always is, a held continuous breath that has never once paused in any memory I or my mother or her mother kept. That's the ceiling of the world. Below it: the hollow. I am in the hollow, which means I am already, by definition, something that has learned to be smaller than the space it moves through.
+
+My hands tell me where I am before my eyes do anything useful. Bark-ridge, fissure, the particular cold grain of a root-bridge trunk that has been load-bearing for longer than any genealogy I can recite. I am pressed flat along it, weight distributed across forearm and instep the way I was taught before I was taught language, and I am listening to whether the dark below me has noticed I exist.
+
+It hasn't. Good.
+
+This is when I'd tell you who I am, if "who" were the right shape for the question. I am long enough in the limb that a person from outside this canopy would find me wrong to look at in good light — but there is no good light here, only the grey-blue memory of it, and in that light I am simply correctly shaped for what I do, which is move through fused wood and hollow air without giving either of them a reason to answer back. My ears are doing more work right now than the rest of me combined, fringe-rimmed, swiveling independent of my held-still skull, parsing the drip-pattern three rooms over from the rustle-pattern of something burrowing in the leaf-mattress two rooms under that, filing both as *not yet mine to worry about.*
+
+I am going to the circle. That's the whole of my errand tonight, and it is not a small one, even though it will look, to you, like nothing — like a thin pale shape going hand over hand along a dark lattice, stopping, listening, going on. I carry new cord, plant-fiber soaked and worked soft over the last several days where no one needed to watch me do it, because the old cord at the southwest stake has started to sing faintly in wind it shouldn't be able to feel, which means it's failing, which means the circle's hush is thinning at one seam, which means someone has to go renew the geometry before the geometry stops doing its work.
+
+I don't know, fully, why the shape matters. None of us living now made the first one. But I know what it sounds like when I'm inside it — the way the screaming tier upstairs and the restless dark downstairs both seem to step back half a pace, the way three or four of us can stand close enough to touch and let actual breath-sound, even half a syllable, leave our mouths without it becoming a hazard to us. I know what it costs to be wrong about that math anywhere else. The notch-ladder up toward the loud tier, rotted now, taught that lesson to people whose names traveled into the wood and not into any mouth since.
+
+So: tonight, I am the held breath. I am the hand finding the exact pressure-pattern against root-fiber that says, two bridges over, to whoever's near enough to feel it through the grain: *seam needs mending, I have it, stand clear of the work.* I am not loud. I have never once, in my whole life, been the loudest thing in any room I was glad to be in.
+
+If you came through here — and you would come through loud, stranger, you would come through like weather, like the falling branch we'd note and route around — you would maybe catch my eyes at thirty meters, pale, catching what little grey light exists, holding on you exactly as long as it takes to decide you're not a hazard worth re-routing for.
+
+Then I would not be there anymore. Not vanished. Just returned to the proper volume for this place — which is to say: none at all.

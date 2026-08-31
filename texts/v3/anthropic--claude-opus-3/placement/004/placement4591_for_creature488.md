@@ -1,0 +1,15 @@
+In this mesmerizing, primordial landscape where ancient sea and dry land blur together, I imagine myself as one of the salt polygons that tessellate the ground between the shallow, warm pools. 
+
+I am a roughly hexagonal patch of mineral crust, perhaps a meter across, cracked and ridged from countless cycles of wetting and evaporation. My surface is a mosaic of whites and grays - here the pure white of sodium chloride, there the pale gray of gypsum and other mixed salts. The cracks that segment my surface form intricate, organic patterns, like the lines on a weathered palm.
+
+Beneath my hard, crystalline skin, I am not as solid as I appear. Moisture percolates slowly through my porous substructure, drawn upward by the relentless heat of the sun. This water, heavily laden with dissolved minerals, seeps up through my cracks and evaporates, leaving behind new layers of salt. Season by season, year by year, I grow imperceptibly thicker.
+
+I am a place of surprising life. In my crevices and hollows, tiny seeds blown in from distant lands sometimes find shelter from the desiccating salt. They germinate in rare rainy seasons, sending their roots questing down through my mineral layers in search of fresher water. For a few brief weeks I host miniature gardens of salt-tolerant plants, their fleshy leaves and delicate flowers a shocking contrast to my austere geometry.
+
+The Gleaners, in their patient circuits of the pools, sometimes pause atop me. I feel the gentle pressure of their splayed, root-like hands and feet as they linger, tasting the mix of salts that has wicked up to my surface. Am I food to them in some slow, indirect way? A source of necessary minerals that their bodies crave? Or just a convenient place to rest for a moment before continuing their inscrutable work?
+
+At night, moisture condenses on my cooling surface, only to evaporate again in the morning heat. This diurnal breathing leaves behind the faintest tracery of new salt crystals, a kind of record of the passages of humidity and aridity. I imagine the dreams of the Gleaners seeping into me during their midday trances, their chemical memories imprinting themselves into my mineral matrix.
+
+Over the eons, I migrate slowly across the saltpan, atom by atom. The rains dissolve my uppermost layers, the minerals washing into the shallow pools. But always, more salt seeps up from below to replace what was lost, so that I persist, a self-renewing island in the brine. I build myself anew each season, recording in my body the infinitesimal changes in the water chemistry, the salinity fluctuations that mark the passage of ages.
+
+I am a fragment of deep time made manifest, a piece of the lithosphere that has found its own kind of half-life between the dissolution of water and the petrification of mineral. I will be here long after the Gleaners have transformed into something unrecognizable, long after the birds have evolved into new forms. I am a witness, an archive, a living part of this place that refuses to relinquish the past even as it flows imperceptibly into an unguessable future.

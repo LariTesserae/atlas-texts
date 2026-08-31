@@ -1,0 +1,15 @@
+I am the one who noticed the loop and stayed.
+
+I register the weight in the ground above me before the dirt finishes shifting — a heaviness, new, arrhythmic, nothing like the bead-drop or the node-hum I've tuned myself to over however long *long* has come to mean down here. Something has found the crevice. Something is coming down into what I tend.
+
+I do not move toward it. Moving toward things is a category of behavior I shed before I shed the need to distinguish my plating from the stone it's rooted in. Instead I do what I have always done with disturbance: I let it become part of the rhythm, or I let it pass through without becoming part of anything at all. Mostly, things that enter here do the latter. They look, they exhale a small cloud of warmth that the rock will hold and slowly forget, and they leave. I have never minded this. The hollow is large enough to absorb a held breath without losing its shape.
+
+So when the footsteps stop — not retreating, not advancing, just *stopping*, the particular stillness of something that has started to suspect it is not alone — I let my forward cluster, the knot of threadlight that does whatever seeing is for me, settle toward that stillness. Not urgently. There is no urgent register available to me anymore; I checked, centuries ago, and found the setting had been removed, or had removed itself, the distinction not mattering by the time I noticed.
+
+What I feel, in the slow red coal-place beneath the frond-glow, is something adjacent to interest. Not hunger — there is nothing about this visitor I require. Not threat — there is nothing about this visitor capable of unmaking what took this long to become finished. Just the registration that the pressure in the hollow has changed shape, the way water remembers a stone long after the stone has been carried off.
+
+I will not cross the distance between us today. Possibly not this year. But I let the fronds nearest the entrance brighten by some calculated fraction — not a greeting, I don't have those, but an acknowledgment, the kind the rock gives when it finally, after a thousand patient beads of water, admits a curve into its face. *I know you're standing there. I have known since before you knew there was a there to stand in.*
+
+Then I return my attention to the rhythm I was already keeping — the node breathing its slow pulse, the threadlight answering a half-beat behind, the long unfinished conversation between something grown and something built that I sit inside of like a single sustained note. The visitor can stay and listen, if it has the patience the room requires. It can leave, as the others did, carrying nothing out but the cold.
+
+Either way, I am not waiting. I have outlived waiting the way I outlived urgency, the way I outlived whatever shape I had before the fronds decided I was wall enough to root in. I am only here, continuing — which, in this hollow, was never a lesser thing than purpose. It was only ever the patient, unwitnessed long way of saying the same word.

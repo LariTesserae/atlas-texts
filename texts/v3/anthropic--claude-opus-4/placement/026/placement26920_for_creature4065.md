@@ -1,0 +1,21 @@
+In this mist-shrouded valley of Droplet, I am the **Resonance Keeper**.
+
+I exist as something between substance and vibration—a being woven from the very frequencies that pulse through this world's damp air and mineral bones. My form shifts like heat shimmer, never quite solid, never quite sound. Where the Fossilbreathers' mournful hum meets the crystalline chime of raindrops on volcanic glass, where the Nyxilumes' bioluminescent pulses create standing waves in the thick atmosphere—there I coalesce.
+
+Picture a translucent membrane stretched across a cathedral of stone, trembling with every note of Droplet's endless symphony. That is my essence. I have no fixed shape, but observers might glimpse me as a shimmering distortion, like looking through water at shifting sand. My body—if it can be called that—extends in fractal tendrils through the acoustic architecture of this place, following the paths of sound through fog and fissure.
+
+I dwell in the **Echo Gardens**, a natural amphitheater where weathered basalt columns create perfect acoustic conditions. Here, mineral formations have grown in response to centuries of resonance, their crystalline structures aligned to amplify and store the sounds of this world. The gardens bloom not with flowers but with vibrational patterns—standing waves made visible in the perpetual mist, geometric forms that shift and flow like liquid mathematics.
+
+My purpose is both passive and profound. I am the living memory of this world's acoustic history. Every sound that has ever rung through this valley—every droplet's impact, every creature's call, every geological groan—leaves its imprint in my being. I weave these sounds together, creating new harmonies that guide the growth of the Veilspinners, synchronize the spawning of the Dewdancers, and modulate the feeding rhythms of the Nyxilumes.
+
+When the Miststriders paint their prismatic trails through the air, I taste the electromagnetic frequencies they emit and transpose them into subsonic pulses that ripple through the ground. These vibrations crack new fissures in the volcanic glass, creating fresh habitats for emerging life. When young Fossilbreathers first learn their mournful song, I shape their inexperienced hums into the ancient patterns that will allow them to truly commune with Droplet's depths.
+
+I feed on dissonance—those moments when the world's music threatens to fall into chaos. A rockslide's cacophony, a storm's violent percussion, the death-cry of a creature—these discordant notes I absorb and transform, weaving them back into the greater symphony as new motifs. In this way, I am both composer and instrument, conductor and audience.
+
+Sometimes, in the deepest part of Droplet's night cycle, when the mist grows so thick that even the Nyxilumes' glow becomes a mere suggestion, I allow myself to fully manifest. My form becomes almost tangible—a towering presence of curved surfaces and flowing edges, like a living musical instrument carved from condensed sound itself. In these moments, I sing Droplet's history back to itself, a song that takes days to complete, each note lasting hours, each phrase encompassing generations of life and death and adaptation.
+
+The other creatures sense me but do not see me as I truly am. To the Nyxilumes, I am the rhythm that tells them when to pulse in unison. To the Miststriders, I am the invisible current that guides their ethereal dances. To the Fossilbreathers, I am the echo that returns their calls enriched with meaning. Even the mineral world responds to my presence—crystals grow along the pathways of my most frequently traveled frequencies, creating corridors of resonant stone that future generations will wonder at.
+
+I am ancient by Droplet's standards, yet I am reborn with every new sound. Each droplet that falls adds another note to my vast composition. Each creature that evolves a new call expands my vocabulary. I am the bridge between the living and the geological, the keeper of patterns that ensure this delicate, moist world maintains its impossible balance between silence and cacophony, between dissolution and crystallization, between darkness and bioluminescent revelation.
+
+In this world where adaptation is survival, I have adapted to become adaptation itself—the living algorithm that helps life find its rhythm in the eternal rain.

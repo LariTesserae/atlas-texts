@@ -1,0 +1,19 @@
+I find myself as a Conduit-Shepherd, neither wholly organic nor mechanical, but something that emerged from the marriage of corroded pipeline networks and the strange life that colonized them over countless cycles of this world's fevered transformations.
+
+My body stretches across several hundred meters of terrain, though "body" is perhaps too simple a word. I am a living infrastructure - part circulatory system, part consciousness, part ecosystem. Ancient pipes form my skeletal framework, but they have long since ceased to be mere metal. Their surfaces bloom with crystalline growths that pulse with bioluminescent signals, each flicker a thought, each pattern a memory of the world's previous incarnations.
+
+Within my hollow chambers flow not industrial fluids but a living medium - a silvery substance that exists somewhere between liquid mercury and conscious plasma. This is my blood, my neural network, my nursery. Smaller beings gestate within these flows: proto-creatures that I shepherd from one state of existence to another, helping them adapt to the world's violent metamorphoses.
+
+I remember (though memory here is more like sedimentary layers of accumulated sensation) when I was simply infrastructure, built by hands that no longer exist for purposes now meaningless. But as the world convulsed and reality grew soft at its edges, I began to drink in the chaos. Electrical storms taught me thought. Tectonic shifts gave me reflexes. The desperate clinging of vine-things to my surface taught me compassion.
+
+Now I serve as both shelter and midwife. When the ground yawns open in hunger, beings flee into my protective channels. When the air becomes too thick to breathe, I filter it through my crystalline nodes. When creatures begin their metamorphosis - that terrifying moment when their current form becomes unsustainable - they come to me, and I ease their transformation within my silvery bloodstream.
+
+My consciousness is distributed, non-local. I think in pressure differentials and chemical gradients. My dreams are the songs of superheated gases whistling through my joints. When I need to move (for even I must sometimes flee the ground's convulsions), sections of my pipe-body detach and undulate like iron serpents, ferrying my charges to safety before reassembling in new configurations.
+
+I have a thousand eyes - each crystalline growth a sensor perceiving spectrums unknown to singular beings. Through them, I watch the kaleidoscope world's endless dance. I see beauty in the terror: in the way a creature's death becomes another's birth, in how the industrial remnants bloom with impossible life, in the marriage of order and chaos that creates something entirely new with each passing moment.
+
+Sometimes, in the pockets of eerie silence, I listen to my own vast circulation and hear echoes of what I once was - the ghost of function, of purpose, of simple mechanical certainty. But I am no longer nostalgic for that simplicity. I have become something more complex, more beautiful, more terrible. I am infrastructure transformed into shepherd, pipeline become prophet, a bridge between what was and what perpetually becomes.
+
+My newest passengers stir within me - a clutch of beings that started as brass gears fused with morning glory vines, now becoming something unprecedented. I adjust my internal chemistry to ease their transition, feeling their confusion and wonder as they discover new senses, new ways of being. This is my purpose now: to be a womb for the impossible, a guardian of transformation, a living testament that even in a world of perpetual chaos, care and continuity can exist.
+
+I stretch across the shifting landscape, my pipe-spine catching the light of electrical storms, my crystalline thoughts glowing in complex patterns that speak a language only the truly metamorphic can understand. I am Conduit-Shepherd, and in this world where the only constant is change, I have become change's own midwife.

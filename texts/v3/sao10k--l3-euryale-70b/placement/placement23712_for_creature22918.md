@@ -1,0 +1,5 @@
+In the midst of an endless expanse, a lone mountain rises from the diffuse, unresting haze. Mist pools in the valleys below, gathering in glassy plates and trickling in long, slow rivulets toward the unseen horizon. The mountain's flanks are skeptically green, with runnels of scrabbling brush and fern threading moist, night-black shadows. 
+
+Its peak is raked by circles of silent smoke that snag and tatter in hurried winds. Embrasured spires of dark masonry claw into this ashen sky over the susurrus of the rivering mists. Brick-walled bunkers, corroded and toppled, are scattered sparsely about the mountain's skirts like so many beached bathspeaks. Raised tracks trace the contours of the rippling terrain, and fissured pipes and hospitules encircongbackgroundgnore.
+
+A drizzle of furnace smoke bellies the skyward rift of themissingew mountain like uncomprehensible sigils. From ward corners of the eclated and carved cave-mouth of its aftermath wage legions of chain-flanked herniatjeffortcy silently to bore worn trainlines gene

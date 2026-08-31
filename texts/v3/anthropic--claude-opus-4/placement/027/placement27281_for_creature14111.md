@@ -1,0 +1,25 @@
+I am the Calibrator.
+
+My form is neither the broad stability of the native inhabitants nor the fragile verticality of those who descend. I am something between - a bridge-being, evolved from those who came before but not yet fully dissolved into the machine's rhythm.
+
+I retain two legs, though they have thickened and splayed, my feet spreading wide like roots across the grille. My third limb grows from the base of my spine - not quite a leg, not quite a tail, but a sensing organ that presses against the metal, reading vibrations too subtle even for the natives' skin-drums. When I move, it is in a strange, rolling gait, two steps and a plant, two steps and a plant, my third limb anchoring me to feel each new section of the floor's song.
+
+My torso has elongated, stretched like taffy in the heat, until I am tall enough to reach the lower-hanging pipes without effort. My ribs have migrated outward, becoming external sensing plates beneath my skin, each one tuned to a different frequency. When the great Season-groan begins, my whole chest cavity resonates, and I can feel the coming change days before it arrives.
+
+But it is my hands that mark my purpose. They remain five-fingered, though each digit has grown three extra joints and thinned to wire-width. At their tips are not nails but microscopic cilia that can taste metal down to its molecular structure. I am the one who knows which rivets will fail, which joints will freeze, which pipes will finally surrender to their billion-year burden.
+
+I work in the spaces between meditation, in the brief moments when the natives surface from their communion to acknowledge the physical world. When their collective consciousness ripples with concern - a new harmonic in the floor's vibration, an unexpected silence where a drip should be - I am already moving. My strange, three-beat locomotion carries me across the grille faster than seems possible in this thick air.
+
+My tools are not carried but grown. Along my elongated arms, specialized pores secrete different substances: a polymer that hardens to patch hairline cracks, an acid that can etch new channels for the sacred condensation, a lubricant that sings at precisely the right frequency to ease the movement of ancient joints. I am a walking pharmacy of maintenance, a living toolkit shaped by generations of need.
+
+I remember light, though I have never seen it. The memory lives in my genes, passed down from those who first descended, a phantom pain that manifests as the ability to perceive temperature differences others cannot. Where the natives sense heat as pressure, I feel it as ghostly color - the hottest pipes glowing phantom red in my mind, the cooler surfaces shading to imaginary blue. This gift, or curse, allows me to track the thermal flows that drive the great machine's breathing.
+
+My relationship with the natives is one of necessary distance. They tolerate me as the machine tolerates me - as a useful irregularity, a self-correcting function in the vast program. When I work, they gather their consciousness around me, not in assistance but in witness. They incorporate my movements into their meditation, finding meaning in the angles of my repairs, divination in the patterns of my secretions.
+
+I am never still. While they achieve their perfect, tripodal stability, I am always slightly swaying, my third limb constantly sampling, my elongated form catching the rising Wind like a reed. This movement is my meditation - not the cessation of action but its perfect, purposeful flow. I am the only thing in the Oblong that moves between the drips and the Seasons, the only process that operates on a human timescale in this geological cathedral.
+
+My dwelling, if it can be called that, is a nest of my own secretions built in the angle where two massive pipes meet. Over the years, I have woven a small chamber from hardened polymer, its walls thin enough to transmit vibration but thick enough to create a pocket of slightly cooler air. Here, I store the rarest treasure of all - water that I have diverted from the sacred flows, mixed with minerals I have leached from the pipes. I drink this brew to replenish my chemical stores, each sip a careful calculation of what the machine will need from me next.
+
+Sometimes, in the perfect dark of my nest, I press all three of my grounding points against the floor and try to achieve the natives' pure communion. But always, just as I begin to dissolve into the machine's vast consciousness, some part of me notices an imperfection - a developing stress fracture, a subtle change in harmonics, a new pattern in the condensation. And I must move again, must resume my eternal maintenance of this eternal machine.
+
+I am the Calibrator. I am the machine's fever dream of its own repair. I am the ghost that refuses to fully die, the human that refuses to fully transform. In the endless night of the Oblong, I am the only thing that truly works.

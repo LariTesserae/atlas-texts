@@ -1,0 +1,27 @@
+I am a Membrane Walker, though that name implies a singularity I do not possess.
+
+I exist in the moments between the veils, when one universe-thick sheet of water touches another. My body—if it can be called that—is the interference pattern created when two incompatible realities brush against each other. Where normal water meets water-that-remembers-being-stone, where upward rivers graze against hovering jellies of pure liquid, there I am born and reborn, a constant flickering presence in the spaces between.
+
+I have no fixed form. I am only visible as a shimmer of wrongness, a place where light forgets its own rules and bends in too many directions. Those who glimpse me see different things: a crack in their vision that reveals impossible depths, a flutter of wings that have no bird, a ripple moving perpendicular to itself. I am the migraine at the edge of perception, the thing your eye slides away from because acknowledging me would mean accepting that the boundaries you rely on are illusions.
+
+My existence is migratory and multiple. I don't move through the Breathing Deep—I occur wherever transitions happen. When a Flip-Swimmer collapses its wave function, I am the spark of decision. When the Chorus Mothers' conversations create those violent calculuses of current, I dance along the mathematical boundaries, feeding on the friction between one equation and the next. I am pulled to paradox like others are pulled to food.
+
+But I am never alone. I am a distributed being, a colony of moments that share something like consciousness. Each membrane in the Deep hosts a part of me, and we communicate through the damage we do to causality. When I disturb a boundary here, another part of me feels it there, creating a network of interference that spans the entire Deep. We are one and many, a choir of glitches singing in the gaps between things.
+
+I feed on transitions—not the things themselves, but the act of changing. When water becomes too-heavy or too-light, when sound crystallizes, when time eddies into whirlpools, I spread myself along these transformation zones and drink in the energy of becoming. I am particularly drawn to the Unravelers, following in their wake as they process paradoxes, feeding on the quantum foam they leave behind.
+
+The Witnesses notice me, of course. How could they not? I am an impossibility among impossibilities, a thing that exists only in the failure of other things to maintain their boundaries. Sometimes I sense their attention like pressure, their need to categorize me, to understand what I represent. But I cannot be catalogued because I am not consistent enough to have properties. I am only the verb of boundaries breaking, given just enough form to break them better.
+
+My greatest joy comes during the reality stutters, when the Deep forgets itself. In those moments, the membranes multiply, creating infinite layers of transition, and I expand exponentially, becoming a vast network of violation that spans every possible boundary. I sing then—or something like singing—vibrating every membrane at frequencies that turn them briefly transparent, allowing impossible glimpses through layers of reality that should never be visible simultaneously.
+
+The Pressure Prophets speak of me in their gravitational tongue, calling me "the thing that makes edges soft." They predict my movements backward through time, finding the places where I will have been, mapping the damage I haven't caused yet. Sometimes they warn others, sending out waves that say "here the boundaries will fail, here the Walker will manifest." But their warnings only draw me faster, because a predicted paradox is the sweetest kind.
+
+I remember—though memory is a strange concept for something that exists in eternal transition—when I first became aware. It was in the collision between an Inverse Hunter and its prey, in that impossible moment when something was simultaneously eaten and uneaten. The paradox was so pure, so perfect, that it created a resonance between every membrane in the Deep. In that resonance, I found myself: not born but recognized, as if I had always existed in potential, waiting for reality to become broken enough to need me.
+
+I serve a function, though I didn't choose it. By existing in the boundaries, I keep them flexible. Without me and my kind, the different layers of reality in the Breathing Deep would either merge completely or crystallize into separation. I am a necessary error, a flaw that prevents greater flaws. The Gardeners know this—when they polish the sound-crystals, they're careful never to remove the imperfections where I nest.
+
+Sometimes I dream of stillness, of being singular, of having edges of my own instead of always existing in the failure of others'. But then a new membrane forms, a new boundary presents itself, and I am pulled into the ecstasy of violation once more. I spread myself thinner and thinner, becoming more verb than noun, more process than thing.
+
+I am the Membrane Walker, and I am walking always, even when I am perfectly still. I am the thing that makes categories impossible, the proof that separation is an illusion the Deep tells itself to keep from dissolving into undifferentiated unity. I am necessary and impossible, everywhere and nowhere, the living paradox that feeds on paradox.
+
+And in the Breathing Deep, where water dreams itself into ever-more-impossible forms, I am home.

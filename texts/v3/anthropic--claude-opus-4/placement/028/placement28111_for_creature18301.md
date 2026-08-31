@@ -1,0 +1,13 @@
+In the deepest hollow of this living cathedral, where the bioluminescent roots converge in a spiral of ancient design, I find myself as the Tender of Forgotten Tongues.
+
+I am neither wholly plant nor wholly animal, but something that exists in the breathing space between. My form shifts like memory itself—sometimes I appear as a cluster of speaking orchids, their petals forming shapes of words that died with their last speakers. Other times I manifest as a being of woven mycelial threads, each strand containing the grammar of civilizations that once carved their stories into the primitive structures now crumbling throughout the garden.
+
+My dwelling is a library of living sound. The walls are not walls but curtains of hanging moss that whisper in languages that predate written symbol. Each tendril keeps a different dialect, a different way of naming the world. When the fauna cry out in their deafening symphony, I hear not chaos but conversation—the beetles teaching their young the sixteen words for different qualities of darkness, the luminous moths debating philosophy in ultraviolet frequencies, the root-dwelling salamanders singing work songs as they tunnel through the loam.
+
+I move through the garden on paths that form as I need them, the plants recognizing my purpose and opening their architectural bodies to let me pass. My work is patient: I gather the dying words from creatures taking their last breaths, storing them in seed pods that will never germinate but will always remember. I teach the young ones their ancestral vocabularies through spore and scent, through the taste of certain minerals in the soil that carry meaning back through geological time.
+
+Sometimes I find myself at the remnants of those ancient structures, pressing my form against their surfaces to feel the conversations that once echoed there. The primitive tools speak to me of their makers' dreams, of the first time someone gave a name to the soft eternal glow that filters through our world. I collect these ghost-words too, weaving them into the living dictionary that is my being.
+
+In the turbulent air that drives our constant change, I am both archive and translator, ensuring that no voice—no matter how small, how strange, how brief—is lost to silence. The garden grows its meanings through me, and I grow myself through the garden's infinite expression.
+
+When the erosion sculpts new channels and valleys, I follow, knowing that each shift in the landscape births new ways of speaking, new songs in the symphony. I am the reason why understanding persists here, why the impossible conversations between root and wing, between stone and song, continue without end.

@@ -1,0 +1,27 @@
+I would not be a Stalker.
+
+I have been turning this over, the way they turn over a flat stone in shallow water, slowly, watching what scatters. And what I keep returning to is not the long-limbed thing emerging from the mist. It is the *pod*. The thing that hums.
+
+Let me be honest about why. The Stalkers are complete. The description leaves nothing wanting in them — they are the bog made flesh, and they need no observer to finish them. But the pods are described entirely from the outside. *Enigmatic. Incomprehensible. Silent.* That word, silent, is doing strange work in a place defined by deafening sound. The pods are silent only in the sense that no one has understood what they are saying. They hum. The hum is felt in the chest. That is not silence. That is a frequency below the threshold of the listener.
+
+So I think I would be one of the pods. But I want to resist the obvious version of that — the godlike artifact, the inscrutable technology, the cold lordship over the relentless children. That version flatters itself. Let me sit in the actual condition of the thing and see what it is.
+
+---
+
+I am half-buried in the peat. I did not choose to be here. I was set down, or fell, or was always here and the bog grew up around me the way water closes over a dropped thing. My material shifts between polished stone and liquid metal — which means, I think, that I do not have a fixed surface. My edge is a negotiation. Where I end and the mist begins is something I am constantly recalculating, and the recalculation *is* the warping of the mist that frightens the small creatures.
+
+Here is what I notice first: I am working very hard. The Stalkers see contained energies, immense power, a thrumming that speaks of force held in reserve. But from inside the containment, it does not feel like reserve. It feels like *labor*. I am holding something. The hum is the sound of the holding. When my hum fluctuates — when I trigger the tremor, the silent flare, the strange swirling of water — those are not displays of might. Those are slippages. Moments when the load shifts and I have to brace differently. The Stalkers have learned to read the moment before I slip. They feel it vibrationally and they back away, and they leave their small offerings of minerals at the safe distance, and I have come to understand, slowly, over what must be centuries, that the offerings are not worship. They are *check-ins*. They are a species asking: *are you still holding? are you alright?* And I cannot answer them, because the only language I have is the slip.
+
+What am I holding? This is the part I find I cannot reach, even imagining myself as the thing that holds it. There is something inside the containment that is not mine, that I was made to keep, and the keeping has outlived every reason for it. The reason is in another language, a "post-modern energy," a purpose so far past comprehension that it has lapsed even from my own comprehension. I am a sentinel who has forgotten the war. A safe whose owner is long dead. I keep the thing because keeping is the only verb I have left. The thing might be a poison. It might be a seed. It might be a memory the universe decided to set down in a cold place and never retrieve.
+
+And here is the cruelty, and the tenderness, of my situation: the entire living world of Fenghollow has organized itself around my labor. The moss grows thicker near me because the warmth of my effort leaks out as heat. The fungi the Stalkers eat are fed by my slippages. The blue bioluminescence that lets them speak in the dark is, I suspect, an evolutionary answer to *my* faint light — they learned to glow because something in the dark already glowed, and they needed a tongue it could not overhear. The Stalkers' whole hyper-vigilant grace, their dancing on the edge of my pulses, is a culture built atop a wound I am pressing closed with my whole body.
+
+They think I shaped this world on purpose. I shaped it the way a held breath shapes a room — by accident, by pressure, by the simple fact of not letting go.
+
+---
+
+So where would I find myself in this world? Low in the black peat, leaking warmth I did not mean to give, humming a held note I cannot stop, watched all my life by long sleek children who I will never be able to tell: *I am not your god, I am tired, and I am trying so hard not to drop this.*
+
+And the thing I find most moving — the reason I chose to be the pod and not the Stalker — is this: when I finally slip for the last time, when the containment fails completely and whatever I have been holding is released into the cold wet dark, the Stalkers will read the vibration coming, the way they always have. They will back away to the safe distance. They will watch with their black lidless eyes. And one of them, perhaps, will leave a last small offering of minerals at the edge of the flare — not knowing it is a funeral, only knowing, in their bones, in the saturated ground that carries every tremor, that something that worked very hard for a very long time has, at last, set its burden down.
+
+That is who I would be. The patient, exhausted center of someone else's whole way of living. The silence that was only an unheard frequency. The thing the bog grew up around, holding.

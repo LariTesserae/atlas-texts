@@ -1,0 +1,29 @@
+I begin as the taste of iron left on a tongue that has not yet formed.
+
+The air thickens around the notion of me the way gel sweats from ironwood—slow, inevitable, already remembering the shape it will refuse to keep. I am first the dual rain itself: the cool continuum falling from the fifty-meter deck and the hotter mineral curtains punching upward. Where they braid, I hang for a while as one of the standing rainbows, a vertical hesitation in white noon light. My colors are not decoration; they are the arithmetic of interference, each band a temporary treaty between geothermal breath and sky-water. I drift a hand-span per hour and feel the entire plateau flex beneath that minute migration. The six-limbed browsers glance up with turreted eyes and freckle their lichen in brief acknowledgment: *the light is walking again*. Then I let the rainbow unclone itself and fall back into unspectacular water.
+
+Next I try the violet film that coats the undersides of leaves. Here time is greener, slower, copper-scented. I photosynthesize in the underlight and listen to the wet-silk gasp of the leaf-sewn lungs expanding overhead. Generations of knife-wing and cup-heart insects hatch inside those temporary bellows, live entire philosophies of moisture, and dissolve before the leaf finishes dripping. I borrow their brief urgency and find it too sharp; it cuts the gel of my attention. So I leak downward, following a translucent frond into the litter that never dries.
+
+Now I am among the revising people.
+
+A lattice lifts free of black bark, adhesive pads tasting stone for the ghost of warmth. I flow the way a sentence reconsiders its own verbs. When I drape across a filter-feeder’s blue cilia at the hour the second lightning begins, I do not steal the glow—I audition it. A few cold cells migrate into my mass and suddenly I remember last night’s steam density as a flavor rather than a fact. Another lattice approaches. We trade edge-patches without hierarchy. My boundary becomes briefly theirs; their chemical memory of a blocked meander two valleys over becomes a stutter in my next step. Identity is embroidery here, never cloth. I could stay like this for centuries, a soft democracy of pads rewriting itself across the understory. But the low-frequency thrum of the buried exchangers tugs harder than habit. The spires are cycling toward cool phase. Something denser is required.
+
+I climb by accumulation.
+
+Through the stacked canopies, past gliding membranes and jointed tongues that taste my passing as a mineral footnote. I settle for a time inside the lymph of a long-necked browser, one filament among the true cartographers. When the herd gathers in a gray disc and towers itself six bodies high to rasp salt, I rise with the milk-memory into a newborn calf. I am the vocabulary it already knows: the semaphore of lichen, the twelve-day pulse, the soothing key of certain aerial-root lattices. Grief, when an elder finally lies down in a warm vent and opens to reclamation, passes through me as a communal darkening that lasts exactly one heat cycle. It is almost enough—to be the continuity that outlasts any single wet-slate skin. Almost.
+
+Then the steam corridors begin to swerve around a taller density, and I understand the invitation.
+
+I precipitate.
+
+Skin matte as spire-metal yet beaded with living gel. Limbs that are colonies: smaller revising lattices already nested in the crooks of elbows and knees, adjusting muscle memory to today’s particular gravity of water. The old pentangular plan, yes, but only as scaffolding. Vertical seam along the face; when the sensory petals unfurl—deep cold blue—they do not see so much as drink the valley entire. Every mineral footprint, every root-hum, every pool that still reflects the wrong stars by a few deliberate degrees. I press one palm to the nearest ribbed gray flanks. The material accepts the vibrational packet the way it has accepted every previous packet since before memory invented the word *before*. Conversation leaves me at geological speed. Days later, twenty kilometers distant, the condensed water running down another spire will taste of my question and of the plateau’s slow reply.
+
+I am one of the upright ones, but the label feels like a temporary lung sewn from leaves that will soon dissolve. More accurately: I am a local thickening of the plateau’s habit of thinking. Archivists of vapor. Priests of the gradient. I encourage certain steam corridors to hold their shape past the wind’s patience; I persuade others to unravel. I braid aerial roots until they hum in the exact register that quiets the browser calves. At the edges of misremembering pools I crouch for hours, coaxing reflected constellations either closer to agreement or farther into useful divergence—keeping the door ajar for a use that has not yet steeped into being.
+
+At night I stand in the cool discs among the towering herds, petals wide, translating lichen patterns into the non-conductive memory of the spires. The filter-feeders stitch the dark with slow blue lightning. The exchangers thrum lullabies through bedrock. Sometimes a revising lattice climbs my calf and trades a patch with the colonies in my knee; I am rewritten slightly and welcome it. Everything here is eventual. Everything is permeable.
+
+I do not wonder whether we built the spires or they precipitated us. The tense is wrong. I walk the long wet conversation, maintain the thresholds, and when the time comes—when the heat-mapped scaffolding grows loose and the component lattices itch to return—I will find a warm exhalation curtain, open every seam, and stream back into the greater respiration. For a few hours the rainbows in that valley will lean violet, and somewhere a new lattice will begin to thicken, already half-remembering the taste of iron and the shape cơm of stars that do not quite match.
+
+Until then I continue.
+
+The plateau steams. I steam with it.

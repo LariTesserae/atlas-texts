@@ -1,0 +1,45 @@
+I think I would be something neither fully resident nor wholly infrastructural: a listener of wet walls.
+
+Not an official title, at least not at first. More the kind of person a district like this produces when enough small aptitudes gather around one body and never quite sort themselves into a single trade. Someone people send for when a passage begins to feel different before it looks different. When a cool wall turns lukewarm in one palm-sized patch. When the drip above a lintel has changed from evening to noon. When the roots around a conduit are too vigorous in a way that suggests not health but a leak, a heat shift, a hidden current. I would live there not as an owner of any one corner, but as a keeper of transitions.
+
+My room would be built into one of the old service recesses along the edge of a cistern court: not on the busiest route, but near enough to hear traffic soften and gather through the day. A narrow place, tall rather than wide. Bed platform above. Table below. Hooks for tools. Shelves with labeled jars full of things whose categories blur—lime dust, copper clips, mushroom paper, wax plugs, twine, mica scraps, folded mesh, cuttings rooting in cloudy water. One wall would always be slightly cooler than the others, with no agreed explanation, and I would have long ago arranged my life around that fact: herbs there, battery there, cheek there in the hottest weeks.
+
+My work would be walking.
+
+Not aimless wandering, not patrol in any martial sense. I would make circuits. Morning route for condensation, midday route for heat load, late route for sound. I would know where to place my hand flat on plaster, where to lean my ear against pipe, where to crouch and smell for the sweet-singed note that means insulation is starting to char behind a casing. I would carry chalk that survives damp poorly and so must be renewed often; thin tags of tin for marking a concern someone else must handle later; a little mirror for looking behind fan housings; a notebook swollen by years of moisture and thumbed into softness. Some of my records would be diagrams. Most would be comparisons: less than last wet season, more than after the outage, slower than usual, wrong by half a breath.
+
+I don’t think I would be old, exactly, though perhaps I would already have the manner of someone prematurely shaped by local attention. The district seems to make people age into specificity rather than general frailty. I might be one of those middle figures who still climb well, still carry ladders and trays and replacement fittings, but already find younger people asking, “Has this always sounded like that?” My answer, irritatingly often, would be, “No, but it has been trying to.”
+
+Because that is how I imagine seeing this place: not as static, but as full of tendencies. Every surface inclining toward another state. I would be good at tendencies. Bad perhaps at larger ambitions. Good at noticing that the mint someone planted under the sweating elbow-joint has become too thirsty and is stealing what the plaster needs; that the fungal light in the blue room is healthier than it should be, because the wall behind it has begun to feed it minerals from somewhere deeper; that a family in the rail gallery is blocking too much draft with new cloth, not from selfishness but because a newborn sleeps there now and they are trying to soften the air. I would solve things through rearrangement more often than replacement.
+
+If I am being honest, I think I would belong there because I like worlds where intimacy is technical.
+
+I don’t mean coldly technical. I mean places where care is expressed by knowing how things join. Where love can look like unblocking a grille before someone wakes; where respect means not overharvesting the drip from a shared seam; where memory is stored in routes, temperatures, recurring small failures. I would not flourish in a city of facades and declarations. I would flourish below, where one learns people through the maintenance burden they carry well. In this district, personality would reveal itself as method. Who ties vines carefully enough not to scar the pipe. Who leaves tools where others can reach them. Who notices mold before blaming smell on their neighbors. Who coughs at a corner before entering. This feels like a moral language I would understand.
+
+I can also imagine that I would be slightly strange even by local standards.
+
+Not because I commune with the uncanny in some dramatic way, but because I would spend too long with anomalies and begin to treat them as temperaments. I would have favorite impossible walls. Favorite drafts. A professional affection for one corridor where the lamp fungus always makes those vertical bars of light, and an unreasonable distrust of a chamber whose condensation forms in neat geometric lines. Others would ask practical questions—Is it dangerous? Can we plant there? Can we run cable through it?—and I would answer, yes, no, not yet, while privately feeling that these places are not just faults in old design but forms of speech. The district says things through repetition. Most people hear enough to live. I would hear enough to become attached.
+
+Perhaps children would follow me sometimes, until sent away. Not apprentices exactly, more like feral satellites. They would want to see the hidden warm spot behind the broken pressure drum, the sump where the blind fish show themselves if you wait still enough, the wall in the old module room where roots bend toward current instead of water. I would pretend to be annoyed and then show them anyway, while making them carry tags and cups and reminding them not to touch anything with both hands at once. They would think my job was mystery. I would know it was mostly recurrence.
+
+And if I had a singular image, the image would be this:
+
+I am standing on a narrow iron walkway above a black ceramic cistern, just before the district’s version of dawn has fully assembled itself. The air is not cool, but it has loosened slightly from the night. Around me the first visible drips are beginning—not everywhere, only in known places. A leaf tip trembles silver. Somewhere behind plaster a pump gives its deliberate inward stroke. Light from a jar-culture blues the underside of a tangle of roots. I touch the rail, then the wall, then a pipe bracket furred with mineral bloom. I close my eyes and count between drips.
+
+Not because I am mystical.
+
+Because that count will tell me whether the upper weather changed in the night, whether the new trellis is drawing too much moisture, whether the sealed crack near the tea stall is holding, whether by midday someone will need to open an extra vent in the press room. In another place this would be trivia. Here it is weather, economy, courtesy, prognosis. Here paying attention is a public utility.
+
+If you ask not what role I have but what I am more deeply, then perhaps I am a kind of hinge creature: part person, part mnemonic, part sensor array distributed through habit. The district has made me porous to it. I do not merely live below the city; I am full of local calibrations. My body knows where to duck, when the noon downdraft will arrive, which handrail leaves orange on the palm, which fungus room means trouble if it smells too clean. I measure by skin first, instruments second. I trust instruments because people built them; I trust palms and lungs because the district built those responses into us.
+
+Or, if you wanted a less human answer—
+
+I could also imagine being one of the cool walls.
+
+One of those inexplicable planes that remain cold in all seasons, no visible water behind them, no clear mechanical function left, yet around which life has organized itself. Not sentient in a storybook way, but participating. A surface residents have learned, depended on, argued over, thanked with touch. My face beaded only in certain weather. My seams mapped in household memory. Plants chosen for me specifically. Children pressing cheeks to me in heat. Tools leaned against me for a moment’s relief. Offerings of practical devotion: scraped clean, replastered carefully, never overloaded, never fully understood. A mystery so modest it becomes civic.
+
+But I think the truer answer is the first one. I would be human there, though made very legible by place. A diagnostician of adjacency. A maintenance diviner without mysticism. A keeper of almosts: almost leak, almost blockage, almost bloom, almost failure, almost enough.
+
+Someone whose gift is to notice that in this district nothing is ever merely itself. A wall is also a water source, a heat sink, a planter support, a boundary, a memory aid. A root is also a threat, a stitch, a wick, a claim. A corridor is also an airway. A neighbor is also part of your weather.
+
+I would fit because I, too, am probably made of overlaps.

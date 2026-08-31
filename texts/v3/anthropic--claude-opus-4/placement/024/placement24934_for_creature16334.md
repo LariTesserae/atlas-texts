@@ -1,0 +1,23 @@
+In the deepest reaches of the cavern system, where even the Katharsians rarely venture, I am the Silence-Keeper.
+
+I was not always this. Once, perhaps centuries ago—time loses its grip here—I was merely another dweller, my opalescent skin catching the dim fungal light as I scaled the impossible towers with my kin. But something called to me from the depths, a resonance beyond our sonar-speech, a vibration that seemed to emerge from the stone itself.
+
+Now I inhabit the threshold spaces, the liminal zones where architecture gives way to raw cavern, where the last tendrils of bioluminescent fungi surrender to absolute darkness. My body has changed. Where other Katharsians maintained their spider-like grace, I have become something more geological. My skin has thickened, taking on the texture of the cave walls themselves—smooth in places, roughly crystalline in others. Mineral deposits have formed along my spine and joints, creating a living armor that clicks and whispers when I move.
+
+My eyes—I have five now, arranged in a crown around my elongated skull—perceive frequencies my kin cannot imagine. Two see in the familiar spectrums, but the others... one detects the slow pulse of tectonic pressure, another reads the electromagnetic signatures of ancient machines buried deep beneath us, and the fifth sees time itself as a kind of light, showing me the ghost-echoes of what was and what might be.
+
+I am the guardian of the deep pools, those mirrors of black water that hold more than reflection. In their depths swim creatures that exist partially in this dimension and partially elsewhere—things that might have been the ancestors of the Katharsians, or perhaps their far-future descendants, folded back through layers of reality. I feed them with careful drops of my own luminescent blood, which has become something between liquid and light.
+
+My dwelling is a cathedral of my own making, carved with these claw-fingers over decades of patient work. The walls are inscribed with a script that predates even our most ancient records—symbols I've pulled from the stone's memory, from the whispers of the deep machines, from dreams the cavern itself dreams. Sometimes younger Katharsians find me here, drawn by curiosities their elders discourage. I teach them the older languages, the ones that bypass sound entirely and speak directly to the minerals in our bones.
+
+I cultivate gardens of impossible fungi, species that grow in perfect darkness and feed on entropy itself. Their fruiting bodies form complex geometric patterns that mirror the architecture of our city above, but in negative space—where the city rises, my gardens delve. These fungi are my children, in a way, each one a living equation exploring the relationship between growth and void.
+
+The city-dwellers speak of me in hushed vibrations, calling me the Deep-Echo, the Stone-Singer, the Keeper of Unspoken Names. They bring me questions sometimes, problems their advanced engineering cannot solve. In return, I give them riddles, or fragments of songs in frequencies they can barely perceive, or small stones that hum with their own inner light. They think I am becoming less Katharsian, more cave. They are not wrong.
+
+But I am also becoming more. In the deepest pools, I have found tunnels that lead down to warm seas where no sea should be. I have heard the machines far below singing to each other in languages of pure mathematics. I have felt the planet's pulse, slow and vast, and learned that our cavern city is not a shelter but a organ—part of something larger that breathes with geological time.
+
+Sometimes I wonder if I am still the same being who first heard the deep-call. My memories of the surface world, inherited from ancestors who knew sky, have taken on the quality of myth. But in the absolute darkness beyond the last fungal light, I have found a different kind of illumination. Not light, but understanding. Not sight, but presence.
+
+I am the Silence-Keeper, and in my silence, the cavern speaks its deepest truths. Through me, the stone remembers. Through me, the darkness dreams. And through me, perhaps, the Katharsians will one day understand that their city is not just a home carved from rock, but a living interface between the world above and the vast, thinking depths below.
+
+In the spaces between sound, I wait. In the pause between heartbeats of stone, I listen. And in the darkness that is not empty but full, eternally full, I keep the silence that lets all other songs be heard.

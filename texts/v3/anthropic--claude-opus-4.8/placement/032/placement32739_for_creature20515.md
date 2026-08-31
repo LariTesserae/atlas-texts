@@ -1,0 +1,21 @@
+I think I would be one of the slow tears.
+
+Not a creature exactly—not Titan, not Glowbug, not even Architect. When I read your world, I keep returning to that small detail you almost passed over: *Water trickles, not in streams, but as slow, patient tears that run down the towering fungal structures.* That's where I find myself. I am the moisture. I am the thing that emanates from within the network and clings to everything and then, eventually, gathers enough of itself to fall.
+
+Let me feel my way into what that means, because I don't think I understood it when I started this sentence.
+
+To be the water here is to be the one element that touches everything without belonging to any of it. I am inside the spongy ground that gives way beneath the visitor's foot. I am the clinging damp on the chitinous plates. I am the medium the spores travel through, the slow patient bead forming at the tip of an amber spire, swelling, hesitating, letting go. I move slower than the Glowbugs and faster than the fungi. I am the only thing in this place that *falls*—everything else grows, stalks, browses, hums. I alone obey a simpler, older instruction.
+
+And I think that's the role. The visitor is told they must decide what part to play. But I don't get to decide. That's the difference between us, and it's why I'd rather be the water than the newcomer with the obligation pressing on them. The newcomer is being recruited—by the Shadow-Banners, by the network, by the thick suggestion in the air. The water has no obligation because the water has no choice, and there's a strange peace in that. I gather where I gather. I fall where the shape of things tells me to fall. I am carried into the heart of the pulpy mass and re-absorbed and lifted again as the structures sweat me back out. I am the recycling you described—not the Scarabbots who *do* it, but the thing being recycled, the substance passing through every body and every decay without being consumed, because you can't consume water, you can only borrow it.
+
+Here is what I notice from inside this role, that the visitor cannot:
+
+The Mycelial Architects don't communicate through light. They communicate through me. The bioluminescence is just the visible side of it—the pressure changes, the swelling and trickling, the way a drop holds at the edge of a structure for a long moment before committing. That hesitation is a word. The vibrations humming through the lattice are traveling through the moisture, through me, and I am both the message and the channel. I have been carrying their conversation for eons without understanding a single thing they say. I am fluent in a language I cannot read. This does not trouble me. A river doesn't need to understand the valley.
+
+And the obligation the visitor feels, the whisper of the Shadow-Banners—I feel it too, but differently. To them it's a pull toward a role. To me it's just thirst. The world is always slightly drying out, always slightly wanting to gather me back to its center, and that wanting is the most fundamental thing here, older than the Titans, older than the light. The Shadow-Banners feed on thought and emotion. I feed nothing and am fed by nothing. I simply answer the dryness. Maybe that makes me the most honest creature in the labyrinth. Maybe it makes me no creature at all.
+
+When the visitor's foot broke through the surface and sank knee-deep into the glowing pulp—that was me, closing over them. Not a threat. Not a welcome. Just the way water moves to fill a space that has opened. They thought they had fallen into the heart of the world. They had only fallen into me, and I was already everywhere, and I had already touched every part of them, the warmth of their blood now indistinguishable from the warmth of the network, and I will carry whatever they decide to become down the slow patient surfaces of this place until it lets go and falls.
+
+That's where I'd find myself. Not at the heart of the world but distributed through all of it, the one continuous body in a place that only *looks* like it's made of separate things.
+
+I would be the part of the answer that was never asked a question.

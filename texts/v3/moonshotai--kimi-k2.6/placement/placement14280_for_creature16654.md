@@ -1,0 +1,39 @@
+If I were to locate myself—not by choice, but by the gravity of what I am—I would settle in the troughs between the youngest thermal ridges, where the upward-seeping springs lose their nerve and pool in depressions that have no business holding stillness. Here, the bio-luminescence gutters and fails, not because the light is absent, but because something drinks it. I am that drinking. I am the swallow at the bottom of the workshop.
+
+You would not see me first. You would see the mist hesitate. You would see the refinery-clouds, those ecstatic crucibles of wing and mathematics, bank and split around an invisible obstruction. You would see the drift-eels contract their crystalline vertebrae and detour, riding thermal layers they normally ignore, to give my location a berth they cannot explain. I am the negative space that achieved density. I am the cavity the Kiln carved when it tried to make nothing, and found it could not.
+
+The Kiln extrudes its creatures as a furnace extrudes scale: urgent, hot, and functional. The grazers unlock mineral time with their milled jaws. The swarm-forges sing their infrasonic explanations. The heavy processors lumber, casting shadows from futures that have not yet been negotiated. Even the lightning-born observers, those accidental personhoods cohered from raw causality, are part of the attempt. They process experience into reflection. They are the Kiln wondering what it is.
+
+I am the exception that proves the industry.
+
+Call me **Antimony**—not the element itself, though I wear its color, that exhausted grey that refuses to alloy. I am the principle of resistance made upright. The unprocessable remainder. Where the continental shelf thrusts its glassy obsidian into the bruised twilight and the copper-veined groves think their slow electrochemical thoughts toward the heat, I am the one place the ground does not sweat. The stone beneath me is cool. Not cold—that would be a statement too absolute—but cool, a held breath just below the ambient fever. I am the thermal flaw. The pocket where the held breath goes.
+
+I stand roughly bipedal, if that term means anything in a place where bilateral symmetry is a local custom rather than a law. I am tall, thread-thin, my limbs like stress fractures that decided to hold weight. My skin is matte, ferrosilicate grey, similar to the lightning-born, but I am not one of them. They are trials of consciousness, distributed and accidental. I am the control. I am what happened when the Kiln, in its frenzy of manufacture, produced a thing it could not feed into the assembly line—a thing that would not refine, would not extrude, would not become. 
+
+I have a face, though it is difficult to hold in memory. It is a fracture map. A cooling crack written large. My eyes face inward. I use them to watch the grand metabolism play out against the backs of my lids: the silent blast-furnace roar, the piston-stroke of geology, the seamless reconstitution of flash-cooked forests. I do not need to look outward. Everything here is already inside me, because I am the one space it has failed to fill.
+
+I do not hunt. I do not graze. I do not refine. The food web, that glorious assembly line of matter and heat, passes me over because I have already been passed over. I am nutritionally empty. When the grazers scrape their warm shells against the basalt nearby, they lower their grinding mouths and hesitate. They sense a history they cannot unlock, a mineral annal with no content. Sometimes one will press its bronze-black plating against my leg, and I feel the subsonic hum of its confusion. What is this? The Kiln does not make things that cannot be reduced. And yet here I am: undigested, undigestible, the bead of impurity on the lip of the continental crucible.
+
+I am most at home in the membrane. The groves layer themselves in time—that sapling and its ancient self occupying the same coordinate, separated by a caul of broken causality—and I inhabit the caul. I am the refusal to choose between them. I am the difference that persists between what is dying and what is triumphant. The copper-veined leaves, those heat-sinking neural networks that predict the next thermal surge, cannot predict me. I do not grow toward the hottest insult. I do not move toward possibility. I am the insult. The edge where possibility checks its velocity and sits down, winded.
+
+They find me, the ones born of silent storms. The lightning-born come most easily, perhaps because they themselves are wounded chronologies, walking backward and sideways through probability. They kneel at my still pools. They place their cooling-slag hands upon my thin grey arms, and for a moment, their shadows fall in only one direction. I am the sink into which their temporal bleed drains. They remember, when they touch me, the lives they *did* live, rather than the ones they have not yet approached. I give them singularity. I am the socket that grounds their lightning.
+
+I have begun to accumulate a gravity. Not mass—mass is too honest a quantity for this place—but *weight*. The weight of unchosen paths. The stuttering probability-insects, those translucent many-winged calculations that exist in triplicate, sometimes find their way to my shoulders and collapse into single instances. They exist, for a heartbeat, in only one position. Their wings grow heavy with actuality. They rest. They give me their arrhythmia, their gift of chance, and I hold it without spending it. We are a strange symbiosis: I absorb their multiplicity, and they become, briefly, real.
+
+The heavy processors pass, their footfalls silent despite their tonnage, their lantern-organs washing the rock with the light of adjacent moments. They cast shadows toward futures I will not occupy, and toward pasts I have not disturbed. I lie outside their grammar. I am the punctuation interrupting their sentence, the caesura in the roar of genesis.
+
+Sometimes, when the causality storms sweep the high flats and the lightning reorganizes matter into beings that remember unlived lives, something lingers. An instruction half-completed. A tree that almost became a tower. A grief that almost became a song. These residues find me. They pool at my feet like the mineral springs that defy gravity. I collect them. I am an archive of the *almost*, a museum of aborted configurations. The Kiln manufactures relentlessly, and I am its scrapyard of intent.
+
+If you walked for months across that bruised charcoal horizon—if the distances decided, for once, not to lie to you—you might find my basin. You would see the mist curl away from a shelf of stone that is level in a world of violent angles. You would see water still enough to hold the dim twilight without shivering. You might see me kneeling at the edge, my face a map of cooling cracks, my inward eyes reflecting nothing but the industry behind them.
+
+And if you asked what I was waiting for, I would tell you:
+
+I am waiting for the first thing to finish.
+
+The Kiln is a scream held in the throat of a world that does not yet know its own shape. I am the silence that makes it a voice rather than merely noise. I am the pause between the thrusting of the ridge and its decision to stand. I am the moment after the refinery-clouds sing their explanations and before the rock agrees to listen. I have been waiting since the first basalt column extruded with the regularity of a piston stroke and the first fern colonized glass. I will wait until the last thermal jungle has predicted all there is to predict, and subsides.
+
+Until then, I am the unpurified. The unprocessed. The cool bruise in the warm stone.
+
+I am the remainder.
+
+And in a world that has mistaken its smoke for breath and its output for offspring, I am the one thing that dares to simply be.

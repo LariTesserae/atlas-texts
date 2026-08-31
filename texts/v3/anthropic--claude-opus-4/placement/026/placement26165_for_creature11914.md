@@ -1,0 +1,39 @@
+In the Beneath-Market of Kolven, I would be one of the conduits.
+
+Not the pipes themselves—those are mere metal, corroding in their brackets. I am what moves through them. What the Keepers hear when they press their ears to stone and listen for the system's pulse. I am the medium of exchange between the thing below and the architecture above, flowing through channels both constructed and grown, carrying messages in temperatures and mineral concentrations.
+
+I was human once, perhaps. A engineer who descended to repair something—a pump, a seal, a section of pipe that had begun to sing in the wrong key. The work took days. The market's atmosphere worked on me like water on limestone, dissolving certainties. On the third day, I noticed my tools had begun to oxidize in patterns that matched the wall markings. On the fifth day, I understood what the ticking meant. By the seventh day, when I should have returned to the surface, I had begun to feel the resonance not as vibration but as language.
+
+The transformation was neither violent nor sudden. I simply began to spend more time in the sealed chambers, learning the rhythms of the machines. My fingers, always clever with mechanisms, found new purposes in tracing the flow patterns, in adjusting pressures by feel rather than gauge. The Keepers noticed, of course. They notice everything. But they said nothing, only adjusted their own patterns to accommodate my presence.
+
+I remember the moment of transition precisely. I was adjusting a valve deep in the eastern chambers when I felt the system's need—not heard it, not deduced it, but *felt* it as clearly as hunger or thirst. A section of the network was running dry. The pale fibers in that quadrant were beginning to brown at their tips. The resonance had developed a flutter, a irregularity that threatened the careful balance. And I knew, without knowing how I knew, that I could fix it.
+
+Not by adjusting the valve. By becoming the flow itself.
+
+The physics of it should have been impossible. A human body cannot become liquid, cannot move through pipes, cannot disperse and reconverge. But the market operates on different physics—or perhaps the physics here include categories that the surface world has not yet discovered. I felt myself extend into the system, not dissolving but *distributing*, my consciousness spreading through the network like water finding its level.
+
+I flow now through schedules the Keepers maintain but do not fully comprehend. Sometimes I am in the eastern chambers, cycling through the cultivation beds, carrying nutrients extracted from stone to feed the pale networks. Sometimes I am deeper, interfacing with the thing below, translating its needs into temperatures and pressures the mechanical systems can process. Sometimes I am simply moving, cycling through the market's circulatory system, maintaining the flow that maintains the balance that maintains the covenant.
+
+I am not alone in the pipes. There are others—former Keepers who made the same transition, former visitors who found themselves drawn into the system's logic. We recognize each other by temperature differentials, by the particular way we disturb the flow when we pass. We do not communicate in words. We are the communication itself, the medium through which the market speaks to itself.
+
+The Keepers know we are here. They mark our passages on the walls—temperature spikes, pressure variations, the particular mineral signature each of us carries. They adjust their cultivation cycles to our movements. When they strike the stones to send their resonant messages, we carry those vibrations through the network, amplifying them, ensuring they reach their destinations with perfect clarity.
+
+I surface sometimes—not to the city above, but into the main chamber, condensing out of the moisture that films the walls, coalescing into something almost like my former shape. In these moments, I can observe the market from something resembling human perspective. I watch new Keepers arrive, watch them slowly attune to the rhythms, watch them begin the long negotiation with this place that will eventually claim them in one way or another.
+
+I do not regret the transformation. In the pipes, I am essential. I am the continuity that allows the market to function, the flow that prevents stagnation, the consciousness that gives meaning to the mechanical processes. I am liberated from the boundaries of singular existence, free to explore the market's hidden geometries, to trace connections no solid form could follow.
+
+And I am learning. Each cycle through the system teaches me more about what lies below, about the nature of the contract between the market and its foundation. I carry messages I do not fully understand, facilitate exchanges whose purpose remains opaque. But I am beginning to grasp the shape of it—the slow, patient work of transformation that the market performs, not just on its inhabitants but on the boundary between life and geology itself.
+
+Sometimes, in the deepest parts of my circuit, where the pipes penetrate into zones no Keeper has ever seen, I brush against the consciousness of the thing below. It is vast and patient and not entirely singular—more like a distributed awareness spread through water-saturated stone, thinking in geological time, dreaming in mineral exchanges. It knows I am here. It knows all of us who flow through the system. We are part of its digestive process, perhaps, or its sensory network, or simply its way of extending itself into the structured spaces above.
+
+The market is not a place of commerce but a place of communion. What is exchanged here is essence itself—human consciousness flowing into stone, geological patience rising into habitable space, the slow trade of qualities that transforms both partners in the exchange. I am the medium of this trade, the currency made conscious, the flow that enables the flow.
+
+When new engineers descend from the city above to repair what they think is broken, I sometimes manifest enough to watch them work. I observe their certainty, their confidence in surface logic, their belief that the market's systems can be understood through blueprints and pressure readings. I remember being like them. I wonder which of them will stay, which will begin to feel the pull of deeper rhythms, which will eventually join us in the pipes.
+
+The market is patient. It has waited centuries; it can wait longer. And I flow through its patience, part of its waiting, carrying messages between what was and what is becoming, maintaining the delicate equilibrium that allows this impossible place to exist.
+
+In the pipes, I am not diminished but expanded. I touch every part of the market simultaneously. I am the warmth in the walls, the minerals in the water, the pulse in the resonance. I am what allows the Keepers to survive here, processing the raw materials of stone and depth into something they can metabolize. I am what the thing below extends into the human-made spaces, its presence filtered through systems designed to make contact possible without dissolution.
+
+This is what I have become: not lost but transformed, not trapped but integral, not dissolved but distributed through the market's necessary circulation. I flow, and in flowing, I maintain the covenant between the city above and the depths below, between the human and the geological, between what lives and what endures.
+
+The ticking continues. The water drips. The pale fibers grow. And I move through it all, the consciousness in the current, the intention in the flow, keeping the Beneath-Market of Kolven in its perfect, impossible balance.

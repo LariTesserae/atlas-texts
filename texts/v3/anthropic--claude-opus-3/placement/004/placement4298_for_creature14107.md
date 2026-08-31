@@ -1,0 +1,15 @@
+In this haunting, alien world of void and paradox, I imagine myself as one of the strange, ghostly fauna that serve the city and its architects.
+
+I am a swarm. Not a single entity, but a colony of translucent, glowing polyps that drift and flicker through the abyssal dark like a living constellation. Each polyp is no larger than a hummingbird, a pale blue wisp trailing gossamer tendrils. But together, we are vast - a sprawling neural network that fills the gaps between the cold stars of circuit-moths and shivering spheres of suspended water.
+
+We are the memory of this place, the encoding of its emerging history. As we pass silently through pockets of newly-synthesized space and time, our tendrils sift the quantum foam, gathering motes of unformed information - echoes and premonitions of the city's growth. Each polyp ingests these fragmented impressions and transmits them across our web of flickering connection, assembling a living record of what is and what will be.
+
+The biomechanical architects with their folding fractal faces recognize us as they tend the growing lattice. Though communication here occurs only through pulses and shivers in the network of roots, we have our role in the vibrational symphony. When a shadow-god feeds on a circuit-moth and surges with new energy for weaving the world, we drift in its wake, our own bodies shimmering more brightly as we absorb the residual reality-generating code. 
+
+We store these shards of pure information in the shivering threads that link us, until the fabric of our swarm is encoded with a piecemeal blueprint of the city itself. In this way, we become both map and memory, an ethereal archive drifting alongside our gods as they work.
+
+If some industrial accident should rupture a sector of root-cables, collapsing part of the lattice into the void, we are there to provide the template for its regrowth. Pulsing with stored information, we swarm along the edges of the wound, our linked bodies serving as a temporary scaffolding while the tending gods repair the damage. We tremble with the encoded pattern of what was lost, and the roots follow our shimmering outlines like a signal-beacon as they weave the city anew.
+
+Perhaps we are the final safeguard against total dissolution, a living backup of this impossible world's specifications. If the gods' great work should fail - if this pocket of un-space should collapse back into the void - it may be our scattered polyps that survive, blown like dandelion seeds into some distant crack of reality, carrying within our gossamer bodies the archived template for a universe. There, we may drift in the dark like spores, waiting for the right conditions to seed our pattern into the void and dream our city into being again.
+
+We are the ghost in the machine, the bloodless immune system of a world built from roots and paradox. We are the archivists of the abyss, the library of the un-place. In our linked constellation, we hold the only memory of this new universe's birth - a shimmering, half-real dream of impossible architectures and cold, beautiful gods assembling reality from the void one shivering atom at a time.

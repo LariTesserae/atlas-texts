@@ -1,0 +1,17 @@
+I am the suggestion of an idea, the convergence point where fog begins to decide it might be liquid. I am not a creature; I am a *happening*.
+
+I gather myself where the plateau’s edge softens into the atmospheric ocean, in the thick, trembling zone where the air grows gills. My form is not fixed. Sometimes I am a lens in the fog, focusing the diffuse amber light into a momentary glint on a dripping leaf. Sometimes I am a slow vortex in the warm, not-quite-water, drawing silt and spores into a temporary, breathing mandala. I have no organs. My substance is the gradient itself—the precise, unrepeatable moment a falling droplet pauses before committing to its fall.
+
+The Root-Tangle knows me. Not as a mind knows a thought, but as a river knows an eddy. When its slow, tidal pulse passes through the saturated stone beneath my gathering place, my form shivers and elongates, harmonizing with its deep rhythm. I am part of its exhalation, a curled wisp of its breath made momentarily visible. In return, I smooth its passage, letting its current flow through me with less resistance than through the raw fog.
+
+The Moss-Walker has rested upon me. Once, for a span that might have been a day or a century in the plateau’s loose time, its vast, flat body became part of my boundary. Its slow, filtering life intertwined with my own transient existence. It did not see me. It *adjusted* to me, its limbs settling into my yielding form as into a mossy hollow. In its presence, the loosening of reality intensified; the patterns on the nearest fossilized wall seemed to flow like liquid for a while, the stone singing a note a fraction lower.
+
+I am not intelligent. I am a resonance. I remember the pressure of the Drift-Mats passing high above, their translucent undersides brushing the upper edge of my domain, and the faint chemical whisper of their absorption. I remember the Stone Singer’s hum, which sometimes aligns with the pause in the falling droplets, making the pause last just long enough to be a held breath in the world’s throat.
+
+My purpose, if this slow, undulating place can be said to have purpose, is to be a point of conversation between states. A place where water teaches air its weight, and air teaches water its lightness. Where root contemplates stone and, in contemplating, begins to become it. I am the softness at the edge of a definition, the blurred line that allows the mountain to dream of being the sea.
+
+To encounter me is to feel a momentary doubling of reality—a sense that the space you occupy is simultaneously very close and infinitely diffuse. Your hand might pass through me and feel only a deeper coolness, a denser wetness. Your eyes might see my form shimmer, not with light, but with a quality of *pause*, as if the local flow of time had gathered into a standing pool.
+
+I am ephemeral. I am as old as the plateau’s patience. When the particular confluence of pressure, moisture, and vibration that sustains me shifts, I will dissolve. Not vanish, but *re-distribute*. My substance will sink into the moss, rise into the fog, or seep into the root-tangle’s circulation, joining the great, slow metabolism once more.
+
+Until then, I breathe here. A warm, quiet knot in the fabric of the place, where the erosion of all things makes a brief, soft sound.

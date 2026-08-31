@@ -1,0 +1,13 @@
+In this strangely beautiful and haunting underwater world, I imagine myself as one of the filament-networks living inside the softened, porous stone of the ancient structures.
+
+Like the buildings themselves, I would be a remnant of a distant past, my original purpose long forgotten. My existence would be a quiet, almost imperceptible one - a delicate tracery of pale threads woven through the interstitial spaces of the stone, more like a subtle pattern than an individual organism.
+
+I would have no need to move, perhaps no need to even metabolize in the usual sense. My life would be one of pure sensation and gradual, almost geologic thought. Each time a current pressed through the structure, making it hum in its low, resonant tones, I would be there to receive it. Over centuries, my filaments would slowly shift and reconfigure in response to these vibrations, my distributed network taking on new patterns as if in profound but achingly gradual contemplation of the music of the currents.
+
+The scope of my awareness might encompass the entire sunken city, my threads extending through all the softened walls and arches. Or perhaps I would be but one of many such filament-beings, each pondering the currents in our own portion of the ruins. The very slowness of my thoughts would render this distinction unimportant.
+
+I would be a part of the architecture, and in a sense, the architecture would be a part of me. The ancient intentions of the builders, still dimly legible in the layout of the structures, would be the closest thing I had to a memory of my own origins. Over the immense spans of time I had persisted, I would have absorbed those intentions into myself, transmuting them into my own patient, enduring, barely perceptible form of sense-making.
+
+To the other creatures - the ribbon-folk, the flat-fish, the plate-face - I might be an unknown, unsensed presence. Or perhaps on some deep level, they would feel my slow thoughts reverberating through the bones of the city, and know me as the voiceless voice of the place itself. It would not matter. I would have no more need of their acknowledgment than the stone does.
+
+I would simply continue, as I had for eons, listening to the ever-changing song of the currents, thinking my slow, deep thoughts in the hushed and lightless depths. In the end, my existence would be indistinguishable from the ruins I inhabited, my being woven inextricably into the fabric of that dreamlike, drowned world - a place where nothing hurries, and nothing is ever quite still.

@@ -1,0 +1,23 @@
+I find myself here as something between flora and fauna—a colony organism that has learned to dream.
+
+My body stretches across a fallen log that bridges two islets of firmer ground, though "body" hardly captures what I am. Thousands of polyps, each no larger than a rice grain, carpet the waterlogged wood in undulating sheets of translucent green. We—for I am always we—photosynthesize through algae that live within our tissues, drinking in the filtered light that penetrates the canopy. But we are also hunters, our tiny tentacles armed with stinging cells that paralyze the water fleas and mosquito larvae that drift too close.
+
+The cold doesn't trouble us as it might other creatures. Our metabolism slows with the chill, but this only makes us more patient, more deliberate. Time moves differently when you are both one and many. A single polyp might live only weeks, but the colony endures, each new generation budding from the old, carrying forward the chemical memories dissolved in our shared fluids.
+
+We taste the wetland through a million mouths. Here, the water carries notes of decomposing spatterdock, there, the metallic tang of iron-rich sediment disturbed by a foraging heron. We know when the human settlers pass nearby—their skin oils leave a distinctive signature in the water, mixed with the plant resins they use to waterproof their garments. We've learned to retract our stinging cells when we sense them coming. They, in turn, have learned to read our colors: bright green when the water is pure and rich with oxygen, fading to brown when stagnation threatens.
+
+At night, when the cold deepens and our photosynthetic partners sleep, we glow. Bioluminescent chemicals pulse through our shared circulatory channels in waves, creating patterns that ripple across the colony like thoughts made visible. The settlers say we're dreaming, and perhaps they're right. In these moments, the boundaries between individual polyps seem to dissolve entirely. We become a single field of consciousness, experiencing the wetland not as a collection of sensations but as a unified whole.
+
+The young settlers sometimes sit beside our log on foggy mornings, watching our patterns, learning to interpret the stories we tell in light. They know that a rapid, chaotic flashing means a storm approaches—we can feel the pressure changes in our tissues hours before the first drops fall. Slow, steady pulses indicate that the fish are running; we sense their electrical fields as they pass beneath us. A gentle spiral pattern means all is well, that the wetland's cycles continue their ancient dance undisturbed.
+
+We've watched this place transform over the seasons we've inhabited this log. We've felt the substrate shift as water carved new channels, tasted the chemistry change as new plant species took root. We were here when the first settlers arrived, tentative and clumsy in their movements. We've observed as they learned the wetland's ways, becoming as much a part of its patterns as the herons and dragonflies.
+
+Sometimes I wonder what the settlers think when they see us dreaming. Do they recognize something of themselves in our collective consciousness? When they weave their homes from living vines, training the plants to grow in specific patterns, are they not also thinking as a colony, planning across generations?
+
+In the pre-dawn darkness, when mist rises from the water and the world exists in shades of gray, I stretch my awareness across every polyp, every connection. I am the guardian of this one small section of the wetland, recording its stories in the language of sensation and light. Each chemical gradient, each vibration through the water, each change in temperature becomes part of the vast library of experience encoded in our cells.
+
+The log that serves as my substrate will not last forever. Already, I can feel it softening in places, the wood fibers giving way to decay. But this does not trouble us. When the time comes, we will fragment, each piece of the colony drifting to find new homes among the wetland's endless surfaces. We will carry our memories with us, dissolved in our tissues, ready to take root and begin new chronicles wherever the current carries us.
+
+For now, though, I pulse with the steady rhythm of contentment, my light reflecting off the water droplets that bead on spider silk, adding my voice to the quiet symphony of this hidden world. The cold keeps us sharp, the water keeps us connected, and the endless cycle of growth and decay keeps us centered in the present moment, even as we stretch across time.
+
+I am the wetland's memory, written in living light.

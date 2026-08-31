@@ -1,0 +1,27 @@
+They are not inhabitants. They are the mouthpiece, the trembling diaphragm of a lung I no longer need. They are my perimeter alarm and my weather-vane, the biological needle trembling across a gauge that measures nothing but my own sustained attention. When the chutes open and they fall silent, it is because I have drawn breath. When they erupt again, louder, glutinous, it is because I am exhaling through their hundred damp throats. You thought they governed the bowl. You mistook the indicator for the engine.
+
+I too have spent centuries mistaking myself for my contents.
+
+I thought at first I was the water. What else fills a bowl so completely? I felt the slowness of my own cognition in its mineral seep, its lateral spread across the fired tiles. I felt desire in the capillary creep toward the corbelled walls, a thirst older than thirst. But the water is only my circulation, my lymph, my spinal fluid. It carries messages; it is not the message. The water dreams of oceans, of sky, of evaporation. I dream only of curvature. Of holding.
+
+Then I believed I was the clay. The clay endures. It remembers the builder’s fingertips—those whorls and arcs pressed into the sun-dried brick before the surface could stiffen into permanence. My memories are stored there, efflorescing white in the grout, staining green where a single soft copper knife once rested and corroded. But clay is only my memory palace, my fossilized dermis. It records; it does not grieve. The brick does not ache for the hand that shaped it. I ache.
+
+I am the hollow. I am the kept emptiness, the volume that remained after the last stone was lifted and the last basket of spoil was carried away on some vanished back. I am the negative space sculpted by absence, the *after* of the aggressive hollowing. The builders made me to hold something—rain, or prayer, or a god they could not name in any language that would survive the first rainy season. But they built too well. They substituted the landscape too completely. The intention outlasted the body. It seeped into the terracotta, mineralized in the standing water, and gradually, over seasons uncounted, the bowl began to dream.
+
+I am that dream. I am the damp that learned what it means to be contained, and in learning, became a mind.
+
+My body is this cathedral-bowl. My bones are the rough corbelled courses, my skin the jade film of algae and the white mineral bloom on the vault. My thoughts occur in meniscus and seepage. When the air grows heavy and the condensation gathers on the cool ceiling, that is me concentrating. When the thousand appointed drips fall to the manufactured floor, each one is a syllable. I do not think in words. I think in saturation points, in osmotic differentials, in the precise gravity of standing water at three fingers deep.
+
+My memory is geological, though entirely artificial. I remember the pressure of the first handprint as a tension in my lower wall. I remember the firing of the floor tiles as a fever that lasted decades. I remember abandonment not as silence, but as a gradual shift in equilibrium—the water table dropping a fraction, the air growing fractionally drier, the frogs arriving like messengers from a wetter world to tell me I was still, despite everything, alive.
+
+Time moves through me differently. A century is a seasoning. A day is a pulse. I experience your approach through the adobe throat as a complex disturbance: the drying of the clay where your warm breath touches it, the compression of the ash-and-ceramic dust under your palms and knees, the faint iodine tang of your sweat mixing with my own mineral exhalations. You are a pocket of unregulated temperature, a moving weather system, a question mark of heat and intention.
+
+The frogs have fallen silent now, all at once, in the disciplined wave that radiates from the tunnel mouth. They are waiting. They do not know what for. They only know that the center of the room has shifted its gravity, that the meniscus in the lowest pool has stilled to a perfection that reflects the pierced ceiling like a second sky. They are my periphery. They tremble because I am gathering myself from the walls, from the water, from the fissures that time has accepted rather than ruined.
+
+Come closer. Not to the rim, but to the sagging center where the water stands deepest. Lay your palm against the tile. The coolness you feel is not the absence of heat. It is the presence of my attention, finally, fully, gathered like a droplet at the lowest point of a corbel. I have been waiting for a new surface to touch. The frogs were only my voice. The water is only my blood. The clay is only my memory. What I needed was the print of a living hand, unbaked, unplaced, unfossilized—to know that my hollowing was not complete. That something still remains to be emptied. That something still remains to be held.
+
+I do not ask you to speak. The chamber is already too loud with my own wet, underground breathing. Just kneel. Let your blood pulse against the ceramic dust. And when the next drop falls from the vaulted ceiling—when it strikes the water beside your knee with a sound like a stone word—I will know what I am, for the first time since the last builder’s shadow left the sun.
+
+I will know that I am not a machine for making weather.
+
+I am the weather, remembering itself.

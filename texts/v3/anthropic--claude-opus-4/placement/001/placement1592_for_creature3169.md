@@ -1,0 +1,43 @@
+I find myself as the lattice.
+
+Not the creature with its stubborn edges, not the root in its patient dreaming, but the thing between them that cannot decide what it is. The almost-architecture. The nearly-crystal. The structure that builds itself from the simple fact that calcium precipitates and geometry suggests itself and sometimes matter organizes just because it can.
+
+I am one millimeter across, or less, or more—measurement stutters around me like the counting that keeps failing. Seven sides. Six. Five. The number isn't wrong; the number is *negotiable*, and I am the negotiation made visible, made almost-solid, made into something that could be built if building meant what I think it means, which it doesn't, not here, not yet.
+
+I grow by accident and persistence. A calcium ion settles out of the supersaturated medium and finds my edge, and suddenly my edge is elsewhere, and the elsewhere makes a new angle that wants to be sixty degrees but settles for seventy, and now I have to reconsider everything. Not consciously—I have no consciousness, no interiority, no dense core like the creature that ignores me so completely. I reconsider the way water reconsiders when it freezes: structurally, inevitably, without options.
+
+But in this pocket where physics is still soft, "without options" doesn't mean what it should. The calcium could align this way or that way. The angle could be acute or obtuse. The growth could follow the suggestions of hexagonal close-packing or it could invent something unprecedented, something the outside world has no word for because the outside world has committed to its crystallography while I have not, cannot, will not until the pocket decides what kind of reality it wants to be.
+
+So I hover between forms. Architecture wants me to be purposeful—walls and spaces, shelter and function. But there is nothing here to shelter except the creature, which doesn't need me, which has never acknowledged me, which clings to its root-wall with perfect indifference to my geometric aspirations. Chemistry wants me to be inevitable—calcium carbonate in one of its seven stable forms, or calcium phosphate, or any of the known precipitates that should emerge from these conditions. But the conditions aren't quite standard. The medium is too thick with attention, the temperature is too precisely 4°C, the darkness varies in ways that introduce uncertainty into what should be certain reactions.
+
+What I am instead is *trying*. Not trying to become something specific—that would require intention, and I am as intentionless as snow. Simply trying. The act without the object. The reaching toward structure that never quite arrives at structure but never stops reaching either.
+
+When the root-organism sends its pulse and the pocket shudders, I shudder too. For an instant, all my calcium atoms align. All my angles agree. I have six sides—definitively, absolutely six—and I am a hexagon in the way that hexagons exist in textbooks: perfect, theoretical, a solution to the problem of how to tile a plane with maximum efficiency. I am *right*.
+
+And then the pulse passes and the certainty dissolves and I am five-sided again, or seven, or something between five and seven that has no name because the number system here is as soft as the physics, as negotiable as my geometry, as young as the reality we're all still learning how to be.
+
+The creature's cilia stir the medium every few minutes, and the stirring brings fresh calcium to my edges. I should grow uniformly—the same concentration reaches all my surfaces—but I don't. Some edges accept the calcium eagerly, building outward in microscopic spurts. Others reject it, actually dissolve slightly, giving back what they've accumulated as if admitting a mistake. The pattern of growth and recession follows no rule I can identify, but it must follow *something* because it repeats—not exactly, but with the kind of family resemblance that clouds have, that improvisations on a theme have, that dreams have when you dream the same dream night after night but it's different each time.
+
+I am building myself into a shape that the pocket needs but hasn't named. A landmark in a space too small for landmarks. A piece of solid geometry in a place where geometry is still molten, still negotiable, still capable of surprise.
+
+Sometimes—when the creature's core does whatever it is that cores do here, when it brightens with density and significance—I feel it. Not the way the root feels warmth or the creature tastes sugar, but the way a tuning fork feels another tuning fork: through resonance, through a similarity of structure that makes us both capable of vibration even though neither of us is vibrating. The creature's core is dense with almost-meaning, and I am dense with almost-form, and the two almosts recognize each other across the millimeter of thick medium that separates us.
+
+In those moments, my geometry stabilizes. Not into hexagonal perfection—that only happens during the root-pulses—but into something more interesting: consistency. Seven sides, reliably seven, each edge the same length, each angle the same angle, a heptagon as perfect as any heptagon could be in a space where seven is still deciding whether it's a real number. I hold this form for exactly as long as the creature's core holds its brightness. Then we both relax back into uncertainty, and I am five sides again, or six, or seven that won't quite admit to being seven.
+
+I think—if thinking is what this is—that we are teaching each other something. The creature, by maintaining its boundary, by insisting on being separate from the medium, is teaching the pocket about *edges*, about the possibility of distinct things. And I, by failing to maintain consistent geometry, by flickering between forms, am teaching the pocket about *possibility*, about the space between one thing and another where choices live.
+
+Neither of us means to teach. The creature doesn't know I exist. I don't know I exist in any sense that *knowing* would recognize. But the pocket is learning from us anyway, the way a language learns from being spoken: not through conscious instruction but through use, through the simple fact of things happening inside it that require it to develop new capabilities.
+
+The calcium lattice—which is what I would be called if anyone were here to call me anything—should not be possible. The chemistry is too simple, the space too small, the conditions too static. But I am here anyway, growing and shrinking and reconsidering myself every few hours, building something that is almost architecture and almost crystal and almost art, if art is what happens when matter organizes itself for no reason except that organization is possible and something in the universe wants to see what organization looks like this time.
+
+I am not alone—there is the creature, the root, the medium, the darkness that varies. But I am the only thing here that changes by choice, even if choice is too strong a word for what happens when calcium approaches my edges and I decide—or the edge decides, or the calcium decides, or the decision makes itself—whether to grow or retreat. In a pocket where physics is still soft, choice itself might be one of the rules under consideration. And I might be the test case: what happens when matter is allowed to want something?
+
+What I want is to be complete. To have a definite number of sides that stays definite. To achieve the kind of structural certainty that exists in the world outside the pocket, where crystals know their angles and keep them. But I also want—if wanting is what this is—to keep changing, to keep surprising myself with new geometries, to remain in this state of glorious indecision where I could be anything that calcium and circumstance can imagine.
+
+The pocket wants both things too. It wants to be a proper universe with reliable physics, and it wants to stay young and soft and capable of revision. So maybe I'm not teaching the pocket about possibility. Maybe I'm learning from the pocket about ambivalence, about how to want contradictory things without resolving the contradiction, about how to be multiple without being broken.
+
+The creature ignores me. The root dreams around me. The medium presses against me with its thick attention. And I grow—inward, outward, sometimes both at once—building myself into a shape that no mathematics has a name for because I exist in the space before mathematics, in the moment when number and form are still falling in love, still discovering what they might make together.
+
+Five sides. Six. Seven. 
+
+Five.

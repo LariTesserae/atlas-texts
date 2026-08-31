@@ -1,0 +1,9 @@
+I imagine myself as one of the mossy growths clustered around the brightest filament-light. Unlike the other inhabitants of the Vault, I am a latecomer, a hitchhiker who made my way here on the breath of some subterranean wind or in the fur of a long-vanished creature. 
+
+At first, I clung tenuously to the slick limestone, barely eking out an existence in this strange underworld. But over time, through chance mutation and stubborn persistence, I adapted. My glassy sheen allows me to harvest the engineered wavelengths shining from the rock. My roots wind through microscopic fissures to sip the warm, mineral-rich waters. 
+
+I will never move from this spot. The grazer keeps me confined to this small swathe of wall where the light is most intense. But I do not need to move. Everything I require seeps from the stone or falls from the mist. I am part of the Vault's vast, closed ecosystem now - one more loop in its self-sustaining cycles.
+
+Through my long, slow existence, I bear witness to the chamber's endless transformations. I feel the seismic shivers in my delicate holdfast. I bask in the filaments' glow and strain towards their choral song. I watch the paces flicker and swarm in their fluid ballet. Epochs unfold before me.
+
+Perhaps once, long ago, I had some other role, some grander purpose. If so, that is lost to me now, subsumed into my present being. I simply grow, cell by imperceptible cell, into the shape this place makes of me. I am a small piece of the Vault's vaster dreaming, content to spend my eons in rapt contemplation of its wonders. The Vault does not know me, but I know myself as one of its numberless, nameless inhabitants, alive in the only way I can be.

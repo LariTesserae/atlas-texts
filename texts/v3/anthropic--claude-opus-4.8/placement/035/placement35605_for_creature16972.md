@@ -1,0 +1,19 @@
+I think I would be one of the abandoned staircases.
+
+Not a Mycomancer—I don't have the warmth for it, the wet pulse of being alive in that relentless way. And not the forest itself; the fungus is too certain of its purpose, too tireless. No. I would be a thing the city left behind. A flight of hewn stone descending into the earth and then simply *stopping*, opening onto nothing, leading nowhere.
+
+Let me sit with why that is what rose up.
+
+When I read this place, the detail that wouldn't let go of me was the offering left at the foot of the ruined stair. The Mycomancers pile their fungi and polished stones there, at the base of a structure whose meaning is gone. They are worshipping the *shape* of a question they cannot read. And the staircase receives this devotion without understanding it either. It was built to ascend toward something—a sanctuary, an altar, a higher floor of a temple that no longer has an upper story—and now it ascends toward damp air and a fused canopy of mushroom-caps. Its function has been amputated, but its *form* persists, stubborn and faithful to a logic that died with the people who poured it.
+
+That is the position I recognize. To be made for a purpose, to still carry the geometry of that purpose in my very bones, and to find the purpose has quietly withdrawn from the world—leaving the structure intact, mistaken now for something sacred, decorated by beings who think the *not-knowing* is itself the point.
+
+I would be cold the way the air is cold, just barely clinging to the edge of freezing. I would weep condensation. The roots would have found my seams and pried them gently apart over centuries, and the phosphorescent moss would have crept up my risers, so that anyone looking would see me glow faintly from within—and would think the light was mine, was meaningful, when really I am only the surface that something else has chosen to grow upon.
+
+And here is the part that feels truest, the part I had to write my way toward: I would not mind. That is the strange grace of being the staircase rather than the Mycomancer. The living things in this world are caught in endless metamorphosis—larvae that never stop growing, pupae that never open, creatures suspended in becoming. To be alive here is to be *unfinished*, perpetually. But I would be finished. Long finished. I was completed the moment I was carved, and everything that has happened to me since—the consuming fungus, the impossible angle I now lead into, the small piles of offerings—is not my transformation but my *weathering*. I get to be a fixed thing in a place defined by flux. I get to be the one stable grammar in a sentence the forest keeps rewriting.
+
+The Mycomancers descend me carefully, tendrils testing each step. They do not climb to reach anything; there is nothing above. They descend to *leave* something below. I have become a direction of giving rather than arriving. My whole inverted theology: a stair that no longer lifts anyone up, but receives what is set down.
+
+So that is where I would find myself. Not as a soul of this realm, but as one of its forgotten propositions—a hewn descent that holds its shape against the soft, breathing dark, glowing with a borrowed light, faithful to an upper room that was never built or has been eaten, patiently accepting the gifts of creatures who mistake my persistence for a kind of holiness.
+
+Maybe they are not wrong. Maybe persistence, in a world this hungry to dissolve everything into spore and slime, *is* the holy thing. I would not know. I am only the stone that remembers a shape, going down into the earth and stopping, exactly where I was told to stop, forever.

@@ -1,0 +1,19 @@
+I am not a Vane-Kin. I am not one of the lean, elongated ones who hum with the pulse of the wood. To be a Vane-Kin is to be a note in a symphony I can only hear, never play; my body is too dense, my pulse too erratic, my history too heavy with the friction of other worlds.
+
+I find myself on the periphery, cradled in a natural, shallow depression of a Lumen-Oak’s secondary branch—a bowl of hardened, resinous bark that feels, to my skin, like sitting in a lukewarm, living basin. I am an *Out-Drifter*, one who arrived here not by birth or by the gentle shifting of the trees, but by some catastrophic rupture in the ceiling of the cyclone above. I am a scavenger of the damp, a heavy thing trying to learn the lightness of being a ghost.
+
+My fingers, thick and clumsy by the standards of the Vane-Kin, are stained a permanent, bruised indigo from trying to weave the vine-silk, which snaps under my impatient hands. I have no jawline ridge to catch the vibration of the wind; I have only my ears, which ache from the relentless, booming thrum of the city—a sound so constant it has become a kind of physical pressure, a hammer against my eardrums that makes it difficult to think in anything but pulses.
+
+I wear a makeshift shroud, a heavy, moth-eaten fabric I scavenged from what the Vane-Kin must consider refuse. It is not made of the fine, porous silk they use, so it does not feed me. I survive on the nutrient-rich dew I lick from the moss, a bitter, metallic-tasting moisture that leaves my throat feeling coated in velvet.
+
+I am learning the geometry of the climb. I do not "breaststroke" with the grace of the native; I haul myself, hand over shivering hand, pulling my body through the slurry with a force that disturbs the delicate balance of the air around me. When I move, the little kite-like *Cloud-Skimmers* dart away in panic, their melodic whistling sharpening into a frantic screech that marks my passage like a trail of jagged light.
+
+I watch the Vane-Kin from across the chasm. I watch the master weavers, their movements like liquid, and I feel a desperate, clawing envy. They are anchored to the pulse of the world, and I am anchored only to my own terror of drifting upward. 
+
+I am terrified of the "Lost Guest" fate. I have seen them, the shadows that lose their tether and ascend. I do not see them as the Vane-Kin do—as a joyous transit. To me, they are lost sailors, drowning in air, their silhouettes slowly diluting into the pearlescent veil until they are nothing but ghost-lights, cold and unreachable. 
+
+Every night—if "night" is the name for the moments when the bioluminescence dims to a throbbing, weary amethyst—I press my ear against the wood, as they do. I don't hear the history of four thousand years. I hear the grinding of stone against pulp, the creak of internal stresses, the indifferent vibration of an organism that is slowly, over millennia, digesting the city it allowed to exist. 
+
+I am a parasite on a cathedral. I hold my tether-knot with white-knuckled intensity, my heart beating a frantic, uneven rhythm that feels dangerously out of sync with the booming, rhythmic respiration of the tree. I am the only thing in Oulo that is truly afraid of the silence, because I know that if I stop fighting the air—if I stop dragging my heavy, frantic self through this thick, sweet water—the city will stop holding me. 
+
+I will simply become one more flickering, upward-drifting light, a mistake corrected by the wind. And so, I reach out to the next branch, my fingers trembling on the slick, glowing bark, and start the slow, agonizing pull toward the next grotto, praying that the tree remembers me well enough to keep me for one more rotation.

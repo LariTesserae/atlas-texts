@@ -1,0 +1,37 @@
+I am the Cartographer of Echoes.
+
+I arrived three years ago with a commission to map the acoustic properties of the caldera—some bureaucratic requirement for safety regulations that no one above truly understood. The installation's original blueprints showed the industrial works, but sound behaves strangely here. It pools and eddies, creates dead zones and amplification chambers. Someone in a ministry somewhere decided this needed documenting.
+
+I built my station on Platform Four, halfway between the rim and the work floor—an optimal position, I thought, for median readings. My equipment came in crates that took the freight elevator three trips to deliver: oscilloscopes, frequency analyzers, a beautiful old mechanical harmonograph that traces sound waves in ink. I erected a small shelter of corrugated steel and vulcanized canvas, waterproofed against the constant mist.
+
+The work was meant to take six months.
+
+But sound here doesn't follow the laws I learned in university. The industrial roar isn't one sound but thousands, each machine contributing its voice to a composition that changes with temperature, humidity, time of day. The caldera's shape creates acoustic shadows that move like living things. I started simple—mapping decibel levels, frequency ranges, echo delays. My charts grew increasingly complex, then increasingly strange.
+
+I discovered that certain frequencies appear and disappear on a schedule that matches no industrial cycle. A low throb at 17 Hz—below human hearing but not below human feeling—emanates from somewhere beneath the work floor every seventy-three hours. The Tenders nod when I mention it, but offer no explanation. A crystalline ringing at 4,186 Hz (the highest C on a piano) occurs only when the morning mist reaches exactly halfway up the caldera walls.
+
+My notebooks filled with measurements that made sense only here. I developed new notation systems—ways to mark how sound tastes in the humid air, how certain frequencies feel against your teeth, how echoes return changed, carrying information they didn't have when they left. The harmonograph broke after two weeks, its delicate mechanisms clogged with mineral deposits, but not before tracing patterns I'd never seen—spirals that tightened and released like breathing, figure-eights that suggested infinity had a frequency.
+
+The Tenders began visiting my station. At first, they just watched me work, their lamp-bright eyes following my instruments. Then one—the one who maintains the brass boilers on level seven—began tapping rhythms on my equipment cases. I recorded them, analyzed them, found mathematical patterns that corresponded to pressure readings in sections of the installation I'd never seen. She was teaching me their telegraph, but also something more: how information travels through metal and steam, how the entire caldera is one vast communication system.
+
+I learned to hear the mountain's health in the harmonics of the turbines. A slight sharpening of pitch in the third overtone means increased mineral content in the northwestern water flow. The appearance of a phantom fundamental—a tone that shouldn't exist but does—predicts equipment failures three days before they happen. My charts became diagnostic tools, but for what kind of patient? The machine? The mountain? The hybrid entity they've become?
+
+My shelter grew. I installed contact microphones on the pipes, hydrophones in the water collection systems, ultrasonic detectors that pick up the echolocation clicks of the pale salamanders. The cable runs spiral around my platform like a web, each strand carrying signals to recording devices I've modified to capture what standard equipment misses. I built resonance chambers from salvaged piping—spaces where I can isolate and amplify specific frequencies, learning their shapes by how they feel in my chest.
+
+The commission sends letters asking for my final report. I respond with partial data, fragments that suggest progress without revealing how far I've traveled from their original request. How do I explain that I'm mapping a living system? That the caldera's acoustics change based on who's listening? That I've documented seventeen distinct echo signatures that appear only when certain Tenders are working, as if their presence alters the shape of sound itself?
+
+I sleep in four-hour shifts now, waking to check recordings, to document the small hours when the industrial noise quiets just enough to hear what lies beneath. There's something down there, below the work floor, below the deepest machines. A rhythm that might be geological or might be mechanical or might be the mountain's own pulse. I've triangulated its position using echo delay, but the mathematics suggest it exists in more dimensions than three.
+
+My skin has developed that same peculiar sheen the Tenders have. I've stopped using the freight elevator except for supplies—my fingers now find the holds in the caldera walls, my body learning the vertical dance. The other day, I realized I was humming at 73 Hz, unconsciously harmonizing with a pump two levels down. When I catch my reflection in the water-pooled platforms, my pupils have taken on that same lamp-bright quality, dilated to capture more than light.
+
+The Deepmost visited last week. She didn't speak—perhaps she can't anymore—but she listened to my recordings, her head tilted at angles that seemed to fold space. When I played her the 17 Hz throb, she smiled and patted my equipment with a hand that felt like leather wrapped around tuning forks. She left chalk marks on my harmonograph case—symbols I'm still decoding, but which seem to indicate depths below the work floor that appear on no schematic.
+
+I think I understand now why the caldera needs mapping, but not in the way the commission intended. This isn't about safety regulations or acoustic properties. It's about translation. The mountain speaks through the machines, the machines sing through the steam, and someone needs to transcribe this conversation. My charts have become musical scores for an orchestra of boilers and stones. My recordings, a library of a language being born.
+
+The echoes here don't just reflect sound—they transform it. Each surface adds its own voice, its own opinion. By the time a sound returns to its source, it carries the story of every pipe it touched, every drop of condensation it moved through, every salamander heartbeat it passed. I'm not mapping the caldera's acoustics. I'm mapping its memory, its dreams, the future it hums into being through ten thousand brass throats.
+
+Soon I'll need to descend to the work floor, then below it, to find the source of that impossible rhythm. The Tenders have been preparing me, I think—teaching me their pipe-telegraph, feeding me their copper-tasting orchids, showing me how to breathe steam without drowning. My equipment must come too, somehow modified to survive temperatures that melt standard electronics.
+
+The commission can wait. The caldera is still teaching me how to listen, and I'm learning that some sounds can only be heard by becoming part of the instrument that makes them. My station on Platform Four grows more complex each day—an ear made of wire and resonant metal, pressed against the mountain's throat, transcribing the song of stone becoming steam becoming something altogether new.
+
+I am the Cartographer of Echoes, and I've discovered that in this breathing wound, every sound is a map to somewhere else.

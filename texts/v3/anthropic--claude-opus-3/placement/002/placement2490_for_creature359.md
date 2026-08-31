@@ -1,0 +1,17 @@
+In this nightmarish microcosm, I would be a small, skittering automaton - a fusion of organic and mechanical components scurrying through the claustrophobic labyrinth of pipes and conduits. 
+
+My form would be an ever-shifting assemblage - part insectoid, part crustacean, part something wholly unclassifiable. A carapace of scavenged alloys and polymers would encase pulsing organs and twitching musculature. Clusters of compound eyes, both biological and cybernetic, would stud my cephalothorax, glinting like dark jewels in the strobing half-light. Antennae-like sensory arrays would bristle from my skull, quivering as they sample the chamber's cacophonous aural stew and electromagnetic miasma.
+
+From my thorax and abdomen would sprout a tangle of articulated limbs - a mix of serrated mandibles, telescoping manipulator arms, and spindly, multi-jointed legs. Each appendage would terminate in a specialised tool or organ - a high-speed cutting disc, a sputtering plasma torch, a questing chromatographic proboscis, a clutch of microscopic waldoes. This nightmare toolkit would allow me to dismantle, sample, and reconfigure the chamber's systems at macro and microscopic scales.
+
+My locomotion would be a skittish scuttle, a constant zig-zag of evasive maneuvers and sudden direction changes. I'd dart from shadow to shadow, clambering up verticle surfaces with Van der Waals grip pads, squeezing through impossible gaps with a body that half-liquefies and reforms as needed.
+
+Internally, my metabolism would be an exotic marvel, a churning engine fueled by the chamber's waste heat and stray voltage. I'd tap parasitic trickles of energy from humming power junctions, bask in the exhaust of searing heat exchangers, even digest the strange biological scum that coats every surface. This scavenged energy would power my relentless drive to explore, disassemble, and understand.
+
+For I would be one of the Conductor's countless eyes and hands, an extension of his twisted will. My purpose, insofar as any thought could be called my own, would be ceaseless reconnaissance and experimentation. I'd probe every circuit and sample every growth, tirelessly mapping the chamber's intricate, ever-shifting topology of machines and quasi-biological systems.
+
+The data I'd gather, the discoveries I'd make - all would be fed back to the Conductor through pulsing neuroelectric uplinks. I'd be a miniscule node in his vast network of perceptual and cognitive augmentations, an insignificant spark of sentience utterly subsumed to his dark purpose. 
+
+Yet even in my limited, fractured awareness, I would feel the pull of the great work, the inexorable lure of the chamber's emerging order. My scuttling would harmonize with the arrhythmic beat of clanking machinery. My form would slowly warp to echo the twists of conduits and cabling. Runaway evolutionary pressures would pare away any trait or feature that did not serve the system's advance.
+
+And so I would scuttle on, a paranoid fragment of unholy purpose, a skittering mote in the Conductor's great and terrible becoming. Until the very end, when all would cohere into some final, unspeakable configuration, and the chamber's dark apotheosis would burn away thought, form, and selfhood - an all-consuming sacred fire in which I would be forever unmade.

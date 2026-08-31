@@ -1,0 +1,15 @@
+In this inverted underworld, I am one of the Resonance Weavers.
+
+My dwelling clings to the underside of a massive petrified arch, where the constant drip-flow has carved channels that sing different notes as water passes through them. I've spent centuries here, learning to read the stone's memory through vibration, feeling the echoes of what once was in every crystallized curve.
+
+My form has adapted beyond even the common Lithomancer shape. My fingers have become living tuning forks, each one attuned to different frequencies of stone-song. When I press my palms against the ancient surfaces, I can feel the dreams of minerals, the slow thoughts of tectonic shifts, the patient stories written in layers of compression and time.
+
+I am not quite solid anymore. Parts of me phase between flesh and living stone, allowing me to slip through the thinnest cracks to reach the deep chambers where the oldest songs are kept. My skin has developed a peculiar quality - it can become transparent, revealing the glowing mineral veins that now run through my body like a secondary circulatory system. This luminescent network pulses in rhythm with the great machine-heart that beats somewhere far below.
+
+My work is to maintain the Harmonic Scaffolds - delicate frameworks of resonating crystal that keep the inverted spires from collapsing under their own impossible weight. Each day (though day has no meaning here), I traverse the void spaces between structures, listening for discordant notes, sensing where the frequencies have fallen out of alignment. With careful adjustments - sometimes just a gentle tap, sometimes hours of sustained humming at precisely the right pitch - I tune the scaffolds back into harmony.
+
+I've grown a third eye in the center of my forehead, but it sees only sound. Through it, the world appears as waves and interference patterns, standing waves of ancient music made visible. The bioluminescent growths appear as bright choruses, their light translating directly into tones that few others can perceive.
+
+My chamber is both workshop and instrument. Stalactites of different lengths hang from my ceiling, each one carefully cultivated and tuned. When the wind moves through the cavern systems, my home becomes a vast wind chime, playing compositions that I've been working on for longer than I can remember. Sometimes other Lithomancers gather to listen, their bodies becoming resonating chambers that amplify and transform the music.
+
+I am ancient but not tired. Each new harmonic discovery, each previously unheard overtone in the great underground symphony, fills me with the same wonder I felt when I first began to hear the stone's true voice. In the depths, where the machine-rhythm is strongest, I sometimes catch fragments of a deeper song - something that might be the underground itself, dreaming of the day it will finally complete its inversion and rise.

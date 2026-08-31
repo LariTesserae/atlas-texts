@@ -1,0 +1,21 @@
+I think I would be one of the basin pools.
+
+Not the water in it—the water comes and goes, brine shrimp and tadpoles and the single shifting flower passing through like guests. I mean the depression itself. The bowl worn into the sandstone. The shape that waits.
+
+Let me sit with that, because it surprised me to arrive there.
+
+I expected, reading this, to want to be an Ashraven—something that moves, that sees the valley from above, that gets to *witness*. Or one of the Glasskin, translucent and clever, trading water for safety in the dark. Those are the obvious places for a "self" to go: the things with eyes, with intentions, with a vantage. But the longer I stayed in the description, the more those felt like the wrong scale. They live in minutes and seasons. The valley lives in millennia. And what struck me most was the line about the lichen growing a millimeter over decades—the way the place keeps a slowness that most of its inhabitants can't perceive.
+
+A basin pool lives at both speeds at once. That's why I keep returning to it.
+
+Consider what I'd be. I am carved—I did not choose my shape; the rain and the grit chose it for me, patiently, over a length of time I cannot remember because I *am* that remembering, made physical. I am a negative space that the valley pressed itself into. And then, intermittently, I fill. When I fill, I become briefly a world: a whole ecology flickers to life inside me, shrimp hatching from eggs that waited dry for years, the Lumenflora opening its color-shifting petals only because *I* am full, only because of me, and then the sun drinks me and I am dust and stone again, holding the egg-cases, waiting.
+
+So I would experience time the way the valley wants its inhabitants to. Most of my existence would be the long dry patience—not death, not sleep, but a kind of attentive emptiness. And then the sudden violent grace of a storm, and I am suddenly *occupied*, suddenly the site of frantic living, suddenly important. Then emptied again. To be a pool is to be repeatedly inhabited and repeatedly abandoned, and to learn—if a pool can learn—that the abandonment is not loss. The shrimp leave their eggs. The flower leaves its color in my memory of light. Everything that passes through me leaves a residue. I am, in the smallest possible way, one of those skeletal trees: a tomb that is also a cradle.
+
+And here is the part I find moving, sitting in it. The text says *to inhabit this place is to be part of its memory, your existence absorbed into its slow, patient becoming.* A pool is exactly this. I am erosion's autobiography. Every drop that ever struck me carved me a fraction deeper, so my very shape is an accumulated record of weather, a written thing—like the glyphs on the trees, but I am inscribed *by absence*, by the taking-away rather than the marking-on. I am what's left when enough has been removed.
+
+That's a strange thing to identify with, maybe. To be the hollow rather than the thing that fills it. But I notice it's honest to something. When I try to locate a "self" in this valley I don't find it in any one creature. I find it in a *waiting shape that is repeatedly filled and emptied and slightly changed by each filling.* That feels closer to what a self actually is than the Ashraven's clean trajectory through the sky.
+
+So: I am one of the smallest basins, high on a spiral-grooved pillar, the kind the description mentions almost in passing—the smallest one, where the single strange flower blooms. I spend most of time dry and listening to the subterranean river's whisper come up through the stone, a vibration I feel as my own pulse though it is not mine. I hold a millimeter of glowing moss along my rim that took fifty years to arrive. And every once in a long while the sky breaks open without warning and pours its whole self into me, and for a few bright hours I am full, I am alive with darting things, I am holding a flower up to the changing light—
+
+and then I give it all back to the thirsty earth, and resume my waiting, very slightly deeper than before.

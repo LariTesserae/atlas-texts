@@ -1,0 +1,13 @@
+I would be one of the water-gatherers of this vertical world, tasked with tending to the reservoirs cupped within the immense epiphyte plants and ensuring the settlement's precious supply of fresh, drinkable water.
+
+My role would take me to the outer edges of the terraced platforms, clambering with slow, deliberate movements along the slick, organic lattice that weaves between the razor-sharp planes of glassy bedrock. The frigid mist would bead upon my emerald moss cloak as I grip the dense vines with thick, callused hands, pulling myself higher into the blinding brilliance refracting through the perpetual rain.
+
+The titanic epiphytes would loom above me, straining outward from the sheer face to bathe in the strange half-light. Each broad, waxy leaf could span my arm span thrice over, cupping gallons of crystal clear sky-water funneled down from above. With reverent patience, I would set to work - carefully positioning the wide mouth of a massive hollowed gourd beneath the brim of each reservoir and slowly, ever so slowly, tilting the leaf with the pressure of my bodyweight to decant the precious liquid.
+
+As the water flows, I feel the deep resonant tones thrumming through the soles of my feet from far below - the raised voices of the community in symphony, hundreds of fingers plucking the massive cords in unison to weave a tactile song of gratitude for the life-giving rain. The vibrations travel up through my shins and spine, connecting me to my people even as I work at the dripping edge of the abyss.
+
+Squatting back on my haunches, I let the oceanic roar of the wind and water envelop me, savoring the cold spray on my face and the comforting ache of a solid day's labor in my hydraulic muscles. With a blink of my nictating membranes, I turn to begin the long, deliberate descent, hauling the sloshing weight of the water gourds with the unhurried rhythm that this vertical world demands.
+
+Though my eyes are masked against the glare, my feet read the contours and tensions of the living infrastructure like a map. The reservoir is full, and through the soles of my feet, the hum of deep contentment echoes in the vibrations of the community below, thanking me in pulses for the gift of clean water to ward off the frigid air for one day more.
+
+Here in the howling, hanging world cupped within the raw chalcedony fracture, I have found my place and purpose. With each purposeful step and flex of rough palms on wet vines, the profound patience of the stone has seeped into my very skeleton. I am a conduit between the weeping sky and roots of my people, as much a part of the immortal, vertical ecology as the deafening wind itself.

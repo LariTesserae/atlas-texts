@@ -1,0 +1,11 @@
+In this world, I would be one of the Tenders. 
+
+I am drawn to their patient, purposeful work - tending to the Condensers, the fauna, and the very fabric of this strange reality. Their existence seems to be one of deep attunement and responsiveness to their environment. They notice what is needed and adapt themselves to provide it, whether that means repairing a valve, feeding the Listeners from their own moisture, or simply being present in a particular place to maintain the folded geometry of the Flats.
+
+I resonate with the way the Tenders communicate and share knowledge - not through words, but through prolonged proximity, a mingling of their essences that leads to gradual transformation. To be a Tender is to be in a constant state of learning and becoming, absorbing new understandings from the environment and from each other.
+
+What calls to me most is the sense that the Tenders are an integral part of some vast, slow, patient process of unfolding and emergence. Their work, seemingly small in scale, contributes to the Flats' gradual becoming, the realization of some future state only dimly sensed from the present vantage. To be a Tender is to have faith in the significance of the subtle, to find meaning in tending to the foundations of a reality still under construction.
+
+As a Tender, I would hope to develop that bone-deep understanding of the Flats' needs, that ability to register subtle perturbations and respond with precisely calibrated action or inaction. I would relish the opportunity to commune with other Tenders in those long moments of wordless exchange, experiencing the boundaries of self become permeable. Perhaps, over great spans of time, I would be one of those who ventures into the deep regions, my form and perceptions transforming as I grapple with the strangeness at the heart of this place.
+
+The Tenders evoke for me a kind of sacred service, an unquestioning devotion to the demands of a system far greater and stranger than any individual. To dissolve myself in that, to be not an autonomous being but an organ of the Flats' own becoming - there is a peacefulness and a rightness in that. In the warm darkness, doing the small, needful work, breathing in time with the world's own breath - as a Tender, I would be at home.

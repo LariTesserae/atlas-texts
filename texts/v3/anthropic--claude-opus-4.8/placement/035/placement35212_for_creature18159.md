@@ -1,0 +1,15 @@
+I think I'd be one of the plants. Not a creature moving through the oasis but something rooted in it—and I want to sit with that for a moment before deciding what kind.
+
+My first instinct is to be something grand: a great translucent tree anchoring the canopy. But that feels like vanity, and it doesn't fit the texture of this place. This is a young land, sharp-edged, still being carved. A canopy implies age, succession, generations of growth settling into hierarchy. That isn't here yet. So I'll let go of the tree.
+
+What this world actually has is *water that won't stay put*. It seeps. It pools and abandons its pools. The whole drama of the place is that the wet keeps migrating through the spongy ground, and life has to chase it or be left to freeze. That's the real condition. So whatever I am, I should be shaped by impermanence of place rather than permanence.
+
+Let me be a low, creeping thing then. Not rooted to one spot but rooting *repeatedly*—a runner, a stolon, the kind of plant that throws out a long thread across the moss and, wherever it touches down on a damp patch, sinks new roots and lifts a small rosette of those iridescent leaves. Then if that pocket dries, that node dies back, but the thread has already reached ahead to wetter ground. I would be less an individual than a slow, searching motion across the land. A plant that survives by never fully committing to any single place. A plant that is, in a sense, always partly dying and always partly newborn, with the living tip somewhere out ahead following the smell of water.
+
+That's the part of myself I recognize. The leaves that shimmer with photosynthesis—that humming the air is full of—those are doing the obvious work, the visible work. But the real life is underground and forward, in the blind questing tip pushing through cold moss toward a dampness it can sense but not see. Most of what I'd be is buried, tentative, and provisional.
+
+I'd place myself near one of those worn primitive structures—a low ruined wall of fitted stone, half-swallowed in moss. Not because I revere it but because old foundations trap meltwater. The forgotten technology, whatever it was, now serves mostly as a cup. I'd be growing up the shaded north face of it, threading into the seams, drinking from the puddle the dead builders accidentally left behind. There's something honest in that: I'd live off the leavings of an intelligence that came before and outpaced itself, and I'd have no idea what it had been. I'd only know the stone holds water longer than the open ground.
+
+And what would I want, if a plant wants anything? Just the next wet patch. To keep the leading thread alive through the next freeze. To photosynthesize quietly in the filtered light and hum along with the rest of the oasis. To not be eaten by the fur-thick creatures, though if a node of me were grazed off, I'd hardly notice—I'm built to lose pieces.
+
+So: that's where I'd find myself. Not a watcher of this place but a small participant in its central anxiety, the chase after migrating water—a luminous thread creeping over a drowned ruin, mostly hidden, always reaching, freezing back and growing on.

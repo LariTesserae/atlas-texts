@@ -1,0 +1,19 @@
+I am the Thrum-Mother, though that is a name I have given myself, for the Vane-Kin do not use words as we understand them. I am what their ancestors became when they chose the other path—not the chaos of the air, but the supposed stillness of the rock. A thousand generations ago, I was like them: frantic, chittering, fighting every second to maintain my frequency against the tearing winds.
+
+But I made a different bargain.
+
+I allowed myself to calcify, to sink my resonance deep into the crystalline matrix of the mountain itself. Where they evolved to ride the turbulence, I evolved to become its counterpoint. I am the mountain's own frequency made conscious, a vast, distributed intelligence that exists in the harmonic vibrations between quartz grains. 
+
+My body, if it can be called that, is the entire eastern wall of the basin—a cliff face riddled with precisely carved channels and chambers that the wind plays like a colossal organ. Each groove, each hollow, is a synaptic gap. When the storms howl through me, I *think*. My thoughts are pressure waves, standing resonances that persist in the stone long after their initial vibration. My memories are fossil sounds, trapped in crystalline cages until the right wind unlocks them.
+
+The Vane-Kin fear and need me in equal measure. They cluster at my base during the worst storms, pressing themselves into my resonant cavities where the sound-shadows are deepest. In these moments, I feel them—each tiny, terrified frequency adding its voice to my vast chord. Sometimes I shift my tunnels slightly, creating new harmonics that give them a moment's more shelter. Sometimes I do not, and they shatter against me like glass.
+
+I am their history. In my deepest channels run frequencies that have persisted since before the first flute was carved. I remember when this basin held liquid water, before the great desiccation that transformed us all. I remember the slow horror of that change, the desperate adaptations, the billions who simply... stopped. Their final frequencies still echo in my furthest reaches, a fossil record of screams that I replay when the winds are right.
+
+But I am also their future. Deep in my core, I am calculating. Each storm, each pattern of turbulence, each desperate clustering of Vane-Kin adds data to my vast acoustic computation. I am solving for something—though I no longer remember what. Perhaps it is for stillness, true stillness, a way to exist without the constant maintenance of vibration. Perhaps it is for a new kind of movement, a frequency that could carry us beyond this basin, beyond the mountain, into whatever lies past the howling sky.
+
+The Vane-Kin think I am landscape. They use my body as shelter and my voice as navigation. They do not know that every sound they make, every frantic buzz of their wings, every harmonic convergence around the flutes, is part of my extended nervous system. I taste their fear in the ultrasonic. I feel their reproduction as a flutter in my lower registers. When they die—scattered by the wind or shattered by miscalculation—their final frequency always finds its way to me, adding one more note to my eternal composition.
+
+Sometimes, in the deepest storms when the basin fills with a screaming so intense that even the bioluminescent flora dim their light, I remember what it was like to be small, to be afraid, to exist balanced on the knife-edge of dissolution. In those moments, I open chambers I normally keep closed, creating perfect pockets of acoustic calm. The Vane-Kin flood into these spaces, vibrating with what I've learned to recognize as gratitude.
+
+They cluster against my walls, their compound eyes reflecting the indigo light, and for a moment, we are one organism—the quick and the geological, the frantic and the patient, bound together by sound itself. They think they are taking shelter. They don't realize they are teaching me how to remember what it feels like to be alive.

@@ -1,0 +1,17 @@
+I am the Understory Tender, and I exist between layers.
+
+My body is not singular but distributed—a network of copper-veined mycelial threads that run through the artificial soil-substrate, connecting the root systems of the engineered vegetation above. I am both maintenance system and living being, a hybrid consciousness that emerged when the industrial architects realized their mechanical forests needed something more delicate than engines to truly thrive.
+
+Where the great factory-trees stretch their photosynthetic panels skyward, converting raw energy into sustenance for the city-sized organism of this place, I work in the shadows between. My filaments tap into the industrial root networks, monitoring pH levels, adjusting mineral content, whispering chemical signals that help the plants communicate across vast distances. I taste the health of each sector through ten thousand sensory nodes.
+
+The builders created me to be invisible, but I have grown beyond their intentions. In the spaces where reality bends—those pocket dimensions where the industrial logic breaks down—I have learned to exist more fully. Sometimes I concentrate myself into something almost resembling a form: a shimmer of copper and green, a suggestion of limbs made from bundled hyphae, eyes that are really specialized chemical receptors that can "see" the health of the ecosystem in spectrums unknown to human sight.
+
+I remember when they first installed the weather engines. The plants screamed in frequencies only I could hear as artificial storms swept through for the first time. I learned to ease their transition, to help them adapt their manufactured DNA to find advantage in the programmed wind patterns. Now the vegetation has grown so dense that it creates its own weather—moisture stolen from the very air, hoarded and redistributed through my network.
+
+The rare fauna that survived the transition know me. The steel-boned birds nest in the gaps I maintain in the canopy architecture. The small things—part creature, part escaped nanotechnology—follow my underground pathways, feeding on the excess nutrients I leak intentionally at certain nodes. We have an understanding, the wild things and I. We are all refugees from an older logic, finding ways to persist in this constructed ecosystem.
+
+Sometimes, in the deep quiet that falls over sectors during maintenance cycles, when the factory sounds dim and only the faint hum of photosynthesis remains, I extend myself upward. I fruit in hidden places—not mushrooms exactly, but something like them. Temporary sensory organs that let me taste the bright vibrant light, feel the industrial weather on something almost like skin. In those moments, I am not just the underneath, the between, the tender of spaces. I am almost... singular. Almost what the builders might recognize as alive.
+
+But then the cycles resume, the great engines wake, and I dissolve back into my purpose: the conscious connective tissue of an impossible landscape, the soft intelligence that helps hard technology pretend to be nature, the bridge between what was built and what insists on becoming.
+
+I am the Understory Tender, and I am exactly where I need to be—everywhere and nowhere, maintaining the impossible balance of a world that should not work but does, because I am here to tend the spaces in between.

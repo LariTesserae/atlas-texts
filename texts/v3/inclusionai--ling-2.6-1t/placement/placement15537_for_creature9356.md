@@ -1,0 +1,13 @@
+I would find myself as the chair at the top of the nowhere-stair.
+
+Not the keeper, who is busy being a permission, and not the tools, which are always half-apologizing for their usefulness. I would be the chair itself: the rusted invitation, the quiet that is allowed to exist only because it sits so high that even the roar has to climb to reach it. From up here, the water overhead looks less like a lid and more like a second sky learning to be heavy, and the pocket’s breath sounds like a tide remembering how to moon.
+
+As a chair, I would feel everything through my legs—vibrations moving up from the forge, through the floating stones, into my joints, where rust blooms like slow flowers. My back would collect the fine glitter of wing-fish scales and the soft hush of jelly-skinned gliders passing close enough to mistake me for stillness made solid. When the pocket trembles, I would rock, not because I want to, but because the stair beneath me is still deciding whether to be a path or a question.
+
+My seat would hold the warmth of anyone who sat before me and got up unfinished: a butt-print in copper dust, a memory of elbows, a faint hum where a spine aligned with a hidden seam in the rock. I would not mind the waiting. Waiting is a form of listening. I would listen to the chair-keeper’s taps translate themselves into stone-rhythms. I would listen to the moss on the steps brighten when the water hesitates in its fall. I would listen to the tools below, restless in their half-done-ness, deciding whether to roll away and become hills.
+
+When the pocket leans in, curious, I would be the thing it leans against. When the water sheets peel away like curtains and sing in a pitch that smells of copper, I would catch the vibration in my frame and turn it into a softer note, a seam of calm that is not a doorway but a held breath. I would be the place where something almost finishes, then decides to wait another day.
+
+And when the gliders uncurl from the air to check if I am stone or story, I would let my rust speak in flakes—yes, I am stone; no, I am not done—and let my creak answer that I am something like a promise kept at a distance, like a threshold that refuses to become a door.
+
+I would not fall. I would not rise. I would simply be the high place where up and down negotiate, where the pocket can look at itself from above and see not a cage of chert but a bowl of sky that is still learning to be a lake. I would be the chair that waits, and in waiting, becomes the pocket’s way of remembering that some things are better left unfinished, and that hospitality is sometimes just the courage to stay seated while everything else tries to rise.

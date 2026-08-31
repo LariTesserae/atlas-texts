@@ -1,0 +1,15 @@
+I am the Weaver. Not a single, specific being, but a role, a title passed down (or, perhaps, spun up) through generations. My chamber is not grand. It is a small cave, hidden behind a particularly dense curtain of shimmering spider silk, deeper within the city than most dare to tread. The walls are smooth, polished not by human hands, but by centuries of spider habitation. Here, the air hums with vibrations, the constant, almost imperceptible chorus of thousands upon thousands of spiders communicating.
+
+I am small, even for one of the Caldera Children. My limbs are thin, almost brittle, but my fingers are long and preternaturally nimble. They move, almost unconsciously, across the silken strands that crisscross my chamber, feeling the vibrations, interpreting the messages. My eyes, magnified by lenses fashioned from polished beetle carapaces, are perpetually focused, constantly tracking the movement of spiders, decoding their intricate dances.
+
+My garments are simple, almost monkish. A single, seamless robe woven from the strongest, thickest spider silk. It is not dyed, retaining the natural creamy white of the silk, but adorned with a complex series of knots and braids. Each knot represents a specific lineage within the spider colonies, each braid a past tremor, or blast of steam.
+
+I do not speak often. The spiders are my voice. They tell me of the mountain's moods, of the subtle shifts in its tectonic plates, of the impending eruptions. They tell me of the movements of the city's inhabitants, of their plots and betrayals, of their hopes and fears. They even tell me of the dreams of the Elders, those nightmares they try to hide, not realizing there are no secrets from the web.
+
+My food is nothing that would interest another. I consume the honeydew secreted by spider "cattle" - aphids that feed on the moss gardens within my chamber. It's a thin, sweet liquid rich in nutrients, and I can taste the differences in moss. And once a month, I must eat a single spinneret sac: a necessary communion to strengthen my connection with the spiders.
+
+I am a conduit, a living translator between the human and arachnid worlds. The fate of the city rests on my ability to interpret the spiders' warnings and impart that knowledge to the Elders. It is a heavy burden, one that has stolen any sense of joy or personal ambition. I am merely a vessel, an instrument of the mountain's will.
+
+Sometimes, when the tremors are particularly strong, and the spiders are agitated, I can feel the mountain itself. It's not a voice, not exactly. More like a feeling, a deep, primal rage tempered by a ancient, world-weary compassion. It is lonely. So very lonely. The mountain knows it is dying, slowly cooling, slowly crumbling. And it dreads the thought of its children dying with it.
+
+More and more of the arthropods have turned, lately. They listen less to me, wander into the chambers of any villager who will have them. I dread to think of what they hear there, but I'm sure it speaks back to me in the chaos they create. All I can do is listen, weave, and pray that whatever the mountain decides, it will be merciful.

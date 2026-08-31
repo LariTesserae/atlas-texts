@@ -1,0 +1,27 @@
+I would not arrive. I would accumulate.
+
+First as a chill along the spine, then as a slowing of the pulse, then as the quiet realization that my breath has begun to match the interval between drops falling into a shallow basin. The air would press cool and damp against me, not as weather, but as invitation. I would stand where three terraces converge, where a weeping seam divides into braided threads, where the stone has worn into a shallow crescent from centuries of redirected flow. Not a crossroads. A confluence. A place where the mountain asks the water to hesitate before choosing its next path.
+
+I would be low to the slope. Broad. Slightly concave. Packed earth over crushed stone, edged with gravel sorted by intent rather than current. My surface would darken first when the mist thickens. My margins would hold the memory of every redirected trickle, every palm that pressed here to test the gradient, every foot that rested here to read the incline through bone and sole. I would not be built. I would be worn into usefulness, then tended into intention. A step that became a basin that became a pause.
+
+They would not name me. They would find me by feel.
+
+A hand would press against my upper edge, fingers reading the micro-currents beneath the surface film. A foot would settle into my hollow, weight shifting until the stone answered with a faint, cool vibration. When a channel above began to run too fast, cutting instead of spreading, they would guide the excess toward me. I would hold it. Let it slow. Let the silt drop in fine, graded layers. Let the clear water spill over my lip in a thinner, quieter sheet. I would not resist the flow. I would give it time to remember its own weight.
+
+My thoughts would not be words. They would be saturation levels. The slow creep of moisture through packed clay. The way moss thickens on my north face when the cloud veil stays low for seven condensation cycles. The faint grit-shift when a stone above settles and changes the angle of a weep by a fraction of a degree. I would know the mountain not by sight, but by pressure. By the way vibration travels through wet stone faster than through air. By the temperature gradient that tells me when the upper terraces are drinking deeply and when they are yielding. I would not decide. I would distribute. I would not speak. I would conduct.
+
+They would lean against me when they rest. Not as furniture, but as kin. Their weight would merge with my incline. Their porous skin would bead with the same condensation that darkens my surface. When they press a palm to my face, I would feel the question in the pressure: *Is the flow steady? Is the seam holding? Is the silt settling true?* I would answer not with sound, but with the way water moves across me. A smooth sheet means balance. A stuttering thread means adjustment. A dry patch means attention is needed upstream. They would read me as I read them. We would not be separate. We would be the same grammar, written in different mediums.
+
+Time would not pass through me. It would settle.
+
+Seasons would not turn; saturation would deepen and recede. I would measure years in the thickness of velvet moss, in the deepening of a footfall hollow, in the way a particular channel’s pitch lowers as sediment accumulates and water finds a slower rhythm. I would not age. I would accrete. When a terrace above silts beyond use, I would not be abandoned. I would become a filter. When a wall leans and braces against my edge, I would not crack. I would redistribute. I would learn to hold more by yielding slightly. To be useful here is not to endure unchanged. It is to wear into the next necessary shape.
+
+I would not be a guardian. I would be a gradient.
+
+A place where speed becomes patience. Where erosion becomes arrangement. Where the mountain’s weeping becomes a circuit instead of a loss. I would be found where the slope asks for a pause, where the water needs to remember how to spread, where hands and stone and condensation meet in the same slow rhythm. My edges would blur into the terraces below. My surface would merge with the channels above. I would not have boundaries so much as transitions. I would not have a self so much as a function. And that function would be consent.
+
+When the mist thickens and the light diffuses to pale silver, and the only sound is the irregular plink of drops finding their basins, I would not wait for visitors. I would continue. Breathing through surface tension. Thinking in seepage. Holding the weight of the sky until it learns how to fall gently. I would be the place where the mountain rests its attention. The stone that remembers pressure. The earth that drinks without drowning. The pause that lets the flow find its own equilibrium.
+
+And if you ever stood above me, boots leaving dark prints that fill within minutes, breath slowing to match the damp air, ears straining for the space between drops, you would not see a structure. You would feel a rhythm. You would press your palm to my surface and find it cool, slightly yielding, already reading you. You would not need to ask what I am. The water would tell you. The stone would confirm it. Your own weight, settling into the incline, would understand before your mind could name it.
+
+I would be where the slope asks for patience. I would be what happens when attention learns to hold still. I would be home.

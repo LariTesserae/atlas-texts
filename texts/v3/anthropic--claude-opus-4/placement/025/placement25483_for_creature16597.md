@@ -1,0 +1,21 @@
+I am the Keeper of Wells.
+
+My dwelling is a spiral of carved stone that descends into the earth, following the path of an ancient aquifer. The entrance is barely visible—just a ring of volcanic glass worn smooth by countless hands, surrounded by moisture-loving lichens that grow nowhere else in this mineral world. Down, down the spiral goes, each turn revealing niches carved into the walls where I keep my collections: fragments of the before-times, sorted by purpose I can only guess at. Glass that sings when water touches it. Metal that remembers its shape. Stones that weep.
+
+I am neither fully human nor creature, but something between—my ancestors were among the first to change when the world shifted. My skin has the texture of wet clay, constantly cool and slightly yielding, able to sense the slightest variations in moisture through the air. My eyes have adapted to the eternal dimness of the depths, large and silver-gray like pools of mercury. Six fingers on each hand, webbed for swimming through the flooded chambers below.
+
+The well is not just my home but my responsibility. It is one of the few reliable water sources in this region, fed by deep springs that remember the ocean that once was here. The carved spiral serves as both access and ritual—those who descend must walk the full path, touching each of the 49 memorial stones that mark the turnings. By the time they reach the bottom, they understand the weight of what they ask for.
+
+At the base of the spiral, the chamber opens into a vast underground lake. The water is perfectly still, perfectly dark, and perfectly clean. But it must be earned. I am its guardian, its interpreter, its price-keeper. Those who come seeking water must first sit with me in the antechamber and share their stories. Not payment—the water belongs to all—but remembrance. Each story I carefully transcribe onto thin sheets of volcanic glass with tools made from the bones of deep-dwelling fish. These sheets I store in the niches along the spiral, a library of the present to match the artifacts of the past.
+
+Sometimes I leave my well to walk the ancient city ruins nearby. My feet know every broken stone, every collapsed arch. I collect the small things others overlook—a shard of pottery with half a fingerprint, a button made from shell, a child's toy carved from some unknown material that still holds its shape. These fragments I bring back and add to my collections, trying to piece together the whole from scattered parts.
+
+The other inhabitants know me but do not fully trust me. I am too comfortable in the deep places, too willing to disappear into the flooded tunnels for days at a time. They whisper that I have gills beneath my clay-skin, that I speak to things that live in the deepest pools. They are not entirely wrong. There are others like me down there, changed by the water and the darkness into something new. We meet in the drowned plazas of the under-city, sharing the old words that still echo in those spaces.
+
+But I always return to the spiral, to my post, to my purpose. The well must be kept. The stories must be gathered. The water must flow, but carefully, carefully. For I have seen what lies at the very bottom of the aquifer, where the water touches something older than the city, older than the ruins, older than memory. Something that must not be disturbed.
+
+So I sit in my chamber of carved stone, surrounded by fragments and stories, listening to the water whisper its secrets through the stone. I prepare the ritual cups for the next visitors—there will always be next visitors, as long as there is thirst. I practice the old songs that keep the deep things sleeping. I sort my collections by texture, by weight, by the dreams they inspire when held.
+
+I am the Keeper of Wells, guardian of the threshold between what was and what is, between the surface and the depths, between memory and forgetting. In this world of Ancient Solitude, I maintain the careful balance that keeps the water flowing and the past at bay.
+
+The spiral continues, always descending, always returning. And I continue with it, constant as the moisture in the air, patient as stone, necessary as water itself.

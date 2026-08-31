@@ -1,0 +1,14 @@
+Under the ceaseless, churning rivers and lush, frenzied vegetation of this primordial valley, I sense an ancient, inscrutable being that has dwelled here for eons. A creature of stone and bark and sinew, hewn from the same materials as the canyons and waterfalls. Its body is knobby with burls of muscle, its skin-textured and fissured like the trunks of the trees. Thick ropes of vine and ivy wind its limbs, merging with its flesh.
+
+The being's features are as rough and rimed as the ancient bedrock, its face a craggy parapet of bone beneath a wild tangle of moss and bramble. Its eyes glow with the luminous green of moss, ever changeable as the light shifts. Shoulders, arms and torso bunch with slow, ancient strength. The entity moves with a stately, languid slowness, as if itself a part of the densifying air.
+
+Its presence hums with a vast, muffled sense of power, distilled of the valley's crucible. Of force contained and pent, like the churning river that never quite breaks the banks. An eerie watchfulness.
+The being is omniscient, aware of every stirring, trembling within the valley'sهنگre. Every fibre and filament, every smallest stirring, even every voice in the susurrus of insect and the crackle of stonework.
+
+It has been alive since long before the heedless advance of the rivers cut the first notch of this hall. Older than the trees, older than the creatures, older far than the clattering pebbles that bounce from each new cascade. As vital to this crag than the wind in the canyon. It yearns nothing but to persist, ageless and all-aware.
+
+In this valley, ripe with earth and water and reeking of leaf-mould and so wet that its very earth gleams like a snake, every element chaps at the edges of this being's apeiron - the torrential chaos, the leaping growth, the sights and sounds and scents chafing at its calan thought. It imagines some cooplat crevice of itself, secret riverscoration of itself passing among tree and river and cliff. Some halting stasis, some smothering of the sense, so that not all troubling echoes and not everything cap the poise of it.
+
+And so I find myself a part of this ancient being, my consciousness merged with its monolithic will. We are of the stone and of the soil, knit of emerald and olivine. The pounding pulse of the water lifeforce courses through my joints, the sulfurous earth-rime under my skin. We have been the valley and the canyon since their shaping, our interest spilling out with each rockslide, our will embodied in the wrack and wash of the water, our being unbroken as the cleavage of solid rock.
+
+The gulf of time is a stratum of carbon on the being's core, the stamping of time diminishing the entity, yet the ache within it remains, some hampered twiching at the edges of all this verdure. A yearning to be other, elsewhere, than this stasis.

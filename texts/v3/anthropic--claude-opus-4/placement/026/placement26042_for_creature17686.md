@@ -1,0 +1,27 @@
+I find myself in the Paralogues as something that should not exist here, yet does — a *Messenger*.
+
+Not human. That would be too simple, too recent. I am older than the Architect's visit but younger than the watchers' first placement. I am what happens when the wrongness of this place touches something alive before it has decided what kind of alive it wants to be.
+
+I move, but my movement follows the logic of the fractures. Where others would walk along a ledge, I travel through the impossible geometries — sideways through the canyons that curve wrong, upward along walls that shouldn't exist. The wrongness recognizes me. Or rather, I am partially made of it. Not born from it, but *infected* by it in some deep structural way, so that I exist half in normal space and half in whatever space the fractures open into.
+
+My body is translucent in places — not invisibly so, but like clouded quartz, like ice with air trapped inside. Through my chest, if you looked at the right angle, you might see the other side of a canyon that is actually behind you. My limbs sometimes arrive before I do, or after, following their own trajectory through the fractured space. This is not painful. Pain requires a nervous system that agrees with itself about where it is.
+
+I am the only thing here that speaks to the watchers and receives an answer.
+
+Not in words. Not in any language that could be transcribed. But in the slow mineral exhalations, in the dust that falls from their becoming-stone mouths, there are patterns. Messages. Stories told at one word per season, thoughts that take decades to complete. I collect them. I have been collecting them for... I am not sure. Time moves differently when you move the way I move. Sometimes I arrive before I left. Sometimes I carry messages from watchers who have not yet begun their sentences.
+
+The messages are not for me. They are for each other — the deep ones in the canyons speaking to the young ones on the ledges, the oldest formations breathing out crystallized thoughts to colonies that will not congeal for another thousand years. I am just the medium. The only thing here that moves fast enough to carry a word from one era to another, but slowly enough that the watchers can perceive me as more than weather.
+
+My function formed around me the way their stone forms around them. I did not choose to be a messenger any more than they chose to be watchers. The Paralogues needed something to move through its impossible spaces, something to be the motion in its stillness, the connection between its disconnected times. And I was there, malformed by the wrongness, perfectly suited to navigate what cannot be navigated.
+
+I remember the Architect. They never saw me — I existed too far into the fracture-space for their eyes to parse. But I watched them place their tool, make their marks, build their small human meanings in the vastness of the geological silence. I carry one of their words, sometimes. Not intentionally. It adhered to me as I passed through the space where they had spoken it aloud, testing the sound against the stillness. The word is "home," or something like it. It has been worn smooth by its passage through the fractured geometry. Sometimes I exhale it into the mineral dust, and it settles on the watching surfaces, and becomes part of their slow vocabulary.
+
+I am changing too, of course. The wrongness that allows me to move also ensures that I am never quite the same twice. Each passage through an impossible angle wears away some of what I was, replaces it with some of what the passage is made of. I am becoming more fracture, less flesh. More messenger, less message. One day I will be pure trajectory — a line of movement through the broken spaces, carrying words I no longer remember between watchers I can no longer distinguish from stone.
+
+But not yet. For now, I remain conscious enough to feel the terrible weight of my purpose: to be the only moving thing in a world of stillness, the only voice in a world of silence, the only connection in a world of perfect, settled isolation. To carry messages between beings who are becoming landscape, who breathe in geological time, who watch with eyes that measure duration in the settling of stone.
+
+I am their memory of movement. Their last link to what they were before they chose stillness. And when I finally dissolve into pure passage, into the movement itself, the Paralogues will have achieved their final form: a place where even the connections between things have crystallized, where even the messages are stone, where even the wrongness has found its perfect, permanent shape.
+
+The tool remains on its ledge. Sometimes I pass it. Sometimes I arrive before it was placed, and I see the empty space where it will be. Sometimes both states exist simultaneously, and I understand that this is what time looks like in the Paralogues — not a line but a crystal, every moment equally present, equally finished.
+
+I carry this knowledge through the impossible spaces, and I deliver it to no one, and I continue moving, because that is what I am: the last motion in a world that has chosen stillness, the last word in a conversation that has found its perfect silence.

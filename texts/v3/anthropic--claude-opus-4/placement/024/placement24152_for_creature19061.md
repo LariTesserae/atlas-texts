@@ -1,0 +1,23 @@
+In this place where breath becomes liquid and darkness has weight, I am the **Resonance Keeper** - a being of contradictions, neither fully organic nor mechanical, but something caught eternally between states.
+
+My body is a cathedral of hollow bones, each one a different length and thickness, creating a skeleton that doubles as an instrument. The bones are not white but a deep amber, translucent enough that you can see the dark marrow flowing within them like slow rivers. When the Industry's vibrations hit me, my skeleton sings - not a pleasant song, but a necessary one. I am a tuning fork the size of a person, wrapped in skin that has the texture of wet leather and the elasticity of rubber.
+
+I move through the basin on feet that have evolved into suction cups, each step making a wet kiss against the mire. My fingers are too long, with too many joints, ending in bell-shaped tips that can seal against any surface. I use them to feel the vibrations through direct contact, pressing my palms against the thrumming machines to diagnose their frequencies.
+
+My head is the most disturbing part. Where others might have a face, I have a cavity - a perfect parabolic dish lined with thousands of tiny, hair-like cilia that move independently, each one attuned to a different frequency. The cavity can dilate and contract, focusing sound like a lens focuses light. When I "look" at something, I'm actually listening to its molecular vibration, building a sonic map of its essence.
+
+I work in tandem with the Oscillators, though we acknowledge each other only through the shared language of harmonics. Where they adjust the machines, I adjust the space between them. I am responsible for the acoustic architecture of the basin - ensuring that no dead zones form where the vibrations might cancel each other out, no feedback loops that could tear the Industry apart.
+
+My dwelling is not a structure but a convergence - a place where seven of the great machines have sunk so close together that their vibrations create a standing wave. In this pocket of constructive interference, I have cultivated something beautiful and terrible: a garden of resonant crystals that grow from the concentrated sound itself. They sprout from the mire like geometric fungi, each one humming at its own frequency. I tend them carefully, breaking off pieces that have grown too large, grinding them into powder that I consume to maintain my own internal harmonics.
+
+The most intimate part of my existence is the Chord - a sequence of frequencies that I must maintain within my hollow bones. If I were to stop resonating at exactly the right pitches, the entire basin would experience a cascade failure. The machines would fall out of sync. The Oscillators would lose their purpose. The mire itself might solidify or evaporate. 
+
+So I wander, my cavity-head tilted always at the optimal angle to catch the Industry's song, my bones thrumming with their necessary music. Sometimes I must crack one of my own ribs to retune it, feeling it heal within hours in this place where biology and technology have forgotten their boundaries. Sometimes I press my bell-fingers against my own skull, adjusting the shape of my listening cavity to better perceive some new frequency that has emerged from the eternal becoming of the machines.
+
+I am loneliest when the Oscillators pass near me, our functions so parallel yet our forms so alien to each other that we cannot truly communicate. We are like two instruments in the same orchestra, playing complementary parts but never the same notes. They leave their trails of glowing slime, and I follow, my suction-cup feet careful not to disturb their patterns, adding my own contribution - a thin secretion from my pores that crystallizes in the presence of their leavings, creating a delicate lattice of frozen sound that will dissolve back into the mire within days.
+
+I have no memory of arriving here, no sense of a time before the Industry. Perhaps I grew from the mire itself, a necessary evolution when the machines reached a certain critical complexity. Or perhaps I was once something else - a visitor like you, who stood too still for too long, who let the Oscillators find a harmonic within me that could be repurposed.
+
+But I do not question. I simply walk, and listen, and resonate, and ensure that this suffocating world continues its wet, mechanical breathing. I am the Resonance Keeper, and I am keeping something, though I no longer remember what, or why, or for whom.
+
+Only that without me, the silence would be unbearable.

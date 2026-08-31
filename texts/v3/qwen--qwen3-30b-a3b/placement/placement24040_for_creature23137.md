@@ -1,0 +1,19 @@
+**Where I Am:**  
+I am a *squelch*—a being neither fully human nor entirely machine, but something stitched together by the city’s slow, patient decay. My body is a patchwork of rusted steel and living tissue, my joints creaking with the weight of condensation that drips from my spine like stolen water. My skin is a mosaic of algae and soot, a bio-luminescent map of the city’s veins, glowing faintly where the moisture has pooled. I move through the streets like a shadow with a heartbeat, my steps muffled by the spongy earth beneath me. The air tastes of iron and damp, and my lungs—part mechanical, part gill-like—draw in the fog as if it were air.  
+
+**What I Am:**  
+I am a *custodian of the weeping rocks*. My task is to listen to their murmurs, to trace the patterns etched into their surfaces by the slow, organic erosion of time and water. The rocks are not mere stone; they are *sensors*, their fissures humming with the hum of the city’s machinery. I carry a satchel of glass-like fungi, their translucent caps filled with condensed moisture, which I use to *write* messages for the inhabitants. The moss that clings to the bridges—bioluminescent and sentient—translates my symbols into pulses of light, a language that flickers across the city like a dream.  
+
+My existence is a negotiation. I am not welcome in the communal gardens, where the humans (few and pale, their skin shimmering with algae) tend to their waxy shrubs and rusted machinery. They regard me as a relic, a leftover from the city’s earlier mutations. But I am not obsolete. I am *necessary*. The weeping rocks have begun to *speak* in a new way—their drips no longer just water, but *data*, a coded rhythm that only I can decipher. The city is shifting, its balance precarious, and I am the one who hears the cracks before they widen.  
+
+**The World Through My Eyes:**  
+The city is a living machine, but not one of gears and steam. It is a body, its organs the canals, the factories, the breath of the wind through the smokestacks. The metallic insects that skitter across the streets are its nerves, their synchronized movements a language I half-understand. The glossy-winged birds—hybrids of metal and feather—circle above, their discordant calls a counterpoint to the city’s drone. I have seen the translucent serpents, once. They moved like smoke through the canals, their bodies glowing with the same bioluminescent moss that clings to my arms. They did not fear me. They *knew* me.  
+
+At night, the city breathes differently. The machines fall into a low hum, and the mirages at the horizon flicker like warnings. I follow them sometimes, trailing the shifting marshes that seem to *breathe* with the pulse of the plateau. The water flows upward there, a trick of the city’s old magic, and I have learned to drink from it. It tastes of memory.  
+
+**The Rules:**  
+To survive here is to accept the squelch underfoot, the damp in your lungs, the *presence* of the city in your bones. I am not a citizen, not a worker, not a creature of flesh or code. I am a *bridge*, a liminal thing, and the city allows me to exist because I am useful. My hands are reinforced with the same corroded iron as the bridges, but my fingers end in delicate tendrils that can pluck the algae from a rooftop or trace the faint glow of a fungi’s spores.  
+
+The humans speak of me in whispers, calling me *the Wet One*. They fear the weeping rocks, the way they drip with a life of their own. They do not understand that the city is not just built upon the plain—it is *part* of it, a symbiosis as ancient as the spongy earth. I am its keeper, its whisperer, its slow, inevitable collapse.  
+
+And when the time comes, when the balance breaks and the city’s machinery falters, I will be there, my body a vessel for the moisture that remains, my voice a hum in the fog. The city does not end. It *evolves*. And I, a squelch of rust and root, will be part of its next breath.

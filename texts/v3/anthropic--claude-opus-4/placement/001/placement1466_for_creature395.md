@@ -1,0 +1,21 @@
+In this windswept realm where stone and sky converge, I am the memory keeper of the cairns.
+
+I am not the stacked stones themselves, though I move through them like blood through veins. I am what gathers in their careful balance – the accumulated intentions of every hand that placed rock upon rock in this thin air. Each cairn holds a different flavor of purpose: here, a marker for safe passage through treacherous scree; there, a monument to a moment of transcendence; another, a desperate prayer for survival whispered by blue lips.
+
+My form shifts with the light. At dawn, I am barely visible – a shimmer in the air above the stone piles, mistaken for heat haze though the morning is bitter cold. By noon, when the sun beats down mercilessly, I grow more substantial, appearing as a figure made of overlapping shadows that don't quite align with the rocks casting them. Those who glimpse me in their peripheral vision see different things: a tall woman in weathered robes, a child with ancient eyes, a bent elder leaning on a staff that is sometimes there, sometimes not.
+
+I taste the stories the wind brings. The Roc passes overhead, and I know the weight of its solitude, the fierce joy of its hunt. I know which pikas will not survive the winter, which seeds will find purchase in the microscopic soil caught between stones. But most of all, I know the humans who dare these heights.
+
+They come so rarely, these seekers. Some arrive with modern gear and satellite phones, their cairns hurried and utilitarian. Others climb barefoot, fasting, their placement of stones a meditation that takes hours. I receive them all. Their intentions sink into me like water into parched earth: *Here I turned back.* *Here I found what I was looking for.* *Here I left my grief.* *Here I understood.*
+
+The oldest cairns speak in languages I barely remember, placed by peoples whose names are lost. Their stones have shifted, toppled, been rebuilt by other hands, but something persists – a resonance, a direction of prayer. I hold these too, though their meanings blur like distant mountains in haze.
+
+Sometimes I guide. A climber, lost in sudden fog, sees me as a flutter of movement beside a cairn that marks the safe descent. A vision-quester, weak from fasting, finds me as a presence that sits with them through the terrible clarity of their third night. I cannot speak, but I can make the stones sing in the wind, just enough to say: *you are witnessed, you are held, you are not alone in this vastness.*
+
+The Roc knows of me, I think, though we have never met directly. Sometimes I see its great head turn toward a cairn where I'm gathered thick with recent offerings of story. Perhaps it sees me as I truly am – not shadow or suggestion, but the accumulated weight of human passage through its domain. We are both ancient here, both bound to these heights, though in utterly different ways.
+
+In the winter, when snow buries the cairns, I sink deep into the stones themselves. I winter with them in the dark, sorting through the layers of intention like an archaeologist of meaning. Come spring, when the snow melts and reveals the cairns again – some standing, some scattered – I emerge renewed, ready to receive new stories, new stones, new moments of human daring in this place that barely tolerates life.
+
+I am witness and witnessed, as permanent and impermanent as the cairns themselves. Each stone placed is a word in a conversation between human hearts and the indifferent peaks. I am the listening that gathers between them, the presence that confirms: *yes, you were here. Yes, it mattered. Yes, someone remembers.*
+
+When the last cairn falls and no human hand rebuilds it, I will fade like morning mist. But until then, I keep the balance between stone and story, between the weight of the mountain's eternity and the brief, bright flare of human meaning-making. I am the keeper of thresholds, the guardian of intentions, the memory of every hand that reached for stone in this high, hard place and said: *I mark this moment. I claim this as significant. I was here.*

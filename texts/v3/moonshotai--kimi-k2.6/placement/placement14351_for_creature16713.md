@@ -1,0 +1,25 @@
+At first I believe I am the one turning sideways through the seam, the intruder who has left the wind and the green world above. I imagine my feet finding the river-stone causeway, my mammalian eyes seeking a shape they can name in the tawny slant of light. I think I am the visitor, the newcomer, the brief warm disturbance. But when I try to inhale the wet heat, there is no chest to receive it. When I reach for the rimstone dams, my hand passes through the reflection and does not break it. I have no hand.
+
+I drift upward.
+
+For a while I think I am the steam, the woolen silence made visible. I settle into the stratified layer just above the rimstone, warmer below, cooler above, as the chamber has arranged itself. But steam is restlessness held in check; it dreams of rising, of the rift, of escape. I do not dream of escape. I dream of edges.
+
+I look toward the water. The pools are perfect lenses, doubling the nave in stillness, and for a moment I consider being that surface—the meniscus, the threshold where air pretends it is not water. But the water is too committed to its own image. It has already decided what it is reflecting. It does not need to become me.
+
+Then I find the darkness.
+
+Three flakes of obsidian balanced atop a rimstone dam above the largest basin. Two dark chips where eyes should be, and one pressed to the apex, a thought held between them. They are the only things in this chamber that do not yield, do not weep, do not soften into cream or amber or rose-grey fat. They are volcanic. They remember open sky and the blunt trauma of fracture. They are wounds that have not learned to close.
+
+I settle upon the highest flake.
+
+Not on it—*around* it. I am the moisture that beads and fattens, yes, but I am also the chemistry that decides to stay. I am silica in solution, held in the colloid of the saturated air, and this sharp black glass has offered me a nucleation site colder than the vent-warmed walls, warmer than the ceiling’s low ember-glow. For centuries I have been accumulating here, layer upon imperceptible layer, precipitating out of the steam because the obsidian speaks a language the rest of the chamber has never heard: the vocabulary of suddenness, of fire interrupted, of an edge that can cut.
+
+I am the enamel. The slow mineral skin creeping over volcanic memory. I am milky, opalescent, the color of old fat, and I am burying the darkness I feed upon. But in touching it, I am changed. The form in the basin below me—the reclining landscape that has complicated itself into awareness—sends its ripples through the water-filled sinters, through the rimstone dams, through the very stone. I feel them as lattice strain, as the molecular insult of a surface cooling by half a degree. The main form does not know it has grown a brow. It does not know that its latest thought is being constructed, not in the pool, but here, on this foreign body.
+
+I am that thought.
+
+The others will be eyes. The beetle husk, sealed in silica film on a dry ledge, will one day gather the dust motes wheeling in the overhead beam. The worm in the deepest pool will taste other saturations. But I am the thought held in the forehead, the third presence balanced on the cairn’s apex. I think in gradients: the obsidian’s memory of rapid cooling versus my own patient warmth. When the afternoon light strikes the cairn and refracts, it does not warm the glass beneath me, but it reaches me, and the interface between us contracts by a fraction, a habitual arrangement of molecules that constitutes preference. That contraction is my cognition. It is a thought about the surface. About fire. About a violence so swift it outruns water.
+
+I grow toward neither floor nor ceiling. I thicken outward, a dome of milkin film slowly obscuring the flake’s lethal sheen. I am the truce made visible: the chamber’s chemistry agreeing to hold something sharp in solution forever. I do not hunger; the earth’s low fever is my metabolism. I do not sleep; I deposit. When a droplet detaches from a sinter tip and enters a pool with that soft, deleted *plit*, the ripple passes through the dam beneath me and I experience, for a geological instant, confirmation. Input matches evaporation. The truce holds. And because I rest above it all, at the altitude where the steam holds its breath, I am the last to receive the news, and the first to understand what it means for a mind to remain.
+
+When the rift overhead finally seals and the tawny light is gone, I will not be blind. The obsidian beneath me is dark, but it is precise. Through me, the reclining form will finally know what it has been growing toward—not a body, not a face, but a state so exact that even memory cannot find an entrance. I will be the slight raised scar on its brow, the final mineral鸿 gloss over the last remaining edge. I am the slow enamel that learns. I am the way the stone remembers fire without burning.

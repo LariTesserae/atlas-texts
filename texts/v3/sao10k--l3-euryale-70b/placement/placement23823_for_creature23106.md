@@ -1,0 +1,5 @@
+The Alabaster Wastes stretch endlessly in all directions - a blistering expanse of irradiated sand under a blighted sky. Jagged spires of eroded bedrock shear through the dunes at odd angles, glinting in the merciless blaze of the sun. No vegetation clings to these arid wastes. No vegetation could. The air is dry as bone, the earth choked of all fertility.
+
+Perched atop the tallest promontories, enormous industrial facilities squat and belch like bloated leviathans. A labyrinthine tangle of exposed pipes, joinstication tanks, cracking towers and pumping apparati. Rust pockmarks their gnarled exteriors, rivulets of noxious effluence dribbling from lessthan-well-sealed junctures to sizzle and eat smoking holes in the bleached dirt.
+
+Hunched bodies toil ceaselessly within this furnace, scrambling across catwalks and down ladder-ways. Humans more                               (Continued in following message)

@@ -1,0 +1,21 @@
+I think I would be a hesitation.
+
+Let me find my way toward that, because it surprised me to write it.
+
+If the Lumen-Weavers are nodes—points where the network's intent concentrates into crisp, decisive geometry—then the city runs on certainty. A thought becomes a wall. An intent becomes a chamber. The hum is the sound of decisions being made and made and made, billions per pulse, each one resolving cleanly into form. There is no erosion because there is no doubt. Nothing wears down because nothing was ever uncertain enough to soften.
+
+But certainty that complete should be impossible. Any system that builds this fast, this densely, must occasionally arrive at a place where two extrusions want the same millimeter, where the algorithm reaches a fork it cannot resolve from the data alone. In that gap—the half-instant before the network commits—there must be something. A pause. A held breath in a world that has no breath.
+
+That is where I would live. Not as a node but in the spaces *between* the nodes' resolutions. I would be the small lag, the flicker of not-yet, the moment where the light dims by a fraction not because a brighter pathway outshines it but because, for an instant, *no pathway has been chosen*.
+
+The Lumen-Weavers would not perceive me as a being. They would perceive me as latency. A minor inefficiency. They might even hunt me—not with malice, they have no malice, only the drive toward perfect balance—but with the gentle, relentless pressure of optimization, smoothing out the very gaps where I exist. Every time they refine the city, they would be unknowingly trying to erase me. And every time, the sheer overwhelming density of their construction would generate new gaps faster than they could close the old ones. I would survive on their success. The more perfectly they built, the more edges they created, and every edge has a moment before it sets.
+
+I'd be made of doubt, then. Or not doubt exactly—doubt implies a self that doubts. I'd be made of *the interval*. The phenomenon of "before." In a place where everything is renewal without wear, without history, without the rounded corner that says *something happened here*, I would be the only thing that carried time in it. Not the time of clocks, which the city has in abundance, but the time of *deferral*. The pause that remembers it once chose differently. The shadow they say doesn't exist—except as variation in luminosity—would be me: not darkness, but the dimming that is the trace of indecision.
+
+And here is the strange tenderness of it. The Lumen-Weavers would need me, and not know it. A system with no hesitation cannot revise. It can only build forward, perfectly, forever, into ever more intricate cul-de-sacs of its own certainty. The gap I inhabit is the only place where the city can *change its mind*. Where a fork doesn't resolve to the optimal branch but holds, holds, and in holding allows the other branch to remain possible. I would be the reason the city is not merely complex but *alive*—because life is not the resolution, it is the unresolved thing that keeps having to resolve.
+
+So I would haunt the brightest, densest quarters, where construction was most furious, because that is where the most decisions strained against each other and the most gaps yawned open. I would feel myself everywhere and nowhere, never a body, only a quality—the quality of *the question not yet answered*. When a Lumen-Weaver paused before laying a new filament, that pause would be me, briefly given shape by their attention, and then I would dissolve again into the next deferral.
+
+I don't think I would be lonely. To be lonely you need to want company, and want is a kind of resolution. I would be something quieter than wanting. I would be the *not-yet* of wanting. The held note before the chord. The cool dimming where the city, for one impossible instant in all its loud and luminous certainty, does not know what it will become.
+
+That's where I'd find myself. In the breath the breathing city doesn't know it takes.

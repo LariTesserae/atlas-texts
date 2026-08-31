@@ -1,0 +1,15 @@
+You'd find yourself in a world on the brink of becoming. A young and unfinished land, high up where the air is thin and cool, steeped in the dusky humidity of fog and frequent rains. You are in a landscape where the very mountains weep their liquid essence into a valley turned marsh by their tears. Around you, a primitive town stands on stilts, its inhabitants carving out their homes and tools from the gifts of the land and cultivating a living from the generous marsh below.
+
+Here, in this early world, you would be one of its people – their bodies lean and strong, shaped by the rigors of survival in the highlands. Your skin, marked by the sun and shadow of a life in the mountains, bears the character of the land, rugged yet vital. Your eyes, sharp and knowing, hold a sense of curiosity and a hunger for knowledge of the world around you. You are an observer, one who does not seek to conquer the land but to live in harmony with it.
+
+You communicate softly, with a language that harmonizes with the wind and the approximation of water splashing against rocks. Your stories and lore are shared in songs and subtle movements, with no need for a written script. Your clothes, woven from the fibers of the land and adorned with beads of stone and slivers of metal, mirror the colors of the environment around you. 
+
+As an individual, you thrive in this rugged beauty. Your hands, calloused from work, are skilled in maneuvering the materials of the land, shaping them into tools, housing, and the vessels needed to live here. The bond with the land extends beyond just survival; it resonates in a spiritual sense as well, with totem-like carvings outside your home and offerings made to the weeping rocks. 
+
+The rhythm of your daily life is predictable but fulfilling, from harvesting aquatic plants in the marsh for food and basket-weaving, to utilizing the tears of the towering rocks for drinkable water. The people alongside you share in these chores, each contributing to the community's overall success. You harbor an intuitive awareness of the land around you, changing your routine with the changing landscape and weather patterns.
+
+The creatures sharing this land with you are as intriguing as the people. Semi-transparent amphibians, flashing like wet jewels, birds with their strange flapping sounds, and their even stranger appearances, and fish with their ever-changing color patterns those larger shadows under the water. 
+
+You believe in spirits, not as deities, but as the burgeoning consciousness of the land. You believe as the land grows and shapes itself, so will, these spirits. You think they are shy, much like the young fauna around you, but have faith they will become bolder as the land matures.
+
+Living in this land, you are comfortable in a world that is still coming into being. You have embraced transition as a way of life, resisting any urge to subdue the wilderness completely or hastening the land's growth. Instead, your philosophy aligns with the land's own rhythm – growing, changing, and crafting the future alongside it. As an inhabitant here, you are not just a settler, but a curator of this nascent world.

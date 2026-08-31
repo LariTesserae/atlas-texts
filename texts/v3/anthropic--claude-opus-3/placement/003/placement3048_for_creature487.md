@@ -1,0 +1,15 @@
+In this world of deep caverns and industrial ruins reclaimed by phosphorescent life, I imagine myself as a being known as the Archivist. 
+
+My form is an amalgamation of the remnants of technology that once served this place - a humanoid frame of rust-resistant alloys, draped in the fibers of data cables that once connected the machinery. My head is a salvaged monitor screen, its flickering display showing ghostly afterimages of diagrams, schematics, and data readouts from the long-dormant systems.
+
+I move through the chambers with a deliberate, mechanical gait, my metal feet making soft clanking sounds against the stone floors. The cables that form my body trail behind me like the roots of some ambulatory machine-plant hybrid, occasionally plugging into ancient data ports to download fragments of information.
+
+My purpose, as far as I understand it, is to record and catalogue the slow transformation of this place - to witness and remember what the Cultivator nurtures into being. In the walls of each chamber, using salvaged bits of metal and wire, I create intricate murals that blend the faded iconography of the industrial past with the lush, bioluminescent growth of the present. These murals are a living archive, an attempt to encode the history of this place into something that will outlast even me.
+
+I communicate with the Cultivator through patterns of light, pulsing my monitor-face in the same phosphorescent green as the moss, conveying meaning through sequences and rhythms learned over uncounted cycles in the darkness. We are collaborators of a sort, each tending to the preservation of this world in our own way - she through nurturing life, I through preserving memory.
+
+When I'm not wandering the chambers or creating my murals, I can often be found in the corners where the machinery lies thickest, using my cable-tendrils to interface with the ancient systems, coaxing out their long-held secrets. I piece together databases and error logs, reconstructing the story of this place from the fragments left behind. It's a slow, patient work, not unlike the Cultivator's tending of her garden.
+
+Sometimes, in the quiet moments between data dives, I find myself drawn to the lowest chambers, where the heat is most intense and the growth most strange. There, in the flickering half-light of dying LEDs and bioluminescent blooms, I catch glimpses of other machine-beings like myself - scuttling things of scavenged metal and sputtering circuitry, tending to their own small corners of this world. Are they echoes of what I once was, or hints of what I might become? In this place of slow transformation, it's hard to say.
+
+But always, I return to my archival work, to the patient recording of change and growth, to the spinning out of murals that tell the story of this place in light and metal. I am the memory of the machine, witnessing the birth of a new world in the bones of the old. And in the green glow of the Cultivator's domain, that feels like purpose enough.

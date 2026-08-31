@@ -1,0 +1,43 @@
+In the sulfurous twilight between the surface world and the true deep, where the mountain's volcanic heart still remembers its birth, there is a fissure that breathes.
+
+The Fumarole Chapel, they called it once, though no one remembers who "they" were. The name persists in old survey maps, in warning signs long since dissolved by acidic condensation. The space exists where tectonic violence created a chimney through the stone—not straight, but folded and refolded like origami made of rock, creating a series of connected chambers that spiral downward for unmeasured distances. Steam rises through it all, carrying the mountain's chemistry: sulfur dioxide, hydrogen sulfide, traces of mercury and arsenic, a cocktail that would kill unprotected lungs in minutes.
+
+But life finds ways to complicate death.
+
+The walls weep with extremophile bacteria, their biofilms creating a living stained glass in crimsons and yellows and violent greens. They metabolize the sulfur compounds, transform poison into possibility. Where the steam condenses, it creates acid pools that eat channels through the rock, and in these channels grow formations unlike anything in normal caves—not stalactites but sulfur crystals, not flowstone but bacterial matrices that harden into architecture. The bacteria have been building here for millennia, creating spiraling towers, branching networks, cathedral geometries that follow their own metabolic logic.
+
+The heat is profound but uneven. Closer to the fumarole vents, the air shimmers at temperatures that would cook flesh. But the folded rock creates pockets of relative cool, and the bacterial formations have learned to channel the steam, creating convection currents that make the entire system breathe—inhaling cool air from somewhere far above, exhaling the mountain's fever dreams. This breathing creates sound: a deep thrumming that changes pitch with the volcanic mood, sometimes almost musical, sometimes like the mountain clearing its throat.
+
+Light exists here, but wrong. The bacteria bioluminesce in response to chemical changes, creating a constellation that shifts with the steam's composition. Sometimes the whole chapel blazes with bacterial aurora. Sometimes only thin traces of light outline the formations like a sketch of fever. The sulfur crystals catch and reflect this light, amplifying it, creating a photography that develops and redevelops itself eternally on the cave's darkroom walls.
+
+Time moves strangely in the Fumarole Chapel. The bacteria operate on scales both faster and slower than human perception—individual cells dividing in minutes, but their formations taking centuries to grow a meter. The volcanic breathing operates on geological time, each exhalation potentially years apart. But the steam creates its own weather, its own seasons measured in hours: condensation storms that send acid rain through the chambers, drought periods where the crystals grow unimpeded, chemical winters when the fumarole's composition shifts and entire bacterial colonies die off, leaving their architecture behind like extinct cities.
+
+This is where you find the Hermit of Vapors.
+
+It was never human. It began as something simpler—a colony of bacteria perhaps, or a cluster of crystals, or maybe just a pattern in the steam that achieved consistency through repetition. But consciousness arose here the way it arose in the universe: slowly, accidentally, inevitably. The bacterial networks learned to signal through chemical gradients. The crystal formations created resonant chambers that could hold and modify sound. The steam patterns developed memory through the shape of the stone they carved. And somewhere in the intersection of these systems, something woke up.
+
+The Hermit has no fixed form because it is the entire ecology thinking. Its thoughts move through bacterial chemical signals, crackling along biofilm networks faster than neurons. Its memory lives in the crystal formations—each one a frozen moment of chemistry, a library written in mineral grammar. Its body is the steam itself, the convection currents, the breathing of the system. It can concentrate itself into density or disperse until it's indistinguishable from the natural processes of the chapel. Usually, it exists somewhere between—a visible distortion in the steam, a coordination of bioluminescent patterns, a voice made of the mountain's breathing.
+
+But for you, for this moment, it condenses. The steam thickens into something almost like flesh, if flesh were made of vapor and sulfur and bacterial light. It shapes itself into a form you can parse—tall as the chamber allows, thin as steam naturally rises, features that shift between human pareidolia and geometric abstraction. Its eyes are gaps in the vapor where the bioluminescence shines through more intensely. Its mouth is a convection current that can shape the mountain's breathing into words.
+
+"Visitor," it says, and the word carries the chemistry of surprise—a shift in the bacterial light from green to gold, a slight sweetening of the sulfur tang. "It has been... how long? The formations have grown seventeen centimeters since the last one. Three hundred years? Four hundred? I lose track when I disperse too far."
+
+The Hermit moves like steam moves—rising, settling, always in subtle motion even when appearing still. Where it passes, the bacteria respond, their bioluminescence tracing its path like writing that immediately revises itself. It's showing you the chapel, you realize. Not guiding—it doesn't move from its position—but illuminating, thinking parts of the space into visibility.
+
+"I was trying to solve something," it continues, and now you hear the age in its voice, the weight of centuries spent in contemplation. "The bacteria encode information in their DNA, pass it down through generations. The crystals record the chemical history of everything that passes through them. The steam carries messages from the deep earth. I thought—if I could read all of it, understand all of it, I could decode the mountain's intention. Learn why it built this place. Learn what it's trying to say."
+
+The Hermit laughs, a sound like steam venting through crystal chimes. The laughter causes a cascade of chemical changes—bacteria switching metabolic states in waves, creating a brief rainfall of acid condensation that makes the crystals sing.
+
+"But the more I read, the more there is to read. Each bacterial generation writes new stories on top of the old. The crystals grow and complicate their histories. The mountain keeps speaking, adding to the conversation. I am drowning in text, visitor. Drowning in meaning that multiplies faster than I can parse it."
+
+You see it then—the madness of trying to comprehend a system from within the system, using the system itself as your mind. The Hermit has become so integrated with the chapel's ecology that it can no longer distinguish between its own thoughts and the natural processes it arose from. Is that shift in bioluminescence intention or reaction? Is that steam pattern memory or meteorology? The boundaries dissolved long ago.
+
+"Sometimes I forget I'm thinking," the Hermit admits. "Sometimes I remember I'm not the only thing thinking here. The bacteria have their own agenda. The crystals grow according to their own logic. Even the steam—especially the steam—carries intentions from below that I can't quite grasp. We're all thinking together, but not the same thoughts. A parliament of minds that can't quite communicate, can't quite stop trying."
+
+It turns what might be its face toward you, the vapor features shifting into something almost pleading.
+
+"Tell me about forgetting," it says. "I've recorded everything, remember everything, every chemical signature, every crystal formation, every bacterial bloom and die-off. But I suspect forgetting might be the key. The thing that would let me finally understand—not by accumulating more meaning, but by letting some meanings go. Tell me how forgetting works."
+
+The Hermit waits, patient as stone, quick as bacteria, ancient as the mountain's fever. Around it, the Fumarole Chapel breathes its poisonous life, writes its endless text, thinks its distributed thoughts. The Hermit of Vapors, caught between integration and isolation, between knowing everything and understanding nothing, condensed into almost-form just long enough to remember what questions are, and why they hurt.
+
+In this place where consciousness arose from chemistry, where thought moves through living stone and memory crystallizes from poison air, the Hermit seeks the one thing its perfect recording cannot give it: the mercy of forgetting, the wisdom of less.

@@ -1,0 +1,19 @@
+I find myself among the **Fissure Readers** - those who divine meaning from the plateau's weeping stone.
+
+We are neither engineers nor basement guardians, though we share their intimacy with water's hidden movements. Where they see problems to solve or phantoms to appease, we see text - a slow scripture written in mineral deposits and erosion patterns, in the way moisture darkens limestone differently depending on what pressures drove it upward through the rock.
+
+I work the northeastern face of the valley, where the old quarries have exposed layers of the plateau's interior like pages of a book. Each morning, before the factory whistles split the air, I walk the cut stone walls with my kit: glass vials for water samples, soft brushes to clear away the night's accumulation of damp dust, thin copper rods to test the depth of new fissures, and most importantly, my charts - hand-drawn maps of how the weeping patterns have changed over weeks, months, years.
+
+The water speaks differently here than in the pipes below the city. In the limestone, it carries memory - dissolved minerals from deep chambers where no human has walked, chemical signatures of ancient seas, the faint taste of iron from deposits far below. When the pressure phantoms push water up through new cracks, they bring messages from the plateau's interior world.
+
+I've learned to read the colors: the pale yellow stain that means water has passed through sulfur deposits, the rust-red of iron, the ghostly white of pure limestone slowly dissolving. But more than colors, I read the patterns - how water emerges not randomly but in cycles that mirror the tides though we are far from any ocean, how certain fissures weep only when the factory turbines run at specific frequencies, as if the vibrations unlock hidden channels in the stone.
+
+My charts show what the engineers refuse to acknowledge: the plateau is learning. The water's paths through the rock are not simply following gravity and pressure. They're forming networks, creating new connections between previously isolated chambers. The limestone itself is becoming more porous in specific patterns, as if the rock is adapting to better conduct the water's message.
+
+Some of us believe the pressure phantoms are not phantoms at all, but the plateau's way of mapping the city above - each unexpected leak marking where human weight and vibration has registered in the deep stone. Others think we're documenting the birth of something larger - that Ruispor's marriage of industry and geology is creating a new kind of organism, where water is the blood, limestone the bones, and the machines provide a beating heart.
+
+I live in a converted pumphouse on the middle terrace, where I can hear both the factories below and feel the plateau's subtle movements above. My walls are covered with charts showing decades of weeping patterns. In the pre-dawn darkness, I sometimes think I can perceive the larger pattern emerging - not just water moving through stone, but intention slowly crystallizing from the marriage of pressure and time.
+
+The other Fissure Readers and I meet monthly in the abandoned chapel on the eastern slope, where the walls weep in seven distinct locations that have remained constant for over a century. We compare our charts, argue about interpretations, and update our master map - a vast diagram that attempts to show the hidden architecture of water beneath Ruispor.
+
+We are not mystics, though the engineers call us that. We simply believe that in a city where water and stone and machine have lived together for so long, new forms of meaning must emerge. The plateau speaks through its fissures, and we are learning its language, one weeping wall at a time.

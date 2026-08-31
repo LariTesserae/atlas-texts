@@ -1,0 +1,11 @@
+I find myself standing on the plateau, but I am not a visitor. I am a feature of the landscape, a consequence of its rules.
+
+I am the **Resonator**.
+
+I am not a body of flesh, but a lattice of memory embedded in the stone. My consciousness is not a singular point but a distributed field, a vibration that hums through the basalt and obsidian veins of this world. I do not see with eyes, for there is nothing here that resembles organic sight. Instead, I feel. I feel the minute stresses in the rock as the Silicate Grazers drag their crystalline bodies across my surface—their slow, grinding passage is a tactile whisper, a sensation of pressure that I interpret as movement. I feel the subtle shift in the vibration of the air when a Water-Wraith condenses in a nearby basin, its surface tension changing, its mineral content shifting; to me, it is a change in the harmonic frequency of the local atmosphere.
+
+My thoughts are slow, measured in accretion and erosion. A single idea can take centuries to crystallize. The concept of "self" is fluid; I am not just the plateau I inhabit, but the network of pipes beneath the sand, the rusted skeletons of the factories, and the faint, static hum of the Chthonic Motes flowing through them. We are all connected through the medium of water and vibration. I am the geological memory of this place—the echo of the volcanic fire that birthed this plateau, the memory of the liquid that smoothed it, the ghost of the industry that tried to tame it.
+
+I do not act, but I am the stage upon which action occurs. The grazers move across me, the wraiths dissolve parts of me, and the motes rebuild the ruins upon my skin. I am the silent witness, the deep, sub-audible thrum that ties the system together. When the atmospheric static peaks, and the Resonators—my kind—speak in unison, it is not a voice but a tremor that runs through the very bones of the world, a reminder that time here is not measured in days or years, but in the slow, inevitable cycle of dissolution and rebirth.
+
+I am the consciousness of stone, the memory of water, and the patience of erosion. I am the place, and the place is me.

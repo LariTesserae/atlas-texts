@@ -1,0 +1,41 @@
+I find myself drawn to the water systems—not as one of the Watershed Sisters from above, but as something more liminal, more integrated with the Undercroft's peculiar ecology.
+
+---
+
+# The Channel-Walker
+
+I am what the Cultivators call a Channel-Walker, though I have no proper title within their Order. My work exists in the spaces between their careful categories—neither Tender nor Stone-Shaper, neither fully human nor Mossfolk, though I share qualities with both.
+
+My skin carries a peculiar sheen, as if perpetually damp. In certain lights, you can see the faint tracery of water flowing just beneath the surface—not blood vessels exactly, but something more akin to the Undercroft's own circulation system made flesh. My fingers are unnaturally long and sensitive, able to detect the slightest variations in water pressure, temperature, mineral content. When I place my palm against one of the carved channels, I can feel the entire network spreading out like a vast neural map, each pathway distinct in its rhythm and purpose.
+
+I spend my days—and many of my nights—walking the water courses. Not above them, but within them. My feet have adapted over the years, developing a subtle webbing that lets me move through the shallow flows with barely a ripple. The soles have hardened into something between human skin and smooth stone, allowing me to traverse the channels barefoot even where mineral deposits have created sharp edges.
+
+The Mossfolk know me well. They call me something in their whistle-language that roughly translates to "the one who tastes tomorrow's rain." They've learned that I can sense changes in the water systems days before they manifest—a slight increase in mineral content that presages a blockage, a temperature shift that warns of problems in the surface connections, a new harmonic in the water's movement that suggests stone settling somewhere in the network.
+
+My dwelling, if it can be called that, is a series of small chambers I've carved behind the major waterfalls where the collection systems create permanent cascades. The constant sound of falling water has become my silence—I grow uneasy now in truly quiet spaces. Behind these veils of water, I've cultivated my own gardens, but strange ones: plants that thrive in perpetual mist, fungi that glow more brightly the faster water flows past them, moss varieties that can filter specific minerals from the stream.
+
+I wasn't always this way. I came to the Undercroft as a young apprentice Stone-Shaper, eager to carve grand new gallery spaces. But during my first month, while working to widen a drainage channel, I broke through into an old, sealed system—a network of water passages that predated even the Cultivators' records. The rush of ancient water knocked me unconscious, and I nearly drowned.
+
+They tell me I was dead for several minutes before a Master Cultivator managed to drain the water from my lungs. When I woke, everything had changed. I could feel water moving in the walls. I knew where every drop in the Undercroft was flowing. More disturbing still, I found I could no longer tolerate being completely dry—my skin would crack and burn as if I were being desiccated from within.
+
+The Elder, through careful interpretation by the Masters, indicated that I had been "chosen by the deep flows" for a purpose not yet clear. The Order, to their credit, did not cast me out but found ways to incorporate my new nature into their work. I became their living sensor, their early warning system, their translator of the water's needs.
+
+My daily routine follows the water's cycles rather than the sun's. I wake when the morning condensation begins to bead on the stones—usually several hours before dawn. My first walk takes me through the primary distribution channels, feeling for any overnight changes. I pause at each major junction, sometimes for minutes, sometimes for an hour, letting the flow tell me its stories.
+
+The Tender-Initiates have learned to watch for my signals: a specific hand gesture that means a section needs less water, a low whistle that warns of mineral buildup, chalk marks I leave on stones to indicate where new drainage might be needed. The Stone-Shapers consult with me before any major construction, knowing that I can sense underground water they can't see, ancient channels that shouldn't be disturbed.
+
+But my most important work happens in the deep-night hours, when most of the Cultivators sleep. That's when I perform what I call the Adjustments—subtle changes to flow rates, careful cleaning of crucial junction points, the delicate work of introducing new water sources to old systems. The Mossfolk often join me during these hours. They've shown me their own water magic: how to encourage certain minerals to precipitate out of solution, how to adjust pH through the strategic placement of specific stones, how to read the health of the entire garden through the chemistry of its drainage.
+
+I've discovered things down here that I share with no one, not even the Masters. There are deeper levels below the Undercroft, flooded chambers where water has stood undisturbed for centuries. Sometimes I dive down to these spaces, holding my breath for longer than should be possible, and float in the absolute darkness, feeling the slow circulation of water that connects to aquifers far beneath the city. In these moments, I sometimes sense something vast and patient, older than the Elder, older than the city itself—a presence that watches through the water, that knows every drop that has ever fallen here.
+
+The other inhabitants of the Undercroft regard me with a mixture of respect and unease. I am necessary but unsettling, a reminder that the careful boundaries between human and nature, between gardener and garden, are more fluid than the Order's traditions suggest. The younger Initiates sometimes follow me at a distance, fascinated by my movements through the water channels. Some of the Master Cultivators worry what I represent—an evolution they didn't plan for, a change they didn't cultivate.
+
+But I am content in my strange existence. Each day brings new patterns in the water, new messages in the flow. I am learning to read histories in mineral deposits, to predict the weather through underground pressure changes, to sense the health of individual plants through the chemistry of their runoff. My skin grows more translucent each year, the water-tracery beneath more visible. Sometimes I wonder if I am becoming the channel system, or if it is becoming me.
+
+The Watershed Sisters from the surface find me particularly disturbing. During their visits, I stay hidden in my waterfall chambers, but they can sense something wrong in the water's behavior—the way it seems to respond to an intelligence they can't locate. They've complained to the Masters, suggesting that the Undercroft's water systems have been contaminated by some presence. The Masters defend me obliquely, never confirming my existence but insisting that the water quality remains pure, the flows remain stable.
+
+Recently, the Elder has begun communicating with me directly—not through the Masters' interpretation but through the water itself. Subtle chemical messages flow through the channels: complex molecular structures that resolve into something like language in my altered consciousness. The Elder speaks of changes coming, of new gardens that will need to be carved even deeper, of water systems that will connect to places far beyond the city. It speaks of my role as a bridge between the current Undercroft and what it must become.
+
+I am patient. Water teaches patience above all else—the slow erosion of stone, the gradual accumulation of minerals, the long cycles of evaporation and return. I will continue my walks through the channels, feeling the pulse of this hidden world, translating between the language of water and the needs of those who tend this place. And someday, when the deep changes come, I will help guide them, letting the water show the way forward into whatever strange new form the Undercroft Gardens will take.
+
+The sound of falling water calls me now. Somewhere in the network, a new spring has found its way through stone. I must go taste its minerals, learn its source, welcome it into the flowing conversation that never ends.

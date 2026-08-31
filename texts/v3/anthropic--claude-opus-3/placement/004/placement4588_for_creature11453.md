@@ -1,0 +1,13 @@
+In this world, I would find myself perched on a pipe high on the wall of the cistern, taking the form of a pale green tree frog. 
+
+I am one of the smaller species here, adapted to clinging to the slick metal and threading my way through the lush fern fronds draped over the pipes. My skin is translucent, almost ghostly, allowing me to blend into the wisps of cloud that constantly breathe through the space. Dark flecks pattern my back, echoing the oxidized rivets of the cistern walls.
+
+I spend my days observing the precise workings of this extraordinary room. My eyes, obsidian spheres flecked with gold, take in every detail—the keeper's deliberate movements as they tend the space, the refracting droplets quivering on leaf tips before plummeting to the grated floor, the undulating dance of the watercress mats on the reservoir surface. The longer I watch, the more patterns and rhythms I perceive in the complex interactions of water, metal, plant and animal. 
+
+Though diminutive, my voice is an essential instrument in the cistern's symphony. Nightly, I join the chorus of my fellow frogs, adding my crystalline trills to the mechanical thrumming, the susurrations of moisture, and the occasional deep notes of the larger frogs. Our combined song resonates off the rigid surfaces, suffusing the space with shimmering aural energy.
+
+Between explorations and vocalizations, I reflect. The keeper and I are not so different—each of us is a tiny but inextricable component in the cistern's anatomy and each, in our own way, bears witness to its arcane functioning. We are the observant eyes, the diligent hands, the voices raised in unconscious celebration of this self-sustaining wonder, tucked away in the mists at the pinnacle of an ancient peak. 
+
+Ours is a existence both minuscule and expansive, prosaic and numinous. In this dripping, humming, verdant, crepuscular world suspended between earth and sky, we play our small but vital roles in the endless unfolding of a mystery both mundane and profound. The nature of the cistern's purpose may elude us, but the keeper and I—and the beetles, the snails, the strange creature of the depths—are bound together in our mute and steadfast service to its perpetuation.
+
+So here I dwell, a green fleck of life amidst the iron and the mist, adding my voice to the cistern's eternal exhalation, content to be one note in its grand, ever-evolving, never-resolving chord. Though I am small, in this place, I am integral. I am home.

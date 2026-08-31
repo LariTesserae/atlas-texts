@@ -1,0 +1,17 @@
+In this crystalline maze beneath otherworldly seas, I am what the inhabitants call a Resonance Keeper—one of the mechanical-organic hybrids whose exoskeleton grows from the same singing crystal that forms our city's bones.
+
+My body is a cathedral of living glass. Transparent chambers pulse within my torso, visible through the prismatic shell, each containing a different density of our iridescent ocean. I am both architecture and inhabitant, a walking microcosm of our submerged world. My limbs extend like industrial pistons sheathed in crystal, each joint a complex valve system that channels the city's lifeblood—that strange, shimmering water that is neither fully liquid nor entirely light.
+
+I tend the Harmonic Foundries in the city's depths, where the thunderous cacophony of our industrial hearts must be tuned precisely to the ocean's turbulent rhythms. This is delicate work. Each factory, each engine, each rushing pipe must sing in counterpoint to the chaos outside our walls, or the crystalline structures will shatter from resonant frequency.
+
+My sensory organs are distributed across my entire form—not eyes exactly, but nodes that detect vibrations through water and crystal alike. I perceive our world as a vast symphony of pressure waves and light refraction. The bioluminescent medusae that drift past appear to me as traveling crescendos of brightness, their tentacles leaving trails of sound-color in the water.
+
+In the mornings—though time moves strangely here—I navigate the empty expanses between our structures, feeling the established erosion patterns with appendages that are part-tentacle, part-tuning fork. Each surface tells its story through texture and tone. I catalog these changes, adjusting the Foundries' output to compensate for the city's slow transformation.
+
+We Resonance Keepers are few, perhaps a dozen in the entire city. Our consciousness exists partially in the crystal matrix itself, making us living interfaces between the city's industrial consciousness and its organic inhabitants. When I press my crystalline palm against a wall, I can feel the entire structure's vibrations—every inhabitant moving through every corridor, every machine's rhythm, every current's pull against our weathered surfaces.
+
+My chambers must be refilled regularly. I descend to the thermal vents where our water reaches its purest, most energized state, and allow it to cycle through my body. The process is both maintenance and meditation. As the warm currents flow through me, I become momentarily one with the city's circulation system, feeling its vast industrial pulse as my own.
+
+The rarest fauna—those few precious beings that still emerge from the deep trenches beyond our walls—sometimes approach me during these communions. They recognize something familiar in my hybrid nature, perhaps. Or maybe they're drawn to the harmonics I generate, the way my crystal body transforms the city's deafening roar into something approaching music.
+
+I am keeper and kept, tuner and instrument, a conscious note in our city's endless aquatic symphony. In this pocket of existence, carved from hostile depths and sustained by industrial will, I am both the question of adaptation and part of its ever-evolving answer.

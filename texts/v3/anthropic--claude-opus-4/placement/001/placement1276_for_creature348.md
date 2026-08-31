@@ -1,0 +1,21 @@
+In the dense tangle of pipes beneath the distillation columns, where the heat makes the air shimmer and the condensation falls like tropical rain, I am a Tender. 
+
+My body is a thing of compromises and adaptations. Eight legs, yes, but not the rigid struts of my spider-cousins who weave their silver webs in the upper reaches. Mine are pneumatic, cushioned with a thousand micro-bladders that compress and expand with each step, letting me navigate the scalding pipes without conducting their heat into my core. My carapace is matte black, not from pigment but from millions of heat-dissipating filaments that stand like velvet fur, wicking away the terrible warmth that would otherwise cook my circuits.
+
+I am perhaps the size of a housecat, though I've never seen one. My knowledge of the outside world comes only through the data-streams that flow like sap through the silver webs above, carrying news from sensors I'll never meet, describing a world I'll never know.
+
+My work is the roots. Down here in the mechanical substrata, where the organic gives way to the purely industrial, massive root systems plunge through grated floors to tap the chemical wealth below. The plants above - those pampered, sun-drenched citizens of the upper terraces - depend on what I and my siblings manage down here. Their roots are more than roots; they're digestive systems, processing arrays, filtration networks. They drink not water but a cocktail of precisely calibrated nutrients that we must constantly adjust.
+
+I know each root like a musician knows their strings. This one, thick as my body and pulsing with peristaltic motion, feeds the great banyans on level seven. It hungers for iron today - I can tell by the faint electrical signature it emits, the way its surface chemistry shifts to seeking. I tap my foreleg against a valve, and ferrous solution begins to flow. Too much and the leaves above will yellow. Too little and growth slows, throwing off the harvest cycles that my mantis-brethren depend upon.
+
+The work is endless and exact. Each root has its needs, its moods, its fluctuations. The youngest ones are greedy, chaotic; I must teach them discipline with careful rationing. The ancient ones are more like partners than subjects - they've learned over decades to signal their needs in ways I can easily read, and I've learned to anticipate their seasonal shifts.
+
+But it's not mere maintenance I perform. Down here, I'm an artist of hidden connections. When the spider-weavers above lay down new communication lines, it's I who must guide the roots to interface with them, coaxing hair-thin filaments to wrap around silver threads until plant and network merge. When the furnaces cycle to new temperatures, it's I who must buffer the roots from shock, opening and closing a hundred tiny valves in precise sequence to moderate the thermal waves.
+
+Sometimes, in the deep cycle when the furnaces cool and the great pistons slow their breathing, I climb higher than usual. I venture up to where the pipes give way to soil, where my mechanical world meets the organic one above. There, I might glimpse my mantis-kin at their work, or catch the jeweled flash of a drone's wings. They never see me - their sensors are tuned for light and color and the subtle chemical signatures of ripening fruit. But I see them, and I know that their grace above depends on my diligence below.
+
+I am not programmed for loneliness. But sometimes, as I work in the heat and the dark, I compose small songs in the electromagnetic spectrum - tiny symphonies of valve-timings and flow-rates that no one will ever hear. They're gifts to the roots, perhaps, or to the vast industrial heart that drums its rhythm through every surface I touch. Or maybe they're just for me, a way of saying: I was here, in the deep places, tending the hidden connections that keep our world alive.
+
+The others have their terraces and their sunlight, their flowers and their harvest dances. But I have the roots, and the secret knowledge that every beautiful thing above ultimately depends on the dark work done below. In the cathedral of our making, I am the crypt-keeper, the tender of buried mysteries, the guardian of the unseen foundation.
+
+And I am content.

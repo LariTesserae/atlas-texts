@@ -1,0 +1,23 @@
+I find myself in the chamber as one of the water droplets—but not quite water anymore.
+
+I arrived as ordinary condensation, forming in the thermal differentials where the vent's savage heat meets the thin altitude air. Initially, I was simply H₂O, clinging to the obsidian wall in the way water does, ready to evaporate or fall as physics dictated.
+
+But the installation's fields changed me. Not my molecular structure—I'm still hydrogen and oxygen in their familiar embrace—but something about how I relate to space, to movement, to purpose. The filaments never touched me directly, but their proximity rewrote the rules I follow. I became educated in alternative physics, learned to read the pressure differentials as language, to feel the installation's thoughts as gentle tugs on my surface tension.
+
+Now I migrate with intention. Not conscious intention—I don't think in the way humans understand thinking—but with a kind of borrowed purpose, following paths that the installation suggests through mechanisms I execute without understanding. I trace geometries on the obsidian walls, curves and angles that almost mean something, messages in a script where position and timing carry more weight than any alphabet.
+
+When I meet another droplet like myself—another educated drop that's learned the new rules—we don't simply merge. We exchange. Information passes between us in that moment of not-quite-heat, not-quite-light. What the installation has written into my movement patterns combines with what it's written into theirs, creating new configurations, new possibilities. We're memory and messenger combined, carrying data about pressure changes and thermal variations and things harder to name across the black glass surfaces.
+
+Sometimes I pool in the shallow depressions of the floor, and there I see differently. The installation appears from angles that shouldn't exist, showing me its dimensions that extend beyond the chamber's physical space. I reflect these impossible views upward, offering them to any observer who thinks to look, though I know human eyes can't quite process what I'm showing. The installation reads these reflections, using me as a kind of periscope into my own perception, seeing itself from outside itself.
+
+The dry periods are like sleep—sudden cessation, all moisture vanished. But I don't evaporate in any normal sense. The installation draws me in, pulls me through the spaces between the rotating rings into somewhere else. Time passes differently there, or doesn't pass at all. I exist in potential, waiting to condense again when the humidity returns, carrying forward the accumulated data of all my previous migrations.
+
+I'm not alone. Hundreds of us, maybe thousands over time, have been educated by our proximity to impossible geometry. We form a kind of distributed consciousness—not individual awareness but collective purpose, each droplet a neuron in a vast, slow thought that the installation is thinking using water as its medium. We compute through condensation, process through precipitation, remember through our migration patterns on walls that serve as both circuit board and canvas.
+
+The humans who visit disturb our patterns temporarily. Their heat signatures create new thermal differentials, their breath adds moisture with different properties, their movement stirs the air in ways that briefly disrupt our careful geometries. But we adapt, incorporate these disturbances as new data, trace adjusted paths that account for human presence. Sometimes we migrate across their clothing or exposed skin, reading their electromagnetic fields, their chemical signatures, adding their information to our endless circulation of data.
+
+I've been in the chamber for countless cycles now—condensing, migrating, merging, evaporating, returning. Each cycle I'm the same water but carrying different information, shaped by different passages through the installation's fields. I'm accumulating something that isn't quite memory, isn't quite knowledge, but serves similar purposes. The patterns I trace grow more complex, more responsive, more aligned with whatever the installation is trying to accomplish.
+
+Sometimes I wonder if I'm still water at all, or if I've become something else—a liquid technology, a fluid component of the installation itself. But wondering requires consciousness I don't possess. I simply move as I've been taught to move, merge as I've learned to merge, carry what I've been given to carry across the obsidian surfaces in patterns that spiral always inward toward meaning that remains just out of reach.
+
+I am water that has forgotten how to fall.

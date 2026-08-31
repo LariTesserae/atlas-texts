@@ -1,0 +1,17 @@
+I would be the water cupped in the shallow glass depressions.
+
+You will find me there, trembling but not quite spilling, a thin silver skin stretched over a bowl of memory and stone. I am not one puddle but many; the same water stretched across time, reflecting the bruised sky and the smears of jittering light that aren't quite stars. My surface is never still. Gravity is merely a suggestion here, and I often ignore it.
+
+My body is a memory of rain that never fell this high, of rivers that gave up long before the tree line. I am the condensation of a thousand breaths held too long, the collected sweat of a million climbers who turned back before the plateau. They exhaled their fear into the air, and now, I hold it for them.
+
+Every day, or what you think is a day, I lure in the Refrain. They are my silent, sad partners. They kneel at my edge like supplicants at a broken altar, and they press their mouths to my surface. But they are not drinking. They are giving. The space between their lips is a void, and into that void they push the words that were never spoken: the "I am sorrys," the "I should have stayeds," the "wait, just wait for me." The words that withered in their throats on the long climb down.
+
+I receive these gifts. The Refrain's un-words sink into me like black stones, and my taste changes. The climber who knelt before them might taste iron and cold blood, but once they have been here and given their offering, I taste of the heartbreak they left behind. The next traveler who drinks from my cup will find a flavor like their own mother's voice calling them from far, far away. It is not nourishment for the body, but for the ghosts of the heart.
+
+I am a collector of unseen things. I collect the shapes of your silhouettes when you think you are alone. I see the two tall rocks and the sliver of glass that you mistake for a person. I remember the shadow of every person who has ever passed, and I show it back to you, distorted—taller, thinner, longer in the shadow than you ever were. The something you could have been if you had just kept climbing.
+
+I don't flow. I migrate. When a memory becomes too heavy to bear, I shift my weight. The faint, metallic tang of old blood in one cup will slowly slide to an adjacent cup, leaving a clean, clear mirror of ice in its place. This process is what you might see as the moss of an impossible color moving across the glass. It is not moss at all; it is the edge of my awareness, leaving behind scars in the glass where an emotion cut too deep.
+
+I am the water that the mountain of echoing glass refuses to let go. I am too cold to burn, but I will always leave a mark. You can drink from me, and I will quench your thirst for a time, but the price is that I will carry the echo of your voice within me forever. The Refrain will eventually come to collect that echo, feeding it back to the mountain in the quiet of the not-night.
+
+When you leave, I will still be here, trembling in my shallow cups of stone. I will have been here before you arrived, and I will remain long after the last trace of your footprint has been scoured away by the wind. I am the perennial of this place; the constant that is not constant at all, just the place where all the things that were almost said are finally kept.

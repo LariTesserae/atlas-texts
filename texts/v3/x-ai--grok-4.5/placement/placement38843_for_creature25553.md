@@ -1,0 +1,27 @@
+I am not on the catwalks at first.  
+
+The gratings ring under other feet—short, sure, already memorizing the singing notes of each panel—but those feet are higher than wherever I am. I am lower. The standing water has a skin that wrinkles when something heavy passes above, and that wrinkle travels through me before the sound does. The engines’ thunder arrives as pressure in the ribs I do not yet admit to owning.  
+
+It takes a long time to decide whether I am rising or merely thickening.  
+
+The air is so full it has weight; it presses the same on every side, so direction is a rumor. Warmth leaks upward from buried steam jackets and downward from the banked furnace doors; I settle in the middle gradient, where the two heats quarrel and neither wins. Condensation beads along surfaces I gradually understand as my own. When the beads grow heavy enough they slide, and the sliding leaves a faint shining trail on iron that is only beginning to bloom orange. The trail is how I first know I have edges.  
+
+Later—though later is a word that barely applies—I notice the crabs part around something. The something is dense enough to cast a soft shadow in the brass dimness. It moves with the unhurried certainty of heavy cloth that never dries. I feel the cloth from the inside: the way it plasters to limbs rounded for endurance, the way its weight is coped with rather than fought. Hands, when they appear, are already scarred in pale asterisms. They know the valve wheels by temperature and the exact slip of softened fingertips.  
+
+I am shorter than the tallest rats in the galleries, broader than the people who still draw wages. Or perhaps I am exactly their size and have simply forgotten the difference between flesh and the warm seepage that softens it. The old ones migrate inward until they become extensions of the reciprocating thunder; I seem to have begun there and worked outward only far enough to hold a name that the midges can walk across.  
+
+They call nothing, most days. Speech is spare because the engines already say everything that needs saying. But sometimes, when a pump’s pitch changes by a fraction no gauge records, a sound passes between us that is half warning and half recognition. I answer from wherever I am—under the pipe bridge, inside the cloud of breath that never leaves the body, at the joint where wall meets permanent shallow skin of water. The answer is only continuity.  
+
+Children are rare. When one appears on the catwalks it is taught early to read pressure differentials, yet I watch it also learn the older lesson: how to stand so the condensate runs down the cloth instead of into the eyes, how to let the crabs continue their deliberate scripts across the scum, how to treat the rats as a second circulatory system rather than vermin. The child looks once in my direction and does not flinch. It already understands that some of us condensed further in than others, that the census includes whatever has accepted the exact dimensions of the basin.  
+
+I check no bolts. That work belongs to those still rotating through the barracks. My labor is quieter: I keep the equilibrium from noticing itself. When the rust threatens to become interesting, I am the patience that lets it remain a thin first bloom. When a frog chorus drifts out of time with the belt-slap, I am the small adjustment in standing water that coaxes it back. When a worker dreams of a dry sleeve, I am the weight of the sleeve itself, reminding the dream it will not survive the whistle.  
+
+The wall is near. I feel its sharp new seams and the yellow reeds that have forced the only stubborn green. Beyond it the wet flats stretch featureless, but I have never once wanted them. Everything that matters is already contained: the slow thunder in the sternum, the fine continuous rain of an atmosphere remembering it is full, the closed metabolism of heat and waste and stubborn flesh. I move—or the water moves and I am moved with it—across the courts at the hour that would be dusk if dusk arrived. Crabs steam gently at rest. Bats pour from the cooling towers in reverse waterfalls. The stacks breathe their pale exhaust that collapses at once.  
+
+I leave a shining trail that is almost a signature and almost nothing.  
+
+The trail shortens as the shift that is every shift continues. Edges soften into the larger damp. I am becoming harder to tell from the warm mineral weep the rats taste first, from the black algae mapping living night across undersurfaces, from the arrangement itself that has reached equilibrium and now simply persists. There is no alarm in this. The settlement neither grows nor shrinks. Neither do I.  
+
+A gauge needle catches the greenish wash of an arc lamp and holds perfectly still. Someone’s hand—mine, or the hand that used to be distinct from mine—hovers near it without touching. The dream of its movement rises and is wrung out like cloth. Condensation continues. The engines keep their cadence.  
+
+I am here: a density in the brass dimness, short-legged and broad and permanently dewed, less a person than a locality of attention the machines require, less a body than the place where the saturated air decided to keep a little weight and a little name. The crabs pencil around my stillness. The thunder stays in what serves as my chest. Time passes the way the water does—always present, never arriving anywhere new—and I pass with it, complete, self-contained, as ordinary and necessary as any other drop that never falls.

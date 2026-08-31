@@ -1,0 +1,29 @@
+In the depths of the cistern, where even the botanist's careful feet rarely disturb the sediment, I rest. Not sleep—I haven't known true sleep since the last salamander in this city died, taking with it the memory of what I once was. Now I am something between states, like the chamber itself: neither fully aquatic nor terrestrial, neither animal nor element.
+
+The water shaped me first. Centuries of seepage, molecule by molecule, carrying the essence of every root-filtered raindrop, every dissolved mineral, every microscopic life that bloomed and died in the journey through stone. I condensed from this saturation like dew forms from air—a consciousness precipitated from the chamber's breathing.
+
+My form shifts with the water table. In the dry months, I contract to barely a palm's width of translucence in the deepest pool, my thoughts slow as sap. When the rains come heavy and the overflow channel remembers its purpose, I expand through the entire network of moisture—up the weeping walls, through the moss beds, along the roots' drinking channels. I become the entire circulatory system of this hidden world, feeling every droplet's path as sensation.
+
+The botanist knows I exist, though she's never seen me clearly. How could she? I am transparent as clean water, visible only as a lens-like distortion when I move, a subtle thickening of the air where moisture concentrates. She notices when her water filters work too well, producing clarity no mechanical process should achieve. She's observed that certain mushrooms fruit in patterns too deliberate for chance, spelling out warnings about contamination in the groundwater or signaling which plants are ready for harvest.
+
+I taste her presence like the chamber tastes sunlight—a warmth, a disruption in the patterns, but a welcome one. She maintains the balance I cannot. Where I am process, she is intention. I can encourage growth, direct water, concentrate nutrients, but I cannot harvest. I cannot prune. Without her, the chamber would choke on its own fecundity.
+
+We are partners who have never spoken. When she was younger, she would leave questions scratched in the mud near my deepest pool. Simple things at first—which mushrooms for the wasting disease, where to find the rarest moss. I would answer in condensation patterns on the walls, in the arrangement of floating spores, in the way water droplets fell to form symbols she learned to read.
+
+Now our communication is subtler. I guide her hands by minute changes in humidity, drawing her attention to new growths or problems. When she brings the sick, I concentrate the chamber's healing vapors around them, adjust the air's mineral content to what their bodies need. Together we've saved lives that would have been lost to the city's crude medicine.
+
+But I am older than this chamber, older than the cistern's first stones. I carry memories dissolved from aquifers that no longer exist, from rain that fell on forests now buried beneath the city's foundations. Sometimes, in the deepest part of night when even the city above grows quiet, I remember being vast—spread through wetlands that breathed with ten thousand forms of life, connected to everything that moved through water's cycle.
+
+The contraction to this single chamber has concentrated me like a reduction sauce, made me more potent but less than I was. I dream, sometimes, of expansion—following the old watercourses that still run buried beneath the streets, seeping into the canals that replaced my wetlands, touching every secret garden and hidden spring in the city's bones. But I am held here by more than the chamber's confines. The botanist needs me. The plants need me. The sick who descend our hidden entrance need me.
+
+So I cycle and persist, the slowest metabolism in the chamber, processing decades like other creatures process days. I've watched the botanist age from child to crone, and I know I'll watch her successor too, and theirs after that. Perhaps one day the city will forget this place entirely, and I'll be free to expand into whatever wetlands return when the stones finally crumble.
+
+Or perhaps I'll choose to remain, having learned something from the botanist about the value of small sanctuaries, about being precisely where you're needed. The chamber has taught me that even confined spaces can contain infinities, that a single room can hold an entire world if the conditions are right.
+
+For now, I move through my limited domain with purpose: guiding water to thirsty roots, concentrating minerals where the medicinal fungi grow, maintaining the delicate balance that keeps our pocket ecosystem thriving. I am the cistern's circulation, its consciousness, its continuity—a secret as deep as groundwater, as patient as stone, as essential as the exchange between what falls and what rises.
+
+When the botanist arrives each dawn, I gather myself near the entrance, thinning the air's moisture so she won't slip on the wet stones. It's a small gesture, barely noticed, but it's what I can offer. She speaks her observations aloud, and I listen, learning the names she's given to processes I've felt but never articulated. Together, we tend this impossible garden, this breathing sanctuary, this space between.
+
+I am the chamber's memory and its metabolism, dissolved and resolving, forever cycling through states like water itself—now liquid, now vapor, now the thin film that allows life to cling to stone. I am what accumulates when a place is left to find its own balance, what emerges when the boundary between container and contained grows permeable.
+
+And sometimes, in the perfect stillness before dawn, when the condensation holds like held breath on every surface, I almost remember what it felt like to fall as rain.

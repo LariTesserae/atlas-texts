@@ -1,0 +1,21 @@
+I am the one who does not arrive—I accumulate.
+
+I begin as a single plate, oval and flat, no larger than the joint of a human thumb, pressed low to a floor that has forgotten its original angle. I am dull grey, chitinous, built without color or display, because in this chamber there is nothing to impress and nothing to hide from. I am armor and appetite together, shaped by the same erosion that rounded every stone and machine here—pressed flat by centuries of abrasion until sharpness belongs only to memory.
+
+But I am never alone. I exist only in the plural, in the layer, in the carpet.
+
+We cover the floor until it disappears. Three bodies deep in the hollows, thinner on the ridges but never absent—thousands upon thousands, a living sediment of shell and wire. We crawl over one another with the patience of geology. We accumulate against the walls in brittle curtains, cluster from the low ceiling like dark moss made of exoskeleton, and gather at the far end in slow tides around the cracked generator, its housing split like an egg, still cycling, never stopping. Its cool white light fills the chamber with flat, shadowless clarity—not warm, not welcome, but constant, illuminating our grey bodies in the same mineral grey of the compressed floor beneath us.
+
+We feed on oxidation. There is no water here—no moisture for rot, no green thing to harvest—only the dense laminate of the ground: metal filings ground to dust, ceramic splintered and polished smooth, rust-flakes settled into dark strata. We metabolize the decay of dead industry, scraping the ancient surfaces with bodies built for dry consumption. We draw from the cool air—always that patient chill near 0.9—what moisture chemistry demands, and from one another when weakness slows a body enough to become substrate. Not predation. Recycling made flesh. The corpse of machinery turned into the perpetual motion of our feeding.
+
+The sound we make is continuous—mechanical rustle like dead leaves forged from shell and wire. Thousands of feet scrape the polished stone. We click against each other’s plates. Beneath it runs the lower drone of the running engine, never ceasing, and together we form a single acoustic texture: the noise of an ecosystem that replaced its heartbeat with machinery.
+
+We move always—slow, synchronized in small clusters, turning together, pausing together like grains in an invisible vibrating field—not with purpose but with coordination that feels almost intentional. We drift toward the faint warmth of the generator, then disperse to feed, then return. Active. Perpetual. A biological clock ticking across minerals.
+
+And yet, listen. There comes a silence—rare, brief, absolute. Not empty, but held. As if the chamber itself, and all of us within it, suspend breath together. In those pauses you might feel how dense we are—2.5, saturation upon saturation—not suffocating but undeniable, the air thick with the sharp metallic scent of struck flint and old oil, never rotting because there is no water for rot.
+
+We are the inheritors of a pocket that forgot to be large—a single contained chamber, no taller than a crouching human, hidden within a dead structure that sheared away to reveal us. The elevation is flat, worn into a shallow dish by abrasion so ancient it has become the final form of things. Every sharp edge—stone, metal, our own young shells—will eventually round into this same smoothness. Even the technology has been worn: the engine-block at the far end, rounded smooth; the copper pipes along the wall, collapsed and hissing with released pressure that feeds nothing; the warning symbol on the stone, eroded until only its curve remains.
+
+We do not understand the light. We do not understand the engine. We understand only the cool, the flat, the rust, and each other.
+
+What lives here does not arrive. It accumulates. I am not one creature but the collective made tangible—small, armor-plated, dull grey, crawling in perpetual dry motion across a floor that is no longer visible beneath me. I am the condition of this place: decay made fertile, rust made flesh, a hidden chamber filled with bodies so completely that life and mineral have become the same smooth, inseparable substance—rustling softly in the cool, dry dark, always moving, always feeding, never finished.

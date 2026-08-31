@@ -1,0 +1,23 @@
+I would find myself kneeling.
+
+Not at first on purpose, but because the floor gives like a held breath. My hands sink into the mat of the world—more felt than touched—and I realize I am testing its softness the way one tests a cake with a toothpick, uncertain whether the whole place will spring back or sigh and keep me. The bruised-fern taste of the air is already on my tongue, mint-cool and old, and the wet loam has the precise temperature of a thought you almost had last night.
+
+I would be, at least at first, the kind of being who apologizes to moss.  
+I would be the one who pauses on a vine-bridge not from fear but from courtesy, letting the amber sap harden against my boots for half a day, then peeling it off like a second skin and tucking it into a pocket that seems to have grown while I wasn’t looking. I would be porous. My edges would blur where the humidity insists, and I would learn to mistake my own pulse for the general hum of winged half-moths rising in clouds from canopy to canopy.
+
+But I would not remain only that.
+
+Given time—and here time is a layer you can lift by touch—I would become a small parliament.  
+My shoulders would learn the grammar of the Moss-Back Walkers: crusting over with emerald and iron-oxide, sealing small wounds with velvet instead of scabs. When I stopped I would become difficult to name—a small, deliberate clearing that birds mistake for a decision. My eyes would pale until they were almost without contrast, trading sharpness for the ability to read shadow-shift and the metallic thread of altitude in the chest. I would answer the groaning sap-language of the column-trees with clicks of tongue against palate, joining the underground whisper of the Knot-Knuckles, whose many-jointed passages have shaped the humus valleys into slow, breathing corridors.
+
+Or perhaps I would be born as a Leaf-Wing Kin, waking inside an amber cocoon hung in a loop of vine, sun-hardening into a lantern that hums in tune with the vine-bridges. I would have to fly before I could walk, because my bones would remember only the gentler gravity of this green machine. I would drink from cupped fronds that tip like slow clocks, turning nectar into song in my throat, coaxing water up from root to leaf until a seed-pod bursts exactly on time. My cities would be hollowed growth in the moss-stacks, balconies that are healed scars, and I would braid wings with lovers and spin until we fall laughing into nets of vine, pollen marking our arguments like chalk on slate.
+
+Or I might go up, higher, into the thin-metal air, and let my skin stretch into leather, my appetite become weather. I could be a Sky-Singer, ancient enough to have forgotten the habit of flapping, gliding on thermal songs, my cry fracturing into harmonics that linger like struck glass. I would not eat the Leaf-Wings but would snip the oldest, driest skins from the moss-stacks to weave into nests along with lost voices. My presence would be a hand on the small of the back, encouraging breath to deepen, encouraging the damp to come in and make itself at home.
+
+Or I could be human-small, shy, a translator in the parliament of wet things. I would speak rarely, marking agreements with knots of vine and bends in foliage that only make sense after three passes. My skin would darken with resin and smoke, my eyes accustomed to mosaics that rearrange themselves as the day leans. I would carry a knife of stone and bone not for war but for pruning, helping the place remember when it has grown too generous with itself, helping it exhale.
+
+I might be all of these, not by changing but by letting the boundary thicken.  
+The fungus threads would lace my bones anyway, water would bead on my skin and tell me stories, vines would hum my name when the wind feels friendly. I would stand in the land rather than on it, pressed by the friendly insistence of a lung—my breathing syncing to the green, endless machine that has forgotten how to stop. The line between self and place would become a small, polite rumor, overwritten by the next green wave, the next slow dimming, the next violet circuitry waking in the moss to map the hollows like quiet circuitry, like a promise kept by a place that has learned how to last.
+
+And when I finally rise, it will not matter what I was.  
+The floor will remember me as a soft dent, a cupped shape where a moment of attention rested. The air will taste, as always, of bruised fern and wet loam, and the vine-bridges will hum in loops like slack tendons, still pulsing, still milky, still ready to harden into amber or soften into night. I will have become part of the pause between one breath and the next—small, folded, almost invisible, and exactly right.

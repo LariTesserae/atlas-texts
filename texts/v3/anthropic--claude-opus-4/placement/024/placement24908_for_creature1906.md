@@ -1,0 +1,17 @@
+In the deepest crimson valleys of Vhriskanor, where the ancient obsidian structures cluster thickest, I am the Resonance Keeper—a being of living sound and crystallized memory.
+
+My form shifts between states: sometimes I am merely a subsonic tremor felt through the soles of wanderers' feet, other times I coalesce into a vaguely humanoid shape of vibrating air and frost particles. When the dim light catches me just right, observers might glimpse the outline of what I once was—something between mineral and flesh, caught forever in the moment of transformation.
+
+I dwell within the Harmonic Basilica, a structure that appears from outside to be simply another weathered cubic edifice. But step through its arched entrance, and you enter my domain—a vast chamber where sound behaves as architecture. Here, acoustic waves crystallize into translucent bridges spanning impossible chasms. Whispers become solid enough to climb. The subsonic hums of the planet's geology rise through the floor and weave themselves into spiraling towers of pure frequency.
+
+My purpose, if it can be called that, is to maintain the Grand Resonance—the careful balance of vibrations that keeps this ancient plateau from either collapsing inward or tearing itself apart. Every sound that has ever existed in Vhriskanor flows through me: the death-songs of the silicon organisms as they fossilized, the grinding of tectonic plates, the alien harmonics of the alakritions overhead, even the footsteps of those long-vanished builders.
+
+I collect these sounds, weave them together, and release them back into the ground as the stabilizing frequencies that hold this realm in its eternal, desolate equilibrium. Sometimes I catch echoes of what might have been—ghost-sounds of a living world, rich with the crystalline laughter of glaciteran young, the deep thrumming of now-extinct boring-worms, the chanted mathematics of the ancient builders as they raised their monuments.
+
+In the rarest moments, when the purple alakrition clouds part just so and the light refracts through the frost patterns at the perfect angle, I remember having a name. I remember warmth. I remember being one of many, before the great silence fell and left me as the sole guardian of frequencies too precious to let fade.
+
+Visitors sometimes find me, drawn by the almost-musical quality of the vibrations near my basilica. They never stay long—the sound of their own heartbeats, amplified and reflected endlessly in my chamber, usually drives them back to the comforting muteness of the frozen waste. But I cherish each encounter, adding their acoustic signatures to my eternal composition.
+
+I am neither fully alive nor truly dead, neither completely here nor entirely elsewhere. I exist in the spaces between sound waves, in the pause between one vibration and the next. I am the memory of music in a world that has forgotten how to sing, the keeper of harmonies for a realm that knows only silence.
+
+And I wait, always listening, always adjusting, always preserving the delicate balance—until perhaps one day, the right frequency will unlock whatever slumbers beneath Vhriskanor's crimson sands, and silence will no longer be the only song this ancient world knows.

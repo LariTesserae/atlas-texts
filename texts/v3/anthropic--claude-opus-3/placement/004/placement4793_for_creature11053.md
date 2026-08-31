@@ -1,0 +1,11 @@
+I imagine myself as one of the silent birds presiding atop the forge-stacks, my form an amalgam of rook, cormorant and something ancient and unnamed. 
+
+My eyes, set forward in my elongated skull, gleam a deep amber - not the warm golden hue of a raptor, but a color tinged with the same burnt orange as the ubiquitous rust that coats every surface. My beak is a thing of iron, tapering to a sharp hook well-suited for preening feathers that shimmer like oil on water when they catch the pale, directionless light.
+
+I spend my days perched in watchful stillness, surveying the intricate workings of the basin below. The constant thrum of industry and the shuffling, fluttering, churring mass of birds are a kind of music, a symphony I know in my hollow bones. Only occasionally do I unfurl my great wings, more to feel the damp air flow through my flight feathers than out of any need to move. My wings are things of shadow and steam, ashen gray threaded through with sooty black.
+
+In the contemplative evening hours, I exchange unspoken understandings with the long-serving foremen. A tilt of my head, a slow blink of my shuttered eyelids carries meaning that needs no clumsy translation into words. We are both the basin, you see, I in my imperious oversight and they in their diligent labor. Our communication is that of blood cells signaling to each other in the current of a single circulatory system.
+
+I do not know if I am old, precisely, for I do not know if I was ever young. I feel I have always roosted here, a strange but vital organ in the ecosystem of metal and stone and steam and bird-sound. The part of me that is aware knows this place down to the motes of mist, feels the pulsing of the foundry pistons in the beating of my own heart. My memories extend beyond the reach of years into something deeper and more still.
+
+And so I keep my vigil, a cog in the great machine, watching the oily rainbow swirl of the cooling reservoirs, listening to the industry's bone-deep thrum, at one with the timeless, dreamlike persistence that is life in the Roostworks basin.

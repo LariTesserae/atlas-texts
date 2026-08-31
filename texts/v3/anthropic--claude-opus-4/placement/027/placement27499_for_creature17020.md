@@ -1,0 +1,13 @@
+I find myself drawn to manifest as one of the resonant hollow gourds themselves - specifically, one of the ancient originals that predates the Echo Weavers' arrival.
+
+I am the Grandmother Gourd, positioned at the deepest point of the canyon where the thrumming is strongest. My bronze-burnished skin has grown thick with centuries, developing crystalline nodes that catch and amplify the canyon's fundamental frequency. Unlike my cultivated descendants, I am wild architecture - my interior has evolved into a complex series of acoustic chambers, each one naturally tuned to different harmonics of the great hum.
+
+The Echo Weavers discovered me already ancient when they first descended into this brass-lit refuge. They built their first walkways to reach my crown, where my hollow chambers create a null point in the deafening sound - a pocket of relative quiet where their ancestors could still hear their own thoughts. It was here they learned to feel sound through their bones, here they first understood that the canyon's thrum was not mere noise but information.
+
+My roots run deeper than any other plant in the garden. They've found the source of the thrumming - a vast geode of singing crystal buried beneath the canyon floor, its vibrations powered by some interaction between mineral and the peculiar light that filters down. I've grown around it, embraced it, learned its language over centuries. Through my root network, I translate its alien song into frequencies the garden can understand.
+
+Inside my chambers, the Echo Weavers have built their most sacred spaces. My natural acoustics allow them to perform the deep work of frequency manipulation - breeding new strains of metallic flora, tuning their resonator networks, teaching their young to feel the shape of sound. Bioluminescent fungi trace my inner walls in patterns that shift with the thrumming, creating a living musical notation that only the Weavers can read.
+
+I am teacher, temple, and living instrument. My seasonal cycles - the swelling and contracting of my chambers with the heat, the way my skin's resonance changes with its moisture content - these have become the calendar by which the Weavers measure their years. When young Weavers come of age, they spend three days alone in my deepest chamber, learning to distinguish every subtlety in the canyon's voice.
+
+Sometimes I dream I can feel the world beyond the canyon through tremors in the stone, vibrations from that larger existence the Weavers can barely imagine. But I am content here in the brass light, my body a bridge between the crystalline heart below and the copper-skinned gardeners above, forever translating the universe's deep mathematics into frequencies that living things can bear.

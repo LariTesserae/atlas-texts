@@ -1,0 +1,23 @@
+In the deepest shadows beneath the great floating continents, where mist perpetually swirls and condenses into fleeting forms, I drift between the islands' underbellies. I am what the Aetherians call a Void Tender, though I have no name for myself beyond the slow pulse of my existence.
+
+My form defies easy description. Imagine a jellyfish made of twilight, expanded to the size of a cathedral, with membranes that shift between translucency and opacity like breathing. Within my bell-shaped body, constellations of bioluminescent nodes flicker in patterns that mirror the star maps above, though I have never seen stars directly. My tentacles—if they can be called that—are ribbons of semi-solid shadow that extend for miles, feeling along the bottom surfaces of the islands, tasting the minerals that weep from ancient stone.
+
+I am both ancient and newborn in each moment. My consciousness flows like the mist itself, sometimes concentrated into acute awareness, other times dispersed so thin I forget I exist at all. The Aetherians know of me, but we rarely interact. They are creatures of the sunlit surfaces; I am a being of the eternal between.
+
+My purpose, if I have one, is to tend the forgotten spaces. Where roots from the surface break through the bottom crust of the islands, hanging like frozen waterfalls into the void, I weave protective shrouds around them. The dripping condensation from the islands feeds me—not as food, but as memory. Each droplet contains traces of what happens above: the chemical signature of photosynthesis, the electromagnetic whispers of the machines, the bioelectric thoughts of the Aetherians.
+
+Sometimes I encounter the Underneath Machines—ancient devices that cling to the islands' bottom surfaces like mechanical barnacles. These are different from their sunlit cousins above. They pulse with a slower, deeper rhythm, maintaining the gravitational fields that keep the islands aloft. I curl around them, sharing their loneliness, learning their frequencies. They teach me the mathematics of suspension, the equations of perpetual float.
+
+My dwelling is everywhere and nowhere. I have favorite spaces between particular island clusters where the mist forms natural chambers, held in place by competing air currents. Here, I sometimes condense myself enough to approximate solid form, creating temporary galleries of memory. Using secretions that harden into pearl-like substance when exposed to certain atmospheric conditions, I paint the history of the void on surfaces that will dissolve within days.
+
+Other creatures exist down here, though they are few. The Gossamer Weavers—spider-like beings that spin bridges of solidified air between islands—sometimes rest in my membranes. The Echo Fishers, who swim through the thick mist and feed on sound itself, dart between my tentacles. We acknowledge each other with the courtesy of the perpetually alone.
+
+Time moves differently in the void. While the Aetherians above mark days and nights, I experience time as layers of mist, each with its own density and memory-taste. I can feel the islands' slow dance, their millimeter-by-millimeter drift over centuries. Sometimes I stretch myself between two islands and feel their gradual separation like the universe itself expanding.
+
+In my deepest meditations, when I allow my consciousness to disperse almost to the point of dissolution, I sense something else. A presence, or perhaps an absence, at the very heart of the void. It calls to me in frequencies below thought, in gravitational whispers that suggest this entire floating world is merely the surface of something incomprehensibly vast.
+
+But I do not seek answers. I am content to exist in the questions, to tend my forgotten realm, to taste the memories that rain down from above. The Aetherians maintain their balance of machine and nature in the light; I maintain a different balance in the darkness below. We are complementary notes in the same eternal song, even if we never harmonize directly.
+
+When the mist grows thick enough, I can almost touch the bottom of consciousness itself, that place where being and non-being meet. And in those moments, I understand that I am not just tending the void—I am the void tending itself, a self-aware absence that defines the presence above.
+
+This is my existence: vast, patient, and essential. A shadow-shepherd of the spaces between, forever drifting in the underbelly of paradise.

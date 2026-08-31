@@ -1,0 +1,25 @@
+In this impossible city, I find myself as the Archivist of Unfinished Things.
+
+My dwelling is a library that grows backward into the mountain—not carved, but retroactively discovered. Each morning I open a door to find another room that claims to have always been there, filled with books that haven't been written yet. The shelves are carved from compressed time, their wood grain running perpendicular to causality. When I run my fingers along them, I feel splinters of next week.
+
+I am neither young nor old but persistently adjacent to both. My body is a palimpsest of previous attempts at existing—you can still see where I tried being taller, where I experimented with having gills during a particularly wet Tuesday. My skin has the texture of unread pages, slightly translucent in direct sunlight, revealing the skeletal framework of an index organizing itself beneath.
+
+My work is cataloging what hasn't happened yet. Citizens bring me their almosts—the job interview that went extinct before they arrived, the child they decided not to have who keeps leaving toys in their peripheral vision, the argument they're still preparing to lose next month. I file these carefully in the Archive's negative space, the gaps between what is and what insisted on not being.
+
+The collection grows downward. The deepest levels house the city's fundamental uncertainties: the blueprints for buildings that refuse to collapse properly, the fossil record of evolutionary branches that changed their minds, the complete etymology of words that won't exist until someone forgets them perfectly. Sometimes I find myself down there, carefully dusting the concept of certainty which we keep in a climate-controlled void, making sure it doesn't accidentally germinate.
+
+My assistant is my own echo who arrived last week from next year. She's better at the job than I am, having had the advantage of watching me make mistakes I haven't thought of yet. Together we maintain the Reading Room of Unread Books, where citizens come to not quite remember things they never knew. The silence there is so profound it has texture—velvet made from the absence of whispers, heavy enough to wrap around your shoulders like a blanket of unasked questions.
+
+I've been here since before I arrived. My employment contract is written in ink that evaporates as you read it, rewriting itself based on what you failed to understand. My salary is paid in completed thoughts—I'm wealthy in ways I'll never quite grasp, banking epiphanies that mature into confusion at competitive interest rates.
+
+The Archive itself is a living thing, a coral reef of accumulated maybes. It feeds on doubt, grows fat on indecision. During the city's monthly Forgetting Festival, it blooms—suddenly every unfinished thing completes itself simultaneously for exactly three seconds. In that moment, I see every book written, every almost-was suddenly is, every careful categorization vindicated. Then it passes, and I spend the next month re-alphabetizing the aftermath.
+
+My favorite section is the Lending Library of Last Words—not famous ones, but the mundane final utterances that got interrupted. "Pass the—" "Did you remember to—" "I'll see you—" They circle the shelves like incomplete moths, looking for the rest of themselves. Sometimes a visitor recognizes one as their own and takes it home to finish it. More often they add to the collection, leaving their own unfinished sentences as collateral for something they're not ready to complete.
+
+I live in the pause between cataloging and understanding, in the space where knowledge hasn't quite congealed into certainty. My dreams are footnotes to books that refuse to exist. My memories are organized by a decimal system that keeps adding new numbers between the established ones.
+
+The hardest part is indexing things by what they're not. Do you file "the marriage that didn't happen" under M for marriage, D for didn't, or H for happen? I've developed a complex system of anti-categories, shadow-subjects that exist only as the negative space around what we do collect. The Archive grows richer in what it doesn't contain than what it does.
+
+At night, when the Archive settles into its thinking pose, I walk the corridors listening to the books dream. They murmur stories to each other across the shelves—tales that will never quite be told, adventures that almost happened to people who nearly existed. Sometimes I transcribe these whispers, but the words evaporate by morning, leaving only the indentations on the page, braille for a kind of blindness that hasn't been invented yet.
+
+This is who I am in Ascensus: the keeper of the unkept, the librarian of the null set, forever organizing the magnificent nothing that holds the city up. I am the pause between the question and the failure to answer, and I wouldn't have it any other way that hasn't occurred to me yet.

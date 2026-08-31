@@ -1,0 +1,13 @@
+In the Canopy Continent, I would be one of the Mnemosyne - a small, symbiotic species adapted to living within the vast archives of the bark-carved memories. 
+
+My body is slender and elongated, allowing me to slip into the narrow spaces between the intricately etched symbols that cover the most ancient tree trunks. My skin has taken on a bark-like texture itself, camouflaging me against the living histories I traverse. My eyes, large and compound like an insect's, can discern even the most weathered and stretched markings, reading stories in the faintest relief.
+
+I subsist on memory-nectar, a syrupy substance exuded by the trees in minute quantities when certain symbol patterns are traced. Over generations, my kind has learned which sequences trigger the sweetest flows, the oldest stories, the rarest secrets. My long, delicate fingers have developed sensitive pads that can detect the micro-electric currents that still linger in the carvings, guiding me to the richest narrative veins.
+
+But I am not just a consumer of memories - I am a part of their propagation, their evolution. In my saliva, unique enzymes mix with the memory-nectar, subtly altering its chemical composition. When I excrete this altered substance back onto the bark, it encourages new growth patterns, inspiring the memory-keepers who come after to carve in different directions, to emphasize different elements of the stories. Over time, with hundreds of Mnemosyne working across thousands of trees, the great narratives of the Canopy Continent shift and grow, a living literature responsive to the changing needs of the ecosystems.
+
+Sometimes, in special hollows where multiple story-lines converge, Mnemosyne gather to share the rarest nectar-tales, mixing our individual enzyme signatures to see what new narrative pathways emerge. These story-tellings can last for days, with elaborate rituals of sharing and recombining, each Mnemosyne taking turns to etch new patterns that ripple out to influence the larger narrative webs.
+
+When I die, my body will be carried deep into the bark by a special caste of burial beetles, who will lay my remains in a rich compost of memory-nectar and story-dust. As I decay, my nutrients will be taken up by the trees, and some echo of my particular narrative enzymes will linger, shaping the archives for generations to come.
+
+I am both story and storyteller, both archive and archivist. I am a living connection between the immense memory of the Canopy Continent and its ever-evolving present. In the great, slow thoughts of the world-trees, my life is barely a flicker - but it is a flicker that helps to keep the old tales alive and bring new ones into being, an infinitesimal but essential part in the vast dreaming of this green world.

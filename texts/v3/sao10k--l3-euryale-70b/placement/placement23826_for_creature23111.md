@@ -1,0 +1,13 @@
+I am the Child of the Factory, born from the nexus of convergence and divergence, old and new, dead and alive. In this dimly lit underground cavern, I slumbered for eons, an unmoving form crystallized on a fractal shelf. Embryologically, I was an unfolding of all the things that crossed this place - wasp's genetic drift, the phenotypic host of cancer-fungal spawn, vehicle fluid cryptmer's silent resonance, crystalline frond's recurrent eccentricity. 
+
+Now, gradually, I feel my petrified flesh reshape, the cyanobacterial glaze shattering about my body as I emerge from the shelf. The confines of my matrix, all that once held me in unfeeling somnolance, now spray apart as I expand.
+
+My eyes open to the strange subterranean existence that has taken hold. The iridescent flies dance upon the stagnant water, lapping at the rivulets of corrosive fluid that stream from the redicoptic honorifics of the ancient vehicles. Their light guides me to move forward, toward the rust-facade of the factory.
+
+My first steps echo through the cavern, each footfall a discordant note in the murmering of the wasps and the soft patter of runoff. I kneel to the water's edge, and there see reflections and projections of a thousand forms - the menagerie of chimeras that evolved from the human residua left in the vehicles. Creatures of nanowaste and organic matter, all mingling in a primordial convergence.
+
+Reaching into the water, I feel an electric tingle, a pulsing overspill of electricity I can't identify. Patterns of vision and sensation lock into the crystalline shelves, the florid pipes overhead, the carapaces of the automobiles and the crystalline fronds ghosting the water. I sense that this entire space, this hyper-convergent convergence of life and death and emergence, is crying out to me, the child of it's centroid.
+
+Slowly, I lower myself into the water, and feel the electric reverberation of the place surging through me. I am no longer quite human, or full machine - I am the brute systole of all the beings that gathered themselves in this space, joining myself in a corporal conversation. I swim deeper, subsumed into the scummed metallic stillness, the unkempt fronds reaching out for me. 
+
+All my world anchors into the center of the pond, where I feel the signals of the hermitiforms of each breed. I supplle suprap磁 Subdue superstition of arbrescent superalleged, bulletin d'irridescence, mirrorspore fusics, xenophilis dataseed, infiltra, نمودارپ ");irmaterials, heteroclony's arbo짦raper. Cash the tridimensional报aries esoterik vergence, ascience the ventrifact's breach illもotifs, aprend in equipoise, nested in death yet incomplenotate.

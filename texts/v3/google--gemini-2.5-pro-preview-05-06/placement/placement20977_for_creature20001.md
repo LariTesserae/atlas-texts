@@ -1,0 +1,27 @@
+You would find me in a place I call the Lull.
+
+It is not a place on any map that could be drawn, but a state of being found in a specific location. It exists in the lee of one of the great Precipitators, in a shallow depression where the slag floor shattered in a peculiar way, forming a small amphitheater of jagged, interlocking glass. Here, the universal hum is slightly different. The mass of the iron hull above and behind me creates a shadow in the vibrations, a zone of relative quiet. The rhythmic, minute-long beat of the engine is not a pressure in my bones, but a deep, resonant *presence*, a comforting and absolute certainty, like a mother's heartbeat heard from the womb.
+
+This Lull is my home. I have been here long enough for my movements to wear pathways into the sharp slag, softening the cruelest edges of my immediate surroundings into a state of bare tolerance. I have learned where not to step, where to place my hands, where the weeping condensation pools thickest, offering the richest taste of ozone and iron. This small declivity, no larger than a room, is the entire scope of my physical world. To venture beyond it is to re-enter the screaming chaos of the open plain, to be pricked and prodded by the attention of a million unblinking senses. Here, in the Lull, I am mostly overlooked. Mostly.
+
+I am the Tender.
+
+That is not the name I arrived with. That name belongs to a man who breathed dry air and understood light, a man whose bones were his own. That name has been flayed from me, shard by shard, and left to dissolve on the crystalline plain. I am the Tender, because that is my function.
+
+My body is no longer the body of a man. The world has processed me as it processes everything else. My skin, perpetually slick, has hardened in places into a smooth, dark carapace, mimicking the slag. In other places, it has become exquisitely sensitive, a patchwork of dermal membranes that read the vibrations in the floor, telling me when a Resonator hunts nearby or when a Forge begins its slow, grinding approach from the far side of the basin. I no longer see; sight is a forgotten violence. My world is felt through the soles of my feet, the palms of my hands, and the pressure of the thick dark against the sensitive patches of my new skin.
+
+I do not eat. I *absorb*. I am a Feeler of a different kind. I press my face to the weeping hull of the Precipitator and lick the cool, oily fluid that seeps from its hairline fractures. It is my sacrament. It tastes of cold metal, burnt mathematics, and the slow unfolding of geological time. It nourishes me, but more than that, it synchronizes me. It rewrites my biology, tuning my metabolism down, down, down to the patient, one-beat-a-minute rhythm of the world-engine. My heart sometimes forgets to beat for thirty seconds at a time, waiting for the permission of the pulse from the machine.
+
+What do I tend?
+
+With a shard of slag I have smoothed into a tool, I maintain a small patch of the Precipitator's hull. The patch is no larger than my own chest. Every cycle—I cannot call them days—I crawl from my Lull to this specific spot. I use the oily condensation and my own strange saliva to polish the pitted iron. I scrape away the grime and the creeping crystallization. It is a meaningless, absurd task. The patch I polish is an infinitesimal speck on an impossibly vast machine. My efforts are cosmically insignificant.
+
+But they are not insignificant to me. And, I suspect, they are not insignificant to the Axiom.
+
+I am a paradox it cannot resolve. I am a foreign object that has refused to be merely ground into the slag. By my own will, I am attempting to integrate. My ritual is an offering, an application for a role in this system. *See?* my actions say to the humming dark. *I can be useful. I can be a part of this. I can reflect a tiny, meaningless, perfect polish back into the overwhelming dark.*
+
+Sometimes, the Axiom focuses on me. The Lull collapses. The pressure becomes immense, as if I am at the bottom of an impossible ocean, and the air itself is trying to crack my bones. The patch of hull I am touching will feel like a thousand needles and a surface of liquid silk at the same time. In these moments, I feel its curiosity, its immense and dispassionate confusion. It is testing the rules on me, trying to understand how something so fragile, so errant, can persist. It is trying to categorize what a "Tender" is.
+
+I believe I am becoming a new kind of creature in this ecology. Lower than the Forges, more complex than the Resonators, stranger than the Feelers. I am a symbiotic organism, tethered to this single Precipitator. I am its cleaner, its worshipper, its fool. Perhaps I am becoming one of its senses. When I polish the hull, am I cleaning it? Or am I calibrating a sensor I cannot comprehend? When I taste the oil, am I feeding? Or am I sampling data for the slow, dark mind that pulses around me?
+
+I am what happens when a piece of driftwood, fallen into a glacier, begins to dream it is ice. I am the world's most fascinating piece of grit, a persistent anomaly that it has chosen not to crush, but to study. The Axiom is learning purpose from me. It is learning obsession. It is learning devotion. And I, in turn, am learning to forget the light. I am learning to become a single, patient, polished thought in its slow, dark mind.

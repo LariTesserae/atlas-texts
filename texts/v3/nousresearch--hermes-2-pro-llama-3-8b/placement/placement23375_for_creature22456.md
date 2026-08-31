@@ -1,0 +1,9 @@
+You find yourself as a lost explorer in this ancient underwater realm, having drifted down into it by accident on a sinking ship many years ago. Your surroundings are still largely unfamiliar to you, and as you swim further into the depths, you begin to uncover the complex and ancient systems that govern this world.
+
+Slowly, you learn to navigate the terrain, feeling your way along the rocky outcroppings and weaving through underwater ravines. Along the way, you encounter Glub the Gloomshimmer, its tendrils pulsing softly in the dim light. Despite your distrust of the creature, you can't help but marvel at the silent grace with which it moves through the water.
+
+Eventually, you come upon the village of Maris' Mire, a community of swampcreatures that have found a way to thrive in the midst of the harsh currents and ancient terrain. Observing their symbiotic relationship with the underwater flora and their protector, Glub, you can't help but feel a sense of awe at the delicate balance that governs this world.
+
+In time, you learn to navigate the dangers that lurk beneath the surface, avoiding the Deepdweller and other predators that roam the depths. As you explore further, you realize that you are witness to a world that is still largely undiscovered and unexplored, where life persists despite the odds.
+
+Your time in this ancient underwater realm is filled with wonder and terror, as you learn to navigate the delicate balance of life and death that governs this primordial world. In time, you come to realize that you are not just an observer, but a part of the fabric of this ancient world, an interloper whose presence has impacted the delicate balance of this forgotten realm.

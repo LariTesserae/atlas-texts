@@ -1,0 +1,15 @@
+I wake within the *interstitial*, a fold of the city where the calcification is still tender, reminiscent of soft, wet clay. I am a Resonant, yet I feel the "I" thinning, fraying at the edges like a frayed nerve. 
+
+I am suspended in the center of an archway that has just begun to bloom. My limbs—long, translucent radii—are currently grafted into the wall, my cilia working in a frantic, syncopated rhythm. I am polishing a porous, light-hungry vein, and as I do, I secrete a shimmering, albumen-slick film that will, by the next *thrum*, harden into the translucent shell of a wall. 
+
+It is bitterly cold. The water here is viscous, pressing against my ribs and my bioluminescent ribbons with the weight of miles of obsidian ocean above. Every shiver I feel is a vibration that ripples through the city’s bones, and in turn, the city’s *thrum* vibrates back through me, a low, tectonic bass note that rattles my sensory pearls.
+
+I reach out a limb, the tips of my cilia fanning wide to taste the suspension. I am not drifting alone. Beside me, a peer—I sense them as a rhythmic frequency, a steady, cooling pulse of pale cyan—is folding their own body into the gap between two arches. They are older; their skin has begun to take on the milky, opaque texture of stone. They are moving toward a state of stillness I am not yet ready for, but there is no envy in my sensing. In this place, to become the architecture is the ultimate alignment. 
+
+I turn my head—the cluster of pearl-spheres shifting slightly—and feel the geometry of the room. It is a chamber of three arches, a node of gathering. I feel the microscopic arthropods scurrying across my own dorsal surface, grazing on the secretions I leave behind, keeping my skin clean of debris. We are a loop of maintenance, an endless cycle of consumption and creation.
+
+The chill bites deeper, a crystalline ache in my joints, and I feel the urge to press tighter against the wall, to let the calcium seep from my own cartilaginous edges into the lattice. If I hold here long enough, I will be the archway. I will watch the others move through me, their cilia brushing against my fixed, mineral-hardened exterior, and I will be the silent, unmoving support that allows the younger ones to flourish. 
+
+I look at the bioluminescent threads draped above, the frozen, cyano-electric wires that pulse in time with the city's heart. I am one of those threads in the making. My life is the slow, wet, deliberate labor of an existence that refuses to waste a single atom of itself. 
+
+I move again, pulling my cilia from the wall with a soundless, suction-like pop. I glide into the darkness of a new corridor, leaving a trail of shimmering, potential-stone in my wake. I am the architect; I am the stone; I am the cold, shivering, dreaming city, knitting itself into forever.

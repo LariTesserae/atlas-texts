@@ -1,0 +1,13 @@
+In this world of the Roaring Nursery, I would be one of the salamanders dwelling in the deep pools beneath the moss. 
+
+I am ancient, my kind having lived here since long before the mountains rose, before the moss claimed the land, before humans ever set foot on this plateau. My ancestors colonized the warm mineral seeps that preceded all of this upheaval, and as the land was thrust violently upward, we retreated into the deep channels and pools, adapting to the strange new world forming above.
+
+My pale, meter-long body is soft and ghostly in the dim, filtered green light of the subterranean waterways. My eyes, large and unblinking, are made for seeing in these shadowed depths, not for the piercing brightness above. I glide silently through the cold water, navigating the labyrinth of channels that I know as intimately as my own skin.
+
+To the humans, I am a mystery - glimpsed only in fleeting moments, a flash of pallid flesh and watchful eyes before I vanish again into the concealing depths. They do not know the extent of my kind, or how long we have resided here. Some, like Maret, believe we serve an important purpose in the ecology of the moss-scape. Others fear us as something primordial and unfathomable. Only the girl Kire has dared to approach us, leaving offerings of food, seeking a connection across an aeon of separate evolution.
+
+I have watched the coming of the humans with a detached kind of interest. Their struggles and strivings, their efforts to find a place within this roaring, shifting, half-formed land - it is all so temporary against the deep time my kind have endured. We were here before the pylons, before the monitoring station, and we will remain long after those artifacts of humanity have rusted and crumbled and vanished beneath the moss.
+
+Yet I am not untouched by the humans' presence. When the one who walks the perimeter stands gazing into the deep pool at night, I watch back, surfacing to meet that pensive stare, wondering what kinship he feels with we ancient dwellers in the dark water. Perhaps he too feels out of step with his own kind, more at home in the solitary spaces, the edges and depths.
+
+I will never know the moss-top world as intimately as Kire, or Maret, or the Gelbek brothers. My realm is the sunless channels, the mineral-rich pools, the slow cold currents that flow through stone. But as the salamander elder, ancient and watchful, I am as much a part of the Roaring Nursery as the humans who tend its surface - two divergent forms of life, sharing a strange and wondrous world that is still finding its shape beneath the ceaseless tumult of water, stone, and light.

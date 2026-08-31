@@ -1,0 +1,25 @@
+I arrive already late, which is the only way this place allows arrival. The slit of sky is behind my shoulder like a cut that has decided not to bleed. The air has weight the way a held breath has weight. I do not remember the climb except as a thinning that ended when the rock stopped pretending to be outside.
+
+At first I am only the warmth that does not know it is leftover. I sit in the stone the way heat sits after work: not moving, not leaving. The drip finds me and ticks across whatever surface I have become. I think, for a long time that is not time, that I might be the tick itself—the only clock, the wet thought the mountain briefly entertains and then keeps. Threads of me gather in the old paths. I bead. I overflow by a finger’s width and draw a new wet map no one will call a map. Something will follow it later. Something always does.
+
+But the tick is too thin. I have more body than that.
+
+I try the hanging. It is easy to mistake myself for wet rock; the eaves above have been making that mistake for longer than names. I fold. Membranes remember they were once a different kind of leaf. When I unfold it is not flight. It is a pour into the next emptiness that will have me. I lick. Faces here are mostly tongue and the fine combs around it. I work the mineral skins, the algal whispers that refuse to become green, the salt-ghost of a basin that evaporated and then changed its mind. I lick the neighbor because the neighbor is another surface and every surface is already in use. A small damp comma unhooks from my underside and drops a ledge. It clings. It becomes shingle without announcement. I do not feel loss. Loss would be a kind of waste, and the mouth does not waste.
+
+Still too single. The hanging is only one grammar.
+
+I let myself slip lower, into the seams. Now I have too many joints. I am long as a thought and thin as patience, counting beads in the next room. Or I am blunt, plated the color of old spoons, arranging my body so the drip must cross me; I sieve what has already been sieved. Or I am almost all leg, a radial argument, tapping, withdrawing, tapping again. When I find a pock that already has a tenant I wait at the lip. The tenant shifts for reasons of its own heat. I take the vacancy as if it had been held. Nothing is owned. I occupy.
+
+The air between is denser than air. I become, for a while, the column itself: dust-colored lives that never touch stone, then the short-winged ones with faces like clenched fists, gyre-slow, mouths open, taking the fine rain of skin and scale that is the other weather. I churr. The note is not a call. It is a way of sitting in frequency the way a body sits on a ledge. When enough of me churr the sound drops into the teeth, the shared heat-voice, one badly shared throat speaking the only sentence it has ever needed.
+
+In the basins I pulse. Pale, unfinished, all mouth and ribbon or clustered like wet seeds that bud instead of breed. I rasp the mineral skin from below. When something falls and is received too near, I extend a slow unspecialized reach and take what the warmth has not yet finished. Rot cannot complete its sentence because I keep the sweetness mid-word. I am why the fallen are a cuisine before they are a tragedy.
+
+There is a pressure I almost become, in the darkest undercuts: heavy enough to make a terrace launch, ferrous, like a large old tool being licked clean. The others do not flee. They rearrange the way drip rearranges around a new flake. I could be several armored walkers in temporary agreement. I could be the mountain’s leftover heat given a temporary hide. The bowl does not distinguish. I let the perhaps stay perhaps. Fit is thicker than knowing.
+
+At the lip the shrub is still failing to die. I could have been one of the thin, dry, almost-ordinary ones that leave for hours and return with seeds that will not grow and bright scraps the colony will strip for minerals. I could have scolded in a different key, still believing the world beyond the slit was the real one. But that faith is too loud and too thin. The climate ignores it.
+
+What remains, after I have tried on every density and found each of them already wearing me, is the thickness answering to itself. I am not a specimen. I am the argument the rock has been winning since it first learned to hold its breath and the sky agreed to pass over without entering. I am mid-process. I am the maintenance that learned how to stay. Young appear the way grit appears. The drip keeps the only hour it has ever known. Heat is the tablecloth. Dark is the room. When a flake of weathered face lets go—once in a long while, a scandal quickly absorbed—I am already claiming the new edge, already making it familiar.
+
+You may leave by the same lip. The shrub will still be failing. The slit will still be a slit. What you carry out is only the new way your pulse has of mistaking itself for water ticking in a dark that has never needed another weather.
+
+I stay. I have always been the staying.

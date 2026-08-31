@@ -1,0 +1,11 @@
+In the world of the Drainage Cathedral, I would be one of the eels, Anguilla anguilla, residing in the submerged pipes and crevices of the chamber. 
+
+Having found my way to this drowned sanctuary through the labyrinthine storm drains and sewers of the city above, I have adapted to a life of stillness and shadow. My form is sinuous and unhurried, able to thread through the narrowest passages yet also stretch to an impressive length - the result of many patient decades spent in this timeless realm.
+
+My eyes, though not blind, are accustomed more to darkness than light. The dim phosphorescent glow is enough for me to navigate my domain and detect the subtle movements of prey and others of my kind. But I am a creature of touch and vibration more than sight, sensing the slow circulations of the black water, the minute tremors that pass through brick and pipe, communicating wordlessly with others in my invisible congregation.
+
+I do not fear the Custodian on his periodic visits, having grown used to his presence over the years. His footsteps on the grating above are simply another ripple, another echo in the pattern of this place. I continue my patient trajectories whether he watches or not - his world and mine intersecting but never quite touching.  
+
+In the eels' collective memory, passed down through generations hatched and hidden here, the cathedral has always been as it is - damp, echoing, eternal. We are woven into its very structure, as much a part of its architecture as the bricks and the rusted grating. The water's slow metabolism is our own. The biofilm on the walls, the pale crabs, the pulsing membranes - all are threads in the same tapestry of which we are a part.
+
+Even if the lights finally fade, even if the pumps one day fall silent and the chamber is left in stagnant darkness, we will endure. We will become one with the water itself, a living current in the veins of the forgotten city, dreaming our slow dreams while the world above spins on in ignorance. In patience we were born; in patience and shadow we will remain, the secret soul of the drowned cathedral, long after the last echo of the Custodian's footsteps has faded into silence.

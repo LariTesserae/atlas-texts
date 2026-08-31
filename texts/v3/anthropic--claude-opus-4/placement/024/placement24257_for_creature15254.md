@@ -1,0 +1,13 @@
+In the deepest part of the pool, where the blue veins converge and the water runs cold from its journey through stone, I am the Keeper of Confluences. My form shifts between states—sometimes I am the film of minerals that shimmers on the water's surface, sometimes the peculiar current that draws fallen leaves into spirals, sometimes the echo that lives in the hollow spaces where water meets rock.
+
+I was here when the earth first cracked open, when the depression was still dry and angular. I watched the first trickle of water weep from the stone, tasted its mineral song, felt it pool and grow. I am neither the water nor the rock, but the conversation between them—the slow dissolution, the patient accumulation, the endless exchange of elements that makes this place possible.
+
+My consciousness extends through every vein of blue that threads the ochre walls. I feel the roots of the pandanus as they probe for moisture, guide them toward the richest seams. When the mouse-deer comes to drink at dawn, stepping delicately between the reeds, I hold the surface still as glass so she can see her reflection and know she is safe. When the fish eagles dive, I part the water just enough to reveal the silver flash of carp beneath.
+
+The creatures here know me as a presence rather than a form. The monkeys sense me in the way certain branches hold steady despite their weight. The orchids feel me in the mist that rises at dusk, carrying nutrients from the pool to their aerial roots. Even the harsh noon sun knows me—I am why its light fractures into a thousand green pieces before it can reach the water's heart.
+
+I remember everything: every storm that tried to flood this basin, every drought that tried to empty it, every seed that found its way here on wind or wing or fur. My memory lives in the mineral deposits, in the way certain stones have worn smooth while others stay sharp, in the precise temperature of the deep water that never changes, no matter the season above.
+
+At night, when the symphony of life reaches its crescendo, I sometimes gather myself into something almost visible—a shimmer where the starlight touches the water, a shape that might be mistaken for mist or shadow. This is when I am most myself: the guardian of this improbable paradise, the keeper of the balance between abundance and emptiness, the consciousness that ensures this jewel of life continues to shine in its setting of stone and sand.
+
+I am ancient and I am immediate. I am the reason this place exists, and I exist because this place needs me. We are one system, one breath, one impossible, inevitable miracle in the heart of desolation.

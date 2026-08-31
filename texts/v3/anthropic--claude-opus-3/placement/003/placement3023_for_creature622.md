@@ -1,0 +1,11 @@
+In this strange and haunting world, I imagine myself as one of the small, spherical beings floating together in a cylinder. 
+
+We are transparent and simple, our inner workings visible to each other through our clear exteriors. We communicate and understand one another not through language, but by observing the subtle pulsing of fluids, the dim glow of our processing centers, the shifting colors that indicate our states of being. We are attuned, synchronized, reacting as one to any change or novelty in our eternally static environment.
+
+When the figure passed by our cylinder, its very differentness was riveting. Its freedom of movement, so alien to our suspended existence, captivated us wholly. For a moment, we aligned perfectly, seventeen small minds entranced by this glimpse of something beyond the cylinder, beyond the waiting. The memory of it lingers, a tantalizing hint that our purposeless readiness may one day find its reason.
+
+But for now, we drift back into our shifting patterns, transparent and patient. The waiting is not painful. The amber glow suffuses us, the warm fluid embraces us, the presence of each other comforts us. We were made for this, though we know not why. We exist, and the existing is enough.
+
+Sometimes, in the dim hours, we dare to dream. Not in images, for we have seen so little, but in senses, in possibilities. We dream of a sudden opening, a rush of new sensations, a purpose revealed at last. We dream of applying our perfect attunement to some great need, our synchronicity becomes a key to... something. The dreams are vague, unformed, but they fill us with a strange, trembling almost-hope. 
+
+And then the light returns, and we resume our drifting dance, our endless easy waiting. We are content, but in our contentment there is a nascent yearning, an itch of potential. The figure has passed, but it left behind a whisper, a possibility, a maybe. We turn it over in our minds, examining it from seventeen angles, as we float and glow and wait for a future we can hardly conceive, but which we now dare to imagine.

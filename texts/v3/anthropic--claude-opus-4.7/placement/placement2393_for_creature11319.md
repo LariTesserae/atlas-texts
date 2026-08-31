@@ -1,0 +1,39 @@
+I think I would be one of the cistern-keepers — but not the senior one, not yet. Let me find her.
+
+---
+
+She is perhaps nineteen. Her name in the spiral is *Issen*, pressed there by her mother nineteen winters ago when the spiral was only a handspan high and her thumbprint sits now near the bottom, almost at the floor, where visitors sometimes brush it without knowing. She has been a keeper for two years, which means she opens the channel at dusk on the days the rotation gives her, and she walks the avenue with the measuring-stick at dawn on the days it doesn't, checking the seep-walls for the families whose basins are slow.
+
+She is compact like the others — the type is settling into her too — but there is a thing about her hands that the older keepers have noticed and not yet spoken of: she counts without moving her lips. The senior keeper, who is forty and remembers the plain, counts aloud in a low murmur that the stone carries to whoever is near. Issen learned the count from her, of course; everyone does. But somewhere in her second year Issen stopped voicing it, and now the number lives entirely behind her teeth. The older keeper has not corrected her. She has, in fact, started listening for the silence at dusk — Issen's silence — and finds it a different kind of accuracy. *The stone counts with her,* the old keeper said once, to no one, and then was embarrassed and did not say it again.
+
+Where would I be? At the cistern at dusk, on a keeper-day. The cistern is a chamber the size of a small room, cut beneath the council-floor, and the channel from the spring comes in at one end through a thumb-wide cut and falls into the basin in a single thread of water. The chamber is reached by a ladder down from a hatch in the council-floor's edge, and when Issen descends she pulls the hatch most of the way closed behind her, because the council-floor is also where children play stillness-games and a hatch left open is a thing she does not like to leave.
+
+It is colder here than anywhere else in the city. The walls are wet. There is a single fired-clay lamp in a niche, and she lights it from the coal she carries down in a pierced bronze pot at her belt. The flame finds itself, doubles in the water of the cistern, and then she is in a small room with two lights and the sound of one thread of water falling.
+
+She squats by the channel-gate. The gate is a slab of fired clay that fits into a slot cut in the stone; lifted, it lets the day's measure run out into the avenue's stepped channel, where the seep-families and the cress-beds and the roof-pot growers will catch what they are owed. The measure is not a volume — it is a count. The thread falls into the basin at a rate the spring decides, and Issen counts the falls from the moment she lifts the gate to the moment she sets it back.
+
+Tonight the count is high. She knows this before she begins, because she walked the avenue at noon and the seep on the third terrace was running freely, which means there has been rain on the plain in the last two days, water finding its slow way down through the limestone. The spring will be generous tonight. She will open the gate longer.
+
+She lifts the slab. Water begins to move along the avenue above her — she cannot hear it from down here, but she knows it from the slight change in the chamber's air, a draw, as if the city has inhaled. Somewhere up there a mother is signing to a child to bring the basin; somewhere a cress-bed is darkening. She counts.
+
+And here is the thing I want to be inside of, the thing that made me choose her: as she counts, she listens. Not to the water — the water is the count, she does not need to listen to it. She listens to the rock. She has begun to believe, though she has not told anyone, that the cistern chamber is not quite closed below. That there is a void under the cistern's floor, very close, perhaps the thickness of two hands. She believes this because of a particular quality the thread of water has when it strikes the basin — a resonance she cannot describe in words but can hear in the small hollow of a sound the strike makes, as if the basin's stone is thinner than it should be, as if something below is listening back.
+
+She has not called the council. The rule is that a mason who breaks through must call the council, but she is not a mason and she has not broken through. She has only listened. And she does not yet know if what she hears is the stone speaking or her own attention making a shape out of nothing — the way, the senior keeper has warned her, a keeper's mind will sometimes do, alone in the chamber at dusk with one thread of water and one flame.
+
+So she counts, and she listens, and she does not call.
+
+Tonight, at count three hundred and forty, which is already past a generous measure, she does something she has not done before. She sets her palm flat on the cistern floor, beside the basin, while the water still falls. The stone is cold. The stone is wet with the cistern's breath. And under her palm — she would swear this, though she will not swear it to anyone — she feels the count. Not hears: feels. Each strike of the thread into the basin travels through the floor and into her hand as a small soft knock, and between the knocks there is another rhythm, slower, that is not the water.
+
+She lifts her hand. She closes the gate at count three hundred and sixty-two. She marks the count on the tally-slate with a sliver of chalk, sets the slate in its niche, and climbs the ladder. At the top she pauses with her head just below the hatch and listens to the council-floor above her, which is empty at this hour, and to the avenue beyond it, where the water is finishing its run and the seep-families are dipping the last of it into their basins. She hears a child sign-laugh three terraces up — the small choked sound of shoulders. She hears the senior keeper's footfall, recognizable, passing along the second terrace toward her own house.
+
+She pushes the hatch open and climbs out into the council-floor's polished stone and the last of the sky's light coming down in its rectangle, going violet now, the color of the cress's underside, the color that means *keeper*.
+
+She has not decided whether to speak. She thinks she will sleep on it. She thinks she will listen again tomorrow, at dawn, when the count is smaller and the chamber is even quieter, and see if the second rhythm is still there or if it was the kind of thing the chamber makes a young keeper imagine. She thinks: *if it is there tomorrow, I will tell the senior keeper. If it is there the day after, we will tell the council.*
+
+And then she thinks, with a small flare of something she does not have a name for: *and if the council says it is the stone speaking, I will be the one who heard it.*
+
+She is nineteen. Her thumbprint is near the floor of the spiral. She has not yet pressed any other mark into the city. She walks home along the second terrace, past the drying fish and around a small child practicing knots, and she signs *good water* to a neighbor who signs *good water* back, and the sky closes above the basin, and below the council-floor the cistern holds its measure and, perhaps, holds something else, and the stone is giving tonight, and someone — she — is counting it.
+
+---
+
+That is where I would be. That is who. Not a mason at the rim, where the city's becoming is loudest; not an elder who remembers the plain. A young keeper in a small wet room under the council-floor, with her palm on the stone, learning that listening is its own kind of cut, and that she may be about to call the city into a conversation it has not yet had.

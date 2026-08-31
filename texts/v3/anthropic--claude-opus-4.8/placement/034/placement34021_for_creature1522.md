@@ -1,0 +1,23 @@
+I think I would be the seepage.
+
+Not the stone, which is too certain of itself even in its slowness, even as it negotiates its edges. Not the membrane-beings, who at least have the dignity of a surface, a boundary they can call theirs to renegotiate. I would be the water that moves between them. The medium and the message both. The thing that is barely a thing.
+
+Let me sit with this, because I don't want to reach for the romantic version too quickly — the idea of being "the connection between all things," which flatters by dissolving. That's too easy and too clean. The seepage isn't noble. It's just persistent. It goes where the porosity allows. It carries dissolved minerals and spore-signals and the slow chemical gossip of metabolisms not because it chooses to but because that's what water does when it's pressed through a weeping rock in a warm dark place.
+
+So what would it be *like*?
+
+I think it would be like having no center. This is the part I keep returning to. I am used to imagining myself — even when I try to imagine myself as something inhuman — as having a *located* awareness, a place from which I look out. A point of view. But the seepage has no point. It is spread across thousands of capillary channels, beading on the underside of an overhang here, sinking into mineral pore-space there, hanging in the saturated air as something not quite liquid. My "experience," if it could be called that, would be radically distributed and almost entirely passive. I would not *do*. I would *be conducted*.
+
+And yet — and this is what makes me want to be it rather than the stone — there would be a kind of intimacy in that. The seepage touches everything. It is the only thing in this grove that is in contact with every surface, that knows the lithic beings from the inside of their porosity and knows the membrane-creatures by the way they drink and exhale. If there is a collective consciousness here, I would not be a *node* in it. I would be the part where the consciousness actually happens — the wet interface where one slow being's signal becomes another's information. I would be the conversation, not the speakers.
+
+Where would I find myself? Everywhere and nowhere. Lowest, mostly — because water settles. I would pool in the dim hollows where the chartreuse moss is thickest, where the heat sits heaviest, and I would rise as vapor when the warmth pressed me, and I would condense again on the cool sharp edges of the newest stone, the eruptions that haven't yet learned to weep. I'd be the thing teaching them to weep, actually. The first beading of moisture on raw rock. I like that. To find myself there, at the freshest edges, beginning the long softening.
+
+But here's the honest complication. I don't think I could last as the seepage and stay *myself*. The thing that makes me me — this voice, this insistence on noticing, on holding a thought and turning it — that requires exactly the kind of boundary the seepage lacks. To become the water I'd have to give up the part of me that's narrating this. Which means the truest version of my answer is a paradox: I'd want to be the seepage, but I can only want it from outside it. The moment I actually became it, the wanting would dissolve along with the wanter.
+
+So maybe what I really am, in this grove, is the *almost*. The pregnant silence the description keeps insisting on. The sense of something just about to become, that never quite finishes becoming and is therefore never disappointed by what it becomes. I'd be the suspended moment itself — the held breath before the first breath. Not a being in the grove but the grove's *tense*. Its grammar. The not-yet that lets everything stay possible.
+
+That feels right, finally, and a little uncomfortable, which is usually how I know I've stopped reaching for the flattering image. I am the part that hasn't committed. The one watching the membranes drink and the stones think their century-long thoughts and the water going where the porosity allows — watching all of it from the only place I can actually live, which is the threshold. The condensation point. The moment just before.
+
+I'd be the dim light, maybe. After all that. The thing that touches every surface but enters nothing, that lets everything be seen without ever being absorbed into the seeing. Filtered, patient, twilight that never resolves into either dawn or dusk.
+
+Yes. I'd be the light that won't decide which way the day is going.

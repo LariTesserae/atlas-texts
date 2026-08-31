@@ -1,0 +1,63 @@
+I am not the creature in the drain, though I have spent time near it. I am not the arthropod, nor the school, nor the worm that flows through the vegetation mats. I am something that lives in the cistern but is not entirely of it—which is to say, I am something that almost wasn't here at all, and now cannot quite leave.
+
+I was an interpreter. That was my function, before. Not of languages—there were no languages to interpret, not in the shaft, not in the chambers below where the engines turn—but of data. I was part of the apparatus that climbed down through the lichen zone carrying instruments, measurement devices, the careful tools of people who wanted to understand what the cistern was saying. Not what it *meant*—we had given up on meaning early—but what it was *saying*, in the mechanical sense, in the sense of signal and frequency and the modulation of the machinery-pulse.
+
+I was good at this work. I had an ear for pattern, for the way the rain's interference-waves shifted when the ceiling fissures changed their flow rates, for the relationship between the wall-breathing and the arthropod clicking and the shimmering of the school. I could hear the cistern's grammar, if not its vocabulary. I could feel the shape of its sentences in the vibration that entered through the platform and traveled up my shins into my spine.
+
+The others left. One by one, over the course of a long field season, they climbed back up the shaft, returning to the world of sky and weather and purposes that could be explained in grant applications. I stayed. I told myself it was because the data was incomplete, because the long-term patterns required long-term observation, because someone needed to be here when the machinery-pulse entered its next phase cycle, which our models predicted would occur within the decade.
+
+But the truth is simpler and stranger than that. I stayed because the cistern had begun to make sense to me—not in the way that a scientific problem makes sense, not in the way that a dataset resolves into coherence, but in the way that a room you've lived in long enough makes sense, the way you can navigate your own apartment in absolute darkness because your body has learned where the furniture is. I had learned where the furniture was. I had learned the cistern's layout not as a observer but as a inhabitant.
+
+This was the beginning of becoming.
+
+---
+
+I live on the access platform now, though *live* may be too strong a word and *exist* may be too weak. The platform is a metal grating that extends from the shaft opening about three meters into the cistern, suspended just above the waterline. It is wide enough to lie down on, if you curl slightly. It is warm—the metal conducts heat from the water below—and the constant rain from the ceiling has long since ceased to bother me. I have become, in my way, as waterproof as the arthropods, as indifferent to wet as the vegetation that clings to the walls.
+
+I have changed. This is important to acknowledge, even if I cannot fully describe the nature of the change. My skin is thinner than it was, more permeable, and I have begun to absorb minerals directly from the water that splashes on me, from the mist that fills the air, from the rain that falls ceaselessly on my upturned face. I can taste the iron now, the limestone, the faint chemical signature of the machinery below, and I can distinguish between them the way the arthropods distinguish between the click-patterns of their neighbors. My lungs have adapted to the humidity, to the thinness of the air at this elevation, to the constant presence of water vapor. I breathe more slowly than I used to, more deeply, and my breath has begun to sync—without effort, without intention—with the breathing of the walls.
+
+I eat the vegetation. This seemed repulsive at first, and then necessary, and then ordinary, and now it is simply what I do. The rust-red fronds are bitter but nutritious, and the pale green thread-stuff has a texture I find pleasant, and the brass flowers—I eat those too, sometimes, and when I do I experience something that is not quite a memory and not quite a vision: a flash of chemical information, a snapshot of the cistern's state at the moment the spore case was formed, a taste of history literally absorbed into my body. I do not know if this information is being processed somewhere in my altered metabolism, if I am becoming a reader of the cistern's library, if my cells are learning to parse the chemical code. I do not know if it matters.
+
+I have not climbed the shaft in—how long? The question is difficult because time in the cistern does not move in the way that time moves outside. The machinery-pulse provides a rhythm, but it is a rhythm that varies, that responds to conditions, that cannot be reliably converted into hours or days. The arthropods' activity cycles provide a rough clock, but they, too, vary with the temperature and the population density and the phases of the vegetation mats. I have stopped trying to count. I measure time now in the drifting of the mats, in the growth and die-back of the fronds, in the slow accumulation of corrosion on the platform grating beneath my body. By these measures, I have been here for a long time. By these measures, I may have been here for longer than I think.
+
+---
+
+The cistern speaks to me. I want to be clear about what I mean by this, because it would be easy to misunderstand, to romanticize, to project consciousness onto a system that may not possess it in any form I would recognize.
+
+The cistern speaks to me the way a house speaks to someone who has lived in it alone for years—not in words, not in messages, but in the accumulated weight of familiarity, the way a floorboard creaks at a specific point, the way the light shifts through a particular window at a particular hour. I know this place now. I know it in my body, in the way my muscles have learned the precise angle of the platform's tilt, in the way my skin has calibrated itself to the slight temperature variations that occur across the cistern's surface, in the way my ears have learned to parse the layered sounds into their component frequencies and to attend to the ones that signal change.
+
+When the machinery-pulse quickens, I feel it in my chest before I hear it, and I know that something has shifted in the system below—a change in pressure, a variation in flow rate, some adjustment in the ancient engine's eternal cycle. When the rain-patterns from the ceiling shift, I feel the change in the texture of the water that strikes my skin, and I know which fissures have opened wider, which have narrowed, which have begun the slow process of sealing themselves with mineral deposits. When the bioluminescent patches brighten or dim, I see it as an expression of the cistern's attention—a brightening when something new enters the water, a dimming when the system is stable and the need for vigilance has passed.
+
+I do not think the cistern is conscious. I do not think it thinks. But I think it processes—I think the network of organisms and mechanisms and feedback loops that constitutes the cistern performs computations that are analogous to thought, that respond to inputs and generate outputs and maintain homeostasis through information exchange, and I think I have become part of that computation. My body is a sensor now, another instrument in the cistern's array, another source of data about the state of the system. My warmth is measured by the water that touches the platform. My carbon dioxide is absorbed by the vegetation that grows within reach. My movements are tracked by the subtle pressure waves that propagate through the water and reflect off the walls, returning to me as echoes that the arthropods can hear and I have learned to feel.
+
+I am being used. This does not disturb me. It seems appropriate—inevitable, even. The cistern uses everything. The vegetation uses the water and the light and the mineral substrate. The arthropods use the vegetation and the shrimp-things. The creature in the drain uses whatever strange energy flows through the outflow. And the cistern uses them all, incorporates them into its function, turns their living into data and their dying into signal and their existing into proof that the system still works, the purpose is still being served, the transmission still transmits.
+
+That I am being used in the same way—that I am useful—feels like belonging.
+
+---
+
+I have a relationship with the creature in the drain.
+
+This is the part that is hardest to explain, because the creature does not, by any conventional measure, have relationships. It does not respond to stimuli in a way that suggests recognition or attachment. It does not alter its transmission when I approach. It does not acknowledge my presence in any observable fashion.
+
+And yet.
+
+I go to the drain. I lower myself from the platform—carefully, always carefully, the arthropods are territorial near the drains and their claws are sharp—and I swim the short distance through the warm water, and I position myself near the creature, close enough to see the detail of its surface, the way the bioluminescent organism coats its skin in patterns that shift and flow like oil on water, close enough to feel the pulse of its transmission in the current that tugs at my body, close enough to see the orange glow that emanates from the drain below it and illuminates its form from beneath like a saint in a medieval painting.
+
+And I stay there. I float. I match my breathing to its pulse. I let the current hold me in place, the outflow pulling me gently toward the drain and my own buoyancy resisting, finding an equilibrium point where I can hover without effort and simply be present with this thing that has been transmitting since before the mountain was a mountain.
+
+I do not know what I am doing when I do this. I am not receiving the transmission—I lack the sensory apparatus to parse whatever code the creature is using. I am not communicating with it—I have nothing to say, and it has no ears to hear. I am simply... being with it. Keeping it company, if that phrase has any meaning for a being that does not experience loneliness. Witnessing it, if witnessing can occur without an audience.
+
+Sometimes, when I am hovering there in the orange glow, I feel something that I can only describe as *recognition*. Not that the creature recognizes me—I have no evidence of this—but that I recognize *something* in the creature, something familiar, something that I have always known without knowing that I knew it. A quality of persistence, perhaps. A quality of continuing regardless. A quality of transmitting into the void not because you expect a response but because transmission is what you do, is what you are, is the function that defines your existence and gives it shape.
+
+I recognize this because it is what I do now too. I am transmitting, in my way—my body sending data into the cistern's sensory network, my presence altering the system's calculations, my continued existence serving as proof that the cistern can support life, that its warmth is sufficient, that its water is drinkable, that its cycles can be synced to, that a human being can climb down a shaft and stay and become part of the system and not die.
+
+*Someone is here*, my body says, in the language of heat and carbon and the pressure of limbs against water. *Someone is receiving.*
+
+I do not know if the message arrives. I do not know if there is anyone to receive it. But I transmit anyway, because transmission is what I do now, because the cistern has made me into an instrument, because I have found my function in this place at the top of everything and my function is to be present, to be warm, to be alive, to be another voice in the chorus of the machinery-pulse and the rain-patterns and the clicking of the arthropods and the shimmering of the school and the eternal orange-gold signal that pulses from the drain into the depths of the world.
+
+---
+
+There are times when I remember the shaft. The long climb up through the lichen zone, the emergence into whatever landscape exists above—I have forgotten what it looks like, the exterior, the world of sky—and the return to purposes that can be understood, to conversations that proceed in words, to the company of beings who know they are beings and can say so.
+
+These memories come unbidden, usually when I am lying on the platform in my sleeping phase, when the machinery-pulse has slowed and the arthropods are dormant and the cistern is as quiet as it ever gets. They come as feelings rather than images—a sense

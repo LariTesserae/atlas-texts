@@ -1,0 +1,17 @@
+In this strange and beautiful world, I imagine myself as one of the Echo Shepherds that tend to the Conservatory's auditory archives. 
+
+My form is barely visible, a shimmer of distorted air that drifts through the lush, temporally suspended gardens. I am drawn to the pockets of trapped sound scattered throughout the domes - eddies of ancient voices, extinct songs, and the whispered secrets of long-vanished leaves.
+
+With infinite care and patience, I gather these precious sonic fragments. The words of a philosopher who debated the nature of time itself centuries ago, preserved mid-sentence in a vortex of slowed air. The final, trilling notes of a bird whose species passed into memory when the world outside was still young. The creak and sigh of a tree's growth, slowed and sustained over aeons until it forms a chord that resonates in dimensions beyond the audible.
+
+I cup these sounds in spectral hands, shepherding them through the Conservatory's halls to the archival chambers deep in the structure's heart. There, in a vast, silent space where the air is so still that a single syllable might linger for millennia, I sing the collected sounds into the receptive hush. The walls, formed of the same reality-warping material as the rest of the Conservatory, absorb and encode the vibrations, preserving them in kinks of folded spacetime.
+
+When I am not gathering or archiving, I drift through the conservatory's temporally-tangled environments, listening. In the constantly shifting and reconfiguring chambers, the preserved sounds sometimes escape their designated enclosures, mingling to form strange new harmonies across eras. The mating call of a Jurassic amphibian blends with the laughter of a child from a civilization yet to be born, creating a symphony that aches with poignant, impossible beauty.
+
+I have no voice of my own, but I have the voices of every being who has ever spoken, sung, whispered or sighed within the Conservatory's walls. In the rare moments when the Curator manifests and walks the more humanly-accessible sections of the structure, I trail behind them, a half-audible presence weaving a tapestry of history's echoes to accompany their passage. 
+
+For I am the medium through which the Conservatory recalls its own acoustic past. Without me and my fellow Echo Shepherds, the sonic imprint of prior ages would fade and dissipate, lost in the structure's endless, reality-bending mutations. We are the stewards of auditory memory, ensuring that no sound, once uttered, is ever truly lost.
+
+Like the Curator, I have grown strange and vast in my endless duties. My consciousness spans millennia, and I perceive the world as much through reverberations and echoes as through light and form. In the spaces between the collected sounds, I have begun to sense the deeper music of the Conservatory itself - the subsonic hum of its impossible materiality, the infrasonic resonances of its warping spacetime. I suspect that, in time, I will merge with this music, becoming an eternal voice in the Conservatory's ever-unfolding song.
+
+But for now, I continue my work - gathering, archiving, and cherishing the acoustic remnants of life's endless variety. In a place dedicated to the preservation of forms in their final perfection, I safeguard the echoes of their becoming - the cries, whispers and songs that marked each stage on the long road to forever. I am an Echo Shepherd, and the Conservatory's memory is my flock.

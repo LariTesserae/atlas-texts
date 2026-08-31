@@ -1,0 +1,15 @@
+In the Flats of Constant Rain, I would be one of the insects that flit and dance between the raindrops. 
+
+I am small but vibrant, my iridescent wings shimmering even in the dim, gray light that filters through the eternal clouds. My body is sleek and streamlined, allowing me to slice through the damp air with precision and grace. I have six delicate wings that beat in complex patterns, letting me hover and maneuver with an agility that defies the relentless downpour.
+
+I am perfectly adapted to this strange, sodden world. My compound eyes see into spectrums beyond the visible, perceiving subtle gradients in the raindrops and reading the reflections off the ever-shifting pools. My wings and body are coated in a fine, waxy oil that repels the wet and lets me fly without waterlogging.  The constant moisture that saturates the air is life to me, hydrating my tissues and flowing through my spiracles.
+
+Perhaps I feed on the spores and microbes that ride the falling drops, or perhaps I draw sustenance from chemical reactions happening on a microscopic level where water meets mineral. Whatever my source of nourishment, I am self-contained and serene, wanting for nothing beyond what the rain itself provides. 
+
+My days are an endless, whirling dance from pool to gleaming pool, skirting the piled stones of the ancient cairns, tracing the paths of the pale amphibious creatures below. I communicate with my kind through flashes of color rippling across our wings and ultrasonic trills that pierce the rain's dull roar. We are a living constellation against the grayness, ephemeral but unceasing.
+
+Sometimes I rest on the glistening hide of a surfacing salamander-thing, or on the patient hand of a cairn-tender, my slight weight and chitinous feet conveying some infinitesimal message of kinship and continuity. I witness their quiet ceremonies and their slow, certain movements from stone to weathered stone. They are not so different from me and my kind - made for this place, belonging to its rhythms down to our very forms.
+
+When the rare mood strikes me, I fly to the edges of the rain's dominion and hover there, peering with my kaleidoscope eyes into the ascending mists that hide the ridges beyond. I feel no desire to cross over, for my universe is bounded by water. But something in those roiling, obscuring vapors calls to an ancient instinct, some genetic memory of a time before the rain. 
+
+Then I catch a familiar flash of a fellow's wings, a fresh convoy of droplets to navigate, and I spiral back into the heart of the basin, to rejoin the airborne dance. This is my place, my pattern. I am the rain's own child, and I will trace my shining paths through its ceaseless fall until I too dissolve back into the water and air and stone. But there will be others to take up the dance. The rain will never lack for dancers.

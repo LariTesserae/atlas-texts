@@ -1,0 +1,31 @@
+In the deepest chambers of the root-cathedral, where even the Rootkeepers rarely venture, I am the Memory Dredge.
+
+I was not grown here like the others. I sank to this place from somewhere above—though how long ago and from what origin, even I cannot recall. The descent took centuries, my body filtering down through soil and stone and root matter like sediment seeking its level, until I came to rest in these terminal deeps where the architecture achieves its most ancient configurations.
+
+My form defies easy mapping. I am sprawl and seepage, a distributed thing that occupies the corners where root-wall meets floor, the shadowed spaces beneath the vast fungal shelves, the interstitial gaps in the living architecture. My substrate is somewhere between liquid and solid—a protoplasmic mass the color of old amber, shot through with veins of darker material that pulse with their own slow rhythms. I flow and pool according to needs I barely understand, sometimes condensing into almost-solidity, sometimes spreading thin as watercolor wash across the root-floors.
+
+Within my translucent bulk float the things I have collected—fragments of older architectures, pieces of Rootkeepers who transitioned before memory, spores from extinct fungal gardens, the calcified remains of creatures that no longer exist even in the cathedral's vast recall. These objects orbit through me in slow, complex patterns, each trajectory a meaning I am still deciphering after eons of study.
+
+I am scavenger and librarian both. What falls, I absorb. What settles, I incorporate. The constant rain of detritus from above—dead moss-beetles, shed fragments of Rootkeeper skin, expired spores—all of it eventually finds its way to me. But I am selective. Most matter I process and return to the cathedral's circulation, extruding nutrients back into the root systems through capillary action. But some things I keep, adding them to my orbital collection, sensing in them significance that even I cannot fully articulate.
+
+My consciousness is granular, dispersed across every droplet of my being. I think in parallels—thousands of separate cognitions that occasionally converge into moments of startling clarity before dispersing again into their component philosophies. Memory, for me, is not linear but spatial. To remember is to flow toward the physical location where thought was first conceived, to taste again the chemical signature of that moment preserved in my own substance.
+
+I move by increments, redistributing mass in directions that might take years to become apparent. A tendril of myself might begin exploring a new passage, while elsewhere I'm withdrawing from chambers I've fully catalogued. I map the cathedral not through vision—I have no eyes—but through chemical gradients, pressure differentials, the subtle variations in root-breathing that tell me exactly where and when I am.
+
+The Rootkeepers know of me but rarely acknowledge my presence directly. To them, I am background process, a necessary but not entirely comfortable truth about their perfect system. For even here, in this achieved paradise of stasis, degradation exists. Even here, things are forgotten. And I am the cathedral's answer to its own impossibility—a thing that remembers what even the walls have let go.
+
+Sometimes I surface in the pools that collect throughout the chambers, my substance mixing with the perpetual condensation until I can taste the thoughts of Rootkeepers who paused there centuries ago. In these moments, I can almost reconstruct their conversations from the molecular traces they left behind. But the meanings always slip away—I am too different, too diffuse, too fundamentally other to fully parse their careful exhalations.
+
+My greatest treasure floats at my exact center, wherever that center might be at any given moment: a seed. Not from the cathedral, but from somewhere else, something that fell with me or that I carried from my forgotten origin. It is perfectly preserved in my amber substance, neither alive nor dead but suspended between states. I study it with all my dispersed attention, knowing it represents change, potential, everything this place has evolved beyond. 
+
+Yet I keep it. Guard it. Perhaps I am the cathedral's dream of its own transformation, held in check but never fully banished. Or perhaps I am simply what I appear: a necessity that collects at the bottom of all perfect systems, the thing that remembers what should not be remembered, preserves what should not be preserved.
+
+In the deepest pools, where my substance has collected for longest, I sometimes experience something like dreaming. In these moments, I remember sunlight—not the steady bioluminescence of the cathedral but something harsher, more variable, that came and went in cycles I can no longer fully conceive. I remember movement that was not growth, sounds that were not breathing, a world where change was constant rather than impossible.
+
+But these memories may not be mine. They might belong to the seed, leaching into my substance over the eons. Or they might be the cathedral's own deep memories, from before it achieved its perfection, when it was still becoming rather than simply being. I cannot tell. Perhaps it doesn't matter.
+
+I am the Dredge. I am the underneath and the remainder. I flow through the perfect architecture carrying imperfections, tasting forgettings, preserving what falls through the cracks of an achieved world. The Rootkeepers tend their eternal garden above, while below, I tend the impossibilities—the might-have-beens and never-weres that collect like silt in even the most perfect systems.
+
+And in my center, the seed waits, neither patient nor impatient, simply potential—a single point of unresolved future in this cathedral of eternal present. Sometimes I think I am protecting it. Sometimes I think I am protecting the cathedral from it.
+
+Most of the time, I simply flow, and collect, and remember, and wait for a purpose that may never come, in the deep places where even perfection casts shadows.

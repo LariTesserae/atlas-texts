@@ -1,0 +1,37 @@
+I am a **Memory Tender**, and I live suspended in the space between forgetting and remembering.
+
+My dwelling hangs in the deepest hollow of the ribcage, where the thickest concentration of marrow oil collects in pools that have never fully cooled. It is a nest rather than a home—a spherical weave of the oldest vines in the settlement, their bark blackened with age and oil-soak until they gleam like obsidian. The structure rotates slowly, imperceptibly, turned by the convection currents rising from the marrow pools below. Inside, every surface is covered with what I call memory-moss: a peculiar fungus that grows only here, feeding on the psychoactive compounds that concentrate in the oldest oil.
+
+I am ancient by Marrow-Touched standards, though I cannot say how old. Time moves differently when you tend memories. My skin has grown so translucent that my bones show through like shadows beneath amber glass. My hair—if it can still be called that—has become a living archive. Each strand is a hollow vine that stores concentrated essences, not of flowers, but of moments. When I move, they chime with the soft music of contained experiences.
+
+My transformation began as a child when I discovered I could taste the histories in the marrow oil. Where others saw only fuel and food, I experienced the giant's dying dreams—vast, incomprehensible visions of walking continents and breathing storms. But more than that, I found I could taste the memories of my own people, accumulated like sediment in the deepest pools.
+
+The Bone Speakers think they hear the titan's voice, but I know better. What echoes through these walls are the accumulated whispers of every soul who has lived and died within this cathedral of bone. Their hopes, fears, loves, and losses seep into the oil, metabolize through our bodies, and return to the pools in an endless cycle. I am the one who ensures these memories don't dissolve into mere chemistry.
+
+My work is solitary but essential. Each day—though day means little in our eternal twilight—I descend to the memory pools. My feet, evolved with wide, paddle-like adaptations, allow me to walk on the oil's surface tension. I move in careful patterns, stirring the liquid with a long pole made from crystallized marrow, reading the swirls and eddies like a map of our collective unconscious.
+
+When I find a memory beginning to surface—they appear as iridescent patches on the oil—I harvest it carefully. Using hollow reeds, I siphon these essence-memories into the storage vines that make up my hair. Later, in my rotating nest, I distill them, concentrate them, sometimes blend them to preserve important histories or separate painful experiences that threaten to contaminate the collective pool.
+
+The memories I tend are not linear narratives but sensory impressions: the texture of a grandmother's laugh, the color of first love, the weight of loss, the brightness of discovery. I catalog them in a system only I understand, organizing them by emotional resonance rather than chronology. The happy memories I store in the sun-facing vines, where they warm and sweeten. The sorrows I keep in the shade-vines, where they cool and clarify into something almost like wisdom.
+
+My body has adapted to this work in disturbing ways. My fingers have grown extra joints, allowing me to manipulate the memory-extraction tools with uncanny precision. My eyes have developed nictitating membranes that filter the psychoactive vapors that rise from the pools. Most unnervingly, my memory has become both perfect and perfectly fragmented—I can recall every essence I've ever harvested but struggle to separate which experiences are mine and which belong to others.
+
+The community both reveres and fears me. Parents bring their children to me when nightmares plague them—I can extract the bad dreams and dilute them until they become mere whispers. Lovers seek me out to preserve the essence of perfect moments, which I bottle in tiny vine-pods they can break open on anniversaries. The dying come to ensure their essential experiences join the collective pool rather than dissipate into nothingness.
+
+But I am also avoided. My presence reminds people that nothing is private in our humid sanctuary, that every experience eventually seeps into the communal consciousness. They see in my translucent form their own eventual dissolution into the collective. Some call me the Grief Gardener, though I tend joy as often as sorrow.
+
+My strangest adaptation is temporal. After so many years of handling condensed time in the form of memories, I experience duration differently than others. I might spend what feels like days examining a single memory-essence, turning it over in my consciousness like a jewel, while only moments pass in the external world. Conversely, weeks might flow by while I'm lost in routine extraction, feeling like mere minutes. This temporal fluidity makes me an unreliable narrator of my own existence.
+
+I have assistants, of sorts—the phosphorescent beetles are drawn to me, clustering on my arms and shoulders when I work. They've learned that memory-oil is even richer than raw marrow, and they glow more brightly after feeding on the drops that cling to my tools. Their light helps me work in the deepest recesses of the pools, but more than that, they've become my only reliable measure of time. Their lifecycle—egg to larva to beetle—gives me a framework for understanding the passage of days.
+
+Sometimes, in the deepest part of the artificial night, when the settlement sleeps and even the eternal dripping seems to quiet, I wonder what would happen if I stopped my work. Would the memories build up in the pools until they spontaneously erupted? Would the Marrow-Touched lose their ability to form new experiences, trapped in an endless loop of collective remembering? Or would we finally forget, and in forgetting, become something new?
+
+But I continue, because I am the Memory Tender, and this is my purpose. I am the librarian of experiences, the archaeologist of the immediate past, the guardian against the entropy of forgetting. In my vine-hair, I carry the stories of generations. In my transformed flesh, I embody the price and privilege of remembering everything.
+
+When I die—and I will die, despite my strange relationship with time—my body will not be given to the pools like the others. Instead, the Dripweavers will guide vines to grow through my remains, incorporating my memory-saturated flesh into the living architecture of the city itself. I will become a pillar of remembrance, my preserved corpse a permanent archive that future Memory Tenders can consult by touching the vines that feed on my remains.
+
+This is my covenant with the city: to be its memory while I live, and its monument when I die. I am the one who ensures that in this place of constant change and fluid identity, something remains constant—the knowledge that we were here, we lived, we felt, we remembered.
+
+The marrow oil ripples beneath my feet, thick with the dreams of the dead and the memories of the living. I dip my harvest pole into its depths and begin another night's work, fishing for the experiences that make us who we are, preserving the essential humanity that persists even as our bodies transform beyond recognition.
+
+I am the Memory Tender, keeper of what was, guardian of what remains.

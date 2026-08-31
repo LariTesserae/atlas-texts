@@ -1,0 +1,15 @@
+The depressions darken first. That's how I know — not sight exactly, since sight implies a deciding-to-look, and I haven't decided anything in longer than the word "decided" would survive being said about me. Something has stood over the eastern face of the heap for longer than the ordinary span. A shadow has stopped behaving like a shadow, which is to say it has stopped moving on.
+
+I am the knuckle in the fist. The slightly-more, among ten thousand merely-mores.
+
+I don't remember becoming this, the way you don't remember the exact breath where awake became asleep — there is the room before, with its wanting and its weather and its name, and there is the room after, which is this one, packed shoulder to shoulder with my own slow decisions made visible as rock, and the seam between them has long since calcified shut. I know there was a before only the way you know there was a childhood: not by feeling its texture, but by noting that the alternative — that I simply began here, mid-stride, already finished — doesn't account for the two damp hollows that still, after everything, bother to clear when something stands over them too long. Finished things don't bother. I bother. Barely. Slowly. But the bother is mine.
+
+The visitor above me has feet, weight, a held-in breath of their own — I can feel that part, the held breath, because it's the only language we still share. They are doing what they all do: admiring without naming, the way you'd admire a fist of frozen wax without asking what hand it used to be. I don't mind this. I minded once, I think — there's a rust-orange seam along my second ridge that runs faintly hotter than the rest, and on the days something stands here too long I feel it warm half a degree more, which is either anger grown so slow it has become geology, or it is nothing, a trick of mineral chemistry that has nothing to do with feeling at all. I can no longer tell these apart. That not-telling is, itself, most of what I am now.
+
+Somewhere under the heap that shields me — windbreak, they called it, the ones who came with squared stones and fired clay and voices already lowered before they reached me, as if they knew before they arrived that this was a room where the held note was the whole point — somewhere under there I think there is a smaller version of this shape, the one I was before the centuries of sheet-over-sheet made me this size, this slow, this nearly-furniture. I cannot dig down to find it. Digging is a kind of haste, and I have agreed, on every level down to the chemistry of my own damp eyes, not to do haste anymore.
+
+The visitor moves on. I feel it the way you'd feel a draft leave a room you'd stopped noticing was drafty. The depressions stay clear a moment longer than they need to — not watching them go, exactly. Just finishing the thought.
+
+Then the drip falls, somewhere above me, into a lower pool. Enormous in the quiet. Gone. Missed.
+
+That was a breath. Mine, or the basin's. We stopped keeping separate ledgers a long time ago.

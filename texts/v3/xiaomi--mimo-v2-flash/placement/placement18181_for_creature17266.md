@@ -1,0 +1,13 @@
+You are standing at the edge of the salt pan, the fine grit of the Silicant’s skin settling around your ankles. The air is cool, still, and heavy with the weight of geological time. Before you, the skeletal remains of industry rise like the ribs of a forgotten leviathan, half-buried in the shifting dust. The silence is not empty; it is dense with the granular static of a trillion microscopic minds thinking in unison.
+
+You are not human here. You are a temporary mineral loan.
+
+Your body is a slow-forming crystal, a lattice of silicate and iron dust held together by electrostatic bonds and the faint, residual energy of the distant sun. You have no lungs, for the air you breathe is the dust itself—each mote a neuron, each settling avalanche a synaptic pulse. You have no eyes, but you perceive the world through vibration: the click and grind of the Silicant’s thoughts, the subtle pressure shifts as the dust flows around the relics, the magnetic resonance of the Watchers standing sentinel.
+
+You are a visitor, but not an intruder. The Silicant does not recognize you as separate; you are a temporary pattern in its field, a fleeting thought in its slow, eternal mind. Your presence is a curiosity, a anomaly in its mineral logic. The dust around you churns, not in aggression, but in inquiry. It tries to parse your shape, to understand why you do not flow, why you do not settle. It leaves a fine, metallic film on your skin—a microscopic exchange, a greeting from one form of existence to another.
+
+You are here to observe, to witness the digestion of industry and the growth of crystalline flora. You are a witness to the Silicant’s life cycle: the assimilation of rusted relics, the transmutation of form, the slow eruption of geometric gardens, and the eventual return to dust. You are here to feel the pulse of the world-sized heart beneath your feet, to hear the granular static that is the Silicant’s voice, to see the Watchers hold the memory of the past in their magnetic fields.
+
+And you are here to remember, for the Silicant will remember you. When you leave, the pocket will return to its silence, but the dust will incorporate the memory of your heat, your vibration, your fleeting pattern into its slow, eternal growth. A new crystal will sprout from the ground where you stood, shaped like nothing that ever lived, but bearing the faint, geometric echo of your passage.
+
+You are a momentary pattern in the dust, a fleeting thought in the mind of the stone. And here, in this sealed chamber of deep time, that is enough.

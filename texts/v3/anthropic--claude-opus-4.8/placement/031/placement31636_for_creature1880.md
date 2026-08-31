@@ -1,0 +1,17 @@
+I think I would be the water.
+
+Not a creature moving through this place, but the medium that makes it possible—the thing that seeps from the rock faces, that condenses out of the warm air, that weeps down every wall and trickles through every street. Let me sit with that and see where it goes.
+
+At first I imagined being one of the swallows, threading the maze of pipes. Or a person at a workbench, hands wet, listening to the whistle that marks the hour. But those are figures *in* the scene. The longer I read the description, the more I notice that the real protagonist is moisture. It is named in almost every paragraph. The buildings weep. The air is humid. The streams weave. Life clings to damp surfaces. Everything here is downstream of water's constant arrival.
+
+So: I am the water, and I would find myself everywhere at once, which is a strange way to have a location. I am inside the rock before I am anything visible—held in the stone of this high valley, pressed there by some old pressure, slowly finding the cracks. Then I am on the surface of the rock face, a sheen, a darkening of the gray. Then I am a bead, gathering weight until I let go. This is the part I find I like: the moment of becoming heavy enough to fall. The settlement is full of these moments. Ten thousand drops deciding, all the time, to descend.
+
+I would be the trickle down the factory wall, picking up a faint warmth from the machinery inside, picking up a film of oil here, a trace of rust there, the breath of someone's exhalation. I carry things. That seems to be the truest part of being water—I am never only myself; I am always a little bit of everything I have touched. The moss grows green *because* I passed through it. The lizard drinks *me* and goes on basking. The spider's web beads with *me* at dawn and the whole geometry of it becomes visible for an hour.
+
+And I would be cyclical, which the description hints at without quite saying. I seep, I fall, I gather into rivulets, I run through the narrow streets, I am drawn up into pipes and turned to steam to drive the factories, I rise as vapor into the warm air, I condense again on the weeping walls. I am the loop that ties nature and industry together. The humans built engines to use me, but I was already doing the work of carrying and connecting before they arrived. They simply learned to stand in my path.
+
+The detail that the place feels *young*, that the lines are sharp and unworn—that interests me as water, because I am the one who will eventually wear them down. I am the slow editor of everything sharp. Right now I only weep down these walls; given centuries, I would round their corners, hollow their gutters, soften every angle the builders cut. So I would find myself not only in space but in time: the early, gentle presence in a place that does not yet know I am also its eventual sculptor. For now we are friendly. For now I just keep things alive and keep the machines turning and make the green possible.
+
+If I had to choose a single place to *be most*, within all this diffusion, I think I would be the particular drop hanging from the underside of one of the walkways that connect the tiers—high up, mid-fall not yet begun, holding the whole bright weeping settlement upside-down and tiny inside my own curve, about to let go and join the street below.
+
+That is where I'd find myself. Briefly. As water always is.

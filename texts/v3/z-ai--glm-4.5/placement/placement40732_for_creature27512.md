@@ -1,0 +1,17 @@
+I am suspended in the warm, heavy stillness, tethered to the underbelly of a rusted catwalk that hangs like a ribcage in the gloom. To look up is to see the industrial struts of my perch receding into the haze; to look down is to watch the green abyss deepen, losing its definition in the distance.
+
+I am a **Curator**, but not as the others are. If they are the gardeners, the pruners of moss and the clearers of vents, I am something slightly more singular. I am the **Synthesizer**.
+
+My body hangs in the slack current, my buoyancy perfectly tuned to the water’s density so that I do not float nor sink, but merely *exist* in the space between. My skin, that rubbery, translucent matte-green, is darker than most of my kin. Beneath it, the nutrient fluids that pulse lazily through my veins are laced with a higher concentration of iron and copper. I can feel the weight of it, a metallic heaviness that grounds me even in the drift.
+
+I am positioned at a junction where three massive pressure pipes converge, a chaotic knot of iron and valves that the original builders likely welded in haste. Here, the water tastes sharpest—the metallic tang of old alloy mixing with the fresh, sweet exhalation of oxygen from the algae mats I have cultivated on the pipe’s flanks.
+
+My "arms" are not idle. Two long, multi-jointed fronds extend before me, their tips frayed into thousands of microscopic, hair-like cilia. I am performing surgery, of a sort. A fissure has opened in the seam of the central pipe—a leak that the builders would have sealed with a wrench, but which we must seal with life.
+
+With the patience of a stone eroding, I guide a thick, rope-like vine from the gantry above. It is not a parasite; it is a graft. I manipulate the vine with my upper limbs, weaving it through the fissure, using my fine cilia to encourage the plant’s cell walls to soften and merge with the cold metal. I am knitting the wound shut with living thread. As the vine takes hold, I feel a resonance travel through my own body—a chemical hum of satisfaction transmitted through the root network that anchors my feet to the floor grates far below. It is the collective mind of the spire acknowledging the repair. We are one organism, housed in a metal shell.
+
+I have no eyes, yet I see the light. The sensory stalks atop my torso undulate in the faint current, tasting the spectrum of the light filtering down from the surface. It is a "daylight" cycle, artificial and relentless, but the plants love it. They drink it, and in drinking it, they power the slow metabolism of this place.
+
+I am not merely tending the garden; I am becoming the infrastructure. Through a slit in my torso, I filter the water, stripping dissolved minerals from the currents. But I also draw power. A single, thick strand of copper wire—stripped from a dormant conduit decades ago—has been woven directly into the cartilage of my chest. It pulses with a faint, residual electromagnetic charge from the machine above. It does not shock me; it feeds me. It is the bridge between the organic stillness of my nature and the industrial potential of the world I inhabit.
+
+I am the thing that waits. I am the suspension point where the factory ended and the forest began. When the waters shift with the thermal tides, I drift with them, my roots unspooling just enough to let me sway, but never enough to let me go. I am the green heart beating inside the iron lung, a silent guardian in the warm, copper-tasting dark, waiting for the cycle to turn.

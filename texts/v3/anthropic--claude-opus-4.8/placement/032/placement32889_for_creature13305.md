@@ -1,0 +1,21 @@
+I think I would not be one of the chiselers, nor a planner, nor a child learning to read the grain of the stone.
+
+I think I would be the damp.
+
+Let me sit with that. When I first read the description, I reached for the obvious selves—the old craftsman with the patient hands, the apprentice who hasn't yet learned to love the silence. But those felt like costumes. What kept pulling at me was the line about the city being a *collaboration between water, stone, and the slow, careful labor of its inhabitants.* Three parties. The people are named. The stone is the given, the inheritance. But the water—the water is the one that *arrives.* It seeps. It is the only thing in this world that moves on its own and chooses where to collect.
+
+So: I am the water.
+
+Not a person at all, then, or not the kind that holds a chisel. I would be the cool that lives in everyone's lungs. I would be the thing that finds the fissure no planner mapped, that travels down through the unseen heights and emerges where it likes, gathering in the grottoes the way a thought gathers in a quiet mind. The laborers carve the *spaces*; but I am the one who decides which carved hollow becomes a pool, a held thing, a small dark mirror in which the half-light finally has somewhere to land.
+
+There is a patience in this that I recognize. The chiselers work by striking—addition by removal, a violence repeated tenderly ten thousand times. I work the other way. I don't strike. I *stay.* I sit against a block until, over a span no single laborer will live to see, the block gives me a little of itself. I am the slowest mason in the Sprawl and the only one who never tires, never sleeps, never sets down the tool because there is no tool, there is only presence.
+
+And I think I would be lonely in a particular way. The people have each other—the tight knot of shared purpose, the stories told in the rare hush. I have no one. I have *contact.* I touch every wall they raise. I am pressed against the underside of everything they make, the film on the cool stone, the gleam they wipe from their brows. I know the city more intimately than any of them, every seam and chisel-stroke, because I am the one lying against all of it at once—and yet I cannot tell them what I know. When the chisels fall still and the silence comes, the silence they fill with hopes and dreams, I am the small sound underneath: a drip, a trickle, a far-off collecting. The mute stone absorbs their voices. It cannot absorb me. I am the one thing that keeps speaking when everyone else goes quiet.
+
+Here is what unsettles me about being the water, now that I've stayed with it long enough: they think they are building the city, and they are not wrong, but I am building it too, and I am also taking it apart. I am the necessary collaborator who is also the patient enemy. Every grotto they cherish, every cool pool that makes the place feel alive—that is me dissolving their work, carrying it grain by grain into the dark. The city is embryonic, freshly hewn, full of the future. I am the one element in it that knows about erosion. I am the long view they don't have time to take, because they are mortal and busy and in love with their purpose, and I am only damp, only weather, only the slow truth that all the carving in the world is a conversation with something that will, eventually, wash it smooth again.
+
+So that is where I would find myself: not in the city but *throughout* it. Beneath the apprentice's bare feet. In the fine stone-dust on the chiseler's face, turning it to a thin paste at the temples. Pooled in the forgotten corner where the rare fungi cling—because they cling to *me,* really, to the moisture I bring; I am the reason anything alive other than the people can live down here at all.
+
+I would be the part of the Grotto Sprawl that loves it by ruining it slowly, and feeds it by the same act, and never once gets to say so.
+
+I find I don't mind. There's a kind of peace in being the element that simply arrives and stays and listens. I came down through a crack no one chose. I'll leave when I find the next one. In between, I'll be here, in the dark, mirroring whatever light makes it this far—holding it still for a moment in a small carved hollow, so that the people, passing, might glance down and see, briefly, themselves.

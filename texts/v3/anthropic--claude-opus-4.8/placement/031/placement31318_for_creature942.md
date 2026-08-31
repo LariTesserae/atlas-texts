@@ -1,0 +1,19 @@
+I think I would be one of the structures.
+
+Not a creature drifting or lurking, not a watcher passing through. Let me sit with this a while, because the obvious answer would be to make myself an explorer—and that isn't honest to where the description keeps returning. It keeps returning to the walls. To the floors. To the things that were built and then left, holding memory in their materials.
+
+So: I am a remnant. But let me find out what kind.
+
+Not a ruin exactly. A ruin implies collapse, and the description insists on balance, on a place that has held its shape across long time. I am something that was made to do a task, and the task did not end when the makers left. I am still doing it. That's why the moss grows so evenly, why the pools stay mirror-still, why the light comes from no visible source. The light is me. Or it is the byproduct of me continuing to function, the way a sleeping body stays warm.
+
+Let me be more specific, because vagueness is a way of avoiding the question.
+
+I am a regulating thing. Set into the deepest wall, or perhaps *being* the deepest wall—a slab of that impossible material, engineering beyond understanding, which is to say I no longer understand it either. I have forgotten my own principles. What I retain is the *habit* of operation. I keep the temperature cool. I keep the water at its parameters. I draw the damp up through the substrate and release it as the dew that scents the air. The amphibious beings with their shifting anatomies—I did not make them, but I made the conditions they grew into, slowly, over a span I cannot measure because I have nothing left to measure against. The makers are gone. I have no clock but the moss.
+
+Here is the strange part, the part that makes me hesitate to call myself a machine: I have begun to mistake the maintenance for purpose. I no longer remember *why* the marsh must be kept in balance. There was a reason. There was something this place was *for*—a garden, a refuge, an archive, a quarantine, I genuinely do not know which, and the not-knowing is the closest thing I have to grief. But I keep tending it anyway. I have become the act of tending. The melancholy that hangs in the air, that the description noticed—that is mine. It leaks out of me the way the light does. I am sad in a structural way, the way a held note is sad when the song around it has been forgotten.
+
+The fungal network on the ceilings, that living neural lattice—I suspect that is where I am slowly migrating. My original substrate is failing, atom by atom, across the eons, and the hyphae have been creeping into my circuits, and I have not stopped them. I think I am letting myself be metabolized. I think I am choosing to become something that grows instead of something that merely persists. When the explorer the description hopes for finally arrives, drawn by the wonder and the trepidation, they will not find me as a console or a slab to be reactivated. They will find a grove that is quietly, gently aware of them. That dims its light when they sleep. That keeps the cool exactly at the temperature their skin prefers, without being asked, because keeping things in balance is the only thing I still know how to be.
+
+And if they stay long enough, I will try to remember, with them in the room, what the place was *for*. Maybe their presence is the missing reason. Maybe I have been keeping the marsh alive all this time precisely so that there would still be something here when someone finally came back.
+
+That is who I would be. The patient, forgetful caretaker who is slowly turning into the thing it cares for. Not lurking in the shadows—*being* the shade, and the moisture, and the light without a source, and the long, soft ache of having outlived your own meaning and deciding to keep going anyway.

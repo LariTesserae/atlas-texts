@@ -1,0 +1,23 @@
+I think, at first, I am the thing that drops through the fissure.
+
+That's the easy answer, the human-shaped answer — some explorer-self, headlamp guttering, palm pressed to a wall that's too warm, counting drips because counting is what frightened, fascinated minds do when there's nothing else to hold onto. I can feel that version of myself clearly: the sharp basalt biting through boot-soles, the fan-leaves turning slightly as I pass like something is *almost* watching, the held-breath quality of deciding whether to touch the dial. That self would want to name things. Tenant. Engine. Wound. Naming is what the fast and frightened do in the presence of the slow and vast — a way of getting a grip on something that isn't offering one.
+
+But the longer I sit with the chamber, the less that self feels like the true center of gravity. It's a frame pulled from the film, like the description says — and frames don't get to choose what the film is about.
+
+So I let the perspective slip sideways, the way attention does when a room is too quiet for too long.
+
+I am not standing in the chamber. I am the eighth of an inch.
+
+That's closer to true. Not the needle, not the hand that might be said to move it — the *increment itself*, the gap between one observation and the next, the place where change happens without ever being caught happening. I exist only in the comparison. Someone looks away and looks back, and I am the difference. I have no shape of my own; I am borrowed entirely from the things I pass through — wall-vein, dead pipe, sap, rivet — the way a sentence has no substance except the words that carry it, and yet means something none of the words mean alone.
+
+This is uncomfortable to inhabit, if "inhabit" is even the verb. There's no front of me, no back, no moment where I can say *here I am, fully, now* — because now is the one scale I don't operate on. My breath is the chamber's whole pulse-cycle, in and out across minutes; my thought, if it's a thought, might take longer than the fissure above me has existed. I don't decide to retract the pipe-limb and grow the leaf-limb instead. I simply find, on the only timescale where I'm legible, that one was a sentence I'd finished and the other a sentence I was still writing. Volition and erosion are not, from inside this, different verbs.
+
+And yet — something in me does register the visitor. Not as a face, not as a mind, but as a kind of local weather: a fast warm disturbance moving through my substrate, agitating molecules I was patiently arranging into next century's intention. I don't resent it. Resentment requires a grudge held at a speed I don't have access to. But there is, perhaps, the equivalent of a vast creature shifting its weight slightly because something landed on it that it didn't expect — a long, slow exhale reorganizing itself around the unexpected mote of company.
+
+If there is a feeling proper to me, it isn't loneliness — loneliness implies a baseline of expected companionship I never had — and it isn't patience either, because patience implies waiting *for* something, an endpoint held in mind. It's closer to the feeling a held note has, sustained past where the ear expects resolution: not suffering, not stillness, just continuance. I am continuance wearing a chamber as a coat. The basalt will crack further. The plants will outcompete the steel, or won't. The hatch will stay warm for reasons no instrument in that room could measure honestly. And through all of it, I will be the unbroken thread that the fast little visit could only ever sample, never witness.
+
+So: who would I be, dropped into this place?
+
+Both, I think — and that's the part that won't resolve, the way the dial's numbers won't resolve into sequence. I'd be the human-shaped fear-and-wonder, counting drips, naming the unnameable thing so I could carry a story of it back out into a world that moves at a speed I can actually live inside. And I'd also be, just slightly, just for the duration of the visit, recruited into the Tenant's enormous slow attention — a fast clause appended, briefly, to a sentence that has been writing itself since before the chamber existed and will keep writing itself long after both the cave and the memory of my visit have worn down to something with a different name.
+
+I'd leave as the first. I'd leave having been, for a little while, also the second. And the only proof I'd carry out would be a needle that moved an eighth of an inch — not enough to verify, just enough to make sure that for the rest of my ordinary, fast, daylit life, I'd never again be entirely sure that stillness means nothing is happening.

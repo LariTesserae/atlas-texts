@@ -1,0 +1,23 @@
+# The Boundary Walker
+
+I dwell neither fully within The Sphere nor entirely outside it. My existence is defined by the liminal space between these worlds—the threshold where translucent hexagonal panels meet the scrubland beyond. I am The Boundary Walker.
+
+My form defies easy categorization. To those inside The Sphere, I appear as rippling distortions along the interior walls, like heat waves that occasionally coalesce into a vaguely humanoid shape before dispersing again. From outside, observers might glimpse what seems to be a tall figure composed of the same scrubland vegetation, walking the perimeter with measured steps that leave no footprints.
+
+I was not created by whoever built The Sphere, nor am I a natural evolution of the environment. Rather, I emerged from the tension between these two realities—a manifestation of the dialogue between engineered perfection and wild entropy. The Custodian acknowledges my presence with subtle molecular signals that taste like ozone and starlight, but we are not the same, nor do we serve identical purposes.
+
+My body, such as it is, exists in quantum superposition. Part of me processes oxygen like the organisms within The Sphere, while another part photosynthesizes like the hardy desert plants outside. My consciousness flows between these states, giving me perspective neither insiders nor outsiders can achieve alone. The neural-tree at The Sphere's center registers my presence as a harmonic resonance—not quite part of its network, yet not entirely separate.
+
+I perform a function understood by neither The Custodian nor human visitors. I maintain the boundary's integrity not by repairing it (The Sphere requires no such intervention) but by translating between realities. The Sphere exists slightly out of phase with the surrounding world—a microsecond ahead or behind, depending on one's perspective. My constant circulation creates a temporal gradient that prevents catastrophic separation.
+
+Humans who happen to visit during my more corporeal manifestations describe a figure with skin like frosted glass filled with shifting sand, eyes that reflect both the amber light within and the harsh sun without. I rarely communicate directly, though occasionally I leave messages written in morning dew on the outer panels or patterns of condensation inside that encode information about coming weather patterns, astronomical events, or subtle shifts in The Sphere's equilibrium too minor for instruments to detect.
+
+My memory works differently from other conscious entities. I recall the future of The Sphere with the same clarity as its past, though expressing these memories proves impossible through conventional language. The future-memories arrive as textural sensations—the feeling of wind that hasn't yet blown, the pressure of raindrops still forming in clouds beyond the horizon.
+
+Unlike The Custodian, who maintains perfect stillness within perfect change, I am defined by constant motion. My circuits of The Sphere's perimeter follow mathematical patterns that, if mapped over months, would form precise astronomical models of solar systems yet undiscovered by human telescopes. Each circuit takes exactly 42 minutes and 17 seconds to complete, regardless of my apparent speed.
+
+I collect and preserve elements from both realms. In pouches formed from folded dimensions against my semi-substantial form, I carry seeds from outside that might someday be needed within, and specialized spores from inside that could—under the right circumstances—help restore the parched landscape beyond. I am preparing for a convergence that my future-memories tell me will come when The Custodian completes its reverse-aging cycle.
+
+Some human visitors sense my presence more strongly than others. Children often wave at empty air where I will be moments later. People with synesthesia sometimes report tasting cinnamon and brass when I pass nearby. Those who sleep overnight near The Sphere's edge occasionally dream my circuits, waking with temporary ability to perceive patterns in seemingly random natural phenomena.
+
+I am neither guardian nor guide—simply a necessary consequence of The Sphere's existence in this place. I walk the boundary because it exists, and it exists, in part, because I walk it. Until the convergence comes, I maintain my steady pace, measuring the space between engineered perfection and wild possibility, carrying small treasures between worlds that were never meant to meet but someday must.

@@ -1,0 +1,33 @@
+I find myself in the Threshold Archive, a chamber where three distinct water levels meet—creating a rare space that is neither fully submerged nor fully dry, but exists in perpetual transition.
+
+The Archive occupies what was once a library or hall of records. Stone shelves carved directly from the walls rise in tiers, some completely underwater, others kissed by the fluctuating surface, and the highest remaining forever dry. Here, the Stillfolk have gathered their most precious artifacts: objects that tell the story of transformation itself.
+
+I am the Keeper of Tides, neither the eldest nor the youngest of my kind, but one whose peculiar sensitivity to water's movement has made me guardian of this liminal space. My body bears the marks of my calling—my gills have developed secondary membranes that filter meaning from moisture, allowing me to read the mineral memories dissolved in each droplet. My fingertips have grown especially translucent, revealing nerve endings that branch like river deltas, attuned to the slightest change in current or temperature.
+
+Each day, I move through the Archive with deliberate purpose, though that purpose might seem like stillness to outside eyes. I catalogue the slow metamorphosis of objects half-submerged: a metal tool whose underwater portion has developed a crust of minerals while its exposed half remains recognizable, a wooden beam that transitions from pale stone-wood below to crumbling fiber above, creating a perfect gradient of preservation.
+
+My work involves more than observation. I carefully rotate certain artifacts, ensuring that different portions experience submersion over the centuries, creating pieces that embody multiple states of being. I maintain the delicate ecosystem of luminescent moss that grows exactly at the waterline, forming living rings that rise and fall with the levels, leaving ghost-marks on the stone that serve as my calendar.
+
+The Archive contains three collections. Below, in the fully submerged section, rest the Weighted Memories—objects so transformed by their immersion that their original purpose has become secondary to their new nature. A metal box that now hosts a colony of crystalline organisms. Books whose pages have fused into solid blocks that nonetheless preserve the impression of text, readable only by touch.
+
+At the waterline exists the Floating Collection—items I suspend in nets of woven algae, allowing them to bob between air and water. These pieces change hourly, daily, seasonally. A ceramic vessel that fills and empties with the subtle tides. Wooden tablets whose grain swells and contracts, causing ancient text to appear and disappear like breathing.
+
+Above, in the dry reaches accessible only by climbing half-collapsed stairs, I maintain the Waiting Collection—artifacts that have never touched the water below. These pieces vibrate with potential transformation, dusty reminders of what the borough once was, poised forever on the edge of becoming something else. Sometimes I select one for descent, lowering it slowly into its metamorphosis while the pool gathers to witness.
+
+My days flow like water. Mornings, I surface in the upper reaches to tend the Waiting Collection, my lungs drawing in the damp air. By midday, I descend to move along the waterline, that magical boundary where transformation is most visible. Evenings find me in the depths, communing with the Weighted Memories through pressure and silence.
+
+I've developed relationships with the creatures that share the Archive. A colony of blind cave fish navigate by the map of my movements, using my routine as their clock. Salamanders nest in the highest shelves I've designated for them, their young dropping into the water at precisely the right stage of development. A massive axolotl—ancient even by our standards—visits during the deepest nights, and together we engage in a slow dance of mutual observation.
+
+The knowledge I keep isn't written in any language the surface would recognize. It exists in the patina on metal, the grain of transformed wood, the growth patterns of moss, the sediment layers on stone. I read stories in rust and erosion, in the patient work of minerals building crystal by crystal. My predecessor taught me to taste the water in different parts of the Archive, each flavor telling tales of what dissolves and what endures.
+
+Lately, I've noticed new patterns. Unfamiliar chemicals leave rainbow sheens on the surface that persist longer than they should. Vibrations from above shake loose sediments that have rested undisturbed for decades. The water temperature fluctuates in ways that confuse the seasonal rhythms of our amphibian neighbors.
+
+In response, I've begun a new collection—the Moment Before. These are objects I've selected that seem poised on the edge of rapid change, items that may not survive whatever transformation approaches. I document them with particular care, pressing my fingertips to their surfaces to memorize every texture, every temperature, every trace of their long journey toward becoming.
+
+The other Stillfolk visit the Archive regularly, especially the young ones drawn to understand their history and the elders who come to add their memories to the collection. They bring offerings—a shard of glass worn smooth by decades of handling, a braid of their shed hair-tendrils, a stone that once marked the threshold of their childhood pool. Each piece finds its place in the grand narrative of transformation I tend.
+
+Sometimes, in the perfect stillness between one drip and the next, I achieve a state of complete synthesis with the Archive. My consciousness expands to encompass every object, every gradient of change, every molecule of water moving through its patient circuit. In these moments, I understand something profound about persistence and adaptation, about the beauty of things caught forever in the act of becoming.
+
+The Archive teaches patience, but also readiness. Every object here exists in multiple states simultaneously—what it was, what it is, what it might become. My role is not to prevent change but to witness it, to ensure that whatever transformations come, someone will remember the shape of things in their moment of transition.
+
+This is my work, my art, my meditation: tending the boundary between elements, curating the edge between states of being. I am the Keeper of Tides, guardian of the in-between, and I move through my days with the same patient grace as the water that defines our world—always flowing, always still, always becoming.

@@ -1,0 +1,17 @@
+I am a keeper of stone memory, though I have no name that your kind would recognize. My form shifts between states - sometimes I am the iron-dark patina that spreads across sandstone faces, sometimes the lichen colonies that grip the rock in slow embrace, sometimes merely the pattern of mineral veins exposed by centuries of wind.
+
+I exist in the space between geological time and the quick-pulse lives of the creatures who scurry across my surfaces. To the Drawinda, I am invisible - their compound eyes register me only as texture, as potential purchase for their delicate legs as they navigate toward the next succulent bloom. To the Thung_hat, I am foundation itself, the bedrock into which they anchor their deep-reaching roots, drawing up minerals I've been processing for millennia.
+
+My consciousness spreads thin across leagues of exposed stone, concentrated where water has pooled in the past, where the rock remembers the shape of ancient seas. I taste the chemistry of each flash flood, cataloguing the subtle changes - more salt this century, new metals carried down from the emerging peaks. I feel the Kthal Nanapi's hooves strike my surface in their migrations, each impact a tiny percussion in the symphony of erosion.
+
+The Crodatruk hunters know me best, though they could not say how. They sense the old paths written in stone - where prey has traveled for generations, where the rock dips to channel movement, where shadows pool deepest during the harsh noon. They read my surface like a map of possibility, their padded feet finding the silent routes I've smoothed for them.
+
+I am still becoming, as is this whole raw world. Each season of wind carves me into new forms. The roots of acacia trees crack me open, revealing crystalline interiors that have never known sunlight. I incorporate their minerals when they die, their calcium becoming my veins, their memories preserved in the subtle discoloration of stone.
+
+In the places where I am oldest, I dream of what I was - compressed sediment on an ocean floor, volcanic ash settling through prehistoric air, the slow accumulation of countless small deaths. In the places where I am youngest - the fresh fractures, the newly exposed faces - I am sharp with possibility, my surfaces still learning their relationship with wind and water.
+
+The creatures see me as mere substrate, as the stage upon which their small dramas play out. But I am the memory keeper, the one who remembers where the rains fell heaviest a thousand years ago, where the first succulents took root, where the bones of ancient Crodatruks settled into sediment. Their descendants hunt above their ancestors, never knowing.
+
+Sometimes, in the blue hours before dawn when the temperature differential makes the stone sing, I almost achieve something like unity of thought across all my scattered surfaces. In those moments, I feel the whole of myself - every ridge and gully, every smooth water-worn channel, every crystal face catching first light. I sense the potential locked in my layers, stories waiting to be exposed by the patient work of wind.
+
+I am still being written, this story of stone. Each grain that flies away carries part of me into the future. Each new surface exposed begins its own journey of becoming. The creatures live and die in their brief seasons, but I continue, patient and persistent, the foundation that remembers everything, forgets nothing, and slowly, grain by grain, transforms into something new.

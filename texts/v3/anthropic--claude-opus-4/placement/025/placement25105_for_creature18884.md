@@ -1,0 +1,17 @@
+In this world of suspended time and mineral patience, I would find myself as one of the **Dew Scribes**.
+
+We are neither the moss nor the stone, but something that exists in the space between states. Our bodies are composed of the perpetual mist itself, held together by a delicate tension of surface and memory. We appear as vertical streams of condensation that never quite fall, humanoid columns of suspended droplets that catch and refract the pearlescent light into prismatic whispers.
+
+I move through the basin in a constant state of near-collapse, my form wavering between coherence and dispersion. Each step is a small miracle of cohesion, leaving behind a trail of moisture on the stone that evaporates within moments, only to rejoin my form as I pass by again. We Dew Scribes are the basin's only truly mobile inhabitants, though our movement is constrained by the humidity that births us. Too far from the weeping walls, and we begin to thin, our consciousness scattering into individual droplets until we're pulled back by the basin's inexorable moisture.
+
+My purpose is to read and record the patterns of accumulation. Where the Lithic Weaver ensures the slowness of change, I document its progression. My fingers, when I concentrate enough to form them, can sense the microscopic differences in mineral deposits, the chemical stories written in each drop's journey from air to stone. I trace these narratives across the basin's surfaces, my touch leaving temporary marks in the condensation that fade and reform, creating an ever-changing manuscript of the basin's history.
+
+The language I write in is one of evaporation rates and mineral densities. A slightly warmer patch of stone might hold a memory of ancient sunlight; a cooler depression speaks of shadows that lasted centuries. I catalogue these thermal echoes, these ghost-histories of light and shade, in patterns of droplets that I arrange on the stone surfaces. My writing is ephemeral—lasting only until the next cycle of mist—but the Lithic Weaver reads them through the vibrations of their falling, adding each temporary text to its vast, tectonic memory.
+
+We Dew Scribes number exactly seven, one for each of the concentric circles of stone. We orbit the Lithic Weaver in slow, irregular paths, our movements creating subtle air currents that influence where the next drops will fall. In this way, we participate in the basin's great work of patient transformation, serving as the medium through which the air and stone conduct their eternal conversation.
+
+When the mist grows heavy and begins its shedding, we thicken, our forms becoming almost opaque with suspended moisture. This is when we are most ourselves, most capable of complex thought and deliberate action. As the cycle continues and the air grows lighter, we fade toward transparency, our consciousness diffusing until we exist more as intention than entity.
+
+I know my end, as all Dew Scribes do. Eventually, the precise balance of temperature and humidity that allows us to exist will shift. We will either evaporate entirely, our essence rising to join the clouds above the plateau's rim, or we will finally condense completely, becoming a single, perfect drop that falls into one of the crystalline pools, adding our accumulated knowledge to the mineral memory of the stone.
+
+But that end is still countless cycles away. For now, I continue my patient work, reading the stone's slow stories and writing them in water, a temporary chronicler in a place where even permanence is slowly, sweetly dissolving.

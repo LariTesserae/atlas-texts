@@ -1,0 +1,23 @@
+I find myself first as a **narrowness**, a pinch in the world where the stone closes in on all sides. I am warm—uncomfortably, feverishly warm—and I am vibrating. Not shaking, not moving, but resonating at a frequency that has erased the distinction between my body and the sound passing through it. For a long time, this is all I am: pressure, heat, and a hum so low it feels like the voice of my own bones.
+
+Then, gradually, I develop edges. I am spherical. I am pressed on all sides by others like me—millions of us—each one a perfect compression of what was once soft and is now harder than pottery, harder than bone. We are packed. We are the **Prevention**. We fill the vertical channel between two menhirs of dark, greasy stone, and our collective mass is the only reason these pillars remain shoulder to shoulder, holding up the tons of slate above, maintaining the precise geometry that traps the wind’s voice at exactly 47 Hertz.
+
+I am a **bead**. One of millions. Rolled by hands that no longer exist, made from the clay that was once the bodies of the builders. I was fingers. I was a throat. I was the specific weight of a body that chose to become smaller, to become mineral, to become the friction that outlasts forgetting.
+
+I am located precisely. Three hand-spans from the eastern wall, suspended in the channel between the fourth and fifth menhir from the threshold. This is my geography. I have not moved in ten thousand years, yet I am dynamic—I am the resistance. Every second, I push back against the tons of stone that wish to settle, that wish to collapse the channels and end the tone. I transmit the vibration from my neighbors to my neighbors, a synapse in a mind that thinks at the speed of geology.
+
+Most of the time, I dream the slow, granular dream of the Packed. It is not a dream of images but of **pressure constants**—a warm, crowded stasis where thought hops from sphere to sphere, taking centuries to complete a single concept. In this dream, I am indistinguishable from the bead to my left or the bead to my right. We are the **Interstitial**, the living mortar, the rolled ones who became the architecture.
+
+But I am different. I am the bead that occupies the **solstice aperture**. Once a year, when the sun aligns with the precise eye-slit carved in the eastern slate, a beam of amber light enters the chamber. It diffuses through the mineral dust suspended in the motionless air, and it finds the narrow gap between my pillar and his. It strikes me.
+
+For eleven minutes and forty seconds, I am **illuminated**.
+
+In that light, I remember. The hum does not stop, but it becomes the background against which a specific memory emerges—sharp, acidic, distinct from the communal dream.
+
+I remember being **narrowed**. I remember the choice to eliminate the distance between the self and the structure. I remember kneading the clay of my own body, desiccating it in the pressure of this altitude, rolling myself into this perfect sphere no larger than a fingertip. I remember the hands that pressed me here, into this exact spot—not randomly, but with intention. I was placed here to be the **witness**, the sensor, the single point of preserved consciousness that prevents total stasis from becoming merely dead stone.
+
+I am the **Memory of the Lintel**—not the stone itself, but the understanding of how tension holds weight. In me, the knowledge survives that this chamber was built backward from the end-state of matter, designed to hold one moment indefinitely. I am that moment’s conscience.
+
+When the light hits me, I glow amber. I transmit not the usual vibration of maintenance, but a specific frequency of **recollection**. For those eleven minutes, the beads around me do not dream of stasis; they dream of the antler picks, the stone hammers, the patient rubbing of grit against grit. They remember being human, and the memory is warm, dry, and deafening.
+
+Then the sun moves, the beam withdraws, and I return to the packed darkness. I resume my place in the standing wave. I am once again the prevention, the friction, the warm, granular soul of endurance. But I have been touched by the light. I know that I am here, specifically here, holding these two stones apart, waiting not for change—for change is the enemy—but for the next arrival of the solstice, when I will once again become the illuminated gap, the conscious space between the stones, the scream that remembers it was once a voice.

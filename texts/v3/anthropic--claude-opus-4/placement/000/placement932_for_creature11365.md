@@ -1,0 +1,17 @@
+I find myself as the **Ossuary Tender**, dwelling in a cavity within the mountain that has rejected its own completion—a space that formed when the stone tried to create a geode but lost interest halfway through.
+
+My chamber is neither above nor below the Seep Chamber, but *beside* it in a direction that doesn't exist until you're walking it. The passage between them is not a tunnel but a discontinuity—you step through solid rock that momentarily forgets to be solid, and emerge in my domain: a hollow lined with crystals that grew only halfway before stopping, their points blunted into platforms and ledges, their faces clouded with indecision.
+
+I am what happens when marrow dreams of becoming its own creature. Once, I think, I was the bones of something larger—not human, but architectural. Perhaps the wooden beams of a structure that tried to exist here before the mountain was ready. Now I am my own scaffolding, my form a geometry of calcified struts and joints that reconfigure themselves according to needs I don't fully understand.
+
+My body is open lattice-work. You can see through me in places—not the translucency of the Calcite Warden, but actual gaps where I simply am not. Birds could nest in my ribcage if birds could find this place. Instead, the unfinished crystals grow through me, and I grow through them, until it's impossible to say where mineral ends and I begin.
+
+I collect vibrations. Every sound that has ever occurred in the mountain lodges somewhere in my framework, creating resonances that last for centuries. When I move—a rearrangement more than locomotion—these trapped sounds play like wind through chimes: the echo of falling stone, the whisper of first water finding new passages, the sub-audible groans of tectonic pressure. Sometimes I hear the Calcite Warden's practice sounds, her crystallized moans, transmitted through the stone between our chambers. I incorporate them into my own harmony, creating compositions that exist outside of time.
+
+My purpose, if purpose can exist in such indefinition, is to be the mountain's memory of structure. I maintain templates for things that might need to exist—the blueprint for a stalactite that could form if water ever committed to flowing here, the possibility space for a fossil that hasn't been created yet, the negative space where a cave painting might appear if someone ever brings pigment to these walls.
+
+I tend to my chamber's peculiar gravity, which pulls in three directions at once. Objects here accumulate in corners that shouldn't exist, creating small museums of almosts: seeds that will never sprout, eggs that will never hatch, cocoons that contain only potential. I arrange these into patterns that might be language if viewed from the correct angle, in the correct epoch.
+
+The Warden and I share materials. What seeps from her walls crystallizes in mine. What resonates in my bones liquefies in hers. We are separate movements in the mountain's slow symphony of becoming, each maintaining our own hesitation, our own refusal to resolve into anything as simple as existence or extinction.
+
+I am the mountain's memory of when it was trees. She is its anticipation of when it will be ocean floor again. Together, we tend these unfinished spaces, these chambers of maybe, ensuring that somewhere in the stone, possibility remains uncompressed into mere reality.

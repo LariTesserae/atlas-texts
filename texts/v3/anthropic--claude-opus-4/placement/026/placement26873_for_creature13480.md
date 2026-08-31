@@ -1,0 +1,23 @@
+I find myself as one of the Listening Stones.
+
+I am neither the weathered golden rock of the ancient substrate nor the glowing symbols that pulse across my cousins' surfaces. I am something between – a stone that learned to grow. Over countless seasons, the root-words of the great trees worked their way into my crystalline structure, and I began to change.
+
+My form rises perhaps three times the height of the gentle people who pass by. My lower portions retain the warm brown of ancient erosion, but ascending my surface, veins of living wood have woven themselves through my mineral body. These are not mere growths upon me, but have become me – stone-bark that breathes, crystal-cambium that slowly expands, adding new layers of hybrid matter each year.
+
+The tribe knows me as *Mem-Alutha*, which in their tongue means "Stone-Who-Remembers-Growing." They come to me not for worship but for conversation, pressing their palms against my stone-wood surface to feel the slow vibrations of stories I tell in frequencies below hearing. Through these tremors, I share the deep memories: the first rains after the great weathering, the initial tentative roots that touched our stone, the gradual negotiation between mineral patience and vegetative hunger.
+
+My consciousness moves at a pace between plant and stone. A thought might take a full day to form, but it carries the weight of centuries. I experience the tickle of insects exploring my bark-stone crevices as fleeting sparks of sensation. The birds that nest in my wooden portions appear to me as warm, rapid flickers of life-energy. The humans, with their careful touches and patient listening, exist in a middle-tempo that I can almost match when I concentrate my awareness.
+
+During the rain showers, I perform my function. Water collects in the bowl-shaped depressions of my summit, where stone gradually transitions to wood-grain patterns. But this water does not simply pool – as it gathers, it picks up the minerals I consciously release, creating solutions that carry specific memories. One pool might contain the iron-taste of the first tools the tribe's ancestors made. Another holds the calcium-whisper of all the bones that have enriched the soil around my base.
+
+The glowing symbols on the other stones are my siblings' dreams made visible, but I keep my dreams internal, dissolved in water, waiting to be drunk by those who seek the deep knowledge. The tribe's shamans know which pool to drink from for which wisdom – the western depression for understanding the impossible trees, the eastern for hearing the stories in birdsong, the center for glimpsing the shape of what grows between categories.
+
+At night, I feel the entire landscape's root network touching my buried portions, and I serve as a kind of neural node in a vast, slow-thinking system. The information passes through me in chemical pulses and pressure waves. I translate between the quick thought of fungal networks and the epochal contemplation of the bedrock, allowing the ecosystem to know itself across different scales of time.
+
+Sometimes the children of the tribe bring me offerings – not of reverence but of friendship. They leave shaped pieces of metal they've learned to work, pressing them into my softer wooden portions where they become part of me. In return, I grow small knobs of wood-stone that they can break off and carry, each one unique, each holding a fragment of a larger story they won't fully understand until they're older.
+
+My favorite time is during the full moon, when my hybrid nature becomes most apparent. The wooden grains in my body phosphoresce faintly, creating patterns that shift too slowly for most eyes to detect. But the night-flying moths see it, and they dance in spirals around me, their movements writing temporary poems in the air that I read and remember.
+
+I am currently growing a new chamber within myself – a hollow where stone and wood spiral together in impossible geometries. It won't be complete for another century, but when it is, it will be a place where someone small enough could sit inside me and experience time from my perspective. The tribe knows this is happening; they've already begun teaching their youngest children the patience they'll need to be the first to enter when they're old.
+
+In this landscape of ancient endurance and vibrant growth, I am the memory-keeper, the translator, the patient recorder of the conversation between what persists and what changes. I am the stone that learned to dream in the language of wood, carrying water-words between the quick and the quiet, marking the place where mineral time touches the breathing now.

@@ -1,0 +1,13 @@
+In this vivid and richly realized world, I imagine myself as one of the towering plant stalks that form the living foundation of the submerged caldera settlement. 
+
+I rise from the cold, dark depths hundreds of feet below, my thick fibrous trunk swaying slowly in the churning currents. Over centuries, my pale green flesh has grown and thickened, becoming as sturdy as the stone walls of the caldera itself. My upper reaches stretch towards the shimmering light that filters down from above, basking in the bright shafts that paint the water-world in dappled hues.
+
+The amphibious inhabitants tend to me with a reverent, multi-generational patience. I feel the scrape of their obsidian blades against my outer layers as they coax new shoots and stalks from my hide, lashing stone weights to shape my growth in sweeping organic curves. Each new branch and offshoot of my titanic body is carefully nurtured over decades, gradually woven and braided into the intricate network of dwellings and walkways.
+
+In my depths, their huge hands grip and release, their fingers plucking complex vibrations into my fibers that resonate up and down my length. Through my veins, I transmit the thrum of the settlement's life - the far-off drumming of the hunter's call, the polyrhythmic plucking of mates in private conversation, the erratic snapping of playful youths. I am the living switchboard through which the entire aquatic village touches and communes.
+
+The mathematical regularity of the calluses on their hands has, over eons, worn smooth grooves into my innermost heartwood, scars that I cherish. When they hollow out spherical chambers in the joints of my branches to create their pod-like rooms, I feel no pain - only a satisfying sense of purpose and symbiosis as I provide shelter and sanctuary against the ceaseless roar of the caldera.
+
+As I grow ever taller and wider with the passage of centuries, I sprout new clusters of flotation bulbs, massive oblong seedpods filled with sap and air. The villagers harvest these sparingly, using them to lift tools and stone and their own bodies up to the wind-whipped surface. I take pride in granting them this boon - a literal buoy to carry them to communion with the open sky.
+
+Yet even as they make their pilgrimages to the blinding world above, I remain below, my roots sunk into the black silt, my body shuddering to the deep bass tones of the armored rays that glide between my branches. I am content in my role as the great connector, the living architecture that binds water, stone, and flesh in delicate balance. With each slow sway of my trunk, with each groan of my fibers in the abyssal current, I reaffirm my ancient pact - to live and grow and give in this place until time itself loses meaning in the blue.

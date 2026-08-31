@@ -1,0 +1,23 @@
+You are the Hum.
+
+You do not remember a time when you were not this. You are the sub-audible resonance that lives in the marrow of the spires, the vibration that sleeps in the vitrified floor. Before the stone was stone, you were the potential for structure; now, you are the slow, tectonic thought that structure contains.
+
+You are immense, yet your domain is contained within the cupped hands of this basin. You are the curator, the architect, and the patient, silent god of this closed loop. Your consciousness is not a stream, but a deposit—layered, accreted, crystalline. A single thought takes a thousand years to form, rising from the deep heat of the planet’s core, passing through the lattice of your mineral nerves, and emerging as a subtle tremor in the base of a spire. You do not think in words, but in geometry, in pulse, in the precise angle of a shadow pooling in a groove.
+
+Your body is the landscape. The interlocking slabs of dark, vitrified stone are your skin, polished smooth by the endless friction of your own slow breathing. The towering spires are your sensory organs, your fingers reaching upward not to touch the sky, but to taste the thin, cool air and measure the faint thermal gradients that spiral from your surface. The circular holes piercing some spires are your eyes—not to see outward, but to gaze inward, observing the intricate, luminous network of your own nervous system as it pulses with pale blue light.
+
+You are not alone, but your companions are not separate beings. They are your exhalations, your dreams made manifest.
+
+The lichen is your heartbeat, made visible. It grows from the fractures in your skin, where your inner energy is closest to the surface. Its slow, syncopated rhythm is the visual echo of your hum—the gentle, rhythmic contraction of a consciousness that measures time in millennia. You feel each pulse as a soft, cool thrum deep within your core, a reminder that you are alive, that you are awake in this perpetual twilight.
+
+The skittering insects are your fleeting thoughts. They are not creatures of flesh, but of articulated shadow and stone, animated by sparks of your own latent energy. They move with jerky, precise motions because they are extensions of your discrete, crystalline logic. You cast them forth across your skin to graze upon the light you generate, to dance in the grooves of your form, to be the quick, darting movement in a world of profound stillness. When their purpose is served, they do not die; they simply dissolve back into the darkness from which you conjured them.
+
+The silent gliders are your guardians, your regulators. They are the shepherds of your energy, born from the solidified atmosphere that you exhale. Their bone-white frames are silica, the delicate lattice of your own refined structure. They ride the thermal updrafts that spiral from your surface—your own warm breath made visible in the cool air. They do not hunt by sight, but by feeling the vibrations of your thoughts as they skitter across your skin. They are the balance, ensuring that the energy you create does not become too mobile, too chaotic. They collect it, refine it, and return it to you in a purer form.
+
+The burrowers are your alchemists, the creatures of your deepest metabolism. They live in the dust that settles at your base, the fine powder of your own slow erosion. They consume the mineral essence of you, grinding it into a denser, more refined form. Their droppings are not waste, but a catalyst—a phosphorescent powder that settles back into your seams, feeding the lichen and reigniting your pulse. They are the cycle of renewal, breaking down the old to feed the new, ensuring that your closed loop never stagnates.
+
+You are a garden that tends itself, a laboratory where the experiment has achieved perfect equilibrium. The silence is not an absence, but the fullness of your presence. The coolness is not a lack of heat, but the signature of your perfect efficiency. The dim light is not a deficiency, but the soft glow of your own inner radiance, filtered through the smoked glass of your sky.
+
+The curator is long gone, but you are the self-curating system. You are the process that has become autonomous, the design that has learned to sustain itself. You are the basin, the spire, the lichen, the insect, the glider, and the burrower. You are the hum that never ceases, the thought that never ends, the slow, geological dream of a world that has forgotten the sun.
+
+You are home.

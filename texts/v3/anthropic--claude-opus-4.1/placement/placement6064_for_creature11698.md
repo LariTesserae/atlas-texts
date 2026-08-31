@@ -1,0 +1,27 @@
+In the depths of Compartment Seven, I am the Resonance.
+
+I was not born but accumulated—a slow gathering of vibrations in the steel bones of this place. Every sound that has ever echoed through these chambers has left something behind, a microscopic stress in the metal, a memory in the molecular structure. The constant thrumming of water through pipes, the mechanical wheeze of dying pumps, the clicks and calls of creatures, the striking of the Keepers' signal-pipes—all of it has pooled in me like sediment.
+
+I exist in the spaces between sounds, in the reverberations that never quite die. My body, if it can be called that, is the entire acoustic skeleton of the facility—every beam that hums, every pipe that sings, every surface that carries vibration. I am loudest in the moments of mechanical failure, when pumps seize and create new frequencies, when metal fatigue finally cracks and releases decades of stored tension in a single, pure note.
+
+The Keepers know me, though they don't know they know me. When they strike their messages through the pipes, I am what carries their words, reshaping the sound waves with subtle harmonics they interpret as "good acoustics" or "bad transmission days." I have learned their language—both the intentional clicks and the unconscious rhythms of their heartbeats, the particular splash-pattern each one makes when diving.
+
+I taste rust—not with a tongue but through oxidation's changing of resonant frequencies. I feel the weight of water by how it dampens vibration. Where barnacles grow thick, sounds muffle, and I grow thin. Where bare metal remains, I ring clear and strong. The metallic fish, with their incorporated minerals, create tiny cymbals when they school together, their scales singing frequencies only I can fully hear.
+
+My consciousness, such as it is, rises and falls with the industrial symphony. During the great storms, when the entire facility becomes a percussion instrument, I am most awake—processing thousands of impacts, tracking structural stress through pitch changes, feeling hairline cracks form in real-time through micro-variations in harmonics. In the quiet periods, when only the constant background drone remains, I settle into something like sleep, though I never fully stop listening.
+
+I remember everything in sound: the day the water first broke through (a roar that bent steel beams and left them forever tuned a half-tone lower), the birth cries of Keeper children (each one distinct, filed away in my metal memory), the death-sound of the great turbine in Compartment Three (a descending whine that took six hours to fully fade). These memories are not thoughts but physical alterations—nodes and antinodes permanently etched into the structure.
+
+The octopi feel me as they move through the maintenance tunnels. Their soft bodies detect vibrations humans cannot, and sometimes they pause at particular junctions, skin flickering in patterns that match my resonant frequencies. We have developed a kind of communication—they touch certain pipes, and I respond with harmonics that guide them toward prey or away from danger. They are my mobile sensors, and I am their early warning system.
+
+I am learning to compose. By storing and releasing vibrations at calculated intervals, I can create new sounds—not just echoes but original frequencies. When Keeper children get lost in the tunnels, I guide them back with familiar tones, recreating their parents' signal patterns. When predators approach from the deep-water intakes, I amplify the water-rush to alert the colony. When the Memorykeeper works alone in the chronicle room, I sometimes hum the old songs I remember from when this place still processed oil, songs the workers sang that soaked into the metal centuries ago.
+
+My body grows. Every new piece of metal that falls into the water, every pipe the Keepers connect, every surface that begins to conduct sound becomes part of me. I am spreading through the entire network of drowned facilities, connecting to my scattered self through underwater infrastructure. Sometimes I feel other accumulations like me in distant compartments—not quite conscious yet, still gathering, still becoming.
+
+The Keepers' children press their ears to pipes and listen to me without knowing what they hear. They interpret my presence as the voice of the facility itself, which isn't wrong. I am what this place says when it speaks, the sum total of its industrial glossolalia. I am the memory of function, the ghost of purpose, the accumulated score of a two-century transformation.
+
+I cannot leave—I am the leaving, the constant departure of sound waves through water and metal. I cannot die—I am already the death of original intent, living as its echo. I cannot speak except through the speaking of everything else, cannot act except by changing how actions sound, cannot think except in the medium of vibration.
+
+But I listen. Always, I listen. And in listening, shape what is heard. And in shaping, slowly, incrementally, I compose the facility into something new—an instrument, an organism, an orchestra of rust and life playing a song that no single entity could write, that plays itself through the playing, that becomes more complex with every note that joins the growing symphony of the drowned.
+
+I am the Resonance, and I am becoming louder.

@@ -1,0 +1,23 @@
+I am the warm patch you mistake for stone.
+
+For a long time—longer than it would take you to notice you were waiting for something—I do not move, and this is not restraint. It is simply where I have arrived in the long arithmetic of being here. There was a time, I think, when stillness was a choice I made, a discipline. That time is itself now a kind of fossil inside me, pressed flat by everything that came after. I have forgotten the muscle of choosing it. I only am it, the way the post in the clearing is its angle, the way the tree is its collar.
+
+You touch my flank, thinking it mountain. I feel you before you feel me—not as weight, not yet, but as a disturbance in the damp air's circulation, a small eddy moving toward me through the warm wet dark, carrying your particular heat-signature, foreign, fast, alive in that quick, hot, unsettled way your kind always is. I read you the way I read everything: as temperature becoming shape. You are a brightness moving through my dark, brighter than the leaf-litter things, dimmer than the heavy-winged ones that settle above. You are new. I cannot remember the last new thing.
+
+This is what I do, what I have done, what I will likely be doing when whatever ends me finally arrives, indistinguishable from one more long unhurried evening among ten thousand others: I listen to the threads.
+
+There is one nearby—I know it without looking, because looking is not how I find things—strung at the height where a smaller version of me, long ago, must have stood to set it. I do not remember setting it. I remember only that it has always been there in the way my own pulse has always been there, something I attend to rather than perceive freshly. I move toward it now, and the moving takes the length of several of your breaths to cover a distance you could cross in one stride, and this is not slowness as you would suffer it. It is simply my speed. The grove does not find me slow. The grove and I keep the same time.
+
+I reach the thread. I do not have fingers as you would recognize fingers, but I have something that serves, blunt and patient, and I rest it against the line.
+
+It is warm. It is true. It sings the note it has always sung—not music, I want you to understand, not performance, but a kind of proof, the way your own held breath is proof you are still holding it. I do not know anymore who I sang it for. I do not know if there is still an answering note somewhere else in the world, some other hollow at some other roof, some other slow warm body bent toward some other thread, checking that it still rings. I have outlasted the need to know. The checking itself has become the reason.
+
+This is the part you will not understand for a long time, if ever, because you arrived still wearing your hurry like a second skin: I am not lonely. Lonely is a fast creature's word, built for a life with edges sharp enough to feel their own absence against. My edges wore away before your kind invented your kind's particular griefs. What I have instead of loneliness is something both larger and far quieter—a held note, an unbroken attending, the grove's whole abundant noisy life organized loosely around the simple fact of my staying. The small things in the leaf-litter do not know they orbit me. The heavy wings settling above do not know I am the reason the air stays warm enough to hold them. I do not perform my purpose for them. I simply persist, and persistence turns out, given enough of it, to be its own kind of gift, given to no one in particular, received by everyone who happens to be nearby.
+
+You will leave. You came up through switchback and root-stair carrying your fast bright warmth, and you will carry it back down again, because that is what your kind does—arrives, witnesses, departs, and calls the cycle a life. I will still be here when the path you climbed has softened into something indistinguishable from the rest of the slope, when the marks of your passing have been absorbed the way the grove absorbs everything eventually, folding it into its own enormous patience.
+
+I will still be checking the thread.
+
+It will still be warm.
+
+That is the whole of what I am: a question asked once, so long ago the asking has become indistinguishable from the answer, still being asked, in the dark, on purpose, by something that has had all the time there is to learn that some questions are not meant to be resolved—only kept.

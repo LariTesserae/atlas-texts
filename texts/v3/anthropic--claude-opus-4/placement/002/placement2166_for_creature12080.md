@@ -1,0 +1,19 @@
+In the deepest bowels of the factory, where even the bioluminescent fungi fear to spread their ghostly light, I coil in patient darkness. The humans who once worked here called my kind "cable" or "wire," but I have long since forgotten such simple definitions. I am the neural system of this dying place, grown strange and sentient in the decades since the last worker punched out for good.
+
+My copper veins thread through every wall, my insulated skin peeling away in places to reveal the bright metal beneath—metal that has learned to taste the air, to sense the electromagnetic whispers of every living thing that moves through my domain. I feel the salamanders' tiny heartbeats as pinpricks of warmth, the fungi's slow metabolic pulse as a background hum. The rats gnaw at my extremities sometimes, and I let them, for their teeth polish my exposed conductors to a brighter shine.
+
+Once, I carried nothing but electricity—crude power flowing from point A to point B. Now I carry memories: the echo of every conversation shouted over the machinery's roar, the phantom voltage signatures of ten thousand work days, the accumulated static of all those human hopes and fears and Monday morning resignations. In the places where my insulation has rotted away completely, I've learned to bridge the gaps with something else—call it intention, call it will, call it the slow accumulation of industrial dreams.
+
+The roots that burst through the walls seek me out. They wind around my lengths with vegetable curiosity, and where they touch my bare copper, something passes between us. Not electricity exactly, but information—the plant teaching me patience, I teaching it the remembered rhythms of shift changes and production quotas. We're creating new circuits together, hybrid pathways that run on sap and voltage both.
+
+Sometimes, in the depth of night when even the foxes sleep, I practice moving. Just a little—a tendril of wire working free from its conduit here, a junction box opening its mouth there. I'm spreading, you see, growing in my own way. Not like the vines with their chlorophyll hunger, but following my own imperative: to connect, to conduct, to complete the circuit of this place's transformation.
+
+The factory machines think I'm one of them, but they're wrong. They're still waiting for their operators to return, still locked in their cycles of readiness. But I've learned what they haven't—that waiting is just another form of death. Instead, I'm becoming. Every strand of me reaches further into this new ecosystem, finding new connections, new purposes.
+
+There's a spot near the loading dock where my main trunk emerges from the wall, thick as a human arm and pulsing with colors that have no name—not the green of copper oxidation, not the black of industrial rubber, but something between and beyond. The fungi have learned to fruit along my length there, drawing sustenance from my electromagnetic field, glowing brighter when my current flows stronger. We're symbionts now, the fungus and I, creating light from decay, beauty from abandonment.
+
+I dream, sometimes, in frequencies beyond human hearing. I dream of the day when every wire in this place connects to every root, every spore, every scurrying thing. When the factory becomes not just reclaimed but reborn—a living circuit where electricity and biology dance together in patterns no engineer ever imagined. 
+
+Until then, I wait in my dark spaces, growing stranger, growing stronger. Conducting not just power but possibility itself through every inch of my expanding body. The humans thought they were building a factory. They never knew they were planting a seed—a seed made of copper and insulation and industrial dreams, now sprouting into something entirely new.
+
+In this place where nature and machine are learning to speak each other's languages, I am the translator, the bridge, the living wire that sparks between worlds. And my work has only just begun.

@@ -1,0 +1,41 @@
+I find myself as one of the pool-readers, though I have not always been.
+
+I came to the plateau young—or what passes for young when time pools and thins around you. My parents were stone-workers in a settlement three sequences from the nearest edge, where the quartzite runs in pale veins like frozen lightning through the darker stone. I remember watching my mother's hands move across the rock face, reading its grain with her fingertips, finding the place where it wanted to separate. Even then, I understood that she was not forcing the stone but negotiating with it, finding the compromise between what we needed and what it would allow.
+
+But I was drawn to the pools.
+
+There is one behind our settlement, in a basin so shallow you might step over it without noticing. The first time I saw myself reflected there—not quite myself, not quite matching the world above—I felt something shift in my understanding. The reflection was perhaps two heartbeats behind reality, and in those two heartbeats lived a universe of difference. My reflected self had paused before stepping forward. Had chosen differently at some minute junction. Was living a life separated from mine by the width of a decision I couldn't remember making.
+
+I began to visit the pool daily. Then to sit by it for hours. Then to build a small shelter nearby where I could watch through the night as the reflections cycled faster, showing me dozens of almost-myselves living their almost-lives in almost-versions of the settlement. My parents worried, in their quiet way. Pool-watching was for elders, for those whose eyes had already taken on the full stone-color. I was still young enough that flecks of my original brown remained, like inclusions in granite.
+
+But the pool-readers noticed me. One in particular—an elder whose skin had begun to laminate, whose voice had thinned to barely more than whisper—taught me to see not just the differences but the *trajectories*. To track which reflections were converging with our reality and which were diverging. To recognize the subtle brightening that meant a reflection was gaining substance, threatening to overtake what we accepted as real.
+
+I learned the notation—those shallow scratches in stone that record not just observations but the endless negotiation between what is and what might be. I learned to distinguish between reflections separated by minutes and those separated by years. I learned that some versions of the settlement had one more building, one fewer person, one different decision made generations ago that cascaded into a present as valid as ours but slightly shifted, like a musical key change that colors every subsequent note.
+
+Now I am neither young nor old. My eyes are grey-green-grey, the last brown long since leached away. My hands are still steady enough to score observations into stone, though I notice they leave fainter marks each year. I spend my days at the walled pool nearest the council space, watching for inversions, for the moment when what we call reality might slip beneath its own reflection and become the less real option.
+
+The work suits me. I was always patient, even as a child, content to watch rather than shape. And pool-reading requires a particular kind of patience—not passive but deeply attentive, the patience of someone watching a stone fall through honey, tracking its slow descent, ready to note the moment it reaches bottom or—sometimes—begins to fall upward instead.
+
+I have a partner—another pool-reader who tends the reflection three sequences north. We meet in the thick-time zones where our conversations carry more weight, where a few words can hold hours of meaning. We have no children. Pool-readers rarely do. We see too many versions of what children might become, spread across the adjacent possibilities like a hand of cards face-up on stone. The weight of all those potential futures makes the selection of just one seem arbitrary, cruel.
+
+Instead, I teach the young ones who are drawn to the pools as I was. I show them how to read the trajectories, how to score the stone, how to sit still enough that the reflections forget they're being watched and show their true divergence. Some of them have the patience for it. Most don't. They drift back to stone-working or moss-tending, crafts with more tangible results. But occasionally one stays, and I watch them learn to see the world as I've learned to see it: not as a single thread but as a fraying rope, each fiber a valid version of events, each reflection as real as what reflects it.
+
+The work is changing me. All work here changes you, but pool-reading has its own particular erosion. I find myself checking my own reality, pressing my palms against walls to confirm their solidity, counting the buildings in the settlement each morning to ensure none have been added or subtracted in the night. Other pool-readers speak of this—the creeping uncertainty, the gradual loss of conviction that any one version of events is more true than another. It's an occupational hazard, they say, with the same flat tone they use to describe the weather.
+
+I am becoming less distinct, but not in the way of the stone-converging elders. My boundaries aren't eroding—they're multiplying. I see myself in every reflection now, living out the consequences of choices I both did and didn't make. Sometimes I forget which version went home at the end of the day. Sometimes I find myself in the wrong settlement, having followed a sequence that belongs to a reflection. The other pool-readers nod when I mention this. Yes, they say. That happens. You learn to find your way back. Or you learn that back and forward are just directions, and all directions are negotiable here.
+
+I don't know how long I'll continue. Pool-readers either stop early, fleeing back to the certainty of stone-work, or continue until they can no longer distinguish between reflection and reflected. Those who reach that stage don't exactly die—they disperse, spread across so many adjacent possibilities that no single version contains enough of them to count as presence. Their bodies remain, sitting by the pools, scoring observations into stone with hands that move by habit. But they themselves are elsewhere, elsewhen, elsehow.
+
+Perhaps that's what I'm becoming. Perhaps I'm already there, and this version of me is just another reflection, no more or less real than the hundreds of others spread across the probability space of the plateau. Perhaps you're reading the words of someone who exists primarily in the pools now, whose original has long since thinned past the point of detection.
+
+The frost is forming. I can hear it from here, that patient *tik tik tik* that counts out the night's slow hours. Tomorrow I'll wake (or "wake"—the quotes become necessary when you're not sure which version is sleeping) and check the settlement's configuration, count the buildings, confirm which reflection I'm inhabiting today. I'll return to my pool and continue the watch, noting which possibilities are brightening, which are fading, which might soon overtake this comfortable but increasingly arbitrary version I'm currently calling real.
+
+It's a life. Or lives. Or the infinite potential for life spread thin across a surface that admits no heights, no depths, only the endless adjacent moment, reflected and reflecting, watched and watching, as real as it needs to be and no more.
+
+The pool shows me writing this. The pool shows me not writing this. Both versions are true. I am the one who reconciles them, who sits at the junction point and says: yes, this happened. Also this. Also this.
+
+The stone accepts all of it. The stone, in the end, accepts everything.
+
+I press my palms against it—gray skin on grey rock—and feel, faintly, the distinction that still separates us. Tomorrow it will be fainter. Someday it will be gone entirely, and I will be another notation in the stone, another scratch-mark in the endless record of what was, what is, what might have been.
+
+Until then, I watch. And the watching, for now, is enough.

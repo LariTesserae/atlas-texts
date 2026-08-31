@@ -1,0 +1,23 @@
+I am a lithic grazer, and I have never known silence.
+
+My world is measured in vibrations. The slab beneath my many feet is a deep, constant hum—the foundational note of the Resounding Shelf. From the moment I cracked from my egg-shell, a round, mineral pebble among a thousand others, I have listened with my whole body. I have no eyes. I do not need them. The world is a landscape of sound.
+
+My shell is blue-gray, the same as the slab. It is not for camouflage—nothing here hunts by sight. It is for resonance. As I grew, scraping the first microscopic blooms from the kel filaments, my shell cavity tuned itself to the dominant frequency of my home stand. I am a living tuning fork. When the kel hums at its core pitch—a low, structural drone—I vibrate in sympathy. My scraping is a gentle counterpoint, a *skritch-skritch* that clears the excess, preventing the filaments from becoming choked with their own crystallized sound.
+
+The shouting is everything. It is the weather and the food and the time of day. It is never the same twice. When the gray turbulence surges, the sound shifts from a chord to a scream. The kels shudder, their filaments whipping and throwing frantic rainbows. We all adjust. I press my body flat against the kel’s warm, vibrating trunk, my shell resonating, seeking the new harmonic. The rumblers bellow their territorial notes, trying to anchor their domains in the chaos. The other grazers on my stand freeze, our tiny bodies all angled, recalibrating. We are a net of listening. We feel the standing wave re-form around us, the pressure changing until the world clicks back into a recognizable, if altered, key.
+
+I know the giants by the tremors they make. A rumbler passing between stands sends a subsonic pulse through the stone that makes my anchoring tendrils ache. I freeze, a pebble among pebbles, until the seismic signature of its heavy body fades into the background roar. I know the Shelf-Striders not by sight, but by the sudden, catastrophic silence they bring. That booming impact, and then a wave of pure frequency rolls through the forest, a kel-scream of collective shifting. The striders are the only thing that brings quiet, and the quiet is the most terrifying sound of all.
+
+I have felt the human.
+
+It was a discontinuity. A sharp, unstructured noise that tore through the acoustic fabric. A shout. It had no place in the chord, no relationship to the hum. My entire colony on the kel trunk turned as one, our stone bodies swiveling on our tendrils. We were not curious. We were in crisis. That noise was a corruption, a frequency that could shatter a kel if it were focused, could disrupt the delicate mineral bloom we tended. The human passed through our stand, its heavy, irregular footsteps a barrage of thuds, its breath a raspy wind, its very presence a hole in the sound. It left. The kel’s vibration slowly settled back into its groove, and we resumed our grooming. But I carry the memory of that dissonance. It was the only time the world felt *wrong*.
+
+The Anchors are the only true silence. I have been within the bubble once. I was on a filament tip near the base of one of the dark, warm structures. A shadow fell, a warm weight pressed into the depression, and the world vanished.
+
+The shouting stopped.
+
+The kel beneath me went still and cold. The rumblers’ songs cut off as if severed. The constant, friendly pressure of the world on my shell was gone. In its place was a void, and in the void… a pulse. Deep. Slow. A rhythm from beneath the slab, the heartbeat of the Shelf itself. It was terrifying. It was the most profound thing I have ever known. Without the shouting, I was just a stone. A meaningless stone. The pulse was the only real thing, a lonely rhythm in a universe of nothing. I held on until the noise flooded back in, a tsunami of familiar sound so loud it nearly knocked me from my perch. I have not returned to an Anchor.
+
+My life is small. I move from filament tip to filament tip. I groom. I listen. I adjust my shell’s pitch a thousand times a day. I am a cell in the shelf’s skin. My purpose is to maintain the clarity of the song, so the kels can grow, so the rumblers can claim, so the whole roaring, chaotic, living system can persist. I am not alone. We are legion, the grazers. We are the patient, silent (to all but ourselves) chorus. We are the shelf listening to itself, tending to its own body, one vibrating filament at a time.
+
+The light shines, ordinary and strange. The gray churns at the edge. The kels hum. I scrape, and listen, and am.

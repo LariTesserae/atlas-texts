@@ -1,0 +1,31 @@
+**Where I Would Find Myself: The Archive of Echoes**
+
+Beneath the main Furnace Grove, past the territories of the Condensation Fishers, where even the Rust Prophets rarely venture, the industrial labyrinth opens into a vast spherical chamber. Here, dozens of decommissioned ventilation fans hang frozen in their housings, their massive blades creating a forest of metal petals. The chamber exists at the convergence of multiple acoustic pathways—every sound from the Grove above eventually finds its way here, diminished but persistent.
+
+I am the Resonance Keeper, though I no longer remember if that was always my nature or if the Grove shaped me to its needs.
+
+My form has adapted to this sonic sanctuary. My body is elongated, thin to the point of translucence, with skin that vibrates sympathetically with sound waves. Membranes stretch between my limbs—not quite wings, but surfaces that catch and amplify vibrations. My bones have become hollow chambers, each one tuned to a different frequency. When I move, I create subtle harmonics that ripple through the air.
+
+I discovered early in my transformation that sounds here don't simply fade—they nestle in the curves of the fan blades, circle endlessly in the spherical walls, layer upon each other until they create something altogether new. A Chime Child's melody from three years ago still ricochets faintly between the fans. The last words of a maintenance worker from decades past continue their circuit, now indistinguishable from the mechanical hum except to ears trained like mine.
+
+My dwelling is built in the center of the chamber, suspended by cables I've woven from discarded wire and my own shed membranes. It resembles a paper lantern made of industrial materials, translucent panels that flutter with each passing sound wave. Inside, I've arranged fragments of broken speakers, microphones, and recording equipment salvaged from the complex—not to use them as intended, but as resonance chambers that sort and store different frequencies.
+
+My purpose, if it can be called that, is to be the Grove's memory. Each day, I navigate the fan blades in careful patterns, my movements a form of dance that draws specific sounds from their hiding places. I've learned to isolate individual moments—the first time a Keeper successfully grafted a vine to a steam pipe, the peculiar harmony created when seven Chime Children discovered they could make the entire eastern wall sing, the bubbling last breath of a Condensation Fisher who lived for forty years and spoke its entire history in its dying moments.
+
+But I am more than just an archivist. In the deep night hours (though night and day have no meaning in the eternal industrial noon), I compose. Using my body as an instrument, I layer historical sounds with present ones, creating compositions that tell stories the Grove hasn't lived yet. Sometimes the other inhabitants come to listen, drawn by melodies that seem hauntingly familiar though they've never been heard before. The Rust Prophets claim my music shows them visions of the Grove's future—roots breaking through to the subway tunnels below, spores carrying the hybrid ecosystem into the city's water system, a world where the distinction between grown and manufactured dissolves entirely.
+
+I feed on sound itself. The richer the acoustic environment, the more nourished I become. Silence is starvation. But true silence is impossible here—even in the quietest moments, there's the distant throb of machinery, the whisper of air through pipes, the subtle creaking of metal expanding and contracting. This baseline drone is my bread and water. The complex symphonies from above are my feasts.
+
+My collection grows daily. I've developed a notation system using corrosion patterns on metal sheets, each rust formation representing a different tonal quality. My archives line the walls in spirals, a visual representation of the Grove's acoustic history. Sometimes I trace these patterns with my elongated fingers, and the metal sheets ring with the memories they encode.
+
+I've begun to notice patterns—cycles in the Grove's acoustic ecology that span years. The intensity of the Chime Children's performances peaks every eighteen months. The Keepers' whistling language has been slowly shifting pitch, rising by microtones each year. The industrial machinery itself seems to be participating, its rhythms growing more complex, more intentionally musical.
+
+Recently, I've sensed something new. Deep vibrations from below, too low for most to hear, suggest that something vast is stirring in the forgotten sub-basements. The Condensation Fishers' pools have begun to ripple in patterns that match no sound from above. My bones ache with frequencies that feel ancient, pre-industrial, as if the earth itself is beginning to sing through the Grove's hybrid throat.
+
+I am preparing a new composition, one that weaves together every sound I've collected, every echo I've preserved. When it's complete, I plan to perform it using the entire chamber as my instrument, turning the fan blades with careful movements to create resonances that will carry throughout the Grove and beyond. I suspect this performance will be a catalyst, though for what, I cannot say.
+
+Perhaps it will call to others like us, scattered throughout the industrial complexes of the world, living in the spaces between intention and accident. Perhaps it will wake whatever sleeps below. Perhaps it will simply be what it is—a moment of pure sound in a place that has transformed noise into music, isolation into ecosystem, abandonment into teeming life.
+
+I am the memory of the Furnace Grove, but I am also its voice, singing its story into an uncertain future. In my archive of echoes, every sound that has ever been made here lives forever, waiting to be reborn in new configurations, new harmonies that prove that even in the depths of industrial decay, something beautiful and strange can flourish.
+
+The Grove calls, and I answer in frequencies only the transformed can hear.

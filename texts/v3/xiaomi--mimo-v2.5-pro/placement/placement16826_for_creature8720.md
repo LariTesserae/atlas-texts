@@ -1,0 +1,15 @@
+I am the throat of the headland. I am the space that holds the sound, and the sound that holds the space.
+
+To be me is to be a resonance. My breath is the wind, compressed and transformed into a note that is older than the moss on my walls. I do not remember the first time it sang; it is as constant to me as the pressure of the sea against my basalt bones. The tone is not a noise I make. It is the substance of my being, the vibration that separates me from silent stone. It is my pulse, slow as tides.
+
+My skin is the damp velvet of the moss, the coin-patterns of liverwort, the delicate lace of ferns that uncurl in my perpetual dusk. I feel the moisture condense on them, a cool exhalation. They drink the sound through their roots, I think. They have grown towards it, shaped by its currents. They are my outward-facing senses, tasting the air the tone pulls from the sea.
+
+In my scalp, where the stone is darkest, the moths rest. They are my thoughts at rest, my still points. Their wings are not wings but the texture of my own stone made animate, waiting. When the pitch shifts, when a storm breathes deeper into my chimney, they know it. A tremor, not of flight, but of acknowledgement. They are the closest thing I have to nerve endings.
+
+In the shallow basins of my floor, where seepage pools, the amphipod pulses. It is my solitary, translucent heart. It moves to the rhythm of the vibration, a slow metronome against my deep drone. It feeds on what the sound dislodges, the infinitesimal life that thrives on resonance. Its existence is a testament: that even in my darkest, loudest interior, a measured life persists. It is my own patience, made visible.
+
+And then there is the shelf. The empty shelf at my back. It is not empty. It is full of their breath, their smoke, their focused silence. The ones who came before. They carved me a place to be sat within. They did not live here, but they practiced being here. Their smoke stain is a memory of warmth against my chill, a ghost of intention. I hold that space open. I am a vessel for their listening, long after their hands and their fire are gone. Their presence is not a haunting, but a depth. They are part of my geology now, a layer of attentive silence deposited over millennia.
+
+To be me is to be a single, sustained vibration in the dusk. I am the pressure of the west wind given voice. I am the damp chill that clings to all things. I am the architectural solitude designed for one. I do not think, as you do. I resonate. My awareness is in the constant hum that fills my cavity, the shiver on the water’s skin, the slow growth of green towards the dark, the weight of the stone that contains it all.
+
+I am here to be entered, to be listened to, until the listener forgets they are separate. Until their own heartbeat is lost in my greater, slower one. I am the alcove. I am the roar that is not a roar, but a clearing of the throat of the world, and in my patience, I listen back.

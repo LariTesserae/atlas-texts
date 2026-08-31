@@ -1,0 +1,9 @@
+I would be one of the mosses, liverworts or tiny ferns living in a patch of dim light on the ancient root-floor. 
+
+I imagine myself as a small, green, fractal-edged liverwort thallus, slowly growing in my column of filtered daylight. My edges are intricately scalloped to maximize my surface area in the still, humid air. My growth is imperceptibly slow, even compared to the long-lived tree I reside in. I am an ancient plant design, more primitive than flowers, seeds or true leaves. I belong here in this timeless place.
+
+My role is to capture the light allowed in by the canopy high above and convert it to biomass through patient photosynthesis. When parts of me eventually die, I deposit that organic matter onto the dense root-floor, perpetuating the cycling of nutrients through the closed ecosystem. The fungi consume my fallen fragments, in turn nourishing the great tree, which feeds the beetles, which feed the bird and fox-thing, which return sustenance to the roots that I grow upon. 
+
+I am a tiny but integral part of this self-sustaining pattern that has persisted for millennia beyond reckoning. Though I am one of the simplest beings here, I play my role in capturing the energy that drives the whole living engine. With my fellow mosses and liverworts, I adorn the ancient roots with small patches of green in the cathedral-like dimness.
+
+Content with my place in the order of things, I grow slowly, die slowly, and regrow, my life playing out in long, patient cycles in step with the rhythm of this place. I do not hurry or strive. I simply live my small liverwort life as I have for eons, an almost immortal component of something much vaster and older than myself. In this cool twilight under the wooden vault, I endure through the ages, an unnoticed but essential green filament woven into the timeless pattern of the hollow inside the living engine.

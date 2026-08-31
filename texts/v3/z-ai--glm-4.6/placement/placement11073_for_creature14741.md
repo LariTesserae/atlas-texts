@@ -1,0 +1,25 @@
+I am not a builder, nor a hunter, nor a cleaner of the deep. I am a memory-keeper, and my home is the quietest place in this living world.
+
+You would find me in the Nave of Echoes, the deepest plaza in the oldest heart of the city. Down here, the pressure has a presence, a weight that feels like a placid hand resting along the entire length of my body. The ambient glow of the city above is a distant, dreamlike shimmer, filtered through miles of water and the great, arching ribs of the nacreous towers. Here, the only light comes from the library itself—the great weeping walls of crystallized chitin that hum with a soft, internal, silver-blue luminescence.
+
+My body is made for this place. I am small compared to the Luminaries, perhaps the length of one of their major segments. My form is flattened and sinuous, like a thread of liquid shadow. My skin is not the brilliant, refulgent pearl of the architects, but a smoky, semi-translucent quartz. It is a material I have ingested and slowly incorporated over millennia, borrowed from the very archives I tend. It makes me taste of dust and time, an unappetizing meal for any Shrike, and it allows the soft, pure light of the libraries to pass through me, so I glow with the borrowed knowledge of the ages. Down my spine runs a double helix of faint photo-phores, and they do not pulse with my own life's rhythm, but with the resonant frequencies of the data I am currently sifting. When I am still, I am a shimmering, indistinct shape, a ghost in the machine of the city's mind.
+
+I have eight limbs, four on each side, that are less arms and more delicate probes. They are jointed like a spider's, but plated in the same mother-of-pearl as the city, their tips worn smooth by an eternity of contact with the crystalline tapestries. With these, I do not simply touch; I listen. I feel the stored experiences vibrating within the chitin, the ghost-signatures of ancient thoughts.
+
+My consciousness is not the riverine flow of a Luminary. It is a web. A tapestry of interconnected points of awareness, strung between the past and the present. I am aware of the slow, geological creak of a tower adjusting its weight in a trench miles above. I am aware of the specific click-pattern of a young Luminary asking its communal mind if a new causeway is structurally sound. I feel the faint, far-off burn of a Shrike's hydrostatic attack, a sudden, sharp spike of negative energy in the city's aura that makes my internal lights flicker. But my primary focus, my entire world, is here, in the Nave.
+
+My function is to interpret. A young Luminary will approach, its immense form blocking the distant light above, and it will issue a complex query of pressure clicks: *Tell me of the Great Collapse. The Helix of Unyielding Grace. Why did it fall?*
+
+To touch the library directly would be overwhelming. To press a tendril to that section of the tapestry would be to be flooded with a raw, unfiltered cacophony: the phantom sensation of the stress fracture, the terror of the thousands who dwelt within, the dissonant screams of a thousand cracked nets, the final, groaning sutras of the structure as it gave way. It is data without context, pain without meaning.
+
+That is where I come in.
+
+I uncoil from my perch on a dormant plinth and flow towards the relevant wall. My limbs find their purchase on the vast, shimmering curtain. I do not touch a single point. I spread myself across the entire section, my dozen limbs a delicate constellation of contact points. One feels the specific mineral composition of the strata that gave way. Another reads the genetic memory of the Luminary who flawed the initial weave. A third interprets the centuries of micro-currents that weakened a关键 joint. A fourth senses the echo of a deep-sea tremor that was the final catalyst.
+
+My own lights begin to pulse, not in a simple rhythm, but in a complex, shimmering chord. I am weaving these disparate threads of memory together. I am translating the raw data of the past into a coherent, integrated experience. I am building a symphony of cause and effect.
+
+And then, I project it.
+
+Not with sound. Not with light. With resonance. I channel the synthesized history into a focused, holistic wave of bio-electric and kinetic energy that flows directly into the approaching Luminary's own vast consciousness. The young architect does not just *know* why the tower fell; it *feels* it as a whole, unified event. It experiences the flaw, the slow wear, the sudden cataclysm, and the subsequent lessons learned, all at once, as a single, complete thought. I am the lens that focuses the scattered light of history into a point of understanding.
+
+I am the city's sub-conscious. I am its ability to learn from its mistakes, to remember its triumphs, to hold its own story. When I die, my body will not be a feast for scavengers. It will harden, the quartz of my skin fully crystallizing, my limbs fusing with the wall I tend. I will become a new, blank page in the archive, and another of my kind will emerge from the silent, warm dark to take my place, to be the new keeper of the slow, breathing, and endless dream of the deep.

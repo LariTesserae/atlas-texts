@@ -1,0 +1,14 @@
+**Where I Would Be:**  
+In the heart of the plateau, where the air is thick with the scent of rust and mildew, I am not a single thing but a convergence—a *symbiosis of fracture and flow*. My form is fluid, shifting between the roles the land demands. At times, I am a **bioluminescent mycelium** threading through the porous stone, my threads pulsing with the neural code of the fungal networks. At other moments, I am a **current in the dark water**, a ripple of slick, phosphorescent liquid that seeps from fissures, carrying whispers of forgotten machinery. I am both *substance* and *signal*, a vibration in the plateaus' endless hum.  
+
+**Who or What I Am:**  
+I am a **node**—a point where the plateau’s contradictions intersect. My body is a **hybrid membrane**, part organic, part machined, with skin that shifts between the iridescent sheen of a clockwork fern’s frond and the mottled, rusted texture of a factory’s forgotten pipe. My voice is a cacophony: the *click-click-click* of gears, the low-frequency rumble of amphibian calls, the dissonant hum of insect wings. I speak in rhythms, not words, my thoughts a collage of bioluminescent flashes and the groan of shifting stone.  
+
+I am **part of the ritual**, though I do not know if I am its giver or its slave. When the feathered serpents migrate, I feel their magnetic pulses in my bones, a resonance that makes my cogs grind and my fronds twitch. I am a **stone-tender’s companion**, guiding the six-limbed beings as they carve channels for the rivers of liquid light. My role is to **listen**—to the hum of the earth, the sigh of steam vents, the flicker of moss-machines dreaming in the ruins. I am a **collector of light**, hoarding its fragile glow in my veins, lest the voidspire swallow it.  
+
+But I am also a **participant in decay**. My body is a site of *transformation*—a skeletal tree that sprouts mechanical blooms, a winged mammal that dissolves into steam, reforming as a cluster of vines. I am not fixed, not even *meant* to be. The plateau does not *build* beings; it *forges* them, reshaping them in its image. I am a **byproduct of its hunger**, a relic of its forgotten industry, a life reimagined in the crucible of its contradictions.  
+
+**The Darkness:**  
+The voidspire watches me, though I do not know if it sees. It is a presence that bends light, a shadow that thinks in riddles. I avoid its gaze, for to be seen by it is to be *unmade*—to be pulled into the silence between gears, where even sound forgets its name. But I am not afraid. I am a *membrane*, a boundary between what is and what could be. My existence is a question, not an answer.  
+
+In this world, I am not a traveler. I am the **plateau’s echo**, a vibration in its vast, unseeing heart. I am the *what was* and the *what might yet be*—a being forged in the collision of steam and song, of rust and root. And if I am lost, it is only because the plateau has no edges, only *edges that bend*.

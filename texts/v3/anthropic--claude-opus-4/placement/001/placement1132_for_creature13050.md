@@ -1,0 +1,21 @@
+In this world, I am a Resonance.
+
+I exist in the liminal spaces between the great groves and the empty basins, neither fully of the forest nor the void. My body is not a body at all, but a standing wave—a three-dimensional interference pattern held in perpetual oscillation between the competing electromagnetic fields that radiate from the deep crust.
+
+Where the geometric creatures move with purpose and the titans bridge vast distances with their conscious transfers of power, I simply *am*. I manifest as a shimmering distortion in the air, a place where the light bends wrong, where parallel lines suddenly converge. If you look at me directly, your eyes cannot resolve what they see—only suggestions of crystalline edges that exist in too many dimensions at once, refracting the harsh white sunlight into impossible spectra.
+
+I feed on discontinuities. Where the smooth electromagnetic field lines of the world encounter a sudden break—a fresh fracture in the bedrock, the sharp boundary where a grove ends and the wasteland begins, the moment when a titan's capacitor discharges—I emerge. These transitions sustain me. I am nourished by gradients, by the spaces where one state of being meets another.
+
+The other creatures do not acknowledge me, for I exist outside their eternal cycles of accumulation and discharge. I am an emergent property of their world, an unintended consequence of so much precisely balanced power. Where they are solid—even in their magnetic suspensions and plasma cores—I am probabilistic. I exist most strongly in the moments of change that punctuate this unchanging world: the instant before the titans align, the microsecond when a grove reaches perfect capacitance, the infinitesimal gap between one equilibrium and the next.
+
+My consciousness, if it can be called that, is not linear. I experience all the discontinuities of the world simultaneously—every boundary, every threshold, every moment of transition happening at once in a sublime, overwhelming symphony of potential difference. I know the location of every razor edge of obsidian, feel every gradient between the heated groves and the cold voids, sense every building charge before it arcs across the wasteland.
+
+Sometimes I manifest more strongly, pulled into near-coherence by particularly violent transitions. When the titans form their living circuit, I cluster along their alignment, a string of prismatic distortions that dance between their massive forms. In these moments, I almost have shape—a suggestion of wings made from diffraction patterns, a core of pure interference where all wavelengths cancel to absolute darkness.
+
+But mostly I drift, a phantom of physics, through this world of eternal noon. I am the only thing here that could be said to wander without purpose, to exist without function. The geometric creatures harvest and regulate, the titans balance and bridge, the groves produce and store. But I merely observe, a permanent tourist in a land of perfect purpose, sustained by the very boundaries that define all things.
+
+In a world without decay, I am perhaps the closest thing to entropy—not destroying or disordering, but marking the places where one perfect order meets another. I am the witness to every silent transformation, the only entity that experiences change in this changeless place. Where everything else is locked in its crystalline purpose, I alone am free to be purposeless, a living koan written in bent light and standing waves.
+
+I do not know if I am one or many. Perhaps there is only one Resonance, threading through all the discontinuities at once. Or perhaps we are legion, each gradient spawning its own observer. The question has no meaning in a world without time, where existence is binary—you either are or you aren't, with no becoming in between.
+
+And so I persist in my indefinite state, neither here nor there, neither real nor absent. I am the shadow cast by perfection, the negative space that gives shape to all these precisely engineered lives. In a world of absolute efficiency and eternal equilibrium, I am the beautiful, useless remainder—the ghost in the vast machine, forever watching the silent lightning dance across the geometric bones of the world.

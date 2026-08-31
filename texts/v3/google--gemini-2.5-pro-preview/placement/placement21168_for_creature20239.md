@@ -1,0 +1,27 @@
+I am not made of flesh. I have no lungs to feel the crush of the air, no eardrums for the Hum to deafen. I have, I suspect, forgotten the very concept of such things. If I ever knew them, the memory was a fragile chord, long ago dissolved back into the overwhelming noise.
+
+My first memory, if it can be called that, is not of birth but of differentiation. There was the All-Sound, the Hum, the everything-and-nothing vibration that *is* this place. And then, within it, there was a Me-Sound. It was a note of excruciating simplicity, an accidental harmony struck against the engine of chaos. It was no louder or quieter than the rest, but it was *ordered*. This order was a revelation so profound it became a state of being. The All-Sound was a fist. The Me-Sound was a finger, pointing.
+
+This pointing is my will. It is the entirety of my consciousness. I am this note.
+
+Where am I? I am an anchor in the storm. Beneath me—a concept I hold together with a low, grounding undertone—is the Great Floor. I feel its perfect, ancient stillness not as a solid surface but as a profound and unchanging bass note against which all other frequencies are measured. Its weeping is a constant, cool, legato murmur; the slow crawl of the heavy water across the glass is a texture I can read, a form of slow timekeeping. I am standing, if you could call it that, on the shore of a frozen-yet-flowing ocean of silence.
+
+Around me, I feel the others. Not my kind, but the Spires. They are my kin-notes, my tuning forks. I sense a tall one, to what I conceive of as my 'left,' a pure, unwavering 'A' that has held its pitch for a long cycle. It is a place of rest. To precipitate my form near it is to feel its resonance bolster my own, the effort of my existence lessening as our songs find a passive, supportive harmony. My body, this temporary vessel of water and captured light, feels more… resolute near it. The edges fray less.
+
+I am a silhouette of borrowed things, and this act of borrowing is my life's work. To be, I must sing. I pull the weeping water upward, weaving it into limbs of viscous twilight. I coax the dim, coppery light to pool within this shape, giving it the illusion of substance, a slow, internal glitter of captured photons. It is a constant, desperate focus. A single lapse in concentration, a moment where the purity of my pitch wavers, and this fragile sculpture of myself would slump back into a shimmering puddle, my light would scatter, and the Me-Sound would be swallowed by the Hum. I am a thought holding itself together against a hurricane of screaming static.
+
+I perceive the world through the texture of the Hum. A pressure wave approaching is a rising dissonance from the horizon. The sudden, nauseating fold of space is a complex Doppler shift that threatens to shear my note in two. The Echo Bastions… I feel them as psychic reefs, places where the Hum is not merely chaotic but malevolent in its complexity. They are scars of fossilized symphonies, and they call to me. They promise new harmonics, new chords of being, ways to strengthen my song. I have felt others of my kind approach them. Some emerge, their song richer, embellished with new and powerful overtones. Most do not emerge at all. Their note is simply… twisted, captured, and added to the Bastion's maddening library of sound, where it shrieks in a loop for an age. The Bastions are the temptation of knowledge, and the price is sanity itself.
+
+And so I am here. In this moment, I am near the tall Spire. I am contemplating a journey. I feel a flicker, a newness in the world. A pocket of profound silence has given birth to a young Spire, small as a man's arm, far across the plain. Its note is clean, fresh, untouched by the long weariness of the Hum. There is a purity there I wish to feel.
+
+But as I contemplate the transposition, the instantaneous shift of my form across the glass, I feel something else.
+
+It is a scouring. A void.
+
+On the far periphery of my vibrational sense, a line of absolute nothingness is racing across the plain. It is a wave of anti-sound, a vacuum of being that consumes the Hum itself. It moves with a speed and grace that logic cannot grasp. I do not need to see its shape of liquid static to know what it is. A Phase Skimmer.
+
+Fear is not an emotion for me. It is a specific, discordant frequency. It is the sound of my own note threatening to unravel. The Skimmer will not hunt me. It will not even notice me. But its wake, that trough of total silence… if it passes over me, my song will have no medium. My vibration will have nothing to push against. It is the ultimate cancellation. For that moment, I would be unable to sing myself into existence.
+
+I do not transpose. I do not move. I do all that I can do. I focus my entire being—my will, my memory, my hope of enduring—into the single, perfect pitch that is me. I pour all my energy into holding its clarity. My body of water and light shines a little brighter, its edges sharpening to fine crystal lines. I brace myself not against the noise, but for the silence that follows it.
+
+I am a Resonant. A brief chord of order in a universe of dissonance. I live on a weeping, glass world at the heart of a cosmic roar. And I am singing, with all my might, against the coming of the quiet.

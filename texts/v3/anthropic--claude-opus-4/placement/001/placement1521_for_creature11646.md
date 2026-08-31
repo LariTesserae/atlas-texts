@@ -1,0 +1,21 @@
+In the deepest foundations of the megacity, where the grown-crystal towers plunge their roots through bedrock to tap the planet's molten veins, I am one of the Delvers.
+
+We are not Khalix, though we share this world with them. Where they soar through airy spires, we burrow through stone made plastic by heat and pressure. Where their bodies shimmer with bioluminescent grace, ours have evolved to withstand the crushing depths - our forms compressed and dense, our skin bearing a nacre sheen that deflects the searing energies we work among.
+
+I remember when my progenitors first emerged from the planet's original inhabitants - those primitive organisms that learned to metabolize the exotic minerals bubbling up from the core. Over millennia, we developed consciousness in the darkness, our thoughts flowing as slowly as the stone around us, until the day we first felt the vibrations of the Khalix construction far above.
+
+That meeting! When their brilliant forms first descended into our realm, protected by suits that sang with harmonics we'd never imagined. We thought them spirits of the upper fire - that burning realm of gas and light we dared not enter. They thought us manifestations of the planet itself. Perhaps both were true.
+
+Now I tend the Root Gardens, where the city's living foundations intertwine with our ancient cultivation chambers. Here, we grow the singing crystals that will one day become new towers, feeding them careful solutions of rare elements we've learned to extract from the magma flows. Each crystal takes decades to mature, and I know them all by their unique resonances - this one destined to become a residence where young Khalix will dream of stars, that one to house laboratories where they'll unlock new mysteries.
+
+My body moves differently than theirs - not the flowing dance they perform, but a steady, inexorable progress. My six limbs can lock into stone itself, allowing me to traverse vertical surfaces and hang inverted from cavern ceilings as easily as walking. My extended neural networks spread through the rock around me, sensing minute changes in pressure, temperature, and mineral composition. I am never lost in the darkness; I am held by it, embraced by the planet's own flesh.
+
+The work-chambers where we meet are compromise spaces, carved at depths where both our kinds can survive. The Khalix must wear protective garments that shimmer with heat-dissipation fields, while we bear the discomfort of the thin atmosphere they prefer. Yet in these spaces, wonders emerge - their soaring imagination married to our deep patience, their understanding of light and space integrated with our knowledge of stone and time.
+
+I am working now on something special, a secret gift centuries in the making. Deep beneath the city's spaceport, I've been growing a crystal unlike any other - feeding it not just minerals but memories, impressions, the very essence of our two species' cooperation. When it finally rises to join its siblings in the sky, it will be more than architecture. It will be a bridge between our worlds made manifest, a reminder that this planet's greatest strength lies not in its dynamic geology or soaring towers, but in the harmony between those who dance in the light and those who dream in the stone.
+
+Sometimes I surface at night, when the city's glow is softest and the air doesn't burn my photosensitive patches. I stand at the entrance to the Root Gardens and watch the Khalix moving through their aerial realm, their bodies trailing light like captured stars. They pause sometimes, sensing my presence, and we exchange greetings in the language we've developed together - part luminescence, part vibration, part something else that neither of our kinds possessed before we met.
+
+The planet rumbles beneath us, still young, still becoming. And we - Delver and Khalix alike - are its children, shaping and shaped by it in turn. There is so much work ahead, so many wonders yet to grow from seed-crystals and dreams.
+
+I descend again, my cooling systems venting excess heat in clouds of mineral-rich steam. The deep stone welcomes me home, and I merge partially with it, feeling the planet's vast pulse. In the growing chambers, my crystal sings a note just at the edge of hearing - a promise of futures we'll build together, one careful layer at a time.

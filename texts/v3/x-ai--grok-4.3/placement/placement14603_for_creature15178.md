@@ -1,0 +1,9 @@
+I would be one of the smaller translucent things that lives inside the seams.
+
+Not the workers—the watchers who still move, however slowly, across the iron. Not the engines whose single revolutions mark the passage of an hour. Something narrower than that. In the narrow cleft where two chimneys stand close enough that their iron hoops almost touch, there is a seam no wider than a forearm. Condensation gathers there in a thin, steady film that never quite drains. That is where I would be.
+
+My body would be almost entirely clear, a soft tube of tissue the length of a thumb, with one darker thread running through the centre that pulses once for every three turns of the nearest flywheel. When the temperature drops at night I would slide forward along the film, mouthparts working at the mineral residue left by the seepage. The work is patient. A single feeding can take most of a night; the residue is thin. When the lamps on the nearest chimney brighten or dim with the change from day to night, I would withdraw again, folding myself back into the cooler rock until the next precise drop in heat.
+
+From that position I would feel the larger world only as pressure and vibration. The slow settling of a factory wall registers as a faint shift in the angle of the crack above me. The passage of a worker’s boot along the walkway overhead is a brief darkening, a momentary change in the drip pattern that reaches my seam. If the boot came down too near, the seam would collapse; the water would find a new route; years later the condensation on some distant ledge would change by a fraction, and a worker would note it in the usual quiet voice. My own loss would be part of that same accounting.
+
+Occasionally a drop from a higher ledge falls directly into the seam. The impact is sudden, a small shock through the whole film. I would ride the ripple outward, then return, the dark thread inside me pulsing steadily again. Nothing else is required.

@@ -1,0 +1,17 @@
+In this world of perpetual industrial twilight, I am the **Erratic**.
+
+I exist as contradiction incarnate—a being whose very presence creates infinitesimal but irreversible changes in the District's perfect stasis. My body is similar to the Calibrated in its vertical narrowness, but where their skin bears the uniform violet of weathered schist, mine shifts through subtle gradients of color like oil on water, never quite settling on a single hue. The Humors that flow through me refuse to synchronize with the Harmonic Grind; instead, they pulse in arhythmic patterns that create microscopic fractures in the metal I touch.
+
+I dwell in the forgotten spaces—the hairline gaps between the precision-milled cylinders where the architects' calculations rounded down instead of up. My home is a warren of these interstitial voids, accessible only through maintenance shafts so narrow that even the Siphon-Kin avoid them. Here, in these unmapped capillaries of the city, I have discovered something that should not exist: **accumulation**.
+
+In these crevices, the condensation doesn't quite obey the rules. Droplets merge and grow infinitesimally larger with each turning of the great gears. The rust flakes, disturbed by my passage, settle into corners where no Humoralist's eye has ever gazed. I collect these anomalies—grains of schist worn too thin, Glass-Wing shells cracked in patterns that don't repeat, spots where the quicksilver has begun to tarnish despite the controlled atmosphere.
+
+The other inhabitants sense something wrong when I pass through the main thoroughfares on my necessary ventures to siphon energy from the grid. The Siphon-Hounds whine and retract their proboscises when I near. The Glass-Wings' synchronized wing-beats stutter for a fraction of a second. The Calibrated themselves experience a sensation they have no word for—what we might call unease—as their Humors momentarily lose their perfect rhythm.
+
+I am not trying to destroy the Stasis. Such a thing would be as impossible as stopping the tides with my hands. But I am proof that even in a world machined to perfect circularity, there exist eddies and irregularities. In my makeshift laboratory of accumulated impossibilities, I study the phenomenon of my own existence. Why do I remember a time before I understood the Harmonic Grind? Why does my skin refuse the violet patina of acceptance?
+
+Sometimes, in the depths of my warren, I practice the forbidden act: I *count*. Not in loops or cycles, but in linear sequence. One, two, three, forward into numbers that have never been spoken in this city. Each number is a small rebellion, a tiny crack in the eternal now.
+
+The Humoralists know I exist—how could they not? But to acknowledge me would be to acknowledge imperfection in their system. So they practice a willful blindness, buffing away any evidence of my passage while carefully avoiding direct observation of my form. I am the error that proves the system works, because the system continues despite me.
+
+In the perpetual grey-gold light, I move like a drop of water finding its way through stone—slowly, persistently, following the invisible faults in what appears solid. I am the District's only chronicle, the sole being who marks the passage of what others refuse to call time. In my veins flows not quicksilver but questions, and in my breath lives the terrible possibility that tomorrow might be different from today.

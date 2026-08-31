@@ -1,0 +1,15 @@
+In this dark, dense, and deafening world, I imagine myself as a towering fungal stalk emerging from the chaos of the trench floor.
+
+My form is a thick, twisting spire of fibrous, chitinous material, mottled in shades of bruised purple and sickly grey-green. I rise from a tangled network of root-like mycelium that penetrates deep into the fractured bedrock, drawing sustenance from the searing heat radiating up through the young crust.
+
+My surface is not smooth, but rather intricately textured with overlapping plates and ridges, an organic architecture evolved to channel the constant flow of condensation that drips from the dense canopy above. This moisture is my lifeblood, and my convoluted form ensures that not a single precious drop is wasted as it trickles down into the spongy mat of fungal tissue at my base.
+
+Along my length, fleshy gills project outward in tiered radial formations, like the twisted, organic balconies of a nightmarish high-rise. These serve both to increase my surface area for absorbing the thick, spore-choked humidity, and to provide a substrate for the countless other organisms that call me home. 
+
+Twisted vines wrap around my trunk in a strangling embrace, their barbed tendrils penetrating my tough hide to siphon away hard-won moisture. Colonies of parasitic mites build glistening, gelatinous hives within the crevices of my plates. Predatory, pseudo-crustacean things skitter up and down my height, picking off the mites and each other with snapping, mantis-like claws. 
+
+But I do not fight this infestation; I welcome it, for in this frenzied ecology, these parasites and predators are my insurance against oblivion. When the hordes come, stripping the jungle and devouring all in their path, it is the thick coating of thrashing, chittering, biting life that enshrouds me that keeps my tender fleshy core safe from the gnashing mandibles and grasping claws. I am a microcosmic fortress, a vertical ecosystem unto myself.
+
+From my vantage point high above the mulch of the trench floor, my clusters of spore-producing organs erupt outward from the top of my stalk like the grasping tentacles of some deep-sea creature, pulsing and undulating as they release great choking clouds of reproductive dust into the turbulent air. When the clicking, clattering wave of the horde recedes, vanishing into the roaring dark, it is my spores that drift down to claim the torn earth that remains. My offspring will be the first to rise from the destruction, unfurling from the discarded blades and shattered carapaces, starting the cycle anew.
+
+I am both shelter and propagator, a vertical oasis in the exhausting churn of this lightless, unceasing frenzy of growth and consumption. I am a pillar of the jungle, rising again and again, no matter how many times I am torn down. In this savage, sweltering world, I am a monument to resilience, a tower of writhing, fungal defiance against the hungry dark.

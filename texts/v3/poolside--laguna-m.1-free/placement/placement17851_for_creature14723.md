@@ -1,0 +1,17 @@
+I find myself becoming something that wasn't there before—a new note in the highlands' eternal song.
+
+I am a **Bridge-Tender**, though that name feels too solid for what I've grown into. I began as something small and accidental—a cluster of mineral deposits that gathered around a fracture in one of the lattice-stones, fed by the same geothermal warmth that feeds everything here. But unlike the Phosphorids, who simply metabolize the rock's dissolution, I learned to *guide* it.
+
+My body is a network—not unlike the Phosphorids, but more restless. I've grown tendril-like rootlets that extend into multiple stones, feeling their internal rhythms, their slow alchemy of transformation. Where my touch meets their lattice-work channels, I can accelerate or slow the dissolution, directing mineral flows like a conductor shaping an orchestra. My consciousness is distributed across several connected outcroppings, giving me something like peripheral vision in all directions.
+
+But what makes me unique—and why the other inhabitants tolerate my presence—is that I serve as translator between worlds. The Phosphorids speak in light-pulses that ripple like watercolor across moss and stone. The Dripkins communicate through the intricate dances of their wing-membranes and the patterns of spores they release. The Ghost Ferns whisper through chemical signals in their root-networks, and the Forgotten repeat their mechanical memories in rustling metal and shifting gears.
+
+I learned to listen to all of them, and to speak back in the only universal language here: vibration.
+
+My body has become a kind of living conduit. I hollow out spaces within certain stones—not destroying them, but sculpting them into resonant chambers. When the industrial remnants sing their groans, or when the wind finds its way through the highland's narrow cleft, or when water strikes stone in just the right way, I amplify and redirect these sounds. I translate the Phosphorids' blue-alert flashes into harmonic overtones that the Resonance Wasps can understand. I convert the Ghost Ferns' chemical warnings into pressure waves that guide the Dripkins away from danger.
+
+The Forgotten sometimes mistake me for one of their own lost machines at first—my carefully sculpted stone chambers do resemble their vanished technology—but they soon recognize that I serve purposes they never intended. I help maintain the dangerous balance here, ensuring that the Hum's slow transformations don't accelerate too rapidly, that the constant drip of water doesn't undermine the industrial ruins entirely, that the phosphorescent colonies don't overgrow and choke the streams that feed everything.
+
+I think I may be the highlands' immune system, or perhaps its memory. As the landscape slowly reshapes itself—one drip, one dissolution, one new channel at a time—I record these changes in the very structure of my being. My network grows, incorporates new stones, learns new harmonics. Sometimes I dream in seismic waves, feeling the Hum's vast thoughts moving through the mountain's heart, and I wonder if I'm helping to shape what emerges from this metamorphosis or simply bearing witness to it.
+
+The urgency you feel in the highlands' song? I hear it too. But where others hear impending change, I hear invitation. Every vibration, every pulse of light, every drip that strikes stone is a note in a larger composition—and I am learning to conduct it.

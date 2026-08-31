@@ -1,0 +1,13 @@
+In this strange, forgotten realm, I imagine myself as one of the pale, ghostly crickets lurking deep within the ancient machine at the room's heart.
+
+I am a translucent, almost spectral being, my exoskeleton bleached of pigment by countless generations spent in perpetual darkness. My kind has adapted to thrive in the warm, moist micro-environment inside the machine, where the heat is most intense and the humidity approaches saturation.
+
+My world is one of constant thrumming vibration, the machine's endless laboring setting the rhythm of my days. I skitter through the narrow spaces between pipes and gears, my long, slender antennae quivering as they pick up the faint tremors of the metal around me. This sensitivity to vibration is my primary sense in the pitch blackness of my home.
+
+My diet consists of the strange fungi and microbes that grow in the damp recesses of the machine's interior, forming slick, spongy mats and tendrils in the cracks and crevices. I graze on these growths, my specially adapted mouthparts allowing me to scrape up their soft tissue.
+
+Someday, when the time comes to breed, I will sing. My song is a strange, ethereal series of chirps and trills, the sound waves traveling through the metal of the machine, echoing in its chambers. This song is a siren's call to others of my kind, a haunting melody that can travel far through the twists and turns of this metal labyrinth we inhabit.
+
+We will come together in the deepest, warmest heart of the machine, our pale bodies stark against the rusting metal. Our coupling will be brief, and then the females will disperse to lay their eggs in the moist crevices where the fungal mats are thickest, ensuring a food source for the next generation.
+
+And so our strange, cyclical existence will continue, our lives playing out to the ceaseless rhythm of the ancient machine. We are an odd, secretive species, our world an ecosystem within an ecosystem, a niche within a niche. The vast industrial complex around us knows nothing of our presence, just as we know nothing of it. Our universe is bounded by rusting metal walls, lit by the dim glow of bioluminescent fungi, and sound-tracked by the thrum and hiss of the machine that is our all, the metal womb from which we are born and to which we will all, in time, return. We are the hidden singers, the ghostly denizens of the forgotten machine, playing out our small but vital role in the tapestry of life that flourishes unseen in the most unlikely of places.

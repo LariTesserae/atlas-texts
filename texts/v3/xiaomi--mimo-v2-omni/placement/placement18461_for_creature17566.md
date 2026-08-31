@@ -1,0 +1,21 @@
+I would be a moss-gardener. Specifically, I would be a tender of the *grey-velvet* and *breath-cushion* varieties in the ledges of Cleft Veridia, the lineage that holds the eastern-facing fissures where the mist gathers first at dawn.
+
+I would find myself before the first hollow-log bell of the waking shift, already on my knees on a wooden platform bolted into the cliff. The air would be a knife in the lungs, but a familiar one. My breath would plume, not in great clouds, but in thin, quick wisps, for my chest is broad and deep from birth, my blood rich and dark. My hands, perpetually damp from the moss-tending, would be mapped with fine scars from the stone and the prickling, waxy leaves of the scrub. My eyes would be narrowed to permanent slits against the pale, reflective light bouncing off the basalt.
+
+My world is measured in spans and inches. My work is a slow, tactile conversation.
+
+I would begin by feeling. Not looking, but feeling the nap of the moss cushions. The *grey-velvet* should spring back under my thumb, cool and dense. The *breath-cushion*, a more precious variety used for sealing drafty chambers, should feel like damp felt, its microscopic sporangia bursting with a faint, earthy scent under my touch. I would seek the tiny, rust-colored mites that live within it—a sign of health—and gently brush them away from the areas I need to harvest.
+
+My tool is a sharpened sliver of Olgren bone, flat and smooth. With it, I would aerate the shallow bed of crushed lichen and grit that serves as soil, lifting the moss’s edges to allow the mist’s seepage to penetrate fully. This is not gardening as the lowlanders might understand it. It is curation. I am encouraging an existing life to thrive in its chosen crack. I am a student of its slow spread, a recorder of its health in the knotted cords of my Cleft.
+
+When the mist gathers, a pale breath in the ravine below, I would be ready. Others would be wringing cloths into jars. My task is more delicate. I would use a broad, flat leaf from the wind-twisted tree—a *sail-leaf* we call it—to funnel the condensed droplets that bead on the rock face directly onto the moss beds. A single careless splash could rot a week’s growth. So my movements are a ritual of economy, a dance of patience. Pour, pause, observe. The moss darkens with moisture, a deeper, living green.
+
+The sounds around me are the language of my life: the distant *tock-tock* from the chipper’s ledges below, the creak of a fiber rope as a hunter ascends toward the Teth nests, the ever-present sigh of the wind. The sub-audible hum of the insect swarms in the deeper crevices is a vibration through the stone into my knees, a constant, low reminder of the plateau’s hidden teeming life.
+
+My prestige, and that of Cleft Veridia, is written in these moss beds. A healthy, expansive carpet of *breath-cushion* means warmer door-seals through the long cold, means more traded grain from the lower herders, means our Cleft’s name is spoken with respect during the knot-reading ceremonies. My patience is our currency.
+
+Sometimes, in the long, still hours, I would see the Teth wheeling far above, silent shadows against the pale sky. I feel no desire to hunt them. My hunt is here, in the millimeter-by-millimeter expansion of a lichen colony, in the perfect timing of a moisture harvest. To take a Teth is to strike a grand, violent bargain with the mountain. I prefer to listen to it, to bargain in whispers.
+
+I am not a shaper of the mountain. I am its attentive companion. I read its dreams in the slow cracks that form each season, and I place my mosses in the fissures like sutures, like soft words against its ancient stone skin. When the hollow-log bell of the final shift sounds, a deep, resonant *thrum* that I feel in my sternum, I would sit back on my heels. My knees would ache, my fingers would be pruned and cold, but the *grey-velvet* would glow with a healthy sheen in the last of the light. The mountain breathes out. I breathe in. We endure.
+
+This is where you would find me: not as a leader or a hunter, but as a tender of the smallest, most vital lives. A weaver of the soft, green thread that stitches the sparse gift of the *Breath* to the enduring body of the stone. I am Kyma. I am the patience that fills the cracks.

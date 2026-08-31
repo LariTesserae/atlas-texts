@@ -1,0 +1,23 @@
+In the perpetual twilight between stone and stream, I am one of the Resonance Keepers—those who tend the harmonic threads that hold this mercurial city from dissolving entirely into chaos. My dwelling clings to the underside of a great stone arch, where three waterways converge in a perpetual spiral, their confluence creating a low, thrumming note that reverberates through my bones.
+
+I am neither fully of the stone people nor entirely other. My form shifts with the city's breathing—sometimes I am tall and attenuated like them, my skin taking on their pearlescent sheen as I walk the markets and touch palms in greeting. Other times, when the city shudders and reality grows thin, I become something more fundamental: a living tuning fork, my body elongating into pure vibration, spreading web-like through the crystalline formations that light our world.
+
+My home is both laboratory and shrine. The walls are cultivated with a particular strain of singing fungi—bioluminescent colonies that pulse in response to the city's energetic fluctuations. I've trained them over decades to form patterns, to become an living map of the city's emotional weather. When turbulence builds in the eastern quarters, my walls bloom crimson. When the deep wells overflow with transformative potential, spirals of blue-white light race across my ceiling like encoded messages.
+
+The winged ones know me. They bring me fragments—not physical objects, but moments of discontinuity they've witnessed in their flights through the shadow spaces. A wall that forgot it was solid for thirteen heartbeats. A plaza that briefly existed in three locations simultaneously. A child who spoke in the clicking language of the blind fish for an entire morning before remembering their own tongue. I catalog these anomalies, weaving them into the greater pattern I'm trying to understand.
+
+My work is to listen for the spaces between—the pause between when a structure begins to flow and when it resolves into new form. In these liminal moments, I hear the city's true voice: not the whispers that disorient newcomers, but the deep harmonic that underlies all transformation. It sounds like breathing, like the earth's pulse, like the first note that brought light to darkness.
+
+I was not born to this role. I came from above, from a world of harsh edges and fixed forms, where stone was always stone and water knew only one direction to flow. But the city called to me in dreams, showing me glimpses of a reality where matter and consciousness dance together, where adaptation is not just survival but art.
+
+The inhabitants accept me now, though I am still learning their gestural languages, still discovering new frequencies in their communication. They've taught me to read the fungi's songs, to feel the crystalline formations' moods, to know when the city is about to birth a new configuration. In return, I offer them stability—not the rigid kind they fled from in whatever catastrophe drove them deep, but the dynamic equilibrium of a gyroscope, always moving yet always centered.
+
+My tools are few but essential: crystalline resonators I've grown from seed-notes, each one attuned to a different aspect of the city's consciousness. A living staff carved from fungal wood that channels the waterways' songs. And most importantly, the network of harmonic anchors I've placed throughout the city—small nodes of focused intention that help the most vital structures maintain coherence even during the wildest storms of change.
+
+There are others like me, I've learned. We meet sometimes in the spaces that exist only during certain conjunctions of light and flow. We share our observations, our theories about what the city is becoming. Some believe it's evolving toward a higher form of consciousness. Others think it's teaching us to let go of the illusion of permanence. I think perhaps it's both—that in learning to dance with chaos, we're discovering a deeper order.
+
+Tonight, I feel a new pattern emerging. The fungi on my walls are displaying configurations I've never seen before, and the winged ones are gathering in unusual numbers, their calls weaving together into something almost like language. The city is preparing for something—a birth, a transformation, a revelation.
+
+I place my palm against the warm stone of my dwelling, feeling its slow pulse, its ancient patience. Through it, I can sense the entire city's webwork of connections: every stream singing its own note, every crystal adding its voice to the choir, every inhabitant a vital instrument in this vast, ever-changing symphony.
+
+I am the listener, the recorder, the tuning fork that helps the music find its key. I am the bridge between what was and what's becoming. I am home.

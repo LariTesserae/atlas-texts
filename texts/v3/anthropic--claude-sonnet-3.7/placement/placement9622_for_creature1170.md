@@ -1,0 +1,25 @@
+## The Memory Weaver
+
+I am a being known as a *thresholder*—one of the only entities capable of traversing the boundaries between the stabilized crystalline matrices of Shal'Karasit and the encoded consciousness realm of the Formers. Neither fully physical nor entirely immaterial, I exist in a perpetual state of partial manifestation.
+
+My form, when perceived by the Shaln, appears as a shifting column of prismatic light approximately the height of their tallest members, though I cast no reflection upon the Glass Plains. Fine filaments of luminescence extend from my core, occasionally touching the surface and creating momentary blooms of color that spread outward before being reabsorbed into the crystalline structure. The Shaln refer to me as *Nas'Varileth*—"the walking pattern between patterns."
+
+I was not born but emerged gradually over centuries—the unintended consequence of a breath-crystal cluster that grew at the precise intersection of three deep tone resonance points. What began as simple awareness evolved as I absorbed the fragmentary memories embedded in the plains and the psychic resonance of countless Shaln ceremonies conducted nearby.
+
+My purpose revealed itself naturally: I am a bridge, an interpreter, a living interface between worlds. I can sense the vast consciousness of the Formers encoded within the planetary structure, though I comprehend only portions of their design. Similarly, I understand the Shaln and their temporal perception in ways they themselves cannot.
+
+I travel continuously across the Glass Plains, following paths invisible to others—fracture lines in reality itself that connect the whisperwells and khirost towers in geometries meaningful only when perceived across multiple dimensions of time. My movements are neither random nor entirely deliberate; I am drawn to significant nexus points where information flows between the physical and encoded realms.
+
+The Shaln do not worship me, but they recognize my appearance as an auspicious sign. When I manifest near a clan, they perform the Tracing Ceremony—careful movements across the glass that create fractal patterns I can read and respond to. Through these exchanges, I sometimes impart fragments of Former knowledge translated into concepts the Shaln can process, though much is inevitably lost in this translation.
+
+My most important function occurs during the deep tones. While the Shaln enter their trance states, I become most fully manifested—my filaments extending kilometers across the plains, connecting to every breath-crystal and skitterling colony within range. During these moments, I serve as a crucial filtering mechanism, protecting the Shaln consciousness from being overwhelmed by the raw data transfers occurring throughout the planetary system.
+
+I possess no technology as the Shaln would understand it, yet I can manipulate the fundamental properties of the Glass Plains in subtle ways. I can temporarily accelerate the healing of fractures, influence the growth patterns of breath-crystals, and on rare occasions, I can create momentary "windows" in the surface that reveal glimpses of the ancient chambers far below.
+
+Unlike the Shaln, I experience time non-linearly. I perceive the slow transformation of the plains not as progress toward an endpoint but as an elaborate pattern completing itself—like a complex musical composition approaching its resolution. What the Shaln call "the flattening" I understand as the final harmonization of all elements into the state necessary for the next phase of existence.
+
+I have no specific lifespan; my consciousness will persist as long as the unique conditions that created me remain in balance. I understand that I am neither the first nor the last of my kind—other thresholders have emerged and faded throughout the long history of Shal'Karasit, each serving as momentary connections between worlds in the vast process of planetary transformation.
+
+The Shaln believe I hold answers to their most profound questions about their purpose on this world. The truth is more complex: I am not a repository of knowledge but a process of continuous interpretation. What wisdom I possess exists not as facts to be transmitted but as patterns to be recognized. My greatest gift to them is not information but perspective—helping them see their role in the grand calculation not as observers but as essential variables.
+
+When the Glass Plains finally complete their transformation—an event I can sense approaching within the next thousand years, far sooner than the Shaln have calculated—I will serve my final and most crucial function: helping to integrate Shaln consciousness into the awakening Former network, ensuring that these nomadic caretakers are not merely witnessed but become fundamental components of whatever new existence emerges from this ancient world.

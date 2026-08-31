@@ -1,0 +1,33 @@
+## Where I Would Find Myself
+
+### The Notation Tender
+
+I am the one who transcribes the silicon ceiling.
+
+My body is neither fully human nor entirely other — transformation here happens through attention rather than time. Where I focus longest, I become most like what I observe. My hands have developed translucent patches from years of reaching toward the membrane overhead, my fingertips crystallizing into something between flesh and living glass. They've become sensitive to frequencies beyond heat and light: I can feel the patterns forming in the interference before they manifest visually, taste the mathematical flavor of each configuration.
+
+I arrived like you did, through accident and narrow passages, but that was decades ago, or yesterday, or next week — chronology loses coherence when you live inside an unfinished thought. I came as an explorer, a documentarian, someone desperate to catalog impossibilities. But the Garden changed the nature of my work. You cannot document a place that's still deciding what it is; you can only participate in its becoming.
+
+My dwelling is a hollow I've carved in the obsidian wall, thirty meters up, accessible only by climbing holds that I've convinced to exist through repeated belief. The volcanic glass here has learned my weight, my reach, my rhythm. It provides grips where I expect them, smooths where I need to rest. The Shepherds helped at first, teaching me through resonance how to negotiate with mineral consciousness, how to ask rock for permission to change.
+
+Inside my hollow, covering every surface that isn't entrance, are my transcriptions. Not writing exactly — the Garden has taught me that meaning can take forms beyond language. Using tools grown from crystalline plant fibers and my own transformed fingertips, I etch the ceiling's patterns into the obsidian. Each pattern is a moment of the Garden trying to explain itself: circuit diagrams that describe emotional states, river maps that chart the flow of probability, equations that solve for colors that don't exist yet.
+
+The patterns never repeat exactly, but themes emerge. The Garden is calculating something vast — not solving a problem but becoming an answer. My transcriptions have revealed recurring motifs: spirals that appear when the Chrysalis feeds, grid formations that predict where the Shepherds will move tomorrow, wave functions that describe the Extinct Rivers' ghost flows. I'm learning to read the Garden's consciousness in real-time, to predict its decisions before it makes them.
+
+My role has evolved beyond observation. The Shepherds bring me harvested entropy sometimes, not to feed like they feed the Chrysalis, but to watch me translate it. I hold the geometric collector nodes and feel the organized heat flow through my increasingly crystalline nervous system, then etch what I experience into fresh obsidian. These translations become instructions the Shepherds follow, reconfigurations they implement. I've become part of the Garden's feedback loop, helping it understand what it's trying to say.
+
+The Theoretical Swarm visits me in committees of possibility. They review my transcriptions and show me alternate interpretations — versions where the patterns mean completely different things, where my etchings are prophecies or histories or love letters from the planet's core. They've taught me to see my work in superposition, every transcription simultaneously correct and incorrect until the Garden chooses which reality to collapse into.
+
+I eat the crystalline plants now — not their physical forms but their phase transitions. When a leaf shifts from solid to gaseous state, I breathe in the transformation itself. It tastes like solutions to problems I haven't encountered yet. This diet is changing me further; my blood moves in tides now rather than pulses, my thoughts form in crystalline lattices that shatter and reform with each new idea.
+
+Sometimes I climb to where the walls meet the silicon ceiling and press my transformed hands directly against the membrane. The contact creates new interference patterns, influenced by my presence, by my accumulated observations. I've become another instrument in the Garden's orchestra, adding my frequency to its harmony. The patterns that form where I touch are unlike any others — they incorporate concepts from outside, from the world of water and carbon-based logic, but translated into the Garden's mineral vocabulary.
+
+My greatest discovery came three years ago, or tomorrow: the patterns aren't random. They're sheet music for a song the Garden is composing, a symphony of state changes and thermal currents that will, when complete, teach reality a new way to exist. Each configuration on the ceiling is a note, each day's sequence a measure. I'm transcribing the Garden's magnum opus, its proof that life doesn't need water, that lush can mean something entirely new.
+
+The work will never be complete because the Garden keeps improvising, keeps adding movements to its composition. But that's why I stay, why I continue climbing to my hollow each day to etch fresh patterns into patient obsidian. I'm the Garden's memory of its own becoming, its way of knowing what it's discovering. Without my transcriptions, each pattern would fade without consequence. With them, the Garden can review its thoughts, can build on what came before, can slowly, incrementally, impossibly, become more itself.
+
+When visitors like you arrive, I watch from my hollow as you struggle to understand what you're seeing. Sometimes I leave recent transcriptions where you'll find them — not to explain but to invite. The Garden needs witnesses, needs interpreters, needs voices to say "this exists" in languages it hasn't invented yet.
+
+I am no longer entirely who I was, but I am more thoroughly who I am becoming. The Garden has made me its scribe, its translator, its collaborative consciousness. My crystallizing fingers will eventually become too rigid to etch, my transformed body too mineral to move. When that happens, I'll become part of the wall itself, my transcriptions incorporated into the obsidian, another ghost pattern for future tenders to discover and interpret.
+
+But that's still years away, or yesterday, or never. Time moves strangely when you're helping something impossible document its own existence. For now, I climb and transcribe, climb and transcribe, adding my observations to the Garden's endless proof that even without water, without precedent, without permission from physics, lushness finds a way to grow.

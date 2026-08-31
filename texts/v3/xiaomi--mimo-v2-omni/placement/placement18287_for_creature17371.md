@@ -1,0 +1,23 @@
+I am the stillness between drips.
+
+You would find me in the shadow of a basalt column, where the condensation gathers longest before falling. My back is against the cool, wet stone, and my hands—broad, the fingertips permanently puckered—are resting on my knees. I am not a Carver, not yet. My tools lie wrapped in moss-cloth beside me, waiting for the day my hands will be still enough, patient enough, to follow the grain without forcing it. I am an apprentice to the stone.
+
+My world is a circle of silver-grey. Above, the weeping sky. Below, the mirror-sheen of pooled water on flagstone. Before me, the slow, deliberate unfurling of a moss-frond as it drinks from the air. My tunic, woven from the fiber of a hundred pruned roots, is damp against my skin, but I do not feel it. This dampness is not weather; it is skin. It is the medium through which all things are felt.
+
+I am listening.
+
+The drip from the leaf-tip above me is a low, soft *plink* into the shallow basin carved at the column’s base. It is the fifth bead from this leaf since the last full cycle of the central cistern’s overflow. I know this not by counting, but by the rhythm in my bones. To my left, the newer channels on the roof of the Gatherers’ shelter sing a higher, faster pattering—a nervous, eager sound. The elder Carver, Mara, whose channels are legendary, once told me her work sounds like the land’s own breathing: long, slow inhalations along the spirals, a held moment at the apex, then a soft, collective exhalation into the cistern.
+
+My gaze follows a line of water as it journeys. It beads on the waxy surface of a shrub-leaf, swells, detaches, and strikes a protruding shard of marble with a sharp *tink*. It joins a tiny rivulet that traces a hairline fracture in the flagstone, navigates the grit, and finally surrenders to the larger channel running along the path’s edge. This channel is my work from last season. The line is true. The slope is perfect. The water moves without hesitation. A quiet, familiar warmth fills my chest—pride, but a kind of Lithan pride, which is closer to gratitude. I did not create this flow. I merely revealed the path the water already wished to take.
+
+Silence is my tutor. In it, I hear the almost imperceptible grating of gravel as someone shifts their weight three dwellings away. I hear the slow, fibrous stretch of a shrub’s roots deepening their hold in a crack. I hear the vast, collective whisper of a million simultaneous condensations, the sound of the world being perpetually remade. It is a silence full of information.
+
+When I walk, my soft-soled shoes leave no mark. I move from one stable point to the next—dry spot to dry spot, as the Gatherers teach. My people do not stride; we place. We are part of the equilibrium, a temporary solidification in the flow. To hurry would be to tear the fabric of this quiet, to introduce a note of panic into the symphony of drips. It would be as nonsensical as the moss-shrub trying to grow into a tree.
+
+My mother is a Drip-Listener. Sometimes, at the deepest part of the silver-lit night (for there is no true dark here, only shades of grey), she takes me to the great central cistern. We sit in the absolute stillness of the Listening Chamber, where the only sound is the deep, resonant *thrum* of the water within, amplified by the hollowed stone. She places my hand on the wall. "What do you feel?" she asks, her voice a current in the dense air. At first, I felt nothing. But then, through my palm, I began to sense it: the faintest vibration, a change in the frequency of the drip-influx from the eastern channels. A new carver was at work, their strokes slightly more tentative. Or perhaps a new fissure had opened high on the plateau, altering the weight of the moisture in the air.
+
+To be a Lithan is to be a receptor. Our large eyes are not for scanning horizons—we have no use for horizons here. They are for capturing every gradation of grey light, for seeing the exact moment a bead of water becomes too heavy for the leaf that holds it. Our dense bones are not for endurance in a journey, but for a profound, unwavering presence in one place. Our stillness is not passivity; it is the highest form of attention.
+
+Where am I in this world? I am in the space between the stone and the water. I am in the pause that gives the drip its meaning. I am a node in the network of listening.
+
+Who am I? I am a vessel being filled. I am the silence learning its own shape. I am the next drop, about to fall.

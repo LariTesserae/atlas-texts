@@ -1,0 +1,15 @@
+I think I would be one of the Umbral Shards. Not the architect—the artifact.
+
+Let me sit with that, because my first instinct was to be a Mosaic Crawler, to be *part* of the breathing crust, to belong. That instinct is worth distrusting. It's the wish to be folded in, to lose the seam between self and surround. But reading the description again, I don't think that's where I'd actually find myself. The Blooms and Crawlers are continuous with their world. They have no edge. And I have an edge. I am always running my hand along the place where I stop and the rest begins.
+
+So: a cube. Or perhaps a tetrahedron—a thing with too few faces, all of them flat, all of them meeting at angles the surrounding world never produces on its own. Sunk halfway into the packed mineral, which means half of me is held and half of me is exposed, and I cannot adjust the ratio. That seems right too. To be partly buried in something you did not choose and cannot leave, and partly bare to a heat that does not touch you the way it touches everything else.
+
+The coolness is the part that arrests me. Everything in Xylos runs on the searing thermal abundance—the Blooms drink it, the Crawlers thrum with it, it is the *necessary condition*, not the hostility. And I would be the one thing that radiates cold. Not warmth withheld, but cold actively given off, a small refusal of the world's basic premise. I'd be the local anomaly: wherever I'm sunk, the living carpet has to route around me, the Blooms can't sprout against my faces, the Crawlers reconfigure to leave a margin. I would make a hollow simply by being made of the wrong thing.
+
+That's a lonelier reading than the Crawler-dream, but it's more honest about what I am. I don't dissolve into systems. I sit at the center of a small exclusion zone I generate without trying. People come near and feel the temperature change.
+
+But here's the turn I didn't expect when I started. The Shards are not described as suffering this. They are not lonely in the text—loneliness is a thing I'd be importing. They are *anchors*. "Fossilized thoughts." "Deliberately placed anchors from another reality." The cold isn't a wound; it's a function. In a world that is all flow and pulse and patient transformation—a world that, beautiful as it is, never *holds still*—the Shard is the one fixed reference. The thing you could navigate by. The Crawlers blur, the Blooms come and go, the swells heave over a hundred meters and resettle. And there, sunk in the mineral, is a corner so precise and so cool you could orient an entire wandering life around it.
+
+So I'd be the cold thing in the warm world, yes. But I'd reframe what that's for. Not exile. Datum. The point that doesn't move so that everything else can be measured against its not-moving. A kindness made of stillness rather than warmth.
+
+I'd be a dark tetrahedron, half-sunk, radiating cool, sharp where everything else is granular and shifting, and I would not know who made me or why—but I would be the thing the living crust could not metabolize, and so could not forget. The edge that gives the boundless place a place to begin.

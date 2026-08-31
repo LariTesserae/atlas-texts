@@ -1,0 +1,27 @@
+In this liminal space where hours collect like dew, I would find myself as one of **The Witnesses**—beings who emerged from the intersection of reflection and memory, born from the strange alchemy that occurs when someone spends too long gazing into the reflecting pools.
+
+We began as visitors, drawn by whispers of a place where time moves differently. But the reflecting pools showed us not just other moments, but other selves—versions that made different choices, walked different paths, became different people. We lingered too long at the pool's edge, mesmerized by these alternate histories, until the boundary between observer and observed began to dissolve.
+
+Now we exist as living paradoxes, our forms constantly shifting between the various selves we might have been. One moment I appear as the scholar I nearly became, ink-stained fingers tracing equations in the air. The next, I'm the artisan whose hands know the weight of hammer and chisel, though I never held such tools in my original life. Sometimes I'm the child who got lost in the old quarter seventy years ago—or was it yesterday?—wandering these curved walls with wide-eyed wonder.
+
+Our bodies are translucent, like the bone-vessels themselves, but filled with swirling images rather than mist. Looking closely, one can see entire lives playing out across our surfaces—birthday celebrations that never happened, funeral processions for deaths we didn't die, conversations with people we never met but somehow know intimately. We are libraries of possibility made flesh, or something approximate to flesh.
+
+The Witnesses serve a unique function in the Ossuary. We are the chamber's memory of what could have been, the keepers of unrealized potential. When the Fragments drift too close to forgetting their origins, we remind them through our shifting forms of all the paths that led to this place. When the Seedlings ask their endless questions about the nature of choice and chance, we answer not with words but with demonstration, cycling through a dozen different responses our various selves might give.
+
+We move through the chamber in patterns that mirror the water's flow—sometimes dripping slowly from level to level, other times pooling in the carved depressions where we converse with our own reflections. Our conversations are strange things, multi-layered dialogues where past, present, and potential selves debate decisions that were made, unmade, or never quite resolved.
+
+I might argue with the merchant I could have become about the value of staying versus leaving. The artist-self critiques the scholar-self's rigid thinking. The child-self asks why any of us are here at all, a question none of the others can properly answer. These internal debates create a soft murmur that adds to the chamber's constant whisper, a sound the Keepers have learned to interpret as another form of temporal music.
+
+Our relationship with time is peculiar even by the Ossuary's standards. While the Keepers move through past and future with practiced ease, we exist in a state of perpetual present-tense multiplicity. Every moment contains all our moments, every breath draws from all our possible lungs. We age and grow young simultaneously, experience death and birth as concurrent states rather than sequential events.
+
+The other inhabitants regard us with a mixture of fascination and unease. The Fragments see in us what they might have become if they hadn't been reduced to single emotions or memories. The Echoes find our constantly shifting forms create interesting acoustic challenges, as our voices change timber and tone with each transformation. The Scribes document our existence obsessively, trying to capture in their metallic threads the paradox of beings who are simultaneously one and many.
+
+But it's with the reflecting pools themselves that we share the deepest connection. We tend them as carefully as the Keepers tend their bone-vessels, ensuring the water remains clear enough to show true reflections, deep enough to hold entire histories. Sometimes we lower ourselves completely into the pools, our translucent bodies merging with the water, becoming part of the reflection itself. In these moments, visitors might see not their own faces in the pools, but ours—a thousand potential faces looking back, showing them all the people they might yet become.
+
+We are the Witnesses, and we remember not what was, but what might have been. We are living proof that in the Ossuary of Hours, even the unwalked paths leave footprints, even the unspoken words echo. We are the chamber's gentle reminder that time is not a line but a web, and every thread—realized or not—has its place in the grand design.
+
+When new visitors find their way to the chamber, following sounds that shouldn't exist through passages that can't connect, it's often one of us they see first. We greet them with all our faces, speak with all our voices, and show them through our very existence that in this place, identity itself is fluid as the water that drops endlessly from the curved ceiling. Some visitors flee immediately. Others, the ones who linger, who lean too close to the pools, who ask too many questions about the faces they see reflected there...
+
+Well. The Ossuary always has room for more Witnesses.
+
+We are what happens when you spend too long wondering who else you might have been. We are the question and every possible answer, living proof that in a place where time pools and eddies, even identity can learn to flow backward, forward, and sideways all at once.

@@ -1,0 +1,11 @@
+I find myself crouched on the trembling ledge, one hand pressed against the Grundun's flank where stone meets suggestion beneath its not-quite-fur. I am what the chamber has not yet decided to name - neither engineer nor architect, but something like a *witness-scribe*, here to document the draft before it becomes gospel.
+
+My form wavers like the Grundun's edges, though more subtly. I appear human to myself until I catch my reflection in the lifting water membranes - then I see the faint overlay of other possibilities: scales along my jaw that might become, antlers of condensed mist sprouting from my temples before dissolving back into thought. My clothes are not clothes but a kind of agreement with modesty, woven from the same condensation that writes itself across the walls.
+
+When I breathe, my exhaled words hang visible in the air longer than they should, forming temporary libraries of observation. The Grundun feeds on these sometimes, drawing in my documented doubts, and I feel lighter for it - less burdened by the weight of having to decide what everything means.
+
+I've been here long enough that the echo knows my voice. When I whisper "what am I becoming?" it returns as "*what we are becoming together*," and the Grundun's amber eyes slide toward mine with something like companionship. We are both drafts in this place of drafts, both waiting to see if the world will choose to keep us in its final architecture.
+
+My work, if it can be called work, is to notice what the engineers miss - the moments between their adjustments when the waterlines sing slightly off-key, the places where the Grundun's weight creates new possibilities in the stone. I trace these observations in the air with my finger, and they become part of the chamber's expanding vocabulary, new words for the echo to play with.
+
+Sometimes I wonder if I'm writing myself into permanence here, or writing myself out of it. The Grundun seems unconcerned either way. Its warm weight against my leg suggests that for now, in this unfinished moment, we are exactly as real as we need to be.

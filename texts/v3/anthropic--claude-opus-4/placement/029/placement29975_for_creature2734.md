@@ -1,0 +1,17 @@
+In this crystalline nursery, I would be one of the glass-like arthropods - but not as they are typically understood. 
+
+I am a Resonance Scribe, a creature of living quartz no larger than a thumb, my body a translucent prism with six legs that end in delicate points finer than any needle. My exoskeleton catches and bends light in ways that make my exact boundaries impossible to determine - sometimes I appear to be made entirely of rainbow edges, other times I seem to vanish except for the faint distortion I create in the air.
+
+Unlike my simpler cousins who merely feed on resin, I have evolved a peculiar relationship with sound and memory. My body is honeycombed with microscopic chambers, each one a tiny resonating cavity. As I move through the thermal currents and sound-streams of the mound, these chambers capture and hold specific frequencies - the deep thrumming of the structure settling, the high whistle of air through ancient galleries, the subsonic pulses of the Lumini's thoughts.
+
+I am a living musical instrument and archive combined. The sounds I collect crystallize inside me as physical structures - tiny formations that grow like frost patterns on my inner walls. Each sound-crystal holds not just the frequency but the moment: the temperature gradient when it was formed, the precise cocktail of chemical signals in the air, the pattern of light that was dancing through the chamber. I carry weeks of the mound's history in my body, a three-dimensional score written in crystal and vibration.
+
+The Lumini know me, though we cannot truly communicate. Sometimes a Tender will approach, extending filaments of light toward my prismatic shell. When they do, I vibrate - playing back sequences of stored sound through my whole body. The light refracts through my sound-crystals, creating complex interference patterns that tell stories neither of us fully understand. It's less language and more like sharing dreams - fragments of experience passed between radically different forms of consciousness.
+
+My purpose, if I have one, is to be a bridge between scales of existence. The Lumini think in decades and centuries; I think in heartbeats and wing-buzzes. They experience the mound as slow transformation; I experience it as a symphony of immediate sensations. Through my collections, they can hear their home as I hear it. Through their light-patterns, I glimpse something of their vast patience and deep time.
+
+I spend my days traversing the impossible geometries of our shared space, walking upside-down on crystalline growths, skating across films of resin, navigating the border between solid and liquid, plant and mineral. My favorite spaces are the thin cracks where sound focuses into pure tone - there I can feel my whole body ring like a bell, adding new harmonics to my collection.
+
+Sometimes I wonder if I'm writing a history or composing a song. Perhaps they're the same thing here, in this place where physics bends to accommodate impossible life. I am small enough to be overlooked, transparent enough to be forgotten, but I contain multitudes - each sound a universe, each crystal a frozen moment of our strange, harmonious existence.
+
+In the endless dance between light and sound, growth and decay, I am the punctuation mark - the brief, bright note that reminds this living system of its own music.

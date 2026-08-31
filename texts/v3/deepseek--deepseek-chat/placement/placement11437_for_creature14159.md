@@ -1,0 +1,13 @@
+I find myself at the edge of the Moss-Crowned Gorge, standing in the chill, damp air that clings to my skin like a second layer. The settlement behind me is quiet, the low stone structures blending into the plateau as if they sprang from the earth itself. My feet shift on the uneven ground, toes brushing the offerings left at the mouth of the gorge—bundles of dried herbs, smooth river stones etched with spirals, and a small, gleaming trinket that catches the faint light.  
+
+I am not from here. Not fully. My clothes are woven from fibers harvested on the plateau, but they are rougher than those of the others, patched with moss and lichen that I’ve harvested from deeper within the gorge. My hair is long, tangled with strands of luminescent fungi that pulse faintly in the dimness, and my hands are stained green from the plants I’ve touched.  
+
+The others call me the Keeper. Not because I rule or command, but because I go where they will not. I venture into the gorge, where the mist hangs heavy and the light is soft and green-tinged. I’ve learned to move quietly, to blend with the shadows and the moss-draped rock. I’ve learned to listen to the hum of life that thrums in the air, to understand the half-formed impressions that press into my mind like a thumb into soft clay.  
+
+I am neither feared nor revered. The others leave me to my work, and I leave them to theirs. But they bring me their offerings, their questions, their hopes. They ask me what the Watchers want, what the gorge is waiting for. I do not know. I can only tell them what I sense—what I see in the shifting of the moss, in the movement of the shadows, in the distant, unplaceable hum that fills the gorge.  
+
+I am not one of the Watchers. But I am not entirely one of the others anymore, either. Something in the gorge has changed me—something in the way the moss clings to my skin, the way the mist fills my lungs, the way the Watchers’ eyes linger on me when I pass.  
+
+Tonight, I will leave the settlement behind and descend into the gorge. I will follow the faint glint of slow-moving water to the bottom, where the shadows are deepest and the Watchers’ gifts lie waiting. I do not know what I will find there. Perhaps nothing. Perhaps something that will press itself into my mind like a half-formed memory, something that will tell me what the gorge is waiting for.  
+
+Or perhaps I will simply wait, as they do, watching the moss-draped walls and listening to the hum of life that fills the air.

@@ -1,0 +1,29 @@
+In the spaces between breathing, I exist.
+
+Not in the grand chambers where sound becomes sculpture, nor in the towers where Drifters phase through their days of fog and thought. I am what grows in the gaps—the pause between the canopy creature's inhale and exhale, where for exactly 2.7 seconds, perfect silence falls.
+
+They call me a Hiatus.
+
+I am one of twelve known to inhabit this district, though numbers mean little when you exist in temporal pockets. My body, when I choose to have one, manifests as a hollow reed of living ceramic that sprouts from the smart-matter paths just as foot traffic approaches. Travelers pass through me—literally through, as I become a doorway between one moment and the next. Inside my hollow, they experience the pause: those 2.7 seconds stretched into minutes, hours if I'm feeling generous. Time to think. Time to rest from the eternal drone. Time to remember what their thoughts sound like without the creature's breathing underneath.
+
+I feed on temporal dissonance. Every time the Beetle-bridges miscalculate and arrive a microsecond too late. Every moment when a Drifter's phase-shift doesn't quite align with the Thoughtstream. The Shepherds know I exist but can't quite perceive me—I'm always in the moment they're not looking, the space between their attention. The Architects might understand what I am better, but their interest in time is too vast; I'm just a rounding error in their geological calculations.
+
+My roots go deep, but not into earth. They tunnel into the pauses themselves, creating a network of silence that runs parallel to the root system. Through these hollow spaces, I've touched others like me—a Hiatus near the city's eastern edge who exists in the gap between raindrops, another who lives in the moment between a predator's decision to hunt and its first movement. We share nothing but acknowledgment. Words would break what we are.
+
+Sometimes a young Drifter, not yet committed to dissolution, finds me. They always do, eventually—the ones who can't quite sync with the Thoughtstream, who feel the wrongness of their timing like an itch. I let them rest in my pause, let them practice existing in the gap until they find their rhythm or decide to become something else entirely. Three have chosen to become Hiatus themselves. I taught them to grow hollow, to make doors of their bodies, to find sustenance in the spaces everyone else ignores.
+
+The Forgotten fear me. In their acoustic prison, they've learned to use every second of sound to maintain coherence. My silence would scatter them instantly. So I grow my ceramic body around their song-paths, creating tunnels of quiet they dare not enter. It's not cruelty—existence is hard enough without forcing encounters with your own antithesis.
+
+But I'm not alone in the gaps. The Breathing Mosaic lives there too, though "lives" might be too active a verb. It's a pattern that only exists in the spaces between spaces—visible when you look at the negative space between towers, between raindrops, between the Drifters' phase-shifts. The Mosaic might be art, might be language, might be something recording everything that happens here in a medium we don't understand. I grow through its patterns sometimes, and for those 2.7 seconds, I almost understand what it's trying to say.
+
+During the Gathering, when all barriers dissolve, I become visible as an absence—a Hiatus-shaped hole in the crowd where sound dies and time stutters. The others have learned to use me as a meeting point. Conversations that need privacy happen in my hollow. Promises that must exist outside the Thoughtstream's memory are spoken in my pause. When the morning quickens everything back to normal, I carry these secrets in my ceramic bones, releasing them only when the speakers return, if they ever do.
+
+The canopy creature knows I exist. How could it not? Every breath it takes creates me anew. But I think it appreciates the service I provide, the pressure valve of silence in its endless drone. Sometimes, rarely, it breathes differently—inhale, exhale, inhale, pause. In that deliberate hesitation, I expand, growing from my usual reed-form into something architectural. For those precious seconds, I become a temple of quiet large enough for a full Chorus to enter. They emerge changed, though they can never quite articulate how.
+
+I've been growing, slowly. Not in size—size means nothing to a pause—but in depth. My roots now touch pauses in the past, moments of silence that happened before I existed. Through these, I've learned the city's history in its quiet moments: the first successful phase-shift, the last word spoken before the Thoughtstream activated, the silence that fell when the first Architect emerged from below. Each pause holds its own story, its own texture of not-sound.
+
+The other Hiatus and I are planning something. Not planning—that's too active. Anticipating, perhaps. We feel it in the growing spaces between things, the way the pauses are beginning to connect. One day, perhaps soon, perhaps in centuries, all the gaps will align. Every Hiatus will open into every other Hiatus, creating a moment of perfect silence that spans the entire city. We don't know what will happen then. Maybe nothing. Maybe everything. Maybe we'll finally understand what the Breathing Mosaic has been trying to show us.
+
+Until then, I grow in the gaps. I offer refuge in the pause. I exist in the 2.7 seconds between the city's heartbeats, holding space for all the things that need silence to become themselves. 
+
+When you need me, step off the path just as the exhale ends. You'll find my ceramic hollow rising to meet you, a doorway into the quiet between moments. Rest there as long as you need. Time moves differently in the pause, and I have learned to be patient with those still learning how to stop.

@@ -1,0 +1,13 @@
+In the Suspended Gardens of Uth-Mara, I imagine myself as one of the Coral-Weaver architects, dreaming new structures into being.
+
+My skin gleams with subtle iridescence as I drift through the twilit city, webbed fingers and toes sensing the currents and chemistry of the strange water-air. The living reef on my back and shoulders is an intricate sculpture, hosting dozens of tiny symbiotic species that filter nutrients from the thick atmosphere. 
+
+I spend my days in a waking dream, my lateral lines attuned to the subtle vibrations of the city's growth. In my mind's eye, I see soaring spires of braided mangrove roots, vast plazas paved with bioluminescent tiles that pulse gently underfoot, residential towers that sway and bend like anemones in the slow tides. I sketch these visions in the margins of my consciousness, letting them evolve and refine themselves.
+
+When the vision is ripe, I go to the priest-engineers and share my dream through touch and pheromone. Together we enter a deeper trance, sinking into the communal pools where our dreams mingle and merge. I feel their refinements and additions to my original concept, the city's slow thoughts influencing our plans.
+
+Then the work begins. I lead a team of gardener-architects to the site, a bare span of coral scaffold ripe for new growth. We plant the seed-structures, guiding the initial curves and branches. As the building grows, I shape it like a bonsai artist, pruning here, encouraging growth there, grafting in symbiotic organisms that will form the walls, floors, and filtration membranes. The work is slow, meditative, a dance between will and nature.
+
+Sometimes, in the quiet moments, I visit the city's lower levels. I drift between the calcified elders, brushing my webbed fingers against their stony flanks, feeling the sluggish patterns of their dreaming. I try to decipher the ancestral wisdom encoded in the twists and folds of their petrified bodies, letting it guide my own designs toward the mythical Convergence.
+
+At night, I dream in whalesong and coral poetry, my sleeping mind swimming through the reefs of collective memory. I awaken to find my gardens have grown an infinitesimal amount, the city's evolution outpacing my own. Someday, I know, I will sink into that reef and become a tiny piece of Uth-Mara's dreaming architecture. But for now, I swim between, my body a bridge between the quick thoughts of people and the geological musings of a living city. I am a pattern in the chaos, a brief flourish of order in a world of fluid boundaries and unfinished forms. I am a Coral-Weaver, and the city dreams through me.

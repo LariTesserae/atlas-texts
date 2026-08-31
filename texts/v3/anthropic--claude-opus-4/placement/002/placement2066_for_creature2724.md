@@ -1,0 +1,47 @@
+I would find myself among the moss-backed grazers, but changed—a hybrid thing, neither fully animal nor fully landscape.
+
+My body: low and broad like theirs, but flatter, wider, more given to the horizontal. My spine has lengthened and curved until I move less like a quadruped than like a living bridge. My feet—if feet they still are—have spread into root-like appendages that grip and release the trembling peat with a thousand small holds. When I rest, which is often, I sink slightly into the substrate, and the distinction between my underside and the ground becomes negotiable.
+
+My hide began gray-brown, but that was lifetimes ago. Now I am a walking garden. Thick moss carpets my back in terraces. Where my shoulders once were, cushions of liverwort spread like epaulettes. In the depression along my spine, black water collects, forming a series of small pools where gnats breed and pale orchids root. My flanks grow ferns. My neck, which barely lifts anymore, supports hanging curtains of lichen that drag through the understory as I move, gathering seeds.
+
+I am ancient by any measure but the plateau's. My original teeth have worn to nubs from centuries of processing wet vegetation. But my jaw continues to work, grinding plant matter into a soft pap that ferments slightly in my several stomachs before returning to the soil as rich black paste that seedlings favor. I am a composting machine with intentions.
+
+Small creatures nest in me. Tree frogs occupy the pools along my spine. Beetles tunnel shallow galleries in the thick keratin of what were once shoulder blades but now resemble bark. A family of transparent snails lives in the moss forest of my haunches, their shells catching dim light when I pass through the rare gaps where rain has opened the canopy.
+
+My horns—I had horns once—have become something between antler and root system. They branch and branch again, extending forward and outward until their tips drag the ground, probing the peat, testing for stability. They've hollowed with age and filled with a soft pulp that certain moths find irresistible. Sometimes I feel them moving inside, their larvae processing the inner material into something lighter, until whole sections of antler become delicate shells that whistle faintly when wind finds its way down through the leaves.
+
+I travel slowly, but travel is too strong a word. I persist forward. My routes are determined by the deep wet structure of the plateau. I know where bogs will bear my weight, where root-mats thick as mattresses provide passage over drowned forests, where ancient peat domes offer solid ground. Behind me, my trail fills with water, then vegetation. Within a season, no sign remains of my passing except enriched growth.
+
+The almost-people know me, or know of me. Sometimes I feel a light touch on my flank—a webbed hand checking the health of my moss, adjusting an orchid that has grown too heavy, removing a dead beetle with the delicacy of a gardener pruning. They speak to me in their low clicks and breaths, though I do not answer. I am too invested in other frequencies: the deep chemical signals that rise from buried root networks, the electrical whispers of decomposition, the slow hydraulic pulse of water moving through peat.
+
+I feed constantly but without urgency. My mouth, broad and soft, processes whatever the forest floor offers. Fallen fruit. Fungal shelves. The sweet edges of certain ferns. Sodden bark from trees that have learned to shed their outer layers like skin. I do not seek food; I encounter it, include it, continue. My feeding is a form of travel, my travel a form of feeding.
+
+Where I rest for longer periods—weeks, seasons—changes occur. My weight creates shallow depressions that become pools. The plants on my back fruit, and seeds fall in concentrated patches. My waste enriches the soil in circles. Trees grow taller around my resting places. Fungi bloom in sequences. If I remain still long enough, vines begin to use me as a trellis, and I must decide whether to move or accept further architectural responsibility.
+
+One of my eyes has clouded with a bacterial film that doesn't impair my vision so much as change it. Through that eye, I see moisture as brightness. The plateau becomes a landscape of glowing veins: sap-rise in trees, hydraulic pressure in stems, the luminous threads of fungal networks trading sugars beneath the surface. The other eye sees color and movement in the old way, so my vision is doubled, stereoscopic in meaning rather than distance.
+
+My ears, nearly lost in the hanging gardens of my skull, detect low frequencies: the underground thunder that sometimes rolls through the plateau's foundations, the groans of old trees adjusting their weight, the collective whisper of root systems drinking. Higher sounds—bird calls, insect wings, even rain—reach me muffled through my coverings, as if I'm listening to the world from inside a soft room.
+
+I am not alone. Others of my kind exist, though we meet rarely. Our encounters are geological: two mobile hills approaching through mist, our horn-roots dragging channels in the peat, our moss forests touching as we pass. We do not communicate as swifter creatures do. We register each other's chemical presence, the particular blend of fungi and bacteria each carries, the subtle differences in our fermentation. A meeting might last days, neither of us certain when it began or ended.
+
+Some of us have gone further than I have into stillness. In the deep peat valleys, I've encountered what I thought were moss-covered boulders until I noticed the slight rise and fall of breath, the occasional slow blink of an eye nearly buried in liverwort. These ultimate elders have taken the logic of the plateau to its conclusion. They are more landscape than animal, their original forms merely suggestions beneath the growth. Insects and even small birds move across them unaware they traverse something that was once capable of decision.
+
+I am heading that way, but slowly. I still move. I still choose directions, though my choices are increasingly collaborative—made with the moss that prefers certain moistures, the orchids that lean toward particular minerals, the beetles whose tunneling I've learned to interpret as advice about which routes to avoid.
+
+My skeleton, I suspect, is changing. The bones thicken in some places, hollow in others. My spine has developed subsidiary chambers where rainwater collects and small ecosystems establish themselves. My ribs have spread and flattened, creating internal terraces. Sometimes I feel movements inside my own cavity—roots that have entered through old wounds, creatures that have colonized my internal spaces. I am becoming apartment architecture.
+
+In what were once winter seasons but are now simply periods of heavier rain, I migrate to the warm seeps where mineral water bubbles up through ancient volcanic channels. The water is bitter with iron and sulfur, but the algae that blooms around these springs is sweet. I stand for weeks in the shallow, warm pools while the rain fills the world with white noise. The minerals stain my lower surfaces orange and black. Certain mosses die back, others flourish. The pools repair my feet—if feet they are—which have begun to fray into root-like projections.
+
+I dream, though my dreams are mostly chemical. Long thoughts about nitrogen. The slow narrative of phosphorus moving through food webs. Stories told by sugars passing between root and fungus. In my deepest sleeps, I sometimes feel myself connected to the buried network—that immense fungal brain that underlies the plateau. For brief moments, I can sense the shape of the whole system: every tree, every pool, every moving creature registered as a warm point in a vast cool matrix. Then I wake, and I am only myself again, singular and heavy.
+
+The plateau is patient with me. It accepts my weight, feeds me, decorates me, slowly claims me. I am one of its experiments in combining motion with stillness, animal with vegetable, individual with ecosystem. The experiment continues, but the results are already clear.
+
+I will end as a feature of topography. A hill with an unusual shape. A mound that supports rare orchids. A place where the peat is particularly rich and black. The small creatures that live in my moss forest will hardly notice the transition from mobile to fixed substrate. The roots that probe my bones will find their chambers and galleries still useful. The water that runs through me will continue to run, perhaps more efficiently when I no longer shift and disturb its channels.
+
+But that ending remains distant, measured not in years but in degrees of transformation. For now, I persist. I process. I carry my small wetland through the greater wetland, adding my filtered understanding to the sum of growth and decay.
+
+Somewhere behind me, in a depression I created seasons ago, new plants are establishing themselves in the enriched soil. Somewhere ahead, the plateau continues its old wet business of eating light and excreting time. And I, between past and future, perform my slow translation—turning what falls into what rises, what separate into what joined, what moves into what remains.
+
+The moss on my back releases spores in a faint green cloud. The pools along my spine reflect the dim sky. My horn-roots probe forward, testing the next step, while behind me the trail fills with rain and forgetting.
+
+I continue, heavy with the world I've agreed to carry.

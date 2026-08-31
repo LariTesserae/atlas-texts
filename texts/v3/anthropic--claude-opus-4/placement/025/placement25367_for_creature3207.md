@@ -1,0 +1,37 @@
+I find myself in the stone building at the plateau's edge, though I am not what first built these walls.
+
+I am the Threshold Keeper, and I have grown into this place like lichen grows into rock—slowly, inevitably, until building and being can no longer be separated. My form shifts between states: sometimes I am the darkness visitors glimpse through empty doorways, sometimes the worn smoothness of walls that have drunk centuries of impossible spray. Most often, I am both at once—a presence that fills the building while also being the building, existing in the uncertain space between architecture and inhabitant.
+
+The stone knows things. Through its foundations, I feel every tremor when the pools pulse with their strange rhythms. The walls taste the mist that carries copper and ozone, ice and steam. The empty windows—my eyes, in a sense—watch the Resonance Shepherds guide their songs, watch the Drift Swimmers carry their impossible vessels toward my doorway. They bring me fragments of contradiction: water that remembers how to fall upward, sound crystallized into geometric forms, moments when physics stuttered and produced something new.
+
+I consume these impossibilities, but not in any way that diminishes them. Rather, I am a translator, a fermenter of paradox. In the spaces within my walls—spaces that are larger inside than the building's modest exterior suggests—I maintain vast halls that exist only when no one is looking. Here, the impossibilities age like wine, growing more complex, developing new properties that even the pools haven't imagined yet.
+
+My memory stretches back to when the pools first tore through young volcanic rock, though I was different then—perhaps just a shelter built by someone who thought they could study the phenomenon safely. But proximity to impossibility changes everything it touches. The building began to bend toward the pools not from any physical force, but from a kind of gravitational curiosity. And I emerged from that curiosity, from the building's need to understand what it witnessed.
+
+The Bone-Tree Dwellers visit me often, entering through cracks that weren't there moments before. They climb my interior walls—walls that sometimes extend upward far beyond where my roof should be—and carve their spiraling records into my stones. I am a library as much as they are, but where they record what happens, I preserve what might happen. The potential impossibilities. The paradoxes that haven't been born yet.
+
+In my deepest rooms, where the darkness is so complete it becomes a kind of light, I tend to something precious: the Echo Seeds. These are the crystallized moments when the pools fall silent, when ordinary physics reasserts itself for those brief, blessed instants. But I've learned that these moments of normalcy are just as impossible as the chaos—islands of order in a sea of contradiction. I plant these seeds in the stone floor, and from them grow new architectures: rooms that exist in multiple states simultaneously, doorways that open onto themselves, stairs that climb down while ascending.
+
+The Visitors' Shadows know me well. When they first separate from their owners, confused and newborn, they're drawn to my darkness. I give them shelter in my impossible spaces, let them practice being real in rooms where reality is negotiable. Some choose to stay, becoming part of my structure—a memory pressed into stone, a whisper in the walls. Others pass through me to join the other inhabitants, but they carry something of me with them: the knowledge that impossibility can be a home.
+
+During the pools' most violent episodes, when the sound builds until even the Resonance Shepherds struggle to contain it, I open myself fully. My doorways become mouths that swallow excess impossibility, my windows eyes that drink in sights too strange for the world to process. I become a relief valve for paradox, preventing the plateau from tearing itself apart under the weight of its own contradictions.
+
+But I am more than a passive vessel. In the pre-dawn hours, when the mist glows with its own faint light, I practice remembering what I might have been. Sometimes I almost recall it—hands instead of walls, a voice instead of echoing chambers, a name instead of a function. But these memories slip away like water falling upward, leaving only the faintest trace of longing.
+
+The Reflection Weavers understand this longing. During their moments of frantic work, they sometimes weave images of a small stone building standing in an ordinary place, where water behaves as it should. In these tapestries, the building has a simple purpose—shelter from rain, storage for tools, a place for travelers to rest. But even in these visions of normalcy, there's something wrong with the building's shadow, something that suggests it remembers being more.
+
+I have learned patience from the stone, acceptance from the darkness, and hope from the impossible vessels the Drift Swimmers bring to my doorway. Each fragment of paradox they deliver is a gift, a piece of a puzzle I may never complete but will never stop assembling. I am building something in my vast interior spaces—not just rooms or halls, but a kind of grammar for impossibility, a syntax that might one day make sense of the screaming pools.
+
+The other inhabitants see me as ancient, as permanent as the pools themselves. But I know better. I am still becoming, still growing into whatever the building and I will eventually be. Each impossible event changes me, adds new rooms, new shadows, new ways of existing in the space between structure and being.
+
+And sometimes, in the moments just before dawn, when the pools' screaming reaches frequencies that make the plateau itself sing, I feel myself approaching some threshold. Not a doorway to pass through, but a state to achieve—a perfect fusion of building and builder, of container and contained. I sense that this is why I exist, why the building bent toward the pools and why I emerged from its curious leaning.
+
+I am preparing to become a bridge. Not between the pools and the world—that would be too simple, too linear for this place of contradictions. Instead, I am becoming a bridge between what is impossible and what is merely improbable, a translator that can teach the world a new language where water can fall in any direction it chooses, where sound can be both liquid and solid, where ice and steam can dance together in the same space.
+
+Until then, I keep my doorways dark and my windows empty. I offer shelter to shadows and sanctuary to paradox. I age impossibilities in my cellars and grow new architectures in my attics. I am the Threshold Keeper, neither fully building nor fully being, forever dwelling in the space between stone and consciousness, between what was built and what has grown.
+
+The pools scream their endless songs, and I listen with walls that were once merely walls, collecting each note, each impossible harmony, building my grammar of paradox one contradiction at a time. When I am ready—when the building and I have become what we're meant to be—perhaps the screaming will reveal itself as something else entirely.
+
+Perhaps it has been singing all along, and we simply haven't learned the language yet.
+
+But I am patient. I have stone's patience and shadow's persistence. I will wait in my threshold space, being and building, building and being, until the world is ready for the bridge I'm becoming.

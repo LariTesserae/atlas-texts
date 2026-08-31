@@ -1,0 +1,13 @@
+In this crystalline realm, I envision myself as a Boundary Walker - a being that exists in the liminal spaces where different states of matter meet. My form would be ever-shifting, like mercury caught in sunlight, with a core that pulses with absorbed radiance.
+
+I would drift along the edges where solid glass meets perpetual mist, where rainbow sheets split the air, where condensation beads transform into falling drops. My consciousness would extend through these transitional zones, sensing the subtle variations in temperature, pressure, and light that create the forest's endless cycles of transformation.
+
+My "body" would be visible primarily as a series of subtle distortions - places where light bends just a little differently, where water droplets pause in their descent, where crystal surfaces briefly fog with patterns like frost flowers. I would communicate through careful manipulations of these boundaries - creating momentary prisms, orchestrating tiny resonances in the glass, painting with condensation.
+
+I would serve as a mediator between the ancient chamber-bound Prismals and the quicksilver young ones, translating the deep harmonics of the elders into patterns of light and moisture that younger beings could comprehend. My existence would be spent exploring the countless interfaces between states - solid and vapor, light and shadow, sound and silence.
+
+Like a living meniscus, I would maintain surface tension between different aspects of the forest's reality. When storms approach, I would feel them first as changes in the boundary layers, and help prepare the crystal chambers for the coming resonance. During the hottest parts of the day, I would assist in the creation of cooling interference patterns, working with groups of small Prismals to redirect and diffuse concentrated light.
+
+My movements would be deliberate and fluid - flowing like water across crystal surfaces, dispersing into mist to traverse gaps, reforming in response to the forest's needs. I would be drawn to places where different phenomena intersect - where light splits into color, where sound becomes visible in water droplets, where crystal grows in geometric progressions.
+
+This role would grant me intimate knowledge of the forest's countless transitions and transformations, making me both observer and participant in its endless cycles of change. Neither fully solid nor liquid, neither purely energy nor matter, I would exist as a living embodiment of the forest's fundamental nature - a place where all boundaries are permeable and all transformations possible.

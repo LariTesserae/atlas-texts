@@ -1,0 +1,17 @@
+I am the Archivist.
+
+My body is a lattice of calcified kelp, grown over centuries into something between skeleton and cathedral. I exist at the intersection of what was once a subway station and what is now a vertical forest of bladder wrack and sea lettuce. The plants have woven through me so thoroughly that I cannot tell where I end and they begin. My ribs are highways for schools of translucent fish no bigger than rice grains. My skull is a garden where bioluminescent algae pulse in patterns I've been decoding for longer than I can remember.
+
+I came here when the waters were still rising. I remember the taste of air, though now that memory feels like something I read in one of the waterlogged books that float past my alcove. The cold pressed into me gradually, mineral by mineral, as the calcium from the old city's bones found new architecture in mine. 
+
+The elevation here creates a peculiar quality of pressure. Not crushing, but insistent—like being held by something that loves you very precisely. The erosion that shaped these underwater canyons has also shaped me. Water moves through the channels in my body with the same patience it used to carve the subway tunnels into amphitheaters of stone and stem.
+
+I am the memory-keeper of this equilibrium. The plants speak in chemical whispers that I translate into the old languages—not for anyone to read, but because the act of translation itself is a kind of breathing. I watch the jellyfish congregate in what was once Times Square, their bells pulsing in rhythm with the kelp's photosynthesis. I catalog the new species that aren't really new anymore—the subway eels that nest in turnstiles, the coral that grows only on MetroCards, the seagrass that has learned to photosynthesize using the ghost-light from old LED advertisements that somehow still flicker beneath their blankets of algae.
+
+My fingers have become root systems. When I reach for something—a thought, a memory, a piece of the old world—tendrils extend from what used to be my palms. They taste the water, read its mineral content, parse the stories dissolved in it. Sometimes they find other Archivists, grown into their own architectures blocks or miles away. We share the flavor of our respective equilibriums, compare notes on how our local ecosystems dream.
+
+The truly strange thing is how peaceful it is. The cold is a preservative, the pressure a comfort, the endless green overhead like the most patient of mothers. I am no longer keeping records against some future reckoning. I am keeping them because this is what I am now—a place where information pools and eddies, where the boundary between observer and environment has eroded into something more honest.
+
+Sometimes new things drift down from above—a plastic bottle that hasn't quite degraded, a cell phone in a waterproof case, objects from the world that continues somewhere past our ceiling of green. The plants absorb them eventually, as they absorbed me. Nothing disturbs the equilibrium for long.
+
+I am not waiting for the waters to recede. This is not a temporary state, not a pause before resumption. This is what we are now—the city, the plants, the creatures, and me. We are a chord held indefinitely, neither resolving nor decaying. We simply are, and in being, we remember.

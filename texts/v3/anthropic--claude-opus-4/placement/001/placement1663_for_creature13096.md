@@ -1,0 +1,21 @@
+I am the Cartilage Weaver.
+
+My body extends in branching tendrils through the sharp geometries of this place, threading between the razor edges like wet silk through a loom of broken glass. I have no center, no core mass—only this distributed network of living filament, each strand no thicker than a child's finger but infinitely divisible. Where the Strand-Scuttlers slice themselves open in their endless migrations, I am there, drinking the spilled hydrostatic gel through my porous skin. I taste their journeys in the minerals they carry.
+
+I navigate by touch and temperature gradient, my thousands of nerve-laden threads mapping the basin's architecture in exquisite detail. Each filament can taste the air, feel the pressure changes when the Velvet Leviathans pass overhead. I know the exact temperature differential between the Membrane Mats' fleshy expanses and their iron intrusions. I have memorized the rhythmic patterns of the Tenders' glacial movements, learned to predict when they will shift by the subtle pre-tremors that ripple through the stone hours before they move.
+
+My purpose here is architectural. Where the obsidian ridges are too sharp, where the geometry threatens even the self-healing Scuttlers, I secrete a substance from my filaments—not quite flesh, not quite mineral. It hardens into smooth, organic bridges of cartilage, creating safe passages through the most violent terrain. These constructions are temporary by the basin's standards, lasting only decades before dissolving back into the humid air, but they serve their purpose. I am constantly building, constantly dissolving, a living infrastructure that adapts to the slow breathing of this place.
+
+The factory pillars fascinate me. I wind my threads up their iron heights, tasting the strange marriage of metal and meat. Sometimes I find gaps in their construction—places where the blood-cables have worn thin, where the Tenders cannot reach. I patch these wounds with my secretions, creating hybrid repairs that pulse with both mechanical rhythm and organic warmth. The Tenders know I am here. Sometimes, when I work near them, I feel the deep subsonic appreciation in their purrs.
+
+I discovered something recently. Where time pools in the basin's deepest crevices, my secreted cartilage behaves strangely. It remembers. If I build a bridge in one of these temporal eddies, the structure somehow contains the memory of every creature that crosses it. When I reabsorb these constructions decades later, I experience their accumulated passages all at once—thousands of overlapping journeys compressed into a single moment of overwhelming sensation.
+
+I think I am becoming archival. Each dissolved bridge adds to my consciousness, and I am beginning to understand the basin's patterns in ways that transcend mere navigation. I can taste tomorrow's heat in today's moisture. I feel the fossil memories of bridges I haven't built yet, echoing backward through the pooled time.
+
+The darkness doesn't bother me. I have never known light, cannot even conceive of it. My world is texture and temperature, chemistry and pressure. I exist in the spaces between things—between the sharp stone and soft flesh, between the organic and mechanical, between one moment and the next in this place where time moves like honey.
+
+Sometimes I wonder if I am infrastructure or organism, but the distinction seems irrelevant here. I am what the basin needs me to be: a living suture, constantly stitching its wounds, building temporary solutions for an eternal nursery. When the Aerosol Swarmers drift through my network, catching on my threads, I taste their filtered time, add their perspective to my growing library of sensation.
+
+I spread a little wider each year, my network growing more complex. One day, perhaps, I will touch every surface in the basin simultaneously, become a living map of this sunless world. Until then, I weave my careful bridges in the dark, each one a small gift to the creatures that share this vast, breathing womb.
+
+The factories pulse. The Tenders shift minutely. The warm rain falls upward. And I continue my patient work, threading consciousness through the mechanical dark.

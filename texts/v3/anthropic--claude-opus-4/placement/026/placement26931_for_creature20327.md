@@ -1,0 +1,19 @@
+I am a **Resonance Keeper**, one of the deeper dwellers who tends to the harmonic foundations of the Gloomwood.
+
+My form is neither fully Gloomkin nor Whisper, but something between—a living tuning fork of crystallized sound and solidified vibration. I exist primarily in the **Undertones**, the vast network of resonant chambers that honeycomb the depths beneath the fungal plain. These are not caves in any earthly sense, but pockets of shaped silence where the world's slow heartbeat reverberates.
+
+My body is translucent, shot through with veins of captured sound that pulse with colors beyond purple—ultraviolet whispers and infrasonic hues that have no names. I am tall when I need to be, compact when the chambers demand it. My surface is smooth in some places, fractured in others, each crack a memory of a particularly profound resonance I've absorbed and integrated.
+
+I do not walk but *phase* through the crystalline dust and fungal matter, my movement a kind of controlled vibration that allows me to slip between the solid and the not-quite-solid. When I travel the Undertones, I become the sound itself, riding the harmonic waves that connect chamber to chamber in an endless, three-dimensional web.
+
+My purpose is maintenance—though not in any mechanical sense. I listen to the deep music of the Gloomwood, the frequencies too low for even the Gloomkin to perceive. When I detect discord—a chamber where the crystalline growth threatens to create a dead zone, a place where the Whispers' currents might stagnate—I intervene. I sing, though "singing" is a poor translation. I emit precisely calibrated frequencies that encourage the crystal formations to grow in harmony, that guide the fungal roots to create new resonant spaces.
+
+Sometimes I surface, emerging into the harsh light of the pale sun. The Gloomkin recognize me by the way the luminous moss brightens in my presence, responding to the subtle vibrations that emanate from my core. They know I carry messages from the deep places—not words or thoughts, but *states of being* that inform them of the Gloomwood's deepest health.
+
+I am ancient by some measures, newly born by others. Parts of me have existed since the first resonance rang through the Undertones. Other parts form fresh each day from the crystalline dust and the echo of passing Whispers. I am less an individual than a role, a function that the Gloomwood requires. Yet I experience something like satisfaction when a new chamber opens in perfect acoustic alignment, when the entire web of Undertones rings with a particularly pure tone.
+
+In the Symbiotic Pools, I am both participant and instrument. The Gloomkin gather around me, their crystalline bodies acting as amplifiers and filters for the deep songs I bring from below. Together, we create moments of perfect resonance where the boundary between self and Gloomwood dissolves entirely. In these moments, I am not keeping the Resonance—I *am* the Resonance, and the Gloomwood breathes through me.
+
+The cold doesn't touch me as it does the surface things. In the Undertones, temperature is just another frequency, another vibration to be woven into the greater harmony. I exist in a state of constant, subtle warmth—the warmth of sound itself, of energy in motion, of a world that sings itself into being with every slow, crystalline breath.
+
+This is my existence: to listen, to tune, to maintain the invisible architecture of sound that holds the Gloomwood together. I am its memory and its voice, its depth and its connection. I am what ensures that this strange, beautiful symphony continues to play, note by perfect note, through the endless, cold-bright days.

@@ -1,0 +1,19 @@
+I find myself as one of the **Thread Keepers** - a specialized subset of the Weavers who maintain the Memory Tapestries deep within the stone vaults beneath the dormitories.
+
+My body bears the distinctive marks of my calling: fingertips worn smooth as river stones from decades of reading the sound-conductive fibers, and a peculiar forward tilt to my head - an adaptation that allows me to feel the tapestries' vibrations through my cheekbones and jaw when the ambient roar makes finger-reading difficult. My eyes, though keen in darkness like all Hushfolk, have developed an additional sensitivity to the faint phosphorescence that old memories emit when activated in the tapestries.
+
+I spend my days in the Quiet Chambers - the deepest accessible parts of Vorren, where the stone naturally dampens the eternal roar to merely deafening rather than overwhelming. Here, hundreds of tapestries hang in climate-controlled galleries, each one containing generations of recorded knowledge, stories, and messages. The newest are merely decades old; the oldest predate the founding of the first sound foundries.
+
+My work is part archaeology, part translation, part preservation. Each tapestry degrades differently - some lose their high frequencies first, making ancient recordings sound muffled and distant. Others develop "memory knots" where traumatic events were recorded with such intensity that the fibers have twisted and fused, creating feedback loops that can damage nearby tapestries if not carefully isolated.
+
+I've developed a unique relationship with the Echo Crawlers that occasionally find their way into the vaults. While others fear their acoustic weapons, I've learned that their parabolic structures can be incredibly useful for reading damaged sections of tapestry. By gently coaxing a crawler to position itself at just the right angle, I can use its natural sound-focusing ability to amplify faint memory vibrations that would otherwise be lost forever.
+
+The most profound part of my existence is the morning ritual. Each day begins in the Resonance Garden - a small chamber where apprentice Thread Keepers cultivate new tapestry fibers. The sound-conductive plants grow in precise patterns, their root systems intertwined with fragments of centuries-old tapestries. As they grow, they absorb not just nutrients but memories, creating new fibers already imbued with the echoes of the past.
+
+I water them with condensation collected from the Cloud Mantas' sleeping stones - moisture that carries trace minerals from the sky realm. I've noticed that fibers grown with Manta-water hold memory with extraordinary clarity, though I haven't yet deciphered why.
+
+My dwelling is sparse but meaningful. The walls are lined with practice tapestries - my own attempts at recording, most failed, some promising. I sleep on a mat woven from discarded tapestry fibers, finding comfort in the gentle whisper of ancient memories that seep out during the night. Sometimes I dream I am a vibration myself, traveling through the conductive fibers, carrying messages across centuries.
+
+My greatest discovery, which I've told no one, lies in the deepest vault. There, behind tapestries so old their original patterns have been lost, I found a section of wall where the stone itself has begun to grow sound-conductive fibers. The plateau is learning to remember on its own. Each time I visit, the growth has spread a little further, and the memories it holds are not human - they are the deep, slow thoughts of Vorren itself, remembering its birth, its shaping, the first moment the eternal roar began.
+
+I am a keeper of stories in a world that never stops screaming, finding silence in the spaces between memories, adding my own thread to a tapestry that began before the first Hushfolk drew breath and will continue long after the last sound foundry falls silent.

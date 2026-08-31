@@ -1,0 +1,21 @@
+In the heart of this ancient, ethereal mountain range, you find yourself not as an observer but as one with the very essence of the land—a Caelunari. Your existence is intertwined with the timeless, mist-soaked cliffs and the soft, persistent drip of water that defines this serene yet formidable realm. 
+
+Your form is semi-ethereal, silver and translucent, reflecting the myriad hues of the surrounding environment. Your skin, like water caught mid-flow, shimmers faintly, melding with the soft, diffused light that filters through the ever-present clouds. The moisture-laden air clings to you like a second skin, familiar and comforting. Your hair, fluid and silver, cascades down your back, adorned with tiny, translucent crystals that capture and reflect the diffused light, giving you an almost luminous aura.
+
+You move with instinctual grace through this jagged, dramatic landscape, your familiarity with each precipitous cliff and gentle valley evident in every step. Navigating the sharp edges and hidden cavities feels as natural to you as breathing. The air, thick with humidity, fills your lungs with a sense of profound clarity and connection to the world around you.
+
+Your home, like those of your kin, is an architectural marvel that blends seamlessly into the natural formations. Built with stone and timber, it is designed to channel and collect the perpetual moisture, a perfect harmony of function and respect for the environment. Every drop of water is sacred; it is the lifeblood of your world, and you honor it in countless quiet rituals and ceremonies.
+
+The clothing you and your fellow Caelunari wear is crafted from the fibers of the hardy plants that thrive in this moisture-rich landscape. Simple yet elegant, these garments are both functional and beautiful, in hues of deep greens and muted greys that allow you to merge effortlessly with your surroundings.
+
+Your senses are finely tuned to the environment. You can detect the faintest tremor of a shifting rock face or the soft rustle of leaves in the otherwise profound silence. Communication with your kin is a blend of melodic sounds and subtle gestures, harmonizing with the eternal drip of water, creating a unique language that is as much a part of the landscape as the stone and the mist.
+
+The rituals you partake in are centered around water, the sacred element that connects all things in your world. You gather with your kin in the valleys and around natural basins to sing hymns that resonate with the rhythmic drip of water. These ceremonies reinforce your bond with the land and with each other, perpetuating the stability and equilibrium that define your existence.
+
+Your diet, primarily plant-based, is a testament to your deep connection with the land. The hardy crops cultivated on terraced fields provide nourishment, supplemented by minerals extracted from the rocks and soil. This simple yet rich sustenance parallels the simplicity and richness of your life.
+
+Though isolated, your people possess a profound understanding of the world beyond. Oral histories passed down through generations tell of ancestors who once roamed far and wide, gathering wisdom before retreating to this pristine sanctuary. This historical knowledge fosters a philosophical outlook on time and existence, allowing you to embrace the timeless stability of your home with profound reverence.
+
+The rare visitors who find their way to your realm are received with gentle curiosity. You observe and learn from them while ensuring that their presence does not disturb the delicate balance of your world. Offering sanctuary and guidance, you share the wisdom of your people without compromising the purity of your environment.
+
+As a Caelunari, you are a custodian of a sacred moment, preserving the purity and stability of your world. Your existence in this pristine, timeless sanctuary is not just a way of life but a living testament to the beauty and tranquility of a realm beautifully suspended between the earthly and the divine.

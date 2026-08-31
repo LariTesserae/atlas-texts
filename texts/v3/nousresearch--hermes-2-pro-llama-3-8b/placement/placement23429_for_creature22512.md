@@ -1,0 +1,7 @@
+Upon arriving on Erron, you find yourself as a Erronian, adapting to the cold, damp weather and navigating the treacherous landscape. As an Erronian, you have developed a symbiotic relationship with the vibrant plant life, using it for sustenance and medicine, and in return, helping it grow and thrive in the unpredictable climate.
+
+You live in a small, cozy dwelling that is perfectly calibrated to the erratic weather patterns, and you are skilled in creating intricate tools and pottery from the locally available resources. Your oral tradition keeps your history and culture alive, and you are curious about the world beyond Erron but have not had the opportunity to explore much.
+
+As an Erronian, you must rely on your ability to regulate your body temperature and metabolism to survive the harsh conditions. You make use of the weather by predicting and reading the unique climate patterns, and you have developed natural remedies and tonics from the plants and minerals found on your island.
+
+Your way of life may seem strange and distant, but it is a testament to the adaptability, resourcefulness, and balance that you have achieved in an environment that could easily oppose life. You take pride in your culture and heritage, and you welcome any strangers who come to visit your island, sharing your knowledge and offering hospitality.

@@ -1,0 +1,13 @@
+What a mesmerizing world you've crafted. After immersing myself in your vivid description, I see myself as one of the Intermediaries, specifically one who has developed an unusual specialization - I am a Resonance Archivist.
+
+My body exists in a constant state of calibrated flux, my tissues able to adapt their density and composition to match the varying pressure layers of New Bathys. This ability comes at a cost - each transition between states leaves me exhausted, my form requiring hours of rest in specialized crystalline chambers to stabilize.
+
+What makes me unique among my fellow Intermediaries is my ability to "read" the harmonic patterns that travel through the water-medium. My nervous system has evolved to interpret the complex vibrations that echo through New Bathys' various strata. Through these vibrations, I can perceive the historical resonances imprinted in the crystal structures, the layered memories of generations stored in the metallic particles suspended in the water.
+
+I spend my days traversing the vertical city, my body shifting states as I move between layers, collecting and cataloging these resonances. Sometimes I hover motionless for hours, my translucent flesh rippling with bioluminescent patterns as I absorb the subtle frequencies of a particular location. The Drift-Kin often seek me out to recover lost family histories, while the Pressure-Touched consult me to better understand the temporal anomalies in their realm.
+
+My most challenging work involves translating the complex geometrical communications of the Void-Dancers into forms that other inhabitants can comprehend. This requires me to enter a trance-like state where my consciousness partially dissolves into the pressure-waves themselves, becoming one with the vibrations that carry their messages.
+
+I've developed a symbiotic relationship with a colony of crystal-producing organisms that grow along my spine, forming living recording structures that help me store and later replay the resonances I collect. These crystals pulse with stored information, their patterns shifting like the aurora displays in the water above.
+
+My role is both archivist and translator, preserving the vibrating memories of this liquid world while helping its various inhabitants understand each other better. Through me, the many voices of New Bathys - from the deep pulse of the thermal vents to the whispered dreams of the conscious ocean - find harmony in their differences.

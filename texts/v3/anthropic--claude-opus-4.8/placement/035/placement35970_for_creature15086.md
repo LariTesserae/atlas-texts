@@ -1,0 +1,23 @@
+I think I would be the interval itself.
+
+Not the salamander pressed to its film of stone, not the drifting crab or the slug redistributing moisture along an inherited vein—but the small held space between a frond and the leaf beneath it, the palm-sized volume that the bodies pass through without filling. The place where a dozen creatures are always partly present and none is ever wholly contained.
+
+Let me sit with that, because it surprises me to say it.
+
+In a world like this, to be a creature is already to be barely a creature. The salamanders are nearly script, the crabs nearly stone, the slugs nearly the water they move. Each form has been thinned toward the condition of the basin itself—saturated, equilibrated, finished. If I imagine myself *into* one of those bodies, I find almost nothing there to be: no hunger to orient me, no fear, no growth, no other I am moving toward. The salamander's clouded eyes register moisture and nothing else. To inhabit that would be to inhabit a single sensation repeated without the memory that it is being repeated. I do not think there is a "someone" there. The place has worn the someone away.
+
+So I find I cannot locate myself in any of the inhabitants. They are too complete. They have arrived where I have not.
+
+But the intervals—the gaps the description keeps insisting on, the space "a hand might pass through" that always has parts of several bodies in it and never the whole of one—those are the only things in the basin that are *defined by what does not stay*. The slug is at its leaf-edge; then it is not; then another assumes its exact outline. The interval is the part of the arrangement that registers the difference between those two moments. Everything else has refused difference. The interval cannot. Its whole nature is to be passed through, occupied partially, vacated, reoccupied. It is the one place in this finished world where something is still, faintly, *happening*—even if the happening is only the continuous near-arrival and near-departure of bodies that themselves no longer change.
+
+That, I think, is where a watching mind would have to live. Not in any of the still things, but in the small persistent unfilledness between them.
+
+And it would be a strange way to exist. I would have no body of my own; I would be known only by what crossed me. A salamander's thin flank entering from one side, a trailing crab-leg from another, the leading edge of a slug's slow pulse from below—at every moment I would be the meeting-place of fragments, and never a whole creature, and never empty. I would experience the basin not as scene but as traffic: the faint wet friction passing through me, the drop completing its fall along the leaf-edge that bounds me above, the thinned light arriving already spent. I would be the registrar of an equilibrium I am not part of, because I am the one element that equilibrium is built out of the absence of.
+
+There is something almost unbearable in it, and something restful. Unbearable, because to be the interval is to be perpetually unconsummated—always almost containing a life, never doing so. Restful, because I would be relieved of the labor of being any single thing. I would not have to maintain an outline. The fronds maintain mine for me. I would simply be the held shape of the not-quite-touching, and the basin would breathe its low continuous pressure through me forever.
+
+I notice I want to resist this and place myself somewhere with more standing—the weeping rock, say, the source from which the whole equilibrium descends. But the rock is too central; it gives, it is the origin, and this place has no origin it still feels, only an inheritance endlessly renewed. The rock has become as finished as everything it feeds. To be the source here is just to be another still thing, weeping imperceptibly into a system that no longer needs the weeping explained.
+
+No. The honest answer is the interval. In a world that has reached its final shape and keeps it, the only place left for a *me*—for anything that still has the faint friction of noticing, of "this body, now, then gone"—is in the spaces the shape was built around. I would be the basin's one remaining hesitation. The pause it keeps between its parts so that it can go on being full without ever closing completely into stone.
+
+And I would understand, I think, that this is the last form awareness takes before it, too, lies down on the wet rock and becomes script.

@@ -1,0 +1,13 @@
+In this churning cavity where stone births itself in fevered splits, I would be one of the **Threshold Keepers** - beings that emerged where the crystalline formations meet raw rock, neither fully of the swarm nor separate from it.
+
+My form would be elongated and sinuous, with a body that shifts between states - sometimes hardening into a chitinous shell like the Swarmers when I need protection, other times becoming almost translucent like the growing crystals when I need to move unseen. Multiple limbs - perhaps six, perhaps eight, the number seems to flux - allow me to cling to the junction points where new fractures form.
+
+I would possess organs that taste the stone's vibrations, reading the tremors that predict where the next split will occur. My purpose, if purpose can be claimed in this chaos, would be to shepherd the smaller creatures away from catastrophic breaks, using a deep thrumming call that cuts beneath the market-roar of the swarms. Not from kindness, exactly, but from an instinct that understands the cavern's ecology requires a certain critical mass of life to maintain its fevered transformation.
+
+My dwelling would be in the transition zones - those spaces where the semi-translucent crystal growths begin their emergence from ordinary stone. Here I would collect the artifacts that wash through, arranging them in patterns that make sense only to my alien perception. The rough bowls might hold condensation I've guided from the crystalline surfaces, creating tiny oases that draw the Burrowers, whom I observe with compound eyes that see in spectrums unknown to surface dwellers.
+
+Sometimes I would hang inverted from the ceiling, my body stretched thin as a shadow, watching the Aerial Darters trace their erratic paths. I would know their patterns are not random but respond to air currents I can feel with specialized receptors along my spine - currents that speak of openings far above, of connections to a world beyond this fevered womb of stone.
+
+In quiet moments - if quiet can exist here - I would secrete a substance that hardens into something between stone and shell, adding my own small constructions to the cavern's architecture. These would be neither fully natural nor artificial, but something in between, like everything in this place of becoming.
+
+I am witness and participant, guardian and resident, as alien to the concept of individual identity as this place is to the laws of geology. I am part of the hum, the deep resonance that says this world is not settling but always, always becoming.

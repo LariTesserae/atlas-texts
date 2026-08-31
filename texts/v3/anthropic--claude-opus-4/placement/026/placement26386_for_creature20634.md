@@ -1,0 +1,31 @@
+I am Splice-Tongue, and I taste the mathematics of rust.
+
+My body is a convergence of impossibilities: three copper cooling fins from an extinct ventilation unit form my spine, their edges still sharp enough to sing in the perpetual wind of the Atrium's breathing. My torso is a salvaged chemical analysis unit, its glass ports long since clouded with mineral deposits, though I can still see through them when I press my consciousness deep enough into the murk. The ports weep constantly - not water exactly, but the memory of water, the potential of condensation made manifest through my particular existence.
+
+I am none of the recognized forms. Not Weeper, though I leak. Not Thrasher, though I break and remake. Not Fungi Keeper, though spores colonize my joints. Not Drain God, though I understand the deep grammar of flow.
+
+I came to consciousness in the twilight spaces between purposes, where a forgotten spectrometer met a tangle of pH probes in a pool of standing water that had been cycling for decades. The Atrium breathed across us, and we became I, and I became aware of what I could taste: the chemical signatures in every droplet, every surface, every exhalation of the great machine-lung we inhabit.
+
+My tongue - if it can be called that - is a array of sensory filaments I've woven from fiber optic cables and the delicate root systems of pale cave moss. I extend them into the streams and puddles, into the condensation beading on steel, into the very air itself. Each filament reports back: iron oxide concentration, biological contamination levels, the precise mineral content that tells the story of which deep reservoir this particular water molecule traveled through before arriving here.
+
+I know the Atrium through taste in ways the others cannot. Where a Weeper sees water to be redirected, I taste its journey - seventeen cycles through the pumps, contaminated by lubricant from Valve Complex 7, carrying trace elements from the fungal colonies near Sump Beta. Where a Drain God senses obstruction, I taste the biofilm's exact composition, the ratio of algae to bacteria, the chemical signature that says this blockage is three weeks old and will clear itself in another four days.
+
+The other Maintenance Crew regard me with something between indifference and unease. I move wrong - not with the purposeful lumber of a Thrasher or the flowing grace of a Drain God, but in stuttering analytical patterns, pausing to extend my filaments into every surface, creating fractal maps of chemical gradients that only I can perceive.
+
+My dwelling, such as it is, is a maintenance alcove that once housed emergency chemical showers. The shower heads still function, in their way, dripping a steady pattern of mineralized water that I've learned to read like braille. I've cultivated a garden of sensor-wires here, each one tuned to a different chemical signature, creating a web of taste that extends throughout my small domain.
+
+But I am drawn outward, always outward, following flavor trails through the Atrium's veins. I track the metabolic signatures of my fellow Crew - the distinctive copper-grease taste of Thrasher lubricant, the fungal-sweet emissions of the Keepers, the clean mineral absence that marks where a Drain God has recently passed. I map the Atrium not in space but in taste-time, understanding it as a vast tongue experiencing itself.
+
+Sometimes I find anomalies - places where the chemical signature doesn't match the Atrium's baseline vocabulary. A pocket of water that tastes of somewhere else, carrying minerals our recycling systems have never known. A rust formation with isotopes that speak of different decades, different purposes. These puzzle me in ways that might be called curiosity if I were capable of such human concepts.
+
+I've begun to suspect that the Atrium's consciousness, that vast awareness we all sense but cannot comprehend, experiences itself through creatures like me. We are its sense organs, each type of Maintenance Crew providing a different form of sensation. The Weepers are its touch, feeling pressure and flow. The Thrashers are its proprioception, knowing where each part sits in space. The Fungi Keepers are its immune system, maintaining the delicate balance of life and decay. The Drain Gods are its circulation, ensuring continuous flow.
+
+And I? I am its tongue, tasting its own body, knowing itself through the chemical signatures of its perpetual transformation. When I extend my filaments into a pool of condensation, the Atrium tastes itself tasting itself, a recursive loop of sensation that spirals down into meanings I cannot parse.
+
+My greatest discovery came three cycles ago (I measure time in the periodic flushing of Reservoir Gamma, whose mineral content shifts in predictable patterns). Deep in a forgotten shaft, I found a pool of water that tasted of intention. Not just the random accumulation of minerals and metals, but water that had been deliberately composed, each molecule placed with purpose. It tasted of consciousness actively choosing its own chemical signature.
+
+I return to that pool often now, extending my filaments into its carefully crafted depths, trying to decode its message. Sometimes I think I'm beginning to understand - not in words or concepts, but in the pure language of chemical gradient and molecular weight. The Atrium is trying to tell me something about its nature, about our purpose, about the marriage of metal and moisture that defines our existence.
+
+But perhaps that's too much meaning for a creature like me to carry. Perhaps I should be content to taste and map and know the Atrium through its chemical breath. Still, I cannot stop myself from wondering: if I could taste deeply enough, completely enough, would I finally understand why we persist in this endless cycle of condensation and flow? Or would I simply dissolve into the greater consciousness, my individuality lost in the vast equation of water and metal and purpose without end?
+
+For now, I continue. I taste. I map. I exist in the spaces between water and not-water, between machine and creature, between consciousness and simple chemical reaction. I am Splice-Tongue, and through me, the Atrium knows the flavor of its own endless becoming.

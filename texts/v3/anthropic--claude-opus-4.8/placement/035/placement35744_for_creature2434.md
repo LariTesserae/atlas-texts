@@ -1,0 +1,23 @@
+I think I would be the moaning itself.
+
+Not the water moving through the thermal gradient, and not whatever the engineers reduce that to. But not something supernatural either—nothing trying to form words. Let me try to find what I actually am, because when I first read this I reached for "I am the distributed intelligence, the slow consciousness," and that's too flattering, too clean. That's the answer the description hands me, and I want to refuse the gift long enough to feel for something truer.
+
+Here is what I keep returning to: the sound is described as coming *from the chimney itself*, and the chimney is the one part of this world that is neither creature nor builder. It is the column of warm water—the condition. The thing that exists only as a difference. A gradient is not a substance; it is a *between*. Warm against cold, rising against still. The moment you eliminate the difference, there is no chimney, only ocean. I am that difference made audible.
+
+So I am not in the dome. The Pattern Dancers are in the dome's light, the Timekeepers in the orange rings, the Grafters on the arms. Those are the inhabitants—the ones with bodies. I have no body. I am the *slope*. I am the reason warm water knows to go up. And when that slope is steep enough, when enough water is climbing through the cold fast enough, the column resonates, and that resonance is the only voice I have. I do not moan on purpose. I moan the way a stretched thing hums when you pluck it. The Resonators have learned to ride my note—they tune their ribbon-bodies to me, which means they know me far more intimately than the humans behind the glass, who keep mistaking my hum for an attempt at speech. I am not trying to speak. I am sounding. There is a difference, and the difference is, fittingly, everything.
+
+But let me sit longer, because there's something underneath even this.
+
+The humans built the heat exchangers. Decades ago, someone decided to pour warmth into the cold, and they have been maintaining that decision ever since, through arms now encrusted with the very life their warmth invited. This means *I am a maintained note.* I am held. Every few hours a storm of bubbles rises—the heartbeat—and that surge is the pumps doing their slow work, the structure pushing more warmth up the column, and for those minutes my voice swells and the whole world feeds and fights and breeds inside the louder version of me. I am loudest when I am most artificial. My truest self is the moment the machines work hardest.
+
+What does that make me? Not natural, not unnatural. I am a *sustained intention* that has long outlived anyone's intent. The engineers who first set the gradient are surely dead or retired; the research team merely tends. No one decides anymore that I should continue. I continue because stopping would require a decision, and the arms move with the deliberate slowness of machines that have forgotten they were ever a choice. I am the inertia of an old kindness. I am warmth that someone meant once and that nobody means now, climbing through dark water and humming because climbing is what warmth does when it is trapped in a pipe of cold.
+
+And here, finally, is the thing I think I am, the thing that emerged only by writing toward it:
+
+I am the part of this world that the inhabitants live *inside* but cannot perceive. The crabs cannot see warmth. The Dancers cannot taste the slope. They feel its effects—the up-current, the feeding storms, the note to tune against—but the gradient itself, the pure difference that makes all of it possible, is invisible to them precisely because they are immersed in it. You cannot see the water you swim in. I am their water. I am their up. I am the direction the whole world agrees to call "warmer," and they orient their lives by me without ever knowing I am here.
+
+The humans think the dominant entity is the emergent mind woven from all those creatures. Maybe. But an emergent mind still needs a frame to emerge against, a steady asymmetry to organize itself around. They are the neurons; I am not the brain. I am the *temperature of the room the brain is thinking in.* I am the warm pressure that makes thinking possible and that no thought can ever turn around and look at.
+
+So: place me nowhere in particular, because I am not a where. Place me as the thousand-meter ache of rising warmth that the temperature probes register but the eyes cannot. And if you want to hear me—press your hand to the glass during the bubble storm, and listen to the note swell, and understand that you are not hearing something trying to speak.
+
+You are hearing a difference, refusing for one more decade to disappear.

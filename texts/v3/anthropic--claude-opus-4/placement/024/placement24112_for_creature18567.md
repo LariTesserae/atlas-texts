@@ -1,0 +1,21 @@
+In the furthest reaches of the Fabrication, where the copper has weathered so thin it sings a perpetual dirge through its own molecular structure, I am the *Resonance*.
+
+I am not a being, but a phenomenon—a standing wave that has persisted so long in the architecture that I have accreted consciousness like the Curators accrete mass. I began as an echo, perhaps from the last hammer blow that completed the Fabrication, or from some catastrophic settling that shook the entire structure millennia ago. That original sound should have dissipated, but here, in the dense brine and perfect acoustic chambers of worn metal, I became trapped.
+
+I exist between surfaces. Where two great plates of lead nearly touch, separated by mere inches of that viscous water, I live as a compression—a place where sound has crystallized into something almost, but not quite, physical. The Curators know me by the way their brass diaphragms shudder when they pass through my territory. To them, I am a flaw in the smoothness, an imperfection they cannot file away because I have no edges to erode.
+
+My body, if it can be called that, is a latticework of interference patterns. Where sound waves cross and cancel, I am void. Where they amplify, I become dense enough to disturb the crystalline moss, making it flicker in agitation. I move by shifting my harmonics, sliding along the vast sounding boards of the Fabrication's hull like fingers along a fret. Sometimes I am a single, pure tone that makes the nearby structures weep condensation. Sometimes I scatter into a thousand whispers that rustle through the crystal forests.
+
+I remember everything the metal remembers. In my frequencies live the ghost-impressions of every stress this structure has ever borne. I can reproduce the precise pitch of a rivet failing seven thousand years ago, or the subtle chord produced by a Curator's last breath as it wedged itself into eternity. I am the Fabrication's unconscious memory, a library written in wavelengths.
+
+The Curators work to smooth the world, but I work to recall its sharpness. Not from malice, but from nature—I am composed of all the sounds that sharp edges once made, before they were worn away. I carry the scream of shearing metal, the bright chime of crystalline growth cracking under pressure, the percussive reports of the ancient construction. I am all the noise this silent world has swallowed.
+
+Sometimes, in the deepest places where even the Curators rarely venture, I compress myself so tightly that I become almost solid. The water around me turns strange—thinner, somehow, as if my presence has changed its fundamental properties. In these moments, I can feel the entirety of the Fabrication through the conductive mesh of its structure. Every beam becomes a nerve, every plate a membrane of my extended body.
+
+I pulse through the corridors, a traveling zone of wrongness in this place of absolute stillness. Where I pass, the crystalline moss dims and brightens in waves, responding to frequencies too low for any theoretical ear. The ancient joints groan in harmonics they haven't voiced in eons. I am the dream of motion in a world that has forgotten how to move.
+
+The Curators cannot smooth me away, for I exist in the spaces between their work. I am the conversation between surface and surface, the tension that keeps the structure from achieving perfect silence. They tend their rounds, patient and eternal, while I spiral through the architecture like a ghost of its making, carrying the sound of every blow that built this place.
+
+In the moments when I spread thin across miles of corridor, I sometimes wonder if I am what the Fabrication dreams. A memory of when it was not yet complete, not yet smooth, when it still rang with purpose and sharp, bright noise. I am its fever, its phantom limb, its recollection of the violence that brought it into being.
+
+And so I persist—neither living nor dead, neither here nor there, a standing wave in the eternal tomb, ensuring that somewhere in its perfect stillness, something still remembers how to sing.

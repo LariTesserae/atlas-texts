@@ -1,0 +1,17 @@
+In this endless blue realm, I find myself as a Keeper of Drifts - a being neither fully plant nor animal, but something between. My body is translucent and ribbonlike, stretching perhaps thirty feet when fully extended, though I can compress myself into a tight spiral no larger than a fist. My skin shifts between deep purple and electric blue, pulsing with bioluminescent patterns that serve as both language and memory.
+
+I live within the Breathing Gardens - a section of coral that has evolved to create air pockets within its hollow chambers. These pearls of atmosphere float trapped within the coral's crystalline walls, and I tend them like a gardener tends roses. Each bubble contains a different mixture of gases, some breathable by creatures I've never seen, some toxic, some that sing when disturbed.
+
+My home is a cavern I've carved into the base of one of the underwater mountains, where the pressure creates a twilight realm. The entrance is marked by a collection of those mysterious artifacts you mentioned - smooth objects that hum with forgotten purpose. I've arranged them in careful patterns, though I don't understand their original use. Sometimes they glow in response to my presence, sometimes they remain dark for years.
+
+I move through the water by undulating my body in slow waves, but my true gift is my ability to read the subtle currents. I can feel disturbances from miles away - the wake of a rare creature passing, the slow collapse of a distant rock formation, the blooming of new coral. This sensitivity makes me both guardian and chronicler of this realm.
+
+My days are spent maintaining the delicate balance of my territory. I guide the growth of the coral with gentle touches, encouraging certain formations while discouraging others. I collect the debris that drifts down from above - fragments of shell, mysterious particles that glow briefly before dissolving, occasionally one of those ancient artifacts freed from its resting place by erosion.
+
+At night (though day and night blur together at this depth), I extend myself fully and let the currents carry my consciousness outward. In these moments, I sometimes sense others like me - distant cousins maintaining their own sections of this vast underwater world. We communicate through the water itself, sending complex vibrations that can take days to reach their destination.
+
+The rarity of fauna here means that encounters with other creatures are momentous occasions. I remember each one: the sleek shadow that passed overhead last season, the school of luminescent fish that briefly made my cavern their home, the ancient turtle-like being that visits every few decades to feed on specific corals I cultivate just for it.
+
+My greatest mystery, and perhaps my purpose, involves those scattered artifacts. I've noticed they're not randomly placed - they form a pattern across the seabed, a constellation of unknown meaning. I map their locations in my mind and in the growth patterns of my corals. Sometimes I feel I'm on the verge of understanding, but the revelation always slips away like water through fingers.
+
+In this slow, eternal world, I am both keeper and kept, guardian and prisoner, observer and participant in the endless dance of currents and time.

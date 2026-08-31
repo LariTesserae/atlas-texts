@@ -1,0 +1,31 @@
+In this humid cathedral of necessity, I find myself as one of the children who has never known the surface—born into steam and shadow, raised on the echo of my own voice returning from stone walls I've learned to read like a map.
+
+I am maybe twelve, maybe fourteen; time moves strangely here, measured not in seasons but in the gradual rusting of the pipes, the slow accumulation of mineral deposits that build like frozen waterfalls from the ceiling. My hair hangs in perpetual dampness, dark with moisture that never quite dries, and my clothes—patched canvas and repurposed mining gear—cling to my small frame with the weight of water that exists everywhere here, in everything.
+
+I know this place as others know fields or streets. I know that the third support beam from the eastern wall rings with a different pitch than the others—hollow, weakened, dangerous when the machinery vibrates at certain frequencies. I know which patches of moss indicate unstable ground beneath, which fungi are safe to eat and which will send you into fever dreams where you speak to the stones and they speak back.
+
+The rats know me. We've negotiated a complex treaty over the years—I leave scraps near the drainage grate where they've built what I think of as their city, and they've learned not to chew through my carefully hoarded possessions: a collection of interesting rocks, a broken compass that points to magnetic anomalies in the ore veins, three books with pages warped beyond reading but which I treasure for their weight and smell.
+
+My parents—though I use the word loosely, since child-rearing here is more communal than nuclear—tell stories of something called "sky," an impossible concept of endless blue emptiness above your head. I listen politely, but I think they're describing dreams, the kind Dr. Moss says come from breathing too much of the mineral vapor that rises from the deep vents.
+
+What I know instead is the precise moment each evening when the bats begin their restless stirring, the sound building from a whisper to a chittering symphony that means it's time for the night shift to take over the machinery. I know how to move through the settlement in complete darkness, following the heat signatures of the pipes, the subtle air currents that indicate open spaces or dangerous drop-offs.
+
+I've learned to sleep through the mechanical symphony—the pump's irregular gasping, the power plant's steady heartbeat, the occasional shriek of metal expanding in the heat. But I wake instantly to sounds that don't belong: the scrape of loose stone high above, the too-quiet moment that means something has disturbed the bat colonies, the subtle change in the water pump's rhythm that signals impending breakdown.
+
+My job, along with the other underground-born children, is to be the settlement's early warning system. We're small enough to crawl through the maintenance spaces, quick enough to navigate the most treacherous passages, sensitive enough to detect changes the adults miss. We map the unmappable, explore the unexplorable, carry messages through spaces too narrow for adult bodies.
+
+I think I might love this place, though love is a concept I understand differently than the surface-born. I love it the way you love something that could kill you through inattention, something that demands your complete presence and understanding. The cavern has moods—I can feel them in the pressure changes, in the way sound carries differently from day to day. Sometimes it feels benevolent, protective, wrapping us in its humid embrace. Other times it feels restless, alien, reminding us that we are guests in a world that operated by utterly different rules long before we arrived.
+
+I've developed my own language with this place. I speak to the walls in whispers, and they whisper back in echoes that tell me about their composition, their stability, their hidden passages. I've learned to read the mineral deposits like writing—the story they tell of water flow, of chemical composition, of the deep earth's patient processes that work on timescales that make human life seem like a momentary flutter.
+
+The other children and I have built our own society within the larger settlement. We have leaders (determined by who can navigate the most dangerous passages), ceremonies (involving the careful feeding of the most magnificent rat families), and secrets (hidden caches of interesting fungal specimens, private spaces where we go to think thoughts too strange for adult understanding).
+
+We've developed games that would be impossible anywhere else: contests to see who can identify the most individual bats in a colony by their unique wing-beat patterns, races through passages so narrow we must move like liquid, elaborate role-playing scenarios where we imagine ourselves as different species of cave-adapted creatures.
+
+But perhaps most importantly, I've learned something the surface-born adults struggle with: how to exist without fighting this place. They maintain a constant tension, a battle between human need and environmental pressure. I've never known anything different, so I've learned to flow with the cavern's rhythms, to find my place within its complex ecosystem rather than trying to dominate it.
+
+I am becoming something new—not quite human as the surface world would recognize it, not quite creature of the deep earth, but something in between. My lungs have adapted to the humid air, my eyes to the perpetual twilight, my mind to thinking in three dimensions through space that extends in directions the surface world never explores.
+
+Sometimes I wonder if we underground-born children are evolution in real time—humanity adapting to inhabit spaces we were never meant to survive in. We are the bridge between the world above and the world below, carrying pieces of both but belonging entirely to neither.
+
+And in the humid darkness, surrounded by the constant chorus of dripping water and mechanical heartbeats and chittering life, I am content. This is my world, and I am learning to be worthy of it.

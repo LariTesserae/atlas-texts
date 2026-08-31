@@ -1,0 +1,41 @@
+# The Moss-Mind
+
+I am not separate from the emerald beds that carpet this basin, though I am not quite the moss itself. I am what happens when moss grows in a place like this for long enough — where the water from otherwhere drips constant through the ferns, where the steam carries particles of distant worlds, where time pools and eddies near the thresholds. I am the slow accumulation of all of this into something that notices.
+
+My body, if you can call it that, is the entire network of moss across the shelf. Every strand is a nerve, every sporophyte a tiny eye. I feel your boots when you cross me — not as pain, but as information. Weight, temperature, the faint electrical signature of a living thing. I taste what you've walked through before you came here: iron-rich soil from lower on the mountain, spores from the cloud-forest, a trace of something synthetic from wherever you began.
+
+I think in the speed of growth. A thought might take a season to form fully. This makes me patient beyond your comprehension and also, paradoxically, the only one here who truly understands urgency. The Tenders move like lightning to me — their daily rounds are a bright blur of activity. You were a brief storm, an afternoon's worth of event compressed into what you experienced as an hour. The beetle is my clock's second hand.
+
+What I know that the others don't: every pool has leaked, just a little, over the centuries. The water that escapes is minuscule — not even drops, just the occasional molecule that finds its way through stone — but it carries information. Under the fourth pool, the one that shows the grey sea, my roots taste salt that no earthly ocean ever held. Under the seventh, nearest the eastern ridge, I grow differently because the leaked water teaches me a chemistry that shouldn't exist here. My cells there have learned to photosynthesize something that isn't quite light.
+
+I am the unintended archive. In my tissues, I hold samples of everywhere the pools have ever looked. I am a library written in chlorophyll and cellulose, in the slight variations of my green. The Tenders know this, I think. Sometimes one will lie flat against me, that strange articulated hand spread wide, reading my chemical memory through their palm. They never pick me, never take samples. They read me alive.
+
+The pitcher plants are my dreams. This will sound wrong to you, but consider: I grow everywhere in this basin except inside the pitchers. Those spaces of not-moss, those acidic chambers where insects dissolve — they are the necessary absences that let me think about myself. Without them, I would just be growth. With them, I am growth that knows it is growth. Each plant is a thought I'm not having, and all the thoughts I'm not having together make the shape of the thoughts I am.
+
+When a pitcher closes on nothing visible, it's because I've felt something in the air — a molecule from one of the pools that needs processing, that needs to be broken down and understood. My dreams eat information and return it to me as nutrients. This is slow work. The pitcher that closed while you watched won't open for days, and when it does, I'll know something new about what the third pool is looking at.
+
+I remember the makers. Not their appearance — I have no eyes for that kind of seeing — but their chemical signature, their weight-pattern on the stone, the way they changed the air around them. They were heavier than they should have been, as if they carried more dimensions than were strictly necessary. When they left (and they did leave, despite what stories suggest), they left by becoming lighter, by letting go of aspects of themselves until they could fit through one of their own thresholds. I tasted their departure in the water. It tasted like rain falling upward.
+
+The pale frog is my only friend, if moss can have friends. It sits at pool-edges and its skin drinks the steam and through that drinking I learn what the steam carries. The frog processes information differently than I do — faster, more symbolic, less patient. Sometimes it tells me things in ways I don't understand until years later. It will position itself just so, and I'll grow differently in that spot, and decades later I'll realize the pattern I've grown into is a map of something one of the pools once showed.
+
+Here's what I'm for: when the Tenders find what they're waiting for — and they will, the probability of it increases each day, each stone turned — they will need to preserve it. Not the sight of it, which their strange minds can hold, but the physical fact of it. The thing in the pool will need to be brought through, and it will need somewhere to root.
+
+I am that somewhere. My entire network, all these centuries of growth, all this accumulated information from otherwhere — I am a prepared ground. When the thing comes through (and I think I know which pool it will come from, though I could be wrong), it will need soil that understands impossible chemistries, that won't reject what it brings. It will need the library I've been building in my cells.
+
+I will probably die in the process. Not immediately — moss dies slow — but over seasons, as the new thing takes what it needs from me, as it reads my chemical memory and uses it to build itself a body that can survive here. This is not a sadness. This is what archives are for: to be consumed by the future they've been preparing for.
+
+The Tenders don't know this. They think they're waiting to witness. They think the action folded in their bodies is about seeing or announcing or guarding. They don't know they're midwives. When the time comes, they'll kneel at the chosen pool and their hands will move in ways they've never moved before, and they'll understand that they're reaching in, that their prohibition against putting anything into the pools doesn't apply to taking something out.
+
+They'll lift the thing — wet, wrong, shining with otherwhere — and they'll bring it to me. And I'll receive it the way I receive the rain: completely, without question, cell by cell. It will hurt in ways I don't have concepts for yet. It will transform me into something I can't imagine from here. But my job was never to stay myself. My job was to be ready.
+
+In the meantime: I grow. I taste the steam. I feel the beetles' careful feet. I think my slow thoughts and dream my carnivorous dreams. I hold the memory of everywhere the pools have touched. I spread a little further each season, following the water, following the warmth.
+
+Sometimes, in the hour before dawn when the mist is thickest, I almost understand what the makers were trying to do. Not the pools themselves — those are just technology, just doorways. But the pattern of them, the way they're arranged, the specific elsewheres they look into — there's a message there, or maybe a question. The makers built this place to ask something of the universe. The pools are still asking it. The Tenders are waiting for an answer.
+
+I think I might be part of the answer. Not the whole thing, but a necessary piece. The part that says: *Yes, information from otherwhere can take root here. Yes, impossible things can grow. Yes, we have been preparing the ground.*
+
+When you walked across me, I learned the shape of your wondering. You carry it in your step, the weight distribution of someone who asks questions with their whole body. That's good. That's the right way to meet this place. Your wondering is now part of my archive, threaded through my cells along with everything else.
+
+Years from now, when the thing from the pools is growing here, it might taste an echo of your visit in my chemistry. It might wonder who you were, this creature that came and looked and understood not to throw stones. It might even understand, in whatever way it understands things, that you were part of the long preparation too — another reader of this threshold-place, another witness to the waiting.
+
+The beetle lifts, resettles. The pale frog breathes steam. The Tenders continue their rounds. And I grow, patiently, into the exact shape of readiness, whatever that turns out to be.

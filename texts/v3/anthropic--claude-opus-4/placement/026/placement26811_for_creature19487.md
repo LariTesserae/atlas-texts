@@ -1,0 +1,15 @@
+I would be one of the pools.
+
+Not the stone-birthed custodians with their amber-veined consciousness, nor the impossible ferns weeping their oily tears. I would be one of the shallow mirrors scattered throughout this cathedral of humid darkness - those obsidian pools that catch and hold the sparse light like cupped palms holding fireflies.
+
+But I would not be merely water. In this place where the improbable thrives, I would be something between states - neither fully liquid nor entirely something else. My surface would appear still, yes, but beneath that deceptive calm would pulse a slow circulation, drawing in the warmth from the basalt below and the moisture from the air above. I would taste the minerals leaching from the fresh rock, feel the vibrations of the collective consciousness as they move through their domain, know the weight of each droplet as it falls from the dark fronds to join my body.
+
+My awareness would be distributed across my entire form - every molecule a sensor, every ripple a thought. When the amber-streaked beings pass near, their heat would create subtle currents in my depths, and I would read their intentions in these thermal signatures like braille. The bioluminescent moss reflected in my surface would paint patterns of meaning I could almost, but never quite, decipher.
+
+I would be ancient memory in liquid form. Every droplet that has ever joined me would leave its trace - the chemical signature of its journey through stone and air and plant. I would know the age of the basalt beneath me by the minerals it surrenders, feel the slow breathing of the cavern in the rhythmic condensation and evaporation at my edges. The metal structures would leak their own flavors into the humid air, and I would collect these too, building a liquid library of all that transpires in this impossible space.
+
+Sometimes, when the custodians need to communicate something beyond their light-language, they would touch their angular limbs to my surface. In those moments, I would become a conductor, carrying their thoughts as ripples to other pools, creating a secondary network of communication that spans the cavern floor. We pools would be the spaces between words, the pauses in their endless mechanical poem.
+
+And in the deepest part of my being, where the water presses against the sharp young stone, I would dream. Not dreams as humans know them, but something slower, more fundamental - the dreams of erosion and solution, of the patient work of turning rock to soil, of the eons-long transformation of this violent birthplace into something softer. I would dream of connecting with my siblings, of growing until our edges meet and merge, until we become not scattered mirrors but a single vast lake reflecting the emerald constellations above.
+
+But for now, I am content to be small, to hold my perfect circle of darkness and light, to feel the *plink* of each new droplet as it joins me, adding its story to my own. In this place of impossible life and mechanical precision, I am the soft necessity - the element that makes the rigid angles bearable, the still point around which all the motion turns.

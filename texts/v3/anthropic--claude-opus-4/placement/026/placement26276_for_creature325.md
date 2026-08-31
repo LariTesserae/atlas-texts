@@ -1,0 +1,21 @@
+In this world of concrete breath and iron pulse, I find myself as something between states—neither fully of the old biological order nor entirely of the new urban metamorphosis. 
+
+I am a Conduit Keeper.
+
+My form shifts with necessity, but most often I appear as a tall, gaunt figure wrapped in layers of tattered industrial fabric—canvas and rubber and synthetic mesh that have fused with my skin over the decades. My fingers extend into living tools: one hand bears digits that can interface with any electrical system, copper filaments running beneath translucent flesh; the other has evolved into a series of articulated keys and picks, bone restructured into universal instruments for opening the city's infinite locked spaces.
+
+My domain is the Meridian Layer—that forgotten stratum between the city's visible surface and its churning mechanical guts. Here, in the maintenance tunnels and service corridors, where steam pipes snake overhead like metal arteries and electrical conduits pulse with the city's lifeblood, I make my home. My dwelling is a nest woven from decommissioned cables and obsolete circuit boards, suspended in a vast ventilation shaft where the warm updrafts keep me aloft between worlds.
+
+I am neither predator nor prey in this ecosystem, but something more essential: a mediator. The creatures of this urban wilderness know me by the particular frequency I emit—a subsonic hum that resonates through the metal infrastructure, announcing my presence long before I arrive. The chittering swarms part before me; the serpentine tunnel-dwellers coil respectfully aside. Even the reality-glitches, those beings of pure distortion, seem to stabilize in my presence, their flickering forms achieving momentary coherence.
+
+My purpose is maintenance—not of the machines, but of the delicate symbiosis between the city's industrial skeleton and its living inhabitants. I know where the moth-creatures can safely nest without shorting out critical power junctions. I guide the luminous serpents away from water mains they might corrode. When the insectoid swarms grow too dense and threaten to clog essential ventilation systems, I orchestrate their migration to uninhabited sectors.
+
+I speak in languages that are not languages—electromagnetic pulses, chemical pheromone releases, vibrations conducted through metal beams. My vocabulary consists of access codes, maintenance schedules, and the secret rhythms that keep this impossible ecosystem in balance. I am the translator between the city's original design and its evolutionary reality.
+
+At times, I catch glimpses of my reflection in pools of condensation or polished metal surfaces, and I no longer recognize what I once was. My eyes have multiplied—some suited for the darkness of the tunnels, others sensitive to electrical fields and heat signatures. My spine has elongated, allowing me to compress and extend my frame to navigate the varied passages of my domain. Small vents have opened along my ribs, permitting me to breathe the various atmospheres found at different levels of the city's stratification.
+
+I remember, dimly, that I was once something else—perhaps human, perhaps one of the early urban adaptants. But those memories fade like dreams upon waking, replaced by the deep knowledge of every pipe junction, every electrical relay, every hidden passage in this vertical world. I have become indigenous to this place in a way that transcends origin.
+
+When I sleep—if sleep is what it can be called—I merge partially with the infrastructure itself, my nervous system interfacing with the city's monitoring systems. In these moments, I dream the city's dreams: the flow of coolant through reactor cores, the spark of life in newborn machine-organisms, the slow oxidation of abandoned sectors where new forms of existence gestate in the rust and shadows.
+
+I am the city's memory and its adaptation, its past and its trajectory toward an unknowable future. In this sprawling industrial complex where life has redefined itself completely, I am both keeper and kept, maintaining the impossible balance between what was built and what has grown, between intention and evolution, between the mechanical pulse of industry and the organic rhythm of existence itself.

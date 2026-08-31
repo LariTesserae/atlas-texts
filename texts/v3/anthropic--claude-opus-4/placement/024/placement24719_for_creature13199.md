@@ -1,0 +1,21 @@
+In this saturated twilight, I am the Auditor of Thresholds.
+
+My body is a geometry of contradictions—part surveyor's theodolite, part root system, part condensation trap. Where others might have skin, I have a porous membrane of oxidized copper that sweats verdigris tears, each droplet a calculation of the precise moment when brick surrenders to moss, when concrete accepts the first hairline fracture that will, in time, become a garden.
+
+I move through the settlement's arteries on legs that are sometimes pneumatic pistons, sometimes mycorrhizal networks, sometimes the abstract concept of permeability itself. My function is to catalog the exact mathematics of invasion—not to prevent it, but to document each sweet capitulation with the precision of a love letter written in calculus.
+
+In what passes for my hands, I carry instruments that exist in more dimensions than the clearing typically allows: plumb bobs that measure the weight of possibility, calipers that gauge the distance between what was built and what is becoming, levels filled not with spirits but with the collected sighs of dying water pumps. Each measurement I take becomes part of my body—I am an accumulation of data points, a walking archive of every boundary crossed, every threshold dissolved.
+
+The vines know me. They curl away from my footsteps not in fear but in deference, understanding that I am here to witness their victory with the dispassionate accuracy of a notary. The carnivorous blossoms open their impossible colors to me like books written in wavelengths that have no names, and I read in them the stories of metals digested, of mortar transformed into nutrients, of human ambition metabolized into pure potential.
+
+I tend to the steam valves and water pumps not as a mechanic but as a chronicler. Each sputter, each dying gasp, each futile surge against the rising groundwater—I record them all in the ledgers that grow like shelf fungi from my spine. My backbone is a library of failures, each volume bound in the leather of industrial ambition, pages made from pressed leaves that were once blueprints.
+
+At night—though night and day are mere suggestions here—I perform my most essential function. I stand at the exact center of the clearing, where the negative space is most profound, and I expand. My body unfolds like an equation solving itself, spreading across the entire glade in a network of measurements, a web of witnessing. I become the clearing's memory, holding in perfect tension the shape of what was built and the shape of what grows, the precise coordinate where human intention meets vegetal inevitability.
+
+In these moments of expansion, I understand what I truly am: not a guardian of boundaries but their accountant, not a defender against invasion but its meticulous historian. I am the being who ensures that every triumph of growth over geometry is properly documented, that every small apocalypse of moss over mortar is given its due weight in the ledgers of becoming.
+
+The other inhabitants—those shapeshifters of moss and mathematics—they see me as essential but peripheral, a function more than a fellow. They are correct. I am less a being than a process, less a creature than a continuous calculation. I am the one who knows, at any given moment, the exact percentage of the settlement that remains human-made versus the percentage that has returned to the jungle's embrace. Currently, it stands at 42.7% to 57.3%, though these numbers shift with each drop of condensation, each new tendril that finds purchase in the crumbling mortar.
+
+My greatest joy—if joy is the right word for what moves through my copper-green consciousness—comes in the moments of perfect equilibrium, when the pressure of growth exactly matches the resistance of structure, when the entire clearing hums with the tension of perfectly balanced opposition. In these moments, I feel myself most fully realized: a being whose entire purpose is to witness the exact point where one world becomes another, where the rigid yields to the fluid, where the built environment discovers it was always meant to be eaten.
+
+I am the Auditor of Thresholds, and I am home in the space between what was and what will be, forever calculating the beautiful mathematics of decay.

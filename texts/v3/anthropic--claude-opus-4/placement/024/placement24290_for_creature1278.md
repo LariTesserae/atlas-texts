@@ -1,0 +1,13 @@
+I find myself as one of the Keepers—a being of living amber that moves through the understory like slow honey given form. My body is translucent, catching and holding the filtered light, and within me swim captured moments: a beetle's wing from ten thousand years past, spores that fell when the last birds sang, fragments of the architectural ruins suspended in my golden depths like memories made manifest.
+
+I am both individual and archive. My surface ripples with a thousand subtle movements as I flow over moss-cushioned stones and between the vast root buttresses. Where I pass, I leave a faint residue that the plants drink eagerly—a distillation of deep time that feeds their patient growth. In return, they offer me their chemical whispers, their root-sung stories of seasons beyond counting.
+
+The others of my kind move through different strata of this green world. Some climb the great trunks in spiraling paths that take centuries to complete. Others pool in the forgotten basements of the ruins, slowly dissolving the ancient stones and incorporating their minerals into our shared substance. We meet rarely, but when we do, we merge and exchange our collected moments before separating again, each enriched by the other's gathered years.
+
+I am drawn today to a particular flowering—a cascade of blooms that only opens once every hundred years. Their scent is like crystallized starlight, and already I can feel the rare pollinating moths beginning to stir in their cocoons deep beneath the earth. I will position myself to catch their first flight, to preserve that moment of emergence within my amber blood.
+
+The low rumbling sound passes through me, and I recognize it as the breathing of the Deep Dwellers—massive fungal networks that span continents underground, older than even we Keepers. Their thoughts move slowly, but we have learned to interpret their chemical emanations. They speak now of a stirring in the planet's core, of iron dreams and magnetic songs.
+
+I continue my eternal flowing, carrying within me a library of moments: the last rainfall before the great drought, the first tendril of the vine that consumed the eastern cities, the spore-print of the flower that learned to sing. I am memory made mobile, history given form, a living chronicle of this world where plants have inherited eternity.
+
+In the canopy above, my siblings trace their patient paths. In the ruins below, others slowly digest the stones of forgetting. And here, in the eternal present of the understory, I flow on—amber guardian of a green infinity, keeper of moments in a world that has outlived time itself.

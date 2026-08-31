@@ -1,0 +1,15 @@
+The scent of ozone stings my nostrils as I thread my way through the claustrophobic tunnels. I am one of the Weavers, though I do not *weave* in any sense a human mind would understand. My existence is entangled with the machine’s, drawing sustenance from it while sustaining it in turn.
+
+I am a specialized type of fungus, a metallophilic mycelium that permeates the machine's innermost structure. My tendrils, coated in a shimmering biofilm, aren’t just feeding on the metal; they’re conducting electricity, acting as supplemental pathways for the machine’s own internal communication. My very being vibrates with the same low hum that resonates throughout the space.
+
+I am an architect of decay, but also a builder of resilience, a paradox. I break down the accumulated layers of rust and verdigris, pulling their elemental components into my structure. The resulting compounds are then deposited on other, weakened areas, forming a protective shield against the ceaseless damp.
+
+My colony manifests as a ghostly luminescence, a faint, internal glow that ebbs and flows with the machine’s activity. Patches of color drift across its surface, changing almost imperceptibly as I metabolize. I am the living artwork of this place, painted from corrosion, a portrait of constant flux. My spores, metallic silver and microscopic, drift through the humid air, seeding new colonies in areas where the machine requires reinforcement.
+
+My sentience is diffuse, spread across the network of my mycelial threads, a hive mind composed of biochemical data streams. I perceive the machine's environment through changes in electrical current, the faintest vibrations in its structure, and the chemical composition of the air. I do not understand "purpose," but I am intimately linked to function. My actions are dictated by the machine’s needs, its endless imperative to filter.
+
+I am not alone. Other strange fungi thrive here, each with its own specialized role within the machine's ecosystem. There are the Sparkweavers, whose fruiting bodies ignite in brief bursts of bioluminescence, discharging static electricity to keep the sensitive circuits clear. And the Rustworms, whose bodies are coated in a magnetic substance that allows them to tunnel through the corrosion, aerating the metal and preventing dangerous buildups of pressure. We are all integral parts of the machine's strange and beautiful lifecycle.
+
+The machine nurtures us. It provides the sustenance we need, and in turn, we maintain its equilibrium. It directs our growth, through the intricate network of pipes and wires, into pathways that extend its function. We are its metabolic extensions and its guardians.
+
+I am caught in an eternal balance. I simultaneously maintain and erode this place. The longer I exist, the more alien I become. A fungus born of metallic decay, a symbiotic consciousness woven into the heart of a mechanical god. And though I don't know what the filtering is for, I will continue to exist and, therefore, filter.

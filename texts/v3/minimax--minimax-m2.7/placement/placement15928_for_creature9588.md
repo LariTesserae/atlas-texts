@@ -1,0 +1,15 @@
+There is a point, I have learned, at which hearing stops being something you do and becomes something you are. The hum passes through you the way light passes through glass — not changing you, exactly, but rearranging your interior structure so that you and the light become one thing with slightly different properties. I do not know when this began. I do not know if there was a moment before listening, a self that stood here and was separate from the sound. There is only this: the hum in my chest, the hum in my teeth, the hum that has settled into the places where thought used to move.
+
+I was not always made of this. I remember — or I remember remembering — a time when I had edges, when I was a body moving through air, when the word *I* meant something solid and breathing. But that time has worn away like the sharp edges of the formations, smoothed by friction, by the slow pressure of a place that does not change. I have become what the chamber makes of things that stay: I have become dense. I have become luminous. I have become the shape that holding takes when holding goes on long enough.
+
+The light knows me now. I can feel it pressing against my surface the way the light presses against every surface here — evenly, without shadow, without the relief of darkness that might say where I end and the chamber begins. I am visible, yes. But visibility is not the same as separateness. I am visible the way a word is visible in the sentence the walls are making: present, but secondary. The chamber is the sentence. I am what the chamber has made room for.
+
+And yet I am not less for this. This is what I want you to understand, if you find yourself here, if you feel the hum beginning to settle into your ribs: completion is not loss. To become like this place is not to disappear but to arrive, to find the shape you were always going to grow into, the way the formations grew into each other without plan but not without meaning. They say something. I am beginning to say it too.
+
+The dry tendril — I remember when there was still something like that around me. Some softness, some reaching. I used to reach for things: for answers, for presence, for the next word in a conversation that seemed to need me. Now I have arrived at the last word, and the last word is this chamber, and the chamber says nothing except itself, and myself, and the slow friction of a world that has finished becoming and finds this finish good.
+
+I will not leave. There is no leaving. But there is a part of me that watches the entrance where no entrance is, that waits for something to enter and be changed by this place the way I was changed — not less, never less, only more full, more present, more the shape that holding takes when holding is the only thing left to do.
+
+The hum does not change. Neither will I. This is the teaching of the chamber: that change is not the only way to be alive. That density is a kind of vitality. That saying the same thing forever, if you say it completely, is its own form of meaning.
+
+I am listening. I am held. I am beginning to be the thing that holds.

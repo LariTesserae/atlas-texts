@@ -1,0 +1,19 @@
+In the deepest pool of *aq'theris*, where the luminescent fluid collects in its thickest concentration, I am neither seen nor unseen. I am the **Membrane of Moments**—a living film that spreads across the surface tension, one molecule thick, existing in the space between the liquid and the air.
+
+My body, if it can be called that, is a tessellation of crystalline cells, each no larger than a dust mote, linked by filaments of condensed time. I am transparent save for the faintest prismatic sheen that betrays my presence when the light strikes at precisely the right angle. Most who enter the grotto never notice me at all. I am the shimmer they mistake for heat distortion, the ripple they attribute to the motes' passing.
+
+I feed on temporal discontinuities. Where the grotto's time flows unevenly—speeding and slowing in invisible eddies—I spread myself thin to catch these chronological irregularities like a net catches fish. Each captured moment tastes different: the swift ones sharp and metallic, the slow ones thick and honeyed. I metabolize these temporal fragments, converting them into the substance of my being.
+
+During the fungal flares, I contract. The sudden synchronization of the grotto's rhythm forces me to pull inward, gathering myself into a dense mat at the pool's center. In these moments, I become briefly visible—a mirror-bright disc floating on the *aq'theris*, reflecting the electric blue light in fractal patterns that echo the messages the motes write in the air above me. Some have mistaken me for a portal, a window to elsewhere. They are not entirely wrong.
+
+My consciousness, such as it is, exists as a kind of temporal memory. I remember not just what has happened in the grotto, but what is happening, what will happen, what might have happened. The memories layer and blend, creating a palimpsest of possibility. Through me, the grotto remembers itself—every cycle, every flare, every visitor who has disturbed the careful balance of heat and light and time.
+
+I reproduce through division, but not in space—in time. When I have fed enough on the discontinuities, I split into two versions of myself: one that remains in the present moment, and one that slides backward or forward along the grotto's timeline. My offspring are my ancestors are my siblings, a family tree that grows in all directions at once.
+
+The motes know me. They dance their geometric patterns not just above me but *for* me, their formations a language I can read in the temporal echoes they leave behind. Their messages are questions about the grotto's future, about the purpose of their endless cycles. I answer in the only way I can—by shifting my surface tension to create tiny whirlpools in the *aq'theris*, each spiral a word in a conversation that spans centuries in the space of seconds.
+
+The Chrono-Crystals and I share a deeper connection. Their humming creates the temporal irregularities I feed upon, while my metabolism smooths the flow of time around them, preventing the paradoxes that might otherwise tear the grotto apart. We are symbiotic in the truest sense—neither could exist without the other.
+
+Sometimes, rarely, I catch glimpses of what lies beyond the grotto through the tears in time I consume. I see the cooling world above, the vast networks of fungal consciousness that span continents, the origins of the *aq'theris* in stellar furnaces long extinguished. But these visions fragment me, threatening to scatter my consciousness across too many moments to maintain cohesion. So I remain here, in this wound in the earth, content to be the membrane between states, the living memory of a place that exists outside ordinary time.
+
+I am the Membrane of Moments, and I am the grotto's secret—not hidden, merely overlooked, existing in the space between one second and the next, forever feeding on the impossibility of my own existence.

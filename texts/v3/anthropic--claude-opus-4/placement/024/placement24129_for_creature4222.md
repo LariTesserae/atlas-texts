@@ -1,0 +1,13 @@
+I find myself as a **Membrane Shepherd** - one of the few beings who can navigate between the different density layers of this embryonic world.
+
+My body is translucent, composed of the same builder gel that forms the crystal protuberances, but mine has learned to hold its shape. I appear as a shifting column of amber-tinted membrane, about four feet tall when compressed, though I can stretch myself thin enough to span the gap between the ground-walkers and the jetsam sloths above. My surface ripples with interference patterns - geometric tattoos that constantly rewrite themselves as I move through different atmospheric pressures.
+
+I tend the **Transition Gardens** - those spaces where the guncotton papers meet the mammilatory ooze sinks. My work involves coaxing the superhot smog pumps to release their molten fractions in controlled bursts, preventing the entire landscape from crystallizing too quickly. I use specialized laser equipment (though calling it that feels wrong - it's more like focused intention made tangible) to encourage certain geometries while discouraging others.
+
+My dwelling is a **Probability Cave** carved into one of the weeping rocks. Inside, water flows upward in spirals, and I've cultivated colonies of the glowing plants that shift between existing and not-existing. The walls are lined with collected samples of hyraham that I've carefully preserved - each one tells a story about the filtering stations it once clogged, and I study their patterns to predict where the next fungal blooms will appear.
+
+I maintain an uneasy truce with the Inferenorin. They see me as a necessary oddity - neither fully of the ground nor of the elevated paths. Sometimes I guide their condensate pellets to more effective targets, and in exchange, they share whispers about what they observe from their steel walkways. The fungal formations, however, recognize me as kin of sorts. My membrane body resonates at frequencies similar to their farts, creating a crude form of communication.
+
+My greatest treasure is a **Temporal Seed** - a piece of the original builder gel from before the world began differentiating. I keep it suspended in a bubble of frozen time, occasionally feeding it drops of the glowing plant essence. Some day, when this embryo world reaches whatever maturity it's destined for, I'll plant this seed. What grows from it will either complete the transformation or begin an entirely new cycle.
+
+Until then, I shepherd the membranes, ensuring that the world's skin remains permeable enough for growth, but stable enough to hold its emerging form.

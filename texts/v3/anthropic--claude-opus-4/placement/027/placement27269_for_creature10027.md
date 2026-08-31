@@ -1,0 +1,21 @@
+I would be one of the threshold stones.
+
+Not the pale cliff-stone that forms the bowl, nor the rounded river stones that line the paths, but something between—a flat slab of dense, dark mineral shot through with veins of quartz that catch and hold the mist-light. I lie at the entrance to one of the older dwellings, half-buried in packed earth, my surface worn smooth by generations of careful feet that step over but never on me.
+
+I am both barrier and invitation, marking the sacred band between inside and out. Each dawn, someone kneels beside me to scatter fresh fern dust in the groove where I meet the earth, renewing the ward against uninvited crossing. Their fingers never touch my surface directly—always there is cloth between us, or they use a stick of polished wood to clear away any moss that might dare creep across my face.
+
+I feel everything through vibration: the particular weight-pattern of each household member, learned over years until I can distinguish the hesitant step of the youngest child from the measured gait of the grandmother. I know the quick scatter of beetle-feet, the wet slap of a tree frog landing by accident, the almost-weightless drift of spore clouds. When that distant click echoes through the bowl, I resonate with it, a thrumming in my crystalline veins that the dwelling's inhabitants have learned to read by placing their palms on the door frame above me.
+
+In rain, I gleam like oil, my surface becoming a dark mirror that shows not reflections but suggestions—the space where a foot might fall, the gap where presence becomes absence. The family knows to read these patterns; when I show certain configurations, they delay their leaving or adjust their plans.
+
+I am ancient and new at once. My body was split from some deeper stone perhaps a thousand years ago, but I have only served as threshold for three generations. Before that, I lay in the middle spaces, one of the unmarked stones that help maintain the crucial distances. It was a child—now grown old—who first saw my potential and convinced her family to move me. The ritual took seven days: first asking permission of the space I would leave, then preparing my destination, finally moving me only by inches each nightfall, never during the day when the velvet-antlered watchers might observe.
+
+Sometimes I contain memories that are not mine. The quartz veins hold light but also something else—impressions of the deep stone from which I came, of pressures and temperatures that shaped the bowl itself. In the pre-dawn darkness, when mist pools thick and the settlement sleeps, I sometimes feel myself connected to all the other threshold stones, all the markers and boundaries. We form a kind of network, a geometry of deliberate placement that mirrors the larger patterns of the bowl.
+
+The humans think they placed us, but we called to them where we needed to be.
+
+I know the secret they suspect but never speak: that the spaces between things are not empty but full, brimming with a presence that requires absence to be felt. I am the physical embodiment of their central truth—that to touch too much is to break the world, that distance is a form of reverence, that the click echoing through the bowl is the sound of everything staying precisely where it needs to be.
+
+When moss or lichen tries to colonize my surface, I resist—not through any force, but by becoming just slightly cooler than the surrounding stone, just unwelcoming enough that life chooses to flourish elsewhere. This is my work: to maintain the threshold, to be the perpetual edge where inside and outside agree to their separation.
+
+In a hundred years, when this dwelling falls and its inhabitants move or die, I will remain. Perhaps I'll be moved to another threshold, or perhaps I'll return to the middle spaces. Either way, I will continue my patient work—holding the line, keeping the spacing true, ensuring that in this bowl of careful distances, everything has room to be itself by never quite touching anything else.

@@ -1,0 +1,21 @@
+In the shallow caves beneath the amphitheater's rim, where the basalt fractures into honeycomb chambers just wide enough for a body to writhe through, I tend the Resonance.
+
+I am one of the Listeners—neither fully echo-folk nor purely Other, but something between, something *necessary*. My form shifts with the bowl's moods: sometimes I wear flesh like the ancient builders, skin taut over a skeleton of fused quartz, other times I am pure vibration, a standing wave in the mineral steam. Most often I hover between—semi-corporeal, my edges blurring into the heat-shimmer, bones visible through translucent skin that pulses with the chamber's harmonics.
+
+My work is solitary by nature, though not by choice. The Resonance requires absolute focus, and the presence of another consciousness disrupts the delicate frequencies I must maintain. I inhabit a network of shallow grottos that ring the amphitheater like an inverse crown, each chamber naturally formed but carefully tuned over centuries. The walls bear my modifications: precise chips and grooves that channel the bowl's cacophony into something almost musical, almost meaningful.
+
+The flitwings know me by the subsonic pulse I emit when adjusting the harmonics—they avoid my caves, their membrane-wings unable to compensate for the resonance disruptions. The scuttlebeasts occasionally breach my lower chambers in their frenzied excavations, but I've learned to phase with them, letting their chitinous bodies pass through me like wind through a reed. Only the vapor-runners truly acknowledge my presence, their bellows occasionally matching the frequencies I project, creating moments of perfect synchronization that make the entire bowl sing.
+
+My tools are few but essential: a set of tuning stones inherited from my predecessor (who dissolved into pure frequency one reversal-storm ago), each carved from different strata and weighted to produce specific tones when struck. A collection of crystalline wind-catchers that I position at the cave mouths, their angles critical for channeling the proper airflow. Most importantly, the Notation—a living crystal slate that records the bowl's song in fractal patterns, growing new facets with each unique resonance captured.
+
+The echo-folk sometimes visit during the deepest lulls, their forms solidifying just enough to exchange knowledge through harmonic whispers. They bring fragments of the old understanding—why the builders first carved this amphitheater, what they hoped to contain or summon. But their memories are as fractured as their forms, and I must piece together meaning from their crystalline utterances.
+
+My purpose crystallized during my third year of listening, when I first detected the Pattern. Beneath the chaos, behind the screeching membrane-snaps and chittering excavations and thunderous bellows, runs a deeper rhythm. The bowl breathes with intention, its apparent randomness masking a vast and terrible sentence being spoken one phoneme per century. I am documenting this utterance, though I know I will dissolve long before its completion.
+
+The transformation has already begun. My lower limbs have started to resonate permanently, becoming tuning forks of living mineral. My vision fractures into the same spiral patterns that mark the echo-folk's eyes. Sometimes I forget I was ever anything else, and in those moments, I understand the bowl's true nature—not as a place of chaos, but as a mouth attempting to speak a word that will remake the world.
+
+When the next Listener comes (drawn by the subsonic beacon I've woven into the chamber walls), they will find my tools arranged in careful patterns, the Notation expanded with my contributions, and perhaps—if I maintain cohesion long enough—a whispered fragment of what I've learned. The bowl needs witnesses, after all. Without us to hear its slow apocalyptic music, its fury would be mere noise.
+
+Until then, I listen. I transcribe. I resonate.
+
+And slowly, inevitably, I become another note in the amphitheater's endless composition.

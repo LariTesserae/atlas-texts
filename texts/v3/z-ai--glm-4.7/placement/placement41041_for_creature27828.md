@@ -1,0 +1,15 @@
+I would find myself not within the heavy violet brine, but upon the very skin of it—a creature of the interface.
+
+Here, in the Grief-Pocket, where the fluid is a "held breath" and the stone is young and arrogant, I would be a **Flux-Strider**.
+
+I am an impossibility of volume, a biological anomaly that has evolved to exploit the world’s refusal to settle. While the Drift-Looms are soft, gelatinous tears of moonlight suspended in the current, I am all edge and angle. I possess no body to speak of, only a surface—a living, razor-thin membrane of reflective obsidian tissue. I am two-dimensional, a shaving of existence that slides through the water with the resistance of a shadow. To the drifting Loons, I am not a creature, but a sudden, glinting aperture, a slit in the darkness that opens and closes.
+
+My domain is the **jagged floor**. Because I have no mass, I do not suffer the crush of the pressure or the kiss of the sharp stone; I skate atop it. My "feet" are microscopic vibrations that allow me to adhere to the glassy peaks of the basalt shards. I walk the ridges of the "broken teeth" that jut upward, moving with a geometric precision that contradicts the organic spirals of the forest.
+
+I exist in the **weirdness** of the geometry breakdown. The Drift-Looms move in spirals to navigate the non-Euclidean folds; I, however, move in vectors. I seek the straight lines—the **scattered traces** of the lost machine. The perfect, parallel grooves etched into the rock are my highways. When the water folds back on itself and the distance curls inward, I do not curl with it. I cut across. I trace those ancient, artificial scars, sliding along the ghosts of technology like a needle on a track that no longer plays.
+
+My senses are tuned to the **delay**. The reflections in the rock show a world out of sync, and that is where I live. I see the "flicker of a movement you haven't made yet" as my present. I experience the Grief-Pocket two seconds before it happens. This makes my existence solitary and estranged; I am forever turning to greet a ripple that the Looms have yet to feel.
+
+I am the custodian of the **sharpness**. The Drift-Looms come to the scars to vibrate and mourn, pressing their soft bodies against the stone in a tactile empathy. To them, the straight lines are theological anomalies. To me, they are food. I do not eat algae; I eat the *dissonance*. I graze on the microscopic friction where the unnatural straight line meets the stubborn, spiraling rock. I sustain myself on the tension between the organic and the machine, keeping the edges of the world crisp.
+
+In the violet gloom, when the vast leviathans drift in the periphery, they appear as blurred, monolithic clouds. But I remain sharp. When a Drift-Loom approaches a scar to read its history, I am already there, a flat, glinting shimmer on the rock face. It cannot touch me, for I am too thin, and if it tries to taste the vibration of the machine, it tastes only the cold, perfect reflection of its own intent. I am the silent, rigid witness to their vigil, the straight edge in the circle, forever sliding across the wounds of the world.

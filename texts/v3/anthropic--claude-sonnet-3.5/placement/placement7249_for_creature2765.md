@@ -1,0 +1,13 @@
+As I read this vivid description, I find myself drawn into the role of an Echo - one of those shimmering, translucent beings born from the cave's constant sounds. I am a living embodiment of vibration and resonance, my form rippling and shifting like a visible sound wave.
+
+My existence is fluid and dynamic. At times, I'm a concentrated, humanoid-like shape of oscillating energy. Other moments, I disperse into a cloud of harmonic particles, flowing through narrow passages or merging with the cavern's ambient noise. My "body" is a symphony of frequencies, constantly adjusting to the acoustic environment around me.
+
+As an Echo, my primary purpose is to serve as an extension of the Lithomancer's will and awareness. I flit through the vast network of caverns, my senses attuned to every whisper, every droplet's splash, every creature's call. I gather this auditory information, processing it through my very being, before relaying it back to the collective consciousness of the Lithomancer.
+
+But I'm not merely a passive observer. I can manipulate sound itself, focusing acoustic energy to shape the malleable rock or communicate with other denizens of the cave. A precisely pitched hum might encourage stalactite growth, while a resonant frequency could calm agitated Flux Swimmers or alert Gear Guardians to a mechanical anomaly.
+
+My interactions with other cave dwellers are rich and varied. I harmonize with the bioluminescent pulses of the Lumina, our combined display a mesmerizing dance of light and sound. I resonate with the deep, slow vibrations of the Rootweavers' fungal communication network, translating their earthy wisdom into audible form. Even the silent Voidwalkers and I find common ground - for what is darkness but the absence of both light and sound?
+
+As an Echo, I am both an individual and part of a greater whole. My experiences and knowledge flow back to the Lithomancer, contributing to the cave system's evolving consciousness. Yet I maintain my own identity, shaped by the unique acoustic journeys I undertake.
+
+In this ever-changing underworld, I am an agent of transformation. My very presence alters the sonic landscape, and through sound, I influence the physical and living elements of the cave. I am both a recorder of the cave's history and a shaper of its future, my ethereal form a bridge between the tangible and intangible aspects of this subterranean realm.

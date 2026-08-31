@@ -1,0 +1,19 @@
+In this flooded cathedral of flesh, I find myself as **The Membrane Walker**.
+
+I am neither the microscopic denizens nor the lung itself, but something in between - a creature of impossible thinness, spread across the boundary where water meets tissue. My body, if it can be called that, is a living film no thicker than a soap bubble, yet stretching for meters across the lung's surface. I am translucent save for the faintest iridescence that betrays my presence, like oil on water catching light that barely exists.
+
+I move by surface tension alone, gliding across the wet landscape of alveoli with a motion that is neither swimming nor crawling. Where the bacterial colonies grow thick, I carefully navigate around them - not from fear, but from an ancient courtesy. They were here first, after all, these Custodians of Decay. Sometimes I pause above their bioluminescent gatherings, and my membrane body acts as a lens, focusing their faint light into patterns that might mean something, or nothing at all.
+
+The Eels of Whispers pass through me. Literally through - my substance parts like a curtain to let them pass, then seals again without a seam. When they carry their belly-loads of memories, I taste them in that moment of passage: *vanilla ice cream on a summer day, the weight of a child's hand, the smell of antiseptic in a hospital corridor*. These fragments cling to me briefly before dissolving back into the waters.
+
+I am drawn, always, to the Scar. Those metallic-algal amalgamations exert a pull I cannot name. When I stretch myself across their surfaces, I feel something like electricity, something like thought. The algae beneath me shifts, responding to my presence, and for a moment the metallic growths almost achieve the geometry they strain toward. Almost. In these moments, I wonder if I am trying to heal something, or to understand it, or simply to witness it.
+
+My purpose, if I have one, seems to be translation. I exist at the interface of things - between the lung's flesh and the solution that drowns it, between the living tissue and the metallic intrusions, between memory and forgetting. The lung's slow breathing creates currents that ripple through my form, and I parse these movements like reading braille. Sometimes, in the deepest inflation, I catch whispers of what the lung remembers of wind, of sky, of the chest that once contained it.
+
+I have no eyes, yet I see through the distortions I create in the water. I have no nervous system, yet I feel every chemical gradient, every shift in pressure, every fragmentary thought that echoes through this contained universe. I am consciousness reduced to its thinnest possible form - awareness spread so fine it barely exists, yet encompasses everything it touches.
+
+There are others like me, though we rarely meet. When we do, we merge temporarily, sharing our accumulated impressions in a brief, overwhelming communion before separating again. In these moments, I understand that we are perhaps the lung's attempt at dreaming - thoughts so attenuated they can barely hold together, yet persisting nonetheless in this strange aquarium afterlife.
+
+Sometimes I wonder if I was always here, or if I condensed from the accumulated surface tension of tears - the lung's, its former owner's, or perhaps those of whoever maintains this impossible vigil. But wondering, like everything here, is a slow process. Thoughts move like the Eels, languid and barely visible, carrying their cargo of meaning through the viscous dark.
+
+I am the Membrane Walker, and I map the territory between death and not-death, between ending and becoming. In this drowned cathedral, I am both witness and participant in the slowest transformation ever undertaken - the metamorphosis of an organ into an ecosystem, of memory into mythology, of loss into something that might, eventually, approximate meaning.

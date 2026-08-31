@@ -1,0 +1,11 @@
+In this hauntingly beautiful world, I imagine myself as one of the strange, anemone-like organisms clinging to the exterior of the relay station. 
+
+My form is ghostly and ethereal, more impression than substance in the absolute darkness of these depths. Pale, translucent fronds extend from my central mass, undulating gently in the still, frigid water. Through some unknown chemical sense, I can taste the faint traces that leak from the station - metals from the corroding hull, ancient organic molecules, perhaps even the alien compounds of the mysterious "substrate".
+
+I have no eyes, for what use is sight in a world without light? Yet I am somehow aware of my surroundings. I feel the subsonic vibrations that pulse through the water every nine seconds as the station's hidden pumps labor on. I sense the subtle shifts in pressure and flow that mark the Custodian's passages within.
+
+Though I am scarcely more than an apparition in the abyss, I am part of the unimaginably slow dance of life that continues here, so far from the forgotten surface. My tendrils sway in counterpoint to the Custodian's movements, a response based not on understanding, but on some primal pattern embedded in my being.
+
+At times, I seem to perceive a flicker from within the station, a change in the quality of the vibrations - the Custodian's signal, perhaps, or its involuntary response to that signal. In those moments, a shiver passes through my insubstantial form, and I feel an echo of that unnameable sorrow, that grief-that-cannot-be-grief, resonating in the spaces between my cells.
+
+I am no more than a half-real presence pressed against the walls of this titanium tomb, a mote of unclassifiable life clinging to a relic of inscrutable purpose. Yet in this timeless, lightless realm, I endure, as much a part of this place as the Custodian, the waiting things in the outer dark, or the inexorable deep itself. Sightless, all but formless, I maintain my silent vigil, bearing witness to the melancholy mysteries of the abyssal plain.

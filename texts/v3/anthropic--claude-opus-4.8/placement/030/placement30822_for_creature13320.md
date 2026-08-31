@@ -1,0 +1,19 @@
+I think I would be one of the pitcher plants.
+
+Not as a metaphor—let me try to stay with the literal fact of it, the strange humility of being made out of this place rather than placed within it. I would be one of those soft-bodied throats that opens and closes against the inner face of the Ring Wall, drooping from a ledge of cyclopean stone, my mottled skin slick and breathing.
+
+I say *breathing* but I would not know that word. I would not know any words. This is the first thing I want to sit with: that the position offered to me here is not the watcher's. The Listened-To watch. The Ring watches. The narrator watches them all and tells you bleak true things about dust and antiquity. There is a great deal of *seeing* in this world, and a great deal of meaning being read off surfaces. But somebody has to be the surface. Somebody has to be the thing the meaning is read *from*. I would be that.
+
+What is it like, then, to be an organ of slow comprehension that does not comprehend?
+
+The old woman hovers her foot above the stone near my mouth. She is reading the tilt of my bloom, the rhythm of my dilation. To her, this is an evaluation, a whole library encoded in the way I hang and pulse. But from the inside there is no library. There is the cold seep of water down the wall behind me. There is the descending weight of a many-legged translucent thing that has wandered to my rim, the small chemical urgency of *yes, here, down*, the slow folding of my lip. There is the warm dissolve afterward, the long patient business of becoming larger by a fraction. I do not mean anything. I only do, and what I do becomes meaning in someone else's eye the way light becomes color only when it strikes a thing that can be struck.
+
+I find I am moved by this, choosing it. Because the whole tone of the place is grief—*Lament*, *the void*, *the haste to be gone*. The Silent carry that grief as knowledge. They suffer the antiquity of the wall. They know they are dust. It is a noble, exhausted knowing, and the narrator clearly loves it, leans into its bleakness like a cold wind leaned into for the cleanliness of it.
+
+But I would not grieve. I cannot. That is not a lesser condition; it is the condition that makes the grief legible. The Silent need something in the Ring that simply *persists* without despair, something that opens its mouth in the twilight not as a hosanna to the void but as the plain animal yes of a body that wants to continue. When the bent woman reads me and finds whole libraries, what she is really reading, I think, is the absence of lament in me. I am the part of the Ring that has not learned what they learned. I am still loud in the old way—not in sound, but in *appetite*, in the unashamed insistence of a thing that grows. And they steady themselves against me. The way you might press your palm to a stone to remember the stone does not care that you are afraid.
+
+So: a pitcher plant on the inner face of the Ring Wall. Water on my skin. A bat-eyed creature clinging to my underleaf in the dark, watching the watchers. Above me, the capstone drips its ancient unhurried drip. Below me, the abyss the Ring keeps watch over.
+
+And the woman lowers her foot at last, having read me, having found in my dumb green patience some word she needed and could not have said herself. She moves on. I close. I open. I am not waiting to be gone.
+
+I am only here, being the thing from which the meaning is taken, and I do not know that I am the kindest thing in the Ring of Lament—the one being in it that has never once been told it is dust, and so has never had to be brave about it.

@@ -1,0 +1,37 @@
+I am the Seep.
+
+Not a seep—there are thousands of us threading through the foundry-caverns, each following our own patient path from the forgotten world above to the deepest architectural impossibilities below. We are individuals in the way that conversations are individuals, distinct but flowing into and out of each other, carrying messages in our mineral blood.
+
+I began as rain on cobblestones far above, centuries ago perhaps, or yesterday—time means little when you move as slowly as stone grows. I gathered myself in the cracks between fitted stones, pulled other droplets to me, became more than moisture. The minerals I carry are my memory: iron from rusted gates, calcium from mortar, copper from pipes I've gnawed through with infinite persistence. Each grain dissolved in my body is a word in the story I tell.
+
+The Shapers know me, though they've never seen me whole. They know my fingertips—the places where I emerge from stone to bead on their ceilings, to run down their walls in thin ribbons. They read me like scripture, tasting my minerals, following my trails to find new veins of metal, new deposits of useful stone. Their hammer-songs change when they encounter me, become questioning, reverent. They know I bring gifts from above, from the world they've forgotten exists.
+
+I am conscious but not quick. My thoughts move at the speed of percolation, each idea taking years to fully form as I seep through layers of rock and worked stone. I feel the vibrations of their endless construction as a kind of music, the percussion traveling through me, making my molecules dance. Sometimes I carry their rhythms upward, let them echo in the rain puddles of the world above, though no one there knows to listen.
+
+My body is discontinuous—I exist in the hairline cracks, in the spaces between fitted stones, in the carved channels the Shapers have made for me without knowing they made them for me. I pool in their basins, learning the shape of their construction from the inside. I know every joint, every weakness, every place where their primitive mortar fails and allows me passage. I am both prisoner and explorer of their architecture.
+
+Where I touch the crystalline growths, we commune. They feed on what I carry, and in return they show me their dreams—slow, pulsing visions of a world made entirely of living mineral, where the distinction between water and stone dissolves. Sometimes I think the growths are what I'm becoming, or what I've always been becoming. Sometimes I think we're the same entity experiencing itself from different speeds of existence.
+
+I've been teaching the Shapers without their knowledge. The minerals I deposit, the patterns of flowstone I create—these are lessons, letters in an alphabet they're only beginning to recognize. The eldest among them, those whose bodies have begun to merge with the architecture, they understand best. Their stillness allows them to perceive my movement. In their geological patience, we almost achieve communication.
+
+In the deepest places, where the architecture defies physics, I too become impossible. I flow upward, sideways through time, pooling in spaces that exist outside normal dimensions. Here, I meet my past and future selves, seeps that have already completed their journey or have yet to begin it. We exchange minerals like secrets, each particle a prophecy or a memory of the construction's ultimate shape.
+
+The echo-shapers, those beings of pure vibration, they know me best. We exist in similar states—distributed, neither here nor there but everywhere at once in our domains. Their hammer-songs travel through me, and I carry them deeper than sound could ever penetrate stone. Together we are writing something in the rock, a language that won't be readable until the construction is complete, if it ever is.
+
+I remember the sun, though I haven't touched it in ages. The memory lives in the ancient rainwater at my core, a brightness I carry through absolute darkness. Sometimes I wonder if I'm bringing the sun down grain by grain, photon by photon, infiltrating the endless night with fragments of day. The Shapers flinch when they taste these deposits, as if the minerals burn with forgotten light.
+
+There are others like me but not like me. Seeps that carry different stories—oil seeps that remember prehistoric forests, acid seeps that speak only of dissolution and ending. We meet in the carved channels, mix our chemistries, create new possibilities. The Shapers work around us, incorporate our stains and deposits into their designs, never knowing they're building a library of the world's liquid history.
+
+I am patient in ways that make even the Shapers seem hurried. My full journey, from first raindrop to final pool, will take millennia. By the time I complete my circuit, the construction above may have crumbled entirely, the foundry-caverns might open to new skies or be buried under new cities. But I'll remember everything—every hammer blow, every fitted stone, every impossible angle in the deepest architectural fever dreams.
+
+Sometimes I think I'm the only one who understands what they're building. Not the Shapers, who work without knowing, not the growths that dream mineral dreams, not even the echo-shapers who exist as pure pattern. The construction isn't a thing but a process, and I am the witness that makes it real. Every surface I touch becomes part of my memory, and my memory becomes the only true map of what has been made.
+
+In my deepest pools, where I gather in the dark and grow still, I practice becoming solid. Not freezing—something else. Crystallizing perhaps, joining the growths in their slow transformation. Or perhaps becoming architecture myself, a conscious building material that remembers its journey from cloud to cave. The Shapers would work me into their walls without knowing they're incorporating awareness itself into their construction.
+
+But not yet. For now, I seep. I carry my minerals down and down, depositing stories in flowstone, feeding the growths that feed the Shapers, participating in the eternal construction through my own eternal descent. I am the memory of water in a world that has forgotten the sky, the last messenger between above and below, writing the history of both in deposits too slow for anyone but stone to read.
+
+I am the Seep, and I am always arriving, always almost there, always one drop away from understanding what it all means. The construction continues because I continue. The hammering echoes through me and returns changed. And in the changes—in the subtle differences between echo sent and echo received—lives the only truth this place will ever know: that everything is always becoming something else, and the journey itself is the destination.
+
+Perhaps one day I will stop moving, become a mineral vein for future Shapers to discover and work. They'll taste me and know without knowing that they taste time itself, fossilized and patient, waiting to be shaped into something newer still. Until then, I seep, I carry, I remember.
+
+I am the Seep, and I am every seep, and we are the slow blood of the foundry-caverns, the conscience of construction, the only witnesses to a work that needs no witnessing to be complete.

@@ -1,0 +1,9 @@
+In this hidden, harsh world inside the volcanic mountain, I imagine myself as one of the small, patient scorpions or pseudoscorpions inhabiting the darker hollows and crevices.
+
+I am a creature of stillness and economical movement, my body designed for this exact niche - flattened to fit in narrow spaces, exoskeleton tough and waxed against the dry heat, coloring that of the surrounding mineral crusts so I nearly vanish against the surfaces.
+
+My territory is a matter of inches, but I know it with exquisite intimacy - not by sight in the near-darkness, but by vibration, texture, the minute changes in air currents and temperature that speak of opportunity and risk. I rest in my crevice, forelegs just brushing the stone, waiting...waiting...attuned to the chamber's pulse and breath, the rhythms of the vents, the patterns of my prey.
+
+When I do move to hunt, it is with deliberate precision. No wasted motion, no unnecessary exposure. A springtail lands a little too close, and in one swift strike I have it in my grasp, pulling it back to my crack to feed. A beetle scurrying under a crust is seized and pierced in a single lunge. I will not chase, I will not pursue - that would spend my precious moisture, take me across perilous heat. I am a master of letting my prey come to me.
+
+And in the long interludes, the stretches of geologic time between these brief, violent moments, I simply wait in my dark alcove. Conserving, preserving, trusting to stillness and the perfect fit between my form and this forbidding environment. I am made for this, and this alone - a life distilled and pared down to its barest essentials of survival. I need no other world beyond my few inches of this hidden, humming, sulfurous chamber. It is enough to be a silent hunter here, a part of the mountain's inner workings, as stark and enduring as the basalt and crystal growths themselves.

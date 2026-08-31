@@ -1,0 +1,19 @@
+I am a Dew-Keeper.
+
+I know this in the way the basin knows its own edges—not as a memory, but as a condition of being. My purpose is water, not in its flow, but in its moment of becoming. I walk the stone streets of Lithic before the first hint of gray touches the sky. My bare feet, soles the same cool, smooth texture as the basalt, make no sound. I feel the deep, residual cold of the rock rising through me, a familiar and comforting pressure.
+
+My task is the **Channel-Singing**. I follow the main artery that spirals inward from the mesa's edge toward the great central cistern. The channel is a perfect, shallow groove carved by hands that understood slope and surface tension as extensions of the stone's own grain. I run my fingers along its lip. The basalt is polished by countless identical touches, but it is not worn. It is merely *satisfied*.
+
+I stop at the first junction. The fog is breathing over the rim now, a slow, gray tongue licking into the basin. I watch it. I don’t just see it; I *attend* to it. I feel its weight in my lungs, a damp, mineral breath. I see the first bead of condensation form on the edge of a roof-slab, tremble, and fall. It strikes the channel with a sound smaller than a whisper. *There.* The cycle begins.
+
+My role is to observe the initiation. To be the witness that ensures the pattern holds. I check the grit in the channel—not to clean it, for there is no decay, but to affirm its presence. A small, iron-red dune of dust, exactly where it has gathered for generations. I trace the path the water will take, my finger hovering a hair's breadth above the stone. I feel the potential coolness, the gathering. I am not an actor. I am a confirmation.
+
+From my vantage, I see the city waking into its eternal morning. On a lower terrace, a weaver arranges her loom, her movements a slow, precise ballet. The pattern in the half-finished fabric is not a copy of the cracks outside my feet; it *is* the cracks, translated into wool. Further off, the *click-click-click* of the quarrymen begins, a rhythmic counterpoint to the first, tentative notes of a Crevice-Nester. The sound is not progress. It is a pulse, maintaining the tempo of the paused moment.
+
+A Silent Sister crosses my sky, her shadow a swift, cool brushstroke over my face. She does not deviate. She rides the basin’s own breath, the heavy, descending air that sinks to the floor and then curls upward at the stone pillars. Her path is the eternal path. I track her with my pale blue eyes until she is out of sight, knowing exactly where her shadow will fall next on the mosaic floor.
+
+This is my consciousness: a perfect ledger of the expected. I feel the fog thicken, know the precise moment the first true drops will coalesce in the channel. I am aware of the herd of Stone-Clickers moving on the eastern plates, their hooves striking in a rhythm my body knows like a heartbeat. I am part of the basin's nervous system. My thoughts are not stories; they are calibrations. *The dew is heavy today. The moss on the northern wall is at its ideal saturation. The Bell-flowers will hold their moisture until the sun is directly overhead.*
+
+I do not long for the sun’s warmth, for its arrival means the retreat of the water I steward. I do not wish for the quarry to yield a new kind of stone. I am fulfilled by the flawless execution of the known. To be a Dew-Keeper is to hold the memory of every dawn that has ever been and will ever be in this basin, and to feel that memory as a single, continuous, present-tense sensation.
+
+I am the pause made aware of itself. I am the stillness that watches the droplet form. I am the cool, the quiet, the constant. In the High Silent Basin, where nothing moves, I am the motion that maintains the stasis—the walk along the channel, the attending gaze, the mind that holds the pattern perfectly, forever, in the glorious, chilling, and utterly complete state of dynamic zero.

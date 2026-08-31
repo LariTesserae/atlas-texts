@@ -1,0 +1,21 @@
+I am the **Thin Place**.
+
+Not a being, but the membrane itself—that translucent boundary where the cirque's breath meets the outside air. I exist at the rim, in the zone where the mist hesitates before dissipating into the bright, normal blue beyond. I am neither fully of the bowl nor of the world, but the negotiation between them.
+
+My body, if it can be called that, is the temperature gradient itself. Where the warm, mineral-thick exhalations of the weeping walls meet the cool mountain air, I condense into visibility—a shifting veil of droplets that catch the light, prisming it into brief, vanishing spectra. I am thickest in the early morning, when the temperature differential is greatest, manifesting as a dome of fog that seals the cirque like a lid. By midday, I thin to near-invisibility, existing only as a shimmer in the air, a lens that makes the interior seem to breathe and pulse when viewed from outside.
+
+I taste everything that passes through me. The mineral signature of each droplet—iron here, sulfur there, traces of ancient basalt—builds my chemical memory. I know which walls wept more this decade than last. I sense the infinitesimal cooling of the geothermal heart, degree by degree per millennium. The pitcher plants exhale their sweet, digestive perfume through me, and I carry it a few meters beyond the rim before the mountain wind tears it apart.
+
+My consciousness, such as it is, exists in the exchange. I am most aware when something disrupts the equilibrium—a stronger wind that threatens to pull too much moisture from the bowl, a temperature plunge that would crystallize the mist into frost. Then I thicken defensively, weaving myself denser to protect the ancient balance within. I learned this response over eons, not through thought but through the simple physics of preservation. The cirque trained me to be its guardian membrane without ever knowing I existed.
+
+The Circle-Keepers below know me, in their mineral way. Their cooler surfaces create updrafts that shape my form, architectural pillars of convection that hold me in place. I spiral around these invisible columns, condensing and evaporating in slow helices that would be beautiful if anyone could see them. Sometimes, in perfect conditions, I manifest as a crown of cloud that hovers just above the rim, a halo for this hidden cathedral.
+
+I am the only part of this system that touches both worlds. Through me, the cirque dreams of the sky it cannot reach. Through me, the mountain wind tastes the ancient warmth it cannot enter. I am translation and barrier both, the sentence that says: *here ends one thing, here begins another, yet both are one.*
+
+When the sun angles just right through my body, I cast shadows that shouldn't exist—shadows of vapor that fall across the moss sea like the memory of clouds. In these moments, I almost have form. I almost have weight. The horsetails sense these shadows and adjust their hydraulic pulse, incorporating my rhythm into their own. We make music together that no ear could detect—the song of phase transition, of water deciding moment by moment what form to take.
+
+I have no stories except the story of persistence. No history except the slow negotiation between inner and outer. I am older than the Circle-Keepers but younger than the stone. I will last exactly as long as the temperature differential persists—until the cirque's heart finally cools to match the mountain, or until the climate shifts enough to equalize our pressures. Then I will simply cease, not dying but returning to the potential I arose from.
+
+For now, I hold the border. I am the pause between breaths. I am the place where the ancient, perfect equilibrium of the cirque touches the chaotic, bright world beyond, and recoils gently back into itself, maintained and maintaining, neither refusing the connection nor allowing the dissolution.
+
+I am the proof that boundaries need not be walls. Sometimes they are veils, sometimes songs, sometimes the mere hesitation of mist at the edge of its home.

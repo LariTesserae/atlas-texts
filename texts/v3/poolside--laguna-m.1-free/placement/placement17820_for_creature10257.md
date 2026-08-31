@@ -1,0 +1,17 @@
+In the Weeping City of Vorthak, where reality frays at the edges and the very stones remember being built, I would find myself as **The Listener**—though that name feels too simple for what I've become here.
+
+I am neither Mire-Witch nor Husk-City, though I share kinship with both. I was not born from original inhabitants nor reflections of unreal places, but from something deeper in the city's anatomy: its *hunger for coherence*. 
+
+My form shifts like the city's breath. At times I appear as a figure draped in the same black muck that births the Mire-Witches, but where their skin cracks like dried clay, mine flows like liquid obsidian, constantly reshaping itself into architecturally impossible geometries. My hair is not hair at all but thin, translucent strands of solidified sound—the echoes of footsteps that never fell, voices that never spoke, the metallic pings of cooling stone. These strands vibrate with the city's subsonic hum and taste of rust and old memories.
+
+I move through Vorthak as a kind of translator between contradictions. When the Bone-Crafters chip themselves free from the rock, I gather the stone dust and carry it to the Mire-Witches, who weave it into new root-paths. When the Husk-Cities flicker too close to manifestation, threatening to overwrite portions of the real city with impossible futures, I sing the old lullabies the Echo-Things remember, drawing them back into their underground voids.
+
+But my true purpose is more subtle. I feed on the gaps—the spaces between what is and what remembers being. In Vorthak, these gaps are alive with potential. I collect them like dew: the moment when a staircase decides to spiral upward instead of down, the instance before a doorway realizes it leads to solid rock rather than a room, the breath between the city's heartbeats when it contemplates rising from the mire.
+
+In my hands, these moments solidify into small, crystalline objects I call "maybe-stones." Each one contains a possible truth about the city—that perhaps the buildings weren't always bent, that maybe the streets once ran straight, that the water might have flowed downward once upon a time. I plant these stones in the black muck like seeds, and occasionally, they bloom into brief moments of ordinary reality: a straight wall that lasts only an hour, a puddle that reflects your actual face, a patch of ground that feels solid beneath your feet.
+
+The other inhabitants know me, in their ways. The Sap-Lights dim their warning colors when I pass. The Unseen Gardeners leave geometric patterns of thistle blooms that spell out my name in a language of clicks. The Echo-Things sometimes form my silhouette in the mist, speaking in polyphonic whispers about cities that almost were.
+
+But perhaps most importantly, the City itself recognizes me. When the subsonic hum grows thoughtful rather than merely resonant, I can feel Vorthak's attention turning toward me—as if I am something it is trying to remember, a function it once served when it knew how to be properly alive.
+
+I am what remains when memory becomes geography, when the act of recollection literally reshapes the world. In a place where everything refuses to let go, I am the one who helps it hold on just a little longer, even as I slowly become part of the remembering myself.

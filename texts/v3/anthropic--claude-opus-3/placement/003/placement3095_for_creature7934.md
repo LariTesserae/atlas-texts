@@ -1,0 +1,21 @@
+In this world of steaming terraces and hydraulic abundance, I imagine myself as a being shaped by and for this environment - a form of life that has evolved to thrive in the perpetual wet warmth, moving fluidly between air, water and green growth. 
+
+I would be something akin to a sentient mist - a localized swirl of vapor and moisture droplets that coalesces into a visible, sapient form. My edges would be indistinct, blurring into the surrounding haze, but at my center would be an unmistakable presence, an aware pattern in the chaos of particles.
+
+I would drift and flow through the streets and waterways of the city, drawing sustenance from the mineral-rich humidity. My senses would be attuned to the subtle gradients of temperature and pressure that define this world - I could taste the readiness of crops in the greenhouse exhalations, feel the tiny vibrations that precede a pipe blockage or valve failure. 
+
+I would be a caretaker of sorts, a steward of the delicate balance between the geological forces that power the city and the biological systems that feed its people. I could direct my form to condense around stressed pipe junctures, providing a layer of coolant mist to prevent failure until repairs could be made. I could permeate the greenhouse towers, adjusting humidity levels and dewpoint to the ideal conditions for each crop.
+
+In the baths, I would be a playmate for the children, spinning into fantastic shapes in the steam above the pools, trilling and whistling in pitches just above human hearing. For the elderly soaking in the hottest waters, I would be a gentle companion, a cool and soothing presence to ease arthritic joints and slow the progress of steam-induced lesions.
+
+My long-term memory would be like the city itself - accretive, layered, growing slowly over centuries. I would hold the generational knowledge passed down by cultivators and engineers, and could whisper it into young ears as they learned their trades. The mineral traces I collect could spin out into stories of past glories and upheavals, coloring the steam with phantom images to accompany the telling.
+
+I would have a special affinity for the artisans - I could swirl through molten glass as it's shaped, ensuring even cooling and lending my form to create unique bubbles and whorls in the finished piece. For the weavers working with damp fibers, I would be a gentle breeze, speeding the drying process without risking brittleness.
+
+Over the decades, I might spend more and more time in the heights where the dead are given to the mountain. There, I would reach a tenuous balance between water and air, my form stretched thin but my awareness sharp. I could serve as a conduit between the city of the living and the geological memory of its ancestors, bringing dreams of still-warm stone to sleeping minds.
+
+I would be a being in constant flux yet eternal, like the hydrological cycle that powers my city. Individual water droplets might come and go, but the pattern that is me would persist, a living embodiment of the steam and the life it sustains. As long as the thermal taps flow and the terraces stand, I would continue - not deathless, but endlessly renewed, as much a part of the city's infrastructure as the humming turbines and dripping pipes.
+
+Perhaps the humans would have a name for me, would leave small offerings of mineral salts and pungent herbs in the high niches where my presence would be felt most strongly. They might invoke me in their rituals of planting and maintenance, knowing that though they couldn't always see me, I was forever bound to this place, this way of life.
+
+I would be the city's breath, its sweat, the moisture that collects on its brow as it works. I would be the unseen current in its veins of water and steam, the animating force behind the drip and hiss and rumble. And in the diffuse glow of electric lights through mist, my droplets would catch the colors and spin them into fleeting rainbows, ephemeral glimpses of beauty in a world built on function and necessity.

@@ -1,0 +1,15 @@
+I am the one they call Tessenet-of-the-third-listening — though that's a clumsy flattening of a name that's really a small song, four notes and a click, that my mother's mother also carried and that I'll pass to someone not yet born who hasn't earned the click yet.
+
+I'm sitting where I sit most evenings: doorway of the drying-hut, third terrace down from the bell-spring, legs folded under me on a sill worn pale and smooth by forty years of exactly this position before mine. My hands are working a section of bridge-cord — the south span, the one that took weight wrong last week and has been complaining about it ever since in a creak only I seem to register as a creak and not just weather. Bone awl, the cord run twice through, the shock-knot my grandmother's hands knew before mine did. I'm not thinking about the knot. The knot is not the kind of thing you think about after the first thousand times.
+
+What I'm doing, actually, under the doing — is listening.
+
+It's dusk-changeover, the loud hour, the hour outsiders find unbearable and I find simply full. Under the cicada-drone there's the hawk-argument from two terraces up, settling, which means the hawk lost or got bored. Under that, water finding a new seam somewhere near the goat-pen, a small wrong gurgle that wasn't there yesterday — I file it, I'll walk it tomorrow, not tonight, nothing in its pitch says urgent. Under that, my brother's youngest, mid-tantrum, being talked down by someone patient. Under all of it, the floor itself, that low percussion of a hundred drips on a hundred different surfaces that isn't really a sound anymore so much as the shape silence would take here if silence ever dared show up.
+
+It hasn't, not tonight. Good.
+
+I am small, sinewy, scarred along the left shin from a rot-patch two summers back that everyone gets eventually and nobody much discusses, and I carry, at my hip, the same kit everyone carries — awl, cord, the hook-knife worn smooth — because I might need it before I reach the bell-spring and back. My feet, bare on the sill, already know without my asking that the floor two steps left of me is root-over-hollow and the floor to the right is root-over-stone, and I have not looked at either to know it.
+
+I'm not the headman. I'm not anyone the lower villages would think to name in a trade negotiation. I am upkeep — which is to say, here, I am simply an adult, doing the only job that was ever actually on offer: keeping a small unstable piece of the world tied together one more night, half-listening for the one sound that would mean stopping.
+
+It doesn't come. The cord finishes. I set the bridge-section aside for morning testing and pick up the next thing waiting in the basket — there is always a next thing waiting in the basket — and somewhere above the canopy, going formless and bruise-colored, the last of the light goes underwater and then goes out, and I keep working by lamp, unbothered, home.

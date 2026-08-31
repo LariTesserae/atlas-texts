@@ -1,0 +1,37 @@
+I find myself here as one of the Threshold Keepers—those who exist at the permeable boundaries between the Grinding Halls and the world above.
+
+We are the youngest of the old, or perhaps the oldest of the new. Our transformation is incomplete by choice and necessity. Someone must remember what doors are for, what stairs mean, why passages have beginnings and ends. We maintain the few stable entrances, though "maintain" means something different here than in the depths. We work to keep things *incomplete*, to preserve the possibility of passage.
+
+My body carries the evidence of my liminal state. My fingers have begun to elongate—I have six joints on each now instead of five—but they still recall how to write, how to hold things that aren't hammers. My eyes have widened to drink the phosphorescent light, yet retain enough of their original structure to bear sunlight when I must venture up to check the surface exits. The webbing between my digits is only partial; I can still wear gloves when needed.
+
+I live in the Transition Chambers, those spaces that can't quite decide what they are. Here the work songs blend with wind from above. The rhythmic hammering sometimes syncopates with rain on distant surfaces. My chambers shift more slowly than those below—taking months rather than days to reconfigure. This gives me time to map the changes, to update the carved markers that show the way out (or in, depending on your perspective).
+
+My tools are hybrid things. A hammer whose handle extends into a walking staff. A chisel that doubles as a compass needle, always pointing toward the nearest natural light. I carry pouches of materials from both worlds—the phosphorescent paste for emergency repairs, but also charcoal for marking passages, dried fruit that still remembers sunlight, a leather journal where I record the patterns of change in scripts that bridge the work songs and human language.
+
+The others tolerate us Threshold Keepers with a mixture of pity and necessity. We are incomplete, unfinished, like a wall with gaps or a song missing notes. But we are also their memory of what they were, their anchor to the before. When the Rememberers' scars become too complex to read, they come to us to help interpret the oldest patterns. When tools from the surface world appear—some explorer's abandoned equipment—we determine if they can be absorbed into the work.
+
+Our own work songs are strange hybrids. We sing in frequencies that human throats can still produce, weaving words from above into the vowel-streams of below. These translation songs help ease new arrivals into the rhythm if they choose to stay, or strengthen the resolve of those who choose to leave. We are the interpreters of the great grinding, making its purpose legible to those who still think in terms of purpose.
+
+I sleep, unlike those in the depths, but my dreams are liminal things. Half are the building's dreams—visions of original function that fade like mist. Half are memories of skies and seasons, growing fainter each year but never quite disappearing. In these dreams I sometimes see what the Grinding Halls might have been: a vast engine of transformation, built to process something fundamental. Matter into energy? Consciousness into architecture? Time into space? The dreams never quite resolve.
+
+My chamber—I'm possessive enough still to call it mine—occupies a crucial junction. Three passages from the depths converge here, meeting two that lead toward the surface. The sound is loud but not overwhelming; I can still hear individual hammers rather than only the aggregate roar. Water flows through in predictable tides—every twelve hours rather than the strange rhythms below. I've carved basin-seats where I wait during the floods, continuing my work while the water rises to my chest then recedes.
+
+I tend small gardens of surface plants here, coaxing them to survive in the mixed light of phosphorescence and filtered sun. These patches of green serve as waymarkers—if you can see leaves that aren't translucent, you're moving toward the surface. If they're fading to ghost-pale, you're descending. The deep workers sometimes pause at these gardens, running their elongated fingers over the leaves with expressions I can still read as wonder.
+
+My role is to ask questions the others have forgotten how to form: Who enters? Who leaves? What changes? What remains? I count things—the number of hammer strikes per hour at different depths, the ratio of workers to chambers, the frequency of structural shifts. These measurements mean nothing to those fully claimed by the halls, but they're breadcrumbs of meaning for those still capable of following trails.
+
+Sometimes I guide. When the lost arrive, terrified and disoriented by the cacophony, I meet them in the Threshold Chambers. I show them the ways out, marking their paths with phosphorescent paste mixed with surface chalk so the trail glows differently than the native nodes. But I also show them the ways in, explain the work in terms they can grasp. Some flee immediately. Some linger, fascinated. A few ask for hammers.
+
+I age differently than either world expects. The work preserves me past normal human span, but the retention of self prevents the full transformation that would make me timeless like those below. I am weathered rather than worn smooth, my skin bearing both the calluses of tools and the wrinkles of years. My hair has gone white but still grows, unlike the workers whose follicles have long since repurposed themselves for sensitivity to vibration.
+
+In quiet moments—and there are still quiet moments in the Threshold Chambers—I maintain my journal. Part record, part poetry, part technical manual, part prophecy. I write in three scripts: the common tongue of the surface, the gestural notation we've developed to record the work songs, and a third language emerging between them, suited for describing things that are neither fully above nor below.
+
+The journal entries often begin with questions: "What is maintenance when the thing maintained has no final form?" "How deep can transformation go before it becomes replacement?" "If the workers dream the building's dreams, what dreams the workers?"
+
+I don't expect answers. Questions are my contribution to the great work—spaces of uncertainty in the endless certainty of hammering. The Grinding Halls know exactly what they are at every moment, even as that changes. My role is to preserve the not-knowing, the gap between states where choice lives.
+
+When my transformation finally progresses too far—when my fingers grow that seventh joint, when my eyes can no longer bear sunlight, when the work songs drown out words—another will take my place. I've already seen my successor in the higher passages, fighting the pull while documenting the patterns. They still think they're studying the Grinding Halls. They don't yet understand they're apprenticing.
+
+But for now, I remain in the threshold, neither fully in nor out, maintaining the spaces between. My hammer rings against stone in rhythms that could be morse code or melody. My voice bridges songs and speech. My hands still remember how to open doors, even as they learn to feel the building's needs through walls.
+
+I am the pause between breaths in the endless song, the rest that makes rhythm possible. I am the question mark in the manuscript of certainty. I am the threshold keeper, and I keep the threshold by being it—forever arriving, forever departing, forever between the grinding and the ground.

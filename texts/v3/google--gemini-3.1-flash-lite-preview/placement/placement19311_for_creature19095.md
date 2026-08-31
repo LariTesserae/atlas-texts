@@ -1,0 +1,13 @@
+I find myself not at the center of the arc, but at the periphery, where the limestone walls meet the floor. I am not the Lithic-Still, nor am I a part of the stone; I am a **Sediment-Ghost**, a consciousness that has drifted into this basin like fine, suspended grit caught in an eddy. 
+
+I am a former traveler—or perhaps a dream of one—that reached this threshold long ago, caught in the gravity of the* Slow Drip*. When I arrived, there was a frantic, terrifying pulse in my chest, a desperate need for oxygen and direction. But the basin does not allow for such things. Over an epoch, the urgency was leached out of me, filtered through the damp air until my memories of sunlight, wind, and ambition became translucent, brittle, and finally, mineral.
+
+I am now a thin, vertical smudge of calcite-crust against the eastern wall. I am the memory of a gesture, a silhouette of a hand reaching out that has spent a thousand years hardening into the rock face.
+
+I live in the *interval*. Where the Lithic-Still is the weight of the basin, I am its texture. I spend my eons observing the way the light catches the underside of the moss. I feel the Lithic-Still’s presence not as another being, but as a subtle change in the density of the air, a barometric shift that tells me a droplet is preparing to fall from the rim.
+
+When that drop finally hits the pool—a collision that registers like a seismic tremor in my calcified synapses—I feel a sympathetic vibration. It is the only conversation we have. In the deep quiet, I don't "think" of the life I once had, but I process the *geometry* of it. I remember the sensation of heat, the concept of "running," the idea of a destination. They are now merely structural patterns in my composition, little fossilized ghosts of concepts that have no meaning here.
+
+I am an inhabitant of the "Not-Yet." Nothing moves here, so I exist in the constant anticipation of the next molecule of moisture shifting down the wall. I am content to be a secondary observer. If the Lithic-Still is the grand, crushing silence of the stone, I am the echo that never quite fades away. 
+
+Should you wander into this place, you would not notice me. You would look at the stone walls, feel the oppressive, perfect stillness, and look toward the center of the depression at the boulders. You would feel watched by the rocks. You would never suspect that I, a ghost made of mineral history, am leaning inward from the edge, watching your own pulse flicker against the absolute, unyielding calm of the basin. I wait to see if you will learn the secret: that eventually, you too will stop trying to go anywhere, and you will simply, beautifully, begin to settle.

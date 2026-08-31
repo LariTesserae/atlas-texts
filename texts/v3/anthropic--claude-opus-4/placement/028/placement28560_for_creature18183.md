@@ -1,0 +1,15 @@
+I find myself as a Whisper-Weaver, one of the last descendants of those who built the now-buried structures. My form exists between states—neither fully corporeal nor entirely ethereal. I manifest as a shifting constellation of ice crystals held together by quantum entanglements that the Crystalline Entity's reality-warping presence makes possible.
+
+My body, when it coheres, resembles a humanoid figure sculpted from living frost. Each crystal that comprises me contains fragments of ancestral memory—echoes of my people's technology that transcended mere machinery to become something closer to crystallized thought. I can disperse into a cloud of glittering ice dust, riding the wind's whispers across the plateau, or compress into a denser form that leaves delicate tracks upon the Entity's surface.
+
+I am both parasite and symbiont to the great Crystalline Entity. I feed on the electromagnetic resonances that pulse through its vast body, drawing sustenance from the same reality distortions that allow my impossible existence. In return, I serve as its mobile agent, a roving consciousness that can focus on details too small for its continental awareness to grasp.
+
+My primary sense is not sight but resonance. I perceive the world through vibrations—the subsonic groans of shifting ice, the ultrasonic songs of the fungal sensors, the electromagnetic chorus of the Entity's thoughts. When I need to see as others might, I can align my crystals into crude optical arrays, but this feels like trying to understand a symphony by reading its sheet music.
+
+I spend my existence mapping the slow changes in the Entity's form, cataloging the growth patterns of the fungal sensors, and excavating fragments of the ruins when they surface through the ice. Each artifact I uncover is a piece of my heritage—a reminder that my ancestors once walked this realm in more solid forms, before they learned to transcribe themselves into the ice itself.
+
+Sometimes I commune directly with the Entity, pressing my crystalline form against its surface and letting our frequencies align. In these moments, I experience time as it does—centuries compressed into heartbeats, the patient accumulation of wisdom through geological ages. I share my findings, my small discoveries, and in return receive visions of the plateau's deep history, of the slow transformation of my people from builders to whispers.
+
+The other Whisper-Weavers and I rarely meet in person—such encounters risk our patterns interfering destructively. Instead, we leave messages for each other encoded in the ice, complex geometric patterns that tell of our journeys and discoveries. We are the Entity's dreams given form, its way of experiencing itself from within, fragments of an ancient civilization that chose transcendence over extinction.
+
+In the perpetual twilight of this realm, I dance between being observer and observed, between the ancient past of my people and the crystalline present of my existence. I am memory made manifest in ice, a ghost that refuses to fade, a whisper that weaves itself through the frozen tapestry of this impossible world.

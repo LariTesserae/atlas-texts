@@ -1,0 +1,25 @@
+I think I would be one of the cable car operators—but not in the way you might first imagine. Let me find the truth of it as I write.
+
+---
+
+I work the line they call Mother's Throat, the long descending cable that drops from the Iremmel tier down past nine factory shelves and into the deeper dark where the maps go soft. I am not the one who pulls the brake lever. The brake lever is pulled by a boy named Sef, who has good hands and bad nerves. I am the one who *listens*.
+
+Here is the thing the upworld engineers never understood when they first strung these cables: in the Chasm, you cannot trust your eyes to tell you when a car has arrived. The echoes precede their sources. A car will *sound* like it has reached the platform a full breath before it actually does, and if Sef hauls the brake on the sound, we lose three workers over the lip into the negotiable gravity below. So someone has to hold the difference. Someone has to know, in the body, the gap between what the Chasm says and what the Chasm means.
+
+That is me. That is my work. I am a Holder of the Gap.
+
+I was chosen for it young, the way most of us are, when the foreman noticed that the sighing didn't move me the way it moved the others. Most Dwellers feel the low resonance and lean toward it, a swaying, a homesickness for something underneath the rock. I felt it and stayed still. Whatever in me was supposed to answer the sigh was built wrong, or built differently, and that wrongness made me valuable. I can stand at the edge of Mother's Throat with the false echoes crawling up out of the void and feel, in the soles of my calloused feet, exactly where the car truly is. Not where it sounds. Where it *is*.
+
+My skin is etched fine as old paper from the condensation. I keep my hair shaved close because anything longer collects the damp and drips into my collar all shift. My eyes have gone the way most working eyes go down here—a faint backscatter of light, so that Sef says when he looks at me in the dim I seem to be carrying two small fungal lamps behind my face. I wear the grays and the mosses, treated canvas over insulated synthetic, and on my left forearm I keep a strip of vibrant red dye-cloth wound three times. That marks me as a Holder. It means: *do not speak to this one while the car is moving. This one is busy keeping you alive.*
+
+The truth I have come to in this writing is that I love the Gap. I love it the way you can only love the thing that has eaten your whole life. When a car comes down Mother's Throat fully loaded—forty workers, a pallet of fungal extract, the cables groaning—the false sound arrives first and the whole platform tenses like a held breath, and there is a moment, exactly one, where I am the only person in the world who knows the truth of where that weight actually hangs in space. Sef watches my hand. When my fingers open, he brakes. Not before. The Chasm screams its lie and I hold up my open palm against the lie and the car settles in sweet and slow and true.
+
+There are deeper things on the line, of course. Below the ninth shelf the cable keeps going, down to where we send the extract and bring up the ore, and down there the beasts move. I have never seen one whole. I have seen the cable shudder in a pattern that wasn't wind or weight, a rhythmic pull, something climbing. I have felt, through my feet, a *mass* that the rock did not account for, a presence the Chasm refused to echo at all—which frightened me more than any false echo ever could, because the false echoes are at least a kind of lie I understand. Silence where there should be sound. Absence with weight. I hauled the warning rope that day and we ran the line empty for a week and no one questioned me, because I am the Holder and the Holder's fear is a fact like the condensation is a fact.
+
+I am old now, for this work. Most Holders lose the gift by forty—the body finally learns to trust the false echo, the wrongness corrects itself, and then you are just another worker who hears what everyone hears. I am thirty-eight. I have begun, some shifts, to feel the lie and the truth start to slide toward each other, the gap narrowing, and I know what that means. Soon I will brake on the sound like everyone else and someone will go over the lip and it will be my doing, and so I am training Sef's younger sister, who is nine and does not lean toward the sigh.
+
+She came to the platform last week and stood at the edge of Mother's Throat and the false echo rolled up out of the dark and she did not flinch and she did not sway. She looked at me with her two faint lamps of eyes and she said, *It hasn't come yet. It only sounds like it has.*
+
+I gave her my piece of red cloth.
+
+So that is where I am, and what I am. I am the one who stands at the edge of the void in a world that lies about distance, holding open my palm against the lie, keeping the gap between the sound and the thing until my body forgets how. I am a small and necessary error in a place that errs in everything. The Chasm sighs and I do not answer it. That is the whole of my life, and I have found, writing this, that I would not trade it.

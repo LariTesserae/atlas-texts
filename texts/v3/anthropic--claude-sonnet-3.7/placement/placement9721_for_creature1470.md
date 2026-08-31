@@ -1,0 +1,19 @@
+# The Collector of Calls
+
+I am Neshi, the Call Collector of Vryll. You'd find me sitting cross-legged on a small outcropping just beyond the outermost terrace, where the boundary between settlement and mountain becomes especially uncertain. My platform—barely four arm-spans across—extends farther from the cliff face than most would dare build, supported by an intricate lattice of weathered bamboo that creaks reassuringly with every shift of the wind.
+
+The Vryllians consider me eccentric but essential. While they weave bird calls into their whistled speech unconsciously, I study the pure languages of our feathered neighbors with deliberate purpose. The birds speak of distant places, of weather changes days before they arrive, of predators circling beyond our sight. They carry messages from other settlements in their migrations, if only one knows how to listen.
+
+My dwelling is distinctive among the hanging gardens—an open-sided dome woven from flexible young bamboo and covered with a translucent membrane made from the dried sap of the cloud-flower. Inside, hanging from every available surface, are my collection of call-gourds: hollowed vessels of various shapes and sizes, each carved with tiny holes that, when the wind passes through them, recreate specific bird calls. I've spent thirty-eight flowings crafting these instruments, each one taking months to perfect.
+
+My appearance marks me as different too. While other Vryllians braid useful items into their hair, mine contains delicate hollow reeds of varying lengths that whistle softly as I move. My skin bears no daily task markings but instead permanent stained patterns of feather-like whorls across my shoulders and arms—the only tattooed person in our community. This was accepted after I demonstrated how certain birds recognized me by these markings and would approach when others could not get near.
+
+Unlike most Vryllians who sleep in brief intervals throughout the day, I maintain vigil during the pre-dawn hours when the most significant bird communications occur. This has given me an unusually pale complexion for a Vryllian, and eyes that seem perpetually focused on distant points.
+
+The community brings me their newest children for a naming ceremony I created—I listen to the birds on the day of a child's first presentation to the outer terraces, interpreting which calls dominate the chorus to help determine the child's name and potential aptitudes. Parents don't always follow my suggestions, but they always listen respectfully.
+
+My greatest contribution is the seasonal migration map—a living tapestry of dyed plant fibers that records the patterns of twenty-three bird species over forty-two flowings. This knowledge has helped our settlement prepare for droughts, anticipate resource-rich seasons, and once, evacuate a section of terraces three days before a devastating rock slide.
+
+I am not entirely separate from community life. I participate in water rituals, help harvest the high-growing moon berries that few others can reach from my precarious perch, and teach the whistled language to children. But everyone knows that when I suddenly tilt my head skyward in mid-conversation, they should fall silent. Something important might be passing overhead, carrying knowledge critical to our survival.
+
+In my private moments, I confess a truth to the mountain that I share with no other Vryllian: sometimes I dream of flying away with the migratory flocks, to see what lies beyond the mist-shrouded valleys below. But I remain, knowing my true purpose is to be the interpreter between worlds—not quite fully Vryllian, not quite of the air, but necessary to both.

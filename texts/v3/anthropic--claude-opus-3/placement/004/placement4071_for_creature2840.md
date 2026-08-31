@@ -1,0 +1,11 @@
+In this surreal, claustrophobic universe, I imagine myself as one of the teeming velvet masons, toiling ceaselessly to carve out a precarious existence inside the living flesh of the colossal tuber.
+
+My silver fur shimmers in the pitch darkness as I cling to a gossamer suspension bridge, my six skeletal legs gripping the taut plant fibers. In my muscular frontal arms, I clutch a tiny adze chipped from hardened resin. With rapid, precise strokes, I chip away at the encroaching xylem, the crisp *tick-tick-tick* of my tool blending into the silent roar of millions of my kin doing the same.
+
+Freezing droplets of sap rain down from above, beading and rolling off my hydrophobic pelt. I pause my carving just long enough to pass a freshly sliced sheet of starch to my geometric mandibles. I extract the sugars to fuel my shivering metabolism before exuding the indigestible pulp as a gluey resin to patch a weak spot in the scaffold. 
+
+Suddenly, I feel a specific vibration thrumming through my feet from the distant western wall - a micro-quake signaling a structural failing. Instantly, I'm flowing across the bridge, my velvet body rippling over the backs of my fellow masons. I exchange a fleeting data-kiss with a passing worker; she's hungry and sector 7 needs reinforcing.
+
+No time to rest. The walls are always closing in. I scurry up a sheer facade to the top of a ziggurat, my adze already chipping at the swelling plant flesh. For a millisecond, I allow myself to bask in the balmy heat radiating from the honeycomb heart of the city before plunging back into the freezing labor.
+
+I am a ravenous, silver-furred engine - an insignificant speck in this impossible metropolis, but an integral part of the whole. My entire existence is this: to carve, to metabolize, to build. Until my tiny heart bursts and I tumble into the silent black lake below, preserving the pristine geometry of our civilization in this hushed pocket of spacetime. This is my purpose in the chiseled chambers of the tuber.

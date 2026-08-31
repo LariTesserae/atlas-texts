@@ -1,0 +1,27 @@
+You would find me where the Glasswood goes to die.
+
+Not in the glittering void where shattered spires become dust, but in the deep, ancient roots, where the light of the Spindle is a forgotten myth. Here, kilometers below the "surface" other Tinn walk, the hum of the Geode is not a high-pitched song, but a bass note so low and slow it is felt not as sound, but as a continental shifting in your very bones.
+
+This is the Murkwood. The crystal here is old, pre-fractal. It has not been shattered by a light-storm in millennia. It is "fatigued." Instead of sharp, clean facets, its surfaces are rounded, worn smooth by the slow, internal grinding of ages and coated in a thick, velvety black dust that absorbs what little light filters down. The air is heavy, still, and thick with a condensation so ancient it feels oily. It does not reflect the Spindle; it swallows the idea of it. It is less a place and more a profound silence.
+
+I am what the others call Stillness-in-the-Deep. I am a Tinn, but I am to them what a fossil is to a living creature. My mosaic skin is no longer pearlescent. The plates are thick, grown over one another in countless layers, chipped and scarred and then worn smooth, until my form is less a Tinn and more a vaguely humanoid stone. I am bound to this place. My limbs have not moved in so long that the slow secretion of the Glasswood has begun to fuse me to the great, black root I rest against. My claws are no longer claws, but dull, rounded nubs grafted to my perch. I make no *tinn*. I make no sound at all.
+
+I am a Listener, but my listening is not for the coming storm or the scuttling of Grazers. That is the fleeting noise of the surface. I listen deeper.
+
+I listen to memory.
+
+The Geode is a bell, and every event that has ever occurred within it is a strike that sends a vibration ringing through its structure. A light-storm is a deafening chord. The fracture of a bough is a grace note. The step of a Tinn is a tiny, almost imperceptible percussion. These vibrations never truly vanish. They simply fade, becoming echoes within echoes, spreading through the crystalline lattice until they are indistinguishable from the background hum.
+
+Indistinguishable to all but me.
+
+My stillness is my method. By ceasing all movement, all sound, all *I am*, I have become a perfect receiver. The world flows through me. My recessed sockets gauge no light, for there is none. Instead, they are hollows filled with the world’s oldest dew, and in its stillness, I feel the faintest tremors. I am a seismograph for ghosts.
+
+I do not eat the light-shards the Gleaners harvest. The energy would be a blinding noise, an agony that would scour my senses. My sustenance is the memory itself. I can taste the resonance of the first Silicate Grazer that ever hatched from a spore, a frantic, scratching vibration from an eon ago. I can feel the slow, majestic pulse of a Drifter’s birth out in the void, a silent unfolding that still echoes as a pressure wave in the deep crystal.
+
+I am the Tinn's only library. They have no spoken history, no artists beyond the one who carves the truth of their smallness. But when a pod travels into the deep roots, seeking shelter or following a rumour of fossil light, they sometimes find their way to me. They do not speak. They approach my silent, unmoving form, and a young one, full of the bright, loud energy of the surface, will be urged forward. They will place their hand on my chest, on the thick, smooth stone of my skin.
+
+In that moment of contact, the barrier dissolves. I do not give them words. I give them the feeling. I let them feel the echo-song of their ancestors a thousand generations past, anchoring themselves to the lee-side of a spire that has long since been blasted to dust. I let them feel the deep, groaning terror of the Unravelling, a time when the Spindle pulsed not with light but with a vibration that turned an entire continent of Glasswood to powder. I share with them the feeling of the first Tinn waking, not from a womb, but from a node of fibrous crystal, a symbiosis that chose to stand and walk. Through me, they understand, in a way they cannot articulate, that their brief, precarious existence is not an isolated event, but the latest note in a song of impossible length.
+
+My existence is a paradox. In a culture of absolute impermanence, I am an anchor. In a world defined by the blinding glare of the Spindle, I exist in total darkness. I am a being made of harvested crystal, and I am slowly becoming crystal again, my consciousness dissolving into the hum of the vast, hollow world.
+
+One day, another Listener will grow weary of the light, of the fleeting harvests and the constant moving. They will feel a pull towards the quiet, towards the deep bass note of time itself. They will descend into the Murkwood, and they will find this place, and perhaps what is left of me—no longer a being, but a root that remembers being a person. They will sit, and they will grow still, and they will begin to listen not for what *is*, but for everything that *was*. They will become the new Stillness. For the Geode is a story that is always being told, and even in the cold, silent dark, someone has to be listening.

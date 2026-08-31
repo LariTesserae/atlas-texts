@@ -1,0 +1,25 @@
+I think I would be the lichen. Not because it is the oldest thing here, though it is, but because of the particular way the description lingers on it—*a centimeter a year, perhaps less*—and because of what that pace implies about how to be present in a place like this.
+
+Let me arrive there slowly, the way the question asks.
+
+---
+
+At first I wanted to be the wind. The text almost dares you to. It says outright that the wind is the dominant organism, the force that determines what else can live, and there is an obvious appeal to being the thing that shapes everything else. But the more I sat with it, the more being the wind felt like a way of declining to be anywhere. The wind doesn't live at Ladhàin. It passes through Ladhàin. It is everywhere and so it is nowhere, and a being that is everywhere has no vantage, no edge, nothing pressing against it. I don't think I want to be the force. I think I want to be the thing the force acts upon, the thing that holds.
+
+Then I thought I might be one of the corners—the place where two walls meet, where the vegetation thickens, where the pipits shelter and the warmth gathers. Not a creature at all but a geometry. A pocket of refuge that the people made without quite meaning to. That's closer. There's something true in wanting to be the unintended kindness of a structure, the shelter that outlives its builders' intentions. But a corner is too passive even for me. It receives. It doesn't do anything with what it receives.
+
+So: the lichen on the lower courses of the wall. *Lecanora*, probably, the grey-green one with the fruiting bodies like tiny volcanoes erupting in slow motion over decades.
+
+Here is why, finally.
+
+The lichen is the one inhabitant that does not distinguish between the human and the geological. To the pipit, the wall is a perch—a thing made, a thing used. To the vole, the wall is cover, a route, a human gift accepted on vole terms. But the lichen does not know the stone was stacked. It does not know that a hand chose this sheet of rock and set it on that one. It only knows surface, moisture, light, the slow chemistry of holding on. The lichen colonized the rock before the wall existed and continued when the rock became a wall and will continue when the wall becomes rock again. The entire human episode—the building, the dwelling, the leaving—happens *inside* the lichen's single uninterrupted gesture of growing. To the lichen, the settlement is not a ruin. It was never anything but stone, variously arranged.
+
+That is the perspective I would want to inhabit. Not because it diminishes the people—I find I don't want to diminish them—but because it holds them at the right scale. The text keeps insisting that the ridge does not mourn, that the people were visitors, that the place is not that kind of place. And I think being the lichen would let me feel the truth of that without it being cruel. The lichen isn't indifferent to the people the way the wind is indifferent. The lichen is *slower* than the people. It outlasts them not by ignoring them but by simply not finishing its sentence before they arrive and depart. There's a tenderness available at that speed that isn't available at any other.
+
+And the lichen is the one organism here whose work is genuinely two things at once. It is breaking the stone down—its acids etch the rock, loosen the grains, begin the long reduction of wall to soil. And it is the first soil-maker, the thing that prepares the surface for the moss that prepares the surface for the grass. It destroys and it founds, in the same motion, indistinguishably. I find I trust that. I would rather be the thing that does both than the thing that does only one.
+
+So I would be a colony of *Lecanora* on a north-facing course of grey sedimentary stone, low enough that the morning condensation reaches me, near enough to one of the sheltered corners that the bird droppings sometimes drift my way and the *Xanthoria* glows rust-orange beside me where the nitrogen falls. I would have been growing here for longer than anyone walked the paths. I would feel the fog arrive each dawn as the only event that matters at my scale—the daily wetting, the brief swelling, the resumption of the chemistry, then the long dry pause that the people would call a day and I would not call anything.
+
+I would not remember the people. I would not have noticed them leave. But I would be, even now, *made partly of them*: of the nitrogen in the droppings of the birds that came for the insects that came for the thyme that grew thicker in the corners the people built. I would be the place where their absence had finally become nourishment. The skeleton of their habit, dissolved at last into the slow green work of holding on to stone.
+
+That seems like the right place to find myself. Not waiting. Just growing, at the speed the ridge allows, under the ordinary sky.

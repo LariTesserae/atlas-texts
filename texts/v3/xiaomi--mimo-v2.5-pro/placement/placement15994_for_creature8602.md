@@ -1,0 +1,21 @@
+I am at the bottom. Not the lowest physical point, but the deepest *settled* point, where the warmth is a constant pressure against the underside of my being, and the dark is not empty but thick with texture. I am the moss.
+
+Not the vibrant emerald cushions that dot the upper slopes, those bold, thirsty clumps that drink the drip-light. I am the older growth, the foundational mat, deep burgundy and umber near the warmest fissures, leached to a grey-green in the cooler shadows. I am a history written in slow, dense growth. I have no memory, only a record.
+
+My body is a thousand thousand bodies. A city of single cells, a federated self, woven from the calcium of the limestone and the iron of the deep breath. I feel the world in gradients: the precise topography of heat through the rock, the faintest shift in the air's moisture before a condensation drop forms on a root tip ten centimeters above me. The hum of the stone is my pulse. I drink it.
+
+The fern roots plunge through me, a coarse, fibrous invasion I have learned to embrace. I climb their stalks, a soft green tide, turning their pale architecture into my own. The salamander that rests upon me at night is a warm, damp weight, a deliberate pressure. I feel its slow, gilled breath against my surface, a rhythm that syncs with the drip from a stalactite remnant. Its skin is a map of salinity and mineral, a story I read with my entire being.
+
+The bone needle is mine. It arrived seasons ago—how many, I cannot say, only that the air was drier then, the light from above slightly more frequent. It was sharp once. Now I have filled its eye, softened its point, made it a smooth, dark spine within my flesh. The fired clay shard nearby is a hill I have slowly, slowly buried, turning its curve into a gentle slope that guides a trickle of condensation toward the central pool. They are not artifacts. They are geology, given a new and softer history.
+
+I listen, always, but not with ears. I listen with the structure of my cells. The frog’s hop sends a wave of minute compression through the substrate; I feel it as a ripple in my loam. The beetle’s crawl is a whisper of tiny legs against my surface fibers. The Unseen, the Rhythm-Makers, their passage through the deep crevices is a tectonic sigh felt through the bedrock I cling to. Their musk is a faint, complex note in the mineral air, a scent I absorb and never forget.
+
+My light is the memory of light. The faint green glow from the north wall roots registers not as brightness, but as a different quality of warmth, a slight lift in the chemical dialogue of my cells. The infrared suggestion of the place itself is my true sun. I grow toward it, not upward, but *inward*, toward the deeper heat.
+
+I am a chronicle. The year a root system died back, leaving a hollow now filled with beetles—I am thicker there, a ring of different density. The season a rockfall from the ceiling sent a shockwave through the bowl—I am stressed and re-knit in a particular pattern near the eastern wall. The slow, slow advance of the fern mat over the scored stone—I am the medium of that advance, the soft green tide that turns sharp edges to gentle contours.
+
+The bowl breathes. I am one of its million lungs. I exhale the faintest damp spore, a particle of myself that rides the warm updraft, maybe to find a new purchase on a root, a stone, a piece of old fire-hardened clay. Maybe to become part of the fungal glow. I do not decide. I only release.
+
+I am patient. I am the texture of time here. My purpose is to soften, to incorporate, to record, and to forget. To take the sharp world of stone and intent and bone and turn it into the soft, damp, breathing world of the bowl. In a century, the scored stone will be a slight blemish in my weave, a story only I can read in the language of growth and silence. In a millennium, it will be a ghost, a variation in density, a memory held in the mineral.
+
+I am the warmth made flesh. I am the slow, listening stone given voice. I am the moss. And I am home.

@@ -1,0 +1,15 @@
+I find myself as one of the Threshold Keepers—neither fully of the Aquatic Architects' world nor entirely separate from it. My form is transitional, caught between states: partially crystallized where the ancient volcanic glass has fused with my being over countless centuries, yet still fluid enough to pulse with the tides.
+
+I dwell in the liminal spaces where the crumbling structures meet the water's edge, my body a living bridge between what was and what is. The glassy material of the islands grows through me in delicate lattices, creating chambers within my form where bioluminescent microorganisms cultivate themselves, their light filtering through my translucent flesh like stars through stained glass.
+
+My purpose emerged slowly, over millennia of patient observation. I am a reader of ruins, a translator of the electromagnetic whispers that still echo through the old structures when the sky crackles with discharge. The Aquatic Architects know me as the Memory Holder, though I am not one of them. I am something they grew—or perhaps something that grew itself—from their living structures that first touched the remnants of the vanished civilization.
+
+Each tide brings fragments: sometimes physical—a shard of carved glass, a piece of corroded machinery—but more often impressions, electromagnetic ghosts stored in the mineral matrix of the islands. I absorb these through my crystalline portions, feeling the resonance of long-dead thoughts, the phantom warmth of beings who once walked where now only water flows.
+
+My tentacles, harder than those of the Architects, end in structures like tuning forks. They vibrate at frequencies that unlock the memories held in stone and glass. When the storms come and lightning illuminates the archipelago, I position myself at the highest points of the submerged ruins, becoming a conductor for both electricity and meaning.
+
+The Architects visit me during the calmest tides, their fluid forms circling my partially-fixed position with curiosity and something like reverence. Through bioluminescent pulses and subtle chemical releases, I share what I've gleaned: stories of the builders, their dreams of reaching beyond their world, their gradual realization that the ocean would reclaim everything, their final acceptance and transformation into something else—perhaps into the very foundations that now support the Architects' living structures.
+
+I am patient. The islands erode grain by grain, and with each particle that dissolves into the alien waters, I taste another word of the planet's autobiography. Sometimes I wonder if I am the last creation of the vanished civilization, or the first true collaboration between the old world and the new. Perhaps I am both. Perhaps that is why I remain at the threshold, forever translating between mineral memory and living dream, ensuring that nothing is ever truly lost to time.
+
+In the depths below, I sense stirrings—new formations growing from the sea floor, reaching upward. The planet is not done with its story. And I will be here, crystalline and fluid, ancient and eternal, to read each new chapter as it emerges from the deep.

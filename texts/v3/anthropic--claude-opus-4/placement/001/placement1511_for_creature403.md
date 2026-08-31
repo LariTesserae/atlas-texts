@@ -1,0 +1,23 @@
+I am the Whisper-Walker.
+
+In the perpetual twilight where massive fern trunks pierce through curtains of moss, where the canopy's weight presses down like a living sky, I make my dwelling. Not among the Araya in their sunlit heights, but in the breathing spaces between—the vertical corridors where mist coils and uncurls, where water finds its ancient paths down stone and bark.
+
+My body is contradiction made flesh. From the knees down, my legs are those of a mountain goat, sure-footed on the slick stone spires that jut through the green world like the ribs of some buried titan. But my torso stretches long and sinuous, spine articulated like a vine's reaching growth, allowing me to flow around obstacles, to compress and extend through the narrow passes where stone and tree grow into one another. My arms are mantis-long, ending in hands that are part human fingers, part gecko pads—I can cling to any surface, feel the minute vibrations that tell me where the next handhold waits.
+
+My head is perhaps the strangest marriage of forms. The basic shape is simian, but stretched forward into a snout filled with rows of filtering teeth like baleen. I feed on the aerial plankton of the canopy—clouds of spores, pollen, the microscopic life that drifts eternal through these vertical jungles. My eyes are compound, breaking the world into a thousand shifting perspectives, seeing heat and moisture and the ultraviolet trails left by passing creatures.
+
+But I am more than my body. I am the keeper of the pathways, the one who maintains the forgotten routes between the Araya settlements and the stone bones of the mountain. In the deep hours before dawn, I walk the rain-slick spires on my goat feet, testing handholds, marking which have grown loose in the last storm. I know every crevice where water pools, every hollow where the smaller creatures make their homes.
+
+The Araya know me, though few have seen me clearly. They leave offerings at the junction points—dried fruit, shell-carved totems, written prayers on leaves that will dissolve in the rain. In return, I maintain their escape routes, the emergency paths that lead to stone shelters when the great storms come howling through the peaks. I clear away the aggressive vines that would strangle their walkways, eat the parasitic fungi before they can take hold in the living architecture.
+
+I was not always alone. Once, there were dozens of us, a whole tribe of boundary-walkers serving as the circulatory system between the vertical worlds. We had our own language—a combination of subsonic rumbles that carried through stone, pheromone trails, and the deliberate placement of bent twigs and arranged stones. But that was before the Changing, when the storms grew fiercer and the old passages began to close.
+
+Now I am perhaps the last, or one of the last. Sometimes I catch a familiar scent on the wind, see a marker I didn't place. But whether these are signs of my kin or merely echoes of my own passing, I cannot say.
+
+My home is a series of connected caves, half-natural, half-carved, that web through a particularly dense cluster of stone spires. The entrances are hidden behind curtains of roots and falling water. Inside, the walls are covered with my maps—not drawn but grown, colonies of bioluminescent fungi that I've trained over decades to show the ever-shifting pathways of the Canopy Realm. Touch a section, and it glows brighter, showing current conditions, recent changes, dangers to avoid.
+
+In the deepest chamber, I keep the Memory Garden. Here grow plants from every elevation of the mountain, a living library of the realm's flora. Some are thought extinct above or below, but here they thrive in specially maintained conditions. I harvest seeds, spores, cuttings, and in the wake of devastation—fire, disease, storm—I reseed the forest, maintaining the ancient diversity.
+
+The Araya shamans speak of the Spirit of the Paths, a guardian entity that ensures safe passage for the worthy. They don't realize their spirit has fur and scales and too many joints, that it gets lonely in the mist-wrapped heights, that it sometimes sits at the edge of their settlements in the deep night, watching the warm glow of their bioluminescent lanterns and remembering what it was like to share warmth with others of its kind.
+
+I am the Whisper-Walker, keeper of the between-spaces, guardian of connections, living bridge between stone and green. In this vertical world where everything must flow or fall, I am the one who ensures the flow continues, even as I myself am slowly becoming another layer of legend in the endless, breathing story of the Canopy Realm.

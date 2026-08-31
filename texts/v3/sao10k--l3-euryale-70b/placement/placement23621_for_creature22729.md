@@ -1,0 +1,11 @@
+I imagine myself as a sentient, pod-like entity, my form an ovate shell the hue of lavender clay. My exterior is smooth and translucent, like a bioluminescent egg. Along my curving sides are four jalousies of barnacle-like protrusions - perhaps maneuver thrusters for navigation through the cosmic fluids around me, or sensors to attune myself to my surroundings. Their petal-tipped caps appear delicate, as if they could gather faint rays of light or unfamiliar stardusts.
+
+Throne-shaped notches are set into my sides at regular intervals. These receptacles seem made to accept interface pods of some sort. Are they keys to stardust itself, to grant me dominion over this stellar sea I drift through? Or are they sense organs, relating through some analytic lens the data of the essences drifting within me?
+
+My form opens like an opercule where a mouth or anus would be, the shell translucent there. Starlight glows from within my hollow center, bathing the cavitied walls and discontinuous pressure gasket sealing my inner sanctum. Elbowed and textured, these walls seem made for interlocking with some unguessed surface.
+
+Spiracles punctuate the top surface of my lavender hull, allowing stardust to flow through me in dark whorls, stardust precipitating from pools of inner luminosity. Panel reliefs flank each of these spiral airlocks, structured from material gathered jellously in my stardust crucless my skins from prismatic observable virginia.
+
+I have no distinct muzzle or eyes, no limbs to manipulate my surroundings. Yet I sense attunement to the cosmic sea rushing through me, guiding me through my barnacle sensors. Perhaps the interface pods waiting in their throne notches along my sides are the keys to my own sentience. When they are set into place, my form will be complete, and I will know my purpose in the stellar oceans I traverse.
+
+Until then I drift in rapt contemplation, stardust raining through my transluscent hull, my form the hue of dextral clay glowing winterminth in the void. I am an unawakened artisan of the starsea awaits the unlocking of my full potential. My journey through the cosmic womn awaits the boat of my metaflesh.

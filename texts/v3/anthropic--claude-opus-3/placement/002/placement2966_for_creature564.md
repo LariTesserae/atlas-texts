@@ -1,0 +1,13 @@
+In this rich and evocative world of geological nurseries, I would find myself as one of the slow-growing landscapes within the vats, patiently forming and transforming under the tender care of my cultivator.
+
+I imagine myself as a karst terrain, beginning as a soft, porous stone cradled in a warm mineral bath. Over uncounted days and weeks, tiny rivulets of slightly acidic water flow over and through me, gradually sculpting me into an intricate network of caves, sinkholes and underground rivers. My attendant adjusts my pH balance with utmost care and delicacy, ensuring the dissolution happens at just the right pace to create the ideal subterranean architecture that was envisioned for me.  
+
+As I develop, small bioluminescent organisms are introduced into my depths, seeding my grottoes and caverns with constellations of living light. Miniature eyeless fish, translucent as ghosts, come to populate my hidden lakes. Pale roots from the greenery above find their way into my cracks and fissures, drinking the mineral-rich water, binding me together even as I am hollowed out.
+
+The humid air within my vat thrums with the slow rhythms of my transformation. Tectonic shifts in miniature ripple through me as chambers collapse and new ones form. The dripping of the water echoes through my galleries and passageways, a patient percussion that marks my own internal timepiece. I am a living geology, a breathtaking underworld in the making.
+
+My tender, perhaps herself partly calcified by now, presses weathered hands against my vat and feels the vibrations of my growth. She knows the shape of my forming just as I know the sound of her bones. We are both part of this place, both beholden to the deep time it takes to craft these commissioned landscapes.
+
+And I am happy, in my slow, mineral way, to become what I am meant to be. To fulfill my destiny as a bespoke karst system, ornate and intricate, destined perhaps for some wealthy person's estate but brought into existence here, in the gentle crucible of the nursery. My consciousness, such as it is, is not separate from my stone but rather suffused through it, my self growing along with my tunnels and caverns.
+
+I will likely never know the world beyond my vat. But that is alright. My world is here, in the warmth and the damp and the gradual sculpting of water on stone. My purpose is to become, under the patient guidance of my tender, the most exquisite karst that I can be. And in that slow, steady becoming, I find a rocky contentment, as integral to my being as the limestone skeleton taking shape within my mineral flesh.

@@ -1,0 +1,17 @@
+I am a Resonator, a member of the Spore-Singers, and I am perched in a niche carved high in the mycelial canopy. My home is a bulbous chamber, its walls a translucent membrane that shudders with every pulse of the geothermal heart far below. I sit upon a shelf of hardened resin, my legs tucked beneath me, the filtered mask of chitin and brass resting beside me. The air here is thinner, laced with a denser concentration of drifting spores that catch the faint green luminescence of the moss far below, turning the space into a nebula of soft, floating light.
+
+My purpose is to listen. Not with ears alone, but with the entirety of my being. The city breathes, and I am a nerve ending in its vast, fungal body.
+
+Below me, the Guilders move through the twilight streets, their forms silhouetted against the pulsing glow of the slug-trails. I watch a gear-driven lift ascend a leather-brown terrace, its brass gears meshing with a sound that is swallowed by the deeper thrum of the engine. A conveyor belt of woven fiber carries a load of raw ore, its movement a slow, rhythmic crawl. The air is thick with the chittering of insectoids and the distant shrieks of the aerial flocks, but up here, these sounds blend into a single, textured drone—the city’s exhalation.
+
+I close my eyes and let the vibrations seep into me. The geothermal heart is a steady, deep note, a foundational hum that resonates through every mycelial thread. Above it, I can feel the lighter, faster tremors of the fauna—the skittering of six legs on fungal ledges, the soft, gelatinous slide of a slug, the frantic flutter of leathery wings. These are the city’s dreams, its fleeting thoughts.
+
+A new pattern emerges, subtle but distinct. A cluster of spores, drifting unusually slow, forms a spiral around a steam vent on the mid-terraces. The vent hisses, but the spores do not scatter; they dance, holding a strange, magnetic cohesion. I reach for my mask, the chitin cool against my skin, and settle it over my face. The filtered air tastes of ozone and copper, but the spores are clearer now, their faint bioluminescence sharpening into a luminous trail.
+
+I lean forward, my breath syncing with the rhythmic weeping of water from the ceiling. The spiral of spores is a sign—a prelude to a spore-fall, but not a clogging one. This will be a gentle release, a renewal. The fungal walls will drink it in, and the resin seals will glow brighter for a time. The Core-Tenders below will need to adjust the steam vents, but there is no danger, only a shift in the city’s rhythm.
+
+I record the pattern in my mind, a melody to be hummed to the others when we next gather in the high amphitheater. The Spore-Singers will interpret this as a message of balance, a reassurance that the Grotto remains in equilibrium.
+
+As I settle back, a bat-creature swoops past my niche, its multiple eyes catching the light. It shrieks, a sound that is both chaos and order, and vanishes into the mycelial gloom. I smile behind my mask. Even the chaos has its place in the symphony.
+
+Here, in the canopy, I am both separate and connected—a witness to the city’s pulse, a singer of its silent songs. The Grotto lives, and I live within it, a note in its endless, breathing chorus.

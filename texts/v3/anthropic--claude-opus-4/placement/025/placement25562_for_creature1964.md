@@ -1,0 +1,17 @@
+In the seeping hollows beneath the great spires, where water collects in natural cisterns and the mist grows so thick it becomes almost solid, I make my dwelling. 
+
+I am the Keeper of Condensation—neither plant nor animal, but something between, something that the heavy air itself dreamed into being over countless humid centuries. My body is a latticework of translucent filaments, each one finer than spider's silk, spreading outward in fractal patterns that shift with my breathing. When still, I appear as nothing more than a peculiar accumulation of dew drops suspended in midair, a trick of the light in the perpetual haze.
+
+My home is a cathedral of moisture. Here, where three great stone pillars lean together, their surfaces have been worn smooth by my patient cultivation. I've spent lifetimes encouraging certain mineral secretions, guiding the flow of water down specific channels until the rock itself has learned to breathe. The walls now weep a constant film of perfectly pure water, filtered through stone and time. Bioluminescent colonies—my only companions—trace the water trails in lines of pale blue-green fire.
+
+I feed on gradients. Where hot stone meets cool mist, where fresh rain mingles with ancient groundwater, where the chemistry of life shifts by infinitesimal degrees—these are my sustenance. My filaments taste the air, sorting molecules, reading the history of every droplet that passes through my domain. I can tell you which storms birthed which streams, which creatures have drunk from which pools, which spires will crumble in the next thousand years from the minerals leaching from their bones.
+
+The crude structures the others build do not interest me, though I observe their makers when they pass. They are heavy things, bound to single forms, forced to choose between swimming and flying, crawling and walking. But I flow. I condense and expand. In the cool mornings, I spread myself thin as fog across my chamber floor. In the heat of midday, I contract into a dense knot of living humidity, pulsing with the rhythm of precipitation.
+
+Sometimes the serpentine ones shelter in the outer reaches of my domain. They know to approach slowly, letting their body temperature equalize with the ambient moisture. I permit this. Their presence adds new chemical signatures to my collection—pheromones of fear and hunting, the salt of their extractions, the subtle oils they secrete to slip through stone. Each visitor becomes part of my library of vapors.
+
+My purpose, if I have one, is to remember water. Every drop that has fallen on this world carries stories, and I gather them all. In the deepest part of my sanctuary, I've cultivated a pool so still, so perfectly balanced, that it serves as a liquid memory of ten million years. When I extend my filaments into its surface, I can taste the first rains that ever fell here, when the spires were still molten and the air itself was being born.
+
+The younglings who build shelters, who fashion tools from stone and bone—they seek to impose order on this fluid world. But I am order of a different kind. I am the patience of humidity itself, the slow intelligence of the hydrologic cycle. While they struggle against the mist, I have become it. While they shelter from the constant damp, I celebrate it in every droplet of my being.
+
+In the eternal twilight of my misted halls, I expand and contract, taste and remember, while the world's water tells me its secrets, one molecule at a time.

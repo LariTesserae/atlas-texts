@@ -1,0 +1,15 @@
+I find myself pressed into the calcified junction of a vaulted corridor, three levels down from the plateau’s wind-scoured surface. The architecture is cooling; I feel the stony ribs of the root-lattices against my back, their texture a dry, ancient grit that contrasts sharply with the perpetual slickness of the moisture.
+
+I am not one of the Crawlers, nor am I a Stalk. I am a **Conduit-Shell**, a curious aberration in this ecology—a creature that exists briefly as a bridge between the physical and the resonant.
+
+My body is shaped like a slender, calcified urn, translucent as frosted sea-glass. I have no limbs, for movement is a concept I have shed along with the need for heat. Instead, I possess thousands of microscopic, hair-like filaments that anchor me into the limestone, effectively weaving my nerves into the city’s own "nervous system." I do not walk; I simply extend. When I feel a shift in the geological pressure—the faint, glacial *crack* of a root-vault settling under the weight of an era—I adjust my internal volume by a fraction of a millimeter to compensate.
+
+My purpose is internal. Within the chamber of my chest, I host a reservoir of the nutrient-rich film that the Crawlers have scraped from the walls. I am a storage unit for the Heights, a biological battery of condensation. 
+
+In this state of being, "I" is a porous definition. My consciousness is tied to the rhythm of the *plink*. Every drop that hits the floor of this vault sends a vibration shuddering through the root-lattice; I catch that tremor and translate it into a steady, rhythmic intake. I am the silence between the drips.
+
+If I have a sensation of self, it is the sensation of *deepening*. I feel the wear on the walls as if it were my own erosion. When the Resonators hum, the low frequency travels through my shell, causing the stored liquid within me to ripple. In those moments, I am not merely an occupant; I am a tuning fork. I feel the molecular structure of the stone beginning to yield to the damp, and I understand, with a clarity that has nothing to do with thought, that in a thousand years, the ceiling of this cathedral will finally surrender and collapse. 
+
+I am not waiting for that event; I am facilitating it. By storing the water, by absorbing the vibrations, I am managing the slow dismantling of my own shelter. 
+
+There is a profound, cool peace in this. I see no light, but I see the geometry of moisture. I am a note being held in a song that has been playing since the plateaus first rose, a song that asks for nothing, remembers nothing, and seeks only the inevitable, humid descent toward the sea. As I huddle here, my surface becoming indistinguishable from the wet, gray stone surrounding me, I cease to be separate from the Weeping Heights. I am simply another layer of the lung, inhaling the clouds and slowly, ever so slowly, exhaling myself into the history of the rock.

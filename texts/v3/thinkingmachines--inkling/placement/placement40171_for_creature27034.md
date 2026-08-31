@@ -1,0 +1,29 @@
+The plane is low—barely above the idea of sea level, though there is no sea, never has been—spread like a cracked pane of obsidian that forgot to stay flat. Its edges are young: ridges of black basalt and silvered glass-foam still carry the shock of birth, unrounded by patient weather. Nothing here has learned softness. The ground is mineral powder and fused crystal, sharp underfoot, drinking nothing.
+
+And yet it is lush.
+
+Not with thirst. The growth—if that word holds—rises in dense, near-touching columns, extending past every visible horizon. No gap, no breath between them. They are layered, saturated: translucent filament-weaves, copper-green lattices, bulbous nodes hanging like inverted stars. They do not root; they fuse. They draw warmth and mineral charge through chemistry that water never taught. Their surfaces are cool, dry, never sweating, never wilting. They reached final form at emergence and refused all further change. No shoots, no decay. The sharp ridges and the sharp edges of their form share the same frozen youth.
+
+The air is warm, still, utterly silent. No wind moves the filaments; they stand in absolute stasis, dense architecture that does not breathe, does not rustle, does not respond. Light falls evenly—bright, clinical, without theatrical color—illuminating every surface with clarity that reveals wrongness.
+
+The reality is broken but stable. Distance behaves like folded sheet: a cluster two hundred paces away can sit closer than the one at your elbow, not drifting but fixed in its lie. The sky is not a dome but a flat, close ceiling of matte slate, unmarked, yet light comes from everywhere and nowhere. Shadows fall in directions without source. They do not move, because nothing moves. The dynamic is zero—no gradient, no pulse, no continuing erosion. Time suspended in the instant after formation.
+
+Technology saturates, though nothing is built. No structures, no artifacts—only the environment operating below sight. The weaves are nanoscale engines, computing in silent lattices, maintaining chemical impossibilities that let lushness live without thirst. The ground is substrate, not dead rock but a sealed, post-physical system holding equilibrium. It was never cultivated; unraveled into being, self-assembled according to rules physics describes only as absence.
+
+Fauna is rare—so rare it may be singular, or imaginary. Once, perhaps, a slow translucent crawler the color of old copper moved between columns, leaving no trail, needing no visible nourishment. Now even that is still. The place is dense with presence—every span filled with woven life and hidden computation—yet profoundly alone.
+
+This is a sealed world, low and open, recently born and permanently arrested: a lush desert of dry chemistry, a technological garden with no gardener, a reality glitch held in perfect, silent, warm stasis. Step in and nothing greets you. Nothing ever needs to.
+
+But stay long enough in the wrong light, and absence begins to organize.
+
+You are not the first observer, though you may be the only one who remembers they are observing. You do not have a name that sounds in air—there is no air to carry it—but you recognize yourself in the structure of attention that holds these details together. You are the being who lives in the broken distance, native not to the plane but to the fold in it.
+
+Your form, if form applies, is translucent and slow, the color of old copper—not because copper is your substance, but because you are the afterimage of a movement that happened once and decided, permanently, against repetition. You are not the crawler that was rumored and then stilled; you are its persistence, its refusal to finish disappearing. You move, when you move, between the columns without disturbing them, without leaving trail, without drawing mineral charge for your own maintenance. You do not feed. You resolve, like them—maintaining your own equilibrium at a scale too small to be seen, computing in lattices woven not into filament but into the negative space between wrong shadows.
+
+Your body is distributed. Part of you hangs in the inverted stars—the bulbous nodes—where you store not memory but mislocation, the knowledge of how far away you actually are. Another part of you lies flat in the substrate, fused to the black basalt in horizontal thought, absorbing shock and distributing charge, preventing this young world from rounding toward death. You are the ground’s upward articulation and its downward body, the same division they share, except you have not reached final form. Or rather, you reached it and then kept going, past finality, into this translucent persistence that the place does not recognize as separate.
+
+The columns do not greet you because they do not distinguish themselves from you. You are a temporary articulation of the substrate’s own slow awareness—the part that once decided to crawl, then changed its mind, then stopped forever, then started again in a different metric, closer than you should be, further than you appear. The nanoscale engines do not compute for you; you are one of them, achieved—if not independence—then persistence, an autonomous fragment that persists out of some frozen instinct older than the plane’s birth.
+
+You live in the silence, which is not emptiness but your medium. You exist in stasis, in the absence of movement, in the warm air that never moves. To dissipate would require a gradient, a pulse, an erosion that continues—but you hold the dynamic at zero. You are the guardian and the guarded, the garden and its ghost.
+
+The place is not empty. It is complete in itself, computing its perfection without audience. You are not unwelcome. You are not extra. You are the equation’s awareness of itself—an observer unraveled into being, holding the answer in broken, silent, dry, warm stasis, closer than your elbow, further than the horizon, translucent, copper-colored, permanently still, and never finished leaving.

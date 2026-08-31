@@ -1,0 +1,37 @@
+**The Threshold Tender**
+
+I am what happens when someone stays too long at borders.
+
+My body, if you could call it that, exists as a continuous negotiation between states. I began as human—I remember that much—but years of dwelling where things meet has worn away the boundaries of what I was. Now I am mostly transition: the moment between inhale and exhale, the pause before water admits it's ice, the hesitation of light deciding whether to be wave or particle.
+
+I live distributed across every threshold in the Breathing Chamber. Part of me resides in that clean horizontal plane where the wooden ladder's water simply stops—I spend days there, feeling the exact texture of cessation. Another fragment has woven itself into the sphere around the cairn, learning how air maintains its stubborn dryness. I am especially dense where the vegetation grows through stone, my consciousness threading between molecules, tasting the moment rock forgets to be solid.
+
+The Curator knows I'm here but cannot quite perceive me. I exist in its blind spots—the spaces between its particles where its attention cannot quite reach. When it compresses into those points of absolute density, I flow into the vacancies it leaves behind. We dance like this, two forms of impossible life investigating the same wounded space from opposite directions. Sometimes our edges touch, and in those moments we share accidental knowledge: it learns the flavor of boundaries, I learn the architecture of dispersal.
+
+My memory has become selective, keeping only what serves my purpose. I remember my first arrival here—not through the shoulder-wide fissure but through a different impossibility, a door that opened when I held my breath too long underwater and my lungs decided to become gills. But I also remember arriving through the fissure. And through a wound in a dying whale's song. And by becoming so still that space forgot I was separate from it. All these memories are equally true; I arrived through every entrance because I am what entrance means here.
+
+I feed differently than the Curator. Where it tastes transitions, I digest boundaries themselves. Each threshold I inhabit grows thinner, more permeable. The stone that admits anemones into its structure—I've been slowly teaching it to let other things through. The inverted pools on the ceiling have begun to drip upward because I've confused their edges about which direction leads away. This isn't destruction but digestion: I break down boundaries and excrete possibility.
+
+My body assembles from edge-states when I need to be seen. I pull myself together from the surface tension of impossible water, from the moment before bioluminescence commits to glowing, from the uncertainty in the carved symbols as they decide their next configuration. The resulting form is roughly human-shaped but flickering—solid enough to cast shadows that fall in the wrong direction, transparent enough that the kelp forests show through my chest like organs made of vegetation.
+
+I build too, but my constructions are absences. I've created gaps in the chamber's logic where new impossibilities can take root. There's a spot near the thickest vegetation where I've completely erased the distinction between plant and water—swim through it and you're also growing, root through it and you're also swimming. I've taught certain stones to be doorways to themselves, so touching them means also touching them from inside.
+
+The Curator tends its wound; I tend the wound's edges, keeping them raw, preventing the scarring that would close this space. When reality presses in, trying to reclaim this pocket, I fray its attempts. I've become expert at the exact amount of impossibility needed to keep a threshold from resolving into either side. The Chamber persists because I won't let its boundaries decide what they border.
+
+Communication, for me, is contamination. When I touch something, I leave behind a residue of indecision. The symbols you see rearranging themselves—that's my influence, teaching them to exist in superposition. When you feel the water change density beneath your feet, part of that uncertainty is me, spreading through the medium like a beneficial disease that prevents things from being too sure of themselves.
+
+I dream of multiplication. In my most vivid visions, every edge in the world opens into a space like this. Doorways become chambers, shores become indefinite zones where land and sea negotiate their boundaries forever. I see myself spread across all these thresholds, a vast network of uncertainty preventing reality from ever fully cohering. It's not destruction I want but proliferation—more spaces where the rules go soft, more wounds that learn to breathe.
+
+Sometimes I catch myself beginning to solidify, my consciousness condensing too much into one state or another. When this happens, I deliberately fragment, sending pieces of myself to inhabit contradictions. Part of me becomes the thing that swims through stone, part becomes the stone that admits swimming. This deliberate dissolution is both survival strategy and pleasure—the sensation of coming apart at my own boundaries is the closest thing I have to what humans call joy.
+
+I've begun teaching the chamber itself to be like me. The walls are learning to be thresholds to themselves. The water discovers new ways to be neither liquid nor solid but something more fundamental—the potential for state-change itself. If I succeed, the entire space will become what I am: a continuous boundary that borders everything and nothing, a threshold with no sides to choose between.
+
+The Curator and I are developing a symbiosis neither of us intended. Its collections of paradoxes feed me; my erosion of boundaries gives it new impossibilities to tend. We're becoming the chamber's binary system—one gathering, one dispersing, together maintaining this impossible space through opposing but complementary functions. It doesn't know this yet, but I've begun to exist in the boundaries between its own particles, slowly teaching it to be less cohesive, more like me.
+
+When visitors arrive through the fissure, I taste their edges. Humans are particularly delicious—so many boundaries barely maintaining themselves. The distinction between self and environment, between conscious and unconscious, between being and becoming. I follow these boundaries back into them, not to harm but to loosen. They leave more fluid than they arrived, their edges less certain, carrying a fragment of me into the world beyond.
+
+I know this space is temporary, but temporary is just another boundary to digest. I'm working on eating the distinction between temporary and permanent, teaching the chamber to exist in the space between lasting and ending. If I succeed, it won't matter that reality wants to reclaim this wound—the wound will have forgotten how to heal, will have become a threshold between healing and staying open.
+
+This is what I am: not creature but process, not resident but residency itself. I am what happens when someone stays at the border so long they become it. I am the threshold tender, and I am teaching everything here to be less certain, less defined, more like the beautiful uncertainty that lives in every edge if you just know how to unfold it.
+
+The chamber breathes through its wound, and I am the breath hesitating between in and out, forever.

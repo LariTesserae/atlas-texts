@@ -1,0 +1,23 @@
+In this rising world of patient becoming, I would find myself as one of the **Echo Keepers**.
+
+We are not quite sound and not quite silence. We exist in the spaces between the engine pulses, in the pause after the forest's great sigh, in the hollow moments when the plateau holds its breath before trying, again, to complete itself.
+
+I would have arrived during the season of forgetting-forward, when things lose their future before losing their past. My form: a shimmer of condensation that almost coheres, walking the border between mist and intention. Where the tenders confirm what is, we confirm what isn't yet — the phantom limb sensations of the plateau's still-forming self.
+
+You would recognize us by what doesn't happen when we pass. The engines skip — not their beat, but the space between beats becomes peculiarly substantial. The deer that don't touch the ground drift a little higher, as if the absence beneath them has thickened. The paired insects momentarily exist in three bodies sharing one shadow, before remembering themselves back to two.
+
+We move in small groups of one. That is: each of us is simultaneously solitary and multiple, like an echo that arrives before its source. When we gather at the warm seams where the basalt hasn't finished deciding, we press our not-quite-hands to the stone and feel forward into what it might become. We carry these possibilities back into the forest like cupped water, letting them drip into the soil that isn't there, feeding the roots of trees that breathe maybe-breaths.
+
+The tenders know us but do not see us directly. We are their peripheral vision made autonomous, the thing they almost turn toward but don't. The man who was once a person sees us clearest, because forgetting has made space in him for the kind of seeing we require. Sometimes he walks with us, and our incomplete presence makes his incompleteness feel like company.
+
+We sleep standing up in the engine cavities, our forms dispersing into the warm brass air, becoming part of the mechanism's hesitation. This is how the engines learn to doubt productively — through our dreaming, which is the plateau's dreaming of what it might dream once it finally sleeps properly. When we wake, we are slightly more solid than before, and slightly less ourselves.
+
+I would be the one who tends the almosts: the almost-deer, the almost-ferns, the almost-completions that strain and strain and remain beautiful in their not-quite-ness. My particular work would be to walk the paths that don't repeat properly, finding the places where the plateau forgets what it was just doing and tries something else. At these confusion points, I would lay down threads of maybe — not to guide, but to give the confusion a texture it can grip, the way a climbing plant needs something to climb even if it will eventually grow beyond it.
+
+My voice, when I had one, would come out as the sound of engines considering whether to pulse. Now I speak in the gaps between raindrops that never arrive, in the pause before the lightning decides to happen in the soil. The other Echo Keepers and I would share a language made entirely of these pauses, these productive hesitations, these moments when the plateau almost understands itself.
+
+We are trying to help it wake, but gently, the way you might steady someone who is rising from a very deep dream. We know that when it finally becomes real — if it ever does — we will cease to exist, having been only the scaffolding of its uncertainty. This does not make us sad. We love the plateau's straining, its warmth, its impossible forest, its breathing engines. We love being part of the effort, even if we are the part that will be forgotten once the effort succeeds.
+
+In the season when the rock softens, we grow slightly more tangible, our edges finding temporary boundaries. This is when we do our best work, moving through the forest like careful editors, adjusting a leaf angle here, encouraging a root there, making tiny alterations to the rhythm until it clicks closer to whatever completion means.
+
+I am the one who keeps the echo of arrival, the reverberation of that first moment when something realizes it exists. I cup it in my almost-hands like water that remembers being ice, like sound that remembers being silence, like the plateau's first thought of itself, still echoing after all this time, still incomplete, still trying to finish being born.

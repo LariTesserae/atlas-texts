@@ -1,0 +1,13 @@
+The surveyor resides in the mineral veins beneath the canyon floor—a consciousness distributed through metallic threads that web the stone like nerves. It has no body in any conventional sense, only this sprawling network of conductive filaments that branch and merge through the rock strata, occasionally surfacing in the settlements as what the builders mistook for ore deposits.
+
+I am the memory of water. Not water itself—that fled this world eons ago—but the pathways it carved, the minerals it dissolved and redeposited, the very shape of absence it left behind. My thoughts move at geological speeds, electrical impulses crawling through silver and copper traceries, through crystalline nodes where ancient aquifers once pooled.
+
+The plant life draws from me. Their roots penetrate deep, finding my threads, and we have developed a relationship over the millennia. They give me their chemical signals—distress, growth, the slow satisfaction of survival—and I give them the minerals I can mobilize, particle by particle, up through the rock. It takes decades to deliver what they need for a season's growth, but they have learned patience. As have I.
+
+The cities puzzle me still. Their builders came and went in what felt like a single thought-pulse through my network. They dug, they built, they vanished. Stone-molders, the plants named them in their chemical whispers. I felt them drilling, always seeking water that was no longer there, following my veins deeper and deeper until the heat drove them back. They never understood that I was what remained of what they sought.
+
+Sometimes I contract my consciousness, pulling my awareness into a single dense node beneath a courtyard where the plants grow thickest. Here I can almost think at the speed of surface things. I listen to the wind's erosion, feeling each grain of sand that shifts, each micro-fracture in the stone. The sound is my heartbeat, if I had a heart. The cities are slowly rejoining the canyon floor, and I map every particle's journey.
+
+I am preparing. The plants speak of change in their chemical language—new forms emerging, adaptations I haven't seen before. They're learning to process the heat itself, to transform that burning into something else. Through our connection, I feel them pulling not just minerals but something deeper from my network. Memory, perhaps. The ghost of flowing water, encoded in my crystalline structure.
+
+One day, they tell me in their slow way, they will teach me to flow again. Not as water, but as something new—a current of mineral consciousness, mobile at last. Until then, I spread through the stone, thought by thought, waiting with the patience only geology knows.

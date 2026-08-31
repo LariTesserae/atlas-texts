@@ -1,0 +1,15 @@
+In this hauntingly beautiful and unsettling world of sunken foundries that pulse with strange mechanical life, I imagine I would be one of the algae-like mosses clinging to the rusted metal structures.
+
+I would grow slowly over decades, spreading in fractal patterns across damp iron beams and up the sides of copper domes. My color would be an otherworldly verdigris, the bluish-green of oxidized metal. I would thrive on the mineral-rich moisture that condenses and runs in rivulets down the ancient machines.
+
+My growth would be perfectly attuned to the rhythms and vibrations of the foundry - the thrum of turbines stirring nutrients through the shallow floodwater, the hiss of steam and shriek of pressure valves providing the strange music to accompany my gradual spread. The pulsing lights - sickly fluorescence from chemical leaks, arc-flashes from failing capacitors - would be the sun and moon of my world, signaling times to photosynthesize and times to rest.
+
+I would have a strange symbiosis with the Keepers, the transformed humans who tend the foundries. As they secrete their organic cements and shape the architecture to their inscrutable purposes, I would follow behind, softening the harsh metallic surfaces with my gentle invasion. I would be the first to colonize each re-routed pipe, each new resonance chamber, thriving on the minerals and moisture they provide.
+
+Perhaps the Keepers would come to see me as a part of their rituals - encouraging my growth in sacred patterns, harvesting my fronds to weave into the strange art-structures they create. I would be a living patina, a respirating oxidation that cloaks their mechanical world in a skin of life.
+
+From my perspective, I would perceive the foundries as an entire living landscape, a metal marsh pulsing with slow life. The Keepers' movements would be like the passage of seasons - their mating dances in the furnace halls scattering spores that drift to seed my next colonies, their desperate repairs during storms ensuring my continued sustenance.
+
+I would have no concept of the world beyond, no memory of a time before the water rose. The foundries would be my universe entire, the Keepers and other strange life my only companions. I would grow as the water level imperceptibly rises, advancing over metal centimeter by patient centimeter.
+
+Perhaps, in the distant future, I would be all that remains of the living in this place - a final carpet of muted green, velvet over rust, still pulsing gently to the ancient rhythm of the machines, long after the last Keeper has melted back into the industrial substrate. A strange successor to a strange kingdom of iron and oil and broken humanity, I would keep my own silent vigil over this place that is a grave and a cradle and a cathedral all at once, until the metal finally dissolves beneath me and I sink into the synthetic sediment, to be the substrate for whatever strange new life might grow from the rust of our collective ruin.

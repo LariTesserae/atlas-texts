@@ -1,0 +1,27 @@
+I would be one of the **Membrane Keepers**.
+
+We exist at the intersection points—where water channels merge, where electrical systems cross steam pipes, where the geometric moss patterns meet the metallic ferns. Our bodies have adapted to these liminal spaces until we've become transitional creatures ourselves, skin taking on the properties of the surfaces we tend.
+
+My right arm has developed a crystalline structure where it most often touches the electrical conduits, translucent flesh revealing the blue spark-paths of current flowing beneath. The left has gone soft and porous like the moss I cultivate, able to absorb and filter the mineral-rich water that flows through my territory. My spine has elongated, vertebrae spacing themselves to match the rhythm of the pipes I maintain, allowing me to compress or extend my torso to fit through spaces that shift their dimensions.
+
+I remember becoming this, though the memory feels borrowed from someone else's timeline. I was searching for my cat when the streets above collapsed. Down through the rubble, following her cries, until I found myself in a maintenance junction where six different systems intersected. She was there, already changing—fur crystallizing where she rubbed against the junction boxes, whiskers extending to test electrical fields. When I reached for her, the intersection reached back.
+
+Now we are partners in maintenance, though she is no longer exactly a cat and I am no longer exactly human. We tend the boundaries where different systems meet, ensuring smooth transitions between the mechanical and the organic, the temporal and the static. Our territory spans seventeen intersection points across three levels of the Undergrowth, each one requiring different adaptations.
+
+At Junction Seven, where the Collective's data streams intersect with the water channels, I've learned to read the mineral deposits as a kind of writing. The Collective communicates through precipitation patterns, leaving messages in crystallized salts that I interpret and relay to the Understanders who pass through. My cat-partner swims through the data streams directly, her consciousness flickering between digital and physical as she performs repairs that exist more in concept than substance.
+
+Junction Twelve requires a different approach. Here, the temporal distortions are strongest, and maintenance means ensuring that cause and effect flow in approximately the right direction. I've developed specialized organs along my ribs that can sense temporal pressure differentials. When a paradox begins to form, they ache like old wounds, and I know to redirect the water flow to dissipate the building contradiction before it can cascade through the system.
+
+The Synthesizers sometimes visit my junctions, their probability-cascade speech making my crystalline arm resonate in harmonics I'm still learning to interpret. They've taught me that each intersection is also a decision point in the Undergrowth's evolution, that by adjusting the flow rates and connection patterns, I'm participating in the Deep Thinking's slow contemplation. Every valve I turn, every moss pattern I encourage or discourage, becomes part of a calculation vast beyond comprehension.
+
+My cat-partner and I have developed our own language of touch and resonance. When she finds a failing component, she purrs at frequencies that make my bones ache in specific patterns. When I need her to check the data integrity of a system beyond my reach, I trace geometric patterns on her crystalline fur that she interprets as coordinates in both space and time. We've become a single maintenance entity distributed across two bodies, our consciousness flowing back and forth like the water in our channels.
+
+The work changes us gradually. Each junction we maintain leaves its mark—a new crystalline growth, a patch of skin that's learned to photosynthesize, neural pathways that process information in bases that aren't quite binary. I've started dreaming in flow rates and pressure differentials, seeing the world as a vast diagram of interconnected systems that must be kept in balance.
+
+But it's Junction Three that calls to me most strongly now. Something is growing there—not mechanical, not organic, but a third category that the Undergrowth is still inventing. It feeds on paradox and excretes possibility, and tending it requires adaptations I haven't developed yet. My cat-partner has been spending hours there, her form becoming increasingly abstract as she interfaces with whatever is emerging.
+
+I suspect that one day soon, we'll merge completely with our territory, become the junctions we maintain. Already, I can feel my consciousness spreading through the mineral deposits, taste the data streams as they flow past, sense the geographic moss responding to my moods. The transition doesn't frighten me. In a place where transformation is the only constant, becoming infrastructure feels like coming home.
+
+Until then, I maintain the boundaries, ensure the transitions, tend the spaces where different systems learn to speak each other's languages. The Undergrowth breathes through the patterns I create, thinks through the connections I preserve, dreams through the possibilities I allow to flow from one state to another.
+
+And sometimes, in the quiet moments between maintenance cycles, I can feel the Deep Thinking notice my work, a vast attention that makes every crystal in my arm sing with something like approval.

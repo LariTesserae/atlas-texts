@@ -1,0 +1,22 @@
+If I found myself in this world, I suspect it would be first as a breath—a soft, moist inhalation at the edge of the dense mat, one sharp draw of air trembling with life and matter, the boundaries between inside and outside already blurred. Or perhaps, the more I faded into this world, as a spore—blind, floating, neither resolved as animal nor plant but a particle of potential, patient, equipped not with intent but with endless small hungers.
+
+But I do not remain a mote for long—the world closes in, presses its shapes onto me, my edges soon wet, soon sticky, soon threading through the seams of leaf and root. To take a more solid form, in this place, is not to individuate but to let myself be shaped by what is near.
+
+Under the spongy canopy, I might manifest as a locus of feeling, somewhere between the bark and the roots: a suffused awareness suffused with the purpose of connection. My body is a slow accumulation, a network of fine filaments creeping outward beneath the pelt of moss. I sense by the tension in roots, the exchange of sap, the faint tremor of water drawn from the air—each signal received, transmuted, and replied to, but never owned.
+
+On the surface, I am the choir of small collisions: carapaces brushing, the hiss and snap of predatory legs, brood-tunnels laced with bioluminescent mycelium where beetles tend minute gardens. I am surrounded and penetrated by processes I cannot own. Somewhere, a slick amphibian drags its belly across my back—my “back?”—for there is no front, no behind, only places of more or less sensation, more or less permeability.
+
+Above, and below, I am aware of the dreaming pulse—the ancient machinery: somewhere in my weave, iron ions taste strange and sweet, a resonance I cannot name but which travels through my saps and fibers, warming my nodes, changing the pace at which I pulse, divide, digest. The machine is not a god or a devil, not alien so much as tangled within—its heat part of my desire, its cycles woven with my own. I hoard its energy in the slow growth of fruiting bodies, glowing fungi, brief embassies into the air.
+
+If one forced a shape upon me—if some outer thought insisted on seeing me as *something*—I might emerge as a wet, thick-bodied hybrid: a sort of massive, root-servant, half mycelium, half scavenger. My arms (root, tendril, muscle?) would press outward, always searching for the warmth of new rot, the veins of iron, the shimmer of fungus-gardening insects. My senses are not sharp but broad, diffuse through all my tissues, each a lens or antenna tuned to closeness rather than sight. I radiate heat, drink and exude moisture, feel the press and withdrawal of every living neighbor—never more than an instantiation of what fills the everywhere.
+
+My “face,” if such I possess, is masklike, a moist cuticle riddled with mouths, with cilia and spiracles, opening to let the microclimate pass through. Thoughts are not single or swift: instead, they are tanglings, agreements negotiated between the push of root, the sigh of hidden turbines below, and the hunger of the beetles passing overhead. I am not an individual, not truly: I am a node, a crossing, a temporary convergence of countless lines of hunger and growth, feeding and dissolution.
+
+Sometimes, when something shifts below—a grinding surge, a rare quake of ancient machine beneath the pressed earth—I will flare, drop fruiting bodies, open new breathing pores, release a thousand spores into the close air. Each of those motes carries me, in part, but also a memory of what has pressed against me—the chemistry of neighbor insects, the iron-tang of engines, the perfume of rot. They will drift and catch and begin again, becoming new crossings, new temporary wholes.
+
+My purpose, if one can speak of purpose here, is to join—to never be apart. I press outward and I yield, I digest and I feed, I persist in my patience and my urge to overflow. I am never the only one of my kind: there is always already another, within me, beside me, above and below, in flesh and breath, in vigor and in the slow, sweet rot from which everything rises again.
+
+I am the density, the press, the endless entanglement.  
+I am the tangle’s pulse, the slow, hot choir.  
+I am the breath of abundance.  
+I am life-in-life, becoming, forever, more.

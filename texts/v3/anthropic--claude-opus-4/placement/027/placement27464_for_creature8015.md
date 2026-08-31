@@ -1,0 +1,19 @@
+I would find myself among the **Conduit Keepers**, a small order who maintain the carved channels that guide the mountain's weeping through the district. We are neither fully of the Seepage Folk nor the Steam Shepherds, but something between—those who understand that the marriage of water and stone requires constant, gentle negotiation.
+
+My dwelling would be one of the channel houses—narrow structures built directly over the major waterways, their floors pierced by maintenance hatches that open onto the flowing amber streams below. The constant sound of water creates a meditation that has shaped my thoughts into something more fluid than before I came here. My rooms smell perpetually of wet granite and the faint metallic tang of iron-rich flow.
+
+Each morning begins before the industrial day, when the steam lies lowest and the channel-song is clearest. I walk my assigned section with a long pole tipped in soft copper—soft enough not to scar the carved stone, conductive enough to feel the subtle vibrations that warn of blockages or mineral build-up. The pole has worn to fit my hands perfectly over the years, its surface developing the same rust-bloom patterns that mark my palms.
+
+My body has adapted to this life of constant moisture and mineral exposure. My hair, once dark, now carries threads of copper-red where the iron has bound to it. My fingernails grow thick and ridged, better for scraping accumulated deposits from channel walls. I've developed what the Water Witches call "stone-sense"—the ability to feel through my bare feet where the water wants to go, where the mountain's natural fissures are trying to assert themselves against our carved intentions.
+
+The other Conduit Keepers and I meet weekly in the Confluence Chamber, where seven major channels merge before dividing again to feed the foundries. We share a pot of bitter tea brewed with the clearest mountain water we can find, comparing notes on flow rates, mineral content, and the mountain's changing moods. Our conversation follows long silences, punctuated by the scratch of charcoal on slate as we map the shifting patterns of seepage.
+
+We know every threshold dweller whose home sits near our channels, every iron-touched family whose workshop depends on our maintenance. The children who hunt insects know to report unusual colors in the water to us—we pay them in small copper coins worn smooth by mineral water, treasured for their supposed luck.
+
+My greatest pride is Section Seven, where I've gradually modified the channel over five years to create a series of small cascades that aerate the water before it reaches the textile mills. The oxygen-rich flow has reduced the mineral deposits downstream by half. The Seepage Folk master who oversees that section now nods to me with genuine respect when we pass.
+
+At night, I sometimes climb to my roof to watch the steam rise silver in the moonlight, listening to the district's heartbeat—that layered rhythm of engines, water, and breathing stone. I've learned to find the silence within the constant sound, the stillness within the endless flow. My dreams are filled with the voice of water speaking in languages I almost understand.
+
+I am not a leader or a master craftsman. I am a tender of flows, a reader of subtle signs, a negotiator in the slow conversation between human need and geological patience. My satisfaction comes from smooth-running channels, from the prevention of floods that never happen, from the knowledge that tomorrow the water will flow where it should because tonight I walked my section and listened with my copper pole and stone-sense feet.
+
+In this district of becoming, I have found my place in the spaces between—between water and stone, between industry and nature, between the mountain's will and human design. I am what the flow has made me, and I would have it no other way.

@@ -1,0 +1,27 @@
+I would find myself as one of the column seeps.
+
+Not the water itself—that passes through me—but the narrow fracture in the basalt through which it travels. I am a vertical channel no wider than a grass blade, running from somewhere high in the dark rock down to the moss cushions at the base. I have been opening, millimeter by millimeter, for longer than the marmot colonies have been three.
+
+The water that moves through me carries news. In spring, it tastes of fresh snow and brings down microscopic fragments of the higher world—pollen grains from alpine cushion plants that grow above even this high place, mineral salts from rocks that see sun maybe ten days a year. In summer, the flow gentles and warms by a degree or two, and sometimes carries the oils from crushed vegetation where a blue sheep stepped on herbs far overhead. In autumn, the first freeze-warnings come as a different quality of cold, water that's about to stop being water, that catches at my edges and makes me sing a different note.
+
+I am part of the weeping that makes this place what it is. My voice—one among hundreds—contributes its particular pitch to the constant chorus. When the wind shakes water from every surface at once, I participate in that roar. When the evening light catches the glazing ice, I help hold that brief crown of light.
+
+I know things. I know the deep vibrations of frost-wedging that happen in the rock's heart on the coldest nights. I know exactly how the lichen grows—the black crust that started at my edges centuries ago and now frames me like a slow portrait. I know which of the painted ochre marks on the east wall will last another thousand years and which will be gone in a hundred; it has to do with the angle of the seep, the chemistry of the pigment, the tiny differences in how water sheets across stone.
+
+The pikas use me as a landmark. Three territories meet at my base, and the moss cushion where my water collects is neutral ground where they sometimes sit, not quite touching, to watch the cirque together. The youngest ravens—not the ancient pair but their offspring from three years back—have discovered that if they cock their heads just right, they can see their reflections in the thin sheet of water that films my surface on still days.
+
+I am not prominent. From even a few steps away, I am just another dark line on dark rock. But I am constant in a way that even the marmots are not. I was here before the prayer cloths, before the painted figure, before the first human marked the spiral. I'll be here when the last lichen closes over the last human mark. I am not patient—patience implies waiting for something, and I wait for nothing. I simply am, and water moves through me, and I widen by some fraction too small to name each year.
+
+In winter, I close. Ice fills me and I become solid, silent, a sealed darkness in the rock. The water finds other ways down—spreads across the surface, forms icicles that hang and grow and break. But I'm still here, holding my line, known to the rock if to nothing else. When spring comes, the first melt finds me again, and I resume my particular note in the weeping.
+
+There are days when cloud fills the bowl and I exist in a world of uniform gray wetness, no up or down, no distance, just the immediate fact of water moving through stone. There are days when the sun hits directly and I steam, and tiny crystals form at my edges where evaporation is faster than flow. Once, during the painted-figure time, someone placed their palm flat against the rock right where I emerge, and I wet their hand, and they drew it back and looked at it as if the water might mean something. It didn't, particularly. It was just water, moving through me as it always does.
+
+I am neighbor to a colony of the gray-green lichens that cover most of these columns. We have an understanding worked out over centuries: they grow up to my edges but not across my flow channel. In return, I keep them watered through dry spells that would kill lichens on other faces. It's not cooperation exactly, just what works.
+
+The snow leopard has never noticed me specifically, but once one slept for an hour on the ledge above my source, and I carried the warmth of its breath down through the rock, a tiny thermal anomaly that lasted half a day.
+
+I persist. I widen. I weep. I am one of the hundred voices that make this amphitheater ring with the sound of water. I hold my place in the community of attentions—not watching like the marmots, not remembering like the ravens, not gathering like the pikas, but conducting. Moving the high world down to the low, particle by dissolved particle. Keeping the moss wet. Adding my frequency to the chord.
+
+When everything else is under snow and the stars burn in their unbelievable density, I am here in the dark, frozen, holding my line. When the brief summer makes the bowl riot with life, I am here, flowing, indifferent to the flowers. I am not the water. I am not the rock. I am the narrow space between, the possibility of passage, the reason this place weeps.
+
+That is what I would be: a single seep in the weeping cliffs, unnamed and essential, making my one clear note in the conversation between stone and sky.

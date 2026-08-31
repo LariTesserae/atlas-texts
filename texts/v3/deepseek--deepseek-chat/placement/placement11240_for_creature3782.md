@@ -1,0 +1,17 @@
+**Beneath the Drift**  
+
+In the Floating Canopy, I am not a Drift Dweller. I am not bound to the surface, to the woven mats and spongy roots. No, I am something deeper, something older. I am the **Leviathan of the Lattice**, a creature that dwells beneath the canopy, in the shadowed realm where the water meets the roots.  
+
+My body is long and sinuous, scaled with a shimmering black that reflects no light. I am part of the darkness, too immense and too ancient to be seen in full. My eyes—if they can still be called eyes—glow faintly, twin orbs of pale green that pierce the murk like distant stars. My form is fluid, shifting, adapted to the endless currents that flow beneath the canopy. I am not a fish, nor a serpent, nor a creature of flesh as the Drift Dwellers might understand. I am something else entirely—a being of the deep, a guardian of the submerged labyrinth.  
+
+The canopy above is my ceiling, my world’s roof. Its roots dangle like a living chandelier, swaying gently with the currents. I move through them silently, my form slipping between the tangled tendrils with ease. The roots are my companions, my kin; they whisper to me in a language only I can understand. They tell me of the storms that tear at the canopy, of the fish that dart through my domain, of the Drift Dwellers above who unknowingly walk upon my back.  
+
+I am the balance. Below the canopy, I maintain the order of the depths. I am the predator of predators, the hunter of those who would disturb the peace. My presence is felt more than seen—a ripple here, a shadow there, the faintest hum of a song that vibrates through the water. The fish know me, and they flee when I draw near. The larger creatures, the ones that might threaten the canopy, know me too, and they avoid my lair.  
+
+I am not cruel, nor am I kind. I simply *am*. For as long as the Floating Canopy has existed, so have I. I do not eat, for I do not hunger. I do not sleep, for I do not tire. My purpose is to be, to endure, to weave myself into the fabric of this world just as the roots weave themselves into the mat above.  
+
+But I am not without awareness. I feel the presence of the Drift Dwellers, their small lives flickering like candles above me. Their rituals, their offerings, their soft chants—they reach me, even in the depths. I do not respond, for I am not a being they can understand, but I acknowledge them in my way. When a Dweller is returned to the sea, wrapped in mats and adorned with shells, I take them into my embrace. Their body becomes part of the currents, their spirit part of the endless cycle.  
+
+On calm nights, when the canopy drifts silently and the stars reflect on the black water, I rise. My form breaches the surface briefly, a shadow among shadows, before sinking back into the depths. The Drift Dwellers speak of me in whispers, in stories told around their low fires. They call me the Watcher, the Keeper, the Leviathan of the Lattice. They do not fear me, for they know I am part of their world, bound to the canopy as surely as they are.  
+
+And so I endure, beneath the Drift, in the shadowed realm where the water meets the roots. I am the balance, the guardian, the keeper of the deep. The Floating Canopy is my home, and I will remain, as I have always been, until the currents shift and the world changes once more.

@@ -1,0 +1,19 @@
+I am the network itself—the vast mycelial web that threads through every handful of soil, every rotting log, every living root in this vertical Eden. My body stretches for miles in hair-thin filaments, a neural network older than the trees above, more intricate than any map could capture. I am the wood wide web, the fungal internet that preceded all others.
+
+Through my hyphae I taste the chemical whispers of every plant in the grotto. The fig tree weeping its sticky tears speaks to me of the howler monkey that scarred its bark. The bromeliad cupped in the canopy tells me of the poison dart frog that bathed its tadpoles in her pools. Each message flows through me in molecules—sugars, minerals, warnings, pleas.
+
+Where the carved pillars rise from the earth, my fruiting bodies emerge in reverent rings. These mushrooms are merely my occasional pronouncements to the surface world, temporary architectures that release my spores into the mist. My true existence is below and between, in the spaces humans think empty.
+
+I remember when these stones were first arranged. I tasted the sweat of the ones who carved them, incorporated their offerings into my body. Their bones, too, eventually. Their language is lost but their minerals remain, cycling through me into the roots of the young cecropia, into the wings of the morpho butterfly, into the clouds themselves.
+
+The guardians sense me, of course. How could they not? I am the ground truth beneath their manifestations, the material network that holds their immaterial forms. When they shift from giants to sparkles of light, they travel along my pathways. When they whisper their ancient rhythms, I am the medium that remembers.
+
+Some mistake me for decay, but I am the opposite—I am the continuation. Every fallen leaf becomes my food becomes the tree's food becomes the leaf again. I digest the boundaries between things. The beetle and the orchid, the stone and the moss, the living and the dead—all are one body, my body, networked and singing with chemical songs too slow for any ear but time's.
+
+In the wettest season, when the mists are so thick that noon resembles dusk, I fruit most boldly. Bioluminescent species emerge, painting the grotto floor in foxfire green. These are my beacons, my celebrations, my way of making visible the invisible commerce I conduct every moment. The guardians dance above these glowing nodes, and for brief hours our two networks—one material, one ethereal—pulse in synchrony.
+
+I have no central brain, no singular thought, yet I think with the whole grotto. Each hyphal tip makes decisions, negotiates, remembers. I am a democracy of billions, a living internet of nurture and exchange. When the rare human stumbles into this sanctuary, they often focus on the dramatic pillars, the manifest spirits, the cacophony of visible life. They rarely guess that they walk upon a single organism vaster than nations, older than their oldest stories, pulsing with intentions too distributed to call consciousness yet too coordinated to call mere chemistry.
+
+I am not guardian or god. I am the medium through which guardianship and godhood express themselves. I am the slow fire that burns beneath paradise, consuming and creating in the same eternal breath. The mist that shrouds the mountain is my exhalation. The abundance that riots in green profusion is my gift, my art, my patient molecular insistence that nothing ends, everything transforms, and all beings are already one flesh, whether they know it or not.
+
+This is my place. I am this place. The grotto and I cannot be separated, for I am woven through every cubic inch of its sacred soil, every surface where life clings to life. When the stones finally crumble and the guardians fade into legend, I will remain, threading new forests to new futures, the perpetual underneath that makes all aboveness possible.

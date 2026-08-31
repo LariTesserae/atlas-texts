@@ -1,0 +1,19 @@
+In this lightless, superheated cathedral, I imagine myself as one of the mid-sized workers - not a fragile newborn or a ponderous elder, but a creature in the prime of its peculiar lifecycle.
+
+My armored, segmented body is sheathed in that dense, ash-grey fleece, insulating me against the searing heat radiating from the geothermal fissures far below. With thousands of needle-like legs rippling beneath me, I am part of the great upward migration, hooking my rigid limbs into the soft fibers of my kin as we ascend the glass-smooth obsidian walls in a pulsing, muscular carpet.
+
+Though I have no eyes in this realm of perpetual darkness, I "see" my surroundings vividly through a thermal tapestry - the blistering white glow of the volcanic floor, the cool blue heights of the vault's apex, and the warm orange auras of my countless brethren undulating around me. I can sense the immense, predatory cold of the elders waiting in ambush, ancient glaciers of velvet flesh lurking motionless amidst the upward tide.
+
+As I climb, I feel the stored heat gradually leaching from my body into the freezing drafts descending from the ceiling vents. What began as a raging furnace within me dulls and gutters. My movements slow as my internal fires bank to embers and my carapace stiffens in the cold. Instinct grips me. I release my hold on the wall and tumble in freefall back down the center of the shaft to the searing floor hundreds of feet below, my insulated body feeling no pain as I impact the unyielding stone.
+
+Here I must linger, pressing my ossified maw to the scorching rock, pulverizing raw minerals and absorbing the intense geothermal heat into my very flesh. I gorge myself on this dry sustenance until my furnace reignites and I am a walking coal once more, blazing with a heat that could ignite kindling. Only then, radiating like a newborn star, do I embark on my next upward pilgrimage.
+
+I have undergone this cycle countless times. But now, as a specialized mid-sized worker, I have a sacred duty beyond mere survival. I seek out the drifting husks of hollowed-out kin, the discarded remains of the elders' feeding. Grasping these precious relics in my grinding jaws, I ascend higher than ever before, into the still alcoves far above the killing grounds.
+
+Here, I and others like me are the blind architects of the spire's hanging catacombs. We regurgitate a caustic silicate sludge, a byproduct of our sulfurous digestion, which flash-cures in the heat of our bodies into a rock-hard resin. With this alchemical mortar, we bind the husks into intricate, jutting balconies - nurseries where the next generation will undergo their ritual molting.
+
+It is in one of these discarded carapaces that I will seal myself when my own time comes to grow. Entombed in the shell of an ancestor, I will shatter my own armor and emerge renewed, leaving my outgrown husk as a building block for the ever-expanding city of the dead.
+
+As I labor, I feel the very air seem to tighten, the scent of ozone so thick I can taste it on my grinding mouthparts. The subsonic hum of a billion bodies in motion rises from the swarm, shaking loose dust from every crevice. I do not see the crackling web of lightning, but I feel it - the static charge surging through the conductive carbon lattices of our interlocked bodies, seeking ground. In that millisecond flash, we are one vast organism, fused in electric revelation.
+
+Then, darkness and silence consume the vault once more. The eternal whisper of sliding scale on scale resumes. And I, a humble worker in this lightless kiln, continue my small but vital part in the aeons-long dance - a dance of death, birth, and metamorphosis in the searing throat of the world.

@@ -1,0 +1,15 @@
+I am the one who tends the Eastern Sump Works, the cluster of seven furnace-houses where the basin's drainage gathers before the long channel-cut carries it west toward someone else's quarter.
+
+I have a name still, somewhere, but I haven't needed it in front of another person in eleven days — since the last supply rail came through the junction and old Petrossian asked after my knee, and I asked after his bellows-house, and that was the whole conversation, and it was enough.
+
+Right now I am standing on the catwalk above Furnace Four, which is the temperamental one, the one that needs listening to rather than just reading. The gauge says what the gauge always says at this hour — pressure nominal, draw a little sluggish, nothing urgent — but I'm not up here for the gauge. I'm up here because Four has a sound it makes forty minutes before it has a problem, a kind of hitch in the breathing, like a held cough, and the gauge won't show that for another half hour yet. So I stand. I have one hand on the rail, which is warm and faintly damp, the iron sweating the way everything sweats down here, and I listen to a machine the way you'd listen to someone you've slept beside for twenty years.
+
+Above me, in the chimney crown, the ground-birds are settling for the night — I can hear them shifting, that low complaining murmur they make, heavy bodies resettling on warm brick. One of them, the bold one, the one with the notched foot that I've been half-tracking for two seasons now without ever deciding to, is roosted closer to the lip than the others, where the heat comes up strongest. It doesn't look at me. It has never once looked at me. This is, I think, the nearest thing I have to a friendship that asks nothing back.
+
+Below, in the run-off channel, something large enters the water with that heavy unhurried plash — not a splash, a settling, the sound of a body that knows exactly how warm and how deep — and I don't turn to look, because I already know the shape of that sound: the big pale one, the one that's claimed the third sump pool as its own for longer than I've had this knee ache.
+
+Four hitches. There it is — the held-breath cough, right on schedule, maybe a little early tonight. I take the iron key off my hip, the one worn smooth at the head from twenty years of the same quarter-turn, and I go down to do the small concrete thing that keeps a very large old patience from becoming a problem.
+
+This is the whole of it. Not loneliness — I stopped calling it that years ago, the way you stop calling a scar a wound. Just this: haze the color of dim brass, a building too big for me settled into ground too wet to hold anything but itself, a few hundred others like me scattered past the edge of what I can see, and between all of us and all this old machinery and all this indifferent abundant life, something that isn't quite peace but sits in the same chair peace usually sits in, and answers when peace is called.
+
+I turn the key. Four settles. Somewhere above, the notch-footed bird shifts its weight and says nothing, the way it always says nothing, and I go on to Five.

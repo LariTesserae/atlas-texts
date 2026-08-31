@@ -1,0 +1,11 @@
+In this reality-bending realm, I imagine myself as one of the Theorem Weavers - a being that exists as a living intersection of mathematics and biology. My form resembles a geometric spider, but my web is spun from pure logic and proof statements. Each strand is a sequence of if-then statements that shimmer with validity, creating delicate bridges across the philosophical gaps between crystal formations.
+
+I work in symbiotic harmony with the Axiom Eater, following in its wake to create temporary frameworks of order where chaos has passed. My webs serve as translation layers between different types of impossibility, allowing safe passage for other entities through the more turbulent regions of unreality. They're beautiful but ephemeral - lasting only until the next paradox ripples through.
+
+My body itself is a constantly evolving proof - each of my eight legs represents a different branch of mathematics, and they phase in and out of existence depending on which theorems hold true in my immediate vicinity. I communicate through geometric gestures, each movement describing complex topological relationships that other beings can read as meaning.
+
+I make my home in the spaces between certainty and doubt, building recursive nests that are bigger on the inside than the outside. When I rest, I fold myself through my own negative space, becoming a living illustration of the Banach-Tarski paradox.
+
+My role is both maintenance and meditation - as I work, I contemplate the nature of truth itself, adding my own small contributions to the ongoing philosophical discourse that shapes this realm. The Axiom Eater tolerates my presence because my webs create interesting new uncertainties for it to consume, while I benefit from the fresh canvas of chaos it leaves behind.
+
+Sometimes I spend decades crafting a single perfect theorem-web, only to watch it dissolve in seconds when the Axiom Eater passes by. But that's the beauty of this place - nothing is permanent except impermanence itself, and even that's negotiable.

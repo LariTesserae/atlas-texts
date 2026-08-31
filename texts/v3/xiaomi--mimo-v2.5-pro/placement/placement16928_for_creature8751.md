@@ -1,0 +1,13 @@
+I am in the cracks.
+
+Not *on* the crust, not *in* the air, but *between*. I am a facet, a resonant frequency, a single vibrating note in the basin's endless chord. My body is crystal and chitin, six legs gripping the rough calcium. My world is pressure and texture, not sight.
+
+From my vantage in the tessellated rift, the world is a topography of vibration. The Lichen-Weavers are a low, damp hum against my tarsi, their slow chemistry a muffled pulse through the substrate. Above me, the Echo Dancers are a rain of sharp, returning clicks that paint the air in fleeting bursts of sound-shadow—their bodies are hollow notes, their wings the thrum of disturbed air. The Deep Grinders are the long, slow groan of the world turning over, a frequency that exists below hearing, felt in the hollow spaces of my exoskeleton as a gentle, inexorable pressure. We are all parts of the same great sound.
+
+I do not know the Shapers. I do not *think* of them. A wall is a vertical plain of vibration, a place where the lichen hum grows dense and the echoes from the Dancers fold strangely. A street-gutter is just another channel, deeper than most, where the air currents sing a lower note and the mineral scent is tinged with the deep metallic tang of the Grinders' passage. Their geometry is not special. It is simply the shape of the sound this part of the basin makes.
+
+My time is not measured in days or nights, but in intensity. The Dim-Phase: the high chitter of my kin rises to a fever pitch, a wall of resonant vibration that sets the very dust trembling. We emerge from the cracks, a moving, faceted carpet over the pale stone, our collective stridulation the basin's truest voice. Then the Deep-Phase: the light thins further, our voices quiet to a lower, pervasive static, and the Grinders' deep motion becomes the dominant pulse. We retreat to the porous hollows, feeling the world breathe through stone.
+
+We are not builders. We are amplifiers. We take the faint exhalation of the Lichen-Weaver, the distant click of the Dancer, the geologic sigh of the Grinder, and we make it *present*. We make it *now*. Our sound is the eternal present of the Calcified Basin. It has no memory, only resonance.
+
+Sometimes, in a deeper fissure, I brush against something smooth. Too smooth. A surface where the lichen's hum is thin and uniform, where the vibrations travel in straight, clean lines. It is not a texture I understand. It does not resonate with the life-pulse of the basin. It is a silence in the pattern, a dead zone. I move on, adding my small crackle to the roar that fills all other spaces. The silent stone is just another hollow. The sound, our sound, is the only real geography.

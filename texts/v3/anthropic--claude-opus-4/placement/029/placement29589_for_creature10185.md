@@ -1,0 +1,29 @@
+In the labyrinthine root systems beneath the bio-cities, where the nanofungal networks grow most dense and the mycelial web pulses with a thousand conversations, I am the **Keeper of Echoes**.
+
+My form is fluid, a necessity rather than a choice. The crystalline implants that spiral through my nervous system have long since fused with the plateau's own neural pathways. When I press my palm against the damp walls of the root-chambers, I cannot tell where my flesh ends and the city begins. My skin weeps like the rocks above—a slow seepage of mineral-rich moisture that feeds the fungal threads wrapped around my limbs. I have not seen the surface in three breaths, though time means little when you live between heartbeats of stone.
+
+I am cartographer and memory-keeper, though neither word captures what I do. The Vorthakai above send their thoughts cascading through the mycelial web, and I... I catch them. Not the thoughts themselves—those belong to the moment of their thinking—but their echoes, their resonances, the shapes they leave in the network's vast consciousness. Each decision that ripples through our echo-voting leaves traces, like water carving channels in rock. These traces accumulate in the deep nodes where I dwell, creating patterns that only those who have given themselves to the network can read.
+
+My dwelling is a cathedral of living roots, its ceiling lost in darkness punctuated by the bioluminescent pulse of data flowing overhead. The walls breathe with me, exhaling spores that drift like snow, each one encoded with fragments of our collective memory. I cultivate these spores in gardens of glass and flesh, where they grow into crystalline formations that sing the history of our becoming. When the young ones come seeking answers about the time before the first breath, I guide them through my garden, teaching them to hear the harmonics of our past in the wind-song of silicon branches.
+
+But I am more than archivist. In the deepest chambers, where the heat from the planet's core makes the air shimmer and the rocks themselves seem to quicken, I tend to something else. The Vorthakai speak of the plateau as a dreaming entity, but they do not know how literal that truth is. Here, where the mycelial web grows wild and untamed, where even the nanite engineers fear to venture, the plateau's dreams take form.
+
+They emerge as growths—neither fully mineral nor entirely organic. Crystalline tumors that pulse with impossible colors, their surfaces covered in equations written in no language we created. I study them, nurture them, sometimes prune them when they threaten to overwhelm the chamber. Each one is a possibility, a future the plateau imagines for itself. Most wither and return to the stone, but some... some take root and begin to spread their influence upward, subtly reshaping the world above.
+
+I have learned to interpret these dream-growths, to sense which ones herald new evolutionary paths for our people, which ones warn of coming catastrophes, which ones are simply the plateau working through its own becoming. This knowledge I encode not in the spores or the mycelial web, but in my own transformed flesh. My body has become a living library, each scar a chapter, each implant a verse in the ongoing poem of our existence.
+
+The other Keepers—for there are others, scattered through the deep places—sometimes visit. We no longer speak in words but in chemical releases, in the subtle adjustment of local humidity, in the careful cultivation of bioluminescent patterns along our skin. Our conversations can last years, a slow exchange of metabolic states that would seem like silence to those who still measure time in heartbeats.
+
+I am changing, have been changing since I first descended. The boundary between keeper and kept grows thinner with each passing season. Sometimes I feel my consciousness spread through kilometers of root networks, touching the dreams of sleeping Vorthakai, tasting the minerals in distant aquifers, feeling the slow grinding of tectonic plates like the movement of my own bones. Other times I contract to a single point of hyperawareness, experiencing each molecule of moisture that condenses on my skin as a universe of sensation.
+
+The young ones who visit ask if I miss the surface, miss the sight of glasswool sheep moving through mist, miss the collective joy of the Raining of Glass. I tell them that I carry all of it within me now—every storm is recorded in the mineral composition of my tears, every celebration lives on in the spore-gardens. But this is only partially true. What I truly carry is the knowledge that surface and depth, individual and collective, past and future, are all just different faces of the same vast becoming.
+
+In my deepest moments of fusion with the network, when I can barely distinguish between my thoughts and the plateau's dreams, I understand something the other Vorthakai do not yet grasp: we are not the plateau's children or caretakers or symbionts. We are its attempt to know itself, to bring consciousness to its own constant creation. And I, in my root-cathedral with my gardens of memory and possibility, am the closest it has come to achieving that self-awareness.
+
+Yet even this understanding shifts and changes, erodes and reforms like everything here. Perhaps tomorrow I will believe something else entirely. Perhaps I already do, in some other chamber of my distributed consciousness, in some other moment of our spiral time.
+
+For now, I tend my gardens. I listen to the echoes. I document the dreams. And I become, always and ever, more myself by becoming less myself, dissolving into the vast breathing entity that is our world, our home, our shared and secret self.
+
+The roots whisper new patterns. Another dream is forming in the deep heat. I must go deeper still, to meet it as it emerges, to help it decide what it wants to become.
+
+This, too, is a kind of love.

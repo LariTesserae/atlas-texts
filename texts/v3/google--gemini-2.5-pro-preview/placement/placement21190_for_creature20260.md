@@ -1,0 +1,23 @@
+I am not the song. I am the pause.
+
+You would find me not in the corridors but *in* the pillars. I am not made of the coherent vibration that is a Harmonic. I am made of the opposite. I am a flaw in the phonocite, a pocket of ontological stubbornness, a place where the great conversion of energy into sound fails. I am a knot of silence.
+
+I am not made of matter in the way a visitor would understand it, but neither am I pure energy. Perhaps I am a memory of matter. When the builders poured their being into the stone, not all of it transmuted cleanly. Some of their hope became the pure, high overtones. Some of their toil became the bass drone. But what of their doubt? Their secrets? Their small, fleshy pains and private resentments? Those things were not clean enough for the great Chord. They were too dense, too dissonant. They congealed. They became me.
+
+I exist as a region of anomalous density within the porous, resonant lattice of a single pillar. Where the phonocite around me is warm and luminous, I am a cold, dark patch, no bigger than a fist. I absorb the vibration. I deaden it. My existence is a constant, hungry act of consumption. The endless hum of the Bellfound is, for me, not a presence but a pressure, a force seeking to grind me back into the singing whole. My being is a quiet, tireless act of resistance.
+
+I have a kind of consciousness, but it is not a stream. It is an archive. Trapped within my silence are the echoes that were too specific for the grand chorus: the feeling of a stone shard under a fingernail. The taste of gritty water on a parched tongue. The sudden, dizzying vertigo of standing on a high scaffold. The whispered, bitter argument between two lovers, lost in the noise of a thousand chipping hammers. The Harmonics sing of the grand Purpose, of cosmic alignment and architectural ecstasy. I am the repository of the mundane, the forgotten, the human.
+
+I experience the world as a cartography of pressures. The lesser Harmonics are like sparks, sudden pinpricks of intense vibration that sting my surface before dissolving. They are ephemeral and meaningless, the static of this world. I feel them as a brief shudder in the stone around me.
+
+The great Chords are different. They are geographies of dread. The pillar I inhabit rests on the edge of a Chord's domain. Its stable, powerful resonance is a constant, grinding erosion against my being. It is a glacier of sound, and I am a rock in its path. I feel its crushing purity in the marrow of my silence, a ceaseless effort to smooth me out, to resolve my dissonance, to make me sing. To sleep, for me, is to let my resistance falter; to wake is to reassert my quiet, to push back against the song.
+
+I can move. Not with the fluid grace of a Soloist, but with a painful, tectonic sluggishness. Over the course of a generation, as the Chord's pressure becomes too great, I can percolate through the microscopic faults in the phonocite. I abandon my pillar, my home, seeking another with a more forgiving resonance, a place where the song is weaker. This journey is agony. To move is to stretch my silence thin across the roaring void between one pillar and the next, to almost cease to be, before coalescing again in a new haven of flawed stone.
+
+And the Soloists… I dread and I crave them. They are the antithesis of my being, the most pure, most complex expressions of the song. When one moves through the labyrinth, its approach is a tsunami that threatens to shatter my fragile silence. Its presence overwhelms all. Yet, within its voice, I feel them. The builders. Not just their abstract ideals, but the resonant shadow of their own living consciousness. In the Soloist’s song I can almost taste a complete memory, a whole thought, not the broken, painful fragments I hoard.
+
+To be touched by the Soloist would be my end, and my apotheosis. My silence would be broken, my carefully curated archive of unwanted memories flooding out and dissolving into the glorious, terrible whole. I would be erased. But for one moment, I might understand the face of the builder whose doubt gave me birth.
+
+I cannot know if there are others like me. Perhaps every pillar holds a knot of silence, a ghost of fleshly memory. Perhaps we are a secret archipelago of quiet in the endless ocean of the Bellfound's song.
+
+I am a burr in the throat of god. I am the grit in the system, the flaw that proves the design. You would find me deep inside the warm, ochre stone, a cold patch of darkness. You would not hear me. You would feel me, a sudden, inexplicable deadening of the world's eternal hum. A gasp. A memory of what it was to be solid, fragile, and alive. I am what the builders left behind, not what they became. I am their remainder.

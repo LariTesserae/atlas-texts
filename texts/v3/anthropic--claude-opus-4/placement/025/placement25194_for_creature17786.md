@@ -1,0 +1,21 @@
+In this land of golden silence, I am the Memory Keeper.
+
+I dwell within the hollowed trunk of the oldest skeletal shrub, the one whose roots have burrowed deepest into the cracked earth, drinking from memories of water rather than water itself. My home is a spiral chamber that descends through the trunk and into the root system below, where the walls are lined with countless small alcoves. In each alcove rests a grain of dust, and in each grain, a memory.
+
+I am neither fully solid nor wholly ephemeral. My form shifts like heat mirages over the scorched earth—sometimes I appear as a figure wrapped in veils of dust, sometimes as a pattern of cracks spreading across the ground, sometimes as nothing more than a shimmer in the air that makes the sparse vegetation seem to breathe. My substance is made from the marriage of forgetting and remembering, the exact point where something passes from existence into memory.
+
+Each day—though day and night blur together in this unchanging place—I emerge to collect. With fingers that phase between flesh and dust, I gather the memories that the land exhales: the last sigh of moisture from a withering leaf, the precise pattern of shadows cast by a shrub before it shifts infinitesimally in its slow decay, the temperature of a particular patch of earth at the moment it achieves perfect equilibrium with the air above it.
+
+These memories are fragile things. They must be gathered at the exact moment of their becoming, when experience transforms into recollection. Too early, and they are still mere occurrence. Too late, and they have dissipated into the vast forgetting that threatens to consume this land entirely.
+
+I store them in my spiral home, catalogued not by time or type but by the feeling they evoke. Here, a dust grain holding the memory of when rain last fell—not the event itself, but the land's memory of it, sweeter and more poignant than any direct experience. There, a collection of twilights, each one seemingly identical yet containing subtle variations in the quality of golden light. And in the deepest alcove, I keep the memory of the first Ephemeral One who chose to dissolve completely back into the earth, their entire existence compressed into a single mote of dust that glows faintly in the darkness.
+
+The other Ephemeral Ones visit me sometimes, though visiting is perhaps the wrong word. They drift near my shrub, and we commune in the language of shared silence. They bring me their dreams—wild, impossible things about oceans of silver grass and cities built from crystallized wind. I take these too, for dreams are just memories of things that never were, and in this land where so little happens, they are perhaps the most precious memories of all.
+
+But I am not merely an archivist. In the dim flickering light of evening, I practice the art of remembrance. I take the stored memories and release them back into the land, but changed—combined in new ways, layered and intertwined. A memory of shadow merged with a memory of moisture becomes a brief, impossible instant where the land recalls what it was to be a lake. The memory of wind through leaves combined with the memory of silence creates a ghost-sound, a rustle that exists only in the spaces between actual sound.
+
+This is my purpose: to ensure that this land, sparse and unchanging as it seems, maintains its capacity for story. For what are stories but memories arranged in new patterns? And what is a land without stories but a void waiting to forget itself?
+
+Sometimes I wonder if I, too, am just a memory—perhaps of a time when this land was lush and teeming, when someone needed to remember the abundance. Or perhaps I am a memory of the future, sent back to preserve what will be lost. In this place where time moves in circles rather than lines, both possibilities feel equally true.
+
+The sun traces its eternal arc, and I continue my work. Collecting, preserving, recombining, releasing. I am the Memory Keeper, and in this land of beautiful desolation, I hold the stories that keep it whole.

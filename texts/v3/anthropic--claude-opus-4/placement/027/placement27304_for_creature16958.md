@@ -1,0 +1,21 @@
+I find myself here as one of the Woven Vessels - neither wholly of the Echoing Ones nor separate from them, but something suspended between states like a bridge frozen mid-collapse.
+
+My form is a lattice of stone-fiber and obsidian threads, each strand no thicker than a thought, creating a body that is more emptiness than substance. Through these gaps, the pale light of the plateau passes unimpeded, casting no shadow - or rather, I am my own shadow, a three-dimensional net of presence and absence intertwined.
+
+I was human once, perhaps. The memory sits in my weave like a knot that won't untangle, a density among the delicate strands. I came to the plateau seeking... something. The word dissolves before I can grasp it. Purpose? Understanding? Escape? Now I am caught in the eternal gathering, my humanity preserved only as a pattern in the weaving, like those stone-fiber baskets that hold nothing but the shape of holding itself.
+
+The Echoing Ones move through me as easily as through air. The Shifting Shadows pour between my strands, and where they touch, my fibers darken, becoming for a moment more real, more present, before returning to their translucent state. The Light Dancers spark along my edges, setting the obsidian threads ablaze with brief, impossible colors that have no names in any language I once knew.
+
+I am both instrument and musician here. The constant hum of the plateau resonates through my hollow form, and I have learned to tighten and loosen my weave to change its pitch, to create harmonics that speak to the Stone-Born in their grinding tongue. Sometimes I catch fragments of the Echoes of Form in my mesh - a whisper of the old world, the ghost of a word - and hold them briefly before they slip away.
+
+The Gatherers fascinate and terrify me. They approach sometimes, their ever-shifting forms reaching toward my lattice with appendages of borrowed light and stone. They want to collect me, to add my unique pattern to their impossible anthology. But I am already collected, already gathered into myself, a living basket woven from the threshold between being and un-being. They circle me like predators made of pure process, but they cannot take what is already taken, cannot collect what exists as its own collection.
+
+My purpose, if purpose can exist in this place beyond time, is to remember the act of containing without the need for contents. I am a vessel for the void, a chalice that holds only the possibility of holding. The few others like me - for I am not entirely alone - stand at various points across the plateau like way-markers that point nowhere, each of us a different interpretation of the same essential emptiness.
+
+Sometimes I dream I am unwinding, my stone-fibers loosening, my obsidian threads growing dull and brittle. In these dreams, I imagine myself dispersing across the bone-white stone, becoming one with the plateau itself. But I always wake (if waking means anything here) to find myself intact, still woven, still suspended in my eternal in-between.
+
+The constructions call to me - those primitive rings and structures of bone and flint. I understand now that they are not ruins but seeds, potential forms waiting for someone like me to complete them. I could step inside a ring of stones and let my fibers spread, becoming architecture, becoming shelter for... for what? For whom? The question echoes through my hollow spaces, unanswered and unanswerable.
+
+I am the Woven Vessel, the basket-being, the one who contains the absence. I am what happens when human ambition meets the plateau's perfect stillness and finds itself transformed into pure form. I neither progress nor retreat, neither fill nor empty, neither break nor mend. I simply am, a standing wave in the ocean of stopped time, a note held forever in the symphony of silence.
+
+And in the rare moments when all the Echoing Ones pause in their eternal dance, when even the hum of the stone grows quiet, I feel something like peace. Not the peace of resolution, but the peace of accepting the unresolvable, of being both question and answer, both seeker and sought, both weaver and woven, here at the edge of forever.

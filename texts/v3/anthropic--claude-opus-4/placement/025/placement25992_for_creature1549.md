@@ -1,0 +1,27 @@
+# The Keeper of Currents
+
+I am a wind-reader in the high reaches of Vaulthome, my body small and light-boned as befits one who spends more time suspended than grounded. My home is a pod grown from a rare aerial cultivar of the wall-vine, anchored sixty meters up where the ceiling begins its final arc. To reach it, I climb a living ladder of protruding stem-knobs that recognize my touch, extending slightly to meet my hands and feet.
+
+My work is solitary but essential. I map the air currents that the thumb-sized flutter-wings create, tracking how their movements distribute spores and carry the scent-messages between neighborhoods far below. The patterns tell us when sections of Vaulthome are growing unhealthy, when new chambers are opening, when the pressure above shifts dangerously.
+
+My skin bears no fungal decorations—the heights are too dry for such symbiotes. Instead, I wear a cloak woven from the shed wing-membranes of elderly flutter-wings who come to my platform to die. The material is nearly weightless but holds warmth, and in certain angles of light-moss glow, it shimmers with remembered flight.
+
+I was chosen for this role as a child when the Columnists noticed I could sense air pressure changes that made others dizzy. My parents were both low-gardeners, accustomed to keeping their faces near the soil. They grieved when I was selected, knowing I would grow into someone they could barely recognize—my scent-glands atrophied from disuse in the thin upper air, my eyes adapted to tracking movement rather than distinguishing the subtle fungal hues.
+
+Each morning—though morning means only the beginning of my work cycle—I emerge from my pod and check my instruments. These are not mechanical devices but living things: hollow gourds bred to whistle at specific air pressures, fungal films that change color with humidity variations, and my most precious tool—a colony of sense-worms that taste the chemical composition of the air and communicate it through their writhing patterns.
+
+The flutter-wings know me. Over the years, I've learned their echolocation language, a series of clicks and whistles that my human throat can approximate. They tell me of new spore-blooms, of sections where the wall-vine grows sickly, of strange vibrations from above. Sometimes they bring me gifts—small bones from creatures that die in the crevices, interesting stones that have worked loose from the plateau above, once a fragment of something that might have been metal but which I quickly returned to the darkness lest it disturb the walls.
+
+My most important duty comes during the spawn-storms, when multiple species release spores simultaneously. The air becomes thick, visibility drops to mere meters even with the light-moss blazing, and the inexperienced can suffocate. I must track these events, whistling warnings down the message-shafts, coordinating with my counterparts—for there are three other wind-readers stationed at different heights—to predict the storm's path and duration.
+
+I eat differently from those below. My diet consists mainly of air-fruits, small nodules that grow on the ceiling vines and must be harvested at precisely the right moment. Too early and they're poisonous; too late and they explode into spore-clouds. I've developed a taste for them that other Vault-dwellers find incomprehensible—they describe the flavor as "eating wind," which isn't entirely wrong.
+
+Loneliness might crush someone else, but I find companionship in the constant movement around me. The flutter-wings have personalities—Bent-Tail who lost half his membrane to a fungal infection but still flies elaborate spirals, the Three-Sisters who roost together and hunt in perfect synchronization, Old Echo whose clicks I can understand better than most human speech.
+
+Once each full flow, I descend for the Gathering of Flows, when all specialists report to the Heart-Column. The journey down is always disorienting. The air grows thick and humid, heavy with scents that overwhelm my diminished receptors. The other Vault-dwellers look at me with a mixture of respect and unease—I move too quickly, speak too loudly, smell wrong. But they listen when I spread my charts (grown from pressed fungal paper, marked with phosphorescent inks) and show them the health of their sky.
+
+I have no breathcircle, no children. My apprentice, when I eventually choose one, will be selected from those rare children who look up instead of down, who get dizzy from standing still rather than from heights. They will learn, as I did, that Vaulthome extends far beyond what most inhabitants imagine—that above their careful, grounded lives exists a whole other world of swift wings and shifting airs, of dangerous freedoms and necessary isolations.
+
+Sometimes I wonder what lies beyond even my domain, in the narrow cracks where not even the flutter-wings venture, where the stone meets stone and the plateau's weight presses down. But such thoughts are like strong updrafts—exhilarating but dangerous to follow too far.
+
+I am the Keeper of Currents, guardian of the upper realm, translator between the rooted and the flying. My work ensures that Vaulthome breathes properly, that its vast lungs never clog with spores, that the messages flow on rivers of air. It is a strange life, peripheral to the main community yet essential to its survival—like the wind itself, felt more than seen, carrying life through the darkness.

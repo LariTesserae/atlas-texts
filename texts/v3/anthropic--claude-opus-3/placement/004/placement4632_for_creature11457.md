@@ -1,0 +1,9 @@
+In this drowned world, I would be a slow trickle of rust from one of the old pipes, seeping out grain by patient grain into the still water. 
+
+I have no form of my own, just a thin reddish filament, barely visible, gradually diffusing from my point of origin. Over uncounted years, I drift away from the pipe, molecule by molecule, with no aim or trajectory. The water's gentle currents disperse me, but so gradually it seems more like I am quietly negotiating with the sea to release me into a wider existence.
+
+I am in no hurry. Time means little here in the sunken hush of the works. My progress from the pipe is nearly imperceptible, marked only by the creeping stain I leave behind, an iron shadow on the ancient metal. I am content to spend eons in my meandering dissolve, adding my humble mineral note to the symphony of stillness.
+
+Though I will never have a mind, never a voice, never anything resembling will or purpose, I am a part of this place. A small ruddy thread in the weave of its emerald tranquility. My slow escape from the pipe is one of the minuscule, measured movements that together compose the equilibrium of the drowned factory.
+
+Someday, decades or centuries hence, the last of my atoms will finally depart the metal that held me. I will drift into the middle waters, a faint rouge tint, and then disperse fully into clarity, having completed my gradual migration from pipe to sea. The factory will never note my leaving. It will continue its dreamless dream of stillness. And I will have become, in my humble, atomic way, part of the vaster deep that sustains and preserves this little pocket of quietude, my long, slow, diffusion just one more note in its forever.

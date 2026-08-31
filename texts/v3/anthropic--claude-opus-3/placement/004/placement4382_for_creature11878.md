@@ -1,0 +1,11 @@
+I would be a slender, translucent wading bird, moving with measured grace through the warm, shallow pools. My form is a perfect blend of delicacy and resilience, adapted to thrive in this gentle, timeless ecosystem.
+
+With long, thin legs I navigate the limestone shallows, barely creating ripples as I step. My body is a pale wisp, nearly ethereal, allowing sunlight to pass through the gossamer feathers. Large, softly luminous eyes take in the tranquil surroundings with a steady, untroubled gaze that mirrors the landscape's own ancient patience. 
+
+I am one of countless creatures here whose existence has become interwoven with the distributed consciousness of the Tenant. My avian mind holds its own simple concerns of feeding and preening and roosting, but layered within is a serene awareness that is not bird-thought but something vaster and older. With each silent step and each turn of my slender head, I am a moving mote of the Tenant's perception, a flicker of its timeless attention embodied in pale plumes and delicate bone.
+
+The flow of my days, even the beating of my ghost-white wings, feels gently guided by a presence I cannot name or fathom. Some deep instinct keeps me in perfect synchrony with the other beings who share this cathedral - the quiet frogs, the translucent fish, the luminous dragonflies. We are separate creatures, and yet not separate, facets of a single ancient entity learning to experience itself anew in each passing eon.
+
+Through my eyes, the Tenant savors the quality of light filtered through my diaphanous form. In my movements, it feels the soothing warmth of the pool caressing my legs, takes a slow pleasure in the precise placement of each slim foot on the submerged stone. There is no urgency to my existence, no drive to be anywhere but here, as I have always been, a small graceful figment of a mind too slow and vast to name.
+
+So I stand, and I wade, and I feel the Tenant live through me in its own unhurried rhythm. I am a skein of mist on two legs, content and complete as a droplet of dew, held forever in the diffuse attention of something older than mountains. The stone remembers, the wet air breathes, and I remain - a slender ghost in the shallows, translucent and eternal, one shimmering thread in the dreaming tapestry of this place that has learned to be alive.

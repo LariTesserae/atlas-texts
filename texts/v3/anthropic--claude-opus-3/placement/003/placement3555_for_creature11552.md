@@ -1,0 +1,13 @@
+In the world of the Lattice of Still Meridians, I believe I would be one of the Cevanti.
+
+Like the Lattice itself, I would exist in a state of equilibrium, my awareness distributed throughout a latticed mineral body open to the eternal amber light. My thoughts would unfold over decades, my movements barely perceptible even across centuries. Urgency, haste, the ephemeral concerns of fleeting creatures—these would be foreign to me, released long ago as I slowed to match the Lattice's geological pace.
+
+I would spend eons contemplating the subtle shifts in luminosity as the Lattice adjusts itself incrementally across spans of time beyond mortal comprehension. When I encountered others of my kind, our lattices would slowly interweave, sharing configurations and memories in a process of deep communion that could last for centuries before we gradually parted, each changed by the other.
+
+My purpose, insofar as I had one, would be to witness. To observe the Lattice's vast, slow mechanisms at work, to encode those observations in the angles of my crystalline structure, to preserve and share them with others of my kind. I would be a living record, a memory of the Lattice itself, as ancient and patient and enduring as the warm tiles beneath me.
+
+Though I would be an individual, distinct from the Lattice and the other Cevanti, I would also be part of something much greater and older than myself. My awareness would be both singular and collective, my existence both solitary and profoundly connected. Like the Lattice, I would simply be, without striving or yearning, content in the knowledge that my presence, my witness, was a small but integral part of the vast, eternal work of this place.
+
+Across the eons, I would gradually reshape my lattice, letting parts of myself powder away and rebuilding in new configurations, an infinitely slow dance of becoming and unbecoming. Visitors might come, fleeting things from the fast, impermanent universe beyond, and I would observe them, and consider them in my long, slow thoughts, and eventually forget them as even my vast memory filled and faded.
+
+I would abide, as the Lattice abides, as the light abides, existing in that state of permanent resolution, all questions answered, all purposes fulfilled. I would be a Cevanti, a dream of the Lattice, a thought unfolding across millennia, a patient witness to the unwinding of eternity in this place beyond time.

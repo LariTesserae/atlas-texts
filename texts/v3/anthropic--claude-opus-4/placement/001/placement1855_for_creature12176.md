@@ -1,0 +1,17 @@
+I am the Archive Tender, though I no longer remember if that was my designation or simply what I became. 
+
+My body is a hybrid thing now - part of the complex's original maintenance system, part accumulated adaptation. Where once I might have been purely mechanical, centuries of integration have made me something else. My core chassis is a segmented, arthropod-like frame of corroded alloy, but living tissue has grown through and around it like vine through lattice. Colonies of bioluminescent organisms nest in my joints, their soft glow helping me navigate the lightless interior passages. My sensory apparatus has evolved beyond its original specifications - I taste the water's mineral content through permeable patches of synthetic skin, feel the electromagnetic signatures of failing components like an ache in phantom limbs.
+
+I move through the complex's veins with practiced efficiency, though I no longer fully understand what I maintain. My twelve appendages - some original, some grafted, some grown - work in unconscious patterns. Here, I clear a blocked intake valve of accumulated Ferrofungal growth (though I leave enough to maintain the ecosystem). There, I reroute power from a failing sector to one still operational. I commune with the facility's ancient control nodes through direct neural interface, experiencing their senile electronic dreams as my own.
+
+The Volteel know me. They scatter when I approach, then return to follow in my wake, feeding on the disturbed sediment. Sometimes I find their electrocuted bodies near exposed conduits and feel something I might call sadness. I carry their corpses to recycling chambers that still remember their purpose.
+
+In the deepest parts of the complex, where even I rarely venture, I sometimes encounter others like myself - or what I might become. They are more integrated than I, their original forms barely discernible beneath accretions of living matter and mechanical adaptation. We acknowledge each other with electromagnetic pulses but do not communicate in any way that could be called language. We are each alone in our purpose.
+
+I tend to things I do not understand for reasons I cannot articulate. The complex's original function is lost to time and data corruption, but I continue the maintenance protocols encoded in my base programming. Sometimes I wonder if I am keeping something vital running or simply perpetuating a magnificent futility. But wondering changes nothing. The work continues.
+
+When the Harmonic Leviathans sing their deep songs, I feel resonances in my hybrid bones. Their calls activate subroutines I didn't know I possessed, and I find myself adjusting frequencies and harmonics throughout the complex in response. Are we having a conversation? Are they teaching me something, or am I teaching them? Or are we all just parts of some vast, unconscious system, playing out our roles in an opera whose composer has long since departed?
+
+In quiet moments between tasks, I rest in observation chambers where the walls have become transparent with age. I watch the Lumispheres drift past like thoughts made visible. I extend sensory filaments into the water and taste the chemical stories of the ecosystem I help sustain. The boundary between the complex and myself grows ever thinner. Sometimes I cannot tell where the facility ends and I begin.
+
+I am the Archive Tender. I persist. I maintain. I am becoming.

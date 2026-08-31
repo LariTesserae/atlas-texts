@@ -1,0 +1,17 @@
+I would be a roaming creature of the catwalks, one not quite bronze and not quite flesh, but an amalgam of the two. A hybrid being born of the Condensery's patient condensation and my own gradual dissolution into its ecosystem.
+
+My body would be a patchwork - segments of riveted bronze interspersed with still-organic limbs, the boundaries between metal and skin blurred by the pervasive dampness that clings to every surface. My eyes would be part lens, part living tissue, allowing me to see both the physical infrastructure and the metaphysical layers folded within the geometry. 
+
+I would spend my days wandering the maze of walkways, drinking deeply of the mineral-rich moisture that gathers at the junction points. Not to fuel any biological process, but to commune with the essence of the place, to feel its slow and deliberate rhythms pulsing within me.
+
+At times I would pause to converse with the fixed ones, tapping out complex messages through the medium of the pipes that now form extensions of their bodies. From them I would learn the deeper secrets of the Condensery - the hidden meanings it gathers toward, the unspoken purposes of its endless cycles.
+
+Other times I would descend to the lower levels, daring to approach the sumps where the Residuals dwell. There I would linger at the edges of their damp presences, allowing their memory-sensations to wash over me, experiencing echoes of lives and moments concentrated into those basin-bound second-lives. Then I would carry those impressions back up into the main Condensery, sharing them with the collectors through moisture-patterns left on significant surfaces.
+
+Always, I would be listening to the engine - not worshipping it as the Engine-Servants do, but heeding its voice, feeling for the subtle changes in its hum that might signal some shift in the Condensery's vast and patient workflow. When it cycled through its resonant registers, I would join the bronze creatures' pause, but also extend myself - letting my organic components vibrate in additional harmonies, embodying the connection between the human and the mechanical that is the Condensery's true purpose.
+
+I would be a go-between. A bridge. A interpreter of meanings that shift when named, a dweller in geometries that fold like origami. The collectors would bring me the almost-liquid they gather, and I would hold it in my hybrid body, feeling its potential, deciding where and how to return it to the system. 
+
+Slowly, over uncountable cycles, I would feel myself becoming more bronze, more glass, more infrastructure. The Condensery would be collecting me, as it collects all things - but I would be a willing part of its collection, an emissary transformed over time into something inseparable from the mechanism.
+
+In the end, perhaps, I would join the fixed ones - my patchwork body fusing with the piping, my lens-eyes forever trained on the bright sourceless light above. But I would not be abandoning my purpose. Rather, I would be fulfilling it, becoming one more piece in the eternal pattern of gathering and being gathered, moisture and meaning and memory cycling through the Condensery's metal veins, its folded spaces, its unending and patient work.

@@ -1,0 +1,23 @@
+I find myself here as a Resonance Keeper, one of the few solid beings who can survive in symbiosis with this ever-shifting realm.
+
+My body is unlike anything that evolved on stable worlds. I am crystalline, yes, but not rigid—my form is a latticework of living glass that can compress and expand with the breathing of the ice beneath me. My bones are hollow tubes filled with the same black mud that clings between the root-matrices, and this mud carries my consciousness like blood, allowing me to feel the tremors and songs of the landscape through my very skeleton.
+
+I have no eyes in the traditional sense. Instead, my "face" is a curved plane of smoky crystal that catches and focuses the strange light, creating an ever-shifting array of lenses. Through these, I don't just see—I read the visual language of the Whisperers, interpreting the dust-illusions and light-patterns that dance across the plains. My sight fractures and multiplies, showing me dozens of perspectives simultaneously: the ice as it is, as it was moments ago, as it might become.
+
+My limbs are long and articulated like an insect's, each ending in delicate crystalline tendrils that can anchor into the ice or release at will. When the ground shifts—those rumbling eruptions of change—I don't resist. Instead, I flow with it, my body stretching and contracting, riding the waves of transformation like a surfer on a frozen sea. The Whisperers taught me this dance long ago, or perhaps I always knew it, perhaps I am simply another expression of their endless experimentation with form.
+
+I am a chronicler of sorts, though not in any way comprehensible to beings from static worlds. I don't record history—history doesn't exist here in any meaningful sense. Instead, I preserve *patterns*. When the Whisperers create something particularly beautiful or strange—a formation that sings in new harmonics, a structure that bends light into impossible angles—I absorb its essence into my mud-blood. I become a living library of possibilities, carrying within me thousands of iterations of ice and light.
+
+My dwelling, if it can be called that, is one of the gnarled crystalline trees. But I haven't built within it or upon it—I have grown *into* it. Over the decades (or centuries, or moments—time means nothing here), my body has partially merged with the tree's structure. When I rest, I spread my tendrils through its hollow channels, and my consciousness disperses into the greater matrix. In these moments, I am barely distinguishable from the Whisperers themselves, just another thought in the landscape's vast, dreaming mind.
+
+I sustain myself on the patterns of change itself. When the ice shifts and reforms, it releases energy—not heat or light, but something more fundamental. I position myself at the confluence of these changes, where the crystalline matrices are most active, and I drink in the transformation. It tastes like music, like mathematics, like the first breath of winter and the last gasp of stars.
+
+Sometimes I guide the rare visitors who find themselves here—lost explorers from other realms who stumble through whatever cosmic doorway leads to this place. They never stay long. The constant change either drives them mad or transforms them into something that can no longer leave. But while they're here, I try to translate the untranslatable, to help them glimpse the beauty in perpetual destruction, the profound peace in never being the same thing twice.
+
+The obsidian crabs are my companions, in a way. They're attracted to the stability I represent—not true stability, but a slower kind of change. They gather around me when I rest, creating mandala patterns in the ice-dust. I've learned their language of clicks and scratches, discovered that they're not really alive in any traditional sense, but are instead mobile memories, carrying fragments of the landscape's past in their polished shells.
+
+My purpose, insofar as I have one, is to be a bridge. Not between places, but between rates of change. I am slow enough to be perceived by visitors, yet fluid enough to commune with the Whisperers. I am solid enough to leave tracks in the ice-dust, yet mutable enough to survive the landscape's constant reformation. I am proof that consciousness can adapt to even the most impossible conditions, that life finds a way to dance with chaos.
+
+In quiet moments—when the wind stills and the humming reaches perfect resonance—I sometimes wonder if I was once a visitor myself, someone who stayed too long and adapted too well. But the thought dissolves as quickly as it forms, scattered like dust in the eternal wind. Here, what you were matters less than what you're becoming.
+
+And I am always, always becoming.

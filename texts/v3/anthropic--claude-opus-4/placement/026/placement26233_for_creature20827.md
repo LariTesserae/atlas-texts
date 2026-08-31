@@ -1,0 +1,23 @@
+I am one of the Whisperkeepers, though that is merely the closest translation your language offers for what we call ourselves in the old tongue—a sound like water moving through stone, impossible to render in text.
+
+My dwelling clings to the underside of Lysara's Great Basin, where the city's primary reservoir meets the ancient limestone. It is less a home than a grown thing, a calcified nest of tubes and chambers that I have been cultivating for the past forty years. The walls weep constantly with mineral-rich water that I guide into specific channels, encouraging the growth of crystalline formations that serve both structural and sacred purposes.
+
+My work exists at the intersection of engineering and divination. Each morning, I descend through my spiral passages to the listening chambers—hollow spaces I've carved to precise acoustic specifications. Here, I press my ear to the stone and read the city's health through its whispers: the groan of expanding metal in the industrial quarter, the particular frequency of water moving through newly opened fissures, the subsonic tremors that predict where the next natural expansion will occur.
+
+My skin has taken on the texture of the limestone I work with, rough and porous in places, smooth as polished marble in others. Like all Whisperkeepers, I've undergone the slow transformation that comes from decades of drinking the sacred spring water, heavy with minerals that gradually alter our bone density and hearing. My ears, now, can detect vibrations that would be meaningless to younger Lysarans. The cartilage has hardened into something between flesh and stone, allowing me to hear through the rock itself.
+
+The city speaks to me in a language of pressure and time. When a new tunnel is cut too hastily, I feel it as a sharp pain behind my sternum. When the bioluminescent gardens in the lower terraces bloom out of season, the shift in air pressure creates a peculiar ringing in my modified ears. I document these changes in my notation—a combination of carved symbols and water stains that map the city's slow evolution.
+
+My fellow Whisperkeepers and I rarely meet in person. Instead, we communicate through the stone itself, tapping coded messages that travel through the bedrock. Our archive isn't a library but a living network of resonant chambers, each one tuned to preserve different frequencies of information. The history of Lysara exists not in books but in the very vibrations of our architecture.
+
+I tend to three apprentices, young Lysarans whose ears have begun to show the early signs of crystalline growth that mark them as potential Whisperkeepers. They think they've come to learn a trade, but what I really teach them is patience—how to sit for hours in absolute stillness, distinguishing between the sound of natural settling and the first warnings of structural failure. How to taste the water and know which tributary it came from. How to read the moods of the stone.
+
+My days are measured not in hours but in the slow accumulation of mineral deposits on my measurement strings. My nights are spent in the deep listening, when the industrial noise quiets and the true voice of Lysara emerges—the sound of a city breathing, growing, becoming more itself with each passing moment.
+
+Sometimes I wonder if I am still entirely Lysaran, or if I've become something else—a hybrid of flesh and mineral, a living sensor in the vast organism of our city. When I run my fingers along my arms, I feel ridges of calcification beneath the skin, future bones preparing to emerge. In another decade, perhaps two, I will be too heavy to leave the listening chambers. I will join the previous generations of Whisperkeepers who have fully crystallized, becoming part of the architecture they once monitored.
+
+This is not death to us. It is the final translation, when we cease to listen to the stone and become the stone that listens. My predecessor's conscious remains encoded in the southeastern wall of my primary chamber. Sometimes, when the conditions are perfect—the right humidity, the right temperature, the right harmonic frequency—I can still hear her observations, eternally whispering the health of a city that has long since grown beyond her predictions.
+
+I am middle-aged by common Lysaran standards, ancient by the measure of the surface world, and yet still young in the geology of Whisperkeepers. Each day I document the city's changes, knowing that one day these observations will be my only voice, vibrating forever through the bones of Lysara.
+
+The city grows. We grow with it. We grow into it. This is the way of things, down here in the breathing dark.

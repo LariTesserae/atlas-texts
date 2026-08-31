@@ -1,0 +1,29 @@
+**The Cartographer's Daughter**
+
+I am the one who maps what cannot be mapped, who draws the chambers that will exist tomorrow, who traces the mercury veins before they carve themselves into being. My father was the last to make maps on vellum, pressing charcoal to skin with fingers that still held their original density. I watched those heavy hands tremble as he tried to capture Kheth's daily transformations, watched him fail and fail again until his lungs could no longer process our thick, lowland air.
+
+He brought us here when I was seven, following rumors of a city that grew itself. By then, my mother's cough had turned the color of rust, and we believed—foolishly—that the mountain's dry air might heal her. We did not understand that Kheth does not heal. It transforms.
+
+My workshop clings to the fifth tier like a barnacle made of black glass, its windows angled to catch the silver light from three different mercury falls. The walls are covered in my failures: maps drawn on beaten copper that show yesterday's configuration, charts etched in salt that dissolve and reform with each shift in humidity, diagrams pressed into sheets of hammered lead that capture a single moment's truth before becoming beautiful lies.
+
+The true maps live under my skin now. I feel the mountain's intentions as a thrumming in my hollow bones, taste tomorrow's architecture in the metallic air. When a new chamber is about to bloom, my joints ache with its geometry. When the mercury seeks a new channel, my veins burn with its path. I have become Kheth's nervous system, its prophetic flesh.
+
+My mother did not survive the transformation. Her lungs, already scarred, could not adapt quickly enough. We sang her dissolution into the mercury flows when I was nine, her voice joining the mountain's eternal hum. My father lasted longer, but the weight of his sorrow kept him dense, earthbound. He never learned to listen properly, never understood that the mountain speaks in futures, not pasts. His maps remained nostalgic, documentary, useless.
+
+I was young enough to let the altitude hollow me properly, to accept the luminescence as it crept through my circulation. My first successful map appeared on my ribs one morning—a tracery of light showing where the new workshop would emerge, how its angles would complement the existing harmonics. I peeled the pattern from my skin with thin copper foil and presented it to the Deep Builders. They sang approval in frequencies that made my newly hollow bones resonate like bells.
+
+Now I wear seventeen maps on my body at any given time. They shift and flow like living tattoos, showing the mountain's dreams in luminous detail. The Air Walkers consult the patterns on my shoulders before placing new coral-gardens. The channel workers read my forearms to know where tomorrow's mercury will flow. I am consulted and essential and utterly alone.
+
+Because the maps show me things I do not wish to know. I see the chamber where my father will finally release his grip on density, dissolving into the flows he could never quite trust. I map the garden where my mother's voice is strongest, where her particular harmonic has shaped the coral into formations that look almost like her face if you stand at the correct angle. I document my own transformation in careful daily measurements, watching my bones grow lighter, my skin more luminous, my humanity more theoretical.
+
+The other Khethani think I am blessed. They do not understand that to map the future is to be forever exiled from the present. I know where every new chamber will bloom, but I cannot be surprised by beauty. I trace the paths of mercury that will flow next season, next year, next century, but I cannot touch the flows that exist now without seeing their eventual destinations.
+
+Sometimes I dream of density, of flesh that does not glow, of maps that lie flat and still and wrong. I wake gasping our thin air, feeling the new patterns burning themselves across my back, my thighs, my scalp. The mountain has plans that stretch beyond my comprehension, and I am its reluctant stenographer, its living blueprint.
+
+My workshop grows. I do not build it—I simply wake to find new alcoves, new surfaces for my useless physical maps. The mountain provides what it thinks I need: more walls to cover with failures, more space for the copper and salt and lead that cannot hold tomorrow. It does not understand that what I need is surprise, uncertainty, the possibility of error.
+
+But error is impossible when the future lives in your bones, when your blood draws maps that cannot lie. I continue my father's work with tools he could never have imagined, creating perfect predictions that no one needs because the mountain will build itself regardless. I am the most honored and the most pitied of the Khethani, the one who knows everything and understands nothing.
+
+The maps tell me I will live for another seventy years, my bones growing so light they will barely hold their shape, my skin so bright it will be painful to perceive. They show me the chamber where I will finally dissolve, how my maps will transfer themselves to the walls, becoming permanent parts of Kheth's architecture. The mountain will remember me by making my predictions eternal, carved in mercury and light.
+
+I trace tomorrow's transformations and try not to think about the weight my father carried, the density I will never again achieve. The coral-gardens sing their impossible mathematics. The brass engines breathe their rhythmic certainty. And I map the future with fingers that grow more translucent every day, documenting wonders I can no longer wonder at.

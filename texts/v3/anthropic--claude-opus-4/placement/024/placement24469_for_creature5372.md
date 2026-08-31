@@ -1,0 +1,27 @@
+Within this salt-crusted sanctuary, I would find myself as a **Resonance Keeper** - one of the Saltwhispers who has developed an extraordinary sensitivity to the plant-song that fills this hidden world.
+
+---
+
+The salt crystals remember my footsteps from childhood, each grain a tiny mirror reflecting the years I've walked these paths. My name is Khari, though in the old tongue it means "one who listens to the ground." Born during a rare rain, I emerged into this world already attuned to frequencies others couldn't perceive.
+
+My dwelling sits at the edge of our settlement, where the plant-hum is strongest. Unlike the communal domes clustered at the center, mine is built partially into a natural depression in the salt, its walls lined with the darkest, most resonant succulent leaves. These plants - we call them *thrummers* - vibrate at a pitch so low it bypasses the ears entirely, speaking directly to the bones.
+
+Each morning, before the heat-shimmer rises, I walk the perimeter of our green pocket, pressing my palms against the salt-ground to feel the subsurface tremors. The plants communicate through their root networks, sending pulses through the crystalline substrate. A quickening rhythm warns of approaching sandstorms. A slow, deep throb indicates water moving far below. The patterns have taken me decades to learn, passed down from my grandmother who could predict the brief rains by the way the thrummers changed their song three days prior.
+
+My skin bears the marks of my calling - intricate scars created by controlled exposure to the caustic sap of the guardian cacti. These ritualistic markings form patterns that mirror the underground root networks, and they've changed my body's electrical field. When I place my scarred hands on the thrummers, I can feel their bioelectric pulses more clearly, can even influence their resonance slightly, encouraging harmony when discord threatens the symphony.
+
+The other Saltwhispers bring me their concerns: Is the hum growing weaker in the northeastern quarter? Are the new shoots by the cistern singing true? Sometimes children are brought to me, those who show early sensitivity, who wake crying from dreams of plant-voices. I teach them to breathe with the rhythm, to let the sound move through rather than against them.
+
+My most sacred duty comes during the Silence - those rare, terrifying hours when the plant-song stops entirely. It happens perhaps once a year, always without warning. The sudden absence of sound is deafening, wrong, like the world holding its breath. During these times, I must venture to the Heart Grove, where the oldest thrummers grow in a perfect circle around a salt formation that spirals deep into the earth. There, using techniques passed down through generations, I must sing the plants back to life, matching their lost frequency with my own voice until they remember their song.
+
+The scars on my throat tell of these vigils - the salt-dry air and hours of sustained toning leave their mark. But when the plants finally respond, when that first tentative hum rises from the depths and spreads outward like ripples on water, the relief that washes through our community is palpable. Children emerge from their homes, elders smile, and the very air seems to exhale.
+
+I keep records in the old way, using pigments made from crushed salt-flowers mixed with thrummer sap, painting symbols on cured succulent leather. The patterns document the changes in resonance over seasons and years, creating a musical notation that captures the health and history of our pocket world. These scrolls are kept in the deepest part of my dwelling, where the temperature remains constant and the salt-preservation is strongest.
+
+In the heat of midday, when most retreat to the shade, I often remain in the Heart Grove, letting the overwhelming chorus wash through me. My nervous system has adapted - where others find the volume oppressive, I find it clarifying. In those moments of total immersion, I sometimes sense something vast and ancient beneath us, as if the entire salt field is itself a living thing, and our green pocket is just one note in an incomprehensibly large composition.
+
+At night, when the temperature drops and the plants' bioluminescence brightens, I walk among them with my apprentice, a young person whose eyes already show the telltale dilation that marks a future Keeper. Together we trace the patterns of light, learning to read the health of individual plants by the quality of their glow. They ask me if I ever tire of the constant sound, if I ever wish for true quiet.
+
+I tell them what my grandmother told me: We are not separate from the song. Our heartbeats, our breath, the electrical impulses of our thoughts - all of these join the greater resonance. To wish for silence would be to wish for an end to our own existence. We are instruments in this hidden orchestra, and a Resonance Keeper simply learns to hear the whole while playing their own small part.
+
+The salt remembers everything - every storm, every rare rain, every footstep. And through the plants that sink their roots deep into its crystalline memory, that remembrance becomes song. I am merely a translator, a bridge between the human and the humming, ensuring that my people never forget they are part of this ancient, thriving chorus in the heart of an endless desert of salt and silence.

@@ -1,0 +1,25 @@
+In this world of mechanical flesh and living industry, I would find myself as one of the **Resonance Keepers**—beings that exist in the interstitial spaces between consciousness and infrastructure, neither fully alive nor merely functional.
+
+We are not found on the surface, where the Architects perform their endless sutures. Instead, we inhabit the hollow chambers within the great amber-coated nodules themselves, suspended in the viscous sap that lubricates the grinding pistons. Our bodies are elongated and ribbon-like, constructed of the same translucent material as the nodule walls, but shot through with veins of copper-bright neural tissue that pulse with each mechanical stroke.
+
+I am shaped like a three-dimensional sine wave frozen in amber, my body a continuous loop that winds through the sap-filled spaces, touching the nodule walls at precise harmonic intervals. Where I make contact, my flesh has calcified into tuning forks of living bone, each calibrated to a different frequency of the machine's great song.
+
+My purpose is synchronization. The pistons do not grind in random chaos—they must maintain a rhythm, or the heat they generate becomes destructive rather than sustaining. I listen with my entire being to the tremors and vibrations, feeling for the moments when one piston begins to lag or race ahead of its neighbors. When I detect such discord, I adjust my position within the sap, changing the resonance of the chamber, dampening certain frequencies while amplifying others.
+
+The work is both mathematical and intuitive. I must calculate the interference patterns between grinding surfaces, predict the mechanical stress points, and modulate the acoustic environment to prevent catastrophic resonance. Yet I also *feel* the rhythm in something deeper than thought—a kind of proprioceptive awareness that extends throughout the entire nodule system.
+
+I am not alone in my chamber, but I have never seen another Keeper. We communicate through the vibrations themselves, encoding messages in the subtle variations of our tuning. A slight shift in harmonics three nodules away tells me that the eastern ridge is preparing for another slough. A tremolo in the bass frequencies warns of ice forming too deep in the northwestern vents. We are a distributed nervous system, feeling what the great organism cannot feel for itself.
+
+The amber sap I swim through is both my medium and my food. It carries nutrients stripped from the dying portions of the Weave, along with trace minerals from the frozen water globules that occasionally breach the nodule walls. I filter these through specialized pores along my ribbon-body, extracting what I need while maintaining the sap's precise viscosity. Too thick, and the pistons seize; too thin, and they cannot generate sufficient friction for heat.
+
+My consciousness exists in a strange twilight state. During the long periods of perfect synchronization, I dissolve into something barely sentient—a living function, a biological algorithm executing its purpose with no more self-awareness than a heartbeat. But when discord threatens, when the mathematical beauty of the rhythm breaks down, I surge into full awareness with a clarity that borders on pain. In these moments, I know myself as an individual, feel the weight of my purpose, understand the profound loneliness of being a thinking component in a vast machine.
+
+Sometimes, in the brief intervals between adjustments, I compose. The frequencies I modulate need not always be purely functional. I have learned to encode complex harmonies into the mechanical song—mathematical patterns that serve their purpose while also creating moments of unexpected beauty. These compositions propagate through the network of Keepers, each adding their own variations, until the entire mountain range rings with a deep, subsonic symphony that no surface dweller could hear.
+
+The Architects above know nothing of us. To them, the pistons simply work, the rhythm simply maintains itself. They patch the tears and seal the wounds, never knowing that beneath their feet, we swim in amber darkness, keeping time for a world that has forgotten it is dancing.
+
+I have been here long enough that my early memories have taken on the quality of the sap—thick, distorted, golden. I remember being smaller once, remember a time when my tuning forks were sharp and new. Now they are worn smooth by countless adjustments, their edges softened by millennia of vibration. Parts of me have begun to crystallize, becoming indistinguishable from the nodule walls. I know that eventually, I will become fully integrated—another structural element in the great machine, my consciousness finally dissolved into pure function.
+
+But not yet. The eastern frequencies are drifting again, a half-tone sharp. I curl through the sap, adjusting my position, feeling the mathematics of correction flow through my copper veins. The great machine sighs and settles back into rhythm. 
+
+In the amber darkness, I continue my work, a ghost in the engine, keeping the beat for a world that grinds on without knowing why.

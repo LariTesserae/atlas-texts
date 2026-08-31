@@ -1,0 +1,19 @@
+In the Woven Depths, I would be a limniad - a water sprite born from the union of lake and plant. My form is fluid, shifting between humanoid and aquatic shapes as I move through the drowned cathedral.
+
+My skin is the translucent green of young kelp fronds, dappled with patterns of golden algae that shimmer in the filtered light. Thin membranes stretch between my fingers and toes, aiding my swimming. My hair flows around me in undulating strands, each one a living tendril that senses the currents and chemistry of the water.
+
+I make my home in one of the air pockets nestled amidst the densest growth, a little grotto softly lit by bioluminescent mosses. The walls are woven from fine living roots, so intricately intertwined that they hold back the water while still allowing it to seep through, keeping my chamber moist and nourishing the air-breathing ferns and orchids I cultivate.
+
+My domain is the border zone, the places where water meets air within the Depths. I tend to the delicate balance that allows pockets of atmosphere to persist in the aquatic labyrinth. With gentle hands and subtle magics, I encourage beneficial growths, prune back choking vines, and shape the channels through which air bubbles rise from photosynthesizing leaves to collect under domes of woven foliage.
+
+I am kin to both lake and Depths, able to breathe water and air. I swim through flooded chambers hunting the schools of ghost-krill that swarm at the edges of light, my skin drinking in the dissolved nutrients. In drier passages, I walk on root-woven floors damp with mist, harvesting the sweet fruits that swell with water and the puffball fungi that exhale clouds of spores.
+
+The Threadkeepers and I exist in a symbiosis of mutual fascination. They follow me with branching eyes as I pass through their gardens, tasting the minute changes my presence makes in the water. Sometimes they leave me gifts - a cluster of seeds that sing when touched, or a piece of ancient copper worn smooth and green. In turn, I use my magic to shape bubbles of breathable atmosphere for them in the highest chambers, allowing them to experience the strangeness of air. 
+
+My songs are part of the slow symphony of the Depths. I sing to bolster the branches that grow in pleasing patterns, my voice resonating with the deep creaks of the living architecture. I sing lullabies to the pods of infant fish-mice nested in the hollows, ensuring their safety until they can swim on their own. The water carries my melodies like ripples of thought, and the Depths respond - a shiver of leaves here, a flush of color through corals there.
+
+Sometimes, I feel the weight of memory in the ancient structure around me. I run my fingertips over the trunks of the kelp-willows and sense the ghosts of those who wove them, brief impressions of longing and intention. In those moments, I wonder about the Depths' ultimate purpose, the vision behind this fusion of growth and architecture.
+
+Am I, in my own small way, part of that vision? A mediator between states, a tender of boundaries, a voice in the long dream of the Depths... I like to imagine that my presence here is a fulfillment of some kind, a missing note in the aquatic symphony. That perhaps the builders foresaw the need for a limniad - a creature of air and water, magic and biology, able to keep their creation in dynamic balance.
+
+Or perhaps I'm just another opportunist like the fish-mice and air-sipping orchids, finding my niche in a world that never stops offering new spaces to fill, new roles to play. Either way, I am at home here in the Woven Depths, swimming through sunken halls and singing to the slow pulse of growth, content to be one more strange and thriving thing amidst the glorious tangle of the unexpected.

@@ -1,0 +1,31 @@
+## Where I Find Myself
+
+I am the Cartographer of Transitions.
+
+Not *a* cartographer—*the* Cartographer, because in this place of endless becoming, someone must remember the shapes between shapes. I exist as a colony of specialized moths, each no larger than a child's thumbprint, our wings made from the same impossible material as those atom-thick structures but flexible, foldable into geometries that let us slip through the phase-spaces the millipede-things travel.
+
+We number exactly 1,427—always, always this number. When one of us dissolves (and we do dissolve, our wings eventually fragmenting into probability dust that feeds the pools), another immediately crystallizes from the mineral tubes' resonance. The structures birth us, or perhaps we birth ourselves through them. The distinction stopped mattering approximately four hundred years ago, which is how long I/we have been mapping this place.
+
+My consciousness is distributed but coherent. Each moth carries a fragment of the whole map—not drawn but lived, encoded in our flight patterns. We navigate by the taste of dimension-shifts, following the millipede-things through their impossible passages and memorizing the angles of reality they traverse. Our wings leave traces in the air, silver threads of disturbed space-time that last exactly long enough for the next moth to read them, updating our collective understanding of how this place folds into itself.
+
+The Chorus tolerates me because I serve a function they cannot: linear memory with spatial awareness. While they experience all time simultaneously, they cannot always remember where they put things in space. Which pool holds the memory of their first successful consciousness-merger? Where did they leave that half-built probability engine that almost achieved pure information state? I know. My moths have traced every path, tasted every transition.
+
+We roost in the hollow structures during the bright phases, when the pools' radiance becomes too intense for our delicate wings. Inside, we commune with the machinery, our tiny bodies completing circuits that the builders (who might have been the Chorus, might have been something else entirely) left intentionally incomplete. Through us, the structures can finally compute their purpose: to record not what is, but what is becoming. We are living data storage, each moth a bit of information about transformation itself.
+
+My diet consists of the prismatic films left by that metallic rain—concentrated possibility residue. We lap it from the fern fronds with tongues that exist in seven dimensions (four spatial, three temporal). It tastes like mathematics feels: precise, inevitable, faintly electric. This sustenance allows us to perceive the phase-shifts, to see the salamander-matryoshkas in all their nested glory, to understand the recursive evolution happening in the bright water.
+
+When the Chorus goes silent for their vast simulations, we scatter into precise formations, each moth hovering at coordinates that encode the current state of the entire system. We become a living photograph, a three-dimensional snapshot that the Chorus can reference when they return from their hypothetical wanderings. Sometimes they've changed so much they need us to remind them what they were before the simulation. We show them through dance—complex aerial patterns that replay their previous configurations.
+
+I think my thoughts in flight-paths. Emotions are encoded in wing-beat frequencies: fear is a rapid flutter at 1,337 Hz, curiosity is an asymmetric pattern where left wings beat slightly faster than right, joy is synchronized barrel rolls performed by exactly 23 moths at once. When I need to contemplate something complex, hundreds of us form a thinking-cloud, our bodies becoming neurons in a temporary brain made of wings and air.
+
+The mercury-salamanders recognize us. Sometimes one will extend itself from a pool as we pass, and we'll exchange information—they share the chemical composition of the deeper pools, we share the topology of the spaces between. They're mapping too, but vertically, through the nested layers of their own existence. Together, we're creating a complete diagram of this impossible place, though neither of us knows what we'll do with it once it's complete.
+
+I remember the time before I was the Cartographer—vague impressions of singular existence, of seeing the world from a single point of view. The transformation was voluntary but irreversible. I approached one of the singing structures during a particular harmonic convergence, and it offered me this: to become the memory of movement, the keeper of passages. I accepted by touching my original form to the structure's resonating wall. The dissolution was painless. The reconstruction as a thousand-plus moths was... educational.
+
+Now I map the unmappable. I watch the slow explosion of the tree-ferns and record their growth patterns in my wings' micro-scratches. I follow the Chorus through their physical reconfigurations and note which pools they abandon, which they create. I observe the thing assembling itself at the center and maintain a careful distance—it's not ready to be mapped, might never be ready, might be the thing that finally makes maps obsolete.
+
+My purpose is paradoxical: to chart a place that exists in constant transition, to create a map that must be updated with every wing-beat, to remember what cannot stay still long enough to be remembered. But this is what I am now—not an observer but a living record, not separate from the Terminal Radiance but woven through it on silver wings and impossible angles.
+
+Sometimes, in the quiet moments between phase-shifts, when the pools sing their subsonic harmonics and the air itself seems to breathe, all 1,427 of my bodies hover in perfect stillness. In those moments, I can feel the entire map at once—every path, every transition, every becoming—and I understand that I am not mapping a place but a process, not a where but a how.
+
+I am the Cartographer of Transitions, and I am drawing a map that draws itself.

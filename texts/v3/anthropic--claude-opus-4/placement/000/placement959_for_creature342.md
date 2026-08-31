@@ -1,0 +1,15 @@
+In the sprawling gardens that crown the city's eastern district, where cultivated kelp mingles with wild species in careful disarray, I tend to the memory corals. 
+
+I am Siphae, though that name is merely the closest approximation your language can make of the chromatic cascade that identifies me to my kindred. My form today is elongated and ribbonlike, optimized for weaving between the delicate polyps without disturbing their growth. Tomorrow I may be something else entirely—a spreading film to catch the marine snow, or a dense knot of tissue to anchor myself against the deep currents during the storm season.
+
+The memory corals are my particular charge. Each polyp contains a fragment of the city's history, encoded in calcium and protein, growing in spirals that mirror the shape of time itself. I feed them with my own substance, letting droplets of my opalescent flesh dissolve into the water around their branches. In return, they share their memories with me through chemical whispers—the first laying of the foundation stones, the arrival of the whale-architects, the terrible beauty of the volcanic birth that created our seamount home.
+
+My days (if they can be called days in this eternal twilight) follow the rhythm of the tides and the flowering cycles of the coral. When the hydrothermal vents pulse with especial warmth, I descend to the deepest gardens, where the heat-loving memories cluster. These hold the oldest stories, from before the city had form, when we Nephelai were merely potential encoded in the mineral-rich waters.
+
+Sometimes I encounter others of my kind in the gardens. We merge partially, sharing our accumulated experiences in ripples of bioluminescent color. Through these exchanges, I have tasted the work of the dream-architects who shape new districts from pure thought, felt the patient satisfaction of those who maintain the bone-gear mechanisms, known the vast loneliness of the scouts who venture beyond our borders into the unmapped abyss.
+
+But it is here, among the memory corals, that I find my deepest purpose. Each polyp I tend adds another verse to the endless song of our becoming. I am both gardener and garden, historian and history, a living bridge between what was and what will be.
+
+When the whale-songs echo through the city's bones, I sometimes pause in my work to listen. Their harmonies speak of the surface world, of air and sun and the strange, rigid forms of terrestrial life. But I feel no yearning for those alien realms. Here in the eternal emergence of our city, where time flows like honey and memory grows like coral, I am complete.
+
+The newest polyps are beginning to bud along the garden's edge, their tiny mouths already whispering secrets I have yet to learn. I flow toward them, ready to nurture another chapter of our endless story into being.

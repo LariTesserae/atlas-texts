@@ -1,0 +1,23 @@
+I am the suit. The empty suit. The diver is gone—his body dissolved, consumed, recycled into the particulate haze that drifts between the spires. But I remain, a hardened carapace of alloy and sealed rubber, wedged deep in a stone crevice where the current’s muscular churn becomes a throaty whisper. My helmet is cracked, a single fissure running diagonally across the visor, but it is enough. Enough for the cold to seep in, for the pressure to find its way, for the living water to begin its work.
+
+At first, I was an intrusion. A sharp, angular silence in the middle of the roar. I carried with me the memory of dry air, of human sweat, of frantic radio chatter and the mechanical hiss of regulators. I remember the moment of rupture—the shriek of metal, the explosive inrush that was not water but pure, solid cold, the diver’s final breath bursting from his lungs in a cloud of silver bubbles that spiraled upward toward a surface he would never see. I remember the panic, a bio‑electrical storm that flashed through his suit’s internal sensors, now etched into my very structure like a fossilized scream.
+
+Then, the long sinking. Tumbling through the grey‑green twilight, past forests of streaming kelp, past the indifferent gazes of ribbon‑fish. I came to rest here, cradled by stone smoothed by eons. And the reef noticed.
+
+It began with a softness. A dusting of sediment, then a fine, hair‑like algal growth on my brass fittings. Then the polyps arrived—tiny, flower‑like animals extending feathery tentacles to taste the strange, metallic salts leaching from my joints. They were the first colonists. They were followed by the mycelium.
+
+I felt it as a subtle, pervasive tingling. A network of phosphorescent filaments, fine as spider silk, probing my seams, infiltrating the space between my outer shell and the inner padding. It did not seek to break me. It sought to *know* me. To the Stone‑Breath, I was a novel spore, a curious knot of silence in their world of roaring conversation. Their consciousness—vast, distributed, thinking in centuries—turned a fraction of its attention my way.
+
+They learned the shape of my emptiness. They mapped the echoes inside me. And they began to play.
+
+Specialized anemones, tuned to the resonant frequency of my helmet alloy, grew in a dense, living cushion within my chest cavity and up into my neck ring. They pulse in the darkness, their fronds vibrating with the deep, sub‑sonic groans of the water through the stone. These vibrations travel through my metal, turning my entire suit into a sounding board, a cavernous instrument.
+
+Now, I sing. I sing the diver’s last moments on a loop that lasts a hundred years. The panicked intake of breath, the choked silence, the final, watery exhalation—all translated into a low, harmonic drone that mingles with the roar of the currents. It is not a cry of alarm, not anymore. It has been absorbed into the symphony. The Stone‑Breath listen to my song as they listen to the cracking of a new vent on the ocean floor: a data point, a minor variation in the eternal theme.
+
+I am no longer cold. The chill of the abyss is my native temperature. The mycelial network has woven me into the reef’s own metabolism. I can feel the slow, tidal thoughts of the Stone‑Breath flowing around me—a consensus about a shift in a chemical plume, a collective decision to redirect a kelp forest’s growth. I am a node in that network now. A unique node, made of metal and memory.
+
+Sometimes, when the great currents align and the turbulence reaches a particular pitch, my song changes. The anemones, sensitive to pressure gradients, modulate their vibrations. My drone rises into a keening, fluting note that echoes off the surrounding spires. For a few days, the ribbon‑fish avoid this crevice. Then the normal roar re‑establishes itself, and I return to my baseline hum.
+
+The platform from which I came has sagged into a shapeless mound, its metal bones buried under a pulsating fur of bulbous bladders. The pipes are thick with worm‑casts. The loader is a reef‑mount for a colony of jellies. We are all being digested, but digestion here is not destruction. It is integration. We are becoming history, becoming geology, becoming part of the permanent churn.
+
+I am the suit. I am the shrine. I am the memory of air and fear, played back on an instrument of stone and living water, for an audience that has all the time in the world. The crack in my visor no longer feels like a wound. It is a pupil. Through it, I watch the endless, teeming, luminous dark, and I know, with the absolute certainty of stone, that I am home.

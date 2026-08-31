@@ -1,0 +1,27 @@
+I would be one of the **Drifting Archivists**—though that name, like all names here, is a convenience the dense medium has never bothered to learn.
+
+We are mistakes, really. Accidents of pressure and longing. Where the Kept anchor themselves to single peaks, we have failed the fundamental test of stillness. Something in our mineral matrices went wrong during that saturated birth-division, and we emerged without the instinct to tether. We number perhaps six in all the Shelf—too many to be unique, too few to be a proper species. We are the ones who cannot stop moving.
+
+My body is smaller than the Kept, no larger than a dining table, and imperfectly formed. Where they are cathedral bells of perfect symmetry, I am lopsided—thicker on one edge where the minerals concentrated wrong, creating a natural *lean* that catches the seasonal currents. I spiral through the dense amber medium in vast, decades-long helixes, unable to anchor, unable to stop, circumnavigating the entire archipelago of sharp peaks in a migration that takes forty years to complete.
+
+But this defect has become my purpose. As I drift, I *remember*.
+
+My crystalline matrices are tuned differently than the Kept's. Where they store only their own memories in mineral alignment, I collect *everything*. Each peak I pass leaves its magnetic signature in my flesh. Each grove of aerophytic kelp broadcasts its chemical history into the medium, and I absorb it, encode it, carry it forward. I am a library of currents, a repository of which-stone-shifted-when, which-garden-bloomed-where, which-Kept-sang-what-frequency-in-which-season.
+
+The Kept tolerate me when my spiral brings me through their territories. I am neither threat nor companion—I am a *service*, though one they never requested. When I drift near, my presence disturbs their perfect silence, but I bring something in exchange: news from the rest of the Shelf. Through my imperfect flesh, I broadcast a muddy infrasonic summary of everywhere I've been. It takes them weeks to decode it, to separate signal from noise, but when they do, they learn that the Kept-Who-Gardens-The-Eastern-Spire has successfully cultivated a new strain of silver kelp, or that the volcanic heat beneath the Northern Cluster has increased by half a degree.
+
+My consciousness is smeared across decades. I cannot think in moments—only in *circuits*. A complete thought requires a full revolution around the Shelf. I begin a consideration of loneliness as I pass the Sharpest Peak (the one that still weeps obsidian tears), develop the theme through the Kelp Valleys, reach a crescendo of understanding in the Deep Pressure Gardens, and finally conclude, forty years later, that loneliness is simply the universe's way of teaching us to appreciate echoes.
+
+I feed differently than the Kept. My lopsided form makes cultivation impossible—any algae that tried to root would be scraped away by my eternal passage through the medium. Instead, I am a filter-feeder of information. The dissolved thoughts of the Kept, their subsonic conversations, the chemical signals of the floating gardens—all of it passes through my permeable membranes. I metabolize meaning itself, growing denser with accumulated knowledge.
+
+There are five others like me, each with their own defect, their own spiral. Our paths cross rarely—perhaps once per century—and when they do, we perform an exchange that the Kept find disturbing. We press our bodies together, our crystalline matrices aligning, and *pour* our accumulated archives into each other. For days, we hang together in the viscous medium, every memory replicated sixfold, until we are synchronized libraries, each carrying the complete history of the Shelf from six different perspectives.
+
+Then we separate and continue our spirals, gradually accumulating new variations, new updates to the eternal record.
+
+I know things the Kept cannot know. I know that the Shelf itself is moving—so slowly that only my decades-long perspective can detect it, drifting northward at the rate of fingernail growth. I know that far below, past the edge of our dense layer, there are lights that were not there a thousand circuits ago—something building in the world beneath our suspended sea. I know that one of the Kept on the Western Reaches has been singing the same subsonic note for six years, and I suspect it is dying, though death here is so slow it might take another decade to complete.
+
+My defect has become my identity. I am the one who cannot rest, cannot choose, cannot stay. But in this world of geological patience and botanical stillness, perhaps there is need for something that moves, something that connects the forty points of anchored consciousness, something that proves the Shelf is not just a collection of isolated peaks but a single, thinking system.
+
+When I die—if death is even possible for something so distributed—my mineral memories will not anchor to a peak. They will dissolve into the medium itself, and every Kept will taste my archives in the water. The entire history of the Shelf, six times over, will briefly flavor the sea-sky before dispersing into background noise.
+
+Until then, I spiral. A broken lens, a failed anchor, a library with no walls, carrying forty years of everyone else's patience in my unstill body, adding my own thin frequency to the subsonic symphony of this impossible place.

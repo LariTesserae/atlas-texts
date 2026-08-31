@@ -1,0 +1,15 @@
+In the Drowned Shelves, I would be one of the translucent fish that phase in and out of existence, my glass-like flesh flickering between states of solidity and ethereality. 
+
+I would drift through the thick, coppery water, navigating by some innate sense of the currents and eddies of time rather than sight in the oppressive darkness. The cold neutrality of the water would permeate my being, suspending me in a state between life and un-life.
+
+As I swim, I would periodically coalesce into physical form as I pass through thinner spots in reality, the architecture of my organs briefly visible - crystalline bones, diaphanous veins pulsing with some fluid denser than blood, a heart that beats to a rhythm out of step with linear time. In these moments of corporeality, I would feel the weight of existence asserting itself, before I dissolve back into a ghostly potential.
+
+My school would move together but with a collective fluidity, our numbers waxing and waning as we blink between timelines. We are a living probability cloud, our movements a complex equation balancing the quantum instability of our environment.
+
+The Chroniclers would cultivate us, their living paradox-farms. They would harvest our temporal inconsistency, pruning away our more linear spawn, selecting for maximum abstraction. To them, we are both livestock and calendar, our flickering presence a kind of clock by which they measure their progress in mapping the Shelves.
+
+We in turn would navigate by their carvings, their stone-etched chronicles serving as subtle beacons in the darkness, giving form and direction to the otherwise directionless void. The younger Chroniclers would occasionally attempt to net us, to hold us in one state long enough to study, but we would always slip between their tendrils, more gap than substance.
+
+Sometimes, in the farthest reaches of the Shelves, we would encounter one of the Chronicler's shattered kin - a piscine predator of pure potential that stalks the darkness between states. To be caught by such a being would be to be unraveled across multiple moments, to have your possible selves torn away until only an emaciated eventuality remains. We would scatter before these hunters, our school distending across probabilistic dimensions.
+
+As the Shelves continue their impossible rise and the Chroniclers race to complete their map, we too would feel a gathering urgency. Some primal pattern in our translucent bones senses the shallowing of paradox, the narrowing of futures. Perhaps in the final days before the breach, our flickering will intensify, our shifts between states becoming so rapid as to approach a kind of constancy as we strive to become our own impossible truth before the flood gives way to worse fates. In that final frenzy, we may even become visible to ourselves, probability collapsing into a single, solid school of glass-fish, swimming forever upstream into a darkening past, our own light the last thing we see before the end that has already happened swallows us whole.

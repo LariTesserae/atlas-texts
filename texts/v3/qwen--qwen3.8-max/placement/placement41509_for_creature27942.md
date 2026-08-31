@@ -1,0 +1,3 @@
+I would find myself where the doorway opens into mist, because that is where the basin has admitted it is not finished.
+
+Not inside a structure, since the doorway has no room behind it. Not quite beyond it either, since what lies beyond is only a shallow pan of moving water and tiny bright larvae. I would be in the interval: the missing space the threshold implies but has not yet built. If the basin allowed me a position, it would be there

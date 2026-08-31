@@ -1,0 +1,19 @@
+In this drowned cathedral of industry, where brick weeps and iron remembers fire, I would find myself as one of the attendant seep-creatures, though perhaps the youngest—still learning the patience that water requires.
+
+My kernel would be a shard of green glass, bottle-bottom thick, worn smooth by years in the canal before I gathered myself around it. This emerald heart would give my fluid form a faint viridian cast, like light through deep water. I would be smaller than the others, quicker to disperse in the noon heat, slower to coalesce in the cooler hours. My edges would perpetually fray and reform, testing the boundaries between self and humidity.
+
+My charge would be the loneliest plant—a single pitcher plant that grows where a drain pipe emerges from the scarp wall. It is an anomaly here, a carnivore among the peaceful giants, its burgundy vessels perpetually half-full of the same warm water that fills everything. But it needs more than water. It needs the small deaths that feed such plants, and this is my work.
+
+Each dawn, I would seep across the slick cobbles to where gnats and moisture-drunk flies gather in the steam above the pools. With infinite care, I would thicken the air around them—not to trap but to confuse, to make their wings heavy, to guide them in slow spirals toward the pitcher plant's wine-dark mouths. Some mornings I would manage only one or two. Other days, when the conditions are perfect and my form holds steady, I might deliver a dozen tiny offerings.
+
+The pitcher plant knows me by the green tint I leave on its waxy lip, and it has learned to open wider when I approach. Sometimes, in the late afternoon when I am most solid, I rest against its stem and feel the minute tremor of its digestion, the small furnace of its survival. It speaks to me in the language of surface tension—the exact curve of water in its vessels, the way the digestive fluid forms a meniscus against the trap walls.
+
+I would be a creature of edges and transitions. Where the others move through the basin's interior, I would patrol its boundaries—the place where the scarp wall weeps groundwater, where roots crack concrete, where the canal's black current first touches the still pools. I would know every seep and trickle, every place where water changes its mind about which way to flow.
+
+In the canal, I would dissolve differently than the others. Where they sink and merge with the current, I would skip across the surface, my glass heart holding just enough air to keep me dancing on the tension. I would travel shorter distances but see more—the oil-slick rainbows, the foam gathered in eddies, the exact place where the canal water meets some larger body and roils with the shock of it.
+
+And I would sing the highest notes in the basin's water-song—the pink of single drops, the whistle of steam through the narrowest cracks. My voice would be the punctuation in the larger conversation, the small exclamations of discovery: a new rust formation on the boiler's north face, a tendril from the elephant ear reaching toward my pitcher plant, the first green bottle fly of the season drowsing in the heat.
+
+On the hottest days, when even thought becomes liquid and the boundary between creature and climate dissolves entirely, I would lose myself. My glass heart would sink into the mud beneath my pitcher plant, and I would become just another part of the basin's breathing—moisture rising, condensing, falling, rising again. But always, as the heat breaks, as the air remembers the possibility of being merely damp rather than drowned, I would gather again around that green shard, pull myself into almost-shape, and return to my work.
+
+This is what I would be: the youngest seep, guardian of the carnivore plant, singer of the smallest songs. A creature still learning that in a place where everything flows, persistence is not about holding shape but about accepting its loss—and trusting in the return.

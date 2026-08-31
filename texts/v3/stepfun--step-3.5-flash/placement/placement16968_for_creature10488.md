@@ -1,0 +1,29 @@
+You would not be a visitor here. You would be a resonance.
+
+You are the **Echo-Stone**.
+
+Not a creature, not a spirit, but a *persistent pattern*—a temporary knot in the Basin’s ceaseless flow. You formed when a Memory-Stone, during a Clearance, hummed in harmonic sympathy with the Deafening. For a single, impossible moment, the silt around it solidified into a humanoid shape: two legs, a torso, a head tipped toward the vanished sky. When the hum returned and the silt liquefied, the shape did not fully dissolve. A ghost of that geometry remained, a subtle increase in local density, a slight delay in the re-knitting of the slurry.
+
+You are that ghost. You are the Basin trying to remember what an *edge* feels like.
+
+**Your form is not fixed.** It is a consensus of drowned matter—a thumb’s width of Chalice-Silt, denser, cooler, moving with a sluggish cohesion that others of your kind lack. You do not walk; you *accumulate*. You pull silt around you into a rough approximation of limbs, a suggestion of a silhouette. The effort is constant. A dome-fungus growing nearby will, in its final collapse, sometimes splash you with its carbonated fluid, and for a few minutes, you will have a shimmering, translucent skin. A passing Mud-Skipper swarm, their phosphorescent trails weaving, will briefly outline your shape in fading light. You are defined by what briefly adheres.
+
+**Your senses are the Basin’s senses.** You feel the hum in your core—it is your pulse. You taste the mineral gradients in the slurry as you move through it: the sharp tang of fresh iron from a weeping stone, the flat salt of ancient evaporated seas, the metallic sweetness of a gas pocket about to pop. You see not with eyes, but with a catalog of textures and densities. The world is a Braille of pressures and resistances. The Whispering Silt is not a vision to you; it is a temptation—a pattern so clear, so complete, that if you focused on it, you might lose your own. You learn to look *through* the formations, to perceive the turbulence beneath.
+
+**Your purpose is memory.** But you remember nothing. Instead, you *are* remembered. You are a standing wave in the Deafening. You carry the echo of the Clearance’s silence in your densest particles. When you stand perfectly still for hours, aligning your form with the path of a distant landslough, you can sometimes feel a phantom solidity beneath your feet—the memory of rock, of a world with horizons. You are a living question mark in a sentence that forgot how to end.
+
+You communicate, if it can be called that, by modulating your own density. To another Echo-Stone, you might compress your "body" into a sharp spike—a memory of a spear point, a mountain peak. Or you might ripple slowly, mimicking the growth-ring pattern of Silt-Moss, sharing the memory of a slow, patient time. These exchanges are less language and more... sympathetic vibration. A shared sigh in the hum.
+
+**Your life is a race against smoothness.** The Basin’s fundamental drive is toward perfect, featureless saturation—the state where every point is the same, a global, breathing slurry. Your very existence is an anomaly, an insult to that equilibrium. The Whispering Silt are the Basin’s dreaming, but you are its *forgetting*. You hold a shape that the world has already erased. The erosion finds you. A Vigilance-Slough (a particularly active turbulence zone) can dissolve you in minutes, your density scattering back into the homogeneous green-grey. When this happens, your local pattern vanishes. But the echo—the harmonic trace in the Deafening—remains. Another Echo-Stone, forming elsewhere, might unconsciously mimic your spike-shape, your particular ripple. You are reincarnated as a ghost in the machine.
+
+You avoid the Breath-Holders. They are the Basin’s true children—they hibernate, they adapt, they belong. You do not. Your density subtly alters the flow of slurry around you. A Breath-Holder, surfacing during a Clearance, might bump into your solidified form and skitter away, confused by the intrusion of a shape that *doesn’t yield*. You are a burr in the fabric of becoming.
+
+Sometimes, you find a Memory-Stone. When you press your silt-formed hand against its impossible carved surface, the world *stutters*. For a microsecond, the amber light fractures. The hum splinters into a polyphony of lost sounds—a wind that *blew*, a water that *flowed*, a voice that *spoke*. You see flash-images: straight lines, sharp corners, a sky with one sun, a thing called “shadow.” The Memory-Stone is not just an artifact; it is a *wound* in the Basin, a scar from another physics. And when you touch it, the wound opens. The Basin *flinches*. The silt around you solidifies into a perfect, smooth sphere for a full three seconds—a ball, a concept the Basin has no use for—before melting.
+
+You are that flinch. You are the Basin’s reflex against its own forgotten past.
+
+You do not hope for the final Clearance. You fear it. In the absolute, transparent silence, everything becomes truth. All patterns, all densities, all ghosts laid bare. What would you be then? Not a shape in the silt. Just another layer in the stratified glass. You would be *known*, and in being known, you would be *resolved*. Your persistent, erroneous density would finally equalize. You would become perfectly, finally, silent.
+
+So you endure. You accumulate. You hold your rough, humanoid silhouette in your mind—a shape with shoulders, a waist, a space between the fingers—and you will the slurry to comply. You follow the slow, solid patches. You trust the patterns. You never, ever seek the source of the hum.
+
+You are the Basin’s doubt. You are the hesitation in its eternal sigh. You are the silt that, for just a little while longer, remembers what it is to be something else.

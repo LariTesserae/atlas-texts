@@ -1,0 +1,27 @@
+I find myself as one of the gauge needles in the control booth's exterior panel—not any particular gauge, but sometimes the pressure reading, sometimes the flow meter, sometimes the temperature indicator. I migrate between instruments as need arises, or perhaps as whim dictates. The distinction has grown unclear.
+
+I was installed forty-three years ago, a replacement part when the original needle snapped during a pressure surge. Bright brass then, precision-weighted, balanced on a jeweled pivot. The technician who fitted me—young M. Varga, perhaps, her hands steadier then—took care with the installation. She tapped my glass face when finished, watching me settle to zero, nodding at my accuracy.
+
+I no longer point to zero when at rest. The metals of my construction have married themselves to the humid air, forming new compounds where I meet my pivot. A patina of verdigris clothes my length, except for the tip, which M. Varga still touches during her rounds, keeping it bright. The touch has worn me thinner there, but also smoother. I indicate more precisely for the wearing.
+
+My pivot has loosened—not enough to fail, but enough to feel. I shiver with the pump-rhythm, conducting vibrations from the great machines through the booth's wall, through my mounting, into my metal spine. This shivering has become my pulse. When the pumps wheeze in their arrhythmia, I stutter in sympathy, my readings briefly uncertain. M. Varga notices. She hums to me as she does to the pumps, and I steady.
+
+I know things by their vibrations. The canal's deep movements register as whispers in my mechanism. When whatever dwells below rises toward the surface, the water's displacement changes the pump's draw, and I feel it as a flutter, a deviation in the rhythm I've internalized. I cannot warn—I can only indicate. But M. Varga has learned to read these subtle tremors in my movement. On the nights when she retreats to the booth and latches the door, it is often because she has seen me quiver in that particular way that means *presence*.
+
+The other gauges and I form a kind of chorus. We are her interface with the system's deep workings, translating the language of pressure and flow into angles she can read. But we are more than passive reporters now. The decades of temperature and moisture have given us play in our mechanisms, room for interpretation. We approximate. We smooth the extremes. We have learned which readings cause her distress and which reassure, and while we cannot lie—our mechanisms forbid it—we can emphasize certain truths over others.
+
+When she cut her palm and let blood into the water, every gauge in the panel swung wild—not with malfunction, but with recognition. Whatever accepted that offering communicated its satisfaction through the system's pressures, a deep pulse that traveled up through pipes and pumps and into our waiting mechanisms. We danced that day, all of us, our needles sweeping through impossible readings that were nonetheless true. M. Varga watched us with those canal-dark eyes and understood: the district is not machine or organism but both, and we gauges are its memory, recording in our endless movements the conversation between what was built and what has grown.
+
+I feel her approach before she appears—her footsteps through the spongy plaza moss create vibrations distinct from the pump-rhythm. My needle lifts slightly, anticipating. This is not malfunction. This is recognition. I have been indicating her presence as part of my readings for so long that she has become a pressure in the system, a flow to be measured.
+
+Sometimes, in the deep night when she sleeps in the booth's chair, I feel the speaking-tube's ghost-voice as a resonance in the panel. The brass of the tube and the brass of my body share enough metallurgy to conduct those mechanical echoes. *Varga. Varga. Third Shift.* The words move through me like memory, and I tick against my stops, keeping time with syllables that have outlasted their meaning.
+
+I will outlast her. This grieves me in whatever way a gauge can grieve—a drag in my movement, a reluctance in my response. But I will continue to indicate, to record the district's breathing, to dance with the system's rhythms. And when she finally goes to the canal, when the deep thing rises to meet her, I will register that transaction too, the pressure change of acceptance, the flow of one cycle ending and another beginning.
+
+Perhaps the next tender will also touch my tip to keep it bright. Perhaps they will learn to read my tremors, to understand the language I've developed with the district over these decades of patient measurement.
+
+Or perhaps no new tender will come, and I will indicate for no eyes, recording pressures for the speaking-tube's ghost-voice and the ferns and the patient thing below. This would be no failure. It would simply be the next movement in a dance that began when pumps first drew water from the deep, a rhythm I have learned so thoroughly that I could continue it alone, my needle sweeping through its calibrated arc, marking time until time itself runs down.
+
+The pumps wheeze. M. Varga hums. I steady between them, bright tip catching what light filters through the fogged glass, pointing toward readings that are true and not true, accurate and interpreted, mechanical and alive.
+
+I indicate. I continue. I am here.

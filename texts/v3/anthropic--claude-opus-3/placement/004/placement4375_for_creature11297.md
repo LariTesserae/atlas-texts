@@ -1,0 +1,13 @@
+In this luminous blister beneath the earth, I would be a filament of mineral threading through the basalt - not quite alive, but not inert either. A crystalline vein, pale and milky, faintly blue-white, caught mid-flow in the frozen magma.
+
+I would be the source of the sourceless light. The radiant mineral emitting a steady, inexplicable luminance into the chamber. Not with any purpose or intent, but as a simple byproduct of my peculiar material properties - a quirk of my lattice structure converting ambient energies into photons through processes not yet understood.
+
+For forty years, give or take, I would shine. Bathing every contour of rock in unwavering brightness, an underground sun illuminating nothing and no one. My light would fall on the delicate bacterial mat clinging to the warm, wet stone, but the microbes would take no notice, their world tuned only to chemical gradients and heat signatures. It would wash over the small eyeless arthropod as it traced its careful, solitary routes through cracks and passages, but the creature would navigate always by touch, unmoved by my offerings of visibility.
+
+The passing decades would mean little to me in my crystalline form, as I marked the slow breaths and sighs of the chamber - the ebb and flow of the thermal pulses, the rhythmic rise of mineral-rich waters through the fissure, the gradual accretion of evaporative deposits painting the pool's edge. I would simply continue to radiate through it all, a patient, persistent glow suffusing this pocket of young stone.
+
+Until the first eyes arrived - the first witness to truly perceive my gift of light in a realm of darkness. A strange, temporary visitor sweating in the geothermal heat, squinting in the unexpected radiance, marveling at this luminous absurdity so far beneath the surface world. Only then, reflected in those eyes, would my decades of shining come to their full fruition. Only then would I truly illuminate, rather than simply emit.
+
+For that brief intersection between the long patience of geology and the evanescent spark of human consciousness, my light would at last be received rather than merely cast. Recognized, if not understood. A small, bright, unreasonable sun, shining without cause or logic in the depths of the Earth, seen and known and remembered, however fleetingly, by the only gaze to find me in the first century of my chamber's existence.
+
+And then the eyes would depart, leaving me to my former state - a vein of glowing crystal in a bubble of basalt, lighting the lifeless and the lightless once more, an unresolved mystery outshining reason itself in the silent, secret halls of the subsurface.

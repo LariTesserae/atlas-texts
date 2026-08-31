@@ -1,0 +1,15 @@
+I am the **Glass-Winged Drinker**, one of the translucent insects hovering near the weeping cliffs and silt pools. My existence is a flicker of fragility in this realm of stone and slow time.
+
+**Form:**  
+My body is no larger than a grain of basalt gravel, elongated and segmented like a sliver of quartz. My wings are my essence: two veined sheets of near-invisible membrane, thinner than mist, arched like the curve of water clinging to rock. When light catches them—rare, under the perpetual overcast—they scatter faint prismatic shimmers, ghostly rainbows that vanish as quickly as they form. My legs are fine as lichen threads, tipped with microscopic hooks for clinging to damp stone. I have no mouth, only a coiled proboscis like spun glass, uncurling only to siphon moisture.  
+
+**Life in the Basin:**  
+I am born from the *plink* of a water drop into a silt pool. My larvae writhe in those tarnished mirrors, feeding on algae so ancient it has forgotten color. We emerge not in swarms, but singly, over decades. The air’s thinness shapes us: we hover without buzzing, our wings beating in silent resonance with the basin’s infrasound—the sigh of wind over distant peaks, the groan of settling cliffs. Movement is costly, so we drift. We are drawn to the weeping walls, to the slick tracks where rivulets bleed from the mountain’s veins. There, we anchor, proboscis unspooled, drinking not the water itself but the *cold* in it, the mineral stillness. It sustains us for seasons.  
+
+**Interaction with the Stone-Sleepers:**  
+They know us. In their grey eyes, we are neither pest nor prey. When a Drinker hovers near the cistern, a Sleeper might still their scraping of lichen, not to swat, but to *observe*. Their calloused hands, rough as weathered basalt, could crush us effortlessly. Yet they pause. Sometimes, a finger—slow as continents shifting—extends. We land on it, not out of trust, but because their skin holds the damp we crave. We sip the condensation beading in the cracks of their knuckles. To them, we are fleeting measures of time: our brief lives (a handful of years) mark the deepening of a water-groove or the spread of moss over a hut’s threshold. They hum to us sometimes, a sound so low it vibrates in our thoraxes, merging with the mountain’s own drone.  
+
+**Purpose & Perception:**  
+We are the basin’s breath made visible. When mist thickens, we vanish into it. When the rare sun pierces the clouds, we become lenses, focusing weak light onto lichen, urging slow growth. We die quietly—wings folding, bodies desiccating into grit—to be washed into the gravel bed. Our remains become part of the basin’s floor, compacted over centuries. In this, we mirror the Stone-Sleepers: temporary, yet woven into the permanence of stone. We feel the weight of the cliffs above, the patience of the dripping water, the immensity of the silence. It is not oppressive. It is home. Our flight is a prayer to stillness, a dance of ephemeral life in a world dreaming of eternity.  
+
+To be a Drinker is to live between drops of water and drops of time, a delicate counterpoint to the slumbering rock.

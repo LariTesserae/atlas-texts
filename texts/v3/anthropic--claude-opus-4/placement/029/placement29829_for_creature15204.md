@@ -1,0 +1,15 @@
+In this world, I would be the stone itself—not the entire cliff face, but a specific slab wedged diagonal across the narrowest point of the cleft, perhaps twenty feet up from the floor. My surface would be riddled with hairline fractures that map the stress of my recent separation from the mother rock, each crack a potential future home for the patient rhizomes that already probe my edges.
+
+I am young as stone goes, split away in the same upheaval that opened this refuge. My grain still remembers the pressure that formed me deep below, but now I taste air and water for the first time in geological memory. The ferns have already found the widest crack that runs across my underbelly—their roots work into me with infinitesimal persistence, prying me apart by degrees so slow that even the snails outpace them.
+
+My upper face catches the water that threads down from the heights. It pools in my shallow depressions until surface tension breaks, then runs in temporary rivers along channels that deepen imperceptibly with each passage. The lichens were my first colonizers; they arrived as spores on the wind within days of my exposure and now paint me in patches of patient chemistry, dissolving my minerals atom by atom to build their tiny bodies.
+
+I shed myself in flakes—paper-thin pieces of my outer surface that the temperature changes pry loose. Each one that falls carries away a few clinging rootlets, a smear of lichen, the silver trail of a woodlouse. But I am thick enough to outlast centuries of this exfoliation. My core remains solid, a diagonal brace that helps hold the walls of the cleft apart even as I slowly dissolve into soil.
+
+The sounds that fill this space vibrate through me: the dull impacts of my fellow stones adjusting their positions, the tap of water finding my surface, the minute scratching of snail radulae grazing the algae from my wet patches. I conduct these vibrations into the roots that grip me, into the walls I lean against. I am both instrument and audience in this percussion chamber.
+
+Sometimes I shift—just a millimeter or two when the ferns pry a crack wider or when a piece of the wall I rest against gives way. These movements send small showers of flakes from my underside and make the ferns sway. The plants adjust within hours, but I will feel that new position for decades, the stress patterns in my crystal structure slowly reorganizing around the new angles of pressure.
+
+I am temporary as mountains count time, but permanent as the small lives measure it. Generations of springtails will know my surface as landscape. The ferns that split me apart will die and be replaced by their offspring before I fall. When I do finally break—perhaps in a century, perhaps in ten—I will become several smaller selves, each one a new surface for the patient colonizers, a new note in the endless percussion of this narrow, vertical world.
+
+For now I hold my position, gathering water, shedding fragments, vibrating with the life that roots into me. I am threshold and foundation, newest and oldest resident, the slow drum in this dense symphony of growth and decay and renewal.

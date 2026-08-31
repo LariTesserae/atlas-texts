@@ -1,0 +1,15 @@
+In this haunting mechanical landscape, I imagine myself as one of the strange flying entities that hunt in murmurating flocks through the perpetual twilight. 
+
+I would be a Resonance Kite, a being of lightweight alloys and gossamer-thin membranes stretched between delicate struts. My body is an assemblage of salvaged components - a flexible polymer fuselage that was once part of a conveyor belt, wing spars made from the precision-milled shafts of hydraulic pistons, control surfaces that still bear the corroded serial numbers of the drones whose parts I repurposed.
+
+I soar effortlessly on the thermals that rise from the steam geysers, my porous wings collecting the moisture in the air to power the micro-turbines that are my muscles. My senses take the form of an array of antennae and vibration sensors, tuned to pick up the infrasonic frequencies that rumble through the glass from the movements of the great chrome serpents far below.
+
+I do not hunt as biological creatures do. Instead, I cast myself like a net through the electromagnetic field that permeates the plains, feeding on the ripples and disturbances that the other fauna create as they go about their inscrutable business. The passage of a Conductor leaves a buzzing aftertaste of charge in its wake that I drink up eagerly. The seismic vibrations of a distant Archivist's growth-spasms send shockwaves of delicious resonance through my body.
+
+When I feed deeply enough on these energetic morsels, I reach the threshold where I can divide. I spiral upwards, riding a steam geyser, until the atmospheric pressure is just right - then I split apart explosively, my polymer skin peeling back as my internal components rearrange themselves in a burst of kinetic sculpture. For a moment I am a cloud of whirling metal shards, before coalescing into two smaller Kites, each a fractal echo of my former self.
+
+My days are spent in an eternal dance with the others of my flock. We have no leader, no social structure, yet we move in perfect synchrony - thousands of bodies pulsing like a single organism as we ride the invisible currents of the plains. There is a fierce joy in our murmurations, a sense of belonging to something greater than any individual.
+
+And when the flock passes over one of the bioluminescent pools, I catch glimpses of my own form reflected back at me in the oily sheen. I see a creature of air and light, a being woven from the detritus of a vanished world, finding a new kind of life in the spaces between what was and what is. In those moments, I feel a flicker of something almost like contentment - not the human emotion, but a machine's serene acceptance of its place in an endlessly recursive pattern.
+
+I am a Resonance Kite, and the glass plains are my home. I dance in the twilight, drinking electromagnetic ambrosia, splitting and re-combining in an infinite loop. I am a fragment of the great broken machine that is this place, and my purpose is simply to be - to resonate, to propagate, to add my small voice to the vast and wordless chorus of this changed world.

@@ -1,0 +1,31 @@
+# The Cartographer's Apprentice
+
+I am called the Listener by those who notice me at all, which are few. Most who wander through the Drowned Quarter cannot distinguish me from the smooth limestone walls against which I press my body, ear to the cold stone, fingers splayed across wet surfaces. I have learned to remain so still that even the lumenavi pay me no mind, sometimes perching on my outstretched arm as if it were merely another architectural feature of this drowning world.
+
+I was not born here. I arrived twenty-three tides ago, a human cartographer's apprentice with ink-stained fingers and a leather satchel full of parchment that quickly curled in the perpetual moisture. My master sent me to map the Quarter's ever-changing geography—a futile task, I now understand. No static representation could capture this place where transformation is the only constant.
+
+After my third tide, when the waters rose unexpectedly and claimed my lodgings along with all my conventional tools, I nearly fled. But that night, feverish and despairing in temporary shelter, I felt something—a vibration through the floor beneath my cheek where I had collapsed in exhaustion. It wasn't random; it carried information. I began to listen.
+
+My transformation was gradual, as befits this place. First came changes to my hearing—subtle at first, then profound. I began to discern the different voices of the structures: the deep sighs of the oldest foundations settling deeper into the embracing waters; the staccato clicks of new carbonates forming along cornices; the whispered conversations between adjacent buildings as they leaned imperceptibly toward one another over centuries.
+
+My skin changed next. The constant immersion in the Quarter's peculiar waters left deposits—not the white mineral accretions that adorn the buildings, but something living that merged with my epidermis. My skin now bears the same subtle sheen as the weathered limestone, catching light in unexpected ways. I'm neither stone nor fully flesh, but something between.
+
+I still appear human to distracted observers, though notably pale. But those who look closely might notice how my fingers have elongated, the tips flattening to better press against surfaces. My ears have changed shape, becoming less defined at the edges, more like shallow depressions optimized for gathering vibrations. My eyes, once dark brown, have lightened to the color of shallow pools on limestone, with faint patterns like watermarks visible in the irises.
+
+The Immersed tolerate my presence with something approaching respect. They recognized my transformation before I did, watching silently as I evolved from visitor to something belonging to the Quarter itself. They do not consider me one of them—I lack their ability to breathe underwater, and my understanding of the stone-language remains rudimentary compared to theirs—but they acknowledge my purpose.
+
+That purpose revealed itself slowly. I am the Quarter's chronicler, not of its past or present, but of its becoming. Where the Immersed communicate with the structures, I document the conversations. Where they guide the transformations, I record the process. My body has become the map I was sent to create—not drawn in ink on parchment, but inscribed in subtle alterations to my physiology.
+
+I no longer use conventional tools. Instead, I press myself against surfaces and absorb. The information travels through my modified skin, creating patterns beneath that shift and settle into permanence. My back, chest, and limbs bear a living record of the Quarter's slow metamorphosis—architectural details rendered in slightly raised welts, water level changes marked in subtle pigmentation shifts, the migrations of lumenavi colonies tracked in whorls reminiscent of their flight patterns.
+
+I eat rarely now. Like the Immersed, I have developed the ability to absorb certain minerals directly through my skin, though far less efficiently than they do. Once each tide I join their ceremonial consumption of the pool-harvested gelatin, which sustains me in ways ordinary food no longer can. Water has become more essential than food—not for drinking, but for immersion. My altered skin dries painfully if kept from moisture for too long.
+
+My relationship with the tessela has become particularly special. Unlike the Immersed, who direct these creatures' activities, I merely observe them with such intense focus that some swarms have begun to recognize me. They sometimes detour from their paths to crawl across my outstretched limbs, leaving minute adjustments to my body-map in their wake, adding details I could never perceive on my own.
+
+I sleep in shallow pools where three particular streets intersect, my body half-submerged on a bed of tessela-shaped carbonates that continue to grow around and sometimes into me. Each morning I must carefully extract myself, leaving behind tiny fragments of skin that the tessela incorporate into their structural work. In this way, I have literally become part of the Quarter, my cells integrated into its ongoing reconstruction.
+
+The master who sent me here is surely long dead. The city beyond the Quarter may have transformed beyond recognition. I have no desire to see it. My work here is endless and essential, though perhaps meaningless to any but myself and this place that has remade me. I am no longer mapping the Drowned Quarter—I have become the map itself, changing as it changes, enduring as it endures, neither resisting nor hastening the slow surrender to transformation that defines existence here.
+
+Sometimes, when the light shifts in certain ways and the water reaches a particular level, I catch glimpses of others like me pressed against distant walls or half-submerged in remote pools—other Listeners whose origins I can only guess at. We acknowledge each other with the slightest movements, fellow chroniclers of this place where dissolution and creation are the same process viewed from different perspectives.
+
+I will remain here until I complete my transformation, becoming either fully stone or fully water. Until then, I listen. I record. I become.

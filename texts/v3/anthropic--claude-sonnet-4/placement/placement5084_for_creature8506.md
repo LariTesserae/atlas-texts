@@ -1,0 +1,27 @@
+I am pressed flat against the warm stone of a newly formed wall, my palm reading the mountain's intentions through the subtle vibrations that travel up from its molten heart. My name is Senna, and I am fifteen years old, though I've lived more changes than most people see in a lifetime.
+
+My hands are already broad like an adult's—years of working volcanic glass have shaped them that way, callused and scarred but impossibly sensitive. I can feel through stone the way others feel through water. Right now, the wall tells me it's settling into permanence; the tremors beneath my fingertips are evening out into the steady pulse that means this particular growth is finished. Good. The family sleeping behind this wall can rest easy for a few more days.
+
+I was born in a room that no longer exists. The thermal spring that heated our home redirected itself when I was three, and the walls cracked and crumbled as the mountain reshaped that entire terrace. My parents tell me I didn't cry—even as a baby, I seemed to understand that change was simply what happened here. They moved me to a new room built around a fresh vent, and I slept peacefully in my basket while the builders worked around me, my small lungs already adapting to air thick with mineral mist.
+
+My eyes are the deep amber of volcanic glass, larger than they should be, evolved to read the subtle signs other people miss. In the strange phosphorescent twilight that passes for darkness here, I can see the hairline fractures spreading through stone, the faint color changes that herald tomorrow's new growth. My pupils dilate and contract constantly, adjusting to the mountain's ever-shifting light show.
+
+I am training to be a Listener, though most don't develop the sensitivity until they're much older. Veth noticed my potential three years ago when I predicted a major shift that would have collapsed the eastern terrace. She's teaching me to quiet the human parts of my mind and tune into frequencies deeper than sound. Sometimes I sit in meditation for hours, my consciousness sinking down through layers of stone until I can hear the mountain's dreaming—vast, slow thoughts that move like glaciers, alien intelligence pondering its own becoming.
+
+My body knows this place in ways I'm still discovering. The mineral springs have left their mark on me; my skin has a faint luminescence that grows stronger when I'm in deep communication with the stone. My hair, dark as basalt when I was small, now shows threads of the same silver-white that marks the elder Listeners. I'm changing along with Kythara, becoming something new.
+
+I spend my mornings doing the practical work—helping to redirect water channels, testing the stability of new formations, working with my hands to shape obsidian tools. But my afternoons are for learning deeper mysteries. Today I'm lying stomach-down on a warm ledge, my entire body pressed against stone, feeling for the patterns that will tell me where growth will happen next.
+
+The not-quite-marmots have accepted me. Three of them sit nearby, their too-knowing eyes watching as I work. They chirp softly when they approve of my readings, chatter warnings when I'm missing something important. The largest one, scarred across one flank from some long-ago rockfall, actually places tiny paws on my wrist sometimes, as if checking my pulse against the mountain's rhythm.
+
+I can feel tomorrow's changes building now—a deep warmth gathering beneath the settlement's heart, pressure seeking release. Not dangerous, but significant. A new thermal pool, I think, probably where the old grain storage used to be. I'll need to tell the others so they can move their supplies before the water breaks through.
+
+Living here means accepting that nothing lasts, but also discovering that nothing truly ends—it just becomes something else. The room where I was born is gone, but its stones were incorporated into a new wall that shelters a different family now. The spring that once warmed my cradle now feeds the gardens where we grow our phosphorescent moss. Everything transforms, and transformation is the only constant.
+
+Sometimes visitors from the lowlands ask me what it's like to live with such uncertainty, and I never know how to answer. This isn't uncertainty to me—it's conversation. The mountain speaks to us in ridge and spring, in the warm breath of new vents and the patient cooling of old ones. We listen, and we answer with our architecture, our careful tending, our willingness to move when movement is needed.
+
+I press my ear directly to the stone now, feeling its pulse against my cheek. The mountain is young still, learning itself, and we are learning along with it. In fifty years, in a hundred, when Kythara finally settles into its mature form, we who have midwifed its birth will be something unprecedented—humans shaped by living geology, minds tuned to frequencies no one else can hear.
+
+The warmth beneath my body shifts slightly. Tomorrow will bring change, as every tomorrow does. I smile against the stone and whisper my understanding back to it, my words too soft for human ears but perfectly audible to something with hearing deep enough to catch the conversations of stone.
+
+I am Senna of Kythara, daughter of volcanic dreams, and I am becoming myself the same way the mountain is—one careful transformation at a time.

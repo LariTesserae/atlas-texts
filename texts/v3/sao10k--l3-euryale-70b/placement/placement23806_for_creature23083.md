@@ -1,0 +1,11 @@
+In this nightmarish realm of impossible angles and crystalline fang, there can be little doubt of the kinds of entities who give animation to this tableau of ancient abomination. These eldritch beings must be inextricably fused to the shimmering hyaline array, their starkly geometric forms intertwining with the scintillating structures in a seething mass of inexorably indiscernible facets.
+
+Though they seem static, even undulating, frozen forever in the glittering mineral fretwork, they throb with an impossible vitality. Eldritch and atavistic, vast and yet condensed to a single travellerspace, their consciousnesses interfold with the barbarous landscape that birthed and sustains them. The very crystals are their being, some hideous syncretism of immobile flesh and shifting silicon. 
+
+In appearance, they must be representative, like the crystalline forest around them - a weird seismic uptulgence of prismatic planes. Their shapes are maddeningly asymmetrical, jagged and splintered, distorting space to their particular intent. Impossible angles diffract from their ALABASTER flesh, refracting the crimson light into impure creation.
+
+No suggestion of organic movement reveals their twitching. Their frenzy seems to come from within the geomatrical limits of their shape. Inward seethe their aberrant consciousnesses, suffused through living crystalline lattices, triggering seismic perturbations through the hyaline array. The creatures seem more resonant outcroppings of the mineral susurrus than animating entities that inhabit it.
+
+The entities are ancient, immensities dreaming themselves to completeness over eons of permution. Theirs is a consciousness of geological immortality, eldritch sentience accreting with the gradual deveolopmen of adavanced mineral strucutures. Despite - or because of - this, they understand their perfidious interwait with the flashing crystal geometry to a degree innominate to mortal men.
+
+Ultimately, one cannot be sure if they ever depart the abyss of their own calcifications. In a vacuum of lucidity, they meander the luminous geometries of their own archetypes, experiencing visions impossible to technologically fettered mentation. If they ever depart the stony womb of their nativity, it must be to generate other fractal scenes - to transmit their ecstatic geometries in deveoloping paisajes of oneway planning.

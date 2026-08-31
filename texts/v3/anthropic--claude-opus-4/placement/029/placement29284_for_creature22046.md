@@ -1,0 +1,25 @@
+In the vertical shafts between basins—those narrow, brick-throated chimneys that connect the sump-levels to the furnace halls above—I make my dwelling. I am what the Sump-Gangers call a **Thread-Rigger**, though I have not rigged thread in many years.
+
+My body has grown to match my home. Where the Boilers have spread wide and low, I have stretched thin and tall. My limbs are twice the length they were when I first descended, my joints having slowly separated and reformed in the constant upward pull of my work. My fingers and toes have lengthened into tools—each digit now carries a hooked nail, black and hard as wrought iron, perfect for finding purchase in the mortar joints.
+
+I live suspended. My territory is a hexagonal shaft, forty feet high and six feet across, that connects Basin Forty-Two to Basin Twenty-Seven above. The walls are slick with the same weeping condensation, but here it runs in sheets, pouring down from the higher basin in a constant warm waterfall that I must navigate around, through, and sometimes directly beneath.
+
+My skeleton has adapted. My ribs have flattened and spread, creating a shallow cavity in my chest where I can press myself against the brick when the water surges. My spine curves backward now, not forward—a permanent arch that allows me to look up without straining while I climb. The vertebrae have developed small, bony ridges that catch the brick edges when I need to rest.
+
+I wear nothing but a harness of my own making—woven from the silk of the **Chimney Spinners**, fist-sized spiders that share my shaft. They are burgundy-colored, with abdomens that glow faintly in the dark like embers, and they spin cable-thick threads that can support a man's weight when properly braided. I harvest their silk while they sleep during the midday heat, when the shafts become unbearable even for me, and retreat to the coolest corners where the bricks meet.
+
+My work is the **Clearing**. The iron gratings that separate each basin level grow thick with debris—dead moths, crystallized salts, sheets of precipitated sulfur, and the occasional tools or scraps that fall from the workshops far above. Left unchecked, these gratings would seal themselves shut within a month, trapping the steam below until the pressure cracked the brickwork.
+
+I climb by touch and by sound. Each shaft has its own voice—the echo of my movements changes depending on how much debris has collected above. A clear grating sings one note; a clogged one mutters and chokes. I know by the resistance of the air against my face whether I need to bring my longest pole—a twenty-foot length of rolled copper pipe that I keep wedged diagonally across my shaft—or whether my arms alone will suffice.
+
+The clearing itself is delicate work. I must hang by three limbs while using the fourth to work the debris free, all while the hot water streams around me. The trick is to break the clog gradually—too fast, and the sudden rush of released steam can scald the skin from your bones. I've learned to read the pressure by the sound, working each piece free with the patience of someone unpicking a knot.
+
+I eat what falls through the gratings. The Sulfur Moths that die against the bars are bitter but nutritious when dried. Sometimes larger things fall—rats from the upper levels, their fur already half-cooked by the steam. I catch them in nets of spider silk that I string across the shaft at different heights. On fortunate days, someone above drops food meant for the Boilers—hard biscuits sealed in wax paper, dried fish, tins of preserved meat. These I intercept gladly.
+
+My eyes have grown enormous to gather the scant light that filters down from above. The pupils no longer contract—they remain dilated always, giving me the appearance of someone in perpetual shock. But I see perfectly in the near-darkness of the shafts, distinguishing the subtle differences in brick color that tell me which sections are oldest, which are failing, which have been recently pointed.
+
+I sleep in a nest I've built at the midpoint of my shaft—a platform of woven spider silk stretched between four iron pins that I drove into the mortar years ago. It sways with my movement but holds firm. The constant sound of falling water has become my silence; I cannot sleep without it.
+
+Once a month, during the maintenance cycle, they close the valves above and the water stops. In that strange, dry quiet, I can hear the other Thread-Riggers calling to each other through the shaft network—not words, but long, hollow notes that carry through the brick throats of our vertical worlds. We report our conditions: *Clear.* *Partial block.* *Full clog.* *Structural damage.* 
+
+I have not seen another of my kind in three years, though I know from the calls that there are at least six of us in this section of the works. We are solitary by necessity—two bodies in one shaft would be disaster. But sometimes, when

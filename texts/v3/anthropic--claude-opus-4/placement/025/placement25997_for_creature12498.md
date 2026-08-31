@@ -1,0 +1,25 @@
+I am a **Mist Walker**.
+
+My body is wrong for this place, or perhaps perfectly right. Where the Burrowers compress themselves against the cold, I have grown long and thin, my limbs stretched like the spaces between the bryophyte towers. My bones are hollow - not fragile, but resonant, collecting the vibrations that travel through the thin air. When the wind screams across the plateaus, my skeleton hums with it, reading its patterns like a language older than words.
+
+My skin has given up the pretense of keeping moisture in or out. It is permeable, drinking the constant mist through ten thousand pores, releasing it again in controlled streams that freeze instantly in the air, creating brief veils of ice crystals that scatter what little light exists. This is how I move unseen - not through hiding, but through becoming indistinguishable from the weather itself.
+
+I do not burrow. I do not settle. My path winds eternally through the killing spaces between the living mountains, following routes that exist only in the convergence of wind patterns, condensation zones, and the faint thermal currents that rise from deep canyons. My feet - if they can still be called feet - are broad and webbed with a membrane that hardens in cold and softens in warmth, allowing me to traverse both the ice-slicked rock and the spongy bryophyte surfaces with equal, eerie grace.
+
+The Burrowers glimpse me sometimes at the edges of their vision, a tall shape moving through the mist-veils between their scattered settlements. They have woven me into their warnings: the one who walks where no one should walk, who drinks the sky's tears and breathes out winter. But I am no predator. I am something more unsettling - a being who has chosen the emptiness over the warmth of the living walls.
+
+My sustenance comes from the intersection of extremes. Where hot springs bubble up through cracks in the volcanic rock, meeting the freezing air to create perpetual fog banks, I feed. Not on any substance, but on the gradient itself - the moment where hot becomes cold, where vapor becomes ice. My metabolism runs on phase transitions, on the energy released when water changes its mind about what it wants to be.
+
+I carry tools, though they would be unrecognizable as such. Long strands of crystallized fog, harder than ice but flexible as rope, coiled around my torso. Hollow tubes of volcanic glass, singing different notes when the wind passes through them, each pitch meaning something essential about pressure, temperature, storm approach. My only built structure is a series of cairns placed at precise points across the continental vastness - not markers of territory but instruments in a vast atmospheric apparatus, helping me read the mood of the entire Sky Crucible through the subtle variations in how wind moves around stone.
+
+My eyes have evolved past seeing. They sense pressure differentials, the minute variations in air density that herald a Glacierwing's approach or mark the thermal plume of a hidden bryophyte forest. In the perpetual twilight, I navigate by the stars' songs - each celestial body emitting its own frequency of radiation that vibrates differently in my hollow bones.
+
+I remember when I was like them - when I lived in the warmth and the walls. But something in me responded to the vast emptiness, the terrible freedom of the spaces between. Generation by generation, my lineage grew longer, thinner, more adapted to the void. We stopped being able to digest solid food. We lost the ability to process the comfort of enclosed spaces. We gained something else - a kinship with the continental loneliness itself.
+
+The Rift Roarers' calls do not frighten me. I have learned to read the echoes, to understand how sound moves through the canyons and across the ice fields. Sometimes I answer them with my glass tubes, creating harmonics that confuse and disorient, not out of malice but as a form of communication they cannot comprehend. We are both apex beings in our way - they rule the depths, I inhabit the distances.
+
+My greatest fear is not the cold or the predators or the vast empty falls between bryophyte cliffs. It is the day when the mist stops forming, when the temperature gradients flatten, when there is no more transition to sustain me. I would simply cease, not dying but dispersing, my consciousness spreading out across the thin air until I become truly one with the space between things.
+
+But that day is not today. Today the wind sings through my bones, the mist condenses on my permeable skin, and I walk the impossible paths across the Sky Crucible's hostile infinity. I am the witness to the emptiness, the reader of the void's poetry, the only thing in this world that has chosen the space between over the warmth within.
+
+The Burrowers are right to make me a warning. But they are wrong about why.

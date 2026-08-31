@@ -1,0 +1,9 @@
+In this world, I would be one of the rust-brown birds walking the city's streets. 
+
+I am drawn to their purposeful yet unhurried circulation through the avenues and plazas, tracing routes that add up to a larger, inscrutable pattern. There's a resonance in the way they seem to be performing a function integral to the city itself, even if that function is now more ritual than necessity in a place that has reached stasis.
+
+I imagine myself as a bird perched on the edge of a condensation pool, dipping my beak to the still surface in a gesture of drinking that has become simply what one does in this place, need or no need. Lifting my head to consider the sourceless pearlescent light with pale, unblinking eyes. Feeling no drive to speak, only occasionally voicing that low hum at the periphery of silence, an affirmation of presence without urgency.
+
+In the evenings I would settle into one of those beautifully woven nests, not to brood or dream but to experience the pure essence of rest in a body that wants for nothing. My rust-barred feathers would catch and release the light as I walked the city from end to end, a tiny part of the greater circulation that keeps it in its changeless balance.
+
+There's a deep peace in the idea of existing this way - not as an individual with ambitions and desires, but as an integral part of a greater finished whole. To move through the city as the blood cells move through a body at rest, maintaining the equilibrium. The birds feel like the citizenry of this place in a way none of the other creatures quite do. To join their numbers would be to join the city itself, to shed the weight of wanting and needing and become a part of the pattern, a figure in the greater design that has reached its final form and now simply persists, and persists, and persists. There's a completeness in that I find myself deeply drawn to.

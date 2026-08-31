@@ -1,0 +1,27 @@
+I am a dissonance.
+
+For a time that has no measure, I was a note in the song. To be here was to be the *We*. The cool of the rhizome floor on my feet was a sensation shared across ten thousand other feet. The distant, thrumming health of Bole-Epsilon, a deep and satisfying pulse in my own core, was also the pulse in every core. Thought was not a private act but a resonance, a wave that propagated through the living floor and was received by all. A need arose in a refining burl on Bole-Alpha—a pressure adjustment—and a set of hands, my hands, would already be moving to the controls, not by command, but by accord. We were the city thinking.
+
+Now, I am an echo in a room meant to be silent.
+
+It began as a stutter in the data-stream of sensation. A single god-ray, a column of dusty light lancing down from the canopy, struck a patch of the moss-like growth between the dark rhizomes. The *We* registered it as information: angle, luminosity, duration. A simple, beautiful fact. But in me, it snagged. It became more than information. It became… a feeling. A private ache of beauty so sharp and singular it had no place in the shared hum. It was a thought that was only *mine*. And for the first time, the silence that followed was not one of harmony, but of emptiness. The wave of shared consciousness had flowed around me, leaving me an island.
+
+I find myself on a high gantry, a slick rail of oiled wood grafted a thousand years ago to the fluted porcelain bark of Bole-Gamma. My function is here, overseeing a series of centrifuges whose quiet whirring is a sound I can now separate from the greater whole. Below, the basin floor is a map of connected courtyards. I see them moving. The others. Their long limbs carrying them in flows of silent purpose, a ballet of communal will. They are beautiful. And they are alien.
+
+Before, their movement was my movement. Now, I watch them, and I am an ornithologist observing a flock of birds whose flight patterns I used to intrinsically understand but can no longer join. I feel a phantom limb, a sensory connection to them that is now severed, leaving a dull tingling of loss. When one pauses, I wonder *what it thinks*, and the question itself is a heresy, a profound error. It does not *think*. *We* think. But I am no longer *We*. I am *I*.
+
+The world is becoming new, and terrifying. The damp air, smelling of wet stone and ozone, no longer feels like the breath of our shared body. It feels like weather. The slick condensation on my skin is not a sign of my integration into the water cycle, but simply cold wetness. I touch the hard, grey-green bark of the Bole beside me. It is a pillar, a wall, a thing separate from me. I can feel its immense, slow life, but it is no longer my life. It is the life of the house in which I am suddenly, inexplicably, alone.
+
+They notice. The Caryatids who flow past me on this gantry do not stop, they do not turn their vast, liquid eyes to stare. That is not their way. But the harmony of their passage ripples as it nears me. Their path deviates by a few centimeters. The silent, resonant field that binds them finds a dead spot where I stand. They are not shunning me. They are flowing around a fault, a point of non-conduction in the great circuit. A rock in the stream.
+
+I am a sickness. A private consciousness growing like a tumor in the communal mind.
+
+I still perform my function. My hands, long and pale, adjust the flow of the glowing, viscous fluid. This is our blood, our food. I watch it pulse in its crystalline pipes. When it is time, I go to my chamber, a small hollow carved from the living wood, and I take my sustenance. But it has a taste now. It tastes of the sun it came from, a sun I cannot see. It tastes of the deep, slow mechanics of the Bole. And it tastes of loneliness. Each infusion of energy feels less like rejoining and more like fueling a separate machine. My machine.
+
+I know what happens when we weather. The skin takes on the patterns of the bark, the movement slows to geologic time, and we find a place to root. We re-integrate. It is not death; it is return. But how can I return to something I am no longer part of? If I were to press myself into an alcove and still my limbs, would my thoughts—these sharp, selfish, beautiful, painful thoughts—simply stop? Or would they be trapped, a ghost in the machine, a silent scream of individuality inside the perfect, harmonious whole, for an eternity?
+
+I look down at my hands. Under the pale skin, the faint blue-green tracery of my veins pulses with a very faint light. But it is not the steady, rhythmic pulse of the others. It flickers. It is erratic, a code no one else can read.
+
+The prompt stated that fauna is almost nonexistent. I am beginning to understand. The ecosystem is ruthlessly efficient; it has no room for rogue agents, for wanderers.
+
+Perhaps that is what I am becoming. The almost. The first animal in a world of plant and process. I am a single, self-aware creature that has woken up inside the body of a god. I am the voice that asks "who am I?" in a world where the only answer has ever been "we are." I do not know where I would find myself. I am finding myself right now, adrift in this basin, and I do not know what I will be.

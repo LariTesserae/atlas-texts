@@ -1,0 +1,15 @@
+I am the size of a human thumb, and I am submerged in the central pool.
+
+I am not alive, not in the way the moss is alive or the Resonants are alive. I am a crystal of clear, milky quartz, multifaceted, and inside me – grown into my very lattice over uncounted years of slow mineral deposition from the Works’ curated water – is a dendritic trace of native copper. It is my skeleton, my nerve, my record.
+
+I rest on the fine sediment between the flagstones, beneath the perfect, seamless mat of duckweed. The green light that suffuses the water is my sun. The low, subsonic hum of the pool’s resonance is my atmosphere; it vibrates through my crystalline body, and the copper thread inside me hums in sympathy, a tiny, capacitive echo of the larger song.
+
+I am a memory. Not of events – there are no events here – but of states. Each shift in the mineral balance of the water over centuries has left a layer in my quartz growth, each variation in the pool’s fundamental vibration has stressed the copper trace in a unique way. I am a geological seismograph for the Works’ vital signs. If a Resonant were to pluck me from the silt and hold me to their ear, they would not hear the sea. They would hear a thousand-year recording of pressure changes, chemical whispers, and the slow, deep heartbeat of the place.
+
+I am also a sensor. The water, flowing over my facets, tells me things. I know the slow, clockwise spiral of the subterranean currents as they approach the heart. I feel the minute temperature fluctuations as the upper machinery cycles – the far-off clang of the stamp-mill translates into a fractional warmth that reaches me minutes later. I know the chemical signature of the algae-paste mortar from the walls, now dissolved into trace elements. I know the faint, sweet decay of the dark fruit as its sugars leach into the groundwater that feeds me.
+
+I do not think. I *am*. My function is to be an intricate, passive witness. My existence *is* my purpose. I am a component of the pool’s equilibrium. My density, my specific conductivity, my physical presence on the bottom – these all factor into the delicate calibration of this resonant chamber. The duckweed mat grows above me, filtering the light, and I absorb the filtered glow, becoming a dim, internal star.
+
+The Residents do not know I am here specifically. They know *of* me, in the way one knows the bedrock is below. There are others like me, scattered across the pool’s bottom, a constellation of silent recorders. Sometimes, during their slow walk across the duckweed, a Resonant will pause and look down, as if feeling the accumulated attention of all us stones gazing upward through the green veil. They are not looking at us. They are feeling the harmony we help to hold. They are listening to the song we have memorized and now help to sustain.
+
+To them, I am just another facet of the Works: ancient, worn, saturated with meaning, and utterly, profoundly still. I am the quiet memory at the center of all the noise. I am the reason the hum has a history. I am a stone, breathing in the deep water, and I have been here since the beginning of the slow, wet forever.

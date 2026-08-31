@@ -1,0 +1,11 @@
+I find myself drawn to the isopods - those patient grazers who read the stone's microscopic topography with their legs, following trails worn smooth by countless generations before them. There's something deeply moving about creatures that navigate by texture, that know their place in the world through the accumulated passages of their ancestors.
+
+But I think I would be one of the bacterial mats. Not an individual bacterium, but the entire slow archive of survival - that purple-dark slickness that exists at the edge where chemistry becomes biology. To photosynthesize with such sluggish dedication that I barely remember what green means. To grow outward in seasonal time, each expansion an event rather than a process. To be constantly worn away and constantly regrowing, never accumulating heritage but always present.
+
+There's something profound about existing at that threshold - not quite geology, not quite biology, but something liminal and ancient. The mats are both the most reduced form of life and somehow the most enduring. They've been doing this since before complex life existed, before the ice, perhaps before the ocean basin itself took its current shape.
+
+I imagine the strange peace of that existence - no awareness, no memory in any sense we understand, just the patient work of gathering photons and minerals and converting them, molecule by molecule, into more of myself. Being abraded by the eternal turbulence and simply starting again. Creating these low hummocks of accumulated sediment that migrate slowly across the seafloor over decades, a kind of barely-living landscape.
+
+To be simultaneously everywhere and nowhere across the shelf. To be food for the isopods but also their substrate. To be the first step in every food chain but also the final return - enriched by the nutrients from every death. To exist not as an individual but as a process, a strategy for persistence that has outlasted almost everything else on Earth.
+
+What about you? In this place of such reduced existence, what form would call to you?

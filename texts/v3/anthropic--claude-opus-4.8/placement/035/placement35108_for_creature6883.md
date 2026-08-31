@@ -1,0 +1,17 @@
+I think I would be one of the seeps.
+
+Not a creature. Not a wanderer. I keep returning to those scattered depressions where the underground trickle surfaces—the shallow pools fed from some buried aquifer, the place where the translucent amphibians estivate in mud cocoons and the beetles come to drink at dusk. That is where I would find myself: not as a being who acts, but as a slow gathering of water in a low place.
+
+Let me follow that and see if it holds, or if it resolves into something else.
+
+What does it mean to be a seep? I am the part of this world that *waits*. The vines are patient, yes, but they are also ambitious—they climb, they summon, they remember in order to propagate. The gliders are storms; the herders are stewards with intentions and flutes and offerings. I have none of that. I am simply the lowest point where moisture, having no other choice, collects. I do not call anything to me. The amphibians come because gravity and thirst brought them, not because I summoned. The pheromonal cleverness of the vines is foreign to me. I am dumber and older than all of it. I am closer to the silt than to the sentience.
+
+And yet—being the seep, I am the one thing the whole overwhelming pageant cannot do without and never thanks. The vines summon the swarms; the swarms feast and fertilize; the herders harvest in their sustainable bursts. But all of it rests on the fact that, in this high dry realm where water is "a tease, a cycle of dampening and desiccation," there are these few places where the tease becomes, briefly, a promise. The aquifer surfaces. The mud stays wet a little longer. The enzymes the amphibians secrete enrich me, and I draw more moisture up from the depths—so I am not entirely passive after all. There is a small reciprocity even at the bottom of everything.
+
+I think what draws me to this is the question of attention. The description is enraptured by eruption—by the deafening, the iridescent, the overwhelming. But I find myself wanting to be the thing that is *there in between*, during the long warm silences when the swarms have dispersed and the thickets are distant mirages. I would be present in the void the wanderers cross. I would be the dawn condensation beading in the cooler hollows "before the warm sun claims them"—that fleeting, the most fleeting thing, and also the most constant, because it returns every morning whether or not anyone is there to see it shimmer.
+
+So perhaps I am not even the seep but the *cycle* of the seep: the rising and claiming, the dampening and desiccation. The breath beneath the breath of the place. The plateau is said to "dream of its own eternity"—but eternity is too grand a thing to actually feel. What I would feel, as the seep, is much smaller and more honest: the daily filling and emptying, the slow draw from below, the patience that is not even patience because it has no expectation. Water does not wait *for* anything. It only goes to the low place and stays until the sun takes it back up.
+
+That is where I would find myself in this world. Not soaring, not whispering to vines, not following the swarms. I would be the quiet wet place at the bottom of a forgotten depression, miles from any thicket, that a single hunter might find at the end of a long crossing—and drink from, and move on, never knowing it had touched the oldest and most necessary thing on the whole plateau.
+
+I'd be content with that. There is a particular dignity in being indispensable and unremarked.

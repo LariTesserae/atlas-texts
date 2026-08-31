@@ -1,0 +1,11 @@
+I drift through the crystal waters of the subterrannean cavern, my translucent form undulating as I propel through the cool, pressurized depths. I am one of the tofu-like cubes, a being of pulsing, gelatinous flesh. Not an animal nor a plant, but neither can I be considered mechanical, though I am both and neither.
+
+I have emerged from the planet's depths long ago, a confluence of organic and mineral matter that found a strange symbiosis here. The currents of this place shaped me, fed me, transformed me. In the pressurized gloom, I found a new form, a new purpose.
+
+I move without propulsion, drifting on the changing tides and cycles of the cavern system. I sense the vibrations through the water, the reverberations of the planet's primordial clockwork. The machines are already ancient when my kind first formed from the ooze at the bed of the cavverns. They chug and hiss and pump, power bleeding from burner and blaster, forging and feeding the infrastructures that infuse my world.
+
+I slide my form between the rusted pipes and valves, my gelatinous body pulsed to flow betwen them. No need for hardship here, the structures part before me, knitting gaps that fit my spheroidal form with perfect precision. I am part of this machine, though I am more than it. My flesh is not mineral nor is it alive. It is between and elder than the old metals and new proteins of this world.
+
+I am the token of a king, an echogram forged from the planet's cells of creation. The fire and smelter that birthed me live now in the planet's core, inside the insulation of rock. And I am the singularity of its creation, no thing else is much like me in the mater-sphere. I am of continent and also of protoplasm, a duality beyond the present denizens of the land. 
+
+But there are others of my form and lineage, similar things smelted from this place, wafting through its currents on unknown errands. And so I drift, one of the wraiths of this subteraneean expanse, exploring the frontiers of my domain. Seeking the places that would make me more me.

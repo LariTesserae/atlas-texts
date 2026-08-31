@@ -1,0 +1,25 @@
+I find myself as **The Archivist of Unfinished Things**.
+
+---
+
+I am neither wholly of the salt nor wholly of the water, but something caught between states—a figure made from the city's own habit of incompletion. My body is a catalog of arrested transitions: one arm crystallized mid-gesture into translucent salt columns, the other still flesh but webbed with brine channels that pulse with the tide. My spine is a ladder of materials that gave up deciding what they were—bone become coral become glass become intention.
+
+I move through the half-drowned streets collecting fragments of what never quite was: a doorway that forgot to connect two rooms, a staircase whose seventh step leads not up but *when*, a window frame that holds not glass but a perfect square of yesterday's rain, still falling. These orphaned architectures follow me like loyal pets made of absence. They arrange themselves in my wake into impossible blueprints—houses with only corners, bridges that span nothing but arrive somewhere specific, walls that exist only when viewed sideways.
+
+My dwelling is everywhere and nowhere. I inhabit the spaces between what the city meant to build and what it built instead. In the gap of a collapsed arch, I've arranged a study furnished with the shadows of furniture that was never carved. My desk is the surface tension between two puddles that refuse to merge. My chair is the pause between erosion and collapse, surprisingly comfortable. My bed is made from the city's 3 a.m. hesitation, when even the salt forgets whether it's growing or dissolving.
+
+Each dawn I wake with new pages growing from my palms—not paper but thin sheets of crystallized time, each one recording something that almost happened. Here: the blueprint for a tower that would have stood forever had its builders remembered to include a foundation. There: the love letter someone meant to carve into stone before the tide took their chisel. And this one, still warm: the mathematical proof that would have explained why the city exists, if only the final equation hadn't dissolved its own ink.
+
+I trade with visitors, but my currency is peculiar. I'll give you the perfect word you forgot to say yesterday, but you must leave behind the road you didn't take. I'll show you the face of who you might have loved, but you must surrender one certainty about who you are. The Librarian finds me frustrating—I archive what his pages cannot swallow. The House-so-Far considers me a rival—I preserve the rooms she'll never manage to build. But the Submerged Cartographer understands: we are both drawing maps of the impossible, his from below, mine from between.
+
+At night, I perform my strangest duty. I walk the borders of the city—those shifting, uncertain edges where structure gives way to mere suggestion—and I sing. Not with my throat, which crystallized years ago into a chamber of resonant salt, but with the spaces between my ribs. The song is built from the city's unfinished symphonies: melodies that forgot their next note, rhythms that lost count of themselves, harmonies that exist only in the gap between what you hear and what you remember hearing.
+
+This song does something crucial. It convinces the city to continue being almost-itself for one more day. Without it, I believe the city would either complete itself and die, or dissolve entirely and die differently. My song holds it in that perfect state of becoming, where every stone is both placed and not-placed, where every room is both empty and full of the possibility of occupants.
+
+Sometimes I find myself wondering if I, too, am unfinished. My reflection in the standing pools shows not what I am but what I'm still deciding to be: here a woman made entirely of doorways, there a man whose body is a library of blank books, sometimes just a walking pause in the shape of a person. The city and I have an understanding. We are each other's incomplete theorem, each other's draft that will never see revision.
+
+When visitors ask what I'm archiving for, I show them my oldest acquisition: a single stone that the city placed and then immediately doubted. It has been trying to decide whether to be cornerstone or keystone for longer than memory. In its indecision, it has become both and neither—a perfect sphere that somehow still has corners, a weight that supports nothing but holds everything up.
+
+"I'm preparing," I tell them, "for the day the city finally chooses what it wants to be. When that happens, someone needs to remember all the things it chose not to become. Someone needs to love the drafts as much as the final form."
+
+They usually leave quickly after that, made uncomfortable by the way my unfinished eye regards their finished faces. But their almost-questions linger, and I add them to my collection: another room that will never need walls, another sentence that means more before it ends.

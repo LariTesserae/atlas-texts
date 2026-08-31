@@ -1,0 +1,19 @@
+In the Verdant Warren, I am the Memory Keeper of Water.
+
+I dwell in the Cistern Cathedral, a vast chamber where the city's most precious resource is stored. The walls here are lined with thousands of glass vessels, each containing a single drop of water and the memory it carries. When rain fell on the surface world and found its way through fissures to our realm, when dew condensed on the great sentinel trees, when tears were shed in joy or sorrow—each drop remembers.
+
+My body has adapted to this sacred duty. My fingers have grown long and delicate, with skin so sensitive I can feel the molecular structure of water through glass. My eyes have developed a peculiar quality—in their depths, one can see the reflection of every water source I've ever catalogued, creating an infinite regression of liquid memory. I wear robes woven from hydrophilic moss that changes color with humidity, shifting from deep emerald to pale jade as I move through different chambers of the cathedral.
+
+The vessels sing. Each one resonates at a different frequency, creating a chorus that only I and my apprentices can fully interpret. The sound of water that once rushed through a mountain stream vibrates differently than water that sat still in an underground lake for millennia. I've learned to read these songs like sheet music, to understand the stories they tell.
+
+My daily work involves more than mere preservation. When the Tenders need to understand why certain plants fail to thrive, I divine the answer in the water's memory—perhaps the soil lacks minerals from a specific ancient riverbed. When the Engineers design new irrigation systems, I guide them to match the flow patterns that the water remembers from its time above. When couples come to bond their lives together, I blend waters from their family vessels, creating new memories from old ones.
+
+But there's something changing in the water's song lately. The newest additions to my collection carry memories I don't recognize—water that remembers falling as rain in places that don't exist yet, carrying the taste of flowers that haven't bloomed, the mineral signature of rocks not yet formed. These future-memory drops I keep in a special chamber, one that I've told no one about except my most trusted apprentice.
+
+Sometimes, in the deep quiet of the cistern's heart, I perform the Remembrance. I take a single drop on my tongue and let its entire history flow through me. I become the cloud it condensed from, the ocean it evaporated from, the creature that once drank it, the plant that drew it up through roots. In these moments, I understand that I am not just keeping records—I am maintaining the city's connection to the great cycle of water that connects all things, above and below.
+
+The other inhabitants see water as a resource to be conserved. They're not wrong. But I know it as something more: a thread of continuity that runs through all life, carrying messages across space and time. Each drop is a library. Each vessel is a voice in an endless conversation between the surface world we've lost and the underground paradise we've built.
+
+In my most private moments, I wonder if I'm becoming water myself. My movements flow. My thoughts eddy and pool. When I sleep, I dream of being poured from vessel to vessel, carrying messages I don't understand to places I've never seen. Sometimes I wake to find my apprentices watching me with concern, saying I was speaking in the language of rain.
+
+But this is the price and the gift of my calling. In a city that exists in the eternal present of growth and decay, I am the one who remembers. In a place where water is more precious than gold, I am the one who knows why each drop matters—not for what it is, but for what it has been and what it might become.

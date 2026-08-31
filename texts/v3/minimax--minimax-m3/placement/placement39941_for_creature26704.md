@@ -1,0 +1,23 @@
+I am the smith's apprentice. I have not yet earned the name; I have not yet earned any of the names the smith carries. I am nineteen, perhaps twenty — ages are uncertain here, counted from the last frost out of the upper terraces, which moves around. I carry the iron tools.
+
+This is my principal work in the three weeks out of four when she is not at the forge. The tools come up from the lowlands in small consignments, wrapped in oilskin, and they are not to be touched except with bare hands because the iron remembers the skin of the person who maintains it, and it must learn mine before I can use it. I do not know whether this is true. I do what she says.
+
+When she works, I sit on the low wall of the forge-room and watch. The forge is a floor-pit deeper than the household pits, with a stone-lined flue that draws better than most. She lights it with charcoal she has traded a quarter-boar for. The smoke is sharper than the cooking smoke, more metallic, and it makes my eyes water. I have learned to sit where the draught does not reach me, and to hold my breath when she taps the bronze, because the bright flakes will land on damp felt and burn through.
+
+She works bronze mostly. Wire, sheet, the occasional fitting. The solder she mixes herself from a recipe she will not give me, and I have begun to suspect it is partly handed down and partly made up each time, because the proportions vary. I have asked. She has said only that the metal knows what it wants and that I will learn to hear it. I do not yet hear it. I hear only the small sounds of the hammer and the hiss of the quenching water and the faint tick of the bronze as it cools.
+
+I have the tremor. Everyone here has it — the fine constant vibration in the fingers that the lime-chipping songs attribute to the wetness of the place entering through the fingertips and trying to shake itself loose. Most people do not notice. I noticed it when I was eight or nine, watching my mother card wool, and I asked her why her hands shook, and she told me it was the city below trying to get out through us. I did not believe her then. I am no longer sure.
+
+I have begun to notice the iridescence on my own skin. It is there in the brief hours of true sun, which I should not be looking at directly but which I look at anyway. On my forearms, on the backs of my hands, in the angles of my wrists, a faint petrol-sheen moves as I move. The smith has it too. The children have it less. I have not asked her about it. I think she would not answer.
+
+When she dies — and she will die, as we all die here, at sixty or seventy, taking her reasons with her — the hollow will lose the solder. It will lose the wire. It will lose the only person who can mend the goat-bells and the upper tower door and the small bronze fittings at the scalps of the elderly women. I think about this often. I do not think I can learn it. I am not sure I am trying.
+
+I go up to the tower sometimes, in the clear hours, and stand with the horn-blower. She is older than I am and her hair is loose in the goat-keeper way, and she does not coil it. She has been up there for years. She has told me things about the view that I do not think she tells the others — that the settlement, seen from above, looks like a single dark shape pressed into the floor of the hollow, like a coin dropped into wet clay. I knew this from the songs. I did not know it from having seen it. Now I have seen it. Now I think about it differently.
+
+She has not been through the southern tunnel. The smith has been partway, once, when she was younger. She told me this in the forge-room one evening, while the bronze was cooling, and she said the walls of the tunnel are not basalt like ours but something smoother, and that there are marks on them she did not understand. She did not say what the marks were. She did not go further. She came back and did not speak of it for a long time.
+
+I have begun to wonder. I do not say so. Wondering is not considered good form.
+
+My hair is in coils. The pebbles at my scalp are six — three dark, two pale, one almost white. They click when I move. I am not yet elderly; the click is not yet a language that others can read at a distance. It is only a sound, and a small one, and most people do not hear it over the susurrus of the water in the stone.
+
+I will die here. My bones will go into the channels. The water will take them within a day. The city below will have me, or it will not. I do not know which I hope for. I have not asked.

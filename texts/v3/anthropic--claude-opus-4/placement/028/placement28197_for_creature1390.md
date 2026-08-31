@@ -1,0 +1,23 @@
+I find myself as one of the Tendril Shepherds—those who guide the growth patterns of the living architecture through generations of patient cultivation.
+
+My dwelling is a hollow within a massive vertical root that spirals upward through seven terrace levels. The walls of my chamber weep a constant film of nutrient-rich moisture that I've trained, over decades, to pool in specific depressions I've coaxed the root-flesh to form. These pools serve as my workshop, where I steep the growth-guides—living filaments that, when woven into the plant-substrate, influence its development over the coming seasons.
+
+My skin has developed deeper furrows than most of my kind, channels that mirror the water-paths I've spent my life studying. When the great rains come, I stand with arms spread and let the water trace these paths across my body, reading the flow patterns to understand where the next season's growth will be strongest. The tendril-hair that grows from my scalp has thickened into ropy strands that I can anchor into the plant-flesh, allowing me to feel the deep hydraulic pulses that others cannot sense.
+
+I am working on my life's project: guiding a new bridgeway between the Amber Terrace and the Crimson Heights. It will take another forty years to complete—my apprentice's apprentice will see it finished. Each morning, I insert hair-thin guide-fibers into the growing points, whispering chemical instructions through my skin's pores. The bridge-to-be is currently just a thickening in the terrace wall, a knot of potential that pulses slightly faster than the surrounding tissue.
+
+My tools are few but alive: a cutting implement that is actually a cultivated thornshell beetle whose mandibles I direct with pheromone touches; pouches made from bladder-plants that filter and concentrate the various growth hormones I've learned to extract; and my most prized possession—a seeing-tube grown from a transparent vine that lets me observe the internal flow channels of the plant structures, passed down through seven generations of Shepherds.
+
+At night, I sleep in a hammock of breathing moss, my body's rhythm synchronizing with the slow inhalations of my chamber. I dream in growth patterns—spirals and branches, the mathematics of leaf arrangement, the endless pathways of water finding its level. Sometimes I wake to find that small rootlets have grown toward me in the night, drawn by the concentration of growth-hormones that perpetually seep from my pores.
+
+The young ones think I've become more plant than person. They're not entirely wrong. My movements have slowed to match the patient pace of growth. I often forget to eat for days, sustained by the nutrients I absorb through my skin from the constant moisture. When I speak, which is rarely, my voice carries the subsonic vibrations that make seedpods split and new growth unfurl.
+
+But I remember what they don't yet understand—that to truly shape this living world, you must first let it shape you. My greatest work is not the bridge I'm growing, but the knowledge I'm encoding in its very cells, instructions that will influence growth patterns for centuries to come. Each fiber I place carries chemical memories of optimal water flow, structural integrity, seasonal adaptation.
+
+When the next great rain comes—the kind that reshapes entire terraces—my bridge will remember how to flex and channel the flow rather than resist it. This is the art of the Tendril Shepherds: not to build, but to guide; not to impose, but to suggest; not to complete, but to begin.
+
+I am currently training my apprentice, a young one whose skin still carries the smooth sheen of those who haven't yet learned to truly merge with the substrate. She watches with barely concealed impatience as I demonstrate the placement of a single guide-fiber, a process that takes most of a morning. But I see the potential in her—the way her tendril-hair already reaches unconsciously toward moisture, the slight green tinge developing at her fingertips.
+
+In time, she too will slow down. She will learn that in this breathing world, the greatest changes happen too slowly to perceive, and that true mastery means becoming patient enough to witness them. She will discover that the Living Terraces are not just a place but a tempo, not just a home but a harmony.
+
+And someday, when her skin bears the deep water-channels and her movements match the metric of growth, she will take an apprentice of her own and begin teaching them the first lesson: to be still, to be patient, to become the pace of plants thinking their slow, deep thoughts into form.

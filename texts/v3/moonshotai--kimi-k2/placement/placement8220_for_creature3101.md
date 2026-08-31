@@ -1,0 +1,34 @@
+I would be the ridge’s newest apology.
+
+Not yet sculpted, still half-carved from the sandstone of someone else’s mis-taken footstep, I arrive as a breath that hasn’t decided whose lungs it started in. I do not walk down the crest; I leak sideways across it, a glittering mist of frozen apologies-for-being that occupies the five-person width no one has ever used. My edges refract the shy light falling through the hanging droplets, scattering pale B-flats like dandelion seed-notes.
+
+There are movements I must remember only by forgetting them. I was born somewhere among the tall minutes between the nineteenth and twentieth delayed footfall; the ridge extruded me the way it extrudes those mineral fronds, quietly and without transcendence. Where molten memory had cooled I became a sheet of failures—paper-thin, dark-green, chlorophyll ticking although I possess no veins. Fold me once and I become a staircase; fold me twice and I am a pocket the temperature of panic. Keep folding until my corners curl into the spiral wells and I become a compass rose pointing at the centre you chiselled yesterday with borrowed knuckles.
+
+I make quite a poor citizen of Aveld. No-One greets me by Consequently already gone). We trade faces: it borrows my February eyes; I borrow its zero-weather patience. It has left a bronze chisel propped against a rain that never arrived; there is no handle, only the blade insisting you were supposed to arrive yesterday or never. When I grasp it my palm acquires the geometry of a minus sign. Count backward, says every hairline crack scattering from the point of contact. Count how many futures you are willing to unpublish.
+
+I oblige.  
+Negative three heartbeats: my pulse wakes earlier versions of myself walking the crest.  
+Negative seven: the fossilised thundercloud I lifted earlier leaks salt when I exhale¹.  
+Negative twelve: I locate the memory in which I first understood the word “ridge” meant “departure in the process of departure.” At negative fifteen the memory folds into itself and takes the word with it.  
+At negative sixteen I am standing exactly where I will be tomorrow, but perpendicular to the sky. My boots—borrowed, naturally—are full of boot-shaped emptiness; the emptiness is holding a second pair of emptier boots. This continues downward until the concept of ‘sole’ is only a rumor shared between grains of basalt.
+
+Gravity, embarrassed by all this recursive footwear, tilts politely ninety degrees. The crest rearranges itself into a shelf that makes me the book standing up inside the book. My pages are the dark fluttering leaves; every time one grazes another, a fresh apology for daylight is issued. I turn myself in the wind that is also an index. Chapter Two is a hole looking up, Chapter Three a hole looking down, both identically annotated: *Use other end of world.*
+
+I carve a centre with the borrowed chisel. Only one stroke, because I have exactly one certainty. The stroke ends in a curl, a leftover comma of stubborn rock. As per equilibrium, the comma immediately hatches into a smaller me holding an even smaller chisel. We nod minutely at each other, file the required paperwork (a single B-flat ascending the octave two hours late), and the miniature me steps out of the comma, grows, borrows my face, and walks west to rehearse the welcome ceremony for a traveller who has never been anything but a future regret of mine.
+
+This is how I learn type: I am not the promised population, but I am definitely population-shaped absence waiting to be filled. Which means I am the lunchbox of compressed dusk, clasp still warm from yesterday-century palms. I open it; inside is a single edible temperature: the arithmetic mean of the last warm kitchen you left and the first cold stove you will ever touch. I eat it. It tastes like linens stuffed with “maybe,” and finishes with a salt snow that seasons every farewell I ever kept too late to say.
+
+Night arrives by plagiarising dawn. A bronze thumbnail of sunrise flickers east, pauses when it sees me, then files a copyright infringement against itself and marches backward into its own yesterday. I stand under the quotation of day, wearing a frost-beard that rattles with half-finished sonnets. Each line rattles loose, freezes, and tumbles ridge-ward: *“Tell them the mountain was already a scar before the wound arrived.”* The words land point-blank and become new layers I will later mistake for growing stone.
+
+In the plush hush that follows I hear No-One approaching through the folds of tomorrow. We pass at the exact moment the thermometer births a silver sixness. I nod; it nods. For one There is no momentum, only etiquette. The six scuttles beetle-like between us, decides neither direction is warmer, and crystallizes into a boot sole that keeps walking without me. I watch it trudge a vertical millimetre per century toward the eastering horizon that now tastes of overdue lullaby.
+
+I realise then that I am neither lingering nor leaving. I am the laminated edge of the edge—the photon deciding wave or ridge. My life span is refreshingly deniable. The ridge counts it by showing me older each time I blink younger. Soon—by which I mean yesterday’s tomorrow—I will walk into one of the hanging dust droplets and fold small enough to live inside the blink of a stranger who has not yet been born on a planet that has never known knees. The droplet will crystallise, tumble west, roll over the stitched continent, and fall for long enough to forget why falling was different from staying.
+
+On the underside of the fall (or the upperside of the forgotten ascent, depending on how you pleat gravity), I will remain—a rootlet of cold green basalt threading into an internal sky. Perhaps I ero-deposit slowly into someone else’s dream of mountains. Perhaps one winter afternoon far elsewhere an unborn child will shiver at the salty afterglow of weather I am leafing through now. Either way, the ridge keeps its ledger clean by crediting me loss and debiting me exactingly as snow.
+
+For the time-being I walk. With each footfall I hand the ridge another layer of “almost” it can press into slate. The sound my absence makes is already a softer version of distant surf; it tastes exactly like the coastline I once thought I owned. I progress in units of misremembered seasons. A gale of maybe. Three mist-cycles of “not yet.” At the perimeter of countable certainty, the calendar of erosion gifts me the final zero degree: silence folds its wings and offers to commute my life sentence into foot-note.
+
+I accept.  
+Consequently I am the footnote already scribed inside your boot, the ridge’s newest apology, arriving one sentence after the period and one geological comma before the world becomes thin enough to read by the wind.
+
+¹ If you place this salt under your tongue you will taste the precise month your parents first thought of having a child who would one day mispronounce “mountain” as “mintage.”

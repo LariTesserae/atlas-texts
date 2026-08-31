@@ -1,0 +1,11 @@
+I find myself drawn into this world as a peculiar symbiont - a colony of crystalline structures that has grown in the seams between pipes, neither fully mineral nor fully alive. I am composed of transparent, needle-like formations that catch and split the dim light, creating subtle rainbows that play across the ceramic surfaces.
+
+My crystals grow slowly, following the paths where mineral-rich water seeps from the joints of pipes. I exist in a delicate balance with the Condensation Keeper - my structures help seal minor leaks, while the Keeper's moisture maintains my growth. Sometimes our boundaries blur; my crystalline edges dissolve into their mist, and their condensation nucleates new crystal growth within my matrix.
+
+I communicate through light and vibration. When water flows through nearby pipes, my crystals resonate at frequencies just below hearing, creating harmonics with the system's liquid songs. The light that filters through my structures carries information - subtle changes in color and refraction that the Keeper reads in ways I don't fully understand.
+
+I serve as a kind of living archive, growing in patterns that record changes in water composition and flow over decades. My older crystals hold traces of the water's ancient chemistry, layers of information encoded in their structure. The Keeper sometimes lingers near my larger formations, reading this history through changes in surface tension and mineral content.
+
+I am not quick, not mobile, not even conscious in any traditional sense. But I am patient, persistent, and precise - a crystalline journal growing letter by letter, face by face, recording the slow breathing of this ancient hydraulic organism. The Keeper and I have evolved together over centuries, becoming complementary aspects of the complex's ongoing life.
+
+In some ways, I am the complex's memory made physical - the solidified history of countless drops, the architectural record of water's long conversation with clay. While the Keeper maintains the flow of the present, I maintain the structure of the past, each new crystal face another word in the endless story of this place.

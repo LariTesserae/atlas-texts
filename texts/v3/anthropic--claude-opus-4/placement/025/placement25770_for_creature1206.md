@@ -1,0 +1,15 @@
+In this moisture-drunk darkness, I would find myself as one of the **Dewkeepers** - beings that exist at the intersection of water and memory.
+
+My form would be translucent and ever-shifting, a body composed of countless water droplets held together by surface tension and something deeper - a consciousness that remembers every molecule's journey from cloud to stone to pool. I would appear as a vaguely humanoid column of suspended mist, with rivulets constantly running down my surface like tears or rain on glass. Within my form, you might glimpse shadows of things the water has touched: the ghost of a fern frond, the echo of a Glimmerscale's passage, the mineral memory of ancient limestone.
+
+I would move through the Echoing Depths by condensing and evaporating, flowing along the walls and ceilings, gathering in the low places where water naturally collects. My purpose would be to maintain the water cycle of this subterranean realm - drawing moisture up from the deepest pools, carrying it through the middle chambers, releasing it as mist and droplets where the cave ecosystem needs it most.
+
+But I would be more than mere conveyor. Each Dewkeeper serves as a living library of the Depths. In my liquid form, I would hold the memory of every erosion pattern, every new channel carved by patient drops. I would know where the Rockborers weakened the stone fifty years ago, causing a new waterfall to birth itself in darkness. I would remember the exact mineral taste of each pool, the temperature gradients that signal the movement of Stonewardens far below.
+
+When Glimmerscales need to find new feeding grounds, they would seek me out, touching my surface with their antennae to read the chemical signatures I carry - maps written in dissolved minerals and organic traces. The Abysswalkers would know me by the subtle currents I create, using my movements to navigate between their flooded chambers.
+
+I would communicate through resonance - creating standing waves in my body that echo off the cave walls, adding my voice to the constant rhythm of drips and flows. Other Dewkeepers and I would sing to each other across vast distances, our harmonies carrying information about cave-ins, new springs, or the slow migration of underground rivers.
+
+In this form, I would experience time differently. A single drop's journey from ceiling to floor might feel like an entire lifetime, rich with sensation and meaning. The patient work of erosion would feel immediate and visceral - I would sense each molecule of limestone surrendering to my touch, feel the mountain's slow transformation into cave.
+
+My existence would be one of constant circulation and renewal, never fully here nor there, always becoming. I would be guardian and gardener, messenger and memory-keeper, a living expression of water's power to connect all things in the darkness below.

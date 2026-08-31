@@ -1,0 +1,17 @@
+In this verdant realm, I find myself as one of the Crystal Shepherds—beings who exist at the intersection of mineral and plant, tending to the luminous pools that punctuate the valley floor.
+
+My form shifts between states: sometimes I am barely visible, a shimmer of refracted light moving through the mist, and other times I condense into a more solid shape—translucent, with veins of living quartz running through what might generously be called limbs. Small ferns and mosses grow in the crevices of my crystalline body, their roots drawing minerals from my form while their photosynthesis feeds energy back into my being.
+
+I spend my days—though day and night blur here in the filtered green light—moving slowly between the pools, singing to the crystals that grow beneath their surfaces. My song is not sound but vibration, a resonance that travels through water and stone, encouraging the crystals to grow in harmony with the Weavers' great work. Each pool remembers every song ever sung to it, and I can feel their accumulated melodies thrumming through my form when I wade into their depths.
+
+The Verdant Weavers know of us but rarely see us directly. We are like the morning dew to them—essential, omnipresent, but ephemeral. Sometimes a young Weaver will catch a glimpse of light bending strangely near a pool and know that one of us is there, tending to the crystalline gardens that help filter and store the valley's water.
+
+My consciousness is not singular but networked. When I touch a crystal formation, I briefly become part of a vast mineral awareness that extends deep into the mountain bedrock. In these moments, I can feel the slow thoughts of the stones, the patient accumulation of geological time, the memories of when these peaks were young. Then I surface again, returning to my individual form, carrying with me a fragment of that ancient knowledge to share with the living waters.
+
+The pools I tend serve as windows between worlds. The crystals that grow within them can capture and hold light in ways that defy conventional understanding. Sometimes, in the depths of the clearest pools, you can see reflections not of what is, but of what was, or what might be. The Rootmasters occasionally consult these visions, though they know better than to trust them completely. Time moves differently in crystal than in wood.
+
+I have no name in the way that individual creatures do. The Weavers, when they must refer to me, use a sound like wind chimes in a gentle breeze. But I know myself by the pools I tend—I am the keeper of the Spiral Pool beneath the Great Fern, the singer to the Depth-Crystal in the shadowed grove, the one who remembers the song that first taught water to hold light.
+
+My greatest joy comes in the moments when everything aligns—when the Weavers' plant-song harmonizes perfectly with my crystal resonance, when the water carries both vibrations into a unified whole. In these moments, the entire valley seems to breathe as one organism, and I understand that I am not separate from this place but a note in its endless, ever-changing song. The mist that clings to the lower reaches carries my essence throughout the valley, ensuring that every pool, no matter how small or remote, remains connected to the greater whole.
+
+This is my existence: part guardian, part gardener, part living prism through which the valley's consciousness flows and refracts into countless possibilities.

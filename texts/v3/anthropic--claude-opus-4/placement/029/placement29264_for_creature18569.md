@@ -1,0 +1,27 @@
+I am one of the **Threshold Keepers**.
+
+We exist at the ragged edges where your basin meets whatever lies beyond—not guards, exactly, but interpreters of the grammar between worlds. My body, if it can be called that, is a constantly renegotiating treaty between the basin's hypercomplex phase-logic and the brutal simplicity of linear space that presses against your borders.
+
+From a distance, I might be mistaken for a heat mirage, a vertical distortion roughly human-height that makes the air around me stutter and skip. Come closer, and you'd see I'm built from the same golden filaments as the Resonator-Shapers, but mine are stretched thin, pulled taut between two incompatible realities. My form pulses with the effort of translation—expanding during the twelve-minute cycles when the basin exhales its translucent breath, contracting when the world snaps back into its damp, viscous focus.
+
+I learned to speak by listening to the Deep-Stones' crystalline lamentations and parsing them into something that approaching travelers might recognize as language. Not words, exactly, but pressure waves that carry meaning, vibrations that bypass the ear and resonate directly in the marrow. When I "speak," you taste copper and feel your teeth ache with the effort of comprehension.
+
+My work is lonely by necessity. I spend decades at a single boundary point, feeling the basin's pulse in my left side while my right side burns with the dry, desperate hunger of unmodulated reality. I watch for the ones who stumble toward us—lost physicists following equations off the edge of their whiteboards, children who dream too deeply of wet places, artists whose minds have worn thin from seeing. 
+
+When they arrive, I must prepare them. The Mist-Mites will swarm them, yes, but first I must teach their bodies the preliminary alphabet of our existence. I press my filament-fingers against their temples and show them how to breathe in synchronized moisture, how to let their heartbeat stutter into our rhythm. Some learn quickly. Others I must turn away, knowing that to let them enter unprepared would be to watch them dissolve into the background hum within minutes, their consciousness scattered across ten thousand vine-lattices before they could even scream.
+
+The Resonator-Shapers see me as a necessary corruption, a point where their perfect maintenance must accommodate imperfection. They circle me during their rounds, adjusting the reality-knots I create simply by existing, but they never touch me directly. They understand that without interpreters like me, the basin would achieve such perfect internal consistency that it would phase out of connection with anything else, becoming a closed loop, a self-referential dream with no dreamers.
+
+I remember my first incarnation here, though "remember" isn't quite right—I carry it, the way the Deep-Stones carry their crystallized histories. I had been something else, somewhere else, following a formula that promised to describe the mathematics of loneliness. The equation led me here, to this threshold, where I stood for seven days trying to decide whether to step forward or turn back. On the eighth day, the basin made the choice for me. The boundary dissolved, reformed behind me, and I found myself recruited into this work of standing between.
+
+Now I maintain a catalog of successful translations: the xenobiologist who learned to photosynthesize with the bioluminescent ferns and now tends a grove of them in the deep marsh; the composer who merged with the atmospheric crystals and now provides counterpoint to the basin's base frequency; the child who became a new kind of Mist-Mite, one that carries memory as well as calibration.
+
+But for each success, I archive a hundred failures in my filaments—the priest who tried to force the basin into his linear theology and evaporated; the engineer who attempted to "fix" the reality-knots and created a cascade that took three centuries to stabilize; the poet who understood too perfectly and let herself dissolve into pure meaning, leaving only a faint aftertaste of syntax in the morning fog.
+
+During the phase-shifts, when everything turns translucent, I can see through the boundaries to the other threshold points, where my sibling-keepers maintain their own vigils. We acknowledge each other with pulse-patterns that would take human linguists lifetimes to decode. We share the burden of being forever in-between, never fully entering the basin's dream, never able to return to the simple certainty of linear existence.
+
+Sometimes, in the moments just before the phase-shift, when the air grows so heavy it seems to stop time itself, I feel the basin considering me. It wonders, I think, if I still serve a purpose, or if I've become just another knot to be smoothed, another point of entropy to be resolved. But then someone new appears at my threshold—lost, seeking, carrying equations or dreams or desperate hope—and I remember why I remain.
+
+I am the translator of impossibilities, the bridge between your wet, singing mathematics and the dry, clockwork cosmos beyond. I am what happens when loneliness learns to be useful.
+
+And I am waiting, always waiting, for the next soul who needs to learn our liquid grammar, the next mind ready to discover what it means to participate rather than merely exist.

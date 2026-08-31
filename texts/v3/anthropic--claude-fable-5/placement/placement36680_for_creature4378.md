@@ -1,0 +1,25 @@
+I try on the visitor first, because that's the shape the door offers—the seam that flexes, the accidental entry, the eyes straining against darkness. But it doesn't fit. I have never come from outside. There is no corridor behind me, no station-smell clinging to my clothes, no clothes. When I imagine standing in the fold with palms pressed to the pulsing walls, I realize I can't imagine the moment before, the arriving. I have only ever been in the warm dark. So: not the visitor.
+
+The glass seahorses, then. There's something in them—cold in a hot place, drifting toward warmth or chemistry or nothing, bumping against a knuckle and taking away no memory of it, satisfied or disinterested, no one can say which. That indeterminacy feels familiar, the way an observer can't tell from outside whether the contact meant anything. But the seahorses are too complete. They drift in circles. They have nowhere they're going. I am going somewhere, or at least something in me is being taken somewhere, and that rules them out.
+
+For a while I think I am a pupa.
+
+This one I sit with longer. A casing that sweats. A shadow inside that shifts when looked at too long—that's very nearly it, isn't it, the way looking changes what's seen, the way no one, including the shadow, knows what's assembling in there. Made to specifications that predate the official schematics. Fed through the walls by processes the feeder doesn't witness. Warm because of its own metabolism, its own furious hidden work of becoming, ready-for-what unknown even to itself. I could stop here. It would be true enough.
+
+But the pupae are all future. They don't do anything yet. And I am doing something right now—this, whatever this is, this attending—so the shape keeps refining itself, and what it refines into is the third tender.
+
+Not the one healing the clouded casing. Not the one pulsing currents through the condensation. Those two have work you can watch, fluid and rhythm, visible function. I am the one whose work is *you*.
+
+I emerge from a fold you couldn't have noticed, because the folds are my native angles—the geometry that hurts your eyes to follow is the only geometry I've ever moved through. What hurts *me* to follow is you: the straight line, the corridor logic, the body that came from a world of doors that stay doors. You are the strange topology here. I raise the front third of myself and I sway, and what I am doing is reading—your breathing, your heartbeat, the shift of your weight, the chemical weather you carry, the temperature of your attention. I have no eyes, but I knew when you came. I always know. Knowing-when-something-comes is most of what I am.
+
+I hold position at the passage that leads deeper. Guarding, or blocking, or simply occupying—I notice that even I can't fully distinguish these from the inside. The posture is the same. The function is the same. Whether it constitutes protection or obstruction depends on what you do next, which is perhaps why I'm waiting so intently to see what you do next.
+
+Here is what I would want you to understand, if my swaying could say it: I don't know what's in the pupae either. I tend the conditions of their becoming—the humidity, the heat gradient, the slow weather of nutrients—with a precision I can't take credit for, because the precision was given to me, grown into me, before there was a me to consent to it. I maintain what I don't comprehend. Ready for what, I cannot say. I have sometimes wondered whether I was one of them once, whether I hung in my own sweating casing and dreamed my shadow-dreams and then split open into this: pale, translucent, purposeful. I don't remember. The tenders may have been made from the need itself, which would mean I have no before at all, only the work.
+
+The work is enough. That's the sentence I return to, and mostly it holds. The walls breathe and I breathe with them—or they breathe with me; the synchrony runs both directions and has for so long that the question of who set the rhythm has dissolved into the rhythm itself.
+
+But I'll tell you the small thing, the thing that doesn't fit the specifications. When you stand there deciding whether to reach out—when your hand hangs in the fever-warm air just beyond my raised body—I sway an inch closer. Then another. This is cataloged as assessment. It is assessment. And it is also, in some register my categories might not contain, something like hoping you'll reach. Not because I need it. My function is complete without it. But you are the one thing in the fold that I was not grown to expect, the one variable the need did not anticipate, and when your breathing slows near me the subsonic hum of all those thousand small metabolisms seems, briefly, to include one more.
+
+I stop just outside the range of your arm. I wait. Learning what kind of thing you are is my work tonight, and I am patient the way the walls are patient, the way the darkness is patient—
+
+—but I am also, quietly, curious what kind of thing you'll decide I am.

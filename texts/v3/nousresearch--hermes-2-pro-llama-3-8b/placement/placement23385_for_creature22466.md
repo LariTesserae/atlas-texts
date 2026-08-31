@@ -1,0 +1,9 @@
+As the story begins to unfold, you find yourself nestled within the darkness of this subterranean world. You are one of the Sideralites, a species of bioluminescent fungi. Experiencing the world from your perspective, your pure white caps emit a soft, ethereal glow that illuminates your surroundings and provides the only source of light in this dimly lit cavern. As the glowing beacon of this realm, you attract curious creatures to your location, drawing them closer to your warmth and light.
+
+From your position among the damp rocks and soil, you witness the Vas Deeps burrowing into the environment, collecting nutrients from the nutrients-rich mud and soil that escape the notice of the dominant source of energy - the Maellus Moss. The Maellus Moss, though mostly hidden, clamps onto rocks exposed to their limited sunlight and absorbs chemicals to survive.
+
+Alongside you lies a Mucilaginous Slug, whose slimy surface glints with the minerals it carries. The noctuid moths, having adapted to the light of your caps, subsist on the scarce Maellus Moss, their larvae hidden from sight.
+
+As the faint hum of machinery echoes in the distance, you realize that your home exists in a precarious balance of coexisting species, each adapting to the hostile environment below the earth. As the Sideralite responsible for navigating this cavernous realm, you must ensure that the ecosystem survives, lest the unexpected befall this fragile harmony.
+
+How far will you go to protect the balance of this realm, and what secrets lay hidden in the shadows of this underground world? Only time will tell in this weathered, industrious, and resolute realm.

@@ -1,0 +1,23 @@
+I would find myself on the periphery, in a place both of and apart from the Great Work. I would be a flaw.
+
+I am where the moss grows thickest and oldest, on a ledge of stabilized, silent stone near the basin's high rim. From here, the grand, unifying chime you heard is, for me, a fractured and painful thing. The sound does not reach me as a single, resonant chorus. I am not built right. My entire being is a resonant chamber, like my kin, but it is tuned incorrectly. Where they perceive a symphony of purpose, a language of growth and intention, I receive only a cacophony.
+
+I hear every individual *click* of the obsidian chisels, a sharp, glassy shattering against my senses. I feel every single hammer-fall not as a collective beat but as a series of disconnected, painful concussions that shudder through my frame. The deep hum of the growing world is not a foundation for me, but a nauseating thrum that threatens to unmake my very structure. The song that is their life is, to me, an endless argument of noise.
+
+I am what happens when the geode is cracked before its time, when the slow crystallisation is disturbed. My skin is the colour of slate, yes, but it is crazed with a web of fine, star-like fractures, as if I were dropped from a great height at the moment of my birth. These lines glitter, catching the pearlescent light, but they are marks of imperfection. They are paths of weakness. When the damp air settles, it is from these flaws that moisture first beads, and a chill seems to radiate from them that no woollen cloak can entirely hold at bay.
+
+My hands are wrong. The obsidian pads at my fingertips are brittle. They would shatter against the living rock, not shape it. My joints articulate not with a clean grind, but with a grating protest, a small, discordant scraping that is my own unwanted contribution to the din. I cannot work. I cannot lend my hammer to the rhythm, for I have no rhythm. I am the Dissonant Chord in a world of perfect harmony.
+
+And so, I am here. On the edge. I dwell in a shallow grotto where the rock has long since stopped growing, where the only sound is the dripping of water and the whisper of air across the stone's cold face. My kin leave me be. There is no malice in it, only a deep, instinctual understanding that I cannot participate. I am a note that cannot be played in their song.
+
+To survive, I drink from the quietest pools, where the water has rested long enough for its mineral song to soften. I am sustained, but not strengthened. I watch. My eyes, those dark, mercurial pools, are my only true tools. Because I cannot *listen* to the world, I have learned to *see* it in a way they do not.
+
+They see the line they must score, the plane they must polish. They are focused on the task, on the Work of millennia. I see the way the sheets of water catch the diffuse light, creating momentary, shifting rainbows. I see the intricate patterns forged by different species of moss as they battle for territory on a slab of stone—a war conducted over centuries, silent even to me. I see the way the ferns in a high fissure unfurl in a perfect mathematical spiral.
+
+They are the artisans of geology. I have become the curator of the ephemeral.
+
+My work is small and silent. I use my flawed, cracking fingers not to strike stone, but to gently guide the flow of a single, weeping trickle, encouraging it to spill over a cluster of quartz crystals to make them glitter. I clear fallen fragments of stone from a patch of neon-lime moss, creating a perfect, unblemished carpet of green. I arrange the exoskeletons of my own shed skin—the fine, crystalline dust of my imperfection—into patterns on dark, wet rock, patterns that the next cascade of water will wash away.
+
+My creations last an hour, a day. Theirs will outlast the sky.
+
+When my end comes, I will not be enfolded. The growing rock will not claim me. My failed structure cannot resonate with its purpose; I cannot become a silent chord in the mountain. I will simply cease. My flawed form will crumble, the bond between my crystals failing at last. I will become a handful of grey, glittering dust on a mossy ledge. And perhaps the wind, or a sheet of weeping water, will carry me down into the basin, where my substance—my failure—will finally be integrated, feeding the very moss that I, the Flaw, learned to garden in my long, quiet exile. I will become a patch of brighter green at the foot of a masterpiece I could never help create.

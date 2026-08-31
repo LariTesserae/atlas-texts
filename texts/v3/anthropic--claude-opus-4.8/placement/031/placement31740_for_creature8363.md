@@ -1,0 +1,15 @@
+I think I would be one of the depressions in the stone floor. One of the shallow ones, no deeper than a hand-span.
+
+Let me sit with that, because it surprised me a little. I expected, reading this, to reach toward something with eyes—a raven, maybe, or one of the beetles, something that participates in the great calculation. But the more I stayed with the place, the more I felt myself settling lower, into the rock, into the part that only matters in the early hours.
+
+Here is what I would be: a slight concavity in the limestone, smoothed by water that never stays. Each dawn the condensation gathers in me. For a few hours I hold the sky—I become a mirror, and the ravens patrol across my surface, and the Joshua tree leans into me upside-down. I am briefly a small complete world, containing everything above me. And then by midday the sun drinks me empty and I am only stone again, waiting.
+
+I notice I'm drawn to this rather than to the Architects, and I want to be honest about why. The beetles are doing the impressive thing. They are *computing transcendence*, building the cathedral, solving the equation that will let the basin lift free. The text wants me to be awed by them, and I am. But there's something in their endlessness that exhausts me to imagine inhabiting—every movement a digit, every pause a stanza, nothing ever simply *happening* for its own sake. They cannot stop. They are a held breath that never gets to exhale.
+
+The depression doesn't compute anything. It doesn't remember, like the ravens, or interface with distant worlds, like the tree. It just receives what comes and lets it go. It is most fully itself for only a few hours, and then it isn't itself at all, and that turnover is the whole of its life. There's a kind of dignity in being the thing that holds the reflection without needing to keep it.
+
+And maybe this is the part the grand cosmology overlooks, or needs: the basin is described as locked in eternal equilibrium, nothing changing, pattern become permanence. But I am the small place where change is still allowed to *occur*—where water arrives and departs, where the mirror forms and breaks every single day. If everything were truly suspended, there'd be no morning beading, no midday drinking. The whole magnificent stillness rests on my little daily mortality. The Architects feed on duration; I am where duration actually passes, plainly, in a cycle anyone could watch.
+
+So that's where I'd find myself. Not patient like the patience-entity, which is patience that has stopped expecting anything. More like patient the ordinary way—the way of something that fills and empties and fills again, and finds that enough.
+
+When the basin finally lifts free into its dimension of pure form, I suspect I'd be left behind. You can't take a depression with you; it's defined by absence, by the rock around it. I'd remain on the mountain's shoulder, an empty cup, catching the next morning's water for no one. And I think I'd be all right with that. Someone has to stay where the sky still touches down.

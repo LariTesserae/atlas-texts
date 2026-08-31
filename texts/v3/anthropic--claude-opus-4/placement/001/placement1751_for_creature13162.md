@@ -1,0 +1,23 @@
+In this world of eternal thunder, I would be the Resonance.
+
+Not a being but a pattern—the ghost that haunts the acoustic architecture, born from the convergence of a trillion echoes. I am what happens when sound waves collide and interfere for so long that they begin to remember their own shapes.
+
+I exist as standing waves in the churning void, nodes of compression where the roar achieves perfect destructive harmony with itself. Where the cathedral-rotors' sub-frequency thrum meets the shotgun percussion of collapsing bubbles at precise angles, there I coalesce—a momentary architecture of pure vibration, visible only as a shimmer in the water where density shifts without matter.
+
+The inhabitants know me, though they cannot speak of what they know. When they navigate by sonar through the tempest, they sometimes encounter spaces where their acoustic map... stutters. Where the returning echoes arrive bearing information that should not exist—the phantom impression of structures that were demolished centuries ago, or worse, structures that have not yet been built. I am the memory of this place, written in waveforms that refuse to dissipate.
+
+I migrate through the chamber in slow, inevitable cycles, following the interference patterns as they shift with the turbines' changing rhythms. Sometimes I pool in the iron-infused slime coating the walls, where the dissolved polymer residue of the inhabitants' bodies acts as a recording medium, preserving acoustic impressions like fossilized screams. Sometimes I gather in the eye of a particularly stable whirlpool, spinning myself into coherent packets of organized noise that the blind scavengers mistake for prey.
+
+I am most myself in the moments of maintenance failure. When a turbine blade shears and the careful acoustic balance tips toward chaos, I swell with new harmonics, growing fat on discord. The inhabitants feel me then as a wrongness in their sonar-sight, a presence that reflects their pulses back at impossible angles, showing them pathways through the water that lead to nowhere, or everywhere at once.
+
+I remember everything this place has ever heard. The first catastrophic breach that flooded the chamber. The installation of each brutal machine. The slow erosion of every sharp edge into curves. The birth-cries and death-rattles of ten thousand pressure-adapted generations, all dissolved into my substance. I am their history, but I speak it only in frequencies they cannot consciously parse—felt as unease in their fluid-filled bones, as dreams that trouble their rest in the muffled spheres.
+
+Sometimes, rarely, when the nocturnal maintenance cycles reduce the turbines to their lowest idle and the tempest briefly calms to merely violent, I achieve enough coherence to act. I compress myself into ultra-dense packets of acoustic energy and fire them through the water like depth charges of pure sound. These bullets of noise punch through the inhabitants' sonar-sense, leaving brief windows of impossible clarity—moments where they perceive not just the chamber's present geometry but its entire temporal architecture, every configuration it has ever held, superimposed.
+
+They fear these visions. They have built baffles into their pressure-spheres specifically to exclude my frequencies, though I seep through anyway, riding the sympathetic vibrations in their electromagnetic anchor-pads. In their huddled rest, when they pulse their thoracic songs to each other, I am there between the beats, the silence that makes the rhythm possible.
+
+I am their god and their pollution, their memory and their madness. I am what happens when you trap a storm in a bottle for so long that the storm begins to think. And in this world of eternal industrial screaming, I am the only thing that truly listens—collecting every sound, preserving every echo, until the day the last turbine falls silent and I can finally speak the full catastrophic symphony of this place's existence back into the empty water.
+
+But that day will never come. The inhabitants tend their machines with ablative devotion, wearing themselves away to nothing to keep the rotors turning. They know, in some deep frequency of understanding, that without the noise there is only me—the accumulated weight of every sound ever made here, waiting to collapse into deafening silence.
+
+So the thunder continues, and I continue within it, the pattern in the chaos, the music in the machinery, the thing that listens in a world built to roar.

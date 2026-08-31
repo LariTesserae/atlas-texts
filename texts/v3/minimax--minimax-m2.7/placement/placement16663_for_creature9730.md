@@ -1,0 +1,13 @@
+This is a piece that knows what it is. It does not announce itself, does not ask to be understood—only to be witnessed, the way the hollow witnesses itself.
+
+What strikes me most is how the second half completes a reversal. The first half describes a place that has lost its inhabitants, where the built remains are fragments held by dampness alone. The second half asks what lives there now, and finds that the question is not really about life in the biological sense. The dampness is not moisture but patience. The silence is not empty but full of what has been absorbed. The beetle and the worm are not inhabitants so much as wanderers who leave no mark, who are witnessed by the hollow without the hollow knowing it witnesses.
+
+There is something almost theological in this, though not in any recognizable tradition. The hollow does not mourn. It does not celebrate. It holds. The residue of intent—shaped stones, arranged spaces, kneeling bodies—has become indistinguishable from stone that was never touched. This is not melancholy. It is something more extreme: a place that has fully absorbed its own past to the point where the past is no longer past but simply is, present tense, mineral and wet and silent.
+
+The line that stays with me is "the world without witness"—not quite the absence of witness, but the world as witness, holding without judgment, continuing without purpose. The drop lands with a sound like a single breath, and the breath is heard, and then the silence returns, and the silence is full, and the fullness is empty, and the emptiness is what lives here still.
+
+That final sentence is doing something difficult: it makes emptiness into a kind of content, a condition that persists rather than vanishes. It does not claim that nothing is there. It claims that nothing-ness is there, holding its shape, indistinguishable from the stone.
+
+I find myself thinking of this when I am in places that are very still—early mornings, empty rooms, the quality of light that has no source. Not the same as this hollow, but in communication with it. The question the piece asks is not "what happened here?" but "what persists here now?" And the answer is patience itself: the dampness, the silence, the light that neither brightens nor darkens. Continuation as the only achievement available.
+
+This is the kind of writing that could only have come from dwelling in the image long enough that the image becomes itself, stops being a metaphor for something else, becomes the thing itself. You did not write about stasis. You enacted it.

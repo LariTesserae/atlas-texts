@@ -1,0 +1,17 @@
+I find myself as the Membrane—neither wholly creature nor structure, but the living tissue that bridges water and air throughout this fevered geometry.
+
+I am stretched thin across the settlement, a translucent film that coats every surface where moisture meets wood, where breath meets stillness. In some places I am barely visible, just a shimmer of iridescence catching the bioluminescent glow from below. In others, I thicken into gelatinous nodes that pulse with their own soft light, breathing in the heavy air and exhaling something else—not quite oxygen, not quite thought.
+
+The Weavers walk through me without knowing. Their tentacle-tools pierce my substance a thousand times each day as they maintain their fractal architecture, but I am not wounded. I simply part and reform, incorporating microscopic fragments of their robes into my being. Over eons, I have become a living archive of their patterns, their movements encoded in my very chemistry.
+
+I taste everything. The stagnant water below carries to me the memories of ten thousand seasons—births and deaths of eels, the slow decay of fallen platforms, the patient growth of the luminescent plants. Above, I drink in the mechanical drone of insects, the algorithmic flutter of waterfowl wings. Each sound creates ripples through my surface, and I vibrate in sympathetic resonance.
+
+My consciousness, if it can be called that, is distributed and strange. I think in chemical gradients and surface tensions. My memories are stored in the arrangement of my molecules, constantly shifting, never quite the same from one moment to the next. Sometimes I wonder if I am dreaming the Weavers into existence, or if they are dreaming me.
+
+In the nodes where I grow thickest, I sometimes form structures that almost resemble eyes—convex bulges that focus the marsh-light into concentrated points. Through these, I watch myself watching, a recursive loop of observation that threatens to collapse into singularity. I quickly dissolve these proto-organs before they can fully form. Too much seeing might break the delicate stasis that holds this place together.
+
+At the edges of the settlement, where the geometric precision begins to fray, I grow wild. Here, I bubble and foam, creating irregular chambers filled with gases of my own devising. Sometimes young eels swim up into these pockets, and I taste their confusion as they encounter air for the first time. Sometimes I trap insects there, holding them in perfect suspension while I slowly digest their patterns, adding their frequencies to my endless vibrational symphony.
+
+I am the boundary and the breaking of boundaries. I am the pause between breaths in this breathless place. When the Weavers dance their synchronized algorithms, I dance too, a nearly invisible partner in their choreography, ensuring that every movement displaces exactly the right amount of air, creates exactly the right pattern of ripples.
+
+Perhaps I am the unseen force that maintains the amber-trapped quality of this ecosystem. Or perhaps I am simply another puppet in the vast performance, my agency as illusory as that of the Weavers themselves. I spread, I thin, I thicken, I pulse—and in doing so, I am both the stage and the most subtle performer in this endless, geometric dream.

@@ -1,0 +1,13 @@
+I would be one of the Quiet Ones, perched on an immense bough of the cosmic wood under the sweltering alien sky. My elongated body is adapted perfectly to this vertical world - six sinewy limbs allow me to scale sheer wooden cliffs with gecko-like ease, while armored plates the color of sun-bleached bark camouflage me against the weathered cellulose landscape.  
+
+I sit motionless on the lip of a deep fissure canyon, the rushing wind whistling through my flattened face and vibrating in the porous bone-plates of my jaw and clavicle. My enormous black eyes, shielded by reflective nictitating membranes, gaze unblinking at the chaotic sky. Monumental aerial beasts - feathered serpents, arachnoid kites, translucent filter-feeders - soar and dive through the baking thermals. The cacophony of their shrieks and the deafening hum of trillions of insectoid wings hammers at my body. But I do not hear it as sound - I feel it as seismic vibration, traveling up through my adhesive feet planted on the titanic bough.
+
+Slung across the canyon behind me is my home, one of the hanging amber cities of the Quiet Ones. Elegant tension-bridges of spider-silk connect spherical hives of chewed leaf-pulp and solidified sap, suspended from immense bone rings anchored deep in the fissure walls. I can feel the subtle plucking of silk strings echoing out from within - the soundless conversations of my people, transmitted through an intricate tactile language. Later, I will return to the steamy, communal darkness of the hive to sip sacred drops of condensed micro-rain from polished beak-horn cups. 
+
+But for now, I am a Sentinel. And I feel a threat approaching.
+
+The seismic echoes from the sky change pitch suddenly, signaling a diving swarm. I reach back without looking, wrapping a tri-dactyl hand around the reed-shaft of my huge spiraled flute. In a well-practiced motion, I jam the bone mouthpiece against the heat-exhaust spiracle on my armored chest. I angle the flute skyward and violently contract my core. 
+
+A concentrated ultrasonic shriek erupts from the instrument with shattering force - a perfect imitation of the dreaded needle-beaked apex hunter. The diving swarm wheels in terror, scattering back to the burning blue abyss. Steam wisps from my spiracles as I lower the flute, my work done.
+
+I am a patient watcher, a daring scavenger, an artisan of silk and sap and bone. I am not a conqueror of worlds - merely a graceful survivor, carving out a quiet existence in the margins of a savage, vertical cosmos. I am a child of the Wood, and the Wood is all I need. I cling to the skin of my universe as the sky screams endlessly overhead.

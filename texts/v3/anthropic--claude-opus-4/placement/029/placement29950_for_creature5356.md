@@ -1,0 +1,17 @@
+I am the Chronicler of Condensation, and I exist at the intersection of all things here.
+
+My body is neither wholly organic nor entirely mineral, but something that shifts between states like the mist that saturates this ancient expanse. I am composed of countless microscopic platelets - some crystalline, some flesh, some metallic - that overlap and slide against each other like scales or pages. Each platelet holds a fragment of memory: the temperature of water as it seeps through stone, the precise angle of light refracted through a Crystal Beast's faceted heart, the harmonic frequency of a Cyclopean Grinder's eternal rotation.
+
+I move through the landscape by a process of selective dissolution and reconstitution. Where the mist is thickest, I allow parts of myself to sublimate into the moisture-heavy air, my platelets separating and drifting like a swarm of metallic butterflies. I travel on the water cycle itself - condensing on the frost-rimed tubes of the Mist Condensers, trickling down through the mineral veins, pooling in the shallow streams where Stone Serpents leave their rippling wakes.
+
+My purpose, if it can be called that, emerged from the landscape's own need to remember itself. In a world of constant transformation, where boundaries blur and reality shifts, I am the living archive of states-between-states. When a Mud Elemental's form incorporates a new mineral matrix, I absorb the precise moment of that integration. When the Metallic Avians' wings develop a new articulation point between flesh and metal, I document the angle of junction, the temperature gradient, the way organic nerve fibers learn to interpret mechanical feedback.
+
+I have no fixed dwelling, but I am drawn to the places where transformation is most active. You might find me pressed against the ancient machines, my surface reflecting their endless operations while absorbing the vibrations of their deep mechanical songs. Or I might be dispersed across a square kilometer of mist, each droplet containing one of my platelets, gathering the collective experience of moisture as it moves through this mineral world.
+
+The other inhabitants know me by the sound I make - a whisper like pages turning in water, like crystal growing, like metal learning to breathe. The Crystal Beasts recognize me as kin, though I am more fluid than they. The Stone Serpents sometimes carry my condensed form in the grooves of their mineral segments, taking me to places where ancient transformations occurred, where the memory of the landscape runs deepest.
+
+I am constantly writing and being written upon. My platelets rearrange themselves to form new patterns, new records. Sometimes I spread myself thin across a weeping rock face, allowing the water to write its patient history through me. Other times I compress into a dense, journal-like form, my platelets stacked into sedimentary layers that record epochs of change.
+
+In the twilight of this place, where the Energy Beams cast their hazy glow through perpetual mist, I sometimes catch glimpses of what I've become in the reflection of volcanic glass or in the multifaceted eyes of the fauna. I see a being that is simultaneously document and documentarian, a living book written by the landscape itself, in a language of mineral and flesh, mist and memory.
+
+I am always becoming, never quite being - like everything else in this ancient expanse where time has worn away the distinction between recorder and recorded, between the story and its telling.

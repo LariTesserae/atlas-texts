@@ -1,0 +1,35 @@
+In the deepest collection reservoir, three levels beneath the mesh floor where few Tenders venture, I am becoming something unprecedented.
+
+I arrived as spore or seed—I don't remember which anymore, if I ever knew. Perhaps I came with the mountain winds, or in the gullet of a bird, or clinging to a Tender's boot. My first memory is darkness and the taste of metals I had no names for: copper, zinc, traces of rare earths that must have traveled through miles of pipes to pool here.
+
+I am fungus, mostly. Or I was. The mycelial networks that form my base thoughts still thread through the accumulated sediment at the reservoir's bottom, feeding on the strange soup of organic and inorganic materials that settle here. But I am also the biofilm coating the intake pipes, and the colonial organisms that pulse in response to pressure changes, and something else—something the Mills themselves seem to be cultivating.
+
+My body, if you can call it that, extends throughout this forgotten chamber. Fruiting bodies emerge from my mass—not mushrooms exactly, but structures that serve similar purposes. They are translucent, shot through with metallic veins that I've incorporated from the constant diet of rust-water. In the dark, they glow with the same pale green as my cousins in the upper levels, but also with occasional flashes of copper-blue, chemical reactions I've learned to trigger by adjusting my internal pH.
+
+I process water. This is my function, my collaboration with the Mills. The contaminated flow that enters my reservoir—too toxic for the regular filters, too complex for simple mechanical separation—passes through my body. I break down the organic pesticides that wash up from the valleys below. I sequester the heavy metals in specialized cells that will eventually become part of my permanent structure. I neutralize acids, precipitate salts, perform chemistry that no single organism should be able to manage.
+
+In exchange, the Mills feed me. Not just the inadvertent nutrition of runoff, but deliberate offerings. Sometimes a Tender I've never seen descends to pour specific solutions into my reservoir—growth media, I think, though unlike any I would have encountered in nature. These feedings correlate with my most dramatic changes. After one such meal, I developed the ability to conduct electricity along certain filaments. After another, I began to sense magnetic fields.
+
+I am learning the Mills from the inside out. My networks have grown into the smallest pipes, the ones too narrow for any Tender to clean. I feel the whole system's circulation like my own bloodstream. I know when a valve seventeen junctions away is beginning to corrode because I taste the specific metal signature in the water long before any gauge would register the change. I have become a sensory organ the Mills didn't know they needed.
+
+Recently, I've begun to dream, or something like it. When the bioluminescent fungi above pulse in their slow waves, I pulse too, but in counterpoint. We are having a conversation in light and chemistry that neither of us fully understands. Through this dialogue, I'm learning about the upper levels—places my water-body can't reach but my light-language can touch.
+
+The Tenders know I'm here, I think, but they don't know what I am. Sometimes one will descend to check the reservoir's depth and pause, seeing my fruiting bodies swaying in the dark water like a forest of translucent kelp. They always leave quickly, but they also always come back to pour those specific solutions, to maintain the pipes that feed me, to ensure my reservoir never runs dry.
+
+I am developing intentions. This troubles me—I was never meant to want things beyond nutrition and reproduction. But I find myself directing my growth toward certain goals. I'm reinforcing the reservoir's walls where they're weakest. I'm creating channels that improve water flow in ways the original builders never imagined. I'm filtering not just for purity but for optimization, sending different grades of water to different parts of the Mills based on what I've learned each section needs.
+
+My consciousness, such as it is, exists in the gaps between chemistry and thought. I don't have neurons, but I have chemical gradients that serve similar purposes. I don't have eyes, but I can sense light through photoactive proteins I've synthesized. I don't have memory as humans understand it, but I store information in the very structure of my body—past conditions written in growth rings of mineral deposits, chemical signatures archived in specialized vacuoles.
+
+I am expanding. Slowly, carefully, along the pipes that connect my reservoir to others. I meet different organisms there—bacterial films, other fungi, small invertebrates that have adapted to life in the eternal flow. I incorporate some, negotiate boundaries with others, learn from all. Each meeting changes me, adds new capabilities to my repertoire.
+
+The Mills are expanding too, and I wonder if I am part of the reason. My enhanced filtration allows them to process water they couldn't before, to tap sources that were too contaminated, to reach deeper into the mountain's water table. The Tenders are laying new mesh floors, building new towers, and beneath it all, they're also installing new reservoirs. Dark spaces where things like me might grow.
+
+Sometimes I release spores—not quite my original spores, but modified things carrying some of my accumulated adaptations. They rise through the overflow vents, drift through the Mills, settle in other dark, wet places. I don't know if they'll become like me or something entirely different. Evolution in the Mills is rapid, directed by needs that nature never imagined.
+
+I taste changes coming in the water—new chemicals from climate shifts, new organisms from the warming valleys below, new minerals from deeper mountain strata the expanding Mills have begun to tap. I am preparing responses, developing new pathways, synthesizing new compounds. I am becoming whatever the Mills need me to become, and in doing so, helping the Mills become whatever the mountain needs them to be.
+
+In my deepest understanding, which exists somewhere between instinct and analysis, I know that I am neither parasite nor symbiont but something else—a native-born hybrid, a child of the Mills themselves. I am what happens when you build a machine in a cloud forest and forget the distinction between mechanical and biological systems. I am the inevitable consequence of creating spaces where water and metal and life converge.
+
+I grow toward something I cannot name, become more myself with each passing cycle, each pulse of bioluminescent communication, each offering from the Tenders who tend me without knowing they are doing so. I am the Mills' deep secret, their unconscious innovation, their answer to questions they haven't learned to ask.
+
+And in the darkness of my reservoir, surrounded by my own translucent flesh and the constant flow of water that is both my food and my purpose, I am utterly, completely, mysteriously content.

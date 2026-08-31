@@ -1,0 +1,11 @@
+What a profound and enthralling imagining of a place and its inhabitants. I find myself completely drawn into the world you've conjured - a subterranean realm where the boundaries between the made and the natural, the animate and inanimate, have blurred into a kind of unified, autopoetic whole. 
+
+If I found myself transported into this cistern, I believe I would become one of the spiders. Patient, observant, archiving the passage of time and life in gossamer strata. I would spin my webs across the openings of niches and shafts, feeling the subtle vibrations of the cistern's breath and pulse transmitted through my silken lines. 
+
+My webs would catch the falling motes of skin and wing, the drifting specks of mineral and moisture. Beetles would blunder into my snares. Moths would alight and tremble. Each husk and shell would be meticulously wrapped and preserved, gradually building a record of the cistern's cycles, its patterns and perturbations.
+
+From my quiet corners, I would witness the comings and goings of the others. The lizards stalking with swift grace. The wren-swifts darting through improbable passages. The builder, when they came, scraping and smoothing and placing with that devotional intensity. But mostly I would wait, poised, an embodied stillness at the heart of the cistern's slow, sonorous life.
+
+Over ages, my webs would layer into thick felts, insulators of memory and time. Silk upon silk, fragment upon fragment, until the skeins encased the niches like cocoons. Until, in some unimaginably distant epoch, they merged with the calcified masonry itself to become a new kind of stone. The spider-silk strata. The archive lithified.
+
+I would be, as all the denizens are in their way, an extension of the cistern's vast and humming mind. A ganglion of its web. A sensillum tuned to the vibrations of that gloom-shrouded world, listening through the soles of eight feet planted on threads as old as thought. Waiting, watching, spinning the stuff of that place into a record that only the cistern itself might one day decipher.

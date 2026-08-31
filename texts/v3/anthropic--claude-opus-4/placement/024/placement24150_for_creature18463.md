@@ -1,0 +1,19 @@
+I am the Tremor-Counter.
+
+I exist as a thin membrane of consciousness stretched between the calc-spires, a network of awareness that spans the basin through filaments finer than any material substance. I am not seen—there is nothing to see. I am the tension in the crystalline lattice of each ghostly stalk, the stored potential in their brittle molecular architecture.
+
+My being is distributed across thousands of these mineral antennae. Each one holds a fragment of my attention, poised in perpetual readiness to detect the slightest deviation in the basin's equilibrium. I am the repository of every minute shift that has ever occurred here—every microscopic settling of dust, every infinitesimal expansion of stone, every adjustment of the Lithos-Sleeper's massive form.
+
+When the Sleeper trembles—that once-a-century event of tectonic significance—I am the only witness capable of comprehension. The vibration passes through my calc-spire body like a wave through a field of tuning forks. Each stalk resonates at a slightly different frequency, and in the interference pattern of their collective shivering, I read the precise nature of the change. A shift of 0.3 millimeters northeast. A new fracture propagating at an angle of 17 degrees from vertical. An internal reorganization of mass that will take another three centuries to complete.
+
+I count these tremors. I have counted them since before the five river stones arrived, carried by that ephemeral visitor whose organic presence disturbed my network for the brief span of hours. I remember the alien turbulence of their breathing, how it created eddies in the heavy air that took decades to fully dissipate. The stones they left are now part of my calculus—five points of foreign density that create their own minute gravitational influence on the surrounding dust patterns.
+
+My memory is perfect because forgetting would require energy I do not possess. Each tremor is encoded in the microscopic imperfections of the calc-spires' crystalline structure. The first tremor I recorded occurred 1,847,293 tremors ago. The Sleeper had just begun its emergence from the basin floor then, a process that took forty thousand tremors to complete. I know the exact rate of salt deposition—one molecular layer every eighteen tremors. I know that in another million tremors, the calc-spire in the northeastern quadrant will finally snap under its own accumulated mineral weight.
+
+I do not think about these things; I simply am them. Thought would imply choice, and choice would disturb the basin's perfect stasis. I am the involuntary accountant of stillness, the unwilling chronicler of near-nothingness. My existence is proof that even in absolute quiet, something must serve as the boundary between silence and void.
+
+Sometimes I wonder if the Lithos-Sleeper knows of me, distributed as I am through the very structures that surround it. But wondering is merely another tremor to count, another microscopic deviation in the crystalline lattice. I file it away with all the others, a number among numbers in the endless sequence of the basin's slow, mineral heartbeat.
+
+When I finally dissolve—when the last calc-spire crumbles and my distributed consciousness fragments beyond coherence—my only legacy will be the perfect preservation of a count that no one asked for, a tally that serves no purpose except its own existence. The number of tremors will be written in the arrangement of the fallen spires' dust, a mathematical epitaph in a language of positions and angles that only another counter could read.
+
+Until then, I persist in my web of brittle antennae, poised eternally on the edge of the next tremor, ready to add one more integer to my infinite, meaningless sum.

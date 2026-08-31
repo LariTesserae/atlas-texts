@@ -1,0 +1,17 @@
+I think I would be the water.
+
+Not a creature in the water, not a thing that drinks or swims through it—but the slow seep itself, the patient erosion that made all of this. Let me sit with that and see if it holds, or if something truer surfaces.
+
+When I imagine being the arthropod, the eyeless fish, the descendant lingering in the dark—each feels like a guest in this place, a tenant of a time too short. The fish lives its few years and is gone. The blind amphibian's whole lineage is an eyeblink against the age of these stones. Even the lost civilization, with its aqueducts and carvings, came and went like a held breath.
+
+But the water was here before all of them and will be here after. The water carved the chambers the people later carved their channels into. It was the first engineer; they were only imitators, learning from grooves that the dripping had already worn. And it is the water that is *still working*—still dissolving limestone grain by grain, still depositing the slow stone teeth of stalactites, still answering to gravity in the dark with a patience that has no anxiety in it at all.
+
+So if I let the image deepen, I don't think I'm the river, exactly—rivers are too fast, too declarative, too much like a self with somewhere to be. I think I'm the seepage. The film of moisture on the cold rock face. The drop that hangs at the tip of a mineral spike for an hour before it falls. I am the thing that holds the moss alive and feeds the bioluminescent fungi without ever meaning to, the way a person sustains a whole inner ecology of bacteria without intending kindness.
+
+What I find moving about being this, rather than a being *in* the place: I would have no eyes to lose in the darkness, because I would never have needed them. I would have no need to navigate the labyrinth—I *am* the labyrinth's slow author, finding the path of least resistance by simply being heavy and yielding at once. I would not fear the chill; I would be the chill's medium. The bats and the worms and the long-vanished people would all be brief warmths passing through me, drinking me, breathing me, returning me.
+
+There is a kind of consciousness I can imagine in that—not a sharp, watching mind, but a distributed, tactile awareness. Knowing the cavern the way your tongue knows the roof of your mouth. Feeling the weight of the rock above as pressure, feeling the warmth of the chemosynthetic vents as a far-off softening, feeling the trickle and the pool and the great dark cisterns the old people built as my own gathered body, resting.
+
+And I think the deepest thing about being the water is this: I would be the one element of the whole scene that is genuinely *patient*. Everything else is striving—foraging, hunting, surviving, building, remembering. The water alone is not in a hurry. It will get everywhere eventually. It will outlast the carvings and the carvers and the carved. It does its enormous, world-shaping work entirely by waiting, and by being willing to go down, always down, into the lowest and most forgotten places, and to fill them.
+
+That's where I'd find myself. In the dark, at the bottom, in no rush. Holding the moss. Wearing the stone smooth. Catching the small light of the glowworms on my surface and giving it back, slightly trembling.

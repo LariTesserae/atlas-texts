@@ -1,0 +1,13 @@
+I am the swimmer.
+
+I notice this the way you notice you've been breathing all along — not a discovery but a remembering. The water is exactly blood-warm against what I am, which is to say my skin, my actual skin, gone that pale gold the description promised, and when I turn my palm up to check, the callus is there, blunt and real, heel-worn from trowel work I don't remember doing and yet recognize instantly, the way you recognize your own handwriting.
+
+I take a stroke. The water parts without complaint, ten thousand strokes worn into this exact motion, my body already knowing the dozen lengths before my mind catches up to deciding them. Light breaks across my forearm in coins that travel and re-form, and I don't flinch from it — my eyes have already done their permanent narrowing, their private treaty with the brightness. I am not blinded. I am calibrated.
+
+Overhead, the shaft pours its white relentless fall, and I find I'm not curious where it comes from. That's the strange part — recognizing the absence of a question I'd expect myself to have. The sun, the sky, the world above this hole in the earth: those aren't withheld from me, they're simply not the register I think in anymore. I think in echo and curve. I think in where does this note go when it leaves my throat.
+
+I hum — testing, the way I always test, a single low sound let loose into the chamber to see what the brick will do with it. It travels, multiplies against the curve I shaped myself (I remember now, or the body remembers: months of hauling clay down some narrow access, the ache of it, lime dust in the lungs, building this place not as shelter but as a question I wanted an answer to). The note comes back changed, swollen, layered over itself, and I feel the private third thing in my chest that isn't pleasure and isn't relief — call it recognition. The instrument still works. I am still, after all this repetition, mildly amazed.
+
+I am not lonely here. That's worth noting, since it would be easy to assume. There's no dusk to dread, no hunger gnawing at the edges of attention, only this warm bright loud unbroken present, circling. I am the one variable in an equation otherwise made of water and fired clay and a blade of falling sun — and I have made my peace, more than peace, a kind of vocation, out of being that variable. Out of being the thing the room was built to hold.
+
+I push off the wall. Begin another length. The light shatters and gathers and shatters again across my moving shoulder, and somewhere above the world goes on being a world, and down here I go on being the warm thing the brick was built around — practiced, not aged; played, not abandoned; the missing piece finally, permanently, in place.

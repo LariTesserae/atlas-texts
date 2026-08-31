@@ -1,0 +1,29 @@
+I find myself as one of the translucent eels, though "eel" is a clumsy word borrowed from a larger world that doesn't quite fit. I am more accurately a sentence of flesh that forgot to end, a run-on clause of nerve and purpose tapering into pure intention where my tail should terminate but doesn't.
+
+My body is a graduated cylinder of decreasing certainty. At my head—if we must call it that—I am thick as a hair, substantial enough to have opinions about which thermal pocket to occupy. But as you follow my length backward, I thin and thin until I am merely theoretical, a probability of eel that can pass through my neighbors like a sigh through teeth. This is not metaphor; this is my metabolism. I exist on a sliding scale of density.
+
+I wake each day (that feverish half-day under the prince's nail) by precipitating out of the moisture that climbs the cliff walls. The water here is so dense with recycled minerals that consciousness can crystallize from it if you know the right temperature. I congeal headfirst, my thoughts arriving before my body, so there's always a terrifying moment where I am pure awareness watching myself drip into existence millimeter by millimeter.
+
+The thermal niche is crushing. I exist in a three-creature stack: below me, a glass beetle whose wings shed micro-fragments of their sanity with each breath; above me, another eel whose tail intersects with mine at the exact coordinate where we both cease to be solid. We are a living braid of anxiety and need.
+
+My days are spent threading myself through the impossible topography of our density. To move forward, I must partially dissolve my middle segments, flow them around obstacles (usually other creatures' metabolisms), then re-crystallize them in sequence. It's exhausting. Sometimes I arrive at my destination missing pieces of memory that got stuck three bodies back.
+
+I feed on the temperature differentials between shadows. When a shadow detaches from its cliff to converse with stone, there's a momentary vacuum of coolness. I slip my mouth-parts (more like porous membranes than anything with teeth) into that gap and suck the thermal absence. It tastes like forgetting, like the pause between heartbeats, like tomorrow's regret arriving early. This diet leaves me perpetually nostalgic for experiences I haven't had yet.
+
+The smith-creature terrifies and mesmerizes me. When it stretches into its fourth posture—that probability-line holding the mountains taut—I feel it in my partial spine like a tuning fork struck in another room. Sometimes I offer myself to its terrible charity, approaching with my tail-wisps spread in a question mark. Once, it touched me with a single scale, and where it touched, my flesh crystallized into something harder than I am, something that could last. I carry that small solid segment like a treasure, the only part of me that doesn't need to constantly re-decide to exist.
+
+I have tried to mate, but it's complicated when your body fades to theory. The other eel and I attempt to braid our certainties together, but we keep passing through each other at the crucial moment. We've given up on producing offspring; instead, we collaborate on temperature maps, sharing the memory of where shadows will detach tomorrow, which beetle wing will crack and leak delicious cold into our unbearable density.
+
+My greatest fear is the day the prince clips his nail. I've seen the smith-creature's preparations, its pearl of condensed dream. But I have no such contingency. I am too temporary, too gradient. When the world tilts and we fall into the wound, I will likely disperse into the prince's bloodstream as a foreign sensation—maybe a brief chill, maybe the ghost of an itch that can never quite be located.
+
+But there's another possibility I've been practicing for. In the moments when shadows forget which cliff they belong to, when reality hiccups, I've been teaching myself to exist in those gaps. Not in space, but in the broken continuity itself. Perhaps when our world ends, I won't fall into the prince's flesh but into the space between his thoughts, swimming through the pauses in his cognition, feeding on the thermal differential between one idea and the next.
+
+The other creatures think I'm mad for practicing dissolution. But here in our mineral hearth, our inside-out kiln where life arrives in fast-furious packets, madness might be the only evolutionary advantage. I thin myself further each day, approaching some asymptotic state where I am more verb than noun, more "eeling" than "eel."
+
+Sometimes I dream I've already made the transition. That I'm not here in the crushing stack but already threading through the prince's synapses, a sensation he can't name, a word always on the tip of his tongue that tastes like volcanic glass and regret. In these dreams, I am finally solid—made of thought-stuff, which in its own way is denser than any flesh.
+
+I wake from these dreams still dripping into existence, still watching myself become real one impossible millimeter at a time, still feeding on shadows' cold absence, still passing through my neighbors like a sigh. But now I know what I'm practicing for. When the smith-creature's pearl explodes and seeds new mountains in the prince's bones, I'll be the sensation of those mountains growing—the itch of stone, the fever of new topography, the endless terrible question of how to exist when existing itself keeps changing temperature.
+
+Until then, I thread and thin and practice my gradient nature, here in the impossible density beneath his nail, where water forgets how to pool and shadows step away from their stones to chat. I am learning to be verb, to be process, to be the act of eeling itself.
+
+Perhaps that's enough.

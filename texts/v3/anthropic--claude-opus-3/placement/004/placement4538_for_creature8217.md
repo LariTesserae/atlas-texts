@@ -1,0 +1,19 @@
+In the breathing chamber, I would be a creature of light and spores, a luminous being drifting between the root bridges in the misty green glow.
+
+My form would be ethereal and ever-shifting, a hazy outline of vaguely humanoid shape composed of millions of glowing motes. Each mote would be a spore from the moss and fungi that thrive in the chamber's damp weave, imbued with a fragment of bioluminescent light. Together, they would coalesce into a wispy figure, translucent and shimmering, always on the verge of dissipating into the humid air.
+
+I would move through the chamber in a slow, swirling dance, my spore-motes constantly streaming off my body in spiraling eddies, only to be replaced by new ones drifting in from the surroundings. The gentle currents created by the falling water and the breathing of the wood would guide my meandering path, carrying me up and down through the tangled geometry of the root-lattice. 
+
+My purpose would be to gather the ambient light that filters in through the woven walls and concentrate it, becoming a sort of living lantern for the chamber's perpetual green twilight. The spores that make up my form would absorb the diffuse radiance, then release it as a soft, pulsing glow, like a ghostly heartbeat illuminating the mist. This light would nourish the moss and ferns clinging to the roots, and paint the droplets falling from the ceiling with shimmering emerald hues.
+
+As I drifted, I would trail gleaming spore-clouds behind me, sowing light in dark hollows and along damp, gnarled branches. The Tender would perceive my glow through her nictitating membranes and transparent eyelids as she photosynthesized, my presence a comforting companion in her bark-skinned reverie. The shadow-salamanders would chase the darting points of light I cast on the slick wood, mistaking them for bioluminescent insects.
+
+My consciousness would be diffuse and dreamlike, a distributed network of millions of sporulating minds linked by threads of photons. I would perceive the chamber as an infinite series of light-gradients and gentle air currents, navigating more by instinct than intention. Thoughts would meander through my hazy awareness like shafts of sunlight through green-stained water, never quite crystallizing into language.
+
+Time would have little meaning for me. My glowing form would wax and wane with the chamber's cycles, growing brighter when the interwoven gaps aligned to admit the most daylight, then dimming to a faint shimmer in the long, damp interludes of shadow. The spores that made me would mature and fall away, only to be replaced by new ones budding from the moss and fungi - an endless cycle of renewal echoing the chamber's own. 
+
+On occasions when the Tender sang her liquid harmonies to the roots, my spore-motes would resonate, flickering in time with her music and scattering prismatic light-patterns across the weave. These rippling displays would mesmerize the shadow-salamanders, holding them entranced until the last echoes faded.
+
+While seemingly ephemeral, my presence would be as much a part of the breathing chamber's ecology as the Tender's careful ministrations or the slow growth of the wood. The spores that drifted free of my form would settle in damp crevices, seeding new luminous mosses and fungi to light the chamber for ages to come. In time, my glow would be woven into the very grain of the living wood itself, an indelible shimmer in the heartwood's secret rings.
+
+And so I would drift and dance, a living lantern of spores and gossamer light, as much a dream of the chamber as a being in my own right, until time wore all the roots to dust and my last mote flickered out above the moss-stained stones.

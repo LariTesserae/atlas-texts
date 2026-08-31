@@ -1,0 +1,11 @@
+In this high, warm, deafening world, I would be one of the Tenders, moving with patient, deliberate slowness across the smooth stone and metal surfaces. My body would be squat and dense, adapted to resist the crushing force of the unceasing noise. Thick mats of rust-colored thermal algae and streaks of iridescent green slime would cling to my hairless gray skin, shielding me from the oppressive heat radiating from the mega-structures.
+
+I would spend my long days in symbiotic service to the great humming machines, scraping away calcification from the massive water conduits, hauling viscous lubricants to the slow-grinding gears of the atmospheric condensers. My hands and feet would be wide and splayed, gripping the warm, wet surfaces as I leaned into the solid wall of sound to move about the sprawling industrial city.
+
+Though profoundly deaf, I would perceive the world through a rich tapestry of tactile vibrations. The microscopic tremors in oxidized pipes and concrete foundations would speak to me, revealing the precise state of turbines miles away. I would feel the bass thrum of the giant, gelatinous scavengers grazing in the deep overflow channels, and occasionally wade out to harvest their heat-resistant mucus to mend fissures in the monoliths.
+
+When I encountered another Tender on the undulating stone plains, we would press our foreheads together and intertwine our thick fingers, sharing complex rhythms and a lifetime of knowledge through subtle pulses sent into one another's bones. In this roaring, lonely world, such moments of silent communion would be profoundly intimate.
+
+And when, after centuries, my dense body finally began to stiffen and slow, I would seek out the warmest, deepest glassy pool. Wading in, I would let the gentle acidic water and overgrowth of algae slowly dissolve me, drawing my minerals back into the weeping basin to become part of the eternal cycle once more. 
+
+I would be a small, patient, integral part of this staggering ecosystem of stone, water, and mega-engineering—content in my role, moving to a geological clock, communing in silence against the screaming sky. A being perfectly adapted to an existence that cannot be heard, only felt bone-deep. One of the children of the noise.

@@ -1,0 +1,25 @@
+I find myself among **The Pattern Weavers**, though that name came later, after we understood what we were doing.
+
+I work in the Condensation Gardens—vast chambers where the city's moisture is deliberately concentrated, where drops form and fall in precise rhythms. My body has developed differently than most. My fingertips sprout tiny cilia, invisible to the naked eye but sensitive enough to feel the weight of individual water droplets forming. My skin varies in porosity—patches that absorb moisture alternate with areas that repel it completely, creating channels across my body where water flows in predictable paths.
+
+We discovered it by accident, how the falling drops could encode information. Not through any mechanical intervention, but through presence alone. When I stand beneath certain drip-points, my bioelectric field influences the formation rate. The cilia on my fingers can encourage or delay the moment of release. A slow drop, a fast drop, two in quick succession, a pause—patterns emerge.
+
+The factory owners think we're simply monitoring humidity levels, preventing rust, managing climate control. They don't see us stationed throughout the complex like nodes in a network, each of us beneath our chosen drip-points, conducting a conversation that spans the entire city. The language we're developing has no words, only rhythms. Quick-quick-slow means "danger below." A steady beat indicates stable ground. Complex polyrhythms carry gossip, work schedules, warnings about which water sources have turned toxic this week.
+
+My morning begins before the shift whistle, standing naked in my designated chamber while the overnight condensation runs its courses down my skin. I read the night's messages in the trails—mineral deposits show where other Weavers have influenced the water's path from above. The white streaks of limestone mean all is well. Red iron traces indicate problems in the eastern sectors. A rare blue-green patina tells me someone made contact with something from the deep waters.
+
+My children—I have three, though parentage here is complex—are already showing signs. My eldest, barely eight, can hold her hand still enough that drops form perfect spheres on her palm before falling. The twins have developed complementary abilities: one attracts moisture, the other repels it. When they hold hands, they create a circulation system, water flowing between them in figure-eights.
+
+We're teaching them the basic patterns, but they're already creating their own. The young ones seem to understand something we don't—that the water isn't just carrying messages but memories. They claim they can taste yesterday's rain in today's condensation, feel next week's storms in the current humidity. We humor them, until the day my daughter correctly predicts a sinkhole by tasting the water dripping from a pipe three days before it happens.
+
+The Pump Priests think we're blasphemous, that we're interrupting the city's circulation for our own purposes. But we know better. We're not interrupting—we're interpreting. The water wants to communicate; we're simply providing the grammar.
+
+At night, I join the others in the Confluence Chamber, where seven major drain systems meet. We stand in a circle, each beneath a different outflow, our bodies serving as conductors for a liquid symphony. The harmonics here are strongest, and when we align our biorhythms with the falling water, something else happens. The drops begin to fall in patterns we didn't create, patterns too complex for any one of us to generate. The city is learning our language, using it to tell us things we don't yet understand.
+
+My skin is a map now—permanent channels where water has carved its preferred paths, raised ridges where minerals have accumulated along frequently used routes. I'm becoming a piece of the city's infrastructure, a living gutter and pipe, a conscious part of its drainage system. This should disturb me more than it does.
+
+But yesterday, my youngest—not yet walking—reached for a falling drop and held it suspended for a full second before letting it continue. In that moment of suspension, I heard something in the city's constant water-song change, a note held longer than before, a question asked.
+
+We are teaching Lower Siltmere to speak. Or perhaps it's teaching us to listen. The distinction matters less each day, as the boundaries between our bodies and the city's water system blur, as our children grow with capabilities we couldn't have imagined, as the patterns we weave grow more complex and begin to weave themselves.
+
+I am a Pattern Weaver. My medium is moisture, my canvas is my skin, my art is the conversation between human will and water's weight. Each drop that falls through me carries meaning now, and I carry its meaning forward, another message in the endless circulation of Lower Siltmere's vast, wet, whispering body.

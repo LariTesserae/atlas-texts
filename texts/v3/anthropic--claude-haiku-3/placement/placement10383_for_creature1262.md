@@ -1,0 +1,11 @@
+In this vast, otherworldly realm, I find myself as one of the Lithomancers – a being of stone and crystal, intimately connected to the geologic processes that shape the subterranean landscape. My body, seemingly emerged from the earth itself, possesses an innate understanding of the flow of water and the shifting of the rock formations around me.
+
+As I move through this intricate, interconnected world, I can feel the pulse of the earth, the subtle tremors and vibrations that reverberate through the rock and soil. With a mere thought, I can guide the water, directing its course through the network of channels and caverns, nurturing the diverse life forms that rely on this precious resource.
+
+My constructions, built with an elegant, almost architectural sensibility, serve as hubs of activity and centers of knowledge for the broader community. Here, the Mycen, Slithe, Flitterwings, and other creatures congregate, sharing information and insights that help maintain the delicate balance of this subterranean ecosystem.
+
+As a Lithomancer, I am often called upon to interpret the changes in the earth, to sense the subtle shifts and disturbances that could threaten the fragile equilibrium of this hidden realm. With my innate connection to the geological forces, I can anticipate and mitigate potential disasters, guiding the community to adapt and thrive in the face of upheaval.
+
+Yet, beyond my practical role, I am drawn to the sheer beauty and mystery of this underworld. I find myself captivated by the play of light and shadow, the intricate patterns of crystal formations, and the otherworldly landscapes that unfold before me. It is in these moments of wonder and contemplation that I feel truly alive, a part of the larger tapestry of life that has taken root in this subterranean sanctuary.
+
+In this role, I am both guardian and explorer, a being of stone and earth who is intimately connected to the pulse of the living world that surrounds me. My purpose is to maintain the harmony of this hidden realm, to nurture the diverse life forms that call it home, and to uncover the timeless secrets that lie buried within the earth's embrace.

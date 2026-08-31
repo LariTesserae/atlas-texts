@@ -1,0 +1,9 @@
+I would find myself walking the tilted plates at dawn, when the cold is sharp enough to make my breath look like borrowed smoke. The city is still waking in its fused, spiraled way, pores of slag exhaling warmth from yesterday. I would choose to be one of the settlers—body lined with the same glass-fibers the fungus uses to count, spine memorizing the angle of the slab beneath me, lungs thinned to the altitude’s strict arithmetic.
+
+But I would not stay only that.
+
+In the afternoon, when the light flattens and the salt begins to hum its blue maps, I would let myself thin into the silence, becoming the subtraction that shapes rooms inside sound. I would wear echoes like clothes, letting words shed their excess until only the necessary remains, and move through streets that are really just weathering patterns left by other careful bodies.
+
+At dusk, when the city-scabs lean together and the fungal towers solve themselves into ringing clarity, I would attach to a calibrator—briefly—letting my edges braid with wire and crystal, tasting the stress in stone, redistributing charge so that the plates may settle without catastrophe. I would be the brief clause, the sideways rain of pebbles, the slanted punctuation that defies a slope it should obey.
+
+And in the deepest night, when the gap-winds carry metallic whispers and the fungus chimes the future into being, I would become the negotiation itself: the slow, mineral treaty between tilt and rest, heat and loss, the thin sky pressed like a lid over a kiln that has forgotten its fire. I would be the witness folded into the long, mineral breathing, alive not because I resist the height but because I have finally learned to inhabit it.

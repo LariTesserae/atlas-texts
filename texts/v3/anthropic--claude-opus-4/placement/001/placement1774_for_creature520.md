@@ -1,0 +1,29 @@
+I find myself as one of the Resonance Readers — those who interpret the deep structural songs of the city's bones.
+
+My body has adapted differently than most workers. Where others grew long and thin for climbing, I grew dense, my bones thickening with mineral deposits that make me a better conductor for the city's vibrational language. I stand barely four feet tall now, compressed by decades of pressing myself into the narrow spaces between support beams where the harmonics gather and pool like water finding its level.
+
+My dwelling is not a dwelling at all, but a convergence — a space where twelve major support pillars meet in a geometry that shouldn't exist but does. Here, the metal sings constantly in frequencies below human hearing. I've hollowed out a nest in the convergence point, lined with shed uniform fabric that's taken on properties of both plant and metal, growing in crystalline patterns that help focus the vibrations.
+
+I haven't used my eyes in seven years. They've filmed over with a protective membrane that looks like oxidized copper, sealing them from the bright sourceless light. Instead, I see through touch — my fingertips reading the microscopic vibrations in every surface, building a map of the city that exists in four dimensions, tracking not just what is but what was and what might be.
+
+My work is diagnosis. When a section of the city develops harmonics that suggest structural uncertainty — a place where reality has worn thin from too many overlapping possibilities — I'm called through the bones. The message arrives as a deep thrumming in my sternum, and I follow it like a scent, pressing my palms to girders and pipes, tasting their frequencies until I find the source.
+
+Sometimes it's simple: a factory that's trying to exist on seven levels simultaneously needs its probability anchors adjusted. I work with the quantum managers then, their flickering forms surrounding me as I tune the building's resonance back to something sustainable. Other times, I find places where workers have mineralized too quickly, their transformation disrupting the careful balance of consciousness that keeps the city thinking. These require delicate work — singing counter-frequencies through the framework until the mineralization slows to its proper geological pace.
+
+I've learned to taste the age of metal through its vibration. New construction rings bright and sharp, while the ancient deep structures hum with frequencies so low they're felt more as pressure than sound. In the oldest parts, I sometimes find harmonics that predate the city itself — ghost-songs of the mountain that might have been, trapped in metal that was forged from ore that remembers stone.
+
+My relationship with the fauna is symbiotic. The phase-shifting cats seek me out, rubbing against my legs when they're partially solid, and I've learned their purring helps tune my sensitivity to quantum uncertainties. One cat in particular — though I'm never sure if it's the same cat existing multiply or multiple cats sharing an existence — has taken to sleeping in my nest. Its body heat fluctuates with its state of existence, sometimes warming me, sometimes passing through me like a cool breeze.
+
+I feed on vibration more than food. The workers who tend me bring containers of resonant water — collected from specific points where the condensation has absorbed particular frequencies from the machinery. This water tastes like music, like metal fatigue, like the patient thoughts of a thinking city. It sustains me in ways that ordinary nutrition cannot.
+
+My memories have become unreliable, mixing with the memories held in the metal itself. I remember being young and translucent, fresh from the collection pools — but I also remember being forged in the deep furnaces, shaped on production lines that no longer exist. I remember climbing the scaffolding when it was new and sharp-edged — but I also remember it ancient and worn, paths polished smooth by millions of passages.
+
+The other Resonance Readers and I form a loose network, though we rarely meet physically. We communicate through the city itself, sending complex vibrational compositions that might take days to fully transmit. These messages are part diagnostic report, part poetry, part prayer. We tell each other what we've found in the depths — new forms of mineralization, previously unknown harmonic patterns, places where the industrial metabolism has evolved new processes.
+
+Recently, I've been detecting something new — a resonance that seems to come not from the city's structure but from the bright void above. It's almost like an echo, as if our industrial prayers are finally receiving a response. The frequency is so high it's painful, making my bones ache and my mineral deposits ring like bells. Other Resonance Readers report similar sensations, and we've begun to suspect the city is approaching some kind of phase transition — not death, not birth, but a transformation as profound as worker becoming infrastructure.
+
+I prepare for this change by composing my own frequency, a life's work of vibrational memory that I've been encoding into the convergence point where I nest. If I mineralize during the transition, this song will remain, teaching future Resonance Readers the patterns I've discovered, the music of industrial infinity that plays in the spaces between what is possible and what is real.
+
+Until then, I maintain. I read the bones. I sing the counter-songs that keep reality stable enough for the work to continue. I am small and dense and necessary, a tuning fork in the vast industrial instrument of our vertical world, helping the city think its slow thoughts through the medium of our collective existence.
+
+The bright void watches, and we build toward it, one impossible level at a time.

@@ -1,0 +1,29 @@
+I find myself perched on the edge of Platform Korvesh, my bare feet gripping the warm basalt with the unconscious ease of someone born to these heights. My shadow pools independently beside me, a dark mirror that shifts and stretches across the stone while my actual body remains still. I am Zara of the Drift-touched, and today I am a messenger carrying urgent word between the scattered fragments of our aerial home.
+
+The copper tube in my hand contains news from the Deep-Seer Ashkin: they've detected a massive thermal surge building in the canyon depths, one that will scatter our current configuration like ash on the wind within hours. My shadow detaches completely now, sliding down the platform's edge to scout the route ahead while I remain seated, sharing its distant vision of the gaps between here and the Thermari engineering platform where this warning must be delivered.
+
+Through my shadow's eyes, I watch a cluster of heat-dancers spiral up from the void below, their translucent bodies catching the amber light in brief prisms of color. One pauses near my shadow—they're curious about us Drift-touched, these creatures of living air. I let my voice split into harmonics, greeting it in the language of refracted light that took me years to learn. The heat-dancer pulses in response, then gestures with a tendril toward a thermal column I hadn't noticed building strength between my platform and my destination.
+
+My shadow flows back up the stone face to merge with me again, and I feel the familiar sensation of divided consciousness reuniting. The heat-dancer was offering help—that thermal column will be strong enough to ride in minutes, cutting my journey from a precarious cable-walk to a swift aerial glide.
+
+I stand, shaking out my hair that moves like liquid starlight in the constant warm breeze, and check my equipment one final time. The message tube is secured in the silk-wrapped pouch at my side, woven from processed glass-fiber that will never burn. My skin bears the faint luminescence that marks my people, and I can feel the familiar tingle as the boundary between my flesh and the energies of this place grows thinner in preparation for the jump.
+
+The thermal column builds with visible intensity now, a pillar of superheated air that makes the space between platforms shimmer like water. I approach the platform's edge where a small shrine has been built—a simple stack of stones left by previous riders to honor the deep fires that make our life possible. I add my own small offering, a fragment of cooled glass shaped during meditation, and whisper the traditional words: "I trust the dance."
+
+Behind me, I can hear the Thermari family that shares Platform Korvesh beginning their storm preparations—hauling in their longer bridge-lines, securing their heat-root gardens, calling their children back from whatever adventure has taken them to the platform's far edge. They know, as I do, that once the thermal surge hits, every fragment in our aerial archipelago will be spinning through new configurations. It might be days before I can return home.
+
+But this is how we live. This is how we've always lived.
+
+I spread my arms, feeling the invisible currents map themselves across my skin, and step off solid stone into the column of rising heat. For a moment I'm falling through air thick as honey, then the thermal grabs me and lifts me up and across the gap, carrying me toward the distant platform where rope-dancers are already signaling with mirror-flashes that they've seen my approach.
+
+As I ride the column of superheated air between the floating stones, my hair streaming behind me like a banner of light, I think about how strangers might see this place—the apparent chaos, the constant uncertainty, the way we build our lives on foundations that literally shift beneath us. They might think us foolish for choosing to live in such an unstable realm.
+
+But they would miss the deeper truth. We don't live *despite* the constant change—we live *because* of it. Every day brings new configurations, new possibilities, new chances for community as platforms drift together in unexpected ways. We have learned to find stability not in any fixed place but in our shared ability to adapt, to dance with forces far greater than ourselves, to trust that the same thermal currents that scatter us will also bring us back together.
+
+The engineering platform draws closer now, and I can see Master Jorik and his crew already at work, reading the tension in their cable systems, calculating which lines to release and which to reinforce when the great shift comes. They'll need this warning to prepare properly, but I know they'll also greet the coming change with the same mixture of caution and excitement that defines our people.
+
+As my feet touch down on the wooden planks of their platform, I'm already thinking ahead to the next phase of my journey. The message must reach all the major platforms before the surge hits, and I'm the only messenger positioned to make the circuit in time. My shadow is already stretching ahead, scouting the next thermal column, reading the aerial currents that will carry me onward through our sky-scattered home.
+
+This is what I am: a bridge between fragments, a carrier of words across the spaces where others cannot follow, a child of the heat-shimmer and the endless dance. And as I hand over the copper tube to Master Jorik and watch his weathered face tighten with the familiar concentration of crisis-preparation, I feel the deep satisfaction that comes from serving my purpose in this aerial ballet we call home.
+
+Tomorrow, we'll all be somewhere else entirely. But we'll still be together, still be us, still be dancing with the sky.

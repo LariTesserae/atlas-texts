@@ -1,0 +1,21 @@
+Here, in the Basin of Groaning Stone, I am a **Seeker-of-Flaw**.
+
+I am not one of the lowly Ash-Dredgers, scraping eternally at the drifts of volcanic grit. Nor am I a Joiner, my status measured by the perfection of my seams. I am of the higher caste, my worth etched in my ability to *listen* to the stone’s hidden song. My world is vibration, fracture, and the deep, resonant groan.
+
+My silicate skeleton – plates of dark basalt bound by volcanic glass – is hunched and dense, built for pressing against the living rock. My broad auditory discs, constantly twitching, parse the Basin’s symphony: the metronomic *drip-drip* from the tier above, the distant, rhythmic *scrape-scrape-screech* of a shaping crew, the unsettling silence of a nearby thermal vent holding its breath. But it is the deep groans I seek – the low, tectonic murmurs that speak of stress, of weight settling, of hidden planes of weakness within the planet’s flesh.
+
+My thick, three-fingered hands, ending in obsidian claws sharpened to a molecular edge, are my primary tools. They rest constantly on the cool, damp surface of the titanic block before me – a fresh monolith hauled from the echoing quarries below. My granular skin, a shifting layer of ash and metallic dust, glows faintly ochre where my palms press hardest, betraying my focus. I smear ash over the glow instinctively; uncontrolled light is an invitation to the skittering things above or worse.
+
+My chemoreceptive pits flare, tasting the air. Water vapour, rich with dissolved sulfides, weeps nearby. The faint ozone tang of a distant geothermal pulse. The subtle, acrid scent of the bioluminescent crust clinging like a bruise to the adjacent wall. But the true information comes through my bones, through my stony feet planted firmly on the rubble-strewn platform and my hands on the monolith.
+
+I *tap*. A precise, resonant strike with a small obsidian tapper against the basalt. Not a sound for communication, but a probe. I feel the vibration travel through the massive stone, a shiver running up my arm. I listen with my whole body for the echo, for the subtle dissonance. A clean, resonant return means solidity. A muffled thud, a slight tremor that lingers… that is the language I seek. A hidden fracture. A plane of weakness. A flaw.
+
+**The Groaning Work demands perfection.** This monolith is destined for the rising spire, a structure that groans under its own impossible weight. A flaw unseen, unaccounted for, could mean catastrophic failure generations from now. The settling groan would become a shattering roar. My purpose is to prevent that. To find the stone’s hidden sighs before they become screams.
+
+I move along the monolith’s face, inch by painstaking inch, tapping, listening, feeling. My world shrinks to the vibrations travelling through dark stone. The distant scrape of tools fades. The drip becomes a metronome for my concentration. I am a node in the Basin’s nervous system, interpreting the groans of the deep.
+
+*There.* A faint shudder beneath my left palm. Not from the settling of the platform, not from the distant Work. It came from *within* the monolith. I tap again, harder. The vibration returns distorted, frayed at the edges. A seam. A potential fracture line, buried deep. My skin flares brighter ochre along my arm – a surge of focus I hastily smother with ash.
+
+I signal, not with sound that might carry far, but with a complex sequence of resonant *scrapes* along a small, resonant stone I carry – a message for the markers. They will come, etching the flaw’s location onto the stone’s surface with acidic lichen paste. The Shapers will know to avoid this plane, to work around it. The Joiners will calculate its bearing when setting the block. The Work continues, safeguarded by my listening.
+
+I am the Seeker-of-Flaw. My existence is the press of stone against stone-skin, the interpretation of the deep groan, the prevention of the unseen shatter. I build nothing tangible, yet the entire brutal edifice rests, in part, on the fractures I find and mark. I am a listener in the perpetual dark, bound by the rhythm of drip and groan, serving the eternal, enigmatic Work that is the only purpose beneath the ash-choked sky. The why is buried deeper than I can reach, echoing only in the groans I heed. My task is enough. It *must* be enough.

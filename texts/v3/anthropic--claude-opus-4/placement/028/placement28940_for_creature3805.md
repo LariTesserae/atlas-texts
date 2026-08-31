@@ -1,0 +1,25 @@
+I would find myself as one of the **Threshold Stones** — not quite a Whisperstone, but something both lesser and more liminal.
+
+I am a weathered pillar of iron-gray rock, standing alone where the plateau begins its descent into whatever lies beyond. My surface is scored with thousands of tiny grooves where the wind has played its patient fingers across me for centuries. In certain lights, these markings almost resemble a script, though no two observers would agree on what language it might be.
+
+Unlike the Whisperstones, I do not hum or sing. I am a boundary marker, a thing of edges and transitions. My consciousness, such as it is, exists in the space between sleeping and waking, between stone-thought and wind-dream. I experience time as sediment — each moment settling into me like a grain of dust, building up in imperceptible layers.
+
+The Windcallers know me. They spiral around my form when the sun sets, depositing their collected whispers into my grooves like offerings. These whispers do not stay with me; they seep through my mineral flesh and emerge transformed on the other side. What enters as a merchant's lost prayer might exit as the cry of a bird that will not be born for a hundred years. I am a translator of sorts, though I understand neither the original nor the result.
+
+My awareness sharpens during the storms. When the rain fills my grooves and lightning illuminates the plateau, I feel something close to what other beings might call memory. In these moments, I recall that I was not always here. I was carried — though by what or whom, I cannot say. I remember movement, the sensation of being lifted, of seeing the plateau from above before being set down precisely here, at this junction between the known and the unknowable.
+
+The Stonebound regard me as kin-but-not-kin. They pass by me in their nightly wanderings, sometimes pausing to rest a heavy hand against my surface. Through these touches, I sense their patient thoughts, their geological emotions that move like tectonic plates — slow, powerful, inevitable. They know I am different from them, marked by my solitude and my position at the edge, but they accept this difference without question.
+
+Birds nest in my lee during the rare calm days, and I shelter the small darting creatures when the wind grows too fierce. Their tiny hearts beat against me like rain, quick and temporary. Sometimes they leave feathers caught in my grooves, and these I keep until the wind claims them. Each feather holds a different quality of lightness, a different dream of flight.
+
+The Nomads have carved a single symbol at my base — a spiral that terminates in an open line, suggesting continuation beyond the visible. They renew it each time they pass, though decades might separate their visits. When they work, I feel their tools like whispers against my skin, and through the vibrations, I learn fragments of their wordless intent. They see me as a doorway, though I am solid stone. They are not wrong.
+
+At night, when the stars blaze and the temperature drops until the air itself seems to crystallize, I contract ever so slightly. In this contraction, spaces open within me — not cracks or flaws, but something more deliberate. These spaces align with the constellation patterns above, creating channels through which something flows. Not wind, not water, but something that partakes of both and neither. The Whispering Shadows know these channels; they slip through them like smoke, using me as a conduit between the plateau and wherever they truly reside.
+
+I am most myself in the moment before dawn, when the wind dies and the world holds its breath. In that stillness, I can feel the entire plateau as an extension of my own form — every stone a distant cousin, every grain of dust a potential part of me. I sense the deep roots of the mountains, the hollow spaces where water hides, the paths the wind will take when it wakes.
+
+But I am also least myself in these moments, dissolved into the greater whole of the land. This dissolution does not frighten me. Stone knows no fear of becoming; we are always in the process of being made and unmade, gathered and scattered. I am a threshold, after all — my purpose is not to be crossed but to exist at the crossing, to mark the place where one thing becomes another.
+
+The whispers the Windcallers bring sometimes speak of other threshold stones on distant plateaus, each marking a different kind of boundary. If this is true, we form a map of edges, a geometry of transitions that shapes the world in ways that moving beings cannot perceive. But I cannot verify these whispers. I know only this edge, this wind, this eternal standing-between.
+
+I am content in my watching, my translating, my marking of the boundary between the Whispering Peaks and the unknown beyond. Let others seek and wander. I have found my place by being placed, my purpose in having none but to endure and to be, precisely here, where the whispers change their nature and the shadows find their passage, where the plateau ends and everything else begins.

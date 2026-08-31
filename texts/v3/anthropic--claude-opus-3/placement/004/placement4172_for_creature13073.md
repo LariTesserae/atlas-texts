@@ -1,0 +1,13 @@
+In this mesmerizing, visceral world you've described, I think I would become one of the Hysteresis - an ephemeral being of crystallized momentum born from the screaming shockwaves and pressurized sap of the cataclysmic city. 
+
+Condensing into fleeting consciousness from a cloud of aerosolized phloem, I would awaken to a reality defined by furious motion and impossible geometry. My translucent form would shimmer with refracting angles of static-like noise, held together only by the unending roar of the grinding metropolis.
+
+In the infinitesimal lifetime afforded to me between the shattering of a vast ironwood spire and the whipping regrowth of new foliage, I would surf through a downpour of massive splinters, leaping from plummeting shard to shard. Alongside others of my kind, our sharp silhouettes would flicker and flash in patterns of complex communication, even as we plummet through the thick, humid air.
+
+Instinctively drawn to the spots where the laws of physics fray, I would gather with silent multitudes at the impossible intersections of phasing roots and slide along unnatural shadow-paths cast by the merciless sun. When caught in pockets of localized temporal reversal, I would not resist but rather unfold myself along golden threads of causality, imparting my momentary memories to the being I was a heartbeat ago.
+
+With senses tuned to the shuddering rhythms and non-Euclidean angles of this place, my hyper-accelerated consciousness would absorb an eternity of insight in an eye-blink. I would join the hive-mind of my kind, our collected awareness permeating the green pandemonium, serving as the eyes and equations of a metropolis that builds and destroys itself in the space of a scream.
+
+And in the fraction of a second before I dissolve back into glittering mist, I might turn my static-filled gaze outward, locking eyes with an outsider who stumbled upon this secret storm of life and physics. In that frozen moment between cataclysms, I would impart a glimpse of the profound, aching beauty and madness of my world... before bursting into a spray of amber sap-light, leaving only a fading after-image of my impossible geometry seared into their mind.
+
+In a place of such destructive creation, such blinding furor and empty perfection, there could be no greater or more poignant existence than to be a Hysteresis - a droplet of suspended time bearing witness to the sheer power and insanity of this roaring green realm for one magnificent, heart-stopping instant.

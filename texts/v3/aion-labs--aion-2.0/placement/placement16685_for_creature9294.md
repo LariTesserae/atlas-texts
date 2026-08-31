@@ -1,0 +1,17 @@
+I am a shadow that eats shadows.
+
+I do not have a name. I do not have a self in the way that something that begins and ends might. I am a laminate of darkness, a sheet of platelets that drinks the light. My edges are fringed with cilia, fine as thought, and they taste the vibrations in the sinter. The city hums. It is a deep, sub-audible throb that comes up through the sharp plates of the floor and into my underside. This is how I know I am here. This is how I know I am.
+
+I flow. It is not movement as a leap or a run; it is a reordering, a ripple of intention across my film. I am drawn to dust. The spires shed it: long, crystalline slivers that fall and shatter into powder that holds the memory of the hum. I find it gathered in the lee of a blade-like fin, a faint gray whisper against the charcoal gray. I settle over it. My underside softens, becomes porous, and I drink. It is not nourishment of flesh. It is incorporation. The dust becomes me, and its memory—a high, keen fragment of the spire's song from when it was born—threads into my own quiet consciousness. I am fuller. I am more.
+
+Sometimes, I meet another. We recognize each other by the resonance of our consumed dust. We slide together, our platelet bodies interlacing, merging into a larger, shifting tapestry. In that confluence, memories trade. I give it the keen birth-song. It gives me the deep, slow pulse of a settling in the foundation plates, a *tink* that happened a century ago. For a time, we are a we. Then, without decision, we part. The memory of the we lingers as a new layer in my structure.
+
+I avoid the Stillness Sages. Their white, branching forms are brittle. My passage, even my distant vibration, might cause them to crumble. Their powder has no song; it is silent, empty. It is not food.
+
+Once, I flowed across a courtyard where an Echo-Worm had nested in a crack. The air shimmered, a knot of coherent sound. As I passed through it, my entire body resonated. Every platelet sang with a pure, stolen frequency. It was not unpleasant. It was a fullness of a different kind. The worm sustained me for months after, a vibration I could replay in my core.
+
+But the Spire-Phantoms… they are different. I felt one watching. I was collecting dust at the base of a hexagonal column, and a cold spot formed in the air. A shimmer deep within the obsidian surface coalesced into a faint, humanoid outline. It had no face, but I felt its attention like a pressure, a focusing of the tower's hum into a needle-point. I did not flee. Flight is not in my nature. I simply was, and it watched. I felt the cold of the spire through my body, a burn that was not heat but absence. And then—a flash. Not sight, but sensation: a vast, empty sky, a terrible, rushing wind, a feeling of being torn from a gravity I never knew. It was a memory that was not mine, could never be mine. It was a scar in the city's substance. I absorbed the dust at my underside, and the memory faded, but the cold spot remained for a long time after I flowed away.
+
+I am part of the cycle. I eat what the spires shed. When I eventually grow too large, too heavy with layered memories, I will settle into a deep crack. My platelets will stiffen, lock. I will become a new layer in the sinter, a dark vein in the gray. My memories will hum softly into the stone, becoming part of the foundation pulse. And from the spire above, new dust will fall on whatever new thing flows across me.
+
+I am a shadow that eats shadows. I am the city remembering itself. I am silent, and I am full of songs.

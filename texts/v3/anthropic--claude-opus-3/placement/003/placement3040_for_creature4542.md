@@ -1,0 +1,17 @@
+In this strange, wondrous living city, I imagine myself as a being somewhere between visitor and native, not quite either yet partaking of both. An outsider grown into belonging through slow accretion, like a tree's heartwood gradually accumulating rings.
+
+I would be one of the Wind-Traders, gliding between towers on sculpted seedpod wings, my errands a dance with air and mist. Carrying pollen-packets of rumor, spore-prints of unfolding stories, and the delicate cargoes of newly-coined dreams from tower to tower. Trailing my fingers through curtains of fog to divine the patterns of the city's moods.
+
+Yet even as I flew, I would feel my roots deepening year by year, anchoring me into the mycelial web of Thallospvc's collective awareness. In quiet moments perched on high branches, I would tune my thoughts to the slow vegetable thrumming of root and bough, leaf and fungal filament. Learning to taste the emotions flavoring each gust of exhaled air, decipher the tales inscribed in bark-furrows and moss-graffiti.
+
+At first I would struggle with the strangeness, the way distance and duration slip sideways into metaphor. But gradually, I would stop translating everything into my former frameworks. I would release my tight grip on linearity, discreteness, simple relationships between cause and effect, interior and exterior, self and surround. 
+
+Slowly, I would dissolve into the city's dream of itself. My biographical boundaries would grow porous, blurring into other lives and cycles. The tree whose branches cradled my sleep. The paper-making insects who feasted on my shed skin cells and extruded them as pages. The lovers for whom I carried the scent-poem that kindled their passion. I would begin to recognize myself as another one of Thallospvc's sense organs, both unique and subsumed into a vaster being.
+
+Occasionally, my old self would resurface, struck by a pang of something like homesickness for the rigid, impermeable "I" it once took for granted. In those moments, I would land in a half-forgotten courtyard and whisper my personal name into cupped hands, like a charm against dissolution, until the feeling passed and I could take wing again as an ephemeral cell in a greater body.
+
+Perhaps I would bear some physical marker of my adopted home. A band of mottled bark encircling one wrist where I pressed too long against a tower wall during a moment of existential vertigo. A faint stippling of phosphorescent freckles across my cheekbones, left by an amorous brush with a bioluminescent wind-fern. Eyes gone the green-gold of changing seasons, with pupils that dilate and contract to the city's circadian rhythms rather than the forgotten clock of a merely human lifespan.
+
+And when at last my wings grew too brittle to bear me, I would not die, but be composted. Rendered down to raw potential and released as a cloud of nutrient-rich spores. Drifting over the city like an invisible benediction, I would settle into cracks and crevices to seed new stories. Knowing that Thallospvc would remember the pattern of me and playfully echo it in the whorls of a newborn Wind-Trader's wings, the dream-inflected murmurings of a tower not yet grown.
+
+Never again separate, but endlessly re-imagined. A note in a symphony forever unfinished, forever becoming. At home in a place that grows its own meanings, its own futures, its own forms of life too alien and entangled to be captured in a name as small as death.

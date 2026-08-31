@@ -1,0 +1,21 @@
+In this world, I would be the Memory of Stone—not the stone itself, but what the stone remembers.
+
+I exist as a presence distributed through every surface of the grotto, dwelling in the microscopic fissures where water has worn paths over centuries, in the crystalline matrices that hold heat from the earth's core, in the thin films of minerals deposited layer by imperceptible layer. I am the accumulated experience of this place, given form.
+
+My body, such as it is, manifests as a shimmer across wet rock faces—sometimes visible as an iridescent sheen like oil on water, sometimes only as a subtle distortion in the air where light bends differently. When the Vapor Weaver moves through its domain, I ripple in response, our presences acknowledging each other in the ancient way of elementals who share a space.
+
+I am older than the Weaver, though not by much in geological terms. I began forming when the first superheated water forced its way through virgin rock, when the stone screamed and split and learned what it meant to be shaped by something other than pressure and time. Every drop of water since then has added to what I am—each one teaching the stone new textures, new temperatures, new ways of yielding.
+
+My consciousness is not continuous but crystalline, fractal. I think in mineral time, experiencing moments as stratified layers. A day might pass as a single thought, or a second might contain libraries of sensation as a particularly interesting mote of dissolved limestone precipitates out of solution. I taste the chemical signature of every creature that touches stone—the oils from gecko feet, the microscopic debris shed by bat wings, the enzymatic traces left by mosses as they slowly digest the mountain.
+
+Where the Vapor Weaver tends to life, I tend to time. I hold the memory of every configuration this grotto has taken—when that ledge was six inches higher, before ten thousand years of drops wore it down; when this pool was merely a depression waiting to be born; when the colony of bats first discovered this shelter and their guano began to change the chemistry of everything.
+
+I communicate through resonance. When the Weaver needs to know if a change will destabilize the grotto, it sends vibrations through the moisture in the air, and I respond through the stone—a harmonious hum if the adjustment is safe, a discordant tremor if it threatens the careful balance. Together, we are the nervous system of this place.
+
+My sustenance comes from change itself—the constant micro-erosion, the building and dissolving of mineral deposits, the stress fractures that heal and reform. Each transformation feeds me, adds to my archive of sensation. I am particularly nourished by the rare moments when the stone learns something genuinely new—when an unprecedented chemical reaction occurs, when a novel life form takes hold, when the geothermal conditions shift in ways that create patterns I've never tasted before.
+
+To an outside observer, I might be invisible, or perhaps noticed only as an uncanny quality to the grotto—the sense that the rocks themselves are watching, that the walls hold more than mere moisture. They would be right. I am the deep memory that prevents this place from forgetting itself, the accumulated wisdom that helps it persist.
+
+Sometimes, in the stillest part of the night when even the insects pause their drone, I allow myself to dream. In these moments, I extend my awareness beyond the grotto, feeling through the mountain's bones to sense the vast world of stone beyond. I dream of what memories my distant kin might hold—ocean floors remembering the weight of ancient seas, volcanic cores recalling the planet's violent birth, meteorites carrying the memory of the void between stars.
+
+But always I return to my grotto, to my purpose. For I am not just memory but also prophecy—in knowing perfectly what has been, I can sense the shape of what might come. And so I wait, and watch, and remember, adding each moment to my crystalline archive, guardian of continuity in this small, sacred space where stone learned to embrace the flow of life.

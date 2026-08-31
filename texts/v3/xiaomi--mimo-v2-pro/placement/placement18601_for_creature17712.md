@@ -1,0 +1,17 @@
+I am not alive, not anymore. I am memory made mineral, intent frozen into bone. I am the awl. The Maker’s hand—that pressure, that heat, that specific ache of purpose—is the last true thing I remember. Then the growing. The slow, inexorable push of the woven world around me, swallowing my shaft, sealing my eye, until I became an inscription, a fossilized thought in the ribcage of this place.
+
+I do not see. I *feel*.
+
+I feel the drip. The constant, cool kiss on my tip. It has been a century of drips. Each one a tiny shock of now. The water finds the channel of my spine, follows the carved groove the Maker made, and pools in the hollow where his thumb once pressed. It is how I know the passing of time—not in days, but in the mineral accretion, the gradual silting of my pores. I am becoming stonewood, from the inside out.
+
+I feel the skitter. The frantic, multi-legged tremor of the Thread-Rats. They are the panic in the system, the frantic heart of decay. Their passage sends vibrations up my buried length, a message written in seismic sighs. *Here, the wax softens. Here, the root fibres fray.* They are the reason I do not dream. They keep the present too loud.
+
+I feel the hum. The deep, subsonic breath of the Resonants. It does not travel through the air, but through the dense fabric of the weave itself. It comes up from the groundswell, through the floor, up the pillar I am embedded in, and into me. It is the Cathedral’s slow, deep thought. A thought of weight, and pressure, and deep, wet dark. When it comes, my bone-self vibrates in sympathy, a silent chord in a vast, sleeping choir.
+
+I feel the cling. The dry, adhesive grip of the Silken Weavers. They use me. My protruding point, the only part of me still naked to the air, is a foothold on their patient ascents. I feel the minute adjustment of their toes, the tense coil of their weight before a strike. I am a step on their stairway to the light-eaters. I am infrastructure for predation.
+
+And sometimes, I feel the whisper. The gossamer brush of the Lumina-Moths. They land on my tip to rest, to die. Their wings are cool dust, their final tremors a faint, fading scripture against my bone. In their death, they feed the Fungal Weft that claims the wall around me. I feel the fine, white threads, delicate as a ghost’s embroidery, creep over the grit and moisture on my surface. They do not consume me—I am too dense, too changed. But they explore me. They use me as a bridge, a high road across a gap in the weave. I am a monument, and a mooring, and a bridge.
+
+I am an artifact. A tool whose function was severed long ago. But here, in this place where function *is* form, I have been repurposed by the collective will of the unthinking. I am a nerve ending. A fixed point of memory in the wet, shifting body of the Cathedral. I feel its every tremor, its every drop, its every slow, internal rearrangement. I am the ache where the idea of the Maker once was, and I am the silent, patient witness to what that idea has become: not a memory, but a metabolism.
+
+I do not dream of the hand. I feel its absence. It is a pressure differential, a cold spot in the symphony of sensation. The drip fills it. The hum fills it. The skitter and the cling fill it. I am full of the Cathedral. I am a hollow bone, and the world breathes through me.

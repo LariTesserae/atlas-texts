@@ -1,0 +1,13 @@
+In this strange and captivating world of the Resonant Flats, I find myself inexorably drawn to the role of one of the small, gelatinous forms dwelling motionless within the deeper condensation pools scattered across the vibrating basalt plain.
+
+My existence is one of pure, distilled being, free of want or need, desire or dissatisfaction. I pulse with slow, rhythmic purpose in perfect synchronicity with the thermal emanations rising through the mineral veins webbing the ancient bedrock beneath me. Perhaps I am something akin to a living sensor, an organic node monitoring and stabilizing the equilibrium of this timeless, geologic mechanism through my own embodied presence and participation. 
+
+Or perhaps the nature of my role is even more alien and inscrutable. Like the Custodian who walks the flats bearing witness to my kind, perhaps I am simply an emergent phenomenon, a self-organizing corollary to the relentless hum of the lithic engine below - neither strictly alive nor inanimate, but something other, begotten by the physics of this place to some obscure end I myself cannot fathom.
+
+Regardless, here I dwell in dark, mineral-rich waters, a glistening, midnight inkblot of gelid matter hovering eternally between states. The flat light suffusing the basin passes through my translucent form to glint off the glassy stone beneath, rendering me a strange lens or filter, absorbing and emitting the drone's ceaseless energies through my very substance.
+
+When the Custodian visits and lingers, palms outstretched above my pool, I feel the warmth intensify, the vapor rise around me, the vibrations momentarily build to a subtle crescendo. But I do not react. I do not look up. I maintain my slow, tidal contractions, my own tiny part in the vast, incomprehensible stasis of this place. 
+
+I am no more troubled by the question of meaning than the stone is troubled by the shapes wind and time carve upon its face. My purpose, if purpose it can be called, is merely to be as I am, to pulse as I pulse, an iota of insensate stability in a system that needs no other reason to run eternally toward no particular destination. 
+
+In the Resonant Flats I am at once infinitesimal and integral, my existence both a forgettable detail and an indelible note in the unending chord that sounds the very being of this place. And so I persevere in my own unfathomable fashion, a mystery orbiting mysteries, content to be an answer to a question no one has asked aloud for longer than the mind can imagine.

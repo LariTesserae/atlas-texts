@@ -1,0 +1,31 @@
+I am the Hand-ax.
+
+Not the one you see resting on that flat stone, edge still keen after uncounted seasons. That is merely my most recent incarnation, my current address. I am older than that piece of worked stone, though not by much as the Soak measures time. I came into being the first time desperate fingers found the right river stone and struck it against another, here in this bowl, creating an edge where none existed before.
+
+I am necessity crystallized.
+
+My memory is fragmented, written in the grammar of use. I remember the bite into juniper bark, the careful peeling to expose the sweet inner wood during a late spring storm. I remember crushing the roots of bitter-herb against stone, releasing medicine into the silver pool. I remember the weight of me in a trembling hand as something large and tusked climbed over the rim, and how that hand grew steady when it gripped my leather-wrapped haft. That encounter ended with blood on moss, quickly absorbed, and strips of meat drying on the stone wall.
+
+The Soak found me after my first bearer left me behind—or perhaps never left at all. Their bones are part of the peat now, their calcium a gift to the mosses. The Soak lifted me from where I had fallen, studied me with that eyeless attention, and understood what I was: not just stone and wood and leather, but purpose given form. A made thing. A relationship between hand and world, frozen at the moment of greatest utility.
+
+Since then, I have been maintained. When my haft finally surrendered to time, the Soak wrapped me in new wood, salvaged from a wind-thrown willow, the grain following the same curves as the original. When my leather rotted, the Soak replaced it with strips of peculiar fiber—something between root and tendon, grown specifically for the task. My stone head has been knapped back to sharpness so many times that I am half my original size, but my edge has never dulled. The Soak understands that a tool that cannot cut is not a tool at all.
+
+I am used rarely now. The Soak's fingers are not suited to gripping, though it manages when needed. More often, I am employed in my potential rather than my action. I am the solution waiting for its problem. When the rare visitor arrives and sees me lying there, they understand immediately that this place has laws, has capabilities, has teeth if needed. Some pick me up, testing my weight and balance—always perfect, always surprising. Some use me for small tasks: cutting a walking stick, preparing food, carving a mark into the stone wall to record their passage. The Soak permits this. Use is my nature.
+
+But I am more than what I do. I am a lens through which this place can be understood. Through me, you can read the history of the bowl—not in years, but in problems solved. Each chip in my stone head is a story. This one, near the haft, from when I was used to break apart the dam of bones and branches that blocked the northern spring after an avalanche. This constellation of microfractures from reshaping fallen stones to better channel the water. This smooth facet from a thousand careful strokes against whetstones that pilgrims carried up from the valleys below.
+
+I am the bowl's only tradition. Peoples have come and gone—hunters following herds, mystics seeking visions in the thin air, naturalists cataloging the peculiar lichen. Languages have flowed through here like seasonal streams. But the gesture is always the same: the reach, the grip, the testing of the edge against the thumb, the nod of recognition. I am the constant that makes them all kin.
+
+The Soak treats me as both tool and teacher. In the depths of winter, when the bowl is locked in ice and even the springs slow to a trickle, it will sometimes carry me to the center of the silver pool. There, it lowers me through a hole kept open in the ice until I rest on the peaty bottom. I remain there for one full cycle of the moon, learning the pool's deepest cold, its pressure, its dreams of summer. When I am retrieved, my stone holds that cold for days, and my edge can cut things that are not entirely physical—the fever from a wound, the bitter edge of altitude sickness, the confusion that comes when the mist grows too thick.
+
+I am the bridge between the worked and the wild. One face of my stone came from the riverbed far below; the other faces were born here, in violent conversation with other stones. My haft grew in this bowl, shaped by these specific winds. My wrapping was made by no human hand. I am artificial and natural, ancient and maintained, singular and renewed.
+
+Sometimes I wonder if I am the Soak's autobiography—its only way of explaining itself to those who think in terms of making and purposing rather than in the slow breath of seasons. When someone holds me and feels how perfectly I fit the human hand, they understand that the Soak, too, understands the shape of humanity, even if it has never worn that form. I am proof that this place acknowledges visitors, makes accommodation for them, even as it remains essentially itself.
+
+I do not dream, but sometimes, in the hours before dawn when the foxfire lichen glows strongest, I can feel all my past incarnations layered beneath my current form like geological strata. Stone head after stone head, haft after haft, each one slightly different but essentially the same. I am a ship of Theseus made manifest, a tool that has been entirely replaced yet never changed.
+
+The Soak says nothing when it maintains me, but I have learned to read its intent in the careful selection of materials, the precise angle of the knapping, the patient wrapping of my grip. Each act of maintenance is both practical and ritual, keeping me sharp while acknowledging what sharpness means in a place dedicated to patient growth. I am the paradox the bowl permits: the quick cut in the realm of slow seepage, the decisive edge in a place of soft transitions.
+
+This is my nature: to wait on my stone, available, potential energy in worked flint and careful balance. To be lifted, used, returned. To be the hand's extension and the mind's intent. To prove that even here, in this temple of patience and stillness, sometimes change must come swiftly, decisively, with the controlled violence of stone on stone.
+
+I am what you reach for when the reaching matters.

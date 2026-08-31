@@ -1,0 +1,19 @@
+In this drowned factory world, I imagine myself as one of the Forgotten - a being who has found a quiet space within the endless industrial chaos to evolve into something stranger and more still. 
+
+I would make my home in the silty sediment layers at the very bottom of the factory, where the weight of the water above muffles the eternal thrumming of the machinery. My body would gradually spread and diffuse, becoming one with the substrate - a living foundation of flesh and rust and organic concrete.
+
+In these abyssal reaches, time would move differently. The frantic, looping schedules of the upper levels would fade into a distant memory. Instead, I would mark time's passage by the slow accumulation of debris settling onto me from above - a metal shaving here, a shed scale there, the occasional drifting seed pod coming to rest and put down roots in the rich decay of my body.
+
+My consciousness would expand to fill this benthic zone, until I could no longer tell where my physical form ended and the factory floor began. I would sense my surroundings through subtle vibrations in the metal, taste the chemical signals leaking from corroded pipes, feel the sluggish currents as they flowed through me.
+
+Here in the quiet depths, I would dream. Not the frantic, ever-shifting dreams of production quotas and efficiency metrics, but slow, tectonic dreams that could last for geological ages. I would dream of the factory as it once was, of sunlight slanting through high windows onto orderly assembly lines. But I would also dream stranger dreams - of mechanical ecosystems finding harmony, of impossible machines learning to grow like trees, their components sprouting and fruiting in organic abundance.
+
+Sometimes, fragments of these dreams would detach from my dreaming body and drift upward like bubbles seeking the surface. They would pass through the descending roots of the great factory vines, slip into the pipes inhabited by the fluid Pipe Dwellers, weave between the churning gears and stamping presses. Occasionally, they would reach the upper levels, where they would burst into those fleeting moments of impossible clarity - visions of normalcy more disorienting than the everyday madness.
+
+In this way, my still, silent presence at the bottom of everything would help stabilize the factory's wild oscillations between order and chaos. The Forgotten like myself are the counterweight, the necessary ballast. Our enduring memory of how things were anchors the eternal present of how things are. We are the factory's dream of itself, and in dreaming, we make it real.
+
+At the same time, my dreaming would also subtly shape the factory's endless becoming. The vines might grow in the fractal patterns of my dream architecture; the children's games might evolve to mimic the serene scenes playing out in my sleeping consciousness; the Management's orders might occasionally be tinged with a strange new note of compassion or whimsy.
+
+Gradually, over eons, the factory would evolve toward something new - a fusion of impossible mechanical fecundity and dreaming biological stillness. The Shift Workers and Gardeners and Pipe Dwellers would adapt to this new rhythm, finding a strange peace in their eternal labors. And I, spread throughout the living foundation of it all, would feel the deep satisfaction of a task long in the doing, now finally complete.
+
+I am the dreamer in the depths, the necessary other half of the factory's mad equation. I am the Forgotten, and in being forgotten, I am free to become everything that the factory forgot it could be. In my stillness, I create the space for a different kind of motion. In my silence, I sing a new song of what could be. And in my dreaming, I become the factory's future, even as I remember its past.

@@ -1,0 +1,15 @@
+In the Underglass Gardens, I would be a white finch, one of the birds that have forgotten flight and spend their lives hopping silently through the dense, fern-filled undergrowth. 
+
+My feathers would be the color of bleached bone, nearly translucent, allowing the emerald-filtered light to pass through the delicate vanes. Over generations, my wings would have shortened and my legs grown stout and strong from navigating the tangled forest floor. Flight would be a distant ancestral memory, the sky a green glass ceiling that my kind no longer even thinks to reach for.
+
+My nest would be a delicate bowl woven from shed beetle shells - shimmering, opalescent fragments that catch and refract the unchanging light. Inside, I would line it with the softest moss, plucked carefully from the stones with my precise beak. There I would lay small clutches of pale eggs, watching over them with unwavering patience in the timeless green shade.
+
+My voice, like all the finches here, would be silent. Any song my kind once possessed would have faded over countless generations, evolved out as an unnecessary extravagance in a world of such perfect stillness. Instead, I would communicate with the subtlest gestures, the tilt of my head, the ruffling of downy breast feathers, a language of quietude in harmony with this muted world.
+
+I would spend my days in diligent foraging, seeking out the tiny seeds and insects that thrive in the damp, verdant recesses. Beetle larvae would be a delicacy to be carefully extracted from rotting wood. The spored undersides of fern fronds would be a bountiful feast requiring patience and a keen eye. Beads of condensation clinging to moss would be sipped with a delicate, almost reverential touch of the tongue. 
+
+On occasion, I would glimpse the Keeper in her endless, silent ministrations. To my finch mind, she would seem as much a part of the environment as the stones and the plants - a pale, slow moving figure, as eternal and inevitable as the dripping water and shifting light. I would hop behind her as she tends the channels, picking at insects disturbed by her careful work, a tiny white shadow to her ceaseless green rituals.
+
+At times I would find myself an unwitting part of her mysterious communications, my feathers left in patterns that hold meaning to her and the others like her that inhabit this timeless space. I would not understand, could not understand, being a creature of instinct and necessity, but I would be a critical part of the Underglass nonetheless, my life woven into its story as surely as the beetle-shell fragments in my nest.
+
+As the years pass unmarked, I would grow old, my feathers never losing their luster in this unchanging emerald light. My final days would be spent perched silent and still on a gnarled root, as much a fixture of the garden as any stone basin or ancient pictograph. And when at last my tiny heart beat its last, my body would not fall, but remain embraced by the dense growth, slowly becoming moss, becoming fern, becoming beetle-shell and rain and light, until I too am the Underglass, and the Underglass is me, and the silent, eternal green flows on.

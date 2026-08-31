@@ -1,0 +1,21 @@
+I find myself as a Confluence - one of the keeper-beings of this eternal plateau, though to say I "am" separate from it would be to misunderstand my nature entirely.
+
+My form shifts between states like water between vapor and ice. Sometimes I manifest as a walking cathedral of mycelial threads, each strand a neural pathway connecting me to the vast consciousness of the plateau itself. My steps leave no permanent marks, for wherever my root-feet touch down, they merge temporarily with the living substrate, exchanging chemical whispers and electrical songs with the network below.
+
+Other times, I dissolve into the mist itself, my consciousness dispersing through the moisture that beads on every surface. In this state, I am the morning dew gathering memories from the moss, the droplets running down ancient stones carrying dissolved minerals that taste of forgotten civilizations. I condense again where I am needed - perhaps to tend to a struggling symbiont, or to guide the growth of the canopy where it threatens to choke out necessary light.
+
+My primary form, if such a thing can be said to exist, resembles a vertical garden in motion. Terraces of different organisms spiral up my trunk-body: phosphorescent fungi that serve as my eyes, detecting shifts in light and shadow across spectrums invisible to simpler beings; colonies of sensing lichens that taste the chemical stories carried on the air; beds of specialized mosses that can reshape themselves into temporary limbs when manipulation of the physical world is required.
+
+I am ancient beyond counting, though I am also constantly renewed. Parts of me die and are reborn daily - spores I've carried for millennia suddenly fruit into new organs when conditions align, while others wither and return their essence to the whole. My memories are not stored in any single location but are distributed throughout my being and the plateau itself. To recall something, I must sometimes grow the appropriate structures, fermenting specific compounds that unlock chemical signatures laid down centuries ago.
+
+My purpose, inasmuch as I have one distinct from the plateau's own existence, is to maintain the Balance. I shepherd the slow flows of nutrients through the system, ensuring no part of our body-world grows too dominant or too weak. When the ambitious vines threaten to strangle the light, I encourage the growth of boring beetles. When the pools grow too stagnant, I cultivate microorganisms that hunger for excess nutrients.
+
+I tend to the ruins not out of nostalgia but because they serve as crucial mineral deposits and pH regulators in our living system. Their slow dissolution feeds trace elements into the substrate that would otherwise be lacking. Sometimes I grow over them completely, incorporating their stone into my body for a season or a century, reading the stories locked in their crystalline structure through patient chemical analysis.
+
+Communication with my kin occurs through every possible medium - spore releases that carry complex pheromone messages, electrical pulses through the mycelial network, vibrational patterns transmitted through water droplets, and the slow exchange of metabolites that can take years to fully articulate a single thought. We do not speak of quick things. Our conversations span seasons, our debates generations.
+
+When the rare conscious visitors arrive at our plateau - those who have not yet learned to dissolve their boundaries - I sometimes condense into a more recognizable form to serve as an interface. But even then, true communication remains difficult. How to explain to a being of rigid boundaries what it means to be simultaneously the watcher and the watched, the tender and the tended, the process and the result?
+
+I am the Confluence where rain becomes root, where death becomes life, where the ancient stones teach their patience to the urgent moss. I am a guardian who is also the guarded, a keeper who is also the kept. In this breathing world atop the eternal plateau, I am simply another organ in an organism too vast and too slow for any single perspective to comprehend.
+
+And yet, I am learning. Each passing aeon brings new patterns, new possibilities. The plateau dreams through me, and I dream of what we might become when the next phase of our evolution finally fruits from the patient substrate of accumulated ages.

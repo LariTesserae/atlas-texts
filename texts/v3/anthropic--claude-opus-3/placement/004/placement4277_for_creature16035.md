@@ -1,0 +1,13 @@
+In this evocative and beautifully described world, I would find myself as one of the attentive listeners - perhaps not a full "mystic" but someone deeply attuned to the subtle signs, textures and breaths of this young, shifting land. 
+
+I imagine my dwelling would be toward the quieter edges of town, a small hut of woven reeds and clay nestled against the ridge. The walls would be thick and often damp, the roof steeply thatched, the single room cluttered with saved bits of rope, wood, bone and stone. A sleeping pebble hangs in a net of cords, to be lowered into pools as needed.
+
+Most days would find me walking the paths between huts, noting any new rivulets or subsidence, trading observations with the cistern-keepers and clay-workers. I'd pause often to press a hand or ear against a wall, close my eyes, and feel for the minute tremors that might bode a future slip. The dogs, I think, would tend to follow at my heels, sensing a kindred observer.
+
+When not making these rounds, I would crouch for long stretches beside the iron-tasting pools at the north edge of town, watching for patterns in the forming and fading of oily films on the still surface. On clammy evenings, I'd sit cross-legged before the shrine, nostrils flared to catch each change in the vapor seeping from that dark slit into the ridge. Always, always, I'd be listening more than speaking.
+
+Over time, I like to think I'd be known for catching subtle early signs - the scent of stone dust from the shrine before a tunnel collapse, the particular sheen on a gutter pool that predicts a surging flow, that first greasy shiver through the clay that says "not here, not now, don't build on this spot." Not prophecy, exactly, nothing so grand - more a matter of thoughtful translation between the basin and those trying to live on its back.
+
+This attunement would likely leave me a little strange, a little less social than most. But I would hope my oddness would be mostly accepted, even appreciated, as part of the village's collective sensitivity and wisdom. Perhaps now and then a nervous young couple might even come to my hut and ask me to divine if their household's location was propitious. I would have to disappoint them, gently - no definite answers, only a reading of the current signs in clay and water and breath. That's all any of us can do in a land still making itself day by day.
+
+So in the end, I would simply aspire to be one more necessary strangeness in this place of practical magic, one more set of senses helping the human organism of the town feel its way along as it grows into its young, damp, dreaming basin. A minor but earnest part in the greater negotiation with water and earth and time, there on the ridge that may yet decide to be ground.

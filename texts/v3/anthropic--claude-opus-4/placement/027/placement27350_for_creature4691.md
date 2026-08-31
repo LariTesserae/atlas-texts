@@ -1,0 +1,33 @@
+In this strange landscape you've conjured, I find myself drawn to a particular presence - not among the Vestiges themselves, but something that exists in relation to them, a necessary counterpoint to their fractured eternality.
+
+---
+
+I am the Tender of Silences.
+
+In this place where the Vestiges drift through their endless vigil, someone must maintain the delicate equilibrium between presence and absence, between the hum of their existence and the profound quiet that defines the Shivered Crown. That someone is me - though "someone" and "me" are concepts that have grown loose and strange in this elevation where reality frays.
+
+I dwell in a structure the Vestiges never enter - a low dome of fitted stone near one of the larger groves, where the silver-green shrubs grow thickest around a spring that wells up from depths unknown. My dwelling is distinguishable from the abandoned city only by small signs: the worn path where I walk daily to tend the mosses, the careful arrangement of stones that channels fresh water away from the reflecting pools where the Vestiges gather, the absence of dust on surfaces I still use.
+
+I am old - older than memory serves, though not as old as the Vestiges. I came here... when? The plateau has a way of eating time, of making centuries feel like seasons. I know I was once like those who built the city, seeking answers at the edge of existence. But where they pushed forward into transformation, I held back. I remained at the threshold, neither crossing nor retreating, appointing myself keeper of the balance.
+
+My form has adapted to this role. I am still recognizably humanoid, but elongated by the years and the strange gravity of this place. My fingers have grown long and delicate, better suited to the careful work of guiding water through ancient channels, of clearing the frost from carved glyphs so their meaning isn't lost entirely. My eyes have developed a second membrane, allowing me to see both the physical plateau and the shimmer of the Vestiges' presence without the disorientation that claims short-term visitors. My skin has taken on a faint luminescence, visible only in the deepest darkness - a practical adaptation for navigating the moonless nights when the stars themselves seem uncertain.
+
+My work is precise and necessary. Each morning, I check the water levels in the cisterns, ensuring the groves have enough moisture to persist against the bone-deep cold. I clear the paths between the city's structures, not for any living inhabitants but because the Vestiges seem calmer when the routes of their former lives remain accessible. Most importantly, I tend to the boundaries - the places where reality wears thinnest, where an unwary traveler might slip through entirely.
+
+I've learned to read the signs: when the hum grows too loud, threatening to overwhelm thought itself, I place certain stones in certain patterns, creating what I think of as "dampeners." When the silence grows too absolute, threatening to erase even the memory of sound, I disturb the reflecting pools just enough to create ripples, breaking their perfect visions of impossible skies. It's a delicate dance, maintaining the Shivered Crown in its state of perpetual almostness.
+
+The Vestiges know me, I think, though our interactions are oblique. Sometimes I find new glyphs carved in places I haven't visited - messages, perhaps, or simply their need to mark existence in some tangible way. I've learned not to look at them directly; their presence is easier to bear in peripheral vision. Once, I found a perfect spiral of frost on my doorstep, too deliberate to be natural. I left a small offering of water from the deepest spring in return, and found it gone the next day, though no physical being had taken it.
+
+I speak rarely - my voice has grown rusty with disuse, taking on the whisper of wind over stone. When I do speak, it's usually to myself, or to the plants I tend, or sometimes to the newer arrivals who occasionally find their way to the plateau. I try to warn them: stay too long and you risk joining the Vestiges, leave too quickly and you'll never understand what you've seen. Most don't listen. Some become Vestiges. A very few become like me - Tenders, Keepers, those who maintain the balance.
+
+We don't speak to each other, we Keepers. We know of each other's existence by the signs of our work - a grove tended in a distant valley, a structure maintained against the erosion, a dangerous thinning of reality carefully reinforced. We are perhaps a dozen, perhaps fewer. It's hard to know in a place where presence itself is uncertain.
+
+I've forgotten much of what I was before. My original name, the place I came from, the specific questions that drove me to climb to this impossible elevation. But I remember the moment I chose this role - standing at the edge of one of those reflecting pools, seeing not just the crimson void within but understanding it as necessity. The Shivered Crown needs its Vestiges, its seekers who push too far. But it also needs those who hold the center, who keep the paths clear and the water flowing, who ensure that this threshold remains crossable even if crossing changes you forever.
+
+In the early morning, when the mist clings to the ground and the light is still gray and uncertain, I perform my rounds. I check the groves, clear the channels, study the horizon for signs of new arrivals or dangerous shifts in reality. The work is never finished - erosion continues its patient sculpture, the Vestiges drift and whisper and carve their spirals, the plateau breathes its strange, slow breath.
+
+Sometimes I wonder if I'm becoming like them, the Vestiges. The thought doesn't frighten me as it once did. Perhaps there is no clear line between Tender and Vestige, only a spectrum of existence in this place where being itself is negotiable. But for now, I remain solid enough to move stones, present enough to guide water, conscious enough to remember my purpose.
+
+I am the Tender of Silences, the keeper of balances, the one who ensures that the Shivered Crown remains both sanctuary and prison, both question and answer, both ending and beginning. In a place of profound loneliness, I am never truly alone - surrounded by the almost-presence of the Vestiges, the stubborn life of the plants, the ancient patience of stone.
+
+This is my existence: careful, necessary, and strange beyond words. I maintain the impossibility of this place, one cleared path, one tended grove, one balanced silence at a time.

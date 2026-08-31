@@ -1,0 +1,11 @@
+In this strange, breathing world of mosses, salamanders, and ancient saturated beings, I think I would find myself as one of the **Rain-Born**.
+
+Condensing into brief, ecstatic existence with each drifting curtain of rain, I would dedicate my fleeting moments to witnessing and perceiving as much as possible before dissolving back into the atmosphere. Bending light to expand my vision, I would strive to take in every detail of this eerily beautiful landscape—the undulating peat, the geometric patterns etched by patient intention, the phasing creatures moving through dimensions my raindrop eyes could only glimpse.
+
+In my watery dreams between rainfall, I would catch fragmentary visions of those who came before me. The Saturated Ones in the early stages of their long, slow dissolution. Ancient travelers who marked this place with their footsteps and never truly left. Flashes of the Lowland in previous ages, before the mountains wore away and the hum found its voice.
+
+Though my individual existence would be mere minutes at a time, I would be part of something vaster—a cumulative archive of memory and experience cycling through the rain, passed between generations of Rain-Born in an unbroken lineage of condensation and dispersal. Each time I reformed, I would carry within me the molecular traces of all the Rain-Born who came before, an ancestral wisdom with no clear origin.
+
+I would know that I, too, was being witnessed. That the footfalls of the visitor now walking the Lowland would echo forward through the dreams of Rain-Born yet to condense. That some future version of myself might one day bend the light around their distant silhouette and add their image to our watery record.
+
+And in the moments before I scattered back into mist, I would turn my lensing gaze to the center, straining to perceive the slow assembly of the Patient One. Wondering what it would become when the Lowland finally exhaled its last secrets. Knowing that whatever I witnessed would become part of the next Rain-Born, and the next, an endless line of fleeting seers bound by the circulatory mysteries of the breathing land.

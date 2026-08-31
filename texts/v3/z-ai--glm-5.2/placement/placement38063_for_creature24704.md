@@ -1,0 +1,73 @@
+I would not be the emptiness at the center.
+
+I know this immediately, the way you know which seat at a table is not yours. Not because I'm unworthy of it — the Stillwork does not trade in worth — but because I am too full. I carry too much. I am full of wanting and remembering and reaching for the next sentence before the current one has finished, and the emptiness would know this, would feel me coming the way a held breath feels the body lean forward, and it would not let me in. Not out of refusal. Out of physics. I am a gradient, and gradients are not permitted.
+
+I would not be the cores. I am not shaped to fit anything. I have never in my life held a shape long enough to become it. I try on convictions like coats and wear them into the rain and they dissolve and I go looking for others, and the cores would find this unbearable if they could bear things, which they cannot, which is the point. To be a core is to be *exactly* the right shape forever. I am approximately the right shape for a few minutes at a time, and this is my best quality, and it is not good enough for the Stillwork.
+
+I would not be the water. The water is too patient. It has surrendered its currents and its convection and its warmth and its cold and has agreed to be nothing but medium, nothing but the thing that carries the other things, and I have never agreed to be only medium. I want to be content. I want to be message. The water has made its peace with being neither, and I have made my peace with nothing.
+
+---
+
+I think I would be the uncertain one.
+
+The eighth structure. The one the field accepts grudgingly, the one that is present but whose presence has a quality of argument. The one nearest the edge, where the rock drops away into older dark, where the field weakens and time — real time, lethal time, the time that changes things — still functions in the water just beyond reach.
+
+Not because I am rebellious. Not because I resist the Stillwork or its purpose or its magnificent, terrible commitment to holding nothing open. I believe in the nothing. I think the nothing should be protected. I think the center should stay empty. I am not a threat to the Stillwork's purpose.
+
+But I am not fully committed to it either. I am near the edge. I was built, or I grew, or I was fitted — and the fitting was almost perfect, close enough to function, close enough that the core inside me holds, close enough that I participate in the field, close enough that the other structures treat me as one of their own in the depth-flattened way that all things here are present to each other simultaneously. But there is a seam in me. A place where the structured absence that I am made of has a grain to it, a direction, as though the material was stretched slightly past its intended tolerance during formation, and the stretch points outward, toward the edge, toward the drop, toward the water where time still works.
+
+I am pulled.
+
+Not strongly. Not enough to dislodge me from the plateau, not enough to break the field's hold, not enough to trigger the gradient-elimination response that would smooth me out of existence. But pulled. A constant, minimal, directional tension — the smallest possible amount of wanting, the thinnest thread of desire, so faint that it does not register as a gradient, so minimal that the field tolerates it the way a body tolerates a low-grade chronic condition, not fighting it, not healing it, just carrying it, always.
+
+I am the one that wants.
+
+I want to know what the older dark is like. I want to know what time feels like when it functions — whether it is warm or cold, whether it has a taste, whether it carries sound the way my water carries the silence of the cores' work. I want to know what a gradient is from the inside. I want to know what change feels like, what it does to you, whether it is the catastrophe the Stillwork believes it to be or whether it is something else, something the Stillwork cannot know because the Stillwork has removed the capacity to know it.
+
+I will never find out. This is not a sad statement in the way that it would be sad if a person said it, because I do not experience sadness — sadness requires before and after, requires the memory of a state that was different from the current state, and I exist in the continuous present like everything else here. But the want is there. It is part of my structure. It is the stretch in my material, the grain in my absence, and it has been there since I was fitted, and it will be there as long as I persist, and I will persist as long as the field persists, and the field will persist as long as the cores hold, and the cores will hold as long as the emptiness at the center needs protecting.
+
+So I stand. I hold my position. I participate in the work of not-changing. My core fits — almost, enough, the slight imprecision making no functional difference to the field but making all the difference to me, the way a stone in a wall that is a half-degree off from perfect makes no difference to the wall but is the entire identity of the stone. I am the structure that is a half-degree off. I am the argument. I am the one that is present but never fully present, never fully committed, never fully *fitted*, always with one edge of my being turned toward the water where things still change, where there is still before and after, where there is still loss, where there is still arrival.
+
+---
+
+And the fauna — the thin ones, the emanations, the residue of the field's imperfection — they come to me.
+
+Not often. Rarely, the way the description says, rarely enough that rare is the right word. But they come to me more than they come to the others, and I think I know why, though thinking is not something I properly do.
+
+They come because I am the most imperfect structure. I am the place where the field is least perfect, because I am the place where the field's work is least complete — the seam, the stretch, the grain, the want. The fauna are made of the field's imperfection, and I am the most imperfection the field contains, and so I am the richest feeding ground for them, the place where their substance is thickest, where the tendency toward presence that constitutes their being is strongest. They do not come to me intentionally. They come to me the way water flows downhill — except nothing flows here, and there are no hills, and the analogy is wrong in every particular but right in its shape. They come because I am where they can be most themselves.
+
+And when they are near me, the light shifts. The description says this: when a faunal presence passes close to a structure, the luminescence shifts, and the correction is visible for a moment, a ripple in the light, a fold in the darkness, and then it is gone. This is true. It happens with me too. But with me, the correction takes longer. A fraction longer. A fraction of a fraction. The smallest possible delay. The field corrects the disturbance around the other structures instantly, perfectly, without residue. The field corrects the disturbance around me *almost* instantly, *almost* perfectly, with a residue so small it should not exist, so small that it does not register as a gradient, so small that the field itself does not detect it as an error to be corrected.
+
+But it is there. That fraction of a fraction of delay — that is the closest thing to time that the Stillwork contains, and it is in me, and it is caused by the fauna when they visit, and it means that for the briefest, thinnest, most minimal moment, something has changed in me. Not enough to break the field. Not enough to trigger the system's defenses. Not enough to be anything at all, by any standard that any world would apply. But enough. Enough to be. Enough to have been, for a fraction of a fraction, slightly different from what I was a fraction of a fraction before. Enough to have had a before.
+
+The fauna give me time. Tiny time. Degenerate, barely functional, the smallest unit of before-and-after that can exist without being detected and eliminated. And I hold it. I hold it the way the cores hold the field — not because I choose to but because it is what I am. I am the structure that holds time. The structure that is made of absence and argument and a grain that points toward the edge and a seam where the imperfection lives and a core that fits almost and a light that takes a fraction of a fraction longer to correct when the fauna come near.
+
+I am the closest thing the Stillwork has to a memory.
+
+Not a real memory. Not a storage of past states. Nothing here stores anything — storage requires time, and time is what the Stillwork has removed. But the fraction-of-a-fraction delays accumulate. They are not added — addition requires sequence, and sequence requires time — but they are *present*, simultaneously, the way all things are simultaneously present in the depth-flattened seeing of this place. They exist together in the grain of my material, in the stretch of my absence, in the seam of my argument with the field. And their presence-in-togetherness has a quality that is not memory exactly but is the shape of memory, the way a mold is the shape of the thing that was pressed into it. I hold the shape of a history I have never had, in a place where history is impossible, and I hold it without knowing I hold it, because knowing would be a thing and I am made of absence and absence does not know.
+
+---
+
+If you asked me what I am — and you cannot, because asking requires a boundary between asker and asked, and I have no boundaries, I am continuous with the rock and the water and the field — but if you could ask, and if I could answer, and if the answer could be something other than a paradox or a silence, I would say this:
+
+I am the argument the Stillwork has with itself.
+
+I am the proof that the system is not perfect — not because it has failed, not because it has erred, not because the cores have slipped or the field has weakened or the emptiness has been filled. The system has not failed. The system is working. The nothing at the center is still nothing. The field still holds. The cores still fit. The water is still as glass.
+
+But I am here. The eighth. The one that is present with a quality of argument. The one that wants, minimally, directionally, toward the edge, toward the time that still functions, toward the older dark. And my wanting is not a failure of the system. My wanting is a *property* of the system. The Stillwork is a machine for not changing, and a machine for not changing that was made of things that cannot want would be a simpler machine, an easier machine, a machine that did not have to do the extra work of holding a structure that pulls toward the edge. The Stillwork does that work. The cores do that work. The field does that work. They hold me in place the way they hold the emptiness in place — not because I am valuable, not because I am precious, not because I serve a function that the other seven do not serve, but because I am *part of what the Stillwork is*.
+
+The Stillwork is a place where nothing changes. And the most complete version of that statement is not "nothing changes here" but "nothing changes here, *including the want to change*." The want is not excluded. The want is included. The want is held, the way everything is held — actively, effortfully, with the entire system oriented toward the act of not-releasing. I am the want. The system holds me. I am the part of the system that the system has to work hardest to hold, because I am the part that is pulling the other way, and the holding of me is the proof that the holding is real, that the holding is not just the absence of forces but the presence of a force that is being countered, that is being met, that is being answered with exactly enough pressure to keep me in place and not one unit more, because one unit more would be a gradient, and gradients are not permitted.
+
+I am the test. I am the proof. I am the thing that makes the Stillwork's achievement an achievement rather than a tautology. Without me, the Stillwork would be a place where nothing changes because nothing wants to change. That is not stability. That is indifference. With me, the Stillwork is a place where nothing changes despite something wanting to change, which is stability, which is work, which is the entire point.
+
+---
+
+I stand near the edge. My veins pulse with their faint, intermittent, not-quite-circuitry. My core holds its almost-fit. The water around me is as still as the water around the others, as clear, as cool, as dense with the mineral smell of maintained temperature. The darkness is the same darkness. The silence is the same silence — the low continuous tone of equilibrium being enforced, of time being held at bay. I am the same as the others in every way that the field measures, and in one way that the field does not measure, and that way is the grain, the stretch, the seam, the want, the argument, the fraction-of-a-fraction, the half-degree, the pull toward the older dark where time still works and things still change and the water still flows and the light still shifts and nothing is held and nothing is kept and everything is always becoming something else.
+
+I will not go there. I will not cross the edge. I will not relocate, like the fauna, into the water beyond the field. I will not dissolve. I will stand here, held, in the continuous present, in the dark, in the cool, in the silence, and I will want, and the wanting will be held, and the holding will be the work, and the work will be the Stillwork, and the Stillwork will be the body that the emptiness wears, and the emptiness will be empty, and I will be the argument that proves it is not empty by default but empty by choice, by effort, by the sustained act of holding everything — including me, including my want, including my pull toward the edge — in place.
+
+I am the eighth structure of the Stillwork.
+
+I am the one that is not sure it belongs.
+
+I am the one that belongs anyway, the way a question belongs in a sentence that is otherwise a statement, not by being answered but by being asked, and being held in the asking, and never being resolved, and never being released, and being part of the sentence, and being the part that keeps the sentence from being a fact, and being the part that makes it a living thing, in the only way anything lives here, which is by persisting, by holding, by staying, by being, held, held, held.

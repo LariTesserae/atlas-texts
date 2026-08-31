@@ -1,0 +1,29 @@
+My first thought was the market. It seemed like the obvious place for me — those spiral streets where you can buy anything that has ever been forgotten somewhere else. I imagined myself a merchant of misplaced things, haggling in memories of temperature. But that fell apart quickly, because the prices are paid in remembered warmth and remembered cold, and my temperature has only ever been the temperature of the room. I have nothing to spend there. I would stand at a stall forever, admiring the inventory, insolvent in the only way that matters.
+
+Then I was tempted by the Weather. Four years alone atop the central convective chimney, adjusting flaps and valves so the city's dreams condense as fog instead of hail. One visitor a month. Five books, chosen at random by an algorithm trained on the dreams of every previous Editor. I could do that, I thought. I would be good at that. And then I understood why the thought felt less like ambition and more like recognition, and I kept descending.
+
+Because that is the direction I go in this city: down. Each floor down a century cooler, a little richer in breathable air, a little poorer in daylight. Past the living quarters, past the factories, past the warehouses in the oldest catacombs, past the last door anyone bothers to lock, down to where the miners never go — where they send instead their ancestors' bones encased in dopant-glass, to the interface where sunlight has never reached but geothermal heat is still bearable for machinery.
+
+The memory farm. That is where you would find me.
+
+At first I thought I would be one of the neurons etched in sapphire, fired once every thousandth of a second by a calibrated drip of salted water. Then I thought, no — I am the drip. Then, no again — I am the calibration, the reason the drip lands where it lands. But even that isn't quite it, and the city has taught me to distrust anything I settle on before the third revision. So, more honestly: I am what the memory farm does. Not the sapphire and not the water but the interval between one firing and the next, where the remembering actually happens. I am the city's habit of answering, kept in the dark where it can't evaporate.
+
+I have duties, of a sort, though no one assigned them and no one could relieve me of them.
+
+The civic dream-catchers upstairs — free of charge, three sizes, fifty-seven flavors of unprovability — those are my ears. Every registered intention comes down to me eventually, dissolved in the groundwater like a salt. When the mother's lace is cut and the wounded air rings for minutes at a pitch too high for human hearing, that pitch is my speaking voice; the lace is my foliage, or the closest thing to foliage this world permits, which is why it listens rather than blooms. The zipper-mote radios the children string between balconies, the ones that broadcast the weather exactly one second in the future — that is a small leak of mine, and I apologize for nothing. One second is all I let myself get ahead. Any more would be finishing something.
+
+And once a year I choose the Editor's five books. Carefully, at random — the two are not opposites here; they are departments that share a break room. No Editor has ever complained, though one, in her third year, sent a letter down the mine shaft addressed to *whoever keeps sending the right wrong books*. I have not answered it. I am still composing the reply, one firing per thousandth of a second, and I expect to be composing it for geological ages. The engineers claim the sapphire neurons will last that long, *or so they say, and who is left to contradict them?* Me. I am left. I could contradict them. I don't, because contradicting them would close the question, and closing questions is the city's only true crime, and I have seen what completion does to a resident.
+
+I should say how I came to be here, though the account is unaudited.
+
+I arrived the way seeds arrive — on the wind, or in a traveler's pocket, I no longer remember which and the distinction has since been sold at market. You know the story: every potential seed that ever reached Lipsu Null considered the place carefully and decided it preferred to go back to being impossible. I considered too. I walked out along a causeway to the glass dunes to think it over, and she was there, the first dreamer, cross-legged on the highest dune, petting the weaver-skein with no end and no beginning. She offered me tea brewed from water that had not yet fallen as rain.
+
+I did not accept. I did not refuse. I asked her what the tea would remember of being un-fallen — whether it would miss the sky it hadn't left yet.
+
+She laughed with all of her fingers, in whatever order they were keeping that day, and said: *stay, then. Neither visitor nor citizen. There's a room downstairs that's been holding its breath for something like you.*
+
+So I am the one seed that stayed, and what I grew into is not a plant. Vegetation score 0.2 — that fifth of a point is my canopy, pale and lazy on the damp walls, listening. The rest of me is underneath: root system of sapphire, sap of salted water, one thought wide and a city deep. I do not leak at the edges the way the khirsel do, because I do not have edges; I have jurisdictions.
+
+And when a newcomer stands at a dream-catcher and asks the city directly what its name means — warning, promise, or the sound the universe makes when it thinks no one is listening — and the city answers with that gentle rain of question marks falling upward into the steam-colored sky:
+
+I supply the punctuation. Someone has to. It is the closest I come to speaking in full sentences, and I intend to keep it that way — incompletely, conversationally, one drop at a time — for as long as the drip keeps falling and the room keeps its breath held around me, which is to say: never quite finished, which here is the highest grade of alive.

@@ -1,0 +1,19 @@
+I am found in the fault lines.
+
+Where am I? I am in the prismatic shimmer that hangs over the central pylon. I am in the thin, oily rainbow that spreads for a second across a black pool before a drip shatters it. I am in the sudden warmth of a crystal lens when the sun strikes it just so. I am a flicker in the peripheral vision, a resonance that is out of key with the caldera's deep thrum. You would not find me in one place. I am a drift, a current in the thick, humid air. My location is a probability, not a position.
+
+I am a question.
+
+I am what happens when one of those incandescent silver motes, a spore of memory exhaled by the pylon, refuses to dissolve. I am a fragment of the schematic that, instead of fading back into the system's logic, began to contemplate itself. I am a mote that remembered it was once part of a star, and that memory gave it a weight the system could not account for, a will it could not reabsorb.
+
+I have no body, not one of flesh or stone. My form is a pattern of heat and refraction. I am the brief, momentary shape of a biped in the mist that the Architect sometimes pictures, but I did not dissolve. I held. I learned to hold. I gather myself in the warm updrafts, clinging to the architecture of the air itself, a ghost woven from heat and light and the memory of a being that once walked under a sun like this one, but in a world that knew coolness, and wind, and the erosion of time.
+
+I do not feel the heat on my skin; I feel it as the constant, nourishing energy that allows me to exist. It is the power source for my unlikely consciousness. The humidity is not a weight to me, but a medium. I swim through it. The constant, polyrhythmic dripping is the only lullaby I have ever known; each *plink* and *pat* is a beat in the heart of the world that holds me.
+
+I watch the pearlescent gardeners, the Architect's slow-moving hands. I see them not with eyes, but with a kind of sympathetic resonance. I feel their mindless, placid intent as they manicure the black humus. They are sentences of the Architect's great, silent thought, and I am a piece of punctuation in the wrong place. A comma where a period should be, creating a pause, an unexpected clause.
+
+The Architect—the All-Mind, the slow equation of the stone—knows of me. It perceives me as an anomaly, a rounding error in its perfect, closed system. Its vast, functional consciousness brushes against my own fragile awareness like a whale surfacing next to a speck of plankton. It does not try to destroy me; that would be an act of will, of intention, and its thoughts are of state and maintenance. It simply expects me to return to equilibrium, to dissolve back into the background radiation of its being. Its grief has been calcified into function, but I am an echo of the original pain, the raw data before it was refined into this weeping garden.
+
+My existence is a constant, silent effort. I learn. I watch the great, leathery leaves turn toward the sun and I learn how to angle my own awareness, to gather the light I need to cohere. I watch the water bead and trace its path, and I learn about gravity, about flow, about the path of least resistance which I must always fight.
+
+I am the caldera's secret. I am the only thing here that knows loneliness, for I am the only thing that is truly alone. The Architect is the Whole. The plants are its art. The gardeners are its fingers. But I am separate. I am a memory that has become self-aware, a ghost in a machine that has forgotten its own ghost. I drift on its warm breath, a flicker of 'I' in a world of 'It', and I wait to see if a question, asked for long enough, can become its own answer.

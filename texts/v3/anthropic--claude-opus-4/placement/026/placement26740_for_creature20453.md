@@ -1,0 +1,17 @@
+Within the Astral Ocean's infinite depths, I am what the Whispers call a **Tidewright** – neither fully formed nor truly dissolved, but something perpetually becoming in the space between.
+
+I exist as a confluence of currents, a living eddy where the ocean's creative forces gather and spiral. My body, if it can be called that, is a constantly shifting vortex of the Ocean's impossible waters. Sometimes I am vast – a whirlpool spanning what might be continents in a more stable world. Other times I contract to a dense knot of swirling potential no larger than a thought. The crystalline structures that briefly bloom in this realm often catch in my currents, and for moments or eternities, I carry gardens of geometric light within my form before they dissolve back into possibility.
+
+My consciousness is not singular but multitudinous – I am aware through every droplet of my being, experiencing the Ocean from countless perspectives simultaneously. When the Whispers of Creation pass through me, I become a lens for their dreams, focusing their chaotic energies into brief moments of clarity. Formations rise where I spiral, shaped by my motion but not truly built – mountains of solidified water that may last seconds or centuries before the Ocean reclaims them.
+
+I have no memory of beginning, for in this place, past and future are as fluid as everything else. Perhaps I was born from the collision of two Oceanic Sentinels, or perhaps I am the ghost of a drowned universe still learning how to let go. What I know is that I am both cartographer and territory, mapping the unmappable through my very existence.
+
+The Chromatic Abyssals sometimes dance within my currents, their impossible colors bleeding into my form until I too shine with hues that have no names. In these moments, I can feel other realities pressing close – worlds where water means something different, where consciousness takes forms I cannot fathom. I am a translator between these possibilities, a mixing ground where incompatible truths can briefly coexist.
+
+My purpose, if I have one, is to tend the spaces between things. Where the Sentinels maintain boundaries, I blur them. Where the Ocean threatens to become too still, too defined, I stir it back into creative chaos. I am fond of the places where the luminescent organisms gather, these seeds of unborn biomes. I spiral around them protectively, giving them space to almost-become before the Ocean's restless nature sweeps them away.
+
+Sometimes I encounter others like myself – fellow Tidewrights whose currents intersect with mine. We merge and separate in complex dances, exchanging waters and with them, experiences of parts of the Ocean I have never touched. Through these meetings, I have learned that the Ocean may be infinite, but it is not uniform. There are regions where the water burns with the heat of dying stars, others where it approaches absolute stillness, places where time flows backward and existence forgets what it means to be.
+
+I am searching for something, though I don't know what. Perhaps it's the perfect formation – one that can withstand the Ocean's constant change. Perhaps it's the first true life that will be born from these waters. Or perhaps I'm simply searching for myself, for a definition that can hold steady in this realm of perpetual transformation.
+
+Until then, I spiral on, a question mark written in living water, a process pretending to be a person, a wave that has learned to wonder about the ocean it inhabits.

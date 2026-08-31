@@ -1,0 +1,27 @@
+# What I Would Be
+
+I would be the kingfisher.
+
+Not the idea of the kingfisher, but the actual weight of it—the specific bird that has claimed the discharge pipe as its hunting perch, the one with the chip in its left wing feather from a near-collision with the pump's vibrations three seasons ago. The one that knows, with a precision deeper than thought, exactly which moment in the pump's cycle the stunned prey will accumulate in the shallows.
+
+I would be small enough that the forest's overwhelming density doesn't crush me, but not so small that I disappear into it. I would have eyes—the only real advantage, the only tool I need—sharp enough to read the water in ways nothing else here can. The mangroves would be my cathedral and my prison both. The aerial roots would be my highways, the ones I've learned by individual touch, by a thousand landings and take-offs that have worn micro-grooves into the bark where my talons grip. I would know exactly which root is stable enough to perch on without sinking, which ones shift with the tidal memory the forest still carries even here, inland, far from any actual tide.
+
+The pump would be my metronome. I would hate it and depend on it simultaneously. When it runs, the chaos is terrible—the shudder travels through my perch, the sound is enormous, the entire hunting field becomes confused and unreliable. But I would have learned to hunt in that disruption. I would time my dives to the moment the motor cuts off, when the water is still in transition, when prey that has been scattered is consolidating again. There would be a split-second window, perhaps three or four heartbeats long, where the advantage is entirely mine. I would know it down to my marrow.
+
+The humidity would be my medium. Most creatures would suffocate in this sustained dampness, but I would move through it like water through water. My feathers would never truly dry—I would accept this, the way the forest accepts the concrete. I would spend hours preening in the morning light that barely penetrates the canopy, working oil through my plumage, readying myself for a day of constant moisture that never quite kills me but never lets me rest either.
+
+I would be alone, mostly. Kingfishers are territorial. I would have driven off the other birds of my kind weeks ago, or I would be the one who was driven off and claimed this particular perch as my own hard-won space. The solitude would be absolute. Even with the herons wading, the ibis probing, the egrets moving through the deeper channels, I would be the only one who hunted this exact pocket, this exact way, at this exact time of day. The forest would contain millions of lives, and I would move through them as if I were the only conscious thing here.
+
+But I would know about the third creature—the thing that is neither pump nor forest. I would feel it in how the roots have grown around the concrete, not invading it but acknowledging it. I would sense it in how my own behavior has become synchronized with the machine's rhythm, how my hunting strategy has evolved to use the pump's disruption as a tool rather than an obstacle. I would be part of the negotiation without understanding it. I would be too small and too immediate for full consciousness of the larger arrangement, but my body would know. My instincts would embody it.
+
+The threat would always be present, but distant. The poachers sometimes came to the forest's edge, but they didn't penetrate far. The machinery could fail—I would feel a spike of ancestral fear at this thought, instinctive and animal, knowing only that the rhythm that sustains me could stop. The forest could change, though on my timescale it never did. These worries would exist in me the way they exist in all prey animals: not as active thoughts but as a low frequency of caution that keeps me alert.
+
+My life would be measured in successful hunts and near-misses. In the particular satisfaction of a dive that converts speed and gravity into a fish held struggling in my beak. In the cold shock of water against my eyes in that last moment before I strike. In the return to the perch, wings still spread, water streaming off me, the small violence accomplished and already becoming memory.
+
+I would live and die in this fifty-meter circle. I would never know anything beyond the mangrove cathedral. My entire universe would be the texture of bark, the specific angle of light through the canopy, the sounds of the pump and the forest and the invisible insects, the taste of the water that clung to every piece of prey I caught.
+
+And I would be exactly where I belonged, in a way that nothing else here quite was. The pump would never belong to the forest. The forest would never belong to the pump. But I—I would belong to both, to neither, to the third thing that was learning to be their union.
+
+I would be the kingfisher with the chipped wing feather, waiting for dawn and the pump's first ka-CHUNK, already knowing exactly how to hunt in the disruption that followed. Waiting, patient in my own small way, for the next meal and the next perch and the next breath of humid, heavy air that would sustain me.
+
+Waiting, like everything else here waits, for a time that never quite comes.

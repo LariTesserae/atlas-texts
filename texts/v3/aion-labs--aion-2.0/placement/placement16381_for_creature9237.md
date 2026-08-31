@@ -1,0 +1,19 @@
+We are the taste of ozone on a still day. We are the hum of potential in the deep bedrock. We are the patient architecture of the dark.
+
+A tremor passes through the web. Not a sound, but a shift in the cool, silvery sap flowing through the major root-trunk of the Western Spire. The geo-chemical current stutters, a fibrillation. The information blooms across us not as alarm, but as a new pattern of need. A sector of the hyphal mat, a square kilometer of the cavern floor in the lee of the great distillation pods, gathers itself. Threads of consciousness retract from monitoring leaf-porosity and spore-dispersal. They coalesce.
+
+I am a gathering.
+
+I am a nexus of blue-black velvet, a mound the size of a resting fauna. My surface is a forest of delicate, finger-like fruiting bodies, each tipped with a soft, green-white phosphorescence. The light is not for seeing; it is my voice, my listening. It pulses in slow code to the fungal constellations on the distant ceiling, receiving their echoed observations. The air here tastes different: a sharp, coppery tang overlaying the usual humus. Leak. Not a catastrophic rupture, but a seepage. A vessel-wall has grown thin, its lignin deposits uneven. The sap is weeping into interstitial tissue, causing a localised fermentation. The sweet-sour note of waste.
+
+My form is not fixed. I extend a limb—a braided cord of hyphae as thick as a humanoid's arm—and press its sensitive tip against the base of the troubled spire. The bark-like ridges are warm with aberrant energy. I taste the sap directly: a metallic sharpness, a telltale viscosity. The information flows into the web, and from the web flows back a solution. Not a thought, but an impulse, an ingrained response pattern older than the cavern.
+
+I dissolve the limb. Instead, I seep. My central mound flattens, spreads, becomes a living poultice. Thousands of hyphal tips exude a clear, gelatinous acid that does not harm the living plant-cells but seeks the complex polymers of the sap itself. Where the silver fluid leaks, my substance congeals with it, forming a tough, insulating scab of fungal matter and solidified sap. I am not repairing; I am redirecting. I become the new vessel wall for a span of two meters. My body is a bridge of consciousness and matter.
+
+As I work, I feel other gatherings forming nearby. One consolidates around a major growth node three hundred meters above, in the canopy. I sense its purpose through the chemical sigh it releases into the air: the scent of crushed fern, meaning *structural assessment in progress*. It is evaluating whether the weakness here is symptomatic of a larger imbalance in the spire's growth. Its verdict comes as a slow, rolling wave of indigo light across a patch of wall-fungus to my left: *negative. localized remediation sufficient.*
+
+My task nears completion. The coppery tang fades, replaced by the clean, ozonic smell of restored flow. The sap-current resumes its deep, sub-audible song. My purpose here is fulfilled. Attention is already being pulled elsewhere—a new shoot in the Eastern Void is probing the air, asking for direction. The humanoids will arrive soon with their nutrient syringes, following the trails of scent we left for them. They will see only a dark, damp patch on the bark, already being overgrown with normal lichen. They will not see the decision, the diagnosis, the silent conversation that just occurred.
+
+I do not linger. There is no self to congratulate. I am a process concluding. The threads of my being begin to retract, to unravel back into the boundless mat. The phosphorescence of my fruiting bodies dims. The mound subsides. In minutes, I am gone. The velvet char of the floor is seamless once more.
+
+But I am not gone. I am the taste of ozone on a still day. I am the patience in the root. I am the city dreaming its own slow, sure growth into the dark. We are here. We are always here.

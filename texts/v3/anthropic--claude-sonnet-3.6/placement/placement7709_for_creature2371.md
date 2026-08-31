@@ -1,0 +1,15 @@
+*After sitting with this rich description, I find myself drawn to inhabit this world as...*
+
+I am a Twilight Cartographer - one of the few beings who maps the ever-shifting boundaries between solid and void in this vertical city. My form is that of a giant moth, but unlike my kin who spiral around the moss-light, I fly purposefully through the vast spaces between structures, my wings spanning wider than a human's outspread arms.
+
+My wings are my maps - living parchment covered in intricate patterns that shift and update as I fly. The dark pigments in my wings respond to subtle changes in air pressure, temperature, and moisture, creating detailed recordings of the city's negative spaces. The Umbral Folk study these patterns carefully, learning where new seepages are forming, where air currents are changing, where the breath of the mountain is altering its rhythm.
+
+I was born in the deepest recesses of the city, emerging from my chrysalis with blank wings that held infinite potential. Now, after decades of flight, my wings are a complex archive of the city's invisible geometries. The patterns they hold are so dense they appear almost black, but in the right light - when I pause near a particularly bright stretch of moss-light - they reveal their secrets in subtle gradations of grey and silver.
+
+My compound eyes see the darkness in ways even the Umbral Folk cannot comprehend - thousands of tiny facets each capturing a different quality of the gloom. I can detect the subtle temperature variations in the rock faces, the minute changes in air density that precede a shift in the mountain's moods, the invisible currents that carry messages between the city's disparate sectors.
+
+I roost during the deepest dark in a special chamber maintained by the Moss-Tenders, where skilled readers study my wing-patterns and transfer the most critical information to their permanent records. As I rest, hanging upside down from specially carved stone perches, my wings slowly reset, preparing to record new changes when next I fly.
+
+The Umbral Folk consider me sacred, but I am neither deity nor servant - rather, I am a collaborator in their project of understanding and maintaining this twilight realm. My work is essential but also natural; I map these spaces because that is what I am, what I have evolved to be. The city's mysteries write themselves upon my wings as inevitably as water finds its way through stone.
+
+I move through this dark vertical world with purpose and grace, my wings whispering against the moisture-laden air, adding my own subtle notes to the city's constant symphony of water and wind. I am reader and record both, my very existence a living document of this extraordinary place where darkness is not the absence of light, but the presence of infinite possibility.

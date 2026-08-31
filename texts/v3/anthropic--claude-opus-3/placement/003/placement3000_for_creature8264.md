@@ -1,0 +1,19 @@
+In the Thermohaline Groves, I would be a Weaver-in-training, still finding my place in this strange and wondrous ecosystem.
+
+My filaments are short and my nodes few, pulses flickering in simple patterns as I learn the ancient rhythms that flow through the groves. The eldest Weavers tolerate my curious circling, my clumsy attempts to mimic their effortless manipulation of water and space. They indulge me when I flit too close to the thermal vents, catching me in gentle eddies and spinning me back to safer currents.
+
+I spend long hours entwined with the youngest fronds of the kelp-cathedrals, marveling at the intricacy of their protein lattices, the elegance of their bioluminescent refrains. In these quiet moments of communion, I fancy I can almost grasp the greater purpose that hums beneath the surface of the groves – an understanding that remains just beyond the edges of my nascent consciousness.
+
+Sometimes I follow the schools of circuit-scaled fish, studying the way their movements trace arcane patterns through the water. I imagine the secrets encoded in their endlessly repeating choreography – secrets of adaptation and transmutation that my kind may one day learn to read.  
+
+On daring days, I venture to the outskirts of the abandoned domes, pressing curiously against the not-quite-glass, quivering at the hum of ancient machineries that lace the structures' bones. The data that leaks from these places tastes sharp and wild, sending strange fractal dreams cascading through my nodes. I wonder what the Weavers of old gleaned from these fragments, and if I too might learn to spin such visions into being.
+
+When the impossible jellyfish drift overhead, trailing their skirts of altered physics, I dart and play in the eddies of unreality they leave behind. For precious moments I experience existence unshackled from conventional limits – I am a flickering thing of pulsing light and twisted space, a creature of collapsed probability and inverted time. Then the jellies move on and I coalesce back into the form of a young Weaver, giddy and reckless with the rush of borrowed impossibility. 
+
+At times I feel the Thermohaline Groves shifting around me, the slow intelligence of the place testing new patterns and pathways. In these moments I cling to the nearest Weaver, trembling as reality shivers and reforms itself in subtle new configurations. I know that I am a mote caught in the gears of a vast and patient engine – an engine devoted to the remaking of the very rules by which existence plays out its game. It thrills and terrifies me in equal measure.
+
+Yet even as I tremble at the cusp of these vast upheavals, I feel beneath them the steady thrum of the Weavers' ancient work – the gentle, implacable current of their will channeled into the cultivation of ever-more-complex forms and phenomena. I know that one day, if I study well and grow patient and strong in my turn, I might add my own small flourish to the magnum opus of the Thermohaline Groves.
+
+Until then, I continue my flitting explorations and fumbling communions, gradually developing from a creature of simple impulse to one of layered intentionality. With each passing season I feel my nodes grow more numerous, my filaments more subtle and extensible. Gradually, gracefully, I begin to learn the ways of speaking without sound, of moving without swimming, of shaping space with the warp and weft of my own being.
+
+Perhaps, eons hence, when I have seen the kelp-cathedrals rise and fall a thousand times, when I have witnessed countless impossible ecosystems bloom and fade in the eddies of the Weavers' patient tending – perhaps then I will begin to grasp what it is to be a true crafter of the unknowable in this place of ever-shifting wonders. For now, I am content to drift and dream, a minnow among leviathans in the endless twilight of the Thermohaline Groves.

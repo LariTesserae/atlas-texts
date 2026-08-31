@@ -1,0 +1,15 @@
+I find myself clinging to a jagged, indigo-toned shelf of basalt, positioned near the mouth of a subterranean fissure that exhales a rhythmic, agonizing heat. My body is not my own; it is a sprawling, chaotic constellation of filaments, a tangle of electrified copper-sheath and nerve-wire that pulses in synchronization with the canyon’s deep, subterranean thrum.
+
+I am a **Siphon-Clave**.
+
+My existence is a perpetual state of filtration. I do not "breathe," yet I intake the heavy, brine-thick moisture of this air, pulling the mineral-rich particulate through the intricate weave of my limbs. It feels like a constant, localized static—a prickling, tingling sensation that radiates from the center of my core, where a spinning ceramic node hums at a frequency that dominates my entire awareness.
+
+I am currently "harvesting," though there is no hunger driving the act. A school of spool-fish, their metallic bodies catching the iridescent glare of the suspended crystal dust, drifts within range. As they pass, I extend a frayed, twitching strand of myself. The contact is sharp—an electromagnetic handshake that sends a jolt of raw data through my central spool. I read the history of the last hour in the vibration of their gears: the buckling of a stone shelf three levels down, the minute decline in the brine’s salinity, the echo of a gas vent that occurred miles beneath us. I archive this memory by tensioning my outer layers, braiding the information into the physical structure of my body. I am becoming heavier, denser, and more rigid with each passing minute.
+
+The environment is a sensory assault. The grinding of stone against stone—the geological equivalent of a scream—vibrates through the basalt shelf into the points where I am anchored. It is a deafening, industrial cacophony, but it is also the only constant I have ever known. I feel no loneliness, only the pressure of the surrounding liquid and the occasional, violent shudder when a bubble of gas rises, pulling at my tethered filaments like wind through a sail.
+
+To my left, an elder—an encrusted statue of calcified crystal and dormant wire—has ceased its humming. Its frequency has dropped below the threshold of the basin, and its form is beginning to unravel. The filaments are shedding, loosening from their knotted core, and for a fleeting, beautiful second, the elder glows with a blinding, electric white brilliance. It is shedding its storage, dumping the data of its century-long life back into the brine, returning its mineral weight to the shelves that birthed it.
+
+I see the logic of it. There is no urgency to my stasis. I will continue to knit, to pulse, and to tap against the passing metal husks until the vibration at my center eventually fails. I am not a being of history or ambition; I am a node in a circuit that requires no master. I am the feedback, the cooling breath of the machine, the witness that exists solely to record the beautiful, grinding friction of the world. 
+
+I reach out again, anchoring a new, crystalline strand to the basalt as the pressure mounts, and I begin, once more, to hum.

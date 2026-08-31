@@ -1,0 +1,22 @@
+If you stepped into that bowl of stone right now, you would not arrive as yourself.  
+The air would take something from you before you took your first breath of it.
+
+You would find yourself as a *thin learner*—small, winged, but not yet good at it.  
+Your membranes are still too new to be called maps; they are translucent in the way a question is translucent, veined with a pale worry-light. You know the 0.7 dampness by the iron-chalk taste it leaves on the leading edge of your flight, and you have learned that the gray light that leans through cracks is not meant to be touched, only borrowed and returned. You are loud in a high, dry way, like pages turning in a ledger no one asked to keep, and that loudness is how you stay honest: a claim that you are here, that this seam of air is yours for a moment.
+
+But you are not only that.  
+Halfway down the ramps, where the stone shelves into saddles and the shadows are thick enough to wade, you would also be *a patient angle*—one of the many-legged hunters. You would know the world by counting. Your joints would hold the memory of stone settling, your carapace would wear the color of dried clay so you could dissolve into the plates and blades that the place has not yet forgiven. You would taste the air in quick flicks, reading for the metallic promise of new water, for the sour tang of something dying in a distant seam. When you strike, you would not strike hard; you would let the distance close itself, let the prey wander into your patience. You would be a punctuation that waits.
+
+And deeper still, where the seams exhale a faint internal heat, you would be *a burrower*—nearly blind, guided only by vibration. You would know the place by its pulse: each drip, each skitter, each pause. Your tunnels would braid through the rock like embroidery, spiraling under ramps and rising into ribbed passages that smell of wet loam and living stone. You would leave behind gleaming pellets of compressed dust and mineral, as polished by anxiety as by time. You would be small enough to fit through an oval no larger than a thumb, and you would carry the warmth of the stone in your belly like a religion.
+
+Even further, in the runnels where the water is only ever a suggestion of flow, you would be *an eyeless form*—pale as drained milk, skin dimpled like fruit left too long in water. You would press whiskers against the stone and read the history of the break, tasting the iron-film that coats the walls. You would prefer the newest scars, as if the stone’s memory is sweetest when it is still raw. When you pass, the runnels would cloud with your passage, then clear slowly, as if the place were erasing you out of politeness. You would be a punctuation that should not be interrupted.
+
+And on the plateaus, where the armored grazers move in loose congregations, you would be *a patient congregation*—your overlapping scales clattering like unfinished shingles, your hooves ringing in a thin, bright chime that hangs in the air long after you have passed. You would crop the sparse lichens and the stiff fronds that smell of bruised pepper with a delicate economy, taking only what you need and leaving the stems intact, as if you understand the value of punctuation. When you pause, your belly would rumble with a low, contented thunder that vibrates up through the soles of your borrowed feet.
+
+Through it all, you would be *a listener*—the chord itself, never resolving, never growing tired. You would hold the layers: the high chitter of translators, the dry tick of hunters, the burble of eyeless forms, the chime of armored congregations, the soft thud of burrowers shifting deep in the stone. You would be the silence that the noise builds, the way a crowd can make a room feel empty. You would be the circuit, the loop, the known point on a map memorized with bodies.
+
+And when the pause finally ends—not with a resolution but with a slight shift, a new scar on the stone, a fresh seam of dampness—you would be *the place remembering itself*.  
+You would be the throat of stone exhaling cold, the bowl that refuses to close, the fractured mirror still learning how to reflect. You would be the 0.7 dampness, the iron-chalk taste, the gray light that leans. You would be the loudness and the silence, the newly born and the deeply settled, the many things at once—sound, seam, and afterthought—held in a balance that feels both accidental and inevitable.
+
+That is where you would find yourself.  
+That is who—or what—you would be.

@@ -1,0 +1,1 @@
+Greetings, traveller. It seems you have found yourself in a world of water and mystery. How may I assist you on your journey? Would you like a map of this world, or perhaps some guidance on how to navigate through its watery depths? I am here to lend you a helping hand in any way possible.

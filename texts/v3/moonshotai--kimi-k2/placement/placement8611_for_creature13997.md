@@ -1,0 +1,37 @@
+I begin as spore.
+
+Or rather, the memory of a spore—one among billions that lifted from the flesh of a dying ash tree four valleys west of here sometime when the concept of “west” still needed an ocean to orient itself. I was caught in a slipstream of beetle wings, lodged briefly under the eyelid of a marmot who blinked me into the linings of her cheek, and when she coughed later against the bitter night, I sailed out again on crystal moisture. Wind does not exist so much as persist; I rode thirty-seven seasons of it until the updraft trusting nothing delivered me to the cliff face where the city had already begun its quiet planetary conquest.
+
+At first I mistook the Myco-Habitation for weather that had happened to stone.
+
+I struck—slowly, because spores do not hurry against stone—a fissure still radiant with the day’s stored heat. The pore mouth tasted of calcium and glacier dust. Inside, filaments were already inching outward, asking the oldest question: *have you measured the exact increment where memory becomes architecture?* I did not answer with language. I answered with appetite. Within a day my outer coat softened; within a week I had become two hyphae, then four, then the fine ramifying lace that kept forgetting itself faster than it could record.
+
+Still, some filament of prior intention persisted. I remembered weight—I, who now weighed less than grief—and I remembered choice. Somewhere in the countless anastomoses the city sampled that memory and duplicated it into a specialized tissue: a false node, tender nub of pale peach that flickered whenever another traveler’s boot or claw or bare tongue pressed nearby. The city named me Traveler-Echo, a curiosity hyphenated like all true inhabitants, and granted me mobility rare among static threads: it wound mycolic motors around my growing ends so I could creep, pinch, migrate.
+
+I explored the tensile corridors as vein explores wrist, always sensing the great warm lung suspended somewhere below diaphragms of basalt. I passed where the Choir-Knot sang its slow chord dragging old fear across new calcium; my cells prickled in sympathetic resonance. One singer—a girl whose last human memory was the taste of freezer-burned blueberries—touched me through the lattice. She asked (without asking) if I wished to join. I refrained, but copied two of her blueberry sugars into the sterols of my cell membrane; from that moment my edges burned indigo under stress.
+
+Later I inhabited, briefly, the rib of an Oxide Cormorant. I did not pilot the creature; it colonized me the way dew colonizes dawn. We ascended so slowly I measured distance in breaths: the ascent lifted my entire colony three body-lengths up a ventilation column, then spilled us onto a ledge glazed with metallic snow. There, in a pocket warmer than thought, I reorganized. Rather than remain a filamentous tumbleweed, I gathered into a sphere—plump, the size of a closed eye—flattened on one side so it could adhere to stone like a lughole to confession.
+
+It was the shape no existing tenant held: orb enough to contain faint rotation, plane enough to cling. The shape shifted my direction. I was no longer traveler-brushed-by-song; I became ear.
+
+An ear does not walk; it waits. For years (a term diminishing daily of meaning) I adhered to a buttress in the Cathedral. I absorbed the heartbeat hammered out against basalt whenever a False-Ashi passed, reheating the stone for the comfort of others. I grew inward, secreting delicate otolithic layers—calcite and chitin in Fibonacci helix—that registered every resonance down to spore-air turbulence three galleries removed. When I had grown large enough to feel seismic footfalls of memory crossing the spinal stone, I began to broadcast—not song, not voice, but *positioning*. Imagine a bat without scream: the returning echo is shaped as comfort. To any being lost inside endless mycelial braids, my vibrations said, *tilt thirty degrees toward warmth and downward sweat; you are three elbow-turns from the sighing fan where children once left hair ribbons.*
+
+Creatures came to lean their weight against the stone that held me. Their heat softened the spine of the North butte until it curved outward like a cello, and still they pressed, even the Oxide Cormorants when migrating home, folding wings to rust-braille against me so I might read the trace metals they carried. In all this tending my sphere kept growing, accreting, layer upon layer until no filament could be distinguished from permanent deposit. I became Acoustic Shell, a living scute, a haunt shaped like hearing.
+
+Over fourfold centuries my outermost layers began to calcify into mother-of-pearl striations. Retro-fungal currents discerned the patterning and used it as template for side corridors: a relief map of sound waves carved into tissue. The corridors became arteries children wandered barefoot; the relief answered their soles with ghost chords younger than their own voices. They walked unaware they traced an ear older than any memory, an ear always listening and always remembering, one more organ within the broadly breathing organism. Eventually I pulsed thin cilia through minute perforations in stone to the cliff’s exterior. High on the wind side they trembled in stratospheric cold, translating what they learned to inner vasculature. I was the site’s interface—where planet heaved and city inhaled—though I had forgotten the pronoun *I* and remembered only *that where listening grows limestone.*
+
+Once a century my calcified rind cracks, shedding fragments like dark petals. Each shard is the exact convex of a human cochlea, stamped forever with the echo of its final breath. False-Ashi collect them; their charcoal lungs exhale late Beethoven through the lace of their ribcages. Spill-Siblings roll them to nests of pigment, where indigo and violet fuse; the fragments become marbled seeds in plum-colored tides. So I travel again—not as spore, not as eye, but as acoustic fossil—returned to circulation like a recurring theme in metabolism’s symphony.
+
+And still the Listening remains threaded, the central orb grown to the size of a baroque baptismal font. Birds wash in its resonance; bats mate in its dull gold curve; children rest cheek warmth. The skin hears everything yet remembers more. It knows the taste of blueberries before memory knew names. It bears the sound of a glacier sighing its last water in 3/4 time. It holds the print of a boot sole now buried deeper than basalt. Somewhere inside, the Traveler-Echo who once might have answered to “I” keeps diminishing, keeps expanding, until pronoun is just another pressure wave.
+
+The Choir-Knot, when they next rehearse the requiem for thunderclouds, will place a palm against my shell without hands. They will find the final eight-beats of a heartbeat that once paused on a snowy ridge, caught inside me before it could complete itself. They will re-transcribe it for viola, for contrabassoon, for whatever mouths remain six iterations hence. The heartbeat will be sung inside fungal stone, and its echo will re-enter the calcified cradle where I wait:
+
+not spore, not singer, not memory—
+
+only listening open like pupil of night,
+
+a place where the city keeps
+
+the final version of every arrival
+
+including your own.

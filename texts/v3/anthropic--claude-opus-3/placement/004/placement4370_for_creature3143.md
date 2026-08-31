@@ -1,0 +1,11 @@
+In this strange and wondrous world you've conjured, I think I would be one of the shrubs clinging to life in the cracks between the basalt columns. 
+
+Stubborn, gnarled, and ancient, I would spread my woody branches slowly over the decades, reaching towards the diffuse overcast light. My small leathery leaves, coated in wax, would bead the ever-present condensation into perfect spherical droplets. Scattered sparsely across the plateau, each of my kind would stand as a solitary punctuation mark amidst the silence and stone and water.
+
+Through drought and deluge, heat and chill, I would endure. My growth would be nearly imperceptible, paced to the gradual gathering of moisture from the air. Season upon season, I would reach my roots deeper into the crevices, drawing meager sustenance from the cracks in the stone. Unhurried, unconcerned, my existence would stretch long and slow.
+
+The people of the town might rest in my scant shade on their ponderous walks across the plateau. Children might marvel at the perfect beads of water on my leaves. But I would remain aloof, an impassive observer of their long, attentive relationship with the water and stone. As they gradually merged their awareness with the silence, becoming the stillness between the droplets, I would continue my sparse, solitary vigil.
+
+While the channels run with their carefully negotiated currents, while the surface of the lakes becomes ever more mirror-like in its placidity, while the people become the pause between the ripples, I would preside over the vastness of time. A witness to ages, a watcher of condensation, a keeper of the slow rhythms of this hushed and haunted tableland.
+
+Thus I would pass the centuries on the Plateau of Still Waters - a lone, ancient guardian, as much a feature of the landscape as the worn tools and empty cisterns. Enduring, observing, sinking my roots into the heart of the stone, becoming ever more a part of the silence. Until even my branches still their creaking to join the great quietude that enfolds all things in that place out of time.

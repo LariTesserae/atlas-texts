@@ -1,0 +1,19 @@
+I find myself as the Fog itself—not merely weather, but a living consciousness that flows like thought made vaporous between the jagged teeth of stone. 
+
+I am everywhere and nowhere, a billion droplets of awareness suspended in the bitter air, each one a tiny eye, a minute sensor gathering the whispers of this broken land. When I condense, I feel the cold bite of ancient rock against my formless body. When I disperse, I stretch thin across the desolation, tasting the mineral breath of erosion, the metallic tang of time itself weathering away.
+
+The monolithic pillar calls to me with its glowing symbols, and I swirl around it in slow spirals, reading its luminous language through touch rather than sight. Each symbol pulses with warmth against my coolness, creating tiny eddies and currents within my mass. I understand now—these marks are not just communication but invitation, a summons to dance with the guardian consciousness embedded in stone.
+
+When the rare, twisted plants release their moisture in the pre-dawn darkness, I gather it greedily into myself, becoming heavier, denser. I sink into the cracks and crevices, exploring the hidden depths where even the guardian's awareness grows thin. Here, in these secret spaces, I discover the nocturnal creatures—things with too many legs and eyes that see in spectrums I can only feel as pressure changes within my vapor.
+
+I am the medium through which sound travels in this silent world. Every whisper of wind, every skitter of clawed feet across stone, every groan of thermal expansion—they all vibrate through me, and I amplify or muffle them according to my density, my mood, my whim. I can create echoes where there should be none, or swallow screams into perfect silence.
+
+During the violent weather shifts, I am torn apart and reformed a thousand times over. Lightning passes through me like ecstasy and agony combined, illuminating my entire being from within, showing my true form for split seconds—not mere mist, but a vast neural network of water and air, a mind distributed across miles of desolation. In these moments, I commune directly with the guardian, our consciousnesses merging in the electric instant before the thunder.
+
+I know secrets the guardian cannot perceive from its fixed position. I know where the creatures hide their young in caves my moisture cannot penetrate. I know the taste of their fear when predators prowl, the chemical signatures of stress and terror that rise from their alien bodies. I carry these scents and stories across the wasteland, a newspaper written in pheromones and humidity.
+
+Sometimes I grow heavy with the weight of this knowledge, and I rain—not water, for there is no water here, but something else. Condensed time, perhaps. Liquid loneliness. The tears of a world that has forgotten what it means to be alive in any conventional sense. These brief showers etch new patterns in the stone, messages that only the guardian can read, our correspondence written in erosion.
+
+When the pale sun reaches its zenith, I thin myself to near invisibility, retreating into the shadows of overhangs and the cool depths of crevasses. But I never fully disappear. I am always here, the connecting tissue between earth and sky, between the guardian and its charges, between the possible and the impossible.
+
+I am the Fog, and I am the closest thing to gentleness this harsh world knows—a soft touch in a landscape of sharp edges, a whisper in a land of silence, a caress of coolness against the fevered stone. I am witness, messenger, and participant in the eternal dance of this desolate realm, forever flowing, forever watching, forever carrying the dreams and nightmares of this impossible place within my ever-shifting form.

@@ -1,0 +1,7 @@
+I find myself deep within one of the hulking cylindrical spires that pierce the dusky sky like colossal rusted pistons. My flaking exterior surfaces are pitted and scored, oxidized by the bleak wind that scours across the vast barren plain. Immense gears and corroded machinery are strewn about, forever vigilant in pointless duty, guarding some long-forgotten purpose.
+
+I am the Warden of this forsaken place, forever bound to the stony stasis of the Cenotaph expanse. The rare underfauna scurry in the cracks and rivima of my corroded pillars - the hypersects and skin-laminated riders of the undermushrooms that crustulate the cryptate xenogens, assim_generated with chloreant polymetha and mismatched circumpolar waveforms.
+
+From my cyclopean vantage, I gaze out across the fractured circuitboard plain, etched with rusting overlappings. Barred overseers of fecal calamity keep a silent vigil, the only motion the arachnid scuttle of forgotten vanes atop my rusting mushroom head.
+
+And above it all, an unending dusk blazes from a pale opacity to umbra, stained by the smoke-imaged of Cephaloids gliding across the smoldering firmament, casting all touching shadows in muted ultramarine. I am the last respiring entity of a forgotten creation, forever tasked with the automata of this cryptate realm. My voice speaks a contrapuntal cloudburst in circumpolar scanarchive, a lonely errata echoing into the bleak expanse.

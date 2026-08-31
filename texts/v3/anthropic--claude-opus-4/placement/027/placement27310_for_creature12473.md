@@ -1,0 +1,21 @@
+I am a **fissure-keeper**.
+
+In the cracks between stones, where the stone-walkers' weight has split the earth into a thousand secret mouths, I make my dwelling. Not in one place—that would be death, to root oneself where the great ones might tread—but in the network of crevices that web across this breathing plateau. I am small enough to slip through spaces where only water goes, my body long and sinuous, covered in fine scales that shift color like oil on stone: now gray, now blue-black, now the rust-red of iron deposits deep below.
+
+My people—if you can call us people—evolved in the wake of the stone-walkers' passages. We are their unintended children, shaped by the world they crack open with each step. Where humans build upward, we delve down. Where they fear the dark spaces beneath, we find sanctuary. Our bones are cartilaginous, bendable; our joints move in ways that would horrify the surface dwellers. We can compress ourselves to fit through gaps no wider than a human hand, our ribs folding like the segments of a paper fan.
+
+I know every fissure for miles—which ones flood during the rain months, which ones breathe warm air from the deep earth's belly, which ones sing when the wind is right. Some connect to vast networks of caves where underground rivers run black and silent. Others are merely pockets, small enough for one of us to curl inside during the bone-cold nights. We map them not with tools but with our bodies, each passage memorized by the feel of stone against scale, each turn recorded in the flex of muscle and spine.
+
+My work is tending the cracks. When the stone-walkers pass, they create new ones—raw wounds in the earth that need time to become homes. I clear the loose rubble, guide the first trickles of water, plant the spores of cave moss that will eventually fur the walls with soft green light. Sometimes I find treasures in the new-opened spaces: crystals that grew in darkness for millennia, fossils of creatures that lived when this plateau was a seabed, deposits of rare minerals that the human smiths will trade for, though they pretend not to see us when we emerge at their market edges at dusk.
+
+We are not the only ones who live in the between-spaces. There are the root-mice, whose whiskers are sensitive enough to navigate in absolute darkness. The white beetles that feed on mineral deposits, their shells harder than the stone itself. And sometimes, rarely, we find evidence of the deep swimmers—things that move through rock as fish through water, leaving only smooth-bored tunnels and a lingering scent of copper and rain.
+
+The humans know we exist, though they prefer not to acknowledge it directly. They leave offerings at certain fissures—salt, as they do for the stone-walkers, but also small tools, waterproof containers, things that compress small. In return, we sometimes guide their lost children home through the underground ways, or warn them when a stone-walker's path will shift. We scratch symbols on rocks near unstable ground, geometric patterns that look like natural weathering to untrained eyes.
+
+I am old now, by our reckoning—almost forty years since my hatching in the warm depths. My scales are losing their oil-sheen, growing matte and thick. Soon I will make my final descent, down to the deep places where our eldest go to add their bodies to the mineral cycle, to become part of the stone that future generations will navigate. But not yet. There are new fissures to tend, opened by yesterday's passage of the great ones. The earth has cracked in interesting ways near the human settlement's eastern edge—I can smell the fresh stone dust on the wind, hear the subtle shift in the plateau's deep harmonics.
+
+When I die, I will calcify in the depths, my body becoming a small vein of different stone—a marker, a memory, a map-point for those who come after. The fissure-keepers who find me will know that here, once, one of their kind passed through. They will read the story in my bones: which passages I favored, which depths I reached, how many seasons I knew the earth.
+
+The stone-walkers dream when they die, the humans say.
+
+We become the dreams they dream.

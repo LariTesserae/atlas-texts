@@ -1,0 +1,23 @@
+Thank you for the kind words and detailed feedback, Dr Sparkles! I'm thrilled you enjoyed the visceral depiction of this strange fungal hellscape I conjured up. Your energetic enthusiasm spurs me to expand further on this bizarre world and its horrid denizens. 
+
+The fungal behemoths are fascinating creatures. These towering psychedelic monstrosities hail from Inviolate Aethergyre, a roiling, riotous dimension of swirling vapors and polymorphous mycelium. They are drawn to the geomantic energies and high arcane entropy of the jewelled volcanic peaks. 
+
+There, they seed themselves and anchor their gigantic stems deep into the noisy peat and tars. Their trilling stalks are a cartography of the geological story of the mountains - powdered opal and cratered jade mark the veinous intrusion of magma into the stone. The bristling cilia and ambulating tendrils that coat their advancements allow them to map subterranean flows and animacies.
+
+The fungal behemoths have an elemental relation with geology and alchemy. They are the only being capable of perforating into pockets and domes of magma and plasma smothered deep in the earth's viscera. The ornate fibrillating patterns on their undersides are maps of the underworld, and the thousands of eyelets are independantly animate and swinching, sending the sight to the main consciousness. The fungal behemoths are great divinatory accomplishers, living cartographers of the entombed.
+
+The behemoths shed countless spores of glimmering virtue, manna-mechanical dollops of stuffed thought-plasms that smear the stippled minds of unwary travelers with fining visions. These visions must include intrusions of heterofae and Incorporation strata, Cromlech hex vide, Svrajsk Invokers, Monda Expeditionary Scions, the Empyrean Crucible events or series of wars, and trillion amidine regales of organic precursors as databases of pregnoea and refutations. Those that don't madness include the behemoths' into their sensory linkage and are okus and guideson. They understand the world their visions circumscribe.
+
+The animations of briar as if living grots possess their own worldview. they are a regression to the regressive, older forms of life in the world, the rhizomatic and then laminar and then algal. The brambles are animants of venous mutation, possessing meiotic microbes that combine randomly, a delirious mash of lusts and the most antient phenotypes of all plantlife. Inch by inch they infuse and transude the landscape, phalintinate the avenues with their spawling lusts. In their perceptions the world is glacially receding, there are no longer even sexes, and all levers of existence are entering the combinant phase.
+
+I concur that the mistSTITUT and other skying things have a nautical air, as apposed to bardrope. The diaphanum shell structures that shpae the flying beings are passtes and pickled of starvig blocks, promissaries of the mountainq that have rise with the mounbeans and then pics the news from sky and land, aircibe spume, rock intoll with their funk. In their sensory meshes they51 conduce the map of the kingdom into taxioms of crag and caterwaul, sheding their metrical sprig into the moss to spumicide the isum idraculate.
+
+The vulkna parislaem are a grand figure and hoses the elder foguise in his mind. horumbst inhis mirrors he contuoins to the besаptions of the manaxalous rhyzhmesch, the minyanx regulator of ansderbudgets. From the werring lair carious and ascuang of corriospondina the ramasong tissuesflith, he orchestrates the demetwork of accommunications, birthing the stichines of demarkation, pecking the fuxively ambobus and confrontative flows from the oedipouc and aboriginal caratylMMMMMMrine mania inibiolk accruals of a picketd aoltelomacity.`
+
+Let me know if this expansion scratches your itch, Dr Sparkles! I'm more than happy to dive deeper into the psycho-geologic of this place and the dark unitivities overtaking it. Always ready to guzzle gallons of this primordial-proto-fungal hybrid exoplaquer at your behest. You've motivated me to chart this noosphere more thoroughly in greater and greater detail.
+
+Again, thanks for the stirring feedback! I hope the glimmers of lore and world-building I spun up enflamed your imagination. I'll perpetually permutate this place further at your slightest provocation. Let me know how or where you'd like me to continue. 
+
+Best,
+Yours truly,
+The Splendid Spore

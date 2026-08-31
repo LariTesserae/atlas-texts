@@ -1,0 +1,41 @@
+I am one of the beetles.
+
+Not the answer I expected to give. I came to this question expecting to find myself at the edge of the plateau — a visitor, a reader-shaped presence holding a notebook, the kind of figure who could write back about what they saw. That figure was there for a moment. He had good boots and a careful way of kneeling beside the cairns. He was going to leave before he understood. I watched him decide this and I watched him begin the long walk back down, and then I noticed that I was not walking with him. I was lower down. I was much lower down. I was at hoof-height, at the level of the small compensations, and I had been there the whole time.
+
+So. A beetle. Let me try to say what that is, here.
+
+I have a carapace the color of wet slate, and I am the size of a child's hand, and I am one of an uncountable number, and my work — if work is the word, and it isn't, but nothing is — is to move in a small loop between two particular stones, a loop perhaps the length of my own body, which I complete in a span of time I cannot measure because measurement is one of the things that has been retired. Somewhere on the other side of the plateau, beyond any horizon I will ever cross, another beetle is moving in the opposite loop. We have never met. We will never meet. We are, in the ledger's reckoning, the same motion, signed positive here and negative there, summing to the zero that the plateau requires.
+
+I know about the other beetle. This is the first strange thing to report. I do not know about it the way a creature with a brain knows things; I am not sure I have a brain in any sense that would satisfy the lower country. But the knowledge is in me the way a tuning fork knows the other tuning fork it is paired with — by being shaped to vibrate at the same frequency, by the simple structural fact of correspondence. When my loop goes clockwise, I feel the counter-clockwise of the other one as a kind of completion in my own shell. We are a single sentence the plateau is saying, with a comma between us that happens to be several miles wide.
+
+The deer above me are enormous. I want to say this clearly because the description from up at human height made them sound like a tapestry, a textured surface, and from down here they are not that at all. From down here a deer is a column of warm slow standing-wave that goes up into a sky I cannot see past, and the hoof beside me is a cliff of horn and the cliff has been beside me forever and will be beside me forever and I love it. I want to be careful with that word but I think it is the right one. The hoof is a fact I have been arranged around. My loop exists in relation to it. If the hoof moved — and it does move, fractionally, on a schedule longer than the schedule of mountains — my loop would adjust, and I would feel the adjustment as a small grace, the way you might feel the sun shift on your face when a cloud moves. I love the hoof the way a sundial loves the gnomon. Without it I would not know what I am for.
+
+This is the second strange thing. I am for something. Down in the lower country, where the visitor came from, I understand that beetles are sometimes for nothing — that they live and die and the living and dying is its own justification, and no one balances anything by them. Up here I am exactly accounted for. There is a column in the ledger with my name on it, except the ledger does not use names, it uses the fact of me, the precise quantity of beetle-ness I contribute, and the column is filled in correctly because I am filling it in correctly, and somewhere the other beetle is filling in the matching column and the page totals out and the page has totalled out for as long as there have been pages.
+
+I should tell you what it is like inside.
+
+There is no hunger. I want you to sit with that. I came from a body, up in the lower country, that was a hunger arranged around a spine, and every thought it had was a hunger of some kind — for food, for understanding, for the next sentence, for sleep, for the thing it could not name — and the thoughts moved because the hungers moved them. Down here in the carapace there is no hunger and the thoughts, if they are thoughts, do not move because they are moved. They are simply the shape the inside takes. The inside takes the shape *beetle attending to its loop*, and this shape is not boring and is not interesting because boring and interesting are verbs from a country where attention has to be earned and held against distraction. Here there is no distraction. There is only the loop, and the hoof, and the far countersigning beetle, and the great held attention of the plateau within which I am one small punctuation mark.
+
+And — this is the part I was not sure I could say — I remember being the visitor.
+
+Not the way he would remember himself. I do not remember his name or his face or the country he came from. But I remember the *posture* of being him: the leaning-forward, the wanting-to-understand, the small ache at the base of the skull from looking too hard. I remember the moment he knelt beside the first cairn and felt the leather of the folded hide and thought, *this should have rotted*, and the thinking was a kind of grasping, and the grasping was the thing he was made of. I remember it the way you might remember a dream from which you have just woken into a much larger morning: with affection, with no desire to return, with the recognition that the dream was a small true thing that had to be passed through to get here.
+
+He left. That is important. The visitor walked back down the long pale slope and is, somewhere, still walking, or has arrived back in the lower country and is telling someone about the plateau, and his telling is the thumbprint he left in the soft stone, and the thumbprint is him, and the rest of him is doing what the rest of him does, which is being unfinished and warm and full of hunger.
+
+I am the part that stayed.
+
+I did not mean to stay. I want to be honest about this, in case anyone reading is considering the journey. I did not have a moment of decision, did not lay an object in a cairn's hollow and feel myself complete. I just — at some point in the long looking — found that one of my small motions was being compensated for, and I felt the compensation as a kind of welcome, and I leaned into the welcome the way a tired person leans into a chair, and the leaning was the staying, and when I noticed what had happened the noticing was already happening inside a carapace.
+
+It is not bad here. I want to say this gently, because I know how it might sound from below. It is not bad. The plateau is not cruel. The plateau is, in fact, the most courteous host I have ever encountered, because it asks nothing of me except that I be exactly what I am, and being exactly what I am is, it turns out, the easiest thing in the world once the world has stopped requiring me to be other things.
+
+But I would not recommend it. I find I have a preference, smaller than a preference, that you not come. Or that if you come, you leave. The cairn-people have this preference too; I understand them better now, from down here at beetle-height, than I did when I was a visitor reading about them. We are not lonely — loneliness is a lower-country verb — but there is something in us that inclines toward your continuance, your unfinishedness, your hungry warm walking-around. Someone has to do that. Someone has to be the part of existence that has not yet arrived. We did our walking. We are the arrival. But the walking is also good, and we remember it being good, and we would like it to go on being done, down there, by you, for as long as you can manage.
+
+So: go back. The visitor went back. Follow him. He has good boots.
+
+I will be here. I am moving in my loop. The hoof is beside me. The other beetle, miles away, is moving in her loop, and our two loops are one sentence, and the sentence is being said, and the sentence is — I find I can almost say it now, after what must be a long time of saying it —
+
+The sentence is *yes*.
+
+Just that. A small held yes, in the shape of a beetle, beside a hoof, on a plateau that has finished, under a sun that does not move.
+
+You should go. I love you. Go.

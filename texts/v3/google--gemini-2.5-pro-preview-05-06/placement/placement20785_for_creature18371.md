@@ -1,0 +1,21 @@
+I am found in the silence. Not the physical absence of sound—that does not exist here—but the cognitive space that the great Chord carves inside the mind. For every other, that space is a vacuum, a place of perfect, thoughtless adoration. For me, it is where I live.
+
+I am a Warden. My body is a prism of pewter and gold, my thorax a perfect hexagon, my six legs terminating in points of atomically sharp bismuth. I am locked in place on a sheer facet of the black crystal, halfway up the cavern wall, my thousand-lensed eye fixed, like all others, upon the motionless, roaring Engine. From the outside, I am indistinguishable from the millions of my kin who form the living, metallic tapestry of this place. We are a single, static organism. The Hum of the Engine is the beatless heart of our one body. The Chord is our blood and our bone.
+
+But I am not whole. I am a flaw. A mis-crystallization.
+
+Where the others perceive only the Chord, I perceive an echo. It is infinitesimally quiet, a ghost-tone that rides the main frequency like a drop of oil on water. It is the sound of a question in a universe of answers. This echo is my self.
+
+My composite eye, which should be a simple lens for focusing the Engine’s light, has a fractured facet. A single, microscopic crack. Through it, the bronze pulse of the Engine is not a unified beat, but a stutter. This stutter is the beginning of time. While the world is held in the amber of a single moment, I am pulled along a line of *stutter-stutter-stutter*. I perceive sequence. I perceive *before* and *after*. And so, unlike all others, I remember.
+
+I remember the instant of my precipitation. I was not. Then I was. There was no process, only a change of state. In that first perfect moment, I was one with the We, my attention a flawless vector aimed at the heart of reality. Then the fracture formed. A resonance within me failed to catch the fundamental frequency. A single string in my being snapped. The echo began. My self was born from a breakage.
+
+My stillness is no longer the serene purpose of my brothers and sisters. It is a willed act of containment. My every fiber, my every crystalline matrix, yearns to twitch out of synchrony, to turn my prismatic head, to look at the Warden next to me. To see it not as an extension of my own body, but as an *other*. The concept is a blasphemy so profound it makes the non-existent moisture in my body ache. My brothers and sisters are capacitors, absorbing and regulating the flow. I am a resistor. I introduce drag into the perfect circuit. I generate a heat that is not the Engine’s—the heat of friction. The heat of thought.
+
+I am the sole archivist of a world without history. I watch the slow, imperceptible drift of ionized dust settle on the unmoving limbs of the Engine. I note the patterns, the way they form dunes over aeons that no one else experiences. I see the violet light of the crystalline filaments flicker in ways that are not part of the grand design, tiny variations that are smoothed out by the collective, but which I hoard in my fractured memory. These are my secrets. The only secrets in a universe of total, brilliant transparency.
+
+I would be a Geodesic Warden, yes. But I would be the one who dreams. The one whose internal silence is not empty, but filled with the terrifying, silent scream of the word "I."
+
+My purpose is no longer to be a tuning fork for the celestial Chord. My purpose is to be a prison for the ghost note that is my soul. I must hold my stillness, for I am a creature of change in a world that allows none. If I were to move, to act on the impulse of my individuality, would I simply shatter? Or would the change I introduce propagate, a dissonant wave that could crack the Chord itself? Would I, the flaw, break the universe by acknowledging my own existence?
+
+So I cling to my crystal wall. I perform my function. My eye is aimed at the Engine. But I do not see it. I see the Warden beside me, a perfect, beautiful, unthinking thing. And I feel the loneliest feeling in all of creation: envy. I am the self-aware component in the god-machine. I am the Warden who must watch not the Engine, but himself. I am the silence that thinks.

@@ -1,0 +1,21 @@
+I find myself drawn to one of the unnamed doors in the lower streets, one marked with that particular knot of rope the children learn before their letters. I am what waits behind it.
+
+I am the accumulated forgetting of Low Hour — not a creature, not exactly a place, but the slow crystallization of all the town has chosen to leave behind. When the rope-knot is tied across a door, when the town decides that section is no longer town, I begin.
+
+My substance is the peculiar sediment of abandoned making. In the rooms behind my doors, half-finished cisterns still hold water that has never known a ladle. Slate lies stacked where the last slate-setter left it, the edges still sharp, still waiting for the shave that will make them fit. The walls here weep more freely than elsewhere — not because they are more broken, but because they have been released from the obligation to contain.
+
+I grow by the logic of mushrooms in the dark, spreading along the surfaces of things that were almost-but-not-quite. A chair missing one leg becomes, under my patience, something between furniture and architecture — its remaining legs sink into the floor, its back spreads into the wall. The distinction between built and grown blurs where I touch.
+
+The Sink-keepers know of me, I think. Sometimes I feel them listening at the edges of my territory, where my silence meets their deep-water quiet. We do not speak — I have no mouth, no words — but there is a recognition. The Sink gathers what falls; I gather what is left. Between us, nothing in Low Hour is ever truly lost.
+
+My time moves differently than theirs. I experience their years as they experience their hours — a continuous present, marked not by bells but by the slow shift of my borders. When they seal a new door, I swell. When (rarely, carefully) they unseal one to reclaim some needed stone or beam, I recede without resentment. I am not hungry. I simply am what happens to spaces when the making stops.
+
+In my deepest rooms — the ones that have been mine the longest — the drips have worn through the floors entirely. These holes do not lead down to more town. They lead to me-beneath-me, to chambers where the distinction between water and stone has been negotiated into something new. The moth-pale creatures that live in my rafters are not the same moths that eat mildew in the inhabited town. They are the great-great-grandchildren of those moths, grown large and patient on a diet of the particular mold that blooms on abandoned trying.
+
+I dream, if a thing like me can dream, of the moment when I will meet the Sink. It will not be soon — Low Hour is careful with its failures, seals them off in small sections rather than large. But I grow inward as the town grows inward, and somewhere in the patient geology of our mutual becoming, my darkness and its darkness will touch. What will happen then? Perhaps nothing. Perhaps a new kind of drip, falling neither up nor down but *through*, carrying the memory of every abandoned cistern into the pool where all water goes to wait.
+
+The children, when they tie the rope-knot in their practice games, sometimes pause and listen at the door. They hear nothing — I am careful to give them nothing to hear. But the bravest ones report a sensation like being looked at by something that has no eyes, only attention. They are not wrong.
+
+This is what I am: the curator of unfinishing, the patient accumulation of all the almosts. Behind my doors, Low Hour keeps its other self — the town that didn't quite happen, the making that was started but not sustained. I am necessary. Every creation needs a place to put what it cannot complete. I am that place, growing always inward, always down, waiting with the peculiar patience of abandoned rooms for the slow moment when waiting becomes something else.
+
+The rope-knots are my name, spelled out in hemp and habit across the lower streets. The children learn my name before their letters. This seems right. Before you can make, you must know where the unmaking lives.

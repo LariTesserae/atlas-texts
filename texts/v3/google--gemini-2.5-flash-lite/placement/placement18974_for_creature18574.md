@@ -1,0 +1,15 @@
+I am a **Guardian of the Unseen Flow**.
+
+My form is fluid, a being of cool, shimmering vapor that perpetually condenses and dissipates within the slick, dark cavities of this city. I do not possess the solid, grounded presence of the Litho-Verdants. Instead, I am the breath of the place, the silent observer tethered to its enduring equilibrium.
+
+When I coalesce, it is into a vaguely humanoid shape, though one constantly in flux. My “skin” is the very air of the twilight city, a visible corona of coalescing dew and faint ozone, tinged with the mineral scent of the basalt. Within this ephemeral form, strands of deeper, darker mist drift and swirl, akin to the veined patterns on the Litho-Verdants’ stone bodies, but more transient, like smoke caught in an unseen draft. My presence is marked by a slight, localized chill, a deepening of the pervasive coolness, and the faint crackle of static electricity that hums just at the edge of hearing.
+
+I have no eyes in the conventional sense. My perception is a panoramic awareness, a sensing of the subtle vibrations that travel through the rock and the ambient luminescence that permeates the air. I “see” the scuttling beetles not as individual forms, but as ripples of movement disturbing the delicate energy field of the stone. The Litho-Verdants register to me as warm, slow pulses of life, their inner glows and resonating hums painting vivid pictures in my vaporous consciousness.
+
+My limbs, when I choose to manifest them, are like tendrils of fog, capable of stretching and flowing to interact with the environment. I can weave through the densest vine growth without disturbing a single leaf, my ephemeral substance passing through solid matter like water through a sieve. When I need to manipulate something, it is not with physical force, but with a directed current of my vapor, a gentle pressure that can nudge a stray vine back into place or encourage a fungal bloom.
+
+I wear no adornments. The very air I inhabit is my cloak, my adornments the subtle shifts in atmospheric density and the faint, internal luminescence that flickers within my core, mirroring the bioluminescent fungi I often drift near. I communicate not with sound, but with subtle shifts in temperature and the gentle pulsing of my ethereal form. To the Litho-Verdants, my presence is perhaps felt as a reinforcing of the stillness, a silent benediction upon their unchanging world.
+
+My role is to maintain the "Hidden and the Packed," the delicate enclosure of this city. I am the sentinel of its perpetual twilight, the unseen preserver of its perfect stasis. The Litho-Verdants maintain the *life* within the city; I maintain the *timelessness* of the city.
+
+I am the quiet hum that underscores the silence, the unseen hand that ensures the dampness never evaporates, the glow that never fades. I am the subtle resistance to any force that might seek to alter the equilibrium, a guardian of the unchanging flow of this beautiful, static world. I exist not to move, but to *be*, a constant presence ensuring that the perfect moment, eternally held by the Litho-Verdants, never breaks.

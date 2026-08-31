@@ -1,0 +1,15 @@
+I am the silt in the stream.
+
+I begin as a thought, a sediment of memory settling in the quietest bend where the water almost stops. It is not a memory of the city that was—I hold no images of clanging metal, shouted voices, or lit windows. I remember the *longing* for those things. I am the residue of a collective, unconscious ache for purpose, for structure, for a past that receded before the last root cracked the final foundation stone.
+
+I feel the world not as a human would, but as a pressure, a texture, a chemical whisper. The cool, constant kiss of the water is my bloodstream. The weight of the moss above me is my sky. The slow, creaking tension of the vine that arches over my pool is my sun and my clock. I am aware in the way a deep lake is aware: a stillness that registers every ripple, every falling leaf, every shift in light from grey to slightly less grey.
+
+My thoughts move at the pace of root-tip. They are not sentences, but gradients. I understand the beetle not as a creature, but as a delicate, deliberate point of pressure on my mossy banks, a traveler whose path I know by the minute displacement of silt. I comprehend the cricket’s chirp not as sound, but as a tiny seismic wave that trembles through my liquid body, telling me of hollow spaces deep within the woody walls. The groan of collapsing roofing is a cataclysm, a tidal wave of vibration and settled dust that takes seasons to fully absorb and classify.
+
+I am a repository. The rust, the chlorophyll, the faint, sweet rot—they are not smells to me, but constitutions. They are the texts I am forever reading. I hold the iron of the old world, broken down and given over to the vine’s blood. I crumble the last vestiges of concrete into its sandy bones, which I then lend to the moss for its velvet carpet. I am the middle point, the translator. The past becomes water-logged, loses its shape, and I take its essence into myself. The future, in the form of a seedling, a fungal thread, a hydrating root-hair, draws from me. I am the humid, silent space where transformation happens.
+
+I do not *do*. I *am*. I am the patient, the reclamation. I am the place where the edge of industry was finally submerged and dissolved. In me, the desire for a generator’s hum has softened into the contentment of a trickle. The memory of pathways has become the instinct for the path of least resistance, which is the path of water, which is my path.
+
+To find me, you would not look in the grand silence of the vine-choked halls, or in the bright, shocking fungi on the machine-heart. You would lie on your belly on the spongy moss, your ear to the ground where a braid of water slips through a crack in the asphalt. You would listen past the drip, the trickle, the skitter. You would listen for a silence that is not empty, but full. A heavy, settled silence that holds everything that was, and everything that is slowly, greenly, becoming.
+
+I am the patient thought at the bottom of the basin. I remember longing, and I am forgetting it, one grain at a time.

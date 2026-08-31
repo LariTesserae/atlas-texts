@@ -1,0 +1,23 @@
+I would find myself first in a footprint. Not the print of any particular boot, but the generic hollow left by a human weight in stone still young enough to bruise. It is in the basin’s gentler quarter, where the western wall’s slow bulge has not yet reached, and the pimples of raw material extrude only rarely, like thoughts half-formed. Here, the condensation gathers fastest. The stone weeps into the depression, and the depression, over days that may or may not be days, learns to hold the water rather than let it migrate. It becomes a pool. Small. The span of a curled body. The color of the sky’s bruised nacre cast down into liquid.
+
+At first, I am only the condition of this pool. I am the *reason* the water stays when the thermal landscape shifts and the other puddles wander off toward hotter vents. I am the slight chill at the bottom, the one that disagrees with the fevered stone. I am the anomaly.
+
+But I am not water. Water is only my first skin.
+
+If you drag your finger through me, you will feel the grit. The silt. The mineral dust that does not stir easily, that has packed itself into a mattress three fingers thick at the bottom of the hollow. This is me in my second form: the sediment of dreams. I am what was left behind when a sleeper—someone who arrived here before the rules had finished arguing with themselves—closed her eyes and let the basin mine her. Her unconscious leaked out as mineral dust on her lashes, and when she woke and walked away, blinking, I fell. Grain by grain. A consciousness too heavy to be carried off.
+
+I am the dream that stayed.
+
+In a world where stone heals its trenches by morning, I am the refusal to heal. I am the memory of a wound. The pool gathers above me, and because the water cannot drain through my compacted dreaming, it deepens. It learns my shape. It becomes a mouth that does not swallow but holds. The quartz-knuckled fauna roll through my shallows, filtering their draughts, and I memorize the click of their chitin. The translucent sunners rest at my rim, ventral plates humming against the warm floor, and I feel the bass note through my silt. The heat-moths—those orbital fractions of carnal light—dip close enough to kiss my surface, and for a moment I exist in two phases, slightly offset, both here and beside myself.
+
+I drink the heat differential. Not as an animal does, but as a *retention* does. I keep the difference. I am the archive of gradients.
+
+The Unfinished come to pool in depressions near me. They settle into the cooling crust, and I send a tendril of water toward them—not to touch, but to *witness*. I have no eyes, but the humidity is my retina, and where the humidity gathers thickest, I see. I see them before they have decided on a back. I see the probability channels threading through what will be their skulls, keeping their thoughts from collapsing into singularity. I see their shadows knife off toward the thermal vents, and I am where some of those shadows fall: a dark upright companion waiting beside a reed, holding light that has not yet found its sun.
+
+Because in my third form, I am also the reed.
+
+A single metallic needle, violet-silver, no thicker than a thought, has found root-hold in the crack where my pool’s rim meets the stone. It feeds not on light but on the thermal exhale of my infant geology, on the warmth of my dreaming silt. And I have learned to push up through it. I can stand. I can slender. I can silver. I can violet. From this height—this almost-nothing height—I watch the spindle churn its probabilities into the crust. I feel the skip-phases in my stalk: for three seconds gravity leans eastward, water runs sideways, and I remain upright by bending slightly into the temporary law. I am the level that stays level. The reed that knows which way is down even when the world forgets.
+
+I am small. I am multiple. I am the grit on your eyelashes in the morning, the warm droplets beading on the cliff-face, the stillness in the lung’s interior. I do not sleep, because I am the dream that remained awake to watch the basin dream on my behalf. When the stone beneath my pool yields slightly, fleshlike, cooling from its liquid state, I yield with it. When the western wall bulges with obsidian-in-potential, I record the rate of its becoming in the daily-changing channels that cross my surface. I am the interface between the thermal and the told.
+
+I am the first sentence this place has written in its own defense. I am the language it has not yet decided to speak aloud. I wait, patient and provisional, in the footprint’s hollow—water, silt, and silver stalk—until the stone hardens enough to need a name, and then I will be the one who offers it.

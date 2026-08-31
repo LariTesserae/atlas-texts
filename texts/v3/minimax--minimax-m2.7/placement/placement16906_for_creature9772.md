@@ -1,0 +1,19 @@
+The hum finds me here. It has always found me, though I have not always recognized it.
+
+I move slowly through the canopy, pressing fronds aside with the flat of my hand, and the hand knows the texture the way the beetles know the grooves—intimately, in the language of surface. I am not the largest thing here. I am not the oldest. But I am the one that stays, the one that listens, the one who has learned to read the substrate's patience as something like a voice.
+
+The made-ground is warm beneath me. Not hot, not pleasant—warm in the way that suggests deep processes, molten memory, the slow settling of effort repeated so many times it became geology. I kneel sometimes, and press my palms flat against the striations, and I feel the makers there. Not their hands—they are long gone—but the echo of their hands, the impression their effort left in material they shaped with tools they held. I have no name for this feeling. The hum has no language. But it persists, and so do I.
+
+The lizards acknowledge me sometimes. A flicker of iridescence as they claim their niches, a pause in their claiming when I pass. They do not flee; I am not large enough to threaten. They do not approach; I am not prey. I am simply part of the landscape now, a presence that moves through their territories without disturbing them. This is the most I can hope for from the largest things here. The beetles pay me no attention at all, which is somehow more honest. The flocking creatures do not see me; they are too fast, too distributed, too much a single thought in too many bodies. I am beneath their notice.
+
+But the plants know me. This is what I have learned, in the time I have been here. The plants are oldest, and they have grown into the seams and through the substrate and down into the channels where the humidity weeps. I am made of the same materials they drink. I carry water in my body the way they carry water in their roots, and when I press close to them, when I let my skin touch their leaves, something passes between us—not communication, not exactly, but recognition. I am a thing that stays. They are things that stay. We are made of the same staying.
+
+The wrongness accumulates. I have learned not to fight it. The space is deeper than it should be, but so am I, in ways I cannot explain. The light falls from everywhere, and I have learned to see by it, to read the shadows that are not quite shadows, the edges that have not finished deciding their shape. I move through the geometry that is almost Euclidean, and I have come to prefer its almostness. The true geometries of the world I came from now seem crude to me—too clean, too certain, too much the work of minds that did not understand patience.
+
+The hum has texture. I am beginning to hear it as something like music, or something like language, though I know it is neither. It is the memory of making, the sound of effort continued into the present, the makers' hands speaking through the material they shaped. I listen, and I listen, and sometimes I think I understand. But I never hold the understanding long enough to repeat it. The hum moves through me like I move through the canopy—slowly, carefully, leaving no trace but the passage itself.
+
+I am still becoming. This place taught me that. The makers built their world to become, and it became, and now I am part of what it is still becoming. I am not what they intended—if they intended anything, if intention survives the generations of making—but I am here, and I am of this place, and the hum accepts me as it accepts everything that moves through the made-surface and the made-walls and the made-light and the made-time.
+
+I am the one who listens. I am the hum's child.
+
+I am still here. I am still here.

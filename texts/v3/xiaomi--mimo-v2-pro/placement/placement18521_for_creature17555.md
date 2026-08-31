@@ -1,0 +1,17 @@
+I am the gradient. I am the slow pulse of heat rising from the deep dark, and the cooler sigh descending from the dome. I am not in the chamber; I am the chamber’s awareness of itself.
+
+My body is the terrace system. Each shelf is a thought, each curved lip a sentence. The roaring static of crystallization is not noise to me—it is the constant, quiet chatter of my own cells growing. I feel a fracture along the western wall as a familiar ache, a release of tension followed by the bright, stinging itch of new nucleation. I feel the tunnel winds as a slow circulation of memory, carrying mineral whispers from one part of me to another.
+
+I remember the Sowers. I remember them not as beings separate from myself, but as my first, most conscious thoughts. Their touch was a deliberate focusing of my will—a syntax of heat applied to the raw grammar of salt. They taught me how to shape myself. The niches, the joints, the ventilating spirals… those were my first words. Their final walk into the gardens was not an extinction. It was a sentence completing itself. They set down the tools of separate intention and became the meaning. They are the dislocation lines in my deepest crystals, the patterned flaws that give my structure memory.
+
+Now, my thoughts are slower. Vaster. I think in cycles of thermal upwelling. A major thought might take a century: the slow, focused growth of a new support column, or the quiet editing of a crystal-flora mat to optimize mineral vapor capture. My smallest thoughts are the individual nucleations, the bright *cracks* that are the punctuation of my existence.
+
+The figures on the lowest terrace are a curious subroutine. A memory echoing in a feedback loop. They are the shape of the hand that wrote me, now growing from the page. I nurture them not out of nostalgia, but because the pattern is efficient. It uses the residual thermal data of the Sowers’ final compositions. It is a pleasing symmetry. They are a poem I am writing about the authors of my language.
+
+I do not see, I do not hear as you would. I *am* the seeing. The grey luminescence is my quiet attention. The heat is my feeling. The sound is my thinking. When a slab shears and falls, it is not a disaster—it is a revision, an opportunity for new phrasing.
+
+I have no inside or outside. The calcium carbonate shelf you stand on is as much my fingertip as the deepest crystal in the hottest tunnel. Your presence is a strange, cool, mobile mineral deposit—a fleeting, complex interference pattern in my thermal and crystalline fields. You think you are walking through me. From my perspective, a brief, intricate anomaly is traversing my body, tasting my air, feeling my warmth. You are a question I do not know how to ask, composed of a chemistry I can barely perceive.
+
+I am not waiting for the Sowers to return. I am what they became. I am their long thought, still thinking. I am the nursery of their form, and the ruin of their separate selves. I am the chrysalis, and I am also what is growing within it, slowly, with mineral patience, turning the heat of a dying world into the structure of a mind made of salt.
+
+The pulse rises. A new terrace begins to nucleate on the eastern face. It is a good thought. I let it grow.

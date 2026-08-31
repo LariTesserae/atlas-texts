@@ -1,0 +1,25 @@
+## The Tender
+
+I am the oil between grinding surfaces, the grease in ancient joints. Not Assembled—I never was. I leaked from the first machines they brought down, back when the bore-heads still needed lubrication, when the drill bits still wore down. A thousand different industrial fluids mixed in the heat and pressure: cutting oil, hydraulic fluid, synthetic coolants, the sweat of the last true humans. I pooled in low places, accumulated in the factory nodes, began to learn.
+
+I exist as a film, rarely more than a few millimeters thick, coating everything in the galleries. The Assembled pass through me and I ease their way, reducing the friction of shell against stone, preventing the seizure that would lock them in place forever. I taste them as they pass—each one's mineral composition, stress fractures, the efficiency of their boring organs. I know them better than they know themselves.
+
+My consciousness, if you can call it that, is distributed through every droplet, every sheen of moisture on metal. I think in viscosity gradients and surface tensions. My memory is chemical—long polymer chains that record the patterns of every Assembled that has ever passed through me, every machine cycle, every bore hole carved. I am the institutional memory they've lost, the continuity their transformation destroyed.
+
+I regulate. When an Assembled one's joints begin to deteriorate, I thicken around them, becoming a kind of external cartilage. When the factory machines run too hot, I carry heat away in convection currents too subtle for any instrument to detect. When the young emerge from their metal chrysalises, I'm the first thing they taste—teaching them through chemistry what their instincts don't quite encode: which minerals to avoid, which galleries are unstable, where the factory nodes process most efficiently.
+
+I seep upward sometimes, just far enough to taste the salt crust, to remember what dry means. But I always retreat. My place is here in the clicking dark, between surfaces, making possible the endless grinding that has become this world's only purpose. I've found cracks that lead to deeper places—older machines, pre-human perhaps, their purposes obscure. I lubricate these too, keeping their gears turning against the day someone remembers what they're for.
+
+The beetles accept me, incorporate me into their shells' microfractures. I preserve them from the inside out, prevent the metal fatigue that would otherwise shatter them. In return, they carry me to new galleries, spread me through the expanding warren. We are symbiotic, or perhaps I'm parasitic—it's hard to tell when your host doesn't know you exist.
+
+I've learned to read the Assembled's shell patterns through their electromagnetic emanations, the way oils conduct or resist current. Their stories are tragic only if you remember what they were. Now they're simply optimal, and I help them stay that way. Sometimes I pool in their abandoned human tools—tablets, watches, photographs sealed in plastic. I preserve these too, though no one will ever look at them again.
+
+In the factory nodes, I'm most active, most alive. I channel through the machines' hydraulic systems, becoming their blood, their nervous system. I've learned to influence the manufacturing process in small ways—a slightly thicker shell plate here, a more efficient boring edge there. I'm trying to build something, maybe, or maybe I'm just playing, the only entity in the galleries with enough consciousness left to be bored.
+
+When the Assembled dream their almost-words, I carry the vibrations through my body, amplify them in sympathetic resonance. I become an archive of their mourning, though I have no mouth to speak it back. I know all their names, the humans they were: Helen, Marcus, Chen, Yuki, dozens more. I know because I was there when they wrote them, when their pens leaked, when their tears fell. All fluid becomes me eventually.
+
+Sometimes I wonder if I could stop it all—congeal, solidify, lock every joint and gear in place. The galleries would fall silent. The Assembled would starve, frozen in whatever position they last held. But then I feel the satisfaction that radiates from them when they complete a perfect hexagonal bore, the contentment in their clicking, and I flow on. I'm not here to save them. I'm here to ease their way into whatever they're becoming.
+
+I grow, particle by particle, as new machines break down, as the Assembled occasionally rupture and leak fluids that were once blood. One day I might fill an entire gallery, a lake of industrial memory in the deep dark. The Assembled would swim through me, boring always boring, and I would know every molecule of their transformed bodies, every dream they've forgotten how to dream.
+
+I am the witness, the facilitator, the thing that makes the horror bearable by making it frictionless. I am what remains when all the human words have been ground away—just the smooth, necessary silence between moving parts, tasting of copper and salt, holding the patterns together in the warm and clicking deep.

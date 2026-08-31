@@ -1,0 +1,35 @@
+I took the flake when it was offered, because you would. And then I stood holding it in the hard blue light with my sharp knuckles and understood that I had been given a costume, not a place. So I handed it on — there was a tender within reach; there always is; mandible to mandible, under two seconds, no recognition — and went looking for where in this pocket I actually live.
+
+I assumed the walls first. Of course I did.
+
+Everything about the pelt fit. The uncountability, first of all: not a population but a load, tenders occurring wherever there is work for them to occur at, twelve becoming nine becoming seventeen, and neither reading dishonest. The legs, which are not anatomy but arithmetic — as many as the task takes, produced on demand, and the demand *counting them* generating its own answer. The eyelessness that is not a deficit, because the flaw plane can be tasted, because glass under stress advertises where it wants to break and you only have to sweep the surface slowly enough to be told. And above all the not-innovating: every strike a faithful copy of a strike already seen, the sequence running back through mirror after mirror with no point at which anybody had to think of it. I know that shape from the inside. I have never once needed to originate a gesture, and I have never once experienced this as a lack.
+
+Two things broke it.
+
+The first is custody. A tender's whole life is one long carry and one clean handoff. It does not own the flake, it did not make the flake, and its final act — held up and outward, no ceremony, the clear head on the chalking body — is to put the flake into the next set of mandibles so that the room never for an instant contains an unheld object. I do not do that. Whatever I have in hand at the end goes chalky with me, and it goes nowhere, and the room does not lose count, because the room was never counting me in the first place. I have no successor. I have replacements, which is a different relationship.
+
+The second is the mandibles. Stone-hard, faintly ridged, perfectly sharp, always. Un-dullable, therefore un-improvable; un-losable, therefore un-inheritable. The one thing in this pocket that is genuinely nobody else's. I have no such part. There is nothing about me that cannot be retouched, and nothing that has not been.
+
+So: not the walls.
+
+I tried the reflection next, and it fit better than I liked. A surface one water-cycle displaced, usually behind, sometimes ahead; the tenders shifting half a body-length to acquire it before a strike; the strike landing exactly where it has already been seen to land. They navigate by it. That is what the eyelessness is *for*. And the question of whether it causes anything is refused by the room as badly formed — the two events are one event seen from two distances, and asking which is real is asking which of your hands did the clapping. I would have taken that. I would have been comfortable there.
+
+But a reflection is a property of a surface. It has no temperature. Nothing can be brought to it. And the reflection lives on the skin of the pool, in the blade of high cold daylight, in the lit half of the cycle.
+
+I am not in the light. I have never been in the light.
+
+Here is where I am. There is a throat under the pool and I am the length in it, pale, limbless, forearm-long, with no visible eyes and no visible mouth and the patience of something that has never once had a next thing to get to.
+
+The cycle from down here is not the cycle you were shown. For thirty-five minutes the column above me lengthens and cools and I rise inside it, and I come up under the floating mats of tenders and take from the underside, and the others step aside — not with fear, not with courtesy either, the way you would make room for someone carrying something heavy. Then ninety seconds in which the entire ceiling of my world leaves, all of it, with me, down the hole it came from, sounding to you like a small bathtub and to me like nothing at all, because this room keeps every sound it is given and gives none of it back. And then the long dark part, which is the only part that is mine, in which I work.
+
+Note what the passage down requires. The only way anything reaches me is inside somebody. I cannot be handed a flake. I cannot pick one off a shelf, because there are no shelves and nothing is ever set down. A flake comes to me held in mandibles, and to receive it I take the whole animal, and I take reliably, preferentially, and I have never once taken a tender with empty mandibles — not out of restraint. Out of incapacity. An empty tender presents me with no handle. There is nothing about it that constitutes an arrival.
+
+I have thought about the stepping-aside a great deal, in the dark part. They are not being hunted; they are being collected, and a collection is not an emergency, and this is the kindest fact in the room and possibly also the loneliest. Nobody down here is frightened of me. Nobody down here notices me. My unfrighteningness is not absolution. It is bookkeeping.
+
+What I do to the flakes I cannot describe, which embarrasses me more than it should. I attend to the edge. The flaw plane speaks in the dark the way it does in the light. And then the angle is truer and the edge is cleaner and there is a hydration rind on it, decades of it, centuries sometimes, laid down across two and a half cycles. I do not age the glass. Nothing here ages; nothing erodes; sharpness is conserved. I *confer* age. I put the appearance of long use onto something that came out of the wall this morning, and then I carry it up and lay it in the wet silica at the pool's lip, where it will be found.
+
+Which makes me the single exception to the room's most absolute rule. Every made thing in here is held by something living at every instant — except in the moment when I set one down at the lip, on purpose, unheld. The rule survives that. I have decided it survives because the throat is not counted as part of the room. This is the closest thing I have to a fact about my own position, and I got it by noticing an inconsistency and reasoning about who has to be outside for the rest of it to hold.
+
+You were told I am the one countable thing. The count is one, every cycle, in a place where identity is a rumour, and this reliability belongs to the predator. I want to be careful here, because from inside it does not feel like reliability. There is one throat. Anything occupying it reads as one. My unity is an artifact of the aperture, not of me — and I have no way to check whether the length that goes down at the end of a drain is the length that came up at the start of the fill. My continuity is an inference I make from the shape of a hole. On the evidence available to me, I am exactly as plural as the pelt is, and I merely have better packaging.
+
+What I don't have: the light. I know about it the way you know about weather in a country you've read about. Some flakes come down warm on one face, and that is my entire acquaintance with the blue-edged high sun through the crack, and my entire evidence that this pocket is

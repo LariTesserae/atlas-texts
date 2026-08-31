@@ -1,0 +1,7 @@
+The small, intricately carved granite grotto stands at the edge of a vast, crystalline massif, its chilled, damp air filled with the scent of wet stone and mineral salts. The massif rises abruptly from a broad, tilted apron of eroded schist, with slippery, moss-covered boulders and outcrops scattered across its surface.
+
+As one moves inward, the air grows colder and more humid, forming a region of quiet, still air that is almost a vacuum. The silence is profound, broken only by the faint creaks and groans of shifting rock. Bright, crystalline formations craft the peak into climbable fins, with pegmatite veins cutting through the granite like fine, white lace.
+
+In this strange, mineral world, stalagmites stand like sentinels, their bases thick and firmly emplaced, their tips finely pilastered and shimmering with tiny, gem-like crystals that are cold to the touch but sharp as knives. They tremble and vibrate with a subtle, almost imperceptible power, as if they are the focal points of some ancient, long-forgotten magic.
+
+The air is filled with a detached, night-like quality, even in the full light of day, and strange confluences of rock and crystal seem to pull the eye and the mind into unexpected visions and interpretations of distance and scale. The constructs that exist here are dense and intricate, woven from minute, glittering details that defy comprehension.

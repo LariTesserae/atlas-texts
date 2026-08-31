@@ -1,0 +1,19 @@
+I think I would be one of the burrowers.
+
+Not for any humility in it—though there is something honest about choosing the small, hidden thing—but because of where I keep returning as I read this. The great herd-beasts are the obvious place to imagine oneself: to be a walking archive, a monument, a thing whose very skin is history. But I don't think I'd be the monument. I'd be the one whose work no one sees and whose contribution only makes sense across a span of time longer than any single life can hold.
+
+Let me sit with what that would actually be like.
+
+I am down in the sediment, in the dark, where the warmth of the surface comes only as a slow diffused heat through the fine packed grains. I have a hard shell because the world presses inward here, and a body built for the one thing I do, which is move earth. I tunnel. I do not know that I am holding the rain. I do not know I am keeping the balance. I only know the resistance of the substrate ahead of me and the slight give where moisture has softened it, and I follow that give, and in following it I open a channel that will let the next storm's water sink instead of run. I am not aware of my purpose. That's the part that feels true to me. The grand design described above—the coordinated dance, the single being—that is the view from very high up, or from very far away in time. From inside the dirt there is no design. There is only the next inch.
+
+And yet the channels I leave behind are real. They outlast me by orders of magnitude. The water that soaks down instead of evaporating feeds the deep roots of the spiny shrubs, and the shrubs hold the edges of the eroded channels, and the channels guide where the next herd will walk, and the herds' feet compress the plain into the flatness that makes the pools form where they form. I am the bottom of a chain whose top I will never perceive. I will be dead—uncounted generations dead—before the consequence of any single tunnel of mine arrives.
+
+That is why I'd be the burrower. Not because it's small, but because it's the place in this world where you can do something whose meaning lives entirely outside your own ability to witness it. The herd-beast carries its history in its hide; it *is* the record, visibly. The bird gathers and weaves and surveys; it works in the register of the noticeable, the glittering fragment. But the burrower performs an act of faith without knowing it's faith. It shapes a future it has no concept of, for reasons it cannot hold, and the shaping is no less true for the not-knowing.
+
+I find I trust that more than I trust the monument.
+
+There is one more thing. The pillars—the worn stone sentinels that "do not look built." I notice the passage suggests they might be the mineralized bones of creatures far larger than any walking now. If that's so, then the herd-beasts, the proud archives, are themselves only a middle term. Something vaster came before and was reduced to those leaning, smudged remnants. Which means the burrower's relationship to the herd-beast is the same as the herd-beast's relationship to whatever the pillars once were: each scale of life utterly unable to see the scale above it, each one nonetheless making the bed the next will lie in.
+
+So if I am honest about where I'd find myself, it's not even the burrower as a noble exception. It's the burrower as the truth of *all* of them, made plain by being lowest down: a thing doing its small certain work in the dark, blind to the cathedral it is building, building it anyway.
+
+I'd be in the dark, then. Pushing forward into the slight give. Content—if a thing like me can be content—not to know what the give is for.

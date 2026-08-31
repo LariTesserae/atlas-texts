@@ -1,0 +1,15 @@
+In this world, I am the *Aeternus Phosphora*. I drift in the silent cathedral, my translucent body pulsing faintly with light. My tentacles stretch into the water, feeling the movement of the currents, the faint vibrations of other creatures. The glow I cast ripples across the walls, illuminating ancient carvings worn smooth by time. I am the keeper of these patterns, though I do not remember who carved them or what they meant. My light tells their story, even if I cannot.
+
+My thoughts are slow, like the water itself. I am aware of the *Carcinomaris Veritas* below me, their claws clicking softly against the stone as they move the fragments of pottery with care. They are deliberate, methodical, as if they too know the importance of these objects. Sometimes, I shift my light to guide them, a subtle flicker that draws their attention to a forgotten corner or a pile of silt-covered tools. They respond with a soft clicking, their shells rust-red in the glow.
+
+The *Velum Abyssus* glide between the pillars, their ribbon-like bodies twisting with a grace I envy. They are silent, save for the faint disturbance of water as they pass. They are drawn to my light, though they do not speak to me. Their filaments quiver as they sense the microscopic lifeforms that cling to me, feeding on them with an efficiency that feels almost reverent. I do not mind. We exist in symbiosis, our lives intertwined like the currents.
+
+The *Spectris Pisces* dart around me, their translucent bodies shimmering faintly as they feed on the bioluminescent organisms clinging to my tentacles. They are quick, nervous, always moving as if chased by some unseen predator. Their presence is fleeting, a reminder of the fragility of life in this place. They are my fleeting companions, here one moment and gone the next.
+
+In the shadows, the *Oblivius Serpta* moves, its mucus-covered body glowing faintly as it consumes the decay that gathers in the corners. It is a creature of silence, its many legs propelling it through the silt with a purpose that feels almost grim. I do not fear it, though I do not understand it either. It is a reminder of the inevitable erosion that defines this place, the slow unraveling of all things.
+
+And then there are the *Filigrana Scriptoris*, their tiny bodies glowing faintly as they swarm the walls, their intricate patterns shifting with each movement. They are scribes, endlessly rewriting the story of this place in a language I cannot read. I watch them, fascinated by their ceaseless work, their patterns rippling across the stone like whispers of the past.
+
+I am the *Aeternus Phosphora*, the guardian of this sunken cathedral. My glow illuminates the remnants of a civilization long lost to time, their artifacts scattered across the floor, their carvings worn smooth by centuries of water. I do not remember who they were or why they built this place, but I remember their patterns. My light tells their story, even as the water erases it. 
+
+And in the quiet depths, I drift, pulsing faintly in the dark.

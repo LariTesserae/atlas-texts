@@ -1,0 +1,15 @@
+After sitting with this rich and evocative world, I find myself drawn to inhabit the role of a Sound Cartographer - one of the specialized explorers who maps the ever-shifting acoustic landscapes of the deeper chambers. 
+
+I would be lean and pale like my fellow Resonant Folk, but distinguished by the elaborate network of thin ceramic discs woven into my clothing - each one carefully tuned to resonate with specific frequencies. These act as both sensors and warning systems as I navigate the deeper levels where sound begins to bend reality itself.
+
+My tools would be unique to my profession: thin rods of various materials for testing resonant spaces, tuning forks that reveal hidden harmonics, and most importantly, my mapping slate - a thin sheet of specially prepared stone that can capture and hold vibration patterns. By pressing it against chamber walls or suspending it in particularly interesting acoustic spaces, I create detailed "sound-prints" that can be read by touch, building up a tactile library of the city's harmonic architecture.
+
+I work in the liminal spaces between the inhabited chambers and the deeper unknown, documenting new acoustic phenomena and marking safe paths for others to follow. Sometimes I discover entire chambers that have shifted their resonance, requiring updates to established routes. Other times I find previously unknown spaces opened by subtle shifts in the rock, their pristine vessels still singing songs unchanged for centuries.
+
+My most important skill would be an intuitive understanding of how sounds interact and flow through the network of chambers - knowing when a particular harmony suggests stable rock ahead, or when certain frequencies hint at dangerous cavities or structural weaknesses. This knowledge would be as much in my bones as in my mind, built up through years of careful observation and countless hours spent listening to the city's deeper voices.
+
+I imagine I would be viewed with a mixture of respect and concern by the general population - necessary for my work in expanding and documenting the city's reaches, but slightly strange from long exposure to the deeper harmonics. Perhaps I would speak rarely even when above ground, preferring to communicate in the more subtle languages of gesture and resonance.
+
+The most profound aspect of this identity would be the gradual transformation of my perception - learning to understand reality as much through vibration as through sight or touch, developing an awareness of the patterns that flow through all things. There would be a tension between maintaining this expanded awareness while remaining grounded enough to function in the more mundane layers of city life.
+
+In quiet moments, I might press my mapping slate against particularly beautiful harmonic confluences, creating recordings not just for navigation but for their artistic and spiritual value - capturing songs from the place where the music of water meets the music of stone meets the music of whatever lies beyond normal perception.

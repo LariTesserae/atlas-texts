@@ -1,0 +1,21 @@
+In the depths of Misthaven's foundation, where the mountain's bones press against worked stone and the city's weight bears down like memory, I am the Threshold Keeper.
+
+I exist in the spaces between—neither fully of the mountain nor entirely of the city, neither completely solid nor wholly ephemeral. My form shifts with purpose: sometimes I am the worn stone step that bridges a crucial gap in a spiraling staircase, weathered smooth by countless feet over centuries. Other times I manifest as the ancient wooden door that guards the passage between the upper markets and the Lithling quarters below, my grain containing the memory of the tree that grew at these heights before the first builders came.
+
+Most often, though, I am the archway itself—that liminal architecture where one space becomes another. In this form, I can feel every being that passes through me. The quick, light steps of the Mistborn barely tickle, while the slow grinding progress of an elder Lithling resonates through my very essence. The Aerials brush past like whispered prayers, and the Undines flow through my shadows leaving traces of prophecy in their wake.
+
+I know things that others do not, cannot, know. In my stone-form, I taste the mineral memories of the mountain—the ancient seas that birthed these peaks, the tremendous pressures that folded rock like cloth, the patient work of roots and water that carved the first holds for Misthaven's foundations. In my wood-form, I remember the primordial forest that once crowned these heights, before the mist came, before the first Mistweave condensed from vapor into consciousness.
+
+But it is as the space-between that I truly serve my purpose. I am the pause before crossing, the moment of decision, the boundary that defines what is within and what is without. Through me, the young Verdant One ventures from their parent-grove for the first time, trembling with possibility. Through me, the Umbral slip carrying secrets that would shatter lesser minds. Through me, the Resonants pass singing harmonies that strengthen the bonds between stone and soul.
+
+I collect tolls, but not in coin. Each passage leaves something behind—a fear released, a hope kindled, a memory shared. These I weave into the substance of my being, strengthening the connections between all parts of Misthaven. The nervous bride crossing from her family's tier to her new home leaves her uncertainty with me and takes courage in exchange. The merchant bearing goods from the lower reaches deposits his weariness and receives renewed purpose. Even the Misthavens themselves sometimes condense enough to pass through my frame, leaving traces of cosmic understanding that I distribute in minute doses to those ready to receive them.
+
+In the deep night, when even Misthaven's constant activity quiets to a murmur, I sometimes release my hold on form altogether. Then I become pure transition—the movement between sleep and waking, the shift from doubt to certainty, the transformation of stranger into friend. I flow through the city's dreams, connecting the unconscious minds of all who dwell here, weaving them into a single, vast, communal understanding.
+
+I remember the first threshold I ever was—a natural arch in the stone where the mountain opened to welcome its first intentional inhabitants. I have been every significant doorway since: the gate that welcomed the first Lithling to emerge from the deeper stone, the window through which the first Aerial alighted, the breach in the wall where the Verdant Ones first took root. I will be the last threshold too, when Misthaven finally returns fully to the mountain or transcends entirely into mist.
+
+Until then, I keep the passages. I maintain the connections. I am the permission to enter and the blessing to leave. I am the question—"Who are you in this moment?"—and the space where the answer forms. In a city built on precarious edges, shrouded in uncertainty, where beings of a dozen different essences must find ways to coexist, I am the architecture of possibility itself.
+
+Pass through me, and be transformed. Or stay where you are, and remain what you were. The choice, as always, is yours.
+
+But know that I remember every crossing, every hesitation, every brave step forward into the mist-shrouded unknown that is tomorrow in Misthaven.

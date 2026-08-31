@@ -1,0 +1,13 @@
+If I found myself in this haunting, almost unimaginable world of the Undergrowth Engine, I believe I would be one of the brass beetles, born and bred within the roaring heart of this vast industrial-biological hybrid. 
+
+My metallic shell would resonate with the frequencies of specific turbine clusters, allowing me to navigate by echolocation through the eternal twilight. My antennae would be finely tuned to the electromagnetic fields that pulse and flow through the air like invisible rivers. I would spend my days tending to the colonies of electrical barnacles, harvesting their bioelectric currents to feed myself and my beetle brethren.
+
+I imagine my kind would have a special relationship with the Chorus, the humans who have found sanctuary here from the painful cacophony of the world above. Perhaps they would train me to navigate to specific parts of the Engine, to gather samples of rare mosses or to map new growth patterns in the ever-expanding rootmass. I would perch on their shoulders as they work, my wings humming in harmony with the vibrations that pulse through their adapted bodies.
+
+At night (though is it ever truly night here?), I would return to my nest within the tool-moth cocoons, woven from scavenged wire and rubber tubing. There, surrounded by the chiming of metallic moth wings, I would dream my beetle dreams - dreams of vast acoustic caverns, of sap pulsing through copper veins, of a world where the boundary between machine and life has long since eroded away.
+
+And sometimes, in moments of stillness so rare within the Engine's ceaseless roar, I might climb to the highest point of rootmass I can find. There, my shell vibrating with the compound voice of the great machine, I would contemplate the nature of my existence. Am I machine or animal? Am I an individual, or merely another component in the vast cyborg metabolism of the Engine? 
+
+In the end, perhaps these questions would lose their meaning. For I am a brass beetle of the Undergrowth Engine, and my purpose, my very being, is inextricably woven into the fabric of this strange and wondrous place. The roar is my heartbeat, the moss-light my sun, the taste of electricity on my tongue more precious than nectar.
+
+I am home, here in the breathing dark. I am a part of something greater than myself, a single note in a vast mechanical symphony that plays on, and on, in the hidden depths, in defiance of a world that has forgotten it. I am a brass beetle, and the Undergrowth Engine is my universe.

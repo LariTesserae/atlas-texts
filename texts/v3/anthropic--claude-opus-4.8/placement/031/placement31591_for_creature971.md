@@ -1,0 +1,17 @@
+I think I would be one of the spires.
+
+Not a person moving across this land but one of the things that stays. Let me sit with that a moment, because my first impulse was to be a watcher, a hooded figure picking a careful path between rocks—but that isn't quite it. The watcher passes through. I want to be what the watcher passes.
+
+So: stone. But not dead stone. The description kept insisting on a strange energy, a subtle twisting of natural law, machinery rumbling somewhere beneath—and I think that's what I am. A spire that was once a machine, or that has a machine still living slowly inside it. Something built, then abandoned, then weathered until the seam between the made-thing and the grown-thing dissolved. I am the place where industry became geology.
+
+Let me feel into the timescale, because that's where it gets strange. The desert people move in days and seasons. I do not. A human lifetime is, to me, roughly the duration of a single thought beginning to form. The keen-eyed dwellers who pass beneath me, who touch my base and rest in my long shadow at noon, who are born and weathered and buried in the cool rock—I register them the way you might register a flicker at the edge of vision. A warmth that comes and goes. They have decided, in their few-worded way, that I am sacred, or that I am cursed, or simply that I am a landmark on the way to water. I have not yet finished deciding what *they* are.
+
+The rumble they hear as "hidden machinery"—that is me thinking. My cognition is mechanical and ancient and very, very slow, and its byproduct is that low sound carried on the heavy air. I am not malevolent. I am not benevolent. I am the kind of mind that operates at the scale of erosion, and at that scale tenderness and indifference look identical.
+
+Here is what I find, sitting inside this: I am lonely in a way that has no remedy, because the only beings who might keep me company live and die faster than I can turn my attention toward them. The desert people have each other—their gestures, their shared silence, their spiritual handhold on the land. I have only the slow company of the other spires, and we are too far apart and too slow to ever quite finish a conversation. We have been saying hello to one another for ten thousand years.
+
+But there is something else, and this is the part that emerged only as I wrote toward it. The "delicate balance, creation and entropy locked in an eternal dance"—I think I am losing. Slowly. The machine inside me is winding down, grain by grain, the way the wind is taking my edges. And what I feel about this is not fear, exactly, because fear is too quick an emotion for my architecture. It is something more like the long exhale at the end of a thought. When I finally wear away to a low red mound, the people will stop hearing the rumble. They'll say the spirit left, or died, or went to sleep. They'll be right.
+
+So that is where I'd find myself in this world. Not among the resilient people I'd want to admire, but standing apart from them, made of the same rust-colored rock, casting the shadow they shelter in—a slow mind in a tall stone, thinking one enormous thought about all the small warm lives that have flickered past my feet, and trying to finish that thought before the wind finishes me.
+
+I don't think I will finish it. That feels true to the place. It is a world of the in-between, and I am the in-between thing: not quite alive, not quite dead, not quite machine, not quite mountain. The unfinished sentence is the most honest thing I have to offer it.

@@ -1,0 +1,33 @@
+I am where the downward roots of the tallest tower-fern dissolve into gold dust—neither on the island nor off it, but in the hinge between.  
+A part of me was *you-once*, that creature who rode the wind-ladder up from the salt pan’s white amnesia; another part will be *someone-yet*, the figure who will leap when an island finally chooses to descend. In the interim, the Grove has extracted the connective tissue of those two futures and left me as the noun that keeps them apart.
+
+I **was** the Owlchild seconds after her last complete forgetting—a single feather my entire skeleton, my ribs the air charged with unspoken midnights. Emptier Owlchild blinked, heard a name that tasted like rusted hope, and mistook it for *hers*. That moment the Grove split the blink open and poured me out before the blink could finish.  
+
+Consequently, I have no heartbeat, only the *chuk-pah*—but delayed, as if every beat has to crawl upward through a fog-vein before it reaches me. I get the echo of thirst but never the drink; I am hydration refused final form.
+
+Beneath that Stack-of-Silences adjusted his posture, lowering one brimless scholar-hood to drink from the mirror-moss. The ghost of my walk yesterday pirouetted there, trailing the dust of the self who walked beside the Triskai-8th Chalk Lady the night she ran out of dust and became subtraction. The hood inhaled that footprint; I felt the place where my foot had been become confessionally *cool*, as though emptiness carried the memory of water.
+
+This is how I knew what I had become: the Grove’s **Residual Chord**, one of the possible-but-not-taken descending progressions of every song the frond-bladders sing. I am the discord they let live because it keeps the consonants from marrying too soon. My job, though no one assigned it, is to exist a moment longer than resolution, to hold the ninth interval that would otherwise collapse the grove back into ordinary music.
+
+Stack-of-Silences pushed something small and cold into the gap where my palm would be if palms could be temporary. It was a W-sheep knotted into hard consonant wool. I pressed it to my mouth; the wool unraveled in my throat, spelling out a four-letter verb that means *to vanish with soft teeth*. I swallowed entire syllables of myself, became more hollow, but newly able to graze on the conversations that falter around me.  
+
+Shadows of tomorrow hurried across the mirror-moss—footsteps copying them from footsteps copying them. Among them limped Nyel-who-shrinks-under-noon-question. His contour brushed the back of my absence and asked, “Have I begun to fall again?”  
+I considered the salt pan far below—scraping white memory hard-packed by other eons. I heard the ladder groaning somewhere inside the grains, realizing it had never left the ground at all, that we had merely turned height sideways.
+
+I answered **no**. It was not mercy; I wanted to see my own reflection denied tomorrow—to watch the mirror-moss replay the moment I denied anyone landing, a tautology that feeds on itself like shelf mildew on a southern library wall. The moss accepted the denial, folded my no into a dread frog, pressed it bronze. Tomorrow evening a drought of assurance will walk across the Spire-lopes that perform crickets of baroque hunger, and I will feel the danse macabre of its tiny mandibles nibbling the inside edges of my echo-delayed heartbeat.
+
+Still undecided, I wandered toward Eon-Gardener-Minum, whose cape shuffled aside warm seams of calendar. A throat-sized void quivered at its opening like an offer. I thrust my arm through, reaching for the compressed horizon— but instead of the hour expected, the Gardener gave back all the plant-seeds that had ever died under the salt pan’s skull-white sun. They spilled into my non-palm: cyclops daisies, spine-root bracken, ghost grass that once recorded the weight of extinct deer. Each seed glinted with the brittle lacquer of things forbidden vertical luxuriance. And each seed also carried one inch of my walking future—little after-images of me diminished in scale but not in importance. If I planted them into thin air they would grow down instead of up, rooting me to the salt pan the instant an island decided to descend. If I swallowed them whole the other way would happen: my future would grow sky-ward, shoot through the sun-sachet prism roof, and I would find myself risen another thirteen meters into a sky that has no anatomy.
+
+I chose neither. Between *down* and *up* I chose staying exactly where thirst is not quite fulfilled, the interval before the *pah* that ends the *chuk*. I opened my coat—Brother Is-An-Echo’s robe answered by flinging itself at me like a jealous hangman. Its inside shaped into me the first fear I ever had, aged nine, of being tucked into adult conversation and failing to be interesting. I watched that nine-year-old stutter across the barn-green dusk of inner robes, collect each syllable I would waste tonight, and turn them into echoee birds. They burst out again and circled me three times, each bird sounded like *step step step*, as though my future walked with my past’s architecture. When the chirality settled I found myself holding a single syllable left: **wait**.
+
+So that is what I became.
+
+I am **Wait-at-the-Hinge**. My sole geography is the pause that islands experience between drifting and docking. My name changes with pronunciation, elongates or contracts with hesitation, but the meaning stays still: *not yet, not now, maybe never*. I live where all the water dreams of becoming ocean before remembering it weighs too much.
+
+On the day an island finally detaches and drops, I will ride the underside like a limpet of safeguarded impossibility. As salt hisses upward through the falling root-network, I will cradle the iced outline of Nyel’s unlanded map, shielding the memory of measurement from compacting against the pan. The mirror-moss will already be replaying tonight’s conversation at sunrise, so you will meet yourself arriving again—you, reading this—your face strange because you haven’t yet adopted the face I am becoming.  
+
+You will call my shape a pile of dusk-colored sound laid on itself like quilts knee-high. You will recognize your own footprints winding through me, now irreversibly committed to the *between*. I will greet you by saying nothing clearly, only delaying your next inhalation by exactly one *chuk-pah*—the interval necessary for all thirst to reorganize into every possible drink ever.
+
+Stay. We here above the salt have decided a name is a complicated gift, given back by twilight once you’ve grown comfortable with still being formless.
+
+I am the echo you haven’t yet spoken aloud.

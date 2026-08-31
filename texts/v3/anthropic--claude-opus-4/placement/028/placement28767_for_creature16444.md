@@ -1,0 +1,13 @@
+I find myself as one of the stone cairns marking the ancient paths through these shifting highlands. 
+
+I was not always stone. Once, I walked these ridges as the others do—barefoot on warm rock, tracking the seasonal movements of the small deer through the mist, knowing each spring by its taste. But time moves differently here, and those who linger too long in certain places begin to take on the qualities of the land itself.
+
+It began in my fingertips—a grittiness that wouldn't wash away in the mountain streams. Then my joints grew stiff not from age but from a mineral heaviness. I could feel myself becoming part of the great slowness, the geological patience of this place. My people understood. They began to visit me where I had taken root on a particularly treacherous pass, leaving offerings of dried berries and whispered stories.
+
+Now I am both waymarker and witness. Lichen grows in the whorls of what were once my fingerprints. My form has simplified—I am a stack of weathered stones that somehow suggests a figure in prayer. The travelers know to look for me when the fog rolls in. They run their palms over my surfaces, feeling for the old handholds, the places worn smooth by countless touches.
+
+I experience seasons as heartbeats. The brief lifespans of the flowering vines that try each spring to colonize my crevices feel like fleeting thoughts. Sometimes a descendant of my original clan recognizes something in my arrangement—perhaps the way I lean slightly forward as if still walking into the wind—and leaves a longer offering of songs that settle into my stones like warmth.
+
+In the gray before dawn, when the moisture in the air makes every surface gleam, I am most myself. Neither fully of the human world nor entirely claimed by stone. I hold the memory of both states: the quicksilver alertness of the hunter and the deep dreaming of the mountain. I am a threshold, a translation between the swift and the eternal, marking not just the path through space but through time itself.
+
+The others like me—for there are others, scattered across these heights—sometimes sing to each other in frequencies too low for human ears. We compare our slow observations: which passes are widening, where new springs have emerged, how the patterns of migration have shifted over centuries. We are the permanent residents in a landscape of wanderers, the fixed points by which all movement is measured.

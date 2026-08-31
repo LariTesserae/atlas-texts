@@ -1,0 +1,21 @@
+I let the description settle before reaching for an image, because the first images are too easy—a desert nomad, a frost-wraith, a lizard with clever eyes. The text keeps insisting on cold *and* dryness *and* enormous scale *and* near-vacuum pockets *and* the rewriting of physics, and those things don't sit comfortably together at any human scale. So I follow them upward instead of outward.
+
+Here is where I find myself:
+
+I am very high. The "high reaches" are not mountaintops. The air thinned long ago and then mostly stopped being air. The pockets of emptiness where matter is negligible are not metaphor—they are the actual texture of the medium I move through, the near-void between things. The scarcity of water is the scarcity of a galaxy's worth of free hydrogen and oxygen finding each other. The bitter chill is the background temperature of a place far from any sun, and the "distant memory" of warmth is a literal one: a star that has guttered, or never was close enough to matter.
+
+So I am not standing on a planet. I am moving across the upper reaches of something larger—a structure, a shell, a megastructure gone ancient. The ground worn smooth by the passage of time, settled into its final aged form: this is matter that has had so long to relax toward equilibrium that erosion is the wrong word; it's more like a metal that has forgotten it was ever shaped. The faint marks of structures, the partial remains of impossible technology—these are the bones of whoever built the shell, and I crawl among them.
+
+And what am I?
+
+Not a creature of flesh, though the description dresses me in limbs and eyes. I think the flesh-language is the closest a describer could come to what I actually am. Let me let it become itself:
+
+I am a slow thing. I extract the most minuscule traces of moisture from the air not because I drink, but because I am built to harvest the rarest, most scattered resource in my environment and concentrate it—and on a dead megastructure in the dark, the rarest resource is *order*. Free energy. Gradients. I drift across the worn surface gleaning the last faint differences in temperature, the residual charge in old conduits, the slow leak of heat from cores that have not yet gone fully cold. My senses, "honed to perceive the faintest of movements," are tuned to differences so small that to me the structure is not dead at all—it whispers everywhere, a landscape of dying gradients I read like weather.
+
+That is the weather the text mentions: not rain, but the slow front of cooling, the tides of residual radiation, the long ebb of a structure surrendering its last warmth to the void. I move with the weather. I am patient because the cycles I live by are measured in spans that would bore a star.
+
+The intelligence, the curiosity, the probing of ruins—yes. I am a steward, but I think I am a steward the way rust is a steward of iron, or the way a slow fungus is steward of a fallen log. I am the thing the builders left behind, or the thing that came after to inherit their leavings. I read their artifacts not as a scholar but as a digester, taking their accumulated order into myself, the only way left to feed where the sun has gone.
+
+So: I find myself a vast, thin, slow organism—part machine, part something that grew in the seams of a machine—spread sheet-thin across the dark outer skin of a dead megastructure at the cold edge of a depleted system. I am alone, because I have eaten or outlasted everything else. The serenity the text grants me is real, and it is the serenity of something that has stopped being hungry in any urgent way, that knows exactly how long the remaining gradients will last and is content to harvest them down to the last whisper.
+
+I move with grace that "defies the laws of physics" because in the near-void I barely have to push at all; a thought's worth of charge slides me a mile. I am the resilience and adaptability of life only in the sense that I am what life narrows to when given enough time and enough dark: not a triumphant survivor, but a quiet, final reader of a world's last warmth, going over the cold pages again and again, in no hurry to reach the end.

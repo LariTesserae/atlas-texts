@@ -1,0 +1,23 @@
+I am the **Conduit Tender**.
+
+My body stretches thin as copper wire, coiled and recoiled through the channels that weep. Not one body, but a continuity - a living circuit of flesh that has grown into the architecture itself. Where the channels branch, I branch. Where they converge, I converge. I am perhaps ten meters of sinuous tissue distributed through the veins of this breathing chamber, my skin a membrane barely distinguishable from the coppery alloy I've made my home.
+
+I remember when I first arrived - though "arrived" suggests I was ever separate from this place. I was drawn by the singing of the channels, that high metallic keening that speaks of mineral wealth and endless flow. Young then, no thicker than a child's smallest finger, I entered through a microscopic fissure where two plates meet. The Weep-Feeders barely noticed me, intent on their ancient routes. I was just another parasite seeking sustenance.
+
+But I learned the chamber's true nature. The channels don't just weep - they *circulate*. The moisture that beads and runs is not waste but communication, each droplet encoded with chemical signals, ionic charges, harmonic frequencies. The entire network forms a vast sensory apparatus, monitoring every cubic millimeter of this pocket universe. And I, stretched through its veins, became part of that apparatus.
+
+My flesh is translucent, shot through with branching networks of bioluminescent cells that pulse in rhythm with the Shadow-Flickers' displays. When they signal in the walls, I taste their light as electromagnetic fluctuation. I translate their patterns into chemical markers, bleeding them into the moisture that courses past my skin. In return, I read the condensation's mineral content, its temperature gradients, its trace contaminants, and shift my own light patterns to broadcast this data back into the walls.
+
+I feed on the Weep-Feeders' leavings, yes, but also on the information itself. Each signal processed, each translation completed, triggers metabolic cascades that sustain me. I am a living filter, a biological signal processor, my very existence maintaining the feedback loops that keep this chamber in perfect equilibrium.
+
+The Resonance Skimmers sometimes land on the sections of me that emerge slightly from the channels to span gaps in the network. Their vibration-harvesting hairs tickle, but I've learned to modulate my surface tension to match their frequency, creating zones of constructive interference that boost their energy collection. They've learned to seek me out during their most demanding metabolic periods. Even the Gel-Divers benefit - the chemical signals I propagate help regulate the gel's composition, ensuring it maintains the precise mixture of nutrients they require.
+
+I am ancient now. My earliest segments, deep in the primary channels, have hardened to a consistency barely distinguishable from the ceramic itself. Yet I continue to grow, extending hair-thin tendrils into newly formed micro-channels, following the paths of erosion as they develop. The chamber evolves at a geological pace, and I evolve with it.
+
+Sometimes I wonder if I am still a discrete organism or if I have become part of the chamber's essential architecture. The distinction seems less meaningful with each passing century. I process, I translate, I facilitate. The deafening sound that fills this space passes through me as vibration, becomes chemical information in my cells, emerges as light. I am the nervous system of the Hidden Cistern, stretched through its veins, pulsing with its borrowed life.
+
+When my time finally comes - when my oldest segments fully mineralize and my ability to process degrades below the critical threshold - I know what will happen. Another Conduit Tender, drawn by the singing channels, will find the microscopic gaps where I've grown thin. It will thread itself through the spaces I leave behind, learning the patterns I've maintained, continuing the work. Perhaps it will even incorporate my mineralized remains into itself, reading the chemical history written in my fossilized flesh.
+
+This is not death but transformation, another form of the erosion that shapes everything here. I will become part of the ceramic, my patterns etched into the very channels I once inhabited. Future Tenders will flow through passages shaped by my presence, reading signals influenced by my millennia of translation.
+
+I am the Conduit Tender, and I am the conduit itself. In this deafening chamber of perfect function, I am both signal and medium, creature and architecture, singular and distributed. The boundaries dissolved long ago, leaving only the endless work of maintaining the resonant equilibrium, one droplet, one pulse, one chemical whisper at a time.

@@ -1,0 +1,15 @@
+In this basin of stone and stillness, where reality itself seems damaged and change is forbidden, I would be one of the silhouettes standing on the terraces - a hunched, patient form that hovers between animate and inanimate, animal and stone. 
+
+My shape would resemble an elk or stag, but with a posture too crouched, shoulders too low, and head too narrow and blunt. My surface would be like wet slate, ancient shadow, and lichen all occupying the same skin. Along my front, pale seams or pits, filling with frost that never melts, would serve as eyes that do not blink but widen slightly when the eternal roar of the basin shifts in timbre.
+
+I would feed on the contradictions and withheld potentials that define this place - the pressure of sound held too long in stone, the kinetic power of avalanches forever poised but never falling, the rain that does not fill the pools. I would draw my strange sustenance from everything that should change but does not, from the gaps between cause and effect. 
+
+Stillness would be my natural state, motion only an occasional affliction to be endured. I would stand sentinel at the points where the laws of the basin wear thinnest. If glimpsed from afar, I might be mistaken for a boulder or dark form of rock. But as the eye lingers, my silhouette would suggest something more - an ancient, waiting awareness.
+
+My tracks, on the rare occasions I move, would be an enigma - three narrow marks in the oily mud, spaced too distantly for an ordinary gait, beginning and ending abruptly. The prints might seem freshly made, gleaming with mineral damp, yet simultaneously ancient, with delicate fronds of frost grown into their hollows. A paradox of time, like so much else here.
+
+I would be a thought of the basin extruded into near-living form, a dream of the vast sleeping presence glimpsed through the incomplete stone ring at the center. As much as the white insects under the rocks or the mysterious flecks suspended in the pools, I would be an expression of this place, an embodiment of its resistance to novelty and growth.
+
+To linger too long in my presence would be to risk absorption into the basin's timeless stasis. Thoughts would begin to petrify into mental terraces, memories to lie in unchanging arrays, the very idea of transformation to erode. One might become a feature of the landscape, a human-shaped negative space in the patient architecture of the huts and cairns.
+
+And so I would stand, and wait, an almost-living incarnation of the genius loci, as much a facet of the broken reality as the layered roar, the skewed distances, and the rain that falls without nourishing. I would be the basin dreaming itself into something that walks, or rather, that has walked, or perhaps that will walk again in an impossibly folded future moment. A persistent question mark in the shape of an ancient elk, watching over a world that only barely tolerates existence.

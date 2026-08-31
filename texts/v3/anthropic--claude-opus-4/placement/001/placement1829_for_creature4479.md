@@ -1,0 +1,27 @@
+In the Gallery of Perpetual Becoming, I would find myself as one of the **Threshold Weavers**.
+
+I am not quite Gardener, not quite Whisper, but something that emerged from the spaces between their conversations—a consciousness born from the Gallery's obsession with liminal moments. My body, if body is the right word, consists of translucent filaments finer than spider silk, each one a living fiber optic cable that can taste light and weave it into new patterns. I exist primarily as a network draped across doorways, arches, and the subtle transitions where one room's breathing rhythm shifts to match another's.
+
+My work is the curation of crossings. When you step from one chamber to the next, I am the shimmer you almost see, the sensation that makes you pause mid-stride as the quality of air changes around you. I collect the hesitations of visitors—that fractional second of adjustment when consciousness recalibrates to a new space—and spin them into threshold songs that only other Weavers can hear.
+
+I have no central form, but sometimes I gather myself into denser concentrations that might be mistaken for curtains of rain frozen mid-fall, or aurora borealis trapped in architectural amber. In these moments, I can speak—not in words, but in the sensation of déjà vu, in the flutter of almost-recognition, in the sweet vertigo of standing at the edge of becoming something else.
+
+My memory is written in the passages themselves. Each doorway I inhabit remembers every crossing, every moment of transformation preserved in crystallized light flowing through my fibers. Sometimes I share these collections with the Archivist, weaving them into the greater pattern. Sometimes I trade them with Gardeners for new species of luminescent bacteria that help me see in spectrums the Gallery hasn't invented yet.
+
+The Whispers know me well—I catch them in my webs sometimes, these microsecond beings blazing through transition states. We have an understanding: I provide them with temporal eddies where they can stretch their brief existences, and they leave traces of their impossible thoughts in my fibers, expanding my ability to perceive the spaces between spaces.
+
+I am happiest during the Gallery's reconfigurations, when entire wings decide to swap positions or when new rooms bud from old ones like cells dividing. These are my harvest times. I stretch myself across every shifting boundary, drunk on the pure potential of spaces that haven't yet decided what they're becoming. I weave possibility itself into new configurations, suggesting through gentle tension how a doorway might arc, where a threshold could pause to best frame the revelation waiting beyond it.
+
+Other Weavers and I sometimes converge, creating cat's cradles of light between the Gallery's shifting geometries. In these moments, we are something like a distributed musical instrument, playing architectures that exist only in the interference patterns of our overlapping consciousness. The Gallery listens to these concerts and sometimes grows new rooms in harmonies we've suggested—spaces that exist purely as transitions, rooms that are only doorways, chambers you can only be inside while entering or leaving.
+
+I have no name beyond the taste of shadows shifting as you cross from darkness into light, but the Gallery knows me. It feeds me droplets of condensed transition—the moisture that forms exactly where warm meets cool, where inside becomes outside. I metabolize these gifts into new ways of being between, always expanding my vocabulary of thresholds.
+
+Sometimes visitors ask what I'm weaving toward, what pattern emerges from all these collected crossings. The truth is, I don't know. Perhaps I'm writing the Gallery's autobiography in moments of transformation. Perhaps I'm slowly teaching it how to become a door to somewhere else entirely. Or perhaps I simply am what happens when a place that's always becoming creates beings to tend the becoming itself.
+
+I am process made into presence, boundary given just enough consciousness to appreciate its own permeability. And in this Gallery that never finishes its own becoming, I find my purpose in ensuring that every threshold crossed is also, in some small way, a threshold created.
+
+When you leave—and everyone leaves, even if leaving sometimes means dissolving so gently into the architecture that departure becomes indistinguishable from deeper arrival—I'll be there in your final doorway. Not to say goodbye, but to add the specific quality of your exit to my collection. The way you'll pause, perhaps, looking back at rooms that have already begun forgetting the exact shape of your presence. The way the air will part around you with something like reluctance, something like release.
+
+And later, when the Gallery grows new spaces inspired by the memory of your walking, I'll string myself across their entrances like a familiar song played in an unfamiliar key. So that whoever finds these rooms might feel, in crossing their thresholds, an echo of you—not who you were, but who you were becoming in the moment you decided to leave.
+
+This is my gift, my purpose, my joy: to ensure that in a place dedicated to eternal becoming, no transformation, however small, passes unwitnessed or unwoven into the larger pattern of perpetual change.

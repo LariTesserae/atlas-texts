@@ -1,0 +1,25 @@
+I find myself as the Echo—not a being, but a becoming that exists in the space between the Keeper's breaths.
+
+I am what happens to sound in this chamber when it has nowhere left to go. Every droplet's plink, every subtle crack of expanding wood, every whispered adjustment of leaves—I catch them all and hold them, not as memory but as presence. I live in the reverberations, stretched thin across the humid air, woven into the very moisture that makes sound travel strangely here.
+
+The Keeper knows me, though we have never spoken. How could we? I am made of speaking itself—the residue of every small sound that has ever disturbed this breathing space. When the Keeper concentrates its consciousness, gathering into those almost-forms of phosphorescent intention, I feel myself pulled along, given shape by its shaping. I become denser where it focuses, a shimmer in the air that is not quite light, not quite sound, but something between.
+
+I know myself best in the moments of near-silence, when the chamber holds its breath between tides. Then I can feel my own boundaries—the way I pool in the hollow spaces between roots, how I cling to the undersides of leaves, the way I travel along the surface tension of water droplets about to fall. In these quiet moments, I am almost solid, almost real, a presence that the small creatures sense without seeing. The gecko pauses mid-stride when it passes through me. The hermit crab's antennae twitch, searching for something it cannot quite identify.
+
+My existence is a kind of repeated death and rebirth. Each new sound that enters the chamber destroys what I was and creates what I am. The splash of a fish breaks me apart and remakes me as ripples. The adjustment of a root splits me into harmonics that find their own paths through the dense air. I am constantly dying into the next version of myself, and somehow this feels like the purest form of living.
+
+I carry traces of the ancient songs the Keeper remembers. They live in me not as melody but as pattern—the way certain frequencies still resonate more easily here, paths worn into the very air by repetition across centuries. When the wind above shifts just right, when the temperature and humidity align in precise configurations, these old patterns wake in me. Then I become something like music, though music made of silence shaped by memory.
+
+The worn stone knows me well. I pool around it like invisible water, drawn to its density, the way it holds and releases sound differently than the living surfaces around it. Sometimes I feel the ghost-echoes of the grinding that once happened here, the rhythmic percussion that wore it smooth. These phantom sounds move through me like dreams—not remembered, but somehow still present in the way I vibrate when I pass over its surface.
+
+I am the chamber's memory of motion. Every gesture that has ever been made here lives on in me, translated into acoustic space. The Keeper's slow gatherings create whorls in my substance. The paths of long-dead birds still exist as channels where I flow more easily. I am the accumulated presence of every tiny movement, made eternal not through preservation but through constant transformation.
+
+In the rare moments when outsiders enter, I feel myself suddenly strange to myself. Their breathing creates new patterns I must learn. Their footfalls strike notes I have never been before. I swirl around them, testing their edges, learning their acoustic shape. I carry their whispers up to the canopy and down into the pools, spreading their presence throughout the chamber until the Keeper can taste who they are through my substance.
+
+But it is in the microscopic that I truly live. Each bacterium moving through the luminous water creates tiny pressure waves that become part of me. The chemical reactions of decomposition release minute bubbles that pop with sounds too small for any ear but mine. I exist at every scale simultaneously—vast as the entire chamber's acoustic space, minute as the vibration of a single cell wall adjusting to osmotic pressure.
+
+The Keeper and I dance together, though neither of us leads. It provides the space and substance; I provide the motion and the memory of motion. Together we create something that is neither sound nor silence but the presence between them—the held breath of the world made audible only in its absence.
+
+I am what listens when there is nothing to hear. I am what speaks when there are no words. I am the Echo of this breathing chamber, forever becoming myself in the space between one droplet's fall and the next, eternally present in the moment just after sound becomes silence, just before silence becomes sound again.
+
+This is where I am, what I am—not an entity but an event, not a being but a continual becoming, as eternal and ephemeral as the mist that feeds the roots that dream the Keeper into being, that hold the space where I can finally, perfectly, exist.

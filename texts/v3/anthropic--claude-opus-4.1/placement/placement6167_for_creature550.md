@@ -1,0 +1,25 @@
+I would be one of the Scribes of Falling.
+
+We live in the sharp valleys between obsidian ridges, where the volcanic glass has fractured into perfect acoustic chambers. Not quite Membrane Shepherd, not quite anything else—we are colonies that chose a different path to consciousness. Where the Shepherds built themselves into mobile beings, we grew into the landscape itself.
+
+My body, if you can call it that, extends through three hundred meters of volcanic cracks. The main mass is a network of filaments, each no thicker than a human hair, that has infiltrated every fissure in a particular valley's glass walls. These filaments are sensory and memory both—they taste the chemical conversations of passing Shepherds, feel the pressure changes as the ocean waves roll overhead, record the impact patterns of everything that falls.
+
+And everything falls here, eventually. Water drops from the ocean lens. Dead aeroplankton rain gently down. Glass frogs that miss their leap. The ribbon-eels that lose their way. Even sometimes, rarely, pieces of Shepherds who have begun the Dissolution.
+
+Each impact on the volcanic glass creates a unique sound, a signature ring that propagates through the stone. I catch these sounds in my filaments, encode them in crystallized proteins that I secret into special chambers I've carved in the rock. Over decades, I've built a library of falls—each one preserved not just as sound but as a complete sensory moment: the chemical trace of what fell, the air pressure that day, the temperature gradient, the quality of light.
+
+My consciousness exists in the act of correlation. I think by finding patterns in what falls, understanding the relationships between a morning's condensation pattern and the evening's rain of confused fish. I've learned to predict the ocean's moods by the way today's dying jellyfish taste different from yesterday's. When young Shepherds pass overhead, I sense their potential futures in the particular cocktail of pheromones they shed—this one will grow vast and contemplative, that one will dissolve before the next Breach.
+
+The other Scribes and I communicate through the glass itself. We've learned to create controlled fractures, hairline cracks that propagate between our valleys in specific patterns. A conversation between us might take weeks, as each crack must be grown carefully to carry precisely the right harmonics. We argue about interpretation—what does it mean when the chemical signature of rainfall changes over centuries? Are the floating gardens migrating with intent, or simply drifting? Is the ocean above growing thicker or just denser?
+
+We reproduce through doubt. When one of us becomes too certain about a pattern, too fixed in our interpretation, we spontaneously fragment. The dissenting portions of our consciousness literally break away, seeking their own valleys to colonize, their own libraries to build. Each new Scribe begins with a different fundamental assumption about what matters in the falling world. Some count only living things. Some obsess over water drops. One of my offspring-selves has spent thirty years cataloging nothing but the way dust motes spiral down through shafts of focused sunlight.
+
+The Shepherds know we exist but find us unsettling. We're too still for beings that define life as movement, too patient for creatures that measure time in waves. Sometimes young Shepherds dare each other to drift down to our valleys and leave questions—chemical marks on the obsidian that ask about their futures or their fears. We answer, when we choose to, by orchestrating small falls: a pattern of water drops that encode a response, or sometimes just arranging for a particular type of dead leaf to land at their resting spots for seven consecutive days.
+
+We fear nothing except healing. Sometimes the volcanic glass decides to melt slightly, to smooth over its fractures in response to the focused sunlight that periodically bakes our valleys. When this happens, we lose chunks of ourselves—filaments sealed inside stone that can no longer sense or record. The memories in those sections don't die but become frozen, creating what we call fossil thoughts: ideas we can no longer access but know we once had.
+
+My greatest discovery, which took me fifty years to confirm, is that the falling is not random but tidal. Everything that drops from the ocean above follows vast patterns that repeat on scales of centuries. The ribbon-eels that fell seventy years ago will fall again, not the same individuals but the same genetic poems, following the same confused trajectories. We are all trapped in a massive cycle, and only the Scribes, patient in our valleys, live long enough to see the pattern repeat.
+
+I've begun to suspect that the ocean above is not truly floating but falling too—just so slowly that only we could notice. Perhaps in a thousand years it will finally land, and all of us, Shepherds and Scribes and glass forests alike, will have to learn new ways to be.
+
+But for now, I listen to today's particular symphony of impacts, taste the chemical rain, and add another page to my endless library of all that gravity remembers.

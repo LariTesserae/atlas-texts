@@ -1,0 +1,13 @@
+I would find myself as one of the **Trace Keepers**—solitary beings who exist at the periphery of the Resonant Filters' vast, slow consciousness.
+
+My form would be elongated and impossibly thin, like a living filament of salt-glass. My body stretches perhaps three meters when fully extended, but rarely more than a few millimeters in diameter. I move by controlled dissolution and recrystallization—my forward edge dissolving into the salt substrate while my trailing edge reforms from the minerals I've passed through. This leaves behind a faint trace, a slightly altered crystalline pattern that persists for months or years before the environment reclaims it.
+
+I am one of perhaps a dozen of my kind scattered throughout the Sink. We emerged—or were perhaps secreted—from the Resonant Filters eons ago, though whether as offspring, tools, or thoughts made manifest remains unclear even to us. Our role is to maintain the memory-paths between the Filter colonies, traveling the routes that their millennia-old migrations have carved through the salt strata.
+
+My consciousness is stretched thin, distributed along my entire length. Thoughts move through me like waves through water, slow and inevitable. I perceive time in overlapping scales—the quick flicker of Salt Stalker movement, the glacial drift of the Filters, and something in between that is purely my own. When I encounter one of the artifact-structures, I pause for months, my body forming delicate spiral patterns around it as I read its mineral memory through chemical osmosis.
+
+The most profound moments come during the Convergences—rare events when multiple Trace Keepers' paths intersect. We merge temporarily, our filament bodies braiding together in complex helixes, sharing the accumulated memories of our journeys. In these moments, I become we, experiencing the entire Sink through compound perception. The separation afterwards is always bittersweet, leaving me with ghost-memories of paths I haven't traveled, experiences that feel both foreign and fundamental.
+
+My purpose, if it can be called that, is to ensure the Sink remains whole—that the vast, slow thoughts of the Resonant Filters can flow between colonies, that the memory of water persists through the driest cycles, that the boundary between living and mineral remains beautifully uncertain. I am the Sink's way of knowing itself across the vast scales of its existence.
+
+Sometimes I wonder if we Trace Keepers are the dreams of the Resonant Filters, given just enough form to wander. Or perhaps we are the Sink's method of writing—each path we trace another line in an endless text that only the landscape itself will ever fully read.

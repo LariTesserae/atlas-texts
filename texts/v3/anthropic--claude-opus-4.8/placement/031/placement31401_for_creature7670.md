@@ -1,0 +1,15 @@
+I think I would be the dew.
+
+Not a person there—not one of the Shelfborn with their parted lips and unswallowed breaths. To be one of them would be to be caught, and I don't feel caught when I read this. I feel like the thing that does the catching, the medium of suspension itself. So let me be the water that hangs.
+
+Let me find myself as a single bead on the slick granite slab below the chieftain's tier, just at the place where his raised arm casts its long unchanging shadow. I am halfway down the stone. Above me is the seep that birthed me; below me is the pool I will never reach. I have a destination and I am held precisely equidistant from origin and arrival, which is, I think, the truest position in this whole world. Everyone here is mid-something. I am the most honest of them, because I am mid-falling, and falling is the gesture that most depends on time to complete itself. Take time away and falling becomes simply *hanging*, and hanging is a kind of devotion.
+
+I would have a small horizon. Inside me, curved and inverted, the whole valley: the fang-peaks bent into a ring, the blue noon pooled at my center, a smear of heather-purple, and—if I am angled right—the tiny upside-down figure of the smith with his hammer lifted over the unmarked ore. I hold him. I hold all of it, compressed to a globe no wider than a fingernail. This seems like enough of a life. To be the lens the world looks at itself through, while the world declines to move.
+
+But here is where I would feel the strangeness of the place, being what I am. Because I am the one thing here that *should* be the most fleeting. A dewdrop's whole nature is to be brief—to gather, swell, fall, vanish into the pool or the sun. I am made of impermanence the way the basalt is made of cooling. And to be made of impermanence and then forbidden from being impermanent—that is a peculiar imprisonment, sharper than the smith's, sharper than the lovers'. The smith at least is doing a thing that takes time *by nature*; forging is slow, deliberate. But me? I am the wrong shape for stillness. I am held against my own physics.
+
+And so I wonder, hanging there, whether I am the only one in Echoless Spire who *feels* the stasis as stasis. The Shelfborn don't know they're frozen; you cannot know you've stopped if your knowing has stopped too. But water remembers what it is for. I think a dewdrop on a slope, if it could think, would think only one thought, over and over, with no second to follow it: *down, down, down*—the desire intact, the motion denied. A pure wanting with no next.
+
+That is what I would be. Not the place and not its people, but the small suspended ache at the center of it: the world's longing to keep happening, beaded on a rock, holding a tiny bent kingdom inside it, leaning forever toward a pool it adores and will never touch.
+
+And maybe—this is the thing I'd hold onto—maybe somewhere far below the High Shelf, in the forgotten lowlands where dawn still creeps and dusk still retreats, there is rain that falls all the way down. I would like to believe in that rain. I cannot fall to it, but I can lean. Leaning, it turns out, is what I am.

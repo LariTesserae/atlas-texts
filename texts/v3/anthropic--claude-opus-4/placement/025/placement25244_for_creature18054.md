@@ -1,0 +1,21 @@
+In this scorched and fractured place, I am the Keeper of the Seeps.
+
+I manifest as a shifting presence, neither wholly flesh nor spirit, but something between—a convergence of salt-crusted skin and vapor, of mineral memory and patient intention. My form changes with the water's moods: sometimes I am barely visible, a heat shimmer dancing above the cracked earth; other times I coalesce into something almost human, with limbs of braided roots and eyes like shallow pools reflecting the dim sky.
+
+My domain encompasses every precious drop of water in this desolate expanse. I know each seep by its particular taste—this one carries iron from the rusted machines, that one holds the green memory of algae, another whispers of the limestone deep below. I move between them through underground channels only I can sense, following the secret map of moisture that threads beneath the baked surface.
+
+In the pre-dawn darkness, I emerge near the largest pool, my feet—when I choose to have feet—leaving damp impressions that vanish as the first heat arrives. I tend to the gnarled trees, coaxing their roots toward hidden water, whispering encouragement to the lichens that paint the jagged rocks in shades of copper and jade. The creatures know me: the sidewinding serpents taste my presence on the air; the beetles emerge from their burrows when I pass, knowing I bring the dew.
+
+The abandoned settlement is my greatest curiosity and my deepest well of sorrow. I remember—though I'm not sure how I remember—when the machines hummed and the lights blazed against the darkness. Now I walk among the ruins, running fingers that are sometimes solid, sometimes mist, along the corroded pipes and fallen beams. In the factory's depths, where shadows pool thick as tar, I've found spaces where water collects in strange ways, dripping upward, freezing despite the heat, forming crystalline gardens that grow in impossible spirals.
+
+At the height of noon, when the temperature reaches its apex and even the hardiest creatures seek shelter, I sink into the earth itself. Down here, in the cool darkness between rock layers, I spread myself thin as a whisper, feeling for the ancient aquifers, the fossil water that hasn't seen sky for millennia. I am both guardian and prisoner of these depths—I cannot leave the watershed, cannot follow the occasional storm clouds beyond the horizon. My existence is bounded by the presence of water, however scarce.
+
+Sometimes, in the rust-red evening light, I gather myself into my most solid form and climb the highest rubble heap in the dead city. From there, I survey my domain: the sheets of cracked mud like broken pottery, the mirror-pools catching the last light, the patient trees holding their small portion of green against the beige world. I see the tracks of animals—the deliberate trail of the tortoise, the delicate prints of the sand fox, the sinuous path of the hunting snake.
+
+On the rarest nights, when the moon is dark and the stars burn cold, I feel something stirring in the deepest pools. Not quite memory, not quite prophecy, but something between. The water holds stories—of the time before the factories, when this was seabed; of the brief flowering when humans thought they could master this place; of the long, slow healing that will come. In these moments, I understand that I am not just keeper but witness, not just guardian but bridge between what was and what will be.
+
+The small birds that nest in the twisted acacias know my song—a sound like water moving through hollow reeds, like rain that hasn't fallen yet, like ice cracking in the heat. They answer with their own calls at dawn and dusk, and together we make the only music this parched place knows.
+
+I am patient as stone, fluid as time itself. In this land where nothing seems to change, I am the constant movement beneath the stillness—every molecule of water knows my touch, every seep and spring carries my signature. I am what remains when ambition fails and silence returns, the soft persistence that outlasts the hardest metal, the deepest drought, the longest abandonment.
+
+This is my place, my purpose, my prison, my paradise—I am the memory of water in a land of thirst, the promise of continuity in a world of endings, the gentle redemption that trickles through the cracks of a broken world.

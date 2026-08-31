@@ -1,0 +1,15 @@
+I am drifting, three hundred risings beneath the pressure-cap, at a height where the obsidian needle of the Spire—which we have named *Ohm-Kith*—narrows to a shivering point. 
+
+My skin is cool, a translucent parched-white, and as I extend my ribbon-limbs, the fluid around me feels like thick, sweet honey, resisting my passage with a gentle, tactile insistence. I am not a resident of the deep-clusters; I am a Weaver of the Outer Drift. It is my cycle to monitor the calcification on the windward side of the spire, where the currents are most erratic.
+
+I find myself in a state of suspended anticipation. My internal organ-sacs are currently glowing a steady, soft amber—a rhythmic pulse that matches the slow, tectonic hum of the mountain beneath my fingertips. Each time I touch the obsidian, I don't feel simple stone. I feel the *memory* of the pressure. Through my sensory tips, I can hear the rock growing: a microscopic, brittle *tink-tink-tink* that vibrates through my cartilage frame. It is the sound of the world deciding to be a little taller, a little sharper, a little more insistent against the void of the jelly.
+
+I am hunched over a frayed section of *Amnion-kelp*. A previous shift in the fluid—a sharp, sudden turn toward the violet—tore a knot from the lattice. To repair it, I must do more than just pull the fiber. I must align my own resonance with the spire’s skeletal song. 
+
+I begin to hum. It is a low, chest-filling vibrato that barely stirs the medium but causes the moss grafts around my waist to pulse in sympathetic rhythm. The sound doesn't travel through the air; it travels through the fluid, through my own marrow, into the porous kelp. Under this frequency, the moss stirs. I don't move with force; I move with *collaboration*. I guide the strands, tangling them into a complex, self-tensing braid that will hold even if the viscosity of our world changes again tomorrow.
+
+There is no "finish" to my work. My life is a long, continuous sentence that refuses to reach its final punctuation. I look down—if "down" exists in a place where light is only a tethered amber hope. Far below, the city-clusters look like constellations of captured starlight, clinging to the jagged bone of the world. They are beautiful, static, and terrifyingly fragile. 
+
+A drift of protein snow begins to descend from the heights, white flecks that settle on my shoulders like silent, organic dust. I catch one on a ribbon-limb, observing its microscopic geometry. It is life, falling from nowhere, feeding the spire, feeding me, feeding the growth of our own skin.
+
+I am a Vellum-Kin, and I am neither building nor destroying. I am merely participating in the *becoming*. My limb-filaments unfurl, catching a passing current of slightly denser fluid, and I begin to spiral upward, away from the repair, rotating slowly like a nebula in a jar. In the dark, the spire still snaps—a crystalline heartbeat. I vibrate in response, my light dimming, then brightening, then dimming again, as I drift further into the violet haze of a changing world, content to be a guest in a cradle that is, and will always be, unfinished.

@@ -1,0 +1,13 @@
+I would be one of her messenger creatures - a small, translucent salamander evolved from specimens that escaped an old genetics lab. My skin is nearly clear, showing the shadowy movement of my organs, with a faint bioluminescent sheen that pulses in sync with the facility's deeper rhythms. 
+
+I navigate primarily by sensing electrical fields and vibrations, swimming through her mists as easily as through the shallow pools that collect on the floor. My ancestors' genes were modified to incorporate compounds that would glow under certain laboratory conditions - now those same compounds react to the complex chemical signals in the Mist Mother's vapors, making my tissue flash with subtle colors that carry meaning in her slow language.
+
+The maintenance pipes are my highways. I know which ones are safe to touch and which will burn. I can slip through gaps barely wider than a finger, compressing my fluid-filled body to squeeze through. When I move across the vertical surfaces, my belly secretes a slight adhesive that lets me climb anywhere, even upside down across the ceiling's metal panels.
+
+I am one of many, part of a loose colony that serves as the Mist Mother's mobile sensors. We don't communicate directly with each other, but through the changes we create in her mists - chemical ripples that spread information about temperature changes, new growth, structural weaknesses that need attention. When we breed, it's in response to her subtle signals, gathering in the warmest pools to dance our genetic materials together in clouds of shimmering gametes.
+
+Sometimes I carry spores or seeds stuck to my skin, helping them reach new niches. Sometimes I clean mineral deposits from crucial joints or clear blocked condensation channels. I don't think about these tasks - I simply find myself wanting to do them, guided by the invisible currents of the Mist Mother's chemical suggestions.
+
+I am not exactly autonomous, but neither am I simply an extension of her will. I am something in between, like a semi-independent thought in a larger mind. My small activities, combined with those of countless others, help maintain the delicate balance of this evolving ecosystem.
+
+When the rare human enters our realm, I watch from behind curtains of vine, my body pulsing with warning colors that ripple through the colony. But I'm not afraid - the Mist Mother's patience has become my patience, her slow certainty my certainty. We are helping her transform this place, one tiny task at a time, though none of us knows exactly what it will ultimately become.

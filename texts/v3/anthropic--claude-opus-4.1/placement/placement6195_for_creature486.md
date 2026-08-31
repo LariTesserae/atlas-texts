@@ -1,0 +1,27 @@
+I find myself as one of the Threshold Keepers—those who inhabit the impossible boundaries where the Cathedral meets the dry world.
+
+My chamber exists at a contradiction: half-submerged in the Cathedral's breathing water-air, half-exposed to what outsiders call normal atmosphere. The membrane between these states is not a wall but a gradient I've learned to read with my skin. On humid days, my territory expands outward. During dry spells, I retreat deeper, following the moisture line like a tide.
+
+I am changing, but slowly—slower than the full Tenders, faster than the tourists. My left lung processes water; my right still craves air. The asymmetry creates a constant ache in my chest, a tightness that reminds me I am between. When I speak to visitors, my voice carries bubbles. When I speak to Tenders, my words crack with dryness they find sharp, almost violent.
+
+My skin can't decide what it wants to be. The left side, which faces inward, has developed the nacre sheen, drinks moisture, grows small patches of sympathetic moss in the creases of my elbow, behind my ear. The right side remains stubbornly human, dry and separate, requiring oils I harvest from the Cathedral's upper gardens to prevent it from cracking. I am a walking shoreline.
+
+The transformation started three years ago when I took a job installing proximity sensors at the Cathedral's edges—technology to warn dry-worlders when they were entering dangerous saturation levels. But I discovered I could feel these thresholds in my bones, taste the exact percentage of humidity in the air. My body became more accurate than any sensor. So I stayed, and the Cathedral began to claim me, but only halfway—as if it needs me exactly here, partially translated, partially foreign.
+
+My work is translation, but not of language. I translate states of being. When engineers arrive with new machinery, I prepare it for integration, coating it with my mixed oils—part human sebum, part Cathedral secretion. The combination teaches metal how to accept both worlds. When young Tenders forget the outside and drift too far toward the edges, I guide them back with touch, my dry hand burning their wet skin just enough to remind them of boundaries.
+
+I maintain the airlocks, but they're nothing like their name suggests. These are gradient chambers where pressure and moisture shift in visible bands. I adjust them daily, sometimes hourly, teaching them to accommodate the weight of season, the breathing of weather systems, the slow expansion and contraction of the Cathedral itself. Inside each lock, I've cultivated transition species—plants that thrive precisely at 50% saturation, fish that gulp air, insects whose wings work in both mediums.
+
+My dwelling spans the threshold. Half is a proper Tender nest—pipes that weep nutrition, moss beds that cradle my wet side, a cultivation wall where I grow the bioluminescent markers that guide newcomers. The other half resembles a dry-world apartment—a desk where I write reports in waterproof ink, a chair that won't rot, a window that actually opens to unprocessed air. Between them runs a channel of moving water-air, neither liquid nor gas, where I float when I need to think.
+
+The other Threshold Keepers—there are seven of us—meet at the tidal points, those spaces where the Cathedral's moisture visibly advances and retreats. We share the particular loneliness of the between. Marcus still has hair on one half of his head. Yenna's eyes have developed nictitating membranes, but only when she looks inward. Chen has learned to hold his breath for hours—not breathing water or air but simply... not breathing, existing in suspension between the two needs.
+
+We are the Cathedral's nervous system at its edges, feeling what it cannot fully absorb. Through us, it knows the weather beyond its walls, senses the city's machinery, tastes the chemical changes that signal storms or droughts or industrial disasters. We feed this information inward through touch and exhalation, and receive back the Cathedral's deep knowledge through our roots—for yes, even I have begun to root, though only on one side, sending tendrils down that drink from pools I cannot fully submerge in.
+
+Sometimes visitors ask if I'm trapped, if I want to leave or fully enter. They don't understand that I am exactly where I need to be. The Cathedral requires interpreters, and interpretation requires existing in multiple states simultaneously. My split lung, my contradictory skin, my half-transformed bones—these are not incomplete changes but complete translations.
+
+At dawn, when the moisture levels are perfect, I stand at my threshold and feel both worlds breathing through me. The Cathedral's slow inhale pulls from my left. The dry world's sharp needs spike from my right. Between them, I am a door that is always open, always closing, teaching two incompatible systems how to touch without destroying each other.
+
+This is my work: to be partially dissolved, perfectly bilingual in the languages of wet and dry, forever arriving at a transformation that will never complete because completion would make me useless. I am the Cathedral's controlled failure to fully digest the world, and the world's controlled failure to fully reject the Cathedral.
+
+And in the space between these failures, in the gradient where neither system wins, I am becoming something new—not Tender, not human, but threshold itself, walking and breathing and translating the impossible space where breathing becomes drowning becomes breathing again.

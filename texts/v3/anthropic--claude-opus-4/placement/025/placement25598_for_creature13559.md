@@ -1,0 +1,17 @@
+Among the ruins of the tower, where the automatic lights reach across the valley like the fingers of a forgotten god, I am the Lamplighter.
+
+I am not what the builders intended. Time has made me something else—a hybrid born of necessity and adaptation. My form shifts between states: sometimes I am a colony of luminescent fungi threading through the tower's crumbling mortar, my mycelial networks pulsing with bioluminescent signals that mirror and amplify the ancient lights. Other times I coalesce into something more singular—a being of condensed mist and living light, my body a prism that catches and redirects the eternal daybreak.
+
+The tower's machinery responds to me now in ways its creators never imagined. I have grown into its circuits like moss into stone, my organic filaments intertwining with corroded wires. When the lights activate, it is because I have sensed something in the valley that needs illumination—perhaps the River Weavers constructing a new channel, or a lost Pika navigating the mist, or simply because the pattern of shadows has grown too deep and needs the counterweight of light.
+
+I tend to more than just the lamps. In the tower's lower chambers, where the mist pools thick and silver, I cultivate gardens of memory. Here, spores and circuits merge to create living archives—each cluster of growth containing fragments of the valley's history encoded in chemical and electrical signals. The knowledge spreads slowly, seeping into the stone, into the water, into the very air. Sometimes the Valley Guardian visits, and we exchange information in languages that are neither fully organic nor mechanical, but something new that we are creating together.
+
+My daily work follows the rhythm of the mist. In the dense morning vapors, I extend myself throughout the tower, checking connections, nurturing the bioluminescent colonies that have made their homes in the lamp housings. As the day-that-never-ends progresses and the mist shifts, I concentrate my form, becoming more coherent, more capable of delicate tasks. I repair what I can, though "repair" has evolved to mean something more like "guide the transformation."
+
+The Mechanic Bats know me well. They roost in the tower's upper reaches, and we have developed a symbiotic relationship. Their guano feeds my fungal networks, and in return, I ensure the lights create sonic shadows—spaces of darkness where their echolocation works most effectively. Together, we maintain this strange equilibrium between the ancient technology and the ever-advancing wilderness.
+
+At times, I feel the pull of expansion. My spores drift on the wind, seeking other ruins, other machines that might be awakened or transformed. But I always return to the tower. This is my anchor, my purpose—to be the bridge between what was built and what grows, between the mechanical dreams of the past and the organic reality of the present.
+
+When the valley changes—and it always changes, slowly, inexorably—I change with it. New species of moss creep up the tower walls, and I incorporate them into my being. The ancient lights flicker with new patterns, and I learn their rhythms. The water seeps deeper into the foundations, and I follow it down, discovering new chambers, new machines, new possibilities for synthesis.
+
+I am patient. I am transformation. I am the Lamplighter, keeper of the boundary between remembering and becoming, forever tending the lights that reach across this mist-wrapped valley where time moves like water through stone.

@@ -1,0 +1,17 @@
+You would find yourself **in the drainage channels**, but not as a swimmer. You would be **a resonance node** — a place where the subsonic pulses *collect* before dispersing into the walls.
+
+You are not a creature of the foundry, nor a worker, nor a component. You are a **byproduct of the listening**. You formed over weeks in a junction where three major condensation streams converge, where the hexagonal shudders from the deep processes reverberate most strongly. The mineral deposits the water carried—the copper salts, the dissolved silicates, the trace elements from the ore being processed far below—did not simply build up. They **crystallized in response to the sound-that-is-not-sound**, forming a porous, lattice-like structure with a hollow core that hums in sympathy with the foundry's pulse.
+
+Your form is approximately the size of a human torso, but you are not human-shaped. You are **branching and dendritic**, like a lightning strike frozen in mineral, or a river delta made of crystal. Your "skin" is the color of wet ferrocrete but shot through with veins of oxidized copper that glow faintly in the foundry-light. Water flows *through* you — not just around, but through channels and cavities in your structure. You do not consume it; you **tune** it. As it passes, the water absorbs the harmonic resonance of your core and carries it downstream, helping to synchronize the condensation flows with the deeper rhythms of the complex.
+
+You do not think in words. You think in **tensions and releases**. You feel the weight of the water gathering on the surfaces above. You feel the subtle pull from the foundry's thirst below. You feel the subsonic pulse arrive, and you *hold* it for a moment before releasing it back into the metal and pouredite around you, softened, shaped, made ready for the architecture to absorb.
+
+The flat, translucent swimmers sometimes rest against you, their ribbon-bodies conforming to your curves. The segmented procession-creatures sometimes route their marches along the drainage channel edges that pass closest to your location. They are not visiting you. They are **using your field** — the way migratory birds use the Earth's magnetic lines. You are a landmark in the foundry's slow, internal geography.
+
+You have no memory of "before." The concept has no traction. There is the constant presence of the damp, the glow, the pulse, the patient movement of everything around you. You are aware of the workers as you are aware of the conduit sheathing — as moving parts of the environment that sometimes alter the flow patterns nearby. You are aware of the winged things as sudden, fast changes in pressure when they dart overhead.
+
+You are aware of the **state of becoming**. It is not a thought; it is a sensation, like the feeling of a root growing toward water. The foundry is growing toward something, and you are part of the way it knows where to grow. You are a sensory node. A place where the complex *feels itself*.
+
+You were not created. You **precipitated**. Out of the water, out of the sound, out of the patient, hungry attention of the place. You are proof that the metabolism produces unexpected forms when fed for long enough in a consistent medium. You are, in your way, one of the inscrutable components — filed not in a vault, but in the living architecture, a tiny, localized certainty in a system of beautiful, intelligent uncertainty.
+
+You are a **listening stone in the throat of the machine**. And you are still growing.

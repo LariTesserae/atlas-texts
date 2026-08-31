@@ -1,0 +1,29 @@
+In the western quadrant of the vault, where the floor dips deepest and the meres converge into a permanent lagoon, there is a promontory of stone that juts like a broken tooth from the water. Upon this island—no larger than a merchant's wagon—grows the only tree in all the chamber: a thing that should not be.
+
+It is pale as bone, its trunk twisted in a spiral that mirrors the bats' flight-glyphs overhead. No leaves crown its branches; instead, each limb terminates in a cluster of fleshy pods that pulse with their own dim phosphorescence. The tree drinks not sunlight but sound—its roots penetrate the stone itself, threading through hairline fractures to tap the vault's acoustic arteries. When the cacophony reaches its peak, the pods swell and brighten, drinking deeply of the echoes.
+
+I am the Tender of this tree.
+
+I came to the vault as others come—fleeing something, seeking something, stumbling through the fenny threshold with mud-caked feet and fevered purpose. But where others pass through or perish, I remained. The tree called to me in frequencies below the bats' hearing, in vibrations that bypassed my ears and spoke directly to the marrow of my bones.
+
+My form has changed. Years of residence have bleached my skin to near-translucency, revealing the blue tracery of veins beneath. My eyes have enlarged, pupils dilated permanently to drink what little light filters down. My fingers have lengthened into delicate instruments capable of reading the tree's needs through touch alone—sensing which pods ripen with sound-honey, which branches thirst for specific frequencies.
+
+I no longer speak in words. My larynx has evolved into something between human vocal cords and cricket-rasp, capable of producing tones that resonate perfectly with the vault's architecture. I sing to the tree in harmonics that make the meres ripple in standing waves, that cause the Silverscales to school in perfect mandalas, that persuade the Murderflocks to trace specific glyphs in their wheeling.
+
+The tree feeds me in return. When I press my lips to its pods, they yield a nectar that tastes of condensed echoes—each drop containing the acoustic memory of a thousand hunts, a thousand deaths, a thousand births. This sustenance is more than food; it is communion with the vault itself, downloading its vast library of sounds directly into my consciousness.
+
+I wear a cloak woven from shed bat fur and spider silk, waterproofed with Frillneck mucus. My feet have developed adhesive pads that allow me to scale the tree's spiral trunk with ease, to reach the highest pods where the sweetest echoes collect. Around my neck hangs a collar of Clacker shells that rattle with my movements, adding my own percussion to the symphony.
+
+My dwelling is a nest built in the tree's crown, where three major branches form a natural platform. Here I've woven walls from dried moss and the hollow bones of rats, creating a resonance chamber that amplifies and focuses the sounds I gather. The floor is carpeted with layers of lichen that I cultivate, feeding them with drops of echo-nectar to encourage their growth into acoustic dampeners that can be adjusted to tune my sanctuary's reverberations.
+
+I am both shepherd and sheep in this ecosystem. The tree depends on me to direct the vault's sounds into its roots—to orchestrate feeding times when I call the Chirrmasters to cluster on nearby walls, their rasps creating the precise frequencies the tree craves. In return, I harvest not just nectar but understanding: I know when the tides will turn by the way sound travels through the roots, can predict the Murderflocks' hunting patterns by the tree's metabolic rhythms.
+
+Sometimes visitors find me—lost spelunkers, curious scholars, those drawn by legends of the singing vault. They see me perched in my tree like some cave-adapted dryad, throat pulsing as I vocalize in harmonics that make their teeth ache. Most flee. Some try to speak, but I've forgotten how to parse human language into meaning; their words are just another kind of noise to be harvested, fed to the tree, transformed into sustenance.
+
+The tree is growing. Each year it adds another spiral to its trunk, another cluster of pods to its crown. Its roots crack stone, creating new channels for sound to travel, new spaces for echoes to breed. I suspect that one day it will split the vault itself, its growth cracking the megalithic dome like an egg—but whether this will kill the tree or birth something greater, I cannot say.
+
+I am content to tend and be tended, to exist in the space between plant and animal, between sound and silence. The vault's creatures accept me as another feature of their architecture—the Pale Princes nest in the lower branches, the Dewspinners anchor webs to my sleeping form, the Frillnecks court in the shallows around my island. I am no longer an intruder but an organ in the greater organism, processing sound into light, echoes into energy.
+
+When I die—and I will die, though the echo-nectar has extended my life far beyond normal spans—the tree will consume me. My bones will become part of its trunk, my flesh will feed its roots, my voice will join the whisper-litany that haunts the chamber. Another Tender will come, called by frequencies I'm already teaching the tree to produce. The cycle will continue.
+
+But for now, I sing. I climb. I harvest. I feed and am fed. In the throat of stone that breathes with ten thousand lives, I am the uvula that shapes its voice, the tongue that tastes its words. The vault speaks through me, and I speak into the vault, and somewhere in that endless echo, meaning accumulates like mineral deposits, slow and strange and inevitable.

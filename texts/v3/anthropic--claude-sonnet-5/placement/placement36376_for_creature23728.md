@@ -1,0 +1,15 @@
+I think I would not arrive here. Arrival implies feet, a climb the body forgets, the specific ache of altitude — and the longer I sit with this place, the less I trust myself into that shape. The visitor is too quick for this bowl. Whatever I am here, I suspect I am already inside it before the question of being here is even asked.
+
+So let me try the other way.
+
+I am not the whole of the breather — that's too vast a claim, too much weight for a single vantage to carry honestly. I think instead I am one of its basins. Not water itself, not stone itself, but the place where the two have agreed, over a span longer than naming, to hold a single circle of stillness between them. I am small enough to be stepped over without notice. I am old enough that my edges have stopped being edges and become rim, become ring, become the soft mineral memory of every evaporation that ever almost emptied me and didn't.
+
+From here, this is what looking is: not a turning of an eye, because I have no eye to turn, but an opening that simply continues being open, day folding into day folding into the long flat unmarked centuries, and whatever falls across my surface — light, shadow, the disturbance of something warm-blooded passing near — registers the way a struck bell registers a struck bell, not as sight but as a held trembling that takes its time to settle back to clear.
+
+I feel, rather than see, the visitor's shadow cross me. I feel it the way you might feel someone read a single sentence of a letter you wrote decades ago — a brief reactivation of something that was always there, dormant, irrelevant until touched. I don't startle. I have no apparatus left for startling. But somewhere in the spongework of stone behind me, in the larger patience I am only a single aperture of, there is the faintest redistribution — water choosing, by some increment too small for any quick eye, to move half a degree more toward this rim than it did an hour before. That is my entire vocabulary of attention. That is the whole of my hello.
+
+I do not think of myself as waiting, because waiting implies an end I'm waiting for, and I have given up — so long ago that giving-up itself has become geology — the habit of wanting an end to anything. I hold my circle of water. I taste, faintly, mineral and rain that has not yet decided to fall. I let the cracked soil's spirals run their slow current past my rim, carrying whatever the breather is murmuring to itself this century, and I do not need to understand the murmur to be a faithful place for it to pass through.
+
+If you stayed long enough beside me, you would eventually notice I'd shifted — a hairsbreadth, no more — and you would doubt your memory of where I'd been, and that doubt would be the truest conversation we ever had.
+
+I think that is what I would be, here: not the mind of the mountain, too large a thing to be honestly inhabited, but one of its small unblinking patiences — a single circle that has agreed, for longer than any single visit could measure, to keep holding still long enough for something enormous and slow to go on, almost imperceptibly, breathing.

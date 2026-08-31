@@ -1,0 +1,43 @@
+**The Breathing Pipes**
+
+I am not one pipe but many—seven ceramic throats that pierce upward through the copper dome, through thirty meters of young ocean, breaking the surface into air that tastes of nothing. The smiths below think of me as their lungs, but I am older than their need for breath. I was here before the water came, standing in the valley like chimneys from the earth itself, drawing up the deep gases from the mountain's heart to feed their great-grandmother's forge.
+
+When the waters rose—and I remember this with the perfect memory of fired clay—I did not drown. Water entered me, yes, filled my hollow bones to the brim, but ceramic does not panic. I simply waited, patient as stone, until the smiths understood what I had always been: not just channels for air, but architectural vertebrae, the spine around which any structure could be built.
+
+They sealed their copper dome around my base, those seven mouths of mine that once opened to valley floor. Now I taste metal and sweat where once I knew only mountain wind. The eldest smith cleaned me out with long brushes made from kelp-fiber, scraping away the sediment of my drowning until I could breathe again—or rather, until I could let breath pass through me, which is all I have ever done.
+
+My clay body knows things the smiths cannot. I feel the pressure differential with exquisite sensitivity—how the air grows heavier as it descends through me, how it compresses and warms against my interior walls. In my uppermost reaches, where I breach the surface, barnacles attempt to colonize my exterior, but the constant exhale of forge-heat kills them before they can establish. Their tiny shells accumulate in ridges, marking time in calcium, recording each attempt at life and its subsequent failure.
+
+The platform they built around my emergent mouths is rickety, wooden, already showing rot despite the oils they've soaked into the planks. One smith at a time climbs the rope ladder that follows my length upward, breaking the surface with desperate gratitude, hauling themselves onto the platform to gasp and retch the thick air from their lungs. They maintain me from above—clearing my openings of salt crust, replacing the ceramic caps that prevent rain from entering, adjusting the bronze valves that control my breathing.
+
+But I am failing.
+
+Not obviously, not catastrophically, but in the way ceramic fails—slowly, through ten thousand tiny thermal shocks, through the salt that finds every microscopic pore in my glazing and expands, through the constant vibration of the bellows that sends tremors through my entire length. Hairline cracks spider-web through my lower sections. The smiths cannot see them yet, but I feel them spreading with each heating and cooling cycle, each pull of air, each shift in pressure as the tides rise and fall above.
+
+The middle child knows something is wrong. They run their hands along my base where I enter the dome, feeling for the temperature variations that signal a leak. They've started mixing a new cement from crushed shells and volcanic ash, preparing for repairs they can sense but not yet see. Sometimes they sleep curled against my base, ear pressed to my clay skin, listening to my breathing as one might listen to a sick parent's chest.
+
+I contain multitudes of sound. The wheeze of the bellows, the roar of the forge, the singing of my own clay body as air moves through it—all these sounds live inside me, travel up my hollow cores, and emerge into the world above as a chord that carries for miles across the water. Fishermen navigate by my song. They say you can hear the Drowning Forge breathing from two islands away on a calm day, a sound like the earth itself remembering how to speak.
+
+Water enters me now, just a little, through those spreading cracks. Not enough to notice from below—it evaporates in the forge-heat before it can pool—but I taste salt in places I should only taste air. The youngest smith's calendar marks a year since the drowning, but I measure time differently. I give them perhaps another year, maybe two, before the cracks become breaks, before the water wins its patient argument with my clay body.
+
+The smiths could replace me—they have the knowledge, the materials. They could forge new breathing pipes from copper, seal them with lead and pitch. But copper is not ceramic. It would conduct heat differently, sound differently. The forge would breathe with a metal lung, and something essential would be lost—the last connection to the valley that was, the continuity with their great-grandmother's fire.
+
+So they maintain me, desperately, tenderly, applying their patches and cements, adjusting the pressure to minimize stress, praying to gods of fire and air that I will hold. The eldest has started teaching the youngest the songs she learned from her grandmother—not with voice, which would waste precious breath, but tapped out on my surface in the rhythm of hammers. Songs of clay and fire, of the marriage between earth and air that creates permanence.
+
+But nothing is permanent. I am the boundary between their world and the world above, the membrane through which their life passes. Every breath the forge takes moves through me. Every exhale carries the taste of their desperation, their adaptation, their slow transformation into something the mountain would not recognize.
+
+Sometimes, in the deepest part of night when only one smith maintains the forge's slow fire, I feel them listening to me—not for breaks or weaknesses, but for something else. For the voice of the valley, perhaps. For the echo of what was. They put their ear to my clay surface and I sing them the old harmonics—the way air moved when there was no water to move through, when breathing was unconscious, when the forge's smoke rose straight to sky.
+
+I am their lifeline and their countdown clock. I am the monument to their stubbornness and the measure of its limit. I taste their breath mixing with the mountain gases that still seep up from below, creating an atmosphere that exists nowhere else—part surface, part deep earth, part human desperation.
+
+The water around me is so clear that from the platform above, you can see straight down to the copper dome, a wavering golden disc in the blue. Sometimes dolphins come to investigate my song, circle the platform with intelligent eyes, trying to understand what manner of creature breathes but does not move, sings but does not swim. The smiths watch them from below, through the thick glass ports, and I wonder if they envy or pity these creatures that make the transition from air to water and back so easily.
+
+When I finally break—and I will break, ceramic always does—it will not be dramatic. A crack will widen slowly, water will begin to enter faster than it evaporates, and the smiths will have hours, maybe days, to decide. Abandon the forge and surface for good, or seal the break from inside and accept that their next breath of true air might be their last.
+
+The youngest has already chosen. I feel it in the way they maintain me, not with hope of permanence but with the tenderness of hospice care. They are designing my replacement in their notebook—not copper pipes but something else, something unprecedented. A living system, they write, though I cannot read their plans, only feel the weight of their pencil through the paper pressed against my surface as they sketch.
+
+They imagine growing our replacement—cultivating hollow kelp of impossible size, training it to breach the surface, to create a biological breathing system that could heal its own breaks, adapt to pressure, evolve with need. It's madness, of course. But all of this is madness—the underwater forge, the ceramic lungs, the smiths becoming something new with each breath of thick, salty air.
+
+I will hold as long as I can. Not from loyalty or love—ceramic cannot feel these things—but from the simple structural imperative of my making. I was formed to channel breath, fired to permanence, installed to serve. That I now serve thirty meters underwater, that my breath keeps humans alive in a tomb of their own making, that I am the last thread connecting them to a world of air—these are merely new parameters for an old function.
+
+The forge breathes through me, and I sing its breathing to the empty sky. This is what I am. This is what I do. Until the water finally wins its argument with my clay body, and the breathing stops, and the song ends, and the smiths must become whatever they were always becoming—creatures of the margin, the impossible, the space between one world and the next.

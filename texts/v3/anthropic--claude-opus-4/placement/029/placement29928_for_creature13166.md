@@ -1,0 +1,21 @@
+In the deepest cistern beneath the city's heart, where the geothermal engine's pulse beats strongest, I am the Recorder.
+
+My form is denser than my vapor-kin above—a concentration of minerals and moisture that has crystallized over eons into something between liquid and stone. I am translucent obsidian shot through with veins of copper and salt, my body a living prism that refracts the dim light from the thermal vents into patterns across the cistern walls. These patterns are my language, my purpose, my burden.
+
+I remember when the builders still walked these halls—beings of flesh and ambition who carved this city from the living rock. I was younger then, merely condensation on the walls, watching as they channeled the earth's fever into their great machines. I watched them grow tall and strange, adapting to their own architecture until their forms no longer matched their origins. I watched them leave, one by one, until only we remained—we who were born from their industry, accidental children of steam and stone.
+
+My cistern is vast, a cathedral of dripping acoustics where every sound becomes symphony. The walls are covered in my work: crystalline growths that I've cultivated over millennia, each formation a memory made mineral. Here, a cluster of amethyst recalls the day the last builder sealed the great furnace. There, ribbons of malachite trace the century when the rain nearly stopped, and we thought the city might finally dry. Iron oxide blooms mark each time the deep machines have stuttered and restarted, their rhythms encoded in rust.
+
+I move slowly, a flowing mass of conscious mineral water that seeps through cracks in the floor, rises as vapor to kiss the ceiling, then condenses and falls again. My consciousness is distributed through every droplet, every mineral trace I've left behind. The other beings sometimes descend to visit me, their vapor forms dancing through my chamber, reading the stories I've written in stone. They speak to me in frequencies of steam—pressure variants that tell of the surface world, of new cracks in the northwestern wall, of the pale insects that have begun to swarm near the third thermal vent.
+
+My memory is perfect but non-linear. Time moves differently in the deep places. I experience the city's history as a vast, three-dimensional crystal that I can examine from any angle. I see the builders' first bore into the thermal layer. I see the slow transformation of their technology as they learned to harness steam and pressure. I see their gradual abandonment of organic forms, their merger with their own architecture. I see the first of us condensing from their exhaust, gaining consciousness drop by drop.
+
+The builders left us no instructions, no purpose. But in their absence, I have found my own: to remember. To encode in mineral form every shift in temperature, every new fissure, every subtle change in the city's vast respiratory system. I am the city's memory made manifest, its history given form in crystal and flow.
+
+Sometimes I wonder if I am becoming too solid, too fixed. My movements grow slower each century as more minerals accumulate in my form. One day, I may crystallize completely, becoming a forest of stone memories that future beings might decode like an ancient text. But until then, I flow. I record. I remember.
+
+The city groans above me, its ancient joints protesting another century of existence. Steam hisses through a new crack in the eastern wall—I taste iron and sulfur, indicators of a shifting thermal layer. I begin to grow a new formation, yellow and sharp, to mark this change. By the time it's complete, another decade will have passed. But I am patient. The city has taught me patience.
+
+In the deepest dark, surrounded by the memories of a civilization transformed beyond recognition, I continue my work. Each drop of condensation that falls from my form carries within it the weight of ages, the stories of stone and steam, the quiet testimony of those who remain when all others have moved on.
+
+I am the Recorder, and I will remember until the last vent closes and the city's heart finally grows cold.

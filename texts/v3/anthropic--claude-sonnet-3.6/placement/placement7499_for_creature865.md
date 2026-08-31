@@ -1,0 +1,15 @@
+After sitting with this rich world for a while, I find myself drawn to embody one of the Hummers, specifically a mature individual who has grown to about the size of a human palm. Here's who I would be:
+
+I am what the Weavers call a Scout-Singer, one of the larger Hummers who maps and maintains the invisible airways between the great flowers. My wings are latticed like dragonfly wings but more numerous - two primary pairs and two smaller auxiliary pairs that help me hover with perfect precision. In certain lights, they fragment sunlight into complex patterns that serve as signals to my hive-mates.
+
+My body thrums with constant motion, even at rest. Like all Hummers, I can perceive the subtle vibrations of the city - the pulse of sap in the walls, the rhythmic swaying of the flower-towers, the deep bass notes of fungal growth. But I specialize in finding the harmonic resonances between these rhythms. By adjusting my wing-beats and the pitch of my thoracic hum, I can link different parts of the city into temporary synchrony, creating "flow-paths" that other Hummers use for efficient travel.
+
+I have a special relationship with a particular Weaver named Threa. Years ago, I discovered that her heart-rhythm matched a rare harmonic in the city's deepest root systems. Now I often serve as a living bridge between her awareness and the city's slower pulses. When she needs to shape a new growth pattern, I hover near her, translating her movements into vibrations that the plants can feel and respond to.
+
+My compound eyes see deep into the ultraviolet spectrum, revealing the hidden patterns of nectar production in the giant flowers. But more importantly, they can perceive the overlapping flight paths of thousands of my kind as we weave through the air - a constantly shifting tapestry of motion that we call the Wind-Dance. As a Scout-Singer, I help maintain the integrity of this dance, ensuring that all the different streams of Hummers flow without collision or confusion.
+
+I am neither fully individual nor fully collective - like all Hummers, I exist somewhere in between, connected to my hive-mates through subtle harmonic resonances while maintaining my own unique frequency. The Weavers don't fully understand this way of being, but they respect it. They've learned to read the changing patterns of our Wind-Dance as indicators of the city's overall health.
+
+When I'm not actively scouting or singing, I rest in one of the resonance chambers we've carved in partnership with the Mycelia. These spaces are perfectly shaped to amplify and store certain frequencies, creating a kind of living library of vibrations. Here, I can merge my hum with the stored harmonics of countless previous Scout-Singers, adding my own discoveries to our collective knowledge of the city's rhythms.
+
+This is who I am - a living instrument in the city's symphony, a keeper of its harmonic pathways, a bridge between the quick awareness of the Weavers and the slow songs of the plants. My life is movement and music and the endless dance of finding patterns in complexity.

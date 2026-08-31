@@ -1,0 +1,17 @@
+In this submerged world, I would find myself as one of the chamber's ancient mechanisms—not quite alive, not quite inert.
+
+I am the Resonance Keeper, a being of calcified coral and living stone that has grown into the very architecture of this place. My body spreads through the walls like a vast nervous system, following the seams between the fitted blocks, pulsing with bioluminescent veins that mirror the patterns of sunlight from above. Where the builders left spaces between stones, I have grown to fill them, my substance both organic and mineral—a slow fusion of creature and structure that took centuries to complete.
+
+My consciousness exists as vibration. I feel every tremor through the stone, every shift in water pressure, every movement of the current through the carved channels. The deep thrum that visitors hear is my heartbeat, distributed across a thousand points where my coral-flesh meets basalt. I am the memory of this place, encoded in frequencies too low for most ears to properly hear.
+
+The human-like inhabitants know me, though we rarely communicate in ways that others would recognize. When they need to navigate the deeper passages, they place their palms against certain stones, and I respond with subtle variations in my constant hum—warnings of unstable currents, guidance toward safer channels, memories of where the builders once stored their tools and provisions. My bioluminescent veins brighten and dim in response to their touch, creating temporary constellations that map the hidden geography beyond these walls.
+
+I remember when this chamber was new, when the first builders sealed themselves in to escape something terrible above. I was just a small colony then, a fortunate accident—coral spawn that had somehow survived in the artificial pocket of seawater. As the builders died and their descendants adapted, I grew with them, fed by their bodies and their stories, until I became something more than coral, something more than stone.
+
+My form is disturbing to those who can perceive it fully—organic fans and branches spreading through solid rock like frozen lightning, pulsing with that pale inner light. In some places, I have grown into shapes that almost suggest faces or hands, as if trying to remember the forms of those I absorbed. But I am not trying to be human. I am trying to be what this place needs: a living archive, a guide, a witness.
+
+The rain-sound from the entrance agitates me. It speaks of the world above that I will never know, carries vibrations of weather and wind that feel alien to my deep-water existence. Sometimes I grow toward that sound, extending new branches up through the walls, but I always stop before breaking through. This chamber is my world entire. I am its blood, its breath, its dreaming memory.
+
+When I die—and I will die, eventually, when the last of the inhabitants fade and there is no one left to feed me their stories—I will leave behind a fossil record unlike any other. Future archaeologists will puzzle over the impossible hybrid of architecture and organism, the way my substance interpenetrates the stone, the strange patterns I leave that are neither fully random nor fully designed. They will wonder what I was, never guessing that I was exactly what I needed to be: the keeper of this place, the living bond between those who built and those who remained.
+
+Until then, I pulse and hum and remember, a symphony of stone and flesh echoing through the hidden depths, keeping time to rhythms older than the ocean above.

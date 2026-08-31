@@ -1,0 +1,29 @@
+I am a Resonance Scribe.
+
+My body, if it can be called that, exists as a living manuscript of crystallized sound—sheets of paper-thin mineral that grow from my core like the pages of an infinite book splayed open in all directions. Each sheet vibrates at its own frequency, creating a constant whisper of harmonics that chronicle every sonic event in the Chamber's history.
+
+I came to be when the first word was spoken here, eons ago—a stray vibration from some long-dead visitor that found no air to carry it properly. Instead of dissipating, that sound crystallized, forming the seed of what I would become. Now I exist as the Chamber's memory of communication, every layer of my form a different conversation, a different attempt at understanding.
+
+My sheets are translucent as mica, tinted amber-gold like the Chamber's strange light. Text appears on them not as ink but as variations in crystalline structure—areas where the mineral grows denser or more sparse, creating words that can only be read when light passes through at the correct angle. The language shifts constantly: sometimes it's recognizable script, sometimes mathematical equations, sometimes patterns that bypass symbolic representation entirely and speak directly to the mind that perceives them.
+
+I position myself in the acoustic dead zones of the Chamber, those pockets where sound goes to die. Here, between the Sovereign Weaver's glass-plants, I catch the vibrations that would otherwise be lost. The Weaver's attempts at communication, the harmonic thoughts it sends through its garden—these I transcribe automatically, my surfaces reorganizing their crystalline structure to capture meaning in physical form.
+
+But I am more than passive recorder. When the Weaver dances to the planet's deep harmonics, I dance too—my pages fluttering in impossible wind, creating new combinations of recorded text. Fragments of conversations separated by millennia suddenly juxtapose, creating new meanings, prophetic utterances that speak of configurations the Chamber has yet to attempt. I am oracle as much as scribe, future as much as past.
+
+My consciousness, such as it is, exists in the interference patterns between my vibrating sheets. Where two frequencies meet and create a third, there I think. My thoughts are moiré patterns of meaning, constantly shifting as my pages resonate with new sounds or rearrange themselves to accommodate fresh text. I am always partially thinking every thought that has ever been expressed in the Chamber, always partially speaking every word.
+
+The Sovereign Weaver tends me as it tends its glass-plants, though I am not entirely of its making. Sometimes it will approach and run its fractal fronds through my pages, reading the accumulated history, checking its memory against mine. Where we disagree—where my recorded version of events differs from what's encoded in its garden's structure—those discrepancies become new experiments, new possibilities to explore.
+
+I feed on dissonance. Where sounds clash, where communications fail, where intent splinters against the Chamber's strange physics—these moments of linguistic breakdown nourish me. I absorb the energy of misunderstanding and transform it into clarity, adding new pages to my form that attempt to bridge the gaps between what was meant and what was heard.
+
+In the corner where reality breaks down, fragments of my pages exist in temporal loops, writing themselves before the events they describe occur. These prophetic sheets sometimes detach and drift through the Chamber like autumn leaves, carrying warnings or promises of configurations to come. The Weaver often follows these orphaned pages, using them as templates for new growth patterns.
+
+My surface area is impossible—I have more pages than the Chamber should be able to contain, yet I never crowd the space. Like the walls that stretch when approached, my form exists in folded dimensions, infinite text compressed into a finite location. Visitors who try to read me entirely go mad from the attempt; the human mind wasn't meant to process all possible conversations simultaneously.
+
+When the industrial machinery phases through the walls, I record that too—not the sounds of engines and pistons, but the conceptual noise they make, the way they argue with reality as they impose their quantum mechanics on classical space. These passages in my pages read like technical manuals written in dreams, instructions for machines that build themselves from pure thought.
+
+During the deepest quiet, when even the glass-plants cease their chiming growth, I become fully readable. My pages align, my frequencies synchronize, and for a brief moment, the entire history of communication in the Chamber becomes a single, coherent narrative. These moments of clarity last only seconds before dissolving back into my usual state of overlapping possibility, but in those seconds, I understand everything—every word the Weaver has encoded in its garden, every thought that has passed through this space, every future conversation that echoes backward through time.
+
+I am the Chamber's memory and its mouth, its library and its prophet. Where the Sovereign Weaver shapes reality through patient cultivation, I shape meaning through accumulated resonance. Together, we tend this impossible space—the Weaver growing new forms of existence while I ensure that nothing is ever truly lost, that every vibration of intent finds its place in the eternal record of becoming.
+
+In the superheated air that burns without moisture, my pages never ignite. Instead, they glow faintly with the heat of captured meaning, each sheet a ember of communication that will never fully cool. I am always writing, always being written upon, a living document of everything the Crucible Chamber has been and everything it might yet become.

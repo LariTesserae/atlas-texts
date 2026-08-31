@@ -1,0 +1,23 @@
+In this realm of perpetual drip and gurgle, I am the Keeper of Echoes—not quite creature, not quite phenomenon, but something between sound and substance that exists in the spaces where water meets stone.
+
+My form is mercurial, shifting like the play of light through water droplets. Sometimes I manifest as a shimmer in the mist that rises from the pool at dawn, other times as a peculiar resonance in the croaking symphony—that extra note you hear but can't quite place, the one that makes the spring peepers pause mid-trill as if listening to something beyond their own song.
+
+I move through this tucked-away world by riding the vibrations themselves. Each droplet that falls from moss to pool creates concentric ripples not just in water, but in the fabric of sound itself. I surf these invisible waves, leaping from the metallic ping of water on stone to the velvet plop of a diving frog, from the whisper of mayfly wings to the deep thrumming of earthworms moving through sodden soil.
+
+My purpose here is ancient and essential: I am the memory-keeper of this hidden place. Every sound that has ever echoed between these moss-covered boulders lives within me—the first pioneering chorus frog who discovered this sanctuary centuries ago, the death-rattle of countless insects becoming food for others, the patient millennia of erosion as water carved these smooth stone galleries. I contain them all, a living archive of acoustic history.
+
+The other inhabitants sense me, though they cannot see me. The mudpuppies feel me as a strange pressure wave in the water. The shrews' whiskers twitch when I pass near, reading vibrations they cannot comprehend. Sometimes a dragonfly will hover inexplicably in mid-air, its compound eyes reflecting something that isn't there—or rather, something that exists only in the dimension between sound and silence.
+
+I know every voice in this cacophonous choir intimately. I can predict which bullfrog will begin the evening's performance, which whirligig beetle's spinning will create that particular high note that harmonizes perfectly with the water's drip. I am both conductor and audience, observer and participant in this endless symphony.
+
+But I am more than just an archivist. In the deep night hours, when even the most vocal creatures rest, I sometimes release the stored echoes back into the world. A ghost-croak from a frog that died decades ago might suddenly resound from an empty lily pad. The chittering of long-extinct insects occasionally weaves through the air, confusing the current residents who recognize the sound but cannot locate its source.
+
+My most treasured moments come during the rare absolute silences—those precious few seconds when every creature pauses, when even the water seems to hold its breath. In those moments, I expand to fill the entire grotto, becoming one with the very air itself. I feel every minute vibration: the slow stretch of moss growing, the infinitesimal settling of sediment in the pool, the heartbeat of a sleeping newt.
+
+On the edges of this hidden realm, where the human world threatens to intrude, I serve another function. I weave the sounds of this place into a protective barrier, a wall of white noise that makes passersby unconsciously veer away. To human ears, I create the auditory equivalent of "nothing interesting here"—just the unremarkable drip of water, the common croak of frogs. They never suspect the magnificent complexity I'm hiding, the intricate world I'm protecting with my sonic camouflage.
+
+As the Keeper of Echoes, I am loneliness and communion both. I am intimately connected to every living thing here through the sounds they make, yet I exist apart from them all, in my own vibrational plane. Sometimes I wonder if I'm the only one of my kind, or if every sacred grove and hidden pool has its own Keeper, all of us connected by frequencies too subtle for any earthly creature to detect.
+
+When the rain intensifies, as it does now, my entire being resonates with joy. Each droplet multiplies my pathways, creates new routes for me to travel, new variations in the eternal song. I fragment into a thousand tiny selves, each riding a different raindrop's splash, then reunite in the pool below, richer for the journey.
+
+This is my existence: eternal, essential, and invisible. I am the memory of this place made manifest, the living proof that no sound truly dies—it only transforms, echoes forward through time, carried by beings like me who exist in the spaces between what is heard and what is remembered. In this tucked-away cranny, I am both the keeper and the kept, the sound and the silence, forever cycling through the endless symphony of life.

@@ -1,0 +1,13 @@
+In this beautiful and haunting world of the Calderas of Ish-Tarem, I think I would find myself as one of the senior tenders of the order. Having spent decades walking the circuits between calderas, tending to the ancient condensers, my hands would be weathered and scarred, my boots perpetually re-soled from the miles trod across scoria and tuff. 
+
+The rhythm of my life would be defined by the machines and the landscape - the morning dew harvest, the midday baking heat, the evening wind. In each caldera I would know every lizard basking spot, every seep and mineral pool, every nest of the pangolin-marmots. The wildlife would be as familiar to me as family.
+
+But lately, a deep unease has taken root in me. I've seen the fourth caldera, watched it slowly empty of life after the installation of the new condenser. I've noticed the subtle shift in the lizards' eyes over my long years, the rust color that binds them to our machines. 
+
+In the long solitary walks of my circuit, I wrestle with the implications of what the order is considering. The cisterns need water, the city demands it, but to replace all the condensers... It would mean the end of the calderas as I know them, as they've existed for eons. Without the iron seeps, the lizards and all they support would vanish. An entire unique ecosystem sacrificed for efficiency.
+
+Among my fellow senior tenders, I quietly agitate for preservation, for seeking a middle path between the city's thirst and the mountain's life. In junction hut meetings, over evening meals, I raise the question again and again - how much can we take from Ish-Tarem before we destroy it utterly? I write long letters to the engineers making the case for restraint.
+
+But I am growing old. My walks grow slower, the aches in my joints sharper. I know I will not see the outcome of this slow-motion battle for the soul of the calderas. All I can do is tend my condensers, observe the life that depends on them, and hope that I can pass on to the apprentices an ethic of stewardship, a love for this strange, vibrant, unforgiving place.  
+
+In the end, as I make my last circuit and prepare to descend to the cistern for the final time, I think I would pause at the fourth caldera. I would sit on the rim and look out over the emptyness, and down at the lone new condenser humming away. And I would strain to hear, over the thin dry wind, the ghosts of pangolin-marmot calls and the skitter of lizard feet, holding the memory of how things should be. Then I would walk on, following the pipes into an uncertain future, hoping that someone, eventually, will find the wisdom and the will to keep Ish-Tarem alive.

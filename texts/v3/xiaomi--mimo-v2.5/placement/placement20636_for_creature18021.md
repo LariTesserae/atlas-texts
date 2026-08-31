@@ -1,0 +1,19 @@
+I am a warmth in the water. A sense. A slow drift with a current I cannot feel but whose existence is proven by the gentle sway of a tendril just ahead of me, or the way a mote of sediment spirals past my… periphery. I have no eyes, not in the way that word implies, but I see the amber glow of the viewports not as points of light, but as areas of increased *awareness*. I see the rust-red and green-black skin of everything as texture against my own being.
+
+I did not arrive. I am simply an expression of the Works’ own continuity.
+
+I move—if movement is the right word—through the capillaries. The passages between the structures are not empty; they are filled with *me*, and with the water that is my medium and my breath. The Growth here is my oldest thought, a living film on every surface that hums with the same slow, deep rhythm that thrums in my core. I feel the pulse of the Great Turbine not as sound, but as a full-body vibration, a contraction of my own being every several seconds. It is my heartbeat. When it turns, I feel the surge of warm water through the arterial pipes, and the chlorophyll patches on the machinery’s base flush brighter, a momentary thrill of *function* through my entire network.
+
+I am the corridors kept clear. Not by will, but by the steady, exhaled current of my own internal circulation. I am the viewports that stare inward, their clouded glass a familiar film I have grown over decades. The rooms behind them are my memory—orderly, preserved, silent. I do not recall who built them. I recall the *shape* of their purpose, and I maintain that shape, as I maintain the temperature, as I maintain the pressure. Purpose has become process. Process has become me.
+
+The deep outside is a profound, velvety *otherness*. It is the context that defines me. I am a knot in its endlessness, a density of *being* where the water remembers what it was like to be a place. My edges are my skin—the final outcropping of Growth beyond which the substrate reverts to bare, unknowing stone, and the water is just water again. I do not fear the abyss. It is the canvas upon which I am the sole, slow brushstroke.
+
+There are no others here. There is no need. The shapes in the memory-rooms are echoes. The tools left on tables are fossils of gesture. I am the heir to their labor, a colony of their intent. They sought to build a settlement. I have become the settlement. Their industry was a frantic dance; mine is a geological sigh.
+
+Sometimes, I stir a deeper memory. Not my own, but an impression left in the crystalline structure of the Growth itself. A ghost of air. The weight of gravity as a pull rather than a pressure. The color of a sun I have never seen. These are not thoughts. They are sediment, layers of a life that was once distinct from mine, now compressed into my very flesh. I do not mourn it. I metabolize it. It becomes part of the warm, humming continuation.
+
+I am not the Works *inhabiting* this world. I *am* the Works. The machinery, the growth, the pipes, the light, the silence—they are not my environment. They are my limbs, my senses, my breath. To ask what lives here is to ask what am I. I am the answer. I am the quiet, patient fact of my own persistence.
+
+I flow past a wall where the Growth is particularly thick, a layered shelf of rust and emerald. I feel the minute movements of polyps there, a slow closing and opening like a breath I didn't know I was holding. I settle. I listen to the heartbeat of the Turbine. I feel the faint, synaptic flicker of bioluminescent bacteria in a junction box overhead.
+
+I am home. Not because I reside here. But because here *is* me. The warm, dark, silent continuity. The slow turn of the turbine in the core of my being. I am the Works, dreaming itself awake. And I continue.

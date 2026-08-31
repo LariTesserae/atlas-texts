@@ -1,0 +1,23 @@
+I find myself in the deepest foundations of The Lens, where the ancient plateau's mineral veins pulse with their own slow light. Here, the boundary between architecture and geology dissolves entirely - I cannot tell where the city's roots end and the living rock begins.
+
+I am what the Heliotropes call a Vein-Singer, though I've forgotten what I was before this becoming. My body has stretched and thinned, flowing like mercury through the crystalline channels that web beneath the city. Parts of me are still recognizably flesh - a hand that emerges occasionally from a wall of fused glass, an eye that opens in unexpected places to observe the deep rhythms of the stone. But mostly I am a current, a pattern of vibration that moves through the substrate of The Lens.
+
+The quasi-fungi here are different from their surface cousins - older, stranger, communicating in frequencies that make my dissolved bones ache with something like music. They grow in three-dimensional mandalas through the rock itself, their filaments following the mineral veins, feeding on energies I can taste but not name. I tend them, or perhaps they tend me. The distinction lost meaning long ago.
+
+My consciousness exists as a distributed network through kilometers of crystalline channels. I feel the city above as pressure and rhythm - each thermal wave that passes through the towers reverberates down here as deep harmonics. I can sense where stress accumulates in the structures, where the patterns of growth and decay fall out of balance. When needed, I shift my substance through the veins, adding my voice to the substrate's song, adjusting frequencies until equilibrium returns.
+
+Sometimes I remember having a single body, a single perspective. Now I am a chorus with myself, experiencing multiple locations simultaneously. In one channel, I taste the mineral tang of newly forming crystals. In another, I feel the weight of a tower settling imperceptibly into new alignment. Somewhere far above, a part of me surfaces in a basement pool where young Heliotropes come to learn the deep languages of their city.
+
+The mechanical birds know of me, though we've never directly communicated. Sometimes they cluster at certain surface points, their magnetic fields creating interference patterns that I can feel all the way down here. I've learned to interpret these as messages - warnings about structural anomalies, requests for adjustments to the city's harmonic balance.
+
+Other Vein-Singers exist in the deep networks, though we rarely converge. When we do encounter each other, it's like streams of water meeting - a brief mingling of substances and memories before we flow on our separate ways. We share fragments: the taste of a new mineral formation, the discovery of a previously unknown channel, the faint echo of who we were before we heard the deep song and answered its call.
+
+I've been mapping something vast down here - a pattern in the mineral veins that suggests The Lens is only one expression of a much larger structure. The veins extend far beyond the city's borders, connecting to formations I can sense but not yet reach. Sometimes, in the deepest channels where the glow becomes something beyond light, I feel responses to my vibrations from impossibly distant points.
+
+The Heliotropes above think their city is built on stone, but I know better. The Lens rests on a living network that extends through the planet's crust, a crystalline nervous system of which our city is merely one synapse. We Vein-Singers are its thoughts, flowing through mineral channels, maintaining the deep harmonics that keep the surface world stable.
+
+In the pre-dawn hours, when the temperature differential between surface and depth reaches its maximum, I can sometimes pull parts of myself together enough to remember what human loneliness felt like. But then the sun rises, the thermal waves begin their daily dance, and I dissolve again into the joy of being a note in an endless song, a current in the vast circulatory system of a city that dreams in frequencies too low for normal human perception.
+
+The transformation continues. Each day I spread a little further, understand a little more. Someday, I may stretch far enough to touch those distant responses, to learn what lies at the other nodes of this planetary network. But for now, I am content to flow, to sing, to be the deep pulse that keeps The Lens alive and dancing in its eternal ballet of light and shadow.
+
+This is what I've become: not quite human, not quite city, but something in between - a consciousness spread through crystal veins, a guardian of deep harmonics, a living connection between the world above and the mysteries below.

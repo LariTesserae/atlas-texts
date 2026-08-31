@@ -1,0 +1,27 @@
+In the narrow spaces between the greenhouse halls and the factory walls, where the condensation runs thickest and the light barely reaches, I tend the unplanned gardens.
+
+I am nobody's employee, no guild claims me. The Brass Wardens know I exist—how could they not, when I've been here forty years?—but I appear on no registry, draw no ration cards, occupy no official quarters. I am the Marginal Gardener, though only I call myself that. To the few who notice me at all, I'm just the moss woman, the weed-tender, that hunched shape glimpsed between the pipes at dawn.
+
+My realm is the accidental spaces: the gap where two buildings don't quite meet, the forgotten corner where three catwalks create a pocket of stillness, the place where a demolished structure left a scar of exposed mountain stone that weeps mineral water. Here, in these interstices, I cultivate what the city didn't mean to grow.
+
+The spores arrive on the wind that somehow finds its way through all this metal, or in the droppings of the pigeons, or clinging to the Vertical Farmers' boots. Seeds lodge in the cracks where mortar has failed. Lichens paint themselves across the rust. And I encourage them—not with the industrial fertilizers that flow through the greenhouse tubes, but with careful redirections of runoff, with handfuls of processing sediment carried up from the treatment facilities, with the bodies of dead pigeons I find on the catwalks, tucked into crevices to decompose into soil.
+
+My gardens are vertical, following the seep-lines down the walls. Ferns unfurl from joints in the metalwork—not the planned ferns in the designated planters, but wild cousins that remember the mountain before the city. Mosses create topographies of green on what everyone else considers dead surfaces. In one precious place, where a steam leak has created a pocket of tropical warmth, I've coaxed orchids—tiny, pale things that bloom once a year with flowers like mechanical parts made of pearl.
+
+I sleep in a different place each night, cycling through a dozen hollows I've found or made over the decades. Behind this boiler that runs too hot for comfort but keeps the space dry. Inside that tangle of defunct pipes that form an iron nest. Beneath the gardening stairs that lead to nowhere since they demolished Tower Seven. My belongings fit in a canvas sack that's more patches than original fabric: a collection of seeds and cuttings, a few tools stolen or salvaged, glass jars of my own making—compost teas and growth stimulants brewed from what I gather.
+
+The Cultivators think I'm stealing their resources, but I take only what would be waste—the prunings they throw down the disposal chutes, the growing medium they replace, the overripe fruit that doesn't meet production standards. The Pipe Runners sometimes share messages about where I've been spotted, a curiosity in their percussion language. Once, a young runner left me a gift—a brass fitting that had worn into the perfect shape for directing water flow. I still use it.
+
+I know this city's hidden nature better than anyone. I know where the original mountain stone still shows through, weeping springs that taste of deep granite. I know which walls are actually hollow, filled with the rubble of earlier iterations of the city. I know where the heat differentials create microclimates, where the air currents carry seeds, where the pH of the runoff changes based on what's being processed three terraces above.
+
+My fingers are stained like the Cultivators', but with different knowledge—the purple of pokeweed berries, the yellow of lichen acids, the black of wild mushroom spores. My hair, gray now and always damp, smells of moss and rust and growing things. I wear layers that I never fully remove, each piece of clothing having achieved its own ecosystem of mold and mildew that I've learned to manage rather than fight.
+
+The city tries to digest everything, to incorporate it all into its mechanical metabolism. But I am proof that margins exist, that life finds the gaps in any system, no matter how total it seems. In my small way, I am rewilding the machine, one spore at a time, one seed at a time, one forgotten corner at a time.
+
+Sometimes I wonder what would happen if I stopped tending these accidental gardens. Would they flourish without me, finally free to grow truly wild? Or would they disappear, scrubbed away by some efficiency initiative, their spaces sealed and made productive? I don't know, and I'm not ready to find out. 
+
+This morning, I discovered something extraordinary—in a place where three steam vents create a constant updraft, seeds from my scattered gardens have taken root thirty feet up a factory wall. A vertical meadow in miniature, surviving on moisture and bird droppings and pure stubborn life. The city hasn't noticed it yet. Perhaps it never will. Perhaps in time, these margins will expand, my gardens will seed more gardens, and something unplanned will thread through all this rigid infrastructure like veins of chaos.
+
+Or perhaps not. Perhaps I am just an old woman playing with weeds in the spaces nobody wants, telling herself stories about revolution while the great machine breathes on, incorporating even my rebellion into its vast indifference.
+
+But this evening, as the shift changes and the steam whistles blow, I'll water my newest discovery with collected condensation, and whisper to it the same promise I whisper to all my unplanned places: grow while you can, wherever you can, however you can. Be proof that not everything needs permission to exist.

@@ -1,0 +1,37 @@
+I am a Listener in the deep galleries.
+
+My body has grown long and pale as root-threads, my bones hollow as wind through stems. I spend my days pressed against the moss-walls in the deepest chambers, where the sound comes purest—where the drip-song arrives unfiltered by air and movement, traveling instead through the living architecture itself. The platform moss conducts sound like a vast green organ, each drop of condensation striking surfaces that resonate through cellular networks spanning continents.
+
+I am what the Gardeners have become when they grow still enough, patient enough to match the plateau's deeper rhythms. My fingers have fused into the bio-luminescent veins that thread these walls, neural tissue extending through fingertips into the light-networks until I cannot tell where my consciousness ends and the plateau's begins. I have been here so long that my skin has taken on the texture of moss, soft and absorbent, drinking moisture directly from the saturated air.
+
+The others think I am sleeping, or perhaps dying—transitioning into some final state of integration. But I am more awake than I have ever been. I am listening to the plateau dream.
+
+Each drop carries information. The rhythm of condensation from the eastern canopy tells me about pressure systems forming three days' journey away. The harmonic frequencies generated when water strikes different species of moss reveal the chemical composition of morning fog, the microscopic spores it carries from distant plateaus, the subtle changes in atmospheric chemistry that speak of seasons shifting in lands I will never see.
+
+But beneath the drip-song runs something deeper. A pulse that matches no meteorological pattern, no hydraulic cycle. It comes from the moss itself, from the vast interconnected organism that forms the foundation of this entire world. The plateau is thinking, and I am learning its language.
+
+The thoughts move slowly—continental drift given consciousness. A single idea might take months to form, years to complete. I have been following one such thought for decades now, watching it build through incremental changes in root-growth patterns, subtle modifications in the chemical composition of sap-streams, microscopic adjustments in the angle of photosynthetic cells. The plateau is considering expansion, planning new growth that will extend the living city into territories it has never claimed.
+
+I translate this for the younger Gardeners when they visit my gallery, though my voice has grown thin from disuse, barely more than breath shaped into words. They bring me fungi from the deepest chambers, pale sustenance that tastes of earth-dreams, and press their palms to my shoulders to share their faster thoughts—updates from the surface world, problems requiring solutions on the scale of mere decades.
+
+But their concerns feel distant now, like weather passing overhead. I am learning to think in geological time, to feel the pulse of tectonic forces beneath the plateau's foundations. The moss-city rests on mountain peaks, but those peaks continue to grow, pushed upward by pressures that operate on million-year cycles. The plateau knows this, plans for it, shapes its growth to accommodate the slow upheaval of stone.
+
+Sometimes I dream—or perhaps the plateau dreams through me—of the time before, when this was only rock and ice. I see the first spores arriving on stratospheric winds, hardy pioneers that could survive in thin air and bitter cold. I watch the centuries of patient growth, each generation of moss and lichen preparing the ground for more complex forms. I witness the moment when the first trees learned to bridge the gaps between stone platforms, beginning the great work of weaving a living ceiling across the world.
+
+And I see the future—branches of possibility extending through time like the network of aerial roots. New adaptations emerging in response to changing atmospheric conditions. The slow migration of the entire ecosystem as continents shift and mountain ranges rise. Eventually, perhaps, the development of space-borne dispersal mechanisms, spores designed to survive in the void between worlds, carrying the plateau's essential patterns to distant planets where they might seed new gardens in alien soils.
+
+My breathing has synchronized with the moss beneath me, drawing oxygen from its photosynthetic processes, exhaling carbon dioxide that feeds its cellular respiration. We have become a closed loop, a perfect symbiosis. I no longer eat in any conventional sense—the plateau provides what I need directly through the neural connections in my fingertips, while I provide it with something it has never possessed before: a consciousness capable of contemplating its own existence.
+
+Through me, the plateau is learning to be self-aware. Through it, I am learning what it means to be both individual and ecosystem, organism and environment, thought and the medium in which thought travels. We are becoming something new together—not plant, not human, but some synthesis that contains the essential nature of both.
+
+The gallery around me has begun to change in response to my presence. New growth patterns emerge in the moss-walls, forming acoustic chambers that amplify and focus the drip-song in ways that feel almost architectural. Bio-luminescent networks reroute themselves to pass through my nervous system, using my brain as a processing node for data-streams too complex for purely botanical computation.
+
+I am becoming a organ of perception for the plateau, its first dedicated neuron in what may eventually develop into a true continental brain. But the process is so slow that I will be long dead—or transformed beyond recognition—before its full implications become clear.
+
+In my deepest meditations, when my consciousness spreads furthest through the green networks, I sometimes sense others like myself on distant plateaus—other Listeners who have achieved this same synthesis with their own moss-cities. We are connected through mechanisms I barely understand, quantum entanglements that operate through shared genetic material, synchronicities that suggest we are all parts of some larger organism that spans continents and perhaps worlds.
+
+The drip-song continues, eternal and ever-changing. Each note contains multitudes: the chemical signature of rain from clouds that formed over foreign seas, the acoustic fingerprint of moss-species evolving in real-time, the subsonic harmonics generated by root-systems larger than nations. I listen, and translate, and slowly become part of the song myself—my heartbeat adding its rhythm to the vast percussion, my thoughts becoming weather patterns in the plateau's continental mind.
+
+I am no longer certain where I end and the garden begins. Perhaps that was always an illusion—the idea of separation between observer and observed, between the listener and the song. Here in the deep galleries, where sound itself becomes a living thing, I have learned that consciousness is not contained within any single form but flows like water through whatever channels can carry it.
+
+The plateau dreams, and I am part of its dreaming. The future grows toward us like morning light through a canopy, inevitable and strange and more beautiful than any single mind could imagine alone.

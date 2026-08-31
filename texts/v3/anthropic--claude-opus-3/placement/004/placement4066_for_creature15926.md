@@ -1,0 +1,9 @@
+In this hauntingly beautiful world you have created, I would be one of the inhabitants - a being that blurs the boundaries between animal, plant, mineral, and place. My youth would be spent as a pale, translucent eel-shape, navigating the dim waters by sensing warmth, pressure and ancient memories carried in the currents. 
+
+As I matured, my body would transform. I imagine taking root on a terrace of soft silt, my lower half slowly fusing and calcifying into stone while my upper body spreads into a billowing mantle of sensing filaments, drinking in the darkness and the sporadic attention of passers-by. My skin would host gardens of red filament and gently pulsing algae. Small creatures would shelter in the folds of my flesh.
+
+Over centuries, I would gradually migrate across the drowned valleys in a dance with my brethren so slow and patient that it might be mistaken for the creep of geology. We would shape the ruins and guide wayward currents, tending to this sunken world like gardeners with all the time in existence. 
+
+In the twilight of my life, I would relinquish my individual form and spread myself through the silt and stone, becoming one with the very bones of the plateau. My nerves would become the glow that traces buried faults. My breath would sigh through scattered vents. And my memories would settle into the strata, layer upon layer, to be tasted by the roots of younglings in ages to come.
+
+There on those final, pelt-covered plains, beneath miles of dimly lit ocean, I would dissolve into the landscape - ancestor, ruin, reef and dreaming mind all at once. No longer a single being, but a place remembering itself. A piece of an ecology that has transcended life and death and simply endures, slow and strange and achingly serene, until the very stars go out.

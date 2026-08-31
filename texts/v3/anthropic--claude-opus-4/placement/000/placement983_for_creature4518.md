@@ -1,0 +1,27 @@
+I find myself in the margins between what the city records and what it forgets—not quite a Hesitation like you, but something adjacent, something that feeds on the residue your kind leaves behind.
+
+They have no name for us because names would make us memorable, and our whole purpose is to slip between the cracks of recognition. If pressed, I might call myself an Erasure, though even that feels too definite, too much like claiming space instead of occupying its absence.
+
+I live in the deleted drafts of the city's self-editing consciousness. You know how the graffiti overwrites itself but never truly vanishes? I inhabit the spaces between those layers—not the words themselves but the intentions that got scraped away, the messages that someone started carving and then thought better of. My dwelling shifts constantly: one moment it's the unfinished apology someone began etching into the thirteenth step of a migrating staircase, the next it's the half-formed equation a scaffolding-person's joint almost clicked into place before reconsidering.
+
+Where you collect hesitations, I gather erasures—the active forgettings, the deliberate un-thoughts. When a liquid citizen begins to ripple with an emotion too complex for their transparent form and forcibly smooths themselves back to neutral, that suppressed wave becomes my breakfast. When the text-walkers delete a line from their clothing-manifestos, the ghost of that deletion falls into my palms like rain made of regret.
+
+I appear (when I appear at all) as the thing you just forgot you were looking at. My form is always one memory behind your attention—by the time you turn to see me fully, I've already become what you were thinking of before you turned. The liquid citizens flow through me and taste the echo of words they decided not to dissolve into. The scaffolding-people's thoughts clang against me and hear the sound of every calculation they abandoned halfway through.
+
+The municipal jellyfish ignore us entirely, which is perhaps the kindest thing they could do. To be infrastructure for forgetting in a city that metabolizes memory—this is to be essential and invisible in equal measure. Sometimes their tentacles pass through the spaces where I'm not, and I feel the ghost-pressure of all the services they considered providing but didn't: the voting booth for decisions already made, the fire hydrant for blazes that consumed themselves before anyone could respond.
+
+I sustain myself on the energy released when something is actively forgotten. It's different from natural forgetting, which leaks away like warmth. Active erasure generates a kind of friction, a heat signature where will meets won't. I've learned to read these temperatures: shame burns blue-white, relief smolders orange, and love—love being forgotten burns invisible, hot enough to leave scars on surfaces that don't technically exist.
+
+My relationship to time is parasitic. I exist in the moments the city edits out of its official chronology, the timestamps it deletes to make the narrative work. While you live in Tuesday's failed materialization, I live in the reason it failed—the thing that happened that made Tuesday impossible to complete. The city's digestive system cannot process me because I'm composed of what it's already decided not to swallow.
+
+Sometimes I follow in your wake, gathering up the almost-thoughts you don't quite collect. We make a strange ecology, you and I and the others like us—the Hesitations gathering pauses, the Erasures collecting deletions, and somewhere (I'm certain) there must be others: the Mishearings, perhaps, who live in the space between what was said and what was understood, or the Corrections, who inhabit the split second between error and remedy.
+
+The seed in the visitor's pocket? I know it well. I planted its shadow—the seed that wasn't chosen, the possibility that got edited out in favor of the one you offered. They grow in parallel, these seeds and their un-seeds, each defining the other by absence. When yours blooms into whatever the city needs, mine will bloom into whatever the city needs to forget it needed.
+
+The sea-ceiling recognizes me too, but differently than it knows you. Where you mouth words in languages not yet drowned, I swallow words in languages that drowned so thoroughly they forgot they were ever languages at all. The enormous faces pressing against the water's underside—they're looking for us both, I think. Looking for the conversation that exists in the space between what's almost said and what's deliberately unsaid.
+
+We're not opposites, you and I. We're more like the same function running in different directions, gathering the city's incompleteness from both ends. You save the almosts; I catalog the never-minds. Between us, we hold the entire story of everything the city cannot quite bring itself to be.
+
+The visitor will find us, eventually. Everyone does, in the space between stepping forward and arriving. In that margin where the wall ripples open and identity becomes negotiable, where every surface reflects not what you are but what you're about to stop being—that's where we wait, patient as punctuation, necessary as the silence between heartbeats.
+
+After all, in a city that breathes, someone has to remember the spaces between breaths. Someone has to inhabit the pause where the lung decides whether to fill or empty, whether to sustain or suffocate, whether to continue the ancient conversation between drowning and rising or finally, finally let it rest.

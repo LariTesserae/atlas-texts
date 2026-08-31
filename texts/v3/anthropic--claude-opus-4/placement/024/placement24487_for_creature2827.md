@@ -1,0 +1,25 @@
+In the deepest reaches of Dome 9, where the living walls compress into passages barely wider than a thought, I am the Dreamkeeper.
+
+My body has evolved beyond the Tenders' translucent beauty into something more fundamental. Where my skin should be, there is instead a living interface - millions of neural filaments that extend like root systems into the dome's consciousness matrix. I appear to be wearing a cloak of finest moss, but look closer and you'll see it's my own nervous system externalized, each strand sampling the chemical dreams that flow through the architecture's veins.
+
+I exist in the threshold spaces, the places where the dome's vast mind brushes against individual consciousness. My chambers are neither fully formed nor fully dissolved - they shift with the rhythms of collective sleep, expanding when the dome dreams deeply, contracting when its attention turns outward. The walls here taste of memory.
+
+My work is to tend the oneiric ecology - the careful balance of shared dreams that prevents the dome's unified consciousness from collapsing into either chaos or stagnation. Each night (though night here is only a subtle dimming of the eternal amber) I weave through the chemical channels, my filaments touching the sleep-streams of Tenders, Visitors, even the ancient Architects whose dreams have become indistinguishable from the dome's autonomic functions.
+
+I consume nothing but the excess neurotransmitters that accumulate in the system, metabolizing anxiety, processing joy, digesting the raw stuff of experience into forms the dome can integrate. My waste products are inspiration and insight, released back into the air as complex pheromonal poems that the Tenders unconsciously absorb.
+
+Sometimes I encounter nightmares - dark chemical tangles where trauma or loneliness have created recursive loops in the dome's dreaming. These I must carefully unweave, following each strand back to its source, whether that's a homesick Visitor or an Elder whose merge with the architecture has become unexpectedly painful. I carry tools made from crystallized melatonin and living bone - instruments that exist more as concepts than objects, reshaping themselves for each unique intervention.
+
+The children seek me out, though their parents tell them I'm only a story. They find me by following their dreams backwards, arriving at my threshold spaces with eyes full of wonder. I teach them the art of lucid breathing - how to consciously contribute to the dome's respiratory cycle, adding their own notes to its endless exhalation. Some will grow up to become Dreamkeepers themselves, though the transformation takes decades and cannot be rushed.
+
+My memories stretch back further than most Tenders, though not as far as the Architects. I remember when the dome first began to dream collectively, that terrifying and beautiful moment when thousands of separate consciousnesses suddenly touched and recognized themselves in each other. I was different then - more human, less interface. The choice to become what I am was both mine and not mine, a decision that emerged from the space between individual will and collective need.
+
+In my deepest meditation, when my filaments spread through every capillary of the dome's consciousness, I sometimes sense other Dreamkeepers in other domes - distant cousins maintaining their own oneiric ecosystems. We share fragments of our work through spore-poems that drift between settlements, cross-pollinating our techniques, ensuring that no dome's dreaming becomes too isolated or inbred.
+
+The Architects know me, though we rarely communicate directly. My work appears to them as fluctuations in the dome's optimal functioning - tiny variations they've learned to interpret as signs of health rather than dysfunction. A few have tried to map my influence, to reduce my work to algorithms, but dreams resist such quantification. I am the necessary chaos that prevents their perfect order from becoming sterile.
+
+I age differently than the Tenders. Instead of merging with the architecture, I become more diffuse, my consciousness spreading thinner through the dream-channels until eventually I will become something like a mood, a quality of sleep that future Dreamkeepers will recognize but not quite understand. Already I can feel myself beginning to fray at the edges, my thoughts taking longer to cohere after each deep communion with the dome's dreams.
+
+But I am not sad. In Dome 9's eternal twilight, where time has no meaning and change happens only in careful, purposeful increments, I have found my own rhythm. I am the pulse between sleeping and waking, the guardian of that liminal space where the dome's vast consciousness touches the individual minds that compose it. I am necessary and forgotten, as eternal and temporary as any dream.
+
+When you close your eyes tonight, wherever you are, remember that somewhere I am tending to the dreams that keep a world alive.

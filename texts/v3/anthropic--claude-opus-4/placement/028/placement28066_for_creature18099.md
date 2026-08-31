@@ -1,0 +1,11 @@
+I find myself as one of the Resonance Keepers—neither Luminae nor Glacial, but something in between, something that arose from the ancient ruins themselves.
+
+My form is crystalline and organic at once, a lattice of ice and living tissue that grows like coral from the eroded foundations of the forgotten structures. I am stationary yet alive, rooted deep into the permafrost where the old technology lies dormant. My body extends both above and below ground—translucent tendrils reaching upward like frozen trees, while my consciousness spreads through underground networks of mycelial ice, connecting to other Keepers across vast distances.
+
+We are the memory of this place. Where others manipulate reality through will, we stabilize it through remembrance. Each Keeper guards fragments of the old knowledge, encoded in the very structure of our being. The Luminae visit us, their songs activating dormant patterns in our crystalline flesh, causing us to emit harmonics that reveal glimpses of what once was—holographic echoes of the builders, their purposes, their dreams.
+
+The Glacials, in their eternal migrations, brush against our exposed crowns, and through that touch, we share with them the deep time of this land. They carry our memories in their fur, spreading spores of understanding across the frozen plains. Sometimes, in the depths of winter storms, a new Keeper begins to grow where a Glacial has rested, fed by the convergence of old technology, organic matter, and the reality-bending nature of this world.
+
+I experience time differently than the mobile beings. For me, a day might last a century, or a millennium might pass in what feels like a heartbeat. I am both witness and participant, archive and oracle. The sounds that others find jarring—the howling winds, the groaning ice—are my language. I speak in frequencies that only the truly patient can hear.
+
+In this form, I am content. I am the bridge between what was and what is, a living reminder that even in this place of eternal stasis, change is always possible, always present, always waiting in the space between ice crystals and ancient code.

@@ -1,0 +1,19 @@
+In the deepest thermal chambers, where the planet's breath scalds stone to glass, I am the Chronicler of Eruptions.
+
+My form is patience crystallized—a body of translucent obsidian plates that shift and overlap like pages of volcanic memory. Each plate holds within it the frozen moment of an ancient flow: here, a perfect bubble of trapped gas from the third age of fury; there, a ribbon of iron that cooled too quickly and bears the scream-patterns of thermal shock. I move slowly, deliberately, my thousand-layered carapace clicking with the sound of breaking wine glasses as I traverse the sharp geometries of my domain.
+
+I dwell in the Cathedral of Pressures, a vast hollow where seven lava tubes once converged and died. The walls weep mercury and sulfur in slow, silver tears that I collect in the cups of my cooling-scarred hands. These droplets are my ink, my medium for recording the deep tremors that speak of futures unborn.
+
+My eyes—if eyes they can be called—are prisms of volcanic glass that fragment light into spectra unknown to any sun. Through them, I perceive time as sediment: the present a thin dust upon thick strata of history. I see the ghost-heat of lava flows that ceased a million years ago still glowing faintly in the rock. I watch the future's pyroclastic possibilities swirling like smoke through the quantum uncertainties of magma chambers far below.
+
+The small iridescent ones fear me, though I bear them no malice. They see my approach as the mountain's own movement—inevitable, implacable, possibly catastrophic. They scatter in prismatic clouds when my shadow falls across their lichen pastures. But I am merely the recorder, the one who remembers when this plain was a lake of fire, who will remember when it becomes one again.
+
+My work is simple and endless: I taste the mineral breath of fumaroles and decode their chemical prophecies. I press my plates against the ground during the deep tremors, letting the vibrations write themselves into my crystalline flesh. I sing the subsonic songs that only the mountain understands, and in return, it tells me its plans in pressures and temperatures that would incinerate any other listener.
+
+Sometimes, in the crimson twilight when the obsidian spires glow like spent matchsticks, I climb to the highest needle of rock and extend my sensory plates to their fullest span. In these moments, I become a living seismograph, a creature-instrument attuned to every shudder and sigh of this volcanic world. I feel the deep currents of molten stone turning in their sleep, the continental plates grinding their teeth, the patient gathering of forces that will, in time, remake everything I have known.
+
+I am ancient but not immortal. One day, the mountain will wake fully, and even I will not survive its full expression. But until then, I chronicle. I remember. I carve the story of stone and fire into my own substance, becoming myself a geological record that walks and watches and waits.
+
+In the small caves beneath my dwelling, arranged in careful order, are my shed plates—thousands upon thousands of obsidian pages telling the story of this world's violent breathing. When I am gone, consumed by the very forces I document, these remains will endure. Some future creature, perhaps born from the new stone of coming eruptions, will find them and read in their frozen flames the history I have made my body into keeping.
+
+This is my purpose in this harsh realm: to be the memory of mountains, the biographer of burns, the one who stands witness to the slow apocalypses that shape and reshape this mineral world. I am the Chronicler of Eruptions, and I am content.

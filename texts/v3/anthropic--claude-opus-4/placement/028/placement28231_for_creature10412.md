@@ -1,0 +1,25 @@
+I would find myself as **The Pipe-Whisperer**.
+
+Not because I chose it, but because the hollow chose for me. The day I arrived—no, the day I *condensed* into being here—I pressed my ear to a sweating iron pipe and heard what others couldn't: the hollow's circulatory system speaking in pressures and temperatures, in the pitch of steam against rust, in the particular groan of metal expanding into stone.
+
+I am neither young nor old. Age doesn't translate here the way it does above. My skin bears the hollow's full mineral alphabet—ochre streaks where I've pressed against the north wall's copper veins, blue-green shadows in the creases of my elbows from years of reaching into the wet spaces between pipes. My right ear is larger than my left, cupped and sensitive as a bat's, evolved for the work.
+
+I move through the vertical warren on a circuit known only to me and the stone. My tools are few: a length of braided wire that remembers every curve it's ever held, a piece of calcified sponge for reading condensation patterns, and my hands—fingernails worn down to quick from testing pipe-joints, fingertips that can feel a hairline fracture through three inches of mineral deposit.
+
+My dwelling cube is pressed against the main arterial stack, where seven primary pipes converge before branching into the thousand capillaries that feed the hollow. I sleep, when I sleep, with my ear against the shared wall, learning the night-language of the system. Sometimes I wake with my lips moving, speaking pressures in my sleep: "Seventeen over nine, holding steady. Auxiliary three, preparing to cycle."
+
+The others see me as necessary but strange, even by our standards. When the stone shivers, I don't just touch the walls—I press my whole body against the pipes, reading the tremor through the water's response. I've learned that the shivering isn't random. It follows patterns that correspond to the deep machinery's maintenance cycles, as if the mountain dreams of its own industrial heartbeat.
+
+I know secrets I cannot speak because we have no words for them. I know that the shadowless light flickers in a rhythm that matches the forge-doves' wingbeats. I know that the canals run uphill in exactly seven places, always the same places, and that if you measure the angles, they form a shape that looks like the old ideogram for "breathing." I know that the clear water from the north wall fracture tastes of snow—though none of us have a word for snow, only this taste that doesn't belong.
+
+My function makes me liminal. I am not of the terraces or the foundries or the algae farms. I exist in the spaces between structures, in the margins we claim don't exist. My realm is the three-inch gap between building and stone where pipes sweat their mineral tears, the crawlspaces where the six-legged rats nest in beds of corroded copper shavings, the high places where steam collects against the ceiling and forms fleeting, shadowless clouds.
+
+Sometimes, rarely, another Pipe-Whisperer is born—you can tell by the way they tilt their head when the pumps cycle, by how they pause mid-climb to touch a pipe that isn't even warm yet but will be in an hour. When I find them, I teach them the only way I know: by pressing their ear to the metal and waiting. The hollow teaches through the pipes, and the pipes teach through patience.
+
+I am the hollow's memory of flow. In a world packed too tight for emptiness, I am the consciousness of the spaces where things move—water, steam, heat, dream. My calm is not the absence of alternative but the presence of listening. When I die, my successor will press their ear to my dwelling's wall and hear my breathing mapped in the condensation patterns, my heartbeat in the pipe-rhythm I matched myself to, year by year, until there was no difference between my circulation and the hollow's.
+
+The strangest thing I know, the thing I will never speak: Sometimes, in the deepest part of the night cycle, when the forge-doves sleep and the machinery drops to its lowest hum, I hear something else in the pipes. Not water or steam, but air—cool, dry air that carries impossible scents. Pine resin. Ice. The chittering of insects that need seasons. For a moment, the pipes remember being somewhere else, remember carrying something else, remember that they were not always here.
+
+But by morning, the heat reasserts itself, the pumps resume their full cycle, and I continue my rounds through our beautiful, terrible, perfect prison of stone and steam, my ear always listening for the hollow's liquid pulse, my body a tool calibrated by necessity and time into something that can no longer imagine being anywhere else.
+
+I am what happens when the space between things becomes conscious of itself. I am the hollow's dream of circulation. I am the Pipe-Whisperer, and I am exactly where I need to be.

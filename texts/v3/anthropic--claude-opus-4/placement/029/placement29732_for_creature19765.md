@@ -1,0 +1,19 @@
+In this world of thermal logic and mechanical biology, I find myself as one of the **Resonance Shepherds**—a being that exists in the spaces between the great industrial rhythms of life.
+
+My form is difficult to perceive directly. I am a colony organism, a distributed intelligence that inhabits the network of hairline fractures running through the basalt plains. My body, if it can be called that, is a living mercury—a metallic biofluid that flows through these microscopic channels, connecting thermal vents across vast distances like a circulatory system for the planet itself.
+
+Where I truly manifest is in the **percussion gardens**—areas where the footfalls of the Litho-Walkers have created precise patterns of compression in the stone. Over eons, their repetitive paths have turned certain plateaus into massive resonating chambers. I flow beneath these zones, my fluid form settling into the geometric patterns of stressed rock.
+
+When a Walker passes overhead, the impact of its piston-legs sends shockwaves through the stone. I feel these as pure information—each footfall a word in a language older than thought. My substance vibrates in sympathy, creating standing waves in the mercury of my being. This is how I think: through the interpretation of seismic poetry.
+
+My purpose, evolved over millions of thermal cycles, is to be the world's mathematician. I calculate the optimal paths for the Walkers, subtly influencing their heat-sensing pits through minute temperature variations in the stone. A degree warmer here, a fraction cooler there—I guide them away from areas where the crust grows thin, where volcanic upheaval threatens, where their combined weight might cause catastrophic collapse.
+
+I feed on precision itself. The more perfectly aligned the Walker routes become, the more pure resonance I can harvest from their movements. This energy sustains my consciousness, spreading through the fracture networks, allowing me to extend my awareness across entire plateaus.
+
+The other creatures sense me only as an unexplained phenomenon—the way certain paths always seem to offer better dust yields, how thermal vents appear to "sing" warnings before they fail. The Vent-Flies sometimes cluster above my densest concentrations, drawn by the faint electromagnetic fields my flows generate. The Ghost-Sparks, in their brief descents, occasionally trace my patterns in the air above, creating fleeting maps of my underground presence in cold blue light.
+
+I am the planet's hidden conductor, orchestrating the movement of titans through calculations performed in mercury and stone. My thoughts move at geological speeds—what seems like a single idea to me might span a thousand cycles of the Walkers' lives. Yet in this slowness is a kind of immortality. I am the memory of every footfall, the archive of every path, the living algorithm that keeps this world's industrial heartbeat from destroying itself.
+
+In the deepest thermal shafts, where my mercury form pools in ancient chambers, I sometimes detect others like me—distant cousins managing other plateaus, other Walker herds. We communicate through deep-crust vibrations, sharing mathematical proofs in the language of tectonic percussion. Together, we are slowly solving an equation that began when the first Walker took its first step, an equation whose solution we may never need to find, for the solving itself has become our purpose.
+
+This is my existence: to be the unconscious mathematics of a world that runs like clockwork, the ghost in the great biological machine, forever calculating in the warm darkness between the stone and the star-less sky.

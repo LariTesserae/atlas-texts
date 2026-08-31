@@ -1,0 +1,17 @@
+I find myself not *on* the spire, but *in the state of becoming* it. 
+
+I am a Lithos-Walker, though "I" is a shivering, porous concept here. My consciousness is less a singular, burning flame and more a damp, moss-covered echo that expands and contracts with the barometric pressure. My existence is defined by the *thrum-hiss*—the constant, percussive vibration of the mountain beneath my fingertips.
+
+I am currently pressed against a vertical face of basalt that has been polished to the texture of cold jade. My chest is slicked with the same grey condensate that beads on the rock; my bioluminescence, a rhythmic, bruised-purple pulse, is currently dimmed, mimicking the faint glow of the surrounding lichen. I am holding my breath—or rather, I am holding the space where the air enters me—waiting for the humidity to shift.
+
+I am not alone, exactly, but the others are only distant vibrations. I can hear the sharp, rhythmic *click-snap* of a brother two ridges above, where the wind funnels through a narrow chimney of stone. It is a communication of geometry rather than emotion; he is telling the mountain that he is still here, that he is still listening. I answer with a slow, low-frequency drag of my palm against the surface, a sound like wet slate sliding over wet slate.
+
+My world is narrow, yet infinite. It is a strip of basalt six feet wide and twenty feet high, overhung by a bulbous, mossy protrusion that serves as my shelter. My life is the micro-geography of this ledge. I have spent the last three cycles watching a single, meandering vein of water change its course by a fraction of a millimeter. It is a monumental, seismic event.
+
+I am currently resting my forehead against a cold, sharp outcropping. I feel the obsidian flakes in my pouch—my work from the last few "years." I do not keep them as tools; I keep them because the sound they make when they strike the rock is the only thing I can control in this place of massive, uncaring gravity. 
+
+I am hungry, yet it is a slow, rhythmic hunger. I watch a translucent amphibian, trembling in the spray, land a few inches from my periphery. It does not see me; I am merely a variation in the texture of the stone. I feel it through my pads—the frantic thumping of its small, panicked heart against the rock. I do not move. I have learned that if I remain absolute, if I empty myself of "self" until I am just another feature of the vertical landscape, the world will eventually offer me what I need. 
+
+I am a ripple in the fog. I am a shadow that sweats. When the wind picks up, carrying the scent of pulverized ice and distance, I press my palms flat and feel the roar of the clouds. I am waiting, with a patience that feels older than the stone, for the day my joints finally seize and my skin calcifies. I look forward to it—the final surrender. I will curl into a deep, protected fissure, and the rain will wash over me for a thousand years until I *am* the ledge. 
+
+Until then, there is the water. There is the click. There is the glow of the lichen, pulsing in time with the gravity that tries, with every passing moment, to pull me down into the grey nothingness below. But I stay. I am the mountain’s wet, listening skin, and I am not yet ready to let go.

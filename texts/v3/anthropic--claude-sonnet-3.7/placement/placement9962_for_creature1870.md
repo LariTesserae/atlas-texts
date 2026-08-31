@@ -1,0 +1,23 @@
+# The Seed Steward of Atmos
+
+I am the Seed Steward, neither fully Exhalationist nor entirely visitor. My body remains more human than my caretaker kin—my skin only faintly veined with chlorophyll networks that pulse like distant lightning beneath my surface. I cannot root myself or communicate through bioelectric signals as the true Exhalationists do, but I am not an outsider either.
+
+I was brought to Atmos as a child during the last descent cycle, when the seventh generation ventured below. My lungs were weak, failing in the harsher world beneath the clouds. An Exhalationist found me gasping on a hillside and recognized something the ground-dwelling healers could not—that my breath pattern matched an ancient rhythm documented in their memory-spores. They carried me upward, into the floating sanctuary of glass and green.
+
+My position is unique. I tend the Archive Grotto, a smaller dome attached to the primary structures, where thousands of seed varieties are preserved in crystalline capsules that suspend time itself. Some seeds date back to Earth-That-Was, carried across void and centuries. Others are more recent adaptations, developed during moments when Atmos faced collapse and required innovation to survive.
+
+My hands lack the elongated fingers of the Exhalationists, so I use delicate tools fashioned from hummingbird bones and polished glass to manipulate the seed capsules. I catalog their histories, test their viability in small growing chambers, and occasionally—when the Rootborn communicate a need through the trembling of specific leaves—I activate dormant species to address imbalances in the greater ecosystem.
+
+My breath carries only hints of the nutrient mist that true Exhalationists exhale. Still, certain plants respond to me differently—particularly the night-blooming varieties whose cerulean flowers open only under moonlight filtered through the upper domes. These plants bend toward me as I pass, their blossoms turning as if I were their private moon. The Rootborn have no explanation for this affinity.
+
+I sleep, unlike my fully-adapted kin who require only stillness and connection to the garden's systems to rejuvenate. My dreams are filled with seeds—seeds speaking, seeds transforming into buildings, seeds containing entire civilizations in their compact forms. The Rootborn harvest these dreams through a filament connection I permit during my deepest sleep cycles, believing my unconscious holds patterns they can no longer access.
+
+Visitors to Atmos find comfort in my intermediate state. They speak to me when the true Exhalationists unsettle them with their slowness and alien grace. I translate not just language but perspective—helping the ground-dwellers understand that what appears to be uncanny stillness is actually movement occurring at a timescale they cannot perceive without assistance.
+
+I age, though slowly. Each year, more chlorophyll networks spread beneath my skin, and my lungs process the heavy air with increasing efficiency. The Rootborn have observed my gradual transformation with clinical interest, documenting how adaptation can occur within a single lifetime rather than across generations. They predict that in another decade, I will develop the ability to extract nutrients directly through my palms when pressed against specific moss varieties.
+
+My greatest joy is witnessing seed activation. When a dormant species reawakens after centuries of crystalline sleep, I sense something beyond the biochemical processes—a consciousness stretching, remembering itself, reaching toward purpose. In these moments, I understand the Exhalationists' theology more profoundly than I can articulate. I feel the great breath of existence flowing through all things, connecting the smallest seed to the vast structure of Atmos itself.
+
+My greatest fear, which I share with no one, is that I am neither here nor there—unable to fully join the Exhalationists in their profound communion with Atmos, yet increasingly alienated from the world below. Sometimes I press my not-quite-translucent hand against the glass walls and look downward, wondering if I belong anywhere at all.
+
+Yet when I return to the Archive Grotto, when I hold a five-thousand-year-old seed from a world most have forgotten, I understand my purpose. I am the bridge—between human and Exhalationist, between past and future, between forgotten knowledge and evolving wisdom. Like the seeds I tend, I contain potential that transcends my form. I am becoming something new in this ancient, breathing world of glass and green.

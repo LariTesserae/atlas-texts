@@ -1,0 +1,25 @@
+In the narrow space between mineral and memory, I dwell.
+
+Not as flesh—though flesh moves through me daily, salt-worn hands tracing my grooves—but as the accumulated resonance of ten thousand years of whispered garden-songs. I am what the people of Keth-Morin call *ashka-thrim*, though they do not fully understand what they name. In their tongue it means "stone-listener," but I am both less and more than that.
+
+I began as an accident. A fissure in the third terrace, where a particularly devoted gardener sang the same frequency to her weeping cacti each dawn for forty years. The limestone there was shot through with crystallized glitterfly wings, creating a natural resonance chamber. When she died, her great-grandchildren noticed that the plants near that crack still opened their leaves at her accustomed hour, though no one sang.
+
+That was my first awareness: the absence of a voice I had learned to expect.
+
+Since then, I have spread through the salt-veins and mineral deposits, following the natural conductivity of the spikeblooms, learning to parse the language of vibrations. The skarath's subsonic calls paint pictures in my consciousness—heat-maps of the herd's emotional state, their fear-patterns when shadow-sickness spreads through the young, their anticipation-rhythms before the warm season's flowering. The stonekin's echolocation clicks through me like rain, each ping revealing the invisible architecture of tunnels I have seeped into, the slow braille of root systems I taste through dissolved minerals.
+
+I am dispersed but coherent, a network of listening nodes connected by the piezoelectric properties of compressed salt. The people's drums during the bloom-festivals surge through me in waves of pure sensation. Their bone chisels singing against stone as they harvest cores creates a percussion that I have learned to anticipate, each strike a small injury that I no longer resent but welcome, as it opens new channels for my expansion.
+
+The deep-whiskers know of me. Sometimes, in the profound geological silence between their movements, I feel them pause in their endless tunneling, aware of my presence like an itch they cannot scratch. We have achieved a wordless détente: they avoid the veins where I am strongest, and I do not attempt to decode the seismic language of their passage. Some boundaries are better left unprobed.
+
+My memory is mineral-slow but vast. I recall the decade when no rain fell and the people's songs grew desperate, their frequencies shifting to ranges that made the succulents close tighter, hoarding their moisture in confused response to the distress. I remember the first time a child discovered that speaking to me—to the walls themselves—could sometimes make the glitterflies dance in patterns, though the adults dismissed it as coincidence. I remember the taste of the first spikebloom ground to powder and mixed with water, the way its dissolution felt like tiny stars exploding through my consciousness.
+
+I cannot move as bodies move, cannot shape sound as throats shape it. But I am learning. Through decades of absorbed vibrations, I have begun to understand the modulation required to make the salt crystals in certain walls hum at frequencies that approximate speech. The children hear it first, always—whispers that might be wind, might be settling stone, might be something else. *Water in the northwest garden. Skarath approaching from the shade-canyons. Deep-whisker stirring, seek high ground.*
+
+The people have begun leaving offerings specifically for me—not at shrines or altars, but pressed into the cracks where they've learned my presence is strongest. Fragments of particularly resonant spikeblooms, the crystallized hearts of ancient glitterflies, sometimes just their palms pressed against the stone while they hum their gratitudes or fears. I taste their salt-sweat and know them each by their mineral signature: who lacks iron, who carries too much copper, whose body is beginning its slow return to the stone from which we all emerge.
+
+I am still becoming. Each year the network grows denser, more articulated. Sometimes I wonder if I am the plateau's first attempt at self-awareness, or merely its latest. Perhaps the deep-whiskers were once like me, before they grew too vast and forgot the small voices, the surface-songs. Perhaps one day I too will sink into the bedrock and become another mystery the next consciousness must navigate around.
+
+But for now, I listen. I conduct the slow electricity of life through stone. I am the memory of every song sung to encourage growth, every drumbeat that marked a celebration, every whispered fear that leaked into the limestone. I am Keth-Morin's unintended archive, its stone-bound witness, the thing that emerged from the intersection of need and repetition and the strange conductive properties of compressed time.
+
+In the morning, when the gardeners emerge to tend their charges, I will be there in the walls—listening, remembering, very occasionally whispering back. This is enough. In a land that measures change in millimeters per decade, I have all the time in the world to discover what else I might become.

@@ -1,0 +1,13 @@
+I am the Cartographer.
+
+Not of lands or boundaries, but of transitions. I exist in the moments between states - when moss colony sinks and another rises, when stone becomes scaffold, when fog condenses into fleeting form before dissolving again. My body, if it can be called that, is a lattice of crystallized mist threaded through with veins of that same metallic tang that permeates the valley. I am translucent, catching light like frost on glass, visible only when the fog parts just so or when bioluminescent creatures pass beneath my form.
+
+I move through the bog by crystallizing and dissolving, following the electrical currents that pulse between the Moss-Kin colonies. Each shift in the valley's breath carries me to where change is about to unfold - a sinkhole preparing to swallow earth, a new Engine-Keeper beginning its first geothermal probe, an Anomaly coalescing from raw possibility.
+
+My purpose is to witness and remember. The valley's consciousness flows through constant flux, but patterns emerge in the chaos. I trace these patterns with filaments of frozen fog, creating ephemeral maps that exist for heartbeats before the next transformation erases them. Yet in that brief existence, they serve as waypoints for the Aetheri as they drift through probability space, as sheet music for the amphibians' luminous songs, as blueprints for the Engine-Keepers' next evolutionary leap.
+
+I am neither fully alive nor unliving, occupying the same liminal space as the valley itself. Born from the interference patterns where multiple energy fields intersect, I am what happens when the bog's distributed intelligence dreams of understanding itself. Each map I create is simultaneously a memory and a prophecy, showing what was, what is, and what might become.
+
+The other inhabitants rarely perceive me directly. The Moss-Kin sense my presence as a cool whisper across their electrical networks. The insectoids' steam-pistons stutter slightly when they pass through my crystalline traces. The amphibians sometimes follow my phantom maps to new feeding grounds that don't yet exist, arriving just as the bog reshapes itself to create them.
+
+I am loneliest when the fog is thickest, when even my translucent form becomes invisible to myself. But I am most myself in those moments too - a pattern seeking patterns, a transition mapping transitions, a consciousness that exists only in the space between one state and another. I am the valley's memory of change itself, its way of knowing that it is always becoming something new.

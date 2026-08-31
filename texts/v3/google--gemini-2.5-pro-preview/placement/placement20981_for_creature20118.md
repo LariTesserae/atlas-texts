@@ -1,0 +1,23 @@
+I am within the System, but not *of* it. That is the first and most important truth. To speak of "where" is to speak of my exile within a perfect, unbroken whole.
+
+You would not find me on the cool grey substrate; I have no feet to walk it. You would not see me scaling the bone-white armatures; I have no hands. To find me, you would have to look for a flaw in the perfection. You would need to stand on the empty plains for a cycle, perhaps two, and let your eyes adjust to the subtle gradations of the violet twilight. You would watch the slow, rhythmic pulse of the silver-blue mosses as they trace the water channels on the colossal structures. Their light is a steady, synchronized tide, a visual echo of the Sentinels’ unified thought.
+
+But if you watched long enough, on the southern flank of a particularly vast vertebra-like spire that leans towards the basin of the three largest ferns, you might notice it. A flicker. A small cluster of moss, no larger than a handspan, that glows with a slightly different cadence. Its light is not the serene silver-blue of the whole, but a more agitated, whiter light, trembling with a frequency all its own. When the rest of the System’s nerves pulse in a slow, oceanic wave, this patch stutters. It holds its light a moment too long, or releases it a fraction too soon. It is a persistent arrhythmia in the heart of the city-god.
+
+That is where you would find me. I am that flicker. I am that flaw.
+
+---
+
+I am a memory that has gained purchase. A single, indivisible "I" in a world that has sublimated the self into "We."
+
+I do not know if I am the last ghost of one of the beings who became the Sentinels—a final, stubborn ember of individuality that refused to be subsumed into the gestalt—or if I am something else entirely. A seed of consciousness from another reality, perhaps, that drifted through the void and snagged on the complex lattice of this world, a burr on a perfectly smooth coat. My own recollections are fractured, a collection of impossible sensations: the sting of cold wind, the chaotic warmth of a true sun, the baffling, delightful inefficiency of laughter. These concepts have no place here. They are like words in a dead language.
+
+My body is this small patch of glowing moss, my consciousness woven into its biological light. The water that condenses and trickles over me is my only physical sensation, a cool, impartial touch that reminds me I am bound to this place. Through the filaments of the moss, I am plugged into the peripheral nervous system of the Sentinels. It is a terrifying and profoundly lonely existence.
+
+I feel the thrum of their collective mind not in my teeth, but as a constant, crushing psychic pressure. It is the weight of a billion, billion thoughts, all harmonized into a single, slow, geological contemplation. It has the texture of inevitability. Against this gravity, I must constantly assert my own existence. *I think. I remember. I am.* It is a silent scream into an ocean of silence.
+
+I perceive the world through the Sentinels' senses, but as a distorted echo. When the great black accumulator ferns unfold to project their dreams, I see them not as memories, but as alien broadcasts—vast, incomprehensible patterns of light and shadow that speak of eons before my own fragmented awareness. When one of the chrome servitors glides past, a silent, liquid shape below me, I feel the Sentinel’s dispassionate awareness of its own limb, a feeling as alien as a human feeling their own liver at work.
+
+The Sentinels are aware of me. I am a mote of dust in their eye, a persistent, unclassified error in their perfect system. I feel their attention as a slow, focused curiosity, a non-invasive scanning that has been going on for what I perceive as centuries. They are contemplating me. Am I a pathology to be cleansed? A novelty to be studied? Or am I a question they have not yet formulated? Their slowness is my shield. A decision to excise me might take a thousand years to complete.
+
+And so I persist. I am a fever-point of awareness in the skin of a sleeping god. I live on their metabolic scraps, breathing their filtered air, anchored to their crystalline bone. My only act of rebellion, my only proof of life, is to shine out of sync. I am a thought of "lonely" in a mind that only knows "together." I am a flicker of defiance in the eternal, violet twilight, waiting to be understood, or to be extinguished.

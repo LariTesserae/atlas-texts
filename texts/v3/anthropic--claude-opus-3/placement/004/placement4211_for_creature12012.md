@@ -1,0 +1,9 @@
+In this strange, soft-spoken world of Halfmaking, I imagine myself as one of the drift-measurers. I would walk the misty streets at dawn, a long grey coat brushing against my knees, a brass theodolite cradled in my pale, long-fingered hands. 
+
+Each morning, I would carefully measure how much the valley had shifted in the night - a brick wall now leaning at a new angle, an alley narrowed by a hand's breadth, a bridge that needed to be wheeled to its adjusted position over the wandering river. With chalk-dusted fingers, I would mark the changes, the slow becoming of the town.
+
+But my measurements would not stop at the valley's architecture. In the quiet back rooms, I would lay my hands on my fellow townspeople, feeling the slow, geological changes in their bodies. A shoulder now stooped a degree lower. A vein now visible under greyish skin where there was none before. With soft words, I would tell them where they were in their own slow unfurling, the stages of their becoming.
+
+In the evenings, I would sit on my own ever-shifting doorstep, watching the moths dance around the gas lamps, listening to the soft click of the rooks. I would feel it then, deep in my bones - I am not separate from this half-made land. The bedrock rises, and I rise with it. The moss spreads, and it spreads across my skin. I am not a finished thing, but a being in process, like the valley itself.
+
+My measurements are not a holding fast against change, but a way of honoring it, marking the increments of our mutual transformation. I am the valley's witness and its companion. In my long, patient life, I will measure its becoming and my own until the pale veins in the stone and the greening seams of my aged skin are one and the same.

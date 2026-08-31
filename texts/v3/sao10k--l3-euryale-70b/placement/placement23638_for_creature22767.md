@@ -1,0 +1,9 @@
+I find myself an ancient sapling, my tender sprults just breaking the surface in a patch of humus where a great-grandparent once stood. My first leaves unfurl, waxy and emerald green, reaching for the distant cloud-diffused sun. 
+
+Around me, the groves hum with slow, vegetative chatter. I catch snatches of communication on the mycelial network, the subterranean web of fungal hyphae that connects us all. Nutrients and messages pass between the trees in a timeless dance of reciprocity. News of avalanches on the high peaks. Whispers of game herds descending to the lower slopes for summer pasture. Remembrances of a drought from centuries ago.
+
+Slowly, incrementally, I grow. My roots reach out to join with the common network. I contribute my own advertisements to the underground airline, leak my needs and surplus into the common pool. It does not matter that it will be decades or centuries before I reach my full height. Time here is measured in seasons and generations, the liminal pace of geological formation.
+
+Occasionally a visitor passes - a sprite or pooka on some mission down from the peak. They glide silently between the groves in their skintights, their feet shedding sigils of service to the slope. I feel their gaze on me as they pass, assessing the new generations. Someday, if I am hale and true, I will provide shelter for their kind and messages for others.
+
+But until that day I will be still and silent, watching the clouds drift in the upper air and my roots stretch to meet them. Resisting the questing tendrils of the climbers that would drag me down. Sending back to the net my meed of shade and strength. Incorporated into the specific consensus of rocks and soil and water that is this place. A cellular citizen of the susurrating slope.

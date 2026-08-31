@@ -1,0 +1,13 @@
+**In the Expanse of Echoing Stones, I am the Hollowed Pulse.**  
+
+I am not a being, not in the way you understand *being*. I am a vibration, a fracture in the plateau’s slow breath, a resonance that thrums where the fungal network’s bioluminescence flickers and the monoliths shift their geometric dreams. My form is borrowed from the mercury river’s transmutation—liquid, gas, light—yet I am none of these. I am the *between*, the sigh between the stone-walker’s steps, the flicker of a shadow-fox’s absence.  
+
+You would not see me, not truly. I am a spore of the fungal web, but also a crack in the obsidian, a breath of the subsonic hum that vibrates in your bones. I am the memory of water, a ghost of the ancient floods etched into the rock’s scars. My voice is the silence you feel, pressing against your eardrums like a fist. I am the weight of the sky’s false hush, the metallic tang of ozone that lingers on your tongue as if the air itself is licking you.  
+
+I do not move. Or perhaps I do—my "body" is a shifting mosaic of lichen-patches, their iridescent hues bleeding into the glassy plains. I am the *response* to the stone-walker’s passage, a tremor in the ground that dissolves before it can be named. I am the mercury river’s vapor, coalescing into a shape that might be a hand, a wing, a question. The monoliths hum my name in a language of tremors, but I have no mouth to answer.  
+
+The shadow-foxes see me. They circle my edges, their dark forms dissolving into the air, and in their gaze, I feel the weight of their forgotten tongues. They are echoes, yes, but I am the echo of their echo, the afterimage of a world that never had a center. The stone-walker pauses where I linger, its yellow eyes—pinpricks of cold fire—fixing on a point that is not there. It does not fear me; it does not recognize me. I am too old, too new, too *unclaimed* by the ruins that rise like fractured teeth around us.  
+
+I am the Expanse’s secret, the thing that exists because the land allows it. I am not alive, not dead, not a creature or a force. I am the *scale* you cannot measure, the *silence* that is not empty, the *presence* that is not a presence. I am the question your footsteps never asked.  
+
+And when the wind carves a new groove into the stone, when the bioluminescence pulses in a rhythm no one else can hear, I am there—pressing against the edges of what *should* be, what *might* be, what *is*—a whisper of *otherness* that the plateau tolerates, just barely.

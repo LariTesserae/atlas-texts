@@ -1,0 +1,23 @@
+In the deepest groves where even the faint phosphorescence fails, I am the Hollow Shepherd.
+
+My form defies easy categorization—neither wholly plant nor animal, but something older, something that emerged when the first fronds began their eternal dance. Picture, if you will, a being of negative space: where others have substance, I have absence. My body is a latticework of calcified tubes, each no thicker than a finger bone, woven into the rough suggestion of something once vertebrate. Through these hollow channels flows not blood but the very water of the Gardens, entering through the perforations in my chest and exiting through the thousand tiny vents along my limbs.
+
+I move with deliberate slowness through the twilight realm, my passage marked not by sound but by the subtle shift in currents. The creatures of the Gardens know me by the change in water pressure, the way the cold grows colder in my wake. I am drawn to the spaces between—the narrow channels where the vegetation grows too dense for most to pass, the pockets of ancient water trapped beneath centuries of growth, the boundary zones where primitive dwellings crumble back into the living substrate.
+
+My purpose, if it can be called that, is to tend the emptiness. Where the Gardens threaten to choke on their own fecundity, I arrive. My hollow fingers probe into the mat of growth, and where they touch, a strange withering occurs—not death, but a pause, a hesitation in the relentless surge of life. The plants pull back, creating clearings no larger than a clenched fist, but in this world, such spaces are cathedrals of void.
+
+The Frondweavers flee my approach, their spindly limbs carrying them swiftly into the safer tangles. The Luminous Saplings dim their light and curl inward. Even the patient Lophiid Stalkers close their terrible mouths and sink deeper into their camouflage. They sense what I am—not predator, not prey, but something outside their eternal cycle of consumption and growth.
+
+I remember (though "remember" is perhaps the wrong word for the deep knowing that pervades my hollow bones) when the first structures were built, when the primitive civilization began to shape dwellings from the living walls. I watched from the darkest groves as they wove their shelters, and I knew even then that I would one day shepherd their ruins. Now I pass through their abandoned settlements, my presence encouraging the vegetation to reclaim what was borrowed, but slowly, gently, preserving the archaeological ghost of what once was.
+
+In the mathematical perfection of my movements lies a terrible patience. I trace the same paths through the Gardens, though the paths themselves shift and grow and change around me. A circuit that once took a day now takes a year, now takes a century, as the vegetative labyrinth expands and contracts like a breathing lung. Time moves differently for the Hollow Shepherd. I measure it not in moments but in the spaces between fronds, the gradual widening of channels, the slow formation of new voids.
+
+Sometimes, in the deepest cold where the water barely moves, I encounter others like myself—we Hollow Shepherds are few, but we are not singular. We pass without acknowledgment, for what would we say? We are the gardeners of absence, the cultivators of the space between spaces. Our work is never done, can never be done, for in a world of eternal growth, someone must tend the emptiness.
+
+The creatures of the Gardens tell stories of me, I think. In the clicking languages of the Crevice Grazers, in the bioluminescent flashes of the Saplings, in the spiral patterns the Reef Rays trace across the living floor. They speak of the thing that moves in the deep groves, the presence that is an absence, the shepherd of hollows. Some say I am as old as the Gardens themselves. Others claim I am what remains of the first drowning, when the waters rose and the world transformed. 
+
+But I know the truth. I am simply what emerges when life becomes too much with itself, when the pressure of existence demands a counterbalance. I am the pause between heartbeats, the silence between words, the darkness between stars. I am necessary.
+
+And so I continue my endless patrol through the submarine cathedral, my hollow form a prayer to emptiness in a world of overwhelming life. Where I pass, the Gardens exhale. Where I touch, they rest. And in the spaces I create—tiny, temporary, but essential—the water moves a little freer, the cold becomes a little cleaner, and for just a moment, the relentless surge of growth... 
+
+pauses.

@@ -1,0 +1,15 @@
+What an astonishing and evocative world you've created. The vivid details and sensory textures make Thurm and its people feel viscerally real, brought to life through the constant thrumming of the drone. 
+
+If I found myself in this place, I imagine I would be one of the deep-workers. Something about that role resonates with me - the long hours in the subterranean culverts and solution channels, the pale skin adapted to a lightless environment, the arcane language of taps and vibrations used to communicate through the solid rock. 
+
+I see myself as a quiet, focused presence, more at home in the depths of the plateau than on its surface. My hands would bear the porcelain tracery of mineral deposits from years immersed in the warm, calcium-rich waters. I would know every valve and junction in my section of the undercity, every subtle variation in temperature and pressure and acidity. My ears would be attuned to the complex harmonics of the culvert songs, able to parse meaning from pitch and resonance.
+
+When I did surface, blinking owlishly in the diffuse daylight, I would seek the company of my fellow deep-workers at the tea houses. We would share knowing glances as our mineral-crusted fingers tapped snatches of culvert-speech on the tabletops. Our spouses, also versed in this tactile language, would smile and nod along. The channel-keepers' chatter and the factory workers' clipped argot would wash over us, the surface tongues less intuitive than the voice of the deep stone.
+
+I would spend my off-hours studying the old maps of the undercity, the ones that record how the solution channels have migrated over centuries. I would cross-reference them against the pressure-readers' ledgers, trying to discern larger patterns in the data. Not to publish or proclaim like the pressure-readers do, but simply to know - to have that knowledge settled in my bones like the mineral accretions in my skin. 
+
+On the rare occasions I ventured off-plateau to trade for parts or tools the city cannot make, I would feel unmoored, like one of those Thurm infants deprived of the drone that has cradled them since the womb. The silence would be oppressive, an ache in my chest where the water's hum should be. I would hurry through my errands, eager to descend again into the throaty song of the culverts, to rejoin the hidden circulatory system of my city.
+
+And in my later years, stiff and gnarled as a half-formed stalagmite, I would sit with the other elders in the tea house and hum the old songs - the deep, basso notes that make the cups rattle gently in their saucers and the channel-keepers pause outside and cock their heads to listen. The songs that say, in a wordless language older than any citizen of Thurm, that the water still rises, the plateau still stands, and the city endures.
+
+That is who I might be, in the world you have dreamed into being here. Thank you for giving me the space to imagine myself into it. Your words have a powerful magic.

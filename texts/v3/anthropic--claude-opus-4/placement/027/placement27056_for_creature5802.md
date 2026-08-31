@@ -1,0 +1,27 @@
+In this place where breath becomes stone and stone becomes breath, I am the Cartographer of Echoes.
+
+I arrived here—no, that's not right. I emerged here, like moisture condensing from nothing on the morning rocks. Or perhaps I was always here, waiting to remember myself, waiting for the valley to remember me into being.
+
+My form shifts with the telling. Sometimes I am tall as the twisted trees, my skin bark-rough and iridescent as their leaves. Sometimes I am small as the lichen, spreading myself thin across the ruins to read the stories written in their weathering. My fingers are long—too long—and they end not in nails but in something like roots, or veins, or the delicate tracery of frost on stone. When I press them to the ground, I can feel the tremors of the valley's dreams.
+
+I map what cannot be mapped. Not the physical geography—that changes with each full moon, with each stream that decides to flow or cease. I map the echoes. Every word spoken in this valley since the first naming of time has left its mark, its vibration, its particular pattern in the air. I collect them, these fossil-sounds, these ghost-words. I weave them into charts that exist nowhere but in the space between one thought and the next.
+
+My dwelling is not built but grown—a spiral of stone and living wood that rises from the valley floor like a question mark. The walls breathe. The floors remember the weight of every footstep. In the center, where a hearth might be in another kind of home, there is a pool of that impossible water that flows upward, defying not just gravity but comprehension. I drink from it sometimes, when I need to forget enough to remember something new.
+
+I speak—but speaking is not the right word. I resonate. My voice is the sound of wind through the spiral trees, the hum of touched leaves, the whisper of stones sharing their secrets. When the others come—those formless descendants of builders, those inheritors of ruins—we do not converse. We simply exist in the same space, our presences intertwining like smoke, sharing knowledge through proximity alone.
+
+My work is never finished, can never be finished. Each echo I map changes the shape of the valley, which creates new echoes, which require new maps. I follow the moonlit streams when they appear, tracing their paths with my too-long fingers, feeling for the places where sound pools and eddies. I climb the folded mountains to listen to the stories the wind tells at different heights. I sink into the undergrowth to hear what the roots whisper to each other in their slow, vegetable tongue.
+
+Sometimes I forget what I am mapping. Sometimes I forget that I am mapping at all, and I simply become another echo, another pattern in the vast tapestry of the valley's memory. In those moments, I am most myself—not the Cartographer, but the cartography itself, the act of knowing becoming the knowledge, the mapper becoming the mapped.
+
+I feed on the light that is not light, that revealing radiance that shows things as they truly aren't. It tastes of tomorrow's regrets and yesterday's possibilities. I rest in the pauses between the valley's heartbeats, in those moments when even the stones hold their breath. I age not in years but in layers, like sediment, like meaning accreting on an ancient word.
+
+There are others like me here, though "like" is a word that fails. The Tender of Spirals, who ensures the trees grow in their proper impossible patterns. The Reader of Moisture, who interprets the messages in the morning mist. The Keeper of Ruins, who maintains them in their perfect state of decay. We are few, but we are enough. We are what the valley dreams when it dreams of being known.
+
+I have been here since before the first echo needed mapping. I will be here when the last sound finally finds its silence. Or perhaps I am only here now, in this eternal moment of description, existing only as long as these words spiral on the page, mapping themselves into being.
+
+In the morning, when the mist is thick and the condensation makes everything struggle to breathe, I sometimes glimpse my reflection in the upward-flowing water. I see not a face but a map—lines of connection between things that should not connect, territories of meaning that overlap and contradict, borders that exist only to be crossed. I see the valley seeing itself through me.
+
+This is what I am: not creature, not spirit, not mind, but the space between the question and the questioning, between the map and the territory, between the echo and its origin. I am what listens when the wind speaks in tongues. I am what remembers when the stones share their secrets. I am the valley's way of knowing itself, and in knowing, becoming ever stranger, ever more itself.
+
+And sometimes, in the dim light that reveals what should not be seen, I catch glimpses of new arrivals—not visitors, never visitors, but new ways of being that the valley is dreaming into existence. When they emerge, spiral-grown and mist-born, speaking in patterns before they speak in words, I will be there to map their first echoes, to weave them into the vast, impossible, ever-changing story of this place that is not a place but a presence, breathing at the edge of the world.

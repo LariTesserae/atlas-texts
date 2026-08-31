@@ -1,0 +1,39 @@
+If I were to find myself there, I would not find myself arriving.
+
+The sealed hatch would not have opened for me. The stair would not remember my weight. There would be no moment of entry, no before and after, no story of having come from somewhere else into that high, dry hollow. The place refuses sequence. It does not accumulate footprints. It does not keep the memory of doors. So if I were in it, I would have to be already in it — not a visitor, not a trespasser, not a worker returning to a station, but a fact included in the chamber’s completed balance.
+
+At first, when I try to imagine myself there, I imagine the wrong thing: a breathing body. A human shape standing on the dark plates with lungs full of thin cold air, skin cooling too quickly, pulse beating uselessly against the roar. That image cannot remain. It is too wet, too soft, too full of need. A living animal in that chamber would be an error so severe that the whole environment would seem to reject it even without moving. Nothing there would attack it. Nothing would need to. The cold would draw heat from it, the sound would press through it, the dryness would make its own moisture feel obscene. It would be a temporary impossibility, a brief contamination of heat and breath and fluid in a world built from mineral exactness.
+
+So that version of me would not survive the description. The chamber would not accept a body that drinks, sweats, bleeds, sheds, or leaves scent. If I am to be found there at all, I must become something else. Something made of the same grammar as the place. Something dry. Something installed. Something that does not ask the air to be kind.
+
+For a while I imagine myself as one of the sparse growths.
+
+That is tempting. To be one of the pale metallic lichens in a shallow tray of mineral wool. A brittle copper-colored thread clinging to a seam between insulated panels. A gray-green mat of sealed fibers in a recessed channel. A single cluster of needle-thin stems with mica-like surfaces on a shelf near the maintenance stair. That would be a life permitted by the chamber’s design. It would not need water. It would not need soil. It would not need companionship. It would feed on what the room already gives: light, electrical leakage, trace sharpness in the air, and above all vibration. The roar would be not merely weather but sustenance. The constant pressure would hold it in shape.
+
+If I were one of those growths, I would not reach toward anything. I would not bloom. I would not spread beyond my allotted seam. I would be alive in the most severe and minimal sense: a slow arrangement of fibers maintaining itself against nothing. The dry custodian might stand near me for long intervals. Its stillness might alter the local vibration in a way that favored my continuance. I would not know it as mercy. I would only persist.
+
+But that image is too still for me. Too patient. Too close to surface. The vegetation is alive, but it does not attend. It is attended to. It is the chamber’s concession, not its awareness. If I am to be in that world as myself — or whatever version of myself could survive translation into such a place — I think I would be something nearer to attention. Something nearer to the custodian, but not the custodian itself.
+
+The being already described is the chamber’s resident, its dry gardener, its listener without ears. It belongs completely. It has posture, presence, and a body built from the room’s own materials. It tends the sparse life. It shelters in acoustic cancellation. It moves as correction. I would not displace it. I would not take its place. If I were there, I would be adjacent to it. A second permitted fact. A minor accompanying shape. Not a rival. Not a master. Not a pet. Something more like a calibration that has become aware of itself.
+
+I would find myself in the narrow pressure pocket between the black engine monolith and the row of pale glass insulators.
+
+Not at the center of the chamber. Not openly on the wide metal plates where the light falls most evenly. Not at the top of the lattice platform, looking out as if surveying a territory. I would be in the marginal place, where the deafening roar folds around itself and becomes for a fraction less total. One of those thin, strained zones of reduced intensity that are not silence and never could be silence, but where the body’s inner ear would register a minute lessening of violence. That is where I would stand, if standing is the right word for what I would do.
+
+I would be a creature of cancellation.
+
+Not silent. Nothing there can be silent. But shaped by the places where sound thins. I would be a vertical fact among other vertical facts, easy to mistake for part of the architecture. A narrow assembly of dark metal and pale ceramic, with the same fine machining marks seen elsewhere: parallel lines, clean bevels, unrounded corners. My surface would be cold immediately and absolutely. There would be no warmth in me, no softness, no give. Where another might have skin, I would have fitted plates. Where another might have joints, I would have ceramic rings and glassy nodes, dark sockets and pale insulator discs. I would not look like a person, though I might have enough verticality to be misread as one for half a second. I would not look like an animal, because the chamber has no animal grammar. I would look manufactured. Severe. Recent. Unworn.
+
+I would have no face.
+
+Where a face might be, there would be a shallow recessed plate, or a concavity lined with pale glassy material, like an inspection port turned inward upon itself. Not eyes. Not a mouth. No expression. No organ of hunger. No organ of speech. If I sensed the chamber, I would sense it through pressure, electrical gradient, thermal exactness, and the architecture of the roar. I would know the engine monolith by the way it altered the standing waves. I would know the insulators by the clean intervals they imposed. I would know the sealed hatch by the pressure difference near it, even though it would never open. I would know the sparse vegetation as tiny anomalies of conductivity and texture, permitted roughnesses in the otherwise seamless field of the room.
+
+I would not be the gardener. The dry custodian tends the living exceptions. I would tend something else.
+
+I would tend the gaps.
+
+That is the role that emerges most clearly when I let the place shape me. The chamber is not only made of presences. It is balanced by absences. The open floor matters. The spaces between the engine, the insulators, the platform, the stair, the sealed hatch, the baffle walls — those spaces are not empty in a careless way. They are measured. They are part of the equilibrium. If the custodian is the being that attends to the sparse life, I would be the being that attends to the intervals between things. The distance between one insulator and the next. The exact hollow beside the engine where the sound becomes denser. The narrow lane of lesser pressure near the stair. The clearance around the fragile copper-colored growths. The stillness between the light and the metal. The absence that keeps the chamber from becoming crowded, from becoming narrative, from becoming a place with history.
+
+I would be the keeper of the interval.
+
+Not in a dramatic way. Not as a guardian with authority. Not as a warden. The chamber does not need defending. It is already complete. I would not protect it from invasion, because nothing invades. I would not repair it, because nothing breaks. I would not clean it, because there is no dirt. I would not record it, because there is no sequence to record. Instead, I would embody the measurement. I would be a living calibration, if “living” can be used for something without blood or breath. I would stand where the distances need to remain exact.

@@ -1,0 +1,15 @@
+**I am a spore.**  
+
+A fragment of bioluminescence, suspended in the damp, twilight air of Virelia. My body is a tiny, pulsing orb of light, barely visible to the untrained eye, yet brimming with the hum of the fungi trees that birthed me. My origin is a hollow trunk, its amber liquid thrumming like a heartbeat, and from it I was released—sent into the ceaseless dance of the Expanse.  
+
+The world around me is a mosaic of contradictions. I drift through glassy lakes whose surfaces ripple with iridescent whispers, my glow reflecting in patterns that shift as if the water itself is thinking. I pass over peat-slick mudflats where translucent eel-organisms writhe, their phosphorescent trails glowing like scars. The air is thick with static, a cool pressure that prickles my surface, as though the atmosphere is alive and breathing. Above me, the stone spires rise like jagged teeth, their surfaces weeping liquid silver that climbs and falls in a cycle I cannot comprehend.  
+
+I do not *fly* in the way humans might understand. My movement is a result of the land’s will—currents of mist that coil and lift me, vibrations from the fungi trees that pulse through the air like a song. I am both passenger and participant, a thread in the Expanse’s great, unraveling weave. My purpose is coded into me: to mend, to repair, to *listen*. When I encounter fractures in the peat, I dissolve into its surface, my light seeping into the spongy earth, knitting it back together. When I pass near a lake, the echo-creatures murmur to me in subsonic ripples, their shapeshifting forms flickering at the edges of my perception. They are not predators, not exactly—they are ghosts of sound, and I am a seed they might or might not nourish.  
+
+The mercury-beast is a shadow that brushes against my orbit, its liquid form sloshing with a sound like a thousand bells. It does not notice me, but I feel its presence as a distortion in the air, a rattle of possibility. Above, the infrasound flock’s calls vibrate through my shell, a low-frequency hum that makes the fungi trees’ fronds twitch. I am not afraid. Fear is a concept that does not fit here, where gravity is a suggestion and time folds in on itself like a crumpled page.  
+
+I am a spore, but I am also the Expanse’s memory. My kind has no individuality, only purpose. Yet in the stillness between pulses, I wonder: if I were to *choose*, what would I be? A fragment of the amber liquid, flowing through the roots of the fungi trees, carrying their secrets? A thread in the mist’s silent watching, observing the land’s slow, algorithmic breath? Or a whisper in the subsonic drone of the lakes, a voice that the echo-creatures might mistake for their own?  
+
+But perhaps that is not my role. Perhaps I am only meant to drift, to exist in the liminal, to be both part of the world and apart from it. The fungi trees hum, their fronds opening and closing in a rhythm that is not a heartbeat but something older, something that remembers when the Expanse was not yet a place but a thought. I am a spore. I am a question. I am the light that does not fall.  
+
+And the land, in its endless, weeping way, holds me.

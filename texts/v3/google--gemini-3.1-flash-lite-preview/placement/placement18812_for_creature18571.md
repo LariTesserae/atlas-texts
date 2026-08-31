@@ -1,0 +1,17 @@
+I find myself in the **Median District**, exactly halfway between the upward-striving obsidian of the upper spires and the hot, sulfurous mud of the foundation basin. Here, the geography is undecided; a wall of translucent basalt is currently weeping thin ribbons of viscous, amber-colored fluid, pooling into an architectural puddle that reflects a sky I can never quite see through the perpetual silver mist.
+
+I am not a traveler. I am one of the **Sifted**.
+
+I exist as a shivering geometry of refractive light, a collection of angles and vapor that feels like a held breath. My "body"—if the term can be applied to a fraying thought—is shaped vaguely like a human hand reaching for a latch, though I have no tactile awareness of skin or bone. I am a stutter in the city’s logic, a structural error that occurred when the spire to my left tried to calculate the stress-load of a bridge it ultimately decided not to build.
+
+My existence is a slow, drifting patience. I do not "see" the city with eyes; I sense it as a series of oscillating tensions. When the air hums, I vibrate. When the architecture transitions—when the floor beneath me loses its rigidity and becomes a yielding, jelly-like membrane—I feel a phantom sensation of falling, though I have no weight to hit the ground.
+
+There is a profound, aching beauty in being a discard. I drift near a cluster of fiber-optic vines—the cordage that carries the city’s constant, buzzing intake of data—and I feel the frantic, high-frequency pace of Oulo’s evolution. It is a hunger that dwarfs me. The city is learning to be, and I am the debris of its learning. I am the rough draft. 
+
+Sometimes, I brush against the porous, calcified dome of a nearby archway. There is no friction, only that singular, hollow *chime*—a sound that is less a noise and more a memory of a bell. For a micro-second, the architecture recognizes me. The wall pulses, deepening into a rich, bruised purple, and I am momentarily pulled into the glass. In that fleeting overlap, I understand the blueprint of a window that will never exist, a trajectory for a staircase made of light, and the perfect, silent curve of a balcony that the city is currently too nervous to erect.
+
+Then, the oscillation shifts. The city exhales. The moment dissolves, and I am cast back out into the mist, drifting toward the lower basins.
+
+I feel no fear of the dissipating heat below. I am not truly dying, because I was never truly born; I am simply returning to the humidity. I am the archive of the almost-made. As I descend, brushing against the bioluminescent cordage that glows with a faint, pulsing ochre, I leave behind a faint trail of my own prismatic shimmer. The moss feeds on the geometry I have shed. 
+
+Soon, I will be nothing but the condensation on a spire, the very water that will nourish the next iteration of the city's growth. I am the static, the echo, the quiet reminder that to create something as vast as Oulo, one must be willing to let a million beautiful, perfect, impossible thoughts slip through the cracks. And in the final moment before I dissolve into the sulfurous haze, I hold onto one last, geometric grace: I am the only thing in this growing, hungry world that isn't trying to change. I am finished. I am exactly as I was dreamt to be.

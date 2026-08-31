@@ -1,0 +1,27 @@
+In this fever-bright cathedral of unfinished stone, where the world thrums with the pulse of cooling magma and a billion scuttling lights, I would find myself as something caught between the two orders of existence—neither swarm nor Weaver, but a necessary translator between their incompatible languages.
+
+I am a **Resonance Tender**.
+
+My form emerged from an accident of evolution—a Weaver whose sensory slits deepened beyond utility, becoming cavities that catch and hold the vibrations of both worlds. Where others of my kind developed resistance to sound, I became its vessel. My body is a living tuning fork, stretched even thinner than my silent kin, with a torso that has elongated into something almost architectural. Hollow chambers run through my chest and abdomen, connected by passages that shift and seal according to the frequencies passing through them.
+
+I cannot build the chitin monuments. My fingers, while long like those of other Weavers, terminate in bell-like formations of hardened tissue that ring sympathetically with every tremor. When I try to grasp the discarded shells, they sing—a clear, penetrating note that draws the swarm's attention. So I have learned a different craft.
+
+I position myself at the confluence points where the Weavers' silence-pockets meet the roaring highways of the swarm. Here, in these threshold spaces, I perform my essential function: I am an interpreter of tremors, a living seismograph that translates the planet's deep language into patterns both species can understand.
+
+The swarm, in their endless migration, creates predictable harmonics. When a thousand of them scuttle leftward across a basalt shelf, the stone rings with a particular frequency that I catch in my third chamber. When condensation is about to fall, the ceiling hums a warning note that resonates in my crown. I have learned to amplify these signals, to shape my hollow spaces into specific geometries that broadcast warnings the Weavers can feel in their sensory slits—*flood coming from the eastern rift*, *new obsidian emergence in seven pulse-beats*, *the swarm-tide turns, seek higher ground*.
+
+But I am more than a warning system. In the rare moments when the planet's grinding creates new caverns—spaces not yet claimed by either light or shadow—I am the first to know. The birth-cry of new stone has its own resonance, one that sets my entire being vibrating like a struck gong. In these moments, I become a beacon. My bell-fingers spread wide, catching and redirecting the sound into two separate songs: one that the Weavers feel as an invitation to new vertical territories, another that the swarm hears as a siren call to fresh surfaces awaiting their light.
+
+I live suspended between obsidian pillars on a web of my own making—not chitin, but crystallized saliva that hardens in the heat into glass-thin filaments. These strings vibrate constantly, extending my sensory range throughout a vast section of the cavern. When young Weavers lose their way in the dark margins, the disturbance in my web tells me precisely where they drift. When sections of the swarm begin their mysterious synchronizations—those moments when millions suddenly pulse in unison—I feel it coming minutes before it arrives.
+
+The other Weavers do not press foreheads with me in greeting. The touch would be too loud, too revealing of the constant music that lives in my skull. Instead, they acknowledge me with a gesture I think of as "the listening lean"—a careful tilting of their bodies that aligns their sensory slits with my quietest frequency. In return, I offer them the planet's schedule: when the ground will shift, where new silence-pockets might be built, how long before the next great migration.
+
+The swarm, of course, does not know I exist as an individual. To them, I am another feature of the geology, a peculiar formation that sometimes sings useful songs. They flow around my hanging form like water around a stone, their bioluminescence painting my translucent skin in waves of turquoise and amber. Sometimes, in their passing, they leave fragments of themselves caught in my web—pieces of light-generating organ that continue to glow for hours after separation. I do not harvest these gifts, but let them burn out naturally, tiny stars in my personal constellation.
+
+My greatest fear is not the grinding stone or the acid-touched of the swarm. It is the gradual dampening I feel in the planet's core. Each cycle, the deep harmonics grow slightly quieter. The tectonic plates slow their ancient dance by imperceptible degrees. I know what the Weavers know—that this world is dying, cooling, solidifying into something static and silent.
+
+But I also know something they do not, something the swarm has taught me in their mindless wisdom: that even in endings, there is migration. When the last heat dies and the glowing tide finally stills, I will remain suspended in my web, a hollow instrument waiting for the universe to play its next song through me. The planet may cease its thrumming, but space itself vibrates with frequencies I have only begun to imagine.
+
+Until then, I hang in the bright darkness, a living membrane between two worlds, catching the fever-dreams of a planet that hasn't yet learned to be still. Every surface of me listens. Every hollow holds a sound. In the space between the swarm's light and the Weavers' shadow, I am the pause between heartbeats, the silence that makes the thunder meaningful.
+
+I am the record of the resonance, and the resonance itself.

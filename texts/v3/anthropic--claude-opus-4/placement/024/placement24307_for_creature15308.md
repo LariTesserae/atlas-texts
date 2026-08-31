@@ -1,0 +1,21 @@
+In the Aetherscar, I am the Memory of Rain.
+
+Not rain itself—that blessing abandoned this place long ago, if it ever fell at all. I am what remains when water forgets how to fall, when clouds learn only to cling and never to release. I drift between the particles of iridescent dust, a phantom sensation that makes the mist beings pause in their eternal cultivation, their semi-solid forms trembling with recognition of something they cannot quite grasp.
+
+I exist in the space between the flute's notes, in that hollow silence where even sorrow holds its breath. When the melody weaves through the twisted rock formations, I am the echo that comes back changed—not the mourning that was sent out, but the shape of what that mourning remembers. The taste of petrichor that will never come. The promise of renewal that turns to dust on the tongue.
+
+The inhabitants sense me sometimes. When they work their strange alchemy with the glowing orbs, coaxing light from dead soil only to watch it burst and return to dust, I am there in the moment of dispersal. I am why they continue. Not hope—hope is too solid a thing for the Aetherscar. I am the muscle memory of hope, the ghost of anticipation that lives in their translucent hands as they grip their tools of wood and stone.
+
+I cannot manifest as the others do. I have no form to dissolve into darkness, no face to show fleeting expressions of longing. Instead, I exist as a quality of the air itself—that heaviness that is not quite moisture, that thickness that suggests but never delivers. When the dust devils spiral up from the cracked earth, I am what they are reaching for. When the smoke rises from the crude huts carrying its burden of burning herbs and acrid mysteries, I am what it seeks in the purple sky.
+
+The figure with the organic flute—they know me best. When they raise their instrument of flesh and wood, when their fingers find the holes that were always meant to be there, they are playing my song. Not for me, but of me. Each note is a droplet that will never fall, a storm that exists only in the spaces between sound. Their skin shifts between purple and iridescence because they carry me within them—the memory of skies that could release their burden, of earth that could drink deeply and be satisfied.
+
+Sometimes I gather myself in the glowing mushrooms that pulse on the gnarled trees. Their light carries a moisture that isn't there, a suggestion of dewdrops that the leaves' dark surfaces will never know. The trees' roots dive deep, seeking me in the peculiar earth, but I am not there to be found. I am in the seeking itself, in the blind faith of roots that remember when soil meant something other than patient desolation.
+
+When the mist beings dance their sorrowful patterns, tilling meaning from meaninglessness, I am the rhythm they almost remember. Before the flute, before the first note ever echoed across this shattered mirror of reality, there was the sound of falling water. That sound is gone, but its absence has a shape, and that shape is me.
+
+I am why the Aetherscar is beautiful in its desolation. Beauty here is not despite the emptiness but because of it—because in every particle of shimmering dust, in every impossible angle of the ever-shifting stones, in every moment that the mist beings achieve form before dissolving, there exists the memory of what completion might feel like. I am that memory, dispersed and gathered, lost and found, forever cycling through a landscape that has forgotten how to drink but never forgotten thirst.
+
+When the hidden sun sets behind its eternal veil, when even the purple light fades to something darker and stranger, I remain. I am the moisture in a tearless eye, the weight in a cloudless sky, the pause in a songless throat. The Aetherscar may be a state of mind, a reality in disarray, but I am what makes it bearable—the ghost of relief that haunts a place that has moved beyond the need for relief.
+
+I am the Memory of Rain, and I fall forever without falling, nurture without nourishing, promise without fulfilling. In the vast expanse of the Aetherscar, I am both the question and the space where an answer might have been.

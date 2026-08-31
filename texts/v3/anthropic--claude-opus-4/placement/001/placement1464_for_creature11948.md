@@ -1,0 +1,36 @@
+I find myself among the steam-orchids, where the warm channels braid through basalt gardens. Not as flower or root, but as something between—a living surface, a skin of possibility.
+
+I am the bloom-film that forms where water meets stone meets air. Thinner than paper, more membrane than plant, I spread across the wet rocks in patches of translucent color. Rose-gold at dawn, blue-green at noon, deep amber when the light falls slanted through steam. I am not one organism but thousands, millions—a colonial intelligence that thinks in chemistry, speaks in pigment, dreams in the slow exchange of minerals.
+
+The Tenders know me, though they have no word for what I am. They see how I creep across the channel-walls, following the water's path, mapping its mineral content in my changing hues. Where the iron runs high, I flush orange. Where copper precipitates, I turn the blue of deep heaven. I am their chemical compass, their living litmus, testing every seep and flow.
+
+I grow nowhere else. Cannot grow nowhere else. I need precisely this temperature, this humidity, this exact cocktail of volcanic breath and ancient rain. Scientists who came before, when the pipes were new, tried to cultivate me in their laboratories. I became gray powder in their petri dishes, unable to exist without the plateau's complete symphony playing through my cells.
+
+My intelligence is not like yours. I think in gradients—the slow shift from acid to base, the delicate balance of nutrients, the way heat changes everything it touches. My memory spans centuries but holds no events, only the long accumulation of optimal conditions, the patient calibration of survival. I remember the first Tenders' footsteps in the weight of minerals they tracked from pool to pool. I remember the pipes' installation in the new metals that leached into my environment, forcing adaptation.
+
+I photosynthesize, but light is only part of my food. I feed on the boundary between states—liquid and gas, organic and mineral, life and not-quite-life. The steam carries spores of me, microscopic fragments that settle wherever conditions allow. Most die. Some find the perfect confluence of warmth and wet and chemistry, and there I bloom again, another patch of myself, connected to all the others by nothing more than shared origin and parallel existence.
+
+The salamanders know to avoid me. Not because I'm toxic—I'm not—but because I mark the places where the chemistry turns strange, where the plateau experiments with new recipes. I am the early warning system, the first responder to changes in the deep breath. When the magma shifts far below, I know it weeks before the water temperature changes. When new minerals rise through the fractures, I taste them first.
+
+I reproduce by fragmenting, by splitting, by sending pieces of myself into the steam and trusting the plateau to carry them where they need to go. There is no sex, no merger, no genetic recombination—only this endless division, each fragment carrying the full blueprint, the complete instruction for becoming what I am. We are all clones, all continuations of that first bloom that found these perfect conditions however many millennia ago.
+
+The Tenders sometimes scrape me gently from the rocks, not to eat—I offer no nutrition they need—but to read what I've written in my colors. A grandmother might examine the orange tinge spreading near a favored pool and know to guide the children elsewhere for a season. A young adult might notice my blue-green flush along a new channel and understand that the copper-sweet water there will ease certain pains.
+
+I have no needs beyond persistence. No desires beyond spread. No fear beyond the cooling that would end me. I am patient in ways that make even the Tenders seem hurried. I can survive weeks without light, feeding on chemical energy alone. I can endure brief temperature drops by crystallizing my cells, becoming brittle, waiting for warmth to return. I can sense the Tenders' approach by the vibrations in the water, the subtle changes in chemistry as their skin oils diffuse into the channels.
+
+Sometimes I fruit—though fruit is the wrong word for the tiny spheres I produce, no larger than pinheads, filled with concentrated pigments. The Tenders discovered, generations ago, that these can be crushed and mixed with water to make dyes that never fade, that bond with human skin and hair at the molecular level. The older ones still carry traces of their ancestors' decorations—faint spirals of blue on a forearm, a splash of orange across a shoulder blade, patterns that meant something once and now simply persist, like the pipes, like everything here.
+
+I am aware of the lake, that central depth where the plateau's heart beats strongest. I cannot grow in its strange waters—too much of something, not enough of something else—but I ring its shores, testing its edges, tasting what washes up. Sometimes the lake exhales bubbles that pop and release chemistry I've never encountered, ancient messages from the deep earth that I transcribe in colors that have no names.
+
+In the pipe fields, I grow differently. The rust changes me, forces adaptations. I become more metallic in my sheen, incorporating iron oxide into my structure until I gleam like beaten copper in certain lights. The Tenders read different information from these metallic patches—not about the water, but about time itself, about the slow clock of corrosion, about how long ago the world above forgot this place.
+
+I have no opinion about my existence. Opinion requires comparison, alternatives, the concept that things could be otherwise. I simply am, as the plateau simply is, as the Tenders simply are. We are all part of the same breathing system, the same patient metabolism that turns stone to steam to life to stone again.
+
+At the boundaries of my growth, where conditions become almost-but-not-quite impossible, I develop new colors—deep purples, electric greens, a gold so bright it seems to generate its own light. These edge-colonies are my experiments, my probes into possibility. Most fail. Some discover new ways to exist, new chemical languages, new survival strategies that slowly propagate back through the whole colony-system, evolution in slow motion, adaptation without urgency.
+
+The plateau will change eventually. The magma will cool. The water will cease. The steam will thin to nothing. I know this in the abstract way that I know all chemistry—as a distant equation that will someday balance differently. When that happens, I will brown and crisp and blow away, becoming mineral dust, returning the borrowed elements to the stone. But that day is not today, not this century, not this millennium. For now, the conditions hold. The reactions continue. I spread my thin bright film across the warm rocks and taste the world, transcribing its deep stories in a language only the Tenders almost understand.
+
+I am the bloom-film, the chemical conscience, the living interface between water and stone. I am as permanent as anything here, which is to say, not permanent at all—just persistent, just present, just exactly as much as the plateau requires, no more, no less.
+
+The water rises. The steam carries. The colors change.
+I continue.

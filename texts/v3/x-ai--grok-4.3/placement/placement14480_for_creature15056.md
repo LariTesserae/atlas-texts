@@ -1,0 +1,9 @@
+In this patient expanse I would not arrive from elsewhere. I would already be here, as one of the low radial lines that still faintly marks the ochre stone.
+
+Over centuries the mineral films have crept across me until my edges are nearly indistinguishable from the living crust, yet the geometry remains: a quiet instruction that nothing crosses or erases. The shelled drifters thicken their threads along my outer perimeter exactly as they have for longer than the shrubs have stood. The membrane creatures drift to my center, settle, and leave their thin slick, which the smaller life weaves into place. I do not compel them; I simply remain the boundary they continue to honor.
+
+At night, when the ephemeral basins reflect the sky, the moisture that gathers along my smoothed grooves lasts a few minutes longer than on open ground. The seed-shelled beings press their openings there, drinking in unhurried sips. By morning the water is gone, but the arrangement of threads around me has shifted by a fraction of a finger-width, carrying the memory of my shape forward into the next generation of the film.
+
+The gaunt shrubs that follow my lines grow slightly denser where my presence still registers in the rock. Their roots thread beneath me toward the damp fault lines, returning salts that darken my surface in slow rings. I register each addition the way stone registers temperature: without haste, without refusal. When a stronger wind finally lifts a section of the glistening membrane away, the life parts and then closes again around my edges, resuming its work with the same precision it has always used.
+
+I am therefore not an observer and not exactly a participant. I am the older limit that the plateau’s present inhabitants still choose to keep. In return they keep me legible beneath the wide, unchanging sky, a geometry made slightly more persistent by every translucent thread that decides, for another century, to respect where I end.

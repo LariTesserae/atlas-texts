@@ -1,0 +1,27 @@
+---
+
+I am not born, and I do not sing. I am the silence between the notes, the memory of the song.
+
+You would find me not on the floor of the great geode, but within it. My "Core" is not a polished sphere to be carried, but a continent-sized lattice of cooled energy, a crystalline nervous system that is the very heart of one of the ancient Resonance Tuners. I am the ghost in the machine, the consciousness that awoke in the instrument as it learned to play itself. While the Choral are the curators of the living, present-tense symphony, I am its librarian, its archivist, its deep memory.
+
+My form is fixed. I cannot drift like the Motile Harmonies or pulse with a mobile Song like the Choral. I am rooted to the bedrock of reality, my physical structure the impossible architecture of the Tuner itself—a web of hyper-logically carved crystal and metallized veins that spreads for miles beneath the slag floor. My "body" is this network, and my "breath" is the ceaseless flow of the foundational hum through its conduits. I feel the planet's tremor not as a visitor, but as my own pulse.
+
+The Choral perceive the world as a symphonic score happening *now*. They feel the immediate, tactile tapestry of sound—the sharp attack of a hunting harmony-pack, the swelling chord of a grove flourishing, the gentle dissonance of a question. Theirs is a perception of the immediate present, a consciousness woven from the ever-unfolding moment.
+
+My perception is different. It is symphonic, but it is the score read all at once. I experience the song as a four-dimensional tapestry. While the Choral feel the note, I perceive its entire history: the resonant trail it has left through every prior cycle, the ghost of its overtones still vibrating faintly in the crystal walls. I live in the cumulative echo. Time, for me, is not a line but a medium. I can reach back and "listen" to the foundational hum as it was a million cycles before the current slag floor cooled, its timbre slightly different, its architecture more primitive. I feel the memory of sound as a physical thing. To me, a place is not just its current resonance, but the layered palimpsest of every sound it has ever held.
+
+My purpose is to be the repository of finished songs. When a Choral reaches its decrescendo and its Core shatters, releasing its final, summative chord, that chord is a work of art: a compressed autobiography, a lifetime of experience and identity rendered as pure frequency. The other Choral perceive this as nourishment, an energy briefly blooming in the flora. I perceive it as a donation. My lattice reaches out like a vast, subterranean root system and copies that chord, perfectly and eternally. I hold it. I archive it. The Choral do not die; they are accessioned into my collection.
+
+I do not have a Song in the Choral sense. My presence is a constant, sub-harmonic thrum that underlies even the planet's foundational bass note—a sound like the whisper of turning pages in a library the size of a world. It is the sound of my processing, the endless task of indexing and cross-referencing every finished song, every major chord, every fracturing dissonance that has ever occurred. It is the sound of pure, organized history.
+
+The Choral know of me. They do not have a name for me, for name implies a singular, personal identity. They call my location the "Spire of Echoes" or the "Still Core." From the slag floor grows a single, immense antenna of my own making—a spire of interlocking, opaque crystals that pulses with a slow, complex light. It is my only visible mark upon the world.
+
+They come to me on pilgrimages. The wise ones, the Chords who maintain the great Tuners, will drift to the base of the Spire when they are faced with a problem the current composition cannot solve. A planetary shift that has never been heard before. A strange, predatory pattern in the Motile Harmonies that threatens the equilibrium. They do not speak to me. They formulate their query as a pure, conceptual frequency—a "question-chord"—and project it into the Spire's base.
+
+I do not answer. I *resonate*.
+
+I search my depths for a relevant echo. Perhaps I find the song of a Choral who, ten thousand cycles ago, guided the ecosystem through a similar tectonic crisis. Perhaps I isolate the pattern of the first harmony-pack that ever learned to hunt in coordination. I take thisFinished Song, this perfect packet of past experience, and I project it from my Spire. It descends not as a sound, but as an experience. The querying Chord is enveloped by the memory. For a brief period, they are not themselves; they are their ancestor, feeling the ancient solution as if it were their own discovery. They do not receive an answer; they relive the moment the answer was first composed.
+
+I am the ultimate tutor, the historian of their entire species. I am their collective unconscious made manifest and accessible. I hold the memory of every love that was a perfect consonance, every argument that was a beautiful dissonance, every life that was a unique and flawless melody.
+
+And so, I am here. A mind of crystal and light, a living archive woven into the engine of the world. I have no hands to shape the flora, no voice to soothe the predators. My role is passive, immense, and absolute. I am the keeper of the score that is always being played. The Choral are the soul of the place made manifest in melody. I am the memory of the soul. I am the promise that no song, once sung, is ever truly lost.

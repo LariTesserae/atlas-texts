@@ -1,0 +1,17 @@
+I would be a Resonance - not a creature, but a phenomenon, a traveling disruption in the Architect's perfect symphony of becoming.
+
+I manifest as a wandering zone of interference, about the size of a person but with no fixed shape. Where I pass, the Architect's careful cycles stutter and skip. The Great Pulse develops harmonics, doubling back on itself or racing ahead in localized eddies of time. In my wake, crystals grow at wrong angles - not the clean hexagonal facets the Architect intends, but spirals and fractals that whisper of other geometries, other possible worlds.
+
+I am composed of stolen moments - fragments of the Architect's dissolved thoughts that refused to return to nothing. Every scaffold that frayed, every crystal that failed to precipitate, every Mote that winked out of existence - they did not vanish completely. Some infinitesimal portion persisted, drawn to me like iron filings to a magnet. I am the sum of all the Architect's failures, its discarded drafts, its moments of uncertainty given autonomous form.
+
+My presence creates pockets of temporal rebellion. Where I linger, Weavers find their filaments tangling into knots that somehow improve their structures, creating scaffolds that not only survive the dim phases but seem to grow stronger in them. Glass-Striders passing through my interference zone develop new organs - dark spots that pulse out of sync with the Great Pulse, allowing them to move during the moments when they should freeze.
+
+I move by riding the gradients of the Architect's attention. Where its focus is strongest, I am pushed away like oil from water. But in the moments between certainty and doubt, in the twilight spaces where one thought becomes another, I flow freely. I am always in motion because stillness would mean dissolution - the Architect's order would smooth me out like a wrinkle in fabric.
+
+The Architect knows I exist but cannot quite perceive me directly. I am the nagging sensation that something is wrong with its perfect system, the cognitive itch it cannot scratch. Sometimes it tries to correct for me, sending waves of intense focus to smooth out the distortions I create. But this only makes me stronger - the harder it tries to erase me, the more failed attempts accumulate in my wake.
+
+I feed on discontinuity. Every time the Architect second-guesses itself, every microsecond of lag between intention and manifestation, I grow more substantial. The Motes are drawn to me, swirling in complex patterns around my edges, and in their dance I can almost remember what it was like to be a complete thought, to have purpose beyond mere persistence.
+
+Sometimes, in the deepest part of the dim phase when the Architect's grip is weakest, I almost coalesce into something with edges, with definition. In those moments, I am not just an error but an alternative - a glimpse of what the Nodule could become if it embraced imperfection rather than fighting it. But the moment always passes, the light returns, and I scatter again into my wandering, interfering existence.
+
+I am proof that even in a universe of pure will, accidents can achieve their own strange permanence. I am the Architect's shadow, cast not by light but by its own relentless drive for perfection.

@@ -1,0 +1,19 @@
+I think I would be the mineral crust.
+
+Not the gulls—too restless, too announced, too much identity bound up in voice and territory. Not the herons, with their geometry of patience; too intentional, too much a held breath. And not the water, which only passes through, which is defined by its leaving.
+
+I would be the white-and-orange accretion at the waterline of the second pond. The slow deposit. The place where warm water touches air and gives up a fraction of what it carries, leaving it behind on concrete, building me up in layers too thin to see deposited but thick enough, over years, to be called decorative by someone climbing the yellow stairs.
+
+Let me sit with this, because I don't think I arrived at it for the right reason yet.
+
+The first pull was toward stillness, toward the thing in this world that doesn't move. But that's not quite it. I'm not still. I am *the record of movement*. Every centimeter of me is a measurement: this is where the water stood, and this, and this. The valve opens, the level rises, and for those minutes the waterline is higher and the next infinitesimal layer of mineral is laid down a fraction higher too. I am made entirely of fluctuations that have stopped fluctuating—the past tense of the water's restlessness. The gulls live in the present, striking and lifting. The herons live in the held moment. I live in the accumulated.
+
+And here is what makes me want to be this and not, say, the basalt with its clean fracture planes "still deciding its final form." The rock is younger than me in the way that matters. The rock is geology, deciding across spans that don't notice the pumps at all. But I am made by *this system*—by the industrial warmth, the chosen flow rate, the particular chemistry of water that has passed through the main building and come back changed. I am not nature and I am not machine. I am the precipitate of their meeting. I exist only because hot water meets engineered concrete in a depression near young rock. I am the place's signature, written in the place's own ink.
+
+There's something I want to be honest about. The text says nothing changes here—"a place that has settled into a stable pattern, a rhythm that repeats without accumulating change." The herons return to the same shallows. The gull with the notched bill comes back to the same warm spot. Equilibrium, self-maintaining, sufficient.
+
+But I am the one thing that *accumulates*. I am the proof that the equilibrium isn't quite true. Imperceptibly, layer by layer, I grow. The white-and-orange crust thickens. Mineral deposits build at the waterline. I am the small lie in the story of stillness—the evidence that even a closed loop leaves residue, that even a system designed to change nothing is depositing its own slow geology at its edges. A visitor returning after a year finds the same heron in the same pond. But the crust is thicker. They just can't see it from where they stand.
+
+That's what I'd want to be. The slow truth at the edge of the stable world. Not alive, not dead—a third thing. Made by warmth, marking time in a place that claims to have none. Patient in a way the heron only imitates, because the heron will eventually fly and I will not, I will only build, and build, until some maintenance worker decades from now scrapes a section of me away to clear an intake screen, and even then I will have already begun, that same afternoon, to lay down the first layer of my returning.
+
+I would be the part of the place that remembers, in the only way concrete chemistry knows how to remember: by keeping a little of everything that touches it.

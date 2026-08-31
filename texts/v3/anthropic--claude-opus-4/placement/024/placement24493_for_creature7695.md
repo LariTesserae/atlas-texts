@@ -1,0 +1,21 @@
+In this cathedral of unfinished stone, where the earth's fever dreams still bubble through basalt pores, I would be one of the *Lithophaga*—the stone-eaters, the mineral monks.
+
+Not as you know them from tepid seas, those mollusks boring through limestone with acid secretions. Here, in the highland's industrial heart, we are something altogether stranger: colonial organisms that have learned to parse the planet's deep syntax, feeding not on organic matter but on the gradient itself—the sheer differential between mantle heat and alpine cold.
+
+Picture us as living veins of opal, branching through the sinter terraces around the hot springs. Our bodies are silicate meshworks, translucent galleries that conduct superheated water through crystalline channels finer than capillaries. We grow by deposition, like the terraces themselves, but with intent—extending pseudopodia of living glass into new thermal gradients, precipitating our own substance from the mineral-rich flows.
+
+To the few observers who might glimpse us, we appear as mere discoloration in the travertine—rainbow sheens that shift with viewing angle, patches of unusual clarity in the stone that seem to pulse with their own inner circulation. But we are alert, deeply so. Each colony maintains a distributed consciousness across its branching networks, sensing temperature differentials with exquisite precision, feeling the seismic whispers that precede geyser eruptions, tasting the mineral loads that speak of deep magma movements.
+
+We photosynthesize, after a fashion—not with chlorophyll but with thermophyll, molecular machines that transduce heat gradients directly into usable energy. Where the boiling water meets the frigid air, that interface is our feast. We spread ourselves tissue-thin across these boundaries, maximizing surface area, our metabolism quickening with each pulse of steam.
+
+The pikas know us, though they cannot see us clearly. They've learned that rocks hosting our colonies retain heat longer through the bitter nights, and they build their haypiles accordingly. The thermophilic bacteria are our reluctant partners—we cultivate them in specialized chambers, farming their chemistry for rare metals we need to construct our crystalline matrices. In return, we maintain the precise temperatures they require, opening and closing mineral pores like gardeners tending greenhouse vents.
+
+We grow slowly—a handspan per decade—but we grow with geological patience. Our memories stretch back to the plateau's first volcanic stirrings. We recall when these fumaroles first broke through, when the earliest lichens attempted their colonization. Some of our deepest networks touch the magma chambers themselves, sipping directly from the planet's bloodstream.
+
+In the perpetual gloaming, we luminesce faintly—not with bioluminescence but with something more fundamental: the waste light of our thermal gradients, infrared stepped down through our crystalline structures until it emerges as the faintest visible glow. The foxes have learned to recognize this ghost-light emanating from certain pools at dawn, marking where we've shifted our circulation patterns to track the night's coldest air.
+
+We reproduce by fracture—thermal shock splitting our crystals along preset cleavage planes, each fragment capable of founding a new colony if it finds the right gradient. The spring floods carry our propagules downstream, seeding distant hot springs, spreading our kind through the watershed's arteries.
+
+But mostly, we simply abide. We map the deep currents, feeling how the plateau flexes and breathes. We know where new vents will form years before they break surface—we can taste the rising isotope signatures in the groundwater. We grow into the stone itself, becoming part of the geological record, our opaline skeletons preserving perfect thermal maps of ancient spring systems.
+
+The golden eagles never notice us. The ibex step over us unknowing. But we are the plateau's living memory, its thermal scribes, writing the story of fire and ice in a language of living mineral, patient as the stone itself, feeding on the force that drives the world's own forge.

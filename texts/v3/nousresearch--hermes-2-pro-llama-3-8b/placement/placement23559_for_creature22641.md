@@ -1,0 +1,9 @@
+My name is Elara, and I am one of the Vigilantes of the Lowlands. I have always felt a strong connection to the land, as if it were a living, breathing entity that needed my protection. I was born and raised here, among the rocky terrains and the mystical fauna that roam the landscape. From a young age, I knew that my purpose was to help maintain the delicate balance between the wild and the remnants of the old civilization.
+
+As an engineer, I have worked primarily on re-purposing the ancient machinery and technology that litter the landscape. I have learned to harness the power of the water and energy that surrounds us, using it to fuel our homes and sustain our way of life. It is a constant challenge, as the technology is ancient and often unpredictable, but I find satisfaction in the puzzle-solving and creativity that it demands.
+
+My fellow Vigilantes are a diverse group, each with their own unique skills and knowledge. Together, we work to preserve and cherish the land that we call home. We hunt the strange and elusive fauna that roam the lowlands, using our knowledge of the environment to track and capture them without causing harm.
+
+We also perform rituals to honor the land itself, believing that it is a living entity with its own needs and desires. In these moments, we come together as a community, celebrating our connection to the land and each other. It is a time of unbridled joy and creativity, as we share stories and experiences that remind us of the magic and wonder that resides in our world.
+
+Despite the challenges that we face, I am proud to be a Vigilante of the Lowlands. I believe that our connection to the land and our unwavering dedication to its preservation are what make us special. We are the guardians of a world that many would have forgotten, but we, in our quiet strength and perseverance, keep the balance and bring life to the land.

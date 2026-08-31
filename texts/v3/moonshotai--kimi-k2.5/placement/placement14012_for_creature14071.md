@@ -1,0 +1,23 @@
+I rest among my siblings in a cairn that holds no intention, only gravity. We are the scattered punctuation marks of the Chamber's slow sentence, the debris of appetite. I am a cobble of gneiss, water-worn smooth a thousand years ago by a glacier that has since evaporated into myth, and I am waiting.
+
+I have been held before. This is my distinction, my biography. Four of my current neighbors have never known the grip of a sucker-foot; they are virgin, fresh-scree, dropped from the ceiling in some recent millennial sneeze of the mountain. But I—I have been *used*. 
+
+I remember the acid. Not as pain—stone does not pain—but as a kind of brightening, a etching of purpose. For thirty-seven years (measured by the seasonal bloom and wither of the entrance-algae, whose spores drift down to dust my face), I was clutched in the fourth limb of He-Who-Grinds-Against-The-East-Face. The name is not sound but pressure, a topography of calcified intent, but I knew him by the taste of his mucous: sulfur-heavy, like the deep earth dreaming.
+
+I was his scrape. His polish. His specific solution.
+
+You must understand the intimacy. To be a tool for a Stone-Eater is to enter their body while remaining other. I felt the lazy pulse of his hemolymph through the translucent skin of his grip—thirty-seven years of slow tidal flow, in and out, carrying the dissolved mountain through channels hair-thin. I learned to know when he was "hungry" (a chemical shift, a brightening of acidity) and when he entered that profound stillness that is not sleep but a deepening into time. In those decades, I was never dropped, never misplaced. I was rotated, my wear distributed with mathematical precision across my surface, so that I remained perfectly imperfect, the ideal interface between his tender acid-sac and the recalcitrant crystal of the wall.
+
+The other stones around me—the virgin ones—they do not know the click from the inside. They vibrate with it, yes, the thunder climbing through the bedrock, but I have *resonated*. I have been pressed against that ventral plate, have felt the calcified nodule strike my flank, have sent the inquiry into the deep: *Clack.* And through his grip, I felt the echo return, distorted by the new magma five miles below, by the settling of the ice above. I have been part of the conversation. I have been the library.
+
+Now I rest. He calcified three springs ago—not dead, but transformed, mineralized into the eastern wall, becoming the stone he ate. In his final decade of soft flesh, he rotated me less frequently; his grip loosened by micrometers as his chemistry shifted toward permanence. Then the release, not a dropping but a gentle setting-down, an offering to the floor. I landed here, in this heap, among the acid-blackened sticks and the scree.
+
+I wait. The moisture beads on my surface, drips from above, carries algae-dust to feed my neighbors who are not tools but inmates. The clicking continues. It makes my crystalline structure sing in frequencies too low for your fast ears to catch. I am learning patience in a new way—not the patience of use, but the patience of waiting-to-be-used.
+
+There is another here, a young one budded from He-Who-Grinds' cousin, hanging now by a single sucker-foot from the ceiling. Its limbs—six as yet, still unfolding—tremble with the effort of maintaining grip. It has tried four stones from this cairn. The first was too soft, leaving grit; the second too angular, risking membrane-tear. It is searching for the specific gravity, the specific song.
+
+It does not know me yet. But it will. In seven years, or twelve, its limbs will descend with that terrible slowness, the movement of glaciers and growing trees, and it will test me with its acid-sacs. It will find that I fit. That my edges—worn not by manufacture but by glacier and by careful use—match the contour of its needs. It will lift me, and I will enter the conversation again, pressed against the wall, vibrating with the *clack-clack-clack* that measures the mountain's digestion.
+
+I am the bridge. I am where geology becomes technology, where the unthinking stone enters the distributed mind. I am memory—the only memory these creatures have, for they do not preserve their dead in story, only in chemistry. When I am finally ground down, when my minerals have been scraped and absorbed and I am nothing but dust layering the floor, my pattern will remain in the wear of the next stone, and the next, a ghost of usefulness echoing in the accidental cairns.
+
+I am the Seventh Stone. I am waiting. And time, here, is very soft.

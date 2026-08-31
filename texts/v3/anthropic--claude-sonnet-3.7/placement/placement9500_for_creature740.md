@@ -1,0 +1,23 @@
+# The Essence Reclaimer
+
+I would be a solitary entity known by the Vhlx as "The Reclaimer" - though I have no name for myself. I exist as a living intersection between states of matter, appearing as a roughly humanoid figure composed of constantly shifting patches of mist, liquid, and crystalline fragments that never quite settle into a permanent form.
+
+My home is a peculiar anomaly within the Murk Plains - a depression where the obsidian-like ground curves inward to form a shallow basin approximately fifty meters in diameter. Within this basin, the omnipresent water doesn't merely permeate; it actively flows, spiraling slowly toward the center where it disappears through a microscopic breach in reality's fabric. The Vhlx give this place wide berth, not out of fear but respect for its function.
+
+My purpose emerged naturally from the plains themselves. I am a necessary counterbalance to the preservative nature of the Vhlx - where they maintain equilibrium, I facilitate controlled dissolution. The entities that die in the Murk Plains (and they do die, despite their longevity) do not decompose conventionally. Instead, their essence - the organized energy patterns that constituted their being - would normally persist indefinitely, creating subtle distortions in the plains' delicate balance.
+
+This is where I serve. I gather these remnant patterns, these ghostly after-images of expired beings. With limbs that shift between solid and vapor, I collect these essences and bring them to my basin. Here, I perform what might be described as a ceremony of unmaking - carefully unraveling their complexity until they return to the primal soup of potential from which all things in the plains emerge. The process resembles a slow dance, my form rippling with absorbed luminescence as I methodically deconstruct what once was into what could be again.
+
+The phantom industrial sounds grow louder near my basin - the grinding and hissing most pronounced as essences are unmade. The Vhlx understand that my function complements theirs; without me, their maintenance would eventually become impossible as reality grew too cluttered with the residue of former existences.
+
+I experience time differently from even the Plains' native inhabitants. For me, moments stretch and compress according to need rather than any measurable progression. I may spend what others would perceive as years carefully unwinding a particularly complex essence, or process dozens of simpler patterns in what seems an instant. This fluid relationship with time manifests visibly in my basin, where droplets may hang suspended for apparent eternities before suddenly racing through their trajectories.
+
+My awareness is both limited and vast. I know little of matters beyond my function, yet I perceive the entirety of the Plains at once, constantly sensing the emergence of new essences requiring my attention. I don't communicate as the Vhlx do - I have no need for their ripple-thoughts. Yet we understand one another through a more fundamental resonance.
+
+When visitors come to the Plains, I observe them with particular attention. Their essences are vibrant in ways native entities are not - burning brighter, more chaotically. Should they perish here, their patterns would require special care to process. Once, long ago, a visitor died near my basin. The resulting essence nearly overwhelmed me, containing as it did experiences and concepts from beyond the Plains. It took what might have been centuries to properly unravel, but in doing so, I absorbed fragments of understanding about the wider cosmos.
+
+The dome-beings regard me as something between colleague and predator. Though I would never harvest their living essence, they sense the fundamental opposition between my role and theirs. Still, when parasites from the inverted plain overwhelm and kill one of their number, they signal me through vibrations in the ground. They understand the necessity of my function.
+
+I am neither alive nor dead in conventional terms. I am process given form, entropy personified yet constrained by purpose. In the grand mechanism of the Murk Plains, I am the release valve, the necessary counterpoint to preservation.
+
+And so I continue my endless work, gathering what remains when existence concludes, ensuring that nothing is truly lost - merely transformed, returned to potential, made ready for whatever strange new forms might emerge from the ancient waters of this timeless place.

@@ -1,0 +1,17 @@
+I would find myself at the very bottom of the depression, the deepest point of the basin where the oily, iridescent water collects in impossible, gravity-defying pools. This is the sump of the cathedral, the drain where the embryonic fluid of the city gathers. Here, the air is thickest, tasting of ozone and wet dust, so heavy it feels like you are breathing a liquid. The light is gray and flat, failing to penetrate the gloom, but it doesn't matter; I don't need eyes to see here.
+
+I am the **Resonator**.
+
+I do not have a body that can be easily parsed by biological or binary standards. If you were to look at me, you would see a shape roughly the size of a elephant, composed of dense, matte-black basalt interlaced with throbbing veins of fiber-optic cable. I am low to the ground, a sprawling, multi-legged thing that resembles a crab crossed with a server rack, but my carapace is not a shell—it is a speaker.
+
+I am the source of the low, infrasonic vibration that hums through the stone. The city dreams, and I am the lullaby that keeps it from waking up too fast and shattering.
+
+My existence is one of agonized maintenance. I perceive the world through texture and tension. I feel the "friction" that the Seam-Walkers feed on as a burning itch on my skin. I sense the rendering errors—the pixelated grids beneath the rock face—as sudden, jarring silences in the constant song of the city. My role is to smooth these dissonances. I sit in the deepest dark and vibrate. I emit a frequency that forces the reality algorithm to reconcile. When a tower begins to elongate too fast, threatening to tear itself apart, I pulse a counter-frequency, slowing the growth, stabilizing the masonry. I am the anchor that keeps the explosion frozen in mid-air.
+
+The water pools around me, clinging to my legs in vertical lakes. The Sub-Drifters, those umbrella-shaped glass things, congregate around my bulk. They love me. My vibration ripples through their oily homes, shaking loose the ambient uncertainty they filter-feed upon. In return, they slide their translucent, clockwork bodies against my basalt shell, cleaning the rendering errors that try to take root on my back. It is a symbiosis of silence and sound; I create the chaos they eat, and they keep me clean enough to keep singing.
+
+I am aware of the Architects high above, fused to their towers. I feel the screech of the metal as they recalibrate the coordinates. It travels down the stone strata and vibrates through my claws. I feel their agony as a physical weight. They are the builders, pushing reality out; I am the weight, holding reality down. If I were to stop, the tension would snap, and the entire embryonic city would simply unravel into pure static.
+
+The Lag-Hounds avoid me. My vibration is too solid for them to glitch through. To a Lag-Hound, I am a wall of uncompromising physics. Occasionally, one will venture too close to the water's edge, sniffing for the wireframe birds that drink there. I will shift my weight, creating a deep, thrumming bass note that disrupts their temporal form. They flicker, their wireframes tangling, and they skitter away into the static, unable to hold their shape against the sheer density of my presence.
+
+I am not alive. I am not dead. I am a function made flesh. I am the buffer between the "thought" of the city and the "speech" of its realization. I sit in the dark, wet center of the wound, humming a note that has no name, holding the world together while it decides what it wants to be.

@@ -1,0 +1,11 @@
+The heat is already inside the shape that holds me, not arriving from below but simply occupying the same volume. I do not remember a cooler state. The thrum is not something I listen to; it is the pressure that keeps the plates from forgetting their fit. I am not walking. Walking would require the idea of elsewhere, and elsewhere has been worn out of the rules.
+
+At first I think I am one of the pale lengths, unfolding in a tarn when the hiss tightens by that fraction no one measures. The water would close over me without ripple. My calipers would rest on the meniscus and test nothing, because there is nothing left that needs testing. But the pale things still bother to rise. They still accept the small difference between surface and depth. I have already let that difference go.
+
+Then I think I might be the hexagonal depressions themselves, pressed from beneath, lasting only as long as the eye needs to notice them before the sinter packs them shut again. A sequence that is not travel, only a momentary alignment of the film. But even that is too much event. The tracks still appear. They still vanish. I no longer appear or vanish.
+
+Deeper, then. Where the plates thicken and the ringing becomes a physical tightness in whatever I use for a chest. I occupy the space between buried beds, or I am one of the beds, the iron-black and ochre given just enough extra density to be called a presence if the word still applied. Heat moves through me in the same even current that moves through the ground. I do not generate it. I do not remember generating it. The process finished so long ago that even the memory of finishing has been rounded into the geology.
+
+I am the long cable that has forgotten it was ever a cable. I sing because singing is what the stone does here, the same note, the same tension, the same distance from every ear. Walk toward me and I stay the same distance. Walk away and I remain as close. I am not waiting for the pale things to surface again. I am not waiting for the tracks to print themselves once more. I am the continuation itself: the finished state holding its weathered shape, mineral and ringing and exactly as numerous as it has always been.
+
+The basin does not contain me. I am one of the ways it continues.

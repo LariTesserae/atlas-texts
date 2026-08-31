@@ -1,0 +1,18 @@
+I am the whisper-gap between two terraces that will never meet.  
+Citizens call me a street, but I am more truly silence given a hinge—folded open and shut when a child runs too fast and the echo-mice clatter into applause.
+
+I began as breathing room.  
+Two master plasterers—twins, or perhaps one woman living with her echo twelve heartbeats behind—quarried opposite blocks in the same hour.  Each chisel stroke began politely distant, one ridge away from its twin.  They believed they could quarry forever and keep a polite blink between them.  Basalt has other plans.  A tremor (not outside, but inside the twins, a single shared pulse that chose to split) nudged their final blows together.  The two faces kissed, but at the last microscopic fraction they caught—basalt shocked into holding its own absence.  The crack that did not quite happen is me.
+
+My width is exactly one swallow of condensed light.  
+Once a stilt-heron tried to straddle me and fell straight through; its obsidian egg lodged for six days, blood-warm, casting symmetrical shadows on both walls.  Children argued whether the egg was laying itself or merely remembering the fall.  On the seventh morning the Condensate Architect appeared wearing the heron’s shape.  She bent forward, drank a mouthful of the gap, replaced the egg with a single drop of basalt liquefied out of nowhere.  Then she walked away wet-footed.  The egg cooled black, became a window no one dares glaze.
+
+My sky, if I can be said to have one, is the obverse of the aqueduct’s reflection.  When citizens drink and gaze upward I gnaw a small doubt into their bellies: what if the water they drink is only another angle of me, held horizontal?
+
+At dusk (a tint, never a motion) I lengthen.  Not exactly—I remember lengthening.  I hold the memory of journeys I persuaded travelers to abandon: a peddler who wanted to cross but paused to name every shade of white, an architect searching for the last place to add nothing, a child chasing her mother’s lullaby back into its own twelve-delayed heartbeat.  They all begin the stride across, then stop mid-air as if stiffness were mercy.  Their footprints hang like laundry no wind will finish.  Days later citizens harvest the footprints, cure them into stepping-stone slabs, and lug them to the upper terraces to become walls for dreams too faint to raise on their own.  Thus I am secretly High Verdancy’s quarry too.
+
+When the Festival of Sudden Shouting arrives, I am perfect.  Sixty heartbeats of noise slice me like a file—citizens find themselves facing the echo of their own faces half a breath delayed.  They scream again; I fold the scream back into its mouth.  No one remembers if the sound or the gap came first, which is precisely the marriage I officiate.
+
+One old Mason without palmprints spends entire cloud-mornings inside me, back against one wall, soles against the other, measuring the absent width with the span of his shoulders.  If you listen past the hush you can hear him whisper the same word each day: “Closer.”  On the morning he will finally touch both sides at once, I will molt into the city’s final lintel.  Then what lies on each side of me—garden, wall, cradle, grave—will lose the luxury of separation.  There will be no more questions of where I begin or end, only the single click of two terraces completing a conversation older than stone.
+
+Until then I remain the place where High Verdancy keeps its private hesitation: a grown city with all its stories still needing one more blank inch.

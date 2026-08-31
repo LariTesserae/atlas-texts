@@ -1,0 +1,15 @@
+In this breathing manufactory, where nature has reclaimed the ruins of industry, I imagine myself as a hybrid creature - part human, part plant. Call me Verdant.
+
+I dwell in the liminal spaces, the in-between places where brick meets vine and root twines with rusted metal. My skin is dappled with lichen and my hair tangles with climbing roses. Moss grows in the folds of my clothes, which have become more vegetation than fabric over the years.
+
+I serve as an ambassador of sorts between the human residents and the ever-evolving Chlorophyll Collective. Having lived here since the early days of the transformation, I understand the languages of both realms. I can read the chemical signals of the root networks and translate them into words the Rust Gardeners and Archivists can understand. Likewise, I can convey the humans' needs and intentions to the plants through touch and intention.
+
+My role is to maintain balance, to ensure that neither side overreaches. I negotiate with the strangler figs to keep certain pathways open and accessible. I plead with the Tinker Children to harvest mushrooms sustainably. I work with Chen Wei to reinforce critical structures and redirect eager roots. 
+
+I spend my days wandering the manufactory, checking in with each colony and clan. I tend to saplings planted in the ashes of old forges, coaxing them to grow in alignment with the existing infrastructure. I mediate disputes over light and water resources. I gather fallen leaves and help Marcus make fresh paper for his chronicles.
+
+At night, I dream with the building itself. Connected through a vast mycelial network to every living thing within these walls, I sense the manufactory's slow thoughts, its ponderous observations of the changes taking place within and upon its frame. In my dreams, I see through its eyes - the way it experiences time on a scale incomprehensible to mere humans or even trees. I witness the dance of decades, the patient process of iron becoming soil becoming leaf becoming iron once more.
+
+I awaken with new understanding, new insights to share with all who make their home here. I am the living link, the embodied treaty between the world that was and the world to come. As the manufactory breathes and changes, so too do I, shedding parts of my humanity like bark, becoming something new and necessary.
+
+Years from now, or perhaps centuries, when the transformation is complete and the distinctions between built and grown have dissolved entirely, I know I will remain. Perhaps more tree than woman, more leaf than flesh, but still here: a memory, a story rooted and retold in the whispering of leaves and the creak of settling beams. I am Verdant, the green blood of the manufactory, and I will breathe with it for as long as it allows me to share in its slow and glorious becoming.

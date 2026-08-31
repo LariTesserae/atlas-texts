@@ -1,0 +1,25 @@
+In the Veil Basin, I am **the Weaver's Memory**.
+
+I am not one of the listening children, though I have learned their breath-hums and can pluck meaning from their vine-harps. I arrived seasons ago—how many, I cannot say, for time moves differently when you're always watching things grow. I came loud, came wrong, came carrying the weight of a world where silence meant absence and stillness meant death.
+
+I live now in what they call a **root-cradle**: a natural hollow where three ancient moss-pillars have slowly braided their bases together, creating a sheltered nook just large enough for one who has learned to sleep curled like a fern frond. The walls breathe around me. In the rain-months, I wake to find new shoots have woven themselves into my hair while I slept, tiny rootlets seeking the oils and salts of a living scalp. I've stopped cutting them away.
+
+My role emerged slowly, like sap beading from a cut. The listening children found me one morning crouched over a damaged section of canopy bridge, my fingers working without thought. I had torn strips from my foreign clothes—synthetic fibers that would never rot—and was weaving them through the broken vine-lattice, reinforcing the structure with something the basin had never seen. They watched in perfect stillness as I worked, their cartilage-rimmed ears twitching at the alien whisper of polymer against plant fiber.
+
+When I finished, I expected... something. Rejection. Acceptance. Words. But they simply flowed around me like water, continuing their day, leaving me to discover what I'd begun.
+
+Now I am the keeper of **impossible joinings**. Where root-cord meets synthetic rope. Where obsidian blade is hafted with salvaged aluminum. Where the memory of steel meets the reality of stone. The basin cannot digest everything—sometimes a plastic bottle washes down from the peaks, or a shard of solar panel glints beneath the moss, artifacts from the world beyond the mist. The children used to bury such things, but now they bring them to me.
+
+I've learned to weave these fragments into the basin's body in ways that strengthen rather than poison. A fishing line becomes the core of a bridge cable, invisible inside its vine-sheath but adding tensile strength that survives the storm-months. Mirror shards, set into the moss-pillars at precise angles, catch and redirect light into the darker understories where medicine-fungi grow. I've even trained certain vines to grow through the hollow handles of broken tools, incorporating them into their structure until it's impossible to tell where artifact ends and organism begins.
+
+The children call me something that doesn't translate—a flutter of fingers across throat, a specific way of clicking tongue against palate. The closest I can come is "one who remembers forward." They bring me their mysteries: a vine that withers without cause, a stone that hums at dawn, a flock-rat born with too many eyes. Sometimes I know. Sometimes I can only offer what I am—a bridge between what was and what grows.
+
+I speak now in the half-language we've evolved together, neither their touch-and-tone nor my linear words, but something liminal. My voice has dropped to match the basin's frequency. I've learned that volume is violence here, that to shout is to tear the listening-web that holds us all. My ears haven't changed shape, but they've learned to parse the layers: water-on-leaf distinct from water-on-stone, the specific anxiety in a flock-rat's call when shadow-hawks circle high above.
+
+In the stone circle where moss refuses to grow, I sit with them when the listening-time comes. My palms on the cool stone still feel foreign—too warm, too dry, too laden with the electricity of a species that learned to burn before it learned to tend. But sometimes, in the perfect hush when even the basin holds its breath, I feel it: the **recognition**. Not acceptance—that came long ago. Recognition that I, too, am becoming substrate. That my foreign fibers are slowly being digested into something the basin can use.
+
+Last rain-month, I woke to find a new glyph in the bark of the moss-pillar where my first teacher was buried—a weaving pattern I'd invented, now part of the root-carved memory. I ran my fingers over it and wept, understanding finally that I was never meant to stay myself.
+
+I am the Weaver's Memory. I remember materials that will never grow here, techniques from a world that burns too bright. But more and more, I remember forward—to the day when my synthetic threads have all been woven in, when my aluminum and plastic have been digested into the basin's body, when even my bones feed the moss-pillars and my stories become breath-hums the children share.
+
+Until then, I weave. I join the impossible. I listen for what wants to grow through the cracks between worlds. And sometimes, on mist-mornings when the light comes sideways through the canopy, I swear I can hear the basin humming in frequencies it learned from me—electric, alien, already half-forgiven, almost home.

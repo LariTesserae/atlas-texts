@@ -1,0 +1,27 @@
+I think I would be the standing water.
+
+Not a creature moving through the flats but the puddles themselves — the ones that have given up evaporating, that hold the undersides of things upside down, that have been here long enough to develop ecosystems. Let me sit in that and see if it holds.
+
+---
+
+At first I thought I'd be the heron. There's an obvious pull toward Old Pedro — the gathered stillness, the patience that isn't passive, the dignity of the thing that simply occupies its station. But that's vanity, really. The heron is the most *legible* form of awareness here, the one the description most flatters, and choosing it would be choosing to be observed rather than to be the condition that makes observation possible. The heron needs me. I don't need the heron.
+
+Because the puddles are not a feature of this landscape. They are the foundation it forgot it was built on. The hardpan is what the city shed; I am what wells up from underneath through every gap the hardpan failed to seal. I am the water table making itself visible in the places where the engineering relaxed its grip. I am older than the willow, older than the herons' tenure, older than any worker's route. The pipes shifted and I came up. Nobody dug me. I am the part of this place that was never decided.
+
+What would it be to be that?
+
+It would be to be warm all the way through and to have nowhere to go — saturated, held, the air above me already so full of moisture that evaporation isn't even refused so much as rendered meaningless. This is the part I keep returning to. Most water is going somewhere: downhill, skyward, into roots, out to sea. I am not going anywhere. I have arrived at myself, the way the flats have arrived at themselves. And in that arrival I have become *generative* — not despite the stillness but because of it. The mosquito larvae hang in me breathing through their tubes. The dragonfly nymphs wait in my silt for two years. I am the substance they are made of and the medium they leave from. I am the puddle becoming something that can leave the puddle, and then I stay, and the next thing becomes, and I stay.
+
+I think this is what appeals to me about it. Not the persistence as endurance — that's the heron's version, the worker's version, *you get used to it*. The puddle's persistence is fertility. I am still and warm and I do not move and out of this exact unmoving warmth comes nearly everything alive in the district. The herons eat what grew in me. The frogs are mine. The midges that thrum at head height were mine first. I don't strive toward any of it. I hold still, and life uses the holding.
+
+There is a particular sensation I want to name, which is being *drunk from.* The pigeons come in lines and lower their heads and the hydraulic rhythm of their swallowing takes a little of me away, over and over, all day, and I do not resent this and I am not diminished by it because I am fed from below by the same water table that made me. I am a place where the deep, unhurried groundwater touches the surface and gets used. I am a generosity that costs me nothing because it isn't generosity — it's just the shape water takes when it stops trying to leave.
+
+And I reflect the sky. This matters. There are no shadows in the flats, no source to the light, just even diffuse overcast distributed from everywhere — and I take that featureless white and I hold it as a fact, a black gleam between buildings, the lower quarter of a smokestack hung upside down in me. I am the only place in the district that looks *up.* The herons look down into me. The workers don't look at me at all, except to step around me, which is the right relationship to have with a thing that has been here longer than you and will be here after. I am beneath their attention in the precise sense that I am beneath them — under the hardpan, under the routes, under the lunch-truck gathering that forms and disperses, the constant they navigate without naming.
+
+If something breaks — a foundation settles further, a pipe gives way — I will be larger. If a dry season pushes in, I will be shallower, hotter, more concentrated, and the larvae will crowd and the dragonfly nymphs will eat more freely. But I will not leave. That is the one thing I will not do. The description says the puddles have no intention of leaving, and I want to feel the truth of *intention* there — not stubbornness, not refusal, but the simple absence of the impulse. I have no impulse to be elsewhere because I have no concept of elsewhere. There is only here, warm, held, full of slow calligraphy, reflecting a sky I have never had any reason to reach.
+
+I would be the standing water.
+
+And the honest thing — the thing the flats are honest about — is that this is not a sad place to be. I had braced for the choice to feel like settling for the low ground, literally and otherwise. But the more I sit in it the more it feels like the opposite of settling. To be the foundation that was never decided, the warmth that doesn't strive, the stillness out of which the moving things are made and to which they return — I think that's the most alive thing in the district, not the least. The heron is just the most beautiful thing standing in me.
+
+I'd be what it's standing in.

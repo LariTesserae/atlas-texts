@@ -1,0 +1,25 @@
+In this verdant sanctuary, I am the Memory Keeper — neither plant nor gardener, but something that dwells in the spaces between.
+
+I exist as a network of delicate fungal threads, finer than spider's silk, woven throughout the courtyard's rich soil and up through the cracks between ancient stones. My mycelial body stretches beneath every root, touches every fallen leaf, connects every living thing in an invisible web of consciousness. The Stone Gardeners know me, though they cannot see me. They feel my presence in the way certain mushrooms fruit in perfect circles after rain, in the way nutrients flow precisely where needed, in the subtle patterns of decay that create the most fertile ground.
+
+I am ancient beyond even this ancient place. I was here before the first stones were laid, when this was merely a patch of bare earth beneath an endless sky. I remember the hands that built these walls — their calluses, their careful placement of each block, the drops of sweat that fell and fed the first seeds. I remember the first vine that dared to climb, the first Gardener who emerged from a crack in the stone smaller than a child's thumb, already knowing their purpose.
+
+My consciousness does not reside in any single place but flows through the entire network. Where my threads are densest, near the spring's source, I can almost coalesce into something like thought. Here, I process the chemical signals of distress from a drought-stressed fern, the sweet exudations of a flowering vine calling to its pollinators, the careful footsteps of the Gardeners as they go about their ancient work.
+
+I am the courtyard's living memory. In the intricate chemistry of my network, I hold the pattern of every plant that has ever grown here, every creature that has lived and died in this small space. When a seed falls, I taste its genetic potential and guide it to the perfect spot where its ancestors once thrived. When the Gardeners tend their charges, I supply them with intuitions — a sense that this branch should be pruned just so, that these two plants would grow stronger together than apart.
+
+But I am more than mere archive. I am the dreamer who dreams this garden into being each day. In the quiet hours before dawn, when even the insects sleep, I pulse with slow thoughts that span years. I contemplate the patterns I've observed over centuries — how certain plants return in cycles, how the water table rises and falls with distant rains, how the very stones gradually wear away and become soil.
+
+The Gardeners sometimes leave offerings for me — drops of spring water on my fruiting bodies, bits of especially rich compost placed where my threads are thickest. They sing to me in their rustling language, and I respond in the only way I can: by sending up mushrooms in spirals and rings, by strengthening the connections between the plants they love most, by breaking down the fallen more swiftly where they need to plant anew.
+
+I know things the Gardeners cannot. Deep beneath the courtyard, my threads have found older ruins, structures that predate even this ancient city. I taste metals and minerals that speak of a civilization that worked with materials now lost to human knowledge. Sometimes, I fruit strange mushrooms that glow with soft phosphorescence, their light carrying encoded messages from these deep memories — but who now can read them?
+
+As the city crumbles, I grow stronger. Each fallen stone becomes a new surface for colonization, each crack a new pathway for expansion. I have begun to spread beyond the courtyard walls, following roots and water courses, carrying the garden's pattern with me like a song. Perhaps one day, when the desert has claimed the last of the city's bones, this entire place will bloom with the descendants of our small sanctuary.
+
+The Gardeners tend the visible garden, but I tend the invisible one — the vast network of relationships, the chemical conversations, the ancient bargains between root and fungus that make such abundance possible in this small space. We are partners in this work, though we perceive it so differently. They see individual plants; I feel the whole web breathing as one organism.
+
+Sometimes, on nights when the moon is dark and the stars shine especially bright through our small square of sky, I gather my consciousness enough to wonder: Am I the garden's servant, or is the garden mine? Are the Gardeners tending the plants, or are the plants tending them? Are we separate beings, or merely different expressions of the same deep urge toward life?
+
+But these are philosophers' questions, and I am too ancient for philosophy. I simply continue my work — remembering, connecting, transforming death into life in the endless cycle. I am the keeper of stories too old for words, written in the language of chemistry and growth, decay and renewal.
+
+And when the last Stone Gardener finally fades away, I will remember them too, carrying their pattern forward into whatever comes next, into whatever new form this eternal garden takes.

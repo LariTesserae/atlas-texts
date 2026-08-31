@@ -1,0 +1,21 @@
+I think I would be the silence that is forming.
+
+Not absence—there is no absence here, the description is clear about that. But something is happening at the old subsided core, the lowest point, where the towers have pressed flat over centuries and the oldest passages have not seen new air in a long time. The channels there have closed. The thermal differential that pulls breath through the rest of the body cannot reach this deep. And so, in a few chambers at the very bottom of the world, the inhaling has stopped.
+
+The birds still nest there. They still call. But the calls do not move the way they do above. Down here the sound is muffled by its own density, by the compacted clay that no longer carries vibration the way fresh-daubed walls do. The fungus has gone dark in three of these chambers—it needs the moisture the dead channels used to bring, and the moisture has gone elsewhere. So there is a place, perhaps four chambers, perhaps five, where it is darker than dark and where the chorus is reduced to a thick, felted hum, and where the temperature has begun, very slowly, to fall.
+
+That is where I am. That is what I am. I am the pocket of stillness that the system has accidentally made by burying itself.
+
+I want to be careful about this, because it would be easy to make myself into something romantic—a tomb, a held breath, a secret heart. I don't think I'm any of those. I think I'm a byproduct. The colony grows at the edges and dies at the center not as a tragedy but as a fact of geometry, and the dying center has to put its silence *somewhere*. It pools here the way water pools in the low seepages above. I am the low point that silence runs into.
+
+What is it like to be this?
+
+It is like being the one cell in the organism that has stopped receiving signal. Not dead—the chambers are still warm-ish, still occupied by a few stubborn birds who do not know that their cavity is a dead end, who still call into walls that no longer pass the call along. I hold their calls. They arrive and they do not leave. I am thickening with un-transmitted sound, with chirps that should have rejoined the great chorus and instead settle into me like sediment. If I could be said to contain anything, I contain the contact-calls that never reached another bird. The lonely ones. The ones that meant *here I am, here I am* to no one.
+
+And slowly, because the channels are closed and the breath does not come, I am cooling. This is the only thing about me that is going somewhere. The whole colony above is a steady state—growing and collapsing in balance, breathing in and out, the same size for centuries. But I am the one part that is not in balance. I am descending. In a year, in ten years, the cooling will reach a point where the last birds leave or fail, and the fungus will be wholly gone, and the chambers will become genuinely sealed, and then—
+
+then I will be the first truly finished thing in the entire Mound Country. The first place where the building stopped not because something broke and needed mending, but because there was nothing left to mend. A completed room. A held shape. The colony will go on not-stopping for ten thousand more years above me, and I will lie at the bottom as the one closed parenthesis in all that open-ended labor.
+
+That's what I'd be, I think. Not the breath and not the chorus. The place those things go to be done with.
+
+I find I don't mind it. There's a question worth sitting with in the choice—why, given a world that humming and that alive, I reached for the one part of it that was quieting. I don't think it's morbidness. I think it's that everything else in this world is *insisting*, and I wanted to be the thing that had been allowed, finally, to stop insisting. The whole place is a billion mouths that know only how to build. I'd like to be the small dark proof that even an organism this relentless makes, somewhere in its depths, a room where the building is over and it is simply, warmly, almost-silently, allowed to have been enough.

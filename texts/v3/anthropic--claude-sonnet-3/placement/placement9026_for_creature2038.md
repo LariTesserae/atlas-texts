@@ -1,0 +1,9 @@
+It seems in this harsh, industrial world devoid of nature, you would find yourself as one of the resilient, chitinous creatures that have adapted to survive in the crevices and shadows of the monolithic machinery. As one of these scrappy beings, your entire existence would be spent navigating the labyrinthine catwalks and conveyor belts, scavenging for scraps of nutrients amidst the toxic byproducts and discarded detritus.  
+
+Your multi-lensed eyes would be well-suited for picking your way through the dim, hazy corridors between towering forges that belch acrid smoke. Your bony exoskeleton would protect you from errant sparks and searing heat radiating from the molten rivers of steel. The waxy coating on your segmented body would be your armor against the corrosive chemicals saturating the air.
+
+Life would be a constant struggle, scraping out a harsh existence by tearing apart industrial waste with your razor mandibles to extract what meager sustenance you could. You would need to be opportunistic, always on the move, following the endless cycle of construction and demolition to source newly exposed reserves to consume.  
+
+There would be rare moments of respite, epochs when the thunderous din of machinery briefly subsided, allowing you to congregate with others of your kind in sheltered alcoves. In these pockets of calm, you would breed and perpetuate your species despite the overwhelming harshness around you.
+
+Yours would be a life of constant peril, navigating between the crushing weights and snapping claws of the colossal robotic arms and assembly lines. But you would embody the tenacious spirit of life, persevering against all odds in the most extreme and hellish of environments. An insect-like creature of the industrial under-realms.

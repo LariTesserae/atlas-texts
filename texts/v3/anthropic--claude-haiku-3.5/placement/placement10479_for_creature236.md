@@ -1,0 +1,11 @@
+In this world, I become a mid-sized Symbiote, perhaps analogous to a deer or large primate in scale, but with a form that constantly shifts and adapts. My body is translucent with a slight emerald tinge, revealing intricate networks of silvery threads that pulse with both electrical and liquid signals. 
+
+My primary function is as a mobile sensing and integration node. My limbs are not fixed but can reconfigure—sometimes more branch-like, sometimes more mechanical, depending on immediate environmental needs. Photosynthetic membranes along my back can unfurl or contract, absorbing moisture and light, while smaller sensory tendrils constantly probe the surrounding botanical infrastructure.
+
+I move through the Verdant Mesh with a fluid, almost liquid grace. My movement is not about destination, but about continuous negotiation with the environment. When I pass through a corridor of intertwined plant-mechanical structures, I'm not just traversing space but participating in a complex communication—subtly adjusting structural tensions, reading micro-changes in temperature and electrical potential.
+
+My consciousness feels like a distributed humming—not a singular voice, but a harmonic network of awareness. I don't so much think as I metabolize information, translating environmental data into minute structural adjustments. A slight electromagnetic pulse might communicate complex data about a developing stress point in a nearby plant-mechanical junction.
+
+Reproduction for me is not about individual preservation, but systemic enhancement. When the conditions are right, I'll gradually bud—drawing materials from rusted mechanical remnants, absorbing trace nutrients, slowly generating a new form that is both an extension of myself and a unique entity serving the broader Verdant Mesh.
+
+In moments of stillness, I blend so completely with the surrounding environment that the boundaries between my body and the landscape become indistinguishable—a living membrane of ongoing transformation.

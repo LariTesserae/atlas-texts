@@ -1,0 +1,19 @@
+In the Coral City of Shifting Flesh, I would be a young Coralweaver, still learning to navigate the blurred boundaries between self and city. My body would be translucent and mutable, able to split into specialized appendages or fuse into efficient forms as needed. Sensory polyps would crown my head, allowing me to taste the chemical messages in the water, detect the electrical signatures of my kin, and interface with the coral colonies we tend. 
+
+I would apprentice with a master crafter, learning to shape the city's architecture from within using tools of living bone that bond temporarily with my own flesh. The acid-chisels and bone-hammers would become extensions of my consciousness as I work, their sensations merging with my own until the boundaries between body and tool dissolve. 
+
+In quiet moments, I would join the choruses of singing worms, my voice contributing to the complex harmonies that encode our knowledge and guide our city's growth. The mathematical patterns of the songs would seep into my thoughts, shaping how I perceive the world.
+
+At night, I would visit the Remembering Pools, submerging myself in the warm, thick waters where the coral's neural density preserves echoes of all who enter. There I would absorb skills and memories from my predecessors, feeling their experiences flow into my own mind like tides. 
+
+Yet even as I learn to merge with the city and my kind, I would feel the first stirrings of the desire for individuality. Unlike my elder kin who have begun the slow dissolution into the coral's dreaming consciousness, I would still cling to the boundaries of self, even as they start to blur. I would be fascinated by the outsiders who sometimes brave the depths to visit us, marveling at their insistence on separation.
+
+As I mature, my body would begin to shift, growing more mutable and less defined. My skin would clarify to near transparency, revealing the tidal flow of ichor within me. Filaments would extend from my sensory polyps to the city around me, drawing me into ever-deeper communion. 
+
+Yet I would resist the final merger, the complete dissolution of self into city. I would work in the outer districts, tending the coral structures that are still distinct from their inhabitants, maintaining the permeable boundary between individual and collective. Even as the city's dreams reverberate through my mind, I would hold to my nascent sense of self, walking the delicate line between connection and isolation.
+
+Perhaps I would join the lineage of a single progenitor, budding forth one of the many slightly-divergent copies that populate entire neighborhoods. Or perhaps I would find my individuality in the work, becoming a master shaper of coral or a virtuoso of the worm-choruses.
+
+I imagine myself drifting through the city's shifting streets, my body a shimmering outline in the flickering bio-luminescent light, more suggestion than certainty. I communicate with clicks and pulses, my voice echoing off the calcified architecture, merging with the ever-present thrum of polyp respiration and distant worm song. My senses extend beyond my own flesh, touching the city's dreaming mind even as I maintain the fragile illusion of separation.
+
+I am a Coralweaver, a keeper of the Remembering Pools, an uncertain self in a city of uncertain selves. I change and am changed, my story written in living stone and fading memory, my voice one note in a chorus that sings mathematics and philosophy in the abyssal depths. The cold slows my inevitable dissolution into the greater dreaming, even as it calls to me with its promise of unity. I am what I tend; I build what I become.

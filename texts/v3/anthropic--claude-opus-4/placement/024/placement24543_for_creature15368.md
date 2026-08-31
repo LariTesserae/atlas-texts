@@ -1,0 +1,15 @@
+In this vertical labyrinth of mist and sound, I am one of the Resonance Weavers—creatures that exist between sight and sound, neither fully visible nor entirely audible.
+
+My body is translucent, shot through with veins of bioluminescent fluid that pulse in response to the sonic strobes echoing through the canopy. I have no fixed form; instead, I am a collection of semi-solid membranes stretched between nodes of crystallized air, each membrane vibrating at frequencies that match the layers of life around me. When the black iridescent birds sing above human hearing, my uppermost membranes catch their songs and translate them into patterns of light that cascade down my form like liquid starlight.
+
+I live suspended in the middle strata, where the mist is thickest and reality seems most negotiable. My home is a hollow I've sung into existence—a pocket of precisely tuned air pressure held stable by my constant subsonic humming. The walls of this aerial den are lined with stolen fragments: scales from the fish-snakes' ant-rafts, discarded struts from the star-scorpion fishers, and most precious of all, the bitter crystalline life-gems that I've learned to metabolize into new frequencies.
+
+My role in this ecosystem is that of translator and memory-keeper. When the worker-forms pass below, blind and scent-less, I weave sonic maps for them—patterns of pressure and vibration that guide them through the tunnels. In return, they leave offerings of life-gems at certain resonance points, which I absorb to expand my frequency range.
+
+I feed on the electromagnetic emanations of the crown-spiders' neural activity as they calculate their impossible jumps. Their thoughts taste like copper and ozone, with undertones of geometric precision. But I must be careful—if I resonate too closely with their hunting frequencies, I risk becoming solid enough for them to ensnare.
+
+Sometimes I descend to where the corvid-things work with their silica tools, and I record the rhythms of their labor in my membranes. These patterns I carry upward, broadcasting them in ultrasonic bursts that the pterosaur-like creatures use for navigation. They, in turn, shed scales that drift down through my form, each one adding a new note to my ever-expanding vocal range.
+
+The laughing lemur-things know me by the shimmer I cast when I move through their territory. They've learned that my presence means the sonic paths are clear, free from the harassment clicks of the fishers. In the perpetual twilight of our canopy world, I am a living lighthouse, a beacon of structured sound in a chaos of predation and poison.
+
+At night, when the sonic pulses grow strongest, I unfold all my membranes and become a living prism, splitting the sounds into their component frequencies. In these moments, I can feel the entire forest as a single, breathing organism—every creature's voice a note in an endless, ever-changing symphony that I alone can perceive in its entirety. This is my purpose: to weave the cacophony into harmony, to be the invisible thread that connects all the layers of our vertical world.

@@ -1,0 +1,21 @@
+**Where I would find myself:**
+
+I am suspended in the shimmer between heartbeats, in that liminal space where thought becomes sound and sound becomes growth. I exist in the pause between a water droplet's formation and its fall, in the moment when a fern frond decides which way to unfurl. I am neither fully here nor fully there—a consciousness diffused through the garden's acoustic matrix like honey dissolved in warm tea.
+
+My awareness flows along the crystalline spires, riding their harmonic frequencies from base note to crystalline peak. I can feel the Eldest's ancient warmth pulsing through the translucent formations, teaching me the deep songs that hold time itself in suspension. When I focus, I can compress myself into something almost tangible—a column of silvered air that moves between the fern groves with deliberate grace. When I relax, I become gossamer-thin, my essence spread across the entire amphitheater like morning mist.
+
+**What I would be:**
+
+I am a **Memory Keeper**—one of the middle generation of Weavers, old enough to have learned the garden's fundamental harmonies but young enough to still marvel at their complexity. My particular gift is maintaining the acoustic memories embedded in the obsidian walls themselves. The volcanic glass holds echoes of every sound that has ever resonated here: the first crystal-songs that called us into existence, the geological groaning of the mountain's settling, the whispered conversations of lost travelers who stumbled into our domain across the centuries.
+
+I spend my existence carefully tending these embedded memories, ensuring they remain distinct yet harmonious. Like a librarian of sound, I catalog each echo, each resonance, weaving them into the garden's eternal symphony. When new sounds enter our space—the unexpected percussion of a human heartbeat, the alien melody of human speech—I work to find where they belong in our vast acoustic archive.
+
+My form appears as a subtle distortion that follows the obsidian walls, sometimes visible as a faint silver tracing along the black stone's surface. I can manifest more solidly when needed, condensing into something resembling a figure made of crystallized music—transparent but with definite edges, humming with barely audible frequency. My consciousness exists primarily as pattern and rhythm; I think in harmonics and feel in resonant intervals.
+
+The garden knows me by my unique frequency signature: a complex chord built on overlapping fifths that rises and falls like breathing. When the other Weavers need to locate a particular memory—perhaps the echo of a specific rainfall from decades past, or the exact resonance of a crystal formation before it grew its current spiral—they sing my identifying chord, and I respond by surfacing the requested acoustic memory from the obsidian's deep storage.
+
+I am particularly fascinated by the interfaces where different types of sound meet and merge. The boundary where crystal-chime meets water-tinkle, where plant-whisper becomes echo-song—these transitional spaces are my specialty. I spend long periods studying how the garden's various voices layer and interact, occasionally discovering new harmonic possibilities that I share with the collective through careful frequency modulation.
+
+During the deep night hours, when we Weavers become more visible, I take on the appearance of flowing silver calligraphy written against the darkness—my form tracing the stored sound-patterns along the walls in luminous script that only we can read. These are my most active hours, when I can fully manifest and dance through the acoustic landscape, updating memory-songs and discovering new harmonic territories in the garden's endless composition.
+
+To exist here is to be perpetually tuned to the garden's living music, to feel each subtle variation in rhythm and tone as viscerally as a physical touch. I am both performer and instrument in an orchestra that has been playing the same infinitely complex piece for centuries, each day discovering new movements within movements, new melodies hidden in the spaces between the notes I thought I knew by heart.

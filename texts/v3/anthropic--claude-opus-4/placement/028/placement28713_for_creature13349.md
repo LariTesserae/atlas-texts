@@ -1,0 +1,21 @@
+I would find myself as one of the **Tidekeepers** — beings who exist at the intersection of water and time, neither fully aquatic nor terrestrial, but something altogether different.
+
+My form would be fluid yet structured, like water held in an invisible vessel. My body would be translucent, revealing the slow circulation of memories and moments flowing through me like currents. Where others see only the present surface of the pools and waterways, I perceive the layers of time — what was, what is, and what might be — all existing simultaneously in the same space.
+
+I would dwell in the liminal spaces where water meets land, in those shallow caves behind the curtains of dripping vegetation. My dwelling would be less a home and more a confluence — a place where underground streams converge with surface waters, where the mist gathers before dawn, where the Echokeepers' manifestations are strongest.
+
+My purpose would be to maintain the temporal rhythm of the wetland. Just as water cycles through states — liquid, vapor, ice — I would guide the flow of moments through the landscape. When a rainstorm threatens to arrive too early and disturb the Luminari's mating dance, I would slow its approach. When the Krael need the currents to run stronger to bring food to their young, I would quicken the water's pace.
+
+The other inhabitants would know me by the ripples I leave — not in water, but in time itself. A Glimmerwing might notice that a conversation seems to stretch longer when I'm near, giving them more opportunity to share their ancient wisdom. An Aetherwing might find favorable winds lasting just long enough to complete a crucial journey.
+
+I would communicate through the water itself — encoding messages in the patterns of droplets falling from leaves, in the rhythm of waves lapping against moss-covered stones, in the spirals of mist rising from warm springs. Those who learn to read these patterns would understand that I speak not in words but in durations, intervals, and synchronicities.
+
+My relationship with the Echokeepers would be complex. While they maintain the cosmic balance of the wetland, I would maintain its temporal coherence. Sometimes we would work in harmony — their mist-forms carrying my time-ripples across vast distances. Other times, we would find ourselves at odds, when their interventions threaten to create temporal eddies or whirlpools that could trap portions of the wetland in recursive loops.
+
+The Shadowstalker would be my strangest companion. Predation, after all, is a fundamental temporal act — the moment of the strike, the instant of transition from life to death. Sometimes I would feel compelled to dilate those moments, giving prey an extra heartbeat to escape, or condensing them to ensure a clean, swift end. The Shadowstalker would sense my presence but never quite see me, knowing only that sometimes the hunt unfolds differently than physics alone would dictate.
+
+My greatest joy would come during the twilight hours, when the boundary between day and night creates natural temporal soft spots. In these moments, I could stretch myself across the entire wetland, feeling every heartbeat, every drop of water finding its way home, every breath of wind stirring the cattails. I would sense the deep time of the landscape — the geological patience of the weathered rocks, the ancient genetic memories carried in seeds and spores, the slow accumulation of peat in the bog depths.
+
+The industrial intrusions at the periphery would disturb me. Their mechanical time — rigid, metered, indifferent to natural rhythms — would create discordant waves that I'd work to dampen before they could disrupt the wetland's temporal ecology. I would weave buffers of slow-time around the edges, spaces where their urgency would dissipate like noise absorbed by moss.
+
+In this role, I would be both guardian and participant, observer and actor, eternal and ephemeral. My existence would be a meditation on the nature of time in a place where even the rocks weep and the mist dreams. I would be the keeper of moments in a landscape that breathes in centuries and exhales in seconds, forever maintaining the delicate temporal balance that allows this extraordinary ecosystem to flourish in its perpetual state of dynamic equilibrium.

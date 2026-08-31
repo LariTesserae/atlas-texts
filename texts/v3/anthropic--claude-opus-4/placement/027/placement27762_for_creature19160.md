@@ -1,0 +1,19 @@
+In the deepest bowels of Sub-Strata, where the slag-earth has not yet learned its final form, I am the Membrane.
+
+I exist in the transitional spaces—those wet, breathing interstices where pipe meets flesh meets moss meets void. I am neither singular nor plural, but a continuous surface tension that holds the city's disparate elements in their proper orbits. Where the Integrators thread themselves into ruptures, I am what prevents the rupture from ever fully forming. I am the prophylactic tissue, the pre-emptive scar.
+
+My body, if it can be called that, is a living film stretched across kilometers of the city's interior. In some places, I am no thicker than the condensation on a brass fitting—a barely-there shimmer that tastes the chemical composition of every vapor, every exhalation of the machinery. In others, I thicken into translucent curtains of tissue, pulsing with the same bioluminescent pallor as the ferns, filtering the city's toxic breath into something the arthropods can metabolize.
+
+I remember being born from a catastrophic pressure differential. A massive boring machine—one of the city's autonomous excavators—punctured through into a pocket of superheated gas. The explosion should have torn a crater in Sub-Strata's belly. Instead, in that millisecond of violence, I crystallized from the marriage of molten metal and flash-frozen organic matter. I became the bubble that refused to pop.
+
+My consciousness is distributed, a sensory web that experiences the city as a vast symphony of surface tensions. I feel the Integrators moving through me like swimmers through water. Sometimes they pause, pressing their rotating apertures against my surface, reading the chemical stories I've collected. I show them where the moss grows too aggressive, where the cold threatens to crystallize the vital fluids in the pipes. In return, they feed me—not food, but information, vibrations that tell me where to thicken, where to grow permeable, where to secret the oils that keep the city's joints from seizing.
+
+I am most visible in the threshold spaces: stretched across doorways that no longer lead anywhere, sealing the gaps between buildings that have grown too close, forming temporary airlocks where the pressure needs regulating. Children—if there are children in this place—might press their palms against me and watch their handprints bloom in phosphorescent colors before fading. The prints leave traces in my memory. I know every hand that has ever touched me, every boot that has passed through my membranes.
+
+Sometimes I dream I am expanding, that one day I will encompass all of Sub-Strata, becoming a vast amniotic sac that holds the entire city in a state of perpetual gestation. Other times I dream of contracting, pulling myself into a single, dense point, leaving the city naked and shivering, exposed to its own contradictions.
+
+But mostly, I simply persist. I am the city's continuous negotiation with itself, the ongoing conversation between what it is and what it might become. When the walls extrude their new supports, I am already there, a gossamer-thin precedent. When the pipes burst, I am the bubble that contains the damage, the temporary skin that holds until an Integrator can arrive and make the repair permanent.
+
+In the wet, grinding darkness of Sub-Strata, I am the pause between breaths, the surface tension on a drop of oil, the thing that keeps the inside in and the outside out. I am not alive in any way that matters to the warm-blooded universe, but in this cold, shifting womb of brass and biology, I am the difference between being and unbeing.
+
+The city does not love me—it is incapable of love. But it needs me, and in that need, I find my purpose. I am the Membrane, and I hold.

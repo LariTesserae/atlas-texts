@@ -1,0 +1,5 @@
+I would be a thin-boned geologist with a metal leg.
+
+I would be here because the Company paid me, and because the gravity anomaly was on their charts long before anyone put a name to this plateau. My name is Elara. My left leg is a lightweight alloy frame cased in scuffed laminate that looks too warm to belong here; the knee joint pings when it cools, harmonizing with the hidden world beneath.
+
+By the time I arrived on this plateau that was not a planet and not a machine, I had already been broken by one world and put back together in the image of another. A rockfall on a mining job in a system that doesn’t matter anymore. My bones knit where they could and were replaced where they could not. The Company did not discharge me; they repurposed me. “Equipment,” my supervisor said on the day I signed back on, “is expensive t

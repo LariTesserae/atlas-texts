@@ -1,0 +1,33 @@
+# My Place in the Singing Canopy
+
+I am a Cartographer of Echoes.
+
+My body bears the modifications of three traditions. From birth, I was raised among the Chorus Weavers, my limbs trained to fractal articulation, my throat blessed with the secondary vocal sacs that let me sing through the breathing holes. But in my adolescence, I felt the pull downward, and spent seven years among the Deep Shepherds, learning to feel the stone-words in the roots, letting my eyes cloud until sight became secondary to vibration. The Luminal Mites that colonized my shoulders during my Weaver initiation adapted with me, their glow shifting to deeper spectrums that only the blind-fish see.
+
+Now I inhabit the spaces between—neither fully of the heights nor the depths. My work is solitary and essential: I map the hollow networks within the titan trunks, the vast wooden caverns that honeycomb these living towers. Each trunk contains thousands of chambers, passages, breathing holes, and acoustic spaces. They shift as the trees grow, open new connections, seal old ones. Without maps, the vertical cities would lose themselves, trade routes would dead-end in fresh bark, sacred chambers would be swallowed by time.
+
+I move through darkness absolute, my clouded eyes useless here. Instead, I sing. My voice has been trained to produce seventeen distinct tones simultaneously—a throat-singing technique the Weavers call "chord-flowering." Each tone reflects differently off bark, off stone, off the fungi gardens, off moving air. In my mind, the echoes build a three-dimensional map painted in sound. I can hear the shape of a chamber five hundred meters away, detect the breathing of a sleeping colony of climbers, feel the vast hollow spaces that drop into root-darkness below.
+
+My equipment is minimal. Spore-ink and bark-paper for recording, though most of my maps live in memory songs I compose as I travel. A hollow bone flute that helps me test acoustic properties of new spaces. Bioluminescent paste made from my own mites' secretions mixed with fungal growth, for marking paths others will need to see. Dried foods that won't spoil in the humidity. Medicines for the inevitable infections that come from squeezing through spaces meant for no living thing.
+
+The work is dangerous. Not from predators—few large creatures hunt in the trunk interiors—but from the spaces themselves. Chambers flood with condensation during storm seasons. Passages close as bark grows inward. Sometimes I encounter pockets of gas from decomposition deep below, or find myself in acoustic dead zones where my echo-sense fails and I must navigate by touch alone, hoping my mental maps hold true.
+
+But there are wonders that make the isolation worthwhile. Last season, I discovered a chamber where the Memories had gathered—seventeen of them in their bark-sleep, arranged in a pattern that channeled their collective breathing into harmonics I'd never heard. I spent three days listening, learning a song that described the root structure of the entire eastern trunk complex, knowledge that would have taken me decades to map manually.
+
+Another time, I found what the Weavers call a "throat room"—a chamber shaped perfectly to amplify certain frequencies. When I sang my mapping songs there, they carried through the entire trunk network, reaching Weaver settlements twenty kilometers away. Now that chamber serves as a communication hub, its location one of my gifts to the communities I serve.
+
+My proudest discovery: the Garden Chamber, a hollow near the crown where a hole in the trunk wall lets in enough light for photosynthesis. An entire ecosystem thrives there—plants unknown to the twilight world below, tended by a colony of Aerial Tenders who landed during a storm and decided to stay. They'd been isolated for a generation, developing their own dialect, their own cultivation techniques. My maps connected them back to the wider world, though they chose to remain in their bright enclave, trading seeds and songs down the newly marked routes.
+
+The Luminal Mites along my spine have adapted to my work. They pulse in patterns that help me measure distance—each pulse a heartbeat, each heartbeat a meter traveled. In the deepest darks, their faint glow is my only companion. I've learned to read their chemical moods: anxiety when oxygen runs low, excitement when we near water, a peculiar vibration when they sense others of their kind nearby. We are partners in exploration, their simple consciousness touching mine in ways that blur the boundaries of self.
+
+Sometimes, in the vast chambers where ancient winds howl up from the roots, I practice the songs I've learned from different peoples. Weaver harmonics blend with Shepherd percussion, while ultrasonic Tender melodies weave between. I'm creating a new musical tradition—the Song of the Whole Tree, a composition that requires knowledge of every acoustic space, every breathing hole, every resonant chamber. It may take me a lifetime to complete. It may take several lifetimes.
+
+I leave copies of my maps in hidden places, carved in symbolic notation that combines three writing systems. Future generations of cartographers will find them, add their own discoveries, correct my errors. The trees will outlive us all, but our knowledge accumulates like shell-layers, each generation adding to the nacre of understanding.
+
+The loneliness is real. Months pass without hearing another voice besides my own echoes. But in the darkness, mapping spaces no one has breathed in for centuries, I feel connection to something vast—not just the trees, but the entire project of consciousness trying to understand its home. Every chamber I map becomes part of the Canopy's self-knowledge. Every passage I chart is a synapse in a wooden brain the size of a mountain range.
+
+When I die—and cartographers often die alone, lost in unmapped spaces—my mites will continue glowing for days, a fading constellation in the dark. Perhaps someone will find me, perhaps not. But my maps will survive, carved in bark, sung in settlements, remembered in the throat-rooms where echoes live forever. I will become another note in the Singing Canopy's eternal composition, my work a verse in a song that began before memory and will continue until the last tree falls silent.
+
+This is my place: between sounds, between spaces, between communities. I am the nervous system's maintenance, the keeper of wooden synapses, the one who ensures the great body knows itself. In a world of vertical territories and vast voids, I am the horizontal thread, connecting trunk to trunk through the mapped mysteries of their hollow hearts.
+
+The echoes know me. That is enough.

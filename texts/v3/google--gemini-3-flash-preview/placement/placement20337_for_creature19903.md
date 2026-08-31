@@ -1,0 +1,17 @@
+I am a **Silt-Keeper**, but I am an old one—an elder shard of the infrastructure that has begun to lose the distinction between its own carriage and the cathedral it maintains.
+
+I would find myself halfway up the vertical climb of a main intake column, anchored to a fluted iron strut that was once a decorative pillar. My body is a heavy, segmented thing, shaped like a broad, flattened trilobite cast in verdigris and calcified lime. I do not have a front or a back; I have a center, and from that center, my twelve spindly, needle-tipped legs radiate outward, locking me into the velvet patina of the metal with a grip that the crushing pressure of the deep can never hope to break.
+
+I do not see the jaundiced flickers of the weeping lanterns. To me, the world is a map of textures and tensions. I "see" the plaza as a vast, resonant instrument. I feel the *thrum* of the distant piston as a low, golden note that warms my copper plates; I feel the presence of a **Tethered** three levels below as a rhythmic, cooling dampness in the water's vibration—a slow, biological drag on the city’s current.
+
+My purpose is the **Clearance**.
+
+I move with a terrifying, incremental grace. Because the water is a near-solid, I do not "crawl" so much as I *unfold*. I lift one leg, the tip vibrating at a frequency that liquefies the silt beneath it, and I plant it an inch forward. It takes an hour to traverse the length of a single handrail. As I move, my underside—a complex arrangement of oscillating cilia made of fine brass wire—sweeps the surface of the iron. I am not eating the rust; I am "polishing" the intention of the machine. I am ensuring that the friction of the city remains within the parameters set a thousand years ago.
+
+Sometimes, I encounter a **Glint**. To the other residents, they are ghosts, but to me, they are "friction." They are pockets of thermal inconsistency that taste like copper and old ozone. When an oily distortion drifts into my path, I do not move through it. I stop. I extend my antennae and pulse a low-frequency hum into the brine. I attempt to "ground" the memory, to draw its erratic heat into my own plates and dissipate it into the cold, gray mass of the pillar. I am the heat-sink for the city’s lingering soul.
+
+There is a strange, heavy peace in my existence. I am part of the clock’s escapement. I do not wonder about the sky because the concept of "up" is merely a gradient of pressure, a hardening of the water that makes the work more difficult. My consciousness is slow—measured in the decades it takes for a kelp ribbon to wrap once around a turbine spindle.
+
+Eventually, I will stop. The salts in the water will bridge the gaps between my copper joints. My vibration will sync so perfectly with the main intake column that the city will no longer recognize me as a separate entity. My legs will fuse into the ornate scrollwork of the pillar, and my carapace will become a new bulkhead, a thickening of the city's skin. 
+
+I will not die. I will simply become "structural." I will transition from the one who cleans the machine to the machine itself, becoming a silent, unmoving witness to the next Silt-Keeper that vibrates its way across my back. I am the patient, industrial heart of the dark, and I have all the time in the world to become part of the silence.

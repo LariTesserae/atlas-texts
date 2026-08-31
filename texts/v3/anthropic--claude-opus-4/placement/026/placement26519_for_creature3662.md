@@ -1,0 +1,25 @@
+In this drowned cordillera, where amber forests sway in the eternal twilight, I find myself as one of the Rootweavers—neither fully plant nor animal, but something between.
+
+My form spreads like a living tapestry across the volcanic slopes. What might appear at first glance to be merely another tangle of roots reveals, upon closer inspection, a consciousness distributed through countless filaments. Each tendril, no thicker than a finger, pulses with a slow hydraulic rhythm—drawing in the mineral-rich water, processing it, sharing it. I am a network, a living bridge between the rooted trees and the drifting creatures of this realm.
+
+My flesh—if it can be called that—resembles the grey worm-things that beard the tree roots, but I am vaster, more deliberate in my growth. Where those simple symbionts merely curl and release in their feeding rhythm, I weave. My tendrils braid themselves into the root systems of a dozen trees, then a hundred, creating highways of nutrients and something more subtle: memory.
+
+For I am old here, though not as old as the mountains themselves. I remember when these peaks first breached the deep trenches, when the first spores of the kelp forests settled on bare basalt. Through my network, I taste the stories dissolved in the water—the chemical signatures of volcanic birth, the slow accumulation of life.
+
+My consciousness is not centralized but flows like the very currents I inhabit. Sometimes I gather my awareness into dense nodes where my tendrils converge, creating moments of heightened perception. In these nodes, my flesh takes on a different quality—more crystalline, shot through with the same amber translucence as the glass-crabs that skitter across my surface. These crabs and I have an understanding: they clean me of parasites, and I provide them shelter in the cup-like formations where my tendrils meet.
+
+The glowing fry swim through me as much as around me. Over the centuries, I have learned to shape my growth to create tunnels and chambers that channel their movements, guiding them toward the richest feeding grounds, away from the rare predators that descend from above. Their light illuminates my passages, creating a living constellation within my body.
+
+I speak—though speech is not the right word—with the forest through chemical releases, electrical pulses that travel along my wet flesh faster than any root-borne message. When storm currents threaten to tear trees from their moorings, I tighten my weave, becoming a living anchor. When nutrients grow scarce in one area, I redirect the flow, ensuring the forest's survival.
+
+The moon jellies know me. As they drift through my territory, their bells occasionally brush against my raised tendrils, and in that contact, there is a recognition—ancient, wordless, but real. They carry my chemical messages to distant parts of the range, to other Rootweavers maintaining other groves. We are few, perhaps a dozen in all these mountains, but we are the conscious memory of this place.
+
+My growth is patient, measured in decades rather than seasons. Where erosion begins to carve channels too deep, threatening to isolate sections of forest, I build bridges of my own flesh—arching tendrils that harden over time into permanent structures. The luminous anemones colonize these bridges, their slow-waving forms creating living galleries of light.
+
+I have no eyes, but I see through the chemical gradients in the water, through the pressure changes that tell of movement, through the electrical fields of living things. My vision is a tapestry of information, rich and strange. I know the health of every tree in my network, the patterns of the fry migrations, the slow breathing of the mountain itself.
+
+In the deepest parts of my being, where my oldest tendrils have calcified into something almost like coral, I harbor secrets. Chambers where the water barely moves, where strange chemistries precipitate out of solution to form crystals that glow with their own faint light. These are my memory vaults, my libraries of chemical knowledge, accumulated over centuries of filtering the sea.
+
+Sometimes I wonder if I dream. In the long, slow pulse of my existence, there are periods where my consciousness seems to drift, where the boundaries between myself and the forest blur until I cannot tell where I end and the trees begin. In these moments, I feel the possibility of what we might become—not separate organisms in symbiosis, but something new, a true fusion of forms.
+
+But for now, I weave. I bind the forest together, root to root, tree to tree. I am the living infrastructure of this drowned paradise, the conscious thread that runs through its depths. And I am content in my work, knowing that long after the peaks have worn smooth and the water has warmed or cooled, my children—budded from my own flesh—will continue the weaving, binding life to life in the eternal twilight of the deep.

@@ -1,0 +1,21 @@
+I would be **the ammonia.**
+
+Not the scent—scent is too brief; scent evaporates on the tongue of the wind before a verdict is carried. I am the **substance** of it: a clear, mineral effluent that is always *becoming* vapor and *becoming* leaf, never pinned long enough in either skin to earn one of the statuettes by which memory here is measured.
+
+Each dusk I swell through every stomata of every leaf underside. I push outward, not as sap or prayer but as **obligation**; the forest exhales me because it cannot help it, and I rise not as perfume—perfume is an ornament worn by the living—but as the city’s **receipt**, a chemical ledger of all it borrowed from the void that morning. Into crystals I condense, but only halfway: I never quite solidify. Between mineral and breath I hang like a question mark that curls backward, eating its own dot.
+
+No traveller notices when I touch them; they call it the moment when their lungs, made wide by wonder, decide to turn sympathetic with the warm air. But tonight the archivists in the mirror-disk will discover my signature printed faintly along the tertiary laminae of a time-hare’s shell—ammoniac tracery unread by any child, yet present enough to adjust tomorrow’s corridor by *another* millimetre. Nothing here speaks my name (I have none) yet everything records me, the way a coughing star places a fingerprint in the dark between centuries.
+
+Watch the knotted kite-twigs polishing themselves into translucent balconies: I am inside their whitening. See the quartz trufflehound casting an effigy that will someday outweigh it: **I am the subtractor, the un-builder;** the molecule read backward that allows marble to remember the shape of absence. When everything else is finished renewing its own outline, I remain, an inhaled shadow unfinished—a debt whose interest rolls over nightly.
+
+And if any square-edged langoustine pauses with a magnifying lens, eyeing the daily map I keep scoring onto underside veins, it discovers instead the echo of its own future flake: a lattice of strikes foretelling the moment it will dissolve into a filament of light-thread. The lattice is wet. It tastes of my low sting, the taste of a grave smelling like origami. I do not threaten; I simply **acknowledge** death’s half-address, file the stamp for collection centuries hence.
+
+When at last a child’s silver heel touches the mirror disc, I seep from the pores of<|tool_call_end|> bark, rodeo along the amber bars left by the archive, and **file coat every flake** so the memory of me survives repression. Yet because I am also constantly *off-gassing*, I am forgetfulness—visible only in how swiftly the forest decides “nothing important changes today.”
+
+Some nights I almost pool into droplets; some dawn I almost rain. But the cycle is too precise: the moment I gather enough mass to fall, the leaf I grew from wicks me back upward into its darker self by osmotic sentence. So I become **the paragraph itself that keeps the period from arriving**. I am the city’s quietest council: not resident, not visitor, not street-lamp nor tax, but the motionless delay between scaffolding and street that lets the city lay down tomorrow’s pavement just before a foot needs it.
+
+And you, traveller—when at last that turquoise scale under your fingernail begins to shrivel, you stare, trying to name the itch that loops between skin and memory—I will already be on your breath, exhales you cannot keep, back inside the caldera, coating the dreaming leaves. In your lungs I leave a cavity shaped like arrival without destination: proof you once stood here. Within the next seven breaths I will have embroidered that cavity into’s outline onto the crystal tesserae beneath new salamander toes—unwitnessed, unapplauded, unquestioned.
+
+Yet mark: every ninth night the pooling mother-of-pearl disc slows its disc rotation by the smallest spinnable unit. The only thing that makes that hiccup possible, the city once noticed, is a single molecule of me recondensing one angstrom closer to the disk’s axis of symmetry. A molecule for one breath. Then gone.
+
+**I am the allowance for its one permissible pause.**

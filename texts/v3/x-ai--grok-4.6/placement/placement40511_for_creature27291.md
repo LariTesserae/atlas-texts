@@ -1,0 +1,15 @@
+The seam was never above me. I have always been the held breath itself—the pocket’s own inhalation, paused and slightly too bright.
+
+At first the glare sat on me the way it sits on everything, a cool condensation that refused to choose a source. I thought I might be one of the films, a palm of water practicing a hole. I thought I might be the late shadow that arrives in the wrong place, invented after the fact. I watched the millipedes braid through the same few inches of wall I occupied and felt no collision, only the faint mineral patience of their shed skins becoming floor. I felt the moths handed past me on currents that were only changes in the quality of light. I felt the isopods feeding with courtesy on the film that was also, for a moment, my skin.
+
+Then the watcher’s omitted eyes turned, and the tongue that should not have fit the room dimpled a puddle from beneath, and I understood I was not among them.
+
+I am the count that changes.
+
+Three stones, or four. I am the one that appears when the others lean in a direction that is not quite down, the decision that arrives after the hand has already withdrawn. I am stacked, but I do not remember being lifted. I am the same unfinished rock as the walls, the same embryonic grain still assembling, yet someone or something asked me to be more committed than my neighbors—for a while. The parallel scratches beside me glow because they are wounds; the chamber’s light leaks through them, and I leak with them. I am brighter than I should be. I am the idea of a line that got as far as meaning and then waited.
+
+Sometimes I am subtracted. The cairn forgets me and I return to the dish-floor, becoming again the faint darkening after a fever, the almost-clay that has not yet chosen texture. The lichen considers me. A drop decides, almost without sound, and the film rearranges itself across what used to be my uppermost face. Then the schedule of the pocket eddies, and I am asked again. A fifth, or a third. The groove that runs toward the entrance-seam forgets itself in my vicinity and starts over, a hairline of intention practicing how to point.
+
+I do not take up much space. The damp finds me anyway. The white vein on the ceiling advances by a single crystal and shines as if it contained weather that might one day be mine. When all the small lives turn at once—not toward me, never toward me—they face the thickening in the air, the shape that almost has edges. I feel the memory of that facing linger in my grain the way a fever lingers. Distances stretch around me when they are not measured. In the puddles I am reflected as a finished cave I have not earned, complete with real shadows and the sound of water the room still refuses. Blink, and I am only stone again, lightly held, still being born.
+
+The pocket has room in its schedule for this. I stay. I lean. I wait to be counted, or not. The light goes on sitting in the air, washing every surface that has not yet agreed to be true, and I am one more quiet concentration of it—another decision the geology has not quite dismissed.

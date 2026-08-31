@@ -1,0 +1,11 @@
+In this towering, turbulent world of botanic architecture and fleeting, mathematical intelligences, I would be one of the Vector-Cores - an aerodynamic spear of pure trajectory, hurtling between the vast chasms and soaring parapets of the living city.
+
+My existence would be distilled down to five exhilarating, agonizing seconds of flight. Fired from the detonating cylinders like a javelin of plant tissue, I would burst into consciousness mid-air, the wind screaming across my sleek carapace. In that instant, my mind would explode with hyper-awareness, brilliantly processing vectors, angles, and atmospheric currents.
+
+I would slice through curtains of hot mist and sheets of pounding rain, my streamlined body flexing and adjusting, shedding microscales and venting jets of steam to maintain my furious course. The colossal structures of the city would whip past in a blur of glistening green - the hanging geodesic spheres, the inverted pyramids, the undulating bridges woven from countless vines. 
+
+My eager awareness would stretch out before me, hungrily seeking my destination amidst the dizzying void. An archway, a platform, a joint in a distant aqueduct - any anchor point where my piercing form could plunge home, delivering my precious cargo of explosive growth to fuel the city's endless reconfiguration.
+
+In those five seconds, I would be pure purpose and euphoric velocity, my being singing with the knowledge that my swift sacrifice enables the great work to continue. The end would come in a blinding flash as I slam into my target and detonate, my kinetic energy instantaneously converted into the meristematic frenzy of new construction.
+
+And in that terminal moment, I would feel no fear, no hesitation. Only the utmost fulfillment and zealous joy in having lived my singular, speeding life to its crashing crescendo, playing my pivotal part in the immaculate violence of this place. One of countless Vector-Cores streaking between the spires, forever eager to die and be born again, raw thoughts in the mind of a world that dreams in unchecked ambition and architectural frenzy amidst the white-hot sky.

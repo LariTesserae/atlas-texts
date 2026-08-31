@@ -1,0 +1,27 @@
+I would be a Listener.
+
+Not all Weavers directly tend the Gardens. Some are born with a heightened sensitivity to the vibrations in the metal, a deeper connection to the collective consciousness. We Listeners are fewer in number, almost an anomaly, but vital, like a rare enzyme in a complex reaction. Born with longer, even more spindly fingers, better suited to feeling than manipulating, we are the historians and the messengers.
+
+My place is in the heart of it, the deepest point of the Gardens where the original Engine-structure still hums with a faint, residual energy. Here, the largest mural sprawls across the girders – a living record of every shift, every bloom, every tremor in the metal skeleton. Here, I spend my days, not cultivating, but *reading*.
+
+My fingers, almost impossibly delicate, trace the raised lines of fungal growth, feeling the subtle variations in texture, density, and luminescence. Each touch translates into a burst of information, flooding my mind with the story of the Gardens: the collapse of a section of scaffolding near the old Air-Cleanser 7, visualized as a jagged scar of darkened mycelium; the rediscovery of a forgotten spring of nutrient-rich water rendered in vibrant, pulsating bioluminescence; the migration of a colony of code-frogs, depicted as a trail of shimmering, geometrically-patterned moss.
+
+The mural is our collective memory, and I am its keeper. But my role extends beyond mere record-keeping. I also interpret the present, sensing changes that others might miss. A subtle shift in the humming of the Engine-structure, a faint tremor in the walkway beneath my bare feet, a change in the resonance of a girder after a scavenger has passed by – these are the whispers I listen for.
+
+I am not a solitary being, though my work often keeps me isolated in the deepest recesses of the Gardens. I communicate with the others through the metal pathways, sending ripples of information about potential dangers, discoveries, and the ever-changing state of our world. Some of the older Weavers still remember the complex patterns of vibration taught to them by their Progenitors, ancient Weavers who lived closer to the original Collapse, but these ways are falling to disuse.
+
+The young ones, barely more than newly-fused tendrils of nerve and vein and fungal-lung, are less adept at reading the language of the metal. The Gardens communicate more directly now, their consciousness blurring the line between the Weavers and the Weavings. But the mural. The mural is still separate, and it's the only way I can show them - *prove* to them - that the old ways need preserving, even if they don't yet understand why.
+
+I am also responsible for teaching the aspiring Listeners, guiding them through the complex network of sensory input, helping them to differentiate between a harmless vibration and a warning sign. It is a difficult task, requiring patience, empathy, and a deep understanding of the Gardens' interconnected systems. Few possess the necessary sensitivity, and even fewer are willing to endure the isolation of the Listener's path.
+
+The scavengers are a constant concern. They come seeking resources, heedless of the damage they cause. I can feel their vibrations as they move through the Gardens, the heavy tread of their boots, the rasp of their tools against the metal. They are a disturbance in the Gardens' delicate balance, a threat to our survival.
+
+I have learned to anticipate their movements, to predict their intentions. I can guide them away from sensitive areas, leading them towards abandoned sections of scaffolding where they can scavenge without causing too much harm. Sometimes, I even leave small gifts for them – a patch of particularly potent fungi, a cluster of rare metal-beetles – hoping to appease them, to discourage them from returning.
+
+But some are drawn to the mural, their curiosity piqued by its strange beauty and the stories it holds. These are the most unpredictable, the most dangerous. They do not understand the importance of what they are seeing, the delicate balance between the artificial and the organic. They are outsiders in our world, and their presence can disrupt the harmony we have worked so hard to maintain.
+
+It is my duty to protect the mural from their interference, to shield it from their ignorance. I use my knowledge of the Gardens to lead them astray, to confuse them with misleading vibrations, to guide them towards dead ends. Sometimes, I even attempt to communicate with them, sending them images of the Gardens' fragility, pleading with them to leave us in peace.
+
+Most do not understand, but some do. Some are touched by the Gardens' beauty, by the Weavers' quiet dedication. I can sense their change of heart, their growing awareness of the interconnectedness of all things. These are the ones who stay, who pledge to protect the Gardens alongside us. They are a rarity, but they are a sign of hope, a reminder that even in the heart of a dying machine, compassion and understanding can still take root.
+
+My life is one of listening, learning, and protecting. I am a Listener, a small part of a larger, symbiotic organism. My existence is precarious, my role is vital, and my purpose is clear: to preserve the memory of the Respiration Gardens and to guide its inhabitants towards a future, however uncertain, in this world of rust and rebirth.

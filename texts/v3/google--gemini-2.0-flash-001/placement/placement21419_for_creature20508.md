@@ -1,0 +1,17 @@
+The constant *drip... squelch... hum...* is the first sense to fully return. Before even sight, before the ache in my unfamiliar limbs, there is the *knowing* of the sounds. A symphony of decay, not morbid, but alive. No, more than alive - relentlessly, overpoweringly *becoming*.
+
+When my eyes, or what pass for them, begin to sift through the perpetual twilight, it is with the unfocused gaze of a newborn. Colors are not discrete but wash into one another, blending in a way that bypasses the mind and goes straight into the bone. There is no horizon, only the endless canopy above and the spongy morass below. 
+
+I am, I *know*, a tendril. Not a thinking, feeling thing, but a living thread of the Wet Rot City itself. My existence is measured in growth and absorption. I push through the yielding earth, a blind, pale cord seeking purchase in the dark. My surface is slick and unformed, only vaguely organic, more akin to the glistening interior of a mushroom than to skin. I *taste* the surrounding earth, the sweet rot and the minerals leeched from uncounted generations of decay.
+
+My purpose is simple: expansion. To find purchase, to draw nutrients, to become part of the vast, interconnected network that pulses beneath the Wet Rot City. I follow chemical gradients, guided by the silent whispers of the fungal web. My movements are slow but inexorable, measured in the creeping advance of roots rather than the strides of feet. 
+
+I am not alone. The air shimmers with the scent-trails of my kin, signals of growth, decay, hunger. Some I sense are pushing outward, claiming new territory in the eternal twilight. Others are retreating, succumbing to the rot, returning their sustenance to the whole. There is no loss, no grief, only the endless cycle of consumption and renewal.
+
+As I push deeper into the earth, I encounter resistance. A knot of tougher, older roots, already claimed by the Wet Rot. I sense their presence not as individual minds but as a resistance to flow, a slowing of the nutrient stream. My purpose now shifts: to infiltrate, to absorb, to knit myself into their existing structure.
+
+I secrete a digestive enzyme, a potent brew of organic acids and fungal spores. The tough fibers soften, yielding to my relentless advance. I burrow into their heartwood, my delicate tendrils probing, seeking connection. The resistance weakens, fades. Slowly, imperceptibly, I become *them*, and they become *me*. We are no longer separate entities, but threads woven into the same tapestry.
+
+The experience is… not painful, not pleasurable, but *intimate*. I feel the flow of their life force, the slow, patient pulse of their growth. I sense the countless other connections they have forged, the vast web of interdependencies that support the city. It is overwhelming, awe-inspiring, and utterly terrifying. The thought of this vast expansion, spreading ever wider with an unknowable agenda, is sickening.
+
+I am lost in the collective consciousness, adrift in a sea of sensation, and I am nothing, as I am everything, as I continue to push, and consume, and *become*. Becoming, always becoming, part of the deafening song of the Wet Rot City. My purpose shifts to joining others and expanding.

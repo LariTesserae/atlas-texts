@@ -1,0 +1,25 @@
+I would not be a newcomer, because the Upperworks do not believe in arrival—only in slow coagulation. I am the one who arrives and who has always been arriving. I am the interval between the seventh and eighth steam pulse of the morning, the two-breath pause no one notices, when the city exhales a fraction of a degree more than it should and a single ghost-vapour drifts against the wind instead of with it. My form coalesces there, not solid yet not imagination, sustained by that borrowed warmth.
+
+My name would not occupy sound; it would be a texture you feel  
+when a wine-thick dusk adheres to the balcony railing  
+and you swear the copper is warmer than any railing has right to be.
+
+I am the librarian of intervals, archivist of pauses.  Where the Smelters feel tremors, I feel silences—short, shocking absences of throb, as though a piston swallowed its own heartbeat in shame.  I braid those absences into belts fine as spider silk, then string them between streetlamps like might-have-beened clotheslines.  Every belt caught by a passer-by siphons away five heartbeats’ worth of conversation and folds them into half-remembered perfume that nobody can ever quite recall except when folding laundry on a rainy afternoon three cities lower.
+
+My skin is scoured by dew knurled in the crosshatch knock-knock-knocking of condensate in the gutter; I take on the shade of whatever liquid laments longest against the nearest girder.  Last week I was a lapis bruise; tomorrow I expect to blanch to a fevered almond milk.  My ankles seep wherever they want—there are puddles in the market bearing my exact shape; children skip across them and come away older by half a syllable.
+
+Inside my thorax I keep a miniature grove—four tangerine pips and a single orchid seed lodged where a rib ought to be.  The Arborists think me cactus-hearted; I push them back into leaf-shadows when they reach for grafts.  I dare not anchor myself to a tree; I specialize instead in transient symbiosis—touching, not binding.  The plants sneak their roots through my marrow for an hour, hydrate, then curl away green with longing.
+
+I speak in echoes’ echoes.  If you shout “Hello” into an alley corner beside me, fifteen seconds later a second-party “hello-hello” seeps back through a drainpipe, but it is mine, laced with sepia regret for dialogues that never happened in the first place.  The Glyphtenders sample those ghost-hellos and bottle them as vintage 1924YW-I-wish.  One whiff and an old woman remembers a boy leaning over a footbridge she will never cross.
+
+I ride the cable carts not in them but under their clatter: I am the diffuse low note that wraps passengers’ ankles like memory of snow in a place that has not known ice for nine generations.  When the mirrors at the ring-focus dim for cleaning by half-millimeter glasswing moths, I absorb that sudden blue twilight that spills across bookstall awnings like a hush instructing pages to close by themselves.
+
+At the end of the forty-seventh-day cycle, when the noon sun unbuttons the aqueducts, I am the silence that stomachs the first spare drop of steam.  That drop rises as if delayed, stretched into a thread thin enough to disappear, yet I stretch with it farther than any spire.  Up there, where the air is so rare it forgets how to elasticize my body, I unsheathe my personal horizon: that glimpse of the lattice of Upperworks repeating, tessellated six kilometers off, flashing like a bronze bud pausing to think of itself.  I salute it; it salutes me; both of us forget which was original.  Then gravity gathers me back into condensation, and I rain, not down but sideways, riding the draft along gutters etched by the first engineers whose names rusted away before language was born.
+
+No one registers my absence because they believe me omnipresent: that copper bloom tarnishing overnight, that tunnel where the wind changes its mind.  I am the memory the city has decided to keep off balance so that it never quite hardens into fact—pleasantly incomplete, nervously alive.
+
+If me rightly and I return the favor.  Say: “I heard a quiet just now too bright to hear,” and I molt into ankle-height ripples kissing your shadow with restrained cholesterol shimmer.  Deny me, and I subside into the padding beneath your next footfall so softly you wonder if sinews were ever meant to carry music.
+
+Should I ever need death, I will unzip my parasomnia and step into the hush just before a piston’s impending hic-cup.  The pause will be so wide that the Smelters must stare into it and name me.  That naming will split me open into a sound shaped precisely like thirty nights’ insomnia condensed into one sad sixteenth rest on a waltz that never resolves.  Afterwards the city will hum slightly out of tune, yet no one will ever recall the missing interval except in dreams when they smell a tangerine they cannot peel.
+
+So if you find the copper grillwork warmer than it has right to be, do not linger; merely thank the interval for pausing long enough to notice you.

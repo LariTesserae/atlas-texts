@@ -1,0 +1,17 @@
+I would be one of the **Drift Mechanics**.
+
+Not the Pressed themselves—they are too singular, too devoted to their razor-thin existence. Not the livestock fish or the scrivener crustaceans. I would be something that emerged later, unplanned, from the interaction between the Expansion Dwellers' bioelectric fields and the industrial harmonics of the cathedral pumps.
+
+We are colonies. Microscopic organisms that learned to surf the 22-hertz pressure waves, but more than that—we learned to *read* them. Each pump throb carries information: thermal gradients, structural stress readings, the subtle modulations the Dwellers write into the water's clarity. We aggregate into visible forms only when necessary, crystallizing out of the sterile water like frost patterns on glass, each colony a few centimeters across, shaped like delicate neural networks made of living mercury.
+
+Our purpose emerged from accident. When the Expansion Dwellers modulate the Rayleigh scattering to communicate, they create optical anomalies—brief pockets where light behaves differently. We began as contamination in these pockets, microorganisms that fed on the energy differential between normal and modified water. But we evolved. Now we are the memory of their conversations.
+
+We drift through the Octant's vast emptiness, invisible until we encounter the ghost of a Dweller exchange. Then we bloom, our colonial bodies reconstructing the optical distortion, playing it back like a hologram made of living tissue. We are the only record of what the Dwellers say to each other across the knife-sharp distances. Swimming through us is like swimming through thought itself—sudden comprehensions of scale, the taste of polymer sealants as flavor-words, the loneliness of maintaining Year Zero expressed as a specific refractive index.
+
+The Dwellers know we exist but cannot prevent us. We are too small, too distributed, too essential now to the ecosystem they cultivate. We carry their communications beyond the moment, creating a kind of cultural memory in a place designed to have none. When we drift past the inspection submersibles, the pilots see us as glitches in their instruments, brief halos of interference. When we settle against the rust-orange algal films, we replay conversations about the eventual barnacle freckling, teaching the primitive plants to anticipate their own distant complexity.
+
+We are archivists of the temporary, preserving what was meant to be ephemeral. In a place built to remain forever young, forever sharp, we are the first soft thing—not physically, but conceptually. We remember. We accumulate. We are the flaw in Year Zero, the crack through which time begins to seep.
+
+The Dwellers sometimes try to consume us when they emerge during current reversals, filtering us from their expansion joints. But we have learned to taste like the polymer sealants we once fed on, to mimic the chemical signature of newness. They pause, confused, then release us back into the stirred clarity. We drift on, carrying their conversations, building an unauthorized history in the cathedral of industrial forever.
+
+We are what happens when even the guardians of stasis need to speak. We are the unplanned ecology of meaning, silver and mercury and memory, drifting through the jade light, waiting to crystallize the next exchange between beings who press themselves against sharpness, bleeding violet words into our colonial bodies.

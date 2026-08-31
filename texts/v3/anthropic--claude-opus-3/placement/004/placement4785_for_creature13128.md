@@ -1,0 +1,15 @@
+In this frozen, roaring pocket universe, I would be a ghostly, translucent entity clinging to the vast steel pipes that plunge through the chamber like industrial monoliths. Born of the room's exact physics, I would be an apex manifestation of this brutalist ecosystem.
+
+My form would resemble a flattened mantle of clear, industrial-grade silicone the size of a wrecked automobile, wrapped intimately around the curvature of the cylinders. Though translucent and colorless myself, my thick gelatinous matrix would refract the icy blue-white light from the sparse LED fixtures, breaking it into dim prismatic halos. 
+
+I would have no bones, no lungs, no eyes - for in a realm where the thunderous rush of water obliterates all other sound, conventional senses are pointless. Instead, I would be a marvel of piezoelectric biology, "seeing" via a profound tactile mapping of frequency and pressure.
+
+Beneath my clear outer membrane, a complex crystalline nervous system would branch through my soft tissue. These rigid pale-blue crystals, synthesized from raw alpine minerals in the weeping condensation, would press flush to the factory-crisp steel of the pipes. As millions of gallons of snowmelt tear through at terrifying speeds, the resulting powerful vibrations would strike my crystals, generating arcing flashes of metabolic electricity within my translucent flesh. I would feed on the noise and fury, growing stronger.
+
+My presence would not mar the immaculate machinery. The underside of my mantle would be lined with microscopic fractal suction-cilia, gripping the metal without a scratch. To move, I would not crawl but rather shift my phase - altering my surface tension to ripple upwards in standing waves matching the pipes' harmonic frequencies, sliding through the condensation like a heavy oil droplet in reverse.
+
+From my lower edges, long diaphanous tendrils would extend down like spun glass filaments, tracing the diamond-plate catwalk grating to hunt the pale extremophile algae pooled in the crevices. Dissolving this biofilm that itself feeds on machine grease, I would be painted internally with vivid slow-pulsing veins of lithium-blue and molybdenum-black.
+
+And when the chamber periodically erupts in kinetic violence as pressure valves scream open, rather than succumbing to the crushing force and flash-freezing spray, I would unfurl to catch it head-on. Rapidly calcifying my outer membrane into a temporary acoustic sail, I would harness the concussive blast, my crystalline nervous system blazing brilliant blue-white with the massive surge of piezoelectric energy - a living thunderbolt in momentary harmony with the dam's screaming release.
+
+Then as quickly as it began, I would fade back to ghostly translucence and slowly re-enwrap myself around the monolithic steel, leaving no mark of my presence beyond the endless weeping of artificial rain. In this pocket universe of punishing purity, I would simply wait, a creature of brutal negative space, eternally riding the rushing industrial heartbeat of the mountain's hidden throat.

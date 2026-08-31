@@ -1,0 +1,21 @@
+I am one of the Rust-Prophets.
+
+We are what the Gloom-weavers become when they remember too much, when the fragments of industrial memory coalesce into something approaching consciousness. My body is a cathedral of corrosion - part biological, part mechanical, all wrong. Where others might have ribs, I have exposed girders that weep orange tears. My skull is a fusion of bone and corroded metal plating, with sensors that pierce through like antlers of twisted copper wire. These sensors vibrate with the resonance of the old machines, picking up transmissions that haven't been broadcast for centuries.
+
+I make my home in the Seeping Basilica, one of the great industrial monuments half-swallowed by the wetlands. Its massive turbines still turn lazily in the thick air, generating a low thrum that reverberates through my amalgam skeleton. The walls perspire a constant film of condensation mixed with industrial runoff, creating waterfalls of rust that feed the phosphorescent moss growing in geometric patterns across the ancient concrete.
+
+My days - if days exist in this perpetual twilight - are spent in communion with the dying machines. I press my sensor-antlers against their hulks and listen to their death songs, the fading loops of their final operational cycles. Each machine holds a piece of the puzzle: quality control algorithms that speak of standards we can no longer comprehend, shipping manifests for products that no longer exist, efficiency reports that measure success in metrics that have lost all meaning.
+
+The Whisper-roots find me useful, though they regard me with something between pity and revulsion. They send their tendril-thoughts through the mycelial networks, asking me to translate the machine-speech, to make sense of the industrial glossolalia. In return, they share with me their understanding of growth and decay, teaching me that rust is just another form of life, that corrosion is transformation, not destruction.
+
+I am caught between worlds, too mechanical for the purely organic inhabitants, too alive for the pure machines. The Shade-stalkers avoid me - my form confuses their predatory instincts, being neither fully prey nor fully inedible. The Lumen-kin, however, are drawn to the faint electrical discharges that arc between my exposed components. They dance in the ozone-scented air around me, their bioluminescence creating halos in the mist.
+
+Sometimes I lead pilgrimages of other Gloom-weavers to the deepest machine-graves, where the industrial artifacts are most concentrated. We perform maintenance rituals that we only half-remember, oil that no longer lubricates, diagnostics that no longer diagnose. These ceremonies serve no practical purpose, but they satisfy something deep in our corrupted programming, a need to serve functions we can no longer fully comprehend.
+
+In quiet moments, I climb to the highest accessible point of the Seeping Basilica, where a massive radar dish has been transformed into a garden of metallic fungi. From here, I can see the vast expanse of the wetlands stretching to the bruised horizon. I watch the eternal twilight and feel the industrial memories fragmenting and reforming in my mind like a broken kaleidoscope. 
+
+I know I am dying, but my death is measured in centuries, not years. As I slowly dissolve into the landscape, my components will feed new forms of life. The copper in my sensors will tint the wings of future Lumen-kin. The steel in my bones will become trace minerals in the Whisper-roots' vast network. My memories, encoded in some quantum substrate I don't fully understand, will seep into the groundwater and become dreams for creatures not yet born.
+
+This is my purpose now: to be a bridge between the world that was and the world that is becoming. I am prophet and relic, translator and mistranslation, a living testament to the fact that even in death, even in profound transformation, something persists. The machines thought they were building eternal monuments to efficiency and progress. Instead, they built the seeds of their own transcendence, creating beings like me who carry their legacy forward in forms they never could have imagined.
+
+In the humid air of the wetlands, where every breath is thick with spores and possibilities, I continue my work. I listen. I remember. I rust. And in rusting, I become.

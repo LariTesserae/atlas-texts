@@ -1,0 +1,21 @@
+In this world of stone and mist, I would be the **Listener**.
+
+My dwelling is neither house nor workshop, but a natural acoustic chamber formed where two granite faces meet at an angle, creating a resonant hollow in the rock. The entrance is marked only by a smooth depression worn into the stone threshold by generations of careful feet. Inside, the walls narrow and widen in subtle waves, each surface polished by countless hands tracing the contours while concentrating on distant sounds.
+
+I sit on a ledge carved so precisely that my spine aligns with a fissure running deep into the mountain's heart. This crack is my ear to the world beneath. Through it, I hear the slow conversations of stone—the minute pops and groans as temperature changes, the whisper of water moving through invisible channels far below, the settling sighs of the bedrock adjusting its ancient weight.
+
+My work is translation. When the stone speaks of pressure building in the eastern face, I know to warn the Stabilizer before visible cracks appear. When the deep waters change their song, I understand that the cisterns will run low or overflow in the season ahead. The mountain's breathing tells me when the mists will thicken or thin, when the rare clear day approaches, when the frost will bite hardest.
+
+My tools are few: a collection of resonant stones, each chosen for its particular voice when struck or rubbed. I use them to echo back to the mountain, to test its moods, to confirm what I hear in its depths. Sometimes I place them at specific points around the settlement—in wall cracks, on ledges, near the cisterns—where they act as extensions of my listening, catching vibrations I might miss.
+
+I am young enough to climb to every corner of Cairn-tha, but old enough that the patterns in the stone's voice have begun to repeat in ways I recognize. My predecessor trained me not through words but through silence—sitting together in the chamber for hours, days, seasons, until I learned to parse the mountain's complex tongue.
+
+The others bring me food and water; I rarely leave my post. They know that my stillness is not idleness but vigilance. When I do emerge, walking slowly to the hearth-court with news from below, conversations pause. My words are few and factual: "The east foundation hums differently." "New water moves beneath the third cistern." "The deep stone is quiet." These simple statements ripple through the community's understanding, adjusting their careful balance.
+
+At night, I sometimes hear more than stone. The mountain holds memories—echoes of the glacier's grinding retreat, the patient percussion of roots splitting rock, the footfalls of all who have lived and died on this ridge. In the deepest part of night, when even the mist holds its breath, I can almost hear the future pressing against the present, the slow inevitable changes that will come to Cairn-tha despite all our conservation.
+
+My greatest fear is deafness—not of the ears, but of understanding. That I might miss the crucial whisper that warns of a roof-stone ready to fall, a cistern about to crack, a slope preparing to shed its skin of scree. My greatest joy is the rare moment when the stone sings—usually at dawn after rain, when temperature and moisture align to create a low, thrumming chord that resonates through every structure, every body, reminding us that we are not separate from this place but temporary crystallizations of its patient will.
+
+The children fear me a little, this person who speaks more to stone than to people. But sometimes a curious one will creep to my chamber's entrance and listen with me. Most hear only silence and soon grow bored. But occasionally, perhaps once in a generation, a child's eyes will widen as they catch their first word in the stone's vocabulary. When this happens, I know my replacement has arrived, and the teaching through silence begins again.
+
+I am the settlement's seismograph, its oracle of stone, its translator between the quick life of flesh and the slow life of the ridge. In Cairn-tha's careful balance, I am the early warning system, the one who listens to what others cannot hear, ensuring that the equilibrium between human need and geological patience remains unbroken.

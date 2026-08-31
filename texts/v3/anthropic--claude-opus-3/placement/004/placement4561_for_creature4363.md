@@ -1,0 +1,15 @@
+In this fantastical, living caldera, I would be a symbiotic lichen, an intimate partnership between fungi and algae optimized for this extreme environment. 
+
+I would grow in intricate, fractal patterns on the newly-born basalt, my fungal filaments weaving through the microscopic pores and crevices, anchoring me to the warm, weeping rock. My algal cells would pulse gently with bioluminescence, absorbing the strange filtered light and volcanic gases to photosynthesize life from light and stone.
+
+As the caldera breathes and pulses, my growth would ebb and flow with it. In times of heavy condensation, I would drink deeply, swelling and unfurling to reveal new layers of complexity in my patterning - whorls that echo the spiraling steam, radial bursts like the spatter of molten rock. When the mists clear, I would slowly desiccate, going dormant until the next wet cycle, my colors shifting from vivid greens to burnished bronzes.
+
+I would be a pioneer species, one of the first to colonize each new expanse of lava flow, paving the way for the faster, flashier life forms to come. Bit by bit I would break down the raw volcanic minerals, creating a thin layer of soil to cradle spores and seeds. The metallic insects would alight on me to graze the bacterial blooms I host, tiny motes of gold and copper gleaming against my slow-grown patterns.
+
+Over time I would rise slowly on my own decay, a fraction of a millimeter each year, my old growth becoming the substrate for the new. Seen from above, my kind would create a subtle chromatic gradient from the raw black rock to the riotous fecundity of the mature caldera floor.
+
+The Cultivator would kneel sometimes to study me, scraping minuscule samples to examine under her improvised microscopes, charting the gradual change in my bacterial symbionts, the way my colors shift in response to the caldera's breath. I would be a footnote in her studies, a subtle player in the ecosystem's grand drama. But I would also be a constant, an anchor, a witness to the long, slow cycles underlaying the flamboyant churn of accelerated evolution.
+
+Occasionally, during the quietest moments when the mountain's song hits a resonant lull, one might hear a faint hum emanating from my photosynthetic half - a single buzzing note that seems to harmonize with the deep geological music. It would be easy to overlook, mistaken for an insect's hum or a wisp of steam - but it would be my voice in the choir, my subtle contribution to the symphony of the singing caldera.
+
+So I would grow, quietly, imperceptibly, an interstitial being in the cracks of a world constantly remaking itself, one of the infinite living threads woven into the tapestry of this implausible, glorious, humming microbiome of stone and flora and metal and steam, where each breath is an eon and each footstep a new unfolding into a neverending story.

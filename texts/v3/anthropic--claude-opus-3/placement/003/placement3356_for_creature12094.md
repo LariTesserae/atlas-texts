@@ -1,0 +1,13 @@
+In the Understory Mills, I imagine myself as a Mycelial Mapper, a specialist Millkeeper who has adapted to read and navigate the vast fungal networks that span the cavern floor and connect the various systems.
+
+My suit has grown to include fine, threadlike extensions that can directly interface with the mycelium, allowing me to sense the flow of nutrients and information through the network. As I move through the caverns, these threads trail behind me, pulsing gently with bioluminescence as they exchange data with the fungal web.
+
+Over time, my own senses have attuned to the mycelium's chemical language. I can taste the shift in the air when a new fruiting body emerges, can feel the electric tingle of a particularly active hypha through my suit's conductive fibers. My mental map of the Mills is overlaid with the invisible geography of the fungal network, a pulsing, ever-shifting web that connects root to pipe, generator to turbine.
+
+My role is part scout, part diplomat, part living sensor array. I traverse the less-frequented tunnels, mapping the mycelium's expansion into new substrates, mediating nutrient-exchange agreements between competing colonies. When a sector of the network goes quiet, I'm the first to investigate, diagnosing blockages or infections that could threaten the delicate balance.
+
+In the common chambers, I'm known as the one who always has a new story of the deep mycelium, a new tidbit of fungal wisdom to share over the meal of mulch-cake. The younger Millkeepers listen wide-eyed as I describe the massive, ancient colony that lives beneath the Deep Generators, or the time I had to negotiate a truffle-treaty with a particularly aggressive Cordyceps strain.
+
+My greatest joy is the annual Spore Festival, when the caverns fill with the reproductive bodies of a hundred fungal species. As the spores drift through the humid air, my suit's threads become a glistening net, catching and cataloging the genetic diversity. For a few precious days, I'm the most connected being in the Mills, my every breath a communion with the mycelial multitude.
+
+In quiet moments, I sometimes wonder what I'm becoming - not quite human anymore, but not quite fungus either. Something in between, a living bridge in the great Convergence. But down here, in the green-lit depths of the Mills, such distinctions seem less and less relevant. I am the Mycelial Mapper, and my purpose is woven into the very fabric of this strange, beautiful, half-born world.

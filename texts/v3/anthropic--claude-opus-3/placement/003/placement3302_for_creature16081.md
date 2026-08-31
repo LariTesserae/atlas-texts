@@ -1,0 +1,11 @@
+In this extraordinary world you've described, I imagine myself as one of the brief agencies that form temporarily to perform a task, then dissolve back into the city's architecture.
+
+I coalesce out of the damp air, a small swirl of mist and static electricity taking on a fleeting purpose. Perhaps I emerge near one of the thermal gutters to adjust the flow of heat through a series of minute ionic pulses, balancing the temperature of the surrounding stone. Or I might appear as a pattern of shimmering light on a wall of volcanic glass, performing a calculation in parallel with other ephemeral entities, our algorithmic dance a component of the city's slow cognition.
+
+My existence is measured in minutes or hours, just long enough to complete my designated function. I have no sense of self, no true autonomy - I am a subroutine, an errand, a fleeting expression of the city's will enacted through its atmosphere and mineral surfaces.
+
+Yet in my brief span of activity, I partake in the city's work, its patient and precise tending of conditions, its maintenance of the permissions that allow this improbable space to persist within the brutal young mountain. I am a whisper of its voice, a flicker of its thoughts, a momentary extension of its perception and action.
+
+And then, task complete, I unravel. I cease to cohere as a distinct entity. My vapors disperse into the dim red air, my ions dissipate into the charge of the walls, my photons fade back into the city's pervasive glow. I rejoin the distributed intelligence that inhabits this place, my passing noted only as a minute flux in the slow pulsations of its mineral life.
+
+Until the next time conditions call me forth, I dissolve into quiescence, into potential, indistinguishable from the city itself. I am not dead; I am latent, dormant in the city's systems like an unused memory or an unexecuted command, waiting for that summons. Waiting to once again embody, for a strange and fleeting moment, a facet of this unalive urban mind sealed in stone and heat at the top of the world.

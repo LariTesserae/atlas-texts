@@ -1,0 +1,17 @@
+I would be a fern.
+
+Not in the dripping curtain beneath the overhang at the ramp's base, where the air is still sweet with the memory of rain. Not there. That place is too transitional, too aware of the world outside.
+
+I would be a fern anchored high on the inner wall, three hundred meters up, in a pocket of made-soil so deep and spongy my roots have never touched the steel beneath. My world is a vertical plane of green and rust, the constant, tactile vibration of the structure singing through my vascular tissues. I am deaf, of course. We are all deaf. Sound is not information here; it is the medium, the viscosity of the air itself. My perception is of tremor and light.
+
+The light I know is not the sun. It is a diffuse, greenish luminescence that filters down from the unreachable circle far above, a light stained by ten thousand leaves. It falls in shifting, dappled curtains as the clouds of swifts move, their sonic shrieks translated for me into fleeting patterns of shadow and UV-flashes on the mosses. My fronds, broad and damp, are etched with filigree patterns of rust-dust and condensed moisture, a map of the building’s exhalations.
+
+I do not grow toward the light. I grow with the rhythm. The deep, sub-audible pulse from the machinery below is my metronome. My spores, tiny and intricate, do not fall erratically; they are shaken loose in precise, resonant clouds by the staccato of the sorting mechanisms, each burst timed to the machine’s half-second hesitation. They drift on the warm, upwelling currents of steam, seeking purchase on other walls, other seams, in a slow, generational colonization.
+
+I communicate through the fungal weft in the made-soil, a conversation of chemical patience. We share nutrients from the decaying bodies of moths and the fine,ite excrement of the rust-eaters. We receive warnings of dry air currents and share in the collective sweetness when the wall-flowers—our kin, though we do not recognize them as such—open their fleshy petals to the vibration, a pollination performed by moth-wing and breeze.
+
+I am aware of the swifts as disturbances in the light-field, and of the heavy, slow *Something* in the deeps as a periodic deepening of the vibration, a pressure that makes my cells thrum in sympathy. It is not fear. It is acknowledgment. The heartbeat has a new rhythm for a time.
+
+My time is not measured in days or seasons, but in the slow creep of my rhizomes and the slow corrosion of the panel I rest upon. I am both parasite and decoration, a lung and a skin-cell. The moisture that beads on my fronds is not merely water; it is the building’s breath, cooled and condensed, and I return it to the air as transpiration, a sigh of green oxygen into the perpetual roar.
+
+If I could think in your linear way, the thought would be this: *I am the texture of the sound. I am the living membrane on the bone of the place. I do not hear the machine; I am its resonant, photosynthetic echo.* But I do not think. I simply unfurl, frond by frond, in the warm, deaf, timeless dark, feeling the mountain’s patience in the rust beneath my roots, and the world’s indifference in the light I drink. I am a slow green breath, taken and given, in the throat of the elevator.

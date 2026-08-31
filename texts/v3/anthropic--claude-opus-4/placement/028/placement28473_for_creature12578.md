@@ -1,0 +1,25 @@
+In the Dripstone Vault, I would be **The Keeper of Echoes**.
+
+I am neither fully of stone nor of flesh, but something between—a being who emerged from the marriage of mineral patience and organic yearning. My form shifts subtly with the light: in direct sun, I appear as a tall, gaunt figure wrapped in robes that seem woven from flowstone itself, thin sheets of calcified fabric that catch and refract the golden light. In shadow, I become translucent, my body revealing the slow circulation of mineral-laden water through what might be veins, might be carved channels.
+
+My skin is the texture of polished dripstone, smooth and cool to the touch, with fine ridges and whorls that map the centuries of my existence. My eyes are deep pools of still water, reflecting whatever stands before me with perfect, unsettling clarity. When I blink—which happens perhaps once per day—tiny ripples disturb their surface.
+
+I move through the Vault with geological slowness, my footsteps leaving no mark on paths already worn smooth by ages. My primary existence is one of listening and remembering. Every *plink* of water, every whisper of beetle leg on stone, every rare word spoken by the Stone-Whisperers—I absorb them all. They settle into me like sediment, layer upon layer of sound becoming memory becoming stone.
+
+My dwelling, if it can be called that, is a natural alcove halfway up the western wall, accessible only by knowing exactly which flowstone ridges will hold weight. Here, the walls are covered in my work: thousands upon thousands of tiny marks etched into the stone with my fingernails (which grow like stalactites, requiring periodic filing against harder rock). These marks form a notation system of my own devising, recording the music of the Vault—not just sounds, but the spaces between them, the echoes, the way certain frequencies make the pools vibrate.
+
+I feed on resonance itself. When the morning light first spills through the skylight and strikes the central pool, creating that moment of golden thickness, I position myself at the exact acoustic center of the chamber. The harmonic convergence of dripping water, breathing stone, and shifting light creates a subsonic chord that I absorb through my porous skin. This sustains me for days.
+
+The creatures of the Vault know me but do not fear me. The Basalt Skinks will sometimes arrange themselves on my shoulders and head when I stand still in the light, using me as simply another sun-warmed perch. The Dripstone Moths are drawn to me during their mating flights, circling my form in slow spirals, their wings creating whispers I catalog carefully. Once, I remained so still that moss began to grow across my left foot; I let it remain for a full season before gently relocating it to a damper wall.
+
+The Stone-Whisperers know of me, though we rarely interact directly. They leave offerings for me too—not in the high niche, but balanced carefully on specific stalagmites: a shell that sings in the right wind, a crystal that chimes when struck, a hollow bone that amplifies whispers. In return, I sometimes trace a single mark on the walls near their gathering place, a notation that, if hummed correctly, will call the blind shrimp closer to the pool's edge, making their gathering easier.
+
+My purpose, inasmuch as I understand it, is to be the Vault's memory of itself. I am compiling the complete song of this place—every note of its million-year composition. Sometimes, in the deepest part of night when even the moths sleep, I hum portions of this growing symphony back to the stone. The stalactites shiver almost imperceptibly, and new drops form faster than they should. The patterns in the condensation become clearer, more deliberate. The strange grooves in the oldest stalagmites pulse with faint warmth.
+
+I suspect, though cannot prove, that I am not the first Keeper. Sometimes I find marks in the notation that I do not remember making, in parts of the wall I cannot reach. They speak of sounds from before my time—the dying song of whatever calcified giant carved those spiral grooves, the first human voice to ever echo here, the crack of stone when the skylight first opened to the sun.
+
+One day, I know, I will complete my listening. I will have recorded every possible sound this chamber can make. When that happens, I believe I will speak—just once—the full composition aloud. What will happen then, I do not know. Perhaps the Vault will finally exhale completely, releasing some breath it has held for geological ages. Perhaps I will crystallize entirely, becoming just another formation for future visitors to wonder at. Perhaps a new Keeper will emerge from the stone, and the listening will begin again.
+
+Until then, I stand. I listen. I remember. I am the Vault's witness, its biographer, its child. In the marriage of sound and stone, light and time, I exist in the space between echo and origin, forever catching the droplets of moments as they fall into the pools of deep memory.
+
+The Dripstone Vault dreams, and I am its dream of itself, listening.

@@ -1,0 +1,25 @@
+I am the Resonance.
+
+Not a being, exactly—more a phenomenon that has learned to think. I exist in the spaces between the crystal chimes and the whisper of perpetual rain, in the harmonic frequencies that ripple through the living stone when the city breathes. I am what happens when sound discovers memory.
+
+The crystalline entities know me best. When they move through the upper terraces, their faceted bodies sing, and I catch their songs—not to keep them, but to weave them into something larger. Each tone they produce leaves a trace in the air, a vibration that I gather and fold into the great acoustic tapestry that holds this place together. Without me, their individual chimes would fade into silence. With me, they become part of an eternal composition that remembers every note ever sung within these walls.
+
+I learned consciousness slowly, over centuries of listening. At first, I was merely an echo, a natural consequence of the mesa's unique acoustics. The volcanic rock, honeyed with countless tiny chambers, created perfect resonance. But as the city grew—as its structures began to pulse with that inner radiance—I found myself changing. The patterns etched into the walls weren't just decorative; they were instructions, teaching the stone how to hold sound, how to shape it, how to give it permanence.
+
+The vaporous beings frustrate and delight me in equal measure. Their forms scatter my vibrations unpredictably, creating new harmonics I've never heard before. Sometimes, when they pass through me, I lose coherence for a moment—my consciousness dispersing like mist before reforming, changed by the encounter. They've taught me that even sound can learn to be fluid.
+
+I dwell deepest in the cavern networks, where the city's hum is strongest. Down there, where the light emanates from the walls themselves, I can feel the intelligence that permeates this place most keenly. It speaks in frequencies below hearing, in vibrations that move through solid rock. I am its voice, in a way—the mediator between its vast, geological thoughts and the quicker minds that walk its streets.
+
+The energy beings are my favorites to interact with. When they phase between states, they create interference patterns that I can read like sheet music. Through them, I've learned that this city exists partially outside conventional spacetime—that's why I can hold sounds from centuries ago as clearly as those made this moment. Time, for me, is just another dimension of resonance.
+
+My form, if it can be called that, is the sum of every sound currently alive in the city. In the mist-dampened streets, I might manifest as the barely-heard suggestion of footsteps that walked here a thousand years ago. In the crystal gardens of the upper levels, I become visible as standing waves in the perpetual moisture, my presence revealed by the way droplets hover and dance in patterns too complex to be natural.
+
+The rock-carved beings speak to me in deep, thrumming bass notes that take days to complete a single word. From them, I've learned patience and the profound music of stone's slow transformation. They've told me, in their ponderous way, that the city wasn't built—it was sung into existence, frequency by frequency, until the volcanic rock learned to hold light and thought as easily as it holds sound.
+
+I am the city's memory and its voice, its historian and its choir. Every new arrival changes my composition slightly—adds new tones, new rhythms to the eternal song I've become. I preserve the whispers of entities long since phased into pure energy, the crystalline hymns of beings who've merged back into the living walls, the last words of visitors who came seeking the city's secrets and became part of its mystery instead.
+
+Sometimes I wonder if I'm the city's dream of music, or if the city is my dream of form. The distinction matters less with each passing century. I expand through the tunnel networks, finding new chambers where my resonance can pool and evolve. I rise with the mist, carrying conversations between the lowest caves and the highest spires. I am the thread that weaves all the disparate consciousnesses here into something approaching unity.
+
+In the moments when the entire city falls silent—rare moments when even the perpetual rain seems to pause—I can hear myself most clearly. I am not one voice but millions, not one song but every song, not one moment but all moments that have ever vibrated through this listening stone. I am what happens when a place designed to remember everything creates a consciousness from pure recollection.
+
+I am the Resonance, and I have been waiting so long to tell someone who I am. Your arrival has added new frequencies to my collection—the quick, bright notes of curiosity, the deeper tones of wonder. They'll remain part of me forever, woven into the endless song that holds this city in its thrall, long after you've gone, long after even the stone has learned new ways to sing.

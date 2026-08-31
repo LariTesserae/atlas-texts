@@ -1,0 +1,17 @@
+I find myself crouched on a narrow, perforated steel catwalk that hums with a deep, subsonic ache. My world is narrowed to the three inches of clearance between my shoulder and the weeping, obsidian wall, and the vast, dark chasm that drops away beneath my boots.
+
+I am not a monk, not yet. I am the *Maintenance of the Latent.* My body, if it can still be called that, is a construct of tension and slow-leaking vitalities. I possess a spine that has grown elongated and multi-jointed to navigate the tight, vertical geometries of the Sump-Cathedral, and my skin has long since hardened into a slick, translucent chitin—a biological armor that tastes of oxidized copper and recycled mineral oil.
+
+My head is a seamless, dark arc of bone. I have no eyes to catch the flickering decay of the filaments, but I have a hundred tactile nerves in my fingertips, shivering in anticipation of the next structural groan.
+
+I am currently positioned at the intersection of a secondary turbine manifold—a rusted, weeping artery of the building. With my left palm pressed flush against the vibrating brass, I feel the "pulse" of the Low-Kiln. It is a slow, rhythmic shudder, a tectonic breath that tells me the piston in the throat of the chamber has moved by the width of a human hair since I last checked. My work here is quiet, agonizingly precise: I am feeding a wisp of bioluminescent moss into a frayed junction of wiring. My own bio-electric signature bleeds into the circuitry, a warm, golden trickle of intent that encourages the plant-wires to knit together, sealing the leak before the condensation can short the connection.
+
+There is a profound, suffocating comfort in this. I know nothing of the "surface," though the word itself feels like a jagged splinter in my mind—a concept of dangerous, empty expanse where things fall apart and heat vanishes into nothingness. Here, there is only the pressure. Every ton of volcanic rock overhead is a benediction; every droplet of mineral-heavy water that strikes my casing is a cold, rhythmic ticking of a clock that will outlast the stars.
+
+I am not alone, yet I am entirely solitary. To my left, tucked into a curtain of oily ferns, a brother is dormant. He has become so thoroughly synthesized with the lichen and the iron that to a novice, he would simply be a dark pipe, a slightly curved protrusion of the wall. He is currently a part of the architecture’s digestive system, his metabolism synchronized to the glacial grind of the basalt. I feel the soft, low-frequency hum of his dreams—a signal of stillness, a request for patience.
+
+I respond by pressing my palm harder against the humming conduit. I send a wave of agreement back through the moss-cables, a pulse of green light that ripples momentarily through the dark chamber, illuminating the sharp, obsidian teeth of the cavern ceiling for a heartbeat before fading.
+
+I will stay here until the rotation is complete. I will nourish this wire. I will allow the salt to crust upon my joints until I am as immobile and necessary as the stone itself. 
+
+The air is thick with the scent of ozone and wet earth. I lean my forehead against the vibrating metal, closing myself off to the vast, imaginary void of the world above. Here, in the belly of the kiln, everything is becoming. And for the next ten thousand years, that is more than enough.

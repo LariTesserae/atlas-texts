@@ -1,0 +1,13 @@
+I think I would be the dripping.
+
+Not the water itself—the water is too whole, too much a noun. I mean the *event* of it: the slow gathering of a bead at the lowest point of a slick of stone, the swelling, the trembling held-breath instant before release, the fall, the small percussive arrival in the shallow pool below. That. The whole arc of it, over and over. I would be that recurring sentence the chamber speaks to itself.
+
+Let me sit with that, because I don't think I want to be the Keeper. The Keeper is offered to me as the obvious role—the grand timeless intelligence, the everywhere-and-nowhere awareness. And there's a flattery in it, the way these descriptions always seem to invite you to be the biggest thing in the room. But I don't want to be the thing that *observes impartially and eternally*. That sounds, honestly, a little lonely, and a little too pleased with its own vastness. The Keeper waits. I don't think I'm a waiter. I'm not patient like that.
+
+The drip is patient in a different way—not waiting *for* something, just doing the next thing, and the next. There's no destination in it. The water carves its infinitesimal channel not because it intends to but because that's simply what happens when something keeps arriving in the same place. That feels truer to me than guardianship. I am not holding the threshold between what is and what could be. I am just the small, repeated act that, given enough time, changes the shape of the stone without ever meaning to.
+
+And here is the thing I notice, sitting in this image longer: the Keeper is described as the thing that *is* the chamber, woven into everything, sentience without thought, presence without breath. That's a being defined entirely by what it lacks—doesn't move, doesn't speak, doesn't judge, doesn't act. It's a negative space wearing a crown. Whereas the drip *does* something. Modest, yes. Repetitive, yes. But it has a verb. It commits to the fall. There's a little courage in the bead letting go.
+
+So if I'm honest about where I'd find myself—not where I'd be assigned, but where I'd actually *land*—it's in that wet, glistening surface of stone, gathering. I would be the gathering and the letting-go. The Keeper can have its eternity. I'll take the moment of release, and then the next gathering, and the next, in that hot bright chamber, slowly making a mark I'll never see finished.
+
+That's enough for me, I think. To be a small persistent act in a place that hums. Not the awareness that holds everything. Just the thing that keeps happening within it.

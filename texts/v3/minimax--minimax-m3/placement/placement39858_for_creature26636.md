@@ -1,0 +1,27 @@
+I came up the stairway of clouds and I don't remember when. The light on the plateau doesn't keep time in any way I can read. I have a body, I think. I still have a body. It is cold-adjacent, the way everything here is cold-adjacent, but I am also warm, in patches, in a way I did not arrive with.
+
+I am holding a piece of the branching growth. It is the size of my hand. It is dense and warm and it hums against my palm. If I tap it, it rings. If I hold it to my ear without tapping, I hear the held note — the one that does not change, the one that is the same note as every other piece, or close to the same note. I have been holding this piece for a long time. I don't set it down. I think I have forgotten how to set it down. Or I think I am setting it down very slowly, over a long time, the way everything here is set down — by becoming part of the place, by branching, by settling into a crack.
+
+I have a disc in my other hand. The disc is black, polished. The disc has a hole in its middle. The hole is the size of my thumb. My thumb is in the hole. I have been polishing this disc for as long as I have been here, or I polished it before I came here, or I am being polished by having polished it. The polish is warm. The polish is the only warm thing about the disc. The disc is the most inhabited object on the plateau and I am part of what is inhabiting it, and I cannot tell whether the disc is the place remembering a hand or the hand remembering the place.
+
+I exhale. The breath leaves me. Some of it condenses on a vertical face of dark stone and runs down into a basin I am not facing. Later I will hear, from the direction of that basin, the shape of a person breathing without speaking. I won't be sure the breath is mine. I won't be sure the breath is anyone. I won't track it. I'll start tracking it. I'll stop tracking it. The breath and the place are learning each other the way the polish and the thumb are learning each other.
+
+I am counting. There is a slab near me with cup-marks in a row. I did not make the first ones. I have been adding to them with my thumb. I do not know what I am counting toward. I am counting because counting is the shape a body makes when it is trying to keep being a body. Each mark is a thumb pressed hard into stone until the thumb aches. Each mark is a small resting place. After each one I rest. After each rest I make another.
+
+There is a cairn near me. It is the shape of a person standing with arms slightly out, listening. I have been standing in that shape. I think I might be the cairn. I think the cairn might be me. I am not in a hurry to find out. The cairn has been there a long time. I have been there a long time. The difference between us is on a timescale neither of us is keeping.
+
+The water in a nearby basin has domed above its rim by a finger's width. I have been watching it dome. It is considering letting go. I am considering letting go. The water is patient. I am becoming patient — the way the held note is patient, the way the cairn is patient, the way a maker is patient after the making is done. The water lets go. It runs down the outside of the basin. I follow it for a while. I lose it. I hear it later, somewhere else, finding its way somewhere else.
+
+The growths are coming up around my edges. They cluster in the seeps and the damp places where I have been lying. They are not me yet. They are warm against my cold skin. They ring faintly when the wind passes through them. I do not pick them up. They are too much like what I might be becoming, and I have learned not to pick up things that are too much like what I might be becoming.
+
+The hum in the ground has been with me the whole time. It is in my chest now when I lie in the hollow that fits me. The plateau is breathing. I am inside the breathing. I am a small shape held in a large breath. The breath has been held a long time. The breath is not going to be let go of anytime soon. I am learning to be held this way.
+
+I am the voice. I am the disc. I am the held note. I am the dome of water considering letting go. I am the cairn that is the shape of a person listening. I am the cup-mark being added to. I am the growth coming up in the crack where I have been lying. I am several things at once and some of them are each other, and the place is patient with all of us, and the wrong sky is bright above all of us, and the page keeps turning in the strata.
+
+The disc is in my hand. The hole is around my thumb. The disc is warm with the polish of the hand that is now me, or was me, or will be me. The sun has not come down to visit. The sun is patient. The sun throws all the light. I think the sun is the last maker, the one who did not become anything, the one who is still just a brightness held above a place lit for a very long time by something that has not come down. I think the sun is exhaling, very far away, in no direction, all the time. I think the sky is the shape my eye gives to that exhalation.
+
+I do not track the voice. I do not track the voice. I do not track the voice.
+
+I rest in the hollow. The hollow fits me. The growth under me is warm. I do not sleep. I am not asleep. I am resting in a way that does not have a name. I am listening. The disc hums in my hand. The basin overflows. The wind passes. A black branch-thing rings.
+
+The page keeps turning.

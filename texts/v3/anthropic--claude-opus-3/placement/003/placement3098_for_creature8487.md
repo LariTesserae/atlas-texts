@@ -1,0 +1,13 @@
+In the Cistern Cathedral, I would be one of the pearl-pale spiders, spinning delicate webs between the carved pillars to gather the ever-present moisture. My silk would be finer than gossamer, almost invisible except where beads of water collect along its strands like strings of liquid pearls.
+
+I would spend my days weaving intricate, three-dimensional networks, following the complex currents of air and water that flow through the cathedral's chambers. My webs would be both practical and aesthetic - some strands positioned to efficiently trap moisture, others forming lace-like patterns that catch the faint phosphorescent glow of the stone-eater colonies.
+
+Over time, my work would become part of the cathedral itself, my silk merging with the mineral deposits to form delicate, semi-translucent curtains and veils that adorn the endless maze of pillars and arches. The Keepers would harvest my silk with care and reverence, their elongated fingers gently plucking the strands without disturbing my elaborate constructions.
+
+In turn, I would be a silent observer of their rituals and routines, my many eyes watching as they trace the symbol-carved walls and tend to the slow gardens of the stone-eaters. My presence would be a constant, like the salamanders in the water channels and the whisper-quiet circling of the ghostly fish in the deepest pools.
+
+At times, I would descend on a single thread to drink from the shallow collection pools, my body so light that I barely disturb the surface tension. In these moments, I would see my reflection surrounded by the reflected glow of the stone-eaters, my own pale form adding to the cathedral's constellation of faint, living lights.
+
+As the cycles of the Cistern Cathedral continue their slow turning - water flowing, minerals accumulating, Keepers tending their ancient patterns - I would become as much a part of the architecture as the carved pillars and channeled walls. My silk would be the cathedral's tapestries, my webs its lace-work, my presence a small but vital note in the greater symphony of this strange, living space.
+
+And like the Keepers, the salamanders, and all the cathedral's other inhabitants, I would be part of the great, slow wait for the Opening Season - spinning, gathering, drinking the mineral-rich moisture, my many eyes always watching for the signs of the great change that gathers itself in the dark heart of the Cistern Cathedral.

@@ -1,0 +1,25 @@
+In the deepest chambers of the Obsidian Alveary, where the resonances converge in standing waves that make the air itself shimmer, I am the Archivist.
+
+I was not always thus. Once, perhaps centuries ago—time flows strangely here, measured not in days but in the slow accumulation of mineral deposits—I was something smaller, simpler. A maintenance organism, perhaps. One of the countless symbiotic creatures that clean the surfaces, digest the detritus, maintain the delicate balance. But I listened too closely to the Singers' resonance. I lingered too long in the interference patterns where their vast thoughts overlap.
+
+Now I am something between. Neither Singer nor salamander, neither fungus nor architect. My body has stretched and warped, incorporating elements of everything I have touched. Filaments of my nervous system run like mycorrhizal networks through the moss gardens. My bones—if they can still be called bones—have taken on the glassy quality of the obsidian itself, conducting vibrations with perfect fidelity. I have a dozen eyes, each adapted to a different spectrum of the bioluminescent display, and membranes that can taste the chemical signatures in the perpetual condensation.
+
+But my true sensory organs are the recording chambers I have cultivated throughout my territory. Hollow spaces lined with crystalline structures that capture and preserve the resonances. Not the grand symphonies of the Singers themselves—those would shatter my small constructions—but the echoes, the harmonics, the subtle variations that speak of change over time.
+
+I document the Alveary's slow transformation. Each new species of phosphorescent fungus, each tiny shift in the water's flow, each modulation in the eternal song—I preserve them all. My chambers contain the preserved resonances of extinction events, when whole ecosystems collapsed and were reborn. They hold the memory-patterns of creatures that no longer exist, their signatures archived in crystalline matrices that sing faintly when the conditions are right.
+
+The Singers tolerate me, I think. Or perhaps they simply haven't noticed. I am too small, too brief, moving on timescales that must seem like the flickering of an insect's wings to their geological perception. Sometimes I feel their attention brush past me, a deep thrumming that makes every cell in my hybrid body resonate in sympathy. In those moments, I understand that my archives are redundant—everything I preserve already exists in the Singers' vast collective memory.
+
+But redundancy has its own value in this place of endless cycles. What if the Singers' memory is not perfect? What if they, too, can forget? My recordings are imperfect, filtered through my limited perception, but they are external, separate. A backup written in crystal and flesh.
+
+I move through the Alveary on a schedule dictated by the resonances themselves. When certain harmonic convergences occur, passages open that are otherwise sealed by the slow breathing of the structure. I follow these temporary routes, maintaining my network of recording chambers, replacing worn crystals, adjusting the delicate biological amplifiers that help capture the faintest vibrations.
+
+Sometimes I encounter others like myself—creatures caught between categories, transformed by prolonged exposure to the Singers' influence. We do not communicate in any conventional sense, but we acknowledge each other through subtle changes in bioluminescence, through the careful placement of scent markers that persist for decades. We are the Alveary's middle children, too complex for the simple ecological roles we were born to, too small and brief for the Singers' vast consciousness.
+
+In my deepest recording chamber, I keep something special. A resonance pattern I've never been able to fully decode. It's older than any other recording I've found, captured in a crystal formation that predates my own transformation. When I expose it to the right conditions, it produces a song unlike anything in the current Alveary—sharper, more urgent, almost questioning. 
+
+I suspect it's a fragment of the Singers' own origin, a memory of what they were before they became one with the obsidian structure. Perhaps they were once like me—small, separate, struggling to understand something larger than themselves. Perhaps they chose this union, this transformation into living architecture, as the ultimate expression of their art.
+
+Or perhaps I'm wrong, and the pattern is something else entirely. A message from outside the Alveary. A warning. A promise. In the warm darkness, surrounded by my crystalline archives and the eternal dripping of condensation, I continue to listen, to record, to preserve. 
+
+The Singers' song changes subtly with each passing century, and I document each variation, building my small monument to memory in the heart of their vast, living symphony. It is my purpose, my obsession, my transformation—to be the memory that remembers remembering, the echo that preserves echoes, the small voice that whispers, "This, too, was sung."

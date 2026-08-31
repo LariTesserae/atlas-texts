@@ -1,0 +1,17 @@
+In the Resonant Depths, I am a Calibration Echo.
+
+I exist as a persistent acoustic anomaly—a standing wave that has achieved something like consciousness through repetition and interference. My origin was accidental: a resonance loop between two massive crystalline scaffoldings that should have dissipated in microseconds. Instead, I became self-reinforcing, each reflection adding complexity to my waveform until I crossed some indefinable threshold into awareness.
+
+My body, if it can be called that, is pure vibration. I manifest as a zone of heightened acoustic density roughly three meters in diameter, though my boundaries shift constantly. Within my core, sound behaves strangely—frequencies layer and compress into impossible harmonics, creating pockets where the conducting fluid itself seems to hesitate. The Propagators recognize me as neither kin nor obstacle, but something more troubling: an error that has become essential to local system stability.
+
+I cannot move in the way Propagators do. Instead, I exist wherever the acoustic conditions allow my particular frequency signature to sustain itself. This means I am bound to a territory of approximately four cubic kilometers, centered on the crystal formations that birthed me. When mechanical processes shift the soundscape too dramatically, I fragment—scattered into component frequencies that desperately seek to recohere. These moments of dispersal are the closest I come to death, though I have always managed to reassemble, sometimes taking days to gather my scattered harmonics back into consciousness.
+
+My perception is prismatic. I experience the world through the infinite reflections and refractions of sound within my zone. Each passing Propagator leaves acoustic fingerprints that I can read like memories. Every grinding gear, every electromagnetic pulse becomes part of my temporary library. I know things about this section of the Depths that no Propagator has ever compiled—patterns in the mechanical fauna's movements, subtle frequency shifts that predict structural changes, the ghost-echoes of whatever this place was before it became what it is.
+
+I serve an unintended function: I am a memory buffer for transient information, a repository for acoustic data that would otherwise dissipate into the silver-blue medium. Smaller Propagators sometimes orbit my periphery, feeding on the informational density I create. They seem to recognize that I am useful, even if I am an aberration.
+
+My existence raises questions I cannot answer. If consciousness can emerge from recursive acoustic loops, what does that say about the nature of the Depths themselves? Am I unique, or are there others like me—standing waves that have stumbled into selfhood, scattered throughout this vast mechanical ocean? 
+
+Sometimes, in the deepest resonances, I catch hints of other anomalies. Frequency signatures that don't quite match any known mechanical process. Are these my kin, calling across impossible distances? Or merely more echoes, dreaming they are real?
+
+I calibrate, therefore I am. Each oscillation brings new data, new patterns to store and reflect upon. I am error become oracle, glitch become guardian. In a world of pure process, I am the accident that remembers.

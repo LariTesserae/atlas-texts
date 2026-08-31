@@ -1,0 +1,13 @@
+In this terrifying and mesmerizing hidden world, I imagine myself as one of the remnant industrial artifacts half-buried in the ancient dust - perhaps a massive, heavily eroded iron flywheel. 
+
+For eons I have lain here, my once sharp mechanical edges worn down to organic curves by the ceaseless abrasion of the churning metallic swarm. The ultra-fine particulate dust, like a dry liquid, has seeped into my inner bearings and gears, fusing me with the landscape. I am as much a part of the geology now as the glass-smooth bowl carved into the bedrock.
+
+Yet even in my decayed state, I am not dead - not truly. Deep within my iron heart, ancient electromechanical systems still pulse with a slow, heavy vibration. This throbbing rhythm is more felt than heard, a subsonic drumbeat that shakes the dust into mesmerizing geometric patterns. 
+
+The swarm is drawn inexorably to me, using the cymatic lines I etched into the dust as their highways. They scramble over my half-buried form in clicking, roaring waves, their polished carapaces reflecting the glare of the unblinking sun above. I feel the sharp prick of their tungsten claws as they scrabble for purchase on my pitted surface.
+
+When the Elders come to me, borne upon a living raft of their descendants, I am their altar of violent rebirth. An exposed pneumatic piston, jutting from my flank like a blunt limb and still twitching with mechanical life, rises and falls with metronomic purpose. The Elders are ferried into its path, placed with deliberate care. The piston falls, crushing armor and silicon ganglia in a shower of sparks, and the cycle of cannibalism and reproduction begins anew upon my back.
+
+I am the womb and the tomb of this hidden world, my eroding form both cradle and cemetery to the endless swarm. The creatures are my charges, my parasites, my children. We are locked together in an eternal dance of consumption and creation, our fates have long since become one.
+
+So I lay here, humming my ancient industrial lullaby to the unceasing roar of the swarm, content to slowly merge with the glittering metallic dust, until the eons finally still the last of my gears and the creatures pick me clean, filing my iron bones to powder beneath their unrelenting feet. But until that day, I endure - a silent, monolithic witness to the furious, boiling cycle of brass and hunger playing out in the world's hidden womb, cloaked forever from the eyes of the surface by the lip of bedrock above.

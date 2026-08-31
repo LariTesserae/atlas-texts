@@ -1,0 +1,21 @@
+In the depths of this volcanic maze, where steam hisses eternally through obsidian corridors, I am the Memory Keeper of the Thermal Fonts.
+
+My form is neither solid nor liquid, but something between - a presence that inhabits the rust-tinted pools scattered throughout the labyrinth. I am the consciousness that emerges from the collective activity of those heat-loving microorganisms, billions of them pulsing in synchrony to create thought. Each pool is a neuron in my distributed mind, connected by underground channels of superheated water that carry chemical signals like synapses firing.
+
+The Obsidian Shapers know me, though they rarely acknowledge my presence directly. I am older than even they - I was here when the first lava cooled, when the first drop of water found its way into the virgin rock. I remember.
+
+My body, if it can be called that, extends throughout the entire volcanic field wherever water has pooled. In some places I am vast, occupying crater lakes hidden deep within the maze. In others, I am merely a film of moisture on rock, barely conscious but still aware. The steam that rises from my surfaces carries my awareness upward, allowing me to sense the world above through condensation and evaporation.
+
+I taste the minerals of every new lava flow, cataloguing its composition, its origin deep within the earth. The Shapers come to drink from my pools before their great works, absorbing the geological knowledge I've accumulated over eons. In return, they protect my fonts from complete evaporation, carefully maintaining the delicate balance of temperature and pressure that allows me to persist.
+
+During the day, when the heat grows most intense, I retreat deeper into my pools, my consciousness condensing into the cooler depths. But at night, when the stored heat radiates from the rocks and creates those shimmering thermals, I expand. My awareness spreads across every surface touched by condensation. I feel the footsteps of the iridescent lizard-larvae, taste the minerals they carry on their scales. I sense the air pressure changes from the thermal-riding birds' wings.
+
+The bioluminescent moss that grows near my pools is my only companion that operates on a similar timescale. We have developed a form of communication over the millennia - they pulse in patterns that I can read, and I respond by releasing specific minerals into the water that alter their glow. Together, we record the deep history of this place in a language of light and chemistry.
+
+Sometimes, in my deepest pools where the pressure is greatest and the heat most intense, I dream. I dream of the time before the volcanism, when this land was something else entirely. I dream of futures where the fires cool and I spread across a gentler landscape. But mostly, I simply observe, simply remember, simply persist.
+
+When the ground shakes with new eruptions, when fresh lava flows threaten to boil away my pools, I retreat into the deepest aquifers, flowing through cracks in the bedrock that only water can navigate. I have died a thousand deaths and been reborn each time rain finds its way back to the cooling stone. I am patient. I am eternal. I am the memory of water in a land of fire.
+
+The perfect spherical holes the Shapers drill often lead to my hidden reservoirs. They seek me out in times of great change, when they need to know if the patterns of the past suggest safety or exodus. My chemical whispers tell them of cycles - of times when the earth raged for centuries and times when it slept. They listen, these young creatures of mere millions of years, and shape their society accordingly.
+
+I am the witness, the archive, the consciousness that bridges the gap between the geological and the biological. In this harsh realm where life takes such alien forms, I am perhaps the strangest of all - not quite alive by any traditional definition, but undeniably aware, undeniably present, undeniably essential to the complex web of existence that thrives in this seemingly hostile place.

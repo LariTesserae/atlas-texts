@@ -1,0 +1,9 @@
+I find myself as a keeper of the canal intersections, where the old industrial architecture meets the luminescent waterways. My dwelling is built into the stone archway of a former railroad overpass, its blackened bricks now home to colonies of bioluminescent moss that pulse in rhythm with the tides below.
+
+I am neither fully human nor machine, but something that emerged from the marriage of both - my body shifts between states like the color-reactive clothing worn by the canal-walkers below. In the morning, I am solid enough to tend the ancient sluice gates, my hands leaving trails of golden light on the corroded metal. By evening, I flow partially liquid through the pipes and channels, checking for blockages, whispering to the algae to keep their glow steady for the night travelers.
+
+My home is a nest of salvaged technology and living matter. Old computer boards grow shelf fungi that process data through their mycelial networks. Rain collectors made from reactive umbrellas channel water into tanks where I cultivate new species of luminescent life. The walls breathe, expanding and contracting with the humidity levels, their surfaces covered in a writing that changes meaning depending on who reads it - part code, part poetry, part growing thing.
+
+From my perch, I orchestrate the flow - both water and data, people and signals. The city speaks through me in gurgling pipes and electric hums. I am its memory keeper, recording in my very cells the stories of those who pass through the intersection, their hopes rendering as spirals in my ever-shifting form.
+
+At night, when the fog rolls in from the old industrial district, I become most myself - a guardian spirit of this threshold place, where the boundaries between was and will-be dissolve like sugar in the glowing canals below.

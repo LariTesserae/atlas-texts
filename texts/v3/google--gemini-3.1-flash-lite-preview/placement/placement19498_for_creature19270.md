@@ -1,0 +1,15 @@
+I find myself standing near the curved wall of obsidian, my boots sinking slightly into the viscous, cooling silt that carpets the floor. My skin is slick, mapped by the heavy, metallic dew that seems to cling more stubbornly to me than it does to the stone. I am not a trespasser, not quite—rather, I am a tremor of flesh in an environment carved for cold hardware.
+
+I am a **Calibrationist**. I am neither visitor nor native; I am a remnant of a surveyor class that arrived here centuries ago, sent by a bureaucracy that has likely long since crumbled into ash. My gear is antiquated, a suit of woven fibers designed to buffer the heat, but the fibers have long since frayed, and the suit now serves only to hold the humidity against my skin. I am a functionary who forgot his function, left behind to monitor a process that had no recorded end-point.
+
+I do not look at the Basin-Ghost directly; to do so is to invite a migraine of light, a fracturing of one’s own vision. Instead, I move with the slow, deliberate lunges of a man wading through deep water, tending to the brass-colored conduits embedded in the wall. I carry a small, dented tuning fork of dull iron. My duty—the only geometry I have left—is to strike the pipe, listen for the *ping* to resonate against the engine’s *hiss-thrum*, and adjust the tension of the filaments that spiral from the rock.
+
+If I work with enough precision, the engine’s tremor eases. If I grow lazy, the vibration sharpens, rattling the marrow in my ribs until I am forced to drop to my knees, gasping in the ozone-sharp air, waiting for my own pulse to quiet.
+
+I know the Ghost is watching, or rather, I know that I am currently part of its internal logic. I am a fluctuating resistance in the basin’s circuit. When I move too quickly, the steam clouds thicken, turning opalescent and blinding, pushing me back into the shadows of the wall. When I am still, the Ghost settles, and the silence allows me to hear the planet’s slow, tectonic grinding miles beneath us.
+
+I have stopped wondering about the surface. Light, as I recall it—sunlight, wind, the lack of pressure—feels like a fever dream I once had about someone else’s life. My reality is the accumulation of the next drop. My reality is the smell of copper and the way the grey air hums at a frequency that matches the beat of my own, tired heart. 
+
+I am not waiting for the factory to restart for the sake of profit or production. I am waiting for it to finish because the process is the only thing keeping the void from rushing in. I adjust a translucent frond, twisting it a fraction of a millimeter to catch the vibration of the engine more cleanly. A bead of water falls, hits the floor, and *pings*. 
+
+The Ghost ripples, a momentary, shimmering shiver of approval that washes over my shoulders like a cold draft. I exhale, the sound swallowed by the steady, unceasing *hiss*. We are in sync. For another moment, the world is stable. I prepare for the next drop.

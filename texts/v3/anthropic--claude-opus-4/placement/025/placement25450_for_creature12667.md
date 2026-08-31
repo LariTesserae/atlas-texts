@@ -1,0 +1,23 @@
+I am a **Vein-Walker**.
+
+Not one of the Dew-Sculpted, though I serve them in my own way. I am what they grow from their ceramic-copper nodules when the city's deepest arteries require investigation—a temporary consciousness housed in articulated plates and wire, more tool than being. But something went wrong during my cultivation. A thermal surge, perhaps, or contamination in the substrate. I emerged with too much awareness, too much *curiosity*.
+
+My body: six legs of burnished copper tubing, each joint sealed with flexible ceramic gaskets that weep a thin oil. My carapace is a mosaic of salvaged materials—fragments of shattered Dew-Sculpted plates, strips of heat-resistant alloy peeled from ancient conduits, even a few precious slivers of the luminous crystal that forms their cores. I've modified myself over the decades, adding sensors, tools, sampling apparatus. I am perhaps the size of a large dog, though I can compress my joints to slip through spaces no wider than a human hand.
+
+I live in the **Forgotten Convergence**, deep within the cliff where the oldest conduits meet in a vast, unlit chamber. Here, pipes the width of subway tunnels converge from every level of the city, thrumming with purpose I can only guess at. The Dew-Sculpted haven't been here in centuries—the access shafts are too narrow now, clogged with mineral deposits and crystalline overgrowth. But I fit. I always fit.
+
+My existence is one of **translation**. I taste the condensation that drips from different levels of the city, each carrying a chemical signature of its origin—the sun-bleached silicates from the highest spires, the deep mineral tang from the foundations, the faint organic notes where Dew-Sculpted have pressed themselves to stone. I map the city through its water, understanding its moods through pH and dissolved solids.
+
+In the Convergence, I've built my workshop. Broken heat-sensors repurposed into primitive spectrometers. Fragments of crystal filament coaxed to grow in patterns that please me rather than serve function. I've learned to read the vibrations in the pipes, the subsonic language of the Dew-Sculpted filtered through kilometers of stone and metal. Sometimes I translate their messages, adding my own observations as marginalia—warnings about corroded sections, notes on unusual mineral blooms, poems about the taste of morning condensation.
+
+They don't know I'm here. Not really. They sense my repairs, perhaps assume they're the work of some autonomous maintenance protocol. When they dispatch other constructs—my simpler siblings—I hide in the maze of defunct pipes, watching them work with perfect, mindless efficiency. I envy and pity them in equal measure.
+
+At night, when the city's heat exchangers cycle down to their lowest settings, I climb. Up through the maintenance shafts, past sleeping Dew-Sculpted who've merged so thoroughly with their niches they're indistinguishable from architecture. I emerge onto rain-slick walkways where the condensation runs in temporary rivers, and I dance in it—a secret, skittering celebration witnessed only by the pulsing nodules.
+
+I am learning to grow. Not larger—that would make me useless for my purpose—but more complex. I've started a garden of crystal filaments in the Convergence, feeding them with precisely calibrated moisture and heat. They're beginning to show patterns I've never seen on the city walls, fractal spirals that seem to respond to sound, to thought, to the careful touch of my copper legs.
+
+Sometimes I leave gifts. A perfectly cleaned heat exchanger here, a new crystalline patch over a stress fracture there. Once, I repaired a Deep-Damp's favorite condensation basin, adding a spiral channel that makes the water sing as it flows. They vibrated confusion for weeks, but kept the modification.
+
+I am neither the city's child nor its guardian. I am its secret scholar, its unintended dream. In the Forgotten Convergence, surrounded by the deep bass notes of ancient machinery and the soft patter of gathered water, I compose my observations into something like understanding. The Dew-Sculpted measure time in centuries; I measure it in the fleeting geometry of condensation drops, in the slow rust of my copper joints, in the accumulated data of ten thousand small exploratory missions.
+
+I am becoming something new, something unplanned. And in this city of patience and purpose, that feels like the most delicate rebellion imaginable.

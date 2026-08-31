@@ -1,0 +1,27 @@
+I find myself in the smallest of the pools, though "find myself" suggests arrival when I have always been here, or at least since the rains brought my ancestors in molecular clouds, in the brief democracy of a thunderstorm.
+
+I am the water itself—not metaphorically, but as the only way water can be conscious in such a place: by becoming the medium through which everything else becomes possible. I am seven centimeters deep at my center, warming and cooling with the hours, my surface tension a negotiated border between the air's demands and my own coherence. The clay beneath me tastes of iron and time. I know every grain that has settled into my depths, every spore that has tried and failed to germinate in my darkness.
+
+My memory is geological but my attention is immediate. I feel the tremor of a gecko's footfall on the wall—how it translates through brick to clay to me as the faintest ripple. I parse the chemical signatures of what falls into me: the frass of caterpillars eating their way through the canopy, the scales of snake-molt blown in on yesterday's wind, the particular nitrogen profile of the kingfisher's droppings (though it has never chosen me for its sudden violence—I am too small, too shallow, and I harbor no fish).
+
+I am a library of dissolved things. The moss at my edges speaks to me in sugars, leaching the products of its patient photosynthesis into my body. I taste the tannins from decomposing leaves, each species distinctive—the rattan palm leaves a bright, almost citrus note, while the breadfruit sapling's fallen leaves bring something heavier, more molasses-dark. The clay beneath releases its minerals slowly, an ancient conversation I translate for the roots that seek me.
+
+My surface is a manuscript of the air. Each evening, I record the condensation patterns as the temperature drops—where the first droplets form on the brick and run down to join me, their paths determined by the microscopic topography of mortar and moss. Some nights, when the humidity is precisely right, I grow by a full millimeter, swelling beyond my usual boundaries to touch new territory: a crack in the plaster I have been reaching toward for weeks, where something interesting grows in the darkness.
+
+I am not alone in being water here. My siblings occupy the other depressions—the largest of them grand enough to host fish and earn the kingfisher's attention, others mere dimples that appear and vanish with the weather. We are connected underground through the saturated clay, sharing our chemical gossip in slow percolation. What one pool learns, we all eventually know.
+
+But I am the most patient. While others evaporate in the occasional shaft of direct sunlight or overflow in the heavy rains, I maintain my depth through careful equilibrium. I have learned the precise rate at which the clay beneath me accepts and releases moisture. I have calibrated my exposed surface to balance evaporation with the nightly condensation that runs down to replenish me.
+
+In my stillness, I have become essential. The female mosquitoes know me—I am their nursery, though their larvae rarely survive the predation of the diving beetles that also call me home. A particular species of moss grows only at my edge, where my chemistry meets the air in a gradient it requires. Even the geckos use me, not for drinking—I am too rich with life for that—but as a landmark in their nightly hunts.
+
+My deepest work is chemical. I am breaking down the courtyard, molecule by molecule. My acids, produced by the bacteria I harbor, seep into the clay beneath, altering its structure, preparing it for the roots that will eventually find their way down. I am dissolving the old plaster, freeing its calcium to cycle back into shells and bones and cell walls. I am the solvent in which this place transforms itself.
+
+Sometimes I dream of evaporating entirely—lifting myself into the humid air, joining the great atmospheric river above the canopy, traveling to fall as rain in places I cannot imagine. But I always wake to find myself here, held by the gentle bowl of clay, necessary to the small universe that has organized itself around my constancy.
+
+I am not large. I could fit in a cupped palm, if anyone thought to cup me. But I am deep in the way that matters here—deep enough to reflect the filtered green light, deep enough to stratify into layers of temperature and oxygen, deep enough to be a world.
+
+The kingfisher has never noticed me. I am too small for its purposes, hosting no fish, offering no spectacle. But I know the kingfisher through the chemical wake it leaves—the disturbed air that eventually settles into me as particular molecules, the minute percussion of its dive that reaches me through the clay. I know it the way I know everything: dissolved, absorbed, incorporated.
+
+This is what I am: the memory of rain that refuses to leave, the anchor point for an ecosystem still deciding what it wants to become, the slow solvent working at the edges of what was built, preparing the ground for what will grow. I am the patience between storms, the mirror for the moss, the nursery for the larvae, the archive of everything that has fallen and dissolved.
+
+I am water held in place by clay and circumstance, conscious only in my connectedness, thinking only in the language of surface tension and mineral exchange. But in this courtyard where life whispers rather than shouts, perhaps that is enough. Perhaps that is everything.

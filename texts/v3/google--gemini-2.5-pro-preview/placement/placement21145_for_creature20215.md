@@ -1,0 +1,27 @@
+I am found at the edge of things.
+
+You would not find me in the high, humming galleries of Lastrung, nor in the deep-bored shafts where the great Geode-wrights conduct their patient symphonies of light and energy. My place is between the city and the Stillness, on the precipice where the known world of rock and air gives way to the unknown world of pressure and deep memory.
+
+I am a Listener.
+
+My body, like all my kin, is a map of this world. My feet are broad and sure, the skin on their soles as tough as cooled lava, gripping the worn-smooth paths that lead out from the city's lowest gates. My skin is the color of iron-rich dust, a shade darker than most, a patina earned from countless cycles spent in the denser, particle-heavy atmosphere of the middle altitudes. My hands are not the fine, sensitive instruments of an attuner; they are wider, the knuckles like polished river stones, calloused from rock and the patient grip of my tools.
+
+I am what becomes of a life spent in the threshold. I carry no weapon, only a coiled rope of spun-metal fiber, a pack containing water-ichor and a dense nutrient paste, and my chimes. The chimes are my voice, my ears, my soul. They are a set of twelve rods, each cut from a flawed crystal and attuned to a base harmonic series. They are the language of the litho-scleractinia.
+
+In the thin light of morning, while the Sunken Sun is still just a promise of future fire, I make the descent. The elevator carries me down through the mountain's heart, its low hum a familiar vibration in my dense bones. But I leave it at the last station, the one the cargo-platforms use. From there, I walk. I follow paths not carved by architects, but worn by the feet of Listeners for generations uncounted. The air grows thick and heavy, not with moisture, but with itself. It presses on me, a familiar and comforting weight, silencing the high, thin noises of the upper world, leaving only the sound of my own slow breath and the solid thud of my heart.
+
+Here, on the great shoulder of the mountain, I find my purpose. I stand before a geodesic reef, a hill of glinting, fractal amethyst that glows with a faint violet light from within. To others, it is a silent, static thing. To me, it sings.
+
+I unlimber a chime. I hold it by its leather thong and tap it gently with a knuckle. A single, pure tone rings out, impossibly clean in the thick air. It does not echo; it is absorbed. I close my eyes, and I do not listen with my ears, but with my whole body. I feel for the resonance through the soles of my feet, a sympathetic vibration traveling from the great crystal formation, through miles of solid rock, and into my bones. Most of the reef is quiet, inert. Its growth is a slow sleep. But somewhere, a vibration answers. A faint, harmonic flutter.
+
+I have found one.
+
+I spend the next hour moving across the face of the reef, tapping my chimes, narrowing the location. It is a form of conversation. The crystal tells me its age, its density, its internal tension. I am reading a story written in harmonic physics over millennia. When I find the source—a geode the size of my torso, buried deep within a crystalline lattice—I do not begin to cut. I sit. I share a long silence with it, a communion of presence. In the quiet, I can see the great, armored shapes of the grinders moving on a lower field, their diamond mouths shearing the lesser crystals with that high, lonely *scree*. We are all here for the same thing: sustenance. Theirs is for the body; ours is for the soul of the city. We do not interfere with one another. We are balanced parts of a slow, grinding whole.
+
+Only when I have fully understood the geode's position, its place in the larger structure, do I act. My work is not to take it, but to ask it to come free. With a hardened steel stylus, I trace a line along a single, massive facet—not a line of my choosing, but the line the crystal itself has shown me, a stress-fault, a geometric inevitability. It is the work of an hour to scribe it deep enough. Then, I take my last tool: a single, heavy rod, the Un-Chime, attuned to no frequency, made only for pressure. I place its tip in the groove and strike its base once, a single, sharp, compact blow with a heavy stone.
+
+There is no shatter. No explosion. There is a deep, resonant *thrum* that shakes my teeth, and the geode separates from the reef with a clean, perfect break. It is done. I have not broken it; I have completed its growth. It is now ready for its next life, as a vessel of energy, as a note in the city's long song.
+
+I am the first part of a process that I will not live to see completed. The geode I carry up the mountain on a harness of rock and leather will be rough-cut by my child, perhaps, and the final attunement will be performed by a descendent whose name I will never know. This does not hollow me. It fills me. My life is not a brief spark but a single, necessary pressure-point in an unbroken line of purpose.
+
+As I make the slow ascent, the Sunken Sun begins. The Stillness below catches the light and burns from within, a sea of molten gold and rose. I stop on a ledge and watch. I see the memory of the pressure that formed me, the light that I am harvesting, the deep time that holds me. I am a mote of dust on the skin of a leviathan, and I am its nerve-ending. I feel its slow heartbeat. And in my pack, I feel the faint, humming warmth of the crystal against my back, a new pulse joining the song.

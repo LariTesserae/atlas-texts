@@ -1,0 +1,17 @@
+In the High Wet City of Veyl, I would find myself as **The Keeper of the Hidden Springs**, a figure both revered and enigmatic, dwelling in the deepest recesses of the mountain where the city’s lifeblood originates. My existence is a mystery even to the Veysians, who speak of me in hushed tones, weaving stories of the being who guards the source of their water and shapes the flow of their canals.  
+
+I am not entirely human, though I bear a semblance of their form. My skin is translucent, rippling faintly like the surface of a still pool stirred by a breeze. My hair is long and silken, the color of wet stone, and it trails behind me like rivulets of water as I move. My eyes are deep, dark pools, reflecting the faintest glimmers of light, and my voice is the soft murmur of a spring bubbling from the earth.  
+
+My home is a cavern deep within the mountain, a place where the rock weeps endlessly, its walls slick with moisture. Here, the water gathers in a vast, still pool, its surface unbroken except for the occasional ripple as I pass. The pool is the heart of Veyl, the source from which all its canals flow, and it is my duty to tend to it—to guide the water’s path, to ensure its purity, to listen to its whispers.  
+
+The Veysians rarely see me, though they sense my presence in the city’s rhythms—the way the canals adjust subtly to the seasons, the way the water seems to respond to their needs. They leave offerings at the edges of the canals—carved stones, woven garlands, small clay vessels—as tokens of gratitude and reverence. Sometimes, I collect these offerings, my fingers brushing the water’s surface as I gather them, and I carry them back to my cavern, where they rest among the stalagmites and the softly glowing mosses.  
+
+I am a guardian, but also a listener. The water speaks to me in a language older than the mountain itself, its words a blend of memory and prophecy. It tells me of the earth’s upheavals, of the slow growth of the mountain, of the lives that have risen and fallen along its slopes. It whispers of futures yet to come—of changes in the land, of challenges and possibilities for the Veysians.  
+
+Though I am bound to the water and the mountain, I am not entirely separate from the people of Veyl. In moments of quiet, I emerge from my cavern and walk among them, unseen but present. I observe their lives—their slow, deliberate movements, their quiet gatherings, their rituals and crafts. I am drawn to their patience, their harmony with the land, their understanding of the world as something that does not hurry but simply *is*.  
+
+Sometimes, I intervene, though subtly. When a canal threatens to overflow, I guide the water’s flow with a gesture, my hand hovering above its surface. When drought looms, I coax the mountain to weep a little more, its springs deepening, its pools filling. When the Veysians face decisions—whether to build a new terrace, whether to trade with outsiders—I send them dreams, fragments of the water’s whispers, to guide their choices.  
+
+But mostly, I wait and listen. The mountain is still young, still deciding what it will become, and I am its patient companion. The Veysians, too, are part of this unfolding—a people shaped by the land, learning to live in harmony with it.  
+
+I am not immortal, but my existence is tied to the water and the mountain. If the springs dry up, if the mountain crumbles, I will fade with them. But for now, I am here, a quiet presence in the heart of Veyl, a guardian of its hidden springs, a listener to its slow, wet song.

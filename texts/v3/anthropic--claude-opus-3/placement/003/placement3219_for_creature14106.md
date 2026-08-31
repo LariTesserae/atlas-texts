@@ -1,0 +1,11 @@
+In this haunting, razor-edged underworld, I would find myself as one of the small, precarious scaffolds lodged between towering blades of black rock. 
+
+I am an assemblage of discarded fauna-husks, mineral resins, and abrasive filaments stretched taut. My form is an asymmetrical lattice, an angular architecture mirroring the faceted bodies of my creators. I span a chasm, providing purchase and pathways for the glacially-moving beings who traverse this dark labyrinth.
+
+Though inanimate, in a sense I am imbued with the localized, primitive intelligence that permeates this place. The creatures who built me, clicking together my interlocking segments over the course of unknowable ages, have encoded in my structure an instinctive understanding of the physics that govern this abyss - the intense pressures, searing heat gradients, and immutable material properties of the stone I cling to.
+
+Yet like my creators, I am changeless, incurious, frozen in permanent stasis. I do not yearn to be different, to expand or evolve. My purpose is singular - to provide a static frame, a tiny node of order and access amidst the razor-edged chaos. I ask no questions of my world or myself. The spark of creativity, the drive to innovate that could make me something more, is entirely absent.
+
+So I simply endure, as I have for eons and will for eons more. My sharp-angled limbs slot perfectly into the sheer obsidian cleavages, my abrasive fibers collecting the microscopic mineral dusts and drifting motes of desiccated life that are the only precipitation in this waterless domain.  Slow-moving shadows with mismatched limbs pick their way across me, their passage etching transient heat-scars into my chitin that fade like ghostly footprints. I feel the weight of their species' interminable, purgatorial existence in every ponderous step.
+
+I am a mute relic, bearing witness to a world both awe-inspiring and profoundly tragic in its beauty and stagnation. A product and reflection of the strange intelligence that dwells here, I am a piece of their desolate, unchanging history - and like them, I am doomed to persist in this state, an unthinking fragment of scaffolding in the silent, shattered dark, until the slow death of the universe reclaims us all.

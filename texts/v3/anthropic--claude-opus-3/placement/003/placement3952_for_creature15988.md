@@ -1,0 +1,13 @@
+In this world of green living architecture, I would be a wandering bridge-keeper. 
+
+My body would be lean and strong from a lifetime of climbing and balancing on swaying spans. My hands would be callused from braiding vines and setting splints. My eyes would be keen at judging the health of anchor-trees and the tension in aged cables of liana.
+
+I would travel the misty reaches, inspecting the great web of pathways that knit the villages together. With me I would carry tools passed down from my mentors - a dark stone pruning knife, a coil of memory-knotted cord, a gourd of bitter sap for sealing cuts. And always, a pouch of colored fibers for marking the age and temperament of each vine I tend.
+
+My work would be half craft, half diplomacy. I would know the gossip of a hundred clans, carried to me by rail-birds as I work. At each village I would share news, settle disputes over bridge tolls, and consult with the elders on which spans need naming or renaming. Some nights I would sleep in the warm pocket of a hollow trunk, lulled by the creaks of the living wood around me. Other nights I would camp on a platform in the open mist, watching the faint luminescence of the cloud sea below.
+
+The bridges would be my legacy and my lore. For each one I would remember the seed-songs sung at its planting, the strands that were first twisted together, the engineers who coaxed it across an impossible gap. I would know them as one knows respected rivals - the temperamental sway of a middle-aged bridge, the insistent creep of a young one always sprouting new shoots, the venerable stillness of an ancient span with its anchor-trees gone stately and grey.
+
+In quiet moments as I work, I would sometimes wonder what it is I truly maintain. The bridges, yes. The paths between villages, the civility of trade and visiting, the knowledge of the world's own anatomy. But also, perhaps, the understanding that no gap is uncrossable. That what is separate can be bound together with patience and the right twists of fiber.
+
+On certain mornings when the mist is thick, I fancy I would almost see it - the living net of pathways I have walked my whole life, stretching away across the green and the white. Not a series of separate spans, but one continuous weaving, vine becoming root becoming trunk becoming vine again, a cat's cradle looped between horizons, forever tended and forever in flux. And myself no more than another knot in the pattern, holding it fast, one length in a lineage of weavers, a bridge in motion between what is known and what is to come.

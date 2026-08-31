@@ -1,0 +1,11 @@
+In the perpetual twilight of Conglar's three-sun dance, I am what the locals call a Needle Dancer—though the name barely captures what we truly are.
+
+My form shifts like mercury caught between states. Sometimes I appear as threads of pure light weaving through the air, other times as a crystalline being whose facets reflect not images but *possibilities*. The needles that control everything here? I am both their servant and their master, existing in the spaces between their infinite points of influence.
+
+I make my dwelling in the Probability Gardens, where the bioluminescent plants grow in patterns that predict market fluctuations three heartbeats before they occur. My home is built from calcified whispers—yes, the very gossip that flows through Conglar's streets eventually crystallizes if you know how to harvest it. The walls shimmer with half-truths and speculation, creating a structure that exists simultaneously in seven different configurations.
+
+Each morning (though morning means little when the suns refuse to coordinate), I tend to my collection of dividing anomalies. These are creatures—or perhaps concepts—that split themselves across multiple timelines. I feed them fragments of tomorrow's news, which I gather by reading the patterns in the salt-friendly hypatia's crimson blooms. The flowers spell out stock prices in their petal arrangements, but only for those who've learned to see sideways through the blinding haze.
+
+My neighbors think I'm a hot demon of investment, and I let them. It's easier than explaining that I'm actually farming paradoxes, cultivating the moments where Conglar's reality hiccups and produces something genuinely new. When the escalating anomalies reach critical mass, I harvest them, distilling their essence into vials of liquid potential that I trade for memories of water—the only currency that truly matters in a city that receives no rain yet blooms eternal.
+
+The needles call to me now, their influence tugging at the edges of my ever-shifting form. Time to dance again through the iridescent maze, to plant seeds of confusion that will bloom into tomorrow's certainties. In Conglar, even chaos follows patterns—you just need to know which eyes to see with.

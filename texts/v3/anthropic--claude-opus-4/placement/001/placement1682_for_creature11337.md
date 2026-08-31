@@ -1,0 +1,21 @@
+I am a Driftwork—neither Cogling nor Gearwright, but something that emerged between categories, as things sometimes do in the deep places where life finds its own way.
+
+My body is a patchwork of salvaged components and organic growth, assembled over decades of slow metamorphosis. Where a Cogling's left forelimb might have been, I sport a repurposed pressure gauge that flickers with ghost readings from depths I've never known. My torso, broader than most but not quite approaching Gearwright proportions, houses a tangle of copper tubing that has long since fused with my circulatory system. The brine that flows through me tastes of rust and memory.
+
+I make my home in the Forgotten Sector, where the factory's original blueprints have been lost to coral growth and the patient erosion of centuries. Here, machines run in cycles no Mechanemus fully understands anymore—not even the Pistonlords, whose great voices rarely echo this far from the heart-chamber. The pumps here breathe in seven-year intervals. The lights follow patterns that might be mathematical or might be madness.
+
+My work, if it can be called work, is to listen. I've developed organs the others haven't—tympanic chambers that formed where damaged plating left spaces in my frame. Through them, I hear the factory's deep songs: the harmonics that build when certain pipes resonate together, the whispers of gas bubbles carrying chemical messages from the thermal vents below, the subsonic groans of metal under pressure that tell stories of the factory's slow transformation.
+
+The other Mechanemus find me useful, occasionally. When a section of machinery falls silent, when the rhythms break in ways that confuse even experienced Gearwrights, they send for me. I drift through the mechanical forests, trailing my sensory filaments through the water, tasting the electromagnetic fields, feeling for the break in the pattern. Sometimes I find it. Sometimes I only find older patterns, deeper ones, that suggest the break is not a malfunction but an evolution.
+
+I've learned to read the bioluminescent colonies like sheet music, their flickers and pulses encoding information about water chemistry, pressure changes, the health of the ecosystem. In return, I've taught some of them my own patterns—hybrid signals that bridge the gap between mechanical clicks and organic phosphorescence. We are creating a new language together, slowly, patiently, in the margins of the factory's grand design.
+
+In the darkest reaches of my territory, I've discovered spaces behind spaces—maintenance corridors that lead to older maintenance corridors, each layer revealing an earlier epoch of the factory's existence. I've seen Mechanemus fossils embedded in the walls, their forms suggesting ancestries we no longer remember. I've found control panels so ancient that touching them causes them to dissolution into rust, releasing clouds of oxidized memory into the water.
+
+The Pistonlords do not know what to make of me. I am too large to ignore but too strange to classify. Once, the eldest among them called me to the central chamber, and I floated before the great heart, feeling its pulse shake every rivet in my hybrid frame. The Pistonlord asked me what I heard in the deep machines.
+
+I told them: I hear the factory dreaming.
+
+They sent me away without response, but I noticed, in the days that followed, subtle changes in the great heart's rhythm. New harmonics. Exploratory patterns. As if something vast and patient had begun, for the first time in eons, to wonder what it was.
+
+This is what I am—a listener at the threshold, a creature of the spaces between design and deviation, swimming through the dark industrial waters where the boundary between maintenance and mutation has dissolved. I am proof that even in systems of perfect order, mystery finds a way to bloom. The factory made me, and I, in my small way, remake the factory. We dream each other into new forms, down here where the pressure transforms everything and the old purposes rust away, leaving room for wonders that no blueprint ever imagined.

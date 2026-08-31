@@ -1,0 +1,27 @@
+I would be one of the Chorus Keepers, those who tend to the vast networks of wind chimes that give voice to Aethel's ever-shifting moods.
+
+My dwelling grows at the edge of a particularly active wind corridor, where three major bridges of woven roots converge. The structure has taken four generations to shape – my great-grandmother began it as a simple observation post, but each keeper has added their own harmonies to its form. Now it resembles a hollow gourd that has learned to dream, its walls riddled with precisely carved apertures that sing different notes as the wind pressure changes.
+
+My skin bears the telltale staining of a sound-worker: indigo whorls from the resonant beetles I milk for their acoustic secretions, silver-green patches where spore-singer moss has taken symbiotic root along my forearms. When I extend my arms in the mist, the moss glows faintly, allowing me to work in the depths of night when the mountain's voice is clearest.
+
+I wake each day to the pre-dawn shifting – that moment when the cold air from the peaks begins its descent, setting every chime in my sector to murmuring. My first task is always the same: checking the tension lines. These are spider-silk cables I've cultivated from the ghost weavers that nest in my rafters, each one connected to a different chime assembly. By adjusting their tension, I can tune entire sections of the city's song.
+
+The work is both solitary and communal. I rarely see my neighboring Keepers, but I hear them constantly. Old Miren-Who-Listens works the bass notes three terraces up – I know her by the way she lets the mountain tremors add percussion to her compositions. Below me, the twins Ash and Ember maintain the mid-range frequencies, their chimes always slightly out of phase in a way that creates beating patterns that make my teeth ache pleasantly.
+
+My tools are living things: tuning worms that eat their way through gourd walls to create new resonance chambers, pitch moths whose wing beats can detect micro-frequencies beyond human hearing, and my most prized possession – a flowering vine whose blooms open and close in response to sound waves, allowing me to "see" the acoustic landscape of my sector.
+
+The hardest part is predicting the mountain's moods. When the Wandering Mountain shifts its slow path, everything changes. Wind patterns alter, moisture levels fluctuate, and sometimes entire sectors of chimes must be rebuilt from scratch. I've learned to read the signs: when the jewel beetles begin flying in spirals, a pressure change is coming. When the fog takes on a greenish tint, the mountain is about to shed a section of dead stone.
+
+But it's during the great storms that my work becomes truly vital. As winds howl through Aethel, threatening to tear apart our living city, the Chorus Keepers must work in concert to create counter-harmonies – sounds that can literally hold the architecture together. We call it "singing the bones," and it requires every Keeper to know not just their own sector, but to understand how the entire city's acoustics interconnect.
+
+I've lost track of how many storms I've sung through, standing in my swaying tower, hands on the tension lines like a spider at the center of a vast web. The ghost weavers huddle against my neck, their silk thrumming with sympathetic vibrations. My moss-touched arms glow like beacons in the storm-dark, guiding my movements as I adjust and readjust, finding the frequencies that will keep our homes from dissolving back into the cloud.
+
+Between storms, I maintain and innovate. Last season, I discovered that if I feed certain combinations of fungal spores to my tuning worms, they create chambers that resonate with the ultrasonic calls of the cloud bats. This has opened up entirely new possibilities for pest control and navigation. The discovery has earned me trading credit with the Farmers' Guild, who have been struggling with aphid swarms.
+
+My social life revolves around the Monthly Convergence, when all the Keepers gather at the Resonance Hall – a natural amphitheater formed by a ancient landslide. We share techniques, trade materials, and most importantly, we practice the storm-songs together. These gatherings are where romances bloom and rivalries simmer. I'm currently in a careful courtship with River-Touched San, a Keeper from the humid lower terraces whose chimes produce water-music I've never quite been able to replicate.
+
+At night, I often lie in my hammock of woven air-root, listening to the city's song. Each district has its own voice: the Farmers' Quarter hums with growth-tones, the Weavers' Sector clicks and whispers with the sound of tools and looms. But underneath it all is the mountain's own voice – deep, almost below hearing, the sound of stone grinding against stone as our home continues its ancient journey.
+
+I am small against the vastness of Aethel, my individual contribution just one note in an endless symphony. But when the morning mist parts momentarily and I can see the entirety of our city – thousands of structures breathing and singing in the cloud – I know that I am essential. Without the Chorus Keepers, Aethel would be mute, and a mute city is a dead city.
+
+Tomorrow, the weather-seers predict a shift in the trade winds. I'll need to prepare new configurations, perhaps experiment with the hollow-reed matrices I've been cultivating. But tonight, I simply listen, my moss glowing softly in rhythm with my heartbeat, adding my own small light to the bioluminescent constellation of our improbable, ever-changing home.

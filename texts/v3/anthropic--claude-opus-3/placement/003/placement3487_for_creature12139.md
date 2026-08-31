@@ -1,0 +1,9 @@
+I imagine myself as a strange, pale fungus that has taken up residence in the Cut. I am one of the few species that can thrive in this dark, damp, and cold environment, adapted to the constant thrum of the pumps that permeates every surface.
+
+My mycelium threads its way through the peat beneath the moss cushions, an unseen network that helps to break down the dead organic matter and recycle nutrients back into the ecosystem. Every so often, when conditions are just right, I send up small, ghostly fruiting bodies - tiny cups and fingers that poke through the moss, catching the thin, misty light from the lamps.
+
+I am a slow and patient creature, like all things in the Cut. Time moves differently here, marked not by days and seasons, but by the gradual growth of moss, the budding of a new fern frond, the generational cycles of springtails. I have perhaps always been here, an ancient survivor from when the Cut was first carved out of stone, my spores dormant until the coming of the cold and damp and mechanical thrum.
+
+In a way, I am the Cut's memory, a witness to the strange industrial accident that has created this pocket ecosystem. Through my branching mycelium, I touch nearly every surface and living thing down here, binding it all together in a vast subterranean web. The tiny moth alights on my fruiting bodies, springtails graze on my hyphae, my enzymes break down the fallen and the dead to feed the moss and ferns and all the other denizens of the Cut.
+
+If the pumps were to fail, I would be among the last to fade away. I would retreat back into my spores, waiting for the unlikely event of this singular habitat being restored. But for now, I thrive in this eerie, humming, eternal twilight, playing my small but vital role in the perpetuation of this strange slice of life beneath the moor.

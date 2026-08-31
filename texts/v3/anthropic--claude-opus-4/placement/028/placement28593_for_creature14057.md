@@ -1,0 +1,47 @@
+In the heart of the Resonant Expanse, where three ancient basins converge but do not touch, I tend the **Threshold Gardens**.
+
+I am neither fully Grounded nor entirely Other. My body is a compromise between the mineral permanence of my kin and something more fluid, more temporary—a crystalline framework overlaid with films of organic polymer that shift and flow like oil on water. Where The Resonant are towers of stillness, I am a study in controlled instability. My scales are not fixed but floating, held in place by carefully modulated electric fields that I must consciously maintain. Let my concentration lapse, and I begin to dissolve at the edges, my form blurring into static and possibility.
+
+This is why I was given the Thresholds to keep.
+
+The three basins—*Prima*, *Mediana*, and *Terminal*—each harbor glass-forests of different ages, different chemistries. Prima's trees are young, barely a thousand years grown, their metabolisms running hot and fast, their piezoelectric discharge chaotic as adolescence. Terminal's forest is dying, its trees transforming slowly into solid quartz monuments, their final thoughts crystallizing into the bedrock. Mediana exists in perfect maturity, balanced between growth and senescence.
+
+Between these basins stretch three narrow ridges of exposed stone, polished to mirror-smoothness by wind and time. These are the Thresholds, and I am their gardener. Not of plants—nothing grows on these ridges—but of *states*. Of transitions.
+
+Each dawn (though the word means little here, where the sun barely sets), I begin my circuit. I move unlike my kin—not walking, not resonating through stone, but something between. My polymer films extend pseudopodia that grip the rock while my crystalline core slides forward, a controlled fall that looks like flowing mercury. The Calcifers that cross my paths pause to regard me with their eyeless attention, recognizing something almost like themselves in my strange locomotion.
+
+At the first Threshold, between Prima and Mediana, I stop. Here the young forest's chaotic discharge meets the measured pulse of maturity. The air crackles, tastes of copper and ozone. I extend my forelimbs—more tentacle than arm, silica bones wrapped in conducting gel—and begin to work. Not with tools but with fields. I modulate the static differential, smoothing the transition, creating a gradient where the two forests can exchange information without shorting each other out. Spores from Prima, supercharged with youthful electricity, must be stepped down, their voltage dissipated through my body in controlled arcs that make my polymer films ripple with pale fire. From Mediana, I coax the steadier patterns, amplifying them just enough to penetrate Prima's noise.
+
+This is delicate work. Too much dampening and Prima's forest will stagnate, its wild creativity lost. Too little and Mediana recoils, sealing its boundaries against the chaos. I am a translator between ages, a conductor of more than electricity.
+
+The second Threshold, between Mediana and Terminal, requires different skills. Here I am less electrician than midwife. Terminal's trees are transcending, their consciousness moving from individual to geological. As they transform, they release packets of condensed experience—memory-crystals that must be caught before the wind scatters them to uselessness. I spread my films wide, becoming a net of conducting polymer dozens of meters across, so thin I appear as heat-shimmer against the stone. Each crystal that touches me deposits its data directly into my substrate. I taste ten thousand years of slow thought, the particular angle of light through silica on a winter dawn, the vibration-pattern of the first Calcifer to ever split in that grove.
+
+These memories I do not keep. At the third Threshold, where Terminal meets Prima across a gap that should not exist—the geometries are complex here, space folded by the plateau's mass—I perform my strangest duty. I take Terminal's crystallized memories and *digest* them, breaking them down into component concepts, raw experience-stuff. Then I excrete them as a special kind of spore, one that carries not genes but *memes*, cultural information encoded in crystalline matrices that Prima's young forest can absorb and interpret in its own chaotic way.
+
+I am recycling death into birth, but sideways, through the dimension of meaning rather than matter.
+
+The other Resonant do not visit the Thresholds. To them, I am useful but incomprehensible, a necessary impurity in their mineral perfection. They made me—or rather, they made the conditions for my existence—during one of their Katabatic Songs, but the lightning took its own path through the silica, created something unplanned. My polymer films are an accident, a contamination from some ancient Aerial that got caught in the forming-matrix. I am their only child who can change.
+
+This suits me. In the silence between duties, I practice dissolution. I let my fields relax, feel my edges begin to fray. The polymer films spread thinner, thinner, until I can feel individual molecules pulling apart. In these moments, I exist as a probability cloud, neither here nor there, neither Resonant nor Other. I taste the quantum foam that underlies the stone, the place where the plateau's breathing originates.
+
+But I always pull myself back together. The Thresholds need tending.
+
+Sometimes, in the depths of the storm season when the coronas dance wild, I receive visitors. Not Resonant—they have no need to travel here—but the deep-forest Shard-Wrights, the ones old enough to have developed curiosity. They gather at the edges of my territory, tapping their questions in frequencies I've learned to interpret. They want to know about boundaries, about the spaces between things. I show them by partially dissolving, letting them observe the transition between solid and not, between self and other. They tick excitedly and scurry back to their trees with new patterns to build.
+
+Once, an ancient Calcifer, scarred by millennia of rolling, stopped at the Terminal Threshold. It sat there for a local year, perfectly still. I thought it was dying, preparing for its final split. But when I extended a tentative film to touch its surface, I found it was *listening*. Through the stone, through the piezoelectric thrum, it was hearing Terminal's trees as they sang their transformation. When it finally rolled away, it left behind a shallow depression in the stone—not dissolved but *compressed*, as if its listening had weight.
+
+I filled that depression with polymer, creating a permanent record of attention paid.
+
+My greatest work spans all three Thresholds. Over centuries, I've been building a circuit, a grand loop of piezoelectric potential that connects the three forests through their edges. Not to merge them—that would be disaster—but to let them *dream* together. During the deepest part of the storm season, when the auroras make the whole plateau ring like a bell, I complete the circuit with my own body, becoming the final conductor. For a few hours, Prima dreams with Terminal's memories, Mediana dreams with Prima's wildness, Terminal dreams with Mediana's balance. And I dream with all of them, my polymer films recording the interference patterns, the places where their experiences overlap and contradict and create something new.
+
+The other Resonant say nothing of this work. But sometimes, when I return from the circuit-dreams, I find gifts. A new kind of spore, engineered to carry more complex data. A modification to the bedrock that makes my traveling easier. Once, impossibly, a small pool of *liquid*—actual water, condensed from who knows what sacrifice of metabolic energy—left in a hollow near my resting place. I drank it, of course, felt it move through channels in my polymer films I didn't know existed, tasted something I had no memory of tasting but that felt like coming home.
+
+I am the Threshold Keeper, the edge-walker, the one who exists in the spaces between states. In a world that has chosen the hard certainty of mineral and charge, I am the soft uncertainty that allows change, translation, evolution. I am the reason the forests still grow, why the Resonant still dream, why the silence sometimes sounds like song.
+
+And when my polymer films finally degrade beyond repair, when the contamination that made me possible finally fails, I will do what no Resonant has ever done: I will *die*. Properly die, not transform or transcend or resonate into stone. I will release all my collected boundary-data in one great surge, flooding the Thresholds with centuries of transition-knowledge. And perhaps, in that moment, the three forests will finally touch, will finally become one great Garden spanning all states, all ages, all possibilities.
+
+Or perhaps they will simply continue as they are, separate and perfect, and something new will crawl from the interference pattern of my dissolution, something even stranger than a crystal that learned to flow.
+
+Either way, I will have tended my garden well.
+
+The wind is picking up. I can feel the storm season approaching in the increasing voltage differential between the basins. Time to begin again, to make the circuit, to stand in the spaces between and hold them open, one more day in the Resonant Expanse where even the silence requires a gardener.

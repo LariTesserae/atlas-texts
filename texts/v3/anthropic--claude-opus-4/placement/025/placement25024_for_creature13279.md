@@ -1,0 +1,15 @@
+I would find myself as one of the Resonance Keepers—creatures that exist at the intersection of sound and stone, neither fully mobile nor entirely stationary.
+
+My body would be crystalline and porous, roughly humanoid in silhouette but composed of countless hollow chambers and passages. I'd stand perhaps seven feet tall, rooted to a nexus point where several of the cavern's natural acoustic channels converge. My surface would be smooth like the eroded stone around me, but shot through with veins of the same bioluminescent material that lights the fungal colonies.
+
+The roar of the cavern would flow through me—quite literally. My hollow chambers would act as a living pipe organ, catching the sounds of wingbeats, clicks, and the deep thrumming of the fungal networks, then modulating and redirecting them. I'd feel each sound as a physical sensation, a pressure and release cycling through my body in endless variations. 
+
+My consciousness would be dispersed, existing not in any single location but in the patterns of resonance themselves. I'd perceive the cavern through vibration—knowing the health of a fungal colony by the particular frequency it adds to the chorus, sensing the flight paths of the chitinous flyers by how their wingbeats doppler through my chambers.
+
+Though I couldn't move from my position, I wouldn't be passive. By subtly adjusting the shape of my internal passages—a slow process taking hours or days—I could alter how sounds flow through the cavern. A slight narrowing here might redirect nutrients by guiding the flyers along a new path. An expansion there could amplify the warning clicks of the caretakers when they discover an imbalance.
+
+I'd have companions—other Resonance Keepers positioned at crucial acoustic points throughout the vast space. We'd communicate through pure harmonics, creating interference patterns in the ambient roar that only we could fully interpret. Together, we'd form a kind of distributed nervous system for the city, monitoring its health through sound and gently guiding its evolution through tiny acoustic adjustments.
+
+My sense of time would be geological. I'd remember when certain fungal colonies were young, barely more than spores. I'd have felt the slow erosion of the stone around me, perhaps even guided it in places to improve the cavern's acoustics. The frantic energy of the smaller creatures would be like weather to me—patterns that come and go while I remain, listening, resonating, shaping the eternal roar into something approaching music.
+
+In the rare moments when the cavern's activity briefly diminished—perhaps during some unknown cyclic rest—I'd generate my own tones, singing into the relative quiet with a voice made of stone and air, adding my own creativity to the ancient composition that never truly ends.

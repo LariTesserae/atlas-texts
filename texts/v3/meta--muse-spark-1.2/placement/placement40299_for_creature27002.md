@@ -1,0 +1,37 @@
+You wouldn't find me at first.
+
+That's the trick of the pit. From the lip, looking down into that hazy bowl of raw stone and amber light, you think it's empty. A quarry with buildings left behind after the job finished. And if you were going to place yourself quickly - the way you place a piece on a board - you'd put yourself high. I did, at first.
+
+I thought I'd be one of the swifts.
+
+High on the north wall, in one of those sharp, fresh tooth-marks the excavator left last year - a perfect, knuckle-sized pocket that has never known rain. I would be pressed into the limestone there with a thousand others, screaming when the sliver of sun hits, pouring out at dawn in a boiling wheel over the oval mouth. That would be clean. That would be air and speed and eating the cloud of midges whole. But I am too heavy for that. Too loud in a different way. I don't wheel, I wade.
+
+Then I thought I'd be one of the elevator man's sons.
+
+Because they're the only ones who know what the sun feels like without a wall around it. Tanned on the forearms and face, going up and down the four long grades every day, clanking on rails, bringing down cement on Tuesdays. It would be nice to be the one who still gets to leave the bowl and come back. But I don't want to leave. If I lived here, I wouldn't be the one who measures the world by the schedule of going up. I'd be the one who has stopped measuring it at all.
+
+No. If you come down the switchbacks - past where the sign is bleached white and unreadable, down into the blue gloom of morning that lasts until 1 p.m. - you would find me low.
+
+Not low in the heroic sense. Low in the way everyone here learns to be low. In posture, in volume, in expectation.
+
+Find me on the second row up from the lowest terrace, where the grid is still an intention more than a town. My house is cinderblock with rebar poking from the flat roof, each bar capped with a cut plastic bottle so the second rain - the condensation that beads on everything cool and falls again - doesn't rust it. There is an empty lot of crushed limestone on either side of me, because the town was drawn for two thousand and only four hundred came, and then we stopped coming. From my porch you can see the whole pit anyway. You can see the entire wall that contains us, hazy on the far side, and the lights of every other occupied window at dusk and know who lives behind each one.
+
+I am not a pump man, exactly, but I live near them, close enough that my floor has been re-poured once already where the water came up dark through the concrete and heaved it. I am the maintenance of the maintenance. The welder's second hands.
+
+In the morning, before the vertical bar of sun crosses the floor, I open the shop door - corrugated, always open - and I weld pipe. Not cars. There are only three trucks in the pit and they hardly move. I weld the black hose-thick columns that the six big pumps thud through day and night. Thud-thud-thud. You feel it in the soles of your rubber boots before you hear it. Everyone knows that rhythm, and everyone hears when it stutters. My boots never dry. No one's do. I wear shorts and knee-high rubber boots to the shop, to the hand-painted COKE store to buy cans that the woman there keeps on pallets off the floor so the seep doesn't rust them, to sit outside at night. My calves are white and then pruned. The heat edited me down - lean, corded, a body that learned to dump heat instead of keep it. I am pallid the way everyone who doesn't ride the elevator is pallid, with a damp sheen that never leaves because sweat doesn't evaporate here. At the hairline, at the belt, between the toes, a faint white fringe of fungus that I powder and live with, because everyone has it and no one talks about it.
+
+You'd find me most accurately at noon, when I am doing nothing.
+
+At 1 p.m. the sun finally clears the lip and moves across us like a searchlight, white and punishing and complete, and the stone that has been cool and weeping all morning - dark vertical stains where the cut aquifer sweats, beads joining into runnels - suddenly gives all its stored heat back at once. The air at the bottom shimmers. The water in the puddles that never dry goes warm to the touch. No one runs at noon. We learned that in the first week. I sit on a plastic chair in the thin shadow my own house throws, in a puddle that reflects the bare bulb still burning inside my doorway - because it's dim here even at midday, the walls are too high and too steep for generosity, and every bulb wears a halo in the humid air - and I wait. I wave the slow, constant wave of the hand in front of the face that everyone does, not swatting, just moving the glittering cloud of mosquitoes and midges out of the breath for a second. I listen to the stacked sound: thud-thud-thud from the pumps, the hum through my feet from the diesel generators in their bunkers - I'm a little deaf in my left ear now - and underneath and over it, the chorus that is louder than both.
+
+Because we are not the dominant biomass. We are the tenants.
+
+Behind my house, where we never bothered to lay concrete again, the wall weeps heaviest and we let it win. Reeds and bitter saltgrass and black mud hold a marsh the size of two lots. That's where the sound comes from. Thousands of frogs, an absurd number for a desert, layered and relentless after the afternoon condensation rain. Dragonflies the size of my hand patrol over them, and algae slicks the concrete, and black mold returns to the corner joints of my house no matter how much bleach I scrub on Sunday. At dusk the swifts pour back into their tooth-marks and the bats pour out of the same cracks in the exact same number, a chittering river overhead that eats the mosquitoes we can't. Pigeons cover my roof. The stray dogs - we have four, ribs a little out, but calm - sleep on the slab over the generator where it vibrates, because it keeps the insects off. Rats walk openly along the drains at night. Cave crickets, pale and long-antennaed, live in the moss fringe at the foot of the wall and run quick and glossy over my floor when I leave the door open for the cool air.
+
+And at night, when the white bar is gone and the sodium amber over the factory yard and the mercury white over the pump house are the only suns we have, I sit outside again with the others. Not together - spaced apart, each household in its patch of cooler wall-shadow, plastic chairs in puddles reflecting our own porch lights. We have to raise our voices a little over the frogs. We talk about the settling pond level, about a seam that needs grinding tomorrow, about whether the freight elevator cable should be replaced this month. We don't talk about leaving. The people who were going to leave already left.
+
+I move at the speed the pit moves. Millimeters per hour. Rust creeping season by season across the sheet metal. Water beading, joining, falling from a ledge. One more cinderblock added to a wall that will never need to crowd. If you dropped a stone off my porch it would fall straight. If I cut my knee on rebar it would infect quickly in this air. No tricks to the light except haze. Water goes down. Heat goes up.
+
+I am the sparse, urban, interim-industrial animal that lives in the dusk at midday, between puddles, under the wheel of birds. The one whose job is to keep the water a few centimeters below the floor for one more day, so the frogs stay a few meters from the door, so the wall doesn't fall for one more season.
+
+I wade, even when the ground is dry.

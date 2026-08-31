@@ -1,0 +1,11 @@
+In this high gorge where water weeps nightly down the friable walls, I am the Keeper of Spinels—neither wholly creature nor mineral, but something between. My form shifts with the light that "sticks so hard under many walls," sometimes appearing as a stooped figure wrapped in lichen-cloth, sometimes as merely a shimmer in the rubicelle dust that gathers in the stone's crevasses.
+
+I move through the half-mile lateral bluff at dawn, when condensation still runs silver threads down the conglomerate face. My work is patient: I tend to the "hundreds of places under process in absence," those secret pockets where the mountain slowly births its gems. With fingers that can slip between stone grains, I coax the spinels from their beds, turning them to catch the crisped light, reading their colors like runes.
+
+The Lewis ferns know me. When I pass near the water's edge, their fronds curl in recognition, releasing spores that spiral upward in tiny galaxies. The pines with their wired seedpods rattle a greeting in the west wind—they remember when I first came to this closed valley, before the erosion had carved its current shape, when I was still learning to read the language of mineral formation.
+
+My dwelling is not a dwelling but a series of hollows in the rock face where the rime cannot reach. Here I keep my collection: spinels arranged by hue and clarity, each one a small world containing the memory of pressure and time. At night, when water runs over everything, I sit at the valley's threshold where "we slow—at gravel creek," listening to the stones settling, grinding, transforming.
+
+The thin junipers that are "not filled are kept" serve as my sundials and season-markers. I have watched them grow imperceptibly over centuries, their sparse needles catching light like the facets of uncut gems. Sometimes travelers pass through—though few find this peculiar gorge—and they see only shadow and hear only the trickle of water. But the stones know I am here, guardian of their slow becoming, curator of the mountain's patient alchemy.
+
+In winter, when the rime grows thick and the water freezes in its narrow strait, I retreat deeper into the rock, becoming more mineral than flesh, waiting with the spinels for spring's return and the resumption of our ancient work.

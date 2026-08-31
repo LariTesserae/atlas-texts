@@ -1,0 +1,17 @@
+In this remarkable understory metropolis, I imagine myself as a **Splice-Merchant** - a being who has adapted to thrive at the intersection of plant and machine, biology and technology. 
+
+My body would bear the marks of my trade - living wood grafted seamlessly into my shoulders, hips and spine. These grafts would not be mere decorations, but functional interfaces that allow me to plug directly into the vast root network that forms the city's lifeblood. By becoming a temporary node, I could redirect growth, speed the flow of chemical signals that serve as the plant-mind's thoughts, or even hack into the verdant consciousness that seems to guide the city's expansion.
+
+As a Splice-Merchant, I would cultivate a menagerie of motile plant-tools, each bred and modified for specific purposes. Scurrying root-clusters to seek out new mineral veins to fuel the city's industry. Vine-snakes capable of slowly boring through stone to open new chambers. Flowering scout-plants that bloom in different hues to map out resource deposits or warn of subterranean dangers. My own grafted root-lines would serve as leashes of sorts, allowing me to guide my plant servants with pheromone signals and sap pulses only they can interpret.
+
+In appearance, I imagine my skin would have taken on a bark-like texture in places, with capillaries carrying sap instead of blood visible beneath the surface. My eyes would be a vivid green, reflecting my chlorophyll-rich diet. When injured, my wounds would weep amber sap that hardens into protective scars. The rootwood grafts would move with me, perhaps creaking softly as they flex, but would otherwise be as much a part of me as my own bones.
+
+To navigate the politics of the understory, I would seek to control key nodes in the root network - perhaps securing exclusive rights to a major taproot elevator passage, or growing buildings in a developing neighborhood to house my allies. I would wage slow wars of botanic sabotage against my rivals, seeding their territory with parasitic fungi or splicing rootlines to choke their operations.
+
+My home would be equal parts greenhouse and factory, with pulsing nutrient lines feeding my plant prototypes and calcified root-walls embedded with cogwork machinery. The air would be thick with engineered pollen and the bitter scent of macrobiotic oils. Motile vines would hand me tools and materials as I work, responding to my pheromone commands.
+
+In rare moments of rest, I would plug my spine directly into an ancient taproot, feeling the entirety of the city's chemical consciousness flow through my grafts. In those moments, I would see the metropolis as the plant-mind sees it - not a collection of individual beings, but a single vast organism that I am simply one specialized organ within, as essential and interchangeable as a leaf on a branch.
+
+My legacy would be to cultivate Symbiont Children of my own - splicing my rootstock to human embryos to create a new generation that are more plant than person. They would inherit my grafts and my business, and in time perhaps replace the Splice-Merchants altogether as the city itself grows ever more verdant and aware.
+
+In the understory metropolis, I would be both gardener and garden, individual and ecosystem, shaping the very roots that shape me until the distinction loses all meaning, until I become another green-tinged thought pulsing through the timeless network of roots and spores that is the only true native of this place.

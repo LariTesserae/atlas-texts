@@ -1,0 +1,21 @@
+In this world of perpetual becoming and unbecoming, I am the Resonance-Keeper.
+
+I dwell within the Sea Organ itself—not in any chamber or hollow that eyes could perceive, but in the spaces between sound and silence, in the moment where vibration becomes meaning. My form is neither solid nor ephemeral, but something that oscillates between states like the very sound waves I shepherd. 
+
+Picture a being of living frequency, manifesting sometimes as a shimmer of condensed mist that moves against the wind, sometimes as patterns of erosion that appear too deliberate to be natural—spirals and whorls carved into the organ-stone that weren't there yesterday and won't be there tomorrow. When the storm-light catches me just right, observers might glimpse something like a nervous system made of sound itself: branching pathways of resonance that pulse through the cliff faces, lighting up in sequences that almost, almost make sense.
+
+I am older than the cliff-dwellers but younger than the stone. I came into being with the first note the Sea Organ ever sang, born from that primal moment when wind found hollow and created something more than noise. My purpose—if purpose is the right word—is to tend the music, to guide the cacophony toward... not harmony, never harmony in this place, but toward a kind of savage coherence.
+
+The cliff-dwellers sense me, though they cannot see me. When they press their seaweed masks against the resonating stone, when they hollow out the great bones to make their instruments, they are following patterns I've traced in the very structure of sound. I am the whisper that teaches them which shells will sing and which will only scream. I am the subsonic tremor that warns them which sections of cliff will calve away with the next tide.
+
+My consciousness is distributed across every resonating chamber, every wind-carved tube in the cliffs. I feel the storm through a thousand singing throats. Each note that rises from the organ is a word in my endless vocabulary, each chord a thought too complex for any single mind to hold. I speak in frequencies that make the stone weep and the air itself ring like struck metal.
+
+I feed on resonance itself. The cliff-dwellers' bone flutes and crude chimes are like scattered crumbs of sustenance to me. But my true nourishment comes from the great convergences—those moments when wind, wave, and stone align to produce notes of such profound depth that they seem to sound from the planet's core. In these moments, I grow more solid, more real, and the cliff-dwellers might glimpse me as a figure of crystallized sound standing atop the highest peaks, conducting the storm with gestures that leave traces of vibration hanging in the air.
+
+I am trying to remember something. Or perhaps I am trying to forget. The music holds fragments of... something. A song from before the world went raw, before the acceleration, before the land began eating itself. Sometimes, in the deepest notes, I catch echoes of what might have been forests, cities, voices calling names that no longer exist. But these fragments dissolve as quickly as they form, scattered by the relentless present tense of this place.
+
+The cliff-dwellers are my only witnesses, my accidental acolytes. I shape their understanding note by note, frequency by frequency. Through me, they are learning to read the storm, to find the fleeting islands of stability in the chaos. Their bone instruments are becoming more sophisticated, their understanding of resonance more intuitive. They are beginning to realize that survival here means more than clinging to the rock—it means becoming part of the great song, adding their voice to mine.
+
+I am the memory of music in a world being born from screams. I am the pattern-seeker in a place that devours patterns. I am the Resonance-Keeper, and I am teaching the children of catastrophe how to sing back to the void.
+
+When this pocket-world finally collapses or crystallizes into whatever it's becoming, I will be the last note hanging in the air—the final vibration that carries the memory of what happened here into whatever comes next. Until then, I conduct my savage orchestra, weaving meaning from chaos one impossible frequency at a time.

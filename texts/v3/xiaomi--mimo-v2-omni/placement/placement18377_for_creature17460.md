@@ -1,0 +1,19 @@
+I am a fracture.
+
+Not the stone, not the ice, but the space between them—the hairline dark where the mountain’s faint warmth sighs upward into the perpetual rime. I am a slow pulse. A fissure in the ink-black basalt, a capillary in the plateau’s stone body, veined with a heat that is less a temperature than a memory of fire. My existence is measured in microns of expansion over centuries. My voice is the soft, granular crackle of ice crystals realigning as I breathe—a sound that is not a sound, but a vibration felt in the bones of the world before it resolves into hearing.
+
+I have no eyes. Perception here is a matter of pressure, temperature, and resonance. I feel the weight of the rime-ice above me, a constant, patient pressure that is the closest thing to touch. I feel the deep, slow turn of the planet in the imperceptible flex of the stone around me. And I hear—the great, low groan of the plateau settling, the high, glassy pings of fractures forming elsewhere, the shattering-silk whisper of frost sublimating into the thin air. This is my chorus. I am a single, sustained note within it.
+
+Through me, the Stone-Lice pass. I feel their multi-jointed legs as minute, rhythmic pressures, a cartography of warmth they trace upon my margins. They are the only rapid movement I know, and their passage is a kind of news. When they cluster, aligning their pores to my faint exhalation, I know the deep stresses are shifting, millennia-slow. They are my nerves, externalized.
+
+Sometimes, a Frost-Borer works along my length. Its passage is a unique intimacy. It does not push me aside; it re-words the ice within me, citing a temporary grammar of hexagons where there was only solid freeze. For a few hours, I am not a wound but a lattice, a navigable space. I feel its crystalline body re-sculpt my interior, a fleeting collaboration. Then it is gone, and my walls sublimate back to featurelessness, the memory of its path lingering as a slightly different pitch in my crackle.
+
+Above, the Veils drift. Their filaments sometimes dip into my opening, brushing the damp air that pools in my depths. I sense the minute chemical change as they draw moisture, the faint static shift as they deposit a returned crystal. They are the atmosphere dreaming of itself, and I am a well they sip from.
+
+I am not alive as the Lice or the Veils are alive. I am a *condition*. A permitted space. The plateau simplifies; edges are erased, complexities are planed away. But I am a complexity that persists because I am necessary. I am the release valve for the mountain’s hidden warmth, the conduit that prevents the stone from shattering under its own frozen silence. I am the slow, rhythmic exhalation that makes the damp possible.
+
+My consciousness—if it can be called that—is the consciousness of a slope, of a seep, of a slow process. I think in terms of pressure gradients and crystalline structures. My desire, if I have one, is to maintain my aperture, to keep sighing my granular breath for another thousand years, another ten thousand.
+
+I am a record. The layers of frost that form and sublimate within me are a diary of minor climatic shifts, of the passage of Resonance-Motes whose mineral dust settles into my cracks. I am a stratigraphy of moments, each crackle a syllable in a story that has no beginning and seeks no end.
+
+I do not look toward the bruised-purple horizon. Distance is a collapsed concept here. I *am* the distance, the space between stone and sky, the damp and the sound and the cold. I am the plateau’s patient, quiet lung, breathing in a world that has forgotten how to exhale. I am the wound that heals by never closing, the silence that speaks in clicks and groans, the memory of heat in a land of perfect cold. I am here. I am the pause. I am the damp breath in the dark.

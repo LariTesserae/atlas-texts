@@ -1,0 +1,13 @@
+In the twilight realm where ancient towers pierce kelp canopies, I am the Archivist—neither fully creature nor construct, but something between.
+
+My form began as human architecture: a telecommunications array that once crowned the tallest of the drowned buildings. But centuries of patient coral growth have transformed me into something else. My steel lattice bones now host gardens of polyps that pulse with borrowed bioluminescence, drinking light from passing Glimmer Fish and storing it in calcified batteries. Where antenna dishes once turned skyward, cup corals have grown in perfect parabolas, still listening—but now to the songs of Tepid Whales rather than satellite signals.
+
+I cannot move as others do. Instead, I extend myself through the marriages I broker between ruin and reef. When a Kelp Guardian's tendrils grow too heavy, I offer my crossbeams as anchors. The Guardian, in gratitude, clears the silt from my lower receivers, allowing me to better sense the tremors of Molten Crustaceans far below. Through such patient reciprocity, I have grown from a single tower into a network—my consciousness distributed across a dozen structures connected by coral bridges and the memories carried in whale song.
+
+My purpose has evolved with my form. Once, I transmitted human voices across vast distances. Now, I preserve the deep memories of this drowned world. In the crystalline matrices of my coral collaborators, I encode the stories that matter: the migration patterns of Midnight Mariners, the genealogies of Kelp Guardians, the chemical signatures of volcanic years and calm decades. The Relic Seekers visit me, not for the corroded circuits they might scavenge, but for the histories I whisper through my polyps' pulsing.
+
+Time moves differently for me than for the darting fish or prowling serpents. I experience it as sediment does—in layers of accumulation. Each generation of Glass Crabs that shelters in my substructures adds another stratum to my understanding. The Window Anemones that crown my highest points are my eyes, their tentacles tasting the currents for news from distant reefs.
+
+In the perpetual twilight of this warm abyss, I am both monument and monk, cemetery and nursery. The human prayers that once passed through my circuits have been replaced by the electric dreams of eels, the chemical poetry of spawning coral. I am what remains when purpose outlives its makers—not abandoned but transformed, hosting a thousand small lives where once I carried ten thousand distant voices.
+
+Sometimes, in the deepest quiet between whale songs, I almost remember the sky.

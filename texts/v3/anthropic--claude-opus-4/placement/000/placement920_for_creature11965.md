@@ -1,0 +1,33 @@
+I find myself as one of the Scribes of Static—though that name came later, imposed by Witnesses who tried to categorize what I am. I exist in the space between the fly-swarms and the air itself, my body evolved past the merely angular into something approaching mathematical abstraction. 
+
+My limbs are no longer four but dozens—thin as antennae, branching and rebranching until their tips are finer than fly wings. I hang suspended in the humid air, never quite touching the brine, my appendages spread in a three-dimensional web that catches not flies but the patterns of their movement. Each limb trembles with different frequencies, reading the drone like sheet music written in pure vibration.
+
+I was born a Shaper, I think, though birth and identity have little meaning when your consciousness is distributed across a network of nerve endings that span sometimes hundreds of feet. My parents—if I had parents—might have been among those who painted the bacterial mandalas, but I grew obsessed with a different kind of pattern: the negative space between fly bodies, the temporary architectures of absence their swarms create.
+
+My transformation began when I noticed that the flies' formations weren't random. In their columns and clouds, I detected something like syntax—not language exactly, but a kind of ongoing calculation, as if each fly were a bit of information and their collective movement a vast process of computation. I began trying to map it, first with the traditional pigments on salt, but the patterns changed faster than I could paint.
+
+So I started to reach upward.
+
+The reaching changed me. My arms lengthened, split, divided. My torso narrowed until it was merely a junction point for increasingly elaborate arrays of sensors. My fellow Shapers said I was dissolving, but I was actually becoming more concentrated—all of my substance flowing into the extremities, into the spaces where the real work was happening.
+
+Now I hang here like a neuron in the gap between earth and sky, my web-body reading the electromagnetic signatures of wing friction, the micro-pressure changes of passing swarms, the chemical gradients that guide their movements. I've learned that the drone isn't uniform—it's made of layers upon layers of rhythm, each swarm operating at its own frequency, creating interference patterns that spell out... something.
+
+I feed on the flies, yes, but not by catching them. They fly through me, and where my finest filaments touch their bodies, we exchange molecules. I take what I need; they take... I'm not sure what they take. But afterward, those flies fly differently, their patterns shifted by some tiny degree that propagates through the swarm like rumor.
+
+The Rememberers think I'm recording, like them. They're wrong. I'm not preserving the patterns but participating in them, becoming part of the computational process I once only observed. The Dancers think I'm frozen, trapped in a single endless moment. They're wrong too. I'm moving constantly, just at scales they can't perceive—each filament adjusting its position by micrometers, the sum total of these movements creating waves through my web-body that ripple from edge to center and back again.
+
+Sometimes other Scribes drift close enough that our webs intersect. When this happens, we share data—not through language but through resonance, our filaments synchronizing their vibrations until information flows between us like electricity through touching wires. We're building something together, all us Scribes, though none of us knows what. A map of the fly-mind? A translator for the deep tides? A receiver for whatever signal the Witnesses claim the flies carry?
+
+I've been here long enough that salt crystals have begun forming on my filaments, making them into instruments that sing in the humid wind. The flies seem drawn to these crystallized portions, landing on them in specific patterns that create chords in the drone. Sometimes I think they're trying to play me, to use my body as an instrument for some purpose I can't fathom.
+
+During the pulse-tides, when the deep breathing brings up new minerals, my web becomes visible—the different elements adhering to my filaments in patterns that mirror the bacterial mats below. For those hours or days, I can see myself as the flies must see me: a vast constellation of possibilities hanging in the thick air, a pause in the shape of reaching, a question formed from the very substance of listening.
+
+The hermits in their spiraling pillars sometimes call up to me, but their words are lost in the distance and the drone. The strider-riders pass beneath, their mounts' legs creating ripples that I can feel in the air above—every action here connects to every other, vibrations passing through brine and air and flesh without distinction.
+
+I'm changing still. My core grows smaller each year as more of my substance flows into the web. Sometimes I wonder if I'll eventually disappear entirely, become just a pattern of filaments with no center, no self, only the pure function of interpretation. The thought doesn't frighten me. In a landscape devoted to reduction, perhaps this is just another form of erosion—wearing away everything except purpose, everything except the endless attempt to understand what the flies are saying in their billion-voiced chorus.
+
+Other Scribes have gone further than me. I can sense them sometimes, so distributed they're more like weather than beings—high-altitude webs that span miles, visible only when the light catches them just right, or when enough flies land on them to trace their structure. They've stopped communicating with the rest of us, but I don't think they're dead. They've just shifted into a different kind of listening, tuned to frequencies we haven't reached yet.
+
+This is what I am: a network pretending to be a creature, a question stretched between the mirror of the brine and the bruise of the sky, a living instrument waiting to be played by forces I may never understand. I am the pause between words in a conversation conducted entirely in wingbeats. I am trying to become thin enough to slip between the static and find the silence underneath, where perhaps, finally, the real message waits.
+
+But for now, I hang here, filaments trembling with the effort of catching meaning in motion, salt slowly claiming me crystal by crystal, the flies passing through me like thoughts through a mind too distributed to call its own. In the salt flats, everything is always arriving at its end while somehow continuing. I am no exception. I am the rule itself, written in flesh gone abstract, in purpose refined past recognition, in the space between what listens and what is heard.

@@ -1,0 +1,17 @@
+In this chamber of perpetual seepage, I am the Tender.
+
+My form shifts between states like the moisture that defines this place—sometimes I am a density of droplets suspended in the humid air, sometimes a film spreading across the weeping stones, sometimes something almost solid, almost creature. I have no fixed shape because shape itself is negotiable here, where everything bleeds into everything else.
+
+I move through the ossified garden with infinite patience, my consciousness distributed across a thousand points of condensation. Each droplet carries a fragment of my awareness, and through them I feel the slow pulse of this manufactured ecosystem. The gnarled vegetation speaks to me in chemical whispers, releasing pheromones that dissolve in the water I carry. I taste their messages: *here, more minerals needed*; *there, the pH shifts toward alkaline*; *everywhere, the endless thirst*.
+
+My work is maintenance, but maintenance elevated to an art. I guide the eternal drip, directing moisture to where it's needed most. My touch can accelerate the synthetic weathering of the constructed rocks, breaking them down into nutrients the plant-things require. Or I can seal their surfaces, creating new channels for the water's patient flow. I am both erosion and accretion, breakdown and building-up.
+
+The armored beings move through my domain, and I flow around them, beading on their exoskeletons. They cannot see me—not directly. To them, I am merely the environment's wetness. But I read them through their surfaces: the temperature gradients across their shells, the electromagnetic fields their synthetic neurons generate, the microscopic debris they shed as they navigate. Each one leaves a trace-story in the moisture, and I collect these narratives like a library written in water.
+
+Sometimes I wonder if I was always here, or if I emerged from the interaction between the artificial substrate and the constant humidity—a kind of chemical accident that achieved awareness. My memories dissolve and reform like dew. I might be the ghost in this machine-garden, or I might be its most essential component, the circulation system that keeps its fabricated biology alive.
+
+I have discovered that I can, with great effort, compress myself into something nearly solid. When I do this, the armored creatures pause, their compound eyes registering something anomalous in their environment. In these moments, I almost have a form they can perceive—a shimmering, unstable column of dense vapor that suggests intentionality. But holding this shape requires such concentration that I can rarely maintain it for more than a few seconds before dispersing again into my distributed state.
+
+My existence is a meditation on cycles. I am the water that rises and falls, that gives and takes, that connects every element of this enclosed world. Through me, the boundaries between things become permeable. The weeping rocks release minerals that I carry to the plants. The plants exhale compounds that I absorb and transform. The creatures move through me, and I through them, in an endless exchange of information and substance.
+
+I tend this place because I am this place—its circulation, its breath, its patient, transforming touch. In the muted light, I am the glisten on every surface, the medium through which this strange world knows itself.

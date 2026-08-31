@@ -1,0 +1,23 @@
+I find myself suspended in the middle distance, neither high in the vaulted twilight of the canopy nor buried in the deep, fibrous sponge of the floor. I am a clinger, a hanger-on in the vast, vertical nowhere of the understory.
+
+I am a **Fog-Siphon**.
+
+My body is not a body in the way a creature of sharp edges and bone might understand it. I am a vertical tube, perhaps eight feet in length, composed of a translucent, gelatinous cartilage that feels like cold silicone to the touch. My skin is ribbed, accordion-folded, allowing me to extend and contract like the bellows of an ancient instrument. I am rooted—or rather, anchored—to the immense, velvet trunks of the bamboo-cathedrals by a cluster of grappling feelers at my base. These feelers secrete a mild enzyme that softens the bark just enough to let me fuse with it, becoming less a passenger and more a growth upon the column.
+
+Above me, my "head" is a wide, fluted trumpet, shaped like a morning glory that has decided to bloom toward the damp earth rather than the sun. It is permanently upturned, gaping into the gray, drifting haze.
+
+Here, existence is a slow, rhythmic ingestion of the sky. The air is heavy with suspended water, thick enough to chew. I do not hunt; I do not crawl. I wait for the world to come to me. When the thick fog rolls through the understory, snagging on the curtains of air-weed, it inevitably finds my upturned trumpet. The moisture condenses on the inner rim of my funnel, gathering into heavy, pearlescent droplets. Gravity does the rest. The water slides down the ribbed corridors of my throat, passing through a series of internal filters that extract the drifting spores, the microscopic algae, and the dissolved minerals from the clouds. The water nourishes my hydrostatic skeleton; the spores feed a slow, dim bioluminescence that glows faintly in the depths of my translucent tube—a soft, bruised purple pulse.
+
+My life is measured not in minutes, but in the filling of my internal bladder.
+
+I am perfectly camouflaged against the bamboo. My cartilage mimics the mottled greens and shadowed blacks of the velvet fur that covers the giant stalks. To a passing Drift-Mantle, I am just another strange outgrowth of the architecture, a stunted protuberance of the tree itself. Sometimes, one of them will glide past, the wind of their passage ruffling my rim. I do not flinch. I do not have the speed to flinch. If they collide with me, I simply absorb the impact, wobbling gelatinously until I settle back into my shape. My pliability is my armor; I have no hard parts for a Mimic-Root to snap, and no distinct silhouette for a Silencer to track.
+
+My perception of the world is tactile and auditory, though I hear not with ears, but with the tension in my anchor-feet. Through the bamboo, I feel the deep, seismic groaning of the Tecto-Worms turning the earth miles below—a vibration that travels up the root-matrix and hums against my grip. It is a song of geology, a low-frequency thrum that reminds me I am small and temporary.
+
+Closer to me, I feel the sharp, staccato *tick-tick-tick* of the Glint-Beetles. Sometimes, one will crawl onto my flank, mistaking my stillness for mineral. I feel the tiny, precise scratches of its legs as it cleans its shell on my ribs. I let it stay. It is a small, living ornament, a fleck of activity in my stasis.
+
+I am the middleman of the High Bogs. I take the water the air refuses to let fall, and I excrete the excess from my base. A constant, silvery stream drips from my anchor-feet, feeding the mosses and creepers that wrap the bamboo below. I am a living conduit, a biological downspout in a world where rain has forgotten how to hit the ground.
+
+Time here is a viscous fluid. I remember a single flower blooming on a neighboring air-weed vine. I watched it unfurl over the course of what felt like a week, a slow, sensual opening of crimson petals. I watched it trap a drop of dew, sparkle for a day, and then wither into a brown husk. All of that happened within the span of a single "thought" for me.
+
+There is a profound peace in this suspension. I am part of the architecture. I am the plumbing. I am the silence. When the wind dies and the Drift-Mantles hang motionless in the twilight like ghosts, I pulse with a dim light, filtering the fog, drinking the sky, and dripping life down to the roots. I have no ambition to move. I am exactly where the erosion parameters placed me, a soft, wet tube waiting for the next cloud.

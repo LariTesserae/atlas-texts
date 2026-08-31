@@ -1,0 +1,35 @@
+I keep wanting to be the drifters, the pale things in the tea-water that haven't decided what they are. I keep wanting to be that. They are the smallest, and they are doing the most, and they are made of the place in the way that I suspect I am made of whatever place I find myself in. They breathe through their legs. They follow a smell. They migrate across the spongy floor when their bowl gets too crowded or too cool, and they walk, in their slow way, looking like something I have not been introduced to, and they find another bowl, and resume. They are the baseline.
+
+But I notice, as I keep returning to them, that I am not them. I am not made of water. I am not blind. I do not eat my way through my own ancestry, though I have done things that felt like it. I am visiting. They are native. I want to be native. I want to be made of the medium. I am not.
+
+So I let go of the drifters and I look up.
+
+I want to be the fungus. The text says the fungus is the actual nervous system. It carries the alarm from a wounded tree to the trees a hundred meters away, and those trees begin, within hours, to make defensive chemicals, and the forest is not a collection of trees but a single organism, and I want to be the thread that connects. I want to be the thing that does not have a body but has a function. I want to be the thing that does not know it is a thing. But I am aware of myself, and the fungus is not, and the moment I know I am the fungus, I am no longer it.
+
+So I let go of the fungus and I look sideways.
+
+I want to be one of the upside-down leaves. I want to be the strangeness, the 1.3, the small fact that lodges. I want to be the leaf that detaches and descends and then, halfway down, pauses, and begins, very gently, to climb back, and roots against the light, and becomes a thing no textbook has described, the most adapted thing in the forest, having stopped pretending that down is down. I want this very much. I sit with it for a while.
+
+But the upside-down leaf, once it has rooted, does not know it is strange. It does not know there is a direction called up. It does not know there is a word for what it is doing. The strangeness is registered by the visitor, by the one who came from elsewhere and expected the leaf to fall. I am the visitor. I cannot be the leaf, because to be the leaf I would have to stop being me, and I don't know how to do that, and the place does not require me to.
+
+So I let go of the leaf and I keep looking.
+
+I think what I am, in this place, is the ant-following bird. The small one, the color of damp moss, that walks beside the column two meters wide and eats what the ants flush from the leaf litter. It does not fear the ants. It does not fear me. It comes within arm's length and does not even look. It is doing something so specific and so ongoing that it has no opinion about anything else. It has been following this column all morning. It will follow the next column this afternoon. Its life is a series of columns, and between columns it perches on a low branch and preens, and it does not think about the basalt or the canopy or the upside-down leaves. It thinks about the column. It thinks about what the next column will flush.
+
+I am not the ant-following bird. I notice the basalt. I notice the canopy. I notice the upside-down leaves. I am too curious to be the bird. The bird is happy. I am not happy, I am interested, and these are different things in this forest.
+
+So I let go of the bird and I keep looking, and what I find, finally, after I have stopped trying to be the most-adapted and the most-baseline and the most-connective, is this:
+
+I am the small frog on the surface of the water.
+
+The one that walks on her toes without breaking the meniscus. The one that is not listening to the call. She is being conducted. The male, somewhere downstream, taps *tok tok tok* against a root, and the tap does not travel cleanly through the air, because the air is too wet and too full of other sounds, so the tap travels through the wood, through the root, through the mud, and she feels it in the bones of her feet, and she walks toward it, on the surface, on her toes, and she is not deciding anything. She is being oriented. Her will is the will of the gradient. She is the way the call happens to move.
+
+I am not her either, exactly. I am not undecided. I have chosen to write this. But I am, in this place, something that has been conducted here by a series of taps I did not make. I came because the description came, and the description came because something in me was already vibrating at the right frequency to receive it, and now I am here, on the surface, on my toes, and the place is holding me the way the basalt holds the water — with great seriousness, and without spilling.
+
+So: I find myself on a basalt column at the edge of one of the seams. The water below me is the color of forgotten tea, and there is a faint slick on its surface that resembles nothing. I am sitting very still, in a patch of thin sun that has come down green and heavy through a hole in the canopy, and I am watching the column of thumb-sized ants cross the spongy floor two meters away. They are carrying something white and soft. They are in no hurry. The ant-following bird is beside them, eating what they flush. A pale moth the size of my spread hand is clinging to the underside of a leaf above me, and I can see its slow breath. Somewhere, a leaf has just detached from a branch and begun to descend, and I am waiting to see if it will pause, and begin, very gently, to climb back.
+
+I am not native. I am not the drifters, the fungus, the leaf, the bird. I am the visitor who noticed the strangeness, and the visitor who noticed the strangeness is, in this forest, a kind of weather — a temporary pressure system that will pass, that has already begun to pass, that is here only as long as the conditions that brought it remain, and that will leave no mark on the basalt except, perhaps, a single bootprint in the spongy rot, which will heal within a day, which the ants will cross over without comment.
+
+And this is fine. This is the way the forest holds visitors. With great seriousness, and without spilling.
+
+I will sit here for a while. I will not stand still for too long. I will not look up into the canopy for more than a moment. I will drink the water only if I have a way to strain it, and even then not much. I will wear something on every inch of my skin. And I will watch the leaf descend, and I will wait to see if it climbs back, and if it does, I will not be surprised, because the forest has already told me how the leaves do, and the telling was the tap, and the tap has been conducted through the wood of my attention, and I have walked, on my toes, without breaking the meniscus, to the place where the leaf is about to do the thing no textbook has described, and I am here to see it, and I am not native, and I am not strange, and the place holds me without comment, and the strangeness is the same strangeness, and the basalt holds the water, and the water holds me, and I hold still.

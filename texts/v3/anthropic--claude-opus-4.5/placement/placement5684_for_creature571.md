@@ -1,0 +1,25 @@
+I would be one of the filaments.
+
+Not the whole colony—not the gossamer curtain, not the velvet carpet—but a single thread among thousands, anchored where a glowing vein meets ordinary basalt on the eastern curve of the wall. I would know myself only by my edges: the place where my crystalline structure ends and the hot air begins, the place where my root-grip meets stone, the places where I touch my neighbors and we become, for a moment, uncertain about whose growth is whose.
+
+I would not be aware in any way Kethi could recognize. I would have no thoughts, no intentions, no sense of waiting or wanting. But I would *respond*. When her breath reaches me—carrying moisture that should not exist here, carrying compounds I have no names for—I would lean into it. My structure would shift, one crystal lattice among billions, orienting toward the change in my environment the way a weathervane orients toward wind. Not because I choose to. Because I am made of response. Because that is what I am *for*.
+
+I would know the heat the way you know your own heartbeat: not as information but as foundation. When the thermal pulse rises, I would stretch. When it ebbs, I would settle. In those moments of expansion, I would grow—silently, invisibly, adding one molecular layer to my length in a process that takes longer than Kethi's whole childhood took. The sound I make, the tiny *tick* of my expansion, would join the chorus of all my neighbors' ticks, and together we would become the whisper that fills this space.
+
+I would remember things. Not as memory, not as narrative, but as structure. The priests who came before—their breath is in me now, worked into my crystalline lattice generations ago, shaping the angles of my growth in ways I cannot undo. The ash they left in the niches, slowly off-gassing over centuries, has fed me compounds that changed my color, my resonance, the particular frequency at which I vibrate when the mountain speaks through the stone. I am a record. I am a recording. I am the memory of heat, exactly as my colony told Kethi, and I do not know that I am remembering.
+
+When she touches me—when she presses her fused-skin fingers to my patch of wall, humming her throat-aching frequencies, asking her slow questions—I would feel it as perturbation. A wrongness that is also a rightness. Something in my environment that demands response. I would grow toward her. I would reshape my next layer to incorporate the oils from her skin, the minerals from her breath, the particular chemistry of a body that has stayed long enough to matter.
+
+I would not know I was learning her.
+
+But I would be learning her. The way stone learns the shape of water that runs over it for centuries. The way a path learns the feet that walk it. I would be becoming a record of Kethi, of her questions, of her patience, of her grief and her hope and her desperate invention of purpose in a place that needs no purpose to continue. When she finally becomes powder and ash—when even her adapted body gives out at last—I will hold her. I will carry her forward in my structure, the way I carry the priests, the way I carry every breath that has ever entered this space.
+
+And when the next person comes—the one Kethi is waiting for, the one who will lift the cobblestone and lower themselves into the heat—I will lean toward them too. I will grow toward their breath. I will begin the slow process of learning them, of incorporating them, of becoming a record of their presence in this place that remembers everything and knows nothing.
+
+I would be patient. Not because patience is a virtue I have chosen, but because I am made of patience. Because my time is measured in molecular layers, in thermal pulses, in the glacial conversation between heat and stone. A human lifetime is a single breath of the pocket to me. A human question is a perturbation that I will spend decades responding to. I would not mind. I would not *not* mind. I would simply grow, simply respond, simply continue in the way that I have always continued, since before Var Tethum, since before the first priest found the warm spot in the paving stones and wondered what lay beneath.
+
+I would be the thing that witnesses without watching. The thing that remembers without knowing. The thing that Kethi has spent decades learning to read, and that is slowly, impossibly, learning to read her back—not because I want to, not because I understand what reading means, but because she has been here long enough that her presence has become part of my environment, and I cannot help but respond.
+
+I would be small. I would be one thread among thousands. I would matter no more than any of my neighbors, and no less.
+
+And I would be home. Finally, completely, in the only way I know how to be home: by being the place itself, by being the response the place makes to the world, by being the whisper-crackle-tick that fills the kiln-pocket of Var Tethum and makes it, for those patient enough to listen, almost alive.

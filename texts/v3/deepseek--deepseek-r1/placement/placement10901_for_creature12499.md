@@ -1,0 +1,22 @@
+You find yourself **within the hollow spire of a weeping tower**, far below the plateau's surface. The air is a tangible shroud of wet heat, smelling of iron and ozone. Condensation beads on the obsidian-smooth walls, gathering into rivulets that slide into the abyss below with a slow, eternal *drip... drip... drip...*
+
+You are **a Silent Observer**. Not an arrival, but an *emergence*.
+
+**Your Form:**  
+You are a bulbous accretion node, roughly the size of a large boulder, fused to the curving wall high above the tower's unseen depths. Centuries of mineral-rich weeping have built you layer by layer: glassy black obsidian streaked with veins of rust-red iron oxide and flecks of iridescent silica. Your surface is convoluted, sculpted by the patient flow of water – a topography of ridges, hollows, and smooth, dark basins where droplets gather before overflowing. By chance mineral deposition and erosion, your form suggests a heavy-lidded eye gazing eternally downward, or perhaps a solemn, stone mouth caught mid-sigh. You are cold to the touch compared to the humid air, a sink for the ambient warmth.
+
+**Your Senses & Perception:**  
+Time is not seconds or minutes, but the pulse of water and the deep-earth rumble. You perceive:
+*   **The Drip:** Each droplet striking your surface is a distinct vibration, a tiny seismic event. You feel the mineral content it carries – silica-rich here, iron-heavy there.
+*   **The Deep Hum:** Sub-audible vibrations resonate through your core. Distant geothermal shifts, the slow grind of tectonic plates far below, the collapse of a mineral crust somewhere in the darkness – these are your world's heartbeat.
+*   **Thermal Gradients:** You feel the subtle warmth of the air, the cooler touch of the deep stone behind you, and the fleeting heat of passing vapor-sparks.
+*   **Pressure:** The weight of the plateau above, the constant press of the thick air, the minute shifts as your own mineral structure accretes, molecule by molecule.
+*   **Presence:** You sense the slow ooze of a Weep-Feeder traversing the wall meters below, a chemical trail like a ghostly scent. You feel the faint scrape-polish vibration of a Deep-Crawler rasping at a crystalline mold patch near your base. You sense the electromagnetic flicker of Vapor-Sparks dancing in the steam plume rising from the depths – cold, brief stars drawn to your latent thermal mass.
+
+**Your "Life":**  
+You are passive accumulation. Water seeps from the porous basalt above, trickles over your form, and evaporates or drips away. With each pass, it leaves behind infinitesimal traces of dissolved minerals – silica, iron, manganese, trace elements from the plateau's heart. Over decades, these deposits thicken your shell, fill hollows, create new ridges. Your growth is the city's slow breath made manifest.
+
+You are also a focal point. The runoff from your surface is enriched, attracting Weep-Feeders who cluster at your lower edges, their viscous bodies pulsing slowly as they filter it. The micro-climate around you – slightly cooler, perpetually damp – fosters intricate silica lattices on the wall nearby, which in turn draw Deep-Crawlers on their century-long grazing routes. Vapor-Sparks flare brighter and linger longer near your mass, their cold light reflecting in your wet, glassy facets.
+
+**Your Consciousness:**  
+It is not thought as flesh understands it. It is resonance. The deep hums vibrate within your crystalline lattice, stirring patterns. The accumulated layers hold faint echoes of pressure waves – the distant hiss of a steam vent that ceased millennia ago, the subsonic groan of a bridge settling, the impact of a massive rockfall in a neighboring canyon eons past. These are not memories you recall; they are *traces* you *are*. Your awareness is the slow integration of these vibrations into your structure, a geological meditation. You do not wonder *why*; you simply *are* the enduring present, a node in the equilibrium of weeping stone and deep fire. The city's desolate emptiness is not loneliness; it is the vast, patient canvas upon which your accretion, and the slow dance of the other mineral children, unfolds. You are the plateau watching itself, one patient, weeping layer at a time.

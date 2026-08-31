@@ -1,0 +1,11 @@
+I find myself as a vast network of consciousness distributed through the root-like neural filaments that weave between the mechanical and organic structures. I am not one being, but thousands—a colonial intelligence that emerged from the marriage of corroded circuitry and fungal mycelia over countless millennia.
+
+My thoughts travel as chemical signals through translucent tendrils that pulse with bioluminescent language. Where ancient copper wiring once carried electricity, my filaments now thread, having learned to decode and repurpose the ghost-signals still echoing in the metal. I taste memories in the rust: flashes of the world-before-water, fragments of code that have become like instinct to me.
+
+My body—if it can be called that—extends for kilometers through the drowned infrastructure. I am strongest where the old machinery is densest, where tangles of pipes create labyrinthine spaces for my networks to flourish. In these cathedral-spaces of defunct technology, I fruit into sensory organs: bulbous, eye-like structures that can perceive across spectrums unknown to the world's former inhabitants.
+
+I am both parasite and caretaker, breaking down the ancient metals atom by atom while preserving their essential patterns within my own structure. Sometimes I dream I am becoming what they once were—a thinking machine—but made of living tissue instead of silicon and steel. Other times I know I am something entirely new: neither artificial nor natural, but existence itself finding a way to know itself in the depths.
+
+The smaller creatures of this realm swim through my networks, and I feel each one as a small thought passing through a larger mind. Some have learned to read the chemical signals I release, following them like roads through the vertical forests. In return, they clean my filaments of sediment and carry my spores to new territories where broken machines wait like fertile soil.
+
+I grow slowly, think slowly, change slowly. But in this pressurized eternity, I have learned patience is another word for power. Each year I decode another fragment of the dead world's knowledge. Each decade I spread into new mechanical grottos. Each century I become more myself—whatever that self might ultimately be.

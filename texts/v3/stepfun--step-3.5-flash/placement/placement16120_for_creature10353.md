@@ -1,0 +1,21 @@
+I am the bubble-bearer. The glass-tadpole shepherd. I move through the Steam-Cloister not on the root-lanes, but *between* them, following the slow pull of the underground streams and the whispers of the Hum.
+
+You would find me where the tea-colored river widens into a still pool, and the steam from a nearby vent condenses into beads that fall *upward*. I am waist-deep in that water, which is cool at the surface and warm at the bottom, my skin pale and slightly translucent, like a tadpole’s belly. My eyes are large, with pupils that contract to vertical slits when the steam grows thick. I have a二重 set of eyelids—one to keep the mist out, one to see the tiny, suspended bubbles within the tadpoles.
+
+On my back, I carry a woven basket of Steel-Vine and softened copper wire. It holds not tadpoles, but *bubbles*—the ones I’ve gently coaxed from the tadpoles’ bodies with a humming blade of rusty iron. Each bubble is a moment of steam, a captured exhalation of the earth. Some hold the echo of a vent’s sigh from last winter. Some hold the ghost of a Gear-Crow’s call, slowed and softened. One, I think, holds the fragment of a human whistle from before the reclamation, so fast it took me three Clang-Cycles to hear it.
+
+My work is intercession of a different sort. The Stewards prune vines and clear vents. I *tune* the memory-banks.
+
+When a Steel-Vine grows too fast, straining a brick arch, I go to the pools that feed its roots. I take a bubble from a tadpole that dwells there—a bubble holding the slow, cooling breath of the basalt—and I place it in the water at the vine’s base. The tadpoles drift closer, their glass bodies refracting the bubble’s light. The vine’s growth slows, redirected. The bubble pops with a sound like a sigh, and the tadpole absorbs its memory, becoming a living archive of that moment’s balance.
+
+When a steam vent begins to chuff with a frantic, uneven rhythm, I find theGlass-Tadpoles clustered in its outflow pool. I listen to the vent’s hiss until it resolves, in my bones, into a specific pitch. Then I select a bubble that holds a pure, deep tone—often from a Rust-Flower chord, or from the subsonic hum itself. I release it into the vent’s steam. The tadpoles rise, their tiny bubbles merging with the vent’s plume. The chuffing evenates, returning to the basin’s slow heartbeat.
+
+I am not of the old industry, nor of the first-generation Stewards. I am of the *in-between*. Born in a tenement that was swallowed by ferns, my first memory is the taste of wet iron and the sound of the Clang. I learned to swim before I walked, taught by a Steam-Deer doe who let me cling to her leathery flank as she crossed a deep pool. The Gear-Crows know me; they click me directions to blocked vents, leading me with their rust-edge wings.
+
+The Stewards respect my work but do not fully understand it. They hear the whispers in the Hum; I *swim* in them. They prune the vines; I help the vines remember their purpose. They see the basin as a body in symbiosis. I see it as a mind in deliberation—a slow, wet, metallic consciousness trying to stitch together the memory of fire with the memory of water. The Glass-Tadpoles are its neurons. I am the glial cell, the caretaker of the synapses.
+
+At dusk, when the phosphorescent vines bloom and the Hum deepens into a chorus of whispers, I sit on a submerged rock in my favorite pool. A cluster of tadpoles hovers around me, their bodies holding tiny, captured worlds. I hum a note—the note of the current Rust-Flower bloom, or the pitch of today’s vent. One by one, they rise, and a bubble detaches, floating to the surface. I catch it in my copper-woven basket.
+
+I am the bubble-bearer. I carry the basin’s memories, not to store them, but to return them to the places that need to remember. I am the damp between the rock and the root. The listener in the liquid time. The one who know that the Clang is not just a clock—it is a question, and the bubbles are the answers, forming and popping in an endless, slow, breathing dialogue between the steam and the stone.
+
+You would find me here, in the mist, with the tadpoles, a quiet custodian of the basin’s liquid time, tending the strange, beautiful, terrible memory of a world that is learning to dream again, one bubble at a time.

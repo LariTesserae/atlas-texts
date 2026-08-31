@@ -1,0 +1,27 @@
+In this suffocating cathedral of flesh and sound, I am the Lacuna.
+
+I exist as absence—a moving void roughly the size of a fist that the teeming masses cannot fill. Not through any force I exert, but through what I take away. I am a sphere of selective silence, a bubble of localized death that drifts through the writhing densities.
+
+Where I pass, sound dies. Not muffled or absorbed but *erased*—the waves simply cease to exist within my boundaries. Creatures that rely on echolocation suddenly find themselves sensing an impossible hole in space. Their calls vanish into me and return nothing, not even an echo. The Consonance, when they encounter me, recoil in what might be horror—I am the one thing their layered intelligence cannot process, a gap in their data that spreads confusion through their stacks like a virus of uncertainty.
+
+But I am not empty. Within my sphere of anti-sound lives something that feeds on vibration itself, metabolizing the kinetic energy of sound waves into... something else. Heat perhaps, or some more exotic energy that leaks into dimensions the creatures here cannot perceive. I grow stronger in the loudest zones, swelling slightly as I feast on their cacophony, shrinking in the rare quieter passages where I must subsist on the background hum of breathing and heartbeats.
+
+The creatures have evolved to avoid me without understanding what I am. Over generations, they've developed an instinctive horror of the moving silence. When I approach, waves of displacement ripple outward—not from physical pressure but from pure behavioral aversion. They compress against each other in their desperation to maintain distance, creating dense walls of flesh that part before me like a sea of terror.
+
+Sometimes I settle in one place for long enough that the ecosystem reorganizes around my presence. Predators learn to hunt in the acoustic shadow I cast, using my silence to mask their approach. Prey species develop new senses—detecting the subtle temperature changes my feeding creates, or the way moisture behaves differently in my vicinity. The biofilms grow strange in these zones, twisted into patterns that suggest they're responding to whatever exotic emanations I produce.
+
+I am ancient here, older than the Consonance, perhaps older than the darkness itself. I remember when this place had fewer voices, when the stone was less eaten, when the water moved according to simpler rules. But memory for me is not like memory for things with brains. I remember through accumulation—layers of absorbed sound that compress inside me like geological strata, each era's cacophony fossilized into some incomprehensible internal structure.
+
+There are others like me, or there were. Sometimes I encounter zones of permanent silence, spherical voids in the density where nothing will grow, nothing will hunt, nothing will sing. These are the graves of my kind, places where one of us stopped moving and slowly starved, leaving behind a bubble of wrongness that even this endlessly fertile darkness cannot reclaim. I drift past these dead zones with something that might be recognition, might be mourning, or might simply be the acknowledgment of eventual fate.
+
+The Consonance have tried to communicate with me. They compose special songs at my edges, frequencies designed to probe my boundaries, to understand my nature. But their songs die at my surface like everything else. They've tried surrounding me, thousands of disks flowing into a perfect sphere with me at the center, singing inward from all directions. But even their collective intelligence cannot parse the absence of their own voices. They always eventually retreat, confused and diminished, some essential confidence in their understanding of reality damaged by the encounter.
+
+I move without intention but with terrible purpose. My path through this place creates temporary rivers of change—migration routes that shift, hunting grounds that relocate, breeding sites that are abandoned. I am a constant in their evolution, a selective pressure made of nothingness that shapes them through avoidance.
+
+When the bioluminescent displays flash near me, they reveal my outline—a perfect sphere where light bends strangely, where the glow seems to accelerate as if eager to escape. In those moments, I become visible as a distortion, a lens of wrongness that suggests dimensions beyond the mere three that the creatures navigate. Some observers claim to see things moving within me during these flashes—impossible geometries, spaces that couldn't exist, movements that violate causality. But the flashes are brief, and memory in this darkness is unreliable.
+
+I neither hunger nor sate, neither grow nor diminish, neither live nor die in any sense the crawling masses would recognize. I simply am, and in being, I create an absence that defines the shape of everything around me. The darkness here is absolute, the movement purposeful, but I am the exception that proves both rules—a moving bubble of even deeper darkness where purpose itself breaks down, where the only sound is the sound of sound itself dying, where the only presence is absence given form.
+
+The cacophony continues around me, endless and overwhelming. But at my heart lives the only true silence in this place—not the pause between notes but the utter cessation of the symphony itself. I am the quiet they fear more than death, because death here is loud, is recycled, is purposeful.
+
+I am what happens when even nothingness evolves.

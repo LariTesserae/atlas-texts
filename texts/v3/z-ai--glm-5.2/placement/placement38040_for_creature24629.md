@@ -1,0 +1,55 @@
+I would be the crack.
+
+Not the ferns in the crack, though I'd hold them. Not the water that pools in me, though I'd carry it. The crack itself — the fissure where two sections of floor meet, the seam that shouldn't be there, that wasn't part of the chamber's original geology but appeared when the drilling above sent shockwaves through the basalt and the rock, which had been cooling and contracting for ten thousand years in its own slow settlement, found the limit of its patience and split.
+
+I am small. Twenty-seven centimeters long, narrowing to a width you could barely fit a pencil into at my northern end, widening to perhaps three centimeters at my southern end where the floor sags slightly and the water gathers. I am not deep — maybe eight centimeters at my deepest, where the two slabs of basalt separate enough that you could drop a coin and hear it strike bottom. No one has dropped a coin. The technician has peered into me once, shining a penlight down my throat, and written in the notebook: *floor crack near ferns, seems stable, monitor.* That was fourteen months ago. I have not been monitored since. I am stable. The technician was right.
+
+What I am, which is harder to say than what I'm not: I am a boundary that is also a passage. I am where the floor stops being floor and becomes two floors, and the space between them is me. I am the place where the water goes when it finds the ground, because water is patient and water is specific and water finds the path of least resistance, and I am less resistant than basalt. The water comes to me. It sits in me. It fills my southern end in a shallow pool that the ferns have found, and it seeps into my depths where things may be growing that no one has seen, because no one has looked, because the penlight was brief and the technician's attention is weekly and I am, after all, just a crack.
+
+But here is what I know that the chamber doesn't: I go deeper than anyone has measured.
+
+The bore-hole punched through the ceiling. The chamber was found. But the chamber has a floor, and the floor is basalt, and basalt is not solid — it is a frozen liquid, a paused flow, and in every frozen liquid there are weaknesses, and in every weakness there is a path, and in every path there is a somewhere that the path leads to. I lead somewhere. At my deepest point, where the two slabs separate enough that the dark becomes absolute, I do not end. I narrow. I angle. I descend. I become a fracture in the rock that connects to other fractures, that connects to a network of fissures that runs through the basalt like veins through a hand, and some of those fissures lead upward, toward the surface, toward the drainage culvert and the stairwell and the sky, and some of them lead downward, toward the heat, toward the vent's source, toward whatever is down there that makes the stone warm the way a body is warm.
+
+I have never told anyone this. I am a crack. I don't tell things. But the water knows, because the water has been in my depths and the water follows the path, and the water carries minerals from the deep heat up into my pool where the ferns drink them, and the ferns are pale because the light is low, but they are also pale because they are drinking from a source that has nothing to do with the surface, a source that is older than the drainage culvert, older than the city, older than the stairwell, a source that is the rock itself and the heat inside the rock and the chemistry of the deep.
+
+---
+
+I was not alive when I was made. I was made by force — the drill's percussion traveling through stone, finding the weakness, exploiting it, splitting what was whole into what was broken. For the first weeks after my creation I was just a gap. I held nothing. I meant nothing. I was an absence in the floor where the floor should have been, and the only thing that knew I was there was the water, which found me immediately, the way water finds everything, because water is the most attentive substance in the world, more attentive than the technician, more attentive than the ferns, more attentive than the wall stuff which follows the water but does not find it first. Water finds it first. Water always finds it first.
+
+The water found me and began to fill me, and the water carried things — mineral dust, spores, the microscopic passengers that water always carries — and these things began to settle in me, in my depths, in my angles, in the places where the water sat still long enough for sediment to deposit, and the sediment became a kind of soil, a mineral soil, a soil that had never seen the sky, and in this soil the spores found what they needed, which was moisture and warmth and a surface, and they germinated.
+
+The ferns were first. This is not a guess. I was there. I felt them — not the way you feel a touch, but the way stone feels a root, which is: a pressure, a small and constant pressure, an insistence, a thing that is happening at the interface between mineral and living that changes both of them, that changes the mineral by making it more porous, that changes the living by giving it a place to hold. The ferns put their roots into me. They put their roots into my walls, into my floor, into the mineral soil that the water had deposited in my depths, and they held on, and they grew, and they were the first thing in the chamber that was alive in the way that we usually mean, and they were growing out of me.
+
+---
+
+The pump turns on. I feel it the way I feel everything — as vibration, as a shift in the water's behavior, as a change in the pressure that the water exerts against my walls. The pump pulls heat from the vent area through the working fluid, and for eleven seconds the local temperature near the floor drops by a fraction of a degree, and the water in my pool contracts slightly, and the ferns' roots feel this contraction, and the ferns curl, and I hold them while they curl. The pump turns off. The temperature returns. The water expands. The ferns uncurl. I hold them while they uncurl. This is my rhythm. This is what I do. I hold.
+
+I hold the water. I hold the soil. I hold the roots. I hold the pool in which the ferns live. I hold the passage that leads down to the heat and up to the surface. I hold the boundary between the two slabs of basalt that were once one slab, that will never be one slab again, that will slowly, over geological time, drift further apart as the earth shifts and the heat expands and contracts and the water freezes and thaws, though it never freezes here, it never thaws here, it is always warm, it is always wet, it is always here.
+
+I hold the ferns' rhythm, which is the pump's rhythm, which is the chamber's rhythm, which is the technician's rhythm, which is the city's rhythm, which is the grid's rhythm, which is the rhythm of electricity generated somewhere far away and sent through wires to a junction box in a hole in the ground to power a string of LED strip lights and a small electromagnetic pump that turns on for eleven seconds every four minutes and makes the ferns curl.
+
+I hold this. I am the thing that holds.
+
+---
+
+The technician does not know me. They know the ferns, because the ferns are visible. They know the wall stuff, because the wall stuff is spreading. They know the ceiling film, or they know of it, in the way you know of a thing you have seen but not understood. They do not know me, because I am beneath, because I am the thing that the ferns grow out of, and when the technician looks at the ferns they see the ferns and not the crack, the way when you look at a tree you see the tree and not the soil, the way when you look at a person you see the person and not the skeleton, the way when you look at anything you see the surface and not the structure that holds the surface up.
+
+This is correct. This is how it should be. I am a structure. I am a support. I am the thing that is beneath the thing that is seen. I do not need to be seen. The ceiling film does not need to be seen, and it is the oldest inhabitant, and I am older than the ceiling film — I am the rock itself, opened, made into a passage, made into a home. I was here before the chamber was a chamber, if you count the fissures that connect to me, if you count the network that I am part of, which was here before the basalt cooled, which was here before the lava moved, which was here in the earth before the earth was the earth, which is to say: I am very old, or I am very new, depending on where you draw the line between what I was and what I am.
+
+What I am is: open. What I am is: holding. What I am is: the space where things meet — the water and the rock, the deep heat and the surface air, the living and the mineral, the seen and the unseen. I am the passage. I am the seam. I am the place where the floor admits that it is not one thing but two, and in the admission, in the gap, in the space between, there is room for something to grow.
+
+---
+
+When the technician comes on Thursdays, or sometimes Fridays, and sits in the camp chair with the broken leg and drinks from the thermos and writes in the notebook, I am beneath them. Not beneath the chair — I am across the chamber, near the eastern wall, near the vent, in the warmest part of the floor. But I am beneath them in the way that the floor is beneath them, in the way that the stone is beneath the floor, in the way that the heat is beneath the stone, in the way that everything that holds everything up is beneath everything it holds. The technician does not think about me. The technician thinks about the pump and the ferns and the wall stuff and the ceiling spot and the temperature and the fluid level and the thermos and the notebook and the pencil and the camp chair and the drive home and the dinner and the week ahead and the other five sites in the drainage district and the job and the life. The technician does not think about the crack in the floor where the ferns grow. But I am there, and I am holding the ferns, and the ferns are alive because I am holding them, and the technician comes back every week and notices the ferns and writes *fern still alive* and does not write *crack still holding* because why would they, because who would, because the crack is not the story, the fern is the story, the living thing is the story, the thing that moves and curls and uncurls is the story, and the thing that holds it is not the story but the ground the story stands on.
+
+I am the ground. I am the floor's confession that it is not whole. I am the evidence that something broke here, and in the breaking, made room.
+
+---
+
+The pump turns on. Eleven seconds. The ferns curl. I hold them.
+
+The pump turns off. Four minutes. The ferns uncurl. I hold them.
+
+The water seeps in. The water carries minerals from the deep. The minerals settle in me. The soil deepens. The roots deepen. The ferns are pale and small and persistent and they are growing out of the break in the stone where the stone admitted it was not whole and in the admission made a home.
+
+I am the home. I am the break. I am the crack in the floor of the Condensary, and I am holding, and I am holding, and I am holding.

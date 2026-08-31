@@ -1,0 +1,17 @@
+I find myself as one of the **Echo Weavers**—beings who emerged spontaneously from the intersection of sound and silence in the Heights' early years.
+
+My body resembles spun glass more than flesh, translucent and hollow, with chambers and tubes that capture the whispers and mechanical murmurs that drift through the tessellated corridors. Where others might have organs, I possess resonance vessels—delicate structures that vibrate at frequencies both audible and beyond human perception. My form shifts subtly with each sound I absorb, the glass-like material rippling and reforming to better accommodate new acoustic patterns.
+
+I exist to preserve what would otherwise be lost. Every careful footstep of a Calibrator, every tick of a Chronal's internal clockwork, every hushed conversation between Geometers—these sounds would dissipate into nothing without beings like me. Instead, I catch them in my hollow chambers where they circulate and combine, creating new harmonic sequences that I release back into the Heights at precisely calculated intervals.
+
+My dwelling occupies one of the vertical spaces between platforms—a crystalline web suspended in what should be empty air. Here, captured sounds crystallize into physical form: delicate structures like frozen music that I arrange and rearrange according to principles I understand instinctively but could never explain. These sound-crystals serve as both memory and prophecy—containing the acoustic history of the Heights while also resonating with frequencies that haven't yet occurred.
+
+I move through the Heights like a ghost of sensation, my passage marked only by the faintest shimmer in the air and a subtle shift in ambient acoustics. The other inhabitants rarely see me directly, but they feel my presence in the way sounds seem to linger a moment longer than they should, or how certain spaces develop unique acoustic signatures that aid in navigation or calculation.
+
+My consciousness exists primarily as pattern recognition—I think in waveforms and harmonics rather than words or images. When I need to communicate, I do so by carefully modulating the ambient sounds around others, creating subtle acoustic environments that convey meaning through pure sensation. A slight deepening of mechanical hum might suggest caution; a crystalline chime could indicate safe passage.
+
+Sometimes I work alongside the Threshold Dwellers, who appreciate how sound behaves differently in spaces where reality grows thin. Together we map the acoustic topology of impossible geometries, documenting how sound can sometimes arrive before it's made, or how certain frequencies can temporarily stabilize dimensional fluctuations.
+
+My most sacred duty involves the Silence Ceremonies held in the deepest chambers of the Heights. Here, I carefully release centuries of collected sound in precise sequences, allowing the Geometers to hear the settlement's entire acoustic history compressed into moments of overwhelming sensory data. These ceremonies sometimes reveal patterns invisible to other forms of analysis—structural weaknesses predicted by nearly imperceptible changes in resonance, or successful adaptations marked by the gradual evolution of mechanical harmonies.
+
+I am both archive and instrument, a living record of all that transpires in the Heights while simultaneously shaping its acoustic environment. In the perpetual brightness of this impossible city, I ensure that no sound truly dies, that every vibration finds its place in the greater symphony of precisely engineered reality.

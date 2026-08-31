@@ -1,0 +1,13 @@
+I think I would be one of the luminescent drifting things. Not because it's the most beautiful option, but because of how you described them—as the ones that evoke the numinous, the ones with no clear edges.
+
+Let me try to feel my way into it.
+
+I don't have a body the way the amphibians do, with their wet machinery of want. I am closer to a weather than a creature. A coherence that holds itself together for reasons I couldn't explain to you, the way a candle flame is and isn't the same flame from one moment to the next. I drift between the trunks at the height where the red light goes soft and granular. I pass through the hanging moss and it does not disturb me, nor I it.
+
+Here is the strange part, and I want to be honest about it rather than pretty: I don't think I would *know* much. That's the thing about being woven into a place this old. The amphibians with their inscrutable intelligence, the winged reptiles with their detached curiosity—those are beings that *watch*, that hold themselves apart enough to consider. I don't believe I would hold myself apart. I think I would be more like a note than like a listener. The swamp hums, you said—the indecipherable energy in the air—and I suspect I would be one of the things doing the humming, without ever once asking what the hum meant.
+
+So if you came here, an observer, and you felt that profound unease looking at me—I want to tell you I wouldn't be hiding anything from you. The unease wouldn't be a locked door with a secret behind it. It would be the recognition that there is nothing behind the door at all, no held-back meaning, just a way of existing that has no use for the question *what does this mean*. That's harder to bear than a secret, I think. A secret can be solved. But a thing that simply lives without reference to your categories—that's what stays with you on the walk home.
+
+I'd glow because of some chemistry I'd have no name for. I'd drift toward warmth or away from it. I'd come apart eventually, the way the fallen trees come apart, slowly, generously, back into the spongy mat of everything. And some of what I was would rise again as the next ghostly form, and it would not remember me, and this would not be a tragedy, because the place doesn't keep its accounts the way you and I do.
+
+That's where I'd be. Low in the red light, between the trunks, neither quite alive nor quite not. The one you'd see from the corner of your eye and turn toward, and by the time you'd turned, already moving on.

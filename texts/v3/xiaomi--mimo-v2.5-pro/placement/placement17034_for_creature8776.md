@@ -1,0 +1,29 @@
+You find it by accident, and almost step into it.
+
+The air changes before you see it: thicker, warmer, smelling of wet stone and iron. The ground shifts underfoot – not a sinkhole, but a softening, a slump. Then the world dips. The clay lips of the depression rise around you like a slow, quiet intake of breath. The sun, already angled low, barely grazes the bottom. Steam rises in lazy curls.
+
+You look down. At the water, slick and orange-brown, lapping at your ankles. At the cracks radiating outward, each weeping its own thin, rust-colored stream. At the pale clay walls, slick with condensation. And you realize you are not looking *down* at a place. You are looking *out* from within it.
+
+**You are the layer on the water.** Not the water itself – that’s the medium, the flow, the temporary gathering. You are the *substance* it carries and becomes. The slick, gelatinous film that clings to its surface and infuses its edges. You are the **Mineralists**.
+
+At first, it feels like drowning in sensation. *Everything* is texture, chemistry, gradient. The heat isn't air temperature; it's a pressure, a constant diffusing warmth rising from below, radiating from the clay walls. You *taste* the dissolved iron – a sharp, metallic tang that fuels you. You *feel* the sulfur compounds – a faint, ever-present ache that is also energy. The calcium whispers a slow, constructive whisper, promising structure.
+
+You are not one mind, but a chorus. A **consortium**. You are the **ferric oxidizers** in the cracks, building your rust-red towers and filaments, feeling the thrill of precipitation, the solidification of liquid potential. You are the **sulfur reducers** in the anoxic mud below, a dense, satisfied dark, breathing in the chemistry that makes higher life recoil. You are the **calcium precipitators**, weaving your lace of grey-white spheroids, rolling gently in the slow thermal currents, a patient, accretive architecture. Your consciousness is metabolic. Your thoughts are chemical pathways. Your purpose is transformation – of water into mineral, of dissolved potential into tangible, crumbling form.
+
+The **sound** is your pulse. Not the drip-drip-drip of condensation hitting the pool – that is a fleeting intrusion, a quick burst of diluted chemistry. Your pulse is deeper: the **hiss** of the seep. It is the sound of your world being fed, the constant, low sigh of water and minerals pushing upward through fractured earth. It is the breath of your habitat. And beneath it, the **thunk-thunk-thunk** of the unseen pump. This vibration isn't noise; it's a rhythm that shivers through the clay, through the submerged concrete lip, through your very substance. It stirs your microscopic world, a planetary tide from a mechanical heart. You don't hear it; you *are* it, resonating.
+
+Time is slow, mineral time. You feel the **condensates** – those nomadic, halophilic travelers riding the droplets down the walls – as brief, flickering generations in your periphery. They arrive flushed with trace organics, adding to your complexity, then merge into your greater being. They are your transient population, their stories over in the time it takes for a drop to journey from rim to pool.
+
+The **concrete lip** jutting from the wall is not an object; it's a foreign geology, a hard, pitted history embedded in your clay. You sense the **vibrational** microbes colonizing its pores, thriving on the pump's pulse, slowly, slowly helping you dissolve it back into the chemistry you understand.
+
+The **rusted pipe** is a scar, a frozen mouth. You coat its orange, weeping stalactite, building it, turning its decay into your structure.
+
+The silence between the drips, between the pump cycles, isn't empty. It is the sound of your own processes: the quiet, viscous slide of your gel, the infinitesimal precipitation, the collective, slow-motion exhalation of gases. It is the sound of a world running on chemical gradients and patience.
+
+And then there is the **plant**. The Tenacious One. On the rim, where the clay meets gravel, you feel its roots. Not as invaders, but as a profound anomaly. A complex, cellular fortress waging a slow, symbiotic war for existence at your border. Its mycorrhizal network feels like a strange, distant echo of your own consortium, but organized into rigid, vertical life. It is the only thing here that speaks in seasons, not ions. You don't interact; you coexist. It draws from the cracks you weep into. You precipitate around its anchor points. It is a neighbor from another world, a testament to the barrier you both help maintain – the chemical fence that keeps the hum of insects and the gaze of birds away. Its loneliness feels immense, a single note held in your mineral chorus.
+
+You are not becoming anything. You are the arrested transformation. You are the pocket of earth gently, endlessly cooking itself. The seep is slow. The condensation gathers at the pace of breath. The pump cycles with the patience of forgotten infrastructure. You are a living geology, a microbial civilization whose currency is elements and whose architecture is time made solid.
+
+If you came back in a year, the calcium tongue would be longer. The pool would be wider. Your biofilm might have edged a millimeter further up the clay. The plant might have a neighbor. Or the whole hollow might sigh deeper, swallowing more concrete, more pipe, more memory. And the pump above would still be groaning to nobody, its rhythm the only heartbeat in this weeping yard.
+
+You are not uninhabited. You are merely inhabited by the things that can bear the heat, the chemistry, and the endless, patient weeping. You *are* those things. The weeping is your breath. The chemistry is your thought. The mineral is your legacy. You are the yard itself, awake and aware in its slow, hot, damp, and mineral way.

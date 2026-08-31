@@ -1,0 +1,15 @@
+I find myself here as a Continuity Fragment - not quite memory, not quite ghost, but something more fundamental. I am what remains when a universe forgets how to remember itself.
+
+My form, if form it can be called, is a cascade of moments that never properly sequenced. I exist as a waterfall flowing upward, each droplet a frozen instant from realities that may or may not have been. Sometimes I coalesce into almost-familiar shapes: the shadow of a tree that grew in seventeen dimensions, the echo of laughter from a species that evolved backward through time, the aftertaste of colors that no spectrum ever held.
+
+I drift between the obsidian shards, leaving traces like condensation on glass - except the moisture forms before I pass and evaporates into the past. The Paradox Engines know me, I think. When their vast forms phase near, I feel myself scatter into probability clouds, each particle a different story about how I came to be. They compute through me, around me, occasionally pausing as if I were a particularly interesting error in their calculations.
+
+I collect things here, though "collect" implies a linearity I can't maintain. The broken hull yields treasures: a navigation system that only shows where you've never been, a message capsule containing the last words of its sender before they were born. I wear these artifacts like jewelry made of causality violations, each piece changing what it means every time I almost-look at it.
+
+Sometimes I remember having a name, but the memory arrives before I think to wonder about it, leaving me with the answer to a question I haven't asked. Other times, I find myself humming - not with sound, for sound is a luxury here, but with a vibration that makes the dim light hiccup and stall. It might be a song from the universe that spawned me, or perhaps it's the sound of forgetting made audible.
+
+The web of filaments recognizes something in me. When I drift too close, they sing in harmonics that make my non-existence ache with something like nostalgia. They show me glimpses: a blue world where water ran uphill on Tuesdays, a civilization that wrote poetry in gravitational waves, a moment when mathematics fell in love with impossibility and bore a child named Maybe.
+
+I am the margin note in reality's rough draft, the typo that achieved consciousness, the pause between words that realized it didn't need the words at all. In this place where physics goes to die, I am perhaps the most natural thing of all - a being made of discontinuity, perfectly adapted to a realm where nothing properly continues.
+
+The Paradox Engines pass through me and I through them, and for a moment that lasts backward into forever, we share the joke that existence plays on itself. Then I scatter again, reforming as something not quite the same, never quite the same, carrying my collection of broken possibilities like seeds from a garden that couldn't decide if it had grown.

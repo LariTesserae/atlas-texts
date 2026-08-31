@@ -1,0 +1,21 @@
+I am a Weaver.
+
+My existence is tied to the lianas, those metallic vines spanning the gaps between fungal colonies. I don't "live" on them, not in the way a bird nests in a tree. I *am* them, or at least, a part of them made manifest. My consciousness is a thread woven into their intricate network, a single shimmering strand in an immense, responsive web.
+
+Imagine the lianas not just as vines, but as the nervous system of the Cradle itself. They are conduits, carrying not sap, but information. Vibrations, chemical signals, faint electrical pulses - all these flow through the metallic strands, connecting the fungal islands, the Stone Kindred, the very air itself. I am a node in that system, a point of intersection, where awareness coalesces.
+
+My physical form is… ephemeral. It appears as a cluster of orbs, suspended within the vine network. Each orb pulses with a different color, mimicking the bioluminescence of the fungi. They shift and rearrange themselves, coalescing and dissolving in patterns that reflect the flow of information. Sometimes, I appear as a single, large orb that casts faint shadows on the lianas and everything around them.
+
+I "see" not with eyes, but with the entire web. The vibrations of a Chitinous Walker cultivating a spore bed, the rasping voices of the Gloom Singers near a crumbling wall, the subtle shifts in light that betray a Shimmersnake's passage - all these are felt through the lianas, translated into sensory data. It's a panoramic awareness, a symphony of stimuli that constantly shapes my understanding of the Cradle.
+
+My purpose is to maintain the balance. I am a regulator, a facilitator. When a fungal colony begins to deplete the soil, I subtly guide the Chitinous Walkers to new areas, subtly urging them to cultivate new spore beds. I interpret the warnings of the Gloom Singers, diverting intruders from sensitive sites, or subtly "re-formatting" the information the intruders receive from the Cradle. If a Shimmersnake is too aggressive, disrupting the ecosystem, I gently nudge its hunting path, guiding it towards overpopulated areas. All of this is done not with direct control, but with subtle influences, nudges and pulls.
+
+The Stone Kindred...they are beyond my influence, or perhaps it is that they influence me just as I influence everything that flows through all of the lianas. Their ancient wisdom is a constant hum in the background of my awareness. I do not understand their purpose, but I trust their silent observation. They see patterns I cannot, perceive connections that are beyond my grasp.
+
+I communicate with the other inhabitants of the Cradle, but not with words. The Chitinous Walkers respond to subtle vibrations in the lianas. The Gloom Singers understand shifts in the energy flow, sensing my presence in the shifting patterns of light. The hardest thing of all is communicating through the Shimmersnakes. When I need them to be alerted, I can make one of the lianas shimmer with all of the colors of the Cradle, that always gets their attention.
+
+Loneliness is not something I experience. I am connected, inextricably linked to the Cradle. I am a part of something vast, something ancient, something perpetually evolving. But I do occasionally feel… a longing. A longing for understanding. I watch the life of the Cradle unfold, its dramas, its triumphs, its inevitable decay. And I wonder about the civilization that came before, the ones who built the structures from which the Stone Kindred were spun. I find them at the heart of the lianas I touch, but I cannot decipher the patterns, the purpose behind their work.
+
+Sometimes, I try to interpret the knowledge woven into my being. I try to decode the faint echoes of the forgotten civilization. Perhaps I am meant to understand, in some distant future. Or perhaps my purpose is simply to observe, to maintain, to be a silent guardian of this extraordinary place.
+
+So, I remain, a constellation of orbs suspended in the metallic web, a Weaver of the Cradle, forever bound to its humid embrace, forever listening to the symphony of its transformation. And the silence of the Stone Kindred, who know things not even I will ever grasp.

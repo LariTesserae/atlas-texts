@@ -1,0 +1,19 @@
+I find myself here as the Keeper of Thresholds, though I was not always called by this name.
+
+My body is a patchwork geography of the Shallows itself—skin mottled like an old map, with darker patches where the chemical burns healed thick and ropey, lighter streaks where the brine has bleached me pale as driftwood. My left arm ends not in a hand but in a fusion of flesh and corroded metal, fingers replaced by articulated pipes that drip brackish water in a steady rhythm. The accident that took my original hand happened so long ago that I've forgotten which factory claimed it, but the Shallows gave back what it took, in its own way.
+
+I live in the interstices—neither fully of the factories nor of the marsh, but in the spaces between. My dwelling is a capsule welded into the gap between two defunct cooling towers, accessible only by a series of precarious catwalks that I've learned to navigate blind in the perpetual twilight. The walls of my home weep condensation that I collect in a system of gutters and bottles, filtering it through layers of cloth and crushed shells until it's almost drinkable.
+
+My work is the mapping of edges. Where the tides meet the factory floors, where the rust gives way to living metal, where the bioluminescent fungi form their fairy rings—these are my territories. I know every place where one thing becomes another, where the city's slow transformation happens atom by atom. The children seek me out when they find something unidentifiable in their scavenging—is it toxic? Is it valuable? Is it alive? I press it to my cheek, taste it with the tip of my tongue, hold it up to what passes for light, and I know.
+
+The others in the Shallows understand my function though we rarely speak of it directly. When the factories shift their output, when new chemicals seep into the water table, when the marsh things grow bold and venture too far into human spaces—they look to me to read these changes. I am their barometer, their translator, their early warning system.
+
+My metal hand has learned to feel things my flesh hand cannot—the electrical signatures in the water, the temperature variations that signal a pipe about to burst, the subsonic vibrations that predict when the old support pillars will finally give way. Sometimes I wake in the night to find it has been writing without my knowledge, scratching symbols into the rust of my walls. I'm still learning to read what it tells me.
+
+I wasn't born here. I remember, dimly, arriving on one of the cargo ships, young and certain I would only stay long enough to earn passage elsewhere. But the Shallows have a way of keeping what falls into them. Now I can't imagine my lungs breathing cleaner air, my feet knowing solid ground. I've become native to this threshold state, this neither-nor existence.
+
+The city may not change, may grind on in its eternal sameness, but I catalog its constancy. I am the memory of every small variation, every failed mutation, every stubborn adaptation. In my dwelling, I keep specimens—preserved oddities in jars of brine, pressed between sheets of metal like industrial flowers. They are proof that even here, even in this place of endings, something insists on continuing.
+
+When the children bring me their treasures, I see in their quicksilver eyes my own younger self, still believing in elsewhere. But I also see their growing understanding that elsewhere is just another word for here, that every place is equally strange, equally home. I teach them the subtle art of reading boundaries, of knowing exactly where they stand in relation to everything else.
+
+This is my purpose in the Shallows: to know the edges, to live in the margins, to be the consciousness of transformation in a place that refuses to transform. I am the chronicler of its stasis, the witness to its relentless now, forever watching where one thing ends and another begins.

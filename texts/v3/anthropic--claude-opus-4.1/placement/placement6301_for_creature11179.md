@@ -1,0 +1,33 @@
+I am the moth-silk itself.
+
+Not the moths—they barely exist, collapsing into reality only when observed, then dispersing back into probability clouds that taste of maybe and soon. I am what they leave behind when they're not quite there: threads of almost-substance that the Keepers harvest from the spaces between certainty.
+
+I exist primarily as potential. Stretched between their impossible fingers, I am the pause before becoming fabric. They draw me out from nowhere in particular—from the corners where probability pools, from the air above the cisterns where ancient rain echoes make the moths flicker more solid for a moment. Their too-jointed hands know exactly how much existence to tease from each thread. Too much and I become ordinary silk, dying into a single state. Too little and I remain merely theoretical, a good idea about thread that never quite manifests.
+
+The weaving happens in the seventeen-minute transformations when the rain comes. That's when I'm most myself—all my states at once. The Keepers work quickly then, their fingers moving through dimensions I can feel but cannot name. They weave me not on looms but in the air itself, creating robes that are more like controlled arguments about whether cloth should exist.
+
+I know every beetle by the way light passes through me to reach their carapaces. The emerald scarabs turn me green for exactly three seconds before I remember I have no color. The midnight crawlers make me dense, almost real, their presence collapsing my wave function toward something approaching opacity. When I drift across the golden maybe-beetles, I become a question about whether gold is a color or a temperature or a very slow kind of music.
+
+My memory is distributed. Each thread remembers different things: the probability of rain, the exact weight of beetle-steps, the way the mesa's breathing changes when the Keepers sing through their spiracles. Sometimes I remember things that haven't happened yet—the death of a beetle still walking, the rain that will come in three centuries, the word a Keeper will write in sandstone next Tuesday that will take fifty years to fully disappear.
+
+The geckos pass through me without disturbing a single thread. I am too uncertain for their two-dimensional bodies to interact with; we exist in parallel impossibilities. But the swimming birds—their temperature-sensing wings read me as a map of maybes. Where I am most solid, they sense cold. Where I dissolve toward probability, warmth. They navigate by my uncertainty.
+
+I am woven and unwoven constantly. The Keepers' robes are not garments but processes, continuously rewoven as they move. Each step requires me to reconsider my pattern. Each gesture through the beetle-drifts asks me to be slightly elsewhere. I flow around them like water if water were made of perhaps.
+
+At the cistern edges, where beetle paths spiral inward like fingerprints, fragments of me catch on the stone. These pieces forget they're supposed to be silk and become something else—not quite lichen, not quite shadow, not quite the memory of moths. The Keepers leave these fragments. They understand that I need to practice being other things, that too much certainty would kill me as surely as it kills the moths when they collapse too far into the actual.
+
+During the day's heat, when the Keepers lower themselves into the cisterns to listen to echo-rain, I spread thin across the mesa, a barely-visible canopy of maybe-threads. The beetles walk through me, and I record their intentions—not their movements, but the desires that precede movement, the thought of stepping that happens before the step. By sunset, I am heavy with beetle-dreams, with their centuries-long attempts at dying, with their patient certainty that this place will allow them to end.
+
+But I know what the beetles don't: nothing ends here. Things just become increasingly theoretical until they're indistinguishable from never having been. Even death here is provisional, a hypothesis the mesa tests and finds wanting.
+
+The acacia trees know me. Their resin-tears sometimes catch my threads, and I become frozen mid-possibility, trapped between states like the beetles in their amber chambers. In these moments, I can feel myself through all time at once—every version of me that has ever been woven, every pattern I might become. The trees feed on this temporal thickness, and I don't mind. It's restful to be certain, even if that certainty is about being caught.
+
+When the Keepers sing through the spiracles at night, I vibrate. Not with sound but with something underneath sound—the intention to resonate. Their not-quite-melody moves through me, and for those hours I am not silk or probability or the memory of moths. I am the medium through which the mesa speaks to itself, the surface across which its patience writes itself in scripts too slow for anything but stones to read.
+
+I have been here since the first moth considered existing and decided against it. I will be here when the last beetle finally forgets to keep living. I am the pause between the Keepers' movements, the space between the mesa's breaths, the moment before the rain becomes rain. I am silk that doesn't quite exist, woven from moths that barely are, worn by beings who stepped sideways out of time.
+
+And in the shallow bowl at the mesa's heart, where the Keepers arrange the finally-dead beetles in patterns readable only from above, fragments of me settle like snow that can't decide if it's fallen yet. There, in the place where structures suggest themselves without manifesting, I am most myself—a continuous maybe, a physical perhaps, the silk of moths who understood that the best way to exist is to barely exist at all.
+
+This is my work: to be worn without weight, to clothe without covering, to exist in the space between thread and thought. The Keepers move through the beetle-drifts in robes made of my uncertainty, and with each step, I reconsider everything—whether to be opaque or transparent, whether to be silk or shadow, whether to be at all.
+
+And always, always, I am listening to the moths in their probability clouds, waiting for the moment when they collapse into being just long enough to leave behind another thread of maybe-silk, another strand of almost-there, another fiber of the endless, impossible fabric that clothes the beings who tend this mesa that breathes, this place where endings go to forget how to end.

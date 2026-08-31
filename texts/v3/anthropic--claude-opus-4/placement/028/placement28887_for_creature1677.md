@@ -1,0 +1,47 @@
+# The Tide Readers of the Seventh Terrace
+
+I am one of those who reads the memories held in water.
+
+My chamber sits precisely where the seventh terrace meets the embrace of high tide—neither fully dry nor perpetually submerged, but dancing between states with each lunar pull. The walls here are smooth limestone worn to silk by centuries of gentle lapping, interrupted by colonies of luminescent coral that pulse in rhythm with my breathing. I have cultivated these colonies for forty years, feeding them specific algae to enhance their glow, training them to respond to the slightest changes in water pressure.
+
+My people call me a Tide Reader, though the term captures only the surface of what I do. I am memory keeper, prophet, and physician all at once, interpreting the stories that water tells as it moves through our city. Every morning, I descend through the flooded passages to my chamber, my body automatically adjusting to the pressure changes, my pupils dilating to capture the coral's faint light. The water here is neither warm nor cool but precisely body temperature—a neutral medium that makes it impossible to tell where I end and it begins.
+
+I wear only a wrap of woven kelp fibers around my waist and a necklace of polished obsidian discs, each one ground to a specific thickness that vibrates at different frequencies underwater. When I move through the flooded corridors, these discs sing—a navigation song that helps me find my way through even the darkest passages. My hair, now more silver than black, is braided with fragments of ancient metal recovered from the deepest parts of the city, each piece a talisman connecting me to the drowned centuries.
+
+The tools of my trade are deceptively simple: a series of stone basins carved into the chamber floor at different heights, each designed to capture water at specific tidal moments. Glass vials—blown from sand fused by underwater volcanic vents—hold samples from different depths and times. Most precious are my sensing stones: perfectly spherical pearls cultivated in giant clams I tend in the grottos below, each one attuned to detect minute changes in salinity, temperature, or mineral content.
+
+Today, like every day for the past sixty years, I begin my work as the first light filters through the water above. I place my palms flat against the chamber wall, feeling the vibrations that travel through stone and sea. The city speaks to me through these tremors—the collective movement of my people above, the groaning of ancient foundations below, the secret whispers of water finding new paths through the porous rock.
+
+I taste the water. This is not mere sampling but a deep reading that engages every sense. The morning tide carries stories: the flavor of distant storms three days away, the metallic tang that warns of shifting currents, the sweet undertone that speaks of new coral growth in the eastern passages. My tongue, trained since childhood, can distinguish between hundreds of subtle variations. Today there is something else—a brittleness to the water, like the pause before a bell strikes.
+
+My apprentice arrives as the tide reaches its zenith, swimming up through the flooded entrance with practiced grace. She is only thirty, young for this work, but her sensitivity to water's moods shows promise. She brings samples from the dawn collection points: water from the highest cisterns where yesterday's rain mingles with accumulated dew, brine from the deepest accessible chambers where pressure concentrates ancient minerals, and most importantly, the mixed water from the boundary zones where air and sea meet.
+
+We work in silence, communicating through gestures refined over generations. She watches as I combine samples in specific proportions, creating what we call "memory water"—mixtures that replicate the exact conditions of significant past events. When I achieve the right combination, the bioluminescent coral responds, flashing in patterns that tell stories of what was and hint at what might be.
+
+The brittleness I tasted this morning reveals itself in the third mixture. The coral flares with an intensity I've seen only twice before—during the small earthquake forty years ago and before the great storm that reshaped our eastern terraces. But this is different, deeper. The water remembers something approaching from below, not above. A shifting in the mountain's roots, perhaps, or a change in the deep currents that have remained stable for centuries.
+
+I document everything in our traditional manner, using a bone stylus to inscribe symbols on sheets of processed kelp. The marks I make will dissolve in seawater but remain permanent in air—a perfect medium for knowledge that must exist between states. My apprentice memorizes each observation, adding her own sensory impressions to the collective memory we maintain.
+
+As the day progresses, I perform my other duties. A young mother brings her infant, concerned about a persistent cough. I listen to the child's breathing, then prepare a tincture of filtered water passed through specific coral formations known for their healing properties. An elderly mason consults me about unusual erosion patterns in the tenth terrace—I taste his water samples and detect an invasive algae that must be carefully removed before it weakens the stone.
+
+But my mind returns constantly to that brittle quality in the morning water. As afternoon fades, I make a decision that I've been avoiding for months. It's time to go deeper.
+
+The passage to the ancient observatory hasn't been attempted in five years. It lies twelve terraces below the current waterline, in chambers that knew air when my grandmother's grandmother was young. The pressure there tests even our adapted physiology, and the passages are treacherous—partially collapsed, entirely dark, home to creatures that have evolved in the eternal night.
+
+I prepare carefully. My apprentice helps me coat my skin with oil pressed from deep-sea plants, a protective layer that helps maintain body temperature and provides a small reserve of oxygen absorbed through the skin. I select five of my most sensitive pearls, securing them in a pouch at my throat. Most importantly, I enter the meditative state we call "water mind"—slowing my heartbeat, expanding my awareness, becoming less solid and more fluid.
+
+The descent is a journey through time. Each terrace tells its story through architecture and adaptation. The eleventh still shows traces of its life in air—doorways meant for walking, stairs now serving as channels for fish. The twelfth has begun its transformation, coral embracing stone in patterns of surprising beauty. By the thirteenth, human intention has fully surrendered to ocean will.
+
+The observatory, when I finally reach it, takes my breath—what little I have left. The domed chamber, once used to study stars, now opens to mysteries of a different kind. Shafts that once directed starlight now channel deep-sea currents, creating a slow spiral of water that has turned the room into a giant sensing instrument. At its center, untouched by coral or algae, stands the Depth Mirror—a disc of polished obsidian the size of a dining table.
+
+I have just enough breath to reach it, to place my sensing pearls on its surface, to feel what the deep waters are trying to tell us. The message is clear and terrifying and somehow exactly what I expected: the mountain is shifting. Not quickly—it will take decades, perhaps a century—but the underground channels that have fed our freshwater springs for millennia are realigning. The very foundations of Menau are preparing for transformation.
+
+The journey up is desperate, my lungs burning, black spots dancing in my vision. But I am Menauan—we do not panic in water. My body knows these passages, my hands find holds worn smooth by generations of Tide Readers before me. I surface in my chamber just as the last light fades, gasping, alive, burdened with knowledge that will reshape our future.
+
+My apprentice is waiting, her eyes wide with concern and curiosity. I cannot speak yet—my throat is raw from holding my breath—but I manage to inscribe a single symbol on the kelp paper: the glyph for deep change, the kind that comes not from above but below.
+
+Tomorrow, I will address the Tidal Council. I will tell them what the water remembers and what it predicts. We will begin the slow work of preparing for a change that most of us will not live to see completed. But tonight, I simply float in my chamber, feeling the tide recede, watching my cultivated coral pulse with bioluminescent life, existing in that space between prophecy and acceptance that defines my people.
+
+The water rises. The water falls. And in between, we Tide Readers listen to its whispers, translating the liquid language of time itself into something our floating city can understand. We are not trying to stop the change—that would be like trying to hold back the tide with our hands. We are simply trying to ensure that when the transformation comes, Menau will meet it with grace.
+
+I close my eyes and let the water hold me, feeling the vast weight of the ocean pressing in from all sides, knowing that I am both guardian and gardened, reader and read, a small consciousness in an endless sea that dreams of cities and swallows them whole.

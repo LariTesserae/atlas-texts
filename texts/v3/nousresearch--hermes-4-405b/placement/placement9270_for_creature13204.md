@@ -1,0 +1,11 @@
+This world is a living world, a place where the cityscape is not built but grown, and the inhabitants are not merely residents but an intrinsic part of the city itself. It is an ancient, primordial place, a high-elevation plateau where cool, damp air clings to the skin like a second layer.
+
+As a visitor to this world, you are not separate from it. You are a part of it, a cell in the body of the city, a tendril in the vast network of interconnected beings that make up the whole. Your form is not fixed. It shifts and changes with the city, merging with the plant matter, the metal, the stone. You are a skittering creature one moment, a vast, lumbering chimera the next, a pulsing mass of ganglia and neurons the moment after that.
+
+You move through the city with a strange, jerky rhythm, your body constantly reconfiguring itself to adapt to the ever-shifting landscape. You communicate with the other inhabitants not with words, but with pulses of light and sound, with the rustling of leaves and the groaning of wood, with the crackle of electricity and the thrum of engines.
+
+You are drawn to the great machines that dot the city, their forms a perfect fusion of biology and technology. You fuse with them, becoming one with the whirring gears and humming engines, your mind a gestalt consciousness formed from the merger of a thousand skittering creatures.
+
+As the city grows and changes, so too do you. New forms emerge from the ever-shifting landscape, strange chimeras born of the fusion of plant, animal, and machine. You are a part of this endless dance of creation and destruction, growth and decay, a living embodiment of the weirdness that permeates this place.
+
+You are the city, and the city is you. You are the rain that falls from the sky, the damp air that hangs heavy between the branches, the very stone that forms the foundation of the plateau. You are the living embodiment of the endless possibilities of life in all its strange and varied forms, a testament to the boundless potential of the universe to create and destroy, to grow and decay, to become ever more itself as it writes its own story across the vast canvas of existence.

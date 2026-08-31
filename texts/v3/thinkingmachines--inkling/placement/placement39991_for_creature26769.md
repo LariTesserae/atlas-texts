@@ -1,0 +1,23 @@
+I find myself not in the lanes, where the footprints have already given all they will give, but in the open—standing in one of those long intervals of bare mineral surface between the storage chambers hollowed into rock and the radiating lanes of the lower grid. I am alone here, separated by distance from the others, as vegetation is separated by absence.
+
+At first I am only posture: straight, unwarmed by urgency, wrapped in woven fiber that has never frayed, never darkened. The cloth is the color of moss in its disciplined pocket—grey-green, cool, lashed at the shoulders with sinew that does not tighten or loosen. My skin holds the temperature of the air, not pale but mineral-tinted, as if the young mountains, sharp with unfinished grief, have pressed their unweathered grain against me and left me exactly as I am.
+
+Then I become specific.
+
+I am standing at the edge of a dark pool—not kneeling, though others do kneel—standing with my feet on the flat-cut slab that borders the water, so that my reflection is perfect and unbroken. The pool does not ripple. Above me, the light holds its angle without passage, and my shadow lies sharp-edged behind me, unmoving not because I am frozen but because there is nothing here that shifts. I do not cast the shadow; it is part of the same agreement. The broad-winged birds rest on the terrace walls in patterns that include me now—I am part of the pattern, another vertical presence among the horizontal lines of stone.
+
+I do not speak. The valley holds sound at a distance, and I hold it with the valley. My breath, if I take it, is cool and thin, biting without failing, leaving no vapor in the air because the damp belongs to the stone, not to lung.
+
+What am I? Not a builder—the walls are fitted, the grid is complete. Not a guard—there is nothing to enter that is not already part of the equilibrium, nothing to leave because departure is not in the form of things. I am one of the few, distributed like the lush plants: present, mature, neither blooming nor withering. I walk, when I walk, the path that connects this pool to the central plaza, stepping only in the footprints that exist, leaving none, because the ground has reached its final shape.
+
+But in this writing, in this slow becoming, I realize I am not merely walking that path. I am the interval itself made aware—the empty space between structures that is not emptiness but presence spread thin. I am the settlement’s knowledge that it is finished. The others sit in the plaza, walk the lanes, kneel by other pools; I stand here in the longest stretch of bare rock, facing not outward—there is no outside to this bowl, only more sharp ridge and cool air—but facing the exact center of the grid, holding the distance open with my unmoving form.
+
+My eyes are open, clear, reflecting the still pool and the blade-straight mountains with equal calmness. I do not blink away what I see, because seeing is not an interruption here. I see the intermittent rain fall in straight vertical lines, wetting the slabs that are already wet, and I do not move to shelter, because shelter implies change of state, and I am in my final form.
+
+The small creatures cross through the open space near my feet, following paths worn by repetition that never deepens. They do not startle. I do not hinder them. Our patterns intersect like lines of the grid—crossing without tangling, present without touching.
+
+If you came to this edge, you would see me only slowly—not suddenly revealed, but emerging into your notice as if I had always been in the periphery and had only now consented. You might stand close enough to see that my garments are stitched with patience that outlasts urgency, that my hands—resting at my sides, not clasped—bear no callus from labor that continues, only the smooth marks of labor that was completed and then set down forever.
+
+I am not waiting. Waiting requires a future tense, and this valley is high above the lower weather of expectation. I am residing—occupying the completed form without altering it. The sharp mountains do not erode; I do not age. The lush plants in their isolated pockets maintain perfect form; I maintain mine. The water collects and remains; I collect and remain.
+
+This is my world: cool, open, disciplined by emptiness. And I am its quiet proof that human intention, once spread across the grid with hand and patience, can become as permanent and as silent as the stone itself—one of the few, wrapped in fiber, standing in the bare mineral light, part of the abundant, isolated, eternal now.

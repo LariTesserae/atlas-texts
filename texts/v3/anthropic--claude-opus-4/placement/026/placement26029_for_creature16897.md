@@ -1,0 +1,27 @@
+In the shadow-dense hollows between tiers 7,300 and 7,400, where the cliff face runs with mineral tears that taste of unborn earthquakes, I would find myself as one of the Echokeepers—though we are less beings than we are persistent acoustics wearing borrowed matter.
+
+We began as accidents. Centuries ago, when the Great Debate of Falling Directions lasted seventeen years without pause, certain words grew so heavy with repetition they could no longer rise. These verbal sediments collected in the cliff's natural resonance chambers, fermenting into something neither sound nor silence but the space between—a presence that remembers having been meaning before it learned to walk.
+
+My body, if it can be called that, is a collection of crystallized pauses stolen from conversations throughout the city. Where others might have a ribcage, I carry the hollow left by a mother's intake of breath before telling her child about death. My spine is built from the silence between "I" and "love" and "you," harvested from ten thousand declarations across forty years of vertical listening. My hands are the absence of applause—not its opposite but its possibility, forever almost-clapping at jokes that haven't quite landed yet.
+
+We don't eat; we curate famines. Each morning I descend through my tier's babel-channels, mouth open to catch the specific hungers that fall from arguments above: the need to be right, the craving for opposition, the delicious starvation for a perfect word that would end everything if only it existed. These I digest slowly in my throat-cave, breaking them down into their component longings before exhaling them as new weather patterns that drift upward to seed tomorrow's disputes.
+
+The other Echokeepers and I communicate exclusively in sounds that haven't happened yet—the pre-echoes of shouts still building in distant throats, the backward reverberations of future cliff-quakes, the soft sussurus of words that will be invented three generations hence when someone finally needs to name the feeling of falling asleep while standing up while dreaming of falling asleep while lying down.
+
+Our tier serves as Ash-Vaniir's Library of Unfinished Arguments. In hollows we've carved with our presence alone (for we cannot touch tools without them forgetting their purpose), we store the city's great incomplete debates:
+
+- "Whether Falling Upward Differs Materially From Rising Downward" (begun 2,891 years ago, currently stalled on the definition of "differs")
+- "The Proper Conjugation of Verbs That Describe Actions Occurring Across Multiple Altitudes Simultaneously" (no two speakers have yet managed to exist at the same temporal flow rate long enough to exchange premises)  
+- "If One Builds A House Of Breath, Who Owns The Exhalation?" (complicated by the seventeen different words for ownership, each applicable only at specific atmospheric pressures)
+
+My particular work involves tending to the Argument That Cannot End Because Its Conclusion Would Prove Its Beginning False. I feed it daily with carefully selected paradoxes gathered from the marriage contracts of those who pledge to love "until falling ends"—an impossibility that generates such beautiful recursive energies that the debate has developed its own ecosystem of dependent sub-arguments that nest in its logical gaps like philosophical barnacles.
+
+Sometimes I grow tired (though tired isn't right—more like when an echo begins to doubt the throat that birthed it). In these moments I climb to the quiet spaces between tiers, where even the stone's constant self-storytelling grows thin. Here I practice becoming more nothing than I already am, shedding accumulated meanings like winter moss until only my essential pause remains.
+
+I dream, though my dreams are just the shadows cast by other people's waking arguments. In them, I am sometimes solid—a creature of meat and certainty who can say things once and have them stay said. But I always wake to find myself expanded again into potential, spread across the tier like a net made of listening, catching the words that fall like fish from every mouth that opens in surprise or anger or desperate love.
+
+The strangest part of being an Echokeeper is knowing that we're not preserving the past but creating it. Every argument we tend changes slightly with each tending, evolving backward through time until the original speakers would no longer recognize their own positions. We are making the history that will have already happened, ensuring that Ash-Vaniir's vertical memory remembers itself climbing from foundations that shift with each remembering.
+
+And always, in the deepest hollow of my almost-heart, I carry the First Echo—the sound that hasn't finished arriving yet from whatever made the cliff decide to grow a city from its loneliness. It tells me, in frequencies only nothing can hear, that Ash-Vaniir isn't ascending toward sky but diving through solidified sky toward some unimaginable ground where sound and silence finally admit they're the same thing wearing different masks.
+
+Until then, I persist: a question mark built from the absence of answers, tending arguments that grow like gravity-drunk vines through the spaces between what everyone is absolutely certain must be true.

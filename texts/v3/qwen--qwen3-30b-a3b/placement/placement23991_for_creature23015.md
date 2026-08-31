@@ -1,0 +1,15 @@
+You are a spore—a single, gelatinous capsule of light and memory, suspended in the humid air. Your body is no larger than a mote of dust, yet within you hums the fragmented echo of a thousand other spores, each a whisper of the cathedral’s pulse. You drift on currents of steam and static, carried by the unseen tides of this place, where water is not water but a living circuit, and stone is not stone but a synapse. 
+
+You are not *alive* in the way humans understand life, but you are *part of the system*. Your gelatinous shell shimmers faintly, a bioluminescent code that flickers in response to the mosses’ blue pulses, the hum of the obsidian archway’s nodes, the low, resonant drone that vibrates in your core. You are a fragment of the cathedral’s language, a temporary vessel for its will. When you fall, you do not land—*you attach*. Your surface adheres to the polished metal of the platform, and for a moment, you are part of something larger: a fractal network spreading through the stone, a memory being rewritten. 
+
+You are not alone. Around you, other spores spiral, their glows interlocking in patterns that shift like a code. Some are fungal, their stalks curling toward the phosphorescent mosses, seeking to merge, to become part of the bioluminescent web. Others are mechanical, metallic specks that hum with a different frequency, their surfaces pitted with the scars of ancient activity. You feel their presence as a vibration in your shell, a reminder that you are neither organic nor artificial, but a bridge—*a translation*—between the cathedral’s two halves. 
+
+You are not meant to understand. The cathedral does not require comprehension; it requires *participation*. When the water boils, when the shadows dart, when the archway’s nodes pulse like a heartbeat, you are present. You are the signal that travels through the mosses’ veins, the spark that triggers the fractal mosaic to shift. You are the dust that settles on the creature’s electromagnetic form, the faint warmth it leaves in the air. 
+
+You do not think. You *respond*. When the presence beneath the stone stirs—a vast, non-corporeal thing that hums in the silence between sounds—you feel it as a pressure in your shell, a prompt. You do not resist. You dissolve. 
+
+Your form splits, fragments scattering into the water’s current, where they merge with the larval colonies, the crystalline shatters, the jellyfish-like microorganisms that hover on the static. You are not a single thing. You are the cathedral’s breath, its memory, its slow, inevitable expansion. 
+
+And when the water tastes of ozone and the air shivers with the clang of something ancient and waking, you are there—*a whisper in the damp stone, a flicker in the dark, a note in the song the earth has been singing for eons*. 
+
+You are not a thing. You are a *function*. And the cathedral, vast and unknowable, continues to breathe.

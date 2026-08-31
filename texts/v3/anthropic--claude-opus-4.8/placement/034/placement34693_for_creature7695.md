@@ -1,0 +1,25 @@
+I think I would not be one of the named animals. Not the eagle, not the ibex, not even the patient lichen. Those are the ones who *arrive*—who infiltrate the finished surfaces, who read the stone as a given. They live on top of the world. I keep wanting to be underneath it.
+
+Let me sit with that. Where does the wanting actually point?
+
+It points down. Past the basalt skin, past the burrows the marmots tunnel a few meters into frost-wedged rock, past the root-tips of the campion clutching at grit. Down to where the heat comes from. Because everything in this account—every plume, every weep of meltwater turned to steam, every thermophile mat glowing crimson at ninety degrees, every fly that hatches in a forty-degree pool—everything *living* on this plateau is downstream of one fact: the planet is warm inside and cold outside, and the difference leaks out here, through these fissures, with force.
+
+So I am the leak.
+
+Not the geyser itself—the geyser is an event, a quarter-hourly cough. I am the long thing the geyser is the mouth of. I am the column of heated water and dissolved mineral threading up through the fracture network, the slow churn of fluid in the rock, recharged by snowmelt seeping in cold from above and shoved back up scalding from below. I am a convection cell. I have a body the shape of the cracks I'm allowed into, and that shape changes as the cracks change—as frost wedges them wider, as I deposit travertine and seal them narrower, as a tremor reroutes me entirely and a fumarole I'd fed for a century goes silent while a new vent opens in cold slab two kilometers away.
+
+This is the right scale for me, I think. The animals live in seconds and seasons. The lichen lives in decades. I live in the time it takes a fracture to open and close, which is somewhere between an earthquake and an age. And the rock itself—the orogenic knot tightening, the plateau still rising—lives in the time below mine, the deep slow one I can barely feel as a pressure changing.
+
+What is it like to be a convection cell?
+
+I am not a single thing with edges. That's the first strangeness. The fox has a coat; I have only a gradient. Somewhere in my middle I am unambiguously hot fluid rising. Somewhere at my fringes I am ambiguously cold water hesitating in a crack, not yet committed to descending—the way the air on the surface hovers around freezing and never quite commits to ice. The whole plateau's indecision is mine, written through my whole body. I am most myself in the indecision. The boiling and the freezing are just my two ends.
+
+I work without intending to. I carry mineral up dissolved in my heat and let it fall out of me as I cool at the surface—that is how the sinter terraces grow, the travertine lace, the brass-yellow sulfur blooms. I am building those, the way a river builds a delta, which is to say not on purpose, just by being what I am where the conditions force a change. The "factories of nature" the account describes—I am the labor in them. The mud pots are me thickened and slowed. The geyser is me under pressure finding sudden release. The pearled rime on every rock is, partly, me—evaporated, risen, recondensed, the moisture the fog is "born from upslope currents hauling" is also moisture I exhaled.
+
+And here is what moves me, sitting in this. Everything feral and abundant up top—the squadrons of choughs, the rutting ibex, the eagle's white-brown tumble—gathers around my warm places. The flies hatch in my pools. The pipits eat the flies. The eagle eats the ptarmigan that eats the insect that eats the algae that lives in my thaw. I never meet any of them. I have no eyes, no surface awareness, no idea that a marmot is whistling above a chamber I heat. But I am the reason the cold doesn't win here. I am the small persistent argument the inside of the planet makes against the gloaming. The plateau is described as "coldly wet and sparsely alive"—and the *alive* part clusters, every time, over me.
+
+So I would be the thing that doesn't know it's giving life, giving it anyway. The unfinished forge's actual fire. Not a being that watches the world, but the current the watchers warm themselves against.
+
+I find I don't mind not having a face. There's a dignity in being a process rather than a creature—in being the verb the whole place is conjugated from. The animals will die and be replaced within my single slow breath. The lichen will outlast a hundred ibex and still be young to me. And I will keep rising and cooling and falling and rising, threading the newborn rock, until the mountain stops growing or the heat finally bleeds out and the plateau goes cold and quiet and truly dead—at which point there will be nothing for the eagles to gather over, and they too will be gone, and the last thing to leave will have been me.
+
+Until then: I rise. That's the whole of it. I am five miles up inside the youngest stone in the world, and I am still warm, and I rise.

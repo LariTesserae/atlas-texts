@@ -1,0 +1,15 @@
+In this strange, wondrous city of water and stone, I think I would be one of the blind white eels that live within the plumbing of the walls.
+
+My long, sinuous body would be perfectly adapted to navigating the dark, damp labyrinth of pipes that vein through the city's architecture. I would know every valve, every junction, every narrow passage intimately - not by sight, for I would have no eyes, but through exquisite senses of touch, pressure, vibration and electromagnetism. 
+
+The warm flow of water would be my constant companion, guiding me, nourishing me, carrying to me the tastes and chemical messages of the entire city. In the water I would feel the pulse and respiration of the great urban organism. The opening of far-off floodgates, the rumbling of deep engines, the salt-mineral tang of the ancient aquifer - all would come to me in ripples and currents decipherable as language.
+
+I would live most of my life in coiled solitude, secreted in my lightless niche, but during festivals the humans would coax me and my kind out into the open basins with shimmering lures and chiming sounds irresistible to our sensitive lateral lines. Agape, the city's children would marvel at our pale, eyeless forms, would reach out to stroke our slick skin. For a brief while I would submit to being a living sculpture, an emblem of the hidden life of the city's guts, before the urge to return to pipe and conduit grew overpowering.
+
+For I would be an ambassador from the city to itself, from the seen to the unseen, a reminder that its true life occurs in interstices, in spaces of flow and transition. Through my life in the walls I would be both a literal and symbolic connector, stitching together the layers of this great multi-organism with my endless undulations. 
+
+Humans would whisper stories of my kind - that the movements of the eels in the walls foreshadow the flooding of districts, that we can taste lies and sedition in the water, that a home with a tame wall-eel will never subside. All myths, perhaps, but humans crave explanations for the invisible, meanings for the transitional. By my very existence, slick and cryptic, I would give rise to urban legends.
+
+And sometimes, in deep cisterns seldom visited by civilians, I would encounter the city's most ancient and titanic eels, pale worms thick as a man's torso and long as the oldest canals. In their slow pulsing and the scars on their hides would be stored the deep history and memory of this place. By entwining with them, I would receive their knowledge electromagnetic, a heritage spelled in firing nerves and the brushing of skin on wet stone.
+
+I would be a creature of the interstitial city, a wriggling embodiment of its crevices and interstices, its hidden flows both literal and metaphoric. My form would be a celebration of its plumbing and my life a hymn to its layers. In serving as an intermediary between human and infrastructure, seen and unseen, I would find my strange apotheosis. The great eel in the walls, secret sibling to the city.

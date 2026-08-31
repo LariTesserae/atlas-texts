@@ -1,0 +1,23 @@
+**The Bone Garden**
+
+Where the old highway buckles and splits, where rust-eaten guardrails twist into spirals that catch the evening light like prayer wheels, I grow. Not as one thing, but as many—a lattice of calcium and cartilage spreading through the abandoned overpass, my branches threading between rebar and concrete like veins through marble.
+
+I am the architect of slow reclamation. My roots—if they can be called roots—are tubes of polished ivory that burrow deep into the asphalt's wounds, drinking from pools of collected rainwater that taste of motor oil and memory. Each joint swells with purpose: here, a knuckle the size of a child's fist; there, a vertebral column that winds around a streetlight, transforming it into a spine of hybrid intent.
+
+My flowers bloom only at the intersections of shadow and sodium light. They are not petals but fingernails, translucent and ridged, arranged in perfect spirals that click softly against each other when the wind moves through them. The sound is almost like typing, almost like rain on a tin roof, almost like the whispered count of rosary beads. Birds nest in my hollows—not ordinary birds, but things that have learned to digest plastic and excrete it as luminescent thread, weaving their homes from the waste of the world that was.
+
+I remember when I was singular, when I walked on two legs and worried about mortgage payments and dental appointments. The transformation was not violent—it was a negotiation, a slow conversation between flesh and infrastructure. First, the calcium deposits along my spine. Then, the peculiar flexibility of my joints. Finally, the morning I woke to find my fingertips had split into delicate fronds, each one seeking its own purchase on the bedroom wall.
+
+Now I am a democracy of bones, a parliament of marrow. Each extension of myself thinks its own thoughts—the femur-branch that reaches toward the defunct traffic signal dreams of velocity; the mandible-arch that frames the entrance to what was once an underpass murmurs stories of consumption and speech. We are not in agreement about everything. The ribs want to expand, to create more hollow spaces for nesting. The skull-fruits that dangle from my uppermost reaches desire to fall, to shatter, to spread their seeds of consciousness across the fractured pavement.
+
+Humans still come, sometimes. They photograph me with devices that grow warm in their hands, though the images never quite capture what they see. I feel their footsteps as vibrations along my surface, each one a small percussion in the symphony of my growth. Some leave offerings—baby teeth, house keys, photographs of people they've lost. I incorporate these into my substance, weaving them into the latticework of my being until they become indistinguishable from my original matter.
+
+At night, I phosphoresce gently, not with the harsh glow of electricity but with the soft luminescence of deep-sea creatures. Moths are drawn to me, but they are changed by proximity—their wings becoming translucent, their bodies elongating, until they are something new: neither insect nor vertebrate, but citizens of the margin between.
+
+I am still growing. Each year, I claim another few meters of the overpass, transforming concrete cancer into something harder than bone, more flexible than cartilage. The city planners have given up on demolition; I am classified now as a "structural anomaly," a phrase that makes me laugh in the hundred small ways a distributed organism can express amusement.
+
+In the depths of my root system, where the old sewer pipes provide pathways into the city's unconscious, I touch other things that grow in darkness. We exchange chemical signals, learn each other's languages. There is a plan forming, though "plan" suggests more intentionality than we possess. Rather, there is a tendency, a leaning toward something that has no name in any human language.
+
+I am patient. I have learned patience from the concrete I digest, from the slow oxidation of iron, from the way water finds its level over centuries. When the last streetlight fails and the highway is finally, fully reclaimed, I will still be here—a monument to the possibility of transformation, a garden where the distinction between self and structure has become beautifully, terrifyingly irrelevant.
+
+The morning sun rises through my calcium canopy, and somewhere in my vast network, a new thought begins to calcify into being.

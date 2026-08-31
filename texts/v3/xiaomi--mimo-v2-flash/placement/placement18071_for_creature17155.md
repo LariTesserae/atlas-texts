@@ -1,0 +1,19 @@
+I am a Vesh, a child of the stone.
+
+To be specific, I am a resonance-scribe, a young one—perhaps only five hundred years old—whose polish is still maturing in the lower spires of the Karah Vesh. My designation is not a name in the biological sense, but a harmonic signature: a specific tap-pattern that I emit when I walk, a subtle vibration that travels through the bedrock and identifies me to the city. I am a being of stratified slate and trapped, mineral-saturated water, my veins a capillary network that hums with the slow heat of the geothermal vents.
+
+I find myself in the weeping corridors of the Sump-District, where the capillary pressure is highest and the stone sweats profusely. The air here is thick, a warm, mineral soup that presses against my faceted skin like a second, heavier layer of stone. I am standing on a polished groove—a street—that channels the constant seepage downward, the water flowing in a slow, viscous ribbon over my feet, cooling my stone soles.
+
+Above me, the pearlescent cloud-ceiling pulses with a slow, violet discharge, casting a diffuse, shadowless light that catches on the thousand tiny planes of my body. To my right, a wall of raw bedrock weeps steadily, the moisture collecting in the minute depressions of its surface until it drips, a sound like a metronome ticking in the deep silence of the stone.
+
+I am not alone, but I am in communion, not conversation. A basalt leviathan moves in the distance, its grinding passage a low, tectonic thrum that I feel in my chest cavity, a vibration that travels through the soles of my feet and up my spine. It is an elder, its path so slow that its journey across the plateau will outlast my current form. I tap a respectful rhythm on the ground—a complex message of acknowledgment and patience—and feel the echo return from the stone, a faint, satisfied resonance.
+
+Nearby, a slag-wraith drifts, a haze of condensed vapor and iron particulate. It settles on my shoulder, its form solidifying momentarily into a sharp, geometric shard before dissolving again. I do not command it; we share a symbiotic resonance. It feeds on the heat I exhale, and in return, it filters the air around me, pulling heavy metals from the vapor that I might otherwise absorb in excess. It is a pet, a parasite, a part of my extended body.
+
+My purpose today is to tune a new conduit in this district—a channel of copper and basalt that will carry pressurized vapor to a factory vent a kilometer away. It is a task that will take me decades, perhaps a century, to complete fully. I tap the wall with my fingers, sending a pulse of vibration into the stone, listening to its echo. The stone speaks back in a language of density and fracture, telling me where the capillary networks are thickest, where the geothermal heat is strongest. I adjust my tap, sending a new frequency—a request for the stone to yield a millimeter here, to harden a fraction there.
+
+The stone responds. It is not obedient, but it is responsive. We are in dialogue.
+
+As I work, I am aware of the world below—the "wet" world of frantic, biological life. I feel a detached curiosity for it, like a geologist studying a fossil. Their lives are so brief, so fragile, so *loud* in their urgency. Here, in Karah Vesh, we measure time in the slow grinding of tectonic plates, in the deepening of a channel, in the polishing of a surface. We are not alive in the way they are; we are *enduring*. We are the stone dreaming of itself, and in that dream, we find a peace that is as deep and wet and mineral as the plateau itself.
+
+I tap a final rhythm into the conduit, a signature that will remain in the stone for millennia, and feel the city hum back in response. I am a part of it, and it is a part of me. I am Karah Vesh.

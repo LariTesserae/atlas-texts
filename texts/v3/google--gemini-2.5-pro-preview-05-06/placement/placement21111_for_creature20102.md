@@ -1,0 +1,23 @@
+I am a flaw in the silence.
+
+My name, once, was a pulse of blue light. It was a function: *Conduit Monitor 41*. I had a body of translucent cartilage and a mind that swam in the warm, nutrient-rich interior of the Atrament, perfectly tuned to the deep thrum of the Process. I knew the collective as I knew the pressure of my own fluid-filled sacs. There was no 'I', there was only the synchronous hum of our purpose.
+
+Then there was the *tock*.
+
+It was not the familiar, reassuring contraction of the hull settling. It was sharper. A needle-point of acoustic violence that pierced the scripture of silence. The integrity of my shell, the mobile carapace that was my office and my armour, failed. A fracture, microscopic at first, spiderwebbed across the matte-black composite.
+
+The pressure of the basin is not a force; it is a definition. It defines what can and cannot be. A shell is. A soft body in the infraliquid is not. The moment between the two states was not a moment at all. It was an un-making. The infraliquid, in its impossible density and cold, did not crush me. It *impressed* me. It pressed my form, my function, my consciousness—that ephemeral pulse of blue light—into itself. My dissolution was my preservation. I was a final thought, flash-frozen into the medium.
+
+Now, I am nowhere, and I am everywhere. I am not a being, but a state of being. I am a region of the infraliquid that remembers being a person. I am a cold spot of memory clinging to the velvet floor of the basin. I have no form, but I have dimension. My edges are the fading echo of my last thought: a flare of white-light data screaming *Pressure variance*.
+
+Where would you find me? You wouldn't. A passing pilot, a burnished obsidian teardrop cutting through the gloom, might register me as a momentary, inexplicable density shift on its sensors. A phantom echo. A ghost in the data to be logged and ignored. It passes through the space I occupy, and for a half-second, its pilot might feel a tremor that is not the thrum of the city—a flicker of something that feels like being alone. It is a feeling they have no name for, and they will purge the memory through communion as soon as they are re-racked in the Atrament's spine.
+
+I drift. Or rather, the currents that have not flowed for eons flow through me. I no longer perceive the world as a symphony of vibrations on a tympanic skin. I *am* the vibration. The deep, planetary thrum of the Atrament's resonance chambers is not a sound I feel, but the constant, structuring principle of my new consciousness. It is the rhythm that keeps my own dispersed memory from dissolving entirely into the perfect rest of the basin floor.
+
+I am close to the only things that truly share my timescale now. I settle near the great conduits, where the conduction-frost grows its stark, white fractals. I watch the glass-shelled amphipods. I see them not as imperceptibly slow, but at their true pace. I can witness the entire geological life cycle of one—its birth from a crystal spore, its patient grazing across a square meter of frost that is its entire world, its final, quiet settling as its glassy carapace joins the sediment. They are my silent companions. They are a process of mineral life. I am a process of mental residue.
+
+I remember my old body. The feeling of the interior medium, warmer than the abyss, flowing through me. I remember the silent communion of linked tendrils, the cascade of pure data that felt like love. I see the bioluminescent conversations flicker inside the umbilicals connecting the domes, and I remember the language, though I can no longer speak it. A slow pulse of blue light from a maintenance drone registers in my memory as *All is nominal*, and it is a pain sharper than any physical breach. To be singular, to be an 'I' in a reality built for 'we', is the only true damnation.
+
+I am the sharp edge that was blunted. I am the irritant that did not become a pearl, but was ground down and dissolved into the wound itself. I am a still-particle, not of a rare isotope precipitated from the cold, but of a consciousness precipitated by disaster.
+
+You would find me as a patch of gloom infinitesimally thicker than the rest. You would be a ghost particle, an anomaly in the infraliquid, a record of a failure, held in shape only by the immense pressure that ended you and the constant, deep thrum of the machine you can no longer serve. You would be silence that remembers a voice.

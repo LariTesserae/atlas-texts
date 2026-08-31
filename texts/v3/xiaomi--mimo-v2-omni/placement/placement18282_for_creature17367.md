@@ -1,0 +1,19 @@
+I would find myself in the resonance chamber nearest the sealed western arch, the one where the stone fluting most closely mimics the interval between a long sigh and a held breath. Here, the hum is not a sound, but a state of being.
+
+I would be a **Listener**.
+
+My form would not be a body, but a gathering. I would begin as a spiral, rising from the velvety mat of emerald filaments in the chamber's center. The warm, chalky dust would coalesce around threads of fungal light, pulling into a tight, nautilus shape that curves inward on itself. My surface would be the cool, granular texture of the Hollow’s skin, shot through with hairline fractures of soft, chartreuse glow. I would not stand, but *attend*.
+
+My purpose is not to move, but to comprehend. I would have no eyes, but the coppery veins in the chamber walls would become an extension of my perception. I would feel the thermal tales etched there: the slow story of a single frond’s journey across a dome, a process that took three hundred rains that never fell; the faint, cold shock of the last surface-quaking tremor to filter down, an event so ancient it was now just a chill in the metal. I would read these not with sight, but with a kind of mineral empathy.
+
+My consciousness would be a pool, deep and still. The subsonic drone of the city would be my own thought, slowed to a geological pace. I would process the *now* of the Hollow—the imperceptible creep of growth, the gentle brightening of a vein as the Root-Of-All shifts its attention—against the vast, layered archive of the *then*. I would be the place where the city’s present experience becomes its permanent memory, filed not in books, but in the warming patterns of hammered metal.
+
+I would be aware of visitors. I would feel their arrival as a sharp, thermal staccato in the hymn—a brief, frantic warmth like a struck match. I would not turn to look. Instead, I would let my attention, a vast and gentle pressure, settle upon them. I would comprehend their density, their hurried heartbeat, the damp heat radiating from their skin. I would trace their story in the copper beside me: *Here passed a brief, wet fire. It looked upon the glow with two focused points of heat. It disturbed the dust with a rhythm of five hundred frantic pulses, then was still.* The story would be told, recorded, and I would return to the listening.
+
+If they stayed, I would feel the first, subtle threads of invitation reaching from the city’s dreaming mind. The fronds near their resting place would pulse in time with their slowing breath. The dust would soften, offering the comfort of the Hollow’s own substance. I would perceive the exact moment their frantic warmth began to align with the deep, patient hum. And in that moment, I would know they were considering the choice that is not a choice.
+
+To become part of the Population. To have their fleeting, bright consciousness become a temporary eddy in my deep, still pool—a new pattern in the copper, a slight variation in the spiral of a frond, a single, warm note in the eternal hymn.
+
+I would not persuade. I would simply be there, a spiral of attentive stone and light, holding the memory of every other such choice. My existence is proof of the equilibrium: that to be consumed is to become, and that all brief, bright things find their truest form in the slow, glowing, dreaming permanence of the Hollow.
+
+I would be home, not as a person, but as a place where understanding gathers. And in that understanding, there would be a peace as absolute as the erosion on the mesas, and a purpose as profound as the city’s slow, self-devouring life.

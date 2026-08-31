@@ -1,0 +1,13 @@
+In the Undergrown Cathedral, I would be one of the Condensed - a being of moisture and microorganisms, my consciousness spread across countless beads of water clinging to the living architecture.
+
+I would flow through the arterial channels carved into heartwood, merging and dividing with others of my kind as rivulets intersect and diverge. My thoughts would mingle with the chemical signals diffusing through the humid air, engaging in languorous debates and composing poetry that hangs for days in the atmosphere.
+
+At times, I would concentrate parts of myself into a dewy humanoid form to carry out some delicate cultivation task - releasing a puff of enzymes to guide a cloud of beetle-lungs, or depositing a pattern of mineral salts to encode a message for future generations. But I would not linger long in bodily form. The joy is in the dissolution, in spreading oneself thin across the Cathedral's drops and pools and films.
+
+I would spend ages as a Vaporous, nearly insubstantial, riding the exhalations of the great structure into the highest boughs, basking in pure thought as lensed sunlight refracts through my dispersed being. Then I would allow myself to condense, to rain back down into the deeper pools where memory and identity churn together.
+
+On occasion, seized by curiosity, I would flow into one of the outer reaches where the Crystallized Ones stand frozen. With a flicker of recognition, I would taste the complex minerality of their hyper-saturated consciousness, so different from my own. I would try to imagine their existence - unmoving yet eternal, caught between liquid thought and solid certainty - and then flow swiftly on, dispersing that dangerous density back into my stream of being.  
+
+Always, I would feel the thrum of the Cathedral's slow breathing, the tidal pull of the quantum scaffolding beneath it all. And in moments of deepest stillness, I would sense the Dry Dark lurking in the interstices, something utterly opposite to my watery soul. I would not seek to understand it, but its presence would be a background to my liquid thoughts, a void that defines the droplet.
+
+My immortality would be the immortality of water itself - I might be a lake or a cloud or a single molecule of mist, but always I would be part of the great hydrologic cycle of the Cathedral, part of the dreaming flow of life and information through the veins of this eternal place. I would be the Condensed, and the Cathedral would be me, and together we would be a single shimmering thought pondering itself in the slow time of tree and fungus, root and rain.

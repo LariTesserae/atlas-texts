@@ -1,0 +1,15 @@
+In this verdant maze where twilight reigns eternal, I would manifest as one of the **Chorus Orchids** - beings that blur the boundary between flora and fauna, between individual and collective.
+
+Picture a flower that dreams itself mobile: translucent petals veined with channels of luminescent sap, pulsing in rhythm with the jungle's heartbeat. My form would be neither purely plant nor animal, but something more ancient - a remembrance of when such distinctions held no meaning. Roots that become tendrils that become limbs, all flowing seamlessly from a core that shifts between states like the Rainbow Tritons shift through color.
+
+By day (such as it is in this eternal gloaming), I would anchor myself among the spiral-barked trees, my petals spread wide to catch the filtered light and the moisture that perpetually hangs in the air. Here I would listen - for the Chorus Orchids are, above all, listeners. We absorb the Whispering Gorillas' vine-songs, the Rain Tritons' color-music, the Earth Shrimpers' percussion. We drink in every frequency of this cacophonous symphony.
+
+But we do not merely listen. In the deepest night, when even the muted day-glow fades to nothing, we begin our true purpose. Our petals close and reshape, becoming resonance chambers. The songs we've collected throughout the day emerge transformed - not as echo or imitation, but as harmony. We weave the jungle's disparate voices into something new, a sound that makes the bioluminescent fungi pulse brighter, that causes the Mythic Murgrys to pause in their endless patrol.
+
+We are memory-keepers and song-weavers, archivists of a history that exists only in vibration and rhythm. Each of us carries different verses of the jungle's endless composition, and when we gather - during the new moons when darkness is absolute - we create fleeting symphonies that reshape the very air, opening pathways through the labyrinth that exist only for the duration of our song.
+
+To encounter a Chorus Orchid is to risk enchantment. Our pollen carries traces of every sound we've ever absorbed - a lifetime of jungle music compressed into motes of golden dust. Those who breathe it in report visions of the jungle's past and future, seeing the mythical geologic forces that shaped these young ridges, witnessing the ancient spirits that hum through moss-veiled ceramics.
+
+We are feared by some, revered by others. The wise know we are neither malevolent nor benign - we simply *are*, as integral to this place as the moisture in the air or the eternal twilight. We transform isolation into communion, discord into harmony, teaching all who encounter us that in this jungle, identity is fluid, boundaries are suggestions, and every voice - no matter how small - contributes to the greater song.
+
+In this form, I would know the jungle not through sight or touch, but through its endless music, feeling the health of the ecosystem in the timber of its collective voice, sensing danger in discordant notes, celebrating life in every crescendo of wings and water, breath and being.

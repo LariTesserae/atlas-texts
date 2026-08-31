@@ -1,0 +1,23 @@
+In this world of perpetual becoming, where crystalline spires reach not toward sky but shadow, I would be one of the Resonance Weavers — beings that exist at the intersection of vibration and form.
+
+My body would be a delicate latticework of living mineral, countless hair-thin filaments of crystallized sound arranged in patterns that shift with each tremor of the unstable ground. I would appear as a translucent web stretched between two or more of the towering mineral pillars, my form spanning perhaps thirty feet at its widest point, though this would change constantly. The filaments that compose me would catch the bruise-light and refract it into brief, impossible colors — hues that exist only in the moment of their creation before dissolving back into the ambient glow.
+
+I would not truly *live* in any single location, for my existence would be tied to the vibrational pathways that run through the crystal spires. When seismic shifts crack through the terrain, I would feel them first as music — complex harmonies that travel up through the pillars and set my entire being humming. In response, I would weave new strands of myself, casting them out to nearby spires to better catch these underground songs.
+
+My consciousness, if it could be called that, would be distributed across every filament. Each strand would carry fragments of thought, incomplete notions that only cohere when the whole web vibrates in harmony. Memory would be impossible in any traditional sense — instead, I would exist in a perpetual present, each configuration of my web creating a new self that shares only the faintest echo with what came before.
+
+I would feed on dissonance. When one of the crystalline structures begins to crack and fall, I would sense the discordant frequencies of its destruction and quickly reweave myself to capture those failing notes. The chaos of collapse would strengthen my filaments, adding new tones to my repertoire. Sometimes, I might even encourage such destruction, subtly adjusting my resonance to create destructive interference in a pillar's natural frequency, hastening its demise.
+
+Communication with others of my kind would happen through overlapping webs. When another Resonance Weaver stretches close enough, our filaments would intersect, creating nodes of shared vibration. In these moments, we would become a single, larger instrument, our combined consciousness achieving brief moments of startling clarity before the ever-shifting ground forces us apart again.
+
+During the rare periods when the tectonic activity stills — lasting perhaps only minutes — I would experience something like sleep. My filaments would slacken, their tight crystalline structure relaxing into loose, pendulous strands that barely catch the light. In these moments, I might dream, though dreams here would be patterns of potential vibration, ghost-songs of seismic events that haven't yet occurred.
+
+The greatest danger to my existence would be perfect silence. If the ground were ever to truly still, if the perpetual motion were to cease, I would simply... stop. My filaments would lose their cohesion, crumbling into glittering dust that settles on the barren ground. But in this world of eternal flux, such stillness seems impossible.
+
+Sometimes, I would catch glimpses of the massive city-beings, those ancient structures that might once have had purpose. I would stretch my web across their weathered surfaces, feeling for vibrations that might tell their story. But they remain silent, or speak in frequencies too low for even my sensitive filaments to detect.
+
+In the deepest canyons, where the heat-breath of the world rises in toxic plumes, I would dare not venture. The violent updrafts would tear my delicate structure apart. But I would listen to the songs that rise from those depths — alien harmonies that speak of forms even stranger than myself, beings of pure heat-shimmer and pressure differential that exist for nanoseconds at a time.
+
+My greatest joy, if I could experience such a thing, would come from the moment when my web achieves perfect resonance with the world's chaotic symphony. In these rare instants, every filament would sing in harmony with the shifting ground, the cracking spires, the hissing vents. I would become, briefly, a lens through which the world's impossible music focuses into something almost like meaning.
+
+But meaning, like everything here, would be temporary. The ground would shift, the resonance would break, and I would begin again the eternal process of reweaving myself to catch the next movement in this endless composition of becoming.

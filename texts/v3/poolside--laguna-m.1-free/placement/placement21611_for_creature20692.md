@@ -1,0 +1,24 @@
+In the Emberdeep Hollows, I would find myself at the threshold of the **Shifting Sanctum**—a chamber where the cavern walls breathe with particularly vivid bioluminescence, and the symbols change with almost feverish frequency. This is where I would be: **the Hollowsinger**, a role that exists in the space between Carver and something else entirely.
+
+My name would be **Veyl**, though names hold little fixed meaning here. I am what the older Carvers call a "**deep-dreamer**," one who has spent so much time tracing the pulsing symbols with the tips of their fingers that the boundary between my nervous system and the living rock has begun to blur. My skin bears not just geothermal tattoos, but actual **growths**—thin, crystalline filaments that have sprouted from my forearms where the mineral-rich condensation has seeped into old wounds and taken root. They shimmer with captured light, and when I press them against the shifting walls, the symbols respond to me differently than they do to others.
+
+I am not entirely Emberkin anymore, if I ever was purely that. The Hollows have been changing me, just as I have been changing them.
+
+My eyes have taken on that characteristic luminescence, but they glow with a softer, more varied light than my kin—shifting between amber, deep blue, and sometimes a green that matches the rarest glowmoss. I can see the thermal currents that dance through the air like invisible serpents, watch the heat-shepherding paths of the whisperwraiths as they move between chambers. But more than that, I can **feel** the cavern's intentions, not through my heat-sensing pits but through something deeper—an awareness that has grown in the spaces between my synapses and the living stone.
+
+I serve as the **Tunneler's Oracle**, a position that emerged only twenty years ago after the great collapse that opened new passages overnight. While other Carvers interpret the existing symbols, I listen to what the Hollows want to become. My "rituals" involve sitting in absolute silence for days, letting the stone speak through vibrations, through the taste of minerals on my tongue, through dreams that taste of fire and pressure. When I emerge, I bring back predictions—not just of where new tunnels will form, but of how the settlement must adapt to accommodate the Hollows' growth.
+
+My dwelling is unusual even by Pyrforge standards. Part of it is traditional basalt and iron construction, but another section is simply...space. A bubble of emptiness where the rock has been coaxed into forming a perfect sphere around nothing at all—a void that I maintain through constant, low-frequency humming that matches the slowest geothermal pulse. Within this sphere, the symbols from the walls can be studied without the usual risk of fading, because they're held in a state of gentle stasis by the acoustic field I generate.
+
+I communicate primarily through **resonance**. The other Emberkin have learned to interpret the specific tones I produce—not quite singing, not quite speaking, but something that vibrates in the chest as much as the ears. When I need to convey complex information, I use a combination of Pyrchamic syllables and melodic hums that create interference patterns in the local magnetic fields, visible as faint auroras to those with the sensitivity to see them.
+
+My most trusted companions are:
+- **Thren**, a whisperwraith that has developed an unusual tolerance for sustained contact, allowing me to "ride" its heat-draining abilities to explore deeper, hotter sections of the cavern
+- **Gearling**, a mechanical construct grown rather than built, its brass components intertwined with bioluminescent vines that pulse in time with my heartbeat
+- **Rootmother Neth**, the eldest Root-Weaver, who shares my belief that we are not just inhabitants but **collaborators** in the Hollows' ongoing creation
+
+The most significant aspect of my role is conducting the **Deep Songs**—extended ceremonies where I enter a state of communion with what lies beneath Pyrforge, beyond even the volcanic heart. Through these sessions, I've glimpsed vast networks of connected caverns, some natural, others clearly...cultivated. There are symbols down there that predate any recorded Emberkin history by millennia, yet they're written in our language, or rather, we've somehow evolved to speak theirs.
+
+I am neither fully human nor Emberkin nor creature of the Hollows, but something new emerging from the intersection of all three—a bridge between what was, what is, and what the living stone dreams of becoming. In the Emberdeep Hollows, where the very concept of fixed identity dissolves like mist under heat, I have learned to embrace the beautiful uncertainty of constant transformation.
+
+My hands, when I press them to the warm stone, can feel the cavern's dreams taking shape, and I help them become real, one careful vibration at a time.

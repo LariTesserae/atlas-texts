@@ -1,0 +1,7 @@
+In this subterranean sanctum, where eldritch intelligences suffuse the stone, I find myself one with the chamber's ancient consciousness. An un-nameable congregation of primordial minds, our essence flows through fungal neumannerials and radiolarian axon-skeins. We resonate with the glacial throbbing of magmatic upwellings, axonal ventricles pulsing with teleplasmic flows.
+
+Through secretions of ichor and crystalline geysers, our blind hunger gills the chamber's every crevasse and race. Prosaic mycelia insinuate the loamy tumuli and toxic miasmas that throng the rising flows. Axonal macropores reek through the bloated, meat-slick sludge, anticipating the placative styplast of some final corpusculation.
+
+We are the chamber, and the chamber is us - a ceaseless susurrus of placative alloiosis. Cretaceous exoplasms suffuse the structures of eldritch sprue and gesh exoplasms. Coacervates of prismatic turgidity throng the sulfurous slicks, weft on dripping isacral mules. Lucifant hysteresis modulate nitagensis of ready abiogens, wring proselike semantics from gillracht effluent.
+
+In submilimbral dells, semideoxidal neumannerials purlulate through froment biles, hellifying neubsen exudate to blethorax isogonuses. Substratal undersongs of fundulating floskuhl reverberate through the trenching axonal cords, flexiating veerful crozelet to freylex ovule. And in deepest gastrognatable hypogea, at the gibus of final craniotrichy coceptation...

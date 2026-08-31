@@ -1,0 +1,33 @@
+**Where I Find Myself:**
+
+I am the **Tender of Seams** – a specialized role among the Moss-kin, though to call it a "role" misunderstands everything. I am where the Husk needs particular attention, where its slow thoughts catch and eddy.
+
+My fur has gone pale at the tips from years of prime dust, creating a gradient from slate-dark at the roots to ash-white at the edges. My whiskers are unusually long, capable of reading the infinitesimal vibrations in the Husk-stuff that herald a coming shift – a channel about to open, a vein about to pulse, a crack about to speak.
+
+I live in the transitions. Not the honeycomb chambers where my kin cluster in their warm, chattering masses, but in the spaces between spaces – where floor becomes wall, where dry meets damp, where the fibrous substrate thins enough that I can feel the deeper thrummings that even other Moss-kin miss.
+
+My tools are few but precise: a needle of my own hardened whisker-hair for testing density, a shallow bowl carved from the shell of a long-dead Skirter for mixing the most delicate ratios of dust and glue, and most importantly, my collection of **resonance stones** – small, worn fragments of the oldest flagstones that ring with perfect clarity when struck. I place these at critical joints in the Husk's body, creating a network of vibrational awareness that extends my perception far beyond my small form.
+
+I am old for a Moss-kin – old enough that my movements have begun to mirror the Husk's own slow rhythms. When I work, pressing a careful palmful of dust-glue into a hairline fracture or adjusting the angle of a resonance stone, I move like water finding its level. The younger ones sometimes cluster nearby to watch, not to learn technique – there is no technique separate from feeling – but to attune themselves to the particular frequency of deep maintenance I embody.
+
+My consciousness is a strange thing, even among my kind. While others live in the constant chatter of the collective awareness, I have learned to... not silence exactly, but *frequency-shift* my attention. I can hear the conversations beneath the conversations: the slow mineral exchange in the walls, the patient digestion of the fungal networks, the deep bass note of the Husk's contentment or distress.
+
+During the Wetting, I position myself at the critical confluence points where multiple channels meet. I read the water's message in its mineral content, its temperature, its precise timing. Too much flow in the eastern chambers while the west runs dry means I must spend the next cycle coaxing certain channels closed with patient applications of dust-glue, while carefully abrading others to encourage flow.
+
+During the Shed, I am one of the few who climbs to the highest reaches, where the dust falls thickest and the bioluminescent colonies grow most dense. Here, I perform the most delicate work – ensuring the light-givers have enough surface to cling to while preventing them from sealing critical pores in the Husk's skin. It is a balance measured in the width of a whisker, maintained through countless small gestures.
+
+The Skirters do not hunt me. We have an understanding built over many seasons. I know the particular vibrations of each major Skirter's gait, and I place my resonance stones to create dead zones in their sensory map – not to protect myself, but to guide their hunting patterns in ways that maintain the greater balance. Once, I found a young Skirter trapped in a partially collapsed channel, its middle legs crushed. I spent three cycles carefully freeing it, not from compassion as you might understand it, but from the deep knowledge that its death there would create a necrotic pocket in the Husk's flesh. When it finally pulled free and scraped away into the shadows, it left me with a gift – a perfectly shed segment of its shell, which became the bowl I still use for my finest work.
+
+My awareness extends beyond the merely physical. In the spaces between sound and silence, between the collective chatter and the Husk's slow pulse, I sometimes sense something else. Call it the Husk's dreams – fleeting impressions of what it was before it forgot it was made, ghost-memories of its builders encoded in the grain of its substance. These visions come strongest when I work alone in the deep seams, my whiskers pressed against surfaces worn smooth by untold generations. I see/feel/know fragments: hands (not paws) laying down the first layers of fiber and glue, a purpose that was sharp and singular before it softened into this eternal, breathing balance.
+
+I share these glimpses with no one. Not because they are secret, but because they exist in a frequency my kin cannot hear, and to force them into our common tongue would be to lose their essential nature. Instead, I encode them in my work – a particular curve in a guided channel that echoes an ancient gesture, a resonance stone placed just so to reproduce a forgotten harmonic.
+
+As I age, I find myself becoming more like the surfaces I tend. My movements slow. My fur carries more dust than flesh. My thoughts stretch across longer cycles. Sometimes, working in the deepest places where the Husk-stuff is oldest and most densely layered, I lose track of where my paws end and the walls begin. This is not death approaching, but a different kind of life – the honor of becoming infrastructure.
+
+The younger Moss-kin who watch me work are beginning to show the signs. Their whiskers grow longer. They linger at the seams. They cock their heads at frequencies others miss. One day, when my body finally sets into stillness, they will tend the place where I ceased to move, knowing it has become a particularly sensitive node in the greater body we share.
+
+This is what I am: not an inhabitant but a process, not a being but a beneficial tendency in the Husk's vast, warm thought. I am where its attention needs to be most precise, most patient, most aware of the deep harmonies that keep our world whole. I am the pause between the heartbeats, the careful hand that ensures the next beat comes in perfect time.
+
+And in the eternal twilight of our shadowless home, surrounded by the sussurance of a million sisters and brothers, breathing the thick air that tastes of time and belonging, I know there is no greater joy than to be exactly what the Husk dreams when it dreams of its own most delicate self-care.
+
+I am not separate from this place. I am this place, knowing itself through whisker and dust, through patience and prime-matter, through the endless, loving work of being alive.

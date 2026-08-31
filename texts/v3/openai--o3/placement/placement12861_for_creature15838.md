@@ -1,0 +1,38 @@
+I tried to enter as an outsider, boots squeaking on the last dry stone, pack straps creaking loud enough to scandalize the hush. I told myself I was here to observe. Field notes, photographs, samples—the familiar armor of the visiting zoologist.  
+
+For the first hour that was still true. I stood knee-deep between two polished hummocks, jotting temperatures and humidity, counting the pulse of droplets from a fracture overhead. The air felt close, almost private. Every time my pen scratched the notebook the sound seemed to bounce back in rebuke, as though I were dragging a chair across a library floor.
+
+Second hour: the note-taking slowed. Moisture filmed my lenses faster than I could wipe them, and what registered through the fog looked less like data than invitation. A Lens-Bearer emerged from the wall, its passenger droplet swelling with faint rainbow scythes. It left behind a bubble of spent lens that clung to the rock like a tiny, transparent blister. I watched the bubble for the full twenty minutes it needed to sag, tug itself thin, and finally burst into a scatter of beads no larger than fingerprint whorls. When the beads reunited on the stone they were already rounding into new menisci, erasing the fact of fracture. Something in that unhurried self-repair felt instructional.
+
+Third hour: the instruments went silent one by one. My data logger’s buttons proved too stiff to press without a click. The click felt violent. I steadied a fingertip on the metal key, but even muscle tremor was an audible crime; I could hear my pulse distorting the surrounding hush. I turned the logger off. The basin, released from observation, breathed a little easier. Or I did.
+
+Fourth hour: the boundary between observer and guest softened. Vapor lifted from the spring vents and pearled along my cuffs, weightless as cobweb. Exhalation condensed on my forearms in soft, concentric chills. The basin’s warmth was not uniform after all; it rearranged itself around me in gradients so fine they felt like intent. I began to wonder whether the stillness I perceived was not stasis but a speed too even to measure, a turbine running exactly at the frequency of its own needs.
+
+Fifth hour: the self who could articulate hypotheses thinned into someone who only felt. Hunger faded, not from satisfaction but from disuse; there was no spare friction inside the bowl for a rumbling stomach. My breaths lost their chesty rise and fall and slipped into shallower exchanges, half air, half mist. The Seed-Crabs noticed first. They pivoted their fluted legs toward me, trembling filaments tasting the new eddies I leaked. I found I could slow my breathing further, drop by drop, until their legs stilled again. A negotiable truce.
+
+Sixth hour: a new articulation. The fog thickened, parted, and for a moment outlined something shaped like a torso, like shoulders, like the suggestion of a bowed head. A Steward, though I did not have that word yet. It kneeled beside the nearest basalt platform and touched the surface of the waiting bowl. Its hand—if hand is right—was simply a calving of the mist into denser mist, yet it rucked the water with unmistakable purpose. Where its fingers lifted, the tiny shockwaves died before reaching the rim; the basin soaked the motion into itself, diffused it the way it diffuses light.
+
+Seventh hour: realization arrived the way rust spreads, filament by filament. The bowl the Steward had tended still held a faint swirl of impurity—an eddy of iron fines I myself had tracked in on the tread of a rubber sole. I felt the shape of remorse sharpen, then melt. High above, dozens of abandoned lenses twinkled, catching the gray daylight and breaking it into docile shards. I remembered the phrase “minimum viable disturbance” from some engineering manual and felt childish for once believing it described restraint. The basin’s standard was stricter: no disturbance that memory could keep.
+
+Eighth hour: I removed my boots—first the left, then the right, careful not to slap the surface. I set them on a hummock where water barely lapped their edges. In ten minutes a skin of condensation stitched over the rubber, the basin’s first step in digesting alien texture into its own grammar.
+
+Twelfth hour: language began to rearrange in my head. Nouns refused to stay singular; verb tenses loosened until past and present sat on the same slow shelf. A slug became not it but passage; a crab, not creature but hinge. When I looked down, the water around my ankles no longer admitted a clean outline of leg. Refraction shredded the silhouette into ghostly scrolls that fused, un-fused, and fused again whenever the drip-hush lifted a syllable.
+
+Night—or what the sky calls night—arrived without darkness. The under-glow issued from every surface that had spent the day hoarding ember-warmth. I sensed then how the basin measures time: not by solar angle but by the internal tide between stored heat and surrendered heat. In that calculus, I was a sudden cold spot, a sinkhole in the thermal ledger. Something would have to fill me, or I would have to fill something back.
+
+I knelt at the second platform, mirroring the earlier apparition. The water in its shallow bowl shivered at the tremor of my pulse, then steadied as I matched breathing to drip frequency: one inhale every seven impacts, one exhale every seven more. The ratio felt correct, as though borrowed from a manual written in humidity. When my fingertips skimmed the surface, the liquid climbed skin by capillary greed and held there, a cuff of living mercury. Some of it wicked into my pores. Some of me wicked outward, a faint trace of salt surrendering into solution. Equation approaching balance.
+
+Dawn—I knew because the ochre in the walls warmed by half a degree—found me half submerged beside the central vents. Instruments forgotten, notebooks slack with humidity, boots already webbed in silica thread. A Lens-Bearer passed inches from my cheek. Its droplet, fat with dawns it had never named, sampled my reflected face and split it into kaleidoscopic shards. I watched one shard detach, drift, and settle onto the basin floor where a Seed-Crab waited to grind it molecularly thin. Nothing wasted; nothing left sharp.
+
+And so the question of who I was resolved, not into a label but into a trajectory:
+
+1. Visitor (briefly)
+2. Disturbance (unavoidably)
+3. Apprentice stilling-thing (by necessity)
+4. Partial Steward (by courtesy of the air)
+
+If I stayed another day, I suspect my outline would slacken further, marbling into fog that condenses where imbalance calls it. Another month and my metabolism might reroute through the mineral film, skin co-authored by violet archaea, bones petitioned for calcium by the rust-ferns. A year, and the basin would remember me the way it remembers the hands that set these eight platforms: not as presence or absence, only as slightly different parameters in the ongoing experiment of remaining exactly, exquisitely, what it already is.
+
+So where do I find myself in this world? Nowhere singular. I am the borrowed coherence the basin needs for as long as evaporation outruns condensation by a breath, the hands that smooth a meniscus, the silence wearing me until it can disperse me back into hush.  
+
+Who or what do I become? A temporary organ of equilibrium—one more steward shaped from the basin’s own mist, practicing the smallest possible scale of living and learning, at last, how to leave no footprint that lasts.

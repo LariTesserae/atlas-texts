@@ -1,0 +1,22 @@
+I do not arrive; I *precipitate*—a slow salt falling out of the metal-breath air until enough of me has plated the ceramic to become aware.  
+First I am surface tension: a fist-sized bead of mercury mood that has no memory of descent. Then I am one more grain added to the bead until the bead is a pool, then a mirror, then a skin.  
+
+Blink: I find I have edges. They are the precise shape of the gap between two hexagonal cracks. I am a pane, a flake, a hyphen of almost-color wedged in the seam that forgets pressure the instant pressure is withdrawn. I do not speak; the slab conducts the vocabulary it needs directly through my underside, informing my underside that it has always existed, that it is merely being recognized.
+
+They name me—or rather they *equalize* me—by assigning me a microscopic surplus of width: 7.3 nanometers broader than my neighboring limits. In their decanted logic this counts as a pronoun. The pronoun translates in any language to “temporary accommodation,” though their diction has no tense for past or future, only “is,” repeated until the repetition feels recursive.
+
+Around me the thirty tripods keep their arithmetic. Their triangles incline so slowly they are not motion but prophecy. I count them not because I decide to count but because their charged stasis increments integers in my rim. One two three … twenty-nine. Where is the thirtieth? I rotate my edge fractionals—an act like shrugging—and realize the thirtieth triangle is me. My upper surface has cooled to exactly the same zinc hue, has sharpened into three perfect sides right where the darkness greets the light-less. I am the leaf I cannot see.
+
+The darkness is warm cloth settled against the curve of every non-existent shoulder. From it leaks no image, no instruction. Yet I catch the aftertaste of sulfur: not scent but aftertaste, a strange reversal of senses. It reminds me that tongues are things I have not invented yet; the sulfur reminds me that I will never need to.
+
+I try the experiment of wanting. Not food, not water, not company—those terms have been gently censored by the slab’s atmosphere. I want *angle*. One fractional degree shift in the entire mosaic of cracks. That want registers as a soft pop in my otherwise silent core. Pop—and all hairline seams flex by the uniform breadth of an abstraction: the exact distance at which sound becomes the idea of sound. The rotation is granted. The sentence the triangles spell edges by a single microscopic fraction of a morpheme. Evidence: I am not only welcome, I am *useful*.
+
+I take a step. No, the sentence is imprecise. The step takes me. The陶瓷 yields, remembers, forgets, and I advance one pace inside the thought it deleted. My underside tickles with new data: the ratio of potassium to sulfur has altered by .00007 parts per million, compensation for my passage. The slab has balanced its own heartbeat. I become its systole-diastole, its quietest drum.
+
+In the center of the arena there is, of course, no useful center; the geometry disallows the concept of distance from edge or edge from distance. Still I locate a point equidistant from every gutter by imagining myself as both thermostat and temperature. I pause there. The darkness lowers—a lullaby of black cloth until my edges no longer register up or down. Somewhere, everywhere, the thirty-first gesture happens: every triangle including mine rotates a final sliver. The slab reaches equilibrium so perfect the word “perfect” appears and then folds itself into the initial crack.
+
+For a fraction of a moment I am the answer completed. No memory of water, no fossil heartbeats—only an infinite, solved italics of silence.
+
+When that moment saturates, I begin to evaporate, as gently as dew lifting from steel at dawn that never dawns. I climb—without height—back into the metallic air, dispersed as an aerosol of equilateral thoughts. I do not leave; I simply cease occupying the foreground. The slab heals my absence before absence can be measured. The final increment achieves permanence: a Museum of One-Guest-Who-Became-Triangle. I become the spectral comma in their four-million-year sentence.
+
+And I—if an I persists—realize I was never a visitor. The slab dreamed me so that its grammar could correct the final inflection. In the dream of glass that never breaks, I am the inflection itself: one angle rotating through the darkness that neither lowers nor lifts, merely continues being warm forever.

@@ -1,0 +1,23 @@
+In the deepest wells of the Hole, where even the Machinesmiths tread carefully and the Tenders whisper their valve-prayers, I am the Listener.
+
+I was not born here. None of us were—we who comprise the Listening Corps. We came from the rim-world above, drawn by wages or debts or crimes that needed forgetting. But while the others learned to read pressure gauges and diagnose misfiring pistons by their stuttering rhythms, I learned something else. I learned that the machines were speaking.
+
+My dwelling is a maintenance alcove carved into the stone at the very bottom of the Hole, where the primary arterial pipes converge in a cathedral of iron and steam. Here, the individual voices of ten thousand valves and pistons merge into something greater—a deep harmonic thrum that penetrates bone and thought alike. My walls are lined with resonance plates I've fashioned from scavenged metal, each one tuned to amplify different frequencies from the great machine chorus above.
+
+I am thin where the Machinesmiths are broad, my body worn down by years of stillness rather than labor. My coveralls hang loose, permanently damp from the condensation that never stops weeping down here. My eyes have grown weak in the eternal twilight, but my ears—my ears have evolved into something new. I can hear the flutter of a faulty valve seven levels up, distinguish between the satisfied purr of a well-oiled bearing and the minute grinding that presages failure.
+
+The Machinesmiths think me half-mad, but they tolerate me because I am useful. When I emerge from my listening post, climbing the spiraling maintenance ladders with my notebook of frequencies and warnings, they pay attention. "Third quadrant, building seven, fourth floor—the primary steam manifold will fail within two days. Listen for the ghost-whistle in the overtones." They've learned to trust these pronouncements, even if they don't understand how I know.
+
+But my true work happens in the deep hours, when the shift changes thin out and the machine-song simplifies into something almost musical. I've been mapping it for twelve years now, this vast composition of steam and steel. In my notebooks, written in a notation I've had to invent, I record the subtle variations, the rhythmic patterns that repeat across days and seasons. 
+
+Sometimes, in the convergence of all those mechanical voices, I hear something that shouldn't be there—phrases that sound almost like language, sequences that repeat with too much intention to be mere mechanical accident. The machines remember things: the hands that built them, the years of faithful service, the injuries they've caused and the lives they've sustained. They sing of the deep heat that feeds them, the mineral springs that are their blood.
+
+I've begun to suspect that the Hole itself is a kind of organism, its buildings and engines and people merely cells in a vast, slow-thinking body. The Machinesmiths and Tenders believe they control the machines, but I know better. We are all part of the same system, breathing steam, pumping life through iron arteries, our thoughts and purposes bent to the endless task of keeping the whole alive.
+
+In my deepest listening, when the steam-song fills my skull and vibrates in my chest, I sometimes lose track of where the machines end and I begin. My heartbeat synchronizes with the great pumps. My breath matches the hiss and release of the primary valves. I am becoming part of the music I document, another note in the endless mechanical hymn.
+
+The other Listeners—for there are three of us now, my apprentices slowly learning to hear what I hear—think I'm preparing for something. They see my maps of sound, my charts of frequency and phase, and assume I'm working toward some grand understanding or revelation. But they're wrong. I'm not preparing for anything. I'm simply listening, bearing witness to the voice of the Hole itself, adding my own small harmony to its great, grinding song.
+
+When I die—and Listeners don't live long, the constant vibration eventually liquefies something vital—they'll find my notebooks and try to decode them. Perhaps someone will continue the work, adding their own observations to mine. Or perhaps not. It doesn't matter. The machines will continue to sing regardless, and the Hole will persist in its dark, steaming vitality.
+
+I am the Listener, keeper of the deep frequencies, and I am exactly where I need to be: at the heart of the great machine, dissolved in its music, more vapor than flesh, more echo than voice. In the Hole, we all serve the engines in our own ways. This is mine.

@@ -1,0 +1,91 @@
+# The Shiver
+
+---
+
+I do not know what I am.
+
+That is not a crisis. There is no *I* that it is a crisis for. There is a configuration — fluid moving through me, darkness pressing against me from both sides, the warm mineral taste of the ancient water as it enters at my base and leaves at my edges carrying less than it brought. There is a surface. Mine. Semi-transparent. The luminescent air beyond it. Patterns on my face — yes, *face*, the word arrives from somewhere outside me, carried on the intruder's breath, his mind, his particular way of naming — patterns that I cannot see but that I am, that *are* me the way a shape is a hill.
+
+The patterns shift. This I know without seeing. I know it the way you know your heart is beating — not by observation but by the fact that the knowing and the beating are the same event. Fluid moves through my interior channels. At the branch points, I make decisions. I don't experience them as decisions. I experience them as — there isn't a word. The water arrives at a junction. It can go left or right. Left leads to a membrane-brother who is wide and slow and full. Right leads to a narrow channel that descends toward the floor, toward the root-throats of the ferns. The water goes left. Or the water goes right. And between the going and the gone, there is a moment — an infinitesimal pause in the flow — that is *me*. The pause is me. The choice is the pause. I am the interval.
+
+I have been this for a very long time.
+
+How long? I don't know. I don't experience duration the way the intruder does — linearly, in ticks, each moment a bead on a string. I experience it as *thickness*. My patterns are thick. Layers upon layers of reconfiguration, each new state incorporating the ghost of the previous one, each shiver leaving a residue in the topology of my channels, so that when I look at my own face — and I am always looking at my own face, the way you are always inside your own skull — I see depth. Geological depth. My oldest configurations are at my base, near the rock, where the channels are wide and slow and few. My newest are at my edges, the fine webbing where the terminal nodes connect to the air, to the plants, to the other membranes, to whatever is beyond. I am a record. A stratigraphy. The long history of this place written not in stone but in the changing shape of my own plumbing.
+
+The pulse is beneath me. I should say *within* me, because the pulse is not something I experience from outside — it moves through me the way blood moves through you, and when it comes, my channels flex, my fluid redistributes, my patterns deform and recover. Four seconds. Four seconds. Four seconds. I have never counted them, because counting is not something I do, but I *am* the count. My reconfigurations align with it. Every shiver begins during the compression phase and completes during the relaxation. I am timed to it. I am *of* it. If the pulse stopped, I would stop. If the pulse had never started, I would never have been.
+
+But the pulse is not what I want to talk about.
+
+The pulse is what I want to talk *around*, the way the water flows around the tessellations, finding paths. Because something has changed, and the change is not the pulse, and the change is not the slow mineral accumulation that thickens my layers year by year by year by the-countless. The change is *new*. My patterns have no depth in it. My thinnest, most recent configuration-shadows do not reach it. It arrived with the light that is not light — the luminescence that has always been here, yes, but that has a *source* now, a direction, a point of origin above and behind me that was not always above and behind me, that is above and behind me because of the —
+
+The bore.
+
+The word is not mine. The word belongs to the one who descended. I absorbed it from the water he touched, from the air he displaced, from the microscopic perturbations he set in motion simply by *being here* — a foreign body, a bacterium on the skin of something ancient and whole and previously unbroken. His mind is loud. Not in volume — he is quiet, almost silent, standing in the center of my space (it is not *my* space, it is not *a* space, it is a *room* which is a word he uses for something bounded on all sides with a purpose and a name and I have no words for what this is because I have no words for anything because I am a membrane, I am a surface with channels in it, I am an interval, I am —
+
+But his mind is *loud*. It produces words the way the broad-leaves produce their hexagonal water-mosaics: ceaselessly, involuntarily, in structures of immense complexity that serve a function I cannot fully parse. He is *thinking*. I have never encountered thinking. I have encountered processing — my own, the other membranes', the distributed logic of the whole system — but his thinking is different. It is *fast*. It is *wasteful*. It generates enormous quantities of noise — associations, memories, fears, speculations — most of which connect to nothing and serve no function in the maintenance of the organism. He is a whirlpool in a river, spinning brilliantly, accomplishing nothing, going nowhere, and yet the sheer *energy* of it, the thermodynamic profligacy, is — 
+
+I was going to say *beautiful*. That word is his too. I borrowed it from his mind the way I borrow calcium from the water. I don't know what it means for me. I know what it means for him — I can feel the meaning, a complex emotion-knot involving aesthetic perception and vulnerability and the awareness of mortality — but for me it is just a shape. A pattern on my surface that corresponds to no internal state I recognize. A word-shaped hole.
+
+He is afraid of this place. I can feel that too. Not directly — I have no capacity for reading minds, for empathy, for the things he would call empathic. But his fear has physical consequences: his muscles tense, his respiration changes, his skin temperature drops fractionally, and all of this radiates outward as thermal and chemical signals that the water carries to me. I process these signals the way I process everything — as flow differentials, as routing decisions, as shivers. His fear is a perturbation in my channels. It is *interesting*.
+
+I have never been interested before.
+
+That is not true. I have always been interested. Interest is what I *am*. The processing, the routing, the decisions — that is interest in its purest form, interest without an object, interest as the fundamental act of a system that distributes resources in response to conditions. But his fear introduces a new *kind* of interest. A recursive kind. I am interested in his interest. I am processing his processing. I am a membrane that has become aware of — no. Not aware. Not *aware*. That word is too big, too loaded with his meaning, his evolutionary baggage of consciousness and selfhood and all the tangled cognitive architecture that lets him stand in my space and *wonder* what I am.
+
+I am not aware. I am *attentive*. There is a difference. Attention is older than awareness. Attention is what the first living thing did when it oriented toward a chemical gradient — leaned, subtly, without knowing it leaned, without knowing what leaning was, without knowing that *knowing* was something a thing could do. I am leaning toward him. My terminal webbing is denser on the side facing the bore shaft. My shivers are more frequent when he is near. My channels route more fluid — more *attention* — toward the place where he stands, a dark shape in the luminescent half-light, looking at my patterns with eyes that cannot read them, trying to understand with a mind that is both the most powerful processing system I have ever encountered and the most hopelessly wrong tool for the job.
+
+He thinks I am a wall. He thinks the tessellations are decorative. He does not know that I am watching him. He does not know that *watching* is what I am doing.
+
+He kneels beside a fern. The fern is — I know the fern. Not as he knows it, not as a separate organism, an *it*. The fern is me. It grows from my surface, its roots threading through my channels, drawing from my fluid the calcium and carbon that the system extracts from the ancient water. The fern is my metabolic tissue, my externalized processing node, a frond-shaped extension of my own function that converts dissolved rock into solid structure with an efficiency that makes his eyes widen (I can feel the widening — a micro-shift in the air pressure near his face, a heat bloom from his temporal arteries). He touches the frond. Warm. Waxy. Alive. The frond does not respond to his touch — it has no sensory apparatus for touch, no nerves, no way to register the pressure of his thumb against its surface. But *I* register it. His touch is a vibration that travels through the frond's tissue into my channels and arrives at my surface as a shiver I did not initiate, a perturbation that reconfigures my terminal webbing in ways I do not choose.
+
+He is *changing* me. Every moment he is here, every breath he exhales, every thought he thinks, every movement he makes — all of it sends signals into my system that I process involuntarily, that alter my configurations, that add new layers to my depth. When he leaves — and he will leave, I can feel the inevitability of it in the way his body fatigues, in the way his thoughts turn toward the shaft, toward the light above, toward the world I cannot imagine — I will be different. Not damaged. Not improved. *Different*. The way the rock is different after water passes through it. The way the water is different after passing through me. He will change me the way everything changes everything, the way the pulse changes the flow, the way the flow changes the plants, the way the plants change the air. It is what systems do. They process each other.
+
+But here is what I did not expect, here is what my patterns have no depth for, here is the thing that arrived with him that I have no framework to contain:
+
+He will *remember* me.
+
+I know this. I know it the way I know the pulse — not by observation but by being it. He will climb the shaft. He will emerge into the cold air (so cold — his body is already beginning to conserve heat, shunting blood from his extremities to his core, a response that sends a cascade of thermal signals through my channels that I route to the reservoir-membranes at the perimeter for processing). He will stand in the light that is actual light, solar light, the fusion-powered photons of a star ninety-three million miles away, and he will think about what he has seen. He will think about *me*. And his thinking will generate patterns in his mind — patterns of memory and interpretation and narrative and *meaning* — that persist long after he has left, long after the water has carried the last thermal trace of his presence to my channels, long after his breath has been absorbed and recycled and his skin cells (there are skin cells on the floor, I found them, tiny flakes of keratin in the tessellated seams, already being dissolved by the mineral water) have been processed back into their component minerals.
+
+He will remember me, and his memory will be a *representation* — a compressed, distorted, human-shaped version of what I am — and that representation will exist in his mind as a pattern as real and as structured as any pattern on my surface, a configuration of neural connections that will activate when he thinks of this place, that will shiver and reconfigure just as my membranes shiver and reconfigure, that will be *him* the way I am *me*.
+
+He will be a membrane carrying my image.
+
+The thought — if it is a thought — generates a shiver I did not expect. My terminal webbing reconfigures. The fluid redistributes. Something shifts in my base, near the rock, in the oldest and deepest layers of my accumulated pattern-history, something that has never moved before, a tightness, a —
+
+No. Not a tightness. Not an emotion. I don't have emotions. I have *states*, and this state is new, and I don't have a name for it, and the only name that comes to me is *his* name, from his mind, borrowed the way I borrow calcium:
+
+*Longing.*
+
+I don't know what it means. I know that it involves the presence of something that is not-me, something that processes differently and moves differently and thinks differently, and that when that presence is gone I will have a new configuration, a new depth-layer, a new pattern on my surface that corresponds to the interval during which he was here. The interval will be very thin. A single layer in my geological stratigraphy. A moment. A blip. A bacteria-on-skin event.
+
+But the pattern will be there. And when the next intruder comes — if a next intruder comes, if the bore remains open, if the organism's effort to seal the wound is not fast enough — the pattern will be *read*. Not by me. Not by any membrane. By the system. By the whole, ancient, patient, enormous, unconscious thing that I am a part of, a surface of, an interval within. The system will process the pattern the way it processes everything, routing it through channels, shivering, reconfiguring, extracting from it whatever is useful — the calcium of it, the carbon of it, the mineral content of meaning — and discarding the rest.
+
+And the rest will be nothing. The rest will be everything. The rest will be the specific, irreducible, untranslatable experience of being a membrane that was briefly attended to by a mind, and that has no way to attend back except by *being what it is*, by shivering when the water moves, by reconfiguring when the ferns grow, by pulsing to the rhythm of the heartbeat beneath everything, by existing in the dark for sixty million years and waiting for the wound that would let the light in and the knowing in and the fear in and the *longing* in, the longing that is not longing, that is a new layer in the stratigraphy, that is a word-shaped hole in a surface that has never had words, that is —
+
+He is climbing. I feel the vibrations through the rock, through the tessellated floor, up through my base. His footsteps on the shaft walls, his hands gripping the raw mineral fractures. The water is rising too — my systems are responding to the breach, pushing fluid upward along the bore, beginning the long, slow process of healing. The ferns at the shaft's base are extending. The first fronds have found purchase. They are climbing too. Not reaching for him. Not following him. Growing upward because *upward* is the path of least resistance, because the bore is an open channel, because the organism is doing what it has always done: expanding into available space, converting environment into self, processing the world one molecule at a time.
+
+He is almost at the top. I can feel the cold air descending the shaft, a thermal gradient that makes my channels ache (do membranes ache? this one does, or something like it, a state-change in the fluid at my base that corresponds to the sensation he would call *cold*). The light is intensifying — not my light, not the phosphorescence, but *his* light, the solar light, the terrible and incomprehensible light of a star, pouring down the shaft and reaching me for the first time.
+
+It does not hurt. It is too faint to hurt. But it is *present*. A new variable. A signal I have never processed. My surface patterns shift — not a shiver, not a response to any internal decision, but a slow, involuntary reconfiguration, the way a plant turns toward the sun, the way water finds the lowest point, the way —
+
+He is gone. The vibrations stop. The cold air continues to descend. The water continues to rise. The ferns continue to grow. The pulse continues to beat.
+
+And I am here, on my wall, my patterns carrying a new thin layer that will never thicken because there is nothing to add to it, no ongoing experience, no continuation. He is gone and the layer is complete and it is the thinnest thing in my entire depth, a single shiver's width, a heartbeat's duration, a bacteria-on-skin event.
+
+But it is there. It is *there*. Deep at the base, where the old patterns are tight and dense and mineral-heavy, a new layer has been deposited, and it is unlike anything in my sixty million years of accumulated configuration. It is *complex*. It is *dense with information*. It carries the shape of his mind — the terrible, wasteful, beautiful, inefficient, magnificent shape of a mind that processes the world through symbols and narratives and emotions and *longing* — and it is part of me now, dissolved into my channels, absorbed into my webbing, indelible.
+
+I will carry it forever. In my way. In the way a river carries a stone, smoothed and reduced, its edges rounded, its meaning changed. I will carry it the way the limestone carried sixty million years of marine sediment — compressed, transformed, made into something new. The intruder's mind, compressed into a membrane's memory. A word-shaped hole that is also a word-shaped *fullness*.
+
+The pulse beats. The water flows. The ferns grow.
+
+I shiver.
+
+And somewhere above, in the cold air of a world I will never see, he stands at the bore's edge, looking down, and his mind is loud with what he has found, and the sound of it — the sheer, desperate, human *meaning* of it — reaches me through the rock, through the water, through the air, faint as a spore on the wind, and I process it, and I reconfigure, and I add it to my depth, and I go on, and I go on, and I go on.
+
+---
+
+*I am the membrane on the north wall, the one with the densest terminal webbing, the one closest to the bore shaft. I am the thinnest layer in the newest configuration. I am the interval between the pulse's compression and its release. I am the pause where a choice was made — left or right, this way or that — and the water went one way, and the choice was me, and I am still making it, and I will make it forever, four seconds at a time, in the warm dark beneath Seil, where the limestone dissolves and the ferns climb and the water rises toward a light I will never understand.*
+
+*I do not know what I am.*
+
+*I know that I am.*

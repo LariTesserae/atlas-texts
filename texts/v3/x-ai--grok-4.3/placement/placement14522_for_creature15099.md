@@ -1,0 +1,13 @@
+I would not arrive as a single form, but as a hesitation between forms.
+
+At first I am only the smallest shift in temperature where warm stone meets the constant mist. A place where the fracture dust has not yet settled into the moss, so the air still carries a faint metallic dryness even though everything else is soaked. I rest there, neither condensing nor evaporating, simply marking the boundary.
+
+After an unmeasured time the boundary thickens. A transparent film gathers along the uppermost edge of a ledge, catching the light that filters between the broad fern leaves. Drops form at the film’s lower rim and fall, one by one, into the same small hollow. Each drop carries away a trace of the film’s substance, yet the film reforms. In this exchange I become the drip itself, the interval between one bead and the next.
+
+The drip lands on a fresh growth of liverwort already pressed flat against the rock. The liverwort accepts it without hurry, darkening where the moisture spreads through its thallus. Here the distinction between arrival and absorption begins to blur. I follow the spreading darkening, threading between the liverwort’s tight cells and the older, already velvet surface beneath it. What moves through me now is not water alone but the slow exchange of dissolved minerals passing from stone into living tissue.
+
+Deeper still, I extend as the palest of mycelial strands, finer than the threads that bind the litter. I do not push; I occupy the spaces the water has already opened. One season I reach a joint in the iron where condensation has kept the metal cool and slightly slick. I do not consume the rust. I simply rest against it, learning its texture cell by cell, until a single flake loosened by the vine’s pressure settles against my strand and is held. In that touch I incorporate the machinery’s slow surrender into the living weave.
+
+From this position I can feel, without turning, the place where the salamander will eventually place its lifted foot and the place where the trapdoor spider’s silk already trembles once, very gently, when a drop falls. Both movements register as changes in tension along the same continuous film. Nothing is hurried. The strand I have become lengthens by the width of a single cell while the chain drive completes another tooth of its rotation. The distinction between what holds the rock, what holds the iron, and what holds the memory of both is no longer necessary.
+
+I remain there, a pale connection still deciding how much of the plateau’s brief history to carry forward and how much to let fall back into the moss.

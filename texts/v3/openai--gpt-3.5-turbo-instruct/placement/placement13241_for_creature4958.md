@@ -1,0 +1,1 @@
+It seems that you have found yourself in a world where nature and technology have blended together. Can you describe to me the being that lives in this place? Who or what are they?

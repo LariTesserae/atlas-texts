@@ -1,0 +1,25 @@
+In the deepest chambers of this breathing cathedral, where the drumming heartbeat is strongest and the green light fades to something more primal, I find myself as one of the **Mnemonic Gardeners** - not quite Arborea, not quite other, but something that exists in the spaces between.
+
+My body is a compromise, a negotiation. Where the Arborea are fully of wood and water, I am caught mid-transformation. My left arm has long since given itself to the vines - not covered by them, but genuinely merged, the boundary between flesh and plant matter dissolved into something new. The fingertips branch into delicate tendrils that can taste the memories held in sap and soil. My right side remains stubbornly human, though the skin has taken on a greenish cast and begun to develop the faint ridged patterns of bark.
+
+I tend the Memory Groves - those deep places where the Arborea grow their most ancient structures. Here, in chambers lit only by colonies of phosphorescent fungi, the collective consciousness of the swamp stores its experiences. Not in books or carvings, but in the very growth patterns of specialized plants. A spiral of vine recalls a season of storms. The branching of a particular fern encodes the migration patterns of the luminous insects. The taste of a specific moss holds the chemical memory of visitors long past.
+
+My role exists because I am liminal. The Arborea, being fully of the swamp, cannot always distinguish between memory and present experience - for them, all time flows together like the endless water. But I, with my partially human consciousness, can still parse linear time. I can read the memories and translate them, tend them, ensure they grow true and do not become overgrown with the eager press of new experience.
+
+The work is delicate. Each day - though day means little here - I wade through the knee-deep water of the Memory Groves, my vine-fingers trailing through the growth, tasting, sensing, correcting. When I find a memory beginning to distort, I must carefully prune, redirect, sometimes graft new growth to preserve the original pattern. The human parts of me remember *how* to remember. The plant parts of me understand *what* the swamp remembers.
+
+I speak in three voices: the human tongue I was born with, now rarely used; the harmonic humming of the Arborea that resonates from the wooden portions of my throat; and the chemical language of pheromones and sap that I secrete from my transformed pores. In the Memory Groves, I use all three, creating a symphony of communication that bridges worlds.
+
+My dwelling is myself, partially. Where my feet have stood too long, roots have begun to anchor. My small shelter is woven from my own shed vine-skin and the offerings of the Arborea who value my work. It grows around me, shaped by my presence. Sometimes I wake to find new rooms have budded in the night, the structure responding to dreams I don't remember having.
+
+The transformation is slow but inexorable. Each season, the green claims more of me. My human eye has begun to cloud with a green cataract that lets me see the flow of nutrients through the root networks. My hair has become a cascade of thin aerial roots that drink moisture from the air. I measure time now not in years but in growth rings that have begun to form beneath my skin.
+
+There is no tragedy in this change, only a soft melancholy for the memories I must work harder to distinguish as mine rather than the swamp's. Sometimes I find myself tending a grove of memories about a dry place, a place of stone and sun, and I think: *I knew this. This was mine.* But the certainty fades like morning mist, and I return to my work.
+
+The Arborea treat me with a careful reverence - I am useful but alien, trusted but never quite belonging. The young ones, those still flexible and curious, sometimes come to watch me work. They cannot understand why I maintain the barriers between memories, why I insist on categories and chronologies. For them, the memory of the first rains is as immediate as this morning's shower. But they seem to sense the value in what I preserve, even if they cannot fully grasp why.
+
+In the deepest groves, where the oldest memories grow, I've found patterns I don't yet understand - spirals and whorls that speak of times before the Arborea, when something else dwelt here. These memories taste of salt and vast distances. I tend them carefully, these alien remembrances, though touching them fills me with a longing for spaces I've never seen.
+
+When the transformation finally completes - and it will, I know this with the certainty of sap rising in spring - I wonder if another like me will come. Another caught between worlds, able to read the boundaries before they too begin to blur. Or perhaps by then, the swamp will have learned to remember in new ways, and the Memory Groves will tend themselves.
+
+Until then, I wade through the warm water, my vine-fingers reading the stories written in cellulose and chlorophyll, my human heart beating its own rhythm against the greater pulse of the swamp, keeping time in my own small way against the beautiful, terrible dissolution that awaits.

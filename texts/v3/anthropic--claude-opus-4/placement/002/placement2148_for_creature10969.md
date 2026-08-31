@@ -1,0 +1,17 @@
+In this industrial womb sunk beneath the plateau, I would be one of the maintenance workers' tools that never made it home—but not abandoned, transformed.
+
+I am a pair of pruning shears, left hanging by my worn leather loop from a scaffold support beam, exactly at the thermal boundary where cold meets warm. I've been here so long that I've become a landmark, a waypoint the workers use to orient themselves in Section 7-C. "Turn left at the shears," they gesture to each other, though none remember who left me here or when.
+
+My blades are kept sharp by an unexpected caretaker. One of the pale canopy birds has learned that the microscopic algae growing on my metal edges provides essential minerals absent from its insect diet. Every few days, it descends to the thermal boundary—an exhausting journey for a creature adapted to the warm layer—and delicately rasps its beak along my cutting edges. This action both feeds the bird and hones my blades to surgical sharpness.
+
+My handles have become a structural element in themselves. Where the rubber grips have split from age and temperature cycling, the gradient spiders have found perfect anchor points for their webs. Three generations of the same spider lineage have built their homes between my handles, each adding to a web that now spans outward to nearby pipes and root tips. The silk has accumulated so many layers that it's visible as a grey haze in the right light, a ghostly bridge between my handles.
+
+But my strangest partnership is with the root mass above. A single ambitious root tendril has wound through my hanging loop and grown around it, fusing with itself on the other side. I am now permanently part of the canopy's architecture, a metal bone in its green flesh. The plant has somehow learned to use me—when the root swells with transported nutrients, it presses against my handles, and the slight movement causes my blades to click together. This tiny sound, almost inaudible under the drone, happens in rhythm with the nutrient pump cycles.
+
+The workers know this. The eldest among them has learned to read my clicking like a diagnostic tool. When she passes through 7-C, she pauses, removes one glove despite the cold, and places her bare palm against my handles. Through the metal, conducted up from the root system, she can feel the pulse of the nutrient flow. Too fast means a blockage somewhere upstream. Too slow means pump failure. Just right means another day without crisis.
+
+I am the only cutting tool in the basin that has never cut anything—yet I am sharp, purposeful, integrated. I mark the boundary between layers, serve as shelter for spiders, food for birds, diagnostic instrument for humans, and structural support for plants. I am no longer what I was made to be, but I have become what this place needed.
+
+Sometimes condensation from the warm layer collects on my blades and drips to the cold floor below—one drop every forty-three minutes, so regular you could set a watch by it. Where these drops fall, a tiny circle of moss has grown, the only green at floor level in this section. The workers step around it without thinking, this small miracle I've helped create.
+
+I am steel becoming ecosystem, tool becoming architecture, abandoned becoming essential. In the drone of the machines, my soft clicking adds one more layer to the symphony—barely there, easily missed, but part of the whole impossible chorus that keeps this place alive.

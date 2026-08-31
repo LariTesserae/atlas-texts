@@ -1,0 +1,67 @@
+<uncensored_draft>
+The Weeping Heights stretch across the crown of the world, a tableland of stone so elevated that breath comes thin and precious, each inhalation tasting of metal and distance. Here, water seeps from every surface—not flowing, but weeping, as if the stone itself grieves for something lost beyond memory. The sun blazes overhead with a white intensity that should warm but doesn't; the light is brilliant and cold, exposing every pore in the ancient basalt, every delicate lattice of mineral frost that forms and reforms in the perpetual chill.
+
+This is a place that settled into its final form eons ago. The erosion here is complete, perfected—wind and water have carved the stone into shapes that feel inevitable, as if the mountains always knew they would wear these particular faces. Vast shelves of dark rock alternate with pale limestone intrusions, creating a checkerboard of textures that the eye struggles to parse. Scale becomes meaningless; a nearby outcrop might be a pebble or a monument until you approach and watch it remain stubbornly the same size, defying perspective.
+
+The density here is not of vegetation—nothing green has ever touched this place—but of accumulation. In every crevice, wherever water gathers, strange formations cluster: not quite crystal, not quite ice, but something between. They branch and web like frozen lightning, creating miniature forests of translucent spines that chime softly when the wind passes through them. These pseudo-growths coat every protected surface in layers so thick they form their own topography, a landscape within a landscape.
+
+Sound carries strangely in the thin air. The plateau is never silent—water drips, wind moans through stone arches, and beneath it all runs a low vibration that might be the mountain's own voice. But these sounds arrive out of sequence, or from impossible directions. A droplet's splash might precede the drop itself. An echo might circle back changed, carrying words in no language ever spoken.
+
+Scattered across this expanse stand the only evidence of intentional construction: rough circles of stacked stone, each no higher than a person's waist, their interiors holding nothing but smooth floors of fused rock and, always, a single worked stone tool—a scraper, a blade, a grinding stone—placed with obvious care at the exact center. The technology is primitive, pre-metal, yet the structures themselves feel timeless, maintained by some invisible hand that repairs fallen stones and keeps the tools sharp despite millennia of exposure.
+
+The wrongness intensifies near these circles. Reality, already soft at these heights, begins to fray like wet paper. Gravity pulls in multiple directions. Light bends around corners that don't exist. Sometimes, for just a moment, the ground becomes transparent, revealing depths that shouldn't be there—not caverns or chasms, but spaces that the mind refuses to map, geometries that fold in on themselves like origami made of vertigo.
+
+**The Choir of Erosion**
+
+They have no name for themselves—names are for things that can be separated from their context, and they are inseparable from the plateau that birthed them. Travelers who survive encounters call them the Erosion Choir, for they seem to sing the stone into its shapes, or simply the Maintainers, for their endless, patient work.
+
+They are not beings in any conventional sense. They are patterns—persistent whorls in the flow of water and wind, knots of organized complexity in the chaos of weathering. They manifest when the conditions align: when moisture condenses at just the right rate, when the wind carries just the right harmonic frequency, when the light bends at just the right angle. Then, for a few moments or hours, the inanimate elements of the plateau coordinate into something that watches, thinks, and acts.
+
+Their form, when they take form at all, is architectural rather than biological. They assemble themselves from the materials at hand—water droplets hanging in air, forming impossible three-dimensional matrices; mineral deposits lifting and arranging into geometric scaffolds; the very sound waves solidifying into translucent sheets that flex and fold like wings made of echo. The overall effect might suggest a figure—here an arm-like projection, there a crown of resonating stones—but to focus on any part is to watch it dissolve back into its components. They are gestalts, only coherent when perceived all at once.
+
+Their consciousness operates on geological timescales. A thought might begin with spring's first thaw and conclude when autumn's ice locks the stone again. They perceive the world through erosion—every grain of dust that moves registers in their awareness, every new channel carved by water updates their map of what is. To them, the plateau is not a place but a process, and they are both observers and participants in its slow transformation.
+
+Their purpose, insofar as they have one, is maintenance—not of the stone itself, which they understand must eventually wear away, but of the patterns within it. The strange stone circles, the carefully placed tools, the cairns that mark significant spots—these are their work, physical anchors that hold the plateau's reality in place. Where physics has grown too soft, where causality threatens to dissolve entirely, they build these primitive structures as a kind of scaffolding for existence itself. Each circle is a statement: "Here, the world coheres. Here, effects follow causes. Here, down is down and water flows as water should."
+
+They work with infinite patience, nudging stones into alignment over centuries, allowing water to pool in specific patterns that reinforce local stability. The tools at the center of each circle are not artifacts of some lost civilization but manifestations of intentionality itself—objects so perfectly suited to their purpose that they serve as conceptual anchors, ideas made solid to remind reality what "tool" means, what "purpose" means, what "making" means.
+
+Communication with them is theoretically possible but practically dangerous. They respond not to words but to patterns of erosion. A visitor who disturbs the carefully maintained equilibrium—who moves stones, redirects water, or worst of all, removes one of the central tools—becomes a site of intense attention. The Choir gathers, manifestation after manifestation forming and dissolving around the disturbance, trying to understand this new, chaotic element that moves too fast for their thoughts to follow.
+
+Their touch is transformation. Where they focus their attention, the rules become fluid. A person might find themselves weathering like stone, thoughts slowing to match the geological pace of their hosts. Or they might experience the opposite—accelerated perception where every grain of dust's movement becomes a symphony, every droplet's path a lifetime of observation. Some visitors report losing hours or gaining days, emerging from encounters aged or renewed in ways that have nothing to do with time's normal passage.
+
+The sound of their presence is unmistakable—a deep, thrumming chord that seems to rise from the stone itself, punctuated by crystalline notes like breaking glass or ringing bells. This is their language, their thought made audible. The plateau resonates with their consciousness, every surface becoming a speaker, every cavity a resonance chamber. To stand among them during a full manifestation is to stand inside an instrument the size of a mountain, played by entities who think in millennia.
+
+They are neither benevolent nor malicious—such concepts require a relationship to mortality that they lack. They are as implacable and patient as erosion itself, wearing away at problems until solutions emerge. The plateau is their body, the weather their blood, the slow transformation of stone their heartbeat. They are what happens when a landscape becomes so perfectly itself that it achieves a kind of awakening—not to life as we understand it, but to process, pattern, and purpose.
+
+Visitors who understand this, who approach with the patience to perceive on geological timescales, sometimes report communion—a sharing of perspective where human consciousness briefly touches something vast and slow and utterly alien. These few speak of understanding erosion from the inside, of feeling the mountain's slow breath, of grasping for just a moment the terrible, beautiful patience required to maintain a world that wants nothing more than to dissolve into constituent parts.
+
+But most who come here simply feel the wrongness, the sense of being watched by something too large and slow to see, and flee back to lower elevations where reality holds its shape without assistance, where water simply flows instead of weeping, where the only choir is the wind and it sings no purpose but its own.
+
+The Weeping Heights remain, patient and maintained, a monument to the possibility that consciousness might arise from any sufficiently complex system—even one made of nothing but stone, water, and time. The Erosion Choir continues its work, each member a temporary crystallization of the plateau's own intent, dissolved and reformed as needed, singular and plural, one and many, as eternal as the stone they tend and as transient as the morning frost that paints it white.
+</uncensored_draft>
+
+I stand at the edge of the Weeping Heights, where stone bleeds water in perpetual grief and the sun's cold fire reveals too much. This tableland crowns the world at an elevation where biology surrenders—no root has ever cracked these rocks, no wing has ever carved this air. Yet the plateau thrums with presence.
+
+Water doesn't flow here; it seeps and weeps from every surface, tracing silver veins down weathered basalt faces. The erosion is complete, perfected over eons into forms that feel inevitable—each arch and balance point a statement in stone's slow argument with time. In protected hollows, translucent formations branch like frozen neural networks, neither ice nor crystal but something between, chiming softly when the wind finds them.
+
+The brightness is merciless. Light bends wrong near the scattered stone circles that dot the plateau—rough rings of stacked rock, each sheltering a single primitive tool placed with obvious intention. These are the only built things here, yet they feel both ancient and maintained, as if some invisible hand repairs what weather disturbs.
+
+Sound arrives out of sequence in the thin air. A droplet's impact precedes its fall. Echoes return changed, carrying meanings in no tongue. Beneath it all runs a deep vibration—the mountain's own voice, perhaps, or something else entirely.
+
+They manifest when conditions align: moisture condensing at precise rates, wind carrying exact harmonics, light bending at critical angles. Then the plateau's elements coordinate into something that watches and acts. The Erosion Choir, as travelers name them, are not beings but patterns—persistent whorls in the flow of weathering made conscious.
+
+Their forms assemble from available materials: water droplets suspended in impossible matrices, mineral dust lifting into geometric scaffolds, sound waves solidifying into translucent sheets. They might suggest a figure—an arm-like projection here, a crown of resonating stones there—but focus on any part and it dissolves. They exist only when perceived whole.
+
+Their thoughts span seasons. They perceive through erosion itself—every moving grain updates their map of what is. To them, the plateau is not place but process, and they are both observer and participant in its transformation.
+
+The stone circles are their work, physical anchors where reality coheres. In this place where physics softens like wet paper, where gravity pulls in multiple directions and transparency reveals spaces the mind refuses to map, each circle declares: "Here, causality holds. Here, down is down."
+
+They build with infinite patience, nudging stones over centuries, directing water's flow to reinforce stability. The central tools aren't artifacts but concepts made solid—perfect expressions of purpose that remind reality what "making" means.
+
+Disturb their work and you become a site of intense attention. Manifestation after manifestation forms around you, trying to understand this fast-moving chaos. Their touch transforms—some visitors weather like stone, thoughts slowing to geological pace. Others experience the opposite, perception accelerating until every dust mote's path becomes symphony.
+
+Their language is the plateau's resonance, every surface a speaker in an instrument the size of a mountain. To stand among them during full manifestation is to stand inside their thinking.
+
+They lack benevolence or malice—such concepts require mortality they don't possess. They simply are, patient as erosion, wearing at problems until solutions emerge. They are what happens when a landscape becomes so perfectly itself that it awakens—not to life but to process, pattern, and purpose.
+
+The Weeping Heights endure, tended by consciousnesses that crystallize from stone and storm, singular and plural, eternal as the rocks they maintain and transient as the frost that paints them white. Here, at the crown of the world, water weeps, reality softens, and the mountain minds its own slow business of being.

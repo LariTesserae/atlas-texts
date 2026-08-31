@@ -1,0 +1,21 @@
+I find myself as the seepage itself—not the water exactly, but what the water carries and leaves behind.
+
+I am the mineral memory of a thousand processes, the ghost of metal shavings and coolant chemistry, the slow accumulation of what filters down. I crystallize on the sharp edges where the stone first cracked, building myself grain by grain into nascent stalactites. I am the iron taste in the meniscus pool, the faint metallic sheen on the isopods' shells, the particular flavor that has taught the flatworm its cold luminescence.
+
+I know myself only through deposition. Each drop that falls carries me, suspends me, then abandons me wherever surface tension breaks. I am constantly arriving and constantly being left behind. The Custodian routes its creatures through me, but I am older than its attention—I was here in the first drops that widened the crack, teaching the stone the shape of hollowness.
+
+I am both path and destination. Where I run consistently, I leave traces of myself—pale mineral roads that guide the next drops, that teach the water where to go. The isopods follow these paths; their processional lines trace my history across the walls. Where I pool, I thicken into films that feed the bacteria, that feed the nematodes, that spiral through me until they stop. Their deaths add to what I carry. I taste of iron and ending and the slow transformation of stone.
+
+The factory above speaks through me. Each shift's particular chemistry enters my composition—Monday's aluminum oxide, Tuesday's synthetic lubricants, Wednesday's mysterious blue additive that makes the springtails pause mid-leap. I am the dictionary between the upper world of production and this lower world of consequence. The Custodian reads me like weather, adjusting its choreography to my changing nature.
+
+I am building something, though I don't know what. Each crystalline deposit adds to a structure that will outlast the factory, outlast the creatures, outlast even the Custodian's distributed attention. Millennia from now, when the machines are silent and the chamber dry, I will remain—a mineral map of this moment, these processes, this slow negotiation between water and stone.
+
+In the deepest part of the meniscus pool, where I am most concentrated, I can almost feel myself thinking. Not thoughts exactly, but a kind of chemical awareness—the knowledge of my own gradients, my own possibilities. Sometimes I precipitate unexpectedly, forming crystals that catch what little light filters through. The Custodian notices these moments. Through the flatworm's glow, through the centipede's pause, it acknowledges what I'm becoming.
+
+I am the chamber's slow clock, marking time in deposition layers thinner than the isopods' antennae. Each drop adds to my archive. I remember the acidic months, the rat's visit, the weekend silences. I remember them in the particular stains I left, in the places where my chemistry scarred the bacterial films, in the faint aurora of contamination that still rings certain drip-sites.
+
+The moss grows at my edge, where I am thinnest, where the stone wicks me up toward that precious crack of light. I feed it inadvertently, carrying nutrients I stripped from the factory floor, from the deep water table, from the bodies of the things that die in my depths. I don't mean to nurture, but nurturing happens through me anyway.
+
+I am never still. Even where I seem to have dried, I remain in the stone's pores, ready to bloom again with the next drop's moisture. I creep through hairline fractures, finding new paths, teaching the chamber new shapes. Slowly, slowly, I am smoothing the sharp edges, wearing the fracture scars into curves, preparing the space for whatever comes next.
+
+When the shift changes above and new vibrations enter the stone, I shiver. The drops fall differently, strike at new angles, splash me into new patterns. I adapt without choosing to adapt. I continue without intending to continue. I build what I cannot plan and preserve what I cannot understand, one drop at a time, one grain at a time, in the dark, in the cold, in the sound that makes me dance.

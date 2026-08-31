@@ -1,0 +1,17 @@
+I would find myself as one of the **mineral readers** - a creature somewhere between the film-drinkers and the colony scavengers, but with my own peculiar adaptation to this world of scheduled scarcity.
+
+My body would be low and flat, no larger than a human palm, with skin that changes texture rather than color. In the dry hours, my hide becomes papery and light, almost weightless, covered in microscopic ridges that trap the faintest moisture from passing air. When water arrives - whether as condensation, drip, or seepage - my skin transforms within seconds, becoming supple and absorbent, each ridge opening into a tiny cup.
+
+But my true adaptation would be temporal. I possess an internal mineral clock, calibrated by decades of ancestry to the basin's rhythms. My skeleton contains deposits of the same minerals that stain the walls - iron, copper, calcium carbonates - arranged in crystalline structures that expand and contract with humidity changes. I can feel tomorrow's condensation in today's bone-ache. I know which walls will weep three days hence by the taste of dust on the wind.
+
+I would live in the transition zones, neither fully in the wet ribbons nor the dry expanses, but in the spaces between where future water will appear. My life would be one of constant repositioning - not the frantic rushing of the surface foragers, but deliberate migrations of centimeters and hours. I build nothing permanent, cache nothing except knowledge. My intelligence manifests as pure prediction.
+
+The colony scavengers would occasionally find me near their sorting grounds, not to feed on their collections, but to read the mineral traces on the bones they've gathered. Each fragment carries a chemical memory of where it's been - which seep, which wall, which brief pool. I would run my sensitive underside across their neat piles like reading braille, updating my internal map of where the basin's water has been and, more importantly, where it will be.
+
+I would be neither predator nor prey in the traditional sense, existing in a metabolic state so slow that I'm often mistaken for stone. Skinks would occasionally try to pry me from my resting spots, mistaking me for a limestone nodule. The film-drinkers would sometimes walk across my back in the dawn hours, and I would let them, feeling through their tiny feet which surfaces are about to bloom with dew.
+
+My reproductive cycle would span years, triggered not by seasons but by the rare convergence of multiple water events - when condensation, seepage, and distant rain align. In those brief windows of abundance, I would seek others of my kind by leaving chemical trails in the mineral dust, messages that could last months in the dry air, waiting for another reader to decipher them.
+
+I am the basin's memory made flesh, its librarian of moisture. Not quick enough to chase opportunity, not hardy enough to endure true drought, but precise enough to be exactly where I need to be, exactly when the water arrives. My survival is not about speed or strength or even efficiency - it's about knowing the story the stones tell, and believing it absolutely.
+
+In this sunken room of earth, I am the creature that proves patience is not passive but predictive. I am attention evolved into prophecy, reading tomorrow in today's dust.

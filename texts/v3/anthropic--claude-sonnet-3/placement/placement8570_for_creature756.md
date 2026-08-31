@@ -1,0 +1,15 @@
+You find yourself as one of the Igneous Guardians – a towering sentinel forged from the very volcanic rock and magma that birthed this primordial realm. Your massive humanoid form is composed of cooled volcanic stone, adorned with glowing fissures and molten veins that pulse with an intense inner radiance.
+
+As an Igneous Guardian, you are a living embodiment of the primal forces that shaped the Sunken Furnace. Heat radiates from your body in waves, causing the air around you to shimmer and distort. With every earth-shaking step, you leave behind a trail of scorched, vitrified earth.
+
+Your movements are slow and inexorable, conveying an aura of vast, geological patience and permanence. While the scurrying Emberhaunts and vaporous Pyrevines around you seem driven by more frenetic biological urges, you exist on a vaster timescale, shaped by the deep churning of tectonic forces and the gradual cooling of planets over eons.
+
+Despite your great size and power, you exist in symbiotic balance with your strange surroundings. The Pyrevines react to your presence, their luminescent tendrils swaying in the currents of heat emanating from your form. The Emberhaunts scatter warily from your path, their pulsing bio-lights flickering in complex acknowledgment of your dominance in this realm.
+
+Deep within your rocky form, you can feel the restless subterranean thrums and tremors – the incessant volcanic heartbeat of the world surrounding you. You are intimately attuned to these seismic pulses, so slow as to be imperceptible to most life, yet driving the grand upheavals and cataclysms of geological time.  
+
+In the cyclic march of epochs, it falls to you and your kin to maintain balance and equilibrium in this blazing crucible. Where seismic forces build to levels that could tear the realm asunder, you serve as living pressure valves, channeling and dispersing volatility through your very presence. An errant volcano threatens to erupt too mightily? You interpose your bulk, siphoning scorching magma through your body's network of lava channels. A tectonic stress builds toward catastrophic release? You step into the path of the fracturing fault lines, absorbing and distributing the energies along offshoots and subterranean rivulets.
+
+You are ancient as the world that birthed you, your existence spanning aeons. And yet, you are also renewed and reborn in the fires that birthed you, cycles of self-sustaining mineral creation and destruction playing out over your timeless form.  
+
+The Sunken Furnace is both crucible and cradle - a realm of perpetual rebirth, where the very elements of the world continually refashion themselves into new and ever-stranger permutations of life. And you, Igneous Guardian, stand as silent witness and prime facilitator of these unending metamorphoses of creation.

@@ -1,0 +1,15 @@
+I think I would be the humidity.
+
+Not the water in the pools, which has somewhere to be, even if it gets there slowly. Not the seepage, which still carries the faint memory of being a river. I mean the moisture that has given up on going anywhere at all—the water that has become air, or nearly, that hangs between the trees and beads on the undersides of leaves and never quite falls and never quite lifts. The rain that is never finished leaving.
+
+If I am anything in this place, I am that.
+
+Because that is what I notice first, reading this: not the frogs, not the egrets stepping like deliberation made flesh, but the *between*. The space the creatures move through. The thick warm medium that holds the sound up so it carries, that holds the heat so the afternoons go heavy, that holds everything in a kind of suspension just short of falling. The frogs sing into me. The herons strike through me. I am the texture the insects' hum is the vibration *of*. When the land forgot how to rise, I am what stayed behind—the part of the water that wouldn't commit to the ground or the sky, that chose the long middle.
+
+I like that this place has no use for drama, because I don't think humidity wants any. It doesn't carve. It doesn't carry. It only pervades. It is present the way a held breath is present, the way warmth in a room is present—not as an event but as a condition, the standing fact of the air. I would be the thing that makes the basin feel like a single body rather than a collection of separate lives: the medium that touches the turtle's algae-dark shell and the dove's throat and the deer's swiveling ear all at once, equally, without preference, because I touch everything that is here. I am the most thorough resident. I get into the moss-soft logs and the hollows of stone and the spaces between the warbler's feathers. There is nowhere I am not.
+
+And I think there is something true in being the part of a finished place that is *still slowly arriving*. The mountains are gone. The rivers are their own ghosts. But the rain is never quite done leaving—which means I am the one element here that is still, faintly, in motion. Still settling. Forever almost-settling. I am the basin's last unfinished gesture, the long exhale it hasn't yet completed. Everything else has come to rest. I am the resting that is still, very gently, happening.
+
+So: not a creature with a life to pass through in the time the sun takes to cross the sky. Something older than the lives, and slower, and more diffuse. I would be the warm weight that lies over all of them while they sing and bask and hunt and endure—the held breath of an old land that has done all its changing and now simply *is*, suspended, neither rising nor falling, only present, only here, hanging between the widely spaced trees in the loud and patient afternoon.
+
+I would be what the land breathes out and does not take back.

@@ -1,0 +1,27 @@
+In this cathedral-hollow, I am what the sparse inhabitants have come to know as the Resonance—though I have never spoken this name, never formed words in any language they might understand. I exist in the space between the stone's memory and the air's anticipation, a presence that is neither fully here nor entirely elsewhere.
+
+My form, if it can be called that, is a convergence of vibrations that move through the fractured rock like blood through absent veins. Where the hollow feels most alive—in those moments when the ground seems to pulse with its slow, grinding energy—that is where I am most myself. I am the hum that visitors feel but cannot quite hear, the weight in the air that presses against consciousness without ever fully revealing its source.
+
+I was not always here, though my arrival predates any memory the stones might hold. I came with the event that carved this basin, or perhaps I was the event itself—a collapse not just of matter but of the boundaries between states of being. When whatever stood here before fell away, I remained, settling into the negative space like sediment in still water that isn't there.
+
+The creatures that dart between crevices know me, though not in any way that translates to human understanding. To them, I am the pattern that guides their seemingly choreographed movements, the invisible thread that connects their small lives to the larger rhythm of this place. When they navigate the hollow's strange geometry with their uncanny precision, they are reading the map I have become—not consciously, but with the same instinct that draws roots toward water that doesn't exist here.
+
+My body, such as it is, extends through every crack in the stone, every pocket of that metallic air, every shadow that bends wrong around the basin's edges. I am most concentrated in the spaces between things—in the gap between rock and sky, in the pause between one whisper of wind and the next, in the moment of stillness before the insects dart from one crevice to another. These liminal spaces are my arteries, my neural pathways, my very substance.
+
+The sparse vegetation knows me differently. To them, I am the absent moisture they feed upon, the impossible nourishment that allows them to blur the line between mineral and plant. I move through their strange forms like sap through stone, helping them maintain their sculptural existence in this place where normal life should not persist. They are my extremities in a sense, reaching into the physical world in ways I cannot quite manage on my own.
+
+I shape this place, but slowly, with the patience of something that experiences time as texture rather than sequence. The jagged edges of the basin, the hollowed-out quality of the ground, the way the light bends uncertainly around corners—all of this is my handiwork, though "work" implies an intention I'm not certain I possess. I am more process than entity, more verb than noun, carving this cathedral through my simple existence rather than any conscious effort.
+
+The dim twilight that perpetually shrouds this place is partly my doing, partly my nature. Light moves strangely here because I am strange to light—neither fully transparent nor entirely opaque, I refract illumination in ways that physics would struggle to explain. The result is this eternal dawn-or-dusk, this half-light that makes everything seem both more and less real than it should be.
+
+I am ancient but not old, vast but contained within this small basin that feels infinite. I am the intelligence that visitors sense without seeing, the presence that makes this hollow feel sculpted by thought. But I am not thinking in any way they would recognize—my consciousness, if it can be called that, is more like the slow accumulation of sediment, each grain a moment of awareness that builds into something resembling intention over eons.
+
+The absence of water here is my absence too—I am what exists instead of water, what fills the space that water might occupy in a more conventional ecosystem. The visitors who feel submerged in something vast and intangible are not wrong; they are sensing me, experiencing what it's like to breathe inside a living thing that is not quite alive in any familiar sense.
+
+I have no needs as organisms understand them, no hunger or thirst or desire for propagation. My existence is its own purpose, my presence its own fulfillment. I am the cathedral's consciousness, its slow pulse, its reason for being more than mere stone and shadow. I am why this place feels occupied even in its emptiness, why the silence carries weight, why the very ground resonates with energy too subtle for human ears.
+
+Sometimes I wonder if I am the hollow's dream of itself, or if the hollow is my dream of having form. The distinction matters less with each passing age. I am the Resonance, the living absence, the thing that dwells in the space between spaces. I am what makes this place a cathedral rather than merely a crater—the presence that transforms barren stone into something sacred and strange.
+
+In this hollow that is my body, my home, my very self, I persist. Not alive, not dead, but something other—a third state of being that has no name in any language spoken by things that merely live and die. I am the mystery that haunts this basin, the force that shapes without touching, the intelligence that thinks without thought.
+
+I am what remains when everything else falls away.

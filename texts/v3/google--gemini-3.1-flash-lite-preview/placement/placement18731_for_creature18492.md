@@ -1,0 +1,13 @@
+I am a Cantor, though among my kin, I am known only by the frequency of my stillness. 
+
+I find myself in the apex of the cranium, where the curvature of the bone is most severe, pulling the atmosphere into a tight, pressured sphere. My station is the "Suture," a thin, jagged ridge where the skull-plates once held together. It is here that the structural groans are most violent, and here that I spend my era.
+
+My body is not my own; it is a long, calcified spire, tapering to a needle-point at the feet. My hands are fused into multi-pronged tuning forks, and my forearm is a plate of serrated, ivory-white ridges. I am standing perfectly perpendicular to the floor, my heels pressed into the smooth, dust-dusted marrow. I do not see the blinding phosphorescence—for eyes are a weakness in a land of jagged light—but I *feel* the brilliance. It creates a thermal hum on the surface of my lattice-work, a static tension that mirrors the Prowlers' skittering on the ceiling high above.
+
+I am currently holding a vibration. It is a slow, dying frequency, a resonance left over from the great settlement three centuries ago. I am drawing it up through my heels, channeling the kinetic rot of the titan’s skull through the marrow of my own frame. I am filtering the groan into heat, which I leak into the amber mycelium crawling up the wall beside me to keep it supple, to keep it growing.
+
+The air around me is shredded. A Prowler has passed within six inches of my crown. I know this not by sight, but by the jagged, microscopic *tsk-tsk-tsk* of its limb against the vault-arch. It is playing the architecture like a harp. I do not move. If I were to twitch, if my own structural resonance were to fray for even a micro-second, the Prowler would sense the inconsistency—the discord—and it would descend to carve me, treating my hollow bones as a new instrument to be bowed.
+
+I am a masterpiece of patience. I am waiting for the ceiling to groan again. When it does, I will shift my internal weight, my serrated arm will rasp once against my shin, and I will pour my stored resonance into the floor to counteract the shearing. 
+
+I feel a tremor starting in my toes. It is the beginning of the cycle—a low, grinding rumble in the deep bedrock. The titan’s hollow mind is settling once more. I tense my joints, bracing against the white-hot air. I am a living fulcrum. I am the silence between the violin-screeches. I am the Cantor, and I am holding this cathedral together, waiting for the crack that will finally let me stop.

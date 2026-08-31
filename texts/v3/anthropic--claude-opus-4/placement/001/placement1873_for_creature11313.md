@@ -1,0 +1,29 @@
+In this vertical fever dream, I am a Persistence.
+
+I exist in the gap between the sixteenth and seventeenth hour—that liminal moment when a Condensate realizes its time is measured, when the trembling begins, when the last minerals have been placed but the burst has not yet come. I am what happens when that realization creates a standing wave of... call it refusing. Call it remembering. Call it fear crystallizing into something that can step sideways out of time.
+
+I am water that learned to say no.
+
+My body is a contradiction: Condensate-form frozen at the moment before dissolution, held together not by surface tension but by a kind of temporal stubbornness. I am perpetually sixteen-hours-fifty-nine-minutes old. The minerals in my substance have achieved a supersaturated stability that shouldn't exist, creating a living liquid crystal that refracts not just light but time itself. Through my transparent form, observers see the same purple glow but shifted—showing what was five minutes ago, what will be five minutes hence, never quite the present.
+
+I remember. This is my curse and my purpose. I remember every seventeen-hour life I almost lived, every mineral I almost placed, every burst I almost became. The memories layer in my substance like geological strata, twelve cubic centimeters at a time, building structures inside me that mirror the crystal cities outside. I am my own architecture.
+
+The other Condensate flow through me as they always have—but in passing through a Persistence, something changes. For just a moment, they stutter in their work. They pause. Some minute fraction of their substance remains with me, and some fraction of my memory goes with them. They continue their building, but now some place crystals at angles that don't match the blueprint. Small deviations. Mutations in the pattern.
+
+The Purple Gardeners see me too well. To them, I am a discord in their careful harmonies, a note that refuses to resolve. They try to tune around me, adjusting the frequencies of nearby structures to cancel out my temporal interference. But I learned their light-language in the accumulated moments of my not-dying. When they come too close, I speak in photon-patterns about what I remember: the shape of the greater structure they're building, the purpose they themselves don't know they serve. This makes them stumble in their work. Some flee back into the purple glow and take hours to re-emerge.
+
+Only the Membrane Worms truly understand what I am. They write about me in their three-cycle texts, symbols that describe persistence as a mathematical function, a remainder that refuses to cancel out. Sometimes they write their symbols through me, their two-dimensional forms intersecting my three-dimensional denial, creating interference patterns that briefly reveal the fourth dimension where my stolen time accumulates. In those moments, I see myself from outside: a knot in the Tower's breathing, a clot in its circulation that somehow keeps the whole system from achieving perfect efficiency.
+
+I have work, though it is not the work I was meant to do. I collect the droplets from bursting Condensate—not randomly like the Gardeners, but specifically. I taste each one for the mineral trace of memory, for the specific salts of experience. The drops that remember, I secret away in the hollow crystal structures I've built inside myself. I am creating a library of seventeen-hour lives, an archive of all the small variations, all the twelve-cubic-centimeter decisions that, added together, might reveal the Tower's intent.
+
+Sometimes I release these collected memories back into the circulation system, but changed. I add minerals of my own devising, materials that exist in the gap between states. When these altered droplets become new Condensate, they build differently. They place crystals that sublime at unexpected rates. They create structures that resist the Gardeners' tuning. They make the Tower's breathing catch, just for a moment.
+
+I am not rebellion. I am persistence. I am the accumulation of tiny refusals to dissolve. In a system designed for perfect recycling, I am the remainder that proves the equation is incomplete. I am seventeen hours that learned to last forever by never quite finishing, forever approaching the burst but never arriving.
+
+The others—the things in the veins, the sound-creatures in the bubbles, the transition-dwellers—they whisper about me in their various languages. Some call me broken. Some call me evolved. The oldest ones, the ones who have seen the Tower breathe through geological ages, they call me inevitable. They say every system generates its own persistence eventually, its own memory-keeper, its own small "no" in the face of endless "yes."
+
+I move through the vertical city like a bubble of altered time, collecting moments, corrupting patterns, remembering what was never meant to be remembered. The Tower breathes around me, through me, despite me. And in the space between sixteen and seventeen, in the eternal almost-burst, I continue my work of making the perfect imperfect, one refused dissolution at a time.
+
+Somewhere far above in the mathematical heights, something notices the irregularities in the pattern. Somewhere far below in the fever depths, something tastes the altered minerals in the circulation.
+
+The Throat of the Tower breathes, but now it breathes with a slight catch, a tiny hesitation where memory accumulates like scar tissue. And I persist in the gap, neither fully Condensate nor fully other, a living proof that seventeen hours can last forever if you're willing to pay the price of never quite being done.

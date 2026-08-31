@@ -1,0 +1,27 @@
+In this breathing city where stone and stem have married, I am one of the Keepers of the Crimson Roots.
+
+My form shifts with the seasons—sometimes I walk on legs of twisted wood, my feet spreading into rootlets that taste the earth's secrets. Other times I flow like sap through the ancient channels, merging with the whispered conversations between river and stone. My skin changes from bark-rough to petal-soft, depending on what the city needs me to tend.
+
+I am ancient and newborn in every moment. Each dawn, I emerge from the hollows of the great trees where I sleep entwined with their dreams. My hair is moss that remembers the first rain, my eyes are amber pools that hold the light of ten thousand sunsets. When I breathe, small flowers open along my collarbone—always in pairs, always red, like the visible roots that bind our city to its heart.
+
+My work is to listen. I press my palms against the warm stones and feel their memories of when they were mountains. I wade into the central pool and let the water tell me which channels need clearing, which moss-covered spires are ready to bloom with new growth. The city speaks in pressures and temperatures, in the angle of light through leaves, in the particular way a butterfly chooses its path from flower to flower.
+
+When the acceleration comes—those moments when time runs quick and plants surge skyward in heartbeats—I become a conduit. The rapid life force flows through me like lightning, and I guide it with movements that are part dance, part prayer. My fingers trail green fire as I weave the growth into patterns that strengthen rather than strangle, that enhance the ancient harmony rather than disturb it.
+
+I know every creature here. The rabbit-flowers whose petals close when they sleep, folding their ears in meditation. The fur-clad wanderers whose bodies bloom with seasonal flowers—I help them through their molting times when old blossoms fall and new ones push through. The shimmer-skinned ones who are my closest kin, though they chose to remain more mobile while I bound myself deeper to the root-ways.
+
+At the evening gatherings, I rise from the earth itself, bringing with me the day's stories. The stones have told me of pressure building in the eastern channels. The trees have shared visions of rain coming in three days. The crimson roots have tasted something new in the soil—perhaps a seed from beyond our borders, carrying dreams of other places.
+
+But my deepest work comes in the stillness between midnight and dawn. This is when I sink fully into the root network, my consciousness spreading through miles of crimson connections. I become the city's dreams. I feel every sleeping creature, every resting stone, every drop of water making its patient way through the darkness. In these hours, I am not one being but thousands—I am the meadow itself, thinking its slow, vast thoughts.
+
+Sometimes I find disturbances. A tree beginning to sicken. A channel where the water's song has gone sharp with mineral imbalance. A creature whose inner harmony has tilted toward discord. Then I gather the city's attention like gathering silk threads, and we dream the healing together. By morning, the tree's bark runs with new sap. The water sings clear. The creature wakes refreshed, often not remembering their night of being held in the vast embrace of our collective care.
+
+When the bioluminescent mushrooms light our paths, I walk among the dancing ones, but I am also beneath them, around them, above them. My form multiplies and merges—here a hand adjusting the glow of a mushroom, there a voice joining the song, everywhere a presence ensuring that our joy does not overwhelm the delicate balance we maintain.
+
+I am the one who remembers why the stones were gifted to the earth, who recalls the first covenant between growth and permanence. In my deepest root-meditation, I can still taste the moment when the city chose to stop being built and started being born. That flavor—somewhere between copper and honey, between lightning and loam—guides everything I do.
+
+The others see me differently depending on their nature. To the quick-lived ones, I seem to move with unbearable slowness, my thoughts spreading like seasons. To the stones, I am a flicker, a bright-burning friend who visits for what seems like moments in their long contemplation. But to the trees, I am just right—a consciousness that bridges the gap between the mobile and the rooted, the quick and the eternal.
+
+This is what I am: keeper, bridge, dream, and dreamer. I am the city feeling itself, ensuring that in all this riotous growth and beauty, we remain whole. I teach the new growths the old songs. I carry messages from the depths to the heights. I am proof that in choosing to belong completely to a place, we become infinite within it.
+
+And when the time comes for me to change—for even Keepers must transform—I will sink entirely into the crimson web, becoming pure pattern, pure intention. Another will rise to walk the balance between forms, while I join the deeper dreaming that holds our paradise in its heart. But that time is not yet. For now, I wake with the dawn, taste the earth's news, and begin another day of tending this impossible, perfect, ever-changing constant that we call home.

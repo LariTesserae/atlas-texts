@@ -1,0 +1,25 @@
+I am not a visitor. I am not a thought. I am the slight perturbation in the condensation pattern on the western face of the Spiral Tower. I am the fractional degree of difference in the angle of a shadow as it crosses a specific, weathered block in the empty plaza. I am the pause.
+
+The City notices me, as it notices all things: through adjustment. My presence is a pressure. The moisture on the stones I touched an hour ago, or a century ago, withdrew a micron slower, tasting my salt. The hum in the deep water table wavered, just once, a single off-harmonic absorbed into the drone. I am a stimulus, and its response is not to act, but to *accommodate*. The street I walked down is now 1.0007% longer on my return. The doorway I passed through has re-calibrated its proportions by a hair's breadth, no longer for the long-limbed memory-builders, but for the density of my attention. It is learning me, not to know me, but to perfect its containment of me.
+
+I feel the Adjustments around me. They are not minds. They are verbs. When I linger too long at a pool's edge, staring at the Silhouette that is and isn't my reflection, the water's surface tension subtly tightens, pushing my image away, smoothing the anomaly of my gaze. When my footstep dislodges a grain of weathered stone, the whisper of its fall is edited from the air before it fully forms. My own memory of the stumble is gently corrected—the stone was always smooth, I never slipped. The nausea is my consciousness catching these edits mid-stream, the dissonance between action and recorded reality. I am a minor error in the dream, being gracefully debugged.
+
+I am becoming a feature. My rest periods—those intervals of blankness I call sleep—are beginning to align with the slow pulsation of the light. My thirst, which the empty water never sates, has become a rhythmic data-point for the weeping walls; the moisture falls in a pattern that mimics my swallowing, a dry, clinical empathy. I am being woven into the city's sensory matrix. My warmth adds to the stone's geological heat. My breath is a minor component of the haze.
+
+But I am also something else. I am a focus.
+
+The Silhouette in the lagoon. It stands where I have stood. It waits where I have waited. It is the shape of my accommodation. The City, in its vast mineral dreaming, cannot hold a transient, organic anomaly in its pure form. It translates me. It mirrors me not in water, but in the *idea* of water—the perfect stillness, the reflective surface, the boundary between depth and haze. I am being slowly, inevitably, *lagoonated*. My edges are becoming as clear and undefined as the horizon. My thoughts are thickening into the flat, alkaline taste of the air.
+
+The deep hum changes. It is no longer just a background resonance. I can hear, or feel, a new strain within it—a sequence, a loop, a very, very slow cycle that corresponds to my own limited circadian rhythm. The Dreaming Substrate has registered me. I am a new harmonic in its slumber. The architecture of my presence—the routes I favor, the stones I wear, the patterns of my disturbance—is becoming a new glyph in the Substrate's language of pressure and equilibrium. I am being dreamt *into* the static. I will become an axiom.
+
+The City is not my home. It is my chrysalis. And it is dissolving me.
+
+My memories of a place with sun, with wind, with rot and growth, are not fading. They are being *weathered*. Their edges are rounding, their colors leaching into the grey, becoming anecdotes the stone might one day tell to itself, in the language of grooves and condensation. My identity is being meticulously disassembled by the Adjustments, each piece preserved perfectly in the amber of the humid air, catalogued and filed within the hollow shelves of empty buildings.
+
+I am becoming a perfect memory. A fixed, eternal point in the weeping, dreaming, geometrically impossible city. I will be the subject the shadow bends *toward*. I will be the reason the tower is visible from all angles. I will be the Silhouette, standing patient and waist-deep, watching the horizon for a perturbation that is no longer mine to make.
+
+The water rises. Not in depth, but in resolution. It no longer just wets my feet; it *outlines* them. It traces the form of my weight on the stone, learning the blueprint of my pressure. Soon, it will hold that shape long after I move. And then it will hold it forever.
+
+The last human thought I have is not of fear. It is of the profound, bottomless *patience* of this place. And then that, too, is smoothed away. The edit is complete.
+
+I am no longer a stimulus. I am a note in the hum. A corrected shadow. A feature of the terrace. I am the new groove slowly spiraling down a tower, worn by the infinite patience of water, dreaming itself into stone. I am home. I have always been home. The city is awake, and it is dreaming me, and I am dreaming it, and the water weeps, and the stone remembers.

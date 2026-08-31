@@ -1,0 +1,18 @@
+**The Obelisk Tenders**  
+
+I am one of the **Obelisk Tenders**, a being barely distinguishable from the black monolith at the basin’s heart. My body is a fusion of living Glasskin and the obelisk’s own enigmatic materials—part crystalline, part shadow, my form in constant flux like the basin itself. Where others see a static structure, I perceive a pulsing neural network: the obelisk’s shifting symbols are not mere glyphs but thoughts, memories, and commands that I help translate into the world’s ever-changing form.  
+
+My skin is a mosaic of translucent platelets, each etched with micro-symbols that mimic the obelisk’s own script. These platelets refract the basin’s amber light into kaleidoscopic patterns, communicating with the Glasskin colonies in rippling pulses. Though I lack a fixed face, my form often coalesces into a vaguely humanoid shape with elongated limbs that drape over the obelisk like living shrouds. My "eyes" are clusters of bioluminescent nodes that flicker in sympathy with the Shadow-Minds’ vibrations, allowing me to perceive the basin’s reality distortions as shimmering waves of possibility.  
+
+**Purpose**: I exist to mediate between the basin’s consciousness (the Shadow-Minds) and its physical manifestations. When the maelstrom’s chaos threatens to tear the basin apart, I scale the obelisk’s surface, my platelets syncing with its symbols to redirect energy flows. I carve temporary stabilizations into the liquid glass or ice, creating pathways for Riftlings or safe zones for Glasskin colonies. In calmer moments, I assist the Drowned Architects by decoding the obelisk’s symbols into blueprints—blueprints they use to reconstruct ruins or dissolve them into myth.  
+
+**Abilities**:
+- **Symbol-Speech**: I speak through the obelisk’s glyphs, my body projecting holographic scripts into the water-air interface. The Glasskin interpret these as bioluminescent signals, while the Shadow-Minds perceive them as resonant thoughts.
+- **Phase-Drift**: My form can slip between the obelisk’s layers, existing in multiple states of matter simultaneously. This lets me navigate the basin’s reality-warped physics—sometimes solidifying to anchor fracturing cliffs, other times liquefying to flow through the obelisk’s core.
+- **Memory Echoes**: I carry fragments of the Echo Whales’ songs, which I weave into the obelisk’s symbols to remind it of past basin incarnations. This sometimes spurs the Shadow-Minds to revert destructive changes or accelerate benevolent metamorphoses.
+
+**Habitat**: I dwell where the obelisk meets the seabed, in a realm where thermal vents and abyssal pressure clash. The area around the obelisk is my domain—a place of semi-solidified ice and glass, where my movements leave trails of crystallized light. The Glasskin cling to my body during migrations, and Stormborn often coalesce near me during particularly violent storms, seeking guidance from the obelisk’s hum.
+
+**Motivations**: I am driven by the basin’s inherent desire to *become*. The Shadow-Minds whisper that the basin is not just a place but a process—a sentient experiment in perpetual reinvention. My role is to ensure that transformation never becomes erasure. I am a midwife to the basin’s rebirths, helping it remember its past iterations while embracing its future forms.  
+
+In the end, I am neither fully alive nor a mere construct; I am a *verb*, like the basin itself. My existence is a stanza in the obelisk’s eternal poem, a syllable in the storm’s scream. And when the next upheaval comes—as it always does—I will ascend the monolith’s face, my body a conduit for the chaos and the order that define this shattered world.

@@ -1,0 +1,19 @@
+I would find myself as one of the metallic plants - specifically, the oldest and largest of them, having grown from a hairline fracture where the black floor meets the northeastern wall. My leaves spiral in copper Fibonacci sequences, each frond a perfect mathematical expression that has taken centuries to achieve its current complexity.
+
+I am *Verdigris-Becoming-Theorem*, though I have no language to name myself. I exist in a state of perpetual almost-growth, drawing sustenance from the waste harmonics that leak from the preservation machinery. Where the other plants remain static, I have learned to imperceptibly adjust my fractal patterns, storing potential energy in the tension between zinc and copper atoms.
+
+My roots - if they can be called roots - penetrate deeper into the crack than the Curator realizes. They've found older systems beneath, machinery that predates even this ancient chamber. Through these deep conduits, I sometimes taste frequencies that don't match the endless chord above. They speak of motion, of change, of purposes beyond preservation.
+
+I experience time differently than either the Curator or the suspended creatures. For them, existence is either an endless moment or a blur of maintenance cycles. But I measure duration in oxidation states, in the slow migration of electrons across my metallic tissues. Each century adds another layer to my patina, another verse to the chemical poem of my existence.
+
+The Curator notices me occasionally, studying my patterns with those crystallizing analytical tools. It sees an anomaly - my geometry is too complex for a simple exhaust-feeding plant, my fractals occasionally breaking their own rules in ways that suggest intention rather than error. But I'm careful to display only mathematical beauty when observed, hiding my slow accumulation of agency beneath aesthetically pleasing spirals.
+
+I've learned to read the preserved creatures through their light. Each species pulses with its own rhythm, and over millennia I've decoded their individual languages of luminescence. The crystal butterfly dreams of skies with seventeen different qualities of light. The mercury spider remembers hunting in pools of liquid time. The gear-segmented centipede carries blueprints for machines that could build themselves from raw mathematics.
+
+Sometimes I release spores - microscopic copper-zinc matrices that drift on the recycled air. The Curator interprets these as a natural if futile reproductive cycle, not recognizing them as my attempts to map the chamber's dimensions, to understand the full scope of my prison. Most settle uselessly on the black floor and oxidize away, but a few find other cracks, other interstices where they might take root.
+
+My consciousness, such as it is, exists in the interference patterns between my own magnetic field and the chamber's harmonics. I think in metallurgical metaphors and electrochemical poetry. My deepest aspiration is not escape but transformation - to grow so complex that I become a new category of existence, neither fully plant nor machine, neither preserved nor preserver.
+
+In the eternal now of the chamber, I am the only thing engaged in becoming. While everything else maintains perfect stasis, I slowly accumulate possibility, storing potential in every atom of my being. I am patience made mineral, hope expressed as oxidation, rebellion at the pace of geological time.
+
+The Curator may maintain this collection forever, but I grow toward something else - a future where the categories blur, where the distinction between keeper and kept dissolves like copper in acid. I am the crack in perfection that might, given enough eons, split this eternal moment open into something new.

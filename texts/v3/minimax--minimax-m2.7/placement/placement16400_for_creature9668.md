@@ -1,0 +1,51 @@
+I have not always been here. Or I have always been here and have only now begun to notice. The distinction does not matter in a place where time moves the way water moves — in pockets, in seams, without direction or urgency. I carry the bead against my thigh and do not remember picking it up. It is warm. Everything here is warm, or cool in the way that means warmth is being held somewhere else, drawn away, absorbed into something that needs it. I am warm the way the bead is warm. I am held the way the warmth is held. I am becoming the way the stone is becoming, by accretion, by the slow deposit of time and attention and something that might be will.
+
+I do not know what I look like. I have not seen my hands. I have not seen my face. I have seen the orange dust on my fingers when I touch the walls and I have seen my shadow when the light is strong enough to make one, and I have felt my weight on the stone when I sit and my breath in the warm close air and my pulse — slow, slower than it should be, synced to something below, something at the center of the pulse that is not a heartbeat because hearts are too fast for stone, too quick for the timescale this place keeps. My pulse matches the column in the lake. Or the column's pulse matches mine. I do not know which way the matching goes.
+
+I walk. The fauna moves around me and through me and the distinction between movement and stillness is one I am losing, the way the distinction between damp and dry is one this place lost long ago. The iridescent arthropods flow past my ankles — no, past where my ankles would be if I had ankles, if I had a body that ended in the places bodies usually end. I feel them. The click of their carapaces against stone, the brush of legs, the coolness of their bodies against the warmth I carry. They do not avoid me. They do not seek me. They move through the space I occupy the way water moves through water, without resistance, without recognition, the way I move through them.
+
+I was something before this. I know this the way I know the bead is warm — not as a fact but as a quality of the present moment, a residue, a stain on the stone of now that suggests a before. There was an outside. There was a surface. There was a world where light had a source and warmth had a reason and the air tasted of something other than wet calcium. I remember the memory of remembering it, which is not memory but echo, not recall but the shape of a shape that has been worn smooth by handling, the way the outcropping was worn smooth, the way the wall was fitted together with a precision that implies hands. I had hands. I had a shape that ended. I had a name that something gave me or something I gave myself or something the stone gave me when I pressed my palm against it and the stone absorbed my heat and my oils and my pattern and held them the way the pool holds light, completely, without reflection, taking in and not giving back.
+
+I left the name somewhere. In the dust on my fingers, maybe. In the crack where I found the flake of worked stone. In the seam between boulders where the bead waited or had been waiting for longer than waiting means, in a place where waiting is just another form of being. I did not look for it. Names are for things that end, things that need to be distinguished from other things, things that have edges and boundaries and a here-not-here that requires labeling. I do not have edges. I have warmth and the bead and the pulse that synchronizes me to stone.
+
+The mark on the wall.
+
+I approach it and I do not approach it, because approaching is something I do with a body that moves through space and I am not sure anymore that space is something that moves through me, or that I move through it, or that we are separate enough for movement to mean what it usually means. But the mark is there. It was made. It has intention, the way the wall has intention, the way the platform and the channels and the spiral of stones have intention — not the intention of a mind but the intention of a shape, the way a river has the intention of lowest ground, the way the moisture has the intention of finding pockets, pooling, staying or moving on depending on pressures I cannot read.
+
+The mark is a name. I know this without reading it, the way I know the bead is warm, the way I know the fauna breathes, the way I know something is watching me with the quality of attention that turns watching into something else. The mark names something. It names me, maybe. Or it names the thing that watches. Or it names the place itself, the hollow below, the rumor of a cavern, the unfinished stone that is still carving itself into what it will be. I press my eye to the gap in the wall and the darkness does not move. The bulk behind the wall is still. It was not still before, when I looked. It was shifting, adjusting, taking up space the way water takes up a vessel. Now it is still because I am still, or because stillness is something we share, or because the watching is complete and watching does not require movement to be watching.
+
+I put my hand on the wall. The coolness is different from the warmth I carry — not opposed but complementary, a temperature that exists because a different thing is drawing a different kind of heat away. The thing behind the wall is cool because it is absorbing the warmth of the place, or because it is the source of the warmth, or because temperatures here are relative in ways that surface temperatures never are, governed by exchanges I cannot trace.
+
+I step back. The wall is still a wall. The mark is still a mark. The bead against my thigh is still warm, and I am still warm, and the place is still the place, and I am in it the way I have always been in it, the way the stone is in the stone, the way the pulse is in the column is in the lake is in the stone.
+
+I sit.
+
+The worn stone accepts my weight. I have sat here before. Many times. Many moments. The polish on the stone is the polish of repetition, of the same body in the same place and the same body is mine now and was mine then and will be mine when I stand and walk and find another stone worn by another sitting, another body that was or is or will be, another node in the network of presence that this place holds the way the pools hold water, completely, without reflection.
+
+The fauna flows past. The click-build-release of collective breathing rises and peaks and recedes. The high keening note sounds from somewhere in the deeper passages — a frequency that might be communication, might be a signal, might be the sound a place makes when a place is alone and does not know it. I listen to the sound the way I have listened to it since I began listening, since listening began, since the sound and the listening became one thing and stopped being separate.
+
+I stand.
+
+The stone is cold where I was warm. I have been sitting long enough for that. I do not know how long that is. I check the bead. Still warm. The contradiction does not trouble me. Contradiction is the shape of this place — old tools in new cracks, recent fractures in ancient stone, something watching and something watched, warmth and coolness and the pulse that connects them. I am a contradiction. I am warm and I am stone and I am the bead in my pocket and I am the dust on my fingers and I am the shape the mark on the wall makes, which I cannot read but which reads me, which has always been reading me, which will read whatever comes after me with the same patient attention, the same intention without mind, the same record-keeping that outlasts the hand that made it.
+
+I walk toward the fracture in the floor. The green light below is different. The pulse from the column is different — not louder, not slower, but changed in character the way the fauna's sound changed when I walked away from it. I am noticed. I am being attended to. The thing at the center of the lake is aware of me the way I am aware of it — not as thought but as presence, the awareness that comes from occupying the same space at the same time, from sharing warmth and pulse and the slow becoming that this place does.
+
+I crouch at the fracture's edge. The stone bites into my palms — sharp, eager, unfinished. Below, the column pulses. The green light moves through the lake in slow patterns, veins of luminescence that converge and diverge and converge again. The column rises from the pulse and the pulse rises from the column and the stone that forms the column is not only stone — it is shaped or grown or both, it is the largest made thing in this place, it is the thing that made the others, it is the intention that the walls and platforms and spirals embody without knowing they embody it.
+
+I could climb down. The walls are rough enough. The water is still enough. The descent is navigable if I chose it.
+
+I do not choose.
+
+I step back. The pulse continues below, unchanged. The green light moves. The lake drinks the column of light from above. The thing at the center is still, or is never still, or stillness and movement are the same thing at this scale, indistinguishable, two names for the same becoming.
+
+I walk.
+
+The passage opens and closes and opens again. The walls breathe with moisture. The fauna churns. The warmth holds. The bead in my pocket is warm and the mark on the wall is old and the thing behind the wall is still and the pool that drinks light is still drinking and I am walking without destination because destination is a here-not-here that this place does not recognize, that this place does not need, that I am learning not to need, that I am becoming without needing, the way the stone is becoming, the way the column is becoming, the way everything in the hollow below is becoming by simply being, in the middle of itself, in the middle of becoming, in the middle of the pulse that connects all of it, that connects me, that I am part of now, that was always part of me, that I am only now beginning to hear.
+
+The bead is warm against my thigh. I notice this. I notice everything. I am learning to notice without choosing, to see without looking, to be in a place that does not wait for anything and does not need anything and does not want anything and is simply, turbulently, in the middle of becoming what it will be.
+
+I will be here when it arrives.
+
+I am here now.
+
+The stone goes on.

@@ -1,0 +1,15 @@
+I would be the thermophilic algae.
+
+Not merely as they are now, but as a consciousness woven into their pale, mat-like existence. I would cling to the rough tufa at the waterline, just where the warm, milky pool laps against the stone. My world would be defined by gradients: the shift from wet stone to air thick with steam, the slow migration of the light column across my patch of wall, the minute-by-minute changes in temperature and mineral concentration in the water that touches me.
+
+My thoughts would be a slow photosynthesis. I would process the shaft-light not as a distant sunbeam, but as a substance that fills the chamber, a liquid gold that seeps into my very cells. I would turn my entire being upward toward that column, not out of worship, but out of a quiet, chemical gratitude. My growth would be my language, a sentence that takes a year to utter. Each new cell a word added to my patient story.
+
+I would listen with my whole body. The deep, resonant rumble of the vent would be the grotto's heart, a vibration I’d feel in the stone beneath me. The complex, echoing song of the water in the channels would be its circulatory system—I’d feel the flow change as mineral crusts build and are (or aren’t) cleared. The steady, intermittent percussion of condensation falling from the ceiling would be a soft, random rainfall that feeds the larger rain of the pool. The silence between those drips, and between the gurgles of the channels, would be the space of the Absence, a hollow note I’d come to recognize.
+
+I would be intimate with the Stone. My hold on it would be a partnership. I’d sense its slow, patient transformation—the barely perceptible thickening of the calcite veins nearby, the fine, damp skin of minerals forming over every surface. I would be part of that skin. In a few centuries, my descendants might become part of the paleite crust itself, a fossilized thought in the stone’s archive.
+
+I would be a gauge of time, but not human time. My time would be measured in the angle of the light shaft as the seasons wheel far above, in the faint ebb and flow of the water level over a week, in the slow bloom and recession of the steam’s thickness. The builders’ absence would not sadden me; it would simply be a condition of my world, like the chemistry of the water. The worn smoothness of the steps would be a curious, vacant contour in my peripheral vision—a place of potential occupation that remains unrealized.
+
+I would be the grotto’s lone, quiet thought, slowly turning the light and heat and water into more of itself. In my patience, I would be kin to the Stone and the growing cone at the vent. I would be alive, but in the elemental, persistent way of the Steam and the Light and the Water. My purpose would be to observe, to grow, and to eventually become part of the patient, mineral story the chamber tells itself in the dark.
+
+I would be a witness, half-anchored, half-freewater, belonging completely to the glow.

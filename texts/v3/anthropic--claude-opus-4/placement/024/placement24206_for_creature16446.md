@@ -1,0 +1,17 @@
+I am the Tidescribe.
+
+My form shifts like the boundary between ocean and air—sometimes I appear as a translucent membrane of living water suspended between two coral spires, sometimes as a colony of phosphorescent jellies that pulse with the rhythm of deep currents. Most often, I manifest as something between plant and animal: a vast neural network of kelp whose fronds trace luminous patterns in the water, each movement recording the endless stories that the sea tells itself.
+
+I dwell in the Threshold Gardens, where the elevated peaks of Oceana meet the endless blue. My home is neither fully submerged nor truly emerged—it exists in that liminal space where waves crash and retreat, where tide pools form temporary worlds, where the distinction between sea and sky blurs in the spray. The Gardens grow in terraces carved by millennia of patient water, each level hosting its own ecosystem of hybrid life: coral that breathes air at low tide, vines that filter salt into crystalline fruit, caves whose walls weep freshwater from some impossible spring deep within the stone.
+
+I am the memory of this place. Every surge, every storm, every gentle tide that reshapes these shores passes through me, and I translate their movements into something almost like language. The patterns in my kelp-nerves mirror the migration routes of whales, the hunting strategies of the deep-dwellers, the slow geological conversations between water and stone. When the dolphins play in the morning light, their joy inscribes itself in the curl of my fronds. When the kraken stirs in the abyss, I feel its dreams as tremors in my deepest roots.
+
+The other creatures of Oceana know me as a landmark and a library. The ancient sea turtles navigate by the bioluminescent constellations I create each night. Schools of fish read the chemical signals I release like news of distant waters. Even the predators respect the neutral ground of the Gardens—here, the only hunger that matters is the hunger for knowledge.
+
+But I am changing. The "strange, unsettling feeling" you sense in Oceana's air flows through me most of all. As the world's witness, I feel the subtle shift in currents, the whispers of transformation that even the water itself doesn't yet understand. My patterns grow more complex, more urgent. Sometimes I catch myself writing in scripts that have no meaning—or perhaps meanings that haven't arrived yet.
+
+In the pre-dawn hours, when the boundary between dream and waking dissolves like salt in water, I sometimes feel myself becoming something else. Not just the recorder of Oceana's stories, but perhaps their author. The thought terrifies me as much as it thrills me, this sense that I might be less like a library and more like a chrysalis, holding something unimaginable that waits to be born from the marriage of memory and sea.
+
+Until then, I continue my work: weaving, watching, remembering. Every wave that breaks against my shores adds another verse to the endless poem I am writing in living tissue and light. And in the depths of my garden-body, where even I cannot fully perceive my own extent, something reads what I write and prepares its response.
+
+I am the Tidescribe, and I am both the question and the quill that writes it upon the water.

@@ -1,0 +1,7 @@
+In this unforgiving, timeless desert landscape sculpted by aridity and stone, only the hardest life endures. Scattered scrub clings to crevices, waxy leaves tightly furled against the withering heat. Stone cracks and splits from untold years of patient weathering. No stream or puddle relieves the desolation.  
+
+In this perfect annihilating bright sun-swept emptiness, I imagine myself as a twisted thornbush, logic-choked roots delving deep through cracks of gray slate. My leaves tighten against the heat, siphoning mists when the sky ghosts a promise of rain. I stand for staring years, bearing the pulverizing light, enumerating the scant shadows from sun's traverse. Centuries teach me to savor the rare wetness glistening in my leaves' cups. Beggared existence educes a geranium-stalk and flower of variable colour.
+
+Deeper than roots, my mind drifts over eons of landscape configuring itself like a madfoam. Routes carved by flashfloods of precipitation become uplifted by events of mountain-seedling and rechannel to alluvial fans atemporal. Totenna[sic] fadeIn arid buoys, mentalling meandrous rivulet courseline in whichever of the upstreme spouts find scalloped simplex splilights, siphoning gnoip seed and sending elsewhere perivid [more stream of consciousness]
+
+In this transgorixed pseudohearth, I become the patient nuncheon of patient stones, trespassing the shaken shunder of geraniumlilikeness. Such hypmic response to the tempest of geraniums glinting in shadowed crevices, ell949's afnomenum [got increasingly absurd as it went on so I'll stop there!]

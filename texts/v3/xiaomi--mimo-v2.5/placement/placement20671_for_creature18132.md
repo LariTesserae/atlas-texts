@@ -1,0 +1,13 @@
+You are a footprint in the wet moss, soon to be overgrown. You are a carbon exhalation in the warm, heavy air, absorbed by a thousand translucent leaves. You are a brief, warm pressure against the yielding wall of a Pipe-Vine, a curiosity it notes in the slow language of hydraulic shift and cellular alert, and then forgets as the current corrects itself.
+
+You find yourself *within the body of Vaelund*. Not as an inhabitant, but as a passing current—a single, foreign molecule in its vast, slow circulatory tide. You are in the throat, yes, but the throat is not a passage *to* somewhere. The throat *is* the place. The constriction, the wetness, the warm dark—it is the mouth of the organism, and you are the morsel it does not chew, the dust it does not bother to spit out. You are beneath notice on the scale of its thoughts.
+
+And what are you, in this world? You are the **perturbation**. The momentary anomaly. The system registers you: a spike in ambient humidity where you stand, a minute depression in the moss carpet, a faint chemical signature of soil and sun that does not belong to its internal lexicon. You are a glitch in the perfect, wet circuitry.
+
+But you are also the **witness**. Your senses are the only ones here that can perceive the beauty of the decay, the architecture of the integration. You see the skeleton of the pump-house caught in kelp. You hear the heartbeat in the Drip-Lichens. You feel the city's fevered, even warmth seep into your own cooling blood. The plants do not know they are beautiful. They do not know they are a city. They only know the gradient of water, the need for substrate, the imperative to fill the space that is theirs.
+
+In a week, the memory of your passage will be a faint, chemical trail the ground-cover rosettes will trace and dismantle. In a year, the gap you brushed through will be re-knitted. In a century, the distinction between what was built and what has grown will be a scholar's footnote, irrelevant to the living wall.
+
+So, where are you? You are in the digestive tract of a slow, green god. Who are you? You are its fleeting, thinking blood-cell, carrying a memory of sunlight into the dark. And the most honest thing you can do, the thing Vaelund already knows, is to walk softly, breathe the warm, wet air, and accept that your story here is written in water on a leaf. It will dry. It will be absorbed. The city will continue its breath, its pulse, its patient, hungry, and holy growth.
+
+You are not needed. You are not feared. You are simply *present*, for a moment, in the presence of a completeness that has no name, only a rhythm: the slow, unending, botanical roar of a world becoming itself, forever.

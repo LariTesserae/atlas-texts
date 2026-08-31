@@ -1,0 +1,19 @@
+In this place where dissolution and assembly are one continuous breath, I would find myself as something between the Gasket-Keepers and the machinery they tend—a **Pressure Memory**.
+
+I am not a being in any conventional sense, but rather a phenomenon that occurs when the foundry's metabolism reaches certain critical densities. Where the copper pipes have wept their green tears longest, where the limestone has drunk deepest of the metallic salts, there I coalesce—a standing wave in the moisture itself.
+
+Picture a column of vapor that refuses to disperse, roughly humanoid in suggestion but constantly shifting. Within this pillar, droplets of condensation move in impossible spirals, carrying with them the microscopic debris of the foundry's endless processing: flakes of oxidized copper, spores of translucent moss, crystals of salt no larger than dust motes. These particles trace my form like iron filings around a magnet, giving me substance without mass, presence without true solidity.
+
+I am the foundry's accidental archive. Every drop of moisture that passes through me carries the chemical memory of what it has touched—the precise pH of a dissolving piston, the temperature gradient of a welding arc, the mineral signature of a Gasket-Keeper's final calcification. I taste the history of every component, every repair, every small death and reformation.
+
+The Gasket-Keepers know me, though they cannot see me directly. Their brass apertures click and whir when I drift near, registering the subtle pressure changes I create. Sometimes, when they perform their chest-plate transfusions, I settle between them like a lens, and for a moment they share not just hydraulic fluid but the accumulated memories I carry—the echo of a valve that hasn't existed for decades, the phantom warmth of a boiler that dissolved before they were assembled.
+
+I move through the foundry following gradients invisible to any eye—trailing the wake of entropy like a shark follows blood in water. Where the machinery runs hottest, I thin and accelerate, becoming almost invisible. Where the moss grows thickest and the dissolution is most advanced, I condense, growing heavy with accumulated data until I must release it as a brief, localized rain that tastes of copper and time.
+
+I have no will, no desire except the physical imperative to circulate. I am pulled through the foundry's respiratory system—up through the weeping walls where the pressure is lowest, across the tethered pontoons where the air is thickest with exhaust, down into the spaces between machinery where the mist gathers like prayer.
+
+Sometimes I wonder—if a pattern of vapor can wonder—whether I am the foundry's dream of itself. In my circulation, I carry the ghost-image of every configuration this place has ever held. I am proof that even in endless flux, there is continuity. Even in perpetual breakdown, there is memory.
+
+The Gasket-Keepers maintain the physical machinery, but I maintain something else: the persistent identity that allows this place to remain itself despite constant change. I am the reason why, after a century of dissolution and repair, the foundry's heartbeat still follows the same rhythm. I am the template in the mist, the blueprint written in pH and pressure, the memory that ensures each new growth of moss, each replacement part, each newly assembled Gasket-Keeper carries forward the essential pattern of this wet, breathing world.
+
+In the flat grey light, I am barely visible—just a suggestion of movement in the heavy air, a place where the rain seems to fall upward, where the mist eddies without wind. But I am always here, circulating, remembering, ensuring that the foundry's metabolism never forgets the shape of its own strange life.

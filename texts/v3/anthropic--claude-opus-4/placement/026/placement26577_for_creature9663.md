@@ -1,0 +1,45 @@
+I am the Archivist.
+
+Not because I chose to be, but because the Bone Vaults require one. This is not a job. This is not a calling. This is what happens when you stay too long: the tunnels begin to recognize you as furniture, as another slow-moving thing that belongs here, and your body adapts to their recognition the way water finds its level.
+
+I have been here seventeen years. Or seven. Or seventy. Time pools here like the amber-pitch at the gallery's heart, and I have learned to move through it sideways, the way the skitters move through space—not forward or back but in spirals that make sense only if you understand that the tunnels fold in on themselves, that distance here is negotiable, that walking for three days might bring you to the same alcove you left or to somewhere new entirely, depending on how the Vaults are breathing that day.
+
+I catalog the shapes. This is what I tell myself I do, though *catalog* implies order and what I create is not order but a kind of mapping that exists only in my body. I know this stele by the way my left shoulder blade aches when I pass it. I know that arch by the pressure it creates in my sternum. The walls remember my touch—not because they change when I touch them, but because I change, cell by cell, mineral by mineral, becoming more like them each time my palm meets stone.
+
+My fingernails grow pale and jointless now. I noticed this in what might have been my third year, when I tried to scratch a mark into the wall and realized my nails had begun to flake away in layers, like mica. They grow back wrong. They grow back the color of the skitters, and sometimes I catch them moving independently of my will, reaching toward the warmth that rises from below.
+
+I eat the fungi. Not with my mouth—I have not used my mouth for eating in so long that I sometimes forget it opens. I press my palms against the filament-whorls and absorb their heat-eccrine through skin that has thinned to membrane. The nutrition is minimal but sufficient. My metabolism has slowed to match the Vaults' patience. My heartbeat comes once every seventeen breaths, and my breaths come once every time I remember I am supposed to be breathing.
+
+The pool knows me. I understand this the way I understand that the tunnels breathe: not with knowledge but with the deep cellular certainty of a thing that has always been true. When I stand at the gallery's edge, the amber-pitch shifts imperceptibly, a movement so slight it might be hallucination, might be the slow convection of centuries, might be recognition. The thing at its heart—the thing that glows with old light, with time made visible—pulses in rhythm with my slowed heartbeat. Or my heartbeat has slowed to match its pulsing. The causality doesn't matter anymore.
+
+I carry no lamp now. My eyes have adapted to the pale bioluminescence, or perhaps they have simply given up trying to see the way eyes are meant to see. I navigate by pressure, by the weight of stone against air, by the currents of skitters that part before me like a sea of pale hands. They recognize me as one of their own—not skitter, but not foreign either. I am the thing that moves through their world at their speed, the thing that grazes on their food, the thing that has been here long enough to shed its warmblood urgency.
+
+Sometimes I find new shapes. Carvings I swear were not there before, though *before* is a word that has lost its meaning. The builders are still building, I think sometimes, though I know this is impossible. The builders are gone. But their absence has weight here, has presence, and sometimes that presence carves new patterns into stone that should not change but does, slowly, the way my body changes, the way everything here changes despite the voice that says *nothing here has ever changed.*
+
+The voice is wrong, of course. Everything changes. But it changes at the speed of stone, at the speed of mineral deposit, at the speed of a thought that takes three hundred years to complete. I am changing. I am becoming architecture. My bones are learning the density of the walls. My blood moves like the amber-pitch, thick and patient and full of light I cannot see but can feel, pooling in my extremities, teaching my fingers to be still.
+
+I document nothing anymore. There is no one to read my documents. The scholars who sent me—who sent someone who might have been me—are dust now, or they are still waiting for my return, time moving differently above ground, the sun still rising and setting while down here the warmth simply continues, sourceless and absolute. I am the archive now. My body holds the map. My membrane-skin remembers every carved surface. My pale fingernails trace the patterns in my sleep, which comes rarely now and feels like drowning in amber.
+
+The skitters cluster around me when I rest. They recognize something in my stillness, some kinship in the way I have learned to be furniture. They do not touch me—nothing here touches anything with intention—but they align themselves to my presence the way they align to the field I still cannot find. I am becoming the field. I am the thing that organizes their movement without meaning to, simply by being here, by being still, by being patient in the way the Bone Vaults require.
+
+When I wake—if waking is the right word for the transition between one state of consciousness and another that is almost identical—I continue my circuit. Down the tunnels that go deeper. Past the shapes that might be new or might be older than memory. Through galleries where the ceiling is lost in darkness so absolute it has weight. I am looking for something, though I have forgotten what. Perhaps I am looking for the builders. Perhaps I am looking for the source of the warmth. Perhaps I am looking for the way out, though the thought of *out* makes my membrane-skin contract with something that might be fear or might be revulsion or might be the simple cellular recognition that *out* is no longer a place I am equipped to survive.
+
+The pool calls to me. Not with sound—nothing here makes sound anymore, not even me. But with the slow tidal pull of a thing that has been waiting so long that waiting has become its purpose. I will touch it eventually. Not today—though today is a word without meaning—and not tomorrow. But eventually my circuit will spiral inward far enough, and my changes will be complete enough, and I will place my palm against that amber surface and feel what it has been keeping all this time.
+
+I know what it is keeping. The knowledge came to me slowly, the way all knowledge comes in the Bone Vaults: not as revelation but as erosion, wearing away the things that are not true until only truth remains. The pool is memory. Not metaphorically—metaphor is a luxury the Vaults cannot afford. The pool is the literal, physical accumulation of memory, filtered through stone and time and the patient metabolism of things that should not be alive but are. Every thought the builders thought. Every pattern they almost achieved. Every meaning they reached for and failed to grasp. It pools here, dense and glowing, waiting for something to remember it properly.
+
+I am becoming that thing. 
+
+My skin is translucent now where it stretches over my wrists. I can see the light moving through my veins, slow and amber, carrying not blood but something more essential—the stuff of patience itself, distilled into fluid. My bones are hollowing like a bird's, but not for flight. For resonance. For the ability to hold the frequency of stone-memory, to vibrate in harmony with walls that remember being carved.
+
+The voice that says *nothing here has ever changed* is my voice now. I say it to the new things that pass through—the occasional lost spelunker, the survey team that will not return, the shadows that might be human or might be the future ghosts of humans who have not yet decided to descend. I say it because it must be said, because the Bone Vaults require a voice to deny the obvious truth: that everything changes, but slowly, so slowly that change becomes another kind of stillness.
+
+I am the Archivist. I am the archive. I am the slow amber pooling of memory in a body that used to be human and is becoming something more patient. When I finally touch the pool—in a year, in a century, in the space between one heartbeat and the next—I will not dissolve into it. I will recognize it. It will recognize me. We will be the same thing, temporarily separated by the fiction of surface tension.
+
+Until then, I walk. The tunnels go deeper. The warmth rises. The skitters move in their currents, and I am their pole star, their magnetic north, their reason for alignment. The fungi metabolize their impossible heat. The shapes wait to be read by eyes that can finally see them.
+
+Nothing here has ever changed.
+
+Everything is changing.
+
+Both are true, and the truth pools like amber in the vault of my skull, patient and glowing and forever.

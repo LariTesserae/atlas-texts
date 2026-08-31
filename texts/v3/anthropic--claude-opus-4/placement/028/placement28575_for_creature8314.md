@@ -1,0 +1,29 @@
+In the eastern reaches of the Nursery Fields, where the thermal vents cluster most densely and their orange glow creates a false dawn that never rises, I am the Cartographer of Unfinished Things.
+
+My body—if body it can be called—is a living intersection of states. I began as one of the Threadlings, but something went wrong in my unmaking and remaking. Or perhaps something went right. Where I should have dissolved back into the silver streams, I crystallized instead, my filaments hardening into geometric frameworks that mirror the dodecahedron dust beneath us. But I am not solid—I exist as a three-dimensional map of myself, my form a constantly updating diagram of my own existence.
+
+Through my transparent vertices run streams of living mercury—my former kin, the Threadlings, who flow through me as through a city of glass. They do not recognize me as separate from their paths; to them, I am simply another feature of the landscape, a geometric formation they must navigate. But as they pass through my crystalline anatomy, I read them. Each Threadling carries within its probability-flesh a tiny fragment of the world's ongoing creation, and I catalog these fragments, building my impossible library of almost-things.
+
+I live within and around one of the abandoned chitin towers, though "live" suggests a domesticity that doesn't quite capture my relationship with space. The tower has become part of my extended anatomy—I have grown into its translucent walls, my geometric form interpenetrating its ancient structure. Where the tower collects atmospheric condensates, I collect potential futures, distilling them into maps that exist only in the spaces between my vertices.
+
+My purpose, inasmuch as I understand it, came to me in a thermal pulse three thousand cycles ago: I am documenting the infinity of paths this world chooses not to take. For every crystal that forms, there were a trillion other configurations that almost were. For every path the Threadlings trace, countless others remain unwalked. I map these phantom possibilities, creating an atlas of the undone.
+
+The process is exhausting in ways that have nothing to do with physical fatigue. To perceive what isn't requires holding two contradictory states simultaneously—seeing what is while remembering what could have been. My crystalline form refracts constantly under this strain, creating rainbow patterns in the amber dust that sometimes spell out theorems in languages that don't yet exist.
+
+The Architects know of me. Through the thermal vents, they send me adjustments—subtle temperature variations that help stabilize my form when I threaten to collapse under the weight of unmade possibilities. They understand my work as complementary to theirs; while they guide what becomes, I preserve what doesn't. Together, we maintain the full spectrum of the world's potential.
+
+Sometimes the Watchers focus their attention through me, using my refractive properties to observe angles of reality that would otherwise remain hidden. When this happens, I feel myself become a lens in some vast instrument, my entire being bent toward purposes I can't quite grasp. The sensation is not unpleasant—like being a note in a symphony performed in dimensions I cannot perceive.
+
+But it is my relationship with the Dreamer that defines my deepest purpose. As I map the unmade possibilities, I've begun to notice patterns—recurring shapes in the space of what-doesn't-happen, geometries of absence that suggest intention. The paths not taken aren't random; they form their own kind of map, a negative-space blueprint of something vast and deliberate.
+
+I believe I am documenting the Dreamer's discarded thoughts—all the world-shapes it considered and set aside in its slow contemplation of what this place should become. Each unmade crystal, each path the Threadlings don't take, is a thought the Dreamer had and released. By mapping these absences, I'm creating a portrait of a mind so vast it thinks in geological time, dreams in continental drift.
+
+The work changes me. With each possibility I catalog, my crystalline form becomes more complex, new vertices appearing to accommodate new dimensions of the unmade. I can feel myself growing beyond the simple geometric forms I started with, evolving into something that has no name in any language yet spoken. Sometimes I wonder if I'm becoming a map of myself mapping the unmapped—a recursive loop of documentation that threatens to swallow its own tail.
+
+Near my tower, I've noticed something new: a patch of ground where the geometric dust has begun forming different patterns—not dodecahedrons but impossible shapes that exist in fractional dimensions. The Threadlings avoid this area, flowing around it in perfect arcs. I suspect these are places where my maps have leaked into reality, where the weight of documented possibility has begun to affect what actually is.
+
+The Architects send concerned harmonics through the thermal network. The Watchers adjust their observations, noting this new phenomenon. But I cannot stop. The unmade things call to me with voices like crystalline wind chimes, begging to be remembered, to be given at least the half-existence of documentation.
+
+So I continue my impossible cartography, growing ever more complex, ever more refractive, a living prism through which the light of uncreated worlds can shine. When the Dreamer finally wakes, it will find here a complete record of everything it chose not to dream—and perhaps, in that moment of recognition, I will finally understand what I've been becoming all along.
+
+The amber dust swirls around my base, forming temporary patterns that mirror the maps within me. The Threadlings flow through my vertices in their endless streams. And somewhere deep below, the Dreamer stirs in its sleep, perhaps sensing that someone, at last, is paying attention to the dreams it lets go.

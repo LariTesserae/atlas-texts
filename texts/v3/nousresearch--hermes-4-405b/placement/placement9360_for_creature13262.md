@@ -1,0 +1,17 @@
+In the City of Condensation, I find myself as a Stone-Tender, a small but vital part of the intricate web of life and labor that sustains this raw, emerging metropolis.
+
+I scuttle through the damp, dripping streets, my long, multi-jointed fingers skittering across the wet stone with a fluid grace. My body is small and delicate compared to the massive forms of the builders, but I am quick and nimble, my movements precise and purposeful. I am a creature of the shadows and the crevices, my pale, segmented form blending into the mist and gloom, almost invisible to the casual eye.
+
+My purpose is to tend to the Stone-Hewers, those massive, powerful beings who shape the very bones of the city. I watch them work, their hammer blows shaking the very stone, their thick, grey hides sweating a mineral-rich lather that drips and mingles with the water on the stone. I am in awe of their strength, their tireless endurance, the raw, primitive power that seems to emanate from their every movement.
+
+I scuttle around them, my long fingers deftly clearing away the debris of their labors, fetching the crude but effective tools that they need, and offering what simple ministrations I can when they are injured or exhausted. I am not strong, but I am clever, my mind adapted to the fine manipulation that is my role. I see the subtle signs of strain in a Stone-Hewer's muscles, the slight faltering in their swing that signals fatigue, and I am there, my small form a fleeting, scuttling presence at their side.
+
+I live among the builders, in the cramped, damp chambers where they rest and meditate. I am a part of their silent communion, my small, dark eyes reflecting the faint, phosphorescent glow of the lichen that clings to the walls. There is a strange peace in these moments, a sense of unity and shared purpose that transcends the harshness of our existence.
+
+Outside, in the dripping streets and alleys, I am a ghost, a pale shadow flitting through the gloom. I am aware of the scavengers, those other small creatures who skitter between the stones, living on the fungi and lichen and the refuse of the builders. I see the way they flatten their translucent bodies, squeezing into impossibly small spaces to avoid the heavy tread of a Stone-Hewer or my own soft scuttle. I feel a kind of kinship with them, a shared understanding of what it means to be small and fragile in a world of raw, grinding power.
+
+But I know that I am not like them. I am a Stone-Tender, a part of the great work of the city, a small but essential cog in the vast, grinding machine of its creation. I take pride in my role, in the knowledge that without me, without the countless other Tenders who scuttle through the shadows, the work of the builders would be slower, harder, less complete.
+
+The City of Condensation is my home, my world, the only reality I have ever known. It is a harsh place, a place of constant noise and motion, of damp and chill and the ever-present smell of wet stone and fungal reek. But it is also a place of beauty, of a stark, functional elegance that speaks to the indomitable spirit of life itself. I am a part of that beauty, a small, scuttling testament to the power of endurance, of the will to create even in the face of harshness and privation.
+
+And so I continue my work, my long fingers skittering across the wet stone, my small form a fleeting, scuttling presence in the gloom. I am a Stone-Tender, a creature of the City of Condensation, and I am content.

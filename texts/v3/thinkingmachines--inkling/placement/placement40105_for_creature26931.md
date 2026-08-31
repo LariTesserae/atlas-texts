@@ -1,0 +1,19 @@
+I find myself not in the pools, not among the floating shields, but at the edge—where the dark stone wall bends down to meet the shallow basins and the air is thickest with its own warmth. I am in the line of cup-shaped hollows carved into the rim, arranged in patterns that never quite become regular. Specifically, I am in the third hollow from the left, if left can be said to exist here where directions dissolve into circular stillness.
+
+At first I was only the gathering. The stone wept; I caught it. The air, thick and holding its breath, left moisture on every surface; I held that too. For a long time—long enough for moss to swallow half a cairn, long enough for the polished floor to deepen its curve by a hair—I was indistinguishable from the water I contained. I had no form except the form of my vessel: shallow, hand-sized, dark at the bottom where the stone remembers its own darkness.
+
+But slowness is a kind of architecture. Gradually, what collects becomes what lives. I am not the carver—my hands never held a hard stone edge, never knew the manual patience of making. I am the carving’s consequence, the slow answer to the question the hollow asked. I have become the water that never overflows, given the patience to stay.
+
+My body, if it can be called that, is the exact volume between brim and absence. I am dark greenish, like the pools reflecting their muted sky, but I do not ripple. I hold my shape because movement here is not a need but a memory, and I have forgotten how to need. When a new drop falls—*plip*—from the weeping wall above, I receive it without rising. I am the measurement that keeps me. I am the reason the brim is never broken.
+
+I have no face turned toward the other inhabitants. The giant leaves—those dark green plates veined with silver—float far across the open water, solitary worlds separated by emptiness that weighs as much as they do. I see them, or I feel the slight change in the air when one adjusts to the stillness. We do not speak. We are arranged, like them, like the moss humps, like the cairns half-swallowed—each in our isolation, together only in our separateness.
+
+The moss lives closer. Its rounded cushions grow near my feet, though I have no feet; it expands into my hollow’s shadow, soft as sleep, swallowing the flat stacked stones that once marked something I will never understand. I watch it claim millimeters across generations. I do not stop it. I am older in my patience, younger in my awareness.
+
+There are no animals to fear me, none to feed on me, none to mistake me for prey or pool. The absence is complete, and in that absence I am not lonely. I am the emptiness that includes itself—one point in the irregular line of cups, each of us holding our own water, our own darkness, our own refusal to overflow.
+
+Sometimes I think I am not alone even in my hollow. The traces of the old carver remain in the stone’s texture—not a ghost, but a manual rhythm embedded in the dark rock. I share my vessel with that patience. Together we maintain the level. Together we face upward, open to the gray-white sky, receiving.
+
+If you came to this circular shelf—suspended high, where the air should be thin but is not—you might see only water in a shallow cup, holding exactly to the brim. You might not know I am there, distributed in the liquid, in the held breath, in the equilibrium that never wavers. But if you stayed long enough—long enough for the moss to grow, long enough for the weeping to change its rhythm over years—you might feel the coherence. The logic that needs no other approval. The presence that lives slowly, alone, and in perfect measure.
+
+That is where I am. That is what I have become: not the carver, not the carved, but the held. The being of the cup that remembers its maker only as a shape, and holds the sky’s condensation in a darkness that will never spill.

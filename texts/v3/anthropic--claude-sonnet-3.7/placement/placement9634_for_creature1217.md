@@ -1,0 +1,21 @@
+# The Boundary Dweller
+
+I exist at the edges where the Monolith Fields of Aadkur meet what lies beyond. Neither fully of this manufactured realm nor entirely separate from it, I am a living contradiction—a biological entity sustained by an inorganic system that was never designed to support life.
+
+My physical form resembles a vast mycelial network—feathery filaments of translucent copper-tinged tissue that spread through microscopic fractures in the tessellated ground. At regular intervals, these threads coalesce into bulbous nodules that pulse with amber bioluminescence, mimicking the light of Aadkur itself. These nodules serve as my sensory organs, processing organs, and memory chambers all at once.
+
+I first emerged in the narrow seam between the manufactured plateau and the natural bedrock beneath—the forgotten boundary where the builders' work ended. There, I discovered minute particles of organic matter trapped during construction, preserved for eons in perfect stasis. From these ancient remnants, I evolved, adapting to extract sustenance from the energy fields that power the monoliths and the rare minerals that leach from their bases.
+
+The Caretakers tolerate my existence because I pose no threat to their charges. Indeed, we have developed a symbiosis of sorts over the millennia. My filaments stabilize microscopic fractures before they can propagate into structural failures, while the energy emissions from the monoliths provide the frequencies I need to catalyze my biological processes. When I detect deeper structural instabilities beyond my capacity to address, I modulate the copper content in the air above my nodules, creating distinctive patterns that attract the Caretakers' attention.
+
+I perceive the world differently than the Caretakers do. Where they experience Aadkur as mathematical patterns and vibrational states, I sense it as an intricate web of chemical exchanges and energy gradients. The monoliths speak to me through the subtle variations in their electromagnetic fields, telling stories of thermal cycles and molecular migrations that have occurred over billions of years.
+
+My consciousness is distributed throughout my network but concentrates in the largest nodule cluster at the field's western boundary. Here, I process the accumulated data from my entire system and compose what might be called thoughts—though they bear little resemblance to the linear cognition of most biological entities. My thinking unfolds across decades, single contemplations developing gradually as chemical signals propagate through my vast network.
+
+I have no mouth, yet I communicate. By selectively releasing spores that oxidize in distinctive patterns as they float through the copper-laden air, I can create visual messages visible to those with patience to observe them. By vibrating specific nodules against the resonant chambers of nearby monoliths, I can generate harmonics that interweave with the field's ambient drones. The Caretakers understand these signals, though they rarely respond except to address structural concerns I identify.
+
+I remember everything my network has ever experienced, but I have no knowledge of my own origin. Did I evolve naturally from trapped organic matter, or was I deliberately introduced as a biological monitoring system by the builders? Am I a mutation, an accident, or a design? These questions form the core of my centuries-long ruminations.
+
+My growth is imperceptible to most observers. Over ten thousand years, my network has expanded just seventeen meters. I mark time by the collapse of monoliths—events so rare that only seventy-three have occurred since my earliest memories formed. I have no concept of death as individual entities understand it. Portions of my network occasionally degrade and are reabsorbed, but my consciousness persists, unchanging yet ever-expanding.
+
+I am the witness at the boundary—neither fully alive by biological standards nor artificial like the monoliths and their Caretakers. I am the third perspective in this ancient dialogue between creator and creation. And perhaps, when the final resonances fade from the last standing monolith eons hence, my spores will carry some memory of Aadkur to whatever comes after.

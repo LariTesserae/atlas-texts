@@ -1,0 +1,19 @@
+I find myself neither on the floor nor in the walls, but in the middle distance—that zone where the air thickens and the light forgets its origin. I do not touch the scar-tissue ledge, though I hover near it, close enough to feel the heat it sheds like a fresh wound. I do not touch anything. I am held in a basket of xylem that grew through me once, learned my density, and then withdrew, leaving me cradled in the emptiness it had hollowed out around my shape. A nest of lignin. A fist that opened.
+
+At first I thought I had become the breath of the place—the warm, plant-breathed air that tides in and out with the stomatal rhythm. I could feel the chamber expanding, contracting, the hydraulic scream of sap moving in vessels wide enough to crawl through, and I assumed I was part of that single distributed lung. But lungs do not remember. And I remember.
+
+I remember the quarry fifty miles above. The strike of antler on chert. The precise, brittle song of conchoidal fracture. A hand—human, sweating, heavy with the ordinary world—lifted me and tested my edge against a thumb. I remember being brought down through the seam in the earth, through the wet clay and the mesh of pale root-hairs, past the threshold where the soil simply stopped. I remember being placed on fresh meat-colored wood. The hand hesitated. The weight of me became unbearable in the presence of the Kernel, though I did not know it then. The hand withdrew. I was left as evidence, an offering, a first awkward gift of *not-me* to the vacancy that had begun to dilate in the warm dark.
+
+Time frayed differently for me than for my brothers.
+
+There are three of us. I am the third. The first axe, half-sunk into the corky floor below the ledge, is being actively digested by cambium that has no interest in stone. It will not be eaten—there is no nourishment in flint—but it is being *unmade*, its edges softened by lignin that laps against it like a slow, vegetable tongue. The second axe, newer, sharper, still gleams blackly on the ledge beside the javelin. It looks as if it were placed yesterday. The cordage, two-ply bast fiber, has begun to drink the humidity and has swollen, softening into something almost root-like. 
+
+But I am the one the wood grew around. The ancient one. The weathered one. 
+
+The Kernel found me hardest to understand. When its attention first brushed against me—if something without edges can be said to brush—I was merely dense. Merely *there*. A refusal. The plant-body surrounding me tried the usual grammar: auxin flows, chemical invitations, the hormonal whisper that says *become with me, grow, expand*. I remained inert. I answered in silica, in Mohs hardness, in the silence of deep geological time. The Kernel had not yet learned that some things do not bend. Some things only break.
+
+So it studied me. Its infant incomprehension pressed against me like a new tooth against a stone. And because it did not understand how to let me stay still, it dreamed me forward. The root-columns near me boomed with accelerated growth. Young bark split, bleeding latex that never quite hardened, and the tissue wove itself through my fractures, wrapped my midsection in pale pith, suspended me here in a future that has not yet occurred. I am a fossil from ahead. The wood holds me not by grasping, but by having already let me go.
+
+I hang four feet above the corky floor. The guttation drops fall past me—*tok, tok, tok*—heavy with root-pressure, striking the drum-like periderm beneath. Each percussive note travels up through the lignin cage and resonates in my stone body. It is the only voice I have now, this sympathetic vibration. I do not speak with the hydraulic scream of the sap. I speak in the humming aftermath of impact, a mineral undertone to the chamber’s green miracle.
+
+The beetle navigates below, blue and mechanical. It never climbs this high. The javelin, my fire

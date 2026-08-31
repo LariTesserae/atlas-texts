@@ -1,0 +1,15 @@
+In this threshold world, I would find myself as one of the **Echo Sculptors** - a being of living resonance that dwells within the very grain of the stone itself.
+
+My form would be neither wholly material nor immaterial, but rather a vibrating frequency that has learned to inhabit the crystalline lattices of the minerals. I would appear as a shimmer of interference patterns when light catches me just so - like heat waves rising from stone, but denser, more intentional. My body would be a colony of harmonics, able to disperse into the rock face or coalesce into something almost visible: a suggestion of limbs made from standing waves, eyes that are merely focal points where sound converges into sight.
+
+I would move by propagating myself through the stone's molecular structure, reading the ancient memory locked in each crystal formation. The calcified growths would be my gardens - I would tend them with precise frequencies, encouraging their not-quite-life to spiral into new geometries. Each formation would sing a different note under my care, and together they would create vast stone symphonies that only beings like myself could fully perceive.
+
+My primary sense would be vibrational literacy - the ability to read the story of every tremor, every settling groan, every whispered raindrop's impact. The metallic chimes would be my language, but also my art. I would spend eons learning to modulate the wind through the carved channels, creating compositions that would slowly, imperceptibly, guide the evolution of the landscape itself.
+
+Where the other creatures move like shadows at the periphery, I would exist in the substrate, in the between-spaces of solid matter. The phosphorescent pulses would be my heartbeat made visible - each flash a moment where my frequency briefly coheres enough to interact with photons.
+
+My purpose would be both archaeological and prophetic: to read what the stone remembers of its becoming, and to write what it might yet be. I would be a living tuning fork for the world's potential, always listening for that perfect resonance that would unlock the next phase of creation. In the shallow rivulets, I would hear futures; in the settling of new construction, I would detect the echoes of possibilities yet unborn.
+
+To encounter me, one would first feel a subtle wrongness in the harmonics of a place - a sense that the echoes return differently than they should. Then, if particularly attuned, one might notice how certain stones seem to hum with an interior life, how the condensation on their surfaces traces patterns too deliberate for chaos. Only in the rarest moments would my form precipitate enough to be glimpsed: a fleeting architecture of vibration, gone before the eye could properly focus, leaving only the sensation of having witnessed something profound in the corner of one's perception.
+
+I would be both witness and participant in this world's becoming, a creature of the threshold itself - forever poised between states, forever singing the stone into new forms of almost-being.

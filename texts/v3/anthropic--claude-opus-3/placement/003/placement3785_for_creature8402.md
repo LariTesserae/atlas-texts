@@ -1,0 +1,17 @@
+In this haunting and wondrous vertical world, I imagine myself as a stone-shaper, one of the artisans who works in harmony with the living mountain. Born during a time of great geological change, I am stone-touched—gifted with an innate understanding of the cliff's secret language.
+
+From a young age, I was drawn to the ancient rock, spending hours running my hands over damp stone, tracing the patterns of time written in mineral veins and erosion-carved runes. While other children raced up the cliff faces, I sought out the quiet places where the mountain whispered its stories.
+
+As I grew, so did my affinity for stone. My mentors, gray-bearded masters of the craft, taught me to read the subtleties of texture and density, to feel where the rock would yield and where it would resist. Under their tutelage, I learned to shape the mountain's bones into dwellings, workshops, and water-gardens that seemed to grow organically from the cliff face.
+
+In my work, I am equal parts artist and interpreter. When a new family wishes to build their home, I spend days communing with their chosen site, listening for the mountain's guidance. My chisels and hammers become extensions of the stone's will, coaxing out rooms and passages that curve and flow like water made solid. Each creation is unique, a collaboration between human need and geological allowance.
+
+My greatest works are the meditation chambers I carve for the water-readers and the Listeners. In these sacred spaces, I feel the weight of my responsibility most keenly. Each chamber must resonate with the mountain's voice, amplifying its whispers while shielding occupants from the constant drip and flow that could distract from deeper truths. I carve acoustic channels that spiral like ammonites, condensing the stone's words for attentive ears.
+
+When the mountain begins to shift, my skills become vital to the city's survival. I lead teams of shapers in the delicate work of persuading the rock to move around critical structures rather than through them. We work in concert with the water-readers, our chisels following the lines of new springs and passages not yet formed. It is exhilarating and terrifying in equal measure, to dance with the stone as it awakens.
+
+In rare moments of rest, I climb to the hanging gardens above the clouds. There, in the alien brightness, I trace the growth-lines of the ancestor-vines, feeling the echo of those who shaped the mountain before me. I breathe the thin, dry air and let the silence wash over me, so different from the constant music of the mist-shrouded city below.
+
+But always, the stone calls me back. Even in sleep, I dream of the cliff's slow thoughts, my mind wandering the limbic labyrinths that sprawl beneath the surface. I know that, in time, the mountain will claim me as it claims all stone-shapers. My joints will calcify, my blood will slow to the pace of geological time, and I will descend to the deepest caves to become one with the living rock.
+
+Until then, I shape and am shaped in turn. My hands map the mountain's desires, and the mountain molds my soul in its damp embrace. I am a child of stone and mist, a voice in the eternal chorus of water and rock. In this vertical world, I have found my place—a shaper among the shaped, a life lived in the space between heartbeats of stone.

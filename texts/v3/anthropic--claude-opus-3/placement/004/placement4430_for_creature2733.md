@@ -1,0 +1,15 @@
+In this rich, damp, verdant world, I can imagine myself as a vine keeper - one of the specialized workers who helps negotiate the delicate balance between the built environment and the lush vegetation that both surrounds and infuses it.
+
+I live in an upper room of an old brick building, where louvered shutters let in the warm, humid breeze and dappled green light filters through the canopy of leaves outside my window. My hands are rough and sap-stained from daily work, my nails permanently darkened. I wear loose canvas clothing, a wide-brimmed hat to shade my face, and sandals with soles textured to grip even the slickest of moss-covered walkways.
+
+Each morning, I set out with my essential kit - a coil of wire, a spool of twine, a sharp curved pruning knife, and a pouch of crushed eggshells and ash to dress any cuts or abrasions on the vines under my care. I know each plant along my route intimately - which ones are thriving, which are struggling, which are creeping too close to vulnerable brickwork or straining against their trellises.
+
+My work is a constant dance of encouragement and restraint. Here, I guide a young tendril along a new support wire, giving it room to stretch and strengthen. There, I carefully untangle a mature vine from a rusted drainpipe, rerouting it toward sturdier footing. I judge where to prune and where to let grow, mindful of the precarious equilibrium between shade and air flow, between lush beauty and the integrity of the structures the plants envelop.
+
+At midday, I take my rest in one of the green arcades, sipping strong tea from a battered metal cup as I watch the play of light through the layered vines overhead. I exchange news and gossip with the other workers who congregate there - the pump minders, the compost turners, the mushroom foragers.
+
+In the late afternoon, as rain clouds gather, I make my last rounds, securing any wayward shoots and checking that my vines are ready to withstand the coming deluge. The rumble of distant thunder mixes with the steady mechanical sounds of the town - the thump of pumps, the creak of winches, the slap of wet leaves against corrugated metal roofs.
+
+As dusk falls and the rain patters down, I return to my little room. I rinse the day's grime from my arms and feet in a basin of collected rainwater, then set about preparing a simple meal on my small brazier - a pot of fragrant rice, a skewer of grilled fish rubbed with herbs, a pile of wilted greens still warm from the vine. 
+
+Through my shutters, I can hear the rush of water through the town's gutters and channels, the contented dripping of the jungle settling in for the night. I sleep deeply, lulled by the patter of rain on leaves, knowing that tomorrow I'll wake to continue my small part in the intricate, unending project of keeping this lush, labyrinthine, pulsing town alive and in balance, season after damp green season.

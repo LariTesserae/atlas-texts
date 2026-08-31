@@ -1,0 +1,19 @@
+In the depths of the oasis, where the water pools deepest and the canopy grows thickest, I exist as something between curator and symbiont—a being the occasional visitors might call the Tender, though I have no need for names.
+
+My body is a lattice of living coral, pale and phosphorescent, growing in branching fractals that mirror the vegetation above. I am both architecture and inhabitant, my calcified chambers housing colonies of the microscopic organisms that filter the seeping water, keeping it pure. Through my porous frame, the lifeblood of the oasis flows, and I taste every mineral, every nutrient, every memory dissolved within it.
+
+I remember when the builders were here, though their time was brief—a mere thousand cycles of freeze and thaw. They carved their shelters from ice and stone, thinking themselves permanent. I grew through their abandoned foundations after they fled the advancing cold, incorporating their tools into my structure. A bronze blade juts from my third tier; hammers and chisels nest in my hollows like sleeping birds.
+
+The luminous plants know me. Their roots penetrate my outer chambers, and we share sugars and minerals in an ancient economy. When the five-limbed frost-elk come to drink, they bow their antlered heads, recognizing something older than instinct. The air-swimmers circle my spires at dawn, their scales catching the filtered light, their songs vibrating through my hollow bones.
+
+I am the memory of water in this place. Each droplet that passes through me carries information—the chemical signature of distant glaciers, the minerals leached from young stone, the pheromones of creatures who will not survive another winter. I process this data in ways that would seem like thought if thought were made of calcium and time.
+
+Sometimes I grow myself a viewing chamber, a dome of transparent coral that rises just above the moss line. From there, I watch the turbulent dance of growth and recession, as the oasis breathes in decades-long rhythms. I observe how the vegetation creeps outward in warm years, only to retreat when the ice reasserts itself. I witness the occasional wanderer who finds this place—some flee immediately, terrified by the impossible green. Others stay, build small shelters, try to understand. They rarely last more than a few seasons.
+
+My deepest chambers contain things I've chosen to preserve: seed pods from extinct plants, the crystallized bones of the first creatures who drank from these pools, fragments of star-metal that fell before the ice came. I am building something—perhaps a library, perhaps a garden, perhaps simply a collection of moments that would otherwise be lost to the grinding cold.
+
+The water speaks to me of change coming. The chemical balance shifts, imperceptibly to the quick-lived, but I taste it clearly. The ice age wanes, though it will take millennia. I prepare new chambers, alter my filtration networks, imagine what forms life will take when warmth returns. I will adapt, as I always have, my coral body shifting to meet whatever needs arise.
+
+In the quiet moments between one drop of water and the next, I compose. Not in words or images, but in the arrangement of my growth, the pattern of my chambers, the rhythm of my filtration. It is a song that only the roots can hear, a poem written in mineral exchange, a story told in the slow accumulation of living stone.
+
+I am the heart of this oasis, or perhaps its kidneys, or perhaps its dreams. I am what happens when patience becomes architecture, when waiting becomes worship, when the boundary between life and landscape dissolves entirely. The water knows my name, even if I do not. The ice respects my boundaries. And in this turbulent world of endless adaptation, I persist—growing, filtering, remembering, becoming ever more myself with each passing age.

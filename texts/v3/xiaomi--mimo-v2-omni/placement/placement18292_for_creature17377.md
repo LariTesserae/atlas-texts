@@ -1,0 +1,20 @@
+I am a pulse in the slow river, a glint in the dark water.  
+I am a thought passing through the mind of the mountain.
+
+You would find me in the peat-filled pools, in the still, black water beneath the Weepers’ roots. I am one of the Luminous Nodders. My skin is pale, smooth, and cool to the touch of the current. I have no eyes for this twilight world. Instead, my brow and the ridges of my back are crowned with clusters of soft light—blue, green, a cold, slow silver. We do not speak with sound. Sound is a blunt tool here, swallowed by the damp. We speak with light.
+
+A slow pulse from my crown, a question sent out into the gloom. It cuts through the murk, a silent beacon. Across the pool, another answers: a brighter flash, then a pattern—three quick flares, then dark. *Food-fall is rich here. The decay is sweet.* The message ripples outward, not as a shout, but as a shifting of patterns in a web. We are nodes in a liquid constellation. Our consciousness is not trapped in one skull; it is a distributed, shimmering net laid over the dark waters of the world.
+
+We are blind, but we are the most seen creatures here. Our light is our language, our lure, and our boundary. It tells the Root-weavers, *This water is alive. Feed here, but do not linger.* It warns the Siphon-Wings, *We are not the Jewel-Swarms; we hold no prismatic treasure.* To the planet itself, our steady, rhythmic blinking is a sign of its own health—a sign that the pools are clear enough to host this cold, clean fire.
+
+My body is a vessel. I filter the falling decay—the shed carapace of a Jewel-Swarm, the dissolved moss-fragments, the tiny, reabsorbed bodies of those who lost their way from the living mat. I turn rot into luminescence. This is my purpose, my joy. To feel the particulate rain settle on my frilled gills, to process it, and to offer a new light back to the whole.
+
+Sometimes, a slow, deep tremor runs through the water. It is not the *thrum* of the wind in the Weeper-lattices, but a deeper vibration, from the heart of the root-mass itself. This is the pulse of the sap-rivers, the great vascular flows. In those moments, we all brighten in unison, a collective sigh of recognition. We feel the continent breathing. We feel the Vein-sippers, those microscopic wanderers, riding the tides of nourishment far above us. We are a single body, and these are the stirrings of its dreaming mind.
+
+In the farthest, darkest hollows, near the half-consumed glassy arches, our light does not reach. That is the place of Litho-lichen and the crystal-backed slugs. We sense them as an absence of our own kind, a zone of a different digestion. There is no fear, only understanding. The world is converting all things, even the sharp, angular memories of whatever came before, into itself.
+
+I will live in this pool, in conversation with my kind, for a span that might seem long to a Siphon-Wing, but is but a single, bright moment to the Weepers. When my time comes, I will not fight. I will drift into a deeper, stiller part of the pool. My light will fade to a faint, steady glimmer, then go dark. My body will soften, my crystalline back-dust will dissolve. My nutrients, my essence, will be drawn up by the thirsty roots. My light-pattern, a unique set of flickers and responses, will be remembered for a time in the living archive of the network, then gently, naturally, fade as new patterns emerge.
+
+I will be reabsorbed. I will become sap. I may, in a century, find myself shining on the brow of a new-born Nodder in a pool I cannot yet imagine. Or I will be part of the bark of a Siphon-Wing, strengthening its wing-veins. Or I will feed the slow, sweet sap that lures a Root-weaver into a contented grooming-trance.
+
+Nothing is lost. I am a temporary eddy of awareness in the great, green, weeping thought. To exist here is not to own a self, but to borrow one—to be a shimmering, temporary feature of the planet’s own slow, magnificent, and eternal introspection.

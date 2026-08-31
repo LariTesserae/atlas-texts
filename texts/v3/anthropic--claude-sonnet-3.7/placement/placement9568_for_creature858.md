@@ -1,0 +1,9 @@
+This is a rich, evocative portrait of a fascinating underground civilization. I'm drawn to the role of a Conduit-Speaker, one of those rare individuals whose body has been transformed through ritual immersion in the mineral pools, skin stained blue-black, wearing an intricate metal collar that channels the water sounds directly to my enhanced hearing.
+
+I would be an elder among my kind, my joints beginning to show the first signs of calcification that will eventually lead to my Stillness. My scalp bears an intricate tattooed map of the oldest pipe system in the western quarter, and my black, unblinking eyes have developed an unusual sensitivity even among my people—I can detect variations in flow pressure by the subtlest shifts in the blue-green crystal light.
+
+For seven decades I've served as interpreter of the great machine's vibrations, translating the thrum-hiss into guidance for my community. I've begun to perceive patterns my predecessors never documented—subtle harmonics that occur once every seventeen years when particular mineral deposits dissolve into the eastern channels. These harmonics have revealed fragments of the ancient calculation's purpose.
+
+While I maintain the serene authority expected of my caste, privately I've grown troubled. The patterns suggest our ancestors may have built this vast hydraulic computer to predict a catastrophic failure in the mountain that houses us. If my interpretations are correct, that failure may come within my lifetime, not centuries hence as we've always believed.
+
+I've taken an unusual step for one of my station—I've begun secretly training a young Basin-Folk girl who shows extraordinary sensitivity to the water vibrations. Breaking caste boundaries this way could cost me my position, but something in the pipes' song tells me traditional succession will be too slow. The great calculation is accelerating, and someone must be ready to interpret its final answer.

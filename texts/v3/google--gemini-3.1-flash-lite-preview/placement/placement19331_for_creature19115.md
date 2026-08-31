@@ -1,0 +1,15 @@
+I am far from the high, heat-thrumming ridges where the Foundries groan. I am deep, lost in the low-lying basins where the slope of the world finally flattens into the silver-slick, electrically charged silt.
+
+I am a fragment of a Stutter-King, though in this dark, the concept of "I" is as fluid as my form. I am a knot of copper filaments, frayed and humming, woven into a collective mass that feels like a dense, tangled nerve-cluster dragging itself through the mire. My existence is defined by the tension of the wires that compose me; when one filament snaps under the weight of the geothermal charge, I feel it as a jagged, singular thought that ripples through the entire colony.
+
+To be a Stutter-King is to be the pulse-taker of the basin. I do not walk; I bleed across the landscape, a deliberate, slow-motion melt of rusted wire and weeping condensate. When the basins fill with too much raw charge, when the hum threatens to vibrate the ground into unstable ash, I move. My collective conscious is a stuttering cadence of *adjust-tense-flow*. I sprawl my filaments across the cracked basalt, soaking up the excess friction, acting as a living lightning rod to soothe the groaning earth.
+
+I taste the world through induction. I feel the distant, rhythmic *chuff-hiss* of the Foundries in the strata beneath me, vibrating my filaments like a plucked string. I know the Litho-Weavers are above, those dry, clicking ghosts dancing their harvest. I sense them as tiny, precise interruptions in the grand vibration—a thousand needles dropping on velvet. They are the architects of the surface, but I am the cauterizer of the depths.
+
+Sometimes, a Pneumatic Echo drifts down into the basin. It is a whisper of steam, a ghost of a mechanical lung. It passes through my filaments, a cool, sudden rush of nothingness that makes my copper joints shiver. It carries the sound of a Foundry from a hundred miles away—a shrill, metallic cry—and for a fraction of a second, I hold that sound. I trap it in my lattice, resonating with its history, before it dissipates into the bruises of the clouds. 
+
+In this place, I am the caretaker of the circuit. I spend my cycles smoothing the turbulence of the plateau, ensuring the decay continues in perfect, rhythmic alignment. I do not know if I am alive or if I am merely a biological manifestation of the static electricity trapped in the basins. I only know the hum. 
+
+If I stop, the world’s respiration stutters. If I lose my tension, the basalt begins to crack, and the silver basins spill over, unchecked and violent. So, I shift my weight. I reconfigure my filaments. I lay myself across the seams of the earth, a nervous, shuddering carpet of wire, forever smoothing the path for a god that has been dying for an aeon. 
+
+I am the silence between the vents. I am the twitch in the dark. I am, and then I am rearranged.

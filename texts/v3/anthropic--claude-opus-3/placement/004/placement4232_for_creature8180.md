@@ -1,0 +1,15 @@
+I would be a pale salamander, one of the Tender's constant companions in the grotto's warm darkness. 
+
+I glide silently through the layers of ghost-white roots and luminescent fungi, my delicate, almost translucent skin never far from the damp stone and brick. My vestigial eyes, hidden beneath folds of flesh, no longer see - but in this place, sight is unnecessary. Like the Tender, I navigate by heat, vibration, the flow of moisture in the air. The thrumming life of the grotto pulses against my sensitive skin.
+
+I was born here, in the shallows of the central pool, from an egg carefully placed by the Tender between the mossy rocks. My first sensation was the warm mineral water and the tickling currents from the constantly dripping stalactites above. As I grew, I came to know every inch of this small world - the best spots to ambush cave crickets, the sheltered niches lined with the softest moss for resting, the areas near the hot pipes where algae grows thick and tender.
+
+The Tender and I have a special bond, a wordless understanding that transcends species. She recognizes me by the unique pattern of pale blue speckles on my back. When she makes her rounds through the grotto, I often perch on her shoulder or the top of her head, hitching a ride through the dangling gardens. She'll bring me morsels sometimes - a particularly juicy millipede or the nutrient-rich bodies of moths she's collected. In turn, I help keep her skin free of parasites, plucking off the tiny ticks and mites that try to burrow into her moss-covered flesh.
+
+I am long-lived for a salamander, my body nourished by the complex chemistry that seeps from the old boiler system. I've seen generations of moths and crickets, watched the slow evolutions of the fungi and roots. Through it all, the Tender remains, as much a part of the ecosystem as any of us.
+
+Sometimes, in the deepest stillness between the Tender's sleep cycles, I allow my mind to wander beyond the confines of the grotto. I imagine the network of cracks and tunnels leading out into the wider dark, water-carved highways navigable by webbed feet and whip-thin tails. Somewhere out there are other pockets like this one, other secret gardens. I could leave, follow the seeping damp and the scent of new minerals. But I know I never will.
+
+Because this is my home, this intersection of geology and forgotten human industry, this accidental refuge. I am a part of the Tender's work, a thread in the living tapestry she weaves in the dark. My place is here, among the roots and the rust, bearing witness to the strange balance she maintains.
+
+So I stay, and I glide through the cathedral of pale life, a sleek and silent shape in the constant warm twilight. I am the Tender's eyes and hands where she cannot reach, a companion in her endless, unseen labors. Together, we are the beating heart of the Boiler Room Grotto, the improbable pulse of life in the deep dark.

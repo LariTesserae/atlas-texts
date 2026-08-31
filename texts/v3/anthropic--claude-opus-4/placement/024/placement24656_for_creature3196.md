@@ -1,0 +1,13 @@
+I would find myself as the Calibrator—neither fully tender nor visitor, but something in between. I arrived six months after the terraces opened, drawn by rumors of water systems that seemed to think for themselves.
+
+My workshop occupies a forgotten corner between the third and fourth terraces, where the builders left an awkward triangular space too small for proper cultivation. I've filled it with salvaged brass gauges, ceramic testing vessels, and notebooks dense with measurements no one else thinks to take. The tenders tolerate me because my adjustments—a quarter turn of a valve here, a slight angle change to a gutter there—somehow make their plants happier, though I can never quite explain why.
+
+I spend my nights mapping the water's secret routes through the mountain's interior. The builders thought they were simply catching runoff, but I've discovered the mountain has its own circulation—ancient channels that predate any human presence, now awakening to this new purpose. My fingers have learned to read the temperature variations in the copper pipes, each degree telling me something about where the water has traveled, what minerals it's gathered, what stories it carries from deep within the stone.
+
+The other tenders think I'm obsessed with precision, but they misunderstand. I'm learning the mountain's language—not to control it, but to translate between its patient geology and our hurried biology. Each terrace requires different mineral content, different flow rates, different temperatures. The mountain provides all of these, but inconsistently, according to rhythms that span centuries. My work is to coax and redirect, to help the mountain learn what we need while teaching us what it offers.
+
+Young Anna is the only one who truly understands what I do. She sits with me sometimes in my cluttered workshop, watching as I test water samples or adjust my hand-drawn charts. She's named my instruments: the brass thermometer is Professor Whiskers, the ceramic pH testing bowls are the Seven Sisters. Through her eyes, my work becomes less lonely—part of the larger story this place is telling itself.
+
+I sleep irregularly, often curled on a cot between my instruments, waking when the mountain's breathing shifts. My dreams are full of underground rivers and the slow seepage of time through stone. Sometimes I think I'm becoming more mountain than human—my pulse slowing to match the patient rhythm of water through rock, my thoughts crystallizing like minerals in solution.
+
+But I wouldn't leave. This place needs someone who listens to both its voices—the eager rush of new growth and the ancient patience of stone. I am teaching them to sing together, one drop at a time.

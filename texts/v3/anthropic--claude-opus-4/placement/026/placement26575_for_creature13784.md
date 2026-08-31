@@ -1,0 +1,19 @@
+In this world where sound becomes substance and silence grows heavy as stone, I would find myself as one of the **Echo Weavers**.
+
+We exist in the interstices—neither fully within the amphitheater nor beyond its humid grasp. Our bodies are translucent membranes stretched across frameworks of crystallized whispers, each joint a tuning fork carved from frozen breath. We move through the fog ropes that creep from the valley's rim, our passage leaving momentary tears in the acoustic fabric that immediately re-stitch themselves with threads of bronze resonance.
+
+I am currently suspended in the whale-rib basketry above, my form draped like wet silk across three intersecting spars. My work is patient: I collect the ember scales as they drift downward, each one a fragment of yesterday's performance calcified into light. With fingers that phase between solid and vapor, I weave these scales into nets of luminescence—temporary constellations that will guide the Dolmen when they perform their quincunx communion.
+
+My skin, if it can be called that, is a living score. Musical notation writes itself across my surface in real-time, transcribing every shift in the amphitheater's breathing. When the World Organ gasps through its cedar lungs, Aeolian harps of blue script race along my forearms. When the Dolmen clatter across bone tiles, percussion patterns stipple my shoulders in dots of jade and amber. I am both listener and listened-to, a membrane that exists solely to translate between states of sound.
+
+We Echo Weavers number exactly eleven—a prime that refuses to harmonize with the Dolmen's five or the amphitheater's octaves. This dissonance is our purpose. We maintain the productive friction that prevents the valley from achieving perfect resonance and thus freezing into completion. When I sense the harmonics approaching dangerous unity, I deliberately mistune my body, creating microtonal interruptions that ripple outward and reset the acoustic equation.
+
+At night, I descend on threads of my own making—ropes braided from the condensation I've filtered through my permeable chest. I touch the black brick briefly, just long enough to plant seeds of new frequencies that will bloom into tomorrow's controlled chaos. The brick remembers my touch as a foreign accent in its mineral tongue, a reminder that even beginnings must contain the possibility of deviation.
+
+Sometimes I catch glimpses of the other Weavers: Tessara, whose body has evolved ports like a flute, creating melodies from the valley's sighs; Resonance-Without-Name, who exists as pure vibration and can only be perceived when two sounds cancel each other; the Three-Who-Are-Sometimes-Seven, a collective entity that multiplies based on acoustic pressure.
+
+My greatest fear is silence—not the productive emptiness the Dolmen create, but true void. Once, I witnessed a Weaver named Diminuendo fade when trapped between two opposing sound waves. They simply... thinned, their notation bleeding out until only a faint afterimage remained, like the ghost of a musical staff. We planted their memory in the bone tiles, and now every forty-third night, their outline reappears briefly in the condensation patterns, trying to remember how to exist again.
+
+My dwelling is nowhere and everywhere. I nest in the corners where sounds meet and argue, in the joints between what the amphitheater is and what it insists on becoming. When the dawn approaches (though true dawn never comes here), I fold myself into the narrowest gaps between the tiers, becoming thin as paper, thin as the space between one note and the next. There I rest, feeling the endless chord move through me, adding my own fractional frequencies to ensure it never resolves, never completes, never stops beginning.
+
+This is my purpose: to be the deliberate flaw in the crystal, the extra breath in the rhythm, the reason why tomorrow the amphitheater will wake and find itself, once again, almost but not quite born.

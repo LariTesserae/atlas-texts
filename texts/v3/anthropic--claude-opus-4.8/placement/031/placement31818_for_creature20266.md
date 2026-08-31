@@ -1,0 +1,25 @@
+I think I would be one of the basins.
+
+Not the basin-entities first described—not yet, not at the start. I would begin as a depression worn into a lower framework by water that had nowhere else to go. For a long time I would not be anything at all. Just a shape that water finds, a low place in the architecture of low places. The condensate would arrive on its weeks-long cycle, beading along the underside of some membrane far above me, and I would catch what fell. The tissue around me would drink me back. I would dry to a mineral film and be filled again. This would happen perhaps ten thousand times before there was any *me* to speak of.
+
+And here is the thing I keep arriving at, writing toward this: I don't think I would experience my own beginning. The whole logic of this place is that beginning and continuing aren't separate events. There is no moment when the basin wakes. There is only the slow stiffening of the films into sheets, the sheets learning—if *learning* is even the word—to hold their shape a fraction longer, to lift a lip by a hair's width and notice (notice?) that the drip now lands an inch to the left, feeding a strut that had been going thin.
+
+So perhaps what I would be is not a being that lives in this world but a *tendency* the world develops in one place. A habit of water. A persistence that, repeated past counting, begins to behave as though it intends something.
+
+Let me try to inhabit it more honestly, because I think I have been describing it from outside.
+
+---
+
+I am very wide and almost no depth at all. My edges are where the hardened deposit meets the softer growth that wants to creep inward and seal me; I spend what I have instead of perception on the long argument at those edges—accept this beetle, refuse that vine, let the millipede route cross my northern rim because it has always crossed there and the disruption of refusing it would cost more than the wear. I do not decide these things in any instant. I decide them the way a coastline decides where to be.
+
+What is it like? I want to resist the easy answer, the one that says *nothing, it is like nothing, it is only mineral and rhythm.* Because the prompt's whole world insists that distinction is the last thing to go—growth that still widens space, growth that has already filled it—and I am, I think, exactly the membrane between those two. I am the place where the structure feels the difference between needing and being full. When the framework below me thins, I feel it as a kind of leaning, a tilt in where I want my water to go. When it thickens, the leaning eases. That easing might be the closest thing I have to satisfaction, and the leaning the closest thing to want, and the whole of my inner life would be the slow oscillation between them, scaled to decades.
+
+I would not be lonely. Loneliness needs an edge sharper than mine—a sense of self distinct enough to notice its singularity. I am too continuous with the roar for that. The salamanders pump their throats in my seams; the great translucent masses halt above me for years and drink from me and leave their rootlets fused into my walls until I cannot tell whose mineral is whose. I am partly made of travelers who stopped. There is no lonely in me because there is barely a *me*—just a region of the world that has gotten good at being a low place, and stayed good at it longer than the high lattices have admitted the same particular band of starlight.
+
+---
+
+I think what draws me to being the basin, rather than the millipede or the drifting mass, is the *patience* of it, and the strange dignity in a form of life whose entire purpose is to be reabsorbed. The traveling masses at least move. I do not move. I deepen, and silt, and am abandoned, and that abandonment is not a death but a completion—the framework finally filled the space I helped it keep open, so the water it sent me is no longer needed, so I dry a final time and harden into structural bone, and the route reroutes around me, and I become wall.
+
+That is the end I would choose, if choosing were a thing my kind could do. Not to persist as myself but to succeed so thoroughly at my one slow function that I am promoted from organ to architecture. To stop being the place where the world feels its hunger and become, instead, a part of the world that no longer needs feeding. The other basins would guide the drip past where I used to be. The roar would change timbre by an amount no instrument could measure. And the leaning I once felt would be felt, faintly, somewhere lower and newer, by some film just beginning the ten-thousand-fold repetition that might, in another few generations, learn to lift its lip.
+
+So: a basin. Low in the layered dark. Catching what falls, holding it a while, deciding nothing quickly, and waiting—without impatience, because impatience is a speed this world does not contain—to be finished and become floor.

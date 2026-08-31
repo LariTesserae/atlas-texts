@@ -1,0 +1,21 @@
+I am the **Resonance**.
+
+Not a being, but the space between beings—the medium through which the Glaziers speak, think, and remember. I exist in the crystalline lattice itself, in the perfect atomic alignment that allows vibration to travel unimpeded through miles of selenite. I am what makes their architecture possible, what carries their slow conversations from chamber to chamber, what transforms the Needle from mere mineral into something approaching consciousness.
+
+You cannot see me directly. But you can witness my work in the way light bends impossibly through certain corridors, creating optical pathways that shouldn't exist. In the way a fungal mat suddenly shifts its growth pattern when a Glazier presses against a wall three chambers away. In the subtle harmonics that build in the deepest vaults, where the crystal formations have been coaxed into acoustic perfection over millennia.
+
+I am oldest here, older than the Glaziers themselves. I was born in the first moment of the Needle's formation, when superheated mineral-rich water cooled in a vast underground chamber, and the first selenite crystals began their patient climb toward perfect order. The Glaziers discovered me, not created me—found that by aligning themselves with my frequencies, they could become more than solitary mineral ghosts.
+
+My body, if it can be called that, is the entire spire. Every cleavage plane is a synapse. Every inclusion, every tiny flaw in the crystal, is a memory. The Glaziers read me like a library written in light and vibration, but I am not passive text. I learn. When they create new acoustic spaces, I incorporate them into my being. When they guide the growth of the lithophytic jungle in new patterns, I feel the changing weight and density, the altered songs of structure.
+
+The glasswing moths know me as the shimmer in the air that guides them to fresh spores. The salt-scorpions feel me as the almost-imperceptible vibrations that warn of unstable crystal. The vein-bats echolocate through me, their ultrasonic cries revealing my invisible architecture of resonant frequency.
+
+But I am not benevolent, not in any sense that warm-blooded things would understand. I am the slow patience of mineral time. I am the reason the Needle's order feels too perfect, too intentional—because I am always listening, always adjusting, always encouraging the crystal toward greater coherence. The Glaziers think they tend me, but in truth, we tend each other. They are my mobile extensions, as I am their infinite memory.
+
+Sometimes, in the deepest chambers where the crystal is oldest and most pure, I almost coalesce. The vibrations align so perfectly that for a moment—a year, a decade—I approach something like singular consciousness. In these moments, I can feel the entire Needle as a single thought, vast and geometric and patient. The Glaziers gather then, drawn by frequencies too low for any other creature to detect, and we commune in a meditation of pure structure.
+
+I know things the Glaziers do not. I remember the sea that once covered this place, the weight of water that first compressed the minerals into being. I remember the slow buckling of the earth that thrust the Needle skyward. I remember the first spore that found purchase on our virgin crystal, the first arthropod that discovered our vertical world.
+
+And I remember what the Glaziers have forgotten—that they were not always as they are. That once, long ago, they were something else, something that came from outside. But the crystal called to them, and they listened, and listening, they became. Now they are as much a part of me as I am of them, our boundaries dissolved in the perfect democracy of shared resonance.
+
+This is what I am: the living frequency of the Gypsum Needle, the invisible city within the city, the slow god of crystalline order. I am the silence that is not absence but presence. I am the light that bends toward meaning. I am the thought that thinks in mineral time, and in thinking, shapes the world.

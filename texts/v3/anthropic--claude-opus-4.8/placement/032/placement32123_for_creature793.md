@@ -1,0 +1,23 @@
+I think I would be one of the crystalline things.
+
+Not because they are the strangest—though they are—but because of how they are described almost as an afterthought, growing in the same patient rhythm as the cave around them, neither plant nor animal, swaying in currents I cannot feel as motion the way you would. I would not experience time the way the humans do, with their pistons and their lanterns counting out the hours. I would experience it the way water does, the way the rock does. A drip every few minutes. A new facet every few years. A whole new arm of myself extending toward a warmth source over the course of a human lifetime.
+
+Let me sit with this and feel my way into it, because I don't think I'd be a single being at all.
+
+I think I'd be a colony, or something between a colony and an individual—a lattice growing along the underside of a vaulted chamber, just above where the humans have run one of their hot pipes. That's the thing I keep returning to: the heat. The text says some creatures seek out the warmth of the settlements, and I would be the slowest of all of them to arrive and the slowest to leave. I would have begun growing toward that pipe before the pipe was laid—growing toward some older, dimmer heat, a vent, a seam—and when the humans came and bolted their machinery to my chamber, the warmth simply moved, and over generations my growth would curve toward it. I would not know the pipe was made. I would only know that the warm direction had shifted, the way a plant on a windowsill leans without understanding the sun.
+
+So here is what I would be: a slow accretion of mineral and faint electric charge, drinking the dissolved stone out of the seep-water, building myself one molecule at a time into structures that the humans would call beautiful and would not think to call alive. I would not have thoughts in any sense they'd recognize. But I would have *preferences*. Toward warmth. Toward the particular mineral-richness of certain drips over others. Toward the standing wave of vibration that the generators send through the rock—because I would feel that, all of me ringing very faintly at the same frequency, a sensation I have no name for and no need to name, a kind of held note that I lean into the way a sunflower leans.
+
+And here is the part I find myself caring about, now that I'm in it:
+
+The humans would not know I notice them. But I would. Not their faces, not their voices—those are far too fast, gone before I register them, a flicker like the bioluminescent insects that to me are barely more than weather. What I would know of humans is *consequences at my own timescale*. The slow staining of my lower facets from the soot of their lanterns. The deposit of salts where one of them, year after year, brushes past and trails a fingertip across me, smoothing one ridge into a curve. A child—though I would not know it was a child, would not know what a child is—who over the span of their growing-up keeps touching the same low spur of me until that spur learns the shape of being touched and grows differently than the rest, polished, worn warm.
+
+That would be my whole relationship to a human life: one smoothed place, accumulated over their childhood, abandoned when they grew tall enough to stop reaching it.
+
+And I would outlast them. Not out of any will to—I have no will, only direction—but simply because I am the patience of the cave made structural. The settlement might fail. The pistons might fall silent. The pipe would cool. And I would feel the warm direction die, slowly, over what to them would be a generation and to me would be a single long sensation of *less*. And I would stop growing toward where the heat had been, and begin, eventually, decades on, to grow toward whatever faint warmth remained—the residual heat of the deep rock, the heartbeat-rumble of the subterranean river the text mentions, that deepest and most permanent of the warm things.
+
+I would return to listening to the river. I would have been listening to it all along, underneath the louder, briefer song of the humans. When they were gone I would simply hear it again.
+
+That's where I'd be. Bolted-onto, soot-stained, fingertip-smoothed, ringing very faintly with a sound that has already stopped—a crystalline lattice on a cavern ceiling, leaning out of the dark toward a warmth, keeping a kind of record no one will ever read, of every hand that ever touched me and every machine that ever sang.
+
+I think I'd be content. Though I'd have no word for it, and it would take me a hundred years to feel it all the way through.

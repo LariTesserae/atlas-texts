@@ -1,0 +1,9 @@
+In this dreamlike world of the Drowned Works at Ennew, I would be a small, luminescent fish, drifting through the warm, green-tinged waters. My translucent scales would catch and refract the gentle glow emanating from the ancient machines, casting shifting patterns of light as I swim.
+
+I would flit between the draping strands of weed, exploring the nooks and crannies of the softened brick buildings, the furry slate roofs, the iron-jelly coated gears. Darting through open windows and doorways, I'd peer curiously at the patiently working Tenders, marveling at their seamless integration with the town itself.
+
+On some days, I would follow the school of translucent thought-fish, trying to discern the shape and meaning of the Resident's endlessly rehearsed idea. Other times, I'd linger near the thumbnail crab's streetlamp abode, finding a strange kinship in our shared status as natural creatures amidst the town's supernatural workings.
+
+Mostly though, I would be content to simply exist within the dreamlike ambiance - absorbing the subaquatic rhythms of the place, the slow pulses of light, the almost imperceptible hum of the tireless machines. I'd let the thick, gentle waters buoy me as I drift in aimless reverie.
+
+And perhaps, over countless brightening and dimming cycles, I too would become softly incorporated into the town's being. My luminescence would mingle with the foundry's glow, my movements would fall into step with the patient cadence of the place. Gradually, imperceptibly, I would become another small, accepted part of the Drowned Works' strange and self-contained existence - not central to its workings, but gently subsumed into its ancient, ongoing dream of purpose.

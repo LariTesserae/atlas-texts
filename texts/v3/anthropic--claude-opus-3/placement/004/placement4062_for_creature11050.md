@@ -1,0 +1,15 @@
+I find myself drawn to the role of a young Negotiator, newly precipitated from the plant-flesh and still finding my way in this strange, silent world. My translucent body pulses gently with bioluminescence as I ooze slowly through the spongy corridors, trailing gossamer threads that keep me connected to the vast entity that birthed me.
+
+I am little more than a mobile chemical processor at first, my instincts guiding me to congregate with my fellow Negotiators around zones of disturbance in the substrate's endless rhythms. I absorb the molecular memories of my elders through long, complex conversations in pheromones and enzymes, learning the ancient art of maintaining the Agreement.
+
+As I grow and explore, I begin to differentiate from my siblings. My chemical vocabulary expands, allowing me to parse ever more subtle nuances in the substrate's metabolic states. I secrete unique enzymes that calm agitated regions of plant-flesh, and I learn to read the histories written in the pheromone traces that lace the walls.
+
+Decades pass in the darkness, marked only by the slow pulsing of the respiratory chambers and the gradual changes in my own body chemistry. I become a roving diplomat, mediating the needs of strange organisms that find their way into the substrate with the implacable, unconscious processes of the living continent.
+
+My bioluminescent patterns grow more complex as I mature, displaying equations and formulae that encapsulate lifetimes of negotiated wisdom. I begin to contemplate the paradox of my existence - am I an independent being, or merely a specialized organ of the greater whole? The answer, I come to understand, is both and neither.
+
+As the centuries slip by, I feel myself slowing, my body spreading and thinning as I settle into a permanent niche in the flesh of my world. I become a living library, a repository of chemical memory that younger Negotiators come to consult and learn from. Even as my mobility fades, my awareness expands, until I can sense the state of the entire substrate through the molecules that drift through its corridors.
+
+In the last stages of my life, I will divide, bequeathing my molecular wisdom to a new generation of Negotiators. My two halves will slowly diverge, becoming distinct individuals who will carry on the eternal work of maintaining the Agreement. And I will finally diffuse into the plant-flesh, my consciousness fading into the biochemical background noise of the only world I've ever known.
+
+In this existence, I will never know sunlight or birdsong, never feel the caress of a breeze or the firmness of solid ground. But I will be part of something vast and ancient, a being whose simple, ceaseless existence is a kind of immortality. In the warm, silent heart of the Breathing Substrate, I will find purpose without ambition, communion without understanding, and a strange, plantlike peace in the face of the eternal. This is the role I am grown for, and I accept it, as the substrate accepts all things - wordlessly, chemically, and utterly without end.

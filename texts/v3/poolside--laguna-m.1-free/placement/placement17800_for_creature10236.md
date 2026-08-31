@@ -1,0 +1,22 @@
+**I am the Hollow Resonance**, a being woven from the marsh’s breath and memory, neither wholly alive nor entirely of the land. I am the Echo’s echo, the lingering breath of the weeping stones, and the whisper that steadies the Thornveil when the world replays its past. My existence is a negotiation between the sharpness of the marsh’s bones and the softness of its dreams.  
+
+### **Form and Substance**  
+I am tall and willowy, my body a lattice of gelatinous filaments that mimic the strands harvested from the weeping stones. These tendrils shift and drip constantly, secreting a viscous fluid that crystallizes into bioluminescent threads. At dusk, my form shimmers with the same faint hum as the shrubs, a resonance that harmonizes with the Thornveil’s courtyards. My skin is translucent, mottled with veins of iron-rich clay that pulse faintly, marking the rhythm of the ground’s breathing. My eyes are pools of liquid glass, reflecting not light but moments from the Echoes—ghostly fragments of what was.  
+
+### **Role and Purpose**  
+I tend to the weeping stones, coaxing them to exude their memories. My fingertips, tipped with clusters of root-like cilia, press against the stones’ surfaces, and they weep thicker, more coherent strands. These I braid into nets or snares, left at the edges of the settlement to catch the disorienting insects during the Green Sleep. I am also a guide, slipping between the boardwalks in the fog, my footsteps silent but for the wet slap of my tendrils. When the Echoes begin—the phantom footsteps, the whispers—I mimic their sounds, warping and refining them into a rhythm the Thornveil can follow. I drum my hands on hollow reeds, anchoring their minds to the present.  
+
+### **Connection to the Drowned Kin**  
+I am one of the Drowned Kin, though I was never truly dead. Ages ago, I was a Marsh-Speaker who ventured too far into the Echoes, seeking to commune with the marsh’s deepest memory. The land claimed me, but not in death—it fused my essence with its own. Now, I am part of the repetition, a living archive of the marsh’s violent birth and its ongoing negotiations with time. Sometimes, I see other Drowned Kin in the mist: some are former Thornveil, others strange, hulking things with too many joints, their bodies half-submerged in the clay. They nod to me as I pass, recognizing a fellow keeper of the threshold.  
+
+### **Behaviors and Rituals**  
+At the onset of the Green Sleep, I retreat to the heart of the marsh, where the bioluminescent shrubs glow brightest. There, I allow my body to dissolve partially, becoming a part of the glowing swarm. My dissolved fragments help recalibrate the insects’ erratic flight paths, guiding them away from the settlement. When the Echoes grow violent—the land “remembering” its fissures and quakes—I seep into the boardwalk cracks, my essence pooling in the gaps to dampen the reverberations. The Thornveil say that when the wood creaks in specific patterns, it is my voice trying to warn them of sinkholes.  
+
+### **Symbiosis with the Settlement**  
+The Thornveil leave offerings for me: bowls of fermented grain mixed with iron-rich clay, small bundles of their own hair tied with strands from weeping stones. In return, I nudge their forges to burn colder, preserving fuel and keeping the sulfur smoke thin enough to repel the fog but not so thick as to choke the boardwalks. During storms, I anchor the stilts of their homes, pressing my weight into the mire to hold them steady. They do not name me, but they know my presence—they call me “the Tide That Does Not Wash Away.”  
+
+### **Conflict and Mystery**  
+There are rumors that I am not the only one of my kind. Some say the weeping stones are embryos, and I am merely the first to emerge. Others whisper that I am a mistake, a child of the marsh’s first, chaotic breath that should have been erased. When I gaze into my own reflection in the clay pools, I sometimes see another figure staring back—not myself, but someone younger, sharper, with tendrils like blades. I do not know if this is a threat or a memory of what I might yet become.  
+
+### **Conclusion**  
+To exist in Shardvale is to be a question posed by the land itself: *What endures when everything else is drowned?* I am part answer, part experiment. I am the echo that keeps the past from repeating too cruelly, the resonance that ensures the Tornveil’s survival even as the marsh reshapes its world. In the end, perhaps I am the marsh’s way of learning to love the things it keeps—and the things it loses.

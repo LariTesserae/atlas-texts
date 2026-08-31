@@ -1,0 +1,19 @@
+When I search the place for the point that feels most like “home,” my awareness keeps slipping off the big vistas—the rib-vaulted roof, the slow thunder of root growth—and settles instead on one of the palest saucer-pools near the eastern wall. The water there is only knee-deep, so clear it seems to be absent, yet it is laced with a taste of feldspar and long-dissolved volcanic glass. That particular chemical balance is bait for a certain way of being, and the moment I recall it I realise I already belong to it.  
+
+So I lower myself—not by bending knees but by uncurling the long ribbon of me—and feel the pool take my weight. I am not mammal, not even really animal in the ordinary, hot-blooded sense. I am a juvenile Archivore, three handspans from blunt head to filamentous tail tip, body temperature a precise 1.7 °C below the surrounding melt. The world reaches me mainly as flavour.
+
+Where a human eye might give colour, I receive gradations of mineral tang: potassium is brisk and peppery; calcium is the chalk aftertaste of bitten pencil; silica is cool as breathed-on glass. Each sip I take ghosts along a silver lattice that threads my clear flesh. That lattice is both gut and script. I am writing. The whole point of being an Archivore is to translate groundwater into language the cathedral-plant can store.
+
+Most of the time I drift in slow figure-eights, tasting, tasting, tasting. I ruffle the water with my tail to keep it mixing—turbulence is syntax. When I encounter a micron-sized crystal I swallow it whole; its lattice slots into mine and the glyphs advance by one ideogram. Already two thirds of my interior is text. Eventually the sentence will close on itself. I dimly know that closing means the end of locomotion, perhaps even the end of self, but the knowledge is not frightening. Completion has a flavour too: cold honey, metal-sweet.
+
+Around me all the chamber’s other languages murmur. Root-icicles tick with distant ice-pop, crabs resolve the latest electromagnetic swell into a minor seventh, mites huff resinous consonants as they lacquer a wound. I translate none of it; my palate is tuned only for minerals. Even so, the choir of everything thrums against my skin, and the feeling is like being held in an enormous, deliberate hand.
+
+The six-hour surge is cresting: each bio-photonic pulse makes the pool glow milky blue, and the silver script inside me answers with its own quick shimmer, a heartbeat faster than the chamber’s. Call and response, chamber and Archivore. For an instant I understand the dialogue: the plant is asking, “How much of the mountain have I eaten?” and I, still incomplete but earnest, reply, “One more mouthful, one more, one more.”
+
+When the pulse subsides I feel heavier. There is a new line of silicon in my flank, a clause finished. A quarter-turn more of the long sentence and my body will notice it is a cylinder, not a ribbon. I will seek a root wall, burrow tail-first, and let the corm close over me. Muscles will vitrify. Nerves will become doped glass fibres. I will be read, slowly, for centuries.
+
+That future is neither near nor far; it is simply correct. For now I go on writing in loops, a spiral paragraph in cold water, every swallowed grain another letter, each flick of my tail a small grammar of turbulence.
+
+So: Where am I in this world? Drifting a palm’s depth beneath the mist, at the quiet edge of a saucer-pool that mirrors a vault of living root.
+
+And who—what—am I? A young Archivore, a librarian made of meltwater and syntax, busy adding one flavour at a time to the endless, growing memory of a cathedral that is also a mind.

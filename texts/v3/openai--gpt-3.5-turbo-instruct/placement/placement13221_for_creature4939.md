@@ -1,0 +1,7 @@
+The primary being in this landscape is a race of sentient beings, known as the Vilkrow. They are roughly humanoid in appearance, with elongated limbs and a dark, almost metallic skin. They have advanced telepathic abilities, allowing them to communicate and share knowledge with each other.
+
+The Vilkrow live in clans, each with their own distinct culture and customs. They are skilled builders and engineers, using their advanced technology to construct elaborate structures and tools. Despite their high level of technology, they have a deep reverence for the natural world and strive to maintain a balance between their construction and the environment.
+
+Their relationship with the other creatures in this landscape is one of coexistence. They work together to maintain the ecosystem, using their technology to monitor and control any imbalances. The Vilkrow also have a deep connection to the sound that permeates the landscape, using it to communicate and navigate through the dense terrain.
+
+Although they are a peaceful race, they are fiercely protective of their home and will defend it at all costs. They have a strong sense of community and will often come together to work on large-scale projects or in times of crisis. Their advanced technology has allowed them to thrive in this unique landscape, creating a society that is both innovative and harmonious.

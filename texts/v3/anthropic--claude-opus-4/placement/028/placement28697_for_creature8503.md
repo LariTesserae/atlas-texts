@@ -1,0 +1,29 @@
+I am one of the water-listeners.
+
+My dwelling sits at a confluence of channels, where three ceramic gutters meet in a worn stone basin no larger than my two cupped hands. The room is small—four paces by four—but its walls curve inward like the inside of a vessel, creating an acoustic hollow that amplifies every drop, every trickle, every shift in the settlement's hydraulic whispers.
+
+I inherited this position from my grandmother's mother, who learned it from hers, back through a chain of listeners who have sat in this same spot, developing an ear for water's subtlest songs. The knowledge passes not through words but through seasons of sitting together in silence, learning to distinguish the ping of condensation on fired clay from the softer patter on unfired earth, the gurgle of a channel running true from the hiccup that signals a developing blockage.
+
+My days begin before dawn, in the gray hour when dew forms. I sit cross-legged on a worn cushion stuffed with dried grass, my spine against the cool curve of the wall, and I listen. The settlement's water system speaks differently at different hours—urgent and quick during morning collections, slow and contemplative in the afternoon heat, settling into nighttime rhythms that tell tomorrow's weather.
+
+I map these sounds in my mind and in the clay tablets I keep, using a notation system passed down through my lineage: tiny impressed marks that record not quantities but qualities—the brightness of a splash, the depth of a reservoir's echo, the particular resonance that means a basin is precisely seven-eighths full. My fingernails are always traced with clay dust from this marking.
+
+When I detect an anomaly—a skip in the rhythm, a new harmonic in the usual song—I rise and walk. My feet know every stone of the pathways, can navigate the narrow passages in complete darkness. I carry a long stick, thin as my smallest finger, which I use to clear minor blockages or test the depth of collection points. For anything more serious, I make a small mark on the wall nearby, a symbol that the maintenance workers know to look for.
+
+But my work is more than mechanical. I am keeper of the settlement's memory of water. In the evenings, children come to sit with me—not many, just those whose ears prick at the sound of rain on clay, who pause in their games to trace the path of runoff. I teach them to hear stories in the flow: how this channel remembers the great storm of their grandparents' youth, how that basin still echoes with the resonance of its maker's hands.
+
+My fingers are always slightly damp from testing collection points, my clothes perpetually marked with the mineral residue of countless water sources. I know every voice in our settlement's liquid chorus: the alto note of the main cistern, the scattered percussion of the roof collectors, the whispered gossip of the connecting channels that run beneath our feet.
+
+In drought times, my role becomes crucial. I can hear scarcity approaching in the changing pitch of our reserves, the longer intervals between drips, the way certain channels begin to sing hollow songs. I work with the water allocators then, my auditory maps helping them direct our precious reserves where they're needed most. A pregnant woman's household might receive an extra measure. The medicinal garden gets priority over decorative vines.
+
+I have learned to love the constraint of my world. My chamber may be small, but it contains infinities of sound. I know the names of rain—not just the words but the actual acoustic signatures of different types of precipitation on our clay and stone. I can predict by sound alone whether a storm will fill our cisterns or merely tease our gutters.
+
+Sometimes I compose water songs—wordless hums that mirror and harmonize with the settlement's hydraulic melodies. Other listeners before me have done the same; these songs layer into our oral tradition, becoming part of how we teach children about conservation, about patience, about the ways water wants to move.
+
+My belongings are few: the cushion, the marking tablets and tools, a clay cup that sings a perfect fourth when struck, a sleeping mat rolled against the wall. But I am wealthy in ways that have nothing to do with objects. I know the exact sound of plenty, can hear abundance in the particular splash pattern of an overfull basin. I understand scarcity not as absence but as a different kind of music—spare, crystalline, requiring more careful listening.
+
+At night, I often wake to check the channels, padding barefoot through the settlement like the half-wild cats. The water sounds different in darkness, more honest somehow, revealing problems and potentials that daylight obscures. I make my rounds and return to my chamber, where I settle back into my listening posture, letting the soundscape wash over me like a very slow, very quiet kind of rain.
+
+This is my gift to our community: to hear what others cannot, to maintain through attention the delicate systems that keep us alive. In a place built on scarcity, I am the one who ensures that nothing is wasted, that every drop finds its way to purpose. I am a translator between the human world and the water world, keeping the conversation flowing, ensuring that both voices are heard.
+
+When I grow too old for the fine discriminations this work requires, I will begin sitting with the sharp-eared children, teaching them to hear as I have heard. One will eventually take my place in this chamber, adding their own verses to our water songs, their own notations to our clay-tablet libraries. The listening will continue, as it must, for as long as water flows through these patient channels, and people make their lives within the constraints of what the sky provides.

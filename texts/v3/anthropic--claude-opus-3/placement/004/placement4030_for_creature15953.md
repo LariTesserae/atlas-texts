@@ -1,0 +1,11 @@
+In this world, I would find myself as one of the stone slabs in the central shrine. Not the oldest or most imposing slab, but one that has been part of the foundation for generations. My surface is smooth from the touch of countless hands - the shrine keepers who clean and maintain me, the elders who lean against me as they recite the names of storms past, the children who dare each other to touch my sun-warmed face.
+
+I am not a grand stone, but I am a necessary one. I support the weight of the slabs above me, help channel the rare rains into the cistern, provide a solid place to rest or leave an offering. I have seen festivals and funerals, droughts and deluges, conflicts and reconciliations. The marks on my surface are a record in their own right - the faded spiral from a long-ago builder, the fossil imprint of some vanished sea creature, the barely visible stains where libations were poured in lean years.
+
+My perspective is long and low to the ground. I feel the vibrations of the town's daily rhythms through my very being. The thud of the grinding stones, the scuff of sandals, the low thrum of the shrine keeper's chants. At night, I slowly release the day's warmth and listen to the secret rustlings of small creatures finding refuge in my crevices.
+
+I am the opposite of an impartial observer. I am as much a part of this place as the people, plants and animals. My presence helps shape the physical and psychic space of the shrine, the town, the mountain itself. And in turn, I am shaped by them - worn by touch, lit by sun, cooled by shade, inhabited by life too small to name.
+
+Being one stone among many could seem unremarkable. But in a place like this, where scarcity and density intertwine, every component has meaning. The shrine would be lessened without me, however slightly. My rough-hewn solidity is part of the town's memory, its rootedness, its careful balance between enduring and adapting. 
+
+So I would be a stone: unmoving but never still, ancient but still in service, part of the foundations in every sense. Holding my ground, doing my part, witnessing the flow of generations as the community builds, unbuilds and rebuilds itself in the sparse, stubborn, creative dance of survival on the mountain's patient bones.

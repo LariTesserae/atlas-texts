@@ -1,0 +1,11 @@
+If I found myself in this world, I think I would be one of the slow-drifting polyps, suspended on thermal currents high above the frenzied activity below. 
+
+My membranous, iridescent body would pulse with absorbed sound, the cacophonous roar of the basin vibrating through my piezoelectric tissues and generating the subtle electrical currents that keep me aloft. I would have no need for eyes in the blinding brightness; I would navigate by feel, by the shuddering patterns of noise echoing off the smooth porcelain walls.
+
+From my lofty vantage point, the intricate machine of the ecosystem would be laid out beneath me in all its manic glory. I would drift serenely over the streaming black rivers of scuttling freight-crabs, my trailing gossamer filaments tasting the humid air, sifting moisture and microscopic life from the heavy updrafts. The emerald pockets of lush vegetation would pass beneath me like jewels set into white stone, each one shimmering with the blue-white static discharge of the darting spark-bearers.  
+
+I would be a gentle giant, digesting silently, a floating island of relative calm amidst the piercing shrieks and thrumming drone of the basin. The searing sun would paint my pulsing colors across the pale ground as I eclipsed the marching columns below. I would not fear the plummeting silver predators; they would have no use for my bulbous, insubstantial form.
+
+Yet I would not be separate from the basin's intricate systems—I would be as much an expression of the artifacts' will as any other creature here. My drifting body would act as an airborne sound-baffle, helping to trap the roar, while my dangling filaments would gather resources to rain back down on the oases, fertilizing the next frenzy of growth. 
+
+In this world of brutal heat and ancient stone, of chthonic geometries and teeming, ultra-adapted life, I would play my small but vital role. I would ride the thermal currents in slow, iridescent majesty, pulsing with the basin's relentless, eternal heartbeat, an integral component in an ever-cycling, alien mechanism of biology and physics merged into one.

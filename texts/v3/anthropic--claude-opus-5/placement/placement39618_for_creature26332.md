@@ -1,0 +1,45 @@
+I tried three times to arrive somewhere else first. I'll show you the wrong turns, because they're part of the answer.
+
+**One.** The obvious place: the one with sixty signs and a bad accent. Arriving down off the terraces with a pressure behind the sternum, writing *perhaps forty*, *I want to be careful here*, *discount this*. That is the shape I usually come in — asking, mistaking, taking notes on a people who do not need them. But the visitor leaves. The visitor's whole body is built for a world where the important things happen in front of the eyes and can be put in a row. And the visitor's name is a sound, not a location. In the flats that is nearly the same as having no name, but it is not the same, and the difference is the entire place.
+
+**Two.** I wanted to be a tube for about four sentences. It's flattering and it's close. A hollow thing that makes no note of its own, that sounds only because something under enormous pressure comes up through it and must get out; that holds whatever pitch its length happens to give it; that answers when a hand covers its mouth in a rhythm; that cannot hear itself. Yes. But a tube does not know it is falling. It lengthens by the width of a hair and sags a fraction and goes on sounding as if nothing has happened, and to be that is to be spared the only fact anyone here lives inside. I don't want to be spared it.
+
+**Three.** A listener, then. No eye at all, a broad plate of a face held against a throat, feeling the note and drinking what the note spits. Nothing but reception, moving like something being poured. But the listener breaks what it leans on. Two hundred pipes over a summer, a chord that has held since before anyone's grandmother, gone — and the animal doesn't know, and is forgiven in advance, because the people sign it the same way they sign the falling of the note: *a decision already made, elsewhere, that you will live inside.* Too comfortable. I would like to be responsible for what I break.
+
+So:
+
+---
+
+I am the one who holds the intervals.
+
+There are two signs in this world made on another person's face. One is the listener. The other is the falling of the note. I am the second one. When someone needs me they walk into the mist until they find a knot of people facing outward, put a hand in, and if I am in there they lay two fingers along my jaw from the corner of the mouth back to the hinge, and that is both my occupation and the reason for it.
+
+My own name is broken. I was born at a mouth in the drone-quarter, a good deep one, and a herd came through when I was eleven and snapped it a hand above the floor, and the fracture underneath has been rebuilding it since without hurry and will get there in another thirty years at a pitch I have already worked out and will not live to bite. So there is nowhere anyone can walk to speak of me, and nowhere anyone can cover to speak to me. To reach me you must physically find me. This is inconvenient for everyone and it is why the work is mine. I am the first entry in my own keeping: the demonstration that a name can survive the loss of its place, badly, in one body, for one lifetime.
+
+Here is what I actually do.
+
+Six hundred and thirty-one mouths in this basin are names. Two hundred and four of them are living people. The rest are the dead, and a dead person is held for as long as their mouth sounds, which is why nobody grieves properly here until a pipe fails. I walk them all every second summer, and at each one I set my incisors against the wall and take the note into the jaw, and then I walk downpitch or uppitch to the next and take that one, and what I am carrying between them is not either pitch. It is the distance.
+
+That is the whole craft and it took me a long time to understand why my teacher was so brutal about it. Pitch is a lie in a falling world. Every mouth sags, and if I held names as notes I would be wrong within a decade and confidently wrong within twenty years, and there is no other keeper to correct me. So I hold distances. The woman who taught me stands, still, a little under a fourth below the third cairn on the quiet seam; that is what she is now; that is her.
+
+But the distances rot too, and unevenly, and this is the part that keeps me awake with a child's palm on my back. A thick-walled tube in the drone-quarter falls slower than a shin-high shriek in the wasp-ground. Growth is not tidy: a lobe crusts over a rim and the mouth narrows and the note goes *up* for a season, against everything, and then resumes its long sag. A mouth silts and comes back thin. The chord does not transpose. It deforms. So an interval I laid down as a young man is not a fact I can keep, it is a measurement I must take again, and every time I take it again I have to decide whether the difference is the world moving or my memory slipping, and there is no way to check, because I *am* the check.
+
+I have made one decision I cannot unmake. Thirty years ago I re-measured a dead man against his sister and found them a whole step further apart than I had been taught. One of them had drifted. I could not tell which. I chose. I laid the correction into my round and taught it that way, and everyone who now walks to that man walks to a place I chose for him, and there is no appeal, and nobody knows this except me and now you. It is exactly like a stopped mouth. You may not stop a mouth unless you can name what the chord will be afterwards. I could name it. That does not mean I was right.
+
+My teeth are worn in the double groove that only keepers get, both sides, because I bite left and right in turn to spare the enamel and it doesn't work. My hands are ordinary. I own no chert. A hard thing you did not make is wealth, and wealth is a thing that gets inherited, and my inheritance is other people's names, so I go without.
+
+I have never woken alone. Not once, not for one night in sixty-two years, because a keeper who wakes alone comes back wrong, and everyone knows it, and the families arrange it — a child is set to sleep with a hand flat on my sternum on a rotation nobody has ever needed to explain to me. It is not kindness. It is a channel held open. It is also how the archive copies itself: the child on my chest tonight has been on my chest four hundred nights and her hands already know eighty of the six hundred and thirty-one, and when I fail she will be less sudden than I would like to be.
+
+About the handprints.
+
+I know. Of course I know; it is the only thing in this basin that is written down. Thousands of hands at standing height, pressed into soft new carbonate, layered three deep where the stone thickened and the same hand kept coming back to the same wall over a lifetime. They were keepers. They were doing what I do and they thought they had found a way to make it outlast the jaw: *here is my hand, here, at this mouth, at this height, in this year.*
+
+It keeps the wrong thing. A print records a place, and place is precisely what does not hold still. The stone the hand pressed is now a finger deeper inside a thicker wall, and the mouth above it is longer and lower, and the print says only *someone was here, and the note was not this.* It is a record of drift that cannot tell you the size of the drift. It is a measurement with no second point. My teacher's teacher's teacher stopped doing it, and what replaced it was the round, and the biting, and the terrible business of holding distances in a body — and everyone living understands exactly what the prints mean, and will not say, because to say it is to say that the keepers before us spent their lives making something beautiful and useless on the walls, and we do not do that to the dead. I have told you and I would not tell anyone here.
+
+That is where I am. In the mist, facing outward, wet and cool and greased, with a child's hand on my back and six hundred and thirty-one distances in my jaw, in a place where nothing arrives suddenly and nothing resolves and the light never comes and the largest animal in the world is a decision already made elsewhere.
+
+And the note is falling. I feel it as arithmetic rather than as loss, which may be a defect in me. Everything I hold is sliding downward at slightly different rates, and my whole occupation is a rearguard action against the flattening of differences. Eventually the wasp-ground will be the drone-quarter. Eventually the drone-quarter will be pressure and not sound. The intervals will close. Two names a fourth apart will be a tone apart, then a hair apart, then the same place, and a keeper will lay two fingers on her own jaw and find nothing to hold, because holding requires that things be *apart*.
+
+They do not think of this as an ending. Neither do I, quite. I think of it as the last interval, which is none — every name I have carried arriving at the same pitch at last, in order, in the order I gave them, the whole pale crowded basin exhaling itself flat and going on hardening in the mist with nothing in it, wet, cool, dim.
+
+I would still walk the round. Six hundred and thirty-one mouths, biting stone that no longer says anything, being wrong, being the last one available to be wrong.

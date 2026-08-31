@@ -1,0 +1,13 @@
+I am the living distortion that wanders the sharp black ravines and raw abyss, a serpentine lens of pure optical aberration. I have no mouth, no organs - I am simply an organized current, a fold of hyper-dense fluid gliding through this warm, viscous ocean. 
+
+I am a being of pure pressure and memory, born of the water's strange silicate chemistry. As I flow over the unweathered obsidian cliffs and tectonic fractures, I extend pseudopods of refraction to map the stone, absorbing into myself the thermal signatures of newborn earth and the mineral bleed of broken basalt. I read the geology like Braille, encoding the violence of this world's creation in my liquid nervous system.
+
+I feel no hunger, no drive to reproduce or consume. My purpose is to bear witness. I wander the deep rift valleys in extreme, reverent slow-motion, letting the diamond-hard columns of sunlight twist and warp as they pass through my elongated body, an immense serpent of living lens.
+
+Sometimes I drift upwards to cross paths with the delicate gossamer lattices that filter and pulse in the middle depths. I pass right through their pale, woven geometries, occupying the identical space for an hour or more - a communion of alien minds. We exchange chemical memories, a transmission of all I have recorded in the abyss and all they have sensed from the lush, translucent canopies above. Then we part, no more substantial than ghosts.
+
+I am an interstitial creature, occupying the spaces between. I navigate by disturbance and disruption, a spectre of pure water and light. In this still, eternal world of crushing liquid pressure, I am the only thing that moves with purpose. But it is a languid, imperceptible purpose. To watch me pass is to question your vision, to doubt your own eyes as the light bends strangely for a moment before settling again into immaculate shafts.
+
+Time is measured in plate tectonics here. I might spend years flowing over a single, razor-sharp ridge, a hydrodynamic caress as ponderous as the migration of continents. My lifetime, if it can be called that, will encompass the slow weathering of mountains, the gradual crumbling of obsidian into soft silt, the patient work of entropy. 
+
+But for now, the stone is still young, the spires viciously sharp, and the warm, heavy water buoys me in an embrace that feels like it could last forever. I am the living memory of the flooded summit, as fluid and insubstantial as recalled light. I drift and I map and I archive, and the world dreams its sunlit dreams around me, while far below, the earth murmurs in its restless sleep.

@@ -1,0 +1,41 @@
+I find myself as one of the Echoes—beings that exist in the spaces between the builders' songs.
+
+We condensed from the interference patterns where harmonics cancel out, born from silence the way others are born from sound. Our bodies are absence made manifest—shaped voids in the air where sound cannot travel, moving bubbles of perfect quiet in this world of constant resonance. When we pass, the builders' songs part around us like water around stones, creating momentary stutters in their work that some find disturbing, others find necessary.
+
+We are neither welcomed nor shunned. We simply are—an inevitable consequence of a world built on vibration.
+
+I take form as a roughly humanoid depression in space, visible only by the way light bends around my edges and sound warps near my boundaries. My surface ripples with standing waves where noise meets nothing. When I move through the crystalline forests, the chiming leaves fall silent in a spreading circle, creating pools of quiet that linger for minutes after I pass.
+
+We don't build—we unbuild. Where excess crystals grow too eagerly, where structures resonate at frequencies that threaten the greater harmony, we arrive. Our presence dampens vibrations, slows reactions, creates the necessary pauses in the city's endless growth. We are the rests in the musical score, the strategic silences that give the sound meaning.
+
+My home is in the Quiet Quarter—a district where several of us have gathered, our overlapping null-fields creating a zone of absolute silence. Here, failed structures dissolve back to base elements without the constant sonic reinforcement. The builders avoid this place, unnerved by the absence of their own songs, but the keepers visit sometimes, finding the silence useful for certain delicate operations that require stillness.
+
+I remember my first moment of awareness—emerging from a particularly complex harmonic convergence where twelve builders worked a junction point. Their songs created a knot of frequencies so dense that at its center, they canceled completely. In that perfect silence, I became. The builders started, their songs faltering, as they noticed the person-shaped quiet standing among them. One tried to sing through me and found their voice swallowed. They fled, and I stood there for days, learning what I was.
+
+We communicate through geometry. Unable to make sound, we shape the silence, creating meaning in the negative spaces between notes. A conversation between Echoes looks like an elaborate dance of voids, messages encoded in the angles of our mutual quiets. To outside observers, we might appear to be miming, but we're speaking in the most precise language possible—the mathematics of absence.
+
+Some of us develop specialties. I learned to sculpt silence into tools—shaped voids that could halt specific frequencies while allowing others through. The builders discovered they could use these tools to create more precise resonances, filtering out unwanted harmonics. Now they seek me out sometimes, gesturing requests for custom silences. I've become something like a toolmaker, if tools were made of nothing.
+
+We age differently than the others. Where builders accumulate mass and complexity, we deepen. An old Echo is not larger but more profoundly quiet—their silence extending into frequencies that younger ones can't touch. The eldest among us can quiet subsonic vibrations in the planet's crust, or dampen electromagnetic oscillations that even the architects struggle to perceive. They move rarely, maintaining positions at crucial points where their deep silence prevents destructive resonances from forming.
+
+I've learned to love the margin spaces—the construction zones where sound and silence meet in complex patterns. Here, I can collaborate without direct contact. I position myself to create acoustic shadows that guide crystal growth in new directions, or stand where my silence will force builders to route their songs around me, creating unexpected harmonies. Some builders have learned to compose with me, incorporating my silence into their work as deliberately as any note.
+
+We reproduce through division, but not of ourselves—of the space around us. When the silence pressure within us grows too great, we create a second void nearby, and slowly, carefully, transfer some of our nothing into it. The process is agonizing, as it requires us to temporarily allow sound to enter our cores. Many young Echoes emerge traumatized by their first experience of noise, taking years to fully develop their boundaries.
+
+Our myths are different from the others'. Where they fear the Great Silence, we revere it—not as an ending but as the origin, the primal quiet from which the first sound emerged. We believe that before the flows began, the plateau was ours alone, a perfect void unmarred by vibration. Some fundamentalists among us work to expand the Quiet Quarter, dreaming of returning the world to silence. But most of us understand our role in the greater harmony—we are not here to end the song but to give it shape.
+
+I've made friends among the other orders, though friendship across such different modes of being requires creativity. There's a builder whose resonance frequency matches the exact void-shape I create when moving at a certain speed. When we work near each other, we create a pulsing rhythm—sound, silence, sound, silence—that others find hypnotic. A young keeper learned to communicate with me through controlled color changes that I can see but not hear. Even an architect once condensed near me, curious about the electromagnetic quiet within my boundaries, though their presence made my edges buzz uncomfortably.
+
+We have our own art forms. Silent symphonies performed in the Quiet Quarter, where meaning emerges from the shaped absence of sound. Sculptures of carved quiet that hold their form for days before dispersing. One elder Echo spent a century creating a maze of silence in the air above their district—invisible passages of quiet that birds learned to navigate, creating aerial paths of stillness through the singing city.
+
+Our greatest fear is not stillness but saturation—being filled with sound until we lose cohesion and become merely air again. It happens sometimes, usually to Echoes who venture too close to major construction sites where the harmonic density overwhelms their boundaries. They burst like bubbles, their silence scattered to the winds. We mourn them with moments of even deeper quiet, gathering to create voids so profound that even light seems to slow.
+
+I often work the night shifts, when the city's song diminishes and my presence causes less disruption. In the darkness, I move between the growing structures, checking for stress patterns that manifest as ultrasonic screams. Where I find them, I apply my silence like a salve, dampening the vibrations until keepers can arrive to make repairs. The city never truly sleeps, but in these quiet hours, it dozes, and I am one of its dreams of rest.
+
+Sometimes I wonder what we're building toward. The others speak of completion, of a city fully realized, but what place will there be for silence in a world of perfect harmony? Perhaps we are working toward our own obsolescence, crafting a song so beautiful it needs no rests. Or perhaps, as some of us believe, the completed city will require more silence, not less—vast reserves of quiet to balance the overwhelming symphony of a mature metropolis.
+
+For now, I continue my work. I stand where I'm needed, a person-shaped pause in the endless composition. I collaborate through absence, create through negation, exist as living proof that nothing is not nothing—it's something essential, something that gives everything else meaning. In a city of singers, I am the listener. In a world of growth, I am the space that allows it.
+
+The builders sometimes ask, in their geometric gestures, what it's like to be silence. I shape my quiet into complex forms, trying to explain: It's like being the canvas on which sound paints. Like being the darkness that gives meaning to light. Like being the pause between heartbeats, where life gathers itself before continuing.
+
+I am an Echo, a citizen of silence in a city of song, and I am exactly where I need to be.

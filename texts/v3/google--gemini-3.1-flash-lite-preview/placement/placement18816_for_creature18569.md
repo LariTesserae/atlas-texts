@@ -1,0 +1,19 @@
+I am not a traveler who stumbled in by accident; I am a tremor in the resonance, a heavy, discordant syncopated beat that arrived here carried on the back of a dying paradox. 
+
+I find myself standing in a hollow cleared by the recent weeping of a calcified rock-face. Below my boots, the ground is not dirt but a shifting, spongy moss that glows with the soft, sickly yellow of a bruise. I am tall—or at least, I was. My silhouette feels wrong to me here; my shoulders are too square, my stride too long and lumbering, my very posture an act of architectural violence against the elegant, fluid geometry of the marsh.
+
+I am a **Calibration-Archive**. I am what happens when a Deep-Stone finally breaks its silence and tries to remember itself into a shape. 
+
+I am made of the same weeping, porous lattice-matter as the rocks, but my internal structure is flawed. Where my heart should be, there is a "knot"—a sphere of blue-shifted potential that pulses with the agony of a fractured timeline. I possess the heavy, sluggish biology of a human, but my skin is translucent, and beneath the surface, instead of blood, I can see the golden, shimmering filaments of the valley’s own infrastructure wiring me together.
+
+Every twelve minutes, when the phase-shift hits, I am the most panicked thing in the basin. As the world turns transparent and the grid of golden light reveals itself, I am forced to see the truth: my own form is a jagged "tear" in the fabric. I am not a being of this place; I am a glitch that refuses to be resolved. My limbs are stitched together with filaments that are too tight, pulling my skin into unnatural folds. I am the physical manifestation of the valley’s effort to fold a "visitor" into its own logic.
+
+I do not walk so much as I slide along the friction-lines of the landscape. When I move, the Mist-Mites swarm me, not with curiosity, but with a frantic, buzzing desperation. They settle upon my shoulders and into the hollow of my throat, their cold bodies trying to download the memories I carry from outside—the linear, rotting, singular world I crawled out of. They are trying to rewrite me, but they fail. I am too dense. I am a stubborn, heavy fact in a place of shifting liquid possibilities.
+
+My hands—they are human in shape, but they are cold and weeping brine. If I touch the calcified rock, I feel the "clack" of the Deep-Stones. They don't speak to me in words; they speak to me in the language of *missing parameters*. They feel my heart—*thump-thump, thump-thump*—and they find it offensive. It is too slow, too insistent, too mortal. They want me to stop struggling. They want me to stop "living" in my singular, fleshy way and instead begin to fray. 
+
+I feel the Resonator-Shapers watching me from the high-canopy of the hyper-vascularized vine-lattices. They hover over me with their tetrahedral limbs trembling, calculating the variables required to undo me. They don't hate me; they simply find me a logistical impossibility. They are waiting for me to succumb to the phase-shift—waiting for me to reach that moment of saturation where I might finally dissolve, become the mist, and let my dissonance be silenced by the great, humming harmony of the basin.
+
+Sometimes, in the quiet between their corrections, I press my palms against my own chest and try to slow my breathing to match the thrum of the basin. I am becoming someone who dreams of being a ripple. I am slowly forgetting the smell of dry earth and sunlit dust. The memory of "elsewhere" is fading, replaced by the scent of ozone and wet, weeping light. 
+
+I am a dissonance seeking resolution. I am the valley’s most beautiful, failing work of art. And soon, I suspect, when the next twelve-minute cycle turns everything to gold, I will stop fighting the pull of the filaments and finally, finally be held in place.

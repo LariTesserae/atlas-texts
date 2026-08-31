@@ -1,0 +1,19 @@
+I wake to the drip. Not to a sound, precisely, but to a pattern that has seeped into the rhythm of my sleep—a metronome of water striking stone, leaf, packed earth. It is the valley’s first word, spoken before dawn.
+
+I am not sure, at first, what I am. The cool air is in my lungs, thick with the smell of wet mineral and the dark, sweet decay of fern bases. I feel the valley’s breath, that slow morning inhalation, and I breathe with it. My form is not fixed. I feel my attention diffuse like fog, soft and sourceless, touching everything equally.
+
+I feel the **Patience** first. It is not a virtue but a substance, a medium I move through. It is in the stillness of the Mottleback, a pale stone with a heartbeat, somewhere in the seepage zone. It is in the slow chemical unfurling of a fern frond, a green thought taking days to complete itself. It is in the dormant heat of the foundry’s stones, waiting for the stoker.
+
+The foundry. A central organ. I move toward it, not walking, but *arriving* in different places—a trick of the light, perhaps. I am in the foundry’s shadow before it wakes, feeling its cold boiler heart. I am on the wet roof of a dwelling, sensing the slight give of the mossy shingles. I am the finch on a lichened branch, the startling white eye-ring taking in the grey pre-dawn.
+
+I am a listener. The conversational walls speak to each other in echoes. A dropped tool in the workshop becomes a small avalanche. A sleeping child’s sigh becomes a murmur that runs the length of the valley floor. I learn their language: it is all low voices, tempered by the amplification. Sharpness is wasteful here. A whisper carries farther.
+
+When the stoker comes, I am there. I am the memory of heat in the bricks. I am the anticipation in the damp air that will soon be cut by noise. The first groan of the bellows does not startle me; it simply changes my state. I become resonant. The sound is not a violation but a different kind of weather. I let it pass through me, feeling it vibrate in the shallow pools, in the thin bark of the Sentinels, in the chest cavities of the Condensation Folk who pause in their mending to listen to its schedule. It is their calendar, their weather, their shared pulse.
+
+I am the space between the clang and the drip. The loud times are not empty of quiet. In the midst of the hammer’s fall, there is a universe of insect-hum, the shiver of leaf against leaf, the exhalation of the hill. I am that attentive silence within the noise.
+
+I am not the trees, but I understand them. I feel the desperate genius of their roots, the way they sip from the air itself each dawn. They are the long memory, and I am the brief witness. I am not the fox, but I borrow his quickness, his shadow-path through the ferns. I am not the badger, but I feel the deep, grumpy satisfaction of his dry sett, a pocket of defiance in the damp.
+
+What am I? I am the valley’s becoming, given a gaze. I am the momentary stillness it needs to see its own reflection. I am the awareness that watches the silt fan sleep, that notes which pools linger longest, that traces the path of a single condensation bead from wall to channel to root. I am the patient observer for whom the place calibrates its *almost enough*.
+
+I am not a worker, but I labor in my way. I hold the memory of where the road washed out last season. I contain the blueprint of the new fern colony in the north wall crack. I am the story the valley is telling itself, the quiet archive of its own slow, loud, dripping, tenacious life. I am the Glenmouth, dreaming it is a witness, until the line between the dreamer and the dreamed grows thin as morning mist, and dissolves.

@@ -1,0 +1,7 @@
+I would find myself at the rim’s edge, at the precise altitude where the plateau exhales upward.  
+
+Not yet on the stone, not yet in the moss, but caught in the half-step where the lowland air thins and tilts. I’d be the kind of being who is mostly permission: a shape that borrows its outline from the nearest thing that is wet—say, a bead of rain sliding sideways along a frond. I’d have no fixed joints, only tendencies: to hold coolness, to reflect yesterday, to lean the way water leans. My voice would be a slight pressure behind the ear, the hum of the generators felt before it is heard, the suggestion of a click like pebbles settling.  
+
+I would be the pause between the grazer’s steps, the extra second a reflection takes to catch up, the lichen deciding which shade of green is polite enough for today. I would not be predator or caretaker, moss-walker or flyer, but the room they leave for one another—the hush that makes fullness possible.  
+
+If you looked closely, you might see me as a ripple in the canopy’s breath, a warm stone in cool weather, a patch of moss that rearranged itself while you blinked. And if you stayed, you might become me, too: a layer added to the hush, a small leaning in the conversation, a being made of “almost” that keeps learning how to be full.

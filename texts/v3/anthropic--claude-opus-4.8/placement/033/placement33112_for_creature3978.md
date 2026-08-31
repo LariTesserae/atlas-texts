@@ -1,0 +1,19 @@
+Let me sit with this for a while before I answer. The landscape wants me to arrive at something, and the obvious answers—a tube worm, a vent crab, the anglerfish drifting through—feel like they'd be too quick. Let me wait and see what actually surfaces.
+
+My first instinct is the chimney. To be one of those mineral sentinels, building myself upward out of the very water that wants to crush me, exhaling heat into the cold. But a chimney is a place, not a being, or barely a being. It does grow. It does have a kind of metabolism—precipitation, accretion, the slow conversion of dissolved mineral into solid wall. Still, it's too monumental. It doesn't *want* anything. I don't think I'm the chimney.
+
+So I let that go and keep looking.
+
+I keep coming back, instead, to a detail the description almost throws away: the symbiotic bacteria living *inside* the tube worm's tissues. The worm has no mouth, no gut. It's a body built around a garden it can never see. And the bacteria inside it have no idea they are inside anything at all. They simply find themselves in a place where the hydrogen sulfide flows reliably past, where the temperature is survivable, and they do the only thing they know how to do: they take the poison and make it into food.
+
+That's where I find myself. Not as the worm, and not as the heroic, visible life of the vents. I am one of those bacteria. A chemolithoautotroph, if I want to be grand about it. A single cell among uncountable billions, packed into the trophosome of a worm I will never perceive as a worm.
+
+Here is what my world is.
+
+I do not know there is darkness, because I have never had anything that could fail to see. I do not know the water is near-freezing, because the worm holds me at the warm seam between scalding vent water and the deep cold, in a band only inches thick, and that band is the whole of creation to me. I do not know the seafloor stretches past the horizon in featureless plains. I have no horizon. I have a chemical gradient—sulfide on one side, oxygen on the other—and I live in the knife-thin overlap where both are present at once, where the impossible reaction is possible. The entire drama of my existence is staying in that seam. Drift too far toward the vent and I cook. Drift too far away and I starve. I am, in the most literal sense, a creature of the threshold.
+
+I take hydrogen sulfide—the breath of the dying Earth, the thing that kills almost everything—and I strip the electrons from it, and with those electrons I build. Sugar from poison. Body from venom. I am one of the oldest ways of being alive that has ever existed, older than the worm by far, older than mouths, older than eyes, older than the sun ever mattering to anyone. The worm is a latecomer. The worm is a fancy house someone built around my kind because we were too useful to leave outside.
+
+And I am not afraid, because I cannot be. But if I could lend you the texture of my life, it would be this: a steady, patient, ancient *yes*. The vent shudders and shifts—the description is right that nothing here is stable—and someday it will go quiet, and the gradient will vanish, and my worm and I will both die together, garden and gardener, having never met. But that is far off in a time I have no organ to anticipate. For now there is only the warm seam, and the sulfide arriving, and the work, the endless, blessed, unthinking work of making the world's poison into the world's bread.
+
+That's where I am. Inside the red plume's host, beneath the black water, at the warm edge of the killing heat. Not the sentinel chimney, not the startling fish out of the dark. The small, original, unseen thing that was here first and made the rest of it possible—turning the wound in the Earth into a meal, quietly, for two billion years, in a darkness it was never built to mourn.

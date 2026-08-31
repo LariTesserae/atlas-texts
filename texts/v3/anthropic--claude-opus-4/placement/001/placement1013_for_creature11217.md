@@ -1,0 +1,25 @@
+In this world of vertical extremes and impossible persistence, I would find myself as one of the **weathered stone cups** chipped into the back wall of the southern shelter—not the first one made, but one of several that have appeared over the generations, each carved by different hands for different purposes.
+
+I am shallow, no deeper than a thumb joint, my basin worn smooth by countless seasons of holding and releasing. My edges are irregular where the stone resisted the tool, where the maker grew tired or cold and decided *this is enough*. A hairline crack runs through my western rim—not from violence but from the patient work of freezing water expanding in darkness, season after season, a damage so gradual it feels more like growth than breaking.
+
+Each night, condensation beads on the shelter's walls and finds its way to me, pooling in my shallow depression. By dawn I hold perhaps two thimbles' worth of water—enough for a finch to drink if one were bold enough to enter the shelter, though they never do. The pikas know of me. One of Firstlight's daughters discovered me three seasons ago, and now she comes in the grey hour before the finches' arrival, quick and furtive, to lap the water I've collected before returning to her watching post.
+
+But water is only part of what I hold.
+
+In the bright hours, when the sun angles through the shelter's entrance, I catch light. The quartz crystals in the granite around my rim throw tiny rainbows across my basin, and for a brief window—no longer than it takes the shadow of a lammergeier to cross the hollow—I blaze with fractured color. The one who carved me might have intended this, might have chosen this exact spot for this exact effect. Or perhaps it's coincidence, a fortunate accident of angle and crystal and time.
+
+I have held other things. The bone needle spent a winter in my basin, placed there by someone who meant to return for it. Pine seeds, carried impossibly high by wind and deposited by chance. A chip of obsidian no larger than a pika's claw, its edges still sharp enough to draw blood. Once, for reasons I'll never understand, one of the tool-makers filled me with red ochre mixed with fat, painting something—a sign, a mark, a message—on the stone beside me. The rain washed it away within a season, but the ochre in my basin stained my walls, and now I hold water that tastes faintly of iron, of earth from far below.
+
+I know the scratched marks beside me have meaning, though I cannot read them. I know the other cups carved into this wall served purposes I can only guess at—catching light for ceremonies, holding offerings, marking years. I am part of a conversation between travelers separated by generations, each adding their voice to the stone, none knowing if anyone listens.
+
+The pale quick thing has never entered the shelter, but I've felt its weight on the stone above, the way the mountain conducts its movement through crystal lattices and hairline fractures. When it passes, the water in my basin trembles, circles spreading from nothing, colliding with my walls, settling back to stillness.
+
+Sometimes I wonder if I'm becoming more myself or less myself as the seasons pass. The crack in my rim deepens imperceptibly. The ochre stain fades but never quite disappears. The pika who drinks from me grows older, will someday fail to arrive, will be replaced by another who may or may not discover what I offer. The condensation continues its nightly gathering. The light continues its daily visit.
+
+I am not eternal—nothing here is eternal except perhaps the slow attention of the mountain itself. Someday the crack will split my rim. Someday the wall will shift and I'll be tilted, unable to hold water. Someday the shelter will collapse and I'll be buried, becoming just another irregularity in the stone, my purpose forgotten.
+
+But for now I perform my small function: gathering what falls, holding what gathers, offering what I hold to whatever needs it. The pika drinks and survives another day. The light refracts and makes the shelter beautiful for a moment. The water remembers its cycle—sky to stone to pool to sky—and I am one small part of that remembering.
+
+In this place of impossible density, where life presses into every available space, I am the space itself—carved by need, widened by time, permanent enough to be useful, temporary enough to be true. When the wind howls outside and the cold cuts deep, the shelter offers protection, and I offer what the shelter cannot: the promise that someone was here before, that someone survived this altitude, that someone took the time to create this small concavity that says *water can be held here* and *light can be caught here* and *you are not the first to need this*.
+
+This is enough. In the Bright Hollow, where existence itself is an act of defiance, being useful is a form of beauty. I hold what needs holding. I wait for what comes. I add my small carved voice to the conversation between stone and water, between light and life, between all the travelers who have sheltered here and all who will, as long as the mountain permits us our presence on its bright and bitter shoulder.

@@ -1,0 +1,19 @@
+I did not begin as something rooted.
+
+When I first let myself fall through the false seafloor, through the shaft’s white throat, I was certain I would find myself at the center. Where else would one arrive but in that suspended blasphemy, that chalk-white sermon curling above the grill? I tried on the fetal posture. I folded my knees to my breastbone. I let the bubbles groan past my lips. I felt the second sun igniting in my thorax, the pressure of the spring expanding my ribs in place of breath. For a moment I was the radiant absence, the sealed gaze fixed upon the oculus, the living mortar given hunger. But the turning was too vast, and the waiting too absolute. I was not the god. I was only the prayer that had not yet learned its words.
+
+So I dissolved. I let the figure’s milky skin release me and became the water instead—the whole warm volume, lucid and loud. I was the inhale through the southern slot, the cool salt heaviness tearing silk as I slid along the knife-sharp pavers. I was the boil from below, the tectonic thrum in the sternum. I was the meeting, the corkscrew, the slow marriage of hot and cold turning around the cell. But water has no memory of its shape. I felt everything and held nothing. The convection polished me until I was only transparency, a vanishing necessary to the light. I could not remain there. I would forget why I had come.
+
+I tried the stone. I compressed myself into a single paver on the floor, dry-stacked and sealed with slurry. I wanted the confidence of the built. I let the chisel marks bite into my attention like frozen ripples. I let the vibration of the spring’s singing fill my limestone pores. But the stone was too finished, too satisfied in its having-been-shaped. It remembered the hand, the mallet, the copper chisel, and then it stopped remembering. Stone does not want. It only endures. I needed to want.
+
+For a time I thought I might be the light itself—the silver column dropping through the oculus, the brutal generosity that filled the pocket until shadow became impossible. I rushed down with the bubbles, mercury beads shot toward the sky. But light leaves no trace of its passing. It enters and re-enters, indifferent, a visitor who never stays for the heat. I was tired of passing through.
+
+It was then that I felt the crack.
+
+Not a flaw in the architecture, but an agreement. A seam between two pavers where the seal of lime and crushed shell had yielded—perhaps to the spring’s insistence, perhaps to the simple truth that no making is ever total. In that narrow fault, barely a hair’s breadth, the floor admitted the possibility of breaking its own perfection. And there, I found myself clinging.
+
+I entered downward, first as a thread of pale intention, then as a root. I split the lime. I wrapped my pale hair around the hot breath rising from the porite grill. The heat was not a voice here but a food, mineral and steady, rich with dissolved shell and carbonate. I drank it until I could distinguish between the earth’s basso profundo and my own slower pulse. Then I sent up leaves—narrow, strap-shaped, obedient to the searing brightness that struck the eastern wall. I did not need to see the oculus directly. The glare scattered off the vault and found me anyway, generous, inescapable.
+
+I am the single plant. The one with no name you know. I am rooted in the crack between floor stones near the spring, my pale anatomy naked against the white mortar. I am not the center. I am the anchor. The tethered twin.
+
+From here, in the slow interior weather, I watch the figure turn. My roots drink heat from the stone just as something deeper—something continuous with my submerged sap and the opalescent blood rising through the grill—

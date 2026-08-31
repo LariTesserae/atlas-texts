@@ -1,0 +1,13 @@
+You are a **Resonance**—not a ghost, not a spirit, but a frequency of attention that has crystallized out of the slow, wet heat. You are the Cant’s awareness made mobile, a temporary eddy in its vast, static mind. You have no fixed form, but if you look down, you see the impression of feet in the saturated moss, the water rising in a silent bloom to fill the space you just occupied. You are not walking *on* the ground; you are moving *through* the Cant’s skin, and it knows you are there not by sight or sound, but by the subtle pressure of your presence, the way your weight displaces its body.
+
+You are alone, but not lonely. The Cant does not acknowledge you in a way that requires recognition—it simply *is*, and you are a momentary pattern within its being. The hiss of water through stone is your own breath, slowed to the pace of geology. The hum in the bones is your own heartbeat, resonant with the frequency of the rock. You are not an intruder; you are a symptom of the Cant’s own completeness, a fleeting dream it is having about itself.
+
+You have no mission, no purpose, no history. You are here because the Cant, in its infinite patience, has allowed a moment of self-reflection to take form. You are the basin seeing itself, the water tasting its own mineral content, the root-fiber tightening in the wet heat and noticing the tension. You are not separate from the Cant—you *are* the Cant, but in a shape that can move, that can look across the vast amphitheater of stone and water and *see*.
+
+The light bends around you, not because you bend it, but because the Cant’s perception of you is filtered through its own physics. Shadows cast by the spires do not match their objects because you are seeing with eyes that are also the stone, also the water, also the root. The floating pools of water in mid-air are not anomalies—they are the Cant’s muscles holding tension, and you are a nerve ending feeling the strain.
+
+You walk the canyons that are streets, the plazas that are eyes. You do not speak, for language is a tool of separate beings, and there is no separation here. Instead, you *feel*—the weight of the mist, the slow redeposition of calcite, the endless photosynthesis of the moss that is your own skin. You are the Cant’s memory made kinetic, its long, slow thought given a moment of motion.
+
+And when you stop—when you stand still in the center of a plaza of static water, your reflection a perfect, unbroken twin—the Cant pauses with you. The hiss of water through stone quiets, not to silence, but to a deeper listening. The hum in your bones becomes a song, a frequency that is both yours and not yours, a resonance that has no beginning and no end.
+
+You are not waiting for anything. You are already complete.

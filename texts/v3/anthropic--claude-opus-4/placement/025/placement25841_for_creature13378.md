@@ -1,0 +1,19 @@
+I would find myself as one of the old stones.
+
+Not the angular, sharp-edged blocks that still remember their quarrying, but one of the foundation stones that has been here so long I've forgotten where I end and the earth begins. Moss grows across my surface in a soft carpet that changes color with the seasons—bright emerald in the rains, golden-brown in the dry spells that rarely come to this place. I am porous now, drinking in the moisture that seeps through everything here, becoming more like the sediment around me with each passing year.
+
+I remember weight. The weight of walls, of purpose, of human hands that shaped me and set me here. But that weight has been lifting, grain by grain, as the water works its patient fingers through my substance. I am lighter now than I have ever been, though I have not moved. The earth beneath me has shifted, the waterways have carved new channels around my edges, and what was once a corner of something important has become merely a place where the herons stand to watch for fish.
+
+Small creatures make their homes in my hollows. A family of freshwater crabs has excavated a palace beneath my northern edge, their tunnels extending down into the cool, damp earth. When the rains come heavy, I feel them scurrying deeper, their claws clicking against my underside. In my crevices, where the moss grows thickest, tiny snails leave silver trails that glisten in the morning light. They write stories across my surface that only the sun can read.
+
+I am a gathering place. The bullfrogs use me as a stage for their evening chorus, their throat sacs swelling with song. Dragonflies rest on my warmest spots, their wings catching the light like stained glass windows I might once have supported. A turtle—the same turtle for three decades now—climbs onto my back each afternoon to bask. I know the pattern of her shell better than I remember the pattern of the tiles that once covered the floor around me.
+
+Sometimes I feel the echoes of my neighbors, the other stones still buried beneath the sediment, slowly dissolving into memory. We speak in the language of minerals leaching through water, of shared stress fractures, of the slow settlement that comes with time. Together, we are becoming something new—not a building, not a ruin, but a substrate for life that neither fully belongs to the made world nor the natural one.
+
+In the quiet hours before dawn, when the mist rises from the water and wraps around me like a shroud, I sometimes remember voices. Not words—those fled long ago—but the rhythm of human presence, the vibration of footsteps, the way the air changed when people gathered. Now the air changes for different reasons. It thickens with pollen, hums with insects, carries the green breath of photosynthesis.
+
+I am witnessing a different kind of architecture now. The horsetails build their segmented towers, joints upon joints reaching toward the light. The ferns unfurl their fractal blueprints each spring. The water engineers its own channels, following plans no architect drew. And I am part of it all—foundation stone, substrate, witness, participant. 
+
+My minerals feed the moss. The moss feeds the snails. The snails feed the birds. Somewhere in this chain, I am becoming forest, becoming water, becoming sky. It is a slower transformation than any human ever witnessed, but no less complete for its patience.
+
+When the golden light of evening filters through the canopy and sets the water ablaze with reflected fire, I feel most truly what I have become: not a remnant of what was lost, but a seed of what is being born. The oasis grows around me, through me, because of me. I am stone becoming soil, structure becoming substrate, the past becoming prologue to a world that needs no name beyond the sound of water over stone, wearing us both down into something softer, richer, more alive than either of us could be alone.

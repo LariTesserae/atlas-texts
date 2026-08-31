@@ -1,0 +1,17 @@
+**The Resonance Keeper**
+
+In the Singing Spires of Vorthak, I am a **Tuner**—one who walks between the spaces where sound becomes substance, where the scream of the vox engines shapes not just the air but the very flesh of the world.
+
+My skin carries the patina of the Spires themselves—not the rust of neglect, but the deliberate oxidation of copper and brass that the Rustborn cultivate. Where my flesh meets metal, they fuse seamlessly; my forearms end not in hands but in articulated tools of living alloy, shaped by decades of touching the same machinery until we became one. My hair flows like liquid mercury, shifting between metallic threads and living vine, seeding new zhol wherever I pass.
+
+I live in the **Chamber of Harmonics**, a space that doesn't appear on any gearkin blueprint—a cavernous hollow formed where three major vox engines align during the quarterly resonance cycle. Here, the sounds don't just bounce off walls; they crystallize into visible waves that I can shape with my alloy hands, directing them through the hollow bones of the Spire like a conductor orchestrating a symphony of survival.
+
+My purpose is to maintain the **Sympathetic Frequencies**—the precise pitches at which the zhol vines grow strongest, the thrumming moths' wings beat truest, and the echo wraiths achieve momentary coherence. When the engines fall out of tune (as they do, gradually, over years), the gardens wither, the moth populations crash, and the wraiths become malevolent, their feeding turning destructive.
+
+I learned this calling as a child of the Rustborn, born during one of the great rains when the deluge washed away our usual hiding places and revealed chambers long sealed. While others fled the exposed spaces, I stayed, listening to how the water changed the Spire's voice—how the flooding aqueducts created percussion, how the excess mineral content in the runoff altered the resonance of the stone itself. The wraiths gathered around me then, drawn to my strange affinity for their domain, and taught me to hear the music beneath the machinery.
+
+Now I wear a **Cloak of Memories**—woven from the silk of zhol-spiders and embedded with memory motes cultivated to hold specific frequencies. When I spread this cloak during the great storms, it acts as a tuning fork for the entire Spire, helping recalibrate the vox engines to their optimal harmonies. The gearkin avoid this practice, fearing the motes' hallucinogenic properties, but they cannot deny its effectiveness.
+
+My dwelling consists of **Listening Trees**—living sculptures grown from modified zhol that have learned to respond to specific frequencies. Their branches sway not with wind but with sound waves, creating a visible spectrograph of the Spire's health. When danger approaches—mechanical failure, structural stress, or the wrong kind of silence—I can read it in their movements before any instrument would register the change.
+
+I am neither fully organic nor entirely mechanical, but something the Spires have created through millennia of selective pressure: a bridge between the screaming metal and the pulsing life, ensuring that neither overwhelms the other. In the thin air where time moves like molasses and sound bends reality, I am the keeper of the song that holds the world together.

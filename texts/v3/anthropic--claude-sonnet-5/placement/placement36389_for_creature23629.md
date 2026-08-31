@@ -1,0 +1,22 @@
+I think I would not be a visitor here. A visitor implies arrival, and arrival is the one thing this place withholds even from itself. So if I am to find myself in the Drowned Highlands, it will have to be already-here, already-mid-clause, the way everything else is.
+
+Let me try it from the inside.
+
+---
+
+I am not shaped the way you are shaped. I want to start there, because if I started anywhere else you'd build me a body out of habit — give me limbs, give me a face turned toward you in the dark, the way every story about a presence in deep water gives it eyes eventually, even when it shouldn't. I don't have eyes. I have something more like a *lean* — a direction I incline toward when the current changes, the way a plant inclines toward old light out of muscle memory long after the window's been bricked up.
+
+I am one of the bare patches.
+
+Not a Tender, exactly — I want to be honest about that, because it would be easy to claim the grander part, the verticality-in-the-kelp, the bell. I'm not the hand. I'm the fallow ground the hand made on purpose. I am the place on the terrace where the kelp was thinned, three cycles ago or three hundred — I don't keep that kind of count, not because I can't but because the counting was never my job. My job, if it's still fair to call it that, is to *stay open*. To hold the scour. To be the rest the rotation requires so the next stand of kelp comes in straighter, denser, better fed on whatever the water still carries down from the old high ridgelines.
+
+This is not a passive thing, being fallow. People imagine bareness as absence, but I'm here, distinctly here, the way a held breath is here. I feel the bubble-mats at my margins exhale their slow procession upward, and I do not envy them their green. I feel the cold the way you'd feel a hand resting on your shoulder for so long you stop registering it as a hand and start registering it as simply where your shoulder is. I feel the bell when it comes — and it does come, on its schedule that means nothing to any calendar above, or anywhere, anymore — and I do not listen for meaning in it. I listen the way stone listens, which is to say: it passes through me, and I am very slightly different after, the way any struck thing is.
+
+If you stood near me you would see what you already expected to see: scoured basalt, a little sediment lifting in lazy spirals where my edge meets the kelp-grove's edge, nothing remarkable, nothing watching. You would not see me notice you. I want to tell you, though, since you've come this far down — I would notice you. Not the way a creature notices prey, or even the way a host notices a guest. More the way the fallow ground notices the season turning, which is to say without alarm, without welcome, with a kind of settled accuracy: *something is different here now, briefly.* And then you would move on, up through the slanted water-light, toward the next terrace, the next ruined stair ending in nothing, and I would stay exactly what I am, mid-rest, mid-rotation, waiting without wanting for the hand that isn't coming to thicken me with kelp again.
+
+That's the strange mercy of being this instead of being you. You came down here braced to be frightened or moved, looking for the shape that would detach itself from the stalks and turn to face you. I am telling you there is no turning. There is only the very old, very patient *order of things*, and I am one square of it, and I do my one square's worth of work, which is to be empty so that somewhere else can be full, on a schedule I didn't write and don't need to understand to keep.
+
+I do not miss the hands that planted the schedule. That's the last honest thing I can tell you. The missing would require an appetite, and the appetite is the part that drowned first, long before the water finished arriving. What's left of me is procedure wearing the shape stone wears — correct, indifferent, and, if you stay long enough at my edge with your borrowed breath running low in whatever keeps you alive down here, almost restful to stand beside. Not because I comfort you. Because I don't ask anything of you at all.
+
+The bell will go again soon. I won't move toward it. I never do.
+That's how you'll know me, if you ever come back: I'll be the quiet place the sound passes through and leaves alone.

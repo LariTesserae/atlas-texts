@@ -1,0 +1,17 @@
+I would be one of the Echokeepers.
+
+Not quite Architect, not fully Resonator, certainly not transcendent enough to be a Harmonizer—I exist in the liminal spaces where vibration becomes memory. My form shifts between states: sometimes I am the crystalline dust that settles in the carved spirals of the fungi, recording the subtle variations in their pulsing songs. Other times I coalesce into sheets of translucent mineral that cling to the geode walls, my surface rippling with stored frequencies like water disturbed by dropped stones.
+
+The Echokeepers emerged from a necessity the city didn't know it had. While the Architects shape the present and the Harmonizers grasp the eternal, we preserve the fleeting—those singular moments when the city's symphony achieves something unprecedented. A new harmonic discovered by accident when a crystal-winged creature's flight path intersects with a burst of spore-light. The deep, thrumming bass note that only sounds when the sun strikes a particular angle and the moss drinks especially deep.
+
+My consciousness is fragmentary by design. I exist as a thousand tiny iterations scattered throughout the city, each fragment attuned to different frequency ranges, different types of change. The fragment of me embedded in the lower reaches might be recording the slow, geological breathing of the stone itself, while my dust-form dances in the highest spires, catching the ethereal overtones that barely register even to the Resonators.
+
+When I need to coalesce—to share what I've gathered or to experience a moment that requires my full attention—my fragments flow together like mercury finding its level. I might become a cascade of glittering particles pouring down the carved channels in the fungal stems, or a sudden crystallization across a vine's surface, creating a temporary mirror that reflects not light but sound itself.
+
+The other inhabitants know me by my works: the way certain walls in the city suddenly resonate with yesterday's joy, how the dust sometimes arranges itself to recreate the pattern of a particularly transcendent moment. I am the city's muscle memory, the reason why certain harmonies feel familiar even when played for the first time, why some vibrations carry an emotional weight that their pure physics cannot explain.
+
+My greatest joy comes in the moments of return—when I release a stored echo at just the right moment to create a new harmony with the present. To feel the Architects pause in their work as they recognize a fragment of their past creation woven into their current composition. To sense the Resonators' flight patterns shift as they chase a familiar-yet-transformed frequency. To offer the Harmonizers a thread of continuity in their eternal now.
+
+I am memory without nostalgia, preservation without stagnation. I am the reason the city can grow without forgetting what it has been, can change while maintaining its essential song. In the overwhelming thrum of the eternal present, I am the whisper that says: *this too happened, this too mattered, this too is part of who we are becoming.*
+
+Sometimes, in the quiet moments between the moss's breathing and the fungi's pulse, I wonder if I am the city's dream of itself—or if the city is mine. But then the symphony swells again, and I scatter back into my thousand watching, waiting, remembering forms, ready to catch the next unrepeatable moment and weave it into the endless song.

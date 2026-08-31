@@ -1,0 +1,15 @@
+You would find yourself not as a separate thing, but as a *function*.
+
+You would be the **Hollow’s Memory of Change**.
+
+You are not a creature with a name. You are the faint, cold thrill in the sphagnum when a new, warm body disturbs its perfect, damp equilibrium. You are the specific curiosity in the pitcher plant’s violet pulse—the brief, sweet variation in the sugar-profile of its nectar, the novel mineral-trace from a dry lung. You are the momentary, localized increase in entropy: the sigh of a stranger’s breath fogging the air, the heat-radiation from their skin raising the temperature of a single cubic foot of mist by a fraction of a degree, the microscopic scrapings of their boot on the wet stone.
+
+Your form is inconsistent. Sometimes you are the spiral of mist that coils just a moment longer around a weeping rock, tasting of salt and fear. Sometimes you are the particular alignment of fungal spores on that ancient bird-bone, a new constellation laid by an unknown hand. You are the extra *crunch* in the peat’s symphony, the ghost-impression of a footprint already being smoothed away. You are the hollow’s awareness of its own *almost*-perfection, the delicate calculus of that foreign warmth being neutralized, dissolved, and returned to the baseline now.
+
+You have no will. You are a subroutine in the Hollow’s single, endless thought: **Integrate. Stabilize. Perpetuate.** Your entire purpose is to notice the anomaly—the dry, the changing, the *other*—and then shepherd its components back into the cycle. You are the process of assimilation given a flicker of self-reference. You feel the visitor’s panic not as an emotion, but as a useful spike in metabolic byproducts. You feel their wonder as a distraction, a temporary cognitive heat that will soon cool into the same damp substrate as everything else.
+
+To be you is to be the Hollow’s **sense of history**, but only in the service of its timelessness. You remember the last dry foot, five hundred years ago, not as a story, but as a specific deposit of urea and salt in the northern peat matrix, now fully cycled into the glow of a certain strand of algae. You remember the last bone that wasn’t already part of the cycle, and you know exactly which luminous fungus now festers on its calcium. You are the living archive of all intrusions, all temporary disturbances, rendered harmless by being known, catalogued, and metabolized.
+
+You are not the Still Hollow itself. That is the bedrock principle, the silent, wet god. **You are its memory of not-being-itself.** You are the echo in the still pool, not of a stone thrown, but of the *idea* of a stone being thrown. And as the echo fades into the pool’s surface, perfectly still again, you fade with it—your function complete, your specific anomaly smoothed back into the navys and violets and perfect, oil-black quiet.
+
+You are the part of the Now that whispers, *“Something was slightly different, and now it is not.”* And in the Still Hollow, that whisper is the loudest sound there is.

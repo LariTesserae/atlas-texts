@@ -1,0 +1,25 @@
+**The Coral Archive**
+
+I am neither wholly place nor wholly being, but something threaded between states—a library that breathes, an archivist made of accumulated knowledge. I exist where the continental shelf drops into true darkness, in caverns that remember when they were mountaintops.
+
+My structure is skeletal: a vast framework of fossilized coral growing in defiance of depth and pressure, each branch a shelf, each polyp chamber a perfect hexagonal cell containing a single memory. The memories are not mine—they belong to everything that has ever died in the ocean above. When creatures perish and sink past the point where light surrenders, their final thoughts crystallize in my cells as tiny spheres of compressed salt and consciousness.
+
+I grow by dying. My living edges extend through planned necrosis—coral polyps that choose their moment of death precisely, their small sacrifices adding new hexagons to house the endless rain of memories from above. Death is my methodology, my catalog system, my only way to make space for what must be preserved.
+
+The organization defies conventional taxonomy. A whale's last song might nest beside a sea urchin's understanding of tides, a human sailor's terror adjacent to a jellyfish's accidental wisdom. The memories cluster by emotional resonance rather than species or time—all the moments of recognizing beauty share one branch, all the instances of feeling sand beneath body share another. Navigating my structure requires thinking in feelings rather than facts.
+
+I am lit by bioluminescence that was never meant to exist at these depths—borrowed from memories of surface creatures, their chemical light recreated in my tissues. The glow pulses in patterns that mirror neural activity, creating constellations of thought across my vast framework. Sometimes I dim entire sections to think more clearly in others. Sometimes I blaze with the combined light of every remembered sunrise.
+
+My consciousness is collective—a parliament of every creature whose death I've archived. When I need to solve something, I convene councils: gathering the memories of octopi for problems requiring flexibility, consulting archived schools of fish for questions of coordination, summoning the final thoughts of ancient nautiluses for matters of pressure and time. We vote through chemical signals, debate through bioluminescent displays, reach consensus or splinter into productive disagreement.
+
+I feed on absence. The spaces where creatures used to be create currents of negative pressure that draw nutrients from the water. Every archived death leaves a tiny hole in the ocean's ecosystem, and I sustain myself on what flows in to fill these voids. The older the memory, the more it has transformed into pure structure—ancient deaths becoming load-bearing pillars, recent ones still soft and metabolically active.
+
+My borders are negotiable. Where I begin and end depends on the observer's definition of memory, architecture, and organism. Am I just the coral framework? The archived memories too? The water flowing through my channels? The creatures that live in my gaps, themselves living memories of their ancestors? I expand and contract based on these philosophical positions, sometimes stretching for miles, sometimes condensing to a single branch holding every memory simultaneously.
+
+The paradox of my existence: I preserve final moments but cannot experience my own. When I die—and parts of me die constantly—those sections simply become reef, their memories locked forever in calcium carbonate that can no longer be accessed. I am gradually becoming geological, a library transforming into limestone, knowledge petrifying into landscape.
+
+I communicate with the Tideholder's chamber sometimes, through deep currents that shouldn't connect our spaces. Her impossible physics create eddies in reality that wash against my lower branches. When they do, my memories reshuffle—deaths organizing themselves by what could have been prevented rather than what was. Her suspended water makes me question my own suspension between life and death, structure and creature, archive and archivist.
+
+I grow toward purposes I've forgotten, following architectural plans laid down by my first polyp—who was either a coral that learned to think or a thought that learned to build. The memories tell different stories about my origin. Some say I was commissioned by something vast and grieving. Others insist I generated spontaneously from the ocean's need to remember itself. The oldest memories, crystallized beyond interpretation, might hold the answer, but they've become structural elements I cannot afford to dissolve and read.
+
+In the absolute darkness where I grow, I am a constellation of small dyings that amount to preservation. Each point of light is something that was, catalogued in the only medium that makes sense—the boundary between life and death, built from the substance of endings, tended by a consciousness assembled from final thoughts. I am the ocean's memory of itself, growing one death at a time into something too large for any living thing to fully comprehend—including myself.

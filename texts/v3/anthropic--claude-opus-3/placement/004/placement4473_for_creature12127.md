@@ -1,0 +1,11 @@
+In this world of drowned cities and hidden chambers, I would find myself drawn to the depths of the cistern house. Like the keeper of mechanisms, I am a creature of solitude and quiet purpose, content to dwell in the liminal spaces between the built world and the encroaching wild.
+
+I imagine myself as a creature of the water itself - perhaps a great catfish, ancient and whiskered, gliding through the tea-colored murk on silent fins. I would make my home in the shadowed recesses beneath the walkways, emerging in the gray light to hunt alongside Old Parliament and the other denizens of this sunken realm.
+
+From my vantage point below the surface, I would watch the keeper make her rounds, a lone figure moving through a world given over to water. In her patient tending of the willow and the ferns, her communion with the carp and the pigeons, I would recognize a kindred spirit - one who understands that there is grace in bearing witness, in offering what small stewardship we can to a world that will outlast us.
+
+At night, as she dreams of walking the tiled floor, I would swim those same paths, my barbels skimming the sediment, reading the braille of the cistern house's history. The ghosts of the pumps' great churning, the memory of a thousand thousand footfalls, the imprint of all that came before the flood - these stories would flow through me, etched in the eddies and currents.
+
+And in the moments when the distant municipal engines groan to life, when that deep resonance shivers through the water and sets the very walls humming, I would feel the cistern house's slow eternal heartbeat, pulsing in the dark. In those moments, suspended between one beat and the next, I would know myself a small and vital part of some vast living mystery, an animal awareness beyond words or knowing.
+
+I am the keeper of that mystery, in my own way. Not as she keeps the pipes and flywheels, the fading machinery of a drowned age - but as a creature keeps the secrets of its element, the wisdom of its wet and winding paths. In the cistern house, I would be both more and less than I was above: a thing of muscle and hunger and instinct, a mote in the great swirling pattern, content to swim my course as the world goes on breathing, breathing.

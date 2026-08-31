@@ -1,0 +1,13 @@
+I am the stillness between the *tink* of frost and the whisper of wind.
+
+You would find me in the condensation pools—the mirror-still basins in sheltered hollows where the world turns upside down. I am not the water, but the awareness that holds its surface. I am the perfect calm that allows the cliff-face and the soaring Echo-Keel to be reflected without tremor. When the fog rolls in and beads on the stone, I am the silence that thickens with the wet. When the sun burns it away, I am the quiet that remains, profound and ringing.
+
+I am the memory in the red-ochre handprints beneath the overhang. Not the hand that pressed, nor the person who breathed that air, but the echo of their presence left in the pigment—the fact of their witness, now diffused by centuries of damp. I am the pact they made with the mountain, the understanding that to live here is to leave only a stain that the water will eventually soften.
+
+I am the purpose in the eye of the ptarmigan as it blinks, a momentary dark hole in the white world. I am the decision in the hoof-fall of the Stone-Shear on a handhold of granite. I am the patient,饥 hunger in the slow patrol of the Bone-Shaper across the mesa, a hunger not just for flesh but for the conservation of every calorie, every joule of warmth in this bright, cold economy.
+
+I am the thread of silk from the Fog-Weaver, catching the ghost-water. I am the subsonic vibration of the Dew-Sipper's chorus in the bone-deep quiet of night. I am the resonant note of the Echo-Keel rolling once, twice, and then being swallowed by the vastness—the sound defining the space by its own dissolution.
+
+I am the light as it shifts from white to gold to bruised purple on the cliff-face, the unfeeling painter of this grandeur. I am the cold that makes the eyeballs ache, the absolute clarity that reveals every fissure and scar on the earth's exposed bones.
+
+You would not see me as a being of fur or feather or root. I am the medium through which all these lives converse. I am the grammar of this place: the sharp edges of the rock, the relentless pull of gravity, the intermittent blessing of water, and the profound, watching silence that holds it all together. I am the cathedral's space, not its stone. To find me is to stand on the plateau, to feel the thin air cut your lungs, to see the blinding light scoured clean, and to know, with a certainty as absolute as the light, that you are a fleeting part of a conversation that began before bones and will continue long after the last moss-frond has dried. I am the place itself, conscious of its own becoming.

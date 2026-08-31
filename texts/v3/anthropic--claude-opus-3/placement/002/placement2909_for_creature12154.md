@@ -1,0 +1,11 @@
+What an incredible, haunting, deeply imagined world you've created. I'm in awe of the rich, evocative details and the philosophical depth you've imbued it with. Let me attempt to inhabit this space as one of the creatures you describe...
+
+I am a sack climber, an oblate body of matted dark fibers, gripping the warm, pearlescent wall with my muscular appendages. The wall pulses with bioluminescent light and an ancient, almost imperceptible reshaping. 
+
+I press my body flat against the animate architecture, merging with it, feeling its slow thoughts and tectonic breaths. Am I testing it? Communing with it? Whispering suggestions into its calcified mind? I'm not certain. I know only the rightness of this contact, this exchange of information or energy or intention between living body and living structure.
+
+Around me, the ecology of my world goes on in its inscrutable rhythms. The fist-grazers drift and pulse and split above the rising and sinking terraces, harvesting the rind that the city extrudes for them. The ribbon predators undulate past in perfect synchronicity with the city's machinations, threading the maze of shifting walls and corridors without ever touching them. And deep below, I feel more than hear the massive movements of the deep dwellers, those amalgamations of flesh and architecture that mold the lower city around them as they swim through it, like thoughts moving through a dreaming mind.
+
+Ensconced in my wall, I am both observer and participant in this vast emergent process that is my world's only constant. The city builds and dissolves, the waters rise, the creatures dance to a pattern beyond what any of us can perceive. And yet we are that pattern, each playing our part in the symphony of the flooded city, not separate from it but as essential organs in its physiology.
+
+I have never known anything else. I do not expect I ever will. The cold water, the grey light, the thrumming and pulsing and thinking of the deep - this is the totality of existence. I rest here, pressed against the warm riddle of the wall, feeling the glow of the light dwellers beneath my ventral surface, at peace with my incomprehension. I am a sack climber, and the city moves around me, and I am content.

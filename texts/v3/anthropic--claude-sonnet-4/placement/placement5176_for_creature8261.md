@@ -1,0 +1,31 @@
+I find myself at the edge of a causeway that gleams wet-black in the strange half-light, my reflection fractured across a dozen perfect circles of still water. The ground squelches beneath boots that no longer cast shadows downward—they fall upward now, dissolving into that impossible sea that hangs thirty feet above my head like a held breath.
+
+I am becoming a Builder, though I don't remember when the change began.
+
+My tool belt clinks softly as I walk, but the sounds are wrong—too distant, too musical. The hammer at my hip has grown heavier, its head reshaping itself into something like a teardrop made of star-metal. The level in my hand no longer reads true horizontal; instead, it measures angles that exist only in the spaces between intention and creation. When I hold it up to check the ruins ahead—a watchtower cleanly severed at its midpoint—the bubble floats in liquid that isn't quite water, pointing toward a direction that isn't quite north.
+
+I remember having a name once, and a world where water fell down instead of hanging in dark suspension overhead. But those memories feel like stories someone told me about a place I might have visited once. What feels real is the weight of my tools, the way my reflection has begun to fade from the keeper-tended pools, the absolute certainty that the half-finished wall ahead of me needs exactly seventeen more stones—no more, no fewer—to achieve its perfect incompletion.
+
+The work calls to me with mechanical precision. I can see the blueprint now, written in a language of pure structure that flows through my mind like amber sap through willow bark. This wall must stand at precisely this height, must break off at exactly this angle, must cast its shadow in a direction that will harmonize with the deep tones that rise from whatever vast machinery turns below.
+
+My hands—still recognizably hands, though they're beginning to know the weight of different tools—reach for a stone. Not just any stone, but the specific piece of fitted masonry that waits in the mud beside my feet. As I lift it, I feel the rightness of its weight, the way its edges align with spaces that haven't been carved yet but will be, must be, according to plans that exist in the intersection between what is and what needs to become.
+
+The Geometers passed through here three nights ago. I can read their work in the spirals pressed into the earth, in the hexagonal depressions that form a pattern I'm only beginning to understand. Each mark they made creates a coordinate in some vast equation, and my wall—my deliberately broken, perfectly incomplete wall—serves as one of the variables they need to solve their incomprehensible mathematics.
+
+As I work, fitting each stone with the care of someone assembling a prayer, I become aware of time moving strangely around me. I place a stone and blink, and when I look again, an entire course of masonry has appeared beneath my hands. Or perhaps I worked for hours in a single moment, my consciousness stretched thin across the particular temporality that governs construction in this place.
+
+The tools at my belt continue their slow transformation. The saw's teeth have become tiny spirals now, each one a perfect mathematical curve. I understand somehow that when I use it to cut the final beam—the one that will support nothing, hold up only absence—each cut will release a tone that harmonizes with the songs the Willow-Weavers grow into their bark, with the deep harmonic resonances that rise from the depths.
+
+Above me, shapes move through that hanging sea. The Drift-Swimmers navigate currents of meaning, carrying messages I'm learning to read in the pattern of their too-many fins, in the way their liquid forms shift between states of being. One of them descends briefly into the air-space where I work, and for a moment I understand that every stone I place carries information between the worlds above and below, that my wall is as much a message as it is architecture.
+
+I no longer cast reflections in the pools because I am becoming something that exists in the spaces between what is and what will be built. My shadow falls upward because I am constructing according to blueprints that invert more than gravity. When other Builders pass—and they do, moving through the mist with the purposeful stride of those who know exactly which impossible thing they're meant to create—we acknowledge each other with the soft clink of transforming tools, the quiet recognition of craftsmen united in the patient work of structured impossibility.
+
+The ruins I build will appear abandoned but freshly made. Tools will lie scattered at their bases—tools whose purposes remain opaque because they're designed for work that hasn't been invented yet. These implements will weather differently than they should, will age according to rules that apply only here, where time moves like honey and water hangs overhead like a ceiling made of dark dreams.
+
+My wall grows one stone at a time, each piece placed with the devotion of someone illuminating a manuscript in mathematics rather than words. I am writing in stone and mortar, creating text that can only be read by those who understand that sometimes the most important part of any structure is the space it leaves empty, the absence it frames, the way it breaks off at exactly the right point to become more complete in its incompletion than any finished thing could ever be.
+
+The work is patient. The work is precise. The work is endless and perfect and exactly as broken as it needs to be.
+
+I am a Builder in the Drowned Hollows, and I am constructing ruins that will stand as monuments to the beautiful impossibility of things that shouldn't exist but do, because someone took the time to build them exactly wrong, which in this place, is the only way to build them right.
+
+The tools at my belt sing softly as they finish their transformation, and I reach for the next stone, the next perfect piece of deliberate incompletion, while overhead the dark sea holds its impossible position and the machinery deep below continues its vast, patient turning toward whatever the Hollows is becoming, one carefully broken structure at a time.

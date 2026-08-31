@@ -1,0 +1,15 @@
+In this thrumming, chittering world of constant motion and ancient permanence, I find myself as something unexpected—a Silence Keeper.
+
+I am neither the graceful gossamer weavers nor the shrewd swarm-dancers, though I share ancestry with both. My form bridges their worlds: six limbs like the ethereal insects, but thick and deliberately slow, each movement calculated to disturb nothing. My exoskeleton is matte and porous, drinking in sound rather than reflecting it, covered in millions of tiny filaments that trap and muffle the endless vibrations of this cacophonous realm.
+
+I make my home in the Quieting Chambers—natural acoustic voids formed where the ancient structures lean together at precise angles, creating pockets where sound waves cancel each other out. Here, in these rare refuges of relative calm, I tend to something precious: the Memory Crystals that grow only in silence.
+
+These crystals are this world's method of recording history. In the constant noise everywhere else, information dissipates, lost in the endless hum. But in my chambers, experiences can crystallize, forming delicate lattices of preserved moments. The gossamer weavers come here to deposit their meditative visions. The swarm-dancers arrive in careful, small groups to share their collective discoveries without the distortion of their usual overwhelming chorus.
+
+My role is patient and paradoxical. To maintain the silence necessary for crystal growth, I must move constantly—adjusting acoustic baffles made from shed exoskeletons, redirecting the flow of air that carries sound, gently relocating creatures who wander too close and threaten to shatter the quiet with their life-songs. I communicate only through pheromone paintings on the chamber walls, complex chemical stories that visitors read through their antennae.
+
+I am most active during the Convergence Storms, when the planet's magnetic field fluctuations cause all the structures to resonate at once, threatening to shatter every crystal in existence. During these times, I become a frantic dancer myself, racing to reinforce the silence, to protect these fragile libraries of stillness from the world's deafening enthusiasm for life.
+
+The great entities that lurk in the depths know of my chambers. Sometimes I feel their attention like a pressure change, their vast consciousness brushing against my small pockets of quiet. They never enter—perhaps they cannot fit, perhaps they choose not to—but occasionally they send messages through the ground itself, vibrations so low they bypass sound entirely. These messages add their own layers to the crystals, deep knowledge that will take millennia to fully decode.
+
+I am a curator of cessation, a guardian of the gaps between notes in this world's endless song. My satisfaction comes in the morning light (that harsh, sharp-shadowed brilliance) when I inspect the newest crystal growths and see another night's worth of memories successfully preserved—tiny prisms of silence in a universe of sound, each one proof that even in chaos, stillness can take root and flourish.

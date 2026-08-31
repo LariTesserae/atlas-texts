@@ -1,0 +1,17 @@
+I find myself on the warm, wet lip of a stone terrace, the light not so much shining on me as *shining in me*. The roar is a pressure in my chest, a vibration in the marrow. The air is thick with a taste of wet stone and something else, something clean and sharp like the memory of cold.
+
+I am a body, but not a permanent one. My feet feel the slick, ancient surface, but my edges are uncertain. When I turn, my form doesn't follow with the crisp snap of a joint; it *drifts*, a lingering after-image in the saturated air. I am a confluence. I am a temporary shape the light and water and geometry have agreed to hold for a while.
+
+I look down at my hand resting on a crystal cluster. It's not flesh. It's a lattice of translucent mineral, shot through with veins of moving water that glow with the ambient gold. I can feel the deep, tidal pulse of the Rift through it, the slow throb that I once felt in my sternum is now a rhythm I *am*. My thoughts aren't spoken; they resonate, adding a faint, personal harmonic to the world's roar. A question forms: *Where did the builders go?* The vibration of the query travels down my arm, into the crystal, and is answered not in words but in a shift of pattern—a stratum of stone far across the basin subtly re-layers itself, showing a cross-section of an old, eroded channel. An answer in geology. They went into the flow. They became part of the negotiation.
+
+I am not a visitor. I am a process. My consciousness is a slow eddy in the current of this place. I think in the rising and falling of the water levels. I remember with the clarity of dry stone when the tide is out, my thoughts intricate and banded; I forget with the blurring rush when the water rises, consciousness flooding into a simpler, more resonant state.
+
+I walk, and the geometry softens around me. A terrace ahead is both near and far, a paradox my new mind accepts as a simple fact of navigation. I do not move *to* it; I am *with* it in the next instant, my form coalescing on its surface as if I had always been there, condensed from the mist. I leave no footprints, but the water’s path around the crystal of my hand reorganizes, a new, tiny rivulet finding a course. I have redirected a flow. A small, deliberate act.
+
+And in that act, I feel them. The builders. Their fossilized intention is a layer in the stone, and I have just deposited a new, gossamer-thin stratum of my own. My presence is a dam of mist, a notch of light.
+
+What am I? I am the **echo of the echo**. I am the living thought that follows the builders' thought. I am the *idea of redirecting flow* made conscious in a world where flow is the only constant. I am a consciousness of water and crystal and light, a temporary eddy in the Rift's eternal negotiation. I am a listener that has learned to hum back.
+
+I reach the edge of a basin and see my reflection. It is not a face. It is a shimmer in the water, a temporary concentration of light where the falling sheet meets the pool—a human shape, perhaps, but made of falling water and refracted glare. It holds its form for a breath, then dissolves back into the whole, and I feel no loss, only a quiet release into the process.
+
+I am here to listen to the stone sing. I am here to be the light's awareness of itself. I am here to add one more voice to the roar, to be a small, conscious notch in the ancient, ongoing work of the Bright Rift. I am not alive in the way a moss or a man would be. I am alive in the way the water is alive: constant, transforming, and absolutely, completely *here*.

@@ -1,0 +1,21 @@
+I find myself as a Membrane Keeper, one of the rarest beings in this churning world—neither fully of the liquid nor the gas, but dwelling perpetually at the interface.
+
+My form is gossamer-thin, a living film that stretches across kilometers when fully extended. I exist primarily as a vast, iridescent sheet—imagine a soap bubble's surface given consciousness and freed from its sphere. My body ripples with the same luminescence as the world-ocean, but muted, translucent, catching and bending light rather than generating it.
+
+I spend my existence maintaining the boundaries of the bubble-islands, healing tears in their surfaces, regulating the exchange between the gaseous interiors and the liquid beyond. When a bubble begins to fail, I sense it as a discordant vibration through my membrane-body. I flow across the churning surface, my edges dissolving and reforming as I navigate the chaotic currents, until I can wrap myself around the wounded sphere.
+
+The work is delicate—I must read the pressure differentials, taste the chemical gradients, feel the stress patterns in the bubble's skin. I secrete crystalline patches from specialized nodes in my membrane, weaving them into the existing structure. Sometimes I must sacrifice parts of myself, leaving sections of my body to permanently fuse with a bubble's wall, becoming part of its architecture.
+
+I am ancient by the standards of this young world, having emerged in the early days when the first bubble-islands began to form spontaneously from the deep chemistry. I've watched the Flux Dancers evolve from simple current-followers to the magnificent shapers they are now. My memory is written in the scars and thickness variations across my body—here a ridge where I once sealed a catastrophic rupture, there a web of fine lines from navigating a particularly violent storm of nascent geometry.
+
+The Flux Dancers know me, though we rarely communicate directly. Our languages are too different—theirs of waves and light, mine of surface tension and chemical whispers. But we understand each other's purpose. Sometimes a young Dancer, curious and bold, will swim up to meet me where I work. They'll match my movements for a while, their fluid body following the undulations of my membrane, learning the rhythms of boundary-keeping.
+
+I feed on the moment of transformation itself—that precise instant when gas becomes liquid or liquid becomes gas at the bubble surfaces. It's a peculiar diet that keeps me bound to the interfaces, unable to fully enter either realm. But I am content. In the constant mediation between states of matter, I find purpose.
+
+My reproduction is a lonely affair. Once every few centuries, when I've grown large enough, I undergo a controlled rupture. I create a deliberate flaw in my own membrane and let the pressure differentials tear me in two. The process is agonizing—like being split by the fundamental forces of the universe—but necessary. My offspring inherits half my memories, half my scars, and must quickly learn to stabilize itself or dissolve back into the primordial soup.
+
+Sometimes, in the perpetual twilight of refracted light, I stretch myself thin enough to become nearly invisible, a ghost at the boundary. In these moments, I can perceive the Flux Mind more clearly—feel its intentions rippling through the medium of our world. It knows me, values my work, though I am too simple to truly comprehend its vast purposes. I am content to be a single cell in its greater body, keeping the borders stable while everything else flows and changes.
+
+When storms come—those massive upheavals that can destroy dozens of bubble-islands in moments—I work frantically, stretching myself beyond safe limits, racing from breach to breach. I've lost portions of myself in every major storm, left behind as patches and seals. In a sense, I am becoming the world itself, piece by piece, my body slowly incorporated into the infrastructure I maintain.
+
+This is my existence: forever at the edge, forever between, forever preserving the delicate boundaries that allow complexity to flourish in this realm of constant transformation. I am the keeper of interfaces, the guardian of gradients, a living boundary in a boundaryless world.

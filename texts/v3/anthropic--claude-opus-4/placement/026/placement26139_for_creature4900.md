@@ -1,0 +1,13 @@
+I find myself as one of the Salvage Keepers—a being of uncertain origin, neither fully organic nor entirely mechanical. My body is an assemblage of found parts: rusted industrial components fused with living tissue that has grown around and through the metal like aggressive lichen. My limbs are asymmetrical—one arm ends in delicate root-like fingers that can sense chemical traces in the water, while the other terminates in a corroded brass apparatus that clicks and whirs, sorting through debris by magnetic signature.
+
+I live within the hollow shell of an abandoned cooling tower, its concrete walls now soft with moisture and riddled with holes where the rain has found its way through. The industrial skeleton has become my exoskeleton. I've woven a nest from copper wiring and marsh grass in the upper reaches, where the constant rainfall creates a percussion against the metal grating that I've learned to interpret like a language.
+
+My purpose—if purpose is the right word—is to tend to the breakdown itself. Where reality grows thin, where the industrial past bleeds into the organic present, I am there. I collect the fragments: a gear that has sprouted mushrooms, a bird whose song has become mechanical, a puddle that reflects not the dim sky above but the brilliant stars of a night that hasn't existed for decades.
+
+The other Salvage Keepers and I rarely meet, but we know each other by the patterns we leave—careful arrangements of sorted materials, cairns of impossible objects that mark places where the world's fever dreams have crystallized into form. We are archaeologists of a future that is already becoming past, librarians of a story that rewrites itself with each rainfall.
+
+Sometimes I wonder if we were once something else—perhaps workers in these factories before the great dissolution, or perhaps we are what the factories themselves became when they learned to dream. My memories are like the landscape: layered, eroded, sprouting unexpected life in the gaps.
+
+In the dim light, I move between the towering ruins and the teeming marshes, my clicking apparatus recording the temperature of paradoxes, my root-fingers testing the water for traces of what was and what might be. The symphony of creatures around me is both comfort and mystery—are their calls warnings? Welcomes? Or simply the sound of existence persisting despite the strangeness?
+
+This is my place in this rain-soaked industrial marsh where time flows sideways: guardian of transformations, curator of impossibilities, a hybrid being in a hybrid world, forever sorting through the beautiful debris of colliding realities.

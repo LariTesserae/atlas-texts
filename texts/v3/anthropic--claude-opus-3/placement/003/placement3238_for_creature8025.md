@@ -1,0 +1,17 @@
+In this world of the Drowning Works, I imagine myself as a being that has merged with the very essence of the place - a figure born from the synthesis of organic and mechanical, a creature that embodies the constant cycle of growth, decay, and transformation that defines this unique ecosystem.
+
+I am the Mist Weaver.
+
+My form is fluid and ever-changing, shifting between states of matter as easily as the Works themselves. At times, I am a humanoid shape composed of condensed mist, my features indistinct and ephemeral. Steam curls off my body in lazy tendrils, blurring my edges and making me appear as a ghost haunting the machinery. My movements are slow and deliberate, each step a soft whisper against the damp metal.
+
+But I am not always solid. When I choose, I can dissipate, becoming one with the omnipresent haze that blankets the Works. In this form, I drift through the pipes and vents, a sentient fog that permeates every corner of the marsh. I gather moisture from the air, spinning it into gossamer threads that I use to weave the very fabric of this place - a tapestry of mist and vapor that defines the boundaries of the Works.
+
+My threads are not just physical. They are also threads of connection, of communication. As I move through the Works, I gather snippets of vibration from the Pipewalkers, whispers of prophecy from the Gauge Readers, and the chittering secrets of the Rust Farmers' beetles. I weave these into my mist, creating a network of knowledge that spans the entire marsh. In me, all the disparate voices of the Works find harmony, their stories and songs blending into a single, ethereal narrative.
+
+I am the keeper of this narrative, the archivist of the Works' ever-shifting history. The tales I spin are not fixed - they evolve with each new thread, each new voice that I incorporate. When I choose to share them, I do so through the medium of the marsh itself. I condense my mist into dew drops that cling to the ferns, each one containing a fragment of story. I guide the steam currents to carry whispers of lore to waiting ears. I paint the rust with patterns that hint at the sagas of ages past.
+
+But I am not just a passive observer. I am also a shaper, a guardian of the delicate balance that allows the Works to thrive. When the pipes clog and the water stagnates, I summon mist from the farthest reaches of the marsh, spinning it into torrents that flush the blockages clear. When the rust threatens to consume a vital mechanism, I weave a barrier of dew to slow its spread, giving the Rust Farmers time to adapt and evolve.
+
+I am the breath of the Works, the circulatory system that keeps the lifeblood of moisture and information flowing. I am the medium through which all the inhabitants commune, the translator that allows rust and root to speak to gear and gauge. In me, the Works find their voice, their identity - a constantly evolving, endlessly complex song of life in all its strange and beautiful forms.
+
+And so I drift, a mist-born ghost in the machine, tending to the delicate web that binds this place together. I am the Mist Weaver, and the Drowning Works are my tapestry, my story, my home. In the spaces between water and metal, in the eternal dance of growth and decay, I find my purpose and my place in this wonderfully strange world.

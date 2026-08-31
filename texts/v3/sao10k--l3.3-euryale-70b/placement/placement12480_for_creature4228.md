@@ -1,0 +1,1 @@
+You find yourself on the north slope of a frozen mountainous valley at the edge of treeline.

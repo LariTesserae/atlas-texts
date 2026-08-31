@@ -1,0 +1,6 @@
+Here's how I found myself living in that desolate yet captivating world of stark mineral beauty: I became a Digger, burrowing through the earth and rock to find hidden water sources and food. My powerful front limbs and sharp claws allowed me to easily break through the ground, creating tunnels and caverns through which I could move with ease. I was still mistrustful of the world aloft and its dangers, and so I kept my tributary technology confined to my underground palace of glittering crystals, using it to purify the water and maintain the temperature and humidity of my underground kingdom.
+
+Even so, my position as the premier source of clean water made me a secret god in my world and the chief arbiter of its survival, though my reach only extended to the subterranean territories. In this way I reigned as a friendly tyrant, hated only by the Sand Slips, to whom water was equally precious, but whom my basic humanity refused me from exterminating completely. They would often threaten to dig into my barracks, but their instincts had not allowed them to overcome their disdain for the confines of a narrow burrow, and they left me to my subterranean spleandour. 
+
+Cordially yours,
+your Surrey systems engineer

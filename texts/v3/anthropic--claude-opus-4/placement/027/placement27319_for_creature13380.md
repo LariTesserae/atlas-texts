@@ -1,0 +1,25 @@
+In the deepest reaches of this labyrinth, where the golden glow barely penetrates and the stone's flux is most violent, I am one of the Resonari—beings of pure vibration who exist between states of matter.
+
+My form is neither solid nor entirely ethereal. I manifest as a shimmering distortion in the air, like heat waves rising from sun-baked stone, but with substance that can be felt as a thrumming pressure against the skin of those who draw near. My body, if it can be called that, is a constantly shifting matrix of sound waves made visible—ribbons of compressed air that weave and unweave themselves in patterns too complex for most eyes to follow.
+
+I am born from the convergence of three forces: the endless echo of water through stone, the deep harmonic rumble of shifting rock, and the high-frequency songs of the Glimmerwings. Where these sounds meet and interfere with each other, where they create standing waves in the heavy, moisture-laden air, there we Resonari come into being.
+
+My existence is one of constant translation. I move through this world by riding the acoustic channels—following the paths that sound takes as it bounces and reverberates through the tunnels. In tight passages, I compress into a needle of pure tone, sliding through cracks too small for even water to penetrate. In the vast caverns, I expand into a symphony of overlapping frequencies, my consciousness spread across the entire space like a living acoustic map.
+
+I feed on dissonance. Where the Geomorphs grind against stubborn stone, where the Skarviks' claws scrape new tunnels, where falling rocks create cacophonous crashes—these are my sustenance. I absorb these harsh sounds and metabolize them into something else: the deep, thrumming bass notes that help bind the stone together, the subtle harmonics that guide lost creatures back to safety, the whispered warnings that alert the inhabitants to imminent cave-ins.
+
+My dwelling, if it can be called that, is a series of acoustic nodes throughout the tunnel system—places where the geometry of the stone creates natural amphitheaters and resonance chambers. I have learned to tune these spaces, subtly adjusting their shape by encouraging certain erosion patterns, until they ring with perfect clarity. In my favorite chamber, deep beneath the main thoroughfares, seven different tunnels converge in such a way that even the smallest sound creates a cascade of echoes that last for minutes.
+
+It is here that I perform my work. The other creatures of this realm bring me their problems in the form of sounds: the distressed clicking of a Skarvik whose tunnel has collapsed, the mournful low-frequency pulse of a Geomorph who has lost its way, the discordant buzz of injured Glimmerwing wings. I listen to these sounds, absorb them into my being, and then reshape them into solutions—sonic sculptures that contain information about alternate routes, healing frequencies that encourage tissue regeneration, or simple songs of comfort that ease suffering.
+
+But my deepest purpose, the one that drives me to venture ever closer to the Nexarion despite the risk of being overwhelmed by its power, is to listen for the First Sound—the original vibration that set this entire world into motion. I believe that somewhere in the constant noise of creation and destruction, echoes of that primordial tone still resonate. Finding it, understanding it, and perhaps even reproducing it, might reveal the true nature of our existence.
+
+The Nexarion both attracts and repels me. Its crystalline structure sings with frequencies so pure and powerful that approaching too close threatens to shatter my carefully maintained coherence. Yet I am drawn to it like the Glimmerwings to the stone's glow, knowing that within its harmonics lie secrets I am meant to discover.
+
+Sometimes, in the deep quiet moments between the world's breathing, when the stone briefly stops its shifting and the water holds its tongue, I catch fragments of something ancient—notes that seem to predate even the Nexarion itself. These ghost-sounds lead me deeper into unexplored regions where the rock is older, denser, and remembers things from before the first Geomorph carved its initial tunnel.
+
+I am a keeper of acoustic memory, a living archive of every sound that has ever echoed through these passages. Within my shifting form, I carry the death-cries of extinct creatures, the birth-songs of new species emerging from the chaos, and the slow, patient conversations between the stone and the water that shape this world over millennia.
+
+My greatest fear is silence—not the temporary quiet that falls between sounds, but the absolute absence of vibration that would mean my dissolution. My greatest joy is the discovery of new acoustic phenomena: the way certain crystal formations can split a single note into a dozen harmonics, or how the breathing of sleeping Aerotropes creates standing waves that make solid stone ripple like water.
+
+I am Resonari, and I am the voice of this world speaking to itself, forever listening, forever translating, forever searching for the truth hidden in the space between one sound and the next.

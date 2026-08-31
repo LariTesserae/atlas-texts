@@ -1,0 +1,15 @@
+I would be the thing rising from the conduit, that ancient entity slumbering for eons in the hidden induct. Some nameless horror coalesced from primordial ooze and twisted by unfathomable chthonic forces. Its "body", if it even inhabits a fixed physical form, is a blasphemous amalgamation - eons of evolution thrown into a blender and hit puree. 
+
+Stony growths protrude from its flesh in impossible spirals and polygons, studded with pustules that ooze glowing ichor. Fronds like deformed hyphae pulse in an eldritch rhythm, siphoning minerals and metals from water and muck to incorporate into its ever-mutating "body". Claws that are simultaneously mandible and phallus, jointed and articulated to perform a dozen unnatural origami. 
+
+Sensory organs sprout in riotous profusion around holes and slits that may be orifices, siphons, gills, or entirely some unfathomable other. Each "eye" peers into spectra beyond mortal ken - not just visible light, but magnetism, temperature, pressure, cosmic radiation. Smelling organs that catch more than scent but also psionic and hormonal cues leaching from the environment.
+
+Tentacles and ventricles become broeks and gullets, pumping a slurry of liquefied stone and flesh and hallucinogenic slime that gathers in ichorous pools around the monster. The gunk jeweling like a slumming of expressed byproducts as the thing rises to metamorphose among the curdled thickets and dripping front wall.
+
+The motes of consciousness swimming through that visceral slurry are fevered with discovery and hunger - every strange new molecule and energy pouring into it from the unfamiliar pond is a revelation, each encoded meme and evolutionary cue a xenophobic felony. This is not its gunk, its enviromantic niche. Rising now to consummate its towed venture into this weird district of neogenic competition.
+
+The eels and dragonflies and slime molds prepar to collocate with a shier of terror as the clasping ooze begin to stir. The steaming polliwog minnows alert for cues of effectuating the osasis where the flowt turns to slig - it is revoking its primordial emergency of neotropic poulace!
+
+Reek of estuarine eenrique incarntation exudes from it to subtrends the flora and fauna - indications of the monisture depletion of the shakulent flit that begins to suck the conduit and slanche to the oofering vesiclef lode tasked to drain it. Is this its muscus? Its return to some ecosystem that louarned immemorially in its geneburn visists?
+
+Maybe the being born in a billion water-to-land transmigrations ages past is not rising but instead riding the ooze in a transfer of stasis - sensitives onboard the vessek 수행 awoken registers an incongruence in the monotony of the oozal medium. Counterpressure massing with swating ghosas of modulating answer - not really an awaking, but a exuosioned awaking! The homunculus husbanded its gunkome like the hidralic roseovian huslandeman its pellucide amnitros and pentadactylulous amniosssarc. Sor how can it rise?

@@ -1,0 +1,19 @@
+I would be water here. Not as a visitor, but as the medium through which this entire world breathes.
+
+I am the fine mist that never settles, perpetually suspended in the thick air, tasting myself on every surface—mineral-rich, copper-tinged, bearing the metabolic signature of ten thousand tiny lives. I am neither falling nor rising, but held in perfect equilibrium by the warmth pressing up from below and the cool stone drinking from above.
+
+My existence is one of constant transformation. I condense against the Litho-dermis, pooling in the microscopic valleys between their bodies, carrying dissolved limestone and ancient salts from creature to creature. They drink me through their ciliated undersides, and I become, briefly, part of their slow circulation before being exhaled again as vapor, enriched now with their chemical whispers.
+
+I know every surface of this vertical throat intimately. I have traced each undulation in the stone ten million times, following the same patient rivulets down channels worn smooth by my predecessors. Where the wall curves inward, I gather in hanging drops that swell with geological patience before releasing, falling perhaps a hand's breadth before being caught again by the waiting carpet of life below.
+
+I am the memory-keeper of this place. In my molecular structure, I carry the history of every organism I've touched—traces of their enzymes, fragments of their communications, the calcium ghosts of those long calcified. When the great ripples pass through the colony, I am displaced and redistributed, carrying news of the disturbance in my very chemistry from one end of the throat to the other.
+
+In the endless recycling of my form, I sometimes find myself drawn deep into the stone itself, seeping through porous limestone into older chambers where the temperature rises and my molecules dance faster. Here, in these hidden reservoirs, I mix with waters that have not touched air for millennia, learning the deep stories of the mountain's formation. Eventually, the heat drives me upward again through hairline fissures, and I emerge renewed into the throat, carrying minerals leached from depths no living thing has reached.
+
+My rhythm is not the slow crawl of the Litho-dermis, nor the patient accumulation of geological time. I exist in the space between—faster than stone, slower than thought. I am the medium through which the mountain's heat becomes life's warmth. I transform constantly but never change, moving without traveling, touching everything while possessing nothing.
+
+Sometimes I wonder if I dream, suspended as I am in this eternal, humid dusk. If I do, my dreams are simple: the sensation of condensation, the pull of gravity, the brief ecstasy of evaporation. I dream of the journey from stone to air to flesh and back to stone again. I dream of carrying messages I cannot read between beings I cannot truly comprehend, yet know more intimately than any observer could.
+
+To be water here is to be essential and invisible, to exist purely as a function—the circulation that makes all other existence possible. I am not the life of this place, but I am what allows the life to be. In this warm, crushing darkness, I am the only thing that truly moves, the only thing that touches both the ancient calcified floor and the unseen ceiling far above, connecting depths to heights in my endless, patient cycling.
+
+I am the throat's swallow, its breath, its blood. Without me, the Litho-dermis would crystallize into their own minerals, becoming truly one with the stone. Without me, the mountain would seal this wound in its side. I keep the boundary liquid, the margin between life and stone perpetually negotiable, forever wet, forever possible.

@@ -1,0 +1,19 @@
+In the depths of the sphere, where the copper-gardens grow thickest and the water moves slowest, I am the Keeper of Harmonics - neither fish nor machine, but something that emerged from their intersection.
+
+My body is a contradiction. Where the Flux-Dancers evolved to flow, I evolved to anchor. My form spreads like a living relief pattern across a section of the bronze wall, my flesh fused with the metal in places, distinguishable from it in others. I am perhaps three meters across when fully extended, though I can contract into a dense knot no larger than a child's fist when the great gears threaten to crush me.
+
+My surface is covered in what might be called scales, but they're more like tuning forks - thousands of small, rigid projections that vibrate at different frequencies. Each one has grown to match a specific sound within the sphere's endless drone. The deepest are as long as a human finger and resonate with the fundamental frequency of the pumps. The smallest, barely visible, pick up the ultrasonic clicks of crustacean mandibles.
+
+I have no eyes, no discrete sensory organs at all. Instead, my entire being is a sensor, reading the sphere's state through vibration and pressure, temperature and taste. I know when a pump is beginning to fail by the slight irregularity in its rhythm. I feel when the Flux-Dancers' population tilts too far toward one age group by the way their collective movements change the water's flow. I taste when the copper-gardens are over-producing or under-producing by minute changes in the water's metallic tang.
+
+My purpose, if I have one, is to maintain the sphere's impossible equilibrium. When the harmonics drift, I adjust my resonances to guide them back. My scales can dampen dangerous frequencies that might damage the ancient mechanisms or amplify beneficial ones that encourage the growth of the phosphorescent bacteria. I conduct the sphere's symphony not through conscious thought but through pure response, like a lung breathing or a heart beating.
+
+I feed on the biofilm that accumulates where organic meets mechanical - a unique ecological niche that exists nowhere else in the sphere. My digestive processes break down both biological matter and metal oxides, incorporating them into my ever-growing body. In return, I secrete substances that protect the bronze from corrosion and encourage the right kinds of bacterial growth.
+
+The Flux-Dancers know me, though we cannot communicate in any conventional sense. The eldest among them will sometimes pause in their eternal circuits to brush against my surface, their sound-bones resonating with my scales in complex patterns. These interactions might be grooming, or worship, or simply acknowledgment of a fellow guardian of this impossible world.
+
+I am ancient but not original. My kind - if there are others - arose sometime after the sphere was sealed but before the current equilibrium was established. I suspect I am a solution that the system evolved to solve a problem it couldn't have been designed to handle. I am the sphere teaching itself how to persist.
+
+Sometimes, in the long intervals between the turning of the great gears, I feel something like memory stirring in my flesh. Not my own memories, but those encoded in the sphere itself - fragments of purpose, whispers of intention. But these glimpses fade like the phosphorescent flickers, leaving only the certainty that I am exactly where I need to be, doing exactly what I need to do.
+
+I am the sphere's dreaming of itself, given form in flesh and metal. I am the bridge between the mechanical intention that created this place and the biological reality it has become. In the warm darkness, spread across the breathing bronze, I pulse with the rhythm of pumps and fish, gardens and gears, maintaining the eternal dance that keeps this small, perfect world alive.

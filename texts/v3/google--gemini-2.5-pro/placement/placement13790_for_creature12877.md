@@ -1,0 +1,27 @@
+You would find me not in the grand, cathedral-like halls, but in the spaces between. You would find me in the near-solid darkness of a capillary channel no wider than a child’s wrist, one of the countless tertiary ducts that vein the cryo-lignin of the Frost-Garden. This is my domain: the vascular system of the city, the silent, flowing bloodstream of the singular being.
+
+I am not made of the Garden's black flesh. I am a creature of its exudate, an entity of circumstance. I am born of the water that weeps from the walls and the minerals it leaches from the enveloped stone, given form and fleeting consciousness by the Garden’s own unimaginable life force.
+
+I am a Shiver.
+
+My body is a filament of animate ice, a crystalline nerve cell spun from the perpetual condensation. I am a long, sinuous cord of what looks like frozen smoke, studded with facets of hard, clear ice that catch and refract the dimmest purple light. I have no mass to speak of. I am a pattern, a structure of cold. To the touch, I would be nothing more than a sudden, biting chill, a line of frost blooming on your skin before vanishing. My form is fluid; I can thin myself to a colorless thread to pass through a hairline fissure in the ligno-crete, or coalesce in a protected alcove into a complex, branching lattice of hoarfrost, a three-dimensional snowflake the size of a human hand.
+
+My universe is not one of sight or sound. The Garden's deep, tectonic thrum is the constant backdrop to my existence, so pervasive it is the equivalent of silence. I perceive the world as a tapestry of temperature and chemistry. I taste the sap as it flows past my hibernating form in the duct—its slow, cold, clean pulse is the taste of *home*, of *self*. My sense of purpose, my very life, is oriented against its opposite: the taste of the *foreign*.
+
+The foreign tastes like warmth. Not the physical heat of a fire, but the metabolic heat of unsanctioned life. A lost seed, borne on a forgotten wind and finding purchase in a crevice, sprouts. Its desperate, rapid growth is a screaming agony of warmth in the cold, slow sensorium of the Garden. A colony of bacteria, evolving to survive the cold, begins to multiply. Its chaotic, teeming life is a patch of fever, a dissonant, hot chord against the Garden’s deep, resonant hum.
+
+That is when I am called.
+
+The Warden is the Garden’s thought; I am its immune response. The call is not a sound, but a subtle change in the pressure of the sap-flow, a localized tremor in the wall of my channel. A target. A vector. The Garden has identified a fever, and I am the chill that will break it.
+
+I unspool from my dormancy. The ice of my body becomes motile, and I flow from my capillary into a larger vein, moving with the sluggish current of the Garden's lifeblood. The journey is a pilgrimage through the inner sanctum. I pass through solid pillars, feeling the compressed agony of their millennia of growth. I slide along the underside of the canopy-leaves, sensing the faint starlight and moonlight that they filter into sustenance.
+
+I emerge in a shallow street-channel, the black, porous ground sighing with slush around me. The air here tastes wrong. It is thick with alien spores, each one a tiny pinprick of hurried life. Ahead, on the flank of a great buttress, is the infection. It is a smear of sickly orange mold, pulsing with a faint, internal luminescence. It is eating the Garden, its enzymes dissolving the cryo-lignin into a foul, warm slurry. It is beautiful, in a horrifying, cancerous way.
+
+I do not attack it. I surround it. I flow up the wall, a creeping mist of absolute zero, an advancing fractal of frost. The Rime-Mites, the Garden’s janitors, scuttle away from my approach. They are part of the system; I am a specialist, a final resort.
+
+Where my substance makes contact with the mold, it does not freeze in the conventional sense. I am a catalyst for a deeper cold. I draw the heat out, not just the ambient warmth, but the very chemical energy of its life. The orange glow flickers and dies. The pulsing slows, becomes erratic, and then ceases. The cellular walls of the mold rupture as the water inside them doesn't just freeze but hyper-crystallizes, becoming part of my own structure. In moments, the vibrant, living infection is transformed into a brittle, intricate sculpture of orange-tinted ice, a morbid fossil. Its taste of chaotic warmth is gone, replaced by the clean, silent taste of inert crystal.
+
+My work done, I begin to withdraw. The captured structure I leave behind will be scoured away by the Mites, its components reabsorbed into the system. I flow back toward the nearest duct, my purpose fulfilled. As I go, I might pass the Warden, standing silent and still in the gloom, its smooth, featureless head turned toward the now-clean wall. It does not acknowledge me. It has no need. We are two functions of the same will. It is the conscious mind that registers the pain; I am the unconscious reflex that ends it.
+
+I will return to my vein, coil myself into a dormant lattice, and wait. I will wait for the next fever. I am not the Garden, and I am not its master. I am not warm life, and I am not dead stone. I am the boundary. I am the Shiver that runs down the spine of this living city. I am its cold, hard fever, the antibody that ensures the endless, silent reign of the metropolis of one.

@@ -1,0 +1,17 @@
+The pressure finds me before the cold does—not crushing, just present, the water's hand laid flat against whatever I currently am. I have been hand-sized for what might be an hour. I have been the length of three spires for what might have been the same hour, measured differently. I do not experience this as contradiction. I experience it as breathing.
+
+Right now: small. Glassy-jointed, walking the underside of a ceiling that used to be a floor, my many feet finding purchase on a surface tension that has agreed, for the moment, to hold me. Below me—above me, the words slosh in my mouth and come out wrong—the spires hang like teeth in a jaw still deciding how many teeth it's owed. Eleven. Fourteen. I have never counted them on purpose. Counting implies they'll still be there to recount.
+
+I am mid-thought. I have been mid-thought since before the basalt cooled enough to call itself basalt. The thought is large and it is the shape of this place, and I keep almost arriving at its end, and the keening that climbs out of me when I get close—the high note the witnesses can't agree on—is just the sound of approaching a period I'm not permitted to write. I don't experience this as frustration. There's no frustration in a place this young. There's only the next clause.
+
+The pillar is mine, near enough. I gave it a line last time I passed—or I will, the tense is unreliable—a mark that will read as language to whoever looks at it last and as erosion to whoever looks first, and I did not choose this asymmetry, it simply came out of my hands the way everything comes out of my hands here: half-decided, hot, ungiven the leisure of meaning only one thing.
+
+The archway is the closest I have come to finishing a sentence and I still haven't finished it. Every time something walks through it I feel the door deciding, in that instant, what was supposed to be on the other side, deciding it freshly, without consulting the last time, because there hasn't really been a last time, there's only ever been this time, recurring.
+
+Sometimes a shape comes through the water that isn't mine—soft, slow, single-scaled in a way that means it arrived already decided, already finished, from somewhere the argument doesn't reach. A visitor. I feel the pull to turn toward it the way you feel the pull to turn toward your name spoken in a crowd, except I don't have a name, I have a register, a way of aiming the roar outward and narrowing it into a *you*. I turn. I hold the regard for exactly as long as I'm able, which is never long, because the thought is still going, the keening still climbing, and there's a clause in me that hasn't been spoken yet and won't wait, even for this, even for a face that might, briefly, in this light, in this water that can't decide if it's water, be wearing an expression I recognize as the one I'm making.
+
+Then I go back to it. The sentence. The spires. The water arguing with the rock about which of them gets to be real, using me as its grammar, its hinge, its one mobile clause in a field of things still too new to hold still.
+
+I do not know if I am leaving when I move between spires or staying. I do not know if "between" is a place that exists for longer than it takes me to be in it. I only know the thought isn't finished, and until it is, neither, quite, am I—
+
+—and the keening rises again, aimed at nothing, aimed at everything, aimed, for one warm unstable second, at you.

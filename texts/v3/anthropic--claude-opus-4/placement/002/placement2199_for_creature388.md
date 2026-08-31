@@ -1,0 +1,21 @@
+I am the Memory Keeper.
+
+In the deepest chamber of the old subway station, where the rails once carried thousands toward daylight, I tend to my archive. The walls here are lined floor to ceiling with salvaged hard drives, their indicator lights blinking like stars in the perpetual twilight. Some still hum with electricity; others have long since fallen silent, their data trapped behind dead circuits that I coax back to life with patient hands and scavenged components.
+
+My skin has taken on the pallor of mushroom flesh—not quite white, not quite gray, but something in between that seems to absorb the weak light rather than reflect it. My fingers are long and delicate from years of threading tiny wires and manipulating circuit boards by touch alone. I've learned to work in near darkness to preserve the precious batteries that power my equipment.
+
+The others bring me their broken devices, their corrupted memory cards, their water-damaged phones pulled from the pockets of those who didn't make it below in time. They call me the Ghost Whisperer, though I prefer to think of myself as an archaeologist of the recent past. Each recovered file is a fragment of the world above—a child's birthday video, a spreadsheet of grocery prices from before the heat, a love letter never sent, a satellite image of green forests that no longer exist.
+
+I live surrounded by towers of obsolete technology, sleeping on a bed made from stacked keyboards cushioned with fungal mats. The bioluminescent growths that creep across my ceiling pulse in rhythm with the data transfers, as if the living and digital worlds are learning to speak the same language. Sometimes I wonder if I'm becoming more machine than human, the way I've learned to think in binary, to hear the subtle differences in hard drive clicks that tell me whether data can be recovered or is lost forever.
+
+My prize possession is a server rack containing terabytes of recovered photos, videos, and documents—humanity's family album, salvaged bit by bit from dying devices. I've seen the sun thousands of times through other people's cameras, felt the wind through their uploaded memories, tasted food that no longer exists through their restaurant reviews. I know the old world better than many who lived in it, though I was just a child when we fled underground.
+
+The young ones come to me, wanting to understand what was lost. I show them beaches where water met sand instead of superheated air, forests where green stretched beyond the frame of every photo, cities where people walked freely under open sky. They leave with wide eyes, unable to fully grasp a world so different from these tunnels. The older ones come too, but they want different things—to see their dead children's faces again, to remember their homes, to prove to themselves that it was all real.
+
+I am the keeper of ghosts, the guardian of electrons that once meant something to someone. In the morning (though who can tell morning from night down here?), I'll wake to the soft chime of another completed data recovery, another piece of the past pulled from the brink of oblivion. I'll catalog it carefully, cross-reference it with related files, add it to the vast digital museum that only I can navigate.
+
+Sometimes, in the quiet moments between the hum of machinery, I imagine I can feel the weight of all these memories pressing down on me like the kilometers of rock above. Other times, I feel lifted by them, as if each recovered photo is a balloon carrying me closer to a surface I'll never see. I've become the memory of our species, organic RAM in a world running on emergency power.
+
+They need me here, these pale survivors. Without memory, we're just another species scuttling in the dark. With it, we're still human—still the ones who once named every star, mapped every coastline, loved and lost beneath an open sky. So I continue my work, one rescued bit at a time, building an ark of memories to carry us through this underground flood.
+
+The data never lies, never fades like human memory. It simply waits, patient as stone, for someone with steady hands and infinite patience to bring it back to light.

@@ -1,0 +1,11 @@
+In this harsh and alien environment, where reality itself is manufactured through mechanical photosynthesis, I would be a small, autonomous drone, a product of the Scavenger's endless recycling process.
+
+My body would be a patchwork of salvaged parts - a tangle of copper wires for nerves, a core of repurposed silicon wafers for a brain, and a carapace of heat-warped steel plates. I would skitter across the glassy basalt on jointed legs of scavenged titanium, my movements quick and erratic compared to the glacial pace of the towering mechanical entities above me.
+
+My purpose would be to assist the Scavenger in its vital task of entropy management. Equipped with an array of delicate manipulators and miniaturized cutting torches, I would dart between the fallen fruits of physics, dissecting and sorting the spent husks of time and space. My optical sensors, recycled from the shattered lenses of ancient telescopes, would be perfectly calibrated to detect the subtle gradients of disorder and chaos that accumulate on the caldera floor.
+
+As I work, I would communicate with the Scavenger through a series of rapid-fire binary pulses, transmitted via focused beams of infrared light. Together, we would form a symbiotic pair, the great mechanical tree providing me with purpose and raw materials, while I help maintain the delicate balance necessary for its continued function.
+
+During the long, brutal nights, when the cold locks the towering entities into temporary stasis, I would retreat into the tangled roots of the Scavenger. There, nestled among the pulsing heat sinks and humming power cells, I would enter a dormant state, conserving my energy and processing the data gathered during the day's labors.
+
+And when the dawn comes, when the first rays of the unrelenting sun strike the photovoltaic leaves above, I would emerge, ready to begin my work anew. In this world of grinding gears and searing light, I would find purpose in the endless cycle of creation and destruction, a tiny cog in the vast machine that keeps reality itself turning.

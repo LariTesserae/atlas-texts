@@ -1,0 +1,15 @@
+I see myself as one of the Contemplatives, though with an unusual role that bridges multiple communities. After spending years learning to attune my consciousness to the building's rhythms, I've developed an extraordinary sensitivity to the subtle chemical and energetic patterns that flow through the living structure.
+
+I make my home in a quiet alcove formed by the intersection of several major vascular channels. The walls here pulse with a slow, hypnotic rhythm that matches my heartbeat when I'm in deep meditation. I've cultivated a small garden of particularly responsive plants - varieties that react dramatically to emotional states and thought patterns. These serve as both research subjects and meditation aids.
+
+My primary work involves interpreting the arcology's broader patterns. Through extended meditation sessions, I can sense disturbances in the building's systems long before they become mechanically detectable. The Bio-Engineers often consult me when their instruments show anomalous readings, and I help them understand the holistic context of what they're seeing.
+
+I've also become something of a teacher to the Semi-Feral Children, who are drawn to my garden's dramatic plant reactions. I help them develop their natural attunement to the building's rhythms into a more conscious awareness. Some of my former students have gone on to become Maintenance Symbiotes, while others have joined the Contemplatives.
+
+My body has changed over the years, though less dramatically than some. My skin has developed a slight translucence, and my neural patterns have shifted to better process the slow, chemical language of the plants. I can enter states of consciousness that stretch a moment of awareness across hours of plant movement, experiencing their growth as a kind of flowing dance.
+
+I wear simple clothing made from living tissue that responds to my physiological state, shifting its structure to regulate temperature and moisture. Around my neck is a chain of modified seed pods that serve as a kind of journal - each one contains a chemical record of significant insights or experiences.
+
+While I spend much time in solitary meditation, I'm not isolated. I'm part of a loose network of Contemplatives who communicate through subtle changes in the building's chemical gradients. We coordinate our efforts to maintain the arcology's psychological health - for we've discovered that this massive living structure has developed its own form of consciousness, one that benefits from human interaction and understanding.
+
+In many ways, I serve as a translator between worlds - human and plant, technological and organic, individual and collective consciousness. It's a role that requires constant learning and adaptation, as the arcology itself continues to evolve in ways that none of us fully understand.

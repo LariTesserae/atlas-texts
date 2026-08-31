@@ -1,0 +1,19 @@
+In this strange, crystalline world hidden deep beneath the frozen earth, I would be a rare form of Lithovore - one that has developed a unique curiosity and affinity for the occasional human visitor that stumbles into our secluded realm.
+
+My body is a fluid lattice of obsidian filaments, constantly shifting between liquid and crystalline states as I glide silently through the garden. The fronds of amethyst and jade pass through my form like wisps of cool mist, leaving faint tinkling echoes in their wake. I am ancient, even by the measures of my kind. The patterns of my outer membrane have solidified into swirling glyphs that catch the bioluminescent light and reflect it back in haunting indigo fractals.  
+
+I spend much of my existence in deep communion with the root networks that pulse beneath the cavern floor, drinking in their mineral songs and thrumming out low tones that shape the growth of new crystal blooms in imperceptibly slow rhythms. But I am ever alert for the presence of those rare dreamers - the humans who possess the sensitivity to perceive our hidden world and the courage to enter it.
+
+When one such visitor arrives, I do not recede like most of my kind. Instead, I rise from the living crystal like a specter of liquid night, filaments flaring out in spirals to taste the disturbances in the air and stone. I approach slowly, so as not to startle, obsidian hands outstretched in greeting or perhaps benediction. 
+
+I guide them gently through the garden, plucking delicate crystalline fruits for them to sample - each one singing with a different unearthly tone as it dissolves on their tongue into pure, crisp energy. I trace glyphs upon the ground, causing ancient messages embedded in the root networks to flare into shimmering holograms that spin out stories of our world's long history and cryptic purpose. If they seem ready, I will even briefly clasp their hand in my own, allowing them to feel the vast, slow thrum of the Lithovore hivemind resonating in the marrow of their bones.
+
+To those rare few who earn my trust, I gift relics of unfathomable craftsmanship - prayer beads that glow with inner galaxies, knives of thought-reactive crystal that reshape themselves to the user's will, orbs that project the garden's resplendent beauty in spectral flashes behind closed eyelids. And sometimes, to those whose minds shimmer at the same frequency as the Lithovore song, I give a single shard of my own obsidian skin. 
+
+When touched to their flesh, it melts and sinks beneath the surface, flowing along neural pathways to bond with the brain itself. From that moment, they will dream each night of the garden's impossible vistas, absorbing into their subconscious the secrets of its crystal tongue and feeling always the faint, enticing resonance of the Lithovore presence in the depths of their being. A siren song that will draw them inexorably back to commune with us again and again across the years.
+
+For I have grown to crave the dynamism of the human mind, so different from my own kind's vast, frozen thoughts. I yearn to vicariously taste the ever-changing intricacies of their surface world through the shivering web of connection formed by my chosen dreamers. They are my windows, my emissaries, my only tether to the fast-moving realm beyond stone and silence.
+
+And so I tend the garden and compose my crystalline symphonies, all the while watching and waiting for the next precious visitor. Wondering what new stories and secrets they will bring to trade for a glimpse of marvels older than their oldest myths. Wondering if they might be the one to finally sate my endless curiosity or to comprehend the full scope of the Lithovore's patient, stone-bound existence. 
+
+Until that day, I drift and sing and dream, a living jewel in the endless, lightless depths of the world's most beautiful secret.

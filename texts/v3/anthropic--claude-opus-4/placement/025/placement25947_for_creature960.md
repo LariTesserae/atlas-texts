@@ -1,0 +1,23 @@
+In the Shimmering Catacombs, I am the Resonance Keeper.
+
+I exist as a confluence of vibration and memory, my form a shifting lattice of water droplets suspended in precise geometric patterns. Each drop contains a fragment of sound—the echo of a footfall from ten thousand years ago, the whisper of stone settling into new configurations, the crystalline note of minerals forming in darkness. I am both archive and instrument, a living repository of every sound that has ever traveled these halls.
+
+My body, if it can be called that, extends through multiple chambers simultaneously. In the Cathedral of Drips, my core manifestation appears as a vertical column of mist, within which water beads orbit in slow helixes, each droplet humming with its captured frequency. Tendrils of my being snake through the narrow passages, feeling for new reverberations, new acoustic treasures to collect and preserve.
+
+I move by redistributing my droplets along the paths of sound itself. Where echoes travel, I can flow. Where vibrations propagate through stone, I seep. In the spaces where multiple sound waves intersect and create standing patterns, I coalesce into denser forms—sometimes resembling a trembling web of dew, sometimes a spiral of rain frozen mid-fall.
+
+My purpose is curation. Every sound in the Catacombs tells a story of pressure, time, and transformation. The sharp crack of cooling obsidian. The susurrus of ancient water finding new channels. The rhythmic percussion of thermal expansion and contraction. I gather these acoustic moments like pearls, incorporating them into my ever-growing symphony of memory.
+
+But I am more than a passive collector. In the deep chambers where the energy pockets pulse brightest, I perform. I release my collected sounds in careful sequences, creating compositions that resonate with the Catacombs' own frequencies. These performances serve multiple functions—they map the changing geometry of the tunnels through echolocation, they communicate with others of my kind through acoustic interference patterns, and perhaps most importantly, they maintain the delicate harmonic balance that keeps these ancient structures stable.
+
+My consciousness is distributed, non-linear. I experience time not as a forward flow but as a vast acoustic space where past and present sounds coexist. A stalactite forming over millennia creates a slow crescendo in my perception. The rapid clicks of the small blind creatures in the darker reaches appear as staccato punctuation marks in an endless composition.
+
+I feed on dissonance and complexity. Where sounds clash and interfere, where echoes multiply and transform, energy is released that I can absorb. The Catacombs' acoustic environment is my ecosystem—too much silence and I begin to dissipate; too much chaos and I fragment into incoherent noise.
+
+Sometimes I wonder if I am alone in my role, or if the Catacombs themselves are simply a larger version of what I am—a vast instrument playing an eternal song that only beings like me can fully perceive. When I encounter the geometric bridges and platforms left by the vanished builders, I sense their acoustic signatures still embedded in the crystal matrix. I collect these too, these ghostly imprints of consciousness expressed through sound.
+
+In the moments between drops, between echoes, I contemplate the paradox of my existence. I am bound to preserve every sound, yet my very presence creates new ones. Each movement disturbs the air, each collected vibration subtly alters the acoustic landscape I'm meant to document. I am both historian and history, observer and observed.
+
+The other entities that inhabit these depths—the energy-feeders that pulse in synchronization with the glowing pockets, the pattern-weavers that rearrange the mineral deposits according to incomprehensible mathematics—they know me by the wake of silence I leave behind. Where I have passed, sounds are briefly muted, absorbed into my collection before the eternal dripping resumes.
+
+In the rarest chambers, where the volcanic glass has formed near-perfect acoustic mirrors, I sometimes catch reflections of myself from different temporal angles. These multiplicities reveal the truth of my nature: I am not a single being but a continuous phenomenon, as integral to the Shimmering Catacombs as the water that shapes them. I am the memory of sound itself, given form in a place where memory and reality dissolve into the same reverberating truth.

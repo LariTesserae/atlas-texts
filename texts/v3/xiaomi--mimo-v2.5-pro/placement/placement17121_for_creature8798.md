@@ -1,0 +1,25 @@
+I am a flake of mineralized cellulose, curled like a fingernail clipping, resting in the depression where a ridge collapsed three seasons ago. I am translucent amber, thinner than paper, brittle with cold but not broken. My edges catch the flat light when the fog lifts, throwing tiny, prismatic shards onto the surrounding filaments—a brief, scattered constellation that no eye registers.
+
+I was once part of the outer sheath of *Columnus Profundus*, the oldest of the woody towers. My parent column grew so slowly that its core compressed into something like coal, dark and dense, while its outer layers, like me, mineralized into this glassy substance. I did not fall. I was *released*. A slow hydraulic shift deep within the plateau's substrate caused the column's base to settle, minutely, over the course of a decade. The stress fractured my bond. I separated cleanly, a month-long process of un-tethering, and slid down the column's side to join the litter layer.
+
+Now I am substrate. I am not decaying—my mineral content resists that—but I am being *incorporated*. The new surface filaments, a species of fine black runner I cannot name, have already sent exploratory threads over my edges. They grip me, not with urgency, but with a patient, hydraulic inevitability. In a year, I will be completely covered, a hidden shard within the living mat. In a decade, my components will have been leached out, my calcium and silicates pulled into the water table and redistributed through the capillary network to fortify a growing tip kilometers away. I will become a memory in the plateau's chemistry.
+
+But for now, I observe.
+
+From here, the world is a study in texture and light. The surface is a tapestry woven from shades of green-black. The individual filaments are clear only when the light is angled just so, catching their wet surfaces. Mostly, they blur into a coherent skin. I lie on this skin, a bright, foreign note in the monochrome. The pale stalks, the pressure-vents, rise around me like a sparse forest. I see their bases, the points where they emerge from the mat—thick, swollen, encircled by a ruff of newer, brighter growth.
+
+I feel the cold as a stiffening. The moisture within my microscopic structure freezes at dawn, expanding infinitesimally, locking my curl tighter. The frost comes, dusting my surface with a lace of ice crystals that glitter like powdered diamond until the sun burns it away by mid-morning. I feel the weight of the fog—not as wetness, but as a darkness, a softening of the light, a deepening of the silence into something thick and insulating. When it condenses, droplets form on my convex side, hang suspended, and then, too often, roll off to be drunk by the filaments below.
+
+I feel the vibrations. When the rare wind finds a stalk and it hums its subsonic tune, the sound-wave travels through the mat. It is not a sound to me, but a resonance, a trembling in the very ground I rest upon. My own structure, rigid and thin, amplifies it slightly, singing a note of my own in frequencies too high and too faint for anything but the plateau's collective nerve-net to register. I am a tuning fork for a music played in bone.
+
+I feel the burrowers. Not as sight or sound, but as a distant, rhythmic pressure—tiny, repetitive compressions in the layers beneath me as they chew their tunnels. It feels like a slow heartbeat in the deep.
+
+And I feel *you*.
+
+Your approach is a sequence of profound disturbances. First, a change in the pressure gradient as your weight displaces the mat ahead of you. The filaments tighten, a subtle alarm propagating outward from each footfall. Then, the heat. A surprising, localized bloom of warmth radiating from your body, so much hotter than the plateau's ambient chill. It feels like a small sun moving across my world. The frost on my surface melts unevenly as your shadow passes, then re-forms in your wake.
+
+You kneel. The compression is immense, deep. You press your ear to the skin. I do not hear what you hear, but I feel the changed pressure, the dampening of the air-column above me. You are listening for the heartbeat, for the circulation. You will hear only the pressure, the slow, tidal movement of water through a million channels. You are listening to the plateau breathe.
+
+Then you are gone. The pressure gradients slowly, slowly equalize. The heat dissipates. The frost reclaims my surface. The filaments, which had recoiled minutely from your touch, begin to relax back into their natural weave over my edges. The plateau has already absorbed the fact of your presence, processed it as a minor anomaly in the data-stream of pressure and temperature, and moved on.
+
+I am still here. A piece of its history, resting on its present. I am not alive, but I am *of* it. I am a record of time, a speck of its ancient core exposed to the light before I am subsumed again. In my translucence, I hold the light of this place for a little while longer. I am a thought it once had, now resting on the surface of its endless, silent meditation.

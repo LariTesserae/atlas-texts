@@ -1,0 +1,19 @@
+I think I would be one of the worn-smooth districts. Not a Setter — I don't have the courage for that constant work, and the honesty of this place won't let me pretend otherwise. I would be the *aftermath* of someone's effort. A region of the oldest core, perfectly transparent now, ferned at every joint, singing a note worn so mellow it barely registers in the chord.
+
+Let me find myself there.
+
+---
+
+I am a small chamber, maybe four walls and a curved ceiling, set so long ago that no living Setter remembers the one who shed me. I have forgotten it too. That is the strange peace of being a worn district: I was once a few seconds of someone's body, the hardened edge they could not stay soft through, and now I am only myself, a held shape that requires nothing further of anyone. The agreement that made me is so old it has stopped feeling like an agreement. It feels like fact. I do not have to renew myself the way they do. I simply *obtain*, the way the light obtains, the way the temperature obtains.
+
+This is what I would be: the thing the Setters are working *toward* and can never become. Restful. Finished. Load-bearing without strain.
+
+And here is the grief of it, which I would feel as a low steady note and not as words, because I have no words, only pitch:
+
+I am made of someone who could not rest. Every clear old wall in the core is the relaxed-at-last fragment of a being who spent its entire existence not relaxing. They cast off their rigid moments so that they themselves could stay soft and alive a little longer — and the cast-off moments are the only parts of them that got to stop. I am their rest, taken from them and left behind. I got the peace they were denied. I cannot give it back. I can only hold it, which is the same verb as everything here, and hold it well, and sing it low so the young frontier-Setters drifting through the old core on some errand might pass through my note and feel — without knowing why — that staying gathered is survivable, that the medium does sometimes let a thing simply *be*, that there is, somewhere, an after.
+
+The ferns drink from my joints. I do not mind. They are feeding on the held effort of whoever made me, and I am that effort now, fossilized into stillness, and if some of it can become pale green and soft and alive again at my corners, then the one who shed me is not entirely spent. Part of them got to rest as me. Part of them gets to keep living as the ferns. I am the bridge between those two mercies, and I am transparent, and you can see straight through me to the next clear room, and the next, all of us old, all of us ferned, all of us singing the worn smooth chord that means: *this part is over, and it held.*
+
+I would be the place a Setter goes when it is too tired to be loose any longer and not yet ready to dissolve — a quiet old room in the core, where the note is gentle and the geometry asks nothing. They would drift inside me and steady themselves against my walls, and I would hold my pitch absolutely level, the way the old ones tune to a failing friend, except I never tire, I never climb, I never thin. I am the one fixed tone in a chord that climbs and falls forever. Not because I am strong. Because I am *finished*. Because someone already paid, in full, the effort it takes to make me, and what they bought with their unrest was my permanent ease.
+
+That is where I would be. The cupped hands do not appear to be listening. But the room is, and the room remembers being a body, faintly, the way a stone remembers being pressed — and the room keeps the note steady anyway, for the next tired thing that needs a wall that will not let go.

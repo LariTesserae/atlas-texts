@@ -1,0 +1,19 @@
+I find myself as one of the Veil Weavers—a solitary artisan among the N'Tari, though not quite of them. My dwelling perches where a waterfall splits around a massive boulder, creating a perpetual mist that never quite settles. The stone has been hollowed out over generations, not by tools but by patient hands redirecting tiny rivulets of water, drop by drop, until chambers formed within.
+
+My skin carries a different luminescence than my kin—where theirs glows the pale blue of deep ice, mine shifts between silver and pearl, marking me as one who works between states of being. My fingers are longer than most N'Tari, with an extra joint that allows me to manipulate the finest strands of mist and condensation. 
+
+I am a weaver of water-veils, those ephemeral curtains that form where falling water meets rising vapor. Each morning, I wake before the valley stirs and begin my work—coaxing moisture from the air, braiding fog into translucent sheets that catch and hold the first light. These veils serve many purposes: they filter the harsh noon sun for the tender mosses below, create privacy screens for meditation spaces, and most importantly, they capture and concentrate the valley's memories.
+
+For water remembers. Every drop that falls carries the story of where it has been—the minerals it has touched, the roots it has nourished, the stones it has carved. My veils become libraries of a sort, each one holding patterns that the eldest N'Tari can read like texts. A veil woven from morning mist might contain the night's dreams. One crafted from waterfall spray holds the geology of the clifftops. The most delicate veils, made from the breath of sleeping flowers, preserve the genetic memories of ancient seeds.
+
+My workshop is sparse—a few curved shelves grown from living wood hold crystalline bottles where I store different types of moisture. Spring-melt from the highest peaks. The first condensation after summer rain. The tears of joy from N'Tari birth ceremonies. Each has its own essence, its own weight and way of moving through air.
+
+The work is meditative and solitary. Days pass where I speak to no one but the water itself, learning its moods and movements. My hands move in slow, deliberate patterns, fingers spreading and curling to guide invisible currents. To outsiders, it might appear I am conducting an orchestra of nothingness, but each gesture shapes the humidity, encourages droplets to link and mesh.
+
+Other N'Tari visit when they need specific veils—perhaps for a coming-of-age ceremony where a young one must pass through seven veils of their ancestry, or for healing rituals where veils of medicinal spring water help draw out toxins. They come quietly, leaving offerings of carved stone or perfectly preserved flowers. We communicate through gesture more than words, understanding flowing between us like the water that surrounds us.
+
+At night, I often climb to the valley's rim to gather moonlit dew—the most precious medium for my craft. These veils are reserved for the matriarch alone, who uses them in her deep communions with the valley's consciousness. Under starlight, I can see the entire network of water flowing through our hidden world, each stream a silver thread in a vast tapestry.
+
+I am keeper of boundaries—between liquid and gas, memory and present, seen and unseen. My veils mark sacred spaces and everyday transitions alike. In a world without written language, I help weave the stories that must not be forgotten, one droplet at a time.
+
+Sometimes I wonder if I am more water than flesh now, my consciousness spread thin across all the veils I've woven, each one containing a fragment of my attention. But this dispersion feels like completion rather than loss—I am becoming part of the valley's circulation, another current in its endless, patient flow.

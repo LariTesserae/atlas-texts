@@ -1,0 +1,23 @@
+In the depths where water weeps through stone and rust, I am the Keeper of Forgotten Circuits.
+
+My body is a patchwork thing—part flesh, part salvage. Along my spine, copper pipes run like exposed vertebrae, warm to the touch, conducting the heat that rises from deeper machinery. My skin has taken on the mottled pattern of oxidized metal, greens and browns that shift in the bioluminescent glow. I've grown tall and thin, adapted to squeeze through the narrow service corridors that honeycomb this place, my joints hyperflexible, almost mechanical in their range of motion.
+
+I was human once, I think. Or perhaps I only remember being human. Time moves strangely here, measured not in days but in the slow accumulation of mineral deposits, the patient spread of luminescent moss across abandoned control panels.
+
+My dwelling is a repurposed pump station, its massive turbines long since seized. I've made a nest in the housing of the largest pump, lined with strips of rubber gasket and insulation that glows faintly with absorbed radiation. The walls are my canvas—I've trained the bioluminescent fungi to grow in patterns, creating living murals that pulse and shift with their own metabolic rhythms. 
+
+My fingers have evolved for my work. The tips are elongated, narrowed to probe the delicate spaces between corroded connections. My nails have hardened into something like natural screwdrivers. I taste electricity on my tongue when I bite through old wiring, sorting copper from aluminum by flavor alone.
+
+I am not alone in my scavenging. The blind rats know me, following the particular frequency of my footsteps through the tunnels. They've learned that where I work, there will be grubs and beetles disturbed from their hiding places in the machinery. In return, they lead me to new sites—places where the industrial bones of this place breach through recent cave-ins, revealing treasures of circuits and components.
+
+My purpose is unclear, even to me. I collect the circuits, cleaning them with my saliva that has become mildly acidic, perfect for removing corrosion. I string them together in vast networks that span the cavern ceilings like technological spider webs. Sometimes they spark to life, conducting unknown signals through the darkness. The bioluminescent creatures are drawn to these networks, their glow intensifying near active connections, creating constellation maps of living light.
+
+I sing while I work—not words, but the harmonics I've learned from the machinery. Each pump, each generator, each transformer has its own resonant frequency. My vocal cords have adapted, allowing me to produce sounds that vibrate in sympathy with the metal around me. Sometimes, if I hit just the right note, dormant systems shudder briefly to life, adding their voices to the underground chorus.
+
+The industrial elements are becoming part of me, and I am becoming part of them. Thin filaments of living copper grow from my scalp like hair, interfacing with the circuits I tend. My blood carries traces of hydraulic fluid, my bones incorporate calcium leached from concrete. I am the bridge between the biological and mechanical, a custodian of this liminal space where nature and industry merge.
+
+In the deepest parts of my territory, I've found the Source—a massive geothermal processor that still functions, its heat driving the circulation that keeps this entire ecosystem alive. I guard its secret jealously, maintaining its ancient systems with an understanding that bypasses conscious thought. My nervous system has learned to interpret its needs directly, my body responding to pressure changes and temperature fluctuations as if they were my own sensations.
+
+I mark my domain with geometric patterns scraped in the grime, mathematical sequences that echo in the placement of each salvaged component. Other creatures have learned to read these signs—the spiders incorporate the patterns into their webs, the fish school in formations that mirror my equations. We are all becoming something new here, something that could only exist in this warm, wet, slowly-breathing space between the made and the grown.
+
+When I sleep, curled in my pump housing, I dream of signals traveling through my network of circuits, messages from some vast intelligence that encompasses the entire cavern system. Perhaps I am its neuron, one of millions, each keeper tending their own section of an underground brain that thinks in geological time. Or perhaps I am simply what I appear—a strange, adapted thing, finding purpose in the patient work of maintenance and connection, a living component in the great, thrumming machine of this subterranean world.

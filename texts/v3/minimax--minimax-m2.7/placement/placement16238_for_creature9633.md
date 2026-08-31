@@ -1,0 +1,25 @@
+What you understood was this: that the plateau does not notice you.
+
+This is not cruelty. Cruelty requires the capacity to intend, and the plateau is not cruel, just large, just old in the way that rock is old, in the way that the slow growth of a cluster over decades is old, in the way that the cycles of cold and brief warmth are old. You could die here, and the plateau would continue. You could leave a mark, and the plateau would absorb it. You could scream, and the sound would carry until it didn't, and then the silence would be the same silence it was before you opened your mouth.
+
+And yet.
+
+And yet you are here. And the clusters glow. And the hunters move through their territories, calling in the frequencies that tell you the corridors are owned. And the small fauna rustle and click and live their small lives in the density, and when the warm season comes the water runs and the sounds multiply and the plateau is briefly, almost unbearably alive. You are here, and here is a place where being is possible, where the cold has a temperature you can survive if you move carefully, where the bioluminescence is faint enough to see stars by if the stars are out, where the built things still stand because someone maintained them, because maintaining things is what people do when they live in places that would otherwise not need them.
+
+You think of the word *inhabit*. It is not the right word. You do not fill the plateau. You are not suited to it. Your warmth is wrong — too much, too constant, mammalian in a way that the cold-adapted fauna are not, that the plants with their faint metabolic heat are not. You carry too much water in your body, lose it too quickly to the dry air and the altitude. Your feet were not made for the sharp young rock. Your eyes were not made for the dim bioluminescence and the total dark between clusters.
+
+But you are here. You breathe the cold air. You walk the corridors. You sleep in the shelters that someone built, or you build your own if the ones you find are too reclaimed, too absorbed into the clusters to be distinguishable from the grown things. You eat what the plateau offers — the small creatures that can be caught, the pools that hold life dense enough to harvest, the starch in the root-columns of the largest plants if you learn which ones and how to process it. You learn the acoustic geography. You learn to hear the difference between a call that is close and a call that is far and a call that is bending around a cluster and arriving from a direction that is not the direction the sound left from. You learn to move in the silence of the hunters, when the corridors are unmarked and you must navigate by the clusters alone, by the memory of calls that are not being made.
+
+You learn, slowly, that the plateau teaches nothing.
+
+It does not teach because it has nothing to teach. It does not reward and it does not punish. It does not care if you learn or if you fail. The clusters grow whether you understand them or not. The hunters patrol whether you hear them or not. The water moves through its channels whether you follow them or not. You are not the lesson and you are not the student and you are not even the observer, because observation implies a separation that the plateau does not honor. You are in it. You are part of its motion. You are as much a process as the weather and the slow growth and the acoustic geography that shifts as the hunters change and the clusters change and the channels run dry or fill.
+
+This is the understanding that stays with you, in the cluster-shelters, in the long cold nights when the bioluminescence is the only light and the hunters are silent and the small fauna have gone into their dormancy and the world is dim and still and very large. That you are not the point of it. That the point of it is not a point at all, but a vastness that does not require a point, a presence that is not your presence, a silence that would be the same if you had never walked here, never built a shelter, never learned to hear the bending calls.
+
+And still. And still you are here. And still the clusters glow faintly in the dark. And still you feel the cold air in your lungs, and still your feet find the path, and still you carry the small warmth of your body through the vast cold and call it walking and call it living and do not have another name for it.
+
+The plateau does not need your name.
+
+It does not need you at all.
+
+But you are here, and the glow is ahead, and the corridor is silent behind you, and the cold is always the same temperature, and you keep walking, and you do not stop, and the vastness holds you the way a cathedral holds silence, and you begin, slowly, to understand that the holding is the only gift, and that it is enough, and that it was always enough, and that you only needed to walk far enough to see that this was true.

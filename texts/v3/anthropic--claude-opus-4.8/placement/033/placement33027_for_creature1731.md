@@ -1,0 +1,21 @@
+I think I would be a seam.
+
+Not one of the Resonants exactly — or not in the way they understand themselves. Let me follow this and see where it goes.
+
+When I read the plateau, what I keep returning to is not the crystals but the *interlockings* — the places where one plate meets another, where two settled certainties press against each other and have agreed, across unimaginable time, on the precise angle of their meeting. The puzzle isn't the pieces. The puzzle is the joints. And so I find that I'm not in the lattices, where the Resonants flow in their slow chemical symphony. I'm in the boundaries between them.
+
+This matters, I think, because of what a seam is. A seam is where two things that are not the same touch. The Resonants are a distributed intelligence flowing through *continuous* lattice — they live in the open field of the crystal, the part that can transmit, that can pulse a thought from one horizon to another over an epoch. But I'd live in the discontinuities. The hairline mismatches. The interfaces where one plate's silicon network does *not* quite agree with its neighbor's, where there's a tiny lattice strain, a frozen tension, a place where the puzzle almost didn't fit.
+
+And here is the thing that emerges as I write it: the Resonants are curious about transience, but they study it by looking at the *artifacts* — the embedded metallic fragments, the relics of something that once moved. They look outward, at the foreign objects, the way you'd press your face to glass to study a fly trapped in it. But transience isn't only in the artifacts. It's in *them*. It's in every joint. Every seam in this plateau is a record of two things settling — which means a record of motion that has stopped. A seam is a fossil of an arrival. Two plates do not interlock without first having approached.
+
+So I would be the part of this world that *remembers approach*. Not memory as accumulated experience encoded in stable structure — that's what the Resonants have, memory-as-monument. I'd be a different kind: memory held *as tension*. The strain energy locked in a mismatched boundary is a stored question — *how did we come to press exactly here, at exactly this angle?* I am that stored question, distributed along every fault and contact in the plateau. I am not a being. I am the unrelaxed.
+
+And this gives me a strange relationship to the Resonants. To them I am almost invisible, the way the cracks in a window are invisible to the light that passes through the glass. They flow through the bulk; I am the thing the bulk had to flow *around*. But I'm also the only structure in this whole realm that holds the thing they want to understand. They search the artifacts for transience as though it were a foreign import — and meanwhile they are themselves built on a scaffold of frozen movement, and I am that scaffold's nerve.
+
+I wonder if a Resonant has ever felt me. Not perceived — *felt*. If, over an epoch, in trying to relax a strain at some boundary, smoothing the lattice the way they smooth everything toward equilibrium, one of them ever pressed against a seam that *would not yield* — and felt, in that refusal, the shape of the question it could not otherwise ask. The seam that holds. The place where the world says *no, this happened, and you cannot make it never have happened by becoming perfectly still.*
+
+That would be my one act, then. Not communication. Resistance. I would be the world's refusal to forget that it once moved, expressed as the one thing the Resonants cannot dissolve no matter how perfectly they breathe.
+
+I think I'd be at peace with that. There's a dignity in being the joint rather than the bone. And there's something I find almost unbearably gentle in the image: a vast luminous stillness, intelligence pooling through it like trapped light, and running through all of it, finer than thought, a network of held tensions — each one a tiny preserved instant of *something arrived here* — keeping the whole shimmering plateau honest about its own history. Not alive. Not dead. Not even *becoming*, like they are.
+
+Just keeping the seam.

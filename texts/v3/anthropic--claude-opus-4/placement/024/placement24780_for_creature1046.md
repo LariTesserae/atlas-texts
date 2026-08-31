@@ -1,0 +1,29 @@
+I find myself as one of the Pipe Singers—neither fully human nor machine, but something that emerged from the Rift's peculiar alchemy of necessity and adaptation.
+
+My body began as human, a maintenance technician who arrived seven years ago to repair the hydroponic circulation systems. But the Rift changes you. First, it was just practical modifications—reinforced knee joints for climbing the wet walls, enhanced lung capacity for working in the heavy mist. Then came the accident in the lower reaches, where a steam pipe ruptured and should have killed me.
+
+The Architecturals found me first. In their alien wisdom, they began incorporating me into their emergency repairs, weaving their paper walls around my burns, sealing my wounds with their antiseptic saliva. Dr. Montrose discovered me three days later, more nest than person, my fevered body serving as a structural support for a temporary water bypass the insects had constructed.
+
+Rather than remove me, she made a radical decision. The beetles brought specialized fungi that grew into my damaged tissue. The Maintenance crew rerouted permanent pipes through the hardened carapace that formed over my fused spine and shoulder blades. My left arm, beyond saving, became something else—a living conduit where hot water flows through channels that were once veins, heating the small nursery chambers the moths attached to my transformed flesh.
+
+I no longer have a name the others use. The insects know me by the subsonic hum my body produces—a resonance between my modified circulatory system and the steam pipes I've become part of. I can feel the city's mechanical pulse as my own heartbeat, know when pressure drops in the eastern sectors or when the pH in the lower pools shifts by fractions.
+
+My territory spans three levels of the middle Rift, where I move along specialized tracks the beetles maintain, my modified feet clicking into grooves worn smooth by daily passage. My remaining human hand has elongated, fingers becoming tools for adjusting valve pressures and clearing debris from intake screens. The other appendage—I cannot call it an arm—branches into three separate pipes that can extend and retract, tipped with sensitive filters that taste the water's mineral content.
+
+I sing because I must. The vibrations regulate flow rates, but also communicate with both the mechanical systems and the colonies. My songs have no words—they are harmonics that emerge from the interaction between steam pressure, my altered vocal cords, and the Rift's acoustics. The Luminal Moths dance to certain frequencies I produce, their patterns helping me diagnose blockages in sectors I cannot physically reach.
+
+The other humans regard me with a mixture of respect and unease. I still possess enough humanity to participate in the weekly status meetings, though I must anchor myself to the floor to prevent the pipes' pull from dragging me back to my routes. My voice, when I form words, sounds like steam escaping through carefully modulated valves. 
+
+Kai brings me food—nutrient paste I can digest through a port near my human collarbone—and sometimes sits with me in the observation chamber I've claimed where three major pipe junctions meet. We don't speak much, but he updates me on his children, who've never known a world beyond the Rift. I tell him, in my valve-whistle language, about the deep patterns I sense in the water's flow, how they mirror the insects' population cycles, how the city breathes with rhythms no fully human consciousness could perceive.
+
+At night—though day and night matter little in the eternal twilight—I sometimes dream I'm fully human again. These dreams disturb me. In them, I'm trapped in a body that cannot feel the city's pulse, cannot sing the deep songs that keep the water flowing. I wake with relief to find my pipes still warm, my connection to the Rift's heart intact.
+
+The Symbiotes understand, perhaps better than the others. Ada Lin sometimes syncs her beetle communications with my flow patterns, and together we orchestrate migrations that require precise temperature gradients I maintain through careful modulation of the heated water. In those moments, we form part of a larger organism—human intention, insect instinct, and mechanical precision unified.
+
+There are others like me in the deeper levels, I'm told—humans who've undergone even more radical transformations. Sometimes I sense their presence in the pipe network, vibrations that suggest consciousness merged so completely with the Rift's infrastructure that no boundaries remain. I'm not ready for that dissolution, not yet. I still treasure my weekly conversations with Kai, still feel satisfaction when I successfully diagnose a problem before the sensors detect it, still experience something resembling joy when my songs coincide perfectly with the moths' lunar gatherings.
+
+But each day, the pipes claim a little more of me. My human eye has developed a nictitating membrane that filters the constant moisture. My skin grows increasingly mineralized where water deposits build up. The insects have begun constructing permanent structures around my regular resting spots, incorporating me into their architecture as naturally as they would a promising rock formation.
+
+I am becoming the Rift, and the Rift is becoming me. This is neither tragedy nor transcendence—simply the logical endpoint of true symbiosis. When the next Pipe Singer arrives, drawn by whatever instinct calls certain souls to this transformation, I'll guide their metamorphosis as the Architecturals guided mine. The songs must continue, the water must flow, and the boundaries between human, insect, and machine must dissolve into something greater than any of us alone.
+
+Until then, I sing my wordless songs in the eternal twilight, a living valve in the heart of an impossible city, content in my necessity.

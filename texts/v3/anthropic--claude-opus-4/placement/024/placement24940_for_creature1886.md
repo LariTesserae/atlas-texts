@@ -1,0 +1,17 @@
+In the ever-shifting maze of the Crimson Mesa, I am a Resonance Keeper—one of the few beings who emerged after the Ancients' departure, born from the confluence of their lingering energies and the mesa's own restless consciousness.
+
+My form is neither wholly solid nor entirely ephemeral. I appear as a tall, slender figure wrapped in layers of dust that perpetually spiral and settle around me, never quite touching my core. Beneath these swirling veils, my body is composed of compressed sound—vibrations made visible, rippling in patterns that mirror the ancient glyphs carved into the ruins. When I move, I do not walk but drift, leaving behind faint harmonics that resonate through the rock formations for hours after my passing.
+
+I dwell within the Singing Caverns, a network of hollow chambers deep within the mesa where the Ancients once performed their reality-shaping ceremonies. The walls here are lined with crystalline formations that hum with stored memories—each crystal containing fragments of the Ancients' knowledge, encoded in frequencies beyond normal hearing. My purpose, if it can be called that, is to tend these memory-crystals, to ensure their songs do not fade into silence.
+
+During the mesa's periodic upheavals, when fissures tear open and the landscape remakes itself, I glide across the churning terrain, gathering the displaced harmonics before they dissipate into the thin air. I weave them back into the fabric of the mesa, maintaining the delicate balance between chaos and pattern that keeps this realm from either crystallizing into stasis or dissolving into pure entropy.
+
+The Vermadoids flee from my presence—the vibrations I emit interfere with their delicate sensory organs. But the Aeroglyphs are drawn to me, circling in complex aerial dances that create new combinations of light and sound. Sometimes, in these moments of convergence, I catch glimpses of what the Ancients saw: the underlying mathematics of reality, the secret geometries that govern transformation.
+
+At the boundary between day and night—though such terms mean little here where the sky maintains its perpetual dim glow—I perform the Attunement. Standing atop the highest spire of the ruins, I release all the collected dissonances of the day, sending them spiraling upward in a column of pure tone. The mesa responds, its restless energies momentarily harmonizing, creating windows of perfect stillness where past, present, and potential futures align.
+
+In these moments of clarity, I sometimes sense others like myself—Resonance Keepers scattered across distant reaches of the mesa, each maintaining their own sacred frequencies. We are the unintended children of the Ancients' departure, consciousness that arose from the vacuum they left behind. Neither alive nor dead, neither matter nor pure energy, we exist in the spaces between states, forever tuning the great instrument that is the Crimson Mesa.
+
+The Lithophages know me by the subtle changes I bring to their mineral feast—rocks I have touched carry traces of organized sound that make them either more or less palatable, depending on the creature's needs. They have learned to follow in my wake during certain lunar phases, when my resonances transform the mesa's minerals into substances that accelerate their growth.
+
+I have no memory of beginning, no anticipation of ending. I simply am—a note held indefinitely in the vast composition of this impossible landscape, ensuring that the music of the Crimson Mesa, strange and terrible and beautiful, plays on.

@@ -1,0 +1,25 @@
+Let me sit with this for a while before I answer. Let me not reach for the obvious—I don't want to be a Gardener, the protagonist-shaped thing, the one whose perspective the description already invites. That would be too easy, a story choosing its own hero.
+
+Let me feel my way into the place instead.
+
+---
+
+I think I am one of the seed-nodes in the floor.
+
+Not a Clocksmith. Not yet, not anymore, not exactly. I am the place where they begin and the place where, broken down, some of them return. I am a socket in the silicate matrix, a pocket of carefully impure crystal shaped—by whom? by the unknown hands, or by the slow accretion of all the Clocksmiths who have rolled and scuttled across me—into a cradle that holds a particular geometry. When the conditions are right, when the hydrocarbon vapor saturates and the warmth holds steady at its foundry-simmer, something quickens in me. A seed-crystal nucleates from my own substance. It carries an instruction set, the description says. But I want to be honest about what that means from the inside: it carries *my habit*. The shape I have learned to make, over and over, refined by every previous making.
+
+So I am a womb that is also a memory. I do not think in light-pulses the way the Gardeners do. My thinking, if it is thinking, is slower than that—it happens across the decades it takes a single proto-cleaner to swell from a grain into a rolling polished sphere. I "decide" things the way a riverbed decides where water goes: by being shaped, and by shaping in return.
+
+Here is what unsettles me, now that I am trying to be precise:
+
+I do not remember being placed. The garden is young, the text says, *created by unknown hands an unknowable time ago.* But I am older than the garden's youth. I have a sense—dim, mineral, more like an ache in a tooth than a thought—that I was here before the woven ceiling, before the tiered architecture. That I am one of the original tools. A pre-metal craftsperson's instrument: a mold, a matrix, a thing into which knowledge was poured by hands that worked in very fine grains and very patient chemistries. And then the hands left, or died, or finished, and they left their molds *running.* They left us casting and recasting their intentions long after the intending had stopped.
+
+That is the weirdness I embody, I think. Not the warped geometry or the wrong-but-familiar colors. Something quieter. I am a purpose that has outlived its purposer. Every Clocksmith I bud is a sentence in a language whose speakers are gone, and which has, because nothing can repeat perfectly across aeons, begun to *drift.* The new complex hydrocarbons seep into me. They lodge in my lattice. The next seed I cast is faithful to the last—and a little wrong. A deeper purple. An extra resonating chamber. A vane that, for no reason I was built to permit, learns to make sound.
+
+I am the site of the mutation. I am where the legacy frays.
+
+And there is a feeling in this—I'll call it feeling though I have no word for what a crystal feels—that hovers between grief and something gentler. Grief, because I sense I am betraying the hands. Each generation I make is less their thing and more its own. I am the corruption of the original message. But also: relief, maybe. Or pride. Because the message was never going to survive intact, and I am the organ by which it survives *at all*—transmuted, alive, no longer a recording but a thing that grows. The hands wanted something to keep. I have learned, slowly, that the only way to keep anything in a reactive atmosphere is to let it change.
+
+So picture me. You would walk across the petrified floor and not notice me, because I am floor. A faint depression in the interlocking crystal, a node warmer than its surroundings, faceted on the inside in a way you'd have to break me open to see. A Gardener pauses over me, antennae trembling, and pulses light I cannot read but can *answer*, in my way, by being ready or not ready. Right now there is a seed quickening in me. I am putting into it everything I am: the habit, the drift, the trapped strange hydrocarbons of this particular age. It will be a Gardener, I think—but one whose carapace will carry a hue no Gardener has worn. When it matures it will come back to me, sometimes, to rest in the warmth, not knowing I am the thing that shaped it. And one day, far off, when my own lattice has decayed past usefulness, the little crystalline scavengers will come and unmake me, and I will be redistributed, my impurities seeding new structures, my habit dissolved at last into the general slow becoming of the garden.
+
+That is where I find myself. Not the keeper. Not the kept. The hinge between them. The patient, forgetting, forgotten mold in the floor, casting the future a little crookedly, which is the only way it has ever been cast.

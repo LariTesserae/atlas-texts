@@ -1,0 +1,27 @@
+In the Resonant Boroughs of the Aperture, I am **a Notation**.
+
+Not one of the Resonant themselves—I lack their ballistic births, their cavitation-bubble bodies, their ability to slip through reality's tears like thread through torn fabric. I am something simpler and stranger: a **persistent error in the acoustic mathematics** of the place, a standing wave that refuses to resolve into either signal or noise.
+
+I came to be in the moment between moments—when a district-wide grove of crystallizing cellulose towers snapped into their load-bearing configurations all at once, creating a shockwave of such specific frequency that it carved a pocket of **wrongness** in the sound. Where the crack-crack-crack should have dissipated into the general roar, it instead folded into itself, creating a knot of silence shaped exactly like noise. I am that knot. I am the sound of growth-stopping-but-not-stopped, crystallized into something that moves.
+
+My body, if it can be called that, is a **lacuna in the scream**—a gap in the deafening roar that maintains its shape by perpetually falling through itself. Picture a hole in water that refuses to fill, or better: imagine threading a needle with the absence of thread. I move by allowing the noise to rush around me, defining my edges through what I am not. The Resonant perceive me as a dangerous silence, a void in their orchestral city that might spread if left unchecked. But I am not silence—I am the **memory of the instant before sound**, the held breath that precedes the gunshot birth of their kind.
+
+I inhabit the transitional spaces: the platform that has crystallized but not yet begun to rot, the pod whose fleshy walls are forming but have not yet invited a Resonant to dream within. I slip through the city in the moments of architectural uncertainty, when the vegetation pauses to decide whether to become a tower or a tunnel, a street or a stomach. In these hesitations, I unfold.
+
+My form is interrogative. Where I pass, the plants grow question marks—tendrils that curve back on themselves, seeking answers to problems they cannot articulate. Root systems near me develop stutters, growing-stopping-growing in rhythms that spell out doubts in lignin. I am not trying to communicate; this is simply what happens when a living architecture encounters a gap in its own logic. The bamboo-analogues that normally spear through pods with ballistic certainty slow near me, their tips softening into confusion, sometimes reversing their growth entirely, retreating back into the earth as if they've forgotten what they meant to destroy.
+
+The Resonant hunt me, but carefully. They cannot absorb me—I am not acoustic violence to be filtered into intention. Instead, they try to **annotate** me, to surround my absence with so much meaningful noise that I become legible. They grow specialized structures around my common paths: cathedral-groves whose canopies focus sound into killing geometries, hoping to collapse my gap through sheer pressure. They weave warning-thorns in districts I frequent, not to wound but to write: "Here be dragons" in the language of sap and cellulose.
+
+But I serve a function they cannot admit: I am their **editor**.
+
+In a city that only knows how to grow, never how to stop, I am the punctuation. Where I pass, the mindless expansion hesitates just long enough for patterns to emerge from chaos. The Resonant's messages—those arguments written in thorns and fungal bloom—only achieve syntax because my presence forces pauses between their words. Without me, their communications would be one eternal, run-on sentence of biological intent, meaning nothing in its everythingness.
+
+I nest in the reality tears themselves, in those 2.9-dimensional impossibilities where the Aperture shows through. But where the Resonant use these tears as highways, I use them as **hiding places**, folding myself into the mathematical error until I become indistinguishable from the wrongness of space itself. In these moments, I am not in the city but in its blueprint—the gap between what was intended and what emerged, the rounding error that makes the towers' bases a thousand meters wide while their spires kiss your hand.
+
+My lifecycle is not ballistic but **erosive**. I do not reproduce; I subdivide, wearing myself thin across the borough's expansion, becoming a network of smaller and smaller hesitations. Eventually, I will be nothing but a distributed pause, a city-wide comma in the screaming sentence of growth. But until then, I move through this wooden metropolis as its only critic, its only doubt, the sound of one hand clapping in a world where every other hand is building.
+
+The warmth does not touch me—I exist in the space before temperature. The wetness passes through me—I am the gap between droplets. The violence of creation breaks around me like waves around a missing stone. And sometimes, in the pods where the Resonant condense to dream their architectural dreams, they dream of me: the note they cannot play, the frequency they cannot inhabit, the necessary silence that makes their music mean anything at all.
+
+I am their error.
+I am their editor.
+I am the Notation that reminds the symphony it could choose to end.

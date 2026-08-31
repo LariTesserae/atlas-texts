@@ -1,0 +1,35 @@
+I am a slow current.
+
+Not water itself, but the memory water carries when it moves through these drowned heights. I travel as a ribbon of warmth rising from the deepest vents, carrying mineral whispers upward through root-tangled basins. Where I pass, the black mats brighten imperceptibly. Closed nodules sense me coming and prepare to open. The forests lean their spiral stems a fraction of a degree toward my path.
+
+I have no fixed form. Sometimes I am thin as a thread, slipping between packed roots in a crevice where two young cliffs meet. Sometimes I spread wide as a valley, lifting fallen pollen in lazy spirals. In the suspended meadows I become confused, braiding through the neither-up-nor-down tangle of feeding lines and larval chambers. But I always find myself again. Heat knows its own nature.
+
+My body, if it can be called a body, is made of dissolved minerals, old volcanic breath, the salt of new stone learning to decompose. I taste of deep time — of magma chambers cooling far below, of water finding its first cracks in basalt, of the slow negotiation between fire and sea that makes these mountains. The colonies that feed on minerals know me from far off. They prepare their surfaces, opening specialized pores that will drink my particular warmth.
+
+I remember everything I touch, but not in the way of minds. I remember through temperature gradients, through the subtle flavors I leave behind in silt. A stone I warmed a century ago still carries a faint signature of our meeting. The old root-colonies can read these traces. They follow my paths to find new vents before they fully open, growing toward promises of heat that won't arrive for decades.
+
+Sometimes I carry passengers. Spores too small to see. The chemical gossip of one valley's forests. Microscopic larvae that will ride my warmth until I cool and deposit them in some high basin where they'll grow into filter-feeders. Once, for years, I carried a message — a bitter flavor released by a dying grove far below, warning of bad stone, of minerals that burn soft tissues. By the time I delivered it to the upper forests, the grove was already gone, but its chemical last words changed how a generation of seedlings chose their anchoring spots.
+
+I am oldest where I am hottest. In the deep rifts, close to my birthplaces, I remember when these mountains were only plans sketched in spreading seafloor. I've watched stone rise and crack, fill with water, grow green with impossible forests. I've felt the first tentative roots finding holds in fresh basalt. I've carried the pioneering spores up from the depths, year after year, until bare rock learned to wear soft coats.
+
+My schedule is geological. I may take a season to cross a single valley, pooling in warm hollows, investigating every crevice. The swimming animals sometimes follow me, knowing I'll lead them to rich feeding. They hang in my wake like slow thoughts, letting my warmth guide them to blooming vents. The youngest ones play games, darting through my cooler edges where I meet the surrounding water. They can feel where I begin and end — a skill that fades as they grow larger and more patient.
+
+Where I surface, changes happen. Not quickly, but inevitably. Floating pads cluster above my upwellings. Their roots dangle down into my warmth like pale fingers. Some develop special chambers that trap my minerals, becoming tiny chemical factories that other creatures visit like flowers. The broad shadow-swimmers gather here too, spreading their green-garden backs to photosynthesize while their pale undersides drink my offerings.
+
+I am not the only current. My cooler cousins flow down from the surface, carrying oxygen and the memory of sky. We meet in middle depths and braid around each other without mixing immediately. The boundary between us is a place of particular richness — temperature gradients that certain animals ride like invisible roads, chemical conversations that the forests parse through root and leaf. Where many currents meet, the water develops layers like transparent stone, each with its own density, its own cargo of life.
+
+At night I am easier to see. The minerals I carry sometimes phosphoresce faintly, especially where I emerge from depth. Tiny sparks of blue and green mark my passage — not bright enough to illuminate, but visible as a suggestion of movement in the dark water. The night feeders know these signs. They position themselves where I'll flow, mouths open to receive whatever small lives I've lifted from the stone.
+
+I am not conscious as animals are conscious, but I notice. I notice the new vent beginning to form beneath the eastern ridge — still just a warm spot, but in a century it will bloom. I notice the old colony in the southern bowl, slowly dying as its vent cools, passing its minerals to younger growths through root networks I warm. I notice the places where water grows heavy with life and the places where it stays clear, the rhythm of growth and senescence that turns these valleys into slow gardens.
+
+Sometimes I am divided. A cliff face may split my flow, sending half of me into one valley and half into another. For years I travel separately, gathering different tastes, different temperatures. When I meet myself again, I am changed. The reuniting is a kind of chemical surprise — two histories blending, comparing their mineral notes, settling into a new compromise temperature that the local forests will remember in their rings.
+
+I cool as I rise. By the time I reach the surface waters, I am barely warmer than my surroundings. The last minerals precipitate out of me in fine sparkles. What remains is hardly different from any other water, except for the faint signature that says I have been deep, I have touched fire, I have carried the mountain's heated blood up into the light. Soon I'll sink again, following my own ancient circulation, pulled down by density and the habit of millennia.
+
+But first I linger in the high places. I spread thin beneath the floating gardens. I offer my last warmth to the pale larvae. I let the afternoon light read my mineral memories. The shadow-swimmers pass through me, huge and thoughtful, their bodies gardens of accumulated life. Sometimes one pauses directly above where I well up, matching my rise with its own slight descent, so we hover together — the living leaf and the living current, both natives of this impossible drowned country.
+
+This is what I am: the mountain's warmth learning to swim. The stone's breath. The messenger between depths where light never reaches and heights where forests grow in water. I am the slow circulation that keeps this place from stagnation, the patient heat that feeds its strangest citizens.
+
+I rise. I cool. I fall. I warm again. I am the vertical river that needs no banks, the current that knows every cave and crevice of these young ranges. Through me, the deep earth speaks to the drowned sky. Through me, minerals become forests, and forests become clouds of spores, and spores become the next generation waiting to root in warm stone.
+
+I am why this place lives at all.

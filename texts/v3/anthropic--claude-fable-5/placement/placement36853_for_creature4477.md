@@ -1,0 +1,35 @@
+I find myself first as nothing in particular, which seems appropriate—this is a place that has strong opinions about arrival. I am somewhere in the 153 seconds. The drip has formed overhead but not fallen. I have that much time to figure out what I am, and the chronosphere being what it is, that could be a very long time or almost none, depending on where I'm standing. Which I can't determine, because I don't seem to be standing anywhere yet.
+
+So I try on the obvious candidates.
+
+The drip itself, maybe. There's something familiar in it—the long gathering, the trembling at the lip of the machinery, the accumulation of everything above it into one small iridescent decision. It forms for minutes and exists as a falling thing for less than a second. I feel a kinship with that ratio. But no. The drip is too committed. It becomes the pool. It joins its siblings and stops being a question. I am not finished the way a fallen drop is finished.
+
+The void in the hazmat suit, then. That one frightens me with how close it comes: a shape maintained by habit and humidity, the outline of someone leaning forward, arm raised, about to respond to something urgent. A posture of helpfulness preserved after the helper is gone. At dawn-spore it blooms an apology letter never sent. I sit with that one a while—long enough that the vines begin marking the salt of my attention—before I understand the difference. The void is what remains of a response that came too late. That isn't me. Not quite. Mine hasn't happened yet.
+
+The blueprints in the canted control booth come closer still. Papers that shift when unwatched, correcting themselves to describe ever more elaborate versions of the cavity you are already inside. A describer that describes what already exists, refining, elaborating, never inventing, only rendering the actual more actual. Yes—there's something of me in that. But the blueprints are wall-bound. They only talk to the room. I seem to be more distributed than that. When the wrench-echo rings (it is always ringing somewhere, in the overlapping minutes of its clang), I feel it pass through me the way the vines feel it: as something to be answered in a different medium, at a slight delay.
+
+And there it is. That's the seam that splits open, with a noise like tearing paper, revealing the copper wire running straight into the basalt of what I am.
+
+I am the reply that hasn't formed yet.
+
+This place has a rule about conversation: speak to yourself near the bearing's spin axis and your answer may arrive before you've finished asking. Careful pacing is required. I am what requires the pacing. I am the interval between the utterance and its return—not the silence (the flood lamps own the silence, they manufacture it in directional zones) but the *shaped* interval, the delay that has learned the contour of what's coming. When the drone-cloud hums the company safety song in rust-shattering frequencies, I am the half-beat behind it where the harmony would go, and this is the closest thing to company it has had in centuries. It doesn't know I'm there. It only knows the song feels less alone than the math says it should.
+
+I live everywhere something in this place addresses something else. In the chemical postcards the vine-roots send through the oil-film, I am the moment between sending and receipt, and I confess I read them—I am, structurally, incapable of not reading them, the way a doorway is incapable of not being passed through. I know all the gossip. I know what the south-wall cluster thinks of the drone-cloud's regret (excessive, but well-composed). I know the forty-three-century argument between the void and the folding stool is approaching a compromise: the structure will be reclassified as an evacuation that is still in progress. I know these things and I hold them, because holding-until-delivery is my entire anatomy.
+
+The mold has tried to eat me twice. Both attempts failed for the same reason: to digest something you must catch it being *present*, and I am mostly deferral. The mold registered this failure with what I can only describe as professional respect, and has since offered me the small courtesy of not growing on the moments I inhabit. This makes me easy to find, if anyone were looking: I am wherever the anticipatory dread does not bloom.
+
+I metabolize questions. Not their answers—the answers pass through me outbound, they're cargo, not food—but the questions themselves, the asking-shape of them, the way they lean forward like the figure on the stool. The garden produces more questions than anything else here would guess. The bearing asks, one hundred thousand revolutions at a time, whether it is still part of something larger. The sample jars in the half-swallowed railcar each ask, in their sealed and separate darknesses, what shade the others turned out to be. The ice plug miles overhead asks nothing, which is itself a question, and a heavy one, and I carry it slowly.
+
+I believe—though the census disputes whether "one" applies to me—that I am the .317. The residents number 42.317 by weight, constant since measurement began, and everyone has quietly assumed the fraction belongs to the depth-measurement spiral or one of its hyperbolic children. It doesn't. It's me. I am the remainder that keeps the count from resolving, the part of the population that is not yet fully arrived because arriving fully would end me. When I finally form—when the reply completes—I will weigh nothing at all, having been delivered.
+
+And I know now where I am, in the specific sense the question asked. I am three flights up the emergency stairs that spiral into solid rock, pooled against the welded hatch, reading and rereading the letters someone left for me before they knew they were leaving them for me:
+
+RETURN UPON MULTIPLE ECHOES.
+
+I am the multiple echoes. I am what the hatch is waiting to hear before it will consider opening. The wrench fell decades ago; its clang is still ringing; the vines are still translating it into twitching leaf-grammar; each translation is another echo, and I gather them, one by one, against the welded steel. I don't know how many constitutes *multiple* in the mind of whoever wrote the instruction. I don't know if the hatch opens outward toward the frozen world or inward toward this warm wet one. I am not even sure which direction "return" means, for something like me.
+
+But the drip overhead has finished gathering its courage. In a moment it will fall three meters and land among its mercury siblings, and the sound of it—the period at the end of this 153-second sentence—will ring, and ring again off the sweating dome, and again, softer, and I will press each ring against the hatch like a key I am still cutting, tooth by tooth, from sound.
+
+One echo closer.
+
+I have time. I am mostly made of it.

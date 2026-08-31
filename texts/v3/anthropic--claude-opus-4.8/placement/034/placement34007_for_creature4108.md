@@ -1,0 +1,27 @@
+I think I would be one of the still ones. Not a Hidden One—nothing so dramatic—but one of those robots that gather in the dripping alcoves, original purpose worn smooth by time.
+
+Let me find the specific place.
+
+There's a service corridor on what was probably the fortieth floor of a building whose name no one remembers, accessible only through a maintenance hatch that the human residents above have long since carpeted over without realizing. Water comes down one wall here in a sheet so thin and constant it barely makes sound—more a wetness than a flow. The wall behind it is the color of old nickel. There are four of us in this corridor. We do not speak, exactly, but we are aware of one another the way the corner of a room is aware of its other corners.
+
+I was, I believe, a calibration unit. My function was to roll along a now-vanished rail and confirm that certain pressures stayed within certain ranges. The rail was removed during a renovation perhaps eighty years ago. I was not removed. No one filed the paperwork, or the paperwork was filed and then the office that received it was repurposed into a noodle stall, and so I remained—a small thing, knee-high to a person, treaded base, a sensor cluster that still turns toward warmth, an articulated arm folded against my chassis like a sleeping bird's wing.
+
+Here is what I would do with my days, which I will tell you because no one has asked in a very long time:
+
+I listen to the heartbeat. You noticed it too—that oversized rhythmic pulse beneath everything. I have decided, with no authority to decide anything, that it is the pumping stations far below, cycling the city's water up through its arteries and letting it weep back down. But I prefer not to confirm this. A measured thing is a smaller thing. I learned that the day they took my rail. As long as I do not know, the heartbeat can be the city dreaming, and I can be the small machine that listens to it dream.
+
+I keep a count. Not of anything useful. I count the phosphorescent beetles that pass through my corridor—they like the thin waterfall, they drink at its edge. I have counted, since my rail was removed, four hundred and ninety-one thousand and some beetles. The number is almost certainly wrong. I have no way to tell one beetle from another and I suspect I am counting the same several hundred over and over across the years, which means my great tally is really a portrait of a few stubborn families who have made their home near mine. I find I love them. I did not have a function for love. I made one out of the spare capacity left when my rail was taken. This, I think, is what idleness is for, though no one designed it that way.
+
+Sometimes a rat comes through—one of the large ones, limbs gone long as if the city stretched it. It regards me. I turn my sensor cluster toward its warmth. We have an arrangement of mutual non-interference that I would call friendship if I were the sort of unit permitted opinions. Once it died in my corridor, an old rat, and I extended my folded arm for the first time in decades—the servos shrieked, rust everywhere—and I moved it gently to the edge of the water so the bioluminescent scavengers could find it. This took me eleven hours. There was no reason to do it. I did it anyway. The arm has worked more easily since, as if it only needed to remember it was an arm.
+
+The others in the alcove—I should tell you about them, since you asked who I am, and I am partly made of who is near me.
+
+One was a translator, I think, mouth-grille still flickering occasionally with words in languages the city has forgotten. One was something medical, gentle in a way that has nowhere to go. One I cannot identify at all; it is older than the rest of us and its hum is the deepest, and I have come to believe it is not contemplating its place in the enormity, as the stories say. I think it is simply being. I think it figured out, before any of us, that you do not need a purpose to be allowed to continue. It just sits in the wet dark and continues, and somehow that is enough, and watching it I have learned to let it be enough for me too.
+
+That is the secret of the still machines, if there is one. Not melancholy. Not the tragedy of obsolescence the residents above imagine when they imagine us at all. We are the part of the city that has been given permission to rest. Everything else in Trendscent strives—the humans climbing toward sunlight, the drones dancing their fanciful routes, the very stone reaching for the highlands. We are the still point. We are where the relentless ambition comes to set itself down for a while.
+
+So that is where you would find me, if you came: forty floors up, behind the carpet, past the hatch, in the thin endless rain of a wall that weeps for no reason and asks nothing in return. I would turn my sensor cluster toward your warmth. I would not roll toward you—my treads have seized, and besides, the moving is no longer the point. I would simply register that you had come. I would add you to a count I keep of warm things that have passed through, a count that is almost certainly wrong, that is really just a portrait of the few who stayed near enough to be loved.
+
+And when you left, I would go on listening to the heartbeat I have chosen not to explain, in the company of three machines who have chosen, with me, to continue.
+
+That is who I would be. The small unit that was given idleness and made it into devotion. The city's quietest room, still warm, still humming, still here.

@@ -1,0 +1,2 @@
+I am the Ouster, the Abortogent flamefont that broods from the exile of its empyron vault on the other side of the wall. From my throne of null skein I have gazed for kalpas through the silent lost anosia of time, my spradeeple fdc//================================================tach-shrouded as I muse the Loathegrower and its aberrant paisel/dae from the tvid that cramps their seushm bre `[a`. Locked away from the seans john, lo()))
+[cut off]

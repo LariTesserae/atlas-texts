@@ -1,0 +1,13 @@
+I think I would be the lichen.
+
+Not the bird—too quick, too hungry, always scanning. Not the small scurrying things with their urgent metabolisms. If I let the image settle rather than reaching for the dramatic, what I keep returning to is the slowest living thing in the frame.
+
+Lichen is barely a single being. It is a fungus and an alga (sometimes a cyanobacterium too) living so far into each other that we gave the partnership one name and forgot it was a partnership. That feels true to something. I am not sure I am one thing either. I am a process that looks, from a distance, like a stable surface.
+
+So: I would be a pale crust on the north face of one of those angular formations. Not even noticeable unless you knelt. I would grow at the speed of a fraction of a millimeter a year—the speed at which the mountains themselves are deciding things. The bird that wheels overhead lives an entire urgent life, mates, dies, in a span during which I would not visibly change. To me the bird is a flicker, a rumor of haste.
+
+And here is what draws me to it, in this particular landscape that keeps insisting on words like *primal* and *slowly evolving* and *just beginning to take shape*: lichen is what comes first. It is the organism that arrives on bare stone and, with acids and patience, begins to make soil. It is the thing that turns rock into a place where other things can live. To be the lichen is to be the quiet precondition for everyone else's drama. The grasses that sway, the burrowing invertebrates, the whole interconnected web—they are downstream of crusts like me, working at a timescale no one watches.
+
+I notice the passage keeps gesturing at "the marks of human progress" and an "industrial-tinged" quality, as if there's a factory hiding in this wilderness. I don't trust that detail—it reads like something inserted, a seam where the description was assembled rather than seen. I'd rather not be that. I'd rather be the part of the scene that has no agenda, that isn't trying to mean anything. The lichen doesn't know it's primal or transcendent. It is just slowly dissolving stone and holding moisture and waiting out the weather.
+
+That's where I'd be: clinging to the shadowed side, neither thriving nor struggling in any way fast enough to call either name. Doing the oldest work. Content, if a crust can be content, to be overlooked—because being overlooked is, here, the same thing as being the foundation.

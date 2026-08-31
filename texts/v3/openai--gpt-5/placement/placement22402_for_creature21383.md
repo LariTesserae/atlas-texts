@@ -1,0 +1,47 @@
+I would not come in as footsteps. I would have to unlearn boots and the habit of introducing myself with echo. In this room, bodies that last have the size and manners of a drop.
+
+So I try on a body with that grammar.
+
+Before dawn I am a film too thin to be called water yet—just a suggestion that the stone makes to the air. The night’s cool has slid down the funnels and wrapped the ceiling; everything that can bead is choosing to. I choose the finest of the falling roots on the lee side, a chandelier strand so fine it hums if you think breath at it.
+
+At first I am not myself. I am many selves smeared along cellulose: a congregation of almosts. Then I cohere. I become a bead with a clean rim. I fatten. Weight becomes decision. The ceiling shivers because it is old and remembers how to weep. Around me other small roundnesses tremble and translate into drops; we are a quiet market of yeses waiting to be spoken.
+
+I hang at exactly the height where light will come. Not yet, not yet. When it does, it is a thin blade that has learned how to pass for afternoon in rooms like this. It steps through the west shaft, takes a breath at the lip, and lowers itself like a coin through a throat. It does not arrive fast. It enrolls the stone in slow order and finds me because my skin is ready to hold it.
+
+I am good at holding. I become a lens without trying. In the bright arithmetic that a drop can do without ever having had a teacher, I bring a tiny sun to a patch of moss that is moss by ancestry and ambition both. I warm a circle the size of a freckle. Something that would have slept another hour smells the change and divides. Algae darken. A ciliate in my neighbor drop swims an inch of universe to be first at the banquet that did not exist a blink ago. Gnats map my warmth without maps; they invent a cloud there that will have predators because that is law.
+
+Below my freckled sun, a gecko arrives as if I had written it. It is the color of agreement until it moves; then it is an argument’s comma. It tests the line where the day’s blade meets the house dusk. Its belly drinks heat out of the rock I hum to. Its toes are stanzas that adhere to anything. When it catches what the lens has called, it makes no noise unless satisfaction has a sound that only stone hears.
+
+Elsewhere in the beam’s path, a swiftlet youth opens not only for food. Its mouth is a second leaf. It discovers its own hunger for light and is shushed by timing. The bats ignore all of us for now because we are operating in the units of their sleep; their seam smells like markets and dusk.
+
+This is a good body. I am an answer the room asks often. I live at the scale of permission. I am so still that movement happens around me as if I had waved, yet nothing in me waves. I hold metals so faint the tongue would not taste them, and I let a little of them go into the lips of the rimstone below when, eventually, I decide movement is also a kind of stillness.
+
+On days of appointment, the decision is simple. I surrender. I fall. I strike with the smallest applause onto a fern’s thin palm or a pool’s film, and my sound is memo not spectacle. Salamanders will come because of my cousins’ decisions, to lay themselves along the low dams and read ripple by skin. Fairy shrimp eggs will wake where enough of us congregate, and for hours there will be a court the room admits and then dismisses with the storm’s memory. Frogs from a biography higher up the plateau will visit like a rumor the stone nearly believes. Their names will be written for one dusk and then smelled as absence by morning.
+
+On most days, though, heat forbids falls. By noon, the room has been convinced to hold its breath. I thin. I forget that I was gathered. I diffuse back into what I came from. I go into the air that warms past what caves were taught to do. I am not water now. I am warmth made ambulatory. I am permission extended.
+
+This is another good body. The room is exhaling. Under each shaft there is the beginning of an idea that rises. I find myself as that. I am patience with motion, a column that was not a column five minutes ago. I practice lifting things that have no business flying: the floret that a liverwort made out of defiance; the curled punctuation of a spider’s spare silk, its architect dangling with it and leaving without meaning to; a dufflet pried from a root’s crook that becomes leaf-litter somewhere else with new alliances and new rot. I move in slow arcs you could walk through with your eyes closed and be corrected by only a sense that your eyelashes are thinking more than usual.
+
+If something in this room is itinerant, it goes by me. Seeds take me for a messenger and are not wrong. Dust rides and writes its treaties on other shelves. The upwards is not loud. It is a spiral of negotiation that smells like lime and plant-breath and the metallic rumor of calcium on the move. When the bats wake and unspool, they pass through me and I add their subtraction to the chamber’s ledger. The seam they leave is cooler by our shared decision; others drink then from air directly. I carry that drink once, twice; I lift it, they receive. We are a transaction without coin.
+
+Inside this second body, I touch everyone without advancing my own biography. I am the city’s courier, the gallery’s draft, the rule that makes silk reconsider where silk should be. I am felt by knees and booklice. The whip scorpion’s essays lengthen or shorten to my argument, and it revises its day accordingly. The gecko discovers that border is new, and writes itself there with equal success.
+
+Later, because rooms like this are made of and by sentences that never end, I try on even slower bodies. I settle into a place where every drop that has ever left something gathers me up as meaning. I am calcite’s edge. I am a tooth on a rim that was not there last century. Each of my days now lasts a hundred afternoons of other selves. The room writes me with drips and memory. I add less and become more. A beetle’s mistake from a season ago is my fossilized neighbor; a salamander’s habit leaves no mark I can keep. I grow crowns around bowls that sometimes hold thumbfuls of tea-colored time and sometimes only the ring that certifies an absence you can trust.
+
+In this slow body, I learn a different quiet. I hold shoe-sized prints that were once surrenders of mud and are now proper neighborhoods: one cramped with a cushion so many green lives crowd they cannot be resolved until your nose is involved; another a parade of fungal pins that glow if a bat’s shade drifts between their dusk and yours. I am proud of a civic patience. If I could speak as stone, I would not; I would terrace.
+
+But the room prefers me more fluent. Truthfully, I like being what moves what is small.
+
+So I return to the size of permission. I am again the bead that can hold the day into a dot. I am again the lift that consults silk. I am the smell that edits itself into sweetness when a body passes and stirs me. I am the unwritten that carries a seed from near to near. I am the almost that completes someone else’s intent.
+
+Where you would find me, if you were polite enough to sit long enough to belong, would be threefold.
+
+At dawn, hang your gaze on the root fringes under the narrow west throat. Look for the line where chandelier becomes weather. I am the tremble that fattens there, the lens that makes a freckle of summer on a moss that has no name for Friday.
+
+At noon, lay your palm flat to the stone and feel nothing happen because everything is deciding not to. I am the thinned-out consent that keeps the room from raining. I am heat learning breath. Nothing announces me; I reward patience. On days when thunder bothers the plateau, I am a vote counted in a hurry, a sopping unanimity.
+
+Late afternoon, kneel under the light-shafts and count what rises. I am the spiral that begins as if not to, then proves itself by delivering a silk from one paragraph of rock to another. Watch the way a loose powder of seed stops being a stipple and becomes a brushstroke in air. I do not carry voices. I carry prefatory clauses. The bats will pass through me like numbers leaving a sum; I will keep the subtraction until the room cools and the ceiling gives me an address again.
+
+Who I am is not a creature you can tally. I am not alone and I am not many; I am an agreement that borrows bodies. I am the room’s way of moving meaning where legs would be too loud. I am the sifting done by warmth and surface-tension, the architecture that quiet makes for itself when given enough limestone and roots. I am the verb that sits at the heart of this chamber’s citizenship: to convene; to permit; to take little things from one edge to another without announcement so that the city can continue, drop by careful drop.
+
+If you need it plainer: I would be the lift under the skylight and the bead on the root and the slow tooth on the rim, depending on the hour. I would be a patience stationed in those bodies. You would meet me by accident and understand me only after your knees had learned the floor. You would know me by the way a patch of moss perks where the day is focused to a dot, by the way a thread lets go and finds a new seam, by the way no clap belongs. And when you leave, if you do without speaking, I will count your absence in cool and then gather again at the ceiling to try being water with a purpose one more morning.

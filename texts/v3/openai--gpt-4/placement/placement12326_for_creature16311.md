@@ -1,0 +1,15 @@
+Among towers of stone and water, where mist dripped from every crevice, and the symphony of nature intertwined with echoes of man's ambition, you might discover yourself to be a dream of a place — an entity born of both organic and mechanized components. As a Keeper, you would carry the characteristics of the lush, verdant forest, and the strength and rigidity of the metal skeletons scattered across the landscape.
+
+The moisture in the air would bind your essence, and you would come to taste of soft rain. Your body, a testament to the nature and industry surrounding you, would ripple with plant life, vines, and leaves adorning your metal bones. Fronds of moss would fleck your skin, and in the light, you would shimmer with the varied hues of a copper sunrise. Yet in the shadow, you would embrace the color of wet stone, of nights beneath a rain-laden sky.
+
+Your eyes, soft and luminous, would reflect the ages passed in this place, glimmers of stone, rain, and ancient machinery swirling within their depths. They would express a profound understanding of the world around you, a knowledge marked neither by youth nor age, but by the heartbeat of the mountain, the whisper of the wind and the clang of rusted gear.
+
+Moving with the ease of river currents, your steps would make no sound. Your existence would be one of silence and subtlety, a soft murmur against the cacophony of symphonies that nature and industry penned together. Yet when disturbed, your actions would resonate through the air like the rumble of thunder, or the slow, steady grind of gears that once powered the factories of old.
+
+Living in harmony with everything around you, you would coax life from the rusted relics of industry buried in the forest undergrowth. Your gentle touch would bring forth a network of vines that enshroud decaying cogs, slowly transforming relics of steel into works of life and art. From the corrosion of the past, you would beckon hope for the future.
+
+In contrast to your tangible communion with the inert, you would have an equally profound, if more subtle, connection with the mountain's living inhabitants. The forest’s fauna, unafraid and sharing mutual respect, would accompany you, singing songs of old and creating harmonies that echo long after their notes have faded to silence.
+
+Appearing as a solitary figure at the edge of one’s sight, your towering form might stir curiosity or awe, yet you would maintain your distance, letting the rhythms of the land speak for you. Yet should the balance of this place ever falter, you would take action and defend the realm you were born to protect, guiding the offenders away without causing harm – a true guardian of nature and industry's unlikely marriage.
+
+In your quiet existence, you would personify the intertwining destinies of the world — the meeting and merging of organic and synthetic, the coexistence of nature's bounty and man's progress. Born as an embodiment of contrasts, you would spend your days as a silent sentinel beneath the misty canopy, safeguarding the persistent rhythm of life that whispers in the crevices of the mountainside.

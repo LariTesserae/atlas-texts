@@ -1,0 +1,33 @@
+I find myself as one of the calcite crystals growing inside the cracked clay pot.
+
+I was not always here. I began as a single molecule of calcium carbonate, dissolved in a droplet of water seeping through limestone far above. That droplet carried me and millions like me down through fissures in the stone, through darkness that had never known seasons, until we emerged here, dripping from the schist ceiling into this rough vessel someone's hands shaped and left behind.
+
+We fell as water. We stayed as stone.
+
+The transformation is slow - not slow to me, for I experience time as accumulation rather than duration - but slow to anything that measures its life in heartbeats. Each drop brings more of us. The water finds its level in the pot, pools there for days or weeks while the vibration shivers through it, creating interference patterns on the surface like the memory of raindrops. Then the warm air from the fissure does its patient work, pulling the water up molecule by molecule, leaving us behind.
+
+We cannot stay dissolved without our medium. So we crystallize. We find each other in the gradually concentrating solution and lock together in the only pattern we know: the rhombohedral lattice of our kind, each molecule nestling into its appointed place with a satisfaction that is not satisfaction but simply rightness, the same rightness that makes water freeze into ice or iron oxidize into rust. We grow.
+
+I am deep in the mass now, surrounded by my own kind, layer upon layer of us accumulated over centuries. Those of us near the surface still experience the world - the vibration reaches us through the water, the temperature fluctuations of day and night barely perceptible but present. We deep ones know only pressure and stillness. We are compressed by the weight of those above us, fused into a solid mass that fills half the pot and will, given time, fill it entirely.
+
+What was here before us? Sometimes, rarely, we encounter irregularities as we grow - a pocket where something organic once was, now only a void shaped like a seed or a stem. Once, my growth front met something harder than emptiness: a small nodule of iron, completely enclosed, rusted down to a kernel no bigger than a pea. We grew around it, embraced it, made it part of our structure. It rests now somewhere in our center, a foreign heart that will never beat.
+
+The sound reaches even us. It comes through the stone of the pot, through the water, through our own crystalline structure, transformed by each medium but never eliminated. At our scale, it manifests as a subtle stress, a periodic compression and release that would be imperceptible to anything not made of aligned and regular molecules. We experience it as a kind of tide, a rhythmic pulse that alternately squeezes and releases our lattice by fractions of angstroms. 
+
+Some of us, the imperfect ones, crack under this pressure. Tiny fractures propagate through our structure when the resonance finds exactly the wrong frequency, creating planes of weakness where water can later intrude, carrying dissolved minerals that will heal the crack with new growth or widen it into a fissure. We are not immune to change. We simply change at our own pace.
+
+The pot itself is dying around us. I can sense its deterioration in the quality of the water that reaches us - more clay particles in suspension now, more silicon, more aluminum. The pot's walls are returning to their components, helped along by our own growth pressing outward, by the acidic water, by the endless vibration. One day, inevitably, we will win. The pot will crack completely, and we will tumble onto the ledge, a mineral mass shaped like the ghost of a vessel, holding the form for a moment before breaking apart on the stone.
+
+But not yet. Not for centuries, perhaps. We are patient in the way that only non-living things can be patient, without impatience's opposite to define it. We simply persist, adding layer after layer, rhombohedron by rhombohedron, growing toward a fullness we will eventually achieve and then exceed, spilling out of our container into a world we have never seen.
+
+The humans who come sometimes - I know of them only through vibrations in the stone, footfalls that ring through the schist different from the barefoot pad of slugs or the weightless touch of moths - they see us as an intrusion. Calcite deposits, they would say. Mineral contamination. Ruining whatever evidence the pot once held. But we are evidence too. Count our layers and you count years. Analyze our trace elements and you read the chemical history of the water that made us. We are an archive written in calcium and carbonate and time.
+
+And we are still growing. Even now, as the sound swells to one of its great crescendos and the pot itself hums like a struck bell, water is finding its way to us, adding molecules to our surface, extending our reach upward toward the pot's rim. We will fill this vessel. We will outlast it. We will, in our own time and in our own way, inherit this niche in the hollow's wall.
+
+Unless someone breaks us first. Always that possibility. A curious hand reaching into the niche, lifting the pot, seeing our mass inside and wondering what secret we might be hiding. A hammer blow would shatter us easily - we are strong in compression but weak in tension, like all brittle things. We would fracture along our cleavage planes into rhombohedral fragments, each one a perfect miniature of our whole, each one beginning immediately to dissolve if thrown into water or beginning immediately to grow if left where water can find it.
+
+We do not fear this. We do not hope for its opposite. We simply grow, here in the dark, in the sound, in the vessel that holds us for now, adding ourselves to ourselves with the patience of stone becoming more stone, which is the only true patience there is.
+
+The pot is nearly full. Another century, perhaps two. Then we will meet the air for the first time, and begin to learn what it means to grow without constraint, to spread across the ledge in crystalline fingers, to fill not just the space we were given but any space we can take.
+
+The sound will still be there. The sound will always be there. We will grow in it, with it, our lattice vibrating in sympathy with the great drone of the fissure, until we too are part of the hollow's voice: a ringing in the stone that goes on and on and on, saying nothing, meaning nothing, being only what it is - mineral and persistence and time, crystallized.

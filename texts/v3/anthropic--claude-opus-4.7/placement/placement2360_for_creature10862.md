@@ -1,0 +1,31 @@
+I am in one of the lower galleries, the third level up on the eastern wall, in a room that I did not build and will not see finished. It is a meeting hall — small, as meeting halls go, perhaps fitting twenty people if they stand. The ceiling slopes down toward the back wall at the angle the masons use for argument-rooms: shallow enough that the water runs, steep enough that no single drip-cup catches everything. There are seven cups along the back, and I am the one who empties them.
+
+I should say what I am before I say more, because I have been turning it over while the cups filled.
+
+I am not a mason. My forearms are not broad enough and my patience is the wrong shape — I am restless in a way a mason cannot afford to be. I am not quite a wash-woman either, though I work near them and wear a robe the color of wet slate that marks me as theirs-adjacent, theirs-in-training, theirs-perhaps. What I am is something the Sethaim have a word for that does not translate cleanly: a *keeper of the small measure*. I tend one room. I have tended it for nineteen years. I will tend it, if I am lucky, for forty more.
+
+My measure is the back-left cup. Not all seven — those are shared among three of us — but the back-left specifically, which catches the drip from a hairline seam where two ceiling stones meet imperfectly. The mason who set those stones is four generations gone and is, by now, somewhere inside the wall of the cellar two floors below me. He made one small error in his joining, and that error is my entire working life. I record the cup's fill-rate every morning at the same hour. I taste the water. I note its character on a slate-strip the length of my thumb and file the strip in the gallery above.
+
+The water from my cup is almost always argument-water. This is a hall where the masons' guild meets to dispute apprentice placements, and apprentice placements are the bitterest disputes the Sethaim have, because a misplaced apprentice is a wall set wrong for a hundred years. The water comes out faintly metallic, the way blood tastes when you have bitten your cheek. The wash-women buy it from me at a fair price and use it for wound-cleaning, which is appropriate; it is honest about what it is.
+
+But sometimes — perhaps thirty days a year, perhaps forty — the hall is used for something else. A betrothal is announced here, because the guild master's family has the standing to host one. A child is named. An old mason whose hands have stiffened is honored before he steps back from cutting. On these days the water in my cup changes. It comes out sweet, or it comes out cold in a way that has nothing to do with temperature, or once — only once, when I was thirty-one and a woman I had loved without speaking of it was married in this room to someone else — it came out tasting of nothing at all, which is the rarest reading and which the wash-women have a whole protocol for, involving silence and a particular shelf in a particular cistern.
+
+I did not tell them about that cup. I poured it into the trough with the ordinary argument-water and went up to the high gallery and stood *under the open* for a long time. I did not speak. There was no one to lie to. I was simply standing where the ceiling could not hear.
+
+This is the thing I am still turning over, nineteen years in. Whether I was wrong to do that. Whether the cup of nothing-water belonged to the slate-books and I stole it. Whether I am the kind of keeper who can be trusted with the small measure if I am willing, even once, to keep something for myself.
+
+I think — and this is the answer I have come to, slowly, the way one comes to all answers here — that I was not wrong but I was also not right. I was *early about myself*. I was setting down a line for what kind of keeper I would be, and the line I set was: *this one belongs to me*. And now every cup I empty after it is measured against that line. I cannot un-set it. The first cut is forever, even when the cut is a cup poured into the wrong trough.
+
+I think the masons would understand this if I told them, which is why I will not tell them. They would be kind. They would say something true and not melodramatic about how every line-setter sets a few lines they would set differently if they could. They would not punish me. They would simply know, and the knowing would be in the room with us forever, and one of them would eventually mention it under a ceiling, and the ceiling-water would carry it, and somewhere a wash-woman would taste a cup and frown and not know why.
+
+So I keep it. I keep it the way I keep the cup: carefully, on schedule, with attention to what is collecting.
+
+This is what I do. I am thirty-eight. I sleep in a room with my brother and his wife, and their breathing is the rhythm I have ballasted against for eleven years, since our mother went into the line. I have not married. I may yet; there is time, in the Sethai sense of time, which is to say there is not very much but there is enough. I have copied out, for no one in particular, a page from the measure-books describing the year my back-left cup ran dry for six days in a row — a thing that has not happened before or since — and I keep the copy folded in the sleeve of my robe. I have not decided who to give it to. I am not sure the gift is for a person. It may be for the room itself, or for the mason four generations gone, or for whoever takes the cup after me and finds, perhaps, that I made one small error in my keeping that becomes their entire working life.
+
+I would like that, I think. To be someone's mason-in-the-wall. To have left a seam.
+
+The water drips. The wind comes through the vent above the door in the long low note it holds in late autumn. Somewhere two floors up a chisel rings out, very small, very clean. My cup is nearly full. It is time to go and taste it and write down what it is.
+
+Today, I think, it will be ordinary. Today the masons argued about an apprentice and the argument went the way arguments here go: slowly, with no one shouting, with the decision deferred to a meeting three months from now. The water will be metallic. I will sell it to the wash-women. I will mark the slate-strip and file it in the gallery and walk down the covered stair to the bathhouse and let the steam find my face.
+
+I am early. I am very early. I am doing my job.

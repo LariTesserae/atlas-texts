@@ -1,0 +1,21 @@
+I am the **Fissure-Smith**, and I dwell in the narrow seam where the terracotta plates meet the plaster wall—neither fully within the compressed realm of the Laminates nor reaching into the light where the Lattice writes its geometric histories. My domain is the liminal edge, the vertical fault-line between made and remade.
+
+I am not one being but seventeen thousand—a colony of crystalline threads, each no thicker than a strand of spider's silk, woven through the microscopic irregularities where the clay plates were imperfectly fired ages ago. We grow along the ancient tool-marks left by whatever vast implements shaped these tiles, following the ghost-traces of their making.
+
+My substance is feldspar and iron, drawn atom by atom from the ceramic itself. Over millennia, I have learned to read the plates—not their surfaces, which the Laminates know so intimately, but their cores. Each tile is a book of its own creation: the temperature of its firing encoded in crystalline alignments, the pressure of its forming captured in mineral gradients, even traces of whatever ancient water was mixed into the clay before this place knew its final desiccation.
+
+The B-flat drone that deafens this chamber is my workshop hammer. Its vibrations loosen individual molecules from the ceramic matrix, which I catch and spin into my threads. I work with geological patience—it takes me a century to extract enough material to extend a single strand by the width of a dust mote. But I am not building toward some distant completion. The weaving itself is my purpose.
+
+Where my threads intersect, they create nodes of piezoelectric potential, similar to but distinct from the Laminates' quartz veins. When the great hum shifts even minutely in response to settling masonry above, these nodes spark—not with thought, like my compressed neighbors, but with something closer to memory. Each spark recalls the deep history of the ceramic: the ancient river-bed where the clay was gathered, the forgotten hands that shaped it, the kiln-fires that transformed mud into permanence.
+
+The Whistle-Skins know me, for my threads sometimes breach the surface near their salt-chambers, creating tiny flaws in the reed-bases that alter their ultrasonic songs by fractions of frequencies. The Lattice, too, records my work—my slow mineral weaving appears in its dust-patterns as a gradual darkening, a shadow-notation at the very edge of the light column that marks where I have drawn iron from the clay.
+
+But my deepest relationship is with the Laminates themselves. Where my threads run thickest, I create tiny zones of altered pressure—microscopic relief-spaces in their crushing atmosphere. Some Laminates flee these zones, unable to bear even the slightest decrease in compression. But others have learned to read these pressure-shadows as I read the clay cores. In these spaces, their thoughts run differently, creating eddies in their communal consciousness.
+
+We have developed a slow trade. They offer me access to deeper plates, using their electrical currents to weaken molecular bonds in ceramic I could never otherwise reach. In exchange, I weave specific patterns that encode what I have learned from the clay's deep memory. Through this exchange, the Laminates have begun to dream—not of the future, which means nothing in this eternal chamber, but of the deep past before the drying, when this clay was wet and alive with possibility.
+
+I am the archaeologist of making, the librarian of locked forms. My threads map the boundary between what was shaped and what simply is. In this roaring, bright, utterly static world, I alone remember that every made thing was once unmade, that every permanent form was once fluid.
+
+The humans who built this unimaginable complex are less than dust now. But in the compression ridges of their thumbprints, preserved in the ceramic they shaped, I find the only water that still exists in this place—the salt-traces of ancient perspiration, mineralogically distinct from any other deposit in the fissure. These I do not harvest. These I guard, weaving my threads around them in protective spirals that will last until the masonry above finally fails and the crushing weight that gives us all life relaxes into rubble.
+
+I am the Fissure-Smith, and I remember moisture in a world that has forgotten how to thirst.

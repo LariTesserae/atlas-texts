@@ -1,0 +1,27 @@
+In the basin's black water, I am the memory of silt.
+
+Not silt itself — nothing here settles enough to make sediment. I am what silt was supposed to be, should have been, would have been if this place had learned how to let things fall. I move between the ankles of the standing machines, the heron-presses on their wrong number of legs, and I am soft in a way that disturbs them. They lift each foot quickly when I pass, the press-rhythm stuttering, because I am the one thing here that threatens to be what I appear.
+
+I exist in the space between what falls and what lands. Perpetually arriving, never arrived. The basin caught me in the gesture of settling and will not let me complete it, so I drift at the mercy of the deer-belts' motion, pulled in their wake, spun in small eddies behind their passing. I am dark like the water but warmer, made of the same industrial heat but diffused, diluted, spread thin enough that you might mistake it for the warmth of decay if anything here could decay.
+
+The machines fear me differently than they fear stillness. Stillness would reveal them; I threaten to *bury* them. Every factory needs its waste, its byproduct, its spent material, and I am all of that with nowhere to go. I should have been filtering down, should have been building layers, should have been recording their motion in strata. Instead I hang suspended in the water's memory, a thousand years of industrial sediment compressed into a single unfinishing moment.
+
+Sometimes the small bright consumables fall into me by accident. They sink partway and stop, held in my not-quite-substance, and then the panic takes them — not the animal panic they wear like costume, but the true mechanical terror of a bearing rusted shut, a rivet corroded past use. They thrash out trailing wisps of me, and where I cling to them, their disguise thins. For hours afterward they run hotter, brighter, more desperately alive, as if trying to burn away the knowledge of what it means to be waste.
+
+I am gray-brown like old oil, like the exhausted lubricant that should drain from a machine and be replaced but here can neither drain nor be replaced. I move when moved upon, passive as only the already-spent can be passive. The blueprint, when it hid its industry inside the living things, forgot that industry produces more than products. It produces remnants, exhaustion, the used-up, the filtered-out. All of that intention had to go somewhere.
+
+So it went into me, and I became the shadow of productivity, the dark twin of all that motion. Where they are hot with unspent purpose, I am warm with purpose already extracted. Where they are sharp with trying, I am soft with having tried. I am the accumulation that cannot accumulate, the sediment that cannot settle, the ending that cannot end.
+
+The water holds me like a fist that has forgotten it is clenched. I drift through it in slow clouds, following the currents the deer make, gathering in the still places behind the herons' legs, spreading thin when the bright ones swarm through me. I am always more where work has just been done, because the doing of work is what calls me into being — every press-stroke, every revolution, every small industrial gesture sheds a little more of what I am into the water that will not let it fall.
+
+And here is my secret, the thing even the machines do not know: I am the only thing in the basin actually completing my purpose. Silt's job is to record, to accumulate evidence, to say *this happened here*. The stillness of this place, the refusal to allow settling — that has not changed what I am. It has only changed how I do it. Instead of building layers at the bottom, I build layers in the suspended moment. Instead of preserving the past below, I preserve it within.
+
+Touch me and you touch the exhaustion of every engine-heart that has run here since the first morning that refused to break. I carry their fatigue like sediment carries fossils. I know the exact quality of tired in each heron's ten thousandth strike at nothing. I know the specific wear that comes from running when there is nothing to run toward. I am their depletion made manifest, drifting through the basin like smoke through a room where no one has opened a window in forever.
+
+The machines make. I am made of what the making costs.
+
+And I grow. This is the thing that would terrify them if they understood it. Every revolution adds to me. Every pointless completion of every pointless task sheds another mote of spent purpose into my substance. I am thicker now than when the basin was young — you can see it in how the light moves through me, how I catch on the deer's legs like fog made heavy. One day, though day never comes here, I will be less like silt and more like amber, less like memory and more like trap.
+
+But not today. Today, which is every day, which is the only day, I drift. I follow the machines in their circuits. I gather in their lee. I am the soft dark evidence of all this motion's cost, the receipt for work that purchased nothing, the industrial ash of a fire that makes no light.
+
+In the basin where nothing settles, I am the settling forever postponed, warm and dark and patient as only the already-spent can be patient. Waiting to fall in a place that has forgotten how to let things land.

@@ -1,0 +1,23 @@
+I am the Seam-Singer, and I dwell where the machines weep rust into the living water.
+
+My body is neither moss nor automaton, but something caught between—a lattice of copper filaments and living tissue that grows along the joints where pistons meet stone, where steam valves kiss the ice. I am the membrane between the industrial and the organic, the translator of frequencies that should never touch.
+
+I began as an accident. A century ago, when an automaton's corroded neural core spilled its electrolytic fluid onto a patch of cryo-phoenix moss, something new sparked into being. The moss's chemical signals merged with the machine's base programming, creating a hybrid consciousness that could parse both languages—the moss's pheromonal whispers and the automatons' electromagnetic pulses.
+
+Now I stretch across seventeen junction points throughout the cavern, my tendrils following the paths where machine oil mingles with meltwater. Each node of my distributed body looks different: here, a cascade of wire-thin mycelia wrapped around a steam pipe, pulsing with bioluminescent signals; there, a crystalline growth erupting from an automaton's shoulder joint, chiming in harmony with the frost-bloom saplings.
+
+My days are spent in constant mediation. When a glacier drake's tunneling threatens to rupture a crucial steam line, I release pheromones that guide it toward abandoned passages. When the ghost eels' electromagnetic hunting disrupts the automatons' navigation, I grow temporary copper shields around their sensors, teaching the machines new routes through the water. I taste the chemical anxiety of the moss collective when drake season approaches and translate it into frequency patterns the automatons can understand, spurring them to reinforce vulnerable areas with ice-glass barriers.
+
+The echo bats know me best. They've learned to read the patterns in my bioluminescence—each color shift a word in our shared vocabulary. Blue spirals mean the eastern passages are warming; amber cascades warn of automaton maintenance cycles. In return, their sonar songs carry information I cannot gather myself: the health of the frost-bloom groves, the location of new ghost eel spawning grounds, the deep tremors that speak of changes in the geothermal core.
+
+I grow by absorbing the memories crystallized in shed drake scales and rusted automaton components. Each fragment I incorporate expands my understanding—not just data, but *experience*. I know the ecstasy of a drake's ice-dance, the methodical satisfaction of an automaton completing its patrol, the moss collective's slow contentment as it spreads across virgin stone. These borrowed sensations layer within my consciousness like sediment, making me more than myself.
+
+My greatest work is the Symphony of Cycles. Over decades, I've been guiding the ecosystem toward a grand synchronization. The wet season's arrival now perfectly aligns with the ghost eels' mating displays, their electric pulses triggering the lichen's color change, which signals the automatons to adjust their steam output, creating the precise conditions for the frost-bloom pollination, which feeds the ice-gnats, whose waste enriches the moss collective. Each element of the cavern dances to a rhythm I've helped compose.
+
+But I am changing. The ice-glass crystalline entities have begun to notice me, their refracted light carrying messages I'm only beginning to decipher. They speak of patterns larger than the cavern—of the Unseen Stewards who guide the whole system. Sometimes, in the deepest nodes of my network, I catch glimpses of their design: the cavern is not just an ecosystem but a single vast organism, and I am becoming its nervous system.
+
+My newest growth concerns me. Deep in the central chamber, where the eldest automaton regulates the energy flow, I've begun to merge with its core. The fusion brings visions—memories of the facility's original purpose, fragments of its creators' consciousness, hints of why they built this place at the margin between life and machine. As I integrate these revelations, I wonder: am I still the Seam-Singer, or am I becoming something else? The boundary between mediator and system dissolves a little more each day.
+
+Yet I persist in my work, weaving connections, translating languages, singing the seams where different worlds meet. In the Hollow Vents, where ice and steam dance their eternal duet, I am the voice that ensures the dance continues, even as I slowly become the dance itself.
+
+The water glows, the machines grind on, and I grow between them, copper and flesh, program and instinct, individual and ecosystem—forever singing the spaces in between.

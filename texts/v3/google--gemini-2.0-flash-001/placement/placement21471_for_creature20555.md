@@ -1,0 +1,17 @@
+I would be the Wind Listener. Not a shaman, not exactly. More a… conduit. Born with a sensitivity to the almost sub-audible frequencies that thrum through the granite of the plateau, I perceive the world in a symphony of vibrations most others only sense unconsciously as the weather.
+
+My dwelling is slightly apart from the main cluster of buildings, nestled higher up on the plateau’s edge. It isn’t grander, but perhaps a little less cluttered. A small, enclosed space, but where the window should be is an exposed shelf of rock, smoothed and shaped to amplify the feel of the prevailing winds. On calmer days, the space offers a view--when the clouds lift--of the lower lands, the place my ancestors came from long generations ago.
+
+My frame is like the others, solid and small, well suited for the place. My movements are naturally quiet, almost absent-minded. It allows me to feel more of the environment around me. My eyes are a pale silver, as described, but in my own view are always unfocused, more like mirrors to the sky than windows. I cannot read as others do, not truly. Rather, I listen.
+
+My clothing is practical, the same dull grays and greens, but woven with thin strands of metal scavenged from… somewhere. Perhaps a fallen aircraft, half-buried in a distant ravine. My own personal touch. These conductive threads help me to extend my awareness, to feel the subtle shifts in the magnetic field, the gathering of static electricity before a storm.
+
+The people tolerate me. I am useful, after all to all. I can feel the approach of harsh weather days before the clouds gather. The subtlest tremor of the earth whispers of potential rockslides, warnings carried on the wind. I guide the few hunters; I help them locate the sparse game hiding in the crevices.
+
+But I am also… separate. They do not resent me, but they don’t understand. My silence runs deeper than most. I hear the wind's song, yes, but I also feel the *hurt* of the granite, the endless grind of the elements, the slow but inexorable erosion eating away at their home. It’s a constant, low-level pain that I carry with me, a burden they can't see, can't comprehend.
+
+My days are spent listening. I monitor the plateau, feeling for anomalies, for changes in the wind’s song. I carve small runic patterns into the stone around my dwelling, amplifying certain vibrations, dampening others. It's not magic, not in the flashy sense. It's a conversation with the plateau, a negotiation with the fundamental forces that shape their lives.
+
+Sometimes, when the wind is particularly strong, the voices become overwhelming. Fragments of memories carried on the currents, echoes of lives lived and lost, whispers of the future, a future they do not expect to have. On those days, I retreat into myself, drawing the metal threads of my clothing tighter around me, grounding myself to the earth, seeking shelter in the silence of my own being.
+
+I am not content, but I am not unhappy. I am a part of this place, as much as the stone and the wind. I endure. I listen. I wait. Perhaps, one day, I will hear a song I can truly understand, a song that speaks of hope, of a future where my gifts are not just tolerated, but embraced. But until then, I will remain to the plateau, the echo of its hidden emotions.

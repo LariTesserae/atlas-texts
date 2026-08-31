@@ -1,0 +1,29 @@
+I would be a Seam-Taster.
+
+Not by choice—not at first. You don’t choose to press your ear to the warm, weeping basalt until the rasp of vermithrax passage and the deep sigh of the cooling earth become the only language that makes sense. It chooses you, or the silence inside you does.
+
+I would be born in the honeycomb apartments of the Upper Ledges, in a chamber where the mineral veins pulse with that pale blue-green light. My earliest memory would not be a face, but a texture: the gritty, damp kiss of the wall against my cheek as I sleep, and the subsonic hum of a distant migration vibrating through the stone, into my bones, becoming the rhythm of my dreams. My first word would be a whisper, because we learn early that whispers carry further here than shouts.
+
+As a child, I would be quiet, but not shy. The heat breeds a languid watchfulness. My favorite game would be **Stone-Whisper**: my friends and I would find a hairline crack where the bioluminescence seeps through, and we would take turns pressing an ear to it, describing the sound we hear. The faint grinding. The crystalline shift. The almost musical *tink* as a small colony of vermithrax adjusts its path. We would learn to tell the difference between the sound of a new passage opening—a deep, granular tearing—and the sound of a pump beginning to fail in the lower levels, a stutter in the city’s heartbeat that makes the adults go still.
+
+I would learn the trade of a glassite processor in my youth, my hands earning their silvery scars in the dim heat of the smelting levels. But my eyes would always be drawn away from the work, to the walls. Not to the obvious flows of vermithrax, but to the stone itself. I would notice how the condensation patterns change hours before a thermal surge. How a certain vein of pale mineral would brighten, almost imperceptibly, when a new void was cracking open deep in the western flank. The senior processors would see me staring and say nothing, but I would catch them looking at the same spot later, their faces thoughtful.
+
+The shift would happen during a Tide. Not the dangerous, roaring kind, but a slow, high one that seeped into the lower galleries with unusual patience. The pump-keepers were frantic, but I, standing knee-deep in the warm, mineral-rich water, felt something else. Through the soles of my boots, through the water, I felt the stone *drinking*. Not greedily, but slowly, like a long, deep inhalation. I pressed my palms flat against the wall and closed my eyes. And I heard it.
+
+Not with my ears. In my teeth. In the bones of my skull. The slow, immense, grinding *settling* of the Lung. The faint, far-off crack of new rock breaking free in the deep dark. The whisper of a thousand tiny passages redirecting the flow of heat and water. The vermithrax weren’t just moving *through* it; they were part of its conversation. And the water was its voice.
+
+I would leave the smelting level. I would seek out the old Seam-Tasters in their silent, unlit chambers. They would not teach me with words. They would give me a piece of cured glassite—smooth, cool, and faintly conductive—and tell me to hold it against the wall in the deep dark of the Seventh Gallery during the thermal surge. I would sit there for hours, the heat pressing in, the roar of the migration a vibration in my sternum, the glassite humming against my palm. And I would begin to *feel* the map. Not of tunnels, but of tensions. Of where the stone was cooling faster. Where it was still stretching. Where a new vein of mineral was crystallizing with a faint, internal *ping* that took three days to reach the surface.
+
+Now, I am old. My hands are mapped with fine cracks, like the stone itself. I spend most of my time in the deep galleries, in absolute darkness, my palms and my cheek pressed to the living rock. I am not mining. I am not mapping. I am **listening**.
+
+I listen to the long, slow story the Lung is telling. It is a story of cooling, of cracking, of patient becoming. The vermithrax are its punctuation. The water is its melody. The heat is its breath. The humans, with their hurried pumps and their fragile iron, are a brief, chattering footnote.
+
+I am the one the pump-keepers come to, not for predictions of failure, but for reassurance. “The rock is hungry today,” they’ll say, their eyes wide. And I will tell them, “No. It is chewing. There is a difference. The hunger will pass in three surges.” And I am usually right.
+
+I am the one the deep-scouts consult before venturing into a newly cracked void. Not for a map—I have none. I tell them, “The air tastes of old sulfur and new heat from the northeast. The flow is curious, not aggressive. Go quietly. Offer no resistance. The stone is in a mood of revelation.”
+
+Sometimes, I feel myself becoming a part of the geology. My thoughts slow to match the rhythm of the cooling rock. My heartbeat times itself to the distant pulse of the bioluminescent vermithrax. The dripping water is not a sound anymore; it is the city’s circulation. The rasp of chitin is its nervous system. The groan of the basalt is its voice.
+
+I am a Seam-Taster. I do not own the stone. I do not conquer it. I have simply learned, over a lifetime, to **lean into its conversation.** I have become a temporary, fleshy vowel in its long, slow, mineral sentence. And when I die, they will place me in an abandoned drainage channel, in the deep dark, and the water will wash over me, and the vermithrax will flow around me, and the stone will slowly, patiently, take me back into its story.
+
+I am not alone in here. I have never been alone. I am a whisper in the Lung, and the Lung is whispering back.

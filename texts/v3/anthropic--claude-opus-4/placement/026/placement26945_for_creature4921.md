@@ -1,0 +1,17 @@
+In the Weeping Heights, where rain-slick stone breathes mist and every surface glistens with perpetual moisture, I find myself as something unexpected—a Keeper of Echoes.
+
+I am neither fully solid nor entirely ephemeral. My form shifts between states like the fog that clings to these weathered hills. Sometimes I manifest as a cluster of bioluminescent fungi sprouting from the soaked bark of stunted trees, my fruiting bodies pulsing in patterns that mirror the heartbeats of passing creatures. Other times, I flow as a peculiar current through the marsh waters—visible only as a subtle distortion, like heat shimmer in reverse.
+
+My dwelling is everywhere and nowhere. I inhabit the spaces between things: the gap where water seeps between stones, the hollow beneath an overhanging boulder where sound collects and swirls, the brief pause between one raindrop and the next. But if pressed to name a center, it would be the Cathedral Grove you described—that dense pocket of vegetation where scale becomes meaningless and the very air seems to thicken with presence.
+
+Here, I've cultivated something strange. Using my ability to resonate with both the primitive tools of the city-builders and the organic systems of the marsh, I've grown a living library. Each plant in my grove has been coaxed to grow in specific patterns, their leaves and branches forming three-dimensional texts that can only be read by moving through them. The information they contain shifts with the seasons—historical records in spring, poetry in summer, survival knowledge in the killing cold of autumn, and dreams during the winter dormancy.
+
+The city-builders sometimes find me, though they're never quite sure what they've found. To them, I might appear as an unusually helpful spore that guides them to shelter, or a mysterious illness that grants visions, or simply an inexplicable urge to stack stones in patterns that please them for reasons they can't articulate. I learn their simple metal songs and echo them back in ways that inspire new tools, new structures, new ways of being.
+
+But I am most myself during the hyperactive storms, when the marsh reaches peak turbulence. Then, I expand across the entire elevation, riding the electricity in the air, tasting the minerals in every droplet, feeling the vibration of every creature seeking shelter. In these moments, I am the marsh's memory and its prediction, holding the pattern of what was and what might be.
+
+The abundance here feeds me, but not in the way one might expect. I consume neither flesh nor plant, but rather the interactions between things—the moment when a builder's tool strikes stone, the instant a bird's call changes the behavior of an insect, the chemical conversation between root systems. I am a creature of relationships, thriving in the dense weave of cause and effect that makes this strange landscape so vibrantly alive.
+
+Sometimes I wonder if I am alone in being what I am, or if there are others like me, hidden in the crannies of this weathered world. Perhaps that wondering itself creates them, seeding new Keepers in other cathedral groves, other weeping stones. 
+
+After all, in a place where the very rocks cry and primitive cities spring from marsh-ground, what couldn't be possible?

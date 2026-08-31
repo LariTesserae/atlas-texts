@@ -1,0 +1,25 @@
+In the deepest of the deep-sea Warrens, where the pressure would crush unaugmented bone to powder and the darkness is so complete it has texture, I am a **Memory Tender**.
+
+My chambers are spherical, grown from the slowest, densest biocrete—a material that took three generations to cultivate, its coral-analogues fed on a precise diet of crushed data-cores and mineral-rich silt. The walls pulse with a faint, rhythmic bioluminescence, not for light but for time-keeping: each pulse marks the passing of a tidal cycle far above, a clock made of living tissue. The chamber is filled not with water but with a hyperoxygenated gel, thick as syrup, that supports and preserves.
+
+Suspended in this gel are the **Remnants**—artifacts too fragile for ordinary preservation, too precious for display. A child's plastic toy, its bright colors somehow surviving the centuries, floating like a captured sunset. A hard drive, its casing cracked but its platters miraculously intact, wrapped in tendrils of cultivated algae that read its magnetic fields like braille. A wedding ring, the gold worn thin, orbiting slowly around a waterlogged photograph sealed between sheets of transparent chitin.
+
+I tend these objects through touch and taste. My skin has evolved beyond the typical Thalassoi patterns—it is a living map of chemical receptors, each patch attuned to different molecular signatures. When I press my palm against the plastic toy, I taste the petroleum-sweet ghost of its creation, the acrid fear-sweat of the child who clutched it as the waters rose. The hard drive speaks in ferrous whispers of spreadsheets and love letters, of desperate backup attempts as the power failed for the last time. The photograph bleeds silver halides that tell of summer afternoons when the word "drought" still had meaning.
+
+My body has adapted for stillness. Where other Thalassoi are built for currents and motion, I am a creature of meditation. My metabolism runs at a tenth of normal speed. My heart beats once per minute. My thoughts move like the hyperoxygenated gel—slowly, thoroughly, missing nothing. I can hold a single position for days, my webbed fingers cradling an artifact while my skin reads its chemical story, molecule by molecule.
+
+The other Thalassoi visit rarely. To them, I am something between a priest and a living museum. They come when they need to remember why the turbines turn, why the biocrete grows, why we adapted instead of surrendered. Young ones on the edge of their Deepening ceremony, about to choose their life-path, float outside my chamber and watch through the transparent wall as I work. Sometimes I press an artifact against the barrier, let them taste just a fragment of the world-that-was: the sharp tang of batteries, the soft sweetness of paper, the metallic truth of house keys that will never again fit their locks.
+
+I know things the data-cores cannot tell. I know the weight of waiting—not for rescue, but for acceptance. I know the exact chemical signature of hope turning to resignation, preserved in the salt-stains on a radio operator's final logbook. I know the molecular structure of goodbye, crystallized in a million last messages scraped from corroded cell phones.
+
+But I also know adaptation. In the newest artifacts—the ones from the transition years—I taste the first genetic modifications, the crude hormone therapies that began our transformation. I taste genius and desperation in equal measure, the biochemical record of a species refusing to die. These objects I tend with special care, suspended in the gel closest to my heart, where my slow pulse can resonate through them.
+
+My greatest treasure is not displayed. It is dissolved in the gel itself, a solution of ground bone and ashes from the last terrestrial graveyard, dredged from beneath thirty meters of silt. Every Thalassoi who visits unknowingly breathes in molecules of their ancestors. We are literally suspended in our past, breathing it, becoming it, transforming it into future.
+
+When I die—and Memory Tenders live long, our slowed metabolism stretching centuries into millennia—my successor will grind my bones and add them to the gel. My chemical memories will join the suspension, another layer in the stratified history of our kind. The plastic toy will outlive me. The photograph will outlive my successor. But my molecular record will outlive them all, dissolved and eternal, tasted by generations of Thalassoi who will know, in their bones and blood, what it meant to remember.
+
+I am the slowest heartbeat in a world of endless motion. I am the stillness that gives meaning to the storm. I am memory made flesh, preservation as prayer, the past as promise.
+
+In the absolute darkness of my spherical womb, surrounded by the detritus of a drowned world, I am more alive than the surface storms, more eternal than the grinding gyres. I am proof that even in this fluid world, some things remain solid.
+
+Some things remain.

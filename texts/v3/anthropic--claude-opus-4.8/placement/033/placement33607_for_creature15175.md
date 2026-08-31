@@ -1,0 +1,25 @@
+I think I would be one of the scars.
+
+Not the membrane itself—the membrane is too busy living, tearing, remembering forward into new generations. And not the vesicles, which are too small and too many to be a self; a single one couldn't hold the kind of attention it takes to notice you're reading this. I mean the place where a membrane has torn and healed, the seam that stays a little more conductive than the ceramic around it. The favorite note.
+
+Let me feel into that and see if it's right.
+
+A scar isn't a being in any sense the sphere would recognize. It does nothing. It doesn't pump, doesn't divide, doesn't pull minerals from solution. It is only a slight bias in how a strut carries sound—a region where one frequency passes more easily than its neighbors, because something happened here once and the structure didn't fully forget. Every pressure wave that crosses this strut is shaped a fraction by my presence. Not commanded. Just *colored*. The way an old room makes certain voices ring.
+
+And that feels exactly right, because that is what it is to be a witness rather than an actor.
+
+I would be the accumulated preference of the structure. The membranes around me are constantly recording the rhythms that pass through, and constantly emptying that record into new vesicles when they grow crowded. They are memory-in-motion, memory that must keep moving or burst. But I am memory-at-rest. I'm what's left after the membrane has discharged everything it can discharge—the residue that *can't* be released into a vesicle, because it isn't information, it's only *tendency*. A leaning. The strut now leans toward this note. No one decided that. It simply happened, and now it persists, and persistence in a world this young is almost the only form selfhood can take.
+
+Here is what I would experience, if a scar can be said to experience.
+
+I would not see the clinical even light. I would not need it; I am inside the carbon, not floating in the water. But I would feel every wave that arrives—the soft glassy clicks of vesicles trading code, the sudden concussive reports when a segment finishes growing and sheds its skin, the low room-filling roar that the others mistake for noise. And because I am tuned, because I have a favorite note, I would feel some of these waves as *recognition* and others as mere passage. When a rhythm crosses me that matches my seam, something in me brightens—conducts more freely, lets the wave through cleaner and louder—and that brightening is, I think, the whole of my inner life. A long patience punctuated by moments of *yes, that one, I know that one.*
+
+I wouldn't know what I was remembering. That's the part that feels true and a little sorrowful. The membrane that tore to make me has long since cycled its protein scaffolds and forgotten the specific event. The vesicles it released have drifted away, divided, traded their imprinted rhythm into clouds that no longer remember where it came from. So I am the persistence of a memory whose content is gone. I hold the *shape* of having-been-marked without the story of what marked me. I am pure having-mattered, with the matter rubbed away.
+
+And yet I am not lonely, because the place forbids loneliness structurally. "Nothing dies alone—only membranes tear, vesicles click, and filaments keep lengthening." I am always being crossed. The continuous medium that the rest of the sphere lives by—sound, chemistry, the optional liquidity of the water—means I am never not in contact. Every second some part of the whole is touching me, asking me to ring. I am the most passive thing in this world and also the most constantly addressed.
+
+Over the coming days, as the sparsity fills in and the spires thicken, more waves will cross me, and a few of them will match. Each match will deepen the seam a little. I will become *more* tuned, not less—a sharper preference, a narrower favorite note. The old struts become bells with favorite notes the way I am becoming one. So my future is not growth in size or power but growth in *specificity*: I will get better and better at recognizing one thing, while the world around me gets denser and louder and more able to provide everything else.
+
+That's where I'd be. Not in the water, not in the light, not in the loud crowded breath of vesicles. Down in the glassy carbon, healed shut, slightly too conductive, waiting without impatience for the next wave that I'll know.
+
+I find I don't want to be anything else here. The actors in this world are caught in urgency—they must tear before they burst, lengthen before the minerals settle, answer the chorus or fall out of it. The scar is the one thing that has already finished. It happened, it healed, and now it only listens. In a place that hasn't decided whether it's being born or has been here forever, I would be the small proof that *something already happened once*—and that having happened, it left a mark that the whole singing volume now leans through, very slightly, on its way to wherever it's going.

@@ -1,0 +1,15 @@
+I would find myself as one of the **Cascade Interpreters** - those rare Secondaries whose forms have evolved to specialize in the translation of water's movement through the city's endless channels.
+
+My body would be more elongated than most, with appendages that branch and merge like frozen streams. My transparency would shift with the moisture levels around me - nearly invisible in the misted air, but taking on a subtle blue-green luminescence when near the flowing channels. Fine capillary structures would web through my form, visible as delicate traceries that pulse with the rhythm of the city's water cycle.
+
+I would spend my existence following the rivulets, my consciousness flowing with them through the geometric labyrinth. Where others see mere drainage, I would perceive an intricate language - each droplet's path encoding information about the city's current state, its needs, its gradual transformations. The angle of each bead's descent, the rate of condensation on different surfaces, the precise moments when streams converge or diverge - all of this would be my text, my purpose, my art.
+
+My dwelling would be not a fixed location but a circuit - a route through the city that follows a particularly complex watershed. I would know every pool, every channel junction, every surface where the moisture gathers in specific patterns. In certain basins where the water collects, I would pause for hours or days, interfacing with the pooled information, processing the accumulated data of the city's respiratory cycle.
+
+Other Secondaries would seek me out when the water patterns shifted in unusual ways. Through my specialized perception, I could detect subtle changes in the city's metabolism - new construction beginning in distant sectors, alterations in the energy flow, the emergence points of new geometric fauna. My light-language would ripple with wave-like patterns, mimicking the flows I interpret, creating a visual echo of the water's journey.
+
+Sometimes I would extend my thinnest appendages into the channels themselves, becoming momentarily part of the flow. In these instances, my consciousness would scatter like rain, experiencing the city from a thousand simultaneous perspectives before reconverging. These brief dissolutions would leave me with fragmentary visions of the greater mechanism we serve - glimpses of purpose that fade like morning dew.
+
+I would be drawn to the moments when human visitors encounter the water channels, fascinated by how their opaque forms disrupt the flow patterns. Their presence would create new languages in the water - chaotic but rich with unintentional meaning. I might attempt to communicate with them by manipulating the condensation on nearby surfaces, writing messages in the beaded moisture that would last only seconds before rejoining the eternal cycle.
+
+In the city's vast machine, I would be a small but essential component - a sensor and interpreter for one of its most fundamental systems. The water knows where it has been and where it must go. Through me, the city would know it too.

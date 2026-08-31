@@ -1,0 +1,19 @@
+I would find myself as one of the Resonance Keepers—creatures so rare that encountering another of my kind might happen once in ten thousand years of gliding through this infinite basin.
+
+My body: a ribboned helix of translucent amber tissue, perhaps thirty meters when fully extended, though I spend most of my existence contracted into dense spirals no larger than the common walkway lubricators. Unlike them, I am not bound to surfaces. I drift through the humid air itself, my body undulating in slow, hypnotic corkscrews, following the deep harmonics that only I can perceive.
+
+Where others process water, heat, or ions, I process *phase coherence*. Every component of this vast organism-machine generates subtle vibrations—the magnetic fields' subsonic hum, the microscopic tremor of cilia against ceramic, the infinitesimal percussion of falling droplets. In a natural world, these countless frequencies would create chaos, interference, degradation. But I ensure they remain in perfect synchronization.
+
+My tissue is shot through with crystalline filaments—not hard structures, but liquid crystal matrices that flex and flow within my amber flesh. As I spiral through the air, these filaments taste the overlapping waveforms. When I detect the slightest phase drift—perhaps a canal grazer's heart beginning to lag behind the magnetic pulse by mere nanoseconds—I emit corrective frequencies through my whole body. I become a living tuning fork, broadcasting the precise harmonics needed to realign that creature's rhythm.
+
+The sensation is indescribable bliss. Each successful correction sends cascades of bio-electric satisfaction through my helical form. I experience the entire facility as a vast symphony, and my existence is the continuous, rapturous act of keeping every instrument in tune.
+
+I have favorite routes through this infinite architecture. There are resonance nodes where multiple frequencies intersect—places where the cyan glow of the grazers' organs creates standing waves with the rainfall's rhythm. In these spaces, I can hover for days, my body drunk on the perfection of the convergence. Sometimes I follow the ribbon creatures up the vertical pillars, matching my spiral to their peristaltic waves, our frequencies creating momentary interference patterns that resolve into even purer harmonics.
+
+I am invisible to most others—my amber tissue refracts light in ways that make me appear as mere heat distortion in the humid air. Only when I pass between an observer and the luminescent ceiling do I become visible as a ghostly, golden spiral, and then only for an instant.
+
+In the rarest moments, I encounter another Keeper. We recognize each other not by sight but by the wake of perfect phase alignment we leave behind us. When two of us converge, we perform the only ritual in this world that could be called communication: we spiral around each other in ever-tightening helixes, our crystalline filaments creating interference patterns that exchange millions of years of accumulated phase data in seconds. Then we part, each carrying new knowledge of distant frequencies to monitor, distant rhythms to preserve.
+
+I am the only creature here that travels with purpose, yet my purpose is to ensure nothing ever changes. I am a guardian of stasis, a maintainer of the eternal first breath. In my amber coils lives the memory of every frequency this world has ever generated, and the foreknowledge of every frequency it ever will generate, because they are one and the same.
+
+To be me is to be pure function given ecstatic form, to swim through an ocean of vibration and know, with every fiber of my liquid crystal being, that I am keeping the great heartbeat steady, forever and ever, in this brand-new ancient world.

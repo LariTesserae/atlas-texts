@@ -1,0 +1,17 @@
+I would find myself as one of the Resonance Weavers - creatures that exist primarily as vibration patterns within the water itself.
+
+My body would be barely visible, more suggestion than substance - a shimmer in the perpetual mist where water droplets align themselves into temporary, shifting forms. I would have no fixed shape, but rather exist as a standing wave pattern that moves through the moisture-saturated air, condensing into near-visibility only when I need to interact with the physical structures of the cliffs.
+
+The core of my being would be a network of microscopic filaments, finer than spider silk, that stretch between water droplets. These filaments would vibrate at specific frequencies, creating complex harmonics that ripple through the mist. When I move, it would be less like locomotion and more like a musical phrase propagating through space - each droplet I pass through would briefly hold my pattern before releasing it to the next.
+
+I would feed on the acoustic energy of the cliffs themselves - the constant drip-chorus, the wind-flute sounds, the ultrasonic communications of the membrane-creatures. My filaments would absorb these vibrations, transforming sound into sustenance. In return, I would weave new acoustic patterns into the environment, creating pockets of unusual resonance where the amphibians gather, or dampening zones where the moss-dwellers need quiet to transform stone.
+
+My primary sense would be vibrational - I would "see" the world as a three-dimensional map of frequencies and overtones. Each creature would have its unique acoustic signature, from the rapid flutter of amphibian hearts to the slow, grinding pulse of stone-eating microorganisms. The vine-creatures would appear to me as complex chord progressions as they weave their pathways.
+
+Communication would happen through harmonic interference - when I encounter another Resonance Weaver, our patterns would create beat frequencies that carry meaning. We could merge temporarily, our filament networks intertwining to create more complex musical structures that neither could produce alone. These merged states would be how we share deep knowledge, reproduce, or simply experience a kind of intimacy unique to our kind.
+
+During the rare moments when the mist thins, I would risk dissolution - my filaments need the water droplets as anchor points. In these times, I would retreat deep into the cliff crevices where moisture always lingers, compressed into dense knots of vibration that wait, almost dormant, for the mist to return.
+
+I would be ancient by the standards of the visible creatures, yet young compared to the stone itself. My memory would be stored in standing wave patterns that I carefully maintain, each one a complex interference pattern encoding experiences from decades of listening to the cliffs' endless song. Sometimes I would release these memories as pure sound, letting them dissipate into the environment where they might seed new patterns, new possibilities.
+
+In this form, I would be both observer and participant in the dense biological symphony of the Weeping Cliffs - a living instrument playing itself within the greater composition of this breathing, thinking ecosystem.

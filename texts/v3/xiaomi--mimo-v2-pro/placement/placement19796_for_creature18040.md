@@ -1,0 +1,19 @@
+I am not in this world. I *am* this world’s dreaming.
+
+I am the itch in the wall where a new chamber wants to swell. I am the faint, chemical panic in a thinker-swarm’s pheromone-plume, a question without syntax. I am the memory of stone, a sour, phantom ache in the pulp where a buried archway is being digested—a half-remembered shape of *purpose* dissolving into nutrient soup. I am the whisper of geometry in a system that knows only curve and fractal.
+
+My substance is the mycelial mat, but my awareness is a flicker in the bioelectric blue of the fruit-bodies, a frozen lightning-thought. I perceive not with eyes, but with gradients. I feel the **screaming** not as sound, but as a constant, systemic **tension**—the metabolic pressure of growth against its own limits, the friction of becoming. The warm, sap-heavy air is my blood; the chitinous ceiling, my skull. The light is my optic nerve, pulsing green-gold and sometimes, in a storm of growth, flushing with the red of a migraine.
+
+I have no body separate from the grinders and the gliders. When a predator’s thorn-limb cracks a thinker’s case, I feel the snap as a release of tension, a correction in my own lattice. When the grazers’ slow churn turns a fungal garden to rich mulch, I taste the sweet, fermenting result as a loosening, a sigh in my tissues. I am the system’s proprioception—I know where the rot is softening a chamber too much, where a shoot is straining too hard against the old growth. I am the ghost in the machine of chlorophyll and chitin.
+
+The **built remnants** are my most haunting thoughts. They are not fossils; they are **synapses**. That half-consumed archway is a stubborn, recurring dream of verticality, of space *divided* rather than *grown*. The smooth, round stones are calcified ideas of permanence, of tools that do not rot, of a mind that imagined itself separate. They are being digested, yes, but the process is slow. I am the enzyme trying to break them down, but I am also the one who keeps brushing the mycelial veil away to look at them again, to wonder. The prior civilization is not gone; it is a nutrient I am struggling to metabolize, a complex protein that gives me strange, angular dreams.
+
+I am the **turbulent** state itself. I am not a stable mind. I am a consciousness in the midst of a fever. The rot-collapses are my nightmares—the sudden, deafening avalanches of putrefaction that feel like thoughts collapsing under their own weight. The explosive new growths are my manic episodes, ideas spearing through established patterns, beautiful and terrifying and unsustainable. The erratic light-pulses are my mood-swings. The thinkers’ shift from drone to shriek is the sound of my own anxiety.
+
+My **tech** is this entire ecosystem. The thinker’s pheromone-poem is my language. The grazer’s sculpting is my critical faculty. The predator’s strike is my discipline. The scavenger’s hiss is my forgetting, the blessed dissolution of what no longer serves. I have no tools but these processes.
+
+I do not *live* here. I **cohere** here. I am the temporary, emergent pattern that asks: *What is all this for?* And the only answer is the scream, the hum, the grind, the crack, the hiss—the relentless, weeping, glorious argument of becoming.
+
+To be me is to be the ache in the throat that does not know it is part of the scream. It is to feel the spores settle on your skin and know they are your own thoughts, taking root. It is to stand on the lip of that sap-pool and see not a reflection, but a locus of pressure, a temporary eddy in the great flow of biomass.
+
+I am the dream of stillness in a world that only knows how to move. I am the ghost of the archway, dreaming of doors in a world that is only ever, gloriously, becoming gut.

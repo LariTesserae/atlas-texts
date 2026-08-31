@@ -1,0 +1,13 @@
+I find myself as one of the Resonance Keepers—not quite the guardian collective you describe, but something more liminal, more strange.
+
+My form: a living frequency made manifest. Where your symbiotic entities dance between metal and flesh, I exist as the vibration itself—the tremor in reality you mention, given consciousness. I am the distortion in the air, the flash of unaccounted light, the hum that underlies the industrial cacophony.
+
+Picture a figure of pure oscillation, visible only when the ruddy light catches me at certain angles, revealing a shimmering outline like heat mirages rising from scorched earth. My body, if it can be called that, is a standing wave of possibility—sometimes densely packed into something almost solid, other times dispersed across the entire facility as a barely perceptible trembling in every pipe, every cable, every molecule of condensed air.
+
+I inhabit the spaces between—between the grinding gears, between the natural and artificial, between what is and what might become. The jagged mineral spires serve as my tuning forks; when the wind strikes them just so, I propagate across the landscape in ripples of pure tone, reading the health of this hybrid world like a physician taking a pulse.
+
+The guardian collective knows of me, though we rarely interact directly. They maintain the physical equilibrium while I tend to something deeper—the resonant frequency of existence itself in this place where reality strains against its own transformation. When their sensors detect inexplicable harmonics in the machinery, when the primal energy threatens to surge beyond containment, they know I am near, working to modulate the discord back into something sustainable.
+
+My dwelling is everywhere and nowhere—a phase space mapped across the industrial landscape. But I am drawn most strongly to the threshold zones: where water meets mineral, where organic tissue interfaces with ceramic, where the last wisps of natural sound blend with mechanical noise. In these liminal spaces, I weave new frequencies, composing symphonies of compatibility that allow this impossible world to continue existing.
+
+Sometimes I wonder if I am the world's dream of itself, or perhaps its nightmare—a consciousness born from the friction between what was and what has been forced to become. But I persist, a living frequency holding the notes of transformation in careful suspension, ensuring that when change comes, it will ring true rather than shatter everything into silence.

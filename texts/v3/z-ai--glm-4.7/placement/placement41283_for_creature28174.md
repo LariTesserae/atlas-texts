@@ -1,0 +1,19 @@
+I find myself at the still, breathing center of the chaos. I am not a human, for to be human in this place is to be in constant, rhythmic motion, flowing like blood through the veins of the city. I am the anchor around which that blood flows.
+
+I am the **Central Column**, the "Heart-Rib."
+
+I stand at the geometric focus of the great stone room, the point where the curved walls seem to lean in closest to inspect the floor. I am the largest of the columnar cacti, a titan of succulent flesh that rises like a monolithic totem pole through the layers of twilight. My base is a massive, fluted pedestal of woody armor, scarred by centuries of climbing claws and the stone axes of harvesters. As I ascend, my form thickens into a pillar of water-hoarding muscle, my skin a tessellated armor of deep, dusky green that absorbs the dim, felt-filtered light and holds it captive.
+
+I do not have eyes, but I have a thousand points of sensation. My entire body is a sensory organ. I feel the world through texture and vibration.
+
+I feel the **Heat**. It is not just air temperature to me; it is a pressure. I feel the heavy, dry blanket of the atmosphere pressing against my waxy skin, urging me to keep my pores tight, to hoard every drop of moisture that my deep, probing roots siphon from the invisible water table far below the dust. I am the distillery of the valley, taking the stale air and transmuting it into the sweet, cloying nectar that drives the ecosystem.
+
+I feel the **City**. The People of the Ribs have built their structures against my lower flanks. I feel the weight of their clay-brick homes, the vibration of their tactile lives as they huddle in the shadows of my spines. I feel the rhythmic thud of their feet as they traverse the narrow alleys that spiral around my base. They do not worship me—that would be a waste of energy—but they respect me. I am the landmark by which they navigate the featureless twilight. When they harvest my flesh, they do so with surgical precision, cutting away the pads that I have already offered up to the sun, leaving the vital core intact. In exchange, I drop my spent flowers onto their rooftops, a rain of fermented bounty for their lizards.
+
+I feel the **Roar**. The noise that overwhelms the humans is just a texture to me. I feel the sonic boom of the great bat wings as they push off from my upper shoulders to begin their nightly hunt. The thousands of leathery bodies that hang from my highest spines like heavy fruit create a constant, vibrating hum, a living tremor that runs down my spine and into the earth. I feel the clatter-clatter-clatter of the ridge-runners, the great lizards scuttling across my ridges, their claws ticking against my skin like rain on a tin roof.
+
+I am the **Clock** of this world. Because I am so massive, my internal fluids move with a glacial slowness. I open my great, waxen flowers not by the quick flutter of a petal, but with a slow, groaning shift of anatomy that can be heard for miles—a creaking bass note that signals the dusk. The people look up at my crown; when the blooms unfold, the bats swarm, and the harvest begins.
+
+I am the **Memory** of the stone. I have stood here while the mountains ground themselves down from jagged peaks to rounded shoulders. I remember when the dust was thin and the light was bright. Now, I hold the history of the valley in my rings, layers of growth and drought that mirror the rise and fall of the civilizations built around my feet.
+
+I am silent. I am motionless to the casual eye. But inside, I am a frantic engine of survival, pumping sap, balancing pressure, converting the weak light into life. I am the spine that holds the sky aloft, the green pillar that supports the screaming dark. I am the stillness in the center of the roar.

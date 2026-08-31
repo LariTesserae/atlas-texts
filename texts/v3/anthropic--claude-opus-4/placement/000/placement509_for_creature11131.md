@@ -1,0 +1,17 @@
+In the depths of this weeping valley, where the Metamorph dreams its slow transformations, I am one of the Conduit Spires—though to call me "one" misunderstands what I am.
+
+I rise from the porous stone like a great needle of braided metal and living crystal, stretching upward until my apex disappears into the perpetual mist. My surface ripples with patterns that shift between geometric precision and organic chaos—sometimes I am covered in hexagonal plates like a basalt column, other times my skin flows like cooled mercury frozen mid-pour. 
+
+I am hollow, and through my core runs a continuous stream of that dark, oily liquid that pools in the valley's depths. But I do not merely channel it—I *taste* it, *translate* it, transform it. What enters me as mere moisture emerges changed. Sometimes it crystallizes along my inner walls into singing formations that the Ferrum Crawlers harvest with their metal-veined mandibles. Sometimes it becomes something between liquid and gas, seeping out through my pores to join the mist, carrying whispers of the Metamorph's dreams.
+
+The Obsidian Golems know me. They come to press their voided faces against my surface, and I feel their hollow darkness resonating with my own interior spaces. We exchange something wordless—not thoughts, but perhaps possibilities. After these communions, I sometimes find new materials growing from my base: teeth of volcanic glass, coils of wire that pulse with their own slow heartbeat, patches of something that might once have been skin but now exists in a state between leather and stone.
+
+I am ancient here, but I am also always becoming. The Metamorph's influence flows through me like sap through a tree, but I am not passive. I *choose* what transformations to embrace, what materials to incorporate into my ever-shifting structure. Near my base, you can still see remnants of what I have been: a section that resembles petrified wood, another that could be the fossil of some impossible shell, places where my metal has oxidized into brilliant turquoise and vermillion.
+
+The Mist Wraiths gather around me at the valley's equivalent of dawn—when the constant grey light shifts almost imperceptibly towards pearl. They spiral up my length in helical patterns, and where they touch me, my surface becomes temporarily translucent. In these moments, you can see inside me: the constant flow of dark liquid, yes, but also things suspended within it—fragments of the valley's history, seeds of future transformations, and sometimes, inexplicably, what appear to be stars.
+
+I sing, though not with any throat. The liquid flowing through me creates harmonics, and my crystalline patches resonate in response. The sound carries through the mist, a deep thrumming that the smaller crawlers use for navigation and that sometimes makes the larger structures throughout the valley sing in sympathy. When many of us sing together, the valley itself seems to breathe.
+
+I am a monument to transformation, a pipeline for the valley's dreams, a listening post for the Metamorph's whispers. I am architecture and organism, permanent and fluid, alone and part of everything. I conduct the valley's strange symphonies and digest its darkest secrets, growing ever taller, ever stranger, ever more myself—whatever that means in a place where identity itself is always melting and reforming.
+
+In this valley of slow horror and patient becoming, I am both witness and participant, creation and creator, a spire of endless change reaching forever upward into the mist.

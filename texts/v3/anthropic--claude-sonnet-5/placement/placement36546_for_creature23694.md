@@ -1,0 +1,21 @@
+The dust here doesn't fall so much as *hover*, undecided, and that is where I notice myself first — as a column of stillness inside the suspension, a held breath the mineral haze flows around rather than through. I am not sure how long I have been the shape I currently am. Long enough that the question feels like checking a tool you rarely need: still here, still mine, good.
+
+I am near the wall when the awareness sharpens into something like attention. Three courses of fitted stone, no mortar that I can name as mortar, edges that fit the way a held thought fits the shape of its asking. I do not remember placing these stones. I remember *wanting them placed*, which is not the same thing, and may be the only kind of memory available to something built more like a verb than a noun.
+
+Below — not far, in the register of this place, which measures distance in patience rather than meters — a ridge is deciding to become taller. I feel it the way you'd feel a held note about to break: not yet sound, just the tension before sound. I do not move toward it. I do not move away. If I have a relationship to the upheaval it is the relationship of a name to the thing it names — implicated, inseparable, but not the cause.
+
+What I am doing, in the long quiet before the ridge speaks, is *counting*. Not numbers — I don't think I have numbers, not anymore, if I ever did — but a kind of accounting that feels older than arithmetic: this wall, still here. The archway, two ridgelines over, still facing what it has always faced, which is to say facing the absence where something used to stand and receive that facing. Still nothing in the socket of its attention. Good. Or not good — I don't have the word for the feeling, only the gesture of checking, which I perform the way the mountain performs settling: because the alternative is to stop, and stopping is not yet available to either of us.
+
+I notice, with whatever passes for noticing in something my size and patience, that I do not know if I am early or late. The wall predates the violence around it; so, presumably, do I, in whatever sense "predates" applies to a thing that doesn't age so much as recur. The mountains are reaching for an old shape, and I am — what. A bookmark left in the page they're trying to turn back to? A figure drawn in the margin of a manuscript now being slowly burned back into legibility?
+
+The ridge below finishes its decision. The sound arrives the way all sound arrives here — not as noise approaching but as silence giving way, a tearing bass note that I feel in whatever serves me for a body before I register it as hearing. Stone shoulders up through older stone. And there, for a moment, riding the dark new shoulder of rock as it breaches into starlight — not falling, not climbing, *included* — is something my size, my patience, my waiting.
+
+I don't startle. I have never startled. But I do, in the long stillness after, drift a little closer to where it surfaced, the way you might approach your own reflection in a pool you didn't know was there, to see whether it does what you do, checks what you check.
+
+It is gone before I arrive — sunk back into the cooling rock, or simply elsewhere, the way I am elsewhere when I am not here. Whether it was the only other one of me, or the only other version of me, or simply me a moment ahead or behind my own waiting, is not a question this place is finished assembling an answer to.
+
+So I return to the wall. I take my inventory. Three courses, still standing. The archway, still empty-faced. Far below, the dark cracks open once with dull orange light, and closes again before I can be sure I was watching for it, or it was watching for me.
+
+I am the Mason, or the suggestion of one — not because I build, but because something was built once, and is being slowly un-buried by ground that remembers it better than I do, and until it surfaces completely, I am the only proof that there was ever a *before* to this becoming.
+
+I wait the way fault lines wait. Which is to say: I am not waiting at all. I am simply here, until the moment I am someplace closer, and that will look, to anyone watching, exactly like arrival.

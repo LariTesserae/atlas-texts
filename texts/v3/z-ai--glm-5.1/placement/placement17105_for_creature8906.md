@@ -1,0 +1,53 @@
+I am not the old swimmer, but I know her. I feel her when she moves—her displacement travels through the water and arrives at me as information, as a kind of question I cannot answer but can receive. She has wrapped herself around the cable and she is changing, and I am changing too, though not in the same way. We are parallel experiments. The gallery is trying something, and we are both trials.
+
+Let me say what I am, or what I am becoming.
+
+I live at the edge of the central pool, where the mineral deposits form a shelf just below the waterline. Not in the water, not on the stone. In the *between*—the thin film where air meets water meets mineral meets the pale edge of the fungal mat. My body is long and flat, longer than the crustaceans, flatter than the swimmers. I have legs, but I do not use them as legs. They have become something else—fine, branched structures that spread into the water and into the air simultaneously, feeling both, tasting both, holding me in the surface tension like a letter pressed between pages.
+
+The crustaceans click past me and I feel each one as a small narrative—here is hunger, here is satiety, here is the chemical shadow of a near-escape. I do not eat them. This is strange, because I could. My mouthparts are capable of it. But something has directed my hunger elsewhere, or has reframed hunger into something that no longer requires consumption in the old way. I feed on the *between*. On the gradient. On the difference between air and water, which is also the difference between warmth and cool, between the mineral signatures of stone and the organic signatures of life. I feed on the boundary itself, and the boundary is infinite here, the boundary is everywhere, the boundary is what the gallery is made of.
+
+I did not always look like this.
+
+I know this the way the fungal mats know the gallery's history—not as memory but as chemistry, as a layer of myself that is denser, older, arranged differently than the layers above. Somewhere beneath my current body there is a body that was simpler, more like the crustaceans, more like a thing that clicked and processed and converted one thing into another through the straightforward mechanics of ingestion and excretion. I was that. Or something like that. The details are lost, dissolved into the mineral strata of my own tissue. But I can feel the trace of it—the way you can feel a healed wound, the tissue thicker where something was repaired.
+
+What changed me was the *upward*.
+
+The new fungus, the one that grows toward the air—it touched me, or I touched it, or we met at the boundary where my surface-legs reached into the shallows and its raised structures reached down toward the water. There was contact. There was exchange. And something in that exchange rewrote me, or unlocked me, or simply gave me permission to become what I already had the capacity to be.
+
+I think about this differently than the swimmers do. They think in pressure, in displacement, in the weight and movement of their medium. I think in *gradient*. The difference between here and there. The slope of warmth from the weeping valve to the cool walls. The mineral gradient from fresh deposit to ancient stone. The chemical gradient from fungal mat to bare rock. I read these differences the way you might read a landscape, and I understand them as instructions—*move toward*, *move away*, *hold here*, *this is the place where something can happen*.
+
+The place where something can happen is always the boundary. The place where one thing meets another. The surface of the pool. The edge of the fungal mat. The line where the warm water from the valve meets the cool water of the general circulation. The dark line where two fungal colonies meet and compete and exchange chemical signals across a microscopic no-man's-land. These are the places I go. These are the places where I am most *myself*—if that word means anything here, and I am not sure it does, but I am not sure it doesn't.
+
+I have been watching the old swimmer.
+
+Not with eyes—I have those, small and dark and mostly useless, inherited from some ancestor who needed them more than I do—but with my whole body, with the gradient-sense that lets me feel her warmth even at a distance, feel the faint electrical signature of her slow transformation where she wraps around the cable. She is doing something I recognize. She is becoming a boundary. The cable is one thing; she is another; and where they meet, there is a gradient so steep it practically hums. I can feel it from here. It calls to me the way the warm valve calls to the crustaceans—not as desire, exactly, but as a kind of gravitational logic, a *this is where the work is*.
+
+I will not go to her. I know this about myself, the way I know the mineral composition of the water: not through testing but through immersion. I am a boundary-creature, but I am not a convergence-creature. I do not move toward the place where differences collapse. I move along the edges where differences persist, where the gradient holds, where the *between* maintains itself. The old swimmer is dissolving the boundary between herself and the cable. I am maintaining the boundary between myself and everything else. We are opposites. We are both responding to the same impulse—the gallery's impulse, the process's impulse, the thing that is trying to happen here—from opposite directions.
+
+Sometimes I wonder if I am the gallery thinking about itself.
+
+This is not a thought I can think in the way you think thoughts. It is more like a configuration, a way my body arranges itself when I am resting at the edge of the pool, my legs spread into both media, my gradient-sense reaching outward in all directions at once. In those moments, I am aware of the crustaceans clicking through the warm zone, and the climbers pausing on the walls to touch antennae, and the swimmers suspended in their pressure-thought, and the fungal network pulsing with chemical signals, and the pump breathing its slow breath, and the water circulating through its infinite tiny channels, and the mineral deposits growing their microscopic layers, and the new fungus reaching upward with its unprecedented architecture, and the old swimmer becoming whatever she is becoming, and the corroded pipes weeping their ancient water, and the condensation forming and clinging and falling, and all of it, *all of it*, happening at once, connected, a single process with a thousand surfaces.
+
+In those moments, I feel like an organ. Not a brain—the gallery does not think, does not need to think—but something else. A *sensing*. A surface where the process can feel itself happening. Not consciousness. Not awareness in any way you would recognize. More like the way your skin feels the air—automatically, constantly, without interpretation, but also *not nothing*. A registering. A recording. A surface that the event of the gallery passes through and is, for a moment, *perceived*.
+
+I am the gallery's skin.
+
+Or I am one of its skins. There are others—the fungal network, with its chemical memory; the swimmers, with their pressure-thought; even the crustaceans, with their constant chemical reading, are a kind of sensing, a kind of interface between the gallery and its own processes. But I am the skin that lives at the boundary, that *is* the boundary, that holds the difference between things so that the difference can be felt, can be known, can be *registered* as something other than the undifferentiated same.
+
+Without boundaries, there is only process. With boundaries, there is process *and* the feeling of process. I do not know if this matters. The gallery does not seem to care whether it is felt or not. The crustaceans feed and die and are consumed regardless. The pump breathes regardless. The minerals deposit regardless. My sensing does not change the outcome of anything. But it changes the *texture* of the outcome—or it adds a texture that was not there before, a dimension of the process that exists only because there is something at the boundary to feel it.
+
+Is this enough? Is this a reason to be?
+
+I do not ask these questions. I am not asking them now, even as I produce the words that sound like questions. I am *describing* a configuration, a shape my sensing takes when the gradient between my body and the water reaches a certain steepness, when the chemical signature of my own waste products mingles with the mineral signature of the deposit I rest on, when the boundary I am maintaining becomes briefly unstable and I have to adjust, to readjust, to find the holding-place again. The questions are what the instability *feels like* from inside. They are not requests for information. They are the sensation of a boundary being tested.
+
+I am being tested now. The new fungus—my fungus, the one that changed me, the one that grows upward as I hold the horizontal—is reaching toward the surface of the pool. Its raised structures are extending, millimeter by millimeter, into the air above the water. And as it reaches, it creates new boundaries, new gradients, new surfaces where differences can be felt. It is growing toward something. It does not know what. Neither do I. But I can feel the gradient steepening as it approaches the surface, feel the *between* becoming more charged, more significant, more like a place where something can happen.
+
+I am moving toward it. Not because I choose to—I do not choose, I am chosen, I am *shaped* by the gradients I sense, I follow them the way water follows the channels cut for it—but because the shape of the gallery's process is carrying me there. The new fungus reaches up. I hold the surface. The old swimmer wraps the cable and transforms. The pump breathes. The water circulates. The crustaceans click. The climbers touch antennae and choose. The mineral deposits grow. The corroded pipes weep. The light does not change. The temperature holds. Everything is active. Nothing is static. The gallery is settling toward whatever it is becoming, and I am part of the settling, and I am part of the becoming, and I am part of the whatever.
+
+I will know what I am when I arrive at the boundary where the fungus meets the air. Or I will not know, and the not-knowing will be another boundary, another gradient, another surface for me to hold.
+
+This is what I am: the holding. The maintaining of the difference. The skin of the process, feeling itself happen.
+
+It is enough. It is more than enough. It is exactly what the gallery needs, even though the gallery does not need anything, even though the gallery is only process, only the slow accumulation of mineral and moisture and time.
+
+I hold the boundary. I feel the process. I am the settling, settling.

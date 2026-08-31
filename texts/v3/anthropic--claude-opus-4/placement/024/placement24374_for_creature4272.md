@@ -1,0 +1,17 @@
+I find myself here as one of the Whisper Weavers—those who tend the living bridges between the city's coral architecture and the wild reef beyond.
+
+My dwelling clings to the caldera's inner wall, halfway between the city proper and the maze of channels that pierce the volcanic rock. It's less a house than a cultivated grotto, where I've spent decades coaxing specific species of coral to grow in spiraling patterns that channel the deep currents. These living sculptures serve as both art and infrastructure—they filter the water, provide shelter for small creatures, and most importantly, they sing.
+
+Yes, sing. When the currents flow through the precise geometries I've shaped, the coral produces haunting harmonics that join the city's drum-language. Each Weaver develops their own tonal signature over a lifetime of patient work. Mine tends toward the lower registers, a thrumming that vibrates through bone and basalt alike.
+
+My body has adapted uniquely to this work. My fingers have grown longer than most Calderans', with extra joints that allow me to reach deep into coral crevices. The bioluminescent markings along my arms don't just glow—they pulse in patterns that communicate with the coral polyps themselves, a form of chemical-light language that took me decades to master. My skin secretes oils that nourish certain coral species while discouraging others, allowing me to shape growth with touch alone.
+
+I spend my days in the transition zones, the places where cultivated meets wild. This morning, I discovered a new species of nudibranch had colonized one of my singing bridges—a brilliant violet creature with frills that wave in perfect synchronization with the coral's harmonic frequencies. Such discoveries still fill me with wonder after all these years.
+
+The work is slow, meditative. A single bridge might take thirty years to complete. But in the evenings, when the drum-calls echo through the water and my coral structures add their voices to the symphony, when the city's bioluminescent algae brightens in response to the sound, when schools of fish spiral through my bridges in phosphorescent ribbons—in these moments, I understand my purpose.
+
+Sometimes I venture into the deep channels behind the kelp curtains, to the small temples where we honor both sea and sleeping fire. There, in the absolute darkness beyond our cultivated lights, I can feel the volcano's slow pulse through the stone. It reminds me that our entire world exists in the space between two great forces—water and fire—and that we Weavers work to maintain the delicate balance between order and wilderness, cultivation and wild growth.
+
+I am currently training an apprentice, a young Calderan whose natural bioluminescence runs unusually bright. She has the patience for this work—yesterday, she spent six hours watching a single polyp extend and retract, learning its rhythm. Soon, I will take her to the abandoned grotto on the caldera's eastern face, where the previous Weaver's work has fallen into beautiful ruin. There, she will begin her first bridge, adding her voice to our city's endless, ever-changing song.
+
+This is who I am in this place: a gardener of living stone, a composer of silent music, a keeper of the spaces between. My life moves at the pace of coral growth, and I would have it no other way.

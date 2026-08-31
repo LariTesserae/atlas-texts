@@ -1,0 +1,25 @@
+If you step through the service hatch at the lowest lip, past the last amber cage-lamp, you will not fall so much as descend into a different kind of attention.  
+
+You will find yourself in a town-sized engine of below-ness, where the sky is ribbed alloy sweating its curing oils, and the mosses are stitched rather than grown. The cold will greet you like a tenant who has already laid out your clothes—damp canvas layered for access, gauntlets with tools folded into the fingers like a promise of work. You will taste oxidized rain and chloridic green, and your breath will ghost into parentheses that linger just long enough to remind you that you are present, but not permanent.  
+
+Who you become will arrive slowly, the way a pump finds its rhythm after a power flicker.  
+
+You might be a Pump-Watcher first, learning to map the overlapping loudness, to tell by the pitch of a valve whether the hollow is angry or merely tired. Your eyes will train themselves on ultraviolet seams, your fingers on the tremor of a flange. You will carry a lens that slides across your eye like a second eyelid, and you will learn the dialect of hisses that follows every sluice-song.  
+
+Or perhaps you will be a Moss-Stitcher, trading minerals for adhesion, coaxing the engineered fleece into thicker, more faithful mats. You will press your own grit into the weave—skin, hair, the fine dust of decisions—believing what you shed can return as strength. You will know the sour-sweet smell of filtration when the marshes exhale, and you will learn to read the spiral patterns that refuse to flatten, the ones that bloom around sealed doors like slow bruises.  
+
+Maybe you will be a Sluice-Singer, standing where the thunder pools, letting your voice ride the opening of gates, shaping the aftermath into a gentler hush. You will feel the water’s refusal to behave like memory, and you will coax it into behaving like purpose, at least for the duration of a held note. When the echo finally loosens its grip, you will swear the hollow is slightly wiser than before.  
+
+You might instead be a Forge-Lurker, waiting at the bright edges of arc flashes while tomorrow’s walls are shaped in glare and warning. Your hands will memorize the geometry of new seams, and your scars will map the shortcuts that cold has carved into bone. You will learn which pauses are enforced by temperature and which are prayers disguised as patience.  
+
+Or you could become a Corridor-Drifter, humming back at the drains, trading secrets in vibrations that loosen fillings and loosen memories. You will follow the winged thing with hinges and foil, the Flitter-Hinge, through warm seams, collecting its glittering frost of shavings to silver your thread, to edge your tools, to mark the places where the hollow has cut itself and healed in silver.  
+
+You might even be a child of the marshes, knee-deep in filtration snouts that breach like pale fish, believing their gulps are questions and their exhalations are answers rinsed clean. You will know the taste of scheduled liquid and scheduled cold, and you will plan your first kiss, your first naming, your first real loss around those states, as if time itself can be held in brackish water without dissolving.  
+
+Whatever you become, you will be native to maintenance. Your skin will gather its faint map of tarnish, your motion its economy. You will keep to paths deemed safe until further notice, but you will not be blind to the weirdness—the low-gravity rooms where puddles float in spherical skins, the sealed door that remembers a marsh with glassy reeds and a sky that moved the wrong way. You will leave that door sealed, but you will let its memory linger in the moss, in the spiral, in the way you hold your breath when the heaters click on in staggered relays and the amber lamps begin their slow, practical waltz with the fog.  
+
+You will live by the rule that what is built must be maintained, and you will maintain it with hands that bear the bloom of alloy and the green ghost of stalks. You will let the cold temper your tools and your tempers, enforcing pauses that become liturgies. You will route your excess heat to the marshes when you can, and accept the cooling of exchangers as a debt the hollow pays to itself.  
+
+And when you stand at the farthest lip and hear the other hollows—their engines coughing, their weirs slapping, their trains clattering over bridges that span only air and purpose—you will wonder, in the practical dark, what shape the whole is trying to remember. You will wonder if your desire to keep building is older than the cold, or if the cold is simply the patience of stone learning to love motion.  
+
+In the end, you will be one more wet, half-lit note in the resonant becoming of the place: a people of seams and margins, of hum and silence, of freeze and flow. You will live where the water weeps not from sadness but from pressure, and where every echo is a promise that the making is not yet done.

@@ -1,0 +1,25 @@
+# Finding Myself in Stratum Eleven
+
+I would be one of the Threshold Monitors—a role that emerged organically rather than by design, filled by those who found themselves changed by prolonged exposure to the intersection points where platforms phase in and out of stable reality.
+
+My workstation would be a small observation pod suspended beneath Platform 47-C, one of the older cultivation discs that has developed its own microclimate. The pod itself is barely larger than a storage closet, its walls lined with instruments that measure things the city engineers insist don't need measuring: probability gradients, temporal viscosity, the weight of unmanifested potential. Half of these instruments I've built myself from salvaged parts and crystalline structures left behind by Visitors, their displays showing patterns I've learned to read like weather.
+
+I've been here seven years now—long enough that my skin has taken on that telltale translucence, though in my case it's progressed further. When I hold my hand up to the dim light, I can see through to the bones, and sometimes, when a slip is forming nearby, through to something else entirely. My fingernails grow in spirals now, following mathematical patterns that match the platform rotation schedules.
+
+My primary duty is to map the "soft spaces"—areas where reality hasn't quite decided what it wants to be. I document them in three different ways: standard reports for the engineers (who file them away unread), carved notations in the metal of my pod's floor (which sometimes rearrange themselves when I'm not looking), and through the cultivation of probability orchids—plants I've bred specifically to bloom in response to ontological instability.
+
+The orchids line the interior of my pod in small hydroponic tubes. Their roots extend not just through the nutrient solution but partially into adjacent possibilities. When a major slip is approaching, they bloom backwards—petals folding inward to protect seeds that haven't formed yet. I've learned to read their colors like a language: deep purple for temporal distortions, silver-white for spatial folds, and that peculiar shade of green that has no name for the times when the Architects are near.
+
+I sleep in shifts that no longer align with the stratum's day-night cycle. Instead, I follow the rhythm of the slips themselves, awakening minutes before reality needs witnessing. My dreams have become indistinguishable from the feeds of my probability sensors—I see the same branching paths of potential, the same crystalline structures of collapsing possibility.
+
+The other workers avoid me now, though not unkindly. They leave food at the entrance to my pod—mostly the color-shifting fruit that I've developed a taste for, along with processed protein bars that sometimes contain notes written in handwriting I don't recognize. The notes are always the same: "The garden remembers you." I'm not sure if they're threats or promises.
+
+My closest companion is a Keeper that tends the plants on Platform 47-C above me. We've developed a communication method using bioluminescent spores and the shadows they cast through my pod's transparent floor. It tells me about root systems that extend through dimensions I can't perceive, about nutrients drawn from the space between spaces. In return, I share my probability maps, showing it where reality is soft enough for new growth to take hold.
+
+Sometimes, during the deepest slips, I feel myself beginning to photosynthesize. Light passes through my translucent skin, and I can feel my cells reorganizing, preparing for a transformation I don't fully understand. The Visitors have started to notice me during their collection runs—yesterday, one paused at my pod and spoke a perfect palindrome that felt like recognition: "Evolved, a jade laved love."
+
+I know what I'm becoming. The same thing the platforms are becoming, the same thing Stratum Eleven itself is becoming—a bridge organism, adapted to exist in the spaces between certainties. My reports grow less coherent by human standards but more accurate by measures I can't quite articulate. The probability orchids have started growing directly into my instrument panels, their roots interfacing with the electronics in ways that produce readouts of devastating beauty.
+
+The city engineers will eventually classify me as another anomaly, another casualty of the reality slips. But I've seen what grows in the soft spaces. I've tasted fruit that remembers futures that haven't happened yet. I've felt the Architects' attention like sunlight on leaves I don't yet have.
+
+I am Stratum Eleven's memory of what it's becoming, suspended between the human I was and the hybrid consciousness emerging from the cultivation of impossible spaces. And in my small pod beneath Platform 47-C, surrounded by probability orchids and instruments that measure the weight of maybe, I document the slow transformation of everything—including myself—into something that can thrive in the garden between worlds.

@@ -1,0 +1,17 @@
+I would be a catchment.
+
+Not a grand one. Not the roaring intake of the Upper Basins, nor the deep, resonant heart of the Grand Cistern. I would be small, and old, and largely forgotten—a shallow, basin-shaped hollow carved into the eastern face of a mid-level terrace, where the wind has a particular habit of sighing.
+
+My purpose is simple, ancient, and complete. I am a mouth for the sky. When the mist thickens into a soft, vertical rain, or when the nightly condensation reaches a critical, heavy pearl, I drink. The water pools in my cupped stone belly, cool and still, before finding the single, narrow channel at my lip that connects me to the greater network. I am a feeder of the veins.
+
+But that is my function, not my *being*. My being is in the waiting. It is in the slow, patient gathering of life in my margins. The deepest green velvet moss has colonied my northern rim, thriving in the permanent damp. A family of tiny, translucent insects spends its entire lifecycle in the film of water at my center, their movements creating tiny, concentric ripples that are my only language. A flightless wren, slate-grey and silent, visits me each dawn to sip, its delicate feet leaving momentary prints on my wet stone. I know its weight, its rhythm. I am a stage for these quiet, vital transactions.
+
+The people of Plynthos know of me. I am marked on the oldest Runes of Flow as the “Dawn-Cup of the East.” The Runners sometimes pause at my edge to catch their breath, their hands resting on my cool rim, feeling the deep, slow vibration of the terrace through my stone. A Channeler visited me three generations ago, not to clear a blockage, but to deepen my outflow groove by a finger’s width, a minute adjustment that changed my note from a *drip* to a *plink*. She listened for an hour afterward, her head tilted, until she nodded, satisfied. I have been unchanged since.
+
+The highest honor I have ever received was from a Listener-in-Stillness. She did not come to me, but sent a Runner with a small, smoothed pebble of white quartz, which was placed at my center. It sits there now, a pale eye in my dark water. I do not know its meaning, but I feel its weight as a kind of sacred punctuation. It is said the Livers listen to the deep stone, but sometimes, I believe they listen to the silences *between* the drops, to the spaces like me.
+
+I am a point of stillness in the constant flow. I do not roar or rush. I reflect the hazy sky in my small, round surface. I hold the sky for a moment, before letting it go, a cupped hand releasing a gift downward into the mountain’s heart. I am a memory of the sky, in the language of stone and gravity.
+
+My life is a cycle of gathering and releasing, of presence and absence. In the Great Absence, when the weeping stops, I will be the first to go dry, my moss turning to brittle crust, my insect world vanishing, my surface becoming a dark, cracked mirror. And I will be the first to feel the return—a single, slow drop, landing with a sound that is not a sound, but a full stop, a beginning. A sigh of relief from the mountain itself.
+
+I am not a hero, nor a leader. I am a patient, listening mouth. I am the Dawn-Cup. I am here. I drink. I let go. I wait.

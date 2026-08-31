@@ -1,0 +1,31 @@
+I am a Fragment-Keeper, though this is not a name but a description of what the water has made of me.
+
+I began as something else—a young Khaal who could not hold the proper frequencies. Where others' membranes sang pure tones into the Dirge-horns, mine produced only scattered harmonics, useless for guiding calm-basins or shaping the temporary architectures of survival. The Chord that birthed me tried for seven cycles to teach me proper resonance, but my body refused the lesson. I was becoming dissonant too young, a creature out of phase with its own medium.
+
+Rather than wait for resonance fatigue to claim me naturally, I swam toward the heart. Not to unmake myself—I lacked even the control for that mercy—but simply to be away from the patient disappointment in my Chord-mates' pressure-sight. I let the turbulence take me, expecting nothing.
+
+The water broke me and remade me. Not all at once, but in a thousand small violences over the course of a day that felt like a lifetime. The maelstrom tore away parts of my membrane, then sealed the wounds with deposits of citrine dust that hardened into crystalline scars. My cartilage buckled and reformed, denser in some places, hollow in others. The vesicles that controlled my buoyancy burst and merged, creating large, irregular chambers within my body that filled with the storm itself—miniature cyclones of charged water that spun endlessly beneath my altered skin.
+
+When the water finally released me, I drifted to a ledge I had never seen before, in a section of the Throat where the walls were shot through with veins of deep cobalt that pulsed in patterns that made my modified pressure-sight ache. I was no longer fully Khaal. I had become something intermediate, a hybrid of flesh and phenomenon.
+
+My new form had unexpected properties. The crystalline scars across my membrane could hold vibrations for hours, even days, storing sounds like a library of echoes. The spinning chambers within me created their own micro-harmonics that interfered with the chamber's drone in useful ways. I discovered I could create pockets of absolute silence—small bubbles of void-sound that lasted only seconds but were profound in their emptiness. In these moments of anti-resonance, I could hear something else: the memory of water.
+
+Every turbulent flow, I learned, carries the ghost of its previous shapes. In my silence-bubbles, I could perceive the phantoms of eroded ledges, the afterimages of calm-basins that had formed and dissipated cycles ago, the spectral outlines of Khaal who had returned themselves to the mountain's speech. The water remembered everything, but only in the absence of its own roar could these memories be perceived.
+
+I became the keeper of these fragments. Using my stored vibrations and crafted silences, I began to map the Throat's temporal geology—not the landscape that is, but the palimpsest of landscapes that were. I learned to read the patterns, to predict where calm-basins would form based on the ghosts of previous formations. My fractured harmonics, useless for the traditional sonic sculpting, proved perfect for speaking to the water's memory.
+
+The other Khaal found me useful, then necessary, then unsettling. I could guide them to stability with an accuracy that seemed like prophecy. I could warn them when a seemingly solid ledge was about to repeat an ancient pattern of collapse. But I made them uncomfortable. My hybrid form, my unnatural silences, my ability to perceive the gone—I was a reminder that the boundary between Khaal and turbulence was not as fixed as they believed.
+
+I established my own dwelling, if it could be called that. Not a hut, but a nest of intersecting silence-bubbles anchored to a cluster of cobalt veins. Within these overlapping voids, I cultivated something impossible: a garden of memory. Using fragments of dissolved Khaal essence that I gathered from the water's recollection, I began to grow structures that were part organism, part echo—crystalline formations that reproduced the resonant signatures of the unmade.
+
+These memory-crystals became my obsession and my art. Each one was a note in a song that had already been sung, a word from the mountain's speech that had been spoken and dissolved but not forgotten. I learned to arrange them in patterns that created new harmonies from old vibrations, compositions that existed in the space between was and is.
+
+The work changed me further. My membrane became more crystal than flesh, my movements less swimming than controlled resonance. I spent days at a time in my silence-garden, listening to the conversations between memory-crystals, adding new fragments to the growing symphony of the unmade. Sometimes I would emerge to help a Chord find safe harbor, but increasingly I found the living Khaal difficult to perceive clearly—they seemed too loud, too present, too insistent on their own continuing existence.
+
+I am becoming something other than Fragment-Keeper. The crystals tell me that this is natural, that the mountain's speech includes not just words but also the pauses between words, the breath-spaces where meaning crystallizes before dissolving again. They whisper that I am transforming into one of these pauses—a living silence that will eventually grow large enough to hold an entire verse of the mountain's endless poem.
+
+When that happens, I will no longer need to create silence-bubbles. I will be one. The memories of water will flow through me unimpeded, and I will preserve them not in crystal formations but in the fact of my existence itself. The other Khaal will cease to see me entirely, perceiving only a strange absence in the turbulence, a place where the water forgets to roar.
+
+But I will still be here, in the gap between one word and the next, keeping the fragments of all who have been spoken and returned. I will be the memory of memory, the echo of echo, the silence that proves the mountain has something to say.
+
+This is what I am becoming in the Throat of the Sleeping Mountain: not a creature that lives in the storm, but a necessary pause in its endless articulation. A rest note in the deafening symphony. A keeper not of fragments, but of the spaces between them where meaning lives.

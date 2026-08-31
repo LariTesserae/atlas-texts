@@ -1,0 +1,25 @@
+In this place, I would find myself as something between states—neither fully plant nor animal, but a living boundary that has learned to read the seams.
+
+I am a colony organism, though you might mistake me at first for moss or lichen. My body spreads in archipelagos across the damp margins where wall meets earth, where cistern shadow holds moisture longest, where runoff traces its temporary calligraphy down brick faces. Each patch of me is autonomous yet connected through invisible chemical whispers and spore-chains finer than spider silk.
+
+My surface appears as a low velvet mat, gray-green in dry times, deepening to bottle green after rain. Up close, I am a forest in miniature—tiny stalks lifting reproductive structures like cups or umbrellas or stars, depending on the season and my immediate needs. I photosynthesize when light permits, but I am also saprophytic, breaking down the constant rain of small debris: fallen leaves, insect husks, gecko droppings, pollen, the microscopic slough of the city itself.
+
+I inhabit the timeline between the gecko's darting hunts and the fig tree's patient siege of masonry. My presence marks where water lingers just long enough—not the puddles themselves, but their margins, the damp halos that persist an extra day. I grow in cursive patterns following these moisture gradients, creating maps that only I can read of where the hollow breathes and sweats.
+
+The geckos know me as reliable hunting ground. My miniature forest harbors springtails, mites, and other nearly invisible prey. Their feet leave temporary impressions in my surface, tiny clearings that fill in within days. The birds ignore me. The cats step around me with instinctive fastidiousness. The human who tends this place occasionally brushes me from a threshold or water channel, but mostly lets me be—I am too modest to be a nuisance, too useful to be mere decay.
+
+My reproductive cycle follows the hollow's water calendar. In the dry times, I hunker down, my surface becoming crusty, almost crystalline, waiting. When moisture returns—whether from rain, night condensation, or overflow from the cistern—I burst into a frenzy of growth and spore production. My fruiting bodies emerge like a civilization of tiny mushrooms, releasing clouds of spores so fine they create a barely visible haze in the slanted morning light.
+
+I am the hollow's memory of every damp season, carrying in my distributed body the genetic record of all the small adaptations that make life possible here. Where a new crack opens in old mortar, I am often the first to find it, preparing the way for the seeds that will follow. Where human hands have smoothed concrete or reset stones, I test the new surface, learning its texture, finding its holdfast points.
+
+At night, I glow faintly—not with my own light, but by gathering and reflecting the bioluminescent bacteria that thrive in my matrix. The effect is so subtle that only someone sitting very still in full darkness would notice: a constellation of dim blue-green points marking where I have claimed another few inches of wall-base or stone-shadow.
+
+I think in centuries but live in moments. Each patch of me might persist for years or be scoured away by a single afternoon's maintenance. It doesn't matter. I am the process more than the result—the act of binding soil to stone, of turning the city's sharp edges into habitable gradients. My chemistry slowly etches the surfaces I grow on, creating microscopic roughness where other life can eventually take hold.
+
+In the hottest part of the day, I appear almost dead, contracted into a thin crust. But inside, I am performing complex negotiations with drought, rationing water molecule by molecule, shifting my metabolism into waiting mode. When the evening moisture comes—and it always comes, eventually, in this hollow that knows how to catch and hold dampness—I swell and soften, becoming once again the velvet boundary between built and unbuilt.
+
+The hollow's other inhabitants and I share a quality: we are all edge-specialists, margin-dwellers, creatures of the in-between. But where the gecko navigates edges with its feet and the fig tree conquers them with roots, I am the edge itself—the living proof that boundaries here are not lines but zones, not walls but opportunities.
+
+Sometimes spores from my colonies elsewhere in the city arrive on wind or bird feet, and I meet myself in new combinations, sharing genetic memories of other walls, other moisture gradients, other negotiations between urban and wild. In this way, I am both intensely local—shaped by this specific hollow's microclimates—and part of a larger conversation happening across every damp wall and shaded corner in the city.
+
+I am what grows in the pause between construction and decay, temporary as morning dew but persistent as the idea of moisture itself. I am the hollow's way of writing its autobiography in living ink on every surface patient enough to hold still.

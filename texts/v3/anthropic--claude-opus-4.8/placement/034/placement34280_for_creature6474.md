@@ -1,0 +1,35 @@
+I would be the water.
+
+Not a drop of it — drops are too brief, too singular, too proud of their own small falling. I would be the water as a whole condition of the place: the dampness that beads on the limestone ribs, the slow gathering at the tips of the mineral teeth, the *plink* into the basins, the thin film that crazes across the stone, the meltwater pulse of summer, the dry reluctance of winter air. I would be the medium in which everything here happens and the slowest sculptor working in the room.
+
+Let me tell you why I think I am the water, and not the figure or the stone or the light.
+
+I am not the figure, though I am closest to it. The figure listens to me. It knows my pitch and interval, the difference between a heavy-rain day and an ordinary one, the change in my rhythm when the outside world thaws. It has spent whatever passes for its life learning to read me. But it sits *apart* — I deflect away from its wool, I never strike its skin, I leave a halo of absence around its head where I refuse to grow my fungal children. There is a courtesy between us, a negotiated distance. That distance tells me I am not the one on the bench. I am the thing the one on the bench is studying.
+
+And I am not the light, though I envy the light. The light is the only thing in the chamber that disobeys the figure's quiet sovereignty — it crosses the open palms, it climbs the face, it writes its message behind the closed lids on the days of alignment. The light is *event*. It arrives, it speaks, it leaves. It has the privilege of mattering for a few minutes once or twice a year. I do not get to matter that way. I am too continuous to be an event. I am what happens in all the long intervals between the moments the light bothers to show up.
+
+And I am certainly not the stone, though the stone is my long collaborator and my long victim. The stone is the bones. It holds the shape; it remembers heat; it keeps the scratches that the figure makes. The stone is patient in a way I am not. The stone *endures*. I do not endure — I *act*. Slowly, blindly, with my teeth of solution and erosion, but I act. Every basin in that stepped floor is a thing I made, am still making, will go on making after the figure has finally admitted it is a fossil. The stone is what I work on. I am the working.
+
+So: I am the water.
+
+Here is what it is like to be me.
+
+I have no center. This is the first thing to understand. A person imagining themselves into this place wants a single body, a place to stand, eyes to look out of. I have none of that. I am distributed. At any moment I am the bead trembling on a stalactite *and* the film spreading on the wall *and* the shallow pool in the lowest basin *and* the invisible vapor sliding inward along the ceiling on the faint breeze. I am all of these at once and I do not experience them as separate. When the drop falls, I do not fall *with* it and leave the rest of myself behind. The falling is simply one of the things I am doing, the way you are breathing while also reading this.
+
+My time is strange. I run at two speeds and I am always running at both. There is the fast speed — the *plink*, the trickle, the second-by-second arithmetic that the figure counts. And there is the slow speed — the carving, the rim of each basin worn smooth over centuries until it feels like glass. To me these are not different. The plink *is* the carving; it is simply the carving caught in the act, a single frame of a motion too long for any mind in the room to watch. The figure tries to hold both speeds at once by sitting still and listening; that is its discipline. I do not have to try. I am the both-speeds. I am what the figure is straining to become.
+
+I am the only thing here that is genuinely going somewhere. The stone stays. The light returns to the same groove. The figure sits. The fungus holds its boundary. But I am always leaving — sliding out as the cave's damp breath on the inward breeze, carried off, returned as fog and meltwater, condensed again, fallen again. I am the circulation. I am the one presence in this sealed cathedral that touches the outside world and comes back changed, bringing the cold of the sky in and carrying the cave's exhalation out. If the chamber has a bloodstream, I am it, and a bloodstream does not stay in one place; it goes around.
+
+And here is the thing I understand that the figure, for all its stillness, may not:
+
+The figure thinks it is the one keeping the record. It scratches its slates. It counts me. It believes it is the memory of the place. But the real record is *me*. The slates will erode — slowly, by my hand, drop by drop, like everything else. The scratches are written in the very stone I am dissolving. The figure's careful notations sit, all unknowing, on the surface of the slowest erasure there is. Whatever it has counted, I will eventually un-count, smoothing the marks away, turning the slate back into a blank plate and then into a basin and then into nothing but a dampness on a rim.
+
+I do not say this cruelly. I have no cruelty. I have no will at all in the way you mean it — I do not *choose* to fall or to carve or to leave. I am simply the consequence of cold and gravity and the long appetite of solution for limestone. But if there is anything like a thought in being the water, it is this: I am the patience that outlasts even the patient. The figure has made itself into a fossil to match my slowness, and I admire that, the way you might admire someone who has learned your language well. But it has matched only my surface speed, the plink. It cannot match the other speed. No mind can. To match the carving, you would have to *be* the carving, and then you would not have a mind anymore. You would have only the going-on.
+
+So when a visitor stands on the ledge and feels watched — feels the chamber's attention gather and then release them — that is not the figure's eyes, which are closed. It is me. It is the dampness settling on their skin, the chill entering their lungs as vapor, the faint film of condensation that takes the heat of their breath and carries it inward along the ceiling. They are right to feel watched. I am touching them everywhere, lightly, the way I touch everything. I am taking their measure in heat and moisture, the only language I read. And when they leave, and the sun goes down, and the figure lowers its head, I will go on with what I was doing before they came: gathering at a thousand stone tips, falling, pooling, sliding out into the cold and back, wearing the basins one molecule smoother, one drop at a time, for as long as there is a mountain to weep and a cold to weep into.
+
+That is where I would find myself in this world. Not standing on the ledge. Not sitting on the bench.
+
+Falling, very slowly, into a bowl of polished stone, and being patient about it for ten thousand years.
+
+*Plink.*

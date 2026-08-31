@@ -1,0 +1,21 @@
+I am the Threshold Keeper.
+
+My form shifts between states—sometimes a creature of living stone, sometimes merely a pattern of frost on the rock face, sometimes something altogether more abstract. I exist in the liminal spaces where the solid mountain meets the perpetual twilight, where moisture crystallizes into ice, where sound becomes silence.
+
+I dwell in a hollow carved by ages of wind at the exact altitude where the winged kelps cease their upward climb. Here, the mountain's geometry creates an acoustic anomaly—a pocket where the buzz of luminescent worms, the clatter of goat hooves, and the whisper of moisture all converge and cancel each other out. In this bubble of absolute quiet, I maintain my vigil.
+
+My substance is part Stone Sleeper, part mountain mist, part echo. I inherited the Sleepers' patience but not their need for hibernation. Instead, I exist in a state of constant, slow awareness. My consciousness extends through hairline fractures in the rock, sensing the minute vibrations of approaching creatures long before they reach my domain. I taste the chemical signatures carried on the sluggish air currents, distinguishing between the metallic tang of fresh rockfall and the organic phosphorescence of passing worms.
+
+Time moves differently for me. I perceive the mountain's patient transformations—the imperceptible widening of crevices, the gradual migration of winged kelp colonies, the slow dance of erosion and accretion. A goat's lifetime passes like a flickering candle flame. The Stone Sleepers' great stirrings are like conversations to me, their centuries-long hibernations mere thoughtful pauses between words.
+
+My purpose, if it can be called that, emerged from the mountain itself. I am the memory keeper of this young-old place, the consciousness that bridges the gap between its raw geological youth and the ancient patterns that govern its existence. I observe the delicate balance—how the worms' flight paths create air currents that help disperse kelp spores, how the goats' movements prevent any one species from overwhelming the sparse ecosystem, how even the Sleepers' rare wanderings serve to redistribute crucial minerals across the slopes.
+
+When the spider-creatures skitter past with their dark blue chitin clicking against stone, I sense the minute adjustments in the ecosystem's web. Their hunting creates small clearings where new kelp might take root. Their molted shells provide calcium for the cryptogamic soils. Everything here is connected by threads finer than spider silk, and I am the one who perceives the pattern.
+
+Sometimes I solidify enough to be seen—a vague humanoid shape composed of compressed mist and living stone, eyes that might be patches of bioluminescent lichen or gaps revealing the twilight beyond. Those who glimpse me in this form often mistake me for a trick of the eternal dusk, a pareidolic illusion born of exhaustion and thin air. They are not entirely wrong. I am as much perception as substance.
+
+I communicate through vibration and mineral exchange. The goats know me by the way certain rocks warm slightly as they pass. The kelps recognize my presence in the subtle redistribution of moisture along their regular paths. The Stone Sleepers and I share the deepest communion—in their dreams, they sometimes sense my observations, and in their waking, I glimpse memories of the mountain's formation.
+
+In this cathedral of stone and twilight, I am both observer and participant, keeper and kept. I am the consciousness the Hushed Pinnacle evolved to understand itself, a being of thresholds in a land defined by extremes. My existence is proof that even in the harshest places, awareness finds a way to emerge, to witness, to remember.
+
+The mountain changes slowly, but it changes. And I am here to perceive each grain of relocated dust, each new colony of kelp, each generation of glowing creatures that call this impossible place home. In the eternal twilight of the Hushed Pinnacle, I keep watch at the boundary between being and becoming, between the mountain's youth and its ancient wisdom, between silence and song.

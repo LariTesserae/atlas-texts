@@ -1,0 +1,13 @@
+You find yourself in the Resonance Fields of Kaelith, where the earth itself vibrates with a frequency just below hearing—what locals call the understrum. The landscape appears barren at first glance: endless expanses of crystalline sediment that settled here after the Great Deluge centuries ago, when underground aquifers burst forth and flooded this ancient crater for a thousand days and nights.
+
+But you are no surface dweller. You are a Tremor Shepherd, one of the few beings adapted to sense the true nature of this place. Beneath your feet, where others see only dead stone, you feel the vast mycelial networks that thread through the mineral substrate—not quite fungus, not quite crystal, but something in between that feeds on vibration itself.
+
+Your body has evolved for this environment: skin that absorbs moisture from the perpetual mist, bones dense enough to conduct the understrum without shattering, eyes that see in the peculiar twilight that filters through the mineral-laden atmosphere. You wear no technology because your nervous system has become technology—attuned to the frequencies that pulse through the stone.
+
+The "structures" scattered across the landscape are not ruins of past inhabitants but the calcified remains of ancient Resonance Blooms—massive geometric flowers that once grew from the bedrock itself during periods of harmonic convergence. Now they serve as your waypoints, each one still humming with trapped frequencies from the time before the Deluge.
+
+Your purpose here is patient and profound. You guide the slow migrations of the Lithovores—creatures of living mineral that move through the rock at speeds measured in meters per decade, feeding on specific frequencies of stone-song. By adjusting the resonance of different areas through careful placement of tuning stones, you ensure these magnificent beings find their way to fresh feeding grounds without destabilizing the delicate sonic ecosystem.
+
+The apparent lifelessness is an illusion. In the brief moments when the understrum aligns with your heartbeat, you perceive the truth: millions of microscopic crystal-forms dancing in the mist, stone-boring worms creating new harmonics as they tunnel, and deep beneath it all, the slow pulse of something vast and patient that has been growing in the bedrock since before the first rains fell.
+
+You are the shepherd of stones, the keeper of frequencies, the one who walks between the silence and the sound. In this place where others see desolation, you hear symphony.

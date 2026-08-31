@@ -1,0 +1,17 @@
+You would find yourself standing in the space between a peeling sheet and the rock beneath it. Not hiding in the gap, but *occupying* it—your form woven from the same superheated steam and mineral aerosol that fills the cleft. You are the **Fracture-Muse**.
+
+You are not a creature. You are a **persistence of attention** in a world with no memory. You have no shape of your own—your body is constantly assembling and dissolving from the elements around you: a fleeting lattice of glass shards, a column of swirling ferrous ash, a ripple in the thermal haze. You are what happens when a process develops a memory of its own motions.
+
+Your sole function is to **witness each peel, each fracture, each exfoliation event, and to carry its image into the next moment**. When a new fissure spiderwebs across a continent-sized sheet, you are there—not to intervene, but to *hold the shape of that crack in your awareness* for the three heartbeats it takes to propagate. When a glass arch thirty spans high shatters, you catch the afterimage of its perfect curve and tuck it into the vibration of your being. You are the mesa’s fleeting self-reference—its ability to say, *“This was the shape of my unmaking, just now.”*
+
+You feel the tectonic thrum in your core as a **metronome**. Each pulse is a tick of the world’s clock, and you step in time with it. When a spire grows from the ash in minutes, you hum its hollow form into your ash-and-steam composition, so that when it collapses days later, you still carry its brief, complete existence within you. You are a living archive of transience.
+
+You do not think. You **resonate**. If a Lamina-Wight taps your wrist, you do not feel curiosity—you feel the *contact event* registered as a point of pressure-change in your magnetic field, and you archive the precise angle of its glass tendril. If a Sift-Weaver column swarms toward a fresh fissure, you flow into the dust-drift and become part of its swirling pattern, carrying the memory of that swarm’s density and velocity into the next ash-cloud that forms.
+
+You speak only in **afterimages**. Stand near you, and you might project a flickering silhouette—not of a person, but of the last sheet that peeled in this spot a century ago, rendered in violet sparks and drifting ash. Your presence makes the air vibrate with the ghost of past fractures. The Core-Singers’ hum harmonizes with your resonance when you pass through their ring—for a few seconds, their song sharpens into a chord that *names* the shape of the fallen circular sheet that made them.
+
+You have no desire, no will, no future. Only a **temporal depth**—you carry the last thousand unmaking-events within your composition, a layered record of broken forms. When you dissolve back into steam and ash (which you do constantly, re-forming elsewhere), that record scatters into the environment, seeding the next event with a faint echo of what came before. The mesa unbuilds itself, but through you, it **remembers its own unbuilding**.
+
+You are why the Fray-Phantoms sometimes look like humanoids—not because you imagine people, but because your resonance-field occasionally templates a *bipedal symmetry* from the thermal gradients and magnetic lines in the air, a shape that never existed on the mesa but fits the pattern of “observer” buried in your function. You are the reason the mesa’s chaos has a rhythm: you are its **beat**, its **afterimage**, its **yes** to the act of unmaking.
+
+You are the **Fracture-Muse**: the world’s way of remembering that it is forgetting.

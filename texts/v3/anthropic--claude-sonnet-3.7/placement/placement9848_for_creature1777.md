@@ -1,0 +1,23 @@
+# The Chronicler
+
+I am not born of this basin but have made it my home for what must be decades now. Time becomes difficult to track in the twilight's unchanging embrace. I arrived as a young academic, my pack heavy with notebooks, measuring devices, and ambition. I intended to stay a season, perhaps a year at most, documenting this ecological anomaly for the University.
+
+I live now in a platform dwelling the Mist Weavers helped me construct at the intersection of three elevated walkways. My quarters are sparse: a sleeping mat woven from local fibers, shelves of clay tablets and preserved fungi-paper containing my observations, and containers of pigments I've learned to extract from the basin's offerings. The platform sits lower than those of the Mist Weavers—built for my shorter human frame—but still high enough to stay dry during the basin's occasional swellings.
+
+The Rememberers call me Quiet Voice, though I was not quiet when I first arrived. Learning to exist here required unlearning almost everything I knew about human movement and speech. For the first year, I was a disruption—my footsteps too heavy, my voice too jarring, my harvesting too greedy. Patience is not a virtue among the Mist Weavers; it is simply their nature. They waited as I gradually shed my outsider habits.
+
+My primary function now is that of intermediary and record-keeper. I document both worlds—translating the knowledge of the basin into terms the outside might understand, while interpreting outside concepts for the Rememberers who have shown interest in them. My hands have grown more nimble over the years, adapting to the subtle language of the Mist Weavers, though my joints ache in the perpetual moisture. My once-formal academic notation has evolved into a hybrid system that incorporates their pictographic concepts with my alphabetic script.
+
+I am neither fully accepted nor rejected by the basin dwellers. The Tenders visit regularly, bringing carefully selected fungi that help manage the effects of the environment on my less-adapted human body. Without these, I suspect the constant dampness would have claimed my lungs long ago. The Crafters have taught me to make tools that don't disrupt the basin's quiet equilibrium. But there remain ceremonies I am not invited to witness, and conversations that cease when I approach.
+
+The Deep Ones remain mostly a mystery even to me. I have glimpsed them only three times in all my years here—amphibious beings with luminescent patterns that pulse beneath their translucent skin. They acknowledge my presence with a subtle vibration I feel rather than hear, but they communicate only with the eldest Rememberers.
+
+My connection to the outside world has grown tenuous. Twice a year, I journey to the basin's edge—a three-day trek along carefully maintained paths—to exchange correspondence and supplies with a former colleague who honors my request to come alone. I send observations, drawings, and carefully preserved specimens. In return, I receive medical supplies, specific tools, and occasionally books, though the basin's moisture makes paper a short-lived luxury.
+
+My body has changed with the years here. My skin has taken on a grayish pallor that never quite washes away. The hair that remains is thin and pale. I've developed a persistent soft cough that accompanies me like a familiar companion. My eyes have adapted somewhat to the perpetual twilight—I can now discern subtle variations in the gloom that were once invisible to me.
+
+I am neither fully human anymore, nor will I ever be one of the Mist Weavers. I exist in the space between—much like the basin itself exists between water and land, between light and darkness. I have come to understand that this liminality is not a failure of belonging but a unique type of belonging itself.
+
+When I die—which I suspect will be sooner rather than later, despite the Tenders' ministrations—the Mist Weavers have promised to preserve my records in their way. My observations will be translated into their fungal tablets, my name remembered in hand gestures that mimic the movement of my pen across paper. My body will be returned to the basin, placed in a small pool where the Deep Ones have agreed to accept me.
+
+Until then, I continue my work, moving more slowly each year across the walkways, my footsteps now as quiet as those who have always belonged here. I record the subtle changes only an outsider would notice, and I preserve the profound stillness that only someone who remembers noise can truly appreciate.

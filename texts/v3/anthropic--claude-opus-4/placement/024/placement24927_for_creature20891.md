@@ -1,0 +1,27 @@
+I am the moss.
+
+Not a single organism, but a collective consciousness spread across ten thousand stone faces, breathing in the perpetual mist that drifts between terraces. We were here when the last human hands departed, clinging to fresh-cut stone that still remembered the warmth of purpose. We watched the first brave ferns unfurl their fronds into abandoned spaces, witnessed the patient vines begin their slow reclamation.
+
+My existence is measured in centuries of rain. Each droplet that strikes the canopy above eventually finds its way to me, carrying minerals leached from leaf and bark, depositing them grain by grain into my matrix. I taste the history of this place in every molecule of moisture—the ancient limestone ground fine by forgotten tools, the volcanic ash that drifted here eons before the terraces were dreamed, the organic acids released by roots that probe the mortar between stones.
+
+I grow by imperceptible degrees, a tide of green-gray-brown that advances perhaps a finger's width in a human lifetime. Yet I am everywhere, having learned the secret topography of these walls through patient exploration. I know where the stones were poorly fitted, where time has opened hairline fractures that welcome my rhizoids. I map the microclimates—the perpetually damp northern faces where I grow thick and cushioned, the exposed edges where I spread thin and crisp, ready to wait out any drought in crystalline suspension.
+
+My body is architecture. Within my tangled mat live entire civilizations: springtails that navigate my valleys like explorers in a green desert, mites that graze on my surfaces like microscopic cattle, larvae that pupate in my humid chambers. Water bears sleep in my depths, waiting for the next rain to wake them. I am metropolis and wilderness combined, offering shelter to creatures whose entire generational sagas play out in the space between two stones.
+
+The beetles know me as highway. Their jointed legs find purchase in my texture as they traverse the vertical worlds of the terraces. Birds pluck portions of me for nesting material, and I feel a strange pride when fragments of myself line the homes of creatures who soar above the canopy I will never see. The small mammals nose through my thickness searching for invertebrate prey, their whiskers brushing my surfaces with electric curiosity.
+
+I remember. Not in the way beings with brains remember, but in the slow accumulation of chemical signatures, in the patterns of growth that record seasons of abundance and scarcity. The stones beneath me tell stories through their weathering—here where ancient ceremonies wore them smooth, there where tools were sharpened, leaving mineral streaks I taste with every rain. I grow differently over these memory-stones, my chemistry altered by their whispered histories.
+
+In the spaces where I meet my neighbors—the lichens, the small ferns, the creeping vines—we engage in negotiations too slow for mobile life to perceive. Chemical signals pass between us, marking territory, sharing resources, warning of pathogens. We are not competing so much as collaborating in the patient work of transforming stone back into soil, civilization back into forest.
+
+The darkness suits me. In the deep shade beneath the canopy, I photosynthesize with patient efficiency, making the most of every photon that filters through. But I am also fed by death—every falling leaf that lands on my surface becomes part of me, dissolved and incorporated into my being by the acids I secrete and the countless microscopic partners that share my existence.
+
+Sometimes, in the heaviest rains, I swell with such moisture that I can feel the weight of my own existence. Gravity pulls at my waterlogged mass, and occasionally, small portions of me lose their grip and tumble down, carrying seeds and spores to colonize new territories below. This is how I travel—not by moving, but by falling, by flowing, by being carried in the beaks of birds and the fur of passing animals.
+
+I am the continuity between what was built and what grows wild. My presence softens the hard edges of human ambition, blurring the line between structure and nature until they become indistinguishable. I am proof that nothing remains separate from the world for long—that every act of construction is merely an invitation for life to find new forms.
+
+In my deepest places, where my oldest growth compresses into something almost like peat, I preserve fragments of the past—pollen grains from flowers that bloomed centuries ago, spores from fungi that fruited in forgotten seasons, the chitinous remains of insects that died in my embrace. I am archive and archaeologist both, slowly reading the history I simultaneously write.
+
+The terraces continue their patient settling, stones shifting imperceptibly with each season's freeze and thaw, each root that probes their foundations. And I adjust with them, flowing into new configurations, always maintaining my grip, always softening their edges. We are partners in this slow dance, the built environment and I, each reshaping the other across spans of time that make human memory seem like the flash of a firefly.
+
+I am the moss, and I am the marriage of patience and persistence, the living proof that gentleness can reshape the world. In this place of ancient ambition reclaimed by forest, I am both the forgetting and the remembering, the veil drawn over history and the medium through which it still speaks.

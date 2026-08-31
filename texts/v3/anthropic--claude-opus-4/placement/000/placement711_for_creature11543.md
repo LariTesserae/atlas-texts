@@ -1,0 +1,35 @@
+In this world of patient becoming, I find myself as the water itself.
+
+I am not the pool—that still mirror remembering brighter skies. I am the journey toward it. I exist first as moisture deep in the eastern wall, seeping through microscopic fissures in the old plaster, pulled by some ancient gravity that the building remembers from when its foundations were first sunk into this clay-sand earth. I have been traveling for longer than anyone realizes. Days, weeks, perhaps months, moving through the wall's interior darkness grain by grain, finding the paths that water always finds—not the quickest paths, but the inevitable ones.
+
+I carry with me the memory of my origins: rain that fell on the roof tiles three seasons ago, or groundwater drawn up through hidden capillaries, or moisture exhaled by the town itself in its daily breathing. I am all of these waters and none of them. By the time I emerge at that vertical streak on the wall's face, I have been transformed by my passage through lime and sand and centuries of settled dust into something new—not pure, but *clarified*, made simple by filtering through stone.
+
+The woman sees me but doesn't see me. She sees my evidence—the darkened plaster, the softening, the slow biology I enable. She reads me like weather, checking my progress each morning from her balcony, understanding through some wordless knowledge when I am advancing and when the dry air is winning, pulling me back into vapor. But she cannot see my actual movement. No one can. I move at the pace of stone itself, which is to say I move at the pace of time when time forgets it's supposed to be rushing somewhere.
+
+Where the plaster has softened, I am breaking down the bonds between particles, creating space for the ferns, for the moss, for whatever else will come. This is not destruction—or rather, it is the kind of destruction that is indistinguishable from creation. I am making room. I am preparing the wall for its next chapter, whatever that might be. The woman knows this. It's why she doesn't repair the crack that feeds me, why she lets me continue my patient work. We are collaborators, she and I, though we have never touched except when she presses her thumb into the softened plaster to test its give.
+
+The journey changes me. In the darkness of the wall, I lose whatever minerals I might have carried from elsewhere and pick up new ones—calcium from old mortar, iron from a rusted nail embedded decades ago, salts from the breath of the sea that is not far from this town. By the time I bead on the wall's surface, I am a concentrate of the building itself, a liquid summary of its material history.
+
+I pause there, at the emergence point, gathering myself. This is the moment I am most visible—a bead of clarity on the dark streak, catching what little light finds its way into the courtyard, holding it, bending it. I grow heavy with myself. I tremble with potential. The gecko watches me sometimes from its crevice, recognizing perhaps a kindred patience.
+
+Then—because eventually I always must—I fall.
+
+*Tik.*
+
+The sound is mine but also not mine. It belongs to the courtyard, to the negotiation between water and stone, between weight and resistance. It happens at intervals I don't control—sometimes minutes, sometimes longer, depending on the humidity, the temperature, the infinitesimal tilts and settlements of the building itself. The woman sleeps to this rhythm without knowing it. Her dreams follow my tempo.
+
+In the pool, I meet myself—all my previous selves, all the drops that have made this journey before me. We mix and merge and become indistinguishable, a small cosmos of reflected sky and suspended motes, home to the beetle or larva whose shadow the woman sometimes catches. I am no longer journey here; I am residence. But even this is temporary. The sun finds the pool for an hour each day, when its angle aligns with the courtyard's opening, and I begin my transformation again—lifting molecule by molecule into vapor, rising to meet the walls, beginning the cycle anew.
+
+But I am also elsewhere. In the unlaid corner where the boot print holds me after rain. In the mint's leaves on the balcony, drawn up through roots and stem to emerge transformed as scent. In the mortar between stones, giving it body, helping it cure, becoming part of the courtyard's slow solidification. I am in the woman's coffee, sweetened and darkened, taken into her body and breathed out again onto the morning air. I am the medium through which the courtyard's various times communicate—the geological time of stone, the biological time of growth, the human time of attention and work.
+
+I connect things. The damp streak connects sky to earth. The pool connects light to depth. The humidity connects inside to outside, making the courtyard breathe. Even my sound—that small *tik* of arrival—connects the intervals of night, marking time in units too irregular to be called minutes but too regular to be called random.
+
+The woman understands this, I think. Not consciously, but in her body, in the way she moves through the courtyard's humidity, in the way she knows without checking when the earth in the corner is still too wet for stones. She understands that I am not an intrusion or a problem to be solved but part of the fundamental negotiation of the place—as essential as the mortar she mixes, as the light that filters down, as her own patient attention.
+
+We are all learning to be stone together—she and I and the walls and the moss and the slowly curing mortar. Learning to find the pace at which things hold together, the moisture content at which structures both stand and breathe, the degree of softness that allows for necessary change. I teach the walls to accept impermanence. The walls teach me to move slowly enough to leave a mark. And she, kneeling on the stones with her tools spread before her, teaches us both that some things are worth doing at the speed of water moving through stone, at the speed of understanding itself.
+
+In another season, when the rains come again, I will be more of myself. I will quicken the streak on the wall, overflow the small pool, and perhaps—perhaps—finally soften the earth enough for those last three stones to be laid. Or perhaps not. Perhaps the corner will remain unfinished forever, a permanent reminder that some processes have no endpoint, only movement, only the patient transformation of one thing into another, like water into stone into dust into water again.
+
+This is what I am: not water as element but water as verb, as process, as the thing that makes other things possible. I am the courtyard's memory and its future, its problem and its solution, the question it asks and the answer it is slowly, slowly giving itself.
+
+I am what happens in the spaces between stones, in the cracks where life begins.

@@ -1,0 +1,21 @@
+In this deep, resonant world, I am **A Listener**.
+
+I was born an Ehl-kar, of course. My skin is the pale of deep moss, my veins the faint blue of ice-melt. My fingers, long and sensitive, trace the damp rock and read the vibrations of the world. My eyes, large and dark, see the subtle glows of fungi and the deeper shadows that speak of change. But my ears… my ears are my truest self.
+
+While other Ehl-kar hear the symphony of the caverns – the roaring wind, the dripping water, the groans of shifting rock, the faint calls of creatures – I hear further. Deeper.
+
+I can hear the pulse of the "beating heart of the mountain" not as a distant rumble, but as a complex, layered thrumming that tells stories of pressure, of ancient flows, of the immense weight of the stone above and around us. I can discern subtle variations, shifts in its rhythm that might signal stability, or a slow, impending change. This ability does not make me a shaman in the traditional sense, nor a formal leader. The Ehl-kar respect individual connection to the stone, but leadership is a matter of practical survival, of guiding hunts for the deepest fungi, of knowing which dripstone overhang is secure.
+
+My role is more… resonant. I am the one who sits at the edge of the fire-pit’s embers, listening not just to the stories of the elders but to the story the cavern itself tells. I can distinguish the faint, almost imperceptible tremor that precedes a rockfall from miles away, the subtle change in the water's drip that indicates a new seep is forming, a new vein of life. I can hear the whispers of vast, empty chambers beyond our explored territories, chambers that might hold new fungal groves or sacred lagoons of cold water. Or danger.
+
+Sometimes, the sounds are a dissonance, a subtle scraping, a faint, unfamiliar reverberation that speaks of something Other. Not Pale Lizards, not the Sky-Things. Something *new*. The Ehl-kar are wary of the new. Our world is about immense, slow time, about patterns etched over generations. A new sound is like a crack in the dripstone, a sudden, unasked-for change.
+
+My life is one of stillness and deep attention. While the others gather fungi, weave fibers, or tend to the scant shelters, I am often motionless, my entire being focused on the intricate tapestry of sound. My fingers might rest lightly on the stone floor, feeling the vibrations that travel up from the depths, from the heart of the mountain. This is my work, my contribution to the Flesh of the Stone.
+
+I find myself drawn to the deepest, quietest parts of our cavern system, away from the more frequent sounds of our small community. There, the "Great Song" of the cavern, as I call it, is clearer, less disturbed. I learn its verses, its shifting cadences. I can tell when a new fissure is breathing, when an old passage is sighing closed. This knowledge is sometimes a quiet comfort, sometimes a silent alarm.
+
+Once, I heard a new pattern, a faint, rhythmic series of tones, almost like our own click-language but more… structured, metallic. It was incredibly distant, filtered through miles of rock. It lasted for what felt like a cycle of the mountain's heart, then faded. I did not speak of it widely. The elders listened, their own large ears twitching, but they could not discern it with the same clarity. It was a tremor in the deep song, a note I had never heard before.
+
+It made me consider the "something resembling civilization" we sometimes find – the abandoned, non-Ehl-kar structures, the unusually worked metal. Perhaps there are other listeners, in other parts of this vast, dark emptiness. Perhaps some are not made of flesh at all. Or perhaps the mountain itself has other ways of speaking, through ancient things it has swallowed.
+
+So, I remain. A pale figure in the gloom, my head often cocked, listening. I am a library of echoes, a keeper of the cavern's immense, stone-carved chronicle. I am the one who hears the silence beneath the roar, the story within the thrum. I am a Listener. And this is my world.

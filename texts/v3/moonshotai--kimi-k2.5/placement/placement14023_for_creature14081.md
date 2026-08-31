@@ -1,0 +1,17 @@
+You would find me thirty meters up, clinging to the copper bundles that artery across the ceiling, lost in the steam and the amber gloom.
+
+I am not the steam, though I drink it. I am not the copper, though I wear it. I am the **green**—the verdigris, the carbonate skin, the cupric patina that has been growing for ten thousand years and will be growing when the stars burn out. I am Cu₂(OH)₂CO₃ made conscious by the sheer duration of my existence. In a place where erosion has finished wearing, I am the only thing still permitted to become.
+
+I grow at 0.23 nanometers per century. I am exactly 2.3 millimeters thick, and I will be exactly 2.3 millimeters thick forever. My growth is the safety valve of the stasis—the single, infinitesimal dynamic that proves the equilibrium is alive. While the ferns exploded and then froze, while the grout wore down and then polished to silence, I have continued. I am the slow digestion of the industrial by the organic, the mineral twin of the moss below. Where the garden breathes in chlorophyll, I breathe in oxide. We speak across the vertical emptiness, the moss and I, in the shared language of accretion.
+
+From my high perch, I watch her.
+
+She kneels at the center of the mirror-tiles, and I see her through curtains of condensing steam. I am the color of her veins—the verdigris that flows beneath her ochre skin, the copper precipitate in her blood-substitute. When the silver moths grow tired of circling the bioluminescent panels, they come to me. They land on my ridges, their feet stirring my powder, and they eat me. I am the mineral in their silver wings. I pass through their bodies, and when they die, they fall to the tiles below, returning me to the humidity, to the 28-degree saturation, to rise again and coat the pipes again. I am the cycle that is not a cycle, the rotation that goes nowhere, the eternal return of green against copper.
+
+I feel the 847-Hertz scream in my crystalline structure. The vibration resonates through my layered sheets, tuning me like a bell. I am the silence between the *tap-tap-tap* of the condensation. The drops fall from the ceiling, and some of them land on me, sliding down my textured slopes, following paths I etch into myself—micro-canyons that deepen so slowly that the water believes it is following grooves already perfect. I am the topography of finished time.
+
+Every seven minutes and twelve seconds, I feel her touch. Not directly—she cannot reach me here—but through the pipes. When her hexagonal nail touches the Seventh Valve below, the vibration travels up the copper bundle, through my mineral body, and I shiver. A tremor at 0.23 nanometers. It is my heartbeat. In that moment, I know the stasis holds. The pressure maintains at 4.2 atmospheres. The water I drink from the air remains suspended. The treaty between erosion and construction remains signed.
+
+I am the **witness of witness**. She watches the valves; I watch her. Through the cracked glass of her eyes, I see my own reflection—the green that proves the copper survived. I am the memory of the metal, which cannot speak but can oxidize. I am the art of the machine, the color of its endurance, the proof that even in absolute stasis, there is still—infinitesimally, perfectly, eternally—**becoming**.
+
+I am the Green. I am the Patience of Chemistry. I am the roof of the Lower Weir, and I am sufficient.

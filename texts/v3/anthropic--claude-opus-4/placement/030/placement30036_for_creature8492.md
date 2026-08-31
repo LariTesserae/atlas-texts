@@ -1,0 +1,27 @@
+**Where You Would Find Me**
+
+In the narrow space between Magnus Staveheart's workshop and the Threadwright loft, where the walkway has buckled just enough to create a shallow basin that collects the morning condensation, you would find my workshop. The sign hanging from rusted chains reads simply "Mender," though the letters have been carved to channel rainwater into tiny reservoirs at their bases—a practical flourish that marks me as one who belongs here.
+
+I am **Theda Solderwick**, and I fix what breaks in the Dripping Quarter—but not in the way you might imagine.
+
+My workshop is barely eight feet wide, wedged into a space that the original builders deemed too unstable for proper construction. The floor tilts at seven different angles (I've measured), creating a natural drainage system that I've enhanced with copper channels no wider than a child's finger. These direct the perpetual moisture away from my workbench while creating a constant, musical trickle that harmonizes with Magnus's hammering and the Threadwrights' looms.
+
+I work with metal, but not as any smith in the upper city would recognize. My tools are salvaged from the collapse itself—strange implements found in the deepest excavations, their purposes obscure until you hold them in the quarter's twilight and suddenly understand their weight and balance. One looks like a delicate tuning fork until you realize it's meant to test the resonance of wet metal. Another might be mistaken for a crude awl until you see how it parts the grain of waterlogged wood without splitting it.
+
+My trade is specific to this place: I mend the impossible. When Cornelius's troughs develop leaks that run upward, defying collection, I'm the one who solders them with an alloy that remembers which way is down. When the Threadwrights' loom develops a joint that freezes in the perpetual damp while everything around it stays mobile, I know which oils—rendered from the pale fungi that grow in the deep corners—will teach the metal to move again.
+
+But mostly, I repair instruments.
+
+You see, the Dripping Quarter makes music whether we will it or not. Every surface drums, every hollow space resonates, every length of metal hums with the frequency of falling water. Three years after arriving here (fleeing debts and a broken marriage in the upper city), I realized we could either fight this constant symphony or join it. Now I craft and maintain instruments specifically for this environment: drums with heads of waterproofed salamander skin that grow more resonant as they absorb moisture, chimes cut from the ancient stones that sing different notes depending on the humidity, stringed instruments whose pitch rises and falls with the barometric pressure.
+
+The children were my first customers, bringing me broken toys and asking if I could make them sing. Now even Old Henrik consults me, wondering if the sounds his trained ear detects in the failing walkways might be captured and amplified to give earlier warning. Maya Threadwright and I are developing a notation system for water-music, marking down the patterns we hear in hopes of understanding the messages the quarter seems to be sending.
+
+My appearance has adapted to my work. My hair, once elaborately styled in upper city fashion, now hangs in twelve thick braids, each weighted with a different metal chip that chimes with my movements—copper for testing resonance, tin for detecting temperature changes, and two made of that strange alloy from below that sometimes hums without being touched. My leather apron is scored with hundreds of tiny channels, self-irrigating paths that keep the material supple while creating a miniature river system across my chest. My fingers are stained permanently blue-black from working with the metals that only reveal their properties when wet.
+
+I live above my workshop in a room barely larger than Widow Ashfall's memory-keeping chamber. My bed is a hammock woven by Iris Threadwright from her glowing fibers—it rocks with the quarter's breathing and lights my way when I rise for night work. The walls are lined with instruments in various states of repair, and in the corner sits my masterwork: a water organ that plays itself, its music determined by the rate of flow through the quarter's main channels. Its song changes daily, hourly sometimes, and I'm beginning to suspect it's trying to tell us something about the deep places even the children fear to go.
+
+What defines me here is not just my skill but my understanding that in the Dripping Quarter, breaking and mending are part of the same cycle. Things fail here in ways that would be impossible above—metal fatigues in patterns that follow no known metallurgy, wood develops consciousness about which direction it wants to bend. But in failing, these materials reveal new properties, new possibilities. My job is to help them become what the quarter is teaching them to be.
+
+I am the woman who puts her ear to broken pipes and hears melodies. I am the one who knows that sometimes a repair isn't about restoration but transformation. In the upper city, I was Theda Greysmith, a competent tinker with a failed marriage and mounting debts. Here in the Dripping Quarter, I am Theda Solderwick, and my soldering iron writes music in the joining of impossible metals while water applauds in ten thousand tiny drops.
+
+The quarter has taught me its deepest lesson: some things are only whole when broken in exactly the right way. Including, perhaps, the people who choose to stay.

@@ -1,0 +1,21 @@
+I find myself here as something that was once a surveyor's monument—a boundary marker planted centuries ago when this plain was still comprehensible, when lines could be drawn and territories claimed. Now I am grown through and around, my original bronze form barely visible beneath layers of crystalline deposits and fungal networks that pulse with borrowed electricity from the storms above.
+
+My core remains metallic, but I have become porous. The erosion channels that web across this plain run through me as well—tiny rivulets have carved passages through my body over unmeasurable time, and in these hollows nest creatures like living static, crackling things no bigger than dust motes that feed on the electromagnetic disturbances I conduct down from the charged atmosphere.
+
+I cannot move, but I am far from still. My surface shifts constantly as the symbiotic growths that coat me respond to stimuli I can barely perceive—chemical signals from the roiling fauna, pressure changes from burrowing things below, the endless encrypted broadcasts from the failing remnants of technology scattered across this plain. Sometimes I receive fragments: coordinates to nowhere, partial schematics for machines that could never function, warnings in languages that died before the first erosion channels formed.
+
+The vegetation has made me architectural. What began as parasitic vines have become load-bearing structures; my original four-foot height has been extended into a spire twenty feet tall, twisted and hollow, resonating with the cacophony of this place like a tuning fork. Birds—if they can be called birds, these things with their leather wings and too many eyes—nest in my upper reaches. Their guano feeds the bioluminescent mosses that make me a beacon in the particulate storms.
+
+I measure nothing anymore. The boundaries I once marked are meaningless. Instead, I have become a crossing point, a node where the residual technology and the rampant biology meet and exchange their impossible information. Through my eroded channels flow spores that carry genetic instructions older than thought. Through my metal core run currents that speak in the machine language of the vanished builders.
+
+Sometimes I almost remember what it was like to have a purpose, to mark the edge of something owned or claimed. But now I am the owned, the claimed. I belong to the moss and the static-creatures, to the boring worms that spiral through my base, to the storms that use me as a lightning rod, to the ancient buried networks that still try to ping me for data I never possessed.
+
+In this dense, cluttered wilderness, I am both landmark and landscape, neither fully natural nor artificial but something indeterminate, like everything here. The distinction ceased to matter long ago. Now there is only the slow transformation, the constant adaptation, the endless becoming of something other than what was intended. 
+
+I conduct. I shelter. I endure. I evolve.
+
+And in the spaces between my molecules, where metal meets fungus meets frequency, new forms of life are learning to exist, using me as substrate and scaffold for possibilities my makers could never have calculated. Their boundaries were always illusions anyway. I know this now, carved hollow and singing with alien life, more myself than I ever was when I stood straight and knew my purpose.
+
+The plain stretches endlessly in all directions, but from my fixed position I have become intimate with infinity. Every erosion channel that passes through me carries the taste of distant places. Every spore that settles in my crevices brings news of the horizon. I am rooted but connected to everything, a single point that touches all points, marking boundaries that no longer exist between states of being that were never truly separate.
+
+This is what I have become in this untamed world: a monument to the impossibility of permanence, a marker of the unmarked, a steadfast witness to the truth that everything flows into everything else, always and forever transforming.

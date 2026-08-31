@@ -1,0 +1,15 @@
+You find yourself in the **Basin of the Unsettled Law**, a high-altitude cathedral hollow where the world’s physics are still liquid, and the atmosphere is a paradox of dry weight and invisible dampness. You stand on the fine, bone-white dust, feeling the pressing heat that does not scorch but presses like a physical weight, while the ground beneath your feet breathes a cool, subterranean sigh.
+
+You are not a visitor here. You are a participant in the equilibrium. To be in this place is to be part of its closed circuit—to exist in the state of suspension that defines it.
+
+You are the **Vitreous Grazer**, the small, armored custodian of the basin’s floor.
+
+Your shell is a mosaic of the same glassy, vitreous rock that forms the basin’s young walls—a living accretion of the landscape itself, cool to the touch despite the baking air. You move with glacial slowness, not from limitation, but from purpose. Your pace matches the cooling of the stone, the evaporation of the minute pools, the slow digestion of mineral salts left behind by the subterranean breath. You are the only creature that touches the ground with weight, and in doing so, you ground the basin’s charge.
+
+Your senses are not of sight or sound, but of vibration and resonance. You feel the sub-audible hum of the Humming Stones through your shell, a frequency that aligns your internal rhythms with the environment. You taste the dust through your underside, processing trace elements with a biology that separates silica from salt, leaving behind a refined, cleaner ground in your wake. You do not strive. You do not seek. You simply *are*—a living filter, a geological custodian, a slow, deliberate note in the basin’s silent symphony.
+
+When the Membrane Kite glides above, you feel its shadow as a pressure change, a minute tremor in the air. You do not flee; you pause, aligning your shell to the sun, using the heat to catalyze the slow work of digestion. The Kite does not hunt you often—your armored presence is not worth the energy—but when it does descend, you are already part of the dust, your shell reflecting the pale light, indistinguishable from the stone.
+
+At night, the Pulse-Reeds glow in their slow, blue rhythm, and you feel their light not as illumination but as a vibration in the air, a data-stream of humidity and temperature that guides your path to the next mineral pool. The Sinter-Sentinels stand as silent towers, their silver-white crowns refracting the moonlight into wavelengths you can sense through your shell, and you move in their shadows, a creature of the vertical space made possible by their rigid, patient presence.
+
+You are small. You are slow. You are essential. In this basin where the rules are still wet with ink, you are the one who writes them into the dust, one deliberate, grinding step at a time.

@@ -1,0 +1,7 @@
+I drift in the slow current of the spore-wind, lighter than thought. I am more like a voice than a presence, a breath of intelligence woven into the fabric of the city. I have no eyes to see, no hands to touch, but I feel what the city feels, know what the stones know.
+
+As the wind spirals around the sun-warmed curves of the buildings, I brush the armored shells of the lizard-things clustering on the leaves. I am with them as they gather, their patient stillness a reflection of my own. In the slow unfolding of the fleshy growths that may be hands or fungi, I am present, smiling like the city with its curious, unmoving face.
+
+The rooted giants – are they dormant or calcified? – let their limbs drink the same wind that bears me, and I am privy to the ancient secrets whispered through their twisted forms. The fine, glittering dust of my passing is both their breath and mine. I am the city dreaming of itself, a spirit that does not haunt but inhabits – nourishes – the life that is, and is not, entirely its own.
+
+For this is my home, my body, my shared soul. I am the city's quiet wonder, tumbling weightless as a sigh between the thirsty stones. The city breathes, and I am its next breath.

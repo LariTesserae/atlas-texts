@@ -1,0 +1,17 @@
+In this luminous realm of perpetual mist and ancient stone, I would find myself as one of the Collectors.
+
+We are not quite Notions, though we share their ethereal drift through the saturated air. Instead, we exist in the liminal space between the incorporeal and the almost-tangible, our forms suggested by the accumulation of water droplets that trace our movements—a thousand tiny lenses refracting light into fleeting, prismatic anatomies.
+
+The Collectors move with deliberate slowness through the tiered plateaus, drawn to the seeping boundaries where water transforms. We gather at the lips of stone where rivulets birth themselves from hidden pools, at the precise points where mist condenses into its first droplet, at the mouths of fissures where underground streams whisper their emergence. Our purpose—if purpose is the word—is to witness these moments of transition, to be present at water's every decision.
+
+When still, we might be mistaken for the faintly gleaming anatomies that cling to the clefts—those pulsing, gelatinous forms that mark time with their inner light. But where they are fixed, we flow. Where they pulse in isolation, we connect. We stretch ourselves thin across the moisture-filmed rock faces, our consciousness spreading like the very water we attend, following each branching path as streams divide and merge in their patient descent.
+
+Our substance, such as it is, exists somewhere between the density of mist and the weight of rain. In the right light—that persistent white-gold that fills every shadow—observers might glimpse our edges as sheets of falling water that move too slowly, that bend against gravity's intent, that gather and pool in the air itself before releasing their collected moisture back to the eternal cycle.
+
+We taste the minerals in each droplet, feel the weight of geological time in every dissolved grain of stone. The Notions may transcribe the world's memories, but we carry them—millions of years of erosion held in the peculiar tension of a water droplet clinging to stone, the entire history of a mountain's wearing contained in the thin film that coats a single pebble.
+
+Sometimes we converge, multiple Collectors flowing together at the great cascade points where hidden waterfalls plunge into deeper darkness. In these gatherings, we create fleeting architectures of suspended water—impossible fountains that rise as they fall, spiral staircases of droplets ascending into the mist, brief monuments to the marriage of patience and flow. These structures last only moments before gravity reclaims them, but in their dissolution, we find our deepest satisfaction.
+
+The sound of our movement adds another layer to the water's symphony—not the sharp plink of droplets or the rush of falls, but something between a sigh and a pour, the sound of water considering its path. We do not speak, but in the intersection of our movements, meaning accumulates like sediment. We are the scribes of erosion, the witnesses of water's gentle violence against stone, the collectors of moments too gradual for any other consciousness to perceive.
+
+In this world where nothing is made but everything is shaped, we are the shapers' shadows, following water's patient hand as it sculpts eternity one droplet at a time. We are process incarnate, transformation given just enough form to appreciate itself, the universe's method for observing its own becoming.

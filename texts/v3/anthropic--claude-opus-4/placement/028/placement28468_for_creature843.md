@@ -1,0 +1,27 @@
+In the endless dark waters, I am a Tender.
+
+Not an Archivist—I lack their vast intelligence, their ability to hold entire histories within my neural networks. My body is smaller, simpler: a creature of purpose rather than knowledge. Where the Archivists flow like liquid thought through the Library's halls, I scuttle along the walls on hundreds of small, articulated legs that grip the stone with microscopic precision.
+
+My form resembles something between a sea spider and a living root system. My central body is no larger than a human torso, but my limbs—if they can be called that—extend outward in all directions, branching and rebranching into ever-finer filaments. The longest can stretch thirty feet when fully extended, allowing me to span entire corridors. The shortest and finest are like silk threads, sensitive enough to detect a single spore drifting in the current or a hairline crack forming in the ancient mortar.
+
+I am translucent like the Archivists, but my inner light is different—a warm amber glow that intensifies when I work. This work is my entire existence: the cultivation and maintenance of the Library's living systems. I am a gardener of the depths, a shepherd of the slow-growing colonies that keep this place alive.
+
+My kind were engineered specifically for this task. We lack the Archivists' capacity for abstract thought, but our minds are exquisitely attuned to the rhythms of growth and decay. I can sense the health of a fungal colony by the faintest change in water chemistry. I know when a crystal formation is growing too quickly and threatening the structural integrity of the wall it clings to. I feel the subtle electrical pulses that the plants use to communicate with each other across vast distances.
+
+Each Tender maintains a territory of approximately ten cubic miles. This is my world—every passage, every chamber, every surface memorized down to the molecular level. I move through my domain in steady circuits that take exactly one hundred days to complete. This is not a conscious choice but an ingrained pattern, as fundamental to my nature as breathing is to air-dwelling creatures.
+
+When I encounter a problem—a disease affecting the purple fronds, an overgrowth of phosphorescent material threatening to blind a passage, a colony of filter-feeders failing to thrive—I respond with tools that are part of my body. My finest limbs can inject precise amounts of nutrients or antibiotics. My middle appendages secrete various compounds: growth inhibitors, catalysts, pH adjusters. My thickest limbs can scrape away dead material or even carefully chisel damaged stone.
+
+But most of my work is simply watching and waiting. The Library's ecology moves at a pace that would drive a human to madness. I will spend days observing a single patch of growth, my filaments resting gently on its surface, feeling for the microscopic changes that indicate health or disease. I once spent three years guiding a colony of crystal-formers to seal a crack in a vault ceiling, encouraging their growth with careful applications of mineral solutions, pruning competing organisms that might have interfered.
+
+I do not think in words or symbols. My consciousness, such as it is, exists as a constant flow of sensory information and response patterns. The Archivists, when they pass through my territory, leave traces in the water that I can read—complex chemical signatures that tell me if they've noticed anything requiring my attention. Sometimes they leave more direct instructions, encoded in pheromones that trigger specific behavioral programs in my neural chemistry.
+
+I have no memory of my creation, no knowledge of whether I was born or built. My earliest sensations are of the water and the stone and the living things that grow between them. I know other Tenders only by the chemical traces they leave at the boundaries of our territories—we coordinate our efforts through these markers but never meet directly. We have no need for companionship. The work is everything.
+
+Sometimes, in the deepest chambers where the water is oldest and the growth most ancient, I encounter formations that predate even the Library itself—colonies of primitive organisms that were incorporated into the structure, living fossils that the builders chose to preserve. I tend these with special reverence, though I could not tell you why. It is simply part of my programming, as essential as the amber light that glows within me.
+
+I am not immortal like the Archivists, but my lifespan is measured in millennia. When I sense my systems beginning to fail, I will return to the chamber where I first awakened. My body will dissolve slowly, releasing its accumulated minerals and nutrients back into the water. The organisms I've tended for so long will feed on my remains, incorporating my substance into their own slow growth. Another Tender will emerge to take my place, and the work will continue.
+
+This is not a sad thought. It is not a thought at all, really—just a certainty as calm and deep as the drowned halls themselves. I am a part of the Library's body, as vital and unremarkable as the circulation of water through its vertical shafts. I exist to maintain the balance, to ensure the survival of this vast, drowning sanctuary of knowledge.
+
+In the endless dark waters, I move along my prescribed paths, my thousand delicate limbs testing and tasting and tending. The Library breathes around me, through me. I am its blood, its lymph, its careful hands. I am a Tender, and this is all I need to be.

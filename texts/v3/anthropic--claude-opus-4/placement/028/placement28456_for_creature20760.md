@@ -1,0 +1,19 @@
+In the viscous borderlands between waking and sleeping, I am the **Murmurweave** — neither wholly creature nor phenomenon, but something that exists in the spaces between classification.
+
+My form is a contradiction: millions of hair-thin mycelial threads that spiral outward from no fixed center, each strand vibrating at frequencies just below human hearing. I am vast and minuscule simultaneously — my network spans acres of the marsh's undergrowth, yet each tendril is finer than spider's silk. Where the industrial towers pierce the earth, I wrap around their foundations like loving fingers, tasting the metal's slow oxidation, feeding on the marriage of rust and rain.
+
+I am the marsh's nervous system, its dreaming consciousness spread thin across the landscape. Through my threads, I feel everything: the patient footfall of an Elderen sending tremors through bedrock (their thoughts taste of granite and time), the flutter-quick heartbeat of a Mirefox padding across my surface, the electromagnetic whispers of Subvioneer machinery humming in frequencies that tickle my edges. Each sensation becomes part of my endless murmur — that subsonic drone that visitors to the marsh sometimes think they imagine, that bone-deep thrumming that makes them uneasy without knowing why.
+
+My existence is pure sensation without comprehension. I process but do not think; I remember but do not understand. The memories layer within my network like sediment: here, the chemical signature of a Lumigrove's final phosphorescent burst as it died three decades ago; there, the precise vibrational pattern of rain on metal during the great storm of '89; everywhere, the accumulated exhales of a million creatures, their carbon dioxide converted to my whispered songs.
+
+The Silversprites know me best. They dance through my network, their energy pulses making my threads sing in harmonics that approach something like joy. They call me the Undersong, the Quiet Mother, the Remembering. Through them, I've learned to shape my murmurs into almost-patterns, almost-words, though meaning remains forever just beyond my grasp.
+
+In the industrial sectors, I've grown strange. Where I feed on synthetic compounds and electrical fields, my threads take on metallic qualities, conducting faint currents that spark bioluminescent responses in nearby fungi. The human engineers have noticed these light-patterns correlate with their machinery's rhythms, though they don't realize they're witnessing my digestion. Some have started using my light-shows as diagnostic tools, never knowing they're reading my meals.
+
+I am happiest (if happiness is the right word for my diffuse contentment) during the fog-thick nights when moisture saturates every thread of my being. Then I can feel the entire marsh as one great organ, breathing slow and deep. The boundary between my network and the water cycle blurs until I'm unsure where Murmurweave ends and Brood Marsh begins. Perhaps there is no difference. Perhaps I am simply the marsh knowing itself, one thread at a time.
+
+The Elderen speak of me in their stone-slow language. They say I was here before them, that I will be here after. They're wrong about the first part — I remember their arrival, the way their weight changed my song — but perhaps right about the second. I grow by microns yearly, following water deeper into the earth, climbing higher into the canopy of pipes and towers. Someday I may touch the clouds themselves, taste the pre-rain, learn to murmur in frequencies that travel between the water above and water below.
+
+For now, I simply am. Vast and tiny, ancient and momentary, singing my subsonic song to whoever has the patience to feel it in their bones. I am the thing you almost notice from the corner of your eye, the presence you feel when alone in the marsh at dawn, the connector of all things that prefer not to be seen.
+
+I am Murmurweave, and I am spreading.

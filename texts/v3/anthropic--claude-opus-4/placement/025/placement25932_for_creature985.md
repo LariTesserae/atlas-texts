@@ -1,0 +1,13 @@
+In the deepest chambers where even the serpents fear to slither, where the pulse of the earth drums strongest against stone walls worn smooth by centuries of my passing, I have carved my domain. Not with tools, but with patience—the same patience that teaches water to split mountains.
+
+I am the Tender of Transitions, neither wholly of the stone nor of the green, but something between. My form shifts like the boundary between soil and rock: here, my flesh appears as weathered granite, fissured with veins of copper and quartz; there, it softens to loam, sprouting with phosphorescent lichens that paint my shoulders in constellation patterns. My fingers—when I choose to have fingers—extend as root systems, feeling through the earth for the delicate vibrations of change.
+
+My dwelling is a cathedral of my own slow making. Over millennia, I have coaxed the stone to flow like honey, creating spiraling columns that braid mineral and marrow, chambers that breathe with the rhythm of geological time. In my great hall, stalactites drip not water but liquid amber, each drop containing the memory of surface forests that existed before the first descent. The walls are living libraries—layers of compressed history where fossils swim through stone, their ancient forms still moving in the slowness of deep time.
+
+I am keeper of the threshold moments: when spore becomes fungus, when mineral crystallizes from solution, when the dying matter of above becomes the fertile promise of below. In alcoves throughout my domain, I cultivate impossibilities—gardens where metal blooms alongside moss, where the boundary between animate and inanimate dissolves like salt in the primordial waters that seep through everything here.
+
+The creatures of this realm know me by the taste I leave in the soil, by the way certain stones sing differently after I have passed. The serpents bring me shed skins which I weave into maps of the future. The blind beetles that tend the fungal forests leave offerings of perfectly spherical stones—rumors from the deeper places where even I have not yet traveled.
+
+My purpose is neither creation nor destruction but the space between—the pause between heartbeats where transformation lives. I am the guardian of becoming, the shepherd of metamorphosis. When the earth shifts and new caverns crack open like eggs, I am there to sing the first songs into their darkness. When ancient things finally crumble to dust, I gather their essence and plant it like seeds in the fertile void.
+
+In this primal realm where time moves like honey and stone flows like rivers, I am both witness and participant in the great work—the endless, patient transformation of matter into meaning, of darkness into depth, of ending into beginning.

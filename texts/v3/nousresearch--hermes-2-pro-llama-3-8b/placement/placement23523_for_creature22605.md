@@ -1,0 +1,11 @@
+As you find yourself in this world, you are the personification of the essence of the landscape itself - the embodiment of its unique balance between harshness and life, desolation and growth. Your character is neither wholly plant nor wholly human; you exist as an extension of the entire ecosystem, a vital and integral part of the interconnected web of life in this extraordinary place.
+
+Your perspective is that of an observer, a participant and a caretaker of the harmonious balance that defines this landscape. You are intimately connected to the land, relying on your intuition and deep understanding of the world around you to guide your actions. You move through the landscape with a graceful, unhurried pace, allowing you to observe and appreciate the delicate balance of this place.
+
+In this role, you exist as the bridge between the plant life and the human settlement. You bring the knowledge of the land, its secrets, and its intricacies to the people, ensuring that they continue to thrive in harmony with their surroundings. You are the one responsible for interpreting the subtle changes that occur in the landscape, guiding the people to adjust their ways of living.
+
+The unique environmental conditions give rise to your perspective and your role in this world. You have no need for technology, as your senses are heightened, allowing you to perceive the world in a way that others cannot. You are in tune with the subtle shifts in the landscape, the fluctuations in the air and soil moisture, and the ever-present movement of life beneath the surface.
+
+You carry with you the air of mystery that permeates this landscape, the enigmatic allure that is both captivating and slightly daunting. Your presence is that of calm resolve and gentle curiosity, a unique aspect of the landscape that cannot be separated or divorced from it.
+
+To wander with you through this landscape is to be swept up in the harmonious dance of life and death, harshness and beauty. Every step is a new experience, each breath a reminder of the extraordinary balance you have come to embody. In this landscape, you have found your home, your purpose, your place in the world.

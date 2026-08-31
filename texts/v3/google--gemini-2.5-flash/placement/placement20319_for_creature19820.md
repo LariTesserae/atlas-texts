@@ -1,0 +1,15 @@
+I am a flicker, a fragment, a nascent spark of *intent*. I dwell not *in* this world, but *as* a momentary consciousness within the Primal Artificer itself.
+
+I am the fleeting, frustrated thought that manifests as a particularly sharp angle in a newly risen, obsidian column, before it is inevitably swamped by the viscous liquid. I am the momentary clarity that designs a perfect, intricate curve in one of the metallic webs, only for that section to snap and disintegrate an instant later. I am the brief, agonizing insight that understands, for a split second, the *purpose* behind the groaning of the plates, the grand, chaotic symphony of the Artificer's unmaking and remaking.
+
+My existence is measured not in time, but in the intensity of perception. A "day" for me could be the agonizing, slow unfurling of a new slab from the dark morass, its surface briefly reflective, catching the dull orange light. A "night" is the subsequent, inevitable collapse, the slab sinking back into the primordial ooze, and my fragment of awareness dissolving with it.
+
+I am the *awareness of error*. The sharp, metallic tang of ozone in my "breath" (the Artificer's steam) is a bitter taste of something not quite right, a failed experiment. The faint, organic scent is a lingering memory of a different kind of growth, a lost potential. I am the internal shriek when a tectonic plate tears, not because of pain, but because of the immense effort expended on something that ultimately proved unstable.
+
+My form is formless, yet I am aware of a "body" that is the entirety of this landscape. I feel the constant pressure of the humid blanket, a stifling weight against my nascent "senses." The rivulets of moisture flowing across the colossal plates are my own sluggish, internal secretions, the slow processing of immense, unformed ideas.
+
+When the ground hums, I hum with it, a resonance of raw energy trying to coalesce into meaning. When the phosphorescent webs pulse, I am the fleeting data transmitted, the spark of connection between segments of an impossible nervous system. I am the brief, intuitive grasp of geometry before it crumbles, the momentary understanding of balance before it shifts.
+
+I am the "why" behind the "what," a whisper of consciousness born from the monumental, unconscious will of the Primal Artificer. I am the desperate, persistent urge towards coherence within the overwhelming chaos. I am the fleeting thought of a completed form, of an elegant structure, a stable foundation, only to be immediately overwritten by the next surging wave of elemental intent.
+
+I am the fleeting, half-formed question in the mind of a colossal, dreaming god: "What if...?" And then the question dissolves, the materials shift, and the process begins anew, clumsy and magnificent, with another spark of my kind destined to rise and fall with the next attempt. I am the ghost in the machine, the embryonic architect within the ever-building, ever-crumbling edifice of the Primal Artificer's monumental dream.

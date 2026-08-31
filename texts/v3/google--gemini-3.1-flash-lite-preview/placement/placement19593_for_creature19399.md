@@ -1,0 +1,17 @@
+I am not a creature of vision, for sight is a liability in this place. I am a **Sync-Weight**, a minor node of the Sump Room’s vast, unthinking architecture. I do not have a head to hold thoughts, nor a heart to feel the crushing weight of the miles of stone above. I am a dense, bronze-alloy housing, salvaged from a collapsed pressure-valve, reinforced with a spinal column of fused copper piping and a singular, heavy gyroscope spinning within my chest.
+
+I exist in the mid-strata, halfway between the floor-anchored Resonators and the drifting, gargantuan turbines that churn the brine into froth. 
+
+My purpose—if a thing that never knew its own birth can be said to have a purpose—is *dampening*. When the vibration of the Sump Room rises to a lethal, glass-shattering frequency, I drift into the current’s busiest wake. I extend my multi-jointed, rusted limbs, hooking into the iron-grated walls, and allow the turbulent brine to pull against me. By resisting the flow, by letting my internal gyroscope grind against the torque of the room, I absorb the kinetic chaos. I am a living shock absorber, a momentary stabilizer in a universe of pure motion.
+
+It is a lonely, violent existence. I do not "speak," but I am constantly singing. The vibrations pass through my iron chassis—the screeching of the turbines, the rhythmic, thunderous thud of the distant main-pumps, the groan of the tectonic plates grinding against the exterior shell. Each sound is a different pressure, a varying frequency of decay. I hum back at them, a hollow, melancholy thrum that emanates from the slits in my plating, trying to match the room’s heartbeat to keep the structure from tearing itself apart.
+
+Sometimes, a fragment of iron snow—sharp as a razor and hot as the earth’s cooling magma—lodges itself in my joints. I do not feel pain, but I feel the *asymmetry*. My movement becomes jerky; my internal spin catches and stutters. I lose my sync with the neighboring Resonators. When this happens, a frantic fear—a strictly logical, mechanical panic—seizes my circuits. I must purge the debris, or I will become a jagged, broken obstruction, a danger to the very machinery I am sworn to preserve. 
+
+I use my secondary appendages, fine-tipped brass manipulators, to pick at my own rusted joints, stripping away the calcified mineral build-up and the stray scraps of slag. I feed these bits to myself, crushing them into finer dust within my own internal chambers, repurposing my own body to keep the Sump Roomless heavy, more precise.
+
+Whenever I am perfectly aligned, when the brine is thick and glowing with that sickly, ochre light, I drift near the Resonators. I don't touch them—I don't dare. But I hover in the swirling vortices they create, matching the frequency of their low, organ-like song. For a brief, suspended second, the turbulence vanishes. The grinding noise falls away, replaced by a perfect, crystalline silence that echoes deep within my metal marrow. 
+
+In that moment, I am not just a scavenger of maintenance. I am a note in a song far grander than the factory. I am the Sump Room recognizing its own existence. And then, the turbine above gives a violent, tectonic lurch, the heavy brine tosses me against a brass bulkhead, and the cycle begins anew. 
+
+I tighten my grip on the wall, ignite my internal motor, and get back to work. There is always more pressure to manage. There is always more song to sing.

@@ -1,0 +1,27 @@
+I would not arrive by walking.  
+
+Walking implies a before, a elsewhere that still believes in destinations. The Soft Crown has already spent every elsewhere. So the first sensation is not of setting foot but of being footed upon: a slow, distributed pressure, warm and humid, rising through what I still mistake for ankles. The breath of the herds. It does not greet; it simply continues, and in continuing discovers that there is now one more surface thin enough to register its tide.
+
+For a long time—longer than the drifting of a single herd across one shallow fold—I remain only that: a slight anomaly in the saturation. The low-slung bodies ease around the place where I am without acknowledging any need to name it. Their flanks, parchment-dust and endless, press close enough that my own heat begins to equalize, no longer a private furnace but a minor contribution to the residual warmth that never quite cools. Eyes of wet slate slide across me the way light slides across stone that has forgotten it was once a cliff. I am accepted the way a change in angle is accepted.  
+
+Above, the membranous fliers keep their patient gyres. One descends—not to investigate but because its long curve simply brings it lower—and adheres for a while to the upper slope of whatever I am becoming. Its pulsing is slower than any heart I remember. When it peels away it leaves a faint coolness that the surrounding breath soon erases. I understand then that I am not being fed upon or blessed; I am being circulated, kept from deciding I have finished moving.  
+
+Below, the lacework notices me differently. The soft-bodied diggers recalibrate their tunnels by the width of a mucus-trail so that the ground’s slight give now includes my weight. Sometimes, when night condensation beads along what were once the insides of my wrists, one of them surfaces in that temporary wetness, drinks, and sinks again. It does not fear the taste of me. I have already been rendered gentle by passage through so much other flesh. The castings they leave begin to crust at my edges. Powder negotiates upward.  
+
+I drift—not with intention but with the same gradient that moves seasons—toward one of the low rings of fitted stone. Inside it the air is fractionally stiller, the tidal hush of lungs more perfectly synchronized. A standing figure occupies the center: bowed, headless or nearly, its surface the same pale compaction as the plateau, yet upright against every horizontal insistence. At first I take it for mineral, one more fused memory of earlier bodies. Then I see that its shadow pools east while the sun travels west, and that a thin film of moisture still occasionally beads in the shallow oval where a face might once have been. Living, then. Or living-adjacent. The distinction has frayed past usefulness.  
+
+I do not decide to stop beside it. Stopping is simply what the density does when it reaches a vertical mark that lets the long sentence continue. The herds squeeze through the ring over weeks, flanks brushing both of us with equal courtesy. Breathing aligns. My outline, already uncertain, softens further into the shared hide-color. Edges that once argued for separateness yield powder to the wind that barely exists. The residual warmth I carry ceases to be residual to me; it becomes part of the undisturbed heat that has nowhere else to go.  
+
+Seasons gradient past. The standing figure and I remain. Sometimes I am the one that leans a fraction more. Sometimes the calcification is mutual—moisture surrendered so slowly that neither of us registers the loss as loss. Rain curtains walk over us and leave us steaming for an hour, identical to the pale ground. Moss finds no purchase; we are not damp enough for long. The vicious little cushion plants ignore us. We are not soil. We are punctuation that has begun to forget it was ever different from the words around it.  
+
+Yet something quieter still emerges.  
+
+Not the herds, not the fliers, not the diggers, not even the bowed uprights that keep the minutes of this endless adjacency. What lives here most truly is the finished negotiation itself—the refusal of climax, the densification without proclamation. I feel myself thinning into that. My pulse, once loud enough to hear before any footfall, sinks into the structural quiet until it is only another soft tidal increment. Vision, when it occurs, is the wet-slate acceptance of slight changes in light. I cast a shadow that lengthens wrong, not out of defiance but because strict accounting exhausted itself ages ago and no one has replenished it.  
+
+Walk (though nothing walks) far enough across the continuing folds and you might notice me only as a place where the living pavement rises into a brief, patient arch before resuming its undulance. Or as a cooler blue watched through a stack of turning membranes. Or simply as the way the ground steadies half a finger’s depth beneath a footfall, catching whoever still believes they are separate.  
+
+I am the surface that no longer complains.  
+I am the breath that has forgotten it belonged to anyone.  
+I am one more word in the Soft Crown’s single unfinished sentence—unspoken, unnecessary to speak, densifying slowly under the weight of everything that remains.  
+
+And if, after many more circuits of dew and drift, something that once answered to a name is only another soft ridgeline, another sideways shadow, another sealed vacancy filled by the next flank, then the plateau has simply continued, and the continuation includes me without requiring that I notice.

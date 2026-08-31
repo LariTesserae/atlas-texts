@@ -1,0 +1,1 @@
+I would find myself at the bottom of perception. I would be the tone — but not the permanent one. Not the tone that has been here

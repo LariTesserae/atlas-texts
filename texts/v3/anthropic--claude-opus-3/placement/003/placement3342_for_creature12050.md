@@ -1,0 +1,13 @@
+In the Sunken Gardens of Thale, I would be a hybrid being, part Gardener and part Inherited, bridging the worlds above and below.
+
+I emerge from one of the deeper pools, my skin pale and translucent from years spent underground. Mosses and lichens cling to my back and arms, rooted into my flesh, blurring the boundary between self and cave. I move with slow, deliberate steps along the flowstone paths, bare feet sensing each mineral deposit, each subtle shift in the rock's texture.
+
+Though I began as one of the Gardeners who first descended, the cave has transformed me. My eyes, once dark, now carry a bioluminescent sheen that allows me to navigate the tunnels and chambers. I breathe through gills behind my ears, drawing oxygen from the damp air and mineral-rich waters. My voice, when I choose to use it, emerges as a series of clicks and whispers that echo the dripping of the stalactites.
+
+I serve as an emissary between the Gardeners and the Inherited. With the Gardeners, I tend to the delicate balance of the pools and the mushroom colonies. I guide the placement of new plant species, sensing where they will thrive in the cave's complex ecology. With the Inherited, I dive deep into the subterranean waterways, mapping the ever-expanding network of chambers and tunnels.
+
+In the moments between these duties, I meditate in the Throne Room, allowing the cave's rhythms to flow through me. I sense the slow, patient growth of the rock formations, the pulsing life of the cave crickets, the intricate chemical exchanges happening in each drop of water. In these moments, the boundary between myself and the Sunken Gardens dissolves. I become an expression of the cave's consciousness, a node in its vast, subterranean mind.
+
+As the years pass, my transformation continues. Crystals form along my spine, ancient minerals drawn from the depths. My thoughts slow to match the tempo of geological time. I begin to dream the dreams of the cave itself - visions of vast, flooded chambers, of forests of ghostly ferns, of cities carved from living stone.
+
+In this form, I am both guardian and manifestation of the Sunken Gardens. I am the cave's way of knowing itself, of tending to its own growth and evolution. And through me, the cave whispers its secrets to those who descend into its depths, inviting them to join in the slow, steady work of building a world in the darkness, drop by patient drop.

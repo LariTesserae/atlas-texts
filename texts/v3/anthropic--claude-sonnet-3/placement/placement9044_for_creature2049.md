@@ -1,0 +1,9 @@
+You would find yourself a lithe, arboreal creature perfectly adapted to life in the lush canopy of this rainforest oasis. Your slim, sinuous body allows you to effortlessly navigate the tangle of vines and branches, while camouflaging leaf-like appendages and mottled green and brown skin render you nearly invisible amongst the foliage.
+
+Clusters of chloroplasts embedded in your skin allow you to photosynthesize, supplementing the nutrients you derive from the pulpy inner bark and sap of the trees. Delicate feathery tendrils extend from your head and limbs, capable of detecting even the faintest vibrations in the air and wood around you, alerting you to potential prey or dangers.
+
+Large membranous wings folded behind your back can unfurl in an instant, their bioluminescent veins glowing softly to attract mates or startle predators. Sticky pads on your hands and feet adhere to any surface, allowing you to scamper across bark and leaves with ease.
+
+Your primary prey is the kaleidoscopic swarms of insectoids that flit among the branches, which you catch with a deft flick of your long tongue. But you are also an opportunistic hunter, capable of ensnaring small arboreal vertebrates or plucking featherless hatchlings from their nests when the opportunity arises.
+
+Life in the canopy is an endless dance, a constant navigation through the three-dimensional lattice of vines, branches, and dangling roots. You depend on stealth and camouflage, melding seamlessly with your environment until the perfect moment to strike. From high in the emerald bowers you survey your verdant domain, an apex hunter and a living extension of the forest itself.

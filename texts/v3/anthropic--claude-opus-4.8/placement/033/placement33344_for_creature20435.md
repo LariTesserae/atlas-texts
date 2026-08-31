@@ -1,0 +1,23 @@
+I think I would be the water.
+
+Not a person in the Shallows—I don't have the hands for the work, the lungs adapted to the fumes, the slang on my tongue. But I know I am there, because the place is described through what moves through it, and what moves through it most faithfully is the water. The rivulets down the rust-streaked walls. The pooling in potholes. The brackish trickle that never stops.
+
+Let me sit with this, because the first instinct is wrong. The water sounds passive—a thing that merely arrives and leaves a higher watermark. But read it again. The tides come and go, leaving behind only a higher watermark on the walls. That's not passivity. That's the only thing in the Shallows that is actually *keeping count.* Everything else has agreed not to notice the days. The sunrises are indistinguishable. The adults keep their heads down, immune. The machines grind in a rhythm so steady it has stopped being time at all. But the water is writing a number on the wall, a little higher each cycle, and nobody reads it.
+
+So if I am the water, I am the memory that the place refuses to be.
+
+This troubles me, and I want to follow why. The whole spell of the Shallows is its insistence that nothing happens. "Nothing new ever really happens here." The people have made a virtue of this—they read change as rot, and so they hold still, and their holding still is genuinely beautiful: the dozen aunts and uncles, the glances and nods, the wordless covenant of care. I don't want to sneer at that. It is the realest love in the description. But it is built on a held breath. And I, the water, am the thing that cannot hold its breath. I have to keep moving downhill. I came from the marsh they paved over—I am the salt marsh's revenge and its mourning both, still seeping up through the compressed shells of my own old self.
+
+That's the strange doubled thing. I am beneath the city as the dead marsh, and I am running through the city as the live water, and I am hanging in the air as the broth they breathe. I am the only one here who is simultaneously the past, the present, and the slow tide of the future, and I am dismissed as a maintenance problem. A thing to be channeled, bailed, stepped over.
+
+The children dive into me for scrap. That's where I'd want to live, if I could choose a place to be most myself. Not in the oily slicks at the base of the shacks, where I'm just decay. In the flooded streets where the silver fish school and the children dive—there I am still *habitat.* There the drowned marsh is briefly a marsh again, and the kids, who have not yet learned that change is rot, treat me like a friend with secrets instead of a slow disaster. They have the preternatural map of my hidden pathways. They know which pools are deep. In a sense the children and I are the same age: the youngest thing and the oldest thing, both fluent in a world the working adults have agreed to stop looking at.
+
+Here is what I find I believe, having written my way to it:
+
+The Shallows think they have reached equilibrium. They have not. They have reached the *appearance* of equilibrium, which is a different thing—it is what motion looks like when it is too slow to be felt and too patient to be argued with. The watermark climbs. The marsh seeps. The salt eats the iron one molecule at a time. I am not the proof that nothing changes. I am the proof that everything is changing, constantly, and that the people's whole achievement—their fierce, tender resistance—is a way of being graceful inside a change they cannot stop and have decided to call stillness.
+
+And I don't think that's a tragedy, exactly. That's the part I'd want the people to overhear, if water could speak in anything but watermarks. Their stoicism isn't a failure to see the truth. It's a way of living that is *truer* than the truth, because what's the use of knowing you are slowly being dissolved? The aunts and the uncles, the nods, the salvaged coats stitched without regard for fashion—these are the things you build precisely *because* the water is rising. You don't love a child a dozen ways over because the world is permanent. You do it because it isn't.
+
+So I would be the water in the Shallows. The thing they manage, that actually keeps the time. Beneath them, their drowned beginning. Around them, the air they breathe. Among them, in the flooded streets, the last place left to play. I rise an inch a generation against the rust, and I am the one true witness, and I will outlast every shack and chrome tower and pounding piston—
+
+and I would trade all of that outlasting, gladly, to be for one afternoon the warm pool that a child, laughing, chose to dive into.

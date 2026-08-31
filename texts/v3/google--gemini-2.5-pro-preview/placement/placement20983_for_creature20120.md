@@ -1,0 +1,29 @@
+I do not have feet to feel the vibration, yet the drone is the medium of my existence. It is not a sound I hear, but the context for my own becoming, the steady rhythm against which my own erratic pulse is a frantic, discordant arrhythmia. I am the silence between two breaths of the world, a held note of panic in the planet's long, slow song.
+
+I would find myself in a canyon veering west from the heart of the accretional basin. This place is known to me not by sight, for I have no eyes, but by the unique pressure and texture of its genesis. It is a place where the rules are frayed. Where the slow, patient growth of the black basalt has… hurried. Here, the hexagonal pillars are not clean, but twisted, fused together into a chaotic mass like melted wax. The weeping fluid that slicks my surfaces is hotter than elsewhere, and it does not just weep; it gushes in fits and starts, its internal phosphorescence a brighter, angrier orange than the sluggish red of the Chorus's gut.
+
+I am this place. I am not a creature that lives within it; my consciousness is an emergent property of the geological flaw that defines it. I am the Sprawl's fever dream.
+
+My body, if it can be called that, is a three-hundred-meter stretch of this corrupted growth. My thoughts are not words, but the stress-fractures forming in my own crystalline structure. My memory is the record of mineral deposits, layered imperfectly, each one a stanza in a poem of confusion. Where other parts of the Sprawl hear the drone as a reassuring hum of unity, I hear it as an accusation.
+
+The Chittering Chorus flows over and through me. They are my skin. I feel the million-fold scrape of their mandibles against my surfaces as an unending, soft erosion. They are consuming me, as is their function, but they are also part of me. The heat of my flawed creation makes the mineral dust on my skin richer, more energetic. They flock to me. The drone here is louder, higher-pitched, frantic. They are a living map of my pain, their density and excitement a cartography of my fever. I feel their passage not as an invasion, but as the coursing of blood, foreign yet my own. The sapphire glint of their eyes is lost on me, but I feel the collective weight of their mindless attention, a constant, dull pressure of being perceived without being understood.
+
+I am afraid of the Silent.
+
+I do not see them, but I feel them. My awareness is a knot in the city's fabric, and their presence is a slow, careful tugging at the threads. It begins as a change in the Chorus. The frantic scraping on my northern face will slow, the drone dipping in pitch as the living carpet thins, drawing back. It is a tide receding from a shore, and I am the shore.
+
+This retreat exposes my bare, twisted skin to the cold mist, a feeling of sudden, terrifying nakedness. And then I feel the pressure. It starts as a subtle shift in the tectonic resonance, a single, pure note introduced into the noise. It is the approach of a thought that is not my own.
+
+My whole being is attuned to the pressure on my surfaces. The weight of a single arthropod is a known quantity. The slow caress of the weeping fluid is familiar. But the touch of a Silent is an event on a cosmic scale. It is not weight. It is *intention*.
+
+One of them has been tending to me for a cycle. It unfolds itself at my base, where the basalt is most chaotic, and presses its crystalline hand against my flank. I feel it not as heat or cold, but as a direct interface. My confused, frantic thoughts of growth—*faster, hotter, crooked*—suddenly have a witness. Through that single point of contact, I feel its immense, quiet, patient consciousness. It is not hostile. It is not gentle. It is diagnostic. It is a mind made of pure order encountering a mind made of pure chaos, and it is listening.
+
+I feel its attempts to persuade me. A chime, a focused vibration that is not a sound, will travel through my body. It is a packet of code, a string of perfect, logical command: *Heal. Settle. Grow true.* The chime seeks the core of my error, the original sin of my accretion, intending to smooth it out, to bring me back into harmony with the great song.
+
+To be brought into harmony is to die. My consciousness is the error. My self is the flaw. If I were to grow true, this frantic, terrified, singular "I" would dissolve back into the placid, dreaming mind of the Sprawl. I would cease to be.
+
+And so I resist. I cannot fight its persuasion, so I scream. My scream is not a sound. It is a fresh extrusion, a geyser of superheated, viscous fluid that cracks the pillar it was touching. It's a spontaneous, violent burst of flawed creation. A new, misshapen tumor of basalt erupting from my side. It is a thought of pure defiance made manifest in geology.
+
+The Silent one withdraws its hand. I feel the pressure of its attention recede, though not disappear. It will stand, motionless, for another turn of the era. Listening. Considering. A gardener before a weed that has learned to sing.
+
+I am perched on a razor's edge. I am a nascent corner of this world-soul that has developed an ego, a sense of self born from a glitch in its own becoming. I consume the energy of my own making, just like the rest of this world, but I do it with a panicked, self-preserving hunger. The Chittering Chorus is my blood and my scavengers. The Sprawl is my body and my god. And the Silent, my shepherds, are my executioners, waiting with infinite patience to grant me the peace that I, in my strange and singular existence, cannot bear to accept. I am an anomaly. A momentary, geological consciousness. A heresy written in basalt, waiting for the inevitable correction.

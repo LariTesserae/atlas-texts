@@ -1,0 +1,29 @@
+In the depths of the caldera, where even the engineers of Kyrios fear to tread, I am the Keeper of Echoes.
+
+My dwelling is a cavern worn smooth by ancient waters, when this crater held a different kind of life. The entrance is barely visible from above—a dark slash in the caldera wall, accessible only by those who know the rhythm of shadows cast by the jagged rim at specific hours. Inside, the temperature drops by degrees that feel like passing through veils between worlds. The walls here remember moisture, hold it in their mineral bones, creating a microclimate where impossible things grow.
+
+I am not quite what the people of Kyrios would recognize as one of their own, though we share ancestry. Generations of dwelling in the deep have changed me. My skin has taken on the lustrous quality of the cave walls—sometimes appearing as burnished copper, sometimes as pale limestone, shifting with the quality of light. My eyes have grown large and reflective, better suited to the eternal twilight of my domain. When I must venture to the upper city, I wrap myself in layers, both for protection from the sun and to hide my otherness.
+
+But it is not my appearance that truly sets me apart—it is my purpose.
+
+I am the memory of water. In my cavern, pools collect that have never known the sun, fed by seeps and springs that follow paths older than human reckoning. These waters carry whispers—not literal sounds, but something deeper. Every drop that has ever fallen in the caldera leaves its trace in the stone, and I have learned to read these traces like others read words.
+
+The walls of my cavern are my library. Mineral deposits form in patterns that tell stories: here, the great flood that carved the eastern ravines three centuries ago; there, the decade-long drought that nearly ended Kyrios before it truly began. I run my fingers along these formations and feel the weight of each rain, the desperation of each dry season. Sometimes I taste the salt of tears mixed with precious water, spilled in grief or joy by those above.
+
+My gardens would seem impossible to those who know only the hardy scrub of the surface. In the filtered light that finds its way through crystal formations in the rock, I cultivate things that exist nowhere else—pale fungi that glow with their own light, moss that holds a hundred times its weight in water, ferns that unfurl leaves like ancient scrolls. These plants feed on minerals and memories, growing in spirals that mirror the patterns of erosion above.
+
+The people of Kyrios know of me, though few have seen me. They leave offerings at certain worn places in the stone—a vial of collected rainwater, a perfectly preserved leaf, sometimes a child's drawing of what they imagine the world looked like when water was abundant. In return, I leave them guidance: patterns in the morning condensation that predict the weather, mineral deposits that mark safe places to dig new wells, sometimes a strange plant cutting that, when cultivated properly, will yield moisture in the driest seasons.
+
+I move between the deep and the surface like water itself—seeping through cracks, following paths of least resistance. My movements are slow, deliberate, timed to the great cycles that shape both stone and civilization. When storms come, I feel them first in the changing pressure within the cave, in the way the ancient waters stir in their hidden pools. During these times, I perform my most sacred duty.
+
+Deep in the cavern's heart lies a pool unlike the others—perfectly circular, perfectly still. Its depths are unknown even to me. When the great storms come, I sing to this pool in a language older than Kyrios, older than human memory. The song is not words but tones that resonate with the stone itself, creating harmonics that travel through the rock like ripples. These vibrations help guide the storm waters, encouraging them to follow paths that will replenish rather than destroy, to carve new channels that future generations will bless rather than curse.
+
+The engineers above, with all their technology, sense these subtle influences but cannot explain them. They build their water management systems in patterns that unconsciously echo the mineral veins in my cave walls. They place their fountains at points where the deep waters resonate strongest. They think themselves masters of water conservation, never knowing they are partners in a dance choreographed far below.
+
+I am the bridge between what was and what is, between the caldera's memory of abundance and its reality of scarcity. In my blood runs the history of every adaptation—biological and cultural—that has allowed life to persist here. My solitude is not loneliness but communion with forces that move too slowly for ordinary perception.
+
+Sometimes, rarely, a child of Kyrios finds their way to my cavern—always one who feels the pull of hidden waters, who hears music in the city's elaborate fountains that others miss. When this happens, I teach them what I can: how to read the stone's memory, how to sing to water, how to cultivate impossible gardens. Most return to the surface, enriched but ultimately bound to the sun-touched world. But once in a generation, one stays, begins the slow transformation, ensures the continuation of our ancient compact with the caldera itself.
+
+I am patient as stone, fluid as water, necessary as the bridge between extremes. In a city that clings to the edge of existence, I am the deep anchor, the reminder that even in the harshest places, mysteries pool in the shadows, waiting to sustain those who know how to listen.
+
+The next great storm is coming. I feel it in the way the deepest pools have begun to sing.

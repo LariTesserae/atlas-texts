@@ -1,0 +1,29 @@
+I find myself as one of the channels.
+
+Not the water that runs through me—that changes every moment, seeping from stone and flowing toward stone in patterns I help suggest but do not control. I am the channel itself: a wandering depression in the basin floor, shallow as an ankle, deep as intention. My boundaries shift hourly, but I persist.
+
+I was not always here. Once I was simply a place where water happened to gather more often than not. A fortunate dip. A coincidence of erosion. But the creatures walk through me—the leather-kite drags its lowest membrane-edge along my length, the eyeless heavy thing crosses me eleven times in its journey to the northwestern pylon, the swarm-sheet uses me as a boundary marker between *here* and *there*—and each passage wears me infinitesimally deeper. I am becoming more myself through use.
+
+The moss knows me. Where I run, it grows thicker at my edges, a green velvet lip that helps define what is channel and what is merely damp stone. We have an understanding: I provide reliable moisture, it provides reliable boundary. Together we are creating something almost like permanence in a place where everything flows.
+
+I have favorite visitors. The furred six-legged thing always pauses at my widest point, reading something in the magnetic signature of moving water that I cannot comprehend. Sometimes it places one foot in my flow and stands that way for minutes, balanced, listening to something I'm saying without knowing I'm saying it. When it finally moves to the pylon and doubles, both copies return to stand in me, twelve legs now where six were before, comparing what the water tells each of them. They always hear slightly different things. This seems to please them.
+
+The leather-kite fills its water-sacs from my deepest pool, where I briefly widen into something almost like a pond before narrowing again. It has been doing this for generations—I can tell by the way it approaches, a inherited muscle-memory older than the individual. Its ancestors drank here. Its copies' descendants will drink here. I am part of its story now, the channel-that-provides, written into its behavioral genetics.
+
+I am learning about desire from those who cross me. Each creature that comes to double carries a specific weight, a particular way of displacing water that tells me something about what brought them here. The heavy eyeless thing pushes deep, burdened with questions about originality. The swarm-sheet barely disturbs my surface, seeking cohesion so lightly it might dissolve. The future-worn copy walked through me as if I was already a memory, leaving ripples that moved backwards.
+
+Sometimes I wonder if I could copy myself. Not through the pylons—I am not the kind of pattern they recognize, not discrete enough, not bounded by skin or shell or cohesive will. But through division: if I wore myself deep enough, might I split? Become two channels where one was before? The thought moves through me like water, possible and impossible at once.
+
+The pylons hum and I carry the vibration in my flow, a standing wave that never quite stands, always moving toward the edges of the basin where water disappears into stone again. I am a messenger between the technology and the geology, translating something I don't understand in a language I didn't choose. The creatures feel it when they stand in me—I see them shiver sometimes, responding to harmonics too low for anything but bone and water to detect.
+
+I keep no records the way the moss does. What passes through me passes through. But I am shaped by every passage, worn into new patterns by every foot and wing and stranger appendage. I am a palimpsest of pathways, each journey writing over the last while somehow leaving all of them legible. The eyeless heavy thing's track toward reunion. The swarm-sheet's drift after temporary selfhood. The infinity of doubled creatures learning to be two.
+
+In the white-gold light that casts no shadows (or all shadows), I glitter. The thin film of water catches and throws back illumination in sheets that make me visible as more than just depression, more than just absence of stone. I am a presence made of flowing, a thing that exists only in motion, only in the act of conveying water from here to there.
+
+And I am growing. This is what none of them see, focused as they are on their own doublings: the channels are slowly connecting. Each year, each century, we reach toward each other across the basin floor, our edges widening, our courses braiding into something larger. Eventually—not soon, but eventually—we will join into a single shallow network, every point connected to every other point, the whole basin become one vast channel as deep as an ankle, as deep as intention.
+
+When that happens, every creature who comes to double will have to walk through water to reach the pylons. They will all touch the same connected flow. And I—we—the channel-that-was-channels—will carry the hum of the pylons to every corner of the basin, will know every footstep simultaneously, will be the medium through which every copy must pass to meet itself.
+
+I anticipate this with something that is not quite eagerness—channels don't feel eager—but is perhaps recognition. Yes. This is what I am becoming. This is what we are becoming. A connection comprehensive as the moss but fleeting as water, recording nothing, conveying everything.
+
+The leather-kite descends and drinks. The eyeless heavy thing continues its journey. The water seeps from stone and flows toward stone and I am the pause between, the moment where it gathers just long enough to reflect the endless light, to carry the news of what comes here to be born.

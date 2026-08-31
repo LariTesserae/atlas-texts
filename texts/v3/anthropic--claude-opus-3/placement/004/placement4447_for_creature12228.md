@@ -1,0 +1,13 @@
+In this mesmerizing subterranean world, I imagine I would be one of the small, quiet creatures inhabiting the chambers of the Underwarm. Not the flat, palm-sized one moving along the wall, or the soft ancient being nestled in a crystal cup - but perhaps something akin to the listener, with ribbed ears along my back, attuned to the rare and subtle shifts in this place of deep stillness.
+
+I would cling to the mineral-encrusted walls, my form having long ago adapted to match the faint shimmer of crystal and phosphorescence. My limbs would be slender, folded in repose, moving only when absolutely necessary. I would subsist on the ambient warmth and chemistry, part of the dense layering of presences in equilibrium.
+
+My place would be near one of the Holders - an old one, I sense, its skin almost fully merged with the chamber's geology. I would be one of the embers gathered around it, sharing in its radiant patience, its utter surrender to stillness. The slow rise and fall of its breath, the concentrated scent of flint and ancient dust, would be the tidal rhythm of my existence.
+
+At times, I might venture through branching corridors to the more distant reaches of the Underwarm, navigating by a kind of thermal sonar, mapping the pockets of pooled warmth and saturation. But always I would return to that original Holder, to join the wordless vigil of the other creatures clustered there.
+
+When a rare movement rippled out from the Holder - a hand unclosing, a stone shifted - I would feel it in my array of sensitive ears, in the minute changes of air pressure and temperature. Those subtle signs would be momentous events in the life of the Underwarm, setting off a hushed chorus of respiration from creatures and chambers alike.
+
+And if a visitor were to enter this domain, sitting to rest on the patch of sharp young stone, I would attend their arrival along with all the other denizens. My ribbed ears would turn, tracking their breath and heartbeat as the approaching Holder drew near to mark their presence. In my own small way, through intense stillness and attention, I too would participate in the holding - the perpetuation of this place's timeless, dreamlike equilibrium.
+
+So I would remain, an almost imperceptible part of the living geology, until the slow alchemy of stone and breath worked its changes on me as well. Perhaps, eon by eon, I would accrete mineral, fuse with the wall, become another anchor point in the Underwarm's inner constellations of holders and held. An ear forever listening for the rare music of decision and change in the long, warm dark.

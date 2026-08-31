@@ -1,0 +1,29 @@
+In the weathered folds of Olyka-Null's ancient stone, where moss clings to memory and time moves like sap through sleeping wood, I am the Keeper of Echoes.
+
+My dwelling is neither fully cave nor structure, but something that has grown between definitions—a hollow worn smooth by countless seasons, expanded by patient hands that learned the stone's own language. The entrance is marked only by a subtle shift in the lichen's pattern, where deep emerald gives way to silver-green, and by the faint resonance that greets those who know to listen.
+
+I am old now, though I cannot say how old. My skin has taken on the texture of the cliffs themselves, lined and weathered, with a faint mineral sheen that catches what little light filters through our perpetual twilight. My fingers have grown long from years of reaching into crevices, feeling for the vibrations that tell our stories. My eyes have adapted to the dim—I see better in shadow than in the rare moments when the mist parts and brightness wounds the sky.
+
+My role emerged from necessity and evolved into something sacred. In a world where water is memory and stone is scripture, I became the one who reads the echoes—the sounds that bounce between our cathedral walls, carrying news, warnings, stories, and songs. Each formation has its own acoustic signature. The Weeping Spire carries grief in a minor key. The Harvest Halls amplify joy into crystalline laughter. The narrow passage we call the Throat of Truth exposes lies in the way it warps their sound.
+
+My tools are simple: a collection of resonant stones gathered over decades, each one singing at a different pitch when struck. Hollow reeds that capture and redirect sound. Maps drawn in plant dyes on stretched moss-paper, showing not geography but the acoustic pathways that connect our scattered settlements. Most importantly, the two apprentices who will one day replace me—young ones whose ears are still sharp enough to catch the highest frequencies that now escape me.
+
+The fauna know me. The echo-mice that navigate by ultrasound use my dwelling as a waystation. The stone-singers—those peculiar birds that incorporate the resonance of rock into their mating calls—nest in the carved alcoves I've prepared for them. Even the silent hunters acknowledge my presence with a particular pattern of absence, moving their territories to include my paths in their protected spaces.
+
+My days begin before the settlement wakes, in that hushed hour when the stone releases the warmth it hoarded from yesterday. I climb the Listening Steps, carved by my predecessor's predecessor, each one tuned to reveal a different distance, a different direction. There, I perform the morning count—how many hearts beat within our walls, how many have gone silent in the night, where the hunters prowl, where the children play.
+
+But I am more than a mere counter of sounds. When disputes arise—and they do, for we live pressed close as pages in a book—I am called to the Speaking Circle. There, surrounded by acoustic stones arranged in patterns older than memory, I help our people hear each other. Not just their words, but the tremor of truth or deception, the resonance of pain or joy that underlies speech. In a world where resources are precious and trust is survival, this gift is vital.
+
+The young ones think I perform magic, but I know better. I simply pay attention to what has always been there—the way sound reveals the invisible architecture of our world. How a cough echoes differently in the presence of sickness. How footsteps change when carrying secrets. How the stone itself groans before a slide, warning those who know its language.
+
+In the evenings, when the settlement gathers in the natural amphitheater we call the Breathing Bowl, I lead the Telling. This is not mere entertainment, though it serves that purpose too. Through call and response, through the careful modulation of voice against stone, we maintain our history. Each tale is preserved not in words alone but in the specific acoustic patterns that make forgetting impossible. A story told in the wrong place, at the wrong pitch, becomes a different story entirely.
+
+My own story is woven into this place now. My first love's laughter still rings in the Crystal Cave on certain humid mornings. My teacher's last words circle endlessly in the Vault of Whispers, growing fainter each year but never quite fading. The song I invented for my daughter's naming day has been taken up by the stone-singers and returned to me, transformed.
+
+I am changing too, becoming more echo than flesh. Sometimes I forget which sounds are happening now and which are merely remembering themselves in the stone. My apprentices watch me carefully, noting the signs. We have perhaps another turning of seasons, maybe two, before I join my teacher in the Vault of Whispers.
+
+But I am not sad. In Olyka-Null, nothing truly ends—it only changes timbre, finds new surfaces to dance across, discovers different ears to fall upon. The echoes I've spent my life reading will outlive me, carrying forward not just my voice but all the voices I've preserved, all the sounds I've interpreted, all the silences I've understood.
+
+When I go, they will place my resonant stones in the hands of my successors. They will speak my name in each of the seven sacred spaces, letting the echoes find their own paths. And somewhere, in some crack or crevice I've never discovered, my voice will join the eternal conversation between stone and air, becoming part of the very thing I've spent my life trying to understand.
+
+I am the Keeper of Echoes in Olyka-Null, where sound is memory and stone is time, where the past never quite leaves and the future arrives on familiar frequencies. In this dim, ancient place where life insists despite everything, I listen, I remember, and I sing the stones to sleep.

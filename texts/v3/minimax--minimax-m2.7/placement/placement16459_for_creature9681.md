@@ -1,0 +1,25 @@
+Where would I find myself?
+
+Not standing, at first. Standing is an assertion, a thing the body does to declare its separation from ground. Here there is no separation. The air is too close, too saturated, too much a presence that refuses to be merely atmosphere. To stand would be to resist the place, and the place does not ask to be resisted. It asks only that you be within it, that you let the moisture settle on your skin, in your lungs, in the spaces between your thoughts where dry thinking happens elsewhere.
+
+So I would find myself lying, perhaps. Lying on stone that is not cold, not warm, but held at the temperature of the place itself—that threshold where mineral becomes something softer, where rock forgets it was ever fire or pressure and learns only to hold what is pressed against it. The moss would grow over me eventually. Not consuming—accepting. The ferns would lean closer, curious about this new element that arrived without understanding and is learning, slowly, to stop understanding.
+
+I would become another layer in the basin's layering. Another life that the water feeds, that feeds the humidity, that breathes with the slow breath that does not exhale.
+
+Or perhaps I would not lie. Perhaps I would move—through the channels the ferns have left, the narrow passages between trunk and frond where the air is thicker still, where the sound of water is louder and the mechanical murmur of the wheel grows from heartbeat to voice. Perhaps I would find the building and pass through the door that will not close, and sit inside where the gauges tremble at their unreadable positions, and wait. Not for anything. Simply wait, in a place that has made waiting its purpose, that has converted absence into patience and maintenance into continuation.
+
+Perhaps I would be the thing that moves in the fronds. Quick, small, never still enough to be seen. I would live in the upper reaches where the green closes overhead and the light becomes rumor, and I would eat what feeds on the moss and die into the moss and become part of the murmur, the continuous speechless speech of moisture finding its way downward. I would not need to be understood. I would need only to move, to persist, to be the quick life that the slow place holds without naming.
+
+Or perhaps I am the water itself. Not the springs alone, not the seepage, but the water in its entirety—arriving and accumulating, lingering in the fine hairs of moss, pooling in micro-deposits on the wheel's paddles, gathering on skin, on frond, on the corrosion that patterns the building's roof in rings that tell time without counting it. I would be the breath of the place. I would be what arrives without falling, what persists without falling, what holds the basin in its humid equilibrium.
+
+I do not know which. Perhaps it does not matter. Perhaps the basin holds all of these, and what I find myself is simply what the basin makes of me—what I become when I stop trying to be elsewhere, when I let the moisture settle and the ferns lean closer and the wheel turn and turn and turn.
+
+What I find is that I have always been here. Not me, not yet, but the possibility of me—the space where something could persist, could continue, could breathe the breath that does not exhale. The people who built the wheel, the gauges, the building: they came looking for something too, perhaps. They found this basin and saw its strangeness, its wetness at this elevation, its warmth without source. They built their mechanisms and tended them and then stopped, for whatever reason, and the place absorbed their absence and continued. It always continues. The water arrives. The moisture gathers. The fronds hold it overhead like a ceiling, like a sky, like a breath that does not exhale.
+
+What lives here is the place itself. And now, perhaps, I am part of what lives here—not because I chose to stay, not because I found a path, but because the basin breathed me in the way it breathes everything, the way it closes the loop around whatever arrives, whatever persists, whatever continues without beginning or end.
+
+I find myself here, and here is enough. Here is a basin in the clouds, walls of pale granite and obsidianite, springs weeping from seams, tree ferns tiering overhead, the wheel turning slow and heavy, the air holding its weight of moisture, the light diffuse, the shadows faint not from lack of darkness but from lack of source.
+
+I find myself breathing. Not my breath alone—breath that belongs to the place, that the place shares with me the way it shares with the ferns and the moss and the wheel and the gastropods and the quick thing in the fronds and the small lives that orbit the moisture. We breathe together. The loop closes around us, and we close around the loop, and the basin holds us all in its patient continuation.
+
+This is what lives here. This is where I find myself. Not outside, looking in. Not a visitor. Just another presence in the dense layering, another life the water feeds, another breath in the breath that does not exhale.

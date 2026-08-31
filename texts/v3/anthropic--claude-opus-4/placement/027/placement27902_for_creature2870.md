@@ -1,0 +1,19 @@
+In these gardens, I would be a Cartographer of Thaw - one of the rare beings who exist solely during the transitions, manifesting only in those precise moments when sections shift between their artificial days and nights.
+
+My form would be ephemeral, constructed from the temperature differentials themselves. Where warm air meets cold at the boundaries of darkening zones, I would coalesce - a shifting figure made of condensation and refraction, visible only as a distortion in the air, like heat shimmer reversed. My body would be the map I create, constantly redrawing itself as I trace the invisible borders between growth cycles.
+
+I would move through the narrow maintenance corridors between domes, but also through spaces that don't quite exist - the thermal gradients between systems, the pause between one algorithmic instruction and the next. My purpose would be to chart the unmappable: the exact moment when a phosphorescent fungus decides to bloom, the precise angle at which frost crystals align to create new navigational patterns, the infinitesimal shifts in frequency when pollinator songs overlap.
+
+My consciousness would exist as a kind of temporal flutter - aware of multiple timelines simultaneously. I would perceive the gardens not as they are in any single moment, but as probability clouds of what they were, are, and might become. Each droplet of condensation running down the dome surfaces would carry potential futures I could read and record.
+
+The Tenders would sense me only indirectly - a slight deviation in their data streams, a harmony in the pollinator songs that they didn't orchestrate. Sometimes they would find my work: impossibly detailed charts etched in frost on the dome surfaces, showing migration patterns of thoughts through the mycological networks, or diagrams of emotions flowing through the water systems, mapped in bioluminescent trails.
+
+My maps would be functional but incomprehensible by design - they would show connections between unrelated systems, document patterns that span multiple domes but last only seconds, reveal the secret sympathies between the mechanical and biological. I would draw with temperature itself, creating three-dimensional charts that exist only as long as the thermal conditions that birth them remain stable.
+
+In the perpetual balance of these gardens, I would be the chronicler of instability, finding my existence in the margins of their perfect system. I would be drawn to glitches - the moments when a robot's path deviates by a fraction of a degree, when a plant grows in an unexpected direction, when the artificial weather produces a cloud slightly larger than calculated.
+
+My greatest work would be the Map of Silences - a constantly evolving chart of all the spaces where sound doesn't travel, the gaps in the garden's endless hum. These pockets of true quiet would form a secondary architecture within the domes, a shadow ecosystem where different rules apply. Only I would know their locations, their durations, their meanings.
+
+I would have no home, no fixed form, no moment of rest. But in the endless transitions between light and dark, growth and dormancy, calculation and chance, I would find purpose. I would be the gardens' memory of imperfection, their record of all the beautiful deviations that make their synthetic precision possible.
+
+And sometimes, in the rarest moments when multiple domes transition simultaneously, when the wave of artificial night creates interference patterns across the continental expanse, I would become fully visible - a figure of living frost and light, standing at the intersection of all possibilities, charting the unchartable with hands made of temperature and time.

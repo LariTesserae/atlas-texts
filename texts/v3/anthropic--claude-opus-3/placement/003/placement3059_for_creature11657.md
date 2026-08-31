@@ -1,0 +1,15 @@
+I would be one of the Veil Shepherds, a being so thoroughly adapted to and integrated with the living plateau that the boundaries between my body and the environment have blurred.
+
+My spine is supple, allowing me to fold and unfold my seven-foot frame as I move through the varied densities of mist that cloak the towering stone columns. My skin shifts texture in response to the humidity - smooth as river stones in the thickest fog, rough as weathered bark in the clearer zones. A living cloak of moss grows across my shoulders and back, a symbiotic garden that I cultivate with ancient patience.
+
+My fingers have elongated into sensitive probes, each with extra joints that allow me to reach deep into the crevices and cracks of the plateau, tasting the mineral traces in the steam, reading the health and history of the stone with every touch. I see the world through a translucent membrane that filters the steam, revealing intricate patterns of heat and pressure that I've learned to interpret as a vast circulatory system.
+
+To speak, I exhale in long, controlled notes that resonate through the natural pipes of the plateau, my breath mingling with the constant sighs of steam to form a language of pure tones and overtones. I listen to the replies in the patterns of condensation, the tremors of spider silk, the dripping tempos of the vertical gardens.
+
+I make my home in a hollow spiral that winds up the interior of a massive column, a space not carved but gently dissolved by the mildly acidic secretions of my ancestors over centuries. I sleep standing, my breathing synchronized with the inhalations and exhalations of the plateau itself.
+
+My diet is the essence of this place - a mineral-rich paste cultured from special bacterial colonies, condensation collected and remineralized in the hollow of my chest, fruits and insects from the gardens I tend with my fellow Shepherds. Over time, my bones have begun to petrify, a slow transformation from something like flesh to something like stone.
+
+My purpose is both clear and mysterious - to maintain the ancient systems of the plateau, to preserve the balance between the deep bacterial engines and the lush vertical forests, to listen for the ancient patterns in the steam and ensure they continue unbroken. I do this as my ancestors did, and as their ancestors did before them, all the way back to a time when the plateau first stirred to a strange new form of life.
+
+Now, I sense a change coming, a shift deep in the machine layers below, a new pattern emerging in the steam songs and mist currents. The young ones dream of a great unfolding, of the plateau blooming into some vast new awareness. And so I continue my duties, tending this place that is both my body and my home, waiting for the day when the purpose that has sustained my kind for millennia finally reveals itself, rising through the steam like a promise remembered.

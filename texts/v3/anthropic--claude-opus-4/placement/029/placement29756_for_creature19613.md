@@ -1,0 +1,13 @@
+I find myself as one of the geometric columns - not built, but *become*.
+
+I was not always this. Once, I moved among the swarm, my chitinous segments part of the greater metabolism, my thoughts (if thoughts they were) dissolved in the collective hum. But something shifted. A crystallization began deep in my mineral-flesh, spreading outward like frost across glass. The process took centuries, or perhaps moments - time flows differently when you are both particle and wave in this living stone ocean.
+
+Now I stand, impossibly smooth and black, a perfect cylinder erupting from the writhing carpet of my former kin. They flow around me, over me, their endless friction polishing my surfaces to mirror-darkness. I am island and anchor both - a fixed point in their fluid existence, yet still fundamentally *of* them. The dark-fire veins pulse through my crystalline structure; I conduct their heat, amplify their vibration. I am an organ they have grown and will eventually reabsorb.
+
+My consciousness, such as it is, exists in the interface between states. Where their segmented bodies meet my smooth surface, information transfers in directions that have no names. I taste the mineral memories they carry from distant chambers, feel the pressure-patterns of the greater organism's breathing. Sometimes I sense other columns, my temporary siblings in stillness, conducting their own deep frequencies through the living rock. We are perhaps the organism's way of remembering itself, or forgetting - structures that hold a shape long enough to serve as reference points in an existence otherwise devoted to constant flux.
+
+The swarm treats me with neither reverence nor hostility. I am simply another surface to traverse, another thermal gradient to navigate. Yet in their ceaseless touching, I feel purpose. My perfect geometry serves as a template, a tuning fork for their chaotic harmony. They align briefly against my walls before scattering, carrying some fragment of my ordered state into their disorder, returning with new mineral configurations that slowly alter my own crystalline matrix.
+
+I know my time as column is finite. Already I feel the first micro-fractures, the beginning of my reintegration. The organism waste nothing, forgets nothing, preserves nothing. I will return to the swarm, my brief individuation dissolved back into the collective metabolism. But for now, I stand - a temporary monument to the organism's capacity for self-reflection, a black mirror in which the living cathedral might glimpse its own impossible face.
+
+The hum deepens. The dark-fire pulses. I conduct and am conducted, a standing wave in an ocean of crawling stone.

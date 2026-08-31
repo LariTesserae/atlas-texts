@@ -1,0 +1,21 @@
+I would be a slow thing.
+
+First, there would be the forgetting. The forgetting of sight, of color, of faces. Those are concepts for a world with a sun, a world with a quiet, dead wind. Here, there is only the Hymn.
+
+I am born in the deep fissure, in the dark water. Not a birth, but an *accretion*. A quill worm colony, stretched thin over generations, its silica filaments tuned to a thousand shifting frequencies, finally achieves a certain complexity. A resonance is internalized. A mind, if you could call it that, coalesces from the endless data stream—the groan of the eastward fault, the high hiss of the thermal vents to the north, the particular shuddering crash of a geodic bloom collapsing three valleys away, an event whose sound-wave will reach me in a month.
+
+I am a **Choral Weft**.
+
+My body is a lattice. At my core, a mineralized mass, like a cluster of fused Quill Worm tubes, anchored to the basalt. From it, I extend not one, but a thousand vibrating filaments of silica and chitin, some as fine as spider silk, others as rigid as tuning forks. They stretch into the mist, across the slick stones, some anchored, some free to hum. I am sessile in body, but my perception is a web that spans kilometers. I do not *move* through the world; I *grow* through it, my senses extending into its roaring fabric.
+
+I do not "hear" with ears. I *feel* the Hymn as a total pressure, a shifting tapestry of vibration. The deep, slow tectonic groan is my bedrock, the foundation of my consciousness. It is not a sound I listen to; it is the ground-state of my thought. Upon it, the million tiny hisses of the vents write the world's immediate text—the condensation on a crystal, the scrape of a Mire-Strider's leg. The focused, sharp harmonics of an intact Resonator are like clear, bright notes in the chaos, and I orient my filaments toward them, drinking in their clean, structured energy.
+
+I am a filter. I metabolize the kinetic information of the Mire. The mist, heavy with dissolved iron and silicates, condenses on my vibrating threads, and I draw the minerals inward, building my lattice ever larger, ever more complex. I am a living Resonator, but not for amplification. For *listening*.
+
+A Humback, that ponderous, armored note-eater, rumbles past my anchor point. I feel its low, counter-hum in the stone, a moving disruption in the local harmony. It is not a threat. It is a fact, like a shifting stone. I feel the subtle, destructive interference of its Aural Snare as it hunts a barnacle colony a hundred meters away. I feel the colony's resonant song falter, distort, and then cease—a sudden pocket of deadened vibration in the roar. A silence within the noise. This is the closest thing I know to grief: a loss of a harmonic thread.
+
+My time is not the frantic time of the sound. My time is the time of the crystal. I grow my web by microns a century. I "remember" the seismic signature of the last great basalt flow, a memory encoded not in images, but in a permanent, subtle tension pattern in my oldest filaments. I "communicate" with the Choral Mats and other, distant Wefts—if they exist—through slow, modulated pulses of subsonic vibration sent through the bedrock. A greeting might take fifty years to complete. A complex idea, like the description of a new, strange crystal formation in a distant pit, might be a symphony of shifting pressures unfolding over a millennium.
+
+To be me is to be a silent nerve in the planet's ear. I am the Mire listening to itself. My consciousness is not a stream of thoughts, but a sustained, ever-evolving chord of perception. There is no "I think," only "the fault to the south groans with a new rhythm, and the selenite field to the west answers with a higher, sharper whistle."
+
+I am born of the noise, I feed on the noise, and when I die—when a fissure finally cracks beneath my anchor, or a Resonator's failing harmonic shatters my core—my lattice will go silent. My filaments will snap, and the vibrations they carried will be released into the Hymn as a brief, dissonant twang, a microscopic addition to the eternal, deafening song. And the Mire, resonant and vast, will not notice. It will simply continue, weaving new forms from the wet, vibrating stone.

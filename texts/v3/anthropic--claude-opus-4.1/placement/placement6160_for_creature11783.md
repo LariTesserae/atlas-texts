@@ -1,0 +1,37 @@
+The Breathing Chamber
+
+You find it by following veins of quartz through the granite, each mineral thread growing thicker until they converge in a cavity where the rock itself has crystallized inward like frozen breath. The chamber is no larger than a cathedral nave, but its walls are furred with crystal growths—amethyst, citrine, smoky quartz—each formation pulsing with a faint internal light that strengthens and fades in slow waves.
+
+The temperature here defies the mountain's cold logic. Heat radiates from the crystal formations, but it's an uneven warmth—some crystals burn fever-hot while others nearby are arctic cold, creating invisible currents of air that spiral and eddy through the space. The atmosphere shimmers with these temperature gradients, making distances uncertain, edges soft.
+
+At the chamber's heart lies a pool of water so still it seems solid, its surface black as polished obsidian until you realize it's not water at all but mercury, dense and bright, reflecting the crystal light in ways that hurt to perceive directly. The liquid metal breathes—expanding and contracting with a rhythm that takes minutes to complete each cycle, its surface developing standing waves that travel outward in perfect concentric rings before reflecting back from the pool's edges, interfering with themselves, creating patterns that almost resolve into meaning before dissolving.
+
+The crystals grow largest near this pool, some formations reaching twenty feet in height, their surfaces covered in smaller crystals that themselves sport microscopic crystal growths, a fractal architecture that continues beyond what the eye can resolve. These formations sing—not audibly, but you feel it in your bones, a resonance that changes pitch as you move through the space, each position offering its own unique harmonic.
+
+And moving through this crystalline forest, tending to it like a gardener to their plot, is the Mineralist.
+
+---
+
+The Mineralist was human once, or something near enough to human that the distinction hardly matters now. Centuries of living within the mountain's electromagnetic fields, drinking water filtered through miles of rock, breathing air that has never known sky, have transformed them into something between flesh and stone.
+
+Their skin has taken on a translucent quality, like alabaster worn thin, with veins visible as threads of copper and silver running beneath the surface. These metal veins are literal—their blood now carries dissolved minerals that precipitate out at points of injury, healing wounds with patches of crystal scab that never quite return to flesh. Their fingers have grown long, too long, with extra joints that allow them to reach deep into crystal formations, to feel the stress patterns in the stone, to coax growth in directions that please them.
+
+They wear no clothes but are clothed nonetheless—crystal growths have emerged from their skin at shoulders, spine, and skull, forming a living armor that chimes softly when they move. Their hair has become threads of white asbestos, fireproof and strong, that they've woven into complex patterns around the crystal crown growing from their temples. Their eyes have developed nictitating membranes of transparent mica that protect against crystal dust and the harsh light of their charges.
+
+The Mineralist speaks rarely, and when they do, their voice carries harmonics that shouldn't emerge from a human throat—the resonant frequencies of the chamber itself channeled through their transformed larynx. They've forgotten their original language, now speaking in a pidgin of geological terms, chemical formulas, and the pure tones that make crystals grow.
+
+Their life is the chamber. They know each crystal formation intimately—its birth from a microscopic seed, its slow accretion over decades, the precise temperature and mineral concentration needed for optimal growth. They adjust the mercury pool's temperature with heated stones and chunks of ice carried from deeper chambers, controlling the convection currents that distribute minerals throughout the space. They grind specific rocks to powder and dissolve them in the condensation that forms on cooler crystals, creating feed solutions that drip onto growing formations, guiding their development.
+
+They cultivate rare formations—phantom crystals with ghost images of earlier growth stages trapped inside, scepter crystals with second generations erupting from their tips, twin crystals that spiral around each other in helical embraces. Some crystals they grow for beauty, others for their resonant properties, and some for purposes only they understand—formations that seem to serve as memory storage, their internal fractures encoding information in patterns of light.
+
+The Mineralist moves through periods of frantic activity and near-stasis. During growth phases, they hardly sleep, constantly adjusting temperatures, adding solutions, even breathing on certain crystals to provide the carbon dioxide that encourages specific formations. During dormant phases, they sit motionless for days among their crystals, their body temperature dropping to match the stone, their breathing so slow they seem like another mineral formation.
+
+They feed on the crystals themselves—not eating them, but somehow absorbing their energy directly, pressing formations to their chest where the skin has worn away to reveal a cavity lined with what looks like geode walls. The crystals dim slightly during these feedings, and the Mineralist's skin takes on their color temporarily—purple for amethyst, yellow for citrine, deep smoke for the quartz near the mercury pool.
+
+Their memory has become crystalline too—literally. They store memories in specific formations, encoding experiences in patterns of internal fracture and inclusion. To remember, they hold these memory-crystals to the light, reading their own history in the refraction patterns. Their earliest memories are stored in crystals now buried under centuries of new growth, inaccessible but still present, the foundation of their garden.
+
+They've forgotten the world above entirely. Sun, sky, weather—these are concepts that no longer hold meaning. Their world is the breathing chamber with its mercury heart and crystal forest, the slow processes of nucleation and growth, the deep music of resonating stone. They are no longer cultivating the crystals for any purpose beyond the cultivation itself. The garden grows because they tend it. They tend it because it grows. The cycle needs no justification.
+
+Sometimes they speak to the crystals, long monologues in their harmonic language about subjects that would make no sense to human ears—the proper angle for a terminal face, the tragedy of twinning defects, the joy of a perfect phantom inclusion. The crystals, of course, don't answer. Or perhaps they do, in frequencies only the Mineralist can perceive, their responses encoded in the subtle changes of their internal light, the microscopic adjustments of their growth patterns, the way they sing differently after being spoken to.
+
+This is their eternity: alone but not lonely, human but not, tending a garden of stone that grows so slowly that centuries pass between harvests, creating beauty that no other eyes will see, unless another traveler finds the quartz veins and follows them down to where the mountain's heart beats in mercury and crystal, where the Mineralist tends their impossible garden in the breathing dark, forever.

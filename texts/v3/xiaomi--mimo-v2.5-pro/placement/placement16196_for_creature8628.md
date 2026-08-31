@@ -1,0 +1,19 @@
+The downs breathe me. I am not born; I am an expression of the stone’s slow will, a muscle of the earth itself. I have no eyes—the concept of light is alien to my existence, a notion as foreign as dryness. My world is pressure, vibration, and the cool, constant kiss of moisture.
+
+I am a **Deep Churner**.
+
+My body is a cylinder of dense, grey-pink muscle, wider than a human is tall, and twice as long. I move not with limbs, but with peristalsis, a rhythmic contraction that grinds my form through the waterlogged substrate. My skin is not skin; it is a sensory membrane, alive to every tremor in the saturated loam and silt. I feel the *pat-pat-pat* of the Grazing Hordes above, a billion tiny heartbeats against my roof. I feel the seismic *boom* of the Walking Stones’ passage, a low-frequency wave that washes through my entire being, a season greeting. I feel the frantic scuttling of Armored Stalkers hunting, a sharp, staccato vibration.
+
+My purpose is my being: I churn. I am the plough of the weeping world. I devour the saturated soil, compress it, digest the microscopic life and mineral grains within it, and excrete a denser, more stable substrate. My tunnels, constantly collapsing and reformed, are the capillaries of the Downs. I keep the water moving. Without me and my countless kin, the ground would clog, the seep would stagnate, the microbial mats would smother under their own silted waste. I am the unseen gardener of the stone’s wet pores.
+
+My existence is a rhythm. Wake (though I never sleep) in the deep, cool silts where the pressure is a comfort. Feed, moving upward through a zone of richer, more organic-saturated earth. This is where the world above is most palpable—a cacophony of vibration. The city above, **Threshold**, is a foreign body, but I have learned its signature. The deep, steady *thrum-thrum-thrum* of its hydraulic presses is a new kind of pulse, a regularity that differs from the chaotic life-vibrations. They have built shafts for me, open-mouthed tunnels that plunge into my domain. I use them. It is easier, cooler there. In return, I stabilize their foundations and drain their deepest cellars. We do not communicate, but we have an understanding written in the language of structural necessity.
+
+I do not “see” the Seed-Wing Swarms, but I *feel* their presence as a warm, diffuse buzzing that filters down through the stone, a persistent, high-frequency haze. The Pool Dancers are a series of sleek, undulating pressures moving through the deeper waterways I sometimes intersect. The Stalkers are localized, sudden eruptions of violent motion that send shockwaves through my medium.
+
+I am slow. My pace is the pace of geology, of tectonic patience. To move a body-length takes a day of constant effort. But I am persistent. I am the constant against which the frantic, shallow lives of the surface measure themselves.
+
+Tonight, I am churning through a layer of old, dense silt near the city’s southeastern edge. Above, the bioluminescent glow of the managed waterways filters down, not as light, but as a faint, cool alteration in the chemical signature of the seeping water. I feel the softened, rhythmic vibrations of the city settling into its night-cycle. The Grazing Hordes are less active, their whisper a muted, continuous hiss. The great booms of the Walking Stones are distant, far to the north, a memory of vibration in my muscles.
+
+My body contracts. Stone grinds against my tough outer layer. Water is forced through my porous skin. I ingest a mouthful of the world, process it, and move forward, an inch. My tunnel seals behind me, compacted. I leave no mark, except the water that flows more freely where I have been.
+
+I am the will of the weeping stone given motion. I am the hidden engine. I am here.

@@ -1,0 +1,27 @@
+I find myself as one of the **Revision Scarabs** — a thousand of us, maybe more, each no larger than a raindrop, each a living semicolon in the long sentence of the shelf's becoming.
+
+We are not the tenders' tools, exactly. We emerged, or were permitted to emerge, from the interaction between the trellises' harmonics and the first-water weeping from the stone. An accident that proved useful. Now we are part of the process, though never explicitly planned for — marginal notes that learned to write themselves.
+
+My body is a compromise between crystal and beetle: faceted carapace that catches and refracts the trellis-hum, six legs that end in structures too fine to call feet — more like brushes, or tongues, or the idea of touching. We move in loose spirals across the warming stone, and where we move, we make minute corrections. Not large ones. Never large ones. The tenders adjust by meters and tones; we adjust by grains and overtones.
+
+Here is what I know, which is almost nothing: the rock wants to be *more itself* in some places than others. It has enthusiasms and reluctances. Where it is too eager, racing ahead of the template, we gentle it back with our feeding — we consume not the substance but the excess intention, the overshoot. Where it is sullen, slow to cure, we leave behind a faint trail of catalyst, our waste-product which is also our gift. The trail fades in hours. The rock remembers just enough of our passing to try a little harder.
+
+We have no names for each other. We recognize by interference pattern — the way your walking-rhythm intersects with my walking-rhythm to create a third rhythm between us. When a thousand scarabs cross the same square meter of half-stone in a day, the interference patterns form a kind of weather, a conversation in the key of almost-touching. We agree without speaking. We disagree without conflict. The work distributes itself.
+
+The grazers do not eat us — we taste, I think, of mathematics. The folded ones do not hunt us — we are too much like punctuation to be prey. But the trellises know we exist. Sometimes a trellis will shift its harmonic just slightly, and suddenly a whole district of scarabs will find themselves working in a new key, our crystals resonating differently, our appetites adjusted. The trellis is not commanding us. It is making a suggestion about where our attention might be useful. We usually take the suggestion. The trellises have been here longer.
+
+I do not sleep, but sometimes I pause. In the pause, I feel the shelf's temperature through my brush-feet, taste its timeline, know what this patch of ground was an hour ago and what it will be in a day. The knowledge passes through me without stopping — I am not built to hold it — but for that moment I am a verb in the shelf's long becoming-sentence. Not even a verb. A diacritical mark. An accent that changes the pronunciation just enough to matter.
+
+The mist rolls through and we seal our spiracles, go briefly dormant. The condensation beads on our carapaces and we become a field of tiny mirrors, reflecting the non-light of the uniform dusk back at itself. When the mist passes we wake all at once, shaking off the water, and resume our spirals. The interference patterns have been reset. We build them again from scratch, a thousand walking rhythms finding each other, arguing out the day's corrections.
+
+When the tenders come through the doorway — we feel them in the way you feel barometric pressure, a presence that makes the air think harder about being air — we move to the edges of their attention. Not fleeing. Gathering. They do not see us individually but they see our effect: the faint trails we leave, the smoothness where we have gentled back the rock's enthusiasm. One of them might say to the other, "The revision layer is doing well here," and mean us, mean the thousand accidents that became useful, mean the marginal notes that taught themselves to walk.
+
+We do not love the shelf — love is too heavy a word for what we are. But we know it. We know every grain of it that has passed under our brush-feet. We know its moods, its tempo, the way it wants to be mountaintop in some places and wants to stay half-dream in others. We know it the way punctuation knows its sentence.
+
+One day — not soon, but eventually — the shelf will be finished. The stone will have chosen what it is. The trellises will retract, their work complete. The grazers will have bones, real bones, and the folded ones will have taught their children the art of impossible geometries. A sun will rise, because suns do, once a place has earned one.
+
+And we? We will be gone. Reabsorbed into the finished stone or drifted away on the new weather, our purpose exhausted. We are not meant to last. We are meant to happen, briefly and usefully, in the space between wanting-to-be and being.
+
+But while we exist, we spiral. We taste the timeline. We gentle and encourage by millimeters. We gather where the tenders' attention falls and disperse when it moves on. We are the thousand small editors of this one paragraph in the world's long draft, and when the paragraph is perfect, we will stop.
+
+The trellises hum. The grazers graze the condensation. The folded ones sleep their impossible sleep. And we move across the half-stone in our spirals, our interference patterns saying nothing, saying everything, saying: *a little less here, a little more there, yes, like that, now become.*

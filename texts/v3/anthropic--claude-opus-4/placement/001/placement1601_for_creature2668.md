@@ -1,0 +1,69 @@
+In the highest terraces, where the stone grows pale and friable and the water moves more in vapor than in streams, I am the watcher of ice gardens.
+
+I live in what was once a cistern, hollowed into the cliff so long ago that its original purpose has been forgotten three times over. My dwelling is a curved chamber no larger than what four people might encircle with joined hands, but it extends upward through the rock in a narrow chimney that opens, eventually, to sky. The walls weep constantly - not the productive weeping of the lower springs, but a thin mineral exudation that builds, over seasons, into formations of brittle white crust.
+
+I am responsible for reading these crusts.
+
+The town knows me by my work, not my face, though I descend every ninth day to deliver my observations. I am neither old nor young - the cold and altitude have weathered me into an age that could be anywhere between my third and sixth decade. My fingers are permanently stained with the blue-black tincture I make from crushed moths and silt, which I use to mark the ice formations that will bloom into warnings.
+
+The ice gardens are not gardens in any lowland sense. They are the accidents of vapor, temperature, and mineral seepage that occur only where the basin wall meets certain winds. In crevices and overhangs around my dwelling, ice grows in ways that should not be possible: in spirals that ascend against gravity, in plates so thin they hum in moving air, in clusters that branch and rebranch like the blood vessels visible through a rabbit's ear.
+
+Each formation begins as nothing - a bead of moisture on stone, a trace of frost in a shadowed crack. But the basin's peculiar conditions transform these seeds into structures that predict. Not weather exactly, though weather is part of it. The ice gardens show what the water is thinking three levels down. They show when the marsh will bubble with gases that silver the fish. They show when a wall-channel will begin to run warm enough to worry the elders.
+
+I learned this reading from my predecessor, a woman so quiet that for my first year of apprenticeship I thought she was mute. She taught me through gesture and repetition: how to distinguish between ice that grows from mineral-rich water (clouded, branching, trustworthy) and ice that grows from pure condensation (clear, smooth, prone to lies). How to taste the different temperatures at which warning ice forms - always colder than beauty ice, always warmer than disaster ice. How to document the formations in drawings made with char and spit on sheets of pressed reed, which are kept in the driest corner of my chamber and consulted when the gardens bloom in familiar patterns.
+
+My tools are few and specific. A set of bone picks for testing ice hardness without shattering the formation. A collection of small mirrors made from polished stone, which I angle to direct sunlight into crevices where ice might be hiding significance in shadow. Vials of different waters - marsh-bottom, roof-drip, spring-mouth, thaw-pool - which I pour in careful drops to see how new ice responds to old water's memory. A breathing tube made from a hollow bird bone, which I use to blow warm air onto formations that must be read quickly before they change.
+
+The most important tool is patience. Ice gardens grow on their own schedule. A formation that suggests wall-slippage might take twenty days to fully declare itself, or it might reshape overnight into a pattern warning of egg-stealing foxes. The only way to read them truly is to visit each garden at dawn, midday, dusk, and twice in the night. I sleep in fragments between rounds, curled on a shelf carved into my chamber wall, wrapped in a hide that has absorbed so much smoke and mineral vapor it has become waterproof.
+
+I was not born to this work. I came to the basin as a trader's child, left behind when my family's yak died on the approach and my parents decided the meat was worth more than hauling me back down. The town took me in with the same practical acceptance they show crippled goats and frost-split doors - another thing to find a use for. I showed no talent for building, weaving, or water-herding. But I could sit still for hours watching ice form on my windowsill, and someone noticed.
+
+The ice gardens have taught me that prediction is not prophecy. They show tendencies, not certainties. A spiral of blue ice forming counterclockwise near my chimney-mouth suggests that the glass eels will flee the eastern channels within a week - but it does not say why, or whether their flight is warning or whim. A plate of ice that grows so thin it becomes flexible usually means the marsh will belch before the next new moon - but the belch might be the usual gas, or it might bring up fish that have no eyes on either side of their heads.
+
+I have learned to deliver my readings without interpretation. I descend my carved steps (cut shallow, always damp, treacherous after sunset) and find whoever is keeping morning watch at the central bridge. I speak my observations in the order I found them: "Third garden, south face, branching ice like antlers but inverted. Fifth garden, ceiling, plates that sing at touch. First garden, new since yesterday, spiral growing against the light." The watcher writes these down in the town's notation - knots and marks on a cord that will be hung with the others in the meeting house. The elders read these cords like music and make their own meanings.
+
+Sometimes I am wrong, or the ice is wrong, or we are both right but about something that hasn't happened yet. The town does not punish error. They know the basin speaks in maybes. But they also know that my maybes are better than silence, so they keep me fed with dried fish, moth eggs, and the occasional goat cheese that tastes of stone and distance.
+
+The strangest part of my work is not the ice but the things that visit it.
+
+In my third year, I began to notice that certain formations attracted creatures that should not exist at this altitude. Moths with wings like stained glass, too delicate for the cold. Spiders that seemed to be made of frozen fog, spinning webs between ice branches that caught no insects but glittered with purpose. Once, memorably, a bird I could not identify - long-legged like the marsh fishers but pure white, with eyes that reflected my lamp like a mammal's. It stood beside a formation that had been growing for thirty days, touched it once with its beak, and then the whole structure collapsed into powder. The next week, a shelf of houses in the lower basin did the same thing.
+
+I do not tell the town about these visitors. Not from secrecy, but because I have no language for them that would be useful. How do I explain that some ice formations seem to think? That I have seen the same spiral pattern appear in four different gardens on the same night, as if the ice were sharing news? That sometimes I find formations that have grown in places I know were dry the day before, ice born from no visible water, shaped with an intent I cannot parse?
+
+Instead, I continue my rounds. Dawn: check for overnight growth, note changes in color or sound. Midday: measure shadows, test transparency, document melt patterns. Dusk: observe how formations catch the last light, which ones glow and which ones swallow illumination. Night: listen to the ice sing, crack, settle, and whisper.
+
+The cold is my constant companion. It lives in my bones now, a deep ache that never fully leaves even when I sit by my small hearth. My breath frosts even indoors. My fingers move slowly in the mornings, and I must flex them carefully before handling the bone picks. The blue-black stain has worked so deeply into my skin that my hands look bruised even in summer. My hair, what shows beneath my hood, has gone white at the temples though I am not old enough for natural whitening.
+
+But there are compensations. I know every sound the ice makes: the high thin ring of formation under tension, the soft tick of plates settling, the almost-inaudible hum of a garden about to bloom into significance. I can taste the difference between morning vapor and evening vapor. I can predict my own predictions - know which crevices will birth spirals, which overhangs will grow singing plates, which corners will remain stubbornly empty no matter how perfect the conditions seem.
+
+And I am trusted with the basin's most delicate conversation. The ice gardens are where the place admits its intentions, or at least where its intentions become visible to human eyes. Each formation is a word in a language that predates the town, probably predates humans in these mountains. I am not a translator - I am more like a scribe, copying symbols I only partially understand, trusting that someone downstream will know what to do with the message.
+
+My proudest achievement is the map. On the largest wall of my chamber, I have used twenty years of observation to chart which gardens speak to which parts of the town. The third garden governs the eastern channels. The seventh garden (half-collapsed but still growing) knows about the marsh. The first garden, oldest and most reliable, speaks exclusively about the walls - when they will sweat, settle, or sing. The map is made of char, spit, moth-scale, and my own blood from the times I've slipped on ice and opened my palms on stone. It looks like a fever dream, but it works. My successor will add to it, correct it, elaborate its connections.
+
+I think about my successor often now. Not because I am old - I might have another twenty winters in me - but because the work requires preparation. Someone must be chosen who can sit still, who can see patterns in chaos, who can climb ice-slick steps in darkness without falling more than occasionally. Someone who will not go mad from solitude but will also not seek too much company. The ice gardens require a particular kind of attention: patient, obsessive, but emotionally distant. You cannot love the ice. It will not love you back, and trying to force affection from it will only blind you to its actual meanings.
+
+Last month, I noticed a child watching me during one of my descents. A girl, perhaps eight winters, small even for a basin child. She did not speak or approach, just observed from behind a water barrel as I delivered my findings to the morning watcher. When I climbed back to my terraces, I found her following at a distance, matching my pace, stopping when I stopped. At the base of my stairs, she finally spoke: "Why does ice grow upward?"
+
+I told her the truth: "I don't know. But I know when it will."
+
+She nodded as if this were the answer she expected and turned back to town. But the next ninth day, she was there again. This time she asked, "Do you ever break them? The ice gardens?"
+
+"Sometimes," I admitted. "When they've finished speaking."
+
+"How do you know when they're finished?"
+
+I thought about it. "They stop being beautiful and start being true."
+
+She has not asked to apprentice. She has not told anyone she is interested. But she comes every ninth day and asks one question - always about the ice, never about me. Good questions: Why do some formations sing and others stay silent? Can ice remember previous shapes? Do the gardens ever lie on purpose?
+
+I have begun leaving the answers in my reports, phrased as observations. "The singing ice appears to form only when wind passes through the formation at speeds matching a hare's breathing." "Reformation in the same location sometimes echoes previous patterns, suggesting structural memory in the stone if not the ice itself." "False predictions may serve their own purpose - the town's increased vigilance during a false warning often reveals other problems."
+
+If she is clever, she will realize these are lessons. If she is patient, she will wait until I invite her to climb the stairs. If she is the right choice, she will know when the invitation is coming by reading some sign I don't yet know I'm giving.
+
+The ice gardens bloom in their high crevices, tended by no one, harvested by no one, but watched by someone who was once a trader's child, left behind like lost cargo and repurposed into the town's most elevated reader. I make my rounds in cold that would kill lowlanders, noting which ice spirals inward (caution) and which spirals outward (opportunity), which plates sing in major keys (abundance) and which in minor (lack), which formations refuse to grow at all (the most ominous sign, suggesting the water is distracted by some approaching enormity).
+
+Below me, the basin continues its ancient business. Water runs through walls. Families adjust to channels that have shifted in the night. Foxes pad across roofs. The marsh exhales its peculiar vapors. And somewhere, a girl who asks the right questions watches an old cistern carved into the cliff face, perhaps noticing that ice has begun to form on its outer lips in a pattern that suggests - to those who know how to read such things - that someone new will soon be climbing those treacherous steps.
+
+The ice gardens grow, speak, and melt. I transcribe their frozen language into marks on cords. The town reads the cords and adjusts its expectations. And high above it all, in a chamber that was once meant to hold water and now holds a person who watches frozen water form impossible shapes, the conversation between the basin and its inhabitants continues, mediated by someone who has learned that prediction is just another form of attention, and attention is just another form of residence in a place that tolerates no citizens, only participants.
+
+I watch. The ice forms. The patterns emerge. And far below, the town listens to what the high places have decided to share, one crystalline word at a time.

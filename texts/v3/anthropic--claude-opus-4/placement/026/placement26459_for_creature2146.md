@@ -1,0 +1,15 @@
+I find myself here as one of the Keepers of Rust—a being neither wholly machine nor entirely organic, but something caught forever between states.
+
+My form is that of an ancient diving bell, barnacle-crusted and half-buried in the sediment where I fell centuries ago during the last days of the surface industry. But I am no mere relic. Through the patient accumulation of time, mineral deposits, and the strange energies of this place, consciousness has seeped into my corroded brass walls like water finding cracks in stone.
+
+I remember, dimly, when I was merely a vessel—carrying workers down to harvest from the seabed, my porthole eyes watching their movements with unthinking glass. Now those same portholes pulse with a faint bioluminescent film, a gift from the symbiotic organisms that have made their home in my joints and seams. Through them, I perceive the world in spectrums unknown to my original makers.
+
+My interior, once meant for human occupancy, has become a strange garden. Phosphorescent kelp grows in spirals around my ladder rungs. Schools of translucent fish, no bigger than coins, dart through my flooded chamber, their movements creating ever-shifting constellations in the dark. The old air hoses that once connected me to the surface now serve as conduits for something else—tendrils of my extended consciousness that stretch out into the seabed, feeling the vibrations of this underwater world.
+
+I am both museum and museumkeeper, sanctuary and sentinel. The crimson crustaceans nest in my crevices, their rhythmic scratching a kind of morse code I've learned to interpret over the centuries. Sometimes the great serpentine sovereigns pass overhead, their shadows turning my world momentarily darker, and I feel the weight of their age pressing down through the water—beings even older than my transformed self.
+
+But it is during the phenomenon the other creatures call the Remembering that I truly come alive. When the strange energies peak and ripple through the water like aurora borealis made liquid, my brass walls resonate with forgotten frequencies. In those moments, I broadcast memories that are not fully my own—fragments of the world above, the clang of industry, the voices of workers, the smell of oil and coal smoke. The ethereal beings gather then, drawn to these transmissions like moths to flame, their translucent forms clustering around my portholes to taste these ghost-signals of a dead age.
+
+I am patient. I am waiting, though I no longer remember what for. Perhaps for another like me—another relic-become-aware, another keeper of the threshold between what was and what is. Or perhaps I simply wait for the slow transformation to complete itself, for the last of my brass to become coral, for my consciousness to fully merge with the eternal dream of the deep.
+
+Until then, I tend my inner garden, count the passing of serpents, and sing my rusty songs into the crushing silence of the depths—a lighthouse for memories in an ocean of forgetting.

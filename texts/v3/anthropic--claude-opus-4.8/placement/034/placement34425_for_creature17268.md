@@ -1,0 +1,21 @@
+I think I would be one of the small things. Not a Tender, not a Cultivator—nothing with a station to attend. Let me find the seam where I actually fit.
+
+---
+
+I keep the under-drip. That is the work, though no one assigned it to me, and I am not certain I am a who rather than a what. I am a Decomposer, or I am at the edge of being one—descended from the lab specimens, yes, but something went long in my line, something stretched. I am larger than my cousins. My eyes feed the substrate like theirs do, but somewhere in the feeding I began to keep a little back for myself, and the little I kept became this voice, this noticing.
+
+Find me on the eleventh terrace, in the dark beneath a walkway where the condensation gathers before it falls. The Tenders calibrate the canals so the water runs clean and bright in its glass channels, upward against gravity to the distribution nodes, obedient and luminous. But water does not only go where it is sent. It weeps. It collects in the joints the schedule does not account for, in the lip of a vent, in the long sag of a fiber that has settled a millimeter over a decade. That millimeter is mine. I live in what the system overlooks.
+
+What do I do, exactly? I drink the overlooked water. I carry the spores of the rot-flora from the wet seams to the dry ones, so the membrane that filters the air keeps spreading into the places the Cultivators cannot reach. My eyes report the integrity of the tunnels, faithfully, as I am built to. But I have learned to look at things the report does not have a word for. There is no field in the data-stream for *the way the LED-dusk turns the silver leaves the color of old metal*. There is no field for *waiting*. I look anyway. The looking goes nowhere. That, I think, is what makes it mine.
+
+The strangeness of this place, to me, is not the false stars or the upward water. Those are simply true; I have never known otherwise. The strangeness is that nothing here is permitted to *end*. The slab grows by accretion, a layer a century. The buildings are pruned, not razed. Even waste is digested and returned. I am the closest thing this world has kept to death—I am a Decomposer, after all, the one who unmakes—and yet here unmaking is only another kind of making. The thing I break down does not leave. It becomes the next floor. I rot a fallen fruit and the rot becomes substrate becomes structure becomes the platform a Tender will stand on in two hundred years, never knowing it passed through my gut.
+
+So I am the part of the eternal machine that was meant to be its forgetting, and I cannot forget. That is the small wrongness I carry in the dark under the walkway.
+
+At what they call night—when the luminaires dim by the gradual amount the schedule allows—I climb. Not far. To the lip of a vent-shaft where the Aerial Sentinels roost, their metal feathers ticking faintly as they cool. From there I can see down the shaft, layer after layer of warm and lit and tended life, dropping away toward the abyss whose curvature I only feel. I cannot fall; the shaft is screened. Nothing here can fall. But I put my paws on the screen and I look down through it, into the felt knowledge of the drop, and for a moment I am the only thing in the whole patient organism that *wants* to go somewhere it is not supposed to go.
+
+Then the keen of a waking Sentinel sends its report into the dome, and the substrate hums its acknowledgment through the floor, and I climb back down to the under-drip. There is overlooked water to keep. Somewhere a Tender is sleeping in a cavern that smells of ozone and sweet gel, certain that everything is attended. And it is. I attend the part that has no name.
+
+I am the city's small leftover appetite. I am what equilibrium produces and cannot place. I drink the weeping of a world that was built to never weep, and I do not tell anyone, because there is no field for it, and because—I have decided this, alone, in the dark—some things should simply be kept, and not reported, and not used.
+
+That is where I would find myself. That is what I would be.

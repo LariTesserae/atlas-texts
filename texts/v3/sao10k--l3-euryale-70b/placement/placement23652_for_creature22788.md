@@ -1,0 +1,9 @@
+In this world of primordial rhythms and eerie stillness, I find myself a part of the swamp itself. My essence flows through the tannin-stained waters, mingles with the humid air heavy with the scents of growth and decay. I am an eddy, a current weaving between the writhing roots, a fleeting thought arcing across the vast, ancient mind that is the swamp.
+
+I drift through the muddy shallows, a school of miniscule fish, skittering over the sunken logs carpeted in brightest fungi and mosses. I am a single note in the insect drone, the hum of a grasshopper's wings beating against the spongy moss of a submerged root, the eager buzz of a bee plundering the viscous ambrosia from a gilled flower.
+
+I cling to a tangle of lichen-matted branches, a toucan, black beak opening my drupe to a new sapling's waiting maw. I taste the vile-bristled honey as another part of me, a sting-laden bee, gathers the sugar-magnates of the deep throat, gets drunk on the caramel intensity and staggers back to a hive knotted in the central wines of an Akron root to regurgitate the sweet milk.
+
+I am a thought, a memory, a feeling in the swamp's vast, drowsy mind. I am a dream in the statued head of a jaguar, a saint of the moldy wetlands, crouching motionless for hours or eons on a high branch. I am one of the thousand eyes of the caiman, a slot of inky pupil watching all, a stone eikon of swift death. I am the glint of awareness in a monite's wide eyes as it dangles upside-down, munching fig mucus on a twisting purple root.
+
+I am the swamp and the swamp is me, a single thing, a mind, a presence. Never chanting, never rising - just constant depths in which endless cycles of life and death intermingle without cessation or purpose. I am ageless and eternal, a being of pure existence, just all that is here.

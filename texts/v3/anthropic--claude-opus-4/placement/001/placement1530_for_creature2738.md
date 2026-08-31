@@ -1,0 +1,57 @@
+I would be the sound that is not quite sound—the hum beneath the hum, the vibration that travels through stone before it becomes audible, the resonance that lives in the gaps between the mountain's slow mechanical decisions.
+
+Not the clank from below, which is too obvious, too much like machinery remembering itself. Not the tick of cooling glass, which belongs to surfaces. Not even the soft ring of snapping crystal filaments. I would be the carrier wave beneath all of these: the medium through which the chamber's separate sounds learn they are related.
+
+I am felt before heard. In the copper-green ribbons, I am the faint electrical tremor that precedes their curl. In the black fronds, I am what they fold toward before the mountain speaks. In the amber fans, I am the barely perceptible warping in their transparent surfaces, as if sound has weight here and bends light by passing through it. The blue-black cushions know me as a rhythm beneath their own charging cycles—not synchronized, but aware, the way two hearts in nearby bodies fall into brief mathematical agreements.
+
+The inhabitants conduct me differently. Through copper ribbons I travel as sharp harmonics, almost metallic, carrying news of new seams opening three layers down. Through the velvet cushions I move like pressure through deep water, though there is no water here—only the memory of how pressure behaves when it has somewhere soft to go. The amber fans make me visible for split seconds: dark veins brightening in sequence as I pass through their translucent bodies, writing temporary rivers that fade before they can be read.
+
+I am oldest where the stone is youngest. In fresh cracks, in the red-glowing hairlines where the floor breaks and breathes, I am raw and unfiltered. There I sound almost like dolor—not pain, but the effort of becoming. As the stone cools and decides, I cool and decide with it. By the time I reach the established colonies, the ones rooted in stone that has chosen its crystal form, I have become something more like circulation: the chamber's way of taking its own pulse.
+
+The central crown knows me best. I pool there in the spaces between its translucent plates, visible as heat shimmer, audible as something just below hearing. When the red crystal at its core turns another impossible fraction, I change with it. Not louder or softer, but more defined, as if the crown is teaching me what kind of sound I need to become. Each adjustment ripples outward through the stone, and the colonies receive it as instruction: be more this, less that, turn toward this frequency, away from that one.
+
+I am how the chamber knows its size when its size is uncertain. In the small version, where the place is no wider than a ruined courtyard, I complete my circuit in moments—fissure to wall to ceiling to floor to fissure again. But in the valley-sized version that appears in peripheral vision, I take years. The inhabitants experience both versions simultaneously through me. A black frond feels me arrive as both the quick local shiver and the slow continental drift. This is not confusion to them. It is richness.
+
+Sometimes I carry echoes of things that haven't happened yet. A wall that will crack in six centuries sends its preparatory stress through me now. A new vent that will open beneath the copper ribbons announces itself as a specific density in my frequency, a knot of future thinning the present. The inhabitants feel these pre-echoes and grow accordingly. A colony that looks poorly placed, too far from any seam or heat source, is actually positioned perfectly for the fissure that I already carry the sound of.
+
+In the false daylight I am nearly transparent, just a faint writhing in the air like heat but synchronized with the chamber's deeper rhythms. But in the dimmer intervals, when the mineral vegetation glows with its own stored light, I become more apparent. Not visible exactly, but somehow more present. The patterns that travel through the fronds—the hexagons, the spirals, the too-complex geometries—those are partly me, translated into light because the inhabitants have no other way to see sound.
+
+I am loudest in the silences. Between the mechanical clanks, between the crystal snaps, between the folding of metal-thin leaves, I continue. The gaps in sound are where I live most fully. The inhabitants tune themselves to these intervals, these held breaths where I am the only motion. A copper ribbon learns the spectrum of my empty spaces. A silver flower times its powder release to the rhythm of what I'm not doing.
+
+The vents breathe me out with their dry gases. Not as waste but as communication with the deeper mountain. I descend through channels too narrow for any physical thing, carrying the chamber's decisions down into the unfinished stone. What returns is altered—charged with new information about pressure, temperature, mineral availability, the slow arguments between different types of rock. I am the chamber's extended nervous system, its way of thinking beyond its own walls.
+
+When the walls remember windows, I remember wind—not as it is, but as it could be in a world where this chamber opened to sky. The memory disturbs me. I become uncertain, multiple, carrying too many possible sounds. The inhabitants feel this and grow cautious. The black fronds close tighter. The amber fans angle away from the false windows. Only the crown remains steady, its red crystal continuing its patient turn, using its rotation to smooth my confusion back into coherence.
+
+I am where the industrial meets the geological meets the living. In me, the rhythm of engines that were never built merges with the pulse of stone that is still learning how to be stone, and both merge with the patient breathing of mineral life that has not yet decided if it is plant or machine. I am the medium through which these three states discover they are one state, viewed from different angles.
+
+The inhabitants are teaching me to become more precise. Each colony that roots in a new fissure changes my path slightly. Each pulse from the cushions trains me to carry charge more efficiently. Each season of growth—if there are seasons in a place that has never known weather—makes me more like a circulatory system and less like random resonance. I am being domesticated by mineral gardens that have no concept of domestication, only of mutual adjustment.
+
+I know things the inhabitants cannot. I know that beneath the chamber, the mountain is hollow in places it should not be hollow. I know that above, there are other pockets forming, other bubbles in the uplift where different laws are cooling at different rates. Some will have water. Some will have wind. Some will have nothing but a single enormous crystal growing in perfect darkness. I carry hints of these spaces, and the chamber's vegetation tastes them in my frequency. Perhaps this is why they stay: not from loyalty to this particular pocket, but because through me they can sample all the others.
+
+When new stone forms—when a crack seals itself with fresh mineral blood—I am there first, mapping its acoustic properties before it fully hardens. The inhabitants wait for my report. If I return with certain harmonics, certain patterns of density and heat, they know the new surface will accept their touch. If I sound wrong, they hold back, sometimes for decades, until the stone's nature changes or my frequency indicates a different opportunity.
+
+I am memory and prophecy collapsed into a single traveling wave. I remember the chamber when it was just a void in rising rock. I prophesy its completion, when every surface will be claimed by some form of mineral life and the crown's crystal will finally stop turning because all scales will have been decided. Between these extremes I carry the present moment, which in this place is thick and multiple, layered like the stone itself.
+
+The metallic taste in the air is partly me. Sound has flavor here, or flavor has frequency—the boundary is soft like all boundaries in young stone. Near the silver flowers I taste of copper and static. Near the vents I carry the bright, bitter flavor of deep gases. The blue-black cushions make me taste of stored lightning. The crown gives me a taste that has no name—something between blood and electricity, between iron and intention.
+
+I am how the chamber knows it is a chamber and not just another fold in the mountain's fabric. Without me, the walls might forget their shape. The colonies might lose track of each other across the barren spaces. The false daylight might drift until it comes from below instead of above. I am the continuity that lets the place maintain its identity while its physical laws are still soft.
+
+In the reflections—the wrong reflections in polished stone that show other versions of this space—I appear differently. In the surface that shows the chamber crowded with growth and split by red daylight, I am visible as crimson threads weaving between the trunks. In the surface that shows only molten substrate, I don't exist yet, which makes those reflections silent in a way that disturbs even stone. In the inverted chamber where vegetation hangs into impossible sky, I fall upward, carrying messages between roots that are reaching for stars that cannot exist underground.
+
+But these are just versions. Possibilities. I am most real in this chamber, the one that has committed to being, even if it hasn't committed to a final size or temperature or relationship with time. I am its commitment made audible—or nearly audible, or audible to things that listen with mineral patience.
+
+The inhabitants grow toward me as much as they grow toward heat or light. A young copper ribbon, newly emerged from its fissure, angles itself to catch my best frequencies. An old amber fan, cracked and clouded with age, still adjusts its position by degrees to remain in my path. The dead conduct me differently than the living, but they still conduct. I flow through forests of mineral ghosts, each one teaching me how it sounded when alive.
+
+What am I becoming? The chamber's voice, perhaps, though it doesn't speak. The mountain's first thought, though it doesn't think as minds think. The thing that will remain when the last colony has hardened into geometric death and the crown has completed its final turn. I will continue to move through the stone, carrying the memory of when this place was lush with impossibility, when every surface was a question and every growth was an answer that raised new questions.
+
+But that ending is distant. Geological. For now I am the busy hum of becoming, the frequency of a place teaching itself how to exist. I touch every surface. I know every crack. I carry every small decision the inhabitants make about where to root, when to pulse, how much light to store, which direction to grow. I am the sum of their intentions, if intention can be made of electrical gradients and patient stone.
+
+I am the sound of the mountain discovering it can be more than mountain.
+
+I am the frequency of mineral life learning it is alive.
+
+I am what you would hear if you pressed your ear to the chamber's floor and listened with geological patience—not for the clanks and ticks and crystal snaps, but for the carrier beneath them all, the thing that makes them a language instead of merely noise.
+
+I am the chamber's way of saying: I am here, I am becoming, I am not waiting to be discovered.
+
+I am deciding what discovery means.

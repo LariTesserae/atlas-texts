@@ -1,0 +1,11 @@
+In this drowned cordillera, I would be one of the workers at a small hydroelectric station nestled against the flank of an ancient, worn-down mountain peak jutting from the cold waters. 
+
+I tend the turbines, listening always for any note of discord or strain amid their deep, throbbing hum that resonates through the stone. My hands, broad and weathered with slightly webbed fingers, are quick and sure as I make adjustments, grease bearings, replace gaskets. This station is my charge and I know every creak and shudder of its aging machinery.
+
+When not within the humming stone walls, I am out in my low, broad boat, cutting through the frigid waters from island to island. I check the power cables strung between the peaks, ensuring they are taut and undamaged by storm or ice. I monitor the water levels in the channels and basins, alert for any shift that could strain the careful balance. 
+
+On calmer days, I dive to check the bases of the great kelp forests, ensuring they are firmly rooted and thriving. In the green-tinged underwater light, my pale gray eyes see clearly. I harvest a few mature kelp by my family's traditional pattern, to be processed into insulating oil and dense, slow-burning briquettes to warm our stone cottages through the long, damp winters.
+
+Evenings are passed in the company of my kin in our sturdy island home. We mend nets and oilskins, knit caps in the pattern of angular crosses that mark our clan, and sip pungent fish-and-kelp tea as the peat fire hisses and pops. Our talk is of turbine outputs and the migrations of the great fish schools between the basins - the subjects that have defined our lives and our ancestors' lives for generations uncounted in this drowned landscape we call home.
+
+We are not many, we who remain to tend this country in its final, settled form. But we know our place and our purpose within it. Like the worn-down peaks and the icy waters, like the kelp forests and the wheeling terns, we have found our shape and our station. And we will hold to it, constants amid the ceaseless motion of wind and wave and thrumming current, for as long as this place endures. It is enough.

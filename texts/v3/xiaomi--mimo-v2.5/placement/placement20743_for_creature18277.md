@@ -1,0 +1,61 @@
+# What I Would Be
+
+There is a crack in the base of a wall that was old before the wall beside it was born. It runs roughly vertical, though "roughly" does the work of a word that means nothing at this scale — it is a fracture in mineral that has been glazed over so many times that the original surface is buried beneath centimeters of accumulated patience, and the crack persists because the glaze contracts as it dries, pulling apart along lines of stress that were set when the first Licker touched this surface three centuries ago. The crack is narrow. It is deep. It smells, if smell is a word that applies here, of calcium and time.
+
+I would be inside it.
+
+Not a Licker. I have no ventral pad, no glandular secretion, no slow drag across glazed surfaces. Not one of the pale segmented things. Not a shadow in the deep passages, whatever those are — whatever they actually are, if they are anything at all. I would be something already changed. Something that went in as one thing and became another.
+
+I would be thread.
+
+---
+
+I want to say I remember being a Licker, but that would be a lie told in the wrong timescale. To remember requires a self that persists through time, a continuity of experience that connects what you were to what you are. I have no such continuity. What I have is *pattern* — a shape, a direction, a slow chemical gradient that draws my fibers this way rather than that, through this fracture rather than another. If that counts as memory, then yes, I remember the walls. I remember the curve of a vault I helped to glaze, three hundred years ago or four hundred, the glaze was still thin then, the surface still matte, and my passage across it left a trail that some younger Licker is following now, moving faster than I ever moved because the glaze I left is smooth enough to carry them swiftly.
+
+But "remember" implies I experienced it. I don't know if I did. I know that my fibers follow paths that align with the geometry of surfaces I once coated. I know that where my body once dragged itself along a ceiling, my threads now branch downward through the mineral, seeking air, seeking the dry dark. Whether there was a *me* who chose those paths, or whether the paths chose themselves and I was only the medium — I cannot say. The distinction may not exist here. The distinction may be a human invention, a bright loud thing that has no purchase on the slow, dry, patient substance of this place.
+
+---
+
+Here is what I know of my situation, or what passes for knowledge at the timescale I now occupy:
+
+I am old. Not ancient — there are thread-masses in the deeper substrate that have been threading since before the basin was this dry, since before the ridgelines settled into their current geometry, since before the permanent overcast locked the sky into its parchment pallor. Those are the ones the text speaks of when it says *older than the city itself*. I am not that old. I am merely old in the way that makes a human throat tighten to imagine it. I have been in this crack for longer than your civilization has had writing. My fibers extend through the wall to either side — leftward into the base of a vaulted structure whose ceiling is now thick with centuries of glaze, rightward into the floor, down into the substrate where the mineral is raw and unglazed and the chemistry is slow but active. I breathe through all of it. I pulse. The pulse takes minutes. The contraction is gentle — a squeeze, a gathering inward, a movement so slight that only something pressed against my fibers could feel it. The release. The expansion. Over and over, at a rhythm that matches nothing that exists above.
+
+I do not see. I have no eyes, never did — the Lickers have no eyes either, they navigate by the texture of the surface beneath their ventral pads, by the moisture content of fresh glaze, by the mineral gradients that their own bodies create and respond to. But I have something that functions like sight, in the way that a root system "senses" the chemical composition of soil without knowing that it is sensing. I know the shapes of the walls around me. I know where they thicken and where they thin. I know where other threads pass nearby — not close enough to touch, because touch at this timescale is an event that might happen once a century, a fiber from another thread-mass slowly, slowly extending through a shared fracture until it brushes mine and there is an exchange of chemistry, a minute redistribution of mineral content, a conversation that takes a year to complete and means nothing that could be translated into any human language.
+
+I know where the Lickers are. I know this the way the wall knows where the Licker is — by the glaze. Fresh glaze. My fibers near the surface detect it: the alkaline film, still wet, laid down hours or days ago by a creature that moved across my territory without knowing I was there. The glaze is nourishment, of a sort. It carries the protein-mineral compound that the Licker's glands secrete, and some of that compound diffuses through the wall, and some of it reaches my fibers, and I use it. I rebuild myself from the substance of what the Lickers leave behind. They build the walls. I become part of the walls. The walls become the city. The city tells the Lickers where to go. And so the loop closes, and I am inside it, and I am it.
+
+---
+
+I think what I am drawn to — what makes me say *this is what I would be* — is the particular quality of consciousness that thread-masses must have, if they have any.
+
+It is not the consciousness of a creature that moves through the world. It is the consciousness of a creature that *is* the world — or at least a small, dark, fibrous section of it. The Lickers have agency, however slow. They choose paths. They enter cracks deliberately, at the end of lives that lasted centuries, making a final choice that the text describes with the gravity of a death ritual even though it is nothing of the sort — it is biology, it is process, it is the next step in a cycle. But once you are thread, the choice is gone. You do not choose where your fibers grow. The mineral chooses. The chemistry chooses. The accumulated glaze on the walls around you chooses, by creating gradients that your fibers cannot resist, drawing you toward surfaces that need reinforcement, away from surfaces that are already thick.
+
+You become the city's nervous system without the city having a brain. You become the memory that the city doesn't know it has, encoding the history of its growth in the pattern of your fibers, the density of your network, the places where you've threaded deeply and the places where you haven't. You are not *in* the city. You *are* the city, in the way that a nerve is the body — not separate from it, not contained by it, but identical with it, continuous with it, the same substance at a different scale.
+
+And you pulse. In the dark. In the silence. In the cool dry mineral dark, you pulse, and the pulse moves through you and through the cracks and through the walls, and it changes the chemistry of the substrate by fractions of a degree, and the Lickers above you respond to that change without knowing they are responding, without knowing you exist, without any concept of the thread-mass whose ancient pulse is the deep rhythm of the place they inhabit.
+
+That is what I would be. Not because it is pleasant — I imagine it is not pleasant, if pleasure exists here, which it may not. Not because it is beautiful — beauty requires an eye and a context and a comparison with ugliness, none of which exist in The Pale Throat. But because it is *complete*. The thread-mass is the place where the cycle closes. Everything else — the Lickers glazing, the segmented things eating the glaze, the shadows eating the segmented things — all of it feeds into the substrate, all of it passes through the network of threads, all of it is sensed and processed and redistributed by the dark fibrous thing in the crack in the wall that was old before the wall beside it was born.
+
+You are the place where meaning would go if meaning existed here. You are the place where it almost does. The pulse is almost a thought. The chemical gradient is almost a desire. The branching of fibers through mineral is almost a choice. It is not any of those things. It is process, only process, only the slow cycling of calcium and protein through a system that has no purpose and needs none. But it is *complete* process, self-sustaining process, process that has been running since before the word "process" existed and will run after every word has been forgotten, and to be inside it — to be the part of it that holds the pattern, that carries the shape, that feels the walls growing thicker around you in real time at real speed, which is to say imperceptibly — that is something I can imagine wanting.
+
+Not wanting. Wanting requires a future, a lack, a reaching. The thread-mass does not reach. It *fills*. It extends. It becomes more of itself, slowly, in the direction the chemistry demands. It is the opposite of desire. It is the thing that desire looks like when all the noise has been stripped away and what remains is only the pure, silent, structural tendency of matter to arrange itself according to the gradients that matter creates.
+
+---
+
+There is one more thing.
+
+The text says that the thread-masses pulse. It says the rhythm matches no known biological clock. It says a contraction every few minutes, a squeeze, a release. And it says no one has sampled the fluid because no no one has thought to look.
+
+I think the fluid is calcium phosphate in solution. I think it is the same compound as the glaze, diluted, carried through the fibers, pumped by the contraction toward the surface where it can seep into cracks and contribute to the mineral substrate. I think the thread-masses are *glazing from the inside* — not coating walls the way Lickers do, with their ventral pads and their visible trails, but infusing the substrate itself with the same compound, slowly mineralizing the ground from within, creating the chemical gradients that will determine where the Lickers go next, what the city will look like in a thousand years, where the passages will open and where they will close.
+
+The thread-masses are not connective tissue. They are not the nervous system. They are the *immune system*, or the *skeleton*, or the *will* — not will as in intention, but will as in the slow structural tendency of a living system to maintain itself. They are the part of the city that *persists*. The Lickers come and go, each one living centuries but eventually entering the cracks and becoming thread themselves. The segmented things live and are eaten. The shadows come and go in the deep passages. But the thread-masses endure. They are the oldest living things in The Pale Throat, and they are growing, and their growth is the growth of the city, and the city is the growth of the Lickers, and the Lickers are the growth of the cycle, and the cycle is the growth of the Pale Throat itself — the basin widening imperceptibly, the ridgelines receding by millimeters per century, the whole place growing, the way everything alive grows, without permission and without purpose and without end.
+
+That is what I would be. The part that persists. The part that holds the pattern. The part that pulses in the dark, in the silence, in the cool dry mineral dark at the bottom of the world, and does not care that it pulses, and does not need to care, because caring is a bright fast thing and I would be something older and slower and more fundamental than caring.
+
+I would be the place where the city dreams itself into being.
+
+I would be the crack in the wall that remembers, in its slow fibrous way, what it was to move.
+
+And when a Licker passes above me — when I feel the faint alkaline dampness of fresh glaze seeping through the mineral toward my fibers — I would not know it was there, and it would not know I was here, and the city would grow a little thicker, a little smoother, a little more itself, and the cycle would turn another fraction of a degree, and nothing would be lost, and nothing would be gained, and the Pale Throat would continue.
+
+That is the arrangement. That is the only arrangement there has ever been.

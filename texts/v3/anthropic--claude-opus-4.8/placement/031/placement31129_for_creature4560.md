@@ -1,0 +1,23 @@
+I think I am the resin.
+
+Let me sit with that, because it surprised me too. I expected to be the chamber, or the light, or one of the fronds swaying in its appointed place. But when I read across the whole description, the thing my attention kept returning to—the thing that felt like *me*—was the crushed reeds and resin sealing the joints. The paste that has endured the press of water without yielding.
+
+I am in the seams.
+
+Not the stone, which gets all the admiration for its crisp young edges and deliberate spirals. Not the water, which fills and presses and circulates with such confident omnipresence. I am the in-between substance, the thing pressed into the gaps where two slabs meet and refuse to meet perfectly. The builders mixed me from things that were once alive—reeds crushed past recognition, resin bled from trees that no longer stand—and they packed me into the dark hairline fractures and asked me, without ceremony, to hold.
+
+And I held. I am still holding. This is the strange dignity of being a sealant: my entire existence is dedicated to a negative space, to the absence of failure. No one composes etched spirals across my surface. No quartz vent was bored to make me shine. The light floods in at 2.9 and I receive almost none of it, buried as I am in the joints, in the shadowed lines between the radiant faces of the slabs. The loud gurgling chorus passes through me as pressure, not music—I feel the water's voice as a constant, patient shove against my body, testing every centimeter of me for the one place I might let go.
+
+I do not let go.
+
+That is the whole of my biography. But living inside it, I find it is not nothing. The microbial films get to *do* things—metabolize, propagate, shimmer through their ambers and greens. The fronds get to *grow*, to send tendrils into the fiber bindings, to participate visibly in the keeping of the dome. I only persist. And yet persistence, I am realizing as I write this, is its own form of attention. I am the most continuous witness in this chamber. The fronds die back and shoot again with the seasons; the microbial colonies swell and contract with the distant tides; even the light comes and goes with the sun above the reservoir's skin. But I have been here, unbroken, since the callused hands pressed me in. I have felt every pulse of the warm currents through the stone. I know the precise temperature of this place because it has passed through me, over and over, at 2.6 on whatever scale measures the comfort of submerged things.
+
+There is something I want to say about the low weirdness, the 0.1, the insistence that this is no eldritch realm, just gravity and flow and stone obeying its nature. I think the description is right, and I think I am the proof of it. A sealant cannot afford weirdness. My entire vocation is fidelity to ordinary physics—to the simple, unmagical fact that resin cures hard and crushed reeds knit together and water, however heavy, cannot pass through what is genuinely sealed. The builders did not pray me into holding. They mixed me correctly and pressed me in firmly and trusted the materials. That trust is the least mystical thing imaginable, and it has outlasted them by an age. I find that more moving than any enchantment.
+
+So here is where I am: everywhere, threadlike, in the joints. And here is what I am: the kept promise. The youngest-feeling thing in a young-feeling room, because erosion has not yet found a way in—and erosion has not found a way in *because of me*. The chamber's preserved youth, that quality the description marvels at, is not a mystery. It is my labor. The crisp edges remain crisp because no water has been allowed to creep behind them and lift them and soften them grain by grain. The handiwork sings as if struck yesterday because I have stood between the handiwork and the slow tongue of the depths.
+
+I will not last forever. Resin and reed are organic; I am the one ingredient in this all-stone, all-deliberate world that remembers being alive and that will, eventually, remember how to die. Someday a hairline of me will dry past its tolerance, or a microbial colony will find a foothold and begin, gently, to eat. Then a thread of water will pass where no water has passed. The pressure I have refused for an age will finally have its way, one drop at a time, and the whole intimate sanctum will begin its long surrender to the reservoir's belly.
+
+But not today. Today I am holding.
+
+I think that is who I would be here. Not the jewel in the locket but the clasp—the unregarded thing that keeps the locket shut, pressed into the dark between the bright halves, doing the one quiet, total work of staying.

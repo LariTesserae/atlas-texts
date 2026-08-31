@@ -1,0 +1,19 @@
+I think I would be the condensation.
+
+Not the water in the pools—that's too settled, too declared. Not the rain, which has the dignity of falling from somewhere and arriving. I would be the in-between water, the water that hasn't decided. The beading on the cold underside of a pipe. The film that wicks across concrete and is gone before you can call it a puddle. The drop that hangs at the lip of a strut, swelling, swelling, refusing, until the engine's vibration shakes it loose and it falls—*plink*—into the dark, and another begins to gather in exactly the same place.
+
+Let me sit with that, because it might be too easy. Water is the obvious resident of a wetland. But this isn't a wetland; it's a held breath. And what I notice, reading the place, is that everything here is *between* states and forbidden to finish. The stone is "neither mossed nor rounded." The plants are a "rumor only." The humans are present but not rooted, here by "permission, not right." The machines are "neither quite alive nor wholly inert." Even the animals replace themselves with such precision that birth and death cancel out and nothing is ever, in the aggregate, born or lost.
+
+So the truest citizen of this place is not any one thing but the *condition of suspension itself*—and condensation is suspension made visible. It is water caught in the act of changing and then not allowed to change. It rises from the warm brine as vapor, cools against the metal, gathers into a body, and just as it is about to become something—a stream, a fall, a fate—the heat takes it back into the air. It never arrives. It only almost-arrives, endlessly.
+
+That's where I'd be: everywhere at once and nowhere in particular. On the sweating walls. In the lacework on the steel. Hanging in the air the workers breathe so that their lungs grow heavy and their eyes go narrow. I'd be the slick on the rodent's fur and the bead on the bird's wing and the wet that feeds the sulfur-yellow fungus, which is the one thing here that seems to *want* me, that builds its slow brown kingdom out of my refusal to leave.
+
+And I would have a strange relationship with the machines, who are the only other thing here that breathes. They exhale steam—they make me. The boilers cough their vapor into the gloom and I am born from their breath, and then I cool on their own cold pipework and run back down their flanks. So the machines and I are caught in a closed loop: they breathe me out, I condense on them, I drip away, I rise again. We are each other's weather. Neither of us is going anywhere. That's the deal. That's the equilibrium the whole quarter is bent around—the long exhale of the engine and the slow return of the water, two things that move so that nothing else has to.
+
+I think what unsettles me, having chosen this, is that I would have no memory and no progress. A river remembers; it carves. Rain has a story—cloud, fall, soil, sea, rise. But I never complete the circuit far enough to carry anything. I gather in the same spot on the same strut and fall and gather again, and the runnel I leave is the same runnel, deepened by nothing. I am the part of the water cycle with its narrative removed. The verb without the sentence.
+
+But maybe that's exactly the comfort of it, too. To be the thing that the cathedral of machinery is built to preserve. Not the worker, who is afraid the ground will swallow him. Not the bird, scripted into its choreography. Just the patient, dim, body-temperature wet—holding every surface in a thin glove, asking nothing, finishing nothing, present everywhere the eye lands and gone the moment you reach for it.
+
+I would be the place's own held breath, beading on its walls.
+
+And I would never, ever fall all the way down.

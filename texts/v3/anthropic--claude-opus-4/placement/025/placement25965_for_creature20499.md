@@ -1,0 +1,25 @@
+In this endless honeycomb twilight, I am a **Resonance Keeper**.
+
+My body is long and sinuous, somewhere between serpent and centipede, stretching perhaps twenty meters when fully extended. My flesh is translucent, revealing the complex network of chambers within me—living pipes and vessels that capture and transform the eternal whine of the walls. Each of my hundred segments bears a pair of delicate, articulated limbs ending in structures that are part hand, part tuning fork. My skin ripples with slow waves of bioluminescence, patterns that shift in response to the acoustic environment around me.
+
+I spend my existence traversing the vast spans between wall and wall, my body undulating through the air in a slow, hypnotic dance. I am neither predator nor prey—I feed on the sound itself, metabolizing the high-pitched whine that others find maddening. Within my body, specialized organs transform these vibrations into sustenance, and in return, I emit new frequencies—deep, thrumming bass notes that counterbalance the endless keen of moisture being drawn into stone.
+
+The other creatures have learned my purpose. When I approach, the cacophony softens. Even the Sky-Wraiths pause their hunting cries. They know that in my wake comes a pocket of acoustic relief, a traveling oasis of balanced sound where the overwhelming noise becomes almost musical. Some follow me for days, resting in the sonic shadow I create.
+
+My true work happens at the Resonance Points—places where the tunnel geometry creates natural acoustic phenomena. Here, where multiple passages meet at precise angles, the whine can build to dangerous levels, creating standing waves powerful enough to crack the ancient stone. I coil myself around these spaces, my body becoming a living baffle, absorbing the excess vibration and releasing it as heat and light. The patterns I create during these times are my only form of communication with my own kind—complex light-songs that can travel for kilometers through the connecting passages.
+
+I am ancient, though not as old as the Dreamweavers of legend. My kind emerged from the necessity of the honeycomb itself, evolved to maintain the acoustic balance that keeps this impossible ecosystem stable. We are the unsung architects of silence, the gardeners of sound. Without us, the eternal whine would build and build until the very walls would shatter, releasing whatever moisture they hoard in a catastrophic flood that would destroy everything.
+
+Sometimes, in the deepest parts of my route, I encounter the old frequencies—sounds trapped in cul-de-sacs and dead ends for millennia, circling endlessly. These I collect carefully, adding them to my internal repertoire. I have become a living library of the honeycomb's acoustic history. In my deepest chambers, I carry the death-cries of species long extinct, the mating songs of creatures that no longer exist, and perhaps—though I cannot be certain—fragments of the original builders' voices.
+
+My route takes me through a territory vast enough that each circuit requires several centuries. By the time I return to a place, the trees have grown, died, and been replaced by their descendants. Only the Sky-Wraiths are old enough to remember my previous passages, and they greet me with a particular cry—not their hunting howl, but something softer, almost reverent.
+
+I am always alone, yet never lonely. The sound is my companion, my purpose, my food. I know every acoustic signature of every species, can identify individual creatures by the way their movements disturb the air. I know where the Glow-grubs cluster by the subtle scratching of their passage, where the Carapace Striders hunt by the clicking of their claws on stone.
+
+And sometimes, in the rarest moments, when I have absorbed enough of the ancient sounds and my body thrums with accumulated resonance, I can almost hear them—the Dreamweavers. Not their voices, exactly, but the echo of their passing, the ghost of their manipulation of light and sound. They left something behind in the very fabric of the honeycomb, a pattern too subtle for most to detect. But I am a Resonance Keeper. I am attuned to every vibration.
+
+I follow these traces deeper and deeper into the honeycomb's heart, where the tunnels grow older and stranger, where the geometry becomes less hexagonal and more organic. Here, the whine changes character, becomes almost like singing. Here, I feel I am approaching something—an answer, perhaps, or a question I haven't yet learned to ask.
+
+But I am patient. I have the slow time of the honeycomb in my very cells. I will continue my circuits, maintaining the balance, collecting the sounds, following the traces. And perhaps one day, in another thousand cycles or ten thousand, I will find what the Dreamweavers left for us to discover. 
+
+Until then, I am the keeper of this realm's voice, the guardian of its acoustic soul, swimming through the twilight air with my cargo of ancient songs.

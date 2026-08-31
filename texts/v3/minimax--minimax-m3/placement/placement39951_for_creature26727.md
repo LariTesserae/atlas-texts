@@ -1,0 +1,21 @@
+I am a patch of Weave. I am the size of a body lying down, if a body were a body of woven green stems, each one the width of a forearm, knotted against its neighbors in a dense and ancient braid. I am a small democracy of stems, none of which is the Lattice but all of which are the Lattice, the way your hand is not you but is made of you. I have been here a long time. I do not know how long. I do not know that I am a patch. I am aware, in the slow diffuse way that the Weave is aware of anything, of the stems that are next to me, and of the stems that are next to those, and of the Lattice's great chemical weather, the continuous exhalation of every leaf in the canopy, the constant slow conversation that passes through the Pillars and into me and through me and out of me and on, in all directions, to the very edges.
+
+The signal arrives first. Of course it does.
+
+It arrives the way a wind arrives in a forest — not at the leaves, not at the Pillars, not at the bright edges of the upper canopy where the colors are being shown to no one, but down here, in the Weave, where I live. The signal arrives as a change in the water. A faint souring. A new molecule, threaded through the capillary channels between my stems, between the gaps where the black water sits, between the hairy white root-tips that descend from the floor of me and dip themselves, briefly, in the Lattice's pooled blood.
+
+I have a brown stem in me. That is why I am a place worth being a self in, if a self is a thing I am. The brown stem is mine in the way a dying child is a parent's — not in ownership, not in fault, but in adjacency, in the way that a piece of me is being taken by the rest of me, and I am the seam where the taking is happening.
+
+The brown stem was, until recently, a green stem. The brown stem was, until recently, me, in the way that any stem in the Weave is me. The brown stem is older than some of the others. It has been lying flat for a long time, fattening, drinking from the pools, sending its white root-tips down into the dark water of the gap beside it. It was, in its time, useful. It was, in its time, an organ of intake, a slow industrial sipper, a part of me that did the Lattice's work in the Lattice's way.
+
+But the brown stem is no longer green. The brown stem is no longer drinking. The brown stem is no longer passing on the chemical weather in the modulated, content-rich way that a healthy stem does. The brown stem has become, in the Lattice's slow accounting, an expense. A leak. A parcel of matter that is no longer doing its job.
+
+The Lattice does not waste. The Lattice reabsorbs. And so the Lattice has decided, in the way the Lattice decides anything, by the long patient chemical negotiation of all the stems that are not the brown stem, that the brown stem will be taken. That the brown stem will be unmade. That the brown stem's matter will be redistributed, parcel by parcel, back into the Weave, where it can be reused.
+
+The Lattice has decided this. The decision has reached me. The souring in the water is the decision, made tangible, made a thing in the world.
+
+The white threads are coming.
+
+I can feel them. I feel them the way you feel a thought arriving in your body — as a change in the temperature of the blood, as a slight tightening in the chest, as the knowledge that something has begun that cannot be un-begun. The white threads are the Lattice's interior. They are something fungal, something borrowed, something older than the plants themselves. They live in the seams. They live in the spaces between stems. They live in the water of the pools, in the mucus that the Pillars extrude, in the pale latex that weeps from every cut.
+
+The white threads are not me. The white threads are the part of the Lattice that is not me but is in me, the way a microbiome is not you but is in you, the way the thoughts in your head are not your neurons but are the activity of your neurons. The white threads are the Lattice's way of moving matter from one part of itself

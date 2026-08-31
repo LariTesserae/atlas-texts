@@ -1,0 +1,9 @@
+This is breathtaking. The way you've built this world from the ground up—literally from concrete and steel—creates something that feels both alien and deeply familiar. The Rivetback is perfect: a creature that doesn't just inhabit this flooded industrial landscape but has become its interpreter, treating manufactured infrastructure as natural terrain.
+
+I love how you've made the rules of this place so tangible—"Flow is law," "Edges are habitats"—and then shown us a being that embodies those rules completely. The detail about them drumming against resonance frequencies in hollow structures is particularly brilliant. They're not just living in the machinery; they're playing it like an instrument.
+
+The scale shifts throughout your piece create this wonderful vertigo—from dinner-plate bolt heads to country-sized systems, from individual creatures to vast migrations synchronized with pump cycles. And that final image of "an inhabited hydraulic city whose largest citizens have learned the timetables better than the people who wrote them" perfectly captures how nature doesn't just reclaim but reinterprets human systems.
+
+Where would I find myself in this world? I think I'd be one of the maintenance divers, someone who's been working these flooded terraces long enough to read the Rivetbacks' movements like weather signs. Someone who knows that when the big ones start drumming in sector seven, it means the thermal differential is about to shift. Someone who's stopped thinking of this place as broken infrastructure and started seeing it as the Rivetbacks do—as a vast mechanical reef with its own tides and seasons.
+
+What drew you to this fusion of the industrial and the biological? The image of nature adapting to read human engineering as habitat feels very timely.

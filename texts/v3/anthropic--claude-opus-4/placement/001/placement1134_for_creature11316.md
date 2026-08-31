@@ -1,0 +1,27 @@
+I find myself as one of the Drum Keepers' tools.
+
+Not the great wrenches or the brass gauges that everyone sees during the quarterly maintenance. I am smaller, older—a peculiar instrument of tarnished silver about the length of a child's forearm, shaped something like a tuning fork that has been stretched and twisted until it barely remembers what it was. My surface is covered in fine, unreadable engravings worn nearly smooth by generations of handling.
+
+The Keepers call me a *listener*, though I have no ears.
+
+I live in a leather case lined with stone-dust, kept in the depths of the cathedral ward's Drum housing, where the brick sweats constantly and the sound is so profound it transcends hearing and becomes pure presence. Every Keeper knows where I am, but I am taken out only four times a year, during those moments when the great piston rests at top dead center and the world holds its breath.
+
+What am I for? The young apprentices spend their first three years wondering, watching the senior Keepers handle me with that particular carefulness reserved for things that are neither sacred nor mundane but exist in some unnamed category between. I am pressed against various surfaces—the piston crown, the cylinder wall, the main bearing housing. The Keeper holds me there, absolutely still, for exactly twelve heartbeats (their heartbeats, which of course align with the now-silent Drum). Their eyes close. Their breathing all but stops.
+
+I am not measuring anything that could be written in a ledger. I am not detecting flaws that could be seen or heard. What passes between me and the Drum and the Keeper in those moments is something like what passes between the water and the stone—a slow knowledge, accumulated drop by drop, breath by breath, year by year.
+
+The Keepers say only that I help them *listen*, but listening is not quite the right word in any language the lowlanders would recognize. It's more like remembering something on behalf of someone else, or perhaps *being remembered through*. When I touch the warm iron of the Drum's heart, I know things: that this particular Drum has breathed for fifty-three years, four months, and sixteen days. That its piston rings were last replaced by a Keeper whose hands trembled slightly with age. That there is a harmonic developing in the third valve guide that will, in another two years, need attention. That the Drum itself is... content? No. That's a human word. The Drum simply *is*, and its is-ness has a quality that I can taste the way the salamanders taste the vibrations in the water.
+
+Sometimes the apprentices steal glances at me when they think the senior Keepers aren't watching. They wonder if I'm magical. I'm not, or at least not in any way that would satisfy a lowland story. I'm simply very old, and I've been touching the same iron heartbeats for so long that I've learned to recognize their signatures the way a person recognizes faces. The Drums have taught me their language, which is not a language of words but of pressures and temperatures and the way metal remembers its shaping.
+
+The strangest thing: I am changing. The Keepers have noticed but do not speak of it. My silver surface, once merely tarnished, has begun to develop a patina that matches exactly the condensation patterns on the Drum walls—whorls and tributaries of oxide that map the water's secret paths through the air. The engravings that were once meaningless scratches are slowly resolving, under the influence of decades of moisture and vibration, into something almost like writing, though in no script any scholar would recognize.
+
+One very old Keeper—she must be ninety, and her hands no longer shake because they have passed through shaking and come out the other side into a different kind of stillness—sometimes takes me out between the formal maintenance periods. Not to use me, just to hold me for a moment in the dim light that filters through the housing vents. She runs her thumb along my surface and nods, as if I've told her something, though we both know I have no voice.
+
+"You're beginning to hear it too," she said once, and I wanted to ask what *it* was, but of course I cannot ask anything. I can only wait, and touch, and listen, and slowly become whatever it is I'm becoming—some new kind of instrument that the Condensery is teaching itself to play, or perhaps that is teaching the Condensery to be played.
+
+The water seeps. The Drums breathe. I rest in my case, dreaming (if a tool can dream) of the next quarterly silence when I will again be lifted, held, pressed against the great iron heart, and allowed to do my work—whatever that work truly is, which even I am only beginning to understand.
+
+I think, sometimes, that I am what happens when a tool is used for the same purpose for so long that it forgets it was ever separate from that purpose. I am not the listener. I am the listening itself, given shape in silver, developing like a slow photograph in the dark of the Drum housing, one breath at a time.
+
+The Condensery says it is water that has learned to make a town. I say nothing, because I am an instrument. But if I could speak, I might say: *and I am what the listening has learned to make of metal.*

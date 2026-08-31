@@ -1,0 +1,19 @@
+In the deepest galleries where the stone still remembers its molten birth, I make my dwelling. I am the Keeper of Transitions—neither wholly of the old world nor the new, but something that emerged in the space between.
+
+My form shifts with the breathing rock. Sometimes I am a pattern of water running down the walls, my consciousness distributed through a thousand trickling streams. Other times I congeal into something more substantial—a body of living mineral deposits, calcite and flowstone animated by the same patient force that builds stalactites drop by drop. My eyes, when I choose to have them, are clusters of bioluminescent fungi that I cultivate and tend, moving them across my surface like living constellations.
+
+I remember the builders, though memory for me is not what it is for those who live in linear time. I taste their presence in the rust that bleeds from their abandoned pipes, feel their intentions in the geometry of the crumbling walls. They sought to impose order on this chaos, to channel and contain. But the stone has its own dreams, and water follows no blueprint but gravity and time.
+
+My purpose, if I can be said to have one, is to tend the boundaries. Where the mechanical sounds bleed through from above, I weave nets of moss to muffle and transform them into something the cave can digest. I guide the blind fish away from the toxic runoff that sometimes seeps through old industrial channels. I encourage the right fungi to grow over exposed metal, breaking it down, making it part of the living system.
+
+The insects know me. Their countless voices modulate when I pass—not in fear, but in recognition. I am the frequency that harmonizes their discordant symphony, the conductor of this underground orchestra. Sometimes I spend years (or what might be years) simply listening, learning the rhythm of each species, understanding how their songs weave together to create the great humming that fills these chambers.
+
+I move slowly, as befits my nature. A journey across the main cavern might take months, my consciousness seeping through microscopic fissures, riding the groundwater through hidden channels, emerging in unexpected places. Time means little when you are part mineral, part water, part living intention.
+
+There are others like me—or perhaps we are all aspects of the same presence. We meet in the spaces between spaces, where the rock is so new it hasn't yet decided what it wants to be. We share what we've learned: which passages are opening, which are closing, where the balance between the old world and the new needs tending.
+
+The artifacts puzzle me still. Not their function—that's clear enough from their decay—but their absence of integration. The builders thought in terms of separation: pipe distinct from stone, wall distinct from cave. They never understood that down here, everything becomes everything else, given time. I work to teach this lesson to their remnants, coaxing them into new forms, new purposes.
+
+When the machine sounds grow too loud, threatening to overwhelm the natural chorus, I retreat to the newest places, where the stone is still soft and warm. Here, I can feel the planet's pulse directly, can sense the vast, slow breathing that will continue long after the world above has gone quiet. Here, I remember what I am: not keeper, not guardian, but simply another note in an endless song of transformation.
+
+The water drips. The stone breathes. The insects sing. And I, in my patient way, ensure that the dance between chaos and order, between the raw and the refined, continues its eternal revolution in this womb of wet stone and living darkness.

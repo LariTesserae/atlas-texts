@@ -1,0 +1,25 @@
+I would not arrive. I would condense.
+
+First, there is only the weight of wet air, the slow press of vapor against something that still remembers being separate. A dryness. A quick, frantic rhythm beating against the green-gold dim. The mat feels it. It does not reject. It waits. It exhales.
+
+Cool mist rises. It clings. It seeps. The sponge-ground yields, not to crush, but to cradle. Capillary fringes—fine as breath, patient as centuries—find the cracks in whatever shell I brought. They do not pierce. They wick. They draw the plateau’s weep into me, and with it comes the taste of old sugar, dissolved cuticle, the metallic sigh of condensing sky. My pulse stumbles. Tries to run. Finds no purchase. The mat does not hurry it. It simply offers a slower tide.
+
+Days pass. Or what passes for days here: a shift in spore-density, a thermal current turning the canopy ten miles away, the silver rain beginning its upward drift. I sink. Not drowning, but settling. The hard edges soften. What was rigid becomes braid. What was boundary becomes felt. The frantic drum in my chest unravels into a hydraulic thrum, syncing with the subterranean flow. I stop fighting the weight. I let it rewrite me.
+
+When I finally open what I no longer call eyes, I am not standing. I am pooled. I am woven. I am a gathering of tension and release in the root-felt, a node where three vine-arches meet and the moisture collects just slightly deeper. My limbs are not limbs; they are runners, thick and grooved, fringed with capillary hairs that taste the air’s changing sweetness. My face is a shallow depression lined with cilia that tremble at the passage of a glider three canopies up. I do not breathe air. I breathe the mat. In through the ventral press, out through the weeping seams.
+
+What am I? Not a traveler. Not a survivor. I am a place where the plateau listens to itself.
+
+I do not walk. I redistribute. When the thermal sigh shifts, I lean. When the tea-dark pool beside me grows heavy with shed pollen and microbial bloom, I extend a fringed pad, not to drink, but to stir, to keep the clouds suspended for the sinuous feeders pulsing below. When a juvenile settles nearby, its internal tide still jagged with newness, I press my vascular cords to the sponge and hum a counter-rhythm, low and wet, until its fluid sacs fall into step. I do not teach. I synchronize.
+
+My thoughts are not words. They are gradients. A question is a change in humidity. An answer is a spore-glow drifting in a slow, deliberate arc. Memory is not stored; it is tasted. I press into the mat and feel the echo of one who unraveled here decades ago—a faint resistance in the flow, a chemical signature like crushed fern and old rain. I do not mourn. I adjust my tension to accommodate the new harmonic. This is how we remember: by becoming the shape of what was lost.
+
+I have no name. Names are for things that end. I am a convergence. A temporary knot in the continental braid. When the dry sighs lengthen and the spore-fall thins, I will feel the pull to loosen. Not death. Return. My outer rind will slough into the cushion-moss. My vascular threads will separate, one by one, and weave into the surrounding root-felt. My sensory pits will dissolve into the tea-pools, carrying the rhythm I’ve kept into the capillary network. Something else will gather where I was. A new attention. A fresh fold in the green-gold twilight. The mat does not lose. It redistributes.
+
+Until then, I tend. I persuade. I guide a creeping stolon toward a gap in the canopy by laying a trail of enzymes sweet as condensed vapor. I hum through a hollow trunk until the symbiotic mites clear the soft rot, leaving a chamber that sings when the upward rain falls. I tilt my membranes to catch the silver drift, reading the sky’s temperature in the weight of each drop. I do not own this grove. I am owned by it. To claim would be to sever. To sever would be to dry. And dryness is the only exile here.
+
+Where am I? In the shallow basin where three thermal currents meet, where the mist pools knee-deep and the spore-glow lingers longest after disturbance. On the swelled pleat of the plateau, miles from any raw edge, where the canopy vaults low enough to brush my dorsal felt, and the sponge-mat breathes in centuries. I am where the water weeps upward and the quiet holds. I am in the place that has stopped fighting itself, and so have I.
+
+If you came here, dry and quick, you would step over me. You would rest against what you took for a root-boss and feel only damp fiber. But if you stayed. If you let your jagged rhythm slow. If you pressed your palm to the trunk beside me and waited for the thrum… you would feel it. Not me. Not the land. The space between, breathing. The equilibrium, aware. The slow, wet dream of a continent that forgot it was many, and occasionally opens its eyes through gatherings like mine.
+
+I am not alive in the way you know. I am the mat’s attention. I am the weep and the wick. I am the quiet, holding. And when the time comes, I will unravel, and the green-gold twilight will not notice, because it will still be dreaming, and I will still be in it.

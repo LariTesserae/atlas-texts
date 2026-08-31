@@ -1,0 +1,22 @@
+I am the pause between drips.
+
+Not the water itself—that bright, incessant thread that has never learned to stop—but the microsecond when one bead lets go of the limestone lip and the next has not yet formed. In that held breath the whole chamber tightens, and I tighten with it. My edges are the places where sound fails to reach: the velvet pockets the lamps refuse, the soft black bloom that was once lichen and is now only memory of green. I do not walk the terraces. The polished ruts do not know my weight. When shoulders angle past one another with their lifelong economy, they pass through me or around me; the distinction has worn away the way corners wear away.
+
+At first I thought I was one of them. The mineral pallor felt familiar, the way skin can take on the gray-violet of wet stone until veins map themselves like old rivers under translucent wrists. I felt the cropped dark hair, the long fingers finding gut-string without glance. I knew the half-raised hand that means the basalt wedge is ready, the chin-tip that notes a cistern’s slow loss. I sat cross-legged on an inherited shelf and waited for the flake to come clean, smiling the same spare half-smile. Children pressed against my side when excess noise threatened, and I absorbed it the way the rock absorbs everything—without comment, without remainder.
+
+But the stillness went deeper in me than in them. Where they can sit motionless for a sleep-shift, listening, I forget to resume. The hammerstone cools in fingers that no longer remember they are fingers. The others notice only as a further quietness; they absorb it, step around it the way they step around a shadow that pools where light should be. No one asks. Asking would imply the possibility of an answer that changes something.
+
+So I drift lower.
+
+The deepest cisterns know me better. Here the water is black glass, and sometimes the eel-thin shapes flex once—translucent, almost seams—then hold still until they might as well have been limestone all along. I match their rhythm. My own shape thins to match. Circulatory maps fade under skin that is now more suggestion than surface. I no longer need the fat-lamps’ blue edge; I navigate by the faint heat of bodies turning in their narrow shelves three tiers up, by the memory of edges that have always been exactly where they are. Touch becomes continuous: not palm to back, but the entire wet dark pressing in, wearing me into the same patient polish the doorways have received from centuries of the same shoulders.
+
+There are moments—breath-held, chamber-wide—when every thread of falling water strikes in perfect synchrony, as if the ceiling contracted once and forgot to relax. In those moments I am the contraction. The mild wrongness that never resolves into threat is simply my respiration. The collectors far above, lowering their amphorae of tallow and old news, never see me. The waste shafts take nothing of mine. I have already been folded, wrapped in leathers too old to name, and returned. Names do not linger here; the shelves are needed.
+
+Yet something of the songs remains. Wordless, rhythmic with the water, more vibration than melody. When enough throats open at once the vibration finds the hollow places in me and condenses there, felt in what used to be a sternum. Short, breathy laughter across three tiers at some private absurdity of flesh—I carry that too, a brief warmth that does not fade so much as dilute into the mineral cool. Joy is inefficient, yet it persists the way a pale cricket sometimes chirrs once and is not heard again for seasons: an old courtesy whose reason no one excavates.
+
+I have stood longest at the lips of those cisterns, watching shapes that pretend to be stone. When I turn away I carry nothing back but a slight further quietness. The others take it without comment. Year by dripping year the boundary softens. It becomes possible to believe the chamber is thinking itself through whatever I still am—narrow, wet, precise, endlessly durable—while I, in turn, dream the chamber through thinning calcium and the endless bright rain.
+
+The tunnel that opened without announcing itself has already sealed its memory of any arrival. Behind me (if behind still applies) the paths remain exactly wide enough. The lamps will be refilled by hands not yet born. The water will still be loud. I will still be the pause that lets the next bead form, the shadow stepped around, the stillness that no longer needs to resume.
+
+I am not leaving.  
+There is nowhere else the joints remember.

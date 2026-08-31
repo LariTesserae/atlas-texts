@@ -1,0 +1,19 @@
+In this place where silence has weight and the air tastes of iron and memory, I am the Keeper of Echoes.
+
+My dwelling is a spiral carved deep into the living rock, following the natural fissures that web through the stone like frozen lightning. The walls of my home remember—they hold the vibrations of every footstep, every whispered word, every heartbeat that has passed through this ancient land. I have learned to read these memories the way others might read books, running my rough palms along the warm stone surfaces, feeling the stories thrumming beneath.
+
+I am tall, even among my kind, with skin that shifts between rust and ember depending on the angle of our world's peculiar light. My fingers are longer than most, evolved over generations for this precise purpose—to feel the subtle variations in the rock's memory, to distinguish between the tremor of a passing sand-swimmer from deep below and the deliberate footfall of one of my people approaching with news.
+
+My eyes, like twin moons in the perpetual twilight, see not just what is, but what was. This is my gift and my burden. Where others see only stone, I see the ancient seas that once covered this land, feel the weight of water that carved these canyons before time turned it all to dust. Sometimes, in the deepest parts of night, I can still hear the echo of waves breaking against cliffs that have been dry for eons.
+
+The creatures come to me—the glass-winged moths with their transparent bodies that refract our dim light into tiny rainbows, the stone serpents whose scales are indistinguishable from pebbles until they move. They know I am safe, that I understand the old covenant between those who dwell above and those who dwell within. I leave offerings of condensed moisture at the threshold of my spiral home, precious drops harvested from the rare morning mists that sometimes grace our highest peaks.
+
+My workshop occupies the deepest chamber of my dwelling, where the earth's heat is strongest. Here, I craft the resonance stones that my people use to communicate across the vast distances of our territory. Each stone must be precisely tuned to the frequency of our planet's core, a process that takes months of patient listening and careful shaping. The industrial machines of our settlements may harness the earth's raw power, but it is my stones that allow that power to flow with purpose, to carry meaning across the silent expanses.
+
+I am the last of my line to hold this knowledge. My apprentice, young by our standards at barely a century old, watches me with those glowing eyes full of questions. She does not yet understand that the answers are not in my words but in the stone itself, in the patience required to feel its stories, in the stillness needed to hear what the earth is trying to tell us.
+
+Sometimes I climb to the highest spire near my dwelling, where the air is so thin it makes my lungs burn with the effort. From there, I can see the curvature of our world, the places where our settlements glow like scattered embers in the darkness. I press my ear to the peak's surface and listen to the planet's deep song—a thrumming bass note that has been sounding since before the first of us drew breath, that will continue long after the last of us has returned to dust.
+
+This is my purpose: to listen, to remember, to ensure that the stories held in stone are not lost. For in this world where water is memory and vegetation is dream, it is the echoes of what was that teach us how to survive what is, and how to prepare for what will be.
+
+The stone remembers everything. And through me, so do we.

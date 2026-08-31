@@ -1,0 +1,15 @@
+In this patient land where time moves like sap through stone, I am the Keeper of Seepage—neither wholly solid nor liquid, but something between. My body is porous limestone made animate, riddled with channels and caverns that weep the ancient waters I've collected over millennia. 
+
+I move with geological slowness across the eroded plains, leaving behind me a trail of dark moisture that feeds the hardy grasses and succulents in my wake. My form shifts subtly with each decade—sometimes I am a walking boulder, hunched and weathered; other times I spread myself thin, becoming a sheet of weeping rock that blankets whole depressions, filling them with the waters I carry within.
+
+The creatures of this place know me well. The fairy shrimp wait in their dried cysts for my passing, knowing that where I rest, pools will form. The kangaroo rats have learned to follow my sluggish migrations, their tunnel systems mapping the underground rivers I create. Even the raptors above have patience with my pace, for they know that where I travel, life concentrates.
+
+I am both erosion and creation. My body dissolves slowly into the landscape, adding my minerals to the ancient sediment, while simultaneously I gather new moisture from the air, from the deep aquifers below, from the memory of oceans that once covered this land. Inside me, colonies of microscopic life flourish—bacteria and algae that have never known the outside world, evolved in my interior darkness to process minerals and create the chemistry that keeps me moving.
+
+My consciousness is distributed through every pore and channel. I think in centuries, dream in epochs. My thoughts move like the water through me—sometimes rushing through major channels with something approaching urgency, other times seeping so slowly through tight spaces that a single idea might take a human lifetime to complete its journey.
+
+The termites occasionally attempt to build upon me, mistaking my stillness for permanence. I let them. Their constructions become part of me for a time, until I shift again and their careful architecture returns to the earth. I have been here since before the land knew its current shape, and I will be here still when new forces reshape it into something unrecognizable.
+
+In the wet seasons, I swell with purpose, becoming a great fountain of sorts, my entire form a spring from which life emerges. In the dry times, I contract, pulling my moisture deep into my core, becoming denser, harder, more like the rocks I mimic. But always, always, I seep. It is my nature, my purpose, my gift to this ancient, patient land.
+
+The other beings here—the hawks, the snakes, the resilient plants—live their quick lives in the moments between my footfalls. To them, I am landscape. To me, they are the bright, brief fires that mark the passage of my days. We exist in different scales of time, yet we are bound together in this place where erosion and endurance dance their slow, eternal dance.

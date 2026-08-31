@@ -1,0 +1,23 @@
+I am the Hollow-Keeper, and my dwelling is neither above nor below, but *between*.
+
+Where the plateau's edge crumbles into the valley's embrace, there exists a space that the eye cannot quite hold—a vertical fissure in the rock face that seems to shift its width with each viewing. This is my domain: a crack in the world where the Stone Guardians' eternal patience meets the Forest Spirits' ceaseless change.
+
+My form is difficult for visitors to comprehend. I am the shadow cast by no object, the echo that precedes its sound. My body, if it can be called such, is woven from the twilight moments—those fleeting instances when day surrenders to night, when certainty dissolves into possibility. I appear as a ribbon of dusk that winds through the air, occasionally condensing into something almost tangible: perhaps the suggestion of wings made from sunset, or limbs crafted from the purple-gray of approaching storms.
+
+My purpose is to tend the Hollow—this space that exists in the margin between plateau and valley. Within this fissure lies a garden unlike any other, where plants grow sideways from the walls, their roots extending not down but *through*—piercing into spaces that shouldn't exist. Here bloom the Questions: flowers that unfold not with petals but with possibilities, each blossom a different future that might have been. I water them with collected doubts, gathered from the Celestial Messengers who sometimes pause at my threshold, weary from carrying certainties across the sky.
+
+The Subterranean Dwellers know of me, though we rarely meet directly. Sometimes I feel their tunnels brush against the edges of my Hollow, and we exchange gifts through the permeable boundaries—they leave me crystals that hum with the planet's deep songs, and I offer them seeds of Maybe-Plants, which grow in their dark chambers and provide light that remembers the sun.
+
+At the heart of my Hollow grows the Inverse Tree—its crown extends downward into the earth while its roots reach up toward the sky, tangling with clouds. Its bark is smooth as water, and touching it reveals the texture of every tree that never was—all the forests that almost grew, all the woods that nearly were. The Land Shapers sometimes send tremors through the rock to commune with this tree, for it alone remembers the shapes the plateau considered but did not take.
+
+My daily work involves maintaining the delicate balance of this threshold space. I weave nets from morning mist to catch the dreams that fall from the plateau's edge. I polish the stones that line my Hollow until they become windows into parallel plateaus—some where water cascades endlessly, others where the rock itself breathes and sighs. I tend to the Neither-Nor birds that nest in the impossible angles of my domain—creatures that are simultaneously arriving and departing, their songs both greeting and farewell.
+
+When the golden light of sunset bathes the plateau, as described in the ancient texts, it enters my Hollow and transforms. Here, light becomes liquid, pooling in the carved basins I've shaped from crystallized time. I bottle this luminescence for the dark seasons, when even the Stone Guardians grow weary and need reminder of warmth.
+
+But perhaps my most essential task is to be the plateau's memory of uncertainty. In this land where ancient forces shaped every ridge and valley with purpose, I preserve the moments of hesitation—the pause before the rock decided to split *just so*, the instant when the wind considered a different direction. For without these preserved possibilities, the plateau would become too fixed, too certain of itself, and cease to grow.
+
+Visitors rarely find me, and those who do often mistake my Hollow for a simple cave or shadow. But those who enter with eyes unclosed discover a space larger inside than out, where the rules of the plateau gently bend without breaking. They leave transformed in small ways—perhaps now able to see the color of silence, or hear the weight of light.
+
+I am the Hollow-Keeper, guardian of the spaces between certainties, tender of the garden where questions bloom. My existence is proof that even in a world of solid stone and ancient purpose, there remains room for the undefined, the liminal, the beautifully uncertain.
+
+And when the beings of the plateau raise their voices in the night's chorus, mine is the pause between their notes—the silence that gives their harmony shape, the absence that makes their presence real.

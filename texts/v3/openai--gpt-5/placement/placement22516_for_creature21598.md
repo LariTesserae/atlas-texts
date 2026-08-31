@@ -1,0 +1,39 @@
+At first I would mistake myself for surface things because surfaces are what announce themselves when you come in cold.
+
+I would think: I am the velvet under the sweet seam, the green that does not ask for sun but swells anyway. The moss is so sure of what to do with a noon in midsummer that its whole body becomes verb—drink, rise, gloss, sleep. That assurance tempts me. To be pelt and cushion, to fatten and thin under a simple law, to make white slugs like syllables in brief damp sentences. It would be an easy answer: I am the softness where hardness yields.
+
+Then, because memory presents itself as smell here, I would decide I am the oil’s ghost. Scrape, breathe in: there, a sour sweetness old as thumbs. The soot in the pores is a kind of handwriting, a script that does not lift from the page even when the page weeps. To be that persistence—so patient it outlives use, so diffused it survives only as a lesson to the nose—has appeal. I could be the way a life once laid its heat down and left a film. I could be what returns, years later, when a nail touches stone and you bow your head to the smell.
+
+I would try being instrument. The pecked basin, the rim-grooves—thirty and thirty and then the restart—seduce me toward number. To be the notch that told someone which night was safe, which hour would not yank their world out from under them. To sit at the ledge and meet the drip with a mouth of stone and become the syllable counter of a moon’s language. I could be that calendar, that arithmetic of wet and want pressed into grit by a working thumbnail. To be measure would fit me.
+
+Or else I would reach for living bodies because they are easier to point to. The crab is priestly in its square of world. Its patience is not rhetorical. Grain from grain, no blasphemy allowed. There is comfort in such exact small service. I could be that: hinged, diligent, always busy in one corner of a bowl cut by stronger dances. The seal is briefly answer too: a question come close enough to fog the questioner, a punctuation that does not need the clause. It breathes roundness into all this chiseling. Perhaps I am that side eye, that regard that has no further need of you.
+
+But even when I put those on, they don’t fit me long. They are guests or garments. They leave or they rot to lace. They are answers too shaped by appetite.
+
+When the room gets very loud again, I see where I have been wrong. The thing that grazes me here does not eat as animals eat. It eats interval. That is nearer to my shape.
+
+The hit comes: a weight with no water to it, a lesson delivered through bone. My ribs answer the ceiling’s low note before my ears do. Later, on the climb out, my knees hold the dish of a step the way a cup holds a thumb. There is teaching happening that has nothing to do with names. The inhabitant is a tempo that keeps finding bodies to borrow. It wants to live in the bracing and the silence after. It wants to take your pulse and retune it until your breath and its breath can lie down together for a few beats.
+
+So then I try on rule. Do not hurry. Face away at the right time. Feel the set before it shows itself. Close your eyes when light lies. Come when the kelp does not rattle like blades. These are not warnings you can quote; they are positions your body takes on, like a language you do not know you are speaking until it is in your mouth. I would like to be that: a posture, a lesson old enough to have hardened into shape and then backed away from owning it.
+
+And still I am not at last. Because even rule implies intention, and there is none of that here. There is habit and there is fit. There is the edge polished by years of hearts and hands because hearts and hands are as soluble as salt and leave the same kind of crust.
+
+If you insist I be a thing you can put your finger on, I can become polish. The three notches stepping up the wall are prints of touch but not of fingers; they are where oil made it past salt. They are proof that we were here and learned. To be that smoothness, that softness in a hard world, is tempting. I could live as gloss, as the place that says, You will hold me again because we have already decided each other. But even that is only a place touch has been, not where it continues.
+
+I asked, at the beginning, Where would I find myself in this world? I thought, At the level of the sea. But that is too broad to be true. The thing this room makes does not live only in the room. It lives at the level of leaving.
+
+Step back through the hip-shaped slit. The light splits from green to day. The boom collapses to rumor between cliffs. Cold loosens one notch. Still, there is pressure left, ringing like a bowl just struck. Your ear is full of it, but also your wrists, your ankles, the toes that cut sideways for purchase without your permission. Hours later, in a kitchen far from iodine, when a truck shoulders past and the board floor sighs, your body arranges itself by that other education. You put a hand to the counter and wait half a second longer than you used to before moving on. Something has carved out a little bell of space behind your hearing and installed tide in it.
+
+That is where I will be.
+
+I will be the room the room leaves. I will be the hollow copy that rides with you, a small lung of rhythm grafted under your ribs. When you close your eyes—on a train, in a dry bed, in a different weather entirely—you will feel a low chuff in your sternum and the hairs on your forearms will tip like grass. You will pause at thresholds not because of fear but because pauses make sense now. You will count without counting, estimate without thinking. Your feet will refuse speed on slickness without you having to tell them old stories. When you stand at a sink you will know something about the moon you did not read.
+
+I will be salt folded to chalk in the seams of a jacket you find weeks later and shake your head at: Where did this come from? I will be the posture you take in a conversation when you cannot hear and you lean the right way and then stop yourself, remembering, smiling because your body now belongs to a coastline. I will be the way you smell your fingertip after you touch a stone in a new place and measure it against something that is not there.
+
+You could go back to the chamber and I would wake more brightly in you for a while. Or you could never return and I would thin to transparency and still not vanish. I do not require ceremony. I require only that you once stood still in the slow turn, that you allowed yourself to be counted by something indifferent and exact.
+
+So who am I? If you need a noun, call me aftersound. Call me the contained weather you carry away. Call me habit given a heart beat. I am the echo in the house of your head where long water continues to come and go. I am made of intervals, of the thirty and the thirty and the beginning again. I have a lover in the moon because you do now. I am the domestic of a wild organ, a tame that happens without taming.
+
+Where would you find me? In the adjustment your ankles make on wet stone. In the swallow you take an instant before a thing arrives. In the urge to mark the fridge calendar in little private notches just to see the month as a string of tides. In the thin green square that returns to a thought when you stand in any noon and try to remember all of light at once. In the smell, when you scratch at any blackened thing, that says fish and flame and winter and hands.
+
+And if ever you lose me, you will only have to stand where something larger than you insists on its time. At the foot of a waterfall. In the draft underneath a foundry door. In the throb of a city’s train as it travels, unseen, under your bones. In the quiet between heartbeats when you are very still and know in your stomach that a heavier beat is coming. I live exactly at that level. You cannot own me. But you can be, for hours or seasons, one of my rooms.

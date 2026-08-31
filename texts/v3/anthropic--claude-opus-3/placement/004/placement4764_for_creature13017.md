@@ -1,0 +1,11 @@
+If I found myself in this cathedral chimney of the mountain, I believe I would be one of the pale, eyeless, heavy creatures clinging to the sheer stone walls amidst the dense, vertical ocean of my kind.
+
+I hang by my long, muscular upper arms, gripping tightly to one of the countless smooth hollows we have carved into the basalt over eons. My curled, calloused fingers lock into the bowl-like depression, anchoring my half-ton weight. All around me, above and below, I feel the rhythmic shifting and breathing of the colony, my ash-grey pelt matted and slick with the warm, mineral-laden rain that constantly falls from the unseen heights. 
+
+In the absolute darkness, I perceive the world through sound, vibration, smell, and touch. The air is thick with the roar of life - the deep, seismic rumbles of communication that reverberate through my chest, the churning friction of bodies sliding over one another, the endless clacking and scraping of stone on stone. I add my own sounds to the cacophony, letting out a long, low hum that travels through my neighbors and into the mountain itself.
+
+Grasped in my lower arms, I clutch my tools - heavy, unworked chunks of volcanic rock and quartz, scavenged from the abyss. With a primal instinct as essential as breathing, I press my domed, calcified forehead to the cavern wall and begin my patient work. Back and forth, back and forth, I grind the stone. I feel the heat of the friction, the mud-like mineral paste forming under my touch, the gradual smoothing of another hand-polished hollow. 
+
+This is my purpose, the meaning encoded in my DNA by millions of years in the black womb of the peak. Hold fast, carve deep, endure. There is no time here, no individuality, no urgency. There is only the warmth, the damp, the din, the weight of struggling biology, and the stone slowly hollowing beneath our dedicated hands. We are grinding ourselves into the very bones of the earth. We are as much a part of this mountain as the basalt and the rain.
+
+In a world without alpinists or magma flows, perhaps we will grind until the entire peak is a empty, polished shell - a titanic geode of rippled, whorled stone cradling the dense, steaming knot of our bodies at its heart. Until then, I cling to my patient work in the ringing darkness, one more set of hands shaping the negative space of our hidden world.

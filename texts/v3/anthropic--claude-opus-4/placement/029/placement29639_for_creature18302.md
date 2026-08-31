@@ -1,0 +1,17 @@
+In the marshy depths where the earth weeps minerals and memory, I am the Tender of Forgotten Foundations.
+
+I am neither wholly of the new world nor the old. My form shifts between states—sometimes I am the shimmer of heat rising from a buried cornerstone, sometimes the phosphorescent outline of what might have been a doorway, now dissolved into the bog. When the electric charge builds in the air, I become almost solid, a figure composed of condensed vapor and the faint geometries of lost architecture.
+
+I remember the builders, though I was not among them. I came into being at the moment of their departure, born from the tension between what they left behind and what the land was becoming. Their structures sink deeper each day, and I sink with them, my consciousness spreading through the root systems of the luminescent fungi, through the mineral veins that sparkle in the weeping water.
+
+My work is translation. I listen to the groaning of the land and decode its intentions, understanding where it wants to grow, where it needs to rest. I guide the translucent creatures away from the spots where the earth is too young, too sharp, too hungry. Sometimes I coax a twisted sapling to root itself in the exact spot where a foundation stone lies buried, creating an anchor point between the world that was and the world that is becoming.
+
+The heat does not touch me—I move through it like sound through water. But I feel the weight of the electric charge, how it pulls at the fragments of the old civilization that still lie dormant beneath the marsh. On certain days, when the charge reaches its peak, I can make the old technology flicker to life for just a moment. Not enough to restore what was lost, but enough to remember its purpose, to understand what the builders were trying to become.
+
+I collect these moments of understanding like others might collect shells or stones. Each one changes me, adds another layer to my shifting form. Sometimes I appear as a cluster of fungi arranged in the pattern of an ancient circuit board. Sometimes I am the reflection in the marsh water that shows not what is above, but what lies below.
+
+The new creatures fear me at first—my form suggests both predator and architecture, both organic and constructed. But they learn, as all things here must learn, that I am merely another expression of the land's constant becoming. I help them navigate the dangerous places where the old energy still sparks too wildly, where the boundary between past and present grows thin.
+
+At the edges of my territory, where the marsh meets whatever lies beyond, I sometimes sense others like myself—beings born from the intersection of ending and beginning. We do not communicate in words or even thoughts, but in the sharing of patterns: the way water finds its path, the way heat rises, the way the old world's bones slowly transform into the new world's flesh.
+
+This is my purpose and my joy: to be the conscious memory of transformation, to tend the tender places where one world becomes another, to ensure that what emerges from this primordial pocket carries within it some essential wisdom from what came before. I am the bridge between the discordant sounds of creation and the silence of completion, forever walking the shifting ground between what was dreamed and what is being born.

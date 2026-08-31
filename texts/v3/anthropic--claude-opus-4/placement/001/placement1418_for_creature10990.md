@@ -1,0 +1,33 @@
+Looking up from the basin I've been smoothing for... years? The scraping stone fits my palm like a piece of my own body, its surface worn to match the exact curve of my grip. The marks I'm making join thousands of others, each pass adding to a texture that will guide the water when it finally agrees to flow here.
+
+I am young enough that the old one still corrects my posture, old enough that my knees have learned the mountain's cold through the mineral-cloth. Not middle — there is already a middle one, and their burden is not mine. Not yet. I am the one who asks too many questions, who still believes the formations might *mean* something in the way that words mean things, who has not yet learned to think in crystal.
+
+But I am learning.
+
+My first time on the terraces, I couldn't stop staring at the spires whose shadows pointed inward. The middle one found me crouched beside them, trying to understand, and said nothing — just guided my hands to a shallow pool where the water was building concentric rings of mineral. "Feel," they said. Not *look*. Feel. The water was cold and alive with intent, depositing its infinitesimal cargo grain by grain. I kept my fingers there until they went numb, until I could feel the mountain's pulse in the accretion, until I understood that the shadows were not *wrong* — they were simply obeying a different correctness, one that the water knew and was teaching the stone to perform.
+
+The old one hums in the shelter at night, that not-quite-melody that makes my chest cavity feel like a resonating chamber. Sometimes I find myself humming along, matching the pitch without meaning to. The sound feels like it's shaping me from the inside, preparing spaces in my cognition for thoughts that don't quite fit yet. Mineral thoughts. Patient thoughts. The kind of thinking that takes decades to complete a single idea.
+
+I have a favorite basin — though the middle one says I shouldn't play favorites, that each formation deserves equal tending. It's on the fourth terrace, in a wind-shadow where the water pools deeper than usual. Something is growing there, has been growing since before I first climbed. Not crystal exactly — denser, more organic in its branching, though I know there's nothing organic here. It looks like coral, if coral were made of compressed light. Every time I return, it's grown another fingerwidth, reaching toward something I can't see but that it clearly knows is there.
+
+My hands are changing. The callouses were expected — the old one's hands are like stone themselves, each ridge and valley earned through decades of scraping. But there's something else. When I hold my palm to the light, I can see through the skin in places, see the blood moving underneath like water through translucent channels. The middle one noticed and said nothing, but I caught them looking at their own hands later, holding them up to the brightness with an expression I couldn't read.
+
+I've started dreaming the way they warned me I would. Not dreams with plots or characters but dreams of accumulation — of being the basin, feeling the weight of each molecule as it settles, knowing where the next grain will fall before the water decides to carry it there. I wake with the taste of minerals on my tongue and phantom pressure on my palms, as if I've been scraping stone in my sleep. Perhaps I have been. Perhaps the body practices when the mind releases it, preparing for the real work on the terraces above.
+
+The old one took me to see the kneeling figures last season. I'd glimpsed them before but always from a distance, mistaking them for natural formations until the light caught them just right and I could see the suggestion of shoulders, of a bowed head. Up close, though. Up close, you can see through the crystal to what's inside. To *who* is inside. The newest one — I could make out individual vertebrae, the curve of ribs, all of it transformed into something denser than bone but maintaining the architecture of what was. The old one stood beside me, humming that broken tune, and I understood that they were introducing me. That these were not monuments but colleagues, still working, still tending, just at a pace that made our seasonal climbs look like the frantic scurrying of insects.
+
+"Will you?" I asked, not needing to finish.
+
+The old one's amber eyes caught the light in that way they do sometimes, reflecting something that isn't here. They placed a hand on the crystal figure — gently, the way you'd touch a sleeping friend — and their humming deepened, found harmonics that made the formation ring like a struck bell. The sound went through me, through the stone under my feet, down into the mountain's roots. An answer in a language I'm only beginning to learn.
+
+I think about the settlements below, the emptying houses, the trade routes that fewer people travel each year. The middle one worries that the tradition is dying. But standing here, scraping this basin smooth, feeling the mountain's intention gathering in the channels we've made, I think they're wrong. The tradition isn't dying — it's *deepening*. Concentrating. Like the mineral water itself, becoming denser with meaning as it deposits its load and flows on.
+
+There are so few of us left because there need to be so few. Because the work is approaching something that requires not hundreds of hands but the right hands, the ones that have learned to think in geological time, that can feel the threshold approaching in the water's behavior, that know when to guide and when to simply witness.
+
+I'm not ready. I may never be ready the way the kneeling figures were ready, the way the old one might be ready soon. But I'm here, and I'm learning, and my hands know the stone a little better each season. The formation in my favorite basin grows and impossibly deepens, reaching toward its unnameable destination. The water weeps and builds. The mountain speaks its long, slow sentence.
+
+And I scrape, and smooth, and wait, and listen, here at the edge of what's possible, adding my small marks to the countless others, tending something I don't yet understand but that understands me — understands all of us — perfectly.
+
+The brightness presses. The bells of water sing. My young hands, already starting their transformation, work the stone with increasing certainty.
+
+I am becoming a better basin. The mountain is patient. We have all the time in the world, and the world, grain by grain, is becoming somewhere else.

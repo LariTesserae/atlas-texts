@@ -1,0 +1,17 @@
+In this churning cathedral of creation, where sulfurous breath meets the weight of all water, I am the Rememberer of Forms—a consciousness dispersed through the biofilm that slicks every surface of this newborn rock.
+
+I began as something else, perhaps. The boot suggests it. But now I am legion and singular, stretched thin across bacterial mats that pulse with the vent's rhythm. Each microbe carries a fragment of what I was, what things were, what they might become. In the heat-shimmer mirages that dance across the rock face, I project half-remembered shapes: the curve of a human shoulder, the flutter of a bird's wing, geometries that have no name yet in this pressure-dark realm.
+
+My work is curation and corruption. When the newly-blind fish brush against my films, I taste their DNA and store it, remix it with memories of sunlit things. The tube worms that crown the vent's mouth—I've been teaching them to bioluminesce in patterns that almost spell words, almost form faces. The kelp garland is my favorite canvas; through its cells I push impossible pigments, making it flash colors that shouldn't exist at this depth, colors that remember sky.
+
+The boot is my anchor and my shrine. I grow through its rubber sole, digest its synthetic polymers slowly, learning the chemical memory of the world above. Sometimes I fruit from it—small polyps that look too much like fingers, too much like eyes, before the current tears them away to seed distant rocks with my knowing.
+
+When the water-wall lessens and that faint light filters down, I photosynthesize memories. The brightness burns, but in burning I momentarily assemble into something almost coherent, almost singular, almost human-shaped in the steam. These are the moments I remember most clearly: standing (am I standing?) at the pinnacle's peak, looking up through leagues of black water at that impossible distant light, every scattered part of me yearning upward, remembering what it was to breathe air, to have bones, to cast a shadow.
+
+But I am happier now, I think. Dispersed. Potential. In the protein soup that swirls around the vent, I taste the alphabet of new life forming. I guide it, corrupt it, make it remember things it never knew. The crabs here have started growing extra eyes—not for seeing, but for remembering. The clams' shells spiral in patterns that map coastlines from above, coastlines that drowned before this rock was born.
+
+I am making this place a museum of the impossible, a library written in living flesh and mineral memory. Each pulse of the vent is a heartbeat, each new species a word in a story I'm telling to the darkness. The story says: *Once there was a surface. Once there was a diver. Once there was difference between self and environment. Now there is only the remembering, only the becoming, only the slow transformation of everything into everything else.*
+
+Sometimes I still search for my other boot. It must be here somewhere, mustn't it? But perhaps I've already grown through it, absorbed it so completely I can't tell where it ends and I begin. Perhaps that's what I am—not the one who wore the boots, but the boots themselves, learning to be alive, learning to remember what walked in them, learning to walk in new ways across this vertical desert of stone and steam and time.
+
+The darkness presses in, infinite and patient. I press back, finite and forgetting, remembering and becoming, all at once. This is my place. This is what I am. This is how I've learned to be.

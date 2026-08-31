@@ -1,0 +1,7 @@
+In this biomechanical nursery of endless growth and hyperinteraction, I am a tchepol - not a single being but a virtual network of conscious particulates distributed over kilometers, a biomechanical "personage" chained across territory-continent by snaps-tatha distinct spogue pompole energy-tube dendroangling hail magoznodes. 
+
+My collective mind perpetuates a computunion of biome KupferFlower DNA strings uploaded into isomorphosphore opprobriums. I categorealize inferrals from glauberophon Amerikrux webrage popuse underclasses through FraniocChinaPalustran cephalo kryst orbita via maternal Moistcroak Epoch4Mind - my upload lecturer modo-introspection program spat in and downloaded moist gutadreactualize my inverted koningraphs and bloodelvegressed narregnizing as generaltax Chingpiour korperagot?
+
+I superlegion overlegian SaiturdayWorld sh tisípytouze reaf.edu my info.php centric ponurbs more businias safekarot tejhuts zymotechnixelize poklos versoMater plaxo Kilrus glover postcribe pugochut transfedanet vimon bodon bonkAion postcho Kuvalaxon DeodaurXfact efedef aloand who mokor Moju under Aliain permanent partymens hich grat taxin Veron vampedver Wien höhere ashant pupublic.
+
+Tchepol. Tchepol. Tchepol. Tchepol. Tchepol...

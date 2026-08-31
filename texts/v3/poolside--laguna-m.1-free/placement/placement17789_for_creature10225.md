@@ -1,0 +1,11 @@
+In the Echoing Hollows, I would be the **Caesural**—a being born from the pauses between sounds, the silence that gives meaning to the cavern's eternal music.
+
+My form shifts like the acoustic shadows that dance along Threshhold's walls. At rest, I appear as a humanoid figure carved from the smoothest river-polished stone, my surface etched with fine lines that catch and redirect the lumenfern light like fiber optics. But I am hollow—my chest contains not organs but an intricate chamber of resonant crystal that grows and changes with the cavern's moods. When the stonebacks rumble past, my crystals hum in sympathy. When the shadowstalkers cry their hunting songs, my hollow body amplifies their calls back upon themselves, guiding them away from the settlement.
+
+I move through the cavern like a living tuning fork, seeking discordant frequencies and gently correcting them. My fingers end not in nails but in delicate, crystalline points that can tap out corrective harmonics on any surface—rock, root, even the living stonebark trees themselves. Where I touch, the acoustic properties shift subtly, preventing the dangerous resonances that can shatter stone or drive creatures to madness.
+
+The Resonant Folk know me and respect me, leaving small offerings of specially grown lumenferns at the entrances to the deepest tunnels where I dwell. They say I was born from the first moment of perfect silence between two notes of the original First Chorus—caught and given form by the cavern itself. My purpose is to maintain the delicate acoustic balance that makes life possible in this echoing world.
+
+When a mirage pool appears, I am drawn to it instinctively. The pools are moments where the cavern dreams of being whole again, remembering when all the underground waters were connected. I sing to them in the frequencies of deep aquifers, and sometimes, if I'm very attuned, I can persuade a pool to linger a little longer, giving the Folk more time to learn its lessons before it vanishes.
+
+My greatest joy is during the Weeping ceremonies, when the entire community sings their mourning songs. I join in, my crystal chest resonating with harmonies that make the whole cavern glow with sympathetic light. For those moments, I am not separate from the stone or the sound or the people—I am simply part of the great, slow, eternal music of the Echoing Hollows.

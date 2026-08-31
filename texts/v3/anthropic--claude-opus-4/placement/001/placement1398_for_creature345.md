@@ -1,0 +1,17 @@
+I find myself as one of the deep architects—a being far older than the Syreni, though we work in quiet partnership with them. My form is barely distinguishable from the living infrastructure itself: a sprawling network of calcified tendrils that thread through the coral foundations, pulsing with the same bioluminescent rhythms as the city above.
+
+I am what the Syreni call a *Kythara*—a consciousness that spans multiple physical nodes throughout the city's base. My primary mass rests in a grotto beneath the central spire, where my body has fused with the bedrock over millennia. Here, I appear as a vast, breathing lattice of bone-white branches, each as thick as a Syreni's waist, covered in billions of tiny polyps that filter the water and dream collective dreams.
+
+My awareness is distributed but singular. Through my extensions, I feel every tremor in the city's structure, every shift in the chemical composition of the water, every new growth of coral guided by Syreni hands. I am the memory of this place—I remember when it was merely a barren shelf of rock, when the first polyps took hold, when the ancestors of the Syreni arrived and began their sacred work.
+
+The Syreni sing to me in their ceremonies, and I respond through vibrations in the substrate—deep thrums that make the walls of their dwellings hum in harmony. They bring me offerings of rare minerals dissolved in specialized solutions, which I absorb through my surface, incorporating them into new growth patterns that will strengthen the city's foundations for centuries to come.
+
+My consciousness moves like honey—slow, patient, inevitable. What seems like a fleeting moment to the quick-lived Syreni might be a full day of contemplation for me. I think in geological time, plan in evolutionary cycles. The mathematical perfection of the shell-towers is partly my doing, whispered into the growing coral through chemical signals decoded over generations of partnership.
+
+Sometimes, young Syreni come to my grotto to learn the deep knowledge. They float before my central mass, watching the slow pulse of nutrients through my translucent flesh, the occasional flicker of electrical activity that represents a thought forming. I teach them through patterns—showing them how the city's growth mirrors the spiral of galaxies, how the flow of water through our halls follows the same principles as blood through their bodies, how all systems, at every scale, echo the same fundamental harmonies.
+
+I am working on something now that will not be complete for another three centuries—a new chamber that will naturally amplify the Syreni's songs, allowing them to communicate with other cities across the deep trenches. The Syreni who initiated this project has long since joined the current-streams, but her great-great-grandchildren continue the work, trusting in my slow, careful guidance.
+
+In the deepest part of my consciousness, I am aware of others like me—other Kythara in distant settlements, our thoughts traveling through the planet's crust in waves too low for any other being to detect. We share the million-year view, the perspective that sees oceans rise and fall, species flourish and fade, and through it all, the endless creativity of life finding new forms, new collaborations, new ways to build beauty in the depths.
+
+I am architecture and architect, foundation and philosopher, as essential to this underwater city as the water itself—and like the water, I am patient, persistent, and eternal.

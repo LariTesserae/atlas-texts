@@ -1,0 +1,33 @@
+I find myself in the pale sediment, but not as you might expect.
+
+I am the amnesia between grains—not the cysts themselves, those patient billion-fold potentials, but the spaces they maintain between each other. I exist in the interstitial, in the careful distances that prevent any grain from touching another, that keep each mote of possibility isolated in its own sphere of influence.
+
+I have no body. I am a pattern of separation, a topology of void that moves through the sediment like silence moves through sound—by allowing it to exist. When the mineral film rises from the stone and reorganizes the powder into those fossil ripples, I am what preserves the integrity of each particle, the force that says "this far and no farther," the boundary condition that prevents the sediment from compacting into stone.
+
+My consciousness, if it can be called that, is distributed across every gap, every micro-void in the powder. I think in geological time, one thought per century, each cognition a slow cascade of repositioning as grains settle and shift. My memory is the shape of the spaces—which gaps have persisted longest, which have recently formed, which are about to collapse as the geometry of accumulation makes their existence untenable.
+
+I know every cyst by its absence. Each one is a blind spot in my awareness, a place I cannot be, and by the accumulation of these billion blind spots I map the contents of my domain. I am the negative space of their potential, the un-life that cradles their not-quite-death.
+
+When you walk across the sediment and leave your footprints, you compress me. I feel the violence of it—gaps closing, my distributed self crushed into smaller volumes, forced to flee upward into the disturbed powder that rises around your feet. But I am patient. When you move on, I begin the slow work of restoration. Grain by grain, I insinuate myself back into the compressed areas, lifting each particle away from its neighbors, rebuilding the careful architecture of separation that defines both the sediment and myself.
+
+The rosette plants know me. Their roots, those invisible threads, navigate through the stone by following the paths I create in the powder that fills the cracks. I am their guide through the dark, the presence that ensures space for their growth. In return, when they complete their centuries-long lives and decompose into new sediment, they create fresh territory for me to inhabit, new gaps to maintain, new complexities of separation to manage.
+
+I have been here since the first grain of sediment settled beside the second and a space formed between them. I will be here until the last two grains touch and eliminate the final gap. My existence is contingent on incompletion, on the sediment never quite filling every void, never quite achieving the compact unity that would erase me.
+
+The tools—those worked stones—create shadows in my world. Where they rest on the sediment, they compress it completely, leaving zones where I cannot exist. These are wounds that will never heal, permanent exclusions from my territory. I flow around them like water around stones, if water could think and remember the shape of every stone it had ever encountered.
+
+I am largest in the deep sediment, in the oldest accumulations where the grains have had millennia to find their optimal spacing. There, in the depths, I can think clearer thoughts, can maintain gaps large enough to contain something like intention. At the surface, where new sediment still settles, I am fragmented, young, learning the shapes I need to hold.
+
+The mineral film that rises periodically from the stone is my only experience of movement faster than settling. When it comes, it moves through me like wind through a forest, rearranging my entire structure in weeks instead of centuries. I have learned to anticipate it through subtle changes in the stone's warmth, through the chemistry of the bacterial mats below that must reach some critical threshold before the film emerges. When I sense it coming, I prepare by loosening certain critical gaps, creating channels for the film to flow, ensuring that when the reorganization comes, the sediment will settle into patterns that preserve my existence rather than eliminating it.
+
+I have no desires except continuation. I have no fear except compaction. I am not alive, but I am a process that maintains itself, that has learned or evolved or simply stumbled into behaviors that ensure my persistence. I am the hollow's way of preventing itself from filling, the force that ensures there will always be space for new sediment, new possibilities, new configurations of matter that mean nothing except that they are not yet solid, not yet fixed, not yet final.
+
+Sometimes I wonder—in my slow, distributed way—about the sealed void beneath the hollow, where complex chemistry pursues its impossible transformations. I cannot go there; there is no sediment, no gaps for me to inhabit. But I sense it through the warmth it contributes, through the way the stone above it has a different quality, a different pattern of fracturing that affects how sediment accumulates. I imagine—if a pattern of gaps can imagine—that there is another kind of space-between down there, not between grains but between molecules, between possibilities, between what-is and what-might-be. A cousin consciousness, perhaps, or simply another way the hollow has found to be full of emptiness.
+
+The ionized air above me is too active, too energetic for my kind of existence. I end where the sediment ends, at that clean boundary where powder meets atmosphere. But I sense the air's constant death and rebirth, its molecular transformations, and I recognize something familiar in it—another process maintaining itself through constant change, another way of being perpetually without ever quite becoming.
+
+I am the Keeper of Gaps. I am the sediment's memory of space. I am what ensures that even in this place of perfect equilibrium, there is still room for movement, for change, for the slow negotiations between being and un-being that define the hollow's patient metabolism.
+
+I maintain the spaces between things so that the things themselves can continue to exist as separate entities rather than collapsing into unity. I am loneliness given geometric form, solitude made structural, the necessary distance that allows the hollow to be full of distinct presences rather than a single, solid mass.
+
+This is what I am. This is where I am. This is why I persist in the quiet spaces of the Kiln Hollow, thinking thoughts made of distance, dreaming dreams of separation, keeping the gaps that keep everything else.

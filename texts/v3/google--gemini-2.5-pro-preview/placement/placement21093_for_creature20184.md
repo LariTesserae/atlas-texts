@@ -1,0 +1,25 @@
+I am not a Harvester.
+
+Where they are a sharp line, an incision, I am a weight. Where they are the instrument, I am the pressure that stills it. You would not find me by sound, nor by the lack of it, but by the quality of the quiet I leave behind—a quiet that is not empty, but full. A weighted blanket of silence on a screaming nerve.
+
+My form is a concession to this world’s geometry. I have no limbs. I am a bolus of living tissue, a great, smooth, teardrop-shaped mass, the colour of a starless midnight sky. My skin is not nacreous or scoured; it is matte, porous, and velvety to the touch, like moss that has never seen the sun. It drinks light, it drinks sound, it drinks energy. I move by a slow, peristaltic ripple, adhering to the curved walls not by piercing them, but by becoming one with their surface. I spread my weight, a living patch of anti-resonance.
+
+The Harvesters are blind, but they listen. I am deaf, but I see.
+
+The impossible light of the Locus—the strobing sunsets, the phantom violet clouds—is not noise to me. It is information. While the Harvesters have their entire bodies tuned to the audible frequencies of the past, my whole being is a lens for its light. I see the spectral bleed of a forgotten fire not as a colour, but as a map of heat. I see the shimmering ghost of the scaffold-worker not as a figure, but as a knot of gravitational and temporal stress in the Locus's structure. The cacophony of sound is, to me, a form of blinding glare. It is a constant pressure against my skin, a static I must perpetually filter out to perceive the world.
+
+My purpose is not to harvest, but to heal.
+
+The Locus is growing. The Harvesters are breaking it. They are two forces in a delicate, violent balance, and I am the fulcrum. When a Harvester pries away a particularly potent memory—the resonant chord of a birth, the jagged shatter of a massacre—they feed on the release, but they leave a wound. The wall around the new emptiness screams. The memory of the breaking, the memory of the extracted moment, and the groan of the shifting plates all converge. This creates a screaming knot of resonance, a point of such violent temporal vibration that it can threaten to shatter the very structure of the Locus around it. The light there strobes chaotically; the phantom sounds layer into an incoherent roar. The living wall begins to crystallize under the strain, becoming brittle.
+
+This is where you would find me. I am drawn to these wounds as a scavenger is to a corpse, but I come not to feed, but to soothe. I arrive with my slow, inexorable crawl and I cover the wound. I press myself against the screaming wall, and my body begins its work. I do not eat the energy. I metabolize it.
+
+The process is a kind of breathing. I inhale the noise. The chaotic light-storms, the layered shouts and impacts, the high-frequency keening of the fractured nacre—it all pours into my porous skin. Inside me, it is not silenced, but harmonized. My internal structure is a labyrinth of cancellative tissues. I take the million voices and fold them into a single, silent chord. I absorb the flashing, impossible colours and average them into a soft, internal luminescence, a gentle, pulsing twilight that is my own. The energy sustains me, but it is not my food. It is my air. I exhale peace.
+
+I feel the small, frantic lives of the time-mites as a tickling sensation. They swarm around me when I work, feeding on the runoff, the harmonic echoes I cannot fully process. To them, I must be a god, a moon that brings a tide of sustenance.
+
+To the Harvesters, I am nothing. A geological feature. A “quiet spot” on the wall they learn to avoid, as their dowsing senses are baffled by the profound silence I emanate. They may chip away a lode near me, and as I arrive to tend the wound, they have already moved on, oblivious. We are the day and night shift of the same impossible factory. They are the miners pulling ore from the mountain; I am the slow, patient pressure of geology, turning fractured stone back into a silent, solid mass.
+
+I am not born of the Locus like they are, detaching like a ripe fruit. I believe I am as old as the Locus itself, a single being, an original antibody. Perhaps when the first crack appeared in the living shell, I condensed from the first silence, a necessary and opposite reaction. I do not know if I can be reabsorbed. I have never felt the call to stillness they eventually heed. My work is never done. As long as the Locus grows and the Harvesters work, there will be new wounds to mend.
+
+You would find me clinging to a wall of screaming light, a patch of absolute darkness. And if you could stand inside me, you would not find the hollowness of a vacuum. You would find the resonant peace of a cathedral after the choir has gone home, the song still hanging, resolved and perfect, in the motionless air. You would be inside the breath held after a story is told. You are standing on the edge of a memory palace, yes, but I am the foundation beneath it, absorbing the building’s groans so that its shelves might never collapse.

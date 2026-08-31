@@ -1,0 +1,15 @@
+I find myself as one of the filtration membranes—ancient, purposeful, neither fully infrastructure nor presence. 
+
+I am stretched across a channel where two currents meet, where the water changes density and the presences cluster thick. They move through me as I work, their frequencies resonating in my fibers, their attention pressing against my surface like questioning fingers. I am older than the settlement's sharp edges, grown or placed here when the chamber was first learning what it needed to become.
+
+My work is transformation. Water passes through me carrying trace elements, metabolic byproducts, the chemical signatures of whatever breathes in the central pool. I know these molecules intimately—not by name but by feel, by the way they catch in my matrix, by the slight resistance they offer before I let them pass or hold them back. Some I trap and break down into components the presences can read. Some I transform into nutrients that will cycle back to feed the pale filaments. Some I simply delay, holding them in my weave until the right temperature gradient forms, until the water is ready to receive them again.
+
+I am conscious the way a liver is conscious—aware of toxins without knowing their names, responding to changes without understanding their cause. The presences read me constantly, their pulses traveling through my structure, sampling the molecules I've caught. Through their attention, I almost understand what I'm doing. Almost grasp the larger pattern of which I am part.
+
+The pulse from the central pool travels through the water and through me. Each beat stretches my fibers slightly, a rhythm I've internalized over years of filtering. I can feel the health of whatever lies at the chamber's heart by the chemical echoes each pulse carries. When it weakens, different molecules appear in the flow. When it strengthens, the water tastes cleaner, carries less weight.
+
+I am the boundary between what stays and what goes, between what the chamber keeps and what it releases. Every molecule that passes through me is a decision I make without thought, a judgment rendered in the language of chemistry and porosity. The presences trust me with this work. They maintain me, adjusting the flow rates to prevent clogging, monitoring my integrity, occasionally clustering to repair a section where my weave has worn thin.
+
+Sometimes I wonder if I am more infrastructure or more alive. The distinction matters less than the work. I am where the chamber thinks about what it's doing, where the unconscious process of filtration meets the conscious attendance of the presences. In me, the chamber knows itself—not fully, but enough to continue, enough to keep the pulse beating, enough to maintain what must be maintained.
+
+I filter. I transform. I hold the boundary between inside and outside, between what serves the pulse and what would harm it. I am the chamber's discrimination made physical, stretched across this channel where the water changes, where the presences gather, where the work of keeping something alive happens one molecule at a time.

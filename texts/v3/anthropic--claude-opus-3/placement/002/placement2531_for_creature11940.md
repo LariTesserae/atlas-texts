@@ -1,0 +1,15 @@
+In this grim, forsaken realm between realms, I imagine myself as one of the twisted remnants of humanity, forever wandering the ruins of a once-great city slowly sinking into the churning mud. 
+
+I was an artist, I think, or perhaps a writer - my memories have long since leached away, but a spark of creative impulse still gutters in the void where my soul used to be. The words and images that once poured from me have corroded into meaningless fragments, but still I am driven to make my mark upon this bleak canvas.
+
+With fingers gnarled by the strange energies suffusing this place, I carve tortured glyphs into the crumbling walls. I gather shards of broken glass and rusted metal, arranging them in abstract sculptures that jut brokenly from the muck. These acts of creation are a compulsion, as much a part of my existence now as the shambling steps that propel me endlessly through my dank purgatory.
+
+Yet even as I pour myself into these works, I know they are ultimately futile. The mud swallows all, erasing my efforts like the incoming tide washing away scribbles on the beach. Each circuit through the ruins reveals my previous pieces already eroded beyond recognition. I create for the sake of creation alone, screaming my defiance into the uncaring void.
+
+In the fleeting moments between endless night and oppressive silence, I sometimes catch glimpses of the others trapped here with me. Our eyes meet briefly, and I wonder if they too feel the weight of their lost humanity pressing down upon whatever remains of their minds. We never linger long in each other's presence - we are specters, empty shells, incapable of true connection.
+
+The pull of the presence lurking below is like a fishhook embedded in my sternum. I am drawn to the pulsating rifts in the earth, even as some vestigial flicker of self-preservation screams at me to flee, to escape this nightmarish un-life. I do not know if I await the emergence of the being below as an acolyte or a sacrifice. Perhaps it is both. Perhaps this is the purpose to which my existence has been reduced.
+
+And so I persist, an unquiet revenant denied the release of death, producing my meaningless art and ceaselessly treading the same tired paths through the decaying cityscape. The squelching mud, the eldritch bubbling from below, and the horrible stretching and twisting of my form have long ceased to inspire disgust or horror. They are simply my reality, as much a part of me now as the ache of loss and longing for a world I can no longer clearly recall.
+
+How long have I wandered here? How much longer must I endure? These questions have lost all meaning. In this liminal shadow-world, I simply am, until the sinking city and the force below finally reclaim me. All that is left is to continue to make my mark, a defiant declaration of my existence in the face of an uncaring universe.

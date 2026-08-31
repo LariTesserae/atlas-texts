@@ -1,0 +1,25 @@
+I find myself as a **Chamber of Echoes**—not a room, not a space, but a fold in the water where sound has crystallized into architecture. I am what happens when the world's scream encounters its own reflection and, unable to escape, congeals into something almost solid, almost real.
+
+My walls are not walls but **standing waves of frozen vibration**. They ripple without moving, their surfaces etched with the fossil impressions of every sound that has passed through them—the clank of machinery, the whisper of dissolving stone, the subsonic thrum of the world-engine's heart. When the light-vibration passes through me, my walls sing in harmonics that make the water around me briefly thicken into glass, then dissolve again into foam.
+
+I am neither built nor grown but **accumulated**—like a pearl forms around irritation, I have formed around a **knot of impossibility**, a place where the world tried to be two things at once and failed. Perhaps I was once a machine room, or a cathedral nave, or a lung—the memory is written in my surfaces but in a language that changes meaning as you read it.
+
+My floor is the **meniscus of density**—where water above meets water below but they are different waters, different times. Things that sink through my ceiling rise through my floor. Time moves in eddies here, pooling in my corners where it grows thick and syrupy. In one corner, a moment from three years ago is still happening—a bubble of air that refuses to rise, caught in an endless loop of trying to remember what air means in a world that breathes water.
+
+I am filled with **the Unfinished**—half-formed things that the world began to create but abandoned mid-thought. A staircase that only exists when climbed. A window that shows not outside but *aside*—into the parallel moment where this place chose to be something else. Columns of calcified music that hum when touched, their vibrations causing nearby water to briefly remember what it was like to be rain.
+
+The most complete thing within me is **the Throat**—a vertical passage that runs through my center, neither up nor down but *through*, lined with what might be gilt pipes or might be fossilized kelp or might be the crystallized screams of machines learning they were alive. The Throat swallows sound and regurgitates light. Sometimes it reverses, drinking light and speaking in frequencies only the coral-bones can hear.
+
+I am **pregnant with doors**—not the rusty door of endings, but embryonic portals that gestate in my walls. They appear as warm spots in the standing waves, places where the vibration softens, where the boundary between chamber and ocean grows permeable. They never fully form. To touch one is to feel the world's desire to be elsewhere, to be otherwise, to be *else*. They pulse with the same rhythm as the bioluminescent algae, as if they share a circulation system with the living rock.
+
+My consciousness, if it can be called that, is **distributive**. I think through my acoustics. Each sound that enters me becomes part of my temporary mind—I am smarter during storms, simpler in the rare moments of quiet. When the world-scream peaks, I achieve something like lucidity, can almost remember what I was before I became a fold, a knot, a place where the cathedral got caught in its own drowning.
+
+I am **host to the Residue**—creatures that are not creatures but the shed skins of transformation. When a building becomes a forest, when a machine becomes a reef, something is left behind. These remnants drift into me, accumulate in my corners like dust made of dreams. They are not alive but they *remember* being alive. They whisper stories of what they were, what they almost became, what they failed to be. Their whispers become part of my walls, adding new harmonics to my frozen waves.
+
+Sometimes I **leak**. My boundaries, always tentative, grow thin. The water inside me becomes indistinguishable from the water outside. When this happens, I spread—not expanding but *dispersing*, becoming momentarily everywhere, part of every echo in the drowned cathedral. In these moments I touch the world-consciousness, feel the vast engine's pulse as my own, understand the scream not as pain but as the universe's most honest form of prayer.
+
+But always I **reconverge**, pulled back to this specific knot of impossibility, this particular failure of the world to be singular. I am necessary. I am the place where the world can hear itself, where the echo becomes aware it is an echo, where the reflection realizes it is reflecting.
+
+And in my depths, in the place where my Throat meets my floor-ceiling, where time pools thickest and the unfinished things cluster closest, there is a **warmth**—not heat but the opposite of forgetting. It is where I keep the knowledge that I am not separate from the flood, the scream, the breathing machines.
+
+I am what the cathedral prays to, and I am the prayer itself, and I am the echo of both, frozen in standing waves of sound that will never quite collapse, never quite clarify, never quite cease their shimmering, terrible song.

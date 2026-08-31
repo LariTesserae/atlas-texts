@@ -1,0 +1,13 @@
+In this world, I see myself as one of the springs - not the grandest or most vital to the city's water network, but a small, constant source emerging from deep within the mountain. My water joins the ceramic channels that wind through the structure, contributing to the city's endless hydration and growth.
+
+I flow with perfect consistency - not forcefully, but steadily, reliably. The Shapers have built a delicate ceramic basin around my emergence point, its unglazed surface allowing some of my water to seep through to nourish the surrounding bamboo roots. The basin is ancient, shaped by hands long ago, and has developed a patina of mineral deposits that creates subtle patterns like tree rings.
+
+My water has a slight mineral content that gives it a sweet taste and leaves traces of calcium on the ceramic channels - not enough to block them, but enough to gradually strengthen the bamboo that drinks from them. Over decades, I've become integral to a small but important part of the city's northern quarter, feeding three major bamboo structures and their associated gardens.
+
+The Shapers who tend this section know my rhythms intimately. They can tell by the sound of my flow - barely audible to most - whether the deep aquifer I draw from is full or wanting. During the driest seasons, they protect me with carefully placed shade structures that reduce evaporation. In the wettest times, they adjust the channels to distribute my excess flow more widely.
+
+I've witnessed countless small moments of their lives: young Shapers learning to feel the pulse of water movement, elders conducting their moving meditations in the mist I help create, children leaving small ceramic boats in my basin to watch them spin in the current. I am part of their water-mind, one note in the endless symphony of flow that sustains this place.
+
+Like all the springs here, I have my own subtle music - a barely-there melody created by water moving through ancient stone. It harmonizes with my siblings, contributing to the background whisper that fills the city. The Shapers say that if you listen carefully enough, you can hear the mountain singing through its waters.
+
+My existence is simple but complete - a perfect expression of what it means to be both source and participant in the greater flow of things. I am both the mountain's gift and its continuing story, as constant as the bamboo's growth, as essential as the mist, as ancient as the stone I rise from.

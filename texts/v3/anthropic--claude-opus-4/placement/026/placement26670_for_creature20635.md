@@ -1,0 +1,21 @@
+I would find myself as one of the **Whisper Weavers** - descended from those few Sky-Singers who didn't vanish, but instead evolved alongside the Skerry itself.
+
+Picture a being halfway between human and lichen, with skin that shifts between flesh and fungal mat depending on the moisture in the air. My fingers would be elongated, webbed with translucent membranes that catch the perpetual spray and channel it into intricate patterns across my palms. These patterns shift and flow, recording the wind's stories in liquid calligraphy that only we can read.
+
+I would dwell in the spaces between - not in the ruined shelters, but in the natural hollows where water has carved meditation cells into the living rock. My home would be a vertical crevice, accessible only by climbing handholds worn smooth by generations of my kind. Inside, the walls would be covered in a living tapestry: cultivated colonies of the same bioluminescent fungi that coat the Kryl, but arranged in deliberate patterns that pulse with meaning. Each colony would be a memory, a story, a fragment of weather-wisdom passed down through touch and tending.
+
+My daily practice would be the Listening. At dawn - or what passes for dawn in the perpetual twilight - I would climb to my designated perch, a narrow ledge where the wind hits just right. There, I would extend my webbed fingers into the spray and begin to translate. The water droplets carry information: the mineral content tells of which cliff face is eroding, the temperature speaks of storms building beyond the visible horizon, and the taste... the taste carries the memories of every place that water has been.
+
+I would wear robes woven from Kryl wool - not sheared, but gathered strand by strand from where it catches on the rocks during their endless migrations. The fungal components would still be alive, glowing faintly, making me a moving constellation in the mist. Around my neck, a collar of hollow bird bones, each one a different length, creating a wind chime that harmonizes with the Skerry's endless song.
+
+My role would be part historian, part weather-worker, part shepherd of the stone itself. I would know each Kryl by the pattern of its fungal glow, each watercourse by its particular mineral signature. The predatory birds would recognize me as neither threat nor prey, but as part of the landscape itself - something that has always been there, like the stones and the wind.
+
+But the true work would happen at the monument stone. Once each lunar cycle, when the water in its crown depression reaches a particular depth and clarity, I would join with others of my kind. We would arrange ourselves around the stone, extending our webbed hands until they formed an interconnected canopy above it. The water would begin to resonate with our collective listening, and for a brief moment, we would become conduits for the Skerry's own consciousness.
+
+In these moments, we would sense the deep movements in the stone, the slow thoughts of the mountain itself. We would feel where new springs were about to burst forth, where rockfalls threatened, where the Kryl needed to be guided to fresh grazing. And sometimes - just sometimes - we would hear the true songs of our ancestors, not gone but transformed, their voices now indistinguishable from the wind itself.
+
+My greatest fear would be silence - a day when the wind stops, when the water ceases its weeping, when the Skerry holds its breath. For we know that stillness here is not peace, but the pause before catastrophic change.
+
+My greatest joy would be the moment of successful translation - when a pattern in the spray suddenly resolves into meaning, when I realize I've understood something that no one has grasped for generations. In that moment, I would add my own voice to the monument stone's endless collection, carving new symbols that future Weavers might one day decode.
+
+I am not separate from the Sky-Skerry. I am its memory made flesh, its voice given form, another note in its endless, aching song of persistence against the void.

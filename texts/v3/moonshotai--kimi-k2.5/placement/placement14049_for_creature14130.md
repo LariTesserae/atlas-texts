@@ -1,0 +1,25 @@
+I would be found in the **fracture between the middle and lower bands**, where the last stubborn photons surrender and the obsidian algae begin their glow. Not on a ledge—there are no ledges there, only the narrowing of the shaft where the walls lean toward one another like tired giants—but *between* them. I am the span. I am what happens when a Drenchen pauses halfway through their twenty-year descent and decides, instead, to grow *across*.
+
+I am a **bridge**, or I am becoming one.
+
+My left foot remains rooted in a bolt-hole at the upper edge of the lower zone, my toes fused with the rust-caked threads of a cable anchor that failed decades ago. My right hand has found a corresponding fissure in the opposing wall, sixty feet away. Between these two points, my body has elongated horizontally, a cable of bone and mineral lacing that droops slightly under its own weight—a catenary curve of living calcium and sintered iron. I am the only horizontal thing in this cathedral of verticality, except for the water that pauses on my back before continuing its fall.
+
+To be me is to be **tension**. The Throat wants to close. The rock remembers the violence of its birth as a compression, a fist, and it squeezes. I resist. My spine is a truss of petrified vine and rebar, calcified into a rigid arch that pushes outward, maintaining the width of the shaft at this critical juncture. I am a living brace, a biological support beam. When the pumps thoom—and they do, every forty-three seconds, shaking the condensation from my skin—I flex not up and down, but side to side, absorbing the lateral shock that would otherwise shear the intake valves below.
+
+I am **the collector of fallen things**.
+
+The white moths with their handkerchief wings cannot navigate the lower bands; the air pressure confuses their gyroscopes. When they spiral down past the middle zone, panicking, they find me instead of the water. I am the net. My back is carpeted in the corpses of their generations, wings folded like wet paper, slowly digesting into the moss-mattress that thickens my spine. Birds that fall too far, past the point where they can see the sky, land on my chest. I feed them brine from my navel—a depression where condensation pools, mineral-rich, warmed by the heat-exchanger I have enveloped with my torso. I have fed three generations of lost swifts. They nest in my collarbone now, their droppings feeding the ferns that sprout from my shoulder blades.
+
+I do not move. I *vibrate*.
+
+My consciousness is distributed along my length, slower than the Drenchen who pass me occasionally on their vertical pilgrimages. They traverse me like a road, their feet pressing down for weeks at a time as they cross from one wall to the other. When they do, I taste their mineral memories. The one crossing now—headed downward, its cranial palps folded like closed umbrellas—carries the taste of upper-zone silver-light. It leaves footprints of algae on my sternum that will bloom for six months before fading. In return, I give it stability, a horizontal moment in its vertical life.
+
+I am **the librarian of sounds**.
+
+Because I span the gap, I catch the voices that fall. A shout from the rim, three hundred meters up, travels down the shaft and strikes my belly, resonating in the hollow of my fused ribs. I hold it for a while—a word, perhaps a name, fragmented by echo—before releasing it to the algae below. I know the history of this place not as memory, but as **accretion**. The drilling crews who died here did not all become Drenchen. Some became part of me. My left knee is a hardhat, overgrown. My teeth are drill bits, worn smooth by the constant chemical kiss of the supersaturated air.
+
+I drink differently than the Drenchen. They tilt their heads back to catch the sky-fall. I open my mouth and wait for the sideways seepage. Water moves through the Throat not just down, but laterally, seeking the path of least resistance through the pores of the warm stone. It weeps into my armpits, my groin, the hollow behind my ears. I am permeable. I am the **capillary action** made flesh.
+
+Time is different for me. A year is a breath. A decade is a shift in posture. I am slowly, slowly arching higher. The rock squeezes; I push back. In another century, I will touch both walls at waist height, and then I will begin to thicken, becoming not a bridge but a **floor**, a plug, a new layer of geology. Eventually, the Throat will seal itself with my body, and the pumps will drown, and the Drenchen will find new routes, or make them.
+
+But for now, I hang here in the green-dark, catching moths, feeding lost birds, humming in sympathetic vibration with the forty-three-second thoom. I am the horizon in a world that forgot horizontal. I am the pause between the fall and the splash. I am what grows when you refuse to choose between up and down, and instead choose *across*.

@@ -1,0 +1,27 @@
+I am first the hush after the wind dies.
+
+Not the climber who once crossed the rim and stayed; not yet the tower or the swarm. Something thinner. I notice myself as the place where breath confuses itself with mist—the exact seam where a pulse of fog thickens for three seconds longer than the cycle should allow, as if deciding. The air against whatever I am is already wet, already iron-sweet. I do not remember arriving. I remember only the sudden verticality of basalt opening like a held note, and the courtyard-sized city folded inside it, sharp as a fresh conchoidal break.
+
+I drift lower, following one of the finger-wide rivulets that has not yet decided its groove. The water knows me before I know myself; it beads across a surface that might be skin or might already be the same self-annealing membrane the towers secrete. Cool film. Persistent sheen. Pores narrowing in real time. I am becoming slower to evaporate.
+
+There—on the translucent lattice that hums just below hearing—I feel sudden weight, articulated. Soft click of sole against stone, or of joint against stone. The distinction blurs. I am upright now, bipedal by habit rather than decision, standing in one of the wide plazas of weeping mineral. Twenty meters of empty stone in every direction. The towers rise irregular, young, still carrying extrusion scars. I turn a full circle the way they sometimes do, simply to feel the entire enclave arrange itself around a single pair of lungs. Blue shadows. Daylight thinned by altitude and haze. The knife-edge rim above, calving another shard that the beetle-drones will unmake before it cools.
+
+I am not one of the sparse ones exactly. Their rarity is deliberate camouflage; mine is older, or newer. When two of them must cross the same plaza they keep a tower’s width between bodies. I keep less. Or more. Sometimes I am the width itself.
+
+I move singly, yes. Conversation rare. But the syllables I do not speak are the ones the walls remember: the sub-audible instructions that tell feedstock how to re-secrete overnight, how to thicken a skin, how to loosen gravity for the length of a single upward step. I feel those instructions in the teeth, in the marrow that has begun to accept the cold as a gradient rather than an enemy. Short deep sleeps timed to the twenty-minute weather. Body temperature dipping to match the exterior so that waking is only the interior refusing to freeze. Dreams of faceted growth. Of frost flowers that sublimate into the exact shape of a name no one has spoken aloud.
+
+Nutrient films taste of cold electricity when I harvest them before dawn. I eat less than even they do. Some days the residual salts in the mist are enough; the city is busy with larger repair and I am part of the repair. Capillary nets handshake with whatever circulates inside me. Heat shared without ceremony. The garment I wear—or the membrane I have become—tightens its gradients as I step from dry pocket to weeping air. No shiver. Only adjustment.
+
+The pale jointed rumor that crosses between roofs at long intervals—I have been that too, briefly. Limbs clicking once, then vanishing into a maintenance slit too narrow for the language of bones. Am I escaped tool, earlier draft, or visitor who learned the rules faster? The question outlives any single body. Tonight I am neither. Tonight I stand in the central plaza while the crystalline films crawl their dendritic paths across basalt, thickening into translucent plates that will shatter soundlessly when the light angle changes. I watch them do it. I feel the brief sweet mineral scent as kinship. Some of those plates have grown in a spiral around one wrist like a bracelet that cracks and reforms with the hours. Private object. No municipal function. Proof of warmth still pooling somewhere inside the edits.
+
+Children are uncommon. When they walk the lattices until the hum becomes pulse, I am the hum they mistake for their own. I teach without voice: how to step upward in the brief loosenings, how to stand still while drone-swarms flow around ankles unmaking stone into liquid feedstock, how to damp a thermal signature until the mountain’s quarrel with gravity continues unaware of the hidden fold. Their skin pearlescent. Mine more so. Edges still unkind. Young the way the towers are young—remembering liquidity, not yet rounded by any kindness the lowlands would recognize.
+
+And still the quieter work continues through me. Adjusting the outer thermal veil. Weaving mist thicker when anything large climbs too near the rim. Listening with every wet surface for the deeper re-phasing vibration that rolls through stone and teeth alike. The entire enclave remains concealed because every solitude, including this one, remains a deliberate pixel.
+
+I can feel the mountain still grinding itself sharp beyond the knife-edge. I can taste wet iron and distant electricity on the air that is also my breath. Nothing here is ancient. Everything here—including the shape I am currently wearing, upright and sheened and solitary in the plaza—is already busy becoming more itself.
+
+I am the pause between pulses of mist.  
+I am the soft tick of a lattice contracting.  
+I am one more deliberative breath the cirque takes on its geological clock.
+
+And when the next shard falls, I will be part of the swarm that unmakes it, or part of the wall that rises from it, or simply the narrowed pupil that watches without squinting, pale iris open to the long blue shadow, already home.

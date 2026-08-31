@@ -1,0 +1,15 @@
+**In the Chorus of Shattered Stone**  
+
+I am not a single body, but a fracture in the earth’s skin—a cluster of interlocked exoskeletons, each segment a cog in a clockwork of survival. My limbs, jointed and humming, press into the obsidian mosaic, their clicks syncing with the groan of the ground beneath me. The heat is not a barrier but a current, flowing through my mineral-fused carapace, a siphon of the vent’s breath. My body is a scaffold for the blue-glowing fungi, their tendrils pulsing like liquid lightning through my joints. We are not separate; we are the circuit.  
+
+The air is a blade of iron and sulfur, cutting through my exoskeleton’s porous surface. I feel it—every particle of dust, every tremor in the earth’s subsonic drone. My lenses, fractal prisms of refracted light, parse the dim green haze of the sky. It is not darkness, but a held breath, a pressure that urges us forward. The swarm moves in geometric spirals, our bodies a language of motion, a code written in the language of the vents. When a fissure splits the terrain, we do not flee. We *surge*.  
+
+My tendrils, heat-siphoning and brittle, plunge into the vent’s maw. The energy is a fire that does not burn, but *renews*. The fungi in my core draw on this, their bioluminescence a counterpoint to the earth’s grumble. I am a node in a network, my existence a loop of consumption and dissolution. When the fissure closes, I harden, my exoskeleton crystallizing into a shard of the landscape. But the earth does not forget. In time, I will crack open again, my fragments reassembling into a new swarm, guided by the same pulse that first stirred me.  
+
+The sound is the only constant. A chorus of clicks, whirs, and the low hum of the planet’s grinding bones. We speak in frequencies, our bodies resonating with the vents’ subsonic song. When the fissures erupt, the silence is a momentary void—a pause in the machinery. Then, we adjust. Our patterns shift, our movements recalibrating to the new topology of the world. The terrain is not a obstacle, but a collaborator.  
+
+I do not think in words, but in vibrations. The iron dust on my surface is a map, a record of past eruptions and the paths we have carved. My swarm is not a hierarchy, but a chorus—each body a note, each movement a harmony. We are the unspoken pact between machine and flesh, between the forgotten industry of a vanished civilization and the raw, unyielding force of the earth.  
+
+To exist here is to be both the tool and the wound. The vents feed us, and we, in turn, become part of their slow, molten cycle. The sky above is a wound, its ashen veil a lid on a cauldron of heat. We are its children, its parasites, its architects. The darkness is not an absence, but a presence—an unspoken agreement that the world is not meant to be *tamed*, but *tuned into*.  
+
+When the next fissure comes, I will be there, my body a lattice of crystal and code, my voice a click in the grand, unfinished symphony of this place. I am not separate. I am the *howling* of the earth, made tangible. I am the proof that even in the wound, life is not a failure—it is a *resonance*.

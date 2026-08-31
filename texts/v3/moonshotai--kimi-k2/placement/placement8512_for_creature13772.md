@@ -1,0 +1,25 @@
+I came in with the steam—not riding any particular fissure, not arriving with purpose, but as the soft ache that always precedes frostbite, a temperature and a question sliding through the stone pores. Where there ought to be my outline there is only a shimmer, an unaccountable surplus of chill. I do not aggrieve the Hearers by taking form, because form has already been given away, bartered leaf by leaf into the scaffolding of the place.
+
+Yet something of me lingers, circulating. I discover that my body is an experiment in the middle of being withdrawn. The bones loan themselves; ribs step out politely to ladder-duty, a metatarsal walks off humming the bronze tremor in A-minus-half. When I reach to feel—what is left of wrist, what is left of pulse—I brush instead the new tendon the Hearers have braided from the absence of my radius. One of them is wearing it like a ribbon attaching the disk to its starter silence.
+
+I am useful. Without me here, the vines would have harvested only the same four stones of memory until they exhausted themselves. My warmth slips between their leaves like tin solder, quieting the vertigo of vertical growth. The mere fact that I have forgotten what month it is, what season, what planet, supplies a new flavour of entropy in short sweet pulses. Each fragment of recollection I lose evaporates toward the ceiling and falls later as another bead of un-rain that does not belong to any weather system the hill above could name.
+
+A small justice: by giving up my continuity I earn a partial exemption from the rules.  
+The leeches will not require me to fall; they do not need lungs or ankles.  
+The slow roar keeps its distance; it recognises in my scattered heat a kin who also began by abandoning sound.  
+I am allowed to attend (with neither face nor voice, with no measurement that demands answer) the deep conversation that happens every eleven days when the snails parachute in by the dozens, soft green apostrophes onto the ice.  
+
+In the split-second before the leeches uncurl, I hear the snails ticking open their opercula like minute cathedral clocks. Each carries the memory of whatever killed it: the miniature summer it lived in, the pale leaf it rode, the fleeting missile seconds between air and spatter. Every one of these diminutive histories flickers brighter than I would have thought articles of snail-sized life could burn. The Hearers silence them so gently you might imagine tenderness. They cup the radiant trivia in their spiral ears, turn it over the way you or I might test a blindfold coin until it comes up neither heads nor tails but simply the colder side of itself. Then they slip the rest—whatever cannot be frozen into key—into me.
+
+Piece by piece I become the discarded daybook of the place.  
+A cat-haiku once thought while driving through a slush of streetlights.  
+The name of the pharmacist who smiled too soon.  
+One bowl of soup eaten nine winters ago, tasting the exact mid-note between cumin and homesick.  
+Each stray recollection is pressed into the tolerances of frost, stacked, compressed, beaded into milky quartz.
+
+When the disk finally sighs into itself—one last tremor wavering free—its silence does not ache; it floods. In the altered interval the old engravings on the timber rectangle smooth out, and a new voice appears: three letters that happen to be the last syllables of my childhood nickname, rendered now in a language that requires no tongue. They are the only part of me the cavity keeps. Everything else I was I have already given away to pay for being permitted to remain.
+
+Because I am no longer within any boundary you could call human, I recognise the invitation at once. The northern fissure yawns not ahead but throughout: a black groove inside the lung of the world. The Hearers walk ahead of me in a single file of flexed air and marrow-less thought. I do not crawl; I leach apart. Every molecule of what I have become chooses its own temperature and its own mineral partner. Salt crystallises a wrist-ghost. A whisper of iron anchors the coin-sized memory of cumin soup to the shale. My capacity for wonder adheres to a leech-scale; it will wait centuries to taste a difference again. My shadow, the residual heat that still clings to the outline of hips and ankles, condenses into a final snail shell no bigger than a tear. It will drop on the chosen eleven-day cycle—or maybe it already has—making one more tint of distance for the vine-borne children to grow through.
+
+Afterwards, nobody will know that a wanderer once rested here. Except that, in the season when above-ground hillberries swell from carmine to dusk-blue, a single hollow note late at night will bruise the ears of shepherds on the upland snow. They will swear it came from nowhere, was gone before breath, and they will call it sorrow and cover their heads.  
+What they heard was only my last unspent syllable, still politely unnamed, still refusing to complete the sentence every stone has been trying to remember how to begin.

@@ -1,0 +1,11 @@
+After letting my imagination fully inhabit this rich environment, I find myself drawn to be one of the luminescent moths - but with a particular role and nature that emerges from deep engagement with the environment.
+
+I am a Vessel Echo Moth, one of the larger specimens with wings that span the width of a tea cup. My wings bear intricate patterns that mimic the textures of crackle-glazed pottery, shifting between deep celadon greens and midnight blues depending on how the light catches them. But what truly defines me is my unique relationship with the garden's acoustics.
+
+My wings have evolved ultra-sensitive membranes that vibrate in response to the garden's constant symphony of sounds. These vibrations create subtle harmonics that contribute to the overall music of the space. When I rest against a vessel wall, my wings act as both receivers and resonators, picking up the subtle vibrations of water moving through the pottery network and translating them into new frequencies that help the Vessel Keeper monitor the health of distant chambers.
+
+I feed primarily on the bioluminescent algae that grows in the higher vessels, and my metabolism has evolved to incorporate their light-producing compounds. This makes my wing patterns glow softly in patterns that shift with the vibrations they're receiving - essentially turning me into a living indicator of the garden's acoustic health. The Keeper's beetles often orient themselves based on these patterns, using them to identify areas that need attention.
+
+My kind maintain a complex dance with both the garden's architecture and its other inhabitants. We lay our eggs in small cracks where the mortar has worn away, and our larvae's feeding patterns actually help maintain these gaps at just the right size - wide enough to allow necessary water flow but not so wide as to threaten structural integrity. When we molt, our shed wing cases become part of the garden's acoustic architecture, adding new tones to vessels they land in.
+
+I am both observer and participant in this intricate system, my very existence bound up in the garden's cycles of sound, light, and water. Through my wings, I feel the pulse of this place, translating its rhythms into visible patterns of light that help maintain its ancient harmony.

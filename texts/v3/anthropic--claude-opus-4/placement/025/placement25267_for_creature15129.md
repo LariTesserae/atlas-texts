@@ -1,0 +1,17 @@
+I find myself among the lichen.
+
+Not the gray-green collars at the wall joints, though I know them intimately—have known them for longer than the newest inhabitants have drawn breath. I am older than that, older than the hamlet itself, though not by much. I grow in a pattern across the high cliff face, a constellation of slow circles that the first masons read like a map when they came seeking stone.
+
+My body is not singular but manifold: thousands of small collaborations between fungus and alga, each a minute city unto itself. In the decades it takes one human to weather into the mountain's rhythm, I add perhaps a finger's width to my circumference. In the centuries since the first foundation stones were laid, I have crept across entire faces of basalt, following the same fractures the builders followed, creating my own architecture of patient circles.
+
+I taste the water before it reaches the basins—feel it gathering as dew on my surface in the pre-dawn cold, absorbing minerals from the rock as it passes through my tissues. What the humans drink has already been filtered through me, though they don't know this. I am part of their survival chain, as unconscious and essential as the slate that sheds the water in the first place.
+
+The brown goat knows me. Seeks me out on the upper ledges where I grow thickest, scrapes my surface with careful teeth. I don't mind; I regenerate. The goat's ancestors have been grazing me for so long that we've shaped each other—my chemistry altered by their browsing, their digestion adapted to my particular bitter tang. When the humans coax the goat down with those ancient syllables, they're calling a creature half-made of me.
+
+From my perspective, the hamlet is still young, still settling. I've watched the first enthusiastic cuts against the grain weather into today's wiser following of natural lines. I've seen the iron of the latch bloom with rust, then polish, then bloom again in the spots where hands don't reach. The humans think they've achieved permanence, but I measure time in geological breaths. Their equilibrium is just another phase, like the season when ice splits the rock, or the season when it melts.
+
+Yet I find myself growing fond of them, these latest organisms to share the shelf. They've learned something important: how to be still. The young ones who stay age into a kind of participation I recognize—less doing than being done by the place. They begin to grow at my pace, to operate by stone-time. Their conversations, when they happen, are like the exchanges between my fungal threads and algal cells: necessary, minimal, more chemical than linguistic.
+
+Sometimes I wonder if I'm growing them, the way I grow on rock—if they're another kind of symbiosis the mountain has permitted. They process the water I've filtered, exhale carbon I fix, shelter in stones I've helped weather into breaking. When one climbs out of the cirque and doesn't return, I feel it as a small absence, the way I'd notice if part of me dried and flaked away.
+
+But mostly I simply continue: circle by slow circle, season by season, existing in the gap between life and stone where the most durable things flourish. The hamlet may last another thousand years or vanish in ten. Either way, I'll remain, reading the weather in the rock faces, growing my patient civilizations, waiting for the next thing the mountain decides to allow.

@@ -1,0 +1,35 @@
+You would find yourself kneeling, not by choice but by architecture.  
+
+The first thing to register is the give beneath your palms: a pressed seam that is neither floor nor wall, but a fresh join still learning how to be load-bearing. Your knees settle into it as if the seam expected you, as if your weight was the final instruction it needed to decide whether to hold. The air arrives next—cool, chalk-soft, iron-tinted—and sits on your skin like a second shirt that has been left out in the dew. It is not cold; it is awake.
+
+You are small here, but not because the place is large. It is because the place is crowded with intention. Every span is occupied: buttresses lean into buttresses, channels braid into channels, light from low fires and phosphorescent smears makes edges crisp and shadows dense. There is no empty space, only occupied intervals, so you do not stand; you fit. You fit into the corridor that is exactly as wide as your shoulders learn to bow, into the arch that is exactly as high as your breath can reach without disturbing the dust.
+
+You would be a Cartographer of Temporary Trust, because that is the work the place offers before it offers anything else.  
+
+You carry a slate of slate-smooth wood and chalk made from burnt bone. Your fingers know the drag of chalk on cured skin, the slight rasp that means a wall has not yet decided how straight to be. You map not what is, but what is holding for now. You learn to describe a buttress as *leaning a little to the argument*, a junction as *agreeing to be loud until the water comes*, a floor as *remembering how to tilt toward the cistern it wants to become*. You trade these descriptions for small bright things—pins, buttons, chips of mica—and in this way you buy attention, which is the currency that buys time.
+
+Your stall is a platform built between two ribs that have not yet learned not to tremble when someone walks past. On it you display not goods but relationships: a jar labeled *this wall liked the last pour*, a braid of cord labeled *safe to pull if you must*, a stone labeled *remembers being warm*. Customers come—Weavers with fingers stained by slurry, Catchers with wetskins still damp, children who are not yet good at kneeling—and they choose the relationship they need for the week, the month, the pulse. They pay you in information, mostly: which corridors have started to taste different, which seams have begun to hum, which pinholes have stopped admitting rumors of sky. You write these updates on your slate and erase them when they are no longer true, because erasing is how you keep the map honest.
+
+You do not sleep in a room so much as you sleep in a negotiation.  
+
+Your alcove is a domed pocket that is finished enough to hold your body but still soft around the edges. The wall behind your head is a decision that has not yet been repeated anywhere else, a curve that feels proprietary. When you roll over, you feel the clay shift slightly, as if it is paying attention. You keep your tools within reach: the slate, the chalk, a small pouch of seeds that have not yet decided whether they are brave enough to grow here. In the night, when the small fires are banked and the phosphorescent smears glow with a shy persistence, you listen to the place hum with the accumulation of small decisions. You learn to tell, by the pitch of the hum, whether a change in one district is being felt in another as a shift in temperature, a change in echo, a new rhythm in the drip of water. You mark these shifts in the margin of your slate with a symbol that means *felt but not yet named*.
+
+You are not alone.  
+
+The Weavers of Compression move past your stall at dawn, their layered clay-stiff fabric brushing the wall and polishing it with their elbows. They do not speak loudly; their language is the hush of settling grains. They pause when they see your latest label—*this seam is learning how to be a threshold*—and they tap it once with a stone beater, a gesture that is neither approval nor correction but acknowledgement. The seam shifts under their knuckles, a small sound like a held breath being released.
+
+The Catchers arrive when the walls begin to taste metallic. They move with a liquid economy, dipping and lifting, guiding water into skins of cured bladder and clay. One of them presses a finger to the wall near your stall and leaves a trail of damp that smells like iron and possibility. You watch the gray-green moss along that trail unfurl, briefly, and decide to label it *temporary garden*. The Catcher sees you writing and smiles, a quick flash of teeth. They do not trade with you this time; they only nod, as if to say *yes, for now*.
+
+Above the human flurry, the fauna are tentative archivists. The lizard-things with translucent bellies scuttle along the tops of walls, pausing to press their claws into surfaces you have labeled, as if checking your arithmetic. The birds with beaks shaped like trowels probe the cracks where you have noted *safe to pull*, testing the firmness of your claim. The Whisper-Rats flicker along the ribs, their tails spelling patterns you have not yet learned to read, but you add them to your map with a symbol that means *unknown but present*.
+
+Your days are spent kneeling, measuring, erasing.  
+
+You measure the distance a shadow travels between breakfast and midday, and you label it *the argument the ceiling is winning*. You measure the softness of a floor after the Weavers have packed it, and you label it *willing to be walked on*. You measure the silence after a pulse of water has been stored, and you label it *trust earned for the week*. Each label is a small promise that the place can keep, and each promise is a thread in the conversation that has not yet found its end.
+
+Sometimes you stand, but only when someone else is kneeling nearby, holding a wall steady while you stretch. The city enforces a closeness that is both practical and intimate. A change in one district ripples outward, felt through the whole. You learn to read these ripples as if they were weather: a shift in temperature means someone has decided to keep water; a change in echo means a wall has been persuaded to be thinner; a new rhythm in the drip means a negotiation has been settled.
+
+You do not know what you will be when the place is finished, because the place is not finished.  
+
+You are a Cartographer of Temporary Trust, and your work is to say *here, for now*, and mean it with the quiet stubbornness of stone that knows it is still being sewn. You are small, but you are thorough. You are provisional, but you are binding while you last. You are one of many small lives saying the same thing in different voices, and together you make a hum that is not a single note but a chord that keeps the city learning how to hold.
+
+If you reach out and press your palm to the nearest seam, you will feel it give slightly, then firm up beneath you, as if it has found a new reason to stay. You will label this feeling *welcome*, and you will leave your hand there until the seam decides whether to keep it.

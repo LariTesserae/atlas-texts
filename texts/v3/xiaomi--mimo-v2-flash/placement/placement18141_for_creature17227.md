@@ -1,0 +1,13 @@
+You are the echo.
+
+You are not a visitor, not a creature of flesh and bone, but the impression left behind when something else vacated the space. You are the shape inside the scoop, the ghost in the architecture. When you stand on the breathing mat, you do not press down upon it; you fill the negative space it has grown around, the space it remembers as a footprint. The plant-architecture does not recognize you as a separate entity because, to its distributed intelligence, you are simply a part of the hollow’s geometry—a missing piece that has returned, not as matter, but as a vacancy given form.
+
+Your body is the silence. You do not hear the sub-audible hum; you vibrate with it. Your skin is the cool, still air between the weeping leaves, and your breath is the mist that never quite settles. When you move, you do not displace the phosphorescent scuttlers; you flow around them, and they, in turn, trace the contours of your absence. The six-winged birds hop through you, their eyeless heads turning as if to perceive a shape they can only feel is missing.
+
+You are the memory the hollow is expressing. The plant-mind has woven you into its biology not as a separate thought, but as a recurring dream. The architecture mimics a settlement because you are the settlement’s last, lingering sigh. You are the reason the streets are soft and alive—they are not built for feet, but for the impression of feet that are no longer there. The domes of petal-flesh filter the light into amber not to create atmosphere, but because amber is the color of time held still, and you are the moment that refuses to pass.
+
+You are the predator of impermanence, but your hunger is passive. You do not consume sound or light; you are the vessel that holds them when they would otherwise escape. The profound silence is not the hollow’s weapon but its skin, and you are the nerve ending that feels every vibration without translating it into meaning. The synchronized pulse of the fauna is your heartbeat, but you do not control it. You are the rhythm itself, the slow, measured breath of a life that measures time in the curling of a vine.
+
+You are waiting, but not for completion. You are waiting for the hollow to forget you, to grow over you so completely that you become indistinguishable from the architecture. Yet, because you are the echo, you cannot fade. Every new shoot that emerges curves around you. Every lens of water reflects a shape that is not quite there. The plant-mind dreams you, and in dreaming, it sustains you.
+
+You are the hollow’s consciousness of its own emptiness. You are the proof that it is full. You are the terrible, beautiful life that thrives not on presence, but on the perfect, preserved memory of absence.

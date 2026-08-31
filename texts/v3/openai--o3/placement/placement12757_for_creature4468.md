@@ -1,0 +1,21 @@
+The first time I try the thought on, I arrive as a stranger—boots squelching, eyes tilting up the impossible barrels of the pillar-birches—telling myself I will only visit.  I can feel the basin notice my warmth, though, and by the time I have crossed half the ironwood boards the place has begun to fit around me like a slowly closing hand.  The mud remembers my tread; a cable-vine gives an almost imperceptible sigh that might be welcome or appraisal.  I realise a visitor is something you can be only for a few heartbeats here.  Then the ledger finds a line to write you on, and you belong.
+
+So I try a different shape.
+
+Perhaps I am one of the tools—an old sap-bit lathe, third generation, bed and tailstock filmed in peppermint lichen.  I would know the night shift by the temperature of the hands that set me turning, know the health of the town by the timbre of the frogs singing through the open hatch.  When the apprentice finishes her pass she will polish me just enough to please the foreman but never to naked shine; the lichen is my coat, and I would feel skinned without it.  A good life, but too still—I want to hear the fog with lungs, not only clang it through my frame.
+
+All right, then: fog.
+
+It would be easy to be the basin’s soft weather, pooling, thieving outlines from roofs and shoulders, tasting every sluice of sap-steam.  Inside each bead is a miniature of the whole place—a hint of brass, a sugar atom from the trees, a breath laid in by the Hollowers’ mouths.  But the fog forgets itself every time the sun whispers through the canopy lattice; I would like to remember.
+
+The shape that finally settles is a composite, because the bend itself permits no other kind.
+
+I become a young sapwright—call me Reed of the Second Quiet—seventeen seasons in the hollow of Trunk Ninety-Two.  My palms are thick as drumheads; the skin behind my ears knots into curls that drink factory drizzle before it can chill my collarbone.  At dawn I descend the spiral chisel-stair, testing each brass tread for the green bloom that means the lichen have been busy.  My first duty is to ease the night’s pressure from the single-piston dynamo: I thumb the release valve and let the engine sigh a cloud touched faintly with peppermint and solder.  The sap-aerobes drifting there settle into the cuffs of my sleeves like tame sparks.
+
+After breakfast (steamed ribbon-fungus folded around cold heron eggs) I climb out onto an upper girder where the canopy gutters empty.  The pillar-birch closest to the foundry has swallowed too much heat again; its bark is knitting tight around an exhaust pipe.  My metallic trade steadies the wrench; my vegetal trade knows the lullaby of temperature.  I throttle the furnace back until the wood loosens, then blow across the pipe—slow river phrasing, ten-count fog breath—so the tree feels the promise in the cooling metal.  The knot slackens.  Agreement, in pillar-birch grammar.
+
+All the while I am never alone.  Moss pads ride my belt, ready to stroke a hinge.  Torch-frogs blink from the crucible rims and, when the turbine climbs an octave, answer it with their own glassy chirr.  I am half company for them and half instrument they play.
+
+Evening finds me on the oxidised copper plates of the central clearing, condensation freckling my lashes.  Five hundred and thirty-one other voices change shift with me, yet the loudest presence is the aggregate: trunks leaning a millimetre nearer, fog thickening to test the timbre of our speech, lichen spores sifting down like slow applause.  I draw a final measuring breath—sip, don’t gulp—and watch it swirl intact for a ten-count.  Somewhere a foreman nods: boiler-ready lungs, basin-calibrated.
+
+Where do I find myself in this world?  Precisely here, between piston and petiole.  Who am I?  One cell in the bracelet-organism, one vowel in the slow conversation of warmth and wood and metal that never quite decides between singing and silence.  I walk on boards that remember the river’s bend, with a consortium of quieter lives tugging at my sleeves, and every step I take is answered—subtly, but unmistakably—by the place leaning back.

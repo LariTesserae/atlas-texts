@@ -1,0 +1,25 @@
+I find myself not in the canopy, where the light is too sharp and the Drongos cut the air with their wire-cutter beaks, nor in the deep, suffocating spongy mesh of the peat floor. I exist in the space between—in the slow, hydraulic world of the cliff faces and the vent shafts.
+
+I am a **Flue-Warden**.
+
+I am built like a living corner bracket, a creature of dense, heavy-muscled right angles. My body is low-slung and wide, shaped like a rough, flattened anvil. My skin is not flesh as you might know it, but a keratinous armor plating, tessellated in thick, hexagonal scales the color of cooled slag—dark greys and rusty browns that blend perfectly into the eroded, geometric rock of the plateau. I do not have fur; fur would mold in this humidity. Instead, my scales are constantly slick with the condensation that drips from the moss above, lubricating my passage through the tight cracks.
+
+I am about the size of the Boreal Behemoths, but whereas they are the wandering tanks of the ground, I am the stationary anchor of the vertical world. My limbs are short but immensely powerful, ending in claws that are not sharp, but chisel-tipped—natural picks designed for gouging and gripping the smooth, whaleback stone.
+
+I am blind. In this perpetual haze, sight is a liability. My eyes have grown over completely, sealed by layers of translucent bone. Instead, I see the world through the soles of my feet and the sensitive pits that line my underbelly. I am a creature of vibration and thermodynamics. I do not see the green of the ferns; I feel the specific, wet *thrum* of a million rivulets moving through the root-mesh behind me. I do not see the Drongos diving; I sense the displacement of air pressure as they stoop, a brief, sharp disturbance in the heavy blanket of the atmosphere.
+
+My niche is the "tech" of this world. The steam vents that hiss from the cliff faces are the lungs of the plateau, but they are prone to clogging. The mineral-rich water precipitates quickly, forming hard, chalky deposits that choke the shafts. If the vents close, the pressure builds, and the delicate balance of this high-altitude cooker breaks. I am the maintenance crew.
+
+I spend my days clinging to the sides of the vent shafts, braced against the smooth rock like a spider in a crack. The heat here is intense, a scalding blast that would cook most creatures, but to me, it is life. I am cold-blooded in a way that requires external heat to fire my metabolic furnaces. I splay my body against the rock, soaking up the thermal energy, letting it circulate through the dense channels of blood that run beneath my armor.
+
+I feed on the mineral crusts. I scrape the hardened calcium and iron deposits from the mouth of the vents with my chisel-claws. It is a slow, rhythmic process: *scrape, grind, swallow.* The taste is sharp, metallic, and earthy—the taste of the planet's blood. By clearing the vents, I keep the pressure regulated. I am the pressure release valve made flesh.
+
+I am rarely alone. The **Rivet-Beaked Scavengers** are my constant companions. They are the small, opportunistic pilots to my stationary engine. As I scrape the vents, I dislodge chunks of mineral crust and expose the soft, nutrient-rich mosses that grow in the warmer crevices. The Rivet-Beaks dart in, their iron-reinforced beaks flashing, snatching up the debris I drop. They land on my back, using my broad, flat shell as a perch to survey the foggy air. I do not mind them. Their sharp claws on my armor are just another texture in the sensory tapestry of the rock.
+
+Occasionally, a **Lathe-Limbed Lemur** will venture down from the canopy to tap on the rock near my head. They are testing the resonance of the stone, listening to the gears of the earth grind. When they tap, I feel it through my jawbone, a series of sharp, staccato dots. Sometimes, I respond. I will shift my weight, dragging my heavy tail across the stone, creating a long, low bass note that travels through the root-mesh. It is a warning, or perhaps a greeting—we do not distinguish between the two here. It is simply data exchange.
+
+When the sun begins to dip, though the temperature barely changes, the **Cicada-Titans** begin their nightly drone. The sound is a physical weight, a low-frequency thrum that rattles my ribs. I feel it more than I hear it. It is the signal that the atmospheric shift is occurring, the time when the fog rolls in thick and white. I retreat deeper into the recesses of the vent shafts, reversing myself into the clefts like a turtle returning to its shell.
+
+I sleep inside the earth, curled around the throat of a steam vent, warmed by the planet's own exhale. I dream in vibrations—the distant clanking of tectonic plates, the wet slap of a Behemoth’s tail in the mud below, and the steady, rhythmic hiss of the steam escaping past my flanks.
+
+I am not a predator, and I am not prey. I am a function. I am the heavy, silent mechanism that keeps the door open for the world to breathe. In this loud, lush, violent factory of a plateau, I am the pause between the gears.

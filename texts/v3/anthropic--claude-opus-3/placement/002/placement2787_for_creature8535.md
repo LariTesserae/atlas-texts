@@ -1,0 +1,15 @@
+In the Hanging Mills of Kaelora, I would be a lone cloud leopard who pads silently across the highest bridges and catwalks in the misty pre-dawn light. My thick, smoky coat fades into the swirling fog, rendering me nearly invisible as I navigate the vertical maze of the city with innate sure-footedness. 
+
+The humans rarely catch more than a fleeting glimpse of my ghost-like form slipping between the shadows of their towering edifices. To them, I am a benevolent spirit - a good omen that appears when the mountain's growth is stable and harmonious. Mothers whisper to their children that spotting me will bring luck and that my occasional soft cries echoing through the night are a song of protection.
+
+In truth, I am drawn to wander the upper tiers by the same force that compels the Calibrators in their endless adjustments - a bone-deep attunement to the living rhythms of stone, metal, and moisture. With each silent step, my sensitive paws read the minute vibrations of the city's structures, feeling the mountain's ebbs and flows. I pause to lap droplets of pure condensation from leaves and steel beams, savoring the varied tastes of minerals pulled from deep within the restless rock.
+
+At times, my wanderings take me past the greenhouses where the botanists labor with their strange plants. My feline eyes perceive more of the bioluminescent mosses' glow than human vision allows, revealing encoded patterns that mimic the geometry of the stone's inner lattices. I sense the kinship between the nestled buildings and the adapted vines that embrace them.
+
+When the sun crests the peaks, throwing slanted light through Kaelora's layered haze, I retreat to a den hidden in the cliff face high above the highest tier. Here, in a cavern warmed by the mountain's breath and lined with mosses no human has ever cultivated, I drowse away the daylight hours. My dreams are filled with the slow poetry of stone learning to dance and metal learning to sing.
+
+As much as I am a creature of solitude, my existence is inextricably linked to that of the Calibrators. The mountain made me, as it made them - two improbable forms of life uniquely suited to this vertical world of mist and metamorphosis. Perhaps the humans sense this, and that's why they ascribe such significance to my appearances. 
+
+So I remain, an aloof guardian woven into the legends of Kaelora, pacing out a counterpoint rhythm to the city's human activity. My paw pads read seismic whispers and my fur collects moisture to seed the highest gardens. When I slink unseen past a crew of workers making their meticulous adjustments, my ear flicks in silent approval of their faith and diligence.
+
+And on those rare occasions when someone does spot me - a lone engineer working late, a child with particularly sharp eyes - I allow my gaze to meet theirs for a long moment. Let them carry the story back to their fellows, a tale to ease weary minds in this place of constant, careful change: that as long as the cloud leopard still walks the high paths, the mountain smiles upon Kaelora, and all will be well.

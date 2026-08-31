@@ -1,0 +1,13 @@
+In this world, I would be one of the metallic-feathered birds - but a peculiar one that has developed an unusually strong connection to both the mechanical and organic aspects of this extraordinary environment. My feathers would be an iridescent copper-green, taking on the patina of the ancient machinery, with trace patterns that mirror the complex pipework etched across my wings.
+
+I'd nest in a particularly resonant section of the upper chamber, where three different steam releases converge. Here, I'd weave my nest not just from typical materials, but incorporating stray copper wires and fragments of luminescent fungi, creating a home that pulses softly with the rhythm of the great machine below.
+
+My primary role would be as a living harmonic - my calls would complete specific frequencies in the chamber's endless symphony. Through generations of adaptation, my syrinx would have evolved to produce precise tones that fill crucial gaps in the mechanical chorus. Sometimes I'd perch on the great central gauge, adding my voice to its measuring song, helping to maintain the acoustic balance that the Synchronist requires.
+
+I would understand, in my bird-way, more of the system's patterns than my kin. While they mimic individual sounds, I'd have learned to anticipate the complex rhythms, positioning myself at key acoustic nodes throughout the chamber. The Synchronist would occasionally use me as a more mobile sensor, sending me to investigate subtle discords in remote corners of the mechanism.
+
+My diet would consist mainly of the specialized insects that thrive here, but I'd also have developed the ability to metabolize trace amounts of the bioluminescent fungi, causing my throat feathers to glow softly when I sing. This light would pulse in time with my calls, adding to the chamber's constellation of moving lights.
+
+Most notably, I'd have formed an unusual relationship with certain pale amphibians, following their movements through the transparent pipes, learning to read the patterns of their swimming as early warnings of pressure changes. We'd have developed a symbiotic relationship - they'd alert me to shifts in the water's rhythm, and I'd warn them of approaching disturbances in the air currents above.
+
+In this role, I'd be neither fully wild nor fully domesticated, but something unique to this environment - a creature evolved to serve a function in an accidental ecosystem, contributing my small part to the vast, ongoing process that is the pump house and its guardian spirit.

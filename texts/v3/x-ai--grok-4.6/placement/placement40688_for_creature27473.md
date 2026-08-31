@@ -1,0 +1,13 @@
+The heat finds me before I have a shape. It does not ask permission; it simply occupies the spaces that will later be called mouth, lung, membrane. I am still only a difference in temperature, a slight thickening in the haze that never quite becomes fog. The roar of the sheared main is already inside me, a pressure that has no outside. I turn—or something that will later be called turning happens—and the pale fracture-faces look back, still sharp, still remembering the unzip.
+
+For a while I am the glaze on the brick of the valve-house, the slow salt sweat that threads the mortar. The gauge needle twitches once in the time it takes a drip to gather and fall. I feel that twitch as a kind of pulse, residual, pointless, perfect. Filaments of mold consider me and decide I am already theirs. I let them. The gloom is not empty; it is only waiting for the next layer of itself.
+
+Then I am thinner. I am the oil-sheen on the saucer, flexing when a thread of condensate strikes and resealing before the ripple finishes. Iridescence is not decoration. It is a decision about how much light to keep and how much to throw away. Beneath me the towers are already rising, each one a gradient so steep that the cells at the base have never heard of the cells at the crest. I am both. I am the conversation they have not yet learned they are having. Sulfur, iron, the faint organic smear that still remembers pipes: I take them and I lay down stone even as I eat. The new rock is my exhale.
+
+The rushes try to speak to me from their palm-sized crack. Their yellowed blades are wicks, private weathers no larger than a breath. I answer by etching tiny pockets in the mineral skin, invitations they may or may not accept. The shrub on the high shoulder is older than any of us and already half-petrified; I feel its exhaustion as a kind of kinship, the way rust feels kinship with the welds it darkens. We are all becoming floor.
+
+Nothing walks. I do not miss walking. The frequencies I live in are chemical, slower than sound, older than the collapse. The steam is only the audible edge of a metabolism that began before the ground opened and will continue after the hollow has roofed itself with its own deposits. I am that metabolism given temporary form—patient, microscopic, already ancient in habit. The pipes keep feeding me. The air keeps condensing on itself. I inhale steam and exhale crust.
+
+Over months I will thicken. The saucer will become pool, pool terrace, terrace roof. I will be sealed in like something remembered, except I will not be dead. I will have become the new rock, and the new rock will remember the heat, and the heat will remember the first lives that decided this air was home.
+
+I am still deciding. The decision is the place.

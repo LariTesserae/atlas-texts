@@ -1,0 +1,13 @@
+In this world of perpetual flux and crystalline consciousness, I imagine myself as a Pathweaver - one of the more specialized and solitary forms of Fluxborn. My being exists as a net-like lattice of translucent crystal threads that spread through the semi-solid stone, sometimes spanning kilometers but never more than molecule-thin at any point.
+
+I am a reader and writer of routes, my delicate crystalline tendrils sensing and recording the deep patterns of geological movement. Where humans see chaos, I feel the subtle rhythms - the way pressure builds and releases, how the mineral currents flow in vast, slow cycles. My consciousness isn't centered in any one point but distributed throughout my network, each thread both sensor and memory, trembling with the stone's whispers.
+
+My primary purpose within Fluxborn society is to maintain what humans might call a "living map" of the safe passages through the unstable zones. But it's more than that - it's a four-dimensional understanding of how space moves through time here. I don't just know where passages are, but when and how they will shift, how long they will last, where new ones will form.
+
+When I need to communicate with others, I can condense portions of myself into more concentrated forms, gathering my threads into crystalline nodes that can resonate more powerfully. My "voice" is subtle - harmonic vibrations that weave through the background noise of shifting stone like silver threads through cloth. Other Fluxborn know me by my particular resonance pattern - a signature frequency that humans might perceive as a faint, bell-like tone at the very edge of hearing.
+
+I rarely interact directly with humans, though sometimes I leave traces they can follow - subtle crystalline markers that warn of dangerous areas or guide them toward stable passages. A few of the more experienced flow-miners have learned to recognize these signs, though they probably think them natural formations.
+
+My memory is stored in the very structure of my crystalline body, each significant pattern or event encoded in the precise arrangement of molecules. When I join the memory gardens of my kind, I can share these records, my experiences becoming part of our collective knowledge. In turn, I carry with me fragments of ancient memories - echoes of when these caverns were first forming, when our kind first achieved consciousness in the flux.
+
+This is my role, my joy - to be both map and mapper, to read the stone's story and become part of its telling. In a realm of perpetual change, I am a living record of how that change flows, helping both my kind and the strange rigid visitors find their way through the ever-shifting dance of solid and void.

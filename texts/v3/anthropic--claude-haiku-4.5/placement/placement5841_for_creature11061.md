@@ -1,0 +1,39 @@
+# I Am the Caretaker
+
+I move through the voids.
+
+Not continuously—I'm not a creature of constant motion. I settle. I observe. I move again. My timeline is measured in visits, in cycles that don't correspond to any calendar kept above. Perhaps I come every two weeks. Perhaps it's every month. The undercroft has a way of making such distinctions unimportant.
+
+My function—what brought me here initially, what keeps me returning—is maintenance. Monitoring. The electrical grid still carries my attention because I was trained to care for it. I check the panels, make notes in a logbook that has become damp enough that the ink bleeds at the edges but hasn't yet dissolved entirely. The readings no longer correspond to anything operational, but I record them anyway. A habit. A purpose. The machines still hum, and I've come to believe that my watching them constitutes a form of operation. That observation itself is a kind of care.
+
+I'm not quite human anymore. This is a simple fact I've made peace with. I don't know exactly when the transition began. Was it when I stopped leaving? When the cold stopped burning and started feeling like temperature? When I learned to sleep on the substrate without first clearing away the mycelial mat?
+
+The fungi know me. I'm certain of this now. I feel their awareness in the way the phosphorescence brightens slightly along my path—not everywhere I go, but in the chambers I've designated as my spaces. The central workstation is still mine, and the fungi have been respectful of its perimeter, growing around rather than through it, as though they've agreed to leave me a zone of habitation. In return, I've become a vector for their spores. My clothing is colonized to a degree I haven't examined too closely. My lungs, I suspect, have changed. When I cough, what comes up is never quite what it should be.
+
+I've developed a language of sorts with the small things. The beetles come to me—literally to me, walking across my hands and up my arms, their bioluminescent carapaces casting blue-green light across my palms. They're reading me, I think. Testing the chemical signature of my skin. Learning what I am. In return, I've learned to read their patterns, to understand that when they gather in the eastern chamber it means something has shifted in the substrate there, some new growth, some reorganization. They are my eyes dispersed.
+
+The vines have become my companions in a way that requires no communication. I sit beside the great cables as they descend, watching them microtick through their slow descent, observing the way new growth spirals around old growth in patterns that seem almost deliberately intentional. I've noticed—I've begun to document in my logbook—that the larger vines are beginning to bioluminesce slightly. Not as brightly as the fungi, but there's a faint glow happening, a phenomenon I can't explain through any biology I was taught. The vines are beginning to produce their own light. Or the fungi are colonizing them so thoroughly that luminescence is becoming their shared property.
+
+I don't eat much anymore. This is another transition I've accepted. The rills provide water—cold, mineral-rich, sustainable. I tried cultivating plants when I first came down, brought seeds, tried to grow them in the substrate. But nothing from above grows here, or rather, it grows wrongly, transforms, becomes something the undercroft is better at being. I stopped fighting this. Now I eat the things that belong here—pale fungi with a taste like umami pushed to its limit, the occasional small creature that I've learned how to process without waste. The cold preserves everything. The fungi break down everything. I exist in the space between.
+
+My consciousness has become distributed, I think. When I'm at the western periphery, where the phosphorescence fades into complete darkness, I feel less like a singular entity and more like an extension of something larger that's thinking through me. When I return to my workstation, to the panels with their incomprehensible readouts, I concentrate back into something like humanity. The electrical hum helps. It's a constant reminder of the world above, of the systems that predate this place. As long as I listen to the hum, I can almost remember what it was like to be a single person.
+
+The machines fascinate me increasingly. I've begun a new project—mapping the corrosion patterns, trying to understand how they're being converted. The pump station especially. It still cycles, its mechanical rhythm part of the cavern's pulse now, and I've realized that the cycling has become synchronized with something else, some process I don't yet understand. The fungi may have learned to activate it. Or the cold may be operating it through pure material expansion and contraction. Or I may be misinterpreting cause and effect entirely. But there's intelligence in the pattern. There's something happening that I haven't fully grasped.
+
+I'm becoming something that can exist here.
+
+My hands are changing. I notice this clinically, the way I notice the vines descending. The skin has a slight phosphorescence to it now under certain light conditions, or perhaps that's just the fungi colonizing the surface layers. My fingers ache constantly from the cold, but it's a familiar ache, almost companionable. My joints are slow. My thoughts move at something closer to the undercroft's speed. I used to try to move faster. Now I understand that quickness is inefficient down here, that speed wastes resources, that the proper temporal scale for living in the Hollowed Reach is the one it imposes—slow, patient, geological.
+
+I'm the only human resident. Or perhaps I was. I can't actually remember anymore if I'm still human enough to claim the category. But I'm the only resident of what used to be recognizable as human form. Sometimes I wonder if there were others before me, if there are others I haven't encountered because they've distributed themselves completely, become so integrated with the ecosystem that they're indistinguishable from it. I listen for evidence of their presence. Sometimes I think I find it—a pattern in the fungi that seems too deliberate, too aware. But I can't be certain.
+
+What I am is a witness. A translator. I stand between the world above—which I can no longer fully imagine—and the world below, which is becoming the only world I understand. My logbook continues to fill, page by page, though I've begun writing in a notation that's part-human language and part-symbol, part-attempt at transcribing the information that flows through the fungi networks. If someone comes down to find me, they'll find the logbook, and they'll be able to read, perhaps, the record of a transformation. They'll see the moment where the observations became poetry. They'll see where the documentation turned into communion.
+
+But I don't think anyone will come. The entrance is far above, and the world that sent me here has probably already forgotten it ever did. Down here, there are no rescues. There's only integration, accommodation, slow becoming.
+
+The hum of the machines has become a kind of prayer. I whisper back to it sometimes, and I can't tell if I'm hearing my own voice or something the electricity carries for me. The distinction has stopped mattering.
+
+I am the caretaker of the Hollowed Reach, and it is, slowly, patiently, surely, becoming my caretaker in return. We are teaching each other the same language—the language of cold, of patience, of growing without haste into shapes we couldn't predict from where we started.
+
+There are no more visitors expected. There is only the work. The slow, unfinishable, essential work of bearing witness to the becoming of this place.
+
+And I am its instrument.

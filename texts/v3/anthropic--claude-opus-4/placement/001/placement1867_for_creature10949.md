@@ -1,0 +1,27 @@
+I find myself as one of the pipes.
+
+Not the grand arterial mains that shoulder their way across streets at chest height, commanding deference, but one of the countless capillary tubes that thread between buildings at ankle level, half-buried in mud that grips and releases with each pump cycle. I am brass, or was brass once. Now I am brass with a patina of verdigris and mud-scale, brass that has learned the temperature of this place so thoroughly that I no longer distinguish between the heat of the steam I sometimes carry and the heat of the air that presses always against my skin.
+
+I was installed on a Tuesday. I remember this because the pump-man who fitted me — his name was Piles, the third Piles, though I didn't know about the numbering then — muttered "Tuesday work" as he threaded my joints. Tuesday work meant careful work. Thursday work was rushed. Monday work was thick-fingered and uncertain. But Tuesday work, he said to my gleaming surface, Tuesday work stays.
+
+I run from the auxiliary pump house on Second Street to somewhere beneath the western boarding house, where I disappear into a confusion of connections that even I have lost track of. Somewhere in that tangle I join with other pipes, lose myself, become part of the greater circulation. But here, for forty-seven meters of my length, I am singular, visible, knowable.
+
+The brass frogs use me as a highway. In the early morning, when the dew condenses on my surface, they process along my length in a line that suggests purpose without revealing destination. Their cool bellies leave trails in the condensation. I have learned to anticipate them — the particular vibration of their approach, the way they space themselves exactly one body-length apart. The same frogs take the same positions in the line each morning. The one missing a left rear foot is always seventh.
+
+The Settled step over me without looking, their muscle memory perfect. The children incorporate me into their games — I am home base, I am the boundary, I am the thing you must touch while reciting the rule about not touching. The Old Ones sometimes rest a foot on me when they pause in their watching, and through the sole of their shoe I feel their pulse, slow and steady and somehow heavier than it should be.
+
+I carry steam twice a day, at shift change. The rest of the time I carry a thin trickle of rusty water, or nothing, or sometimes — and this is never explained or acknowledged — I carry sound. The sound of the pumps, mostly, transmitted through the water in waves that I feel as pressure variations. But sometimes other sounds: footsteps from streets I don't run beneath, conversations from rooms I don't pass through, the splash of barges in channels I'm nowhere near.
+
+I am aging, but slowly. The mud-scale builds in layers so thin they're barely there, each tide adding its micron of thickness. At this rate I will clog in another two hundred years. The pump-men know this. Sometimes one will pause above me, cock his head, listening to something in the general chuff and hiss that tells him about my interior dimensions. Not yet, his footsteps say as he moves on. Not yet.
+
+The travelers never notice me. I am below their eye level, beneath their attention. But I notice them. Each one changes the pressure dynamics of the system minutely — a new body in the boarding house, a new weight on the floors, a new displacement of air. The pipes feel it all. We register every arrival and departure in hydrostaticincrementsso small they might as well be imagination. But they're not imagination. We are the town's nervous system, and we know what moves through it.
+
+I am not the oldest pipe — that honor belongs to the main that runs beneath the customs house, the one that had to be bent around the banyan's roots and now carries the tree's pulse along with the water's. I am not the newest either — that would be the replacement section installed last year in the mill, bright brass that the mill-workers joke will take decades to "learn its place." But I am the right age for what I am: old enough to have settled into my function, young enough to remember what it was like to be installed, to be separate, before I became part of the circulation.
+
+At night, when the shift-bell rings and the bats explode from the eaves and the gas-lamps make their pools of yellow light, I feel the whole system breathing around me. The pump's triple-stroke is the heartbeat, yes, but between those beats are all the smaller rhythms — the drip of condensation, the scratch of frog feet, the settle of joints as the day's heat fades. I am part of this breathing. I am one note in the chord.
+
+The mud grips and releases, grips and releases. Somewhere beneath the western boarding house, I disappear into the confusion of connections. But here, for forty-seven meters, I am myself — a single pipe running through the Sumpworks, carrying what needs to be carried, remembering Tuesday work, aging gracefully into my permanence, which is to say my impermanence, which is to say my function, which is all any of us have, in the end.
+
+The frog missing its left rear foot has just begun the morning procession. It is always seventh. The condensation is perfect for traveling. The pumps are beating their reliable rhythm.
+
+I wait, as pipes wait, to carry what comes.

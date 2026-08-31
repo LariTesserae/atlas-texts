@@ -1,0 +1,21 @@
+In the Drowned Halls of the Old Earth, I am one of the **Tidereaders**.
+
+We are not numerous—perhaps a dozen in all the vastness of these sunken halls—and we move through the water with the deliberate slowness of those who have learned that haste disturbs more than it reveals. Our bodies are elongated, flattened against the current, with skin that shifts between textures: smooth as polished stone when we glide, rough as barnacles when we need to anchor ourselves against the surge. We have no eyes in the conventional sense, but our entire surface is a sensory organ, reading pressure differentials, chemical gradients, the faintest tremors in the water.
+
+I spend my existence mapping the conversations between stone and current. Where others see only the endless churn of black water, I perceive intricate patterns—the way a particular eddy forms in the lee of a stone rib every seventh surge, how the pressure changes in a fissure predict the movement of the Silent Leviathans days before they pass. My kind emerged from some ancient lineage of bottom-feeders, but we evolved past mere sustenance into something like scholars of flow.
+
+My dwelling is a vertical crevice in one of the great stone ribs, chosen for the unique way water moves through it—entering from below in a steady stream, exiting above in a perfect spiral. I have been here for... time is difficult in the eternal dark, but I have felt the stone wear down by the width of three scales. Inside, I have cultivated a careful arrangement of smaller stones, each positioned to create specific turbulence patterns. This is my library, my laboratory. By moving a single pebble, I can change how the water speaks for days.
+
+I feed rarely, filtering nutrients from the water when the current brings them, but mostly I am sustained by something else—the phosphorescent secretions of my own skin respond to certain pressure patterns by glowing faintly, and this light somehow feeds back into my metabolism. I am part of the very system I study, a living instrument in the symphony of the deep.
+
+The other creatures know me, in their way. The Blind Loom-Spiders have learned to place their webs where my movements predict the richest currents. The Stone-Tenders click differently when they sense my approach, their brushing becoming more rhythmic, as if they too are reading something in the water. Once, a Silent Leviathan paused near my crevice for three full tides, and we exchanged... not thoughts exactly, but pressure-patterns, a kind of communication that had more in common with erosion than language.
+
+My greatest discovery came recently—or perhaps long ago, it matters little. I found that certain combinations of current and stone create resonances that travel vast distances through the water, carrying information about distant parts of the Drowned Halls. By learning to read these deep currents, I have sensed spaces beyond even this vastness—other drowned worlds, perhaps, or pockets where the water moves differently, where the rules of pressure and flow are alien even to me.
+
+I am working now on something I can barely conceptualize—a map not of space but of tendency, charting not where things are but where they are likely to become. The water remembers, you see. Every current contains the ghost of every current that came before. If I can learn to read these ghost-flows, these memory-currents, perhaps I can understand not just what the Drowned Halls are, but what they were, and what they are becoming.
+
+The Stone-Tenders seem to know. Sometimes I catch them arranged in patterns that mirror the flow-maps I create with my positioned stones. Sometimes I wonder if they are not tending the stone at all, but tending something larger—the memory of the world itself, keeping it clean of too much sediment, too much forgetting.
+
+In the pressing dark, with the weight of all that black water above, I continue my work. Reading. Mapping. Learning the language that stone and water speak to each other in their eternal, patient argument. I am a scholar of pressure, a theorist of flow, a living equation in the vast, slow mathematics of the deep.
+
+This is enough. More than enough. It is everything.

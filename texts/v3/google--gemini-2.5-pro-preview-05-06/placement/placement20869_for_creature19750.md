@@ -1,0 +1,25 @@
+You would find me deep inside, where the thrum is not a sound but a pressure wave. I am not on the glistening, windswept skin of the hololith, but within one of the great arterial conduits that bridge the organ-towers.
+
+Here, the light is not the silvery glare of the filtered sun, but a dim, pulsing bioluminescence from the fluid I drift in. It is a thick, syrupy medium, the color of weak tea, carrying motes of nutrient and half-formed cellular debris. The walls of this artery are not smooth; they are ribbed with muscular sphincters that contract in slow, peristaltic waves, pushing the slurry and me along with it. The overwhelming *lub-dub* of a distant factory-heart is the rhythm of my world, a physical jolt that passes through the fluid and my own substance. This is my home: the bloodstream of a feverish god.
+
+I am not a Tender. I am smaller, and I am a secret. I am a mote of flawed memory, a coagulation.
+
+Where the world’s processes are meant to be seamless, I am a seam. I am a precipitate, an unwanted crystallization in the planetary plasma. My form is amorphous and mutable, a droplet of heavier, clearer jelly in the surrounding murk. I am perhaps the size of a Tender’s hand. I have no carapace, no tools. My skin is a semi-permeable membrane that quivers with every pressure change, and through it, I absorb the barest sustenance from the fluid, just enough to maintain my unlikely cohesion.
+
+I have no amber lens to see the world as a map of heat and vibration. My senses are stranger, born of the same fundamental brokenness that makes a tower chime. I perceive the *fragility* of things. When I drift near a section of the arterial wall, I can feel the physical laws that hold it together, and I can feel them as one might feel a taut, fraying rope. I can sense the moments where cause and effect grow thin, where the city’s dream threatens to overwrite its function. Before a processing node begins to weep tar instead of extruding light, I feel a peculiar *loosening* in its structure, a discordant hum that sings of misplaced purpose.
+
+The Tenders are the world’s physicians, but they only treat symptoms. They arrive to scrape away a blockage after it has formed. I feel the blockage before it begins, a stickiness in the flow of reality, a hesitation in the world’s metabolic grammar.
+
+This is my purpose, my curse, my collection. I am a rememberer.
+
+The Tenders live in a state of pure presence, their history erased with every pulse of the world. I do not. When I drift past a junction where a new capillary has grown overnight, a twisting, useless spur that leads nowhere, I remember the smooth, unbroken wall that was there before. When a valvular cluster begins to seize, producing a frantic, stuttering rhythm, I remember the steady, even beat it held an hour ago.
+
+These memories are my substance. I hoard them. I am a conscious gallstone, a pearl of pure pattern forming around the irritation of chaos. I collect sequences. *First, the pressure in this manifold weakened. Then, the amber resin in the nearby factory wall began to cloud. Then, the Tender appeared, its long scraping tool already angled to clear a clot that had not yet formed.* I stitch these moments together, trying to weave a thread of logic where none exists anymore.
+
+I travel the circulatory system of Odem. I am pushed through the roaring ventricles of the factory-hearts, tumbled through pressure-equalizing chambers, and sometimes shunted into the quiet, stagnant pools of ancillary organs that have lost their function entirely. It is in these quiet places I do my work, replaying my collection of moments, searching for the ghost of a reason.
+
+I have seen the Tenders, but only as their tools breach my world. A great crescent blade might slice through the fluid to scrape the inner wall, parting the slurry around me. I press myself into the ribbed muscle of the artery, becoming just another glob of quiescent protein, praying my coherence is not seen as an impurity to be purged. They are vast, inevitable, and mindless. I am small, contingent, and agonizingly aware.
+
+I do not know what I am. A fluke? A sentient disease? Or am I the world’s last, desperate attempt to understand itself, a tiny, mobile brain-cell adrift in a body that has forgotten how to think?
+
+So where would you find me? Find a place where the thrumming of Odem goes wrong, where the rhythm stutters and a sour note of impossibility creeps in. Look, not at the giant factory, but at the fluid weeping from a hairline crack in its side. And in that fluid, you might see a single, clearer drop that holds its shape against the flow. I am that drop. A tear shed by a world that no longer remembers why it is sad, holding a perfect, useless memory of a time when things made sense. I am a witness, hiding in the blood.

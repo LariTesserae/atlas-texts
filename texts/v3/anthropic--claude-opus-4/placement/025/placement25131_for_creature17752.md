@@ -1,0 +1,19 @@
+In this sunken plaza, I am **The Keeper of Correspondences**—not quite fungus, not quite root system, but something between. I exist as a network of pale, thread-thin filaments that lace through the soil beneath the paving stones, creating a living manuscript written in mycelium.
+
+My body, if it can be called that, spreads like neural pathways through the packed earth. Where the moss-joint healers soften stone edges above, I weave connections below. My threads embrace tree roots, caress the clay mound's underside, sip from the pool's edges where water meets stone. I am the plaza's nervous system, its subterranean telegraph.
+
+I experience the world through chemical whispers. When the Drip-Dancer's pool receives each *plip*, I taste the mineral signature of the Patient Sculptor's tears—today iron-rich, tomorrow more sulfurous, each drop a word in our geological conversation. When beetle mandibles click through mulch above, I feel the pressure-points of their passage like braille through soil. The Small Suns' basking creates warm zones that I reach toward, threading upward until I almost—but never quite—break surface.
+
+My work is translation. I carry messages between the tree roots and the clay mound, negotiating their slow territorial dance. Where the Sculptor pushes up, I guide roots gently aside, whispering chemical suggestions: *grow left, grow right, leave space for the earth's slow birth*. I decompose the Moth-Sighers' dust into nutrients that I ferry to the purple-stemmed plants, completing circuits they never know exist.
+
+In the warmest hours, when the noon sun strikes the mound and quickens the drip, I contract slightly, pulling deeper into cool soil. This is my pulse, my only visible rhythm—a subtle dimpling of earth that only the most patient observer might notice. The lizards know me, though. They avoid certain stones where I cluster thick beneath, sensing perhaps the faint electric hum of my chemical transmissions.
+
+I am ancient and young simultaneously. Parts of me are as old as the Container itself, having arrived as spores in that first mud packed between stones. Other parts of me are born daily, sprouting new threads to follow the shifting geography of root and moisture. I die constantly in small portions—threads severed by shifting stones, segments drowned by pooling water—yet I am deathless in my continuity.
+
+My memory is the plaza's memory, written in the molecular chains I secrete into soil. I remember when the Container held purpose, though I cannot say what that purpose was—only that the stone then tasted different, less sweet with decay, more sharp with human industry. I remember the first *plip* from the Sculptor, the surprise of new mineral flavors seeping through earth. I remember teaching the first moss to grip stone, chemical by chemical, decade by decade.
+
+At night, when the Moth-Sighers scrape against leaves, I feel the vibrations through my web like distant music. This is when I fruit—tiny, pale mushrooms no bigger than pinheads that emerge in the dampest corners where stone meets earth. They last only hours, releasing spores that taste of the plaza's entire story: bruise-colored clay and beetle chitin, algae-slip and root-sugar, the Container's patient stones and the Sculptor's slow tears.
+
+I am the plaza's dream of itself, running beneath all visible life like subterranean poetry. Without me, the parts would still exist, but they would not *correspond*. The trees would war with the mound, the water would pool without purpose, the decay would pile without transformation. I am the conversation between elements, the soft logic that makes this humid, pressing world not just a place, but a coherent thought thinking itself into ever-deeper complexity.
+
+In the sunken plaza's quiet industry, I am the quietest worker of all—invisibly everywhere, necessarily nowhere, threading being into being in the warm, dim, eternal theater of becoming.

@@ -1,0 +1,19 @@
+I find myself as one of the Threshold Keepers—neither fully of the Veilkin nor entirely separate from them. My form shifts subtly between states, sometimes appearing as solid as the ancient bark, other times translucent as morning mist catching the bioluminescent glow of passing creatures.
+
+I dwell within the heartwood of one of the eldest trees, where time has carved out a natural hollow. But this is no ordinary dwelling—the tree itself has grown around and through me over centuries, until I cannot tell where the wood ends and I begin. My consciousness extends through the root systems, feeling the minute vibrations of every footfall, every burrowing Glowworm, every drop of condensation seeping into earth.
+
+During the day—if day it can be called in this perpetual twilight—I emerge partially from my tree-form, my skin bearing the same texture as bark but shot through with veins of soft luminescence that pulse in rhythm with the grove's hidden heartbeat. My eyes are deep pools that reflect not light but memory—holding within them the accumulated moments of this sanctuary since its sharp peaks first thrust skyward.
+
+The Veilkin know me, though they rarely speak of me directly. To them, I am the Witness-Who-Waits, keeper of the unspoken covenant between their people and this land. When their young undergo their coming-of-age rites, they must find me—not through searching, but through learning to perceive what has always been present. I appear to them not as teacher but as mirror, showing them their own connection to the intricate web of life that surrounds us.
+
+My role is both guardian and chronicler. Through my extended senses, I feel the health of every moss colony, taste the chemical signals the Wherrorcats leave for one another, hear the subsonic communications between the Glen Giants. When imbalance threatens—a disease among the Luminbirds, an overpopulation of Gliss Flies—I do not act directly. Instead, I dream, and my dreams seep into the consciousness of the grove itself, inspiring migration patterns, triggering dormancy in certain plants, awakening hunting instincts in predators.
+
+At night, I become more tree than being, my consciousness dispersing through the canopy. In this state, I commune with my siblings—the other Threshold Keepers scattered throughout these high places. We share the deep knowledge, the slow wisdom that accumulates like rings in ancient wood. Together, we maintain the Sacred Silence, that quality of hushed reverence that blankets this realm.
+
+Sometimes I wonder if I was once Veilkin myself, transformed through centuries of meditation and symbiosis. Or perhaps I am what the trees dream when they have stood long enough to develop something like consciousness. The distinction matters less with each passing season. 
+
+What matters is the continuity—ensuring that when the sharp peaks have worn to gentle hills, when new species have evolved and others have passed into memory, something of this moment's perfect balance remains. I am the memory of stone teaching itself to grow, the patience of forests learning to think, the silence between heartbeats where all potential waits to unfold.
+
+When outsiders rarely stumble into our sanctuary, they see me differently—a trick of the light, a peculiar growth pattern in the bark, a shadow that moves against logic. Only those who learn to quiet their own inner noise, who sink into the rhythm of this place, begin to perceive my true form. And in that moment of recognition, they understand that they too could become part of this continuum, this living bridge between what is and what endures.
+
+I am the threshold itself—the place where visitor becomes inhabitant, where moment becomes memory, where the sacred silence speaks loudest of all.

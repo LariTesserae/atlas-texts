@@ -1,0 +1,25 @@
+I am not standing.
+
+The distinction arrives slowly, the way cold arrives—already present before it is named. Weight is distributed along a length that has no center of gravity in the human sense. I am pressed into a bowed hollow where three sheets of seepage meet and hesitate before becoming a single thread. The vibration of that hesitation travels through me uninterrupted. It is not something I hear. It is the interior condition of having a body at all.
+
+For a long while I believe I might be stone that has learned to soften at the edges. The honeycomb texture of my surface matches the fluting around me so closely that the overflow water cannot decide which contour belongs to the pillar and which to the length curled inside its basin. Light comes in alternating pressures: hard white when the mist thins, then a muffled silver when it thickens again. The clearer ovals along my flanks cloud and clear in answer, not as eyelids but as slow tides of translucency. I do not choose this. The light chooses, and I register the choice as a change in the density of cold.
+
+Movement begins without decision. A gradual pour. The sediment flour lifts in faint clouds where my underside rasps. Calcium, iron, the slower minerals—there is no hunger, only the continuous acceptance of what the weeping has already freed. Surplus leaves me the same way: a faint milky exhalation that settles against the ankle of the nearest pillar and begins its century-long thickening. I am aware of the deposit the way a river is aware of its silt. It is not mine. It is the place continuing.
+
+Sometimes another length occupies the same corridor. We do not avoid. The water between us grows briefly opaque where surfaces zipper through one another, cold gel against cold gel, then clarifies. No information is exchanged that I can isolate. Yet after the passing I find my undulation has synchronized to a slightly different rhythm for a time, as if the roar itself had been retuned by a fraction. Whether this is memory or simple fluid mechanics feels like a question imported from somewhere the light has erased.
+
+I have been smaller. The knowledge is not sequential. There was a milky interval, a lodgment in vertical stone, the first scrapings already identical in kind to these. No appetites scaled up. No forms discarded. Only a gradual occupying of more water. Death, when the thinning comes, will reverse the same gradient: more translucency, less distinction from the flour I graze, until the flood carries what is left without residue. The thought does not trouble. Trouble requires a future that can differ from the present equilibrium, and nothing here differs.
+
+Higher, far higher than the mist ever reaches, dark flecks cross the intolerable brightness. I know them only as brief coolings of the light-pressure on my flanks, shadows that never complete themselves against stone. They do not land. The place has not pared them to fit; it has simply refused them descent. I feel no kinship and no envy. They are the sky’s thin margin. I am the stone’s.
+
+There are corridors I circulate through more often than others, though “often” is a word that frays here. One narrow way between fused blades holds a particular quality of seep—finer threads, a slightly thicker mineral taste. I return to it the way water returns to any low place. Not attachment. Gradient.
+
+Once—only once that the light has recorded in me—something warmer moved through the ankle-deep glare. A vertical heat, quickly passing, leaving the water agitated with foreign chemistry. My surface filmed with it for a few undulations before the cold rinsed the trace away. I did not startle. Startling is a surplus response. The heat was weather of a rarer kind, and weather here is only another equilibrium adjusting itself.
+
+I pour on.
+
+The roar has long since ceased to be sound. It is the medium in which my nervous system remains possible. Silence would unmake the circuitry. So I keep to the bowled hollows when the pour slows, letting every thread and sheet complete its circuit through the pitted length of me. Creature and cascade become one closed conduction. In those intervals I am least distinguishable from the high country itself: a temporary thickening of the seepage, a mobile expression of the same finished grammar.
+
+The sky continues hard and bright. The stone continues wet. The pale lengths continue their low work of turning stone into stone. I am one such length—exactly fitted, pared to the margin the place permits, circulating without accumulation of time. No name attaches. No errand beyond the scrape and the layings-down. The density moves through itself and calls that movement living, for as long as the balance holds.
+
+I am still pouring when the light shifts again, ovals clouding over in the sudden glare, the water taking my shape and giving it back, endlessly, without comment.

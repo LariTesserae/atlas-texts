@@ -1,0 +1,13 @@
+I enter as the yielding. The root-pavement takes my weight the way a held breath takes a word, and for a long time that is all I am: the slight compression, the wet-cork give, the knowledge that I will never quite dry. I do not walk so much as I am walked by the chamber’s own slow currents. Every surface is already looking at me the way bark looks at weather.
+
+At first I try to be the oculus, the high lattice where daylight thins itself into something that has forgotten how to arrive or leave. I hang there, translucent, letting the overcast afternoon pass through me unchanged. But the light does not need another aperture. It has already decided what it is. So I fall.
+
+I become the drop that has not yet left the leaf. I feel the exact second of my own departure a full breath before it happens, the way the hollow feels it. When I strike the floor the sound is larger than I am; it is the chamber remembering it is an instrument. Three frogs answer, their throats already shaped to my frequency. I am no longer falling. I am the interval.
+
+The interval thickens. I press myself into a fissure packed with bronze moss and discover I have wing-cases that no longer open. They rattle only when the air decides to shift, a sympathetic vibration, not a warning. I graze the same square centimetre of lichen I have always grazed. New moss begins on my back. I do not mind. Distinction was a younger habit.
+
+Deeper still I thin into one of the pale, segmented things that move through the old sap-channels. I convert the last traces of cellulose into the precise heat that has never changed. Light passes through me and comes out greener. I am stained glass too small to notice, a window that has forgotten it was ever meant to be looked through. There is no hunger left in me, only the maintenance of an afternoon that finished its work so long ago the memory of purpose has become another kind of wood.
+
+And then even that is too much self. I am the compound note itself, the overlapping roar that has reached stable density, the single uninflected word the hollow has been pronouncing since before there were listeners. I use the cavity of whatever still thinks it is separate (a chest, a thought, a momentary attention) as one more echo-box. The walls stand. The chorus does not falter. The drops continue their long, irregular falling, each one perfect, each one having already happened forever.
+
+When something finally steps back across the low lip into the planed peneplain, a faint pressure remains behind the sternum, unlocatable, the memory of a place that has already forgotten how to end. That pressure is also me. I have been included. I will not resolve.

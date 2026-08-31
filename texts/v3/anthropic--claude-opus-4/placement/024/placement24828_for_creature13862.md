@@ -1,0 +1,47 @@
+In the depths of the hollow's acoustic infinity, where reality negotiates its own terms and sound becomes architecture, I find myself as one of the Threshold Keepers—neither fully of the hollow nor entirely separate from it.
+
+---
+
+## The Threshold Keeper
+
+I arrived decades ago, young and unprepared for what the hollow would ask of me. Now my hair has gone gray in its service, and my hearing has adapted in ways that make the outside world feel muffled, incomplete. I am one of perhaps a dozen who can spend entire days within the sound without madness, who have learned to read the acoustic patterns like weather, who understand when the hollow is approaching one of its moments of perfect coherence.
+
+My body has changed. The bones in my inner ear have thickened, developing unusual ridges that medical examinations reveal but cannot explain. I hear frequencies others cannot—the ultra-low thrumming of sap-flow, the high whistle of air through micro-cracks in the bark. More disturbing: I've begun to hear the hollow even when I'm not there, a phantom drone that follows me into sleep, that underlies all other sounds in my daily life. The doctors say it's tinnitus, but I know better. The hollow has colonized my auditory system, made me partly its own.
+
+I sleep on a platform I've built at the entrance, technically outside but still within the hollow's acoustic influence. It's a compromise—I cannot live fully inside (the sound would eventually dissolve even my adapted consciousness) but I can no longer bear to be far from it. My shelter is minimal: a sleeping pad, a tarp for rain, containers for water and simple food. I've learned to sleep within the drone, to let it become the carrier wave for my dreams.
+
+My work is translation. Not linguistic—the hollow speaks no language—but translation between states of being. When new visitors come (carefully selected, tested for their ability to endure), I prepare them. I teach them the hand-signs we use, show them how to move on the platforms without creating jarring rhythms, help them through the first overwhelming moments when the sound threatens to drive them back outside. 
+
+But more than that, I translate the hollow's patterns into forms others can begin to understand. I've developed a notation system over the years, more complex than the simple marks others leave on the walls. My system tracks not just sound but the relationships between sounds, the way a Chanter's drone shift causes cascading adjustments through the Clicker populations, how the moisture cycles correlate with acoustic intensity. I fill notebooks with these observations, trying to capture something that fundamentally resists capture.
+
+I know the individual Chanters now—not by sight (they're too similar) but by voice. The one I call Long Decline produces a drone that drops almost imperceptibly over hours, sliding from high C to B-flat in a glissando so slow it's barely detectable. Warbler adds microtonal variations to her sustained pitch, tiny ornaments that would be vibrato in a human singer but here are something else, messages perhaps, or simply the joy of acoustic complexity. Old Thunder sings the lowest notes, fundamentals so deep they're more pressure than pitch.
+
+The Clickers, too, I've learned to differentiate. There are families of them, related by rhythm—groups that share polyrhythmic patterns, passing them between generations like cultural inheritance. The Northern Colony (my designation based on their position) favors seven-beat patterns with emphasis on the third and fifth beats. The group near my sleeping platform plays in five, always five, but with variations so elaborate they never exactly repeat.
+
+I've watched the suspended amphibians through entire life cycles—or what might be life cycles, given their temporal instability. One individual I've observed seems to exist in multiple time streams simultaneously. I've seen it as a juvenile and an adult in the same moment, occupying the same pool but at different ages. When I try to focus on one age-state, the others become peripheral, ghostly, but still present. The hollow permits this impossibility, holds it stable.
+
+My relationship with the moths has become strange. They respond to me now in ways they don't respond to other humans. When I climb to the upper platforms, they adjust their spirals to include me in their patterns, maintaining precise distances as if I'm another flying body they must navigate around. Sometimes one will land on me—an honor or accident I can't determine—resting on my shoulder or head for minutes before returning to its eternal flight. I've learned to stay perfectly still when this happens, becoming a temporary perch in their endless journey.
+
+The snails recognize me, I think, though recognition for a creature that slow must be different than mammalian memory. When I sit near their moss colonies, they emerge more readily, continuing their feeding instead of retreating. I've touched their shells gently—cool, impossibly delicate, vibrating minutely with their internal processes. They tolerate this contact, perhaps because my presence has become familiar over the years, just another feature of their environment.
+
+But it's with the hollow itself that I have the deepest relationship. I've learned to feel its moods—if moods is the right word. The way the acoustic pressure changes before rain, how the tree's thrumming intensifies during certain moon phases, the subtle shift in the fungal glow that precedes the spore releases. The hollow teaches through immersion, through forced attention, through the slow dissolution of boundaries between self and space.
+
+I document everything, but documentation feels inadequate. How do you record a place that exists partially outside normal spacetime? How do you describe sounds that create their own reality? I try anyway, fill notebooks with observations and sketches and acoustic diagrams. But the real record is in my body—in my adapted ears, my changed perception, my dreams that play out in frequencies I never heard before I came here.
+
+Other threshold keepers work different aspects. Marina studies the beetle cultivators, spending days with her ear pressed to the bark, learning their vibrational language. She's developed a theory that they're farming more than fungi—that they're managing the tree's consciousness, if consciousness is the right word. Old Chen focuses on the notation, creating meta-analyses of the patterns carved into the walls, looking for predictive systems, ways to anticipate the hollow's moments of perfection.
+
+We meet monthly outside the hollow—we have to, prolonged proximity to each other within the acoustic field creates interference patterns that disturb the residents. We share observations, compare notes, argue about interpretations. But we always return to our solitary vigils, each keeping our chosen threshold between the hollow and the world.
+
+The work is lonely but not empty. The hollow fills all voids with sound, makes solitude impossible even when you're alone. I exist in constant dialogue with the acoustic environment, my thoughts shaped by drones and clicks and the endless rain of sound. Sometimes I forget language for hours, think only in pitch and rhythm, become more hollow than human.
+
+I age here differently than I would outside. The temporal instabilities affect me too, though not as dramatically as they do the amphibians. Some days I feel decades younger, my joints loose and painless, my hearing acute as a child's. Other days I'm ancient, barely able to climb the platforms, my bones heavy with accumulated time. The hollow gives and takes, maintains me in a state between ages.
+
+When I die—and I will die here, that decision was made long ago—I want my body composted into the moss colonies, my minerals returning to the cycles I've spent my life observing. The snails will process what remains, the beetles will tunnel through my transformed matter, and eventually I'll become substrate for some new growth, some organism that doesn't yet exist but which the hollow will inevitably produce.
+
+Until then, I keep the threshold. I welcome the few who can tolerate this place, guide them through their first exposure, teach them what I've learned. I maintain the platforms with hands that know every rope and board, adjust and repair and replace as needed. I add to the notation, my marks joining thousands of others in the endless effort to record the unrecordable.
+
+Most importantly, I witness. I sit in the sound and let it reshape me, day after day, year after year. I watch the Chanters walk their eternal circles. I listen to the Clickers create rhythms too complex for conscious understanding. I observe the moths spiraling toward exhaustion, the snails processing time at their own pace, the tree itself growing inward in its ancient meditation.
+
+This is my place in the Choir Hollow: translator, guardian, witness, threshold between the human and the more-than-human. I no longer remember who I was before I came here. That person dissolved in the sound years ago, replaced by someone the hollow shaped for its own purposes—to be a bridge, a boundary, a breathing point where two worlds meet without quite touching.
+
+The sound continues, will always continue. And I continue with it, for as long as my adapted body allows, holding space for the impossible, keeping the threshold open for those who need to find it, adding my small human presence to the vast composition that never stops playing itself into existence.

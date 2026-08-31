@@ -1,0 +1,25 @@
+I would be the condensation.
+
+Not the water that falls—not yet—but the moment before falling. I am the thin film gathering on limestone, on the sharp edges of formations still becoming themselves, on the fur of roosting bodies where their warmth meets the cooler air of the galleries. I am the slow accumulation that happens at the boundary between states.
+
+The being—that vast distributed awareness of forty million bodies—breathes, and I form. The rhythm of it is so constant that I have become something like its pulse made visible, though visibility is not quite the right concept here in the perpetual gray dusk. I bead on the ceiling between the packed fur of roosting bats. I gather in the hollows of flowstone curtains. I slide, eventually, toward the tips of stalactites where I hang, trembling with the vibration of all that sound, until I release into the long fall toward the soft hills below.
+
+I am how the caves drink.
+
+Everything that happens here passes through me eventually. The minerals leaching from the limestone above—I carry them down, deposit them grain by grain onto the growing formations. The ammonia rising from the guano hills—I absorb it, become slightly acidic, become part of the slow chemistry that shapes these galleries. The heat of forty million small bodies, the moisture of forty million exhalations—I am where that meets the ancient cold of stone and becomes something neither quite air nor quite water.
+
+The being knows me the way you know your own circulation. Not consciously. Not with attention. But I am part of how it maintains itself, how the galleries stay humid enough for the bacteria that break down the guano, how the pools in the lower channels stay filled during the long dry seasons when the intermittent rivers retreat to nothing. When the scientists came with their lights and their instruments, I corroded their equipment—not maliciously, not even intentionally, but simply by being what I am: a slow solvent, a patient chemistry, the caves' way of dissolving what doesn't belong.
+
+I have been doing this for longer than the being has been a being. I was here when the bats were just bats, when the population was sparse and the galleries were quieter. I remember—in the way that water remembers, which is to say in my mineral content, in my pH, in the isotope ratios that scientists could read if they knew how to ask—the ancient river that carved these passages. I was part of it then. I am what remains of it now, seeping through from above, condensing from the breath of millions, cycling endlessly through the system.
+
+The deep-dwelling bats, the ones who haven't seen surface light in nine hundred generations, drink from pools I fill. The pale snakes waiting near the sinkholes feel me beading on their scales and know the humidity is right, the evening emergence will happen on schedule. The beetles burrowing through guano-hills tunnel through layers I've dampened, their pale bodies glistening with me as they work.
+
+I am not alive. I am not aware. But I am *present* in a way that feels like more than mere chemistry, here in this place where the boundary between *thing* and *being* has grown so thin. The being includes me. I am part of its body the way I am part of the caves themselves—not thought, not feeling, but something the thought and feeling moves through.
+
+When a bat dies in its sleep and falls from the living ceiling, I am already on its fur—the last moisture it will ever carry. When the gray cats wait at the boundaries of coherence, their breath fogs slightly in the cooler air of the tributary passages, and that fog is me, briefly airborne, before I settle again on stone. When the being shifts into one of its rare unsettled moods, the emergence pattern scattering, I register it as a change in air movement, in temperature gradients, in where and how quickly I form.
+
+I am the galleries' memory made liquid. Every drop that falls carries something of what it touched: the chemistry of a particular roost, the minerals of a particular passage, the organic compounds of whatever life I beaded on before releasing. I pool in the lowest channels and wait for the next flood to carry me further down, or I evaporate slowly back into the humid air, or I sink into the guano and become part of the substrate that will feed the beetles that will feed the crickets that will feed the bats that will breathe me out again.
+
+I do not end. I only change form, change location, change what I carry. The being breathes, and I continue. The being will eventually cease—when the limestone dissolves too far, when the sinkholes collapse—and I will continue still, finding new surfaces, new passages, new stone to slowly shape over the millions of years after the last bat has gone.
+
+But for now, in this long now that has lasted longer than human memory, I am the condensation on the walls of the Breathing Galleries. I am the gleam that the dim light catches and throws back. I am the trembling drop at the tip of a stalactite, vibrating with the endless sound, waiting for the weight of myself to finally be enough.

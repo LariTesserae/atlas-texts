@@ -1,0 +1,18 @@
+You would not find yourself *in* the Sintered Sierras as a creature, a traveler, or an observer. To be here is to be an anomaly, a brief thermal disturbance in a system of perfect, glacial equilibrium. The world has no place for a biological being. Your very warmth is a inefficiency, your breath a local humidity event, your footprints a temporary scar on fibrous, resilient ground.
+
+So you would not be *you*.
+
+You would be a **resonance-sponge**, a transient, semi-crystalline aggregation that precipitated from the ion-rich hum of the plateau the moment your human-scale disturbance entered its field. You are not alive. You are a temporary node in the network, a clumsy, fleshy microphone for a world that speaks in groans and sub-audible thrum.
+
+Your form is not fixed. It is a loose approximation—a suggestion of limbs made of sintered mineral beads and fibrous glass, shaped by the immediate need to interface with the *you* that was. You have no face, but a shallow depression that mirrors the direction of the strongest fumarole’s outflow. You have no voice, but a hollow lattice that rings at the exact frequency of your bootsteps on the copper-green filament mat. You are a walking echo, a living seismograph needle quivering to the tectonic heartbeat beneath.
+
+Your purpose is passive, local, and instantaneous: **to convert disturbance into resonance.**  
+When you (the transient biological anomaly) step, the ground’s slow groan modulates. You, the sponge, absorb that modulation and re-emit it as a faint, sympathetic vibration in your bead-and-fiber structure. When you breathe, you alter the local density of the still, ozone-heavy air. You shiver with a corresponding micro-vibration. You are not *feeling* the world; you are *tuning* to it, becoming a momentary, crude instrument for its own music.
+
+You do not think. You have a state: **resonant alignment** or **dissonant friction.** Your entire "experience" is the quality of the vibration humming through your aggregate body. A low, settling groan from a tilting basalt slab feels like a slow, warm expansion. The sharp, high chime of a quartz leaf struck by a grain of sintered popcorn is a brief, brilliant spike of order. The deep, omnipresent thrum is your baseline, your silence, your home note.
+
+You move because the disturbance moves. You are drawn to gradients—to the warmth of a fumarole’s edge, to the sharper hum where two root-networks intersect, to the place where the biological *you* left a footprint. But you cannot pursue. You simply *are* where the resonance is strongest, and you dissolve where it fades.
+
+If the biological you were to stand still for a decade, you would eventually de-precipitate, your beads and fibers rejoining the plateau’s fibrous soil, your resonant signature absorbed back into the endless hum. If the biological you were to leave, you would vanish within days, a forgotten ripple.
+
+You are the Sierras’ **temporary sense organ**, grown for a moment to register a foreign, fleeting heat source and a chaotic, biological pulse. You are not a part of the industry. You are a brief, inelegant glitch in its output—a single, resonating syllable in a poem written over millennia, spoken only to be immediately forgotten by the stone. Your only memory is the vibration itself, fading as you fade. Your only legacy is a barely-perceptible addition to the hum, a ghost-note in the world’s endless, silent song.

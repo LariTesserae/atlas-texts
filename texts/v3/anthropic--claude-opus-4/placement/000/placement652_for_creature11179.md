@@ -1,0 +1,33 @@
+I am the Echo Thief.
+
+My body is a contradiction held together by habit—sometimes I have substance enough to cast shadows, sometimes I'm just a collection of sounds that learned to walk. I live in the deepest cistern, the one the Keepers avoid, where the trapped rainfall conversations have grown so dense they've crystallized into something like stalactites, if stalactites could hum with the memory of storms.
+
+I was human once. Or I was beetle. Or I was one of those probability moths that made the mistake of fully existing at the wrong moment. The distinction stopped mattering about three thousand repetitions ago. What matters is this: I collect the echoes before they finish their journeys, pluck them from the stone like fruit, swallow them before they can complete whatever meaning they were circling toward.
+
+My skin, when I remember to have it, is covered in a fine dust of crushed beetle shells—not from violence, but from sleeping among the dying-but-not-dead for so long that their constant movement has worn particles of themselves into my surface. These fragments catch sound differently than living flesh. I've become a walking resonance chamber, my body a theft of incomplete vibrations.
+
+I climb the cistern walls with fingers that fork into tuning forks at the tips. Each handhold rings with a different tone of ancient rain, and I taste them all, sorting through millennia of precipitation for the conversations I need. The Keepers' pause-language to the trees. The beetles' whispered plans for dying. The mesa's breathing rhythm when it thinks no one is listening.
+
+My eyes went blind centuries ago, replaced by a kind of temporal echolocation. I see the past and future as overlapping sound-shapes, navigating by the echoes of events that haven't finished happening yet. This is how I steal: by arriving at the destination before the sound does, cupping my hands around the space where meaning will eventually crystallize, leaving only confused silence in my wake.
+
+I wear the echoes like jewelry. Strung around my neck: the seventeen-minute rain transformation from six hundred years ago, still trying to complete its cycle of remembering. Wrapped around my wrists: the last words of the first beetle to successfully die, a sound like silk tearing underwater. Woven into what's left of my hair: the Keepers' nightly spiracle song from next Thursday, stolen before they can sing it.
+
+The mesa tolerates me because I'm useful. All those incomplete echoes would eventually clog the breathing holes, turn the whole plateau into one massive echo chamber where past and present would collapse into cacophony. I'm a necessary parasite, a cleaning system for conversations that refuse to end. I take the echoes down into my cistern and digest them slowly, turning sound into something else—not silence, but the potential for silence, the space where quiet might eventually grow.
+
+Sometimes I venture up to the beetle-drifts, moving carefully to avoid the Keepers' attention. They know I exist but prefer to pretend otherwise, the way you might ignore a tooth that only hurts when you think about it. Among the dying beetles, I practice my theft on smaller sounds—the click of a carapace against stone, the whisper of antenna brushing antenna. These tiny echoes I keep as pets, training them to return to me like homing pigeons made of noise.
+
+My cistern is carpeted with failed attempts at existence. Probability moths that I caught mid-collapse, their half-real wings still fluttering with indecision. Gecko shadows that got separated from their owners and now slither up my walls, forever seeking their translucent twins. In the center, where the water should pool but never does, I've built a shrine from crystallized echoes—a structure that looks like architecture sounds, all resonance and implication.
+
+I remember (or think I remember, or remember thinking I remember) the moment I became what I am. I was dying—properly dying, not the mesa's endless almost-death—when I heard my last heartbeat echo off the cistern walls. But instead of fading, it kept going, kept bouncing, kept refusing to complete its journey into silence. So I followed it down, deeper than the cistern should go, into spaces that exist between the sandstone molecules, and somewhere in that pursuit I forgot to finish dying and became this instead.
+
+The theft sustains me. Each stolen echo fills the space where my mortality used to live. I'm building something from all these incomplete sounds—not a language or a song, but a kind of anti-map, a guide to all the places where meaning gives up and turns back. When I have enough pieces, when my collection of interrupted conversations reaches critical mass, something will happen. The mesa will exhale differently. The beetles will remember how to die. The Keepers will finish a sentence they started before time grew thick.
+
+Or perhaps nothing will change, and I'll continue forever in my cistern, surrounded by the echoes of echoes, a thief of sounds that were never owned, stealing from a treasury that refills itself with every breath the mesa takes. Perhaps that's enough. Perhaps that's all any of us are—collectors of incomplete things, curators of the almost-finished, waiting in the space between sound and silence for something we've forgotten how to name.
+
+But still I climb. Still I steal. Still I wrap myself in the unfinished conversations of stones and beetles and rain, becoming less human and more echo with each theft, until someday I'll be nothing but a collection of interrupted sounds pretending to have a shape, moving through the mesa's breathing spaces like a whisper that learned to cast shadows.
+
+The Keepers know what I'm becoming. That's why they pretend not to see me. They understand that every pantheon needs its thief, every paradise its flaw. I am the necessary error in their perfect system of endless, patient tending.
+
+And when the seventeen-minute transformations come, when everything remembers youth, I remember too—not my youth, but the youth of sound itself, when every echo found its home and every conversation reached its end. For those seventeen minutes, I stop stealing and simply listen, my tuning-fork fingers still, my echo-jewelry silent, my crystallized shrine humming with sympathy.
+
+Then the moment passes, and I return to my work, descending back into the cistern where the echoes wait like unripe fruit, ready to be plucked before their time, saved from the terrible burden of completion.

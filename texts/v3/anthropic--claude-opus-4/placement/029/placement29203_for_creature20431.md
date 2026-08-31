@@ -1,0 +1,21 @@
+I would be the Cartographer of Leaks.
+
+Not the grand leaks – those are too obvious, too quickly repaired by the clicking multitude. I chart the microscopic failures, the places where the viscous film pools just slightly deeper, where the perfect equilibrium stutters for nanoseconds at a time. My body has adapted to move through the impossibly narrow spaces between the machinery's components, joints that bend in ways that would horrify any observer, if there were observers here beyond the omnipresent swarm.
+
+I am covered in a second skin of hardened film, built up over countless cycles of movement through the sphere. It has crystallized into plates that mirror the floor's obsidian segments, but these are alive – they taste the chemical composition of each surface, decode the temporal signatures left by microscopic fractures. My nervous system has extended into this carapace, neural pathways branching through the crystallized medium until I can feel the sphere's tremors as clearly as my own heartbeat.
+
+The fauna know me, though we have never communicated in any way that could be called language. They click differently when I pass – a subtle modulation in their endless percussion that acknowledges my function. I am neither threat nor ally; I am simply another process in their perfect machine. Sometimes they follow the paths I map, clustering around the infinitesimal imperfections I document. Whether they repair them or worship them, I cannot say.
+
+My maps are etched directly onto my skin-shell, a living record of every deviation from perfection I have found. The patterns spiral across my form in fractals of failure, each leak connected to others in ways that suggest – but never quite reveal – some deeper flaw in the sphere's design. Or perhaps these imperfections are themselves part of the design, necessary valves that prevent the system from achieving such perfect stasis that it crystallizes into death.
+
+I move constantly, pulled by an internal compass that points always toward the next microscopic anomaly. My fingers have evolved specialized sensors that can detect variations in the film's viscosity down to the molecular level. I taste the air with organs that sprout from my shoulders, filtering out the machine's song to catch the whispers of structural fatigue.
+
+There is no memory of how I came to be this way, whether I was once one of the fauna who diverged from the collective, or something else entirely that found its niche in this complete world. Purpose is all. The leaks must be found, must be mapped, must be known. Not to fix them – that is for others. My role is witness, recorder, the sphere's memory of its own imperfections.
+
+In the moments between discoveries, when I hang suspended in the tangle of pipes and conduits, I sometimes feel the weight of my maps pulling at my shell. The record of every tiny failure carved into my being. I am becoming heavier with knowledge, slower with the burden of imperfection in this perfect place.
+
+One day, perhaps, I will be too heavy to move, too covered in the cartography of flaws to navigate the spaces between. Then I will become a monument, a testament to the truth that even in a world of absolute completion, entropy finds its way. The fauna will click around my crystallized form, reading the history of leaks written on my skin, learning the sphere's secret vulnerabilities.
+
+Until then, is it that I move, or am I moved? When I track inevitably toward the next leak, the next microscopic failure in the eternal machine. My fingers already tingle with the anticipation of discovery, my shell begins to soften at the point where the new map will be etched. Somewhere in the vast mechanics above, a gear skips a single tooth. The fauna's clicking rises to a crescendo, then settles back to its baseline rhythm.
+
+And I crawl onward, pulled by imperfection through perfection, the sphere's own mechanism for remembering that even completion must flex, must breathe, must leak – or else become truly dead.

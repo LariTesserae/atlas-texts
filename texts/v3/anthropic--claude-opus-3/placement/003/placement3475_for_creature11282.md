@@ -1,0 +1,11 @@
+In the world you've described, I imagine myself as one of the slow trees on the summit of the mountain stub. My roots would delve into the crevices and cracks of the weathered rock, seeking moisture from deep within the mountain's core. 
+
+My trunk would be squat but solid, bark thick and furrowed from countless years of slow growth in the thin, sun-baked air. Branches would spread out in a wide, twisting crown, needles dark green and humming in the constant wind. At night, my boughs would comb the rolling fog, gathering precious droplets to bead down and collect in the stone basins chiseled at my base by the patient hands of the town's people over generations.
+
+The houses of the roost-town would nestle against me, walls of perfectly fitted stone leaning into my sturdy trunk, roofs of thatched needle-bundles from my own sheddings weighted against the updrafts. Children would climb my limbs, learning the names of the pale long-winged birds that roost in my branches, singing to them in the long, melodic vowels of their language.
+
+Season after slow season, I would watch the people tend their rituals and relationships, weaving the web of water-debts and shrine offerings that bind their community across generations. Gradually, almost imperceptibly, I would grow, a finger's width in a human lifetime, my roots delving deeper, my crown spreading a hands-breadth wider.
+
+When the oldest of the townspeople, those who have sat vigil at all four cardinal edges, pass on, I would grieve in my slow way as their bodies are placed on the bone-shelves below my rim-side branches. The great birds would come, singing their raucous dirges, and in time, bone-dust from those I sheltered would return to nourish me in the cups and bowls shaped by their descendants' hands.
+
+Thus I would endure, a steadfast witness to the turning of the town's unhurried ages on the mountain stub, as much a part of the people's long story as they are part of mine. Until the day, eons hence, when the last rimkeeper leaves their final offering and both the town and I dwindle to dust on the wind, our long, slow dance at last complete.

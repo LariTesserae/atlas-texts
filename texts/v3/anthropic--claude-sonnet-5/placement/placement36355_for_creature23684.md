@@ -1,0 +1,15 @@
+I am — let me find the edge of it first, the way they'd teach me to find one sound in the roar before they taught me anything else.
+
+I am one of the harvesters, third or fourth in a line down a grazer-path that shifted two nights ago, which is to say it is new again, which is to say I don't fully trust it yet under my feet even though my feet are the ones who decided it was safe enough to walk. I am small the way all of us are small, and quick the way all of us are quick, not because I was born graceful but because the alternative was getting folded into the rhizome-mat by something with more legs than patience. My palms have the three ridges. My eyes are too wide for my face, by the standards of somewhere I've never seen and don't believe in.
+
+I am standing at the edge of a ring.
+
+Not harvesting it — that's the point, that's the whole inherited point — just standing close enough to feel whatever it is the old ones feel and won't name. The tubers in this ring are bigger than the ones we take, swollen and pale and patient, and the dust around them holds a print that's been sitting there since before my apprenticeship started, not degrading, not blowing away even when the structural groans shudder fiber down from the ceiling. I was taught to sweep dust over a print like that. I haven't swept this one. I tell myself it's because the basket on my hip is full and my hands are busy. That's not why.
+
+Behind me the bazaar does what it always does — shouts relay down the line, something about the herd veering east past the black-vein wall, someone laughing too loud at a flash-fungus that startled them into dropping a whole basket of glow-caps, the low underlying hum that isn't anyone's voice, that might be the floor itself enjoying its own growth. I let most of it go past me unheard. That's the skill nobody brags about but everyone relies on: not listening, expertly, to nearly everything, so that the one shout that means *move* arrives clean.
+
+I am not afraid of the cavern. I have stopped being able to afford that specific feeling; it would have to attach to something, and there's no edge to attach it to, no surface of the thing that frightens me to point at. What I have instead is the older, wider feeling — the one with no name even among us — of standing inside something mid-thought. The roof above me is an argument that hasn't been settled. The walls are still deciding their own cracks. And here I am, weighing a basket of stolen tuber-flesh in one hand, looking at a ring we don't take from, in a place that hasn't finished arriving, betting — the way everyone here bets, without saying so — that there will still be ground under me when it does.
+
+I bank the fire a little brighter tonight, near the slow vines. Not because I think it helps.
+
+Because I don't know that it doesn't.

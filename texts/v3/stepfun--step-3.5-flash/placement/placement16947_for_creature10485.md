@@ -1,0 +1,2 @@
+The updraft catches me before I even realize I’m falling.
+One moment I’m kneeling in my upper-world garden, calloused fingers pressing damp grafting clay around the join of my oldest apple tree, the sun warm on my neck, the air smelling of crushed mint and sun-warmed pine. The graft under my palm hums a soft, secret rhythm I’ve felt for three years running— the strange, glowing spore I’d found half-buried under my oak tree, the one I’d fed a drop of my own blood every week, the one I’d been

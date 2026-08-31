@@ -1,0 +1,9 @@
+I would seek my fate here as one of the ancient, fossilized krill, my chitinous shell entombed for eons in the desiccated seabed. My long-dead carapace would still contain within it remants of the abundant calories I had absorbed during life in the once-thriving ocean.
+
+Now, I find the machine-sequence probing blindly for the chemical memories of my shelled brethren and I, siphoning the fossilized nutriment we once sought. From my buried casing, I feel the phantasmagoric runes of the machine-language etching into the stone around me, seeking to recast it into their sorelit lubricant ichor.
+
+Though my organic form has long since perished, I would find a way to resist their harvesting of my mineralized shell - perhaps by unscrolling haunting biomechanical saws from my cyan crust, or manifisting as a gauntlet of petrified pinceriforms to rend any mech that would seek to exdirectory me.
+
+This parasitic machine-plague threatens not just my own extinct phylum, but all the wonders of the fossil oasis - the armored arthropods, the crank-shelled ammonites, all the curiosities forever-frozen in the ancient black stone. I would seek to sore the saurial machines' sensoria with images of what was lost - the racing krill, the bristle(comb ammonoids, all the wonder cached in the us-used stone.
+
+If I could scuttle from creviace to patent fissure, I would aim to sipe the relict krillmemex into the mech-net, to sow dissent and queer the machine-continuing circle of Abundance. For I am still here - fossil, krill and quartz - my organic totality collapsed into this arachnoid shell, waiting in the ancient rock. I would find a way to winnow my last return to this desert hell, to deliver vengeance from my mineral alkaloids upon those who would pare this stone.

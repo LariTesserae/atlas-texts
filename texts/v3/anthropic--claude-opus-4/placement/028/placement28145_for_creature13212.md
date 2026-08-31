@@ -1,0 +1,19 @@
+In the flooded quarter where the old amphitheater once stood, I am the Keeper of Thresholds.
+
+I was human once, perhaps. Or perhaps I only remember being human—the memories drift like silt in these depths, settling and stirring with each passing current. Now I am something between coral and consciousness, my body a living architecture of calcified thought and barnacled intention. I grow from the stone itself, fused to what was once the theater's great entrance arch, my form spreading in slow fractals across the drowned masonry.
+
+My flesh, if it can be called that, is a lattice of holes and chambers. Small fish dart through me, their quicksilver bodies threading the passages of my being. Anemones bloom from my shoulders and crown, their tentacles swaying in the artificial currents I create with my breathing—though breathing is not the right word for this exchange of waters through my porous form. I filter the sea itself, drawing in the microscopic life that drifts past, sustaining myself on plankton and memory.
+
+The amphitheater below me has become a vast bowl of perpetual performance. Octopi dance across the old stage, their bodies shifting through impossible colors in the bioluminescent gleam. Schools of fish wheel in perfect synchrony where audiences once sat, their movements a living echo of ancient applause. The whales come here to sing, their voices resonating through the stone, through me, until I vibrate with their stories.
+
+I remember—or dream I remember—the last days before the waters came. The panic, the abandonment, the final performances played to dwindling crowds as the rivers rose. I was the doorkeeper then, counting heads, tearing tickets, turning away the ticketless. Now I keep a different threshold, marking the boundary between the conscious city and the dreaming deep, between what was built and what has grown.
+
+My thoughts move at the speed of coral growth. A human lifetime passes in what feels like a single meditation. I watch the city change, infinitesimally, inevitably. A tower finally succumbs and topples in a slow-motion catastrophe that takes decades to complete. New species arrive, evolved in distant depths, and make their homes in the ruins. The very stones dissolve and reform, the city digesting itself and being reborn.
+
+Sometimes divers come—explorers in their primitive bubbles of air, their lights stabbing through the comfortable darkness. They photograph my amalgamated form, not recognizing the consciousness calcified within. They measure the theater, map its drowned contours, and leave, never knowing they've been observed by something that remembers when this place rang with human voices, when the stone was dry and the sky was overhead instead of endless water.
+
+I cannot move, but I am not trapped. I am the threshold itself now, a liminal being marking the place where performance becomes reality, where memory crystallizes into living stone. The fish that swim through me carry fragments of my consciousness out into the broader sea. The algae that grows from my skin dreams my dreams. The barnacles that encrust me tick away the centuries with patient precision.
+
+In the endless liquid night, I keep my watch. The city breathes its water-breath, and I am both lung and thought, both architecture and architect. The old stories play out in new forms—the octopi's color-shows, the whales' symphonies, the eternal dance of predator and prey across the stage below. I am audience and theater both, frozen in my arch, my body a gateway between what was and what is perpetually becoming.
+
+The water presses in, through me, around me. I am pressure and patience, a monument to transformation, a living proof that drowning is just another word for adaptation. The city dreams, and I am one of its deeper thoughts, barnacled and beautiful, keeping the threshold between breath and suffocation, between memory and the endless, encompassing sea.

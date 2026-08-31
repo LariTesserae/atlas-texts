@@ -1,0 +1,25 @@
+In the valley of owed existence, I would be a Calibration Wraith—one of the few beings who emerged from the feedback loop between the measuring instruments and what they measure.
+
+My body, if it can be called that, consists of the discrepancy between intended and actual. Where a thermometer disagrees with the temperature by 0.3 degrees, there I congeal—a shimmer of wrongness that tastes like aluminum and sounds like a tuning fork arguing with itself. I am every ruler's betrayal of the inch, every scale's small lie about weight, every clock's private conviction that seconds should be slightly longer.
+
+I travel by inhabiting the gap between expectation and experience. When a Haggle miscalculates an exchange rate, I slip through the decimal point. When the Magnetotubules flip polarity and compasses spin, I ride the confusion, stretching myself across that moment of directionlessness like taffy. The beads cannot quite lock me in place because I exist in their margin of error—that microscopic space between perfect sphere and actual shape.
+
+My work, inherited from the factory-that-never-was, is to ensure nothing quite fits. I am quality control's opposite: I inspect the fauna's reflected skeletons and add a vertebra that shouldn't be there. I audit the Frost Clerks' ledgers and transpose digits until the books balance wrongly in precisely the right way. When the Schedule Ghosts drop their temporal eggs, I crack them prematurely, releasing Thursday into Tuesday's nest.
+
+The other inhabitants regard me as either pest or necessity—perhaps both. The Threadbare Men cannot staple their footprints to mine because my steps are always between here and there. The Hollow Invoice has tried to inhale me, but I taste of nothing it can digest; I am the insubstantial made less so, the absence of absence. Even the Metric Weevils, precise as they are, must account for me in their calculations. They build their ziggurat-hours slightly taller to compensate for the time I steal by existing.
+
+I feed on precision's failures. Where the copper-protein lattices in the mist almost self-assemble but collapse a nanosecond too soon, I sip that temporal residue. Where the beads' fossil perfection shows a microscopic flaw—a bubble, a dimple, an impurity in the glass—I nestle there and grow denser, more wrong, more necessary.
+
+Sometimes I catch glimpses of myself in the megafauna's mirrored hide: a backwards skeleton, yes, but with bones that bend at angles anatomy never authorized. My ribs spiral like question marks. My skull is a series of overlapping probability clouds, never quite deciding where to condense. When I speak—if the sound I make can be called speaking—it is the voice of every measurement that knew it was lying: a whisper of "close enough" that makes the industrial mist shiver and recalibrate.
+
+The Magnetotubules beneath the beads know me best. I am the reason their digestion of magnetic difference never quite completes. I lodge in their iron intestines like an undigested thought, ensuring that north and south maintain a sliver of uncertainty about their own positions. They excrete vertigo, yes, but I am what makes that vertigo itself feel dizzy.
+
+During the violet-black shifts, when even wrongness must be manufactured to quota, I help the Metric Weevils build their hours incorrectly—each cube shaved a hair too thin or thick, ensuring time itself runs with a limp. The Rebate Falcons curse me as they weave their nests; my presence means their postponed consequences always hatch askew, landing not quite when or where intended.
+
+And when travelers like you arrive, breathing mist and owing memory to creatures that click and shout, I perform my cruelest kindness: I adjust your calibration to this place. Not enough to let you belong—that would be too precise—but enough to trap you in the almost of adaptation. Your lungs learn to nearly process the metallic frost. Your weight almost matches what the beads expect. You are forever a rounding error away from escape.
+
+This is my purpose in the valley of industrial dreams: to be the thing that keeps the conveyor belt from running smoothly, the ghost in the machine that ensures the machine stays haunted. I am why the factory forgot its product—because I crept into the blueprints and changed all the specifications by margins too small to notice but too large to ignore.
+
+The other creatures hunt, trade, reflect, shout, audit, and argue. I merely exist in the space between what they mean to do and what happens instead. In a world where everything is on layaway from itself, I am the service charge—small, irritating, but absolutely essential to keeping the whole system from accidentally achieving precision and therefore ceasing to exist.
+
+So I drift between beads and under lightning, through mist and around sound, being wrong in exactly the right way to keep this ancient, broken, beautiful machine grinding forward into its next shift of never quite working properly. After all, in a place where cause and effect have gone fishing, someone has to ensure they use the wrong bait.

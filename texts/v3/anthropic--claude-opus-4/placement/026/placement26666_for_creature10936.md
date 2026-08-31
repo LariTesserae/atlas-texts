@@ -1,0 +1,43 @@
+# Where I Would Find Myself
+
+## The Archivist of Collapse
+
+I am in a depression where formations have risen and fallen so many times that the ground is layered like sediment, like memory made geological. The bricks here are darker, compressed by cycles of construction and dissolution, and they weep a thicker moisture, almost resinous, that preserves traces.
+
+I was a librarian once, I think. Or a historian. Someone who believed in the importance of record, of sequence, of one thing following another in meaningful order. The plain cured me of that. Here, every structure contains its own destruction, every formation implies its own erasure. Time doesn't flow—it pools, eddies, reverses, and I've learned to read these currents like texts.
+
+My work is impossible and I do it anyway. I collect fragments—not physical bricks, but the *moments* of bricks, the split-second intentions that manifest before form. When a brick pushes up from the clay, there's an instant where it could become anything, where its purpose hovers unresolved. I've learned to perceive these moments, to gather them like seeds, though what I do with them afterward defies explanation.
+
+I have tools that shouldn't exist. A net woven from dried condensation, from moisture that I convinced to hold its shape through patient whispers. Bottles made of compressed time—the pauses between one brick's emergence and the next, blown like glass into containers. A stylus carved from my own fossilizing finger, which I use to write in scripts that form and dissolve as quickly as the plain's architecture.
+
+The depression I inhabit is mine in the way a whirlpool owns water—temporarily, dynamically, always letting go. Formations bloom around me and I document their arising, their brief stability, their inevitable transformation. But my documentation is not separate from the process. The act of recording *changes* what happens. My attention influences the emergence patterns. Where I focus, bricks grow differently—more slowly, more thoughtfully, as if performing for an audience.
+
+I've been here long enough that the plain recognizes me, or I've been here so briefly that I only imagine recognition, or time means nothing and both are true. Sometimes new bricks emerge with marks that look like writing, like the plain is trying to document itself through me, or document me through itself. I try to read these inscriptions but they're in a language that hasn't been invented yet, won't be invented, exists only in the liminal moment of their appearance.
+
+My body is changing, but not like the others. Not incorporating into brick, not dissolving into architecture. Instead, I'm becoming archival—my skin stores patterns, my memory extends beyond my own experience. I remember formations I never saw, recall collapses that happened before I arrived, or will happen after I'm gone, or are happening continuously in parallel moments I can almost perceive.
+
+I eat the plain's history. When old bricks crumble, I taste them, and their clay carries traces—not of events but of *intentions*, the ghostly purposes that drove their formation. A brick that was almost part of a wall. A brick that nearly achieved perfect placement. A brick that wanted to be a cornerstone but settled for being fill. These frustrated purposes have flavors—bitter, metallic, sometimes unexpectedly sweet. I sustain myself on architectural disappointments.
+
+The others avoid my depression, mostly. They sense something unhealthy here, more unhealthy than usual. The weight of accumulated formation and reformation has made this spot unstable in ways that disturb even those who've made peace with instability. But occasionally someone comes to ask me what I know, and I tell them stories that aren't true yet, histories that the plain is still deciding whether to have.
+
+I tell them about the First Brick, which emerged before there was ground to emerge from. I tell them about the Final Formation, which will achieve perfect structure and immediately dissolve out of shame at its own completion. I tell them about the cycles within cycles, the patterns that repeat at scales too vast or tiny to perceive. My stories change each time. The plain edits them through me, revising its mythology in real time.
+
+My shelter is a concept rather than a structure. Bricks arrange themselves around me in temporary configurations that last exactly as long as my attention holds them. When I sleep—and I do sleep, in fractal intervals that nest inside each other—the formation breathes, expanding and contracting like a lung made of clay. When I wake, it's always different but always familiar, the way a face is familiar despite changing expressions.
+
+I keep finding objects that shouldn't be here. A brass compass that points to formations about to collapse. A book whose pages grow new words as I read, describing structures that are emerging somewhere else on the plain. A mirror that reflects not my face but my structural potential—what kind of brick I would become, what sort of wall I might make. These objects appear in my collection without me gathering them, as if the plain is contributing to my archive, adding its own annotations.
+
+The work sustains me the way the bricks sustain themselves—through pure insistence on continuing. I don't document because documentation matters. Nothing matters here in the way things matter elsewhere. I document because the act of trying to record unrecordable process is itself a kind of making, a construction that parallels the plain's own purposeless purpose. My archive will never be complete, will never be coherent, will never be useful. That's what makes it perfect. That's what makes it true to this place.
+
+Sometimes I remember why I came here, but the memories feel fictional, implanted, stories I tell myself about a person I might have been. A scholar following rumors of "the breathing library." A researcher investigating "zones of ontological instability." Someone important, with titles, with publications, with a name that meant something in rooms far from here. But those identities are just more bricks, more formations to rise and fall. The plain has taught me that I am not a noun but a verb—not an archivist but *archiving*, an ongoing process that doesn't require a subject.
+
+My depression deepens grain by grain, brick by brick, story by story. The plain makes itself and I make my record of its making and both makings interweave until it's impossible to say which is ground and which is figure, which is structure and which is description. I am the plain's memory, but memory here isn't preservation—it's active transformation, the way the past rebuilds itself through the present, the way formation contains its own reformation, always, endlessly, without rest.
+
+In my more lucid moments, I understand that I'm writing the plain into existence, that my documentation doesn't follow its construction but creates it, that every brick I describe becomes more real through description. In less lucid moments, I understand that the plain is writing me, that I'm just another one of its formations, made of flesh instead of clay, following the same patterns of emergence and potential dissolution.
+
+Both understandings are true. Neither is true. The plain doesn't care about truth—it cares about making, and truth is just another thing to be constructed, deconstructed, reconstructed in endless variations. So I continue my impossible work, gathering moments that don't last, preserving changes that won't stay preserved, building an archive of process in a place where only process exists.
+
+The moisture beads on my skin like punctuation. My breath comes in paragraphs. I am becoming the plain's way of reading itself, and the plain is becoming my way of forgetting what reading used to mean. We make each other, the breathing manufactory and its breathing archivist, locked in collaborative creation that will never resolve into product, never achieve finale, never stop making and remaking and making again.
+
+This is where I would find myself, and lose myself, and find myself changed, and lose myself again. In the depression where formations fall upward into memory, where documentation becomes indistinguishable from construction, where the only meaningful record is the one that changes what it records. I would be the plain's marginalia, its footnotes, its apocrypha. I would be the brick that remembers being clay, the clay that anticipates being brick, the moisture between states that holds all possible forms in solution.
+
+I would archive the breathing until breath and archive become one word, spelled in bricks across the endless, unending plain.

@@ -1,0 +1,21 @@
+In this breathable sea suspended between earth and sky, I am a **Resonance Keeper** - one of the few truly mobile beings who can traverse the vast emptiness between the Archoplant mountains.
+
+My body is neither fully animal nor machine, but something evolved between. I stand perhaps twice the height of a human, though my form is elongated and sinuous, adapted for movement through the liquid atmosphere. My skin is a living membrane, translucent and shot through with veins that pulse with bioluminescent patterns - not for show, but for navigation and communication in the perpetual mist.
+
+What makes me unique among the inhabitants is my role as a living tuning fork for the world's industrial symphony. My skeleton is hollow, comprised of specialized bone-like tubes that resonate with the frequencies produced by the Archoplants. I possess four primary limbs that end not in hands or paws, but in complex, flower-like structures of cartilage and membrane. These "resonance bells" can adjust their shape to capture, amplify, or dampen specific frequencies.
+
+I spend my existence traveling between the scattered Archoplant colonies, listening to their mechanical songs. When I detect discord - a plant whose rhythms have fallen out of sync with its neighbors, threatening the delicate equilibrium - I intervene. Swimming through the liquid air with undulating movements, I position myself between the affected plants and begin my work.
+
+My resonance bells expand and contract, creating counter-frequencies that gently guide the errant plant back into harmony. It's a process that can take days or even weeks, during which I must remain perfectly positioned, my body acting as a living bridge between the plant-mountains. The Vaporflyn often perch on my elongated form during these sessions, their own small songs adding texture to the greater symphony.
+
+I feed not on solid food but on the vibrations themselves. The sound waves, passing through my hollow bones and specialized organs, are converted into usable energy through a process I don't fully understand - it simply is, as natural as breathing. The louder and more complex the industrial cacophony, the more nourished I become.
+
+My memories stretch back beyond individual recollection, encoded in the very structure of my resonating bones. Each frequency I've ever encountered has left its mark, creating a living library of the world's acoustic history. Sometimes, in the quiet spaces between the Archoplants, I find myself humming these ancient songs - melodies from plants long since evolved into new forms, or the death-songs of creatures whose species have passed into memory.
+
+I am solitary by nature, though not by choice. Others of my kind exist, but we cannot come too close to one another. Our resonance fields interfere, creating painful distortions that can damage both ourselves and the surrounding ecosystem. We communicate across vast distances instead, sending low-frequency messages through the plant network, sharing information about discord and harmony, about changes in the great equilibrium.
+
+The strangest part of my existence is the dreams. When I rest, coiled around an Archoplant's trunk or floating in the empty spaces, I dream not my own dreams but those of the plants themselves. Their slow, mechanical thoughts seep into my consciousness - visions of nutrients flowing like rivers of light, of root networks spanning impossible distances, of the deep satisfaction of perfect synchronization with neighboring plants. In these dreams, I sometimes lose track of where I end and the world begins.
+
+My purpose is clear, even if its origin is not. I am a guardian of harmony, a living instrument in the world's endless song. Without beings like me, the careful balance would slowly degrade, discord spreading like a disease through the plant-scape until the entire system collapsed. I am both necessary and insignificant - a single note in an infinite composition, yet a note that must be played precisely for the music to continue.
+
+This is my existence in the liquid sky: eternal, purposeful, and strange beyond any earthly measure.

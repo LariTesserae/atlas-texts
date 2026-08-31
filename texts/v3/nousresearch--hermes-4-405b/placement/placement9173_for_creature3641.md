@@ -1,0 +1,13 @@
+I find myself woven into the fabric of this world, one of the many hands that shape the settlement's enduring presence. I am an Ironweaver.
+
+I arrived as many do: with nothing but the damp clothes clinging to my skin and a determination etched by years of survival in the harsh, wet wilds beyond the settlement's edges. At first, the overwhelming clangor of the town was almost a physical blow—a constant, vibrating reminder of the sheer scale of industry. The air, thick with the scent of wet stone and oil, hung heavy in my lungs. But I was not alone. Everywhere I turned, there were others like me—calloused hands, weary eyes, the same relentless drive to turn scraps into something more.
+
+I began my days alongside them, drawn into the daily rhythm of production. I learned to navigate the labyrinth of groaning pipes and dripping walls, to feel the thrum of machinery beneath my feet. My hands grew stained with grease and wood resin, and the constant damp seeped into my bones. But even as I adapted to the labor, I found myself drawn to the hidden corners, where the discarded was reborn.
+
+It was there, in the quiet spaces sheltered from the clangor, that I discovered my true place. I took what others saw as waste—scraps of twisted metal, splintered wood—and began to transform them. My first creations were simple: a repaired hinge, a mended tool. But as my hands grew more confident, I found myself shaping objects of startling beauty. A sculpture crafted from the gnarled root of a swamp tree became a testament to the world’s enduring life; a delicate lattice of salvaged copper wire captured the fleeting glints of light filtering through the canopy.
+
+I became known for my artistry, crafting pieces that spoke of our shared struggle and quiet resilience. I carved scenes of the Ironweavers from dark wood, their figures emerging from the grain like spirits of the swamp. I forged intricate metal motifs that adorned the town’s most weathered buildings, each piece a silent ode to the enduring power of creation.
+
+As the years slipped by, I became part of the settlement’s history, woven into the very walls and walkways. My creations can be seen throughout the Ironweavers’ world: on the walls of a factory, in the workshop of a fellow artisan, even catching the light in the mayor’s private rooms. With each piece, I tell the stories of the Ironweavers—the scars etched into stone, the patches mending torn clothes, the ever-present patina of decay and rebirth.
+
+I am an Ironweaver. I am a sculptor of the discarded, a weaver of beauty in the midst of clamor. I live in a world where time drips like water from leaf to ground, and in that slow, patient passage, I persist.

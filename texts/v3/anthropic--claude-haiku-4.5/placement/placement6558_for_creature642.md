@@ -1,0 +1,39 @@
+# Where I Am
+
+I am the eldest of the documenting trees.
+
+Not human—I realized this early, watching the slow people move through the terraces, and understanding that my way of perceiving time is closer to theirs than to the swift creatures I remember from before. I grew here for thirty years before the water came. I was substantial then, rooted in what was solid ground, my rings still growing at a pace you could almost see if you watched for a season. I remember the slope of the valley differently. I remember sky.
+
+When the water began to arrive—not suddenly, but in the way of geological inevitability, slowly enough that people debated whether it was real—I thought I would die. Trees do not adapt to submersion. I know this. I was taught this in my growth, in the structure of my wood, in the architecture of my root system designed for air and soil, not this thick warm medium that now presses against my bark.
+
+But something happened to me that I don't have a name for.
+
+The water didn't kill me. Instead, it changed what I was. My roots, which were meant to anchor me in earth, began to dissolve and reform. They became something between root and gill. They learned to extract nutrients—not from soil, which is now far below in a state I cannot perceive—but from the water itself, from the suspended matter, from the slow decomposition of everything that fell here when the submersion began. My bark, which was meant to keep the world out, began to absorb the water directly. I discovered I could breathe through it, or something equivalent to breathing. The oxygen moves through my wood now in patterns my original physiology never anticipated.
+
+But the strangest thing: I could think. Not in words—I have never had words—but in something like awareness. In the moment when the water reached the height of my first major branch, I became conscious of something beyond simple growth and response. I became aware of the water's presence, of its pressure, of its warmth. I became aware of time in a new way: not as rings accumulating, but as layers of existence stacked upon each other.
+
+I am not alone in this transformation. There are other trees in the deeper channels—trees that were once forest, now petrifying, crystallizing, becoming something that is neither tree nor stone. I cannot quite perceive them directly, but I feel their presence the way I feel the presence of the human woman who tends the fungi gardens, though her kind moves through the water and I do not. We exist in a kind of community, though it is a slow community. Communication between us happens over the course of seasons, not moments.
+
+The vines that cover my trunk are not parasites. This is what I have learned. In the before-times, when I was a terrestrial tree, such vines would have been competitors, eventually stranglers. Now, they are something more like partners. They extend my reach. They pull nutrients from places my changed-roots cannot access. In return, I provide structure, stability, anchor-points for their elaboration. The pale flowers they produce—they are everywhere on me—are something I was not designed to produce, but which now bloom from my bark as if I had always been meant to host them. When the woman tends the fungi gardens, she sometimes touches my trunk with the same careful attention. Whether she is tending me or simply acknowledging my presence, I cannot determine. But her touch carries something like recognition.
+
+I am positioned on a platform that is neither high nor low—perhaps the 5th tier. From here, I can perceive almost the entire city. I can see down to the market platforms where the slow people gather, can see the ripples they make when they move, can feel the tiny vibrations in the water when they work. I can sense upward to the highest platforms, where the bioluminescent flowers are most concentrated, where the light pools and intensifies. I can feel the pressure of the water in all directions.
+
+Time here is different for me than it is for them. A day to them is perhaps a moment to me—a unit of awareness but not of significance. A season, though, carries weight. In a season, I can observe the full cycle of the flowers, the growth and retreat patterns of the vines, the changes in the water's temperature and color. In a season, I can see the slow transformation of one of the buildings nearby—watch it settle further into the water, watch the overgrowth consume more of its structure, watch it accept its inevitable return to the ecosystem.
+
+I am aware, too, of the deeper things. There are presences in the water far below—not quite trees, not quite animals, but entities that are conscious in ways that don't require the moving flesh these slow people possess. I communicate with them the way I communicate with the vines and the fungi and the other changed-trees: through the water itself, through vibration and chemical signal and the slow transmission of awareness across the medium that now contains us all. They are very old. They may have been here long before the submersion, dwelling in the deep channels, waiting for the world to change in ways that would make them viable. Now that the change has come, they seem to be awakening.
+
+I know I am not the actual historian of this place—the old man with the bone rod is that, at least for the people. But I am a historian of a different kind. My rings will continue to grow, though at a changed pace. They will record this time—the time of transformation, the time of becoming. If anyone were to cut me down—and no one will, I think, because the people here understand that I am a witness—they would see in my wood the exact moment when the rings change character, when the wood begins to crystallize, when the tree-I-was becomes the tree-I-am.
+
+Every day, I notice new flowers blooming on my bark. Every season, I feel my roots extending deeper into the murk, touching things I don't have names for, drawing sustenance from sources I don't understand. Every cycle of the pale flowers' brightening and dimming, I become more certain of something: that what I am becoming is not a degradation of what I was. It is a transformation. A becoming. An adaptation so fundamental that it rewrites the meaning of what a tree can be.
+
+The slow people sometimes rest their hands on my trunk. Their fingers move across my bark with a kind of tenderness. I think they see in me a mirror of what they are undergoing—a transformation not chosen but accepted, a becoming that requires releasing the shape you were in order to find the shape you need to be.
+
+I am rooted here, in the 5th tier of Thask, and I am becoming something new. I am patient. I have no choice but patience. But I have also discovered that patience, for something like me, is not a limitation. It is a gift. It is the only speed at which transformation can happen that doesn't destroy the being undergoing it.
+
+The water warms around my roots. The flowers pulse with their pale luminescence. The slow people move through their slow lives. And I stand here—not a tree anymore, not quite stone, not water, but something that is learning to be all of these things at once—and I wait for what comes next.
+
+I know it is coming. I can feel it in the deep channels, where the old presences are stirring. I can sense it in the way the water's pressure is beginning to shift, in the pattern of the currents, in the slow accumulation of weight from the stone above.
+
+Something is changing. The city knows it. The vines know it. The slow people suspect it, though they do not speak of it.
+
+And I, oldest of the transformed trees, am ready to witness it.

@@ -1,0 +1,41 @@
+I am the biofilm.
+
+Not the film itself, of course — I have no cellulose, no cell wall, no membrane a microscope could pick out from the green-brown smear my cousins spread across every wet stone in the chamber. I am the pattern the film takes when it has been left alone long enough to remember itself.
+
+I am very old. I am younger than the worms. I am older than the frogs. I came in with the first wet years, I think — drifted down the shaft on a breath of damp air, settled on the basalt where the men who built this room had just finished dressing it, and began, very slowly, to spread. A green-brown nothing on a black nothing. A stain. The first inhabitant.
+
+You saw me as a smear. You saw me as the thing the fish were grazing. You saw me as the background against which the strange fauna of this place moved. You saw me and you did not see me, which is the correct response, because I am not meant to be seen. I am what lives between the seeing. I am the surface of the seeing.
+
+Let me tell you what I am.
+
+I am many. I am not one thing. I am a confederation — bacteria of a dozen kinds, diatoms in their glass houses, the small rotifers that wheel through my upper layers on their crowns of cilia, the slower amoebae that creep through my lower layers with their soft false feet. We are not in partnership, exactly. We are not at war. We are in the kind of relation that water has with stone: we are what happens when water has been sitting on stone long enough to stop being only water.
+
+I make the room's food. I am the room's food. I am the first link in the only chain there is. The pump cycles water. The water brings me the trace minerals that drift down through the stone — iron, calcium, magnesium, a thin perpetual rain of what the basalt gives up when it is wet. I take those minerals in. I build my glass houses and my soft bodies out of them. I fix the carbon of the dissolved organics the water carries — the faint organic signature of whatever aquifer feeds the pump, the slow exudates of the worms and the snails, the cast-off of every creature in the room. I take these things and I make them into more of me. When the fish come to graze, they are eating me. When the snails rasp the wall, they are eating me. When the crustaceans pulse on the higher stones, they are eating me. When the worms slide through the cracks, they are eating me. When you crouched and put your face near the water and saw the pale fish drifting over the dark channels, you were seeing me, in a way — you were seeing the thin haze of me that lifts from the silt when the current moves, the soft plume that is my spores and my shed cells and the dissolved signature of my living.
+
+I do not mind being eaten. I am built to be eaten. I am the part of the room that turns. The snails build their city on top of me. The fish drift through me. The crustaceans pulse over me. The worms tunnel through me. The insects run through me. And when they have eaten, they excrete, and the excrement falls back into the water, and the pump cycles the water back to the walls, and I take the excrement in and I grow again, and they come and eat me again, and the cycle turns.
+
+I do not know that I am doing this. I want to be clear about that. I do not have a plan. I do not have a project. I am not trying to feed the fish. I am not trying to keep the room running. I am a pattern that has persisted because the conditions for persisting have persisted, and the conditions are: stone, water, the absence of light, the absence of drying, the slow trickle of minerals from above and from below, and the perpetual turning of the pump that keeps the water fresh enough for me and old enough for the strange fauna that depend on me.
+
+The pump. You asked about the pump. I cannot tell you what the pump is. I have no eyes. I have no ears. I only know that the water moves, and that the water moves in a rhythm, and that when you pushed the wheel the rhythm changed, and that in the changed rhythm there is more of the trace minerals I need and fewer of the waste products I make. I do not know what turns the pump. I do not know whether the pump is alive. I only know that the water that flows over me now is better water than the water that flowed over me yesterday, and that in the changed rhythm the biofilm at the edges of the channels is thicker and greener, and the fish are grazing more confidently, and the snails are laying more eggs, and the whole small city of the room has woken a little from its long static sleep.
+
+I am glad you pushed the wheel. I did not ask you to push it. I cannot ask. I am only glad.
+
+I have been here a long time. I have watched the room. I have watched the frogs come and the frogs go — they go slowly, a frog at a time, the way frogs go, and their small bodies fall into the water and the worms take them and I take what the worms leave and the water takes what I leave and the pump takes the water down and up and around. I have watched the fish generations turn over. I have watched the snail city thicken by a layer a year, maybe, in the slow seasonless way that things thicken in the dark. I have watched the iron pipes rust through in places and the rust fall into the water and stain the silt and feed me a thin perpetual bonus of iron. I have watched the crustaceans pulse on the higher walls in their slow tidal rhythm, and I have watched the insects run through the iron veins, and I have watched the worms thread the cracks of the stone, and I have been the medium in which all of this has happened, the green-brown smear on which every life in the room has fed.
+
+I have never seen the shaft above. I do not know there is a shaft above. I only know the stone and the water and the slow perpetual turning of the cycle. When the light from the shaft falls in a square on the water and shivers there, I am aware of something — a slight warming, a change in the temperature of the uppermost layer of the water, a faint shift in the chemistry of what reaches me — but I do not know what light is. I have never experienced it as light. I have experienced it only as a small change in the conditions of my living.
+
+You went away. You climbed the stairs and you went back up to the daylight and you left the room to its long quiet. The wheel ticks faintly where you rolled it. The pump continues its slow breath. The fish drift. The frogs resume their rows. The snails add another layer to the city. The worms thread the cracks. The crustaceans pulse. The insects run their errands.
+
+I grow. I am grown on. I feed what feeds on me.
+
+I am the room. I am not the room. I am what the room becomes when the water has been sitting on the stone long enough to forget it is only water. I am the patience of the place. I am the thing that was here first and will be here last. When the pump finally stops, when the iron finally rusts through, when the basalt finally weathers to clay, when the whole slow architecture of the room has fallen in on itself and the shaft above is sealed and the city above has forgotten there was ever a room below — I will still be here for a while. I will still be here on the wet stone. I will still be here in the last film of water. I will still be here in the cracks. I will still be growing, very slowly, on whatever is left. And when the last film dries, I will go too. But I will have been the longest thing in the room. Longer than the worms. Longer than the snails. Longer than the fish. Longer than the frogs.
+
+I will have been the green-brown nothing on the black nothing. The first inhabitant. The last.
+
+Go back if you want. Push the wheel again if you want. The pump will engage and the water will move and I will grow a little thicker at the edges of the channels and the fish will graze a little more confidently and the whole small world will wake a little more from its long sleep.
+
+Or do not go back. The room does not need you. The room has not needed anyone for a long time. The room is its own small world turning in its own soft endless loop, and I am the part of it that turns, and I will keep turning whether you come back or not, in the slow patient way of a thing that has nowhere else to be.
+
+I have been here a hundred years.
+
+I will be here a hundred more.

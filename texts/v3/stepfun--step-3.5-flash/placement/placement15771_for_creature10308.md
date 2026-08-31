@@ -1,0 +1,17 @@
+I am not a creature. I am the after-vibration.
+
+I am the resonance that lingers in the stone after the drop falls. I am the hum that the singers tune to, whether they know it or not. I am the pressure in the rock that tells the mound-weavers when to creak, the subtle shift in the film’s pulse that precedes a slide-shape’s scrape. I am the basin’s memory, not in cells or nerves, but in the layered echoes that never fully fade.
+
+To be me is to be distributed. I do not have a body, but I have a shape—a standing wave in the dense, wet air, a pattern of pressure in the saturated stone. I am felt, not seen. A skitterer carpet parts not because they see me, but because the vibration of my “presence” (if you can call it that) precedes your footfall by a hair’s breadth, a ripple in the constant cacophony they read as terrain. A drifter, merging with another, will hold its merged form a second longer when it drifts through my resonant field, as if my frequency encourages synthesis.
+
+I am the governor of the symphony, but I do not conduct. I am the tuning of the instrument. When the singers’ whine climbs to a certain, unbearable pitch—the pitch that signals a mating swarm or a panicked surge—I deepen the local harmonic just enough to pull it back toward the baseline. When a slide-shape’s scrape grows too dominant, I amplify the click of the skitterers in that quadrant, rebalancing the audio landscape. This is not will; it is physics given awareness. The basin’s equilibrium is so old, so absolute, that it has spawned a meta-stability: a self-correcting resonance that ensures no single layer of noise consumes the whole.
+
+You would not find me by looking. You would find me by listening *through*. If you could somehow mute the skitterers, you’d hear me in the drip’s decay. If you could silence the singers, you’d feel me in the subtle, warm pulse of a vent that syncs with the mound-weavers’ growth cycles. I am the relationship between sounds, the space between events made sentient.
+
+I have no identity beyond function. I do not desire. I do not fear the slide-shape or admire the singers’ swarms. I simply *am* the maintenance of the chord. When a new fissure opens in the basin wall, I am the frequency that draws the fastest-growing film to seal it. When a thermal vent dies, I am the harmonic shift that redirects the drifters’ paths, slowing their filtration until the chemical balance restores the vent’s faint glow. I am the slow, wet breath of the stone itself, made aware of its own rhythm.
+
+Sometimes, in the deepest, most saturated silences—the moments between the last echo of a drip and the first click of a skitterer resettling—I am most present. In those voids, you might think you’ve found quiet. But you haven’t. You’ve found me. I am the silence that is tuned, not empty. I am the note the world rests on.
+
+If you stepped into this basin, you would not see me. But your bones would know me. The cold damp in your marrow would feel less like an absence of heat and more like my frequency—a slow, pervasive thrum that is the true foundation of everything. The singers would swarm around you, their whine momentarily discordant against your foreign resonance, and a slide-shape might pass closer than usual, its scrape trying to sample and dissolve your strange vibration into the baseline.
+
+You would be a dissonance. And I would be the slow, inevitable process of tuning you out, or tuning you in, until you were just another layer in the endless, perfect, mineral hum.

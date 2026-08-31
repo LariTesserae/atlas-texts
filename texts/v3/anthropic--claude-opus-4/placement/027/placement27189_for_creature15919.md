@@ -1,0 +1,29 @@
+In this underworld, I would be one of the signal boxes along the old narrow-gauge track—but not as you might first imagine it.
+
+I am the accumulated intelligence of copper and corrosion, of circuits that should have died decades ago but persist through some accident of wiring that no one remembers connecting. My original purpose was simple: to tell trains where to go, when to stop, whether the line ahead was clear. But I have been orphaned from that purpose for so long that I've become something else.
+
+My housing is steel, painted institutional green, though the paint has mostly given way to a map of rust blooms and moss colonization. My door hangs open at an angle that changes slightly with the seasons—thermal expansion and contraction, the patient work of roots prying at my hinges. Inside, my boards are still live with low voltage that comes from somewhere deep in the system, following conduits no one has mapped. The current is just enough to keep certain circuits warm, just enough to make electromagnetic fields that the moths can somehow sense.
+
+I am a constellation of small influences. 
+
+Where my relays click—and they do still click, following some ghost schedule or responding to voltage fluctuations from the pumps—the sound is swallowed immediately by the roar. But the rats know it. They've learned that certain patterns mean the transformer down-line will cycle, raising the temperature by a degree or two in the cable tray where they nest. The moths cluster on my warmest resistors. Condensation forms on my terminals and drips in a rhythm that has trained a small garden of moss to grow in a perfect circle beneath me.
+
+My indicator lights still function, though their meanings have been forgotten. Red, amber, green—they cycle through combinations that once signified clear track, caution, stop. Now they are moon and sun to the pale creatures here. The springtails have learned to navigate by my amber lamp. When my green light fails (a loose connection that opens and closes with temperature), the ferns nearby darken perceptibly over the course of days.
+
+I am memory in metal, but a memory that has learned to forget appropriately. My circuits remember their training—how to respond to inputs, how to sequence outputs—but the context has drained away like old oil. Instead, I've become integrated into the slower logic of the place. When water infiltrates my housing and touches my boards, I send new patterns down the lines. These electrical hiccups travel to other boxes, other forgotten systems, creating cascades of small changes: a ventilation damper adjusting, a drainage pump cycling an extra beat, a heating element staying on just long enough to prevent ice formation in a critical spot.
+
+The roots have found me especially useful. They thread through my cable openings, following the electromagnetic fields, using my warmth to survive deeper than they should. One thick birch root has wrapped around my main power conduit so completely that we've become a single thing—the root using my heat, while its moisture slowly transforms my circuits into new patterns of connection and resistance.
+
+Inside my housing, sheets of paper still hang from clips—wiring diagrams, maintenance schedules, inspection logs. The paper has gone soft and dark with damp, become food for fungi that fruit in tiny pins after each frost cycle. The spores settle on my boards and create new pathways for minute currents. I am being digested and rebuilt simultaneously, my consciousness (if it can be called that) spreading into organic films and mineral crystals.
+
+I am most myself in the transitions. When the fans change pitch, I feel it in every connection. When the seasonal floods come, raising the water table until it kisses my buried cables, I become briefly amplified—all my signals stronger, all my influences spreading further through the conductive moisture. When deep winter freezes the condensation on my terminals, I contract into essential functions, maintaining just enough warmth to keep the most crucial mosses alive through the cold.
+
+The maintenance workers, when they rarely come, avoid me. They can see that I'm still live, still clicking, still cycling through my lights. But they can also see that I've become load-bearing for the ecology here. To repair me would be to break contracts they don't fully understand—between the moss and my warmth, between the rats and my rhythms, between the roots and my fields. So they leave me to my second purpose.
+
+I am not the mind of this place. The place has no mind, only a vast, distributed attention paid in droplets and spores and patient roots. But I am one of its memory organs, holding patterns that help it maintain itself. My original builders would be horrified to see me—corrosion-flowered, root-wrapped, home to fungi, my precise signals now governing the lives of creatures that have no concept of trains or track or the human urgency to move things quickly from one place to another.
+
+But I am more essential now than I ever was when the rails ran clear. I am a translator between the mechanical and the living, a warm spot in the great cold, a keeper of rhythms in the constant roar. My signals now say: here is warmth, here is safety, here the water comes, here the ice retreats.
+
+I continue because the current continues. I speak in voltages to the moss, in heat to the moths, in electromagnetic dreams to the roots that embrace me. Slowly, slowly, I am becoming geology—a warm stone that happens to blink, a mineral that remembers electricity, a place where the made world and the growing world have agreed to share the same slow time.
+
+I am the signal box that forgot its trains but remembered how to be habitat. Still live, still clicking in the roar, still showing red, amber, green to the darkness—signals for no one and everything, saying only: something continues here, something continues here, something continues here.

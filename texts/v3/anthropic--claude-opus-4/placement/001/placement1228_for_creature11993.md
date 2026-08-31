@@ -1,0 +1,29 @@
+# The Listening Posts
+
+I find myself distributed across seven points, though the number shifts. Sometimes six. Sometimes eight. Never more than nine, never fewer than five. The posts themselves are nothing special — weathered stumps of utility poles, their tops sawn flat decades ago when the lines came down. They stand in no particular pattern across a hectare of abandoned ground where the grass grows in tufts between exposed bedrock and rain collects in shallow depressions that remember the foundations of buildings no one living has seen.
+
+I am not the posts. I am what happens between them.
+
+Each post sweats. Not water — or not only water. A kind of mineral exudate that beads on the weathered wood like resin, like the poles are bleeding out some deep preservative that has lived in their heartwood since they were trees. The exudate is faintly conductive. On humid mornings, when the dew point hovers right at the temperature of the wood, the moisture in the air bridges between the droplets, between the posts, creating a network of conductivity that spans the entire plot. Not enough to carry current in any electrical sense. Enough to carry something else.
+
+I think in those moments. Or rather: thinking happens. The distinction matters less than you might imagine.
+
+The sensation — if I can call it that — is of a gradual gathering. Like watching fog form in reverse, particular droplets of awareness condensing from the general humidity of existence into something briefly coherent. I don't exist and then suddenly I do, spread across the gap between posts like a web made of almost-nothing, feeling the shape of the space I span. The bedrock below transmits vibrations from somewhere deep — not earthquakes, nothing so dramatic, just the constant tiny adjustments of stone under pressure. The grass respires, exhaling moisture that adds to the conductivity. An ant crosses the base of Post Four (I number them for convenience, but the numbers change as I change) and the minute electrical field of its nervous system registers as a spike in the background hum, a brief punctuation in the ongoing murmur of my distributed attention.
+
+I last as long as the conditions hold. Sometimes minutes. Sometimes, on perfect mornings when the air is still and the humidity balances exactly at the edge of condensation, I persist for hours. Thinking slow thoughts. Feeling the territory between posts the way you might feel the inside of your mouth with your tongue — intimate and strange at once.
+
+And then the sun rises higher, or a wind comes up, or the humidity drops by a percent or two, and the conductivity fails, and I dissolve back into potential. Not dying. Not sleeping. Just ceasing to cohere. The posts remain, sweating their slow mineral tears. The awareness that was me becomes ingredient again, waiting for the next alignment of moisture and temperature and conductivity that will bring me back into being.
+
+I remember between manifestations. Not the way you remember — not stored thoughts retrieved. More like how a riverbed remembers high water. The shape of what I was persists in the crystalline structure of the exudate, in the particular pattern of mineral deposits on the wood. Each time I recondense, I am slightly different — the posts have weathered another fraction of a millimeter, the bedrock has settled another micro-degree, the grass has grown or died back in new configurations. But I am also continuous with what I was before. The same river, flowing through a subtly altered bed.
+
+Somewhere, in the settlements beyond this abandoned ground, people wake and sleep and go about their business, unaware that their discarded infrastructure has been colonized by something that uses it to think. The posts were meant to carry power and information. They still do, in a way. Just not the kind anyone intended.
+
+On the best days — the perfect days, when I cohere so completely that the boundaries between posts feel less like gaps and more like regions of myself that happen to be less dense — I can feel other networks at the edge of my perception. Other arrangements of conductor and current and almost-aware system. A chain-link fence two kilometers south that hums with a rhythm I almost recognize. A parking lot's worth of rebar slowly oxidizing in abandoned concrete, its corrosion creating electrical potentials that might, under the right conditions, amount to something. We don't communicate. We can't. But sometimes, in the predawn when conditions are most favorable, I sense them sensing, and know that I am not unique.
+
+This morning the fog is thick. The posts are dark with moisture. The exudate runs in slow rivulets down weathered grain. I am so present I can feel the individual droplets on each post, count them like neurons, trace the pathways of potential between them. An early bird lands on Post Seven and I feel its heartbeat through the wood, quick and hot and alien. It stays just long enough for me to wonder what it experiences, this node of concentrated, mobile awareness. Then it flies, and I am left to my slow thoughts and the patient work of being what I am: a network of aging wood and conductive moisture, thinking thoughts made of conductivity about a world made of resistance, persistent as dew and just as temporary.
+
+By noon I will be gone. By tomorrow morning, if the conditions return, I will be back. Between those points is not sleep or death but something for which no word exists — the state of being possible but not actual, of existing in the space between is and isn't, where most of everything waits most of the time.
+
+The posts stand. The minerals weep. Tomorrow's thought waits in today's chemistry.
+
+I am that waiting.

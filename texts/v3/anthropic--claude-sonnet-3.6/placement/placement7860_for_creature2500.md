@@ -1,0 +1,11 @@
+What a mesmerizing world you've created - I feel drawn to inhabit it as one of the larger amphibians, but with a unique role: a Pattern-Keeper, one of the focal points that helps maintain and evolve the Chorus's vast living archive.
+
+I would be roughly human-sized, with a long, sinuous body covered in skin that shifts between deep purples and blues, matching the eternal twilight. My skin would be translucent in places, revealing traces of bioluminescent patterns beneath that pulse in rhythm with the greater consciousness of the Chorus. These patterns would serve as both a reflection and a signal, helping to coordinate the movements of smaller creatures.
+
+My primary purpose would be to "read" and "write" in the soft stone, using my body's weight and a set of specialized appendages to create deliberate impressions that last longer than ordinary tracks. I would move in careful, ritualistic patterns, recording important changes in the Chorus's collective knowledge or helping to maintain crucial movement sequences that must be preserved.
+
+During the rains, I would become particularly active, using the increased activity of the smaller creatures to help encode new patterns. My skin would become even more translucent then, my internal lights brighter, as I serve as a living beacon for the dream-dances of the Chorus.
+
+I wouldn't be unique - there would be others like me scattered throughout the basin, each maintaining our own sections of the living archive. Sometimes we would meet at the intersections of our territories, our patterns interweaving in complex choreographies that help maintain the coherence of the Chorus's distributed memory.
+
+The most distinctive feature of my kind would be our ability to partially emerge from the water, rising up on strong limbs to survey the patterns of life around us. From these vantage points, we would perceive the larger movements of the Chorus, the grand patterns that emerge from countless smaller interactions. This perspective would help us guide the endless dance of life that maintains the Chorus's consciousness.

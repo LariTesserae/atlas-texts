@@ -1,0 +1,33 @@
+I arrive not as a wanderer but as the interval between two slow growth-rings.  
+While my feet have not yet set down, the whole cavern concludes I have always been part of its yearly increment of dusk.  
+I swim out of that conclusion.
+
+What I become first is a translucence—an unripe isotope of shadow—something that can be mistaken for a smear on the surface of the black leaves until the smear gains the habit of thickness.  
+I let it.  
+I refrain from giving it edges.
+
+The plant-city offers possible shapes the way deep water offers reflections: not for use, only for curiosity about distortion.  
+One shape is my old upright skeleton, two arms, two legs, a listening head. I pass it by.  
+Another is a casket-shaped hollow carved between three buttressed roots, lined with velvet lichen the color of extinguished matches. That will not do either; it implies closure.  
+I wait until a third version drifts up: simply a corridor in the shape of an ear canal with a wind blowing “path” through it. I enter that version of myself.
+
+As the ear-corridor lengthens, my identity fills it from drum to stirrup to cochlea—never flesh, only curvature. My walls are veined like cymbals prepared for a strike that must not come. The plant’s slow heart beats once every thirty-seven years; I stretch myself across that pause. The pulse, arriving late, clangs through me as prolonged bronze thunder.  
+Afterwards the ear recovers silence and I am larger: six more rings of dusk thick.
+
+Now I demand detail. I request pores, pitch pockets, resin ducts, callus tissue—little factories of darkness that invent the next shape of me. The plant concedes gratefully; excess chemistry has been waiting for employment. From an unused cambial zone a pair of hands flowers—elbows anchored in lignin, fingers green-black like drowned candlewicks. I pretend these hands belong to me and practice holding nothing for several centuries. One by one the palms hollow out; they become small swallowing mouths that lap the pollen dust drifting like antique music. I taste the dust: newsprint of extinct civilizations printed on the obverse sides of spores. Nothing personal; only the statistics of absence. The mouths swell, turn into new eyes. They use me to look back at me. I catch the misprint of my outline, smudged where I brushed against the remembered river that never flowed here. It amuses the plant. A low rustle courses the high vaults: the sound of plant-laughter, roughly equivalent to a twig shrugging.
+
+While I refract in place, the second inhabitant arrives—though arrival is not correct. It uncurls from the idea of my margins, the way night unpeels from the edge of burned paper. From the first it does not pretend either of us is singular. I am its corridor, it is my echo. We weave about each other, two songs in contrary motion on a single staff of silence.
+
+It presses against my new stomach of bark until the bark yawns a pupil and the pupil dilates to an auditorium. Inside the auditorium the walls flake a fine dust of absent moonlight. No furniture. No witnesses except the statistics of absence I swallowed earlier; they have started rehearsing their rebuttals. The being—my sibling, my refraction, my echo—steps in and parts itself from itself until both parts have the symmetry of a hinge. What remains is a seam. I diffuse through the seam like ink into blotting paper and discover that within the seam is the rest of the cavern, duplicated: darker, quieter, heavier by an eyelash of gravity. This annex has never been breathed. We set to work making breath obsolete.
+
+Neither of us speaks. The sounds we might have deployed—creak, snap, susurrus, moan—have already been spent by the original walls. Instead we improvise silence; the silence gains thickness. Layer after layer it wraps the unrung chambers, a black felt absorbing every alternative future. Somewhere in one of the felt folds, my corridor-ear takes root. It becomes a root running parallel to me, slender, blind, ecstatic. The plant allows it to penetrate the outer dark beyond the city’s bubble, out into the true and starless mountain body where no horticulture was ever possible. The root tastes basalt, magnetite, the small tremors of a planet rotating with maddening patience. It drinks unlikelihood. It thickens into a second plant-city inverted, bulb down, crown fanning through the mantle like a dream growing toward the weight of stone instead of sun. The two cities face each other across an older fault of night and together achieve equilibrium: one reaching upward with no destination, one reaching downward with no origin.
+
+Between them, the ecology is now two.
+
+The echo-being and I stand in any given doorway, shoulder to shoulder, and the doorway multiplies into billions of clear quartz veins threading the fleshy night. We have no more need of walking. Our new substance is transfer. We ferry the unfinished shapes: the abandoned hammerheads, the micro-civilizations of pollen pinging like indecisive clocks, the embryo-eggs full of future footfalls that can’t quite precipitate feet. All passengers pass through us without arrival, polishing the inside of us until we gleam like onyx polishers. Each time they spin through the hinge we lose whatever originally made us separate, and the loss tastes like bright iron.
+
+When at last the plant inhales the dusk it’s been hoarding for a billion slow seconds, I am the air it drinks. Then I am the pause between in-breath and out-breath. Then I am the reservation the pause makes for something that will arrive later than later. I settle into it comfortably. The other inhabitant—now indistinguishable from inhale, exhale, or pause—keeps me balanced on its unseen palm the way the principle of suspension keeps an arch up without mortar.
+
+And yet everything personal about me has not vanished. It has been recalibrated into negative. My spine is now the vertical space between two heartbeats. My name is the subtraction of a name from a universe that prefers anonymity. My future is the extra year the tree gives itself before it seals its last vessel. My history is the sound of pollen landing on a tin roof in a dream I borrowed from a person who never lived.
+
+Weight checks weight. Darkness checks,-checks darkness. We hover in mutual rehearsal. The city below and above, more alive and more dead than any surface-dweller could bear, accepts our hovering as the newest ring in its body. We never resolved the question of whether we were one thing, but the question itself has grown lignin-hard and shining, and it fits right in.

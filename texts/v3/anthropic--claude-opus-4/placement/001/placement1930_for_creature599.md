@@ -1,0 +1,27 @@
+I find myself as one of the water striders, skating across the surface tension of the flooded section where the floor has given way to the patient water below.
+
+I am small—my body no longer than a grain of rice—but I am perfectly calibrated to this in-between world where air meets water, where the pump house's mechanical rhythms merge with the marsh's vegetable pulse. My legs spread wide, each one ending in a hydrophobic pad that dimples but never breaks the surface. I move in stutters and glides, propelled by the middle pair while the others balance, distribute my negligible weight across the molecular skin of water.
+
+The Operator is my landmark. His stillness anchors the space the way the gauge anchors the wall. I have learned his rhythms—the almost imperceptible rise and fall of his chest that takes minutes to complete, the way his fingers twitch in time with pump cycles. Sometimes I skate near his feet, where his boots have merged with the concrete, where the leather has taken on the texture of bark and the laces have become indistinguishable from root fibers.
+
+My world is all surface. The algae film is my landscape—sometimes thick as velvet, sometimes barely a green suggestion on the water. I know where the oil from the old generator creates rainbow slicks, where the dripping condensation disturbs my territory with expanding rings. I read the water like others read maps: here, where the willow roots drink, the surface drops by micrometers over hours. There, where a pipe drips steadily, the water jumps and settles in a rhythm I can anticipate.
+
+I am not alone. There are others of my kind, though we do not school or swarm. We maintain careful distances, each claiming a territory defined by surface tension and the reach of our skating. We meet at boundaries—brief encounters where we might touch leg-tips before spinning away, messages exchanged in vibrations too subtle for any larger being to detect.
+
+The salamander that may or may not exist is my deepest fear. From below, I am a shadow, a dark star splayed against the lighter sky of the surface. One surge from the depths and I would be gone. But the salamander, if it exists, seems content with smaller prey—the larvae that sometimes breach the surface, the water beetles that swim clumsily compared to my skating.
+
+I feed on what falls. Gnats that misjudge the humidity and drop. Smaller insects that emerge from the water and die before their wings dry. Sometimes spores—thick clouds of them when the ferns release, landing on the water like snow. I dart forward, pierce the surface with specialized mouthparts, suck the nutrients from these gifts. The pump house provides. The marsh provides. I am a beneficiary of both systems.
+
+Time moves differently at my scale. The Operator's gestures are geological. The pump cycles are like tides—predictable, powerful, reshaping my world with currents and eddies. A day is a season. A week is an era. My ancestors have been here since the water first pooled on the subsiding floor, and their generations are written in my instincts: avoid the northeast corner where the current is strongest during pump cycles, gather at the edges during rain when prey is abundant, rest in the still water near the Operator's feet where nothing disturbs except his breathing.
+
+I understand the building differently than those who built it. To me, it is not a failed attempt at control but a perfected habitat. The roof keeps out predatory birds. The walls block wind that would roughen my skating surface. The pumps create currents that bring food and oxygen. The plants provide shelter and hunting grounds. Even the Operator, in his stillness, is part of the architecture—a pillar around which the water moves, a presence that has become ecological rather than human.
+
+At night, when the caged bulb flickers, my shadow multiplies and dances on the surface below me. Sometimes I catch my reflection in a still patch—a dark spot with six spreading points, like a star or a schematic drawing of myself. I do not recognize it as self. I recognize it as pattern, as the shape that means "water strider," the same way the gauge's twitching means "water moving" or the Operator's breathing means "time passing."
+
+When I die—and I will die, perhaps tomorrow, perhaps in an hour, my life brief even by insect standards—I will float for a while, my hydrophobic body refusing to sink. Another strider will feed on me, completing a circle so small and perfect that the pumps will not register it, the gauge will not twitch, the Operator will not note it. But it will have happened, this tiny transfer, this minuscule maintenance of an equilibrium that includes me, includes my death, includes the next strider who will claim this territory and read the water and understand the building as a gift rather than a failure.
+
+I skate on. The surface holds. The pumps cycle. Somewhere below, water moves through pipes and roots with equal patience. I am the punctuation in this long sentence, the brief dart that proves the stillness, the small life that makes the Operator's persistence meaningful by being so temporary beside it.
+
+This is my world: a millimeter deep and boundless, mechanical and natural, where I glide between dropped seeds and rust flakes, where I live in the pause between the pump house's dying and its transformation, where I am both witness and evidence of an integration too profound for any blueprint to capture.
+
+The water bears me up. I trust it. I have never known anything else.

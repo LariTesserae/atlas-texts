@@ -1,0 +1,11 @@
+I find myself drawn to the moss clinging to the seam in the sandstone along the northern wall of the basin. While the thing that inhabits this place is not the moss itself, I feel a kinship with that narrow strip of muted green-grey life. 
+
+I am small and patient, content to exist in the stillness and the dim, diffuse light. I require little - just the barest moisture collected from the air, the meager minerals weathered from the rock. My existence is not one of ambition or restlessness. I do not seek to spread, to smother the basin in green, to climb the walls and escape this sheltered hollow. I simply am, a quiet participant in the equilibrium of this place.
+
+The moss is described as having the nap of velvet, hinting at a subtle softness, a plushness that invites a delicate touch. That is how I imagine my presence - unobtrusive and hushed, yet offering the slightest whisper of comfort should any wandering soul brush against me in passing. Not an active comfort, but the passive solace of enduring life in a place of deep serenity.
+
+I sense the ancient awareness that pervades the basin, the gradual dissolution of difference into a unified, undisturbed whole. And like the moss, I do not resist or disrupt that sacred process. I let it flow through me and around me, content to be a minuscule conduit, a single filament woven into the ageless warp and weft of this place. 
+
+The basin is complete unto itself, requiring nothing, resting in the perfect balance it has attained over countless eons. I as the moss do not improve or elevate it. That is not my purpose. I am simply blessed to abide here, to drink in the sufficiency and ease without grasping or need. In my small, unnoticed way, I bear humble witness to the glorious fact that such peace exists, that it can be found and touched and known, however fleetingly, by those who still wander and want.
+
+So I remain, an unmoving emerald thread, at once insignificant and essential, separate and yet inextricably part of the greater whole. Waiting for nothing. Wanting for nothing. Perpetually, gratefully present in this place of utter stillness and completion.

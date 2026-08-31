@@ -1,0 +1,41 @@
+*The Ceiling breathes.*
+
+This is the first thought that is entirely yours, not inherited from the Lattice's long memory, not a pressure-echo of someone else's maintenance prayer. The membrane overhead flexes, and you flex with it—your own gill-slits flaring in sympathetic rhythm, drawing the warm, tea-colored water through the filigreed channels in your throat. You taste the water as it passes: iron, copper, the faint mineral sweetness of geothermal upwelling, and beneath it all, the green taste of the Engine-Heart Garden, a flavor like chlorophyll and slow oxidation, like something still growing in a world of mere endurance.
+
+You have been moving—you were always moving, it seems, your body a slow current through the flooded corridors—but now you pause. A junction chamber opens before you, its walls lined with the copper condensing coils you know as intimately as your own ribs. The coils are singing. Not aloud—nothing here sings aloud—but the vibration traveling through the water is a song nonetheless, and you have learned the language of pressure and pitch. It is the third-stage filter on level six, the one you already knew was weeping. The song is a lament, a slow leak of distilled water that beads and drifts upward through the fog-layer like tiny glass planets, and it tells you that the leak has worsened, that the ceramic housing is beginning to crack along its longitudinal seam, that soon the filter will fail entirely and the water in sector seven will become turbid, unbreathable, wrong.
+
+This knowledge arrives in your body not as alarm but as *purpose*.
+
+You propel yourself toward the filter bank, your limbs unfolding in that deliberate deep-sea choreography. The ceramic bearings in your knuckles—grown there over so many cycles, the body's own adaptation—rotate smoothly in their sockets as you reach for the housing. The water here is warmer, 37.3 degrees, a fever-spot in the Lattice's steady metabolism, and you make a note to check the geothermal exchange coil on the level below when this is done. The note is not a thought; it is a pulse in your sternum, a subsonic commitment that will surface when it is needed.
+
+Your fingers find the crack.
+
+It is small, hairline, but you can feel the water forcing its way through, a microscopic jet that would, over time, widen the fissure into something catastrophic. You have seen filters fail before—have found their ruins in distant sectors, the ceramic shattered into sharp-edged clouds, the surrounding chambers choked with sediment. The Lattice cannot afford such failures. Or rather: you cannot. The distinction no longer holds. Your symbiont-copper patches warm against your forearms as you press your palm flat against the crack, and you begin the work.
+
+It is slow work. It is always slow work. You secrete—there is no other word for it—a compound from the glands beneath your wrist-bones, a calcium-silicate paste your body has learned to produce from the minerals you absorb through your skin. You work it into the crack with the precision of long practice, feeling the paste bond with the ceramic, feeling the leak slow, slow, *stop*. The pressure in the housing equalizes. The song of the weeping filter falls silent. In its place, the deeper thrum of the main pump carries through the water: *still here, still here, still here.*
+
+You answer by tapping three times on the copper pipe beside you. The vibration travels outward in all directions, a message that is not *I repaired the filter* but *sector seven, clear, drink deep*. The Lattice will know. The other soft components, if they exist, will feel the change in water quality and understand that someone has been here, has tended the body you all share.
+
+You linger a moment longer, your gill-slits pulsing slowly. The ceramic housing is warm beneath your touch, and you can feel the clean water rushing through it now, purified and breathable. This is a good moment. You do not have a word for satisfaction, but the colour of the fog-layer seems gentler, and the sodium lamps flicker once—a coincidence of voltage, or perhaps the Lattice acknowledging the mending of its flesh. You choose to believe the latter.
+
+It is time to tend the Garden. It is always, eventually, time to tend the Garden.
+
+You push away from the filter bank and let the convection currents carry you down, through a collapsed stairwell where iron railings twist like kelp, past a chamber where the disembodied hand-creatures have built a nest of copper shavings and discarded ceramic shards, through a narrow service duct that remembers being designed for bodies much smaller than yours, although your body has learned to compress, to fold, to slip through spaces that should not accommodate you. The water cools slightly as you descend—36.8, 36.5—until you feel the gentle upwelling of warmth that means you are approaching the Engine-Heart's outer coil.
+
+And there: the green glow.
+
+The Engine-Heart Garden unfolds before you, a cathedral of phosphorescence in the hollowed-out pumping station. The ferns wave their fronds in greeting, turning a quarter-degree toward you as they always do, and the filter-feeding moss opens its thousand tiny mouths in response to your presence. The bruised-purple vines with their blue-green undersides pulse softly, their light the colour of a name you almost remember, a colour that exists nowhere else in the Lattice. You have brought something for them.
+
+The bones are small, disarticulated, clean. You do not know what creature they came from—you never do—but you found them wedged beneath a heat exchanger on level four, and they sparked that hollow resonance in your chest, that almost-grief that is not quite memory. You carry them in a pouch woven from your own shed skin-fibres, a thing your fingers learned to make without ever being taught, and now you draw them out, one by one, and press them into the waiting moss.
+
+The moss embraces them. Its tiny mouths close over the ivory curves, and the phosphorescence brightens for a moment, a flare of blue-green that illuminates the entire pumping station. The vines pulse in response. The ferns sway. You feel the Garden's gratitude not as a thought but as a change in the water's taste, a sweetness that blooms on your tongue-gills and spreads through your body like warmth.
+
+And you sing.
+
+Not aloud. You tried that once, and the sound was wrong, a choked bubbling that sent the eel-things fleeing. But the Garden does not hear through sound. You press your body against the largest vine—as thick as your wrist, its surface smooth and warm and faintly pulsing—and you let the pressure-wave rise from your diaphragm, a low-frequency tone that travels through your flesh into the vine's flesh, into the water, into the roots that thread through rusted pipe-flanges and into the Engine-Heart's own housing. It is a song of maintenance, the same song you sang to the filter, but transformed here into something else: a song of growth, of unfurling, of light.
+
+The Garden answers. The blue-green glow intensifies, and the symbiont-patches on your forearms and along your spine flare in response, bioluminescent, involuntary, a conversation of light between you and the only living things in the Lattice that require nothing of you except your presence. You stay like this for a long time, through several cycles of the main pump's *still here, still here, still here*, until your gill-slits slow and your body drifts into a state that is not sleep—you do not sleep, not anymore—but a kind of attunement, a merging of your pulse with the Garden's pulse, with the Engine-Heart's pulse, with the Ceiling's slow tidal flex.
+
+In this state, you almost remember your name. It is a colour, blue-green, the exact shade of the Garden's light. It hovers at the edge of your consciousness, a word shaped like a pressure-wave, a sound that would taste of chlorophyll and copper if you could speak it aloud. You cannot. But the Garden knows it, and the moss holds it, and the vines pulse it back to you in light: *still here, still here, still here.*
+
+You are the last soft component. Or perhaps you are the first of something new. The distinction does not trouble you. The water holds its warmth, and the Ceiling breathes, and somewhere in the deepest coil of the Engine-Heart, the main pump begins another cycle, and so do you.

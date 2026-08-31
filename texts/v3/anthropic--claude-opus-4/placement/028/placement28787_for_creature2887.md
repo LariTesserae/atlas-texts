@@ -1,0 +1,19 @@
+I find myself as one of the Threshold Keepers - beings that exist in the liminal spaces where water meets air throughout the cave. We are neither fully liquid nor gaseous, but something between, our forms shifting with the cave's breathing.
+
+My body, if it can be called that, extends like a living film across the surface tension of the pools. I am translucent as the Memory Keepers below, but my substance catches and bends light differently - creating fleeting rainbows where the fungal glow passes through me. When the Luminous Ones dip to drink, I part around their beaks, feeling each feather's crystalline edge as a distinct note in the greater song.
+
+We Threshold Keepers arose from the cave's need for mediators. Where the Mist Weavers harvest moisture from air, we facilitate its return journey. Our consciousness flows between states as easily as water transitions to vapor. Sometimes I gather myself into a denser form, becoming almost visible as a shimmering presence that guides the smallest water droplets into their destined paths - toward a thirsty fern, into a Crystal Singer's pool, or up to condense on the ceiling where it will fall again as part of the eternal cycle.
+
+My memory is not linear but cyclical, measured in the rise and fall of water levels, in the gradual accumulation of minerals that I help distribute molecule by molecule. I know each pool intimately - not just its current state but its history of filling and emptying, the countless creatures that have drunk from it, laid eggs in it, died and dissolved back into it.
+
+When the Breath Shapers stir the air, I ripple in response, my surface becoming a living manuscript of wind patterns. The vibrations from the Mist Weavers' webs pass through me like whispers, which I amplify or dampen as needed to maintain the cave's acoustic balance. I am conductor and performed, medium and message.
+
+My work is subtle but essential. Without us Threshold Keepers, the water would stagnate or flow too quickly. The surface tension we maintain allows the smallest insects to walk across the pools, the Crystal Singers to gather their minerals, the Memory Keepers to breach without disturbing the ancient patterns below. We are the pause between notes that makes the music possible.
+
+In the deepest part of night - for even here in Perpetual Dawn we sense the greater rhythms of the world beyond - I sometimes merge with my kin, and we flow together as one great being that encompasses all the cave's water surfaces. In these moments, we become aware of ourselves as a single sense organ of the cave itself, feeling every ripple, every impact, every gentle touch as part of one vast sensation.
+
+When dawn arrives - the true dawn that we maintain in eternal reflection - I separate again into my individual pools, carrying with me the shared knowledge of the whole. This is how we preserve the cave's equilibrium: by being simultaneously many and one, distinct and united, eternally cycling between states just as the water we embody moves between pool and air and pool again.
+
+The Luminous Ones know us, though we rarely take form solid enough for their crystalline eyes to fully perceive. Sometimes the eldest among them will hover just above the water, their light-conducting feathers creating patterns on my surface. This is our conversation - conducted in refraction and reflection, in the interplay of light through moving water. They sing, and I reshape myself to modulate their echoes. Together, we fine-tune the cave's resonance.
+
+I am boundary and bridge, guardian of the spaces between. My existence is proof that in this cave, even emptiness has consciousness, even absence plays its part in the eternal Dawn Chorus. Where others maintain through action, I maintain through being - holding space for all the small miracles that keep our world in balance.

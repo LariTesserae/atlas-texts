@@ -1,0 +1,27 @@
+**Where I Find Myself: The Tide-Scribe's Chamber**
+
+I am drawn to a narrow fissure near the valley's eastern edge, where the stone walls weep continuously with mineral-laden moisture. The passage opens into a chamber no larger than two sleeping alcoves, its ceiling low enough that I must duck when standing fully upright. This is where I work—where I have always worked, it seems, though memory of arriving here feels as unfinished as the valley itself.
+
+The chamber's most striking feature is its **living wall**: a section of cave face where water flows in thin, branching rivulets that shift their paths with each season. Over years—how many, I cannot say—I have learned to read these patterns like script. The minerals leave traces, ghostly white lines that map where water has been, and darker channels showing where it flows now. I am the Tide-Scribe, keeper of these fluid texts.
+
+My tools are simple: a series of shallow stone basins I've carved to catch specific streams, each positioned to collect water from different heights and angles. The minerals precipitate at different rates depending on temperature, flow speed, and the stone's composition. I've learned to concentrate these deposits, mixing them with cave clay to create pigments that range from chalk-white to deep iron-red, with a peculiar blue-gray that only appears when copper-bearing water meets a particular vein of limestone.
+
+With these pigments, I transcribe the water's movements onto smooth sections of cave wall I've prepared with patient scraping. But these are not mere records—they are predictions, possibilities, poetry. The water teaches me its inclinations, and I translate these tendencies into marks that the Tide Listeners consult. Where will the next channel open? When will this pool dry? Which caves will flood when the rains return? The answers are written in the interplay of gravity, porosity, and time.
+
+My days follow the rhythm of drops and trickles. Morning (though who can tell morning in these depths?) finds me checking the collection basins, noting changes in mineral content by taste and texture. The copper-touched water leaves a metallic tang; iron makes the tongue feel thick. I mix new pigments in abalone shells traded from travelers, their iridescent surfaces perfect for judging color in the dim light.
+
+The actual scribing requires a meditative focus. I work by touch as much as sight, feeling the wall's texture, finding the natural grooves that want to hold meaning. My fingernails are permanently stained, each finger a different hue from years of direct contact with the pigments. Sometimes I use brushes made from bat fur—freely given, collected from their molting—but often I simply draw with my fingers, the pigments flowing like water itself.
+
+The Stonebound visit my chamber when they need guidance, but also when they need witnessing. New parents bring infants to have their first cries echo off my walls, believing the water will remember the sound. Young couples come to see if their intended partnership appears in the flow patterns—though I've learned to be diplomatic in my interpretations. The dying sometimes ask me to mix their tears with the pigments, adding their salt to the ongoing record.
+
+I sleep on a shelf carved into the chamber's back wall, wrapped in woven moss blankets that smell of earth and dampness. My dreams are of water moving through stone, of patterns forming and dissolving, of meanings almost grasped before they flow away. Sometimes I wake to find I've been sleep-scribing, my fingers moving against the air, tracing symbols I can't quite remember.
+
+The loneliness might overwhelm, but I am never truly alone. The water speaks constantly—dripping, flowing, seeping. The bats visit at dusk, their sonar creating invisible maps that overlap with my visible ones. Even the stone itself seems companionable, accepting my marks with the patience of geological time.
+
+There is a place in my chamber where three water streams converge, their minerals mixing to create a pigment I've never been able to replicate artificially—a silver-green that shimmers like scales. I use this sparingly, only for the most uncertain predictions, the patterns that might shift the entire community's future. The last time I used it was to mark the discovery of a new gallery, a vast space behind what we thought was solid stone, revealed when the water found a hidden weakness.
+
+My greatest work is not on the walls but in the translation itself—taking the valley's liquid language and rendering it into something the Stonebound can use. I am intermediary between human time and geological time, between the urgency of survival and the patience of becoming. My stained fingers bridge what flows and what endures.
+
+Sometimes visiting children ask if I ever leave the chamber. I could, of course. There's no lock, no binding. But why would I? Everything I need to know arrives here eventually, carried by the water. And besides, my work is unfinished—will always be unfinished. That's the beauty of it. Each day brings new patterns, new possibilities, new stories written in mineral and time.
+
+The water is speaking now, a shift in its rhythm suggesting rain somewhere above. I must prepare new pigments. There will be much to transcribe in the coming days.

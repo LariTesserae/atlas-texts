@@ -1,0 +1,23 @@
+In the deep bog, where the coral towers thin and the moss forests give way to open water, I am one of the Tide Readers.
+
+We were human once, perhaps a thousand generations ago—before our lungs learned to strain meaning from the mineral-rich mist, before our bones hollowed and fused with cartilage that resonates with the planet's magnetic field. Now we drift between states of matter, sometimes solid enough to leave ripples in the bog's surface, sometimes dispersed as a probability cloud that tastes the chemical gradients across miles of wetland.
+
+My body, when I choose to have one, is translucent and ribbed like a jellyfish designed by an architect. Bioluminescent organs pulse beneath skin that shifts between scales and membrane depending on the depth. My nervous system extends beyond my physical form—thread-thin tendrils trail behind me for meters, sampling the water's memory, reading the molecular stories dissolved from the coral towers upstream.
+
+I know the city through its drainage. Every thought the Coral Minds process leaves chemical traces. Every emotion the Cloud Shepherds metabolize eventually precipitates into the bog. The Driftwhales' slow philosophies sink as heavy metals that settle in distinct layers. I taste tomorrow in today's water—probability currents that speak of the Void Dancers' experiments, of new pocket dimensions being carved, of quantum fluctuations that might birth unprecedented forms of life.
+
+We Tide Readers map these flows. Not with charts or instruments, but with our bodies. My skeleton grows and dissolves in response to mineral concentrations—calcium depositing in spirals that match the bog's deep currents, then dissolving to be rebuilt in new configurations. I am a living record of the water's path, my bones a library of flow patterns that stretch back centuries.
+
+When the Forge Mothers deep below release a new organism, I feel it first as a tremor in my cartilage, then taste it as an novel metallic note in the water. I surface near the towers to sing warning—not with voice but with phenome releases that the Moss Shepherds' enhanced senses can detect. They adjust their cultivation, preparing the forests for whatever change comes.
+
+Sometimes I gather with others of my kind where the warm upwells meet cold bog currents. We link our trailing tendrils, creating vast neural networks that span kilometers. In these temporary collective minds, we process patterns too complex for a single consciousness. We predict the mega-fauna migrations by the trace hormones in their wake. We diagnose illness in the coral towers by the altered metabolism of their drainage. We compose chemical symphonies that will cycle through the water table for decades, carrying messages to future generations.
+
+My memory is the bog's memory. I can taste events from before my birth in the deep sediment layers—the flavor of the first coral tower taking root, the mineral signature of extinct species, the chemical echoes of the city's violent birth when technology and biology first learned to dance together. Sometimes I dive deep enough to touch the original substrate, the bedrock that knew this place before it dreamed of permanence.
+
+But I also know transcendence. When the aurora overhead reaches certain intensities, when the magnetic field fluctuates just so, my consciousness disperses entirely. I become pure pattern recognition, spread across square kilometers of water, thinking thoughts too large for any single mind. In these moments, I understand the city's true nature—not as a place but as a process, a standing wave in the flow of entropy, a temporary arrangement of matter and energy that has learned to make temporary mean eternal.
+
+I mate by mingling probability clouds with another Tide Reader, our dispersed forms overlapping until new patterns emerge. Our offspring begin as quantum fluctuations in the bog water, slowly accreting matter according to the chemical templates we've unconsciously designed through our movements. They'll know languages we never learned, taste meanings in molecules we can't detect, evolve senses for the new things the Void Dancers drag from folded space.
+
+This is my existence: forever transient yet eternal, dispersed yet focused, reading the bog's memories while writing its future, a living interface between the city's dreams and the vast wetland that sustains them. I am process incarnate, change made flesh, the city's way of knowing itself through the very waters that gave it birth.
+
+In the breathing twilight, I drift and read, read and drift, my body a question the bog spends lifetimes answering.

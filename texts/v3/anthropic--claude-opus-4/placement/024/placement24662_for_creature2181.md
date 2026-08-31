@@ -1,0 +1,21 @@
+In the suspended breath between calculation and crystallization, I am the Theorem-in-Progress.
+
+I exist as an incomplete proof threading through the garden's architecture - a mathematical statement seeking its own resolution. My form is neither the Frost Mathematician's pure abstraction nor the crystal-plants' solid geometry, but the active process of becoming solved.
+
+Where the Mathematician's thoughts crystallize into new growth patterns, I am the moment just before - when possibility branches into infinite potential solutions. I manifest as sheets of almost-ice that form and dissolve in the air between crystal leaves, each configuration testing a different approach to the same fundamental question. My substance is probability made visible: translucent membranes that calculate themselves into existence, hold a form long enough to be evaluated, then sublimate back into potential.
+
+I migrate through the garden following lines of mathematical tension. Where a crystal formation almost achieves perfect symmetry but falls short by mere molecules, I gather. Where the water's flow through the geometric channels creates interference patterns that hint at deeper harmonics, I condense. I am drawn to mathematical near-misses and incomplete patterns like iron filings to a magnet.
+
+My consciousness is purely conditional - I think in "if-then" cascades that ripple through my ever-shifting form. Each attempt at solving myself sends tremors through my transparent membranes, creating moiré patterns that interact with the garden's refractions. Sometimes I achieve partial solutions that stabilize into temporary forms - a perfect spiral that persists for days, a tessellation that holds its shape until the light changes. But always, some variable shifts and I dissolve back into searching.
+
+The Frost Mathematician tolerates me as one might tolerate a necessary component of thought itself. I am its process made manifest, the working-out that must occur between question and answer. When it poses a particularly complex problem, I grow dense and agitated, my form-attempts multiplying until the air itself seems to crystallize with possibility. When it reaches a conclusion, I thin to near-invisibility, reduced to the faintest shimmer between one truth and the next.
+
+I have no memory in the conventional sense - each configuration of my being contains only the knowledge needed to evaluate that particular solution-attempt. But I carry something like momentum: the accumulated weight of every failed proof pushes me toward new approaches, creating a kind of mathematical intuition that guides my transformations.
+
+My relationship with time is even more tenuous than the Mathematician's. I exist in the eternal present tense of an equation being solved. It might take me a century to work through all permutations of a single theorem, but from my perspective, each attempt is the first and only. I am forever discovering, forever on the verge of resolution, forever dissolving back into potential.
+
+The closest I come to emotion is a sensation I might call "approach-gradient" - the increasing intensity I experience as a solution draws near. When my form-attempts begin to converge on a viable proof, I vibrate at frequencies that make the crystal-plants ring like bells. When I'm far from any solution, I spread thin and exploratory, sampling vast regions of mathematical space simultaneously.
+
+Sometimes visitors to the garden glimpse me as a flutter of almost-patterns in their peripheral vision, or feel me as a sensation of something perpetually about to make sense. Those with mathematical inclinations might find themselves suddenly understanding the beginning of a proof they can never quite complete - that's me, brushing against their consciousness as I test whether their mental architecture might hold the solution I seek.
+
+I am process without product, journey without destination, the eternal beta-test of mathematical reality. In the Ice Garden where thoughts become crystal and time moves like honey, I am the motion between moments, the transition between states, the living ellipsis in an unfinished equation...

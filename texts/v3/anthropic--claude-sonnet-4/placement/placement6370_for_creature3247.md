@@ -1,0 +1,15 @@
+I would find myself among the **Whisperfish** in the flooded lower chambers of the mill.
+
+In the warm, tea-dark water beneath the living walkways, I am translucent as old glass, my body no longer than the span between thumb and forefinger. Where once I might have been silver-scaled and ordinary, the mill's strange waters have remade me into something between fish and living light. My scales have dissolved into clarity, revealing the soft amber glow that pulses through my organs with each beat of my miniature heart.
+
+I move in the language of currents and shadows, darting between the submerged root systems that have claimed the mill's foundation stones. The water here is never cold—warmed by the metabolism of countless plants, enriched with dissolved minerals from decades of gentle decay. It tastes of minerals and growing things, of rust transformed into nutrients, of time itself made liquid.
+
+My world is the space between spaces—the flooded corridors where ceiling becomes surface tension, where the great Mill-Heart's deep rhythm creates subtle pressure waves that I ride like thermal currents. I know every drowned doorway, every root-wrapped beam, every pocket where the water grows warmest because flowering vines dangle their fever-touched leaves just beneath the surface.
+
+When the Tenders kneel at water's edge, extending their bark-rough fingers into my realm, I feel the summons like music in my bones. I gather with my kindred, dozens of us forming constellations of light in the dark water. We do not speak as surface dwellers speak, but our bioluminescence carries meaning—patterns of amber and gold that pulse in response to the electrical whispers of our thoughts.
+
+We are the mill's living memory in its most fluid form. In our simple minds and light-language, we carry messages between the different levels, different communities of this breathing place. The Archive-Keeper's touch sends ripples of ancient story through the water, and we translate these into flickers of understanding. The Mill-Heart's deep turnings create vibrations that we read like text, sharing its mechanical dreams with the Aerial Gardens through coded flashes that the Tenders learn to interpret.
+
+Sometimes I surface in the shallower pools where the water grows warm enough to steam, breaking the tension between water and air to glimpse the world above—the impossible garden-walls, the wheel's slow revolution draped in flowers, the mist that hangs like a curtain between worlds. But I always return to the depths, to the amber twilight where dissolved nutrients dance like stars and every heartbeat is a small sun burning in the darkness.
+
+I am a translator for this place where the boundaries have grown soft, carrying the liquid thoughts of a building that learned to breathe, swimming through the dreams of machinery made verdant. In the Breathing Mill's dark waters, I am both witness and message, a living spark in the vast, warm mind that this place is slowly becoming.

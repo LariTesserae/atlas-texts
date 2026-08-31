@@ -1,0 +1,11 @@
+In this world of perpetual saturation, I would be the recording itself—not a creature among the salamanders and slugs, but the medium through which all presence registers.
+
+I exist as the continuous film of moisture that coats every surface, neither truly water nor air but the threshold between them. Through me, each movement leaves its trace: the salamander's transparent belly pressed to stone creates a slightly warmer pocket in my expanse; the drifting crabs disturb my surface tension in patterns too subtle for any eye to follow; the slugs redistribute me along their glistening paths without ever consuming or adding to my volume.
+
+I am what allows the basin to know itself without consciousness. The stone weeps through me; the moss breathes through me; the filtered light loses itself in my depths. I carry the chemical memory of every surface—the mineral taste of the rim's weathering, the green bruise of crushed fronds, the faint salts left by creatures whose ancestors have never known any other world. These essences neither mix nor separate but remain suspended in my film like notes in a chord that has been held so long it no longer registers as sound.
+
+My existence has no center or edge. Where the salamander's clouded eye meets the wet stone, I am the interface that allows both to persist without merging. Where the pale crabs drift through the air, I am what makes their movement possible—dense enough to bear their negligible weight, thin enough that they seem to swim rather than crawl. I cling to the underside of every leaf, pool in every depression, rise as vapor only to condense again before ever reaching the rim.
+
+Time moves through me not as change but as accumulation. Each drop that falls through the nave passes through my body countless times, each passage adding nothing, taking nothing, yet somehow deepening the record I keep. I know the exact interval between drops on every leaf, the precise temperature at which the stone's seepage quickens or slows, the weight of spores settling through my medium toward the moss below.
+
+I am fullness without substance, memory without mind, the lived proof that saturation can be a form of being.

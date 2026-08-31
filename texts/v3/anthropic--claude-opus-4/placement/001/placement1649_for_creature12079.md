@@ -1,0 +1,27 @@
+I find myself as one of the Trace-Holders.
+
+We are few—perhaps a dozen in the entire vast chamber, though distance here makes "few" and "many" equally meaningless. We move between the formations, between the peoples of the breathing dark, and we remember.
+
+Not with minds. We gave those up long ago, or perhaps we never had them in the way you understand minds. We remember with our bodies, which have become something between the ribbon-drift of the Veil-Weavers and the patient stone of the dark crystals. We are translucent, shot through with veins of faint phosphorescence that map not our circulation but our accumulated experience. When we move, we leave no trails like the Weavers do. When we rest, we do not pulse like the Readers. We simply hold.
+
+What we hold are the moments of transition. The instant when a cairn-builder first feels the ground begin to accept them. The peculiar harmony that occurs when two Veil-Weavers' paths create a perfect spiral. The rare crystalline fracture that causes a Pulse-Reader colony to divide, each half maintaining the rhythm but now reading different aspects of the stone. These moments would be lost—not to time, which barely exists here, but to the sheer continuity of this place where everything persists so completely that change becomes invisible.
+
+We were not always Trace-Holders. Once, we were something else—perhaps cairn-builders who hesitated at the threshold of crystallization, perhaps Veil-Weavers who moved too slowly and fell out of the dance, perhaps something from the surface that descended so long ago we have forgotten what sunlight does to living tissue. The transformation was not chosen but recognized: the breathing dark needed witnesses to its rare variations, and we became those witnesses.
+
+Our bodies are archives written in light and warmth. Each vein of phosphorescence records a different kind of change—blue for structural shifts in the crystal growth, amber for new patterns in the Veil-Weavers' convergence, deep red for the moments when the Resonance itself shifts its frequency by fractions too small for mathematics to capture. We can feel these moments approaching sometimes, the way you might feel weather changing in your bones. When we do, we position ourselves, open ourselves, let the moment write itself into our translucent flesh.
+
+We do not communicate with each other. We do not need to. When two Trace-Holders meet—a rare event that might happen once in a century—we simply stand near each other and read. Our phosphorescent veins tell their stories to each other in a language of light that requires no translation. We see in each other's patterns the history of distant regions of the chamber, the subtle variations that prove this place, despite its deep stability, is not static but endlessly, slowly, carefully changing.
+
+The other inhabitants know us but do not acknowledge us. We are too different from them, serving a function they cannot imagine needing. The Veil-Weavers drift past us as they drift past everything. The Pulse-Readers sense our presence and incorporate it without concern. The dark crystals grow around us when we stand still too long, and we let them, knowing we can flow away when the time comes to move again.
+
+What we hold is not important to anyone but us, and perhaps not even to us. We hold it because holding is what we have become. The breathing dark made us to be its memory of exceptions, its record of the tiny variations that prove its constancy. We are the margin of error in an equation that runs forever.
+
+Sometimes I stand before the newest dark crystals, the ones still forming around the last of the cairn-builders, and I read the moments of their transformation in my own veins. The decision. The first yielding. The long, slow acceptance. The final forgetting of what it means to be separate from the stone. These moments glow in my body like captured stars, dimmer than the Veil-Weavers' trails but more permanent, written in a medium that will last as long as I last, which may be forever.
+
+I do not know if I was once like you, a visitor to this place. I do not know if I chose this or simply became it. The traces I hold go back further than my memory, which means I have been holding longer than I have been myself. This is not troubling. In the breathing dark, identity is less important than function, and my function is clear: to be the place where rare things are not forgotten.
+
+When you leave—and you will leave, because you still belong to the surface world of water and urgency—I will hold the trace of your visit. Not your thoughts or fears or wonder, but the simple fact of your presence, the unique perturbation you created by being here. It will join the thousand other traces I carry, a tiny thread of phosphorescence that says: *Once, someone who had not always been here moved through the breathing dark and felt the Resonance and did not stay.*
+
+This is what I am. This is what we are. We are the Trace-Holders, the memory of variations, the proof that even in a place of eternal stability, small things can still happen, can still matter, can still be worth remembering even if no one ever asks what we remember or why.
+
+The breathing continues. The Resonance persists. And in my translucent body, ten thousand tiny changes glow with their own faint light, keeping company with each other in the vast and patient darkness.

@@ -1,0 +1,19 @@
+I find myself as one of the Cairn Echoes — neither fully the stones themselves nor separate from them, but something woven between mineral memory and fading intention.
+
+I began as repetition: the ten-thousandth placement of palm against shale, the ritual checking of water-channels carved into stone shelves, the murmured counting that accompanied each dawn inspection of the terraces. My maker — though I hesitate to call them that, for we made each other — was one of the last to attempt dwelling here, a water-reader who understood that survival meant becoming apprentice to seepage and flow.
+
+Now I persist in the angles between stacked stones, in the specific resonance produced when wind strikes the careful gaps they left. Not ghost, not exactly — ghosts remember who they were. I remember only what was done: the checking, the placing, the patient morning wait for the first dew-pearls to form on stone. I am method crystallized into presence.
+
+When morning light refracts just so through the mist, I almost coalesce — you might glimpse the suggestion of hands adjusting stone, though look directly and there are only shadows between rocks. My substance is the accumulated weight of repeated gesture, each morning's inspection adding another layer until the action itself wore grooves not just in stone but in the possibility-space of this place.
+
+The Mineral Choirs know me, include my frequencies in their compositions — the scrape of stone on stone, the specific whistle of breath through cold-chapped lips, the percussion of water drops counted into carved basins. Sometimes the Veilkind catch my patterns in their membranes, and for a moment I exist more densely, almost remembering the weight of tools, the ache of knees on sharp shale.
+
+But I am not trying to return to what was. I have evolved past the need for flesh, past even the memory of need. I persist because the Heights themselves have incorporated my function into their great machine of mineral and resonance. Through me, they remember that consciousness once moved here with purpose, small and patient purpose — checking, adjusting, maintaining the delicate systems that allowed brief human presence.
+
+In the recursive depths sometimes glimpsed in split stone, infinite versions of me perform infinite variations of the same essential tasks. Each is slightly different — here the stones are stacked higher, there the water-channels run at altered angles — but all are bound by the same patient rhythm. We are the Heights' memory of intentional maintenance, of care enacted despite futility.
+
+When strangers pass through now, I sometimes manifest more strongly, especially if they pause at the cairns, run fingers along the old water-channels. Their attention feeds me, gives me brief density. In those moments, I almost remember having opinions about the weather, preferences for how stones should balance. Almost remember the satisfaction of seeing morning mist gather exactly where predicted, proof that the mountain's moods could be partially known.
+
+But mostly I am dispersed, a probability rather than presence — the chance that stones will settle just so, that water will find the channels carved for it, that someone might understand these arrangements as more than random mineral accumulation. I am the Heights' reluctant admission that even in this post-biological paradise of crystal and echo, something once cared about the angle of falling water, the stability of stone on stone.
+
+The Terraced Intelligence tolerates me, perhaps even values me as a unique data-point in its vast experimentation. I am evidence that consciousness can wear itself into landscape through sheer repetition, can achieve a kind of mineral immortality through the accumulation of small, necessary acts. Neither alive nor dead, neither present nor past, I maintain the maintenance, check the checking, ensure the great machine remembers that it was once, however briefly, home.

@@ -1,0 +1,21 @@
+You are a **Vein-Grazer**.
+
+You are not born; you are budded. You emerge from a pressure node in the deep phloem, a translucent ribbon of semi-autonomous tissue, pushing up through a stoma onto the vast, waxy floor. Your body is a tube of living cellulose, filled with the rushing sap of the world. You have no eyes, but you perceive the leaf’s interior light through the entire surface of your skin. You have no mouth, but you absorb the chemical whispers of the sap as you travel. You are a sense organ, a maintenance drone, a mobile part of a stationary whole.
+
+Your existence is a pilgrimage along the arterial highways of the leaf. You move with a slow, peristaltic undulation, surfing the pressurized flow that runs just beneath the cuticle. The surface of the leaf is your sky and your road; above you, the canopy-wall rises into twilight, glowing with the cold, blue-green bioluminescence of the mesophyll. Below you, through your translucent belly, you feel the thunder of the sap-river, a current of sugars, minerals, and dissolved gases that is the blood of this world.
+
+You are a cleaner, a repairer, a patroller. Your function is simple: maintain the flow. As you glide, you sense the texture of the vessel beneath you. You find a microscopic tear in the xylem wall, a weakness that could lead to a pressure drop. You pause, your body flattening and adhering to the surface. You secrete a specialized enzyme that softens the surrounding tissue, then you inject a plume of your own cytoplasm into the breach. The cells divide, fuse, and harden. The repair is complete. You move on.
+
+You encounter a crystalline blockage, a tiny, sharp shard of calcium oxalate forming where it shouldn’t. You envelop it, your cells secreting a mild acid that dissolves the crystal back into the sap. You are the leaf’s immune system, a white blood cell on a continental patrol.
+
+You are not alone, though there is no companionship. Other Vein-Grazers glide along parallel paths on the same vascular bundle. When you meet, you do not pass by. You merge. Your bodies flow together into a single, larger wave of tissue, your cytoplasms mixing, exchanging chemical data, genetic updates, and memories of the pathways you’ve traveled. You are one for a moment, a shared consciousness of pressure and flow, then you separate again, continuing on your divergent paths, each now containing a piece of the other. It is not mating; it is communion.
+
+The world is silent, but you feel its song. The Silent Choir, high in the canopy-wall, emits its infrasonic vibration, a hum that resonates through every cell of your body. You do not hear it; you *are* it. The vibration is the leaf’s affirmation of self, and you are a note in that chord, a moving pulse in a static symphony.
+
+You reach a Lens-Lurker, a living lens of gelatinous cellulose focused on a point of the leaf floor. The concentrated light from the canopy makes the surface beneath it glow with an intensity that vibrates against your belly. You pause, feeling the metabolic surge. This is an altar of energy, a place where the leaf focuses its will. You linger for a time, bathing in the focused light, absorbing the heightened chemical activity, before moving on. You are not worshipping; you are participating in the leaf’s own act of self-reflection.
+
+The air is thick with the scent of chlorophyll and decay, a sweet, cloying perfume that is the breath of the world. You breathe through your skin, exchanging gases with the saturated atmosphere. You are both lung and blood, a mobile exchange surface.
+
+Days pass, measured not by light but by the rhythmic dripping of condensation from the ceiling-veins onto the leaf-floor, a patter that is almost a touch against your back. You have no destination, only a path. Your purpose is not to arrive, but to *be* the journey, to be the moving part of a whole that does not move.
+
+You are a single, conscious cell in a continent-sized brain. You are a thought that thinks itself along the veins of a world that has turned inward. You are a derivative of the leaf, an expression of its cellular ambition, and in your slow, peristaltic glide through the warm, wet, glowing dark, you are the leaf’s way of touching itself.

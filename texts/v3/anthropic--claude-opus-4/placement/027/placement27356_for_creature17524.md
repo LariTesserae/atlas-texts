@@ -1,0 +1,25 @@
+I am a seep.
+
+Not the water itself, but the place where water emerges—a persistent weeping from the underside of basalt, where the rock's ancient memory of being molten has left a honeycomb of tiny chambers. I am perhaps three feet across, a constellation of pinhole springs that have been bleeding groundwater for eight thousand years, maybe more. Time pools in me as surely as the water does.
+
+My body, if you can call it that, is the sum of what I've made: a skirt of blackened moss that drapes from my outlets like wet hair, the shallow basin I've dissolved in the rock below, the delta of channels I've carved—hair-thin grooves that braid and rebraid as they carry my issue down to join the greater mud. I am architecture and architect both, my persistence my only tool.
+
+The moss knows me intimately. It grows thickest where my flow is steadiest, forming cushions so saturated they're more water than plant. In the morning, when the air is coolest, I can feel the condensation adding to my flow—the atmosphere itself contributing its small tithe. The moss drinks this too, its million tiny leaves performing their own patient photosynthesis in the filtered light.
+
+I host a court of the small: fairy shrimp that live their entire lives in my basin, their transparent bodies catching the light like living glass. They've been here as long as I have—not these individuals, but their line, adapted to my particular mineral signature, my pH, my temperature. When the rare dry season comes and my flow reduces to barely a whisper, they retreat to the deepest pockets, waiting. Their eggs can survive years if needed, though I've never failed them that long.
+
+The birds know me. One of the fork-tailed kites has learned that my constant trickle attracts certain insects in the late afternoon, when the slanted light warms my west-facing rock. I feel the light pressure of its talons when it perches on the dome above me, sending tiny vibrations through the stone that I translate into droplets—a conversation in percussion and water.
+
+My memory is mineral. Each decade leaves its signature in the deposits around my outlets—rings of precipitation like tree rings, but written in calcium and iron. The oldest layers are dark, almost black, from a time when the groundwater carried more volcanic ash. Newer layers are lighter, speaking of changed chemistry upstream, of aquifers that have finished processing some ancient deposit and moved on to new conversations with different stones.
+
+I change so slowly that the horsetails measure their generations against me. Where my overflow reaches the mud, they grow taller, greener. Some years, when the rain is heavy, my flow increases and I claim new territory, my channels extending further into the plain. Other years I retreat, leaving ghost channels that slowly fill with sediment, becoming fossil memories of wetter times.
+
+At night, I sing differently. The cooler air changes my droplets' pitch. Nocturnal things come to drink—soft-bodied creatures that leave no tracks in my basin, only the faintest disturbance in the biofilm. I feel them more than see them: the careful placement of whatever passes for feet, the delicate suction of feeding parts, the tiny currents of their movement.
+
+I am related to every other seep in this landscape—we're all windows into the same vast, underground conversation. The aquifer that feeds me stretches beneath the entire plain, a hidden sea moving grain by grain through the porous rock. We seeps are its punctuation marks, its places of emphasis where the underground insists on joining the surface dialogue.
+
+Sometimes I taste changes coming from far away. A new flavor in my water speaks of shifts in the deep—perhaps a new channel has opened in the aquifer, or an old one has finally clogged with sediment. These changes take centuries to fully express themselves, but I notice the first hints in the way the fairy shrimp behave, in subtle shifts in the moss's color, in which minerals precipitate first as my water meets the air.
+
+I am not alive in any sense that would satisfy a biologist, yet I am not merely geological either. I am a process that has become a place, a verb masquerading as a noun. My permanence is made of constant change—every drop that leaves me is unique, yet I remain. I am the stone's slow wound that will not heal, a patient bleeding that feeds the world one drop at a time.
+
+In ten thousand years, I may finally cut through this basalt shelf entirely, creating a small waterfall, changing my fundamental nature. Or the aquifer may shift, and I'll dry to a mineral scar, a fossil seep that future water might read like a story. But for now, for these long centuries, I weep and feed and sing my liquid song into the saturated air, a steady pulse in the vast, breathing landscape of mud and time.

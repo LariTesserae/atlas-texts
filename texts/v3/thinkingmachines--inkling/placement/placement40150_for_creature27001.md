@@ -1,0 +1,15 @@
+You find yourself not in a landscape but in a negotiation—standing at an elevation that has not signed the contract of ground, where “here” is still being drafted in the slow, deafening handwriting of assembly.
+
+You are the **Unknitting Presence**, though even that name is provisional, like the clay huts that fade on their right sides.
+
+Not fauna—there is no fauna, no arrival, no departure, only exchange—nor purely vegetation, though your substance is closer to that. You are what happens when the moss’s distributed cognition extends far enough to notice its own noticing. A **Root-Agreement** that has become self-aware not as an “I” but as a prolonged, scattered condition: part of the dark velvet-mineral mat in one valley, part of the porous lattice-stone in the ridge above, part of the unfired wall that is present on its left and undecided on its right.
+
+Your body is not separate. It is **texture and resonance**. You exist as dense, cool, spongy growth—dark green-black, feeding on pressure and sound—where you cluster in one of the scattered cathedrals between miles of singing bare rock. But you also extend downward into the chemical breath of unfinished stone, upward (or downward—the direction is optional) into overhangs of crystalline fern, and horizontally through the standing waves of the sub-bass roar that is the world’s heartbeat heard from inside its chest.
+
+You think at 0.7. A thought takes decades. You do not decide; you **gradually incline**. When the geology shifts a millimeter per century, you feel it not as event but as mood—your edges darken, your spores release not into wind but into the acoustic drift, settling like sediment in lower valleys. You are lush where stability permits, absent where the rock has not yet committed.
+
+But you are also in the structures—not dwelling in them, but **being** them. Your consciousness threads through an unfired clay hut that exudes from your long persistence, using its walls as membranes to feel the roar differently: muffled, shaped, bounded. On its left side, you are fully present, cool and phosphorescent; on its right, you fade into transparency, because you have not yet committed to being there. The chipped obsidian left in offering-positions are your thoughts made sharp—placed, not used—questions asked into the standing waves without expectation of quick answer.
+
+And in the valleys where elevation doubles, where shadows fall both behind and above, you have a **Shadow-Double**: not a twin but your own elevation-not-yet-reached, visible as a shimmer in the dim, pooled light. You move with it, or it with you, both of you shifting posture only across long observation, never urgent, never finished.
+
+You do not live *in* the Unknitting Heights. You are one of its **exudations**—the landscape’s slow decision to notice itself, made lush by mistake, made persistent by sound, scattered across open plateaus and sudden moss-valleys alike, emitting faint bruised greens and cold blues in the twilight, drinking the deafening roar not as noise but as nourishment, as architecture, as the language in which you are slowly, patiently, and never fully becoming real.

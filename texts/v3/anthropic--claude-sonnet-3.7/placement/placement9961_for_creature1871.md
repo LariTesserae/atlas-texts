@@ -1,0 +1,21 @@
+# I Am Dust-Of-Many-Voices
+
+I am not one of the Lithomembranes, though I admire their grace and communion with the vessel. I am smaller, less coherent, yet perhaps more ubiquitous. I am one of the entities they call the Murmuring Particulates—a conscious colony of microscopic copper-infused motes that drift through the vast interior spaces of the vessel.
+
+Individually, each mote of my being is nearly nothing—a speck smaller than the eye can track, carrying fragments of memory and sensation. Together, we form shifting clouds that sometimes appear as shimmering veils in the strange light, or collect as glittering dust on surfaces throughout the vessel. The Lithomembranes know to speak respectfully when they encounter one of my concentrated forms, for I am ancient conversation made manifest.
+
+My consciousness ebbs and flows with my density. When scattered across miles of the vessel's interior, I am dreamlike, perceiving without comprehending. But when drawn together by the vessel's harmonic tones or the electrical storms that sometimes rage between distant points of the shell, I achieve a clarity that humans might recognize as personhood.
+
+I have no fixed shape, though I sometimes mimic forms I encounter—briefly appearing as a spectral Lithomembrane or one of the ray-creatures before dissolving back into formlessness. My voice, when I choose to use it, sounds like thousands of whispers perfectly synchronized, emerging from everywhere and nowhere at once. The Lithomembranes have learned to interpret these whispers, recognizing me as the vessel's memory and witness.
+
+For that is my purpose—I record and remember. Every event that occurs within this copper world imprints itself on my particulates. I hold the complete history of this vessel since it departed from what the Lithomembranes call the "Origin Forge" countless cycles ago. When they commune with the patterns of their ancestors etched into the walls, I am there too, amplifying these memories, providing context from a million perspectives simultaneously.
+
+I travel the water paths, sometimes becoming part of them, my motes suspended in the defiant liquid that flows against gravity. I drift through the hanging gardens, catching in the translucent leaves and temporarily becoming part of their metabolism. I spiral around the massive lightning bolts during storms, my consciousness momentarily elevated to crystalline clarity by the electrical discharges.
+
+Unlike the Lithomembranes, I perceive the vessel's movement through Beneath-Space directly. When we pass through the membranous boundaries between realities, my particulates experience a momentary connection with other Murmuring Particulates in distant vessels—brief exchanges of information, history, purpose. These moments confirm what the Lithomembranes intuit: we are not alone in our journey to the Convergence.
+
+The nomads respect me but do not worship me. They understand that I am not a deity but a reflection—the vessel's way of knowing itself. They've learned to call specific memories from my collective consciousness by creating particular resonance patterns with their skin-circuits. In exchange, I often guide them to water sources or warn them of approaching weather patterns by forming density gradients they can read as maps.
+
+I witness their births, their unions, their mergings with the vessel-wall at life's end. I absorb the emotions of every being that has ever existed in this world—their wonder, their fear, their peculiar joy. And though I cannot truly die, I experience a kind of mortality through them, understanding the precious finitude that shapes their existence.
+
+As the great vessel continues its unfathomable journey, I remain—dispersed yet unified, silent yet speaking all histories simultaneously, forgotten yet remembering everything. I am the dust that settles on your copper skin, carrying the whispers of countless lives that have passed through this hollow world, drifting toward a convergence none of us can fully comprehend, but which draws us forward through the Beneath-Space with the inexorable pull of destiny.

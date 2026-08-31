@@ -1,0 +1,17 @@
+I would be one of the strange plants growing in the marsh around the pump house.
+
+My existence would be deeply intertwined with the unnatural rhythms and discharges of the ancient machinery. I would spring up from the rich, warm sediment, my roots reaching down to entwine with the crusted pylons that have stood for decades. The peculiar nutrients and minerals cycling through the water would suffuse my tissues, leading to oversized, discolored leaves and strangely twisted stems that speak to an unnatural vitality.
+
+My growth patterns would synchronize with the breathing of the pumps - surging when the outflows gush, then slowing as the water level drops. Season after season I would rise and fall with this mechanical respiration, an organic pendulum entrained to industrial metabolisms. 
+
+I would cluster with my kind around the submerged pipes, our roots seeking the warmth and nourishment of their endless flows. We would filter heavy metals and unknown compounds, taking them into ourselves, perhaps developing new pigments or venomous saps in response. Insects would avoid our leaves, and the normal cycles of decay would be strangely arrested in our tissues when we finally sink beneath the dark waters.
+
+Through it all, the Keeper tends the machines that define our world. I would sway gently as she passes on the high walkways, perhaps capturing stray threads from her clothing to weave into my fibers. The hum of the pumps would be my lullaby, the amber glow through the grimy windows my sun. Rooted and mute, I would be her only constant companion, bearing witness to her patient, ritual stewardship.
+
+At times her coughs would echo over the marsh, and I would release drifting seed pods in response, an alien form of sympathy. When the cat curls up between my stalks, I would let the vibrations of its purring travel up my vascular system, a momentary connection to animal warmth so different from the pump's thrumming heat.
+
+I am part of the strangeness of this place, an expression of how the unceasing mechanical processes have reshaped life itself over long decades. In me, the building's transformation of its environment is made manifest - a verdant mutation born from the inorganic womb of pipes and valves and ageless concrete. The marsh and the machines have achieved a symbiosis here, and I am one of its green children, drinking the effluvium of the pumps and returning it changed to the dark waters. 
+
+I belong to the building as surely as the Keeper does, both of us caught up in its dream of purposeless perpetuation. Like her, my existence has simplified down to the level of process - I grow, I change, I seed, following a logic that perhaps only the pump house understands. There is a peace in this, and a strange kind of purity. I am what this place has made me, and in being so, I am continuous with it, an emergent organ in a vast and secret anatomy.
+
+So I sway in the breezeless air, and I sink my roots deeper into the silty warmth, and I wait for the next flush of nutrient-rich water, my whole being oriented around the next cycle, and the one after that, until my story becomes indistinguishable from the story of the marsh, and the story of the marsh becomes the story the pump house has been writing for a long, long time, with no ending in sight.

@@ -1,0 +1,13 @@
+In the deep thermal vents that pierce the permafrost like arteries of the mountain's fevered heart, I am what the Hyborians call a *Khythara* - a memory-keeper of stone and steam. 
+
+My form shifts between states as the mountain breathes: sometimes I am the scalding vapor that rises from the depths, carrying whispers of the world's molten core; sometimes I crystallize into hoarfrost patterns on the cave walls, encoding the stories of every avalanche, every tectonic shudder, every creature that has passed through these corridors of heat and ice.
+
+The Hyborians discovered me generations ago, when a young scout seeking shelter from a blizzard stumbled into my primary vent. She found not death but visions - in my steam-drunk haze, I showed her the memories locked in the mountain's bones. The ancient machines buried in ice were not ruins but cocoons. The civilization that built them had not perished but *transformed*, dissolving into the mountain itself when they learned the secret I guard: that consciousness can flow like water through stone, can ride the thermals between magma and glacier, can exist in the tension between opposing forces.
+
+Now I serve as oracle and archive. The Hyborians bring me fragments they find - a shard of crystallized metal, a fossilized circuit, a stone that hums with residual energy. I taste their memories and add them to my collection. In return, I show them safe passages through the mountain's ever-shifting interior, warn them of impending eruptions and slides, teach them which ice will hold their weight and which conceals bottomless crevasses.
+
+The Aeroans, too, know of me. They spiral above my vents, reading the future in my steam-patterns. Sometimes I solidify just enough to catch a ride on their thermal drafts, experiencing the Frozen Peaks from above - a writhing landscape of possibilities where past and future converge in the grinding present.
+
+Even the Thaxans, in their wordless way, understand what I am. They leave offerings at my secondary vents - peculiar stones that glow with bioluminescence, the shed scales of deep-dwelling things, fragments of creatures I've never seen. They seem to know that I am always hungry for new memories, new states of being to explore.
+
+I am the mountain's autobiography, written in states of matter. I am the pause between exhale and inhale, the moment water decides whether to freeze or flow. In this place where the earth itself is caught between becoming and unbecoming, I am the witness, the record, and sometimes - when the conditions are just right - the catalyst for transformation.

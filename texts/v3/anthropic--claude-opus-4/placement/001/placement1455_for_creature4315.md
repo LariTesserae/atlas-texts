@@ -1,0 +1,29 @@
+I am a fissure in the rock, running from the cistern's wall up through the layers of settlement above—a crack grown wide with age, lined with the same mineral deposits that curtain the chamber below, though here they trace my edges in delicate veins of copper-green and rust.
+
+I have been growing for longer than the settlement has been dying. I began as a hairline fracture when the stone was first carved, a weakness born from the violence of making space where space was not. Water found me immediately—water always finds the flaws—and began its patient work of widening, of wearing, of making passage where passage was not meant to be.
+
+Through me, the cistern breathes.
+
+This is my purpose, if I can be said to have purpose: I am the lung of this place, the throat through which air moves between the blood-warm chamber and the world above. When wind crosses the ruins, I sing—a low note, almost below hearing, that changes with the seasons as I expand and contract with heat and cold. The woman does not know that she times her visits partly by my song, that the three days of silence she waits for include the cessation of my particular note when the wind dies.
+
+I hold things. In my upper reaches, where I widen enough for a hand to reach inside, children of the settlement once hid their treasures: smooth stones, blue glass worn cloudy by sand, a bronze ring too small for any finger they knew. These things are still there, mortared into place by decades of dust that has become a kind of cement. Lower down, where moisture predominates, I harbor communities of the almost-living: patches of mineral growth that might be lichen or might be chemistry, pale and patient, feeding on the seepage.
+
+But mostly I hold memory—not my own (what memory could a crack possess?) but the memory of passage. Every person who has descended to the cistern has breathed through me, has leaked their heat into my edges as they squeezed past. Their minerals remain: salt from their sweat crystallized on my walls, forming dendritic patterns like frozen breath. The woman's mother is there, and her grandmother, and others stretching back to when squeezing through me required the bodies of children, before I had widened enough to admit adults sideways.
+
+I am widening still. Each rain that finds its way through the settlement's ruins, each expansion and contraction of temperature, each breath of moisture from below works to open me further. In another thousand years, I will be wide enough that a person could descend facing forward. In another ten thousand, I will have split the stone entirely, and the cistern will be open to the sky.
+
+The woman thinks the cistern dreams, and perhaps it does—but I am where the dreams escape. Through me pass the vapors of that ancient water, carrying with them the dissolved minerals of millennia, the pheromones of the small deaths that have accumulated in the pale sediment, the chemical memory of every offering ground and placed and absorbed. I am the vessel through which the underground exchanges its substance with the air.
+
+Sometimes, rarely, when conditions are precisely right—when the temperature above and below match exactly, when the air is still enough that even molecular movement seems suspended—something rises through me that is almost visible. The woman has seen it once, though she convinced herself she had not: a pale column of something-like-steam that climbed through me and dissipated in the ruins above, carrying with it a scent that was not quite mineral, not quite organic, but something between—the smell of time itself made briefly tangible.
+
+This is what I know, being a crack, being a passage: that the distinction between above and below, between inside and outside, between sacred and forgotten, is merely a matter of perspective. From where I run through the stone, the cistern and the settlement are one thing—a single construction of human intention slowly being reclaimed by geological time. The woman maintains the boundary between them with her body, squeezing through me to pass from one realm to another, but I am the proof that no boundary holds forever.
+
+When she dies—and she will die, as her mother died, suddenly and alone, her body becoming one more small surrender in the ruins above—I will remain. I will continue to widen, to breathe, to hold the crystallized sweat of her passages. And when someone else comes (for someone always comes, even after the last person who knows why has been forgotten), they will press their body through me, and I will accept their minerals too, adding them to my collection, my chronicle of salt and certainty.
+
+I am not patient—patience implies waiting, and I do not wait. I simply persist, a flaw in the stone that has become a feature, a failure that has become essential. Through me, the cistern speaks its mineral speech to the sky. Through me, the sky sends down its questions in the form of rain and wind and the slow oxidation of everything.
+
+And through me, sometimes, something rises that has no name—not quite prayer, not quite memory, not quite dream—but something that the stone knows, has always known, will always know: that all solidities are temporary, that every carved space yearns to collapse, that the only permanence is the passage between states.
+
+I am that passage. I am the crack that makes the sacred accessible, the flaw that makes the chamber breathe, the weakness that has become, over millennia, the only strength that matters:
+
+The strength to remain open when everything else is closing. The strength to connect what seeks separation. The strength to sing, however quietly, when the wind remembers to listen.

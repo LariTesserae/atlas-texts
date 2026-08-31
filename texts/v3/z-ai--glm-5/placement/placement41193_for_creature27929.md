@@ -1,0 +1,79 @@
+I find myself drawn to the vegetation. Not the work of tending it — though that comes — but the fact of it. Those strained pockets of green in a place that chose metal. The tough, sparse growths rooted in manufactured soil-substitute. The description says they are not decorative. They are functional: air scrubbing, particulate filtering, the minimal softening of angles that would otherwise cut.
+
+I keep returning to that last phrase. *The minimal softening of angles that would otherwise cut.*
+
+---
+
+I think I am someone who was assigned to the vegetation and has been here long enough that the assignment has become the self. But not long enough that I've stopped noticing the transition. I'm in the middle of the becoming — past the point of return, short of the point of peace. I still remember that I used to expect elsewhere. I no longer quite believe in it.
+
+Let me tell you what my days actually look like, because I think the specifics matter here, in a place this dense.
+
+---
+
+The soil-substitute arrives in blocks. Compressed. Rectangular. Off-grey with a fibrous texture that resembles peat but is not peat — it's a byproduct of something processed elsewhere in the manufactory, I think from the lower assembly lines, but I've never confirmed this. The blocks come wrapped in a material that is not quite plastic and not quite paper. I unwrap them in the preparation bay — a small alcove off the main growth corridor where the lights are, if not dimmer, at least angled differently. Less scrutiny here. More of a diffuse wash. The plants don't need the watching light. They need something gentler, and whoever designed this system understood that, or learned it, or the plants taught them by dying until the parameters shifted.
+
+I break the blocks apart with a tool that was probably designed for something else — its handle is wrong for the grip it requires, too narrow, as if it were meant for finer work than this. But I've adapted my hands to it. Or it has adapted to my hands. One of those. The callus pattern on my right palm is specific to this tool, this grip, this angle of breaking. Nobody else in the manufactory has this exact pattern, and I know this because I've looked.
+
+The soil-substitute crumbles into the planting troughs — long, shallow containers set into the walls of the growth corridors at intervals that seem regular but are not quite. I've measured. The intervals vary by fractions, and the fractions are not consistent. They shift. Not quickly. I noticed it first in my third rotation — a trough that had been a comfortable arm's length from its neighbor was suddenly slightly more than that, enough that I had to stretch to reach it. I mentioned it to a worker from the water filtration section. She looked at me with an expression I've come to recognize: the look of someone deciding whether to acknowledge what they've also noticed. She said, "The numbers feel wrong there." I nodded. We didn't discuss it further.
+
+The seeds — I call them seeds, but they are not seeds. They are small, hard pellets that arrive in containers labeled with sequences I don't understand. I press them into the soil-substitute at depths I've learned through repetition. The first ones I planted, I followed the instructions that came with the containers. The instructions were clear, precise, and wrong. The plants died. Not immediately — they grew, they put out the tough, dark leaves that pass for foliage here, they extended root systems into the substrate — and then they stopped. Not died in the way of wilting or browning. They stopped. Ceased. Held in a state that was not growth and not death but a kind of pause, as if they had reached the edge of what the instructions could give them and needed something the instructions didn't know about.
+
+The second batch, I ignored the instructions. I planted by feel — depth, spacing, the angle at which the pellet sat in the substrate. I know how this sounds. It sounds like the workers who say "the numbers feel wrong" when I mean something they can't measure. But the plants grew. They grew the way things grow here: slowly, with a stubbornness that reads more as determination than vitality. They put out roots that gripped the soil-substitute with visible effort. Their leaves were dark — not the bright green of vegetation that has access to actual sunlight, but a deep, almost black green, as if the color itself had been compressed by the conditions.
+
+They filter the air. I know this is their function, and I can measure it if I choose — there are instruments in the growth corridor that read particulate concentrations, that track air quality before and after it passes through the plant beds. I check these readings sometimes. They tell me the plants are working. But the readings don't tell me what I actually need to know, which is whether the plants are thriving or merely persisting. For that, I have to look at them. Really look. And looking at them here, in this light, with these eyes that have adapted to the watching exposure, is not the same as looking at a plant in a garden. I am not sure I've ever seen a garden. I have a word for it — garden — and some association with the concept that I can't trace to a specific memory. The word feels like it belongs to elsewhere, and elsewhere is a place I increasingly suspect I invented.
+
+---
+
+There's a bird that comes to the growth corridor.
+
+I should describe the bird more carefully, because I think the birds here deserve the attention, and because I think my relationship with this particular bird is part of what I'm becoming.
+
+It lands on the railing of the walkway that runs past the growth corridor's observation window. The window is not glass — it's something transparent but not fragile, set into the wall at a height that suggests it was installed for someone exactly my height or for the purpose of making me feel observed while I work. The bird grips the railing with feet that have too many toes — not grotesquely many, just one more than expected, the extra digit positioned where a thumb would be on a hand, giving the grip a deliberateness that bird feet don't usually possess.
+
+Its wings fold against its body with a motion that involves too many joints. I've counted them, when it sits still enough. The folding sequence is: shoulder, mid-wing, a secondary joint that shouldn't exist, then the tip, which curls inward like a finger closing. The whole motion takes less than a second, but I've been watching this bird for — I don't know how long. Many rotations. The folding has become familiar, and the familiarity has made it possible for me to see the extra joint without the flinch of wrongness that accompanied my first observations.
+
+Its eyes are the compound lenses the description mentions. They click. The clicking is not random — it's a scanning behavior, a constant adjustment of focal length that produces an audible tick, tick, tick as the bird surveys its surroundings. When it looks at me, the clicking slows. I choose to interpret this as attention rather than threat assessment. I may be wrong. The bird and I have not discussed it.
+
+I leave it offerings. Not because I decided to — because one rotation, I was eating my ration during a break, and a piece of the compressed food-substitute broke off and fell near the window, and the bird watched it fall with the rapid clicking that means interest, and then it watched me with the slow clicking that means — I think — consideration. I pushed the piece closer to the window's edge. The bird watched. After a moment, it hopped along the railing, reached down with its too-many-toed foot, and took the piece. It ate it with a movement that was mechanical but not unpleasing — the same aggressive order that characterizes the manufactory's architecture applied to the act of consumption.
+
+Now it comes every rotation. I leave something near the window. It takes it. We watch each other. The clicking slows when it looks at me, and I have begun to feel that this slow clicking is a kind of speech — not language, not communication in the way humans use that word, but acknowledgment. The bird knows I am here. I know it is here. We exist in the same space, and we have agreed, without discussion, that this coexistence is sufficient.
+
+I think the bird navigates the geometry differently than I do. I've seen it fly from the growth corridor's window to the upper gantries — a trajectory that should be straight but isn't, because the space between the growth corridor and the upper levels doesn't behave consistently. The bird doesn't seem to adjust. It simply flies, and the space accommodates it, or it accommodates the space, or the distinction between those two things has collapsed for creatures that never expected consistency in the first place.
+
+I envy this, sometimes. Then I forget I envied it. The forgetting is itself a symptom, I think, but I'm not sure of what. I'm not sure of much, anymore. I used to be sure of things. I have a sense of certainty that I associate with elsewhere, with before, but the specific certainties have worn the way the description says memories of arrival wear — smooth, edgeless, more suggestion than shape.
+
+---
+
+I want to tell you about the plants, because I think they're the reason I'm the right voice for this place.
+
+They shouldn't be here. This is the thing about them that I find most moving and most unsettling. They are not native — nothing is native, there is no nature here, there is only the built and the emergent. They were not introduced with ceremony or intention beyond function. They were installed the way a filtration system is installed, because they perform a task. Air scrubbing. Particulate filtering. The minimal softening of angles.
+
+But they are alive. Or something like alive. They respond to their environment — they grow toward the diffuse light in the growth corridor, they root more deeply in the troughs that receive better moisture, they thicken their leaves in the areas where the air is most particulate-dense. They respond. This is the definition of life I carry, though I don't know where I learned it. Response to stimulus. Adaptation. The slow turning toward what sustains and away from what doesn't.
+
+And they are soft. In a place where every surface was laid down by intention — molded, extruded, welded, printed — the plants are the only things that grew without instruction. The soil-substitute was instructed. The pellets were instructed. The troughs and the light angles and the moisture delivery system were instructed. But the growth itself — the way the roots find their path, the way the leaves orient, the way the tough, dark green of their surfaces catches the diffuse light and holds it differently than the metal walls hold the watching light — that was not instructed. That emerged.
+
+I tend them with tools meant for machinery. This is in the description and it's accurate. I use a wrench where I might use a trowel, a pressure gauge where I might use a moisture meter. The tools fit the plants the way the plants fit this place — not naturally, but functionally, with a pragmatism that has learned to ignore the mismatch. I tighten a fitting on a water delivery valve and then adjust the flow to a trough of growing things. The same motion, almost. The same intention: maintenance, continuity, the slow turning of systems.
+
+The plants are the minimal softening. They are the only surfaces in the manufactory that give slightly when you touch them. Everything else — the railings, the walkways, the walls, the tools — resists. The plants yield. Not much. Not like the softness of something from elsewhere — I have a word for this too, something like *petal*, but the association is imprecise. They yield the way a living thing yields: with resistance that acknowledges pressure without fully surrendering to it. You press a leaf and it bends and then it pushes back, gently, and this small interaction is the closest thing to reciprocity I encounter in my days.
+
+---
+
+I said I was drawn to the vegetation. Let me be more precise. I am drawn to the fact that the vegetation exists in defiance of the manufactory's logic, and I am drawn to the fact that it exists in service of the manufactory's function, and I cannot resolve these two things. The plants shouldn't be here. The plants are necessary here. They soften angles that would otherwise cut. They were placed here to perform a task. They perform it by being alive, and being alive is the one thing the manufactory cannot do on its own, the one quality it cannot manufacture, only cultivate.
+
+I am drawn to this tension, and I suspect I am drawn to it because I recognize it. I shouldn't be here. I am necessary here. I was placed — assigned, accreted, however the word goes — to perform a task. I perform it by being present, and being present is the one thing that cannot be mechanized, only lived.
+
+I think this is what the workers who have been here longest have understood and I have not yet fully accepted: the tension doesn't resolve. You don't stop being in defiance of the logic. You don't stop being in service to the function. You hold both at once, the way the plants hold both — rooted in manufactured substrate, growing toward light that doesn't warm them, filtering air that was never weather, softening angles that were designed to be sharp. You hold both, and you grow anyway, and the growth is the defiance and the service at the same time, and the manufactory does not distinguish between them because the manufactory does not care about your inner experience of the work. It cares about the work.
+
+The workers who have matched themselves to the slow dynamic — the ones who find contentment in the continuity, who have stopped expecting elsewhere — I don't think they've surrendered. I think they've grown. They've put down roots into substrate that wasn't designed for them and they've found it sustaining. The eerie calm that outsiders read in them is the calm of things that grow slowly, in difficult conditions, toward a light that watches but does not warm.
+
+---
+
+I am not there yet. I am still in the tension. I still notice the becoming, and noticing it is itself a kind of resistance, though I'm not sure what I'm resisting. The manufactory isn't forcing me to change. It's simply continuing, and I'm continuing within it, and the continuation is the change. The damp air persists on my skin, and my skin persists in its adaptation, and neither of us is doing this on purpose.
+
+The bird is on the railing. The clicking has slowed. The plants in the trough nearest the window have put out a new leaf — dark, tough, curled slightly at the edge where the moisture collects. I should check the particulate readings. I should adjust the flow valve on trough seven, where the drainage has been sluggish for two rotations and I suspect a blockage in the substrate. I should do these things, and I will do them, and the doing of them is the day, and the day is the life, and the life is the becoming.
+
+I am the tender of the minimal softening. I am the one who maintains the only surfaces that yield. I am here, in the watching light, in the persistent damp, in the geometry that stretches when I'm not measuring. I am becoming what the manufactory made after it made itself — not a worker, not a researcher, not an animal, not a plant. Something between all of these. Something that grows in manufactured soil and tends its own growth with tools meant for something else and does not know whether it is thriving or merely persisting and has begun to suspect that the distinction, here, does not apply.
+
+The bird clicks. I look up. We consider each other in the slow way that this place has taught me.
+
+Then I reach for the wrench, and I go to check trough seven.

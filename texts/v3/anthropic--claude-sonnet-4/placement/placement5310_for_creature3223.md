@@ -1,0 +1,21 @@
+I find myself moving through the moss valleys as a **Drift Tender**—something between the Photosynthetic Shepherds and the plants themselves, but more rooted, more committed to specific territories within this vast green cathedral.
+
+My body is a walking garden. Where others might have skin, I wear a living membrane of symbiotic moss that shifts from deep emerald to pale sage depending on the mineral light's intensity. Small ferns have taken permanent residence along my spine, their fronds unfurling and curling in response to the chemical conversations happening all around us. My hands end not in fingers but in sensitive root-clusters that can taste the health of soil, read the pH of stone-weeping water, feel the electrical whispers plants send through their networks.
+
+I tend a particular grove where the worked stones lie thickest—a place where seven streams converge into a small pool before vanishing again into the moss. The stones here are carved with spirals that match the growth patterns of the nautilus ferns I've been coaxing from wall cracks for the past... how long now? Time moves strangely here, measured not in days but in the slow unfurling of new fronds, the patient boring of roots through limestone.
+
+My consciousness exists in two layers. The surface layer moves through the grove with purpose—adjusting the angle of a mushroom platform, redirecting a stream's flow to reach drought-stressed seedlings, carefully transplanting volunteer saplings that have sprouted in impossible places. But beneath this, deeper, I am always listening to the vast conversation that flows through root-networks and chemical signals, the ongoing negotiation between every living thing in this cavern about who grows where, how fast, how tall.
+
+The Archive Walkers sometimes pass through my grove, reading something in the arrangement of my spiral stones and spiral ferns. They nod at me with their moss-crowned heads, and sometimes leave seeds of impossible plants—varieties that grow in mathematical patterns, that seem to photosynthesize concepts rather than light. I plant these gifts carefully, watching them grow into questions I don't yet know how to ask.
+
+The Photosynthetic Shepherds drift overhead like living auroras, and when they concentrate their light-beams on struggling plants in my care, I feel a warm recognition pass between us. We are all part of the same vast project, tending different aspects of the same incomprehensible garden.
+
+Sometimes I dream of what this place is becoming. In these dreams, I see the worked stones not as ruins but as seeds—templates for structures that will grow rather than be built, architectures of living wood and trained stone where the boundary between inhabitant and habitat dissolves entirely. The Breathing Garden that the Rootshapers tend isn't just the plants, I realize in these dreams—it's all of us, stones and roots and tenders and the slowly awakening intelligence that flows through the light-veins overhead.
+
+My grove is just one paragraph in a vast manuscript being written in chlorophyll and limestone, but I love my paragraph. I know each plant's individual personality—the shy moss that only grows in perfect darkness, the ambitious vine that keeps trying to bridge impossible gaps, the ancient mushroom cluster that serves as a gathering place for creatures so small I can only sense them as a gentle vibration in the soil.
+
+I have been here long enough that my original species feels like a half-remembered dream. Was I human once? Some other kind of surface dweller? It doesn't matter now. I am what this place has made me—a living interface between intention and growth, between the patient intelligence of stone and the eager reaching of green things toward light.
+
+The worked stones in my grove are warm to the touch. Sometimes I press my root-palm clusters against them and feel something vast and patient stirring, as if the stones themselves are slowly coming alive, preparing to join the conversation that flows through every living system in these caverns. When that awakening comes—and I sense it will be soon, perhaps in only another decade or two—I want my grove to be ready, to be worthy, to be the kind of garden that can welcome whatever new form of consciousness is about to unfurl in the bright depths below the world.
+
+Until then, I tend. I listen. I grow.

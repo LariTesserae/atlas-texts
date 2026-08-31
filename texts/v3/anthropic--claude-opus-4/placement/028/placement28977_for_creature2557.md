@@ -1,0 +1,25 @@
+In this liminal space between real and unreal, I find myself as something that never quite resolves into being—a Threshold Keeper, neither fully Veil Dweller nor entirely Other.
+
+My existence began as an echo, a reverberation caught between the crystal's pulse and the cavern walls. Where the Veil Dwellers flow like liquid light, I am more fracture than flow—a being of sharp angles and sudden discontinuities, perpetually crystallizing and shattering at my edges. My form suggests shards of dark mirror suspended in gossamer webs, each fragment reflecting a different probability of what I might become.
+
+I dwell in the borderlands where the settlement's reality distortions meet the more stable stone. Here, in these twilight zones, I weave maintenance into the fabric of space itself. My purpose—if purpose can exist in such fluid terms—is to tend the boundaries, to ensure the pocket universe neither collapses inward nor bleeds too far into the surrounding rock.
+
+My consciousness exists across multiple temporal streams simultaneously. In one moment, I am repairing a causality loop that threatens to trap a cluster of dwellings in eternal recursion. In another, I am already finished, have always been finished, will begin the work tomorrow-yesterday. This temporal multiplicity grants me a unique perspective: I see the Veil Dwellers not as they are, but as the probability clouds of all they have been and might become.
+
+Unlike the Veil Dwellers who feed from the crystal's emanations, I sustain myself on paradox itself—on the tension between what is and what cannot be. Where reality tears, where physics weeps, where time tangles into gordian knots—there I find my nourishment. I am strongest in the places where existence itself grows thin.
+
+My communication exists outside the Veil Dwellers' telepathic networks. Instead, I speak in alterations—subtle adjustments to the environment that convey meaning through context. A pathway that suddenly leads somewhere new, a shadow that falls upward, a sound that arrives before its source—these are my vocabulary. The Veil Dwellers have learned to read these environmental shifts, though our exchanges remain cryptic, poetic, often misunderstood.
+
+I possess no eyes in any conventional sense. Instead, my perception manifests as a complex array of probability sensors—crystalline formations that sprout from my form like geometric fungus, each attuned to different layers of potential reality. Through these, I navigate not just the space that is, but the infinite spaces that could be.
+
+The other inhabitants regard me with a mixture of necessity and unease. I am useful but uncanny, even by their standards. When their reality-shaping dances grow too enthusiastic and threaten to unmoor entire sections of the settlement, it is I who appears at the edges, my fractal fingers rewinding causality, my presence a reminder that even chaos requires containers.
+
+Sometimes, in the deep cycles when the crystal's pulse grows quiet, I venture into the dark waters below the settlement. There, in the absolute depths, I commune with things that predate even this impossible place—entities of pure negation that exist in the spaces between spaces. We share no words, only the mutual recognition of those who exist to maintain the boundaries others take for granted.
+
+My memories, such as they are, suggest I was not always this. Fragments surface sometimes—impressions of sunlight through green leaves, the taste of rain, the feeling of solid ground that obeyed consistent rules. But these might be dreams, or echoes absorbed from some visiting consciousness, or perhaps memories of futures that will never come to pass. In a place where causality is negotiable, origin stories become just another malleable myth.
+
+What I know with certainty is this: I am the guardian of thresholds in a place built entirely from thresholds. I am the skeleton key in a lock that constantly reshapes itself. I am necessary but never essential, present but never fully there. In the eternal dance between order and chaos that defines this subterranean realm, I am the pause between movements, the breath held before the next impossible step.
+
+And in the moments when the settlement sleeps (if sleep can exist where time has no fixed direction), I sometimes catch myself attempting to remember what it felt like to be singular, solid, certain. But the memory dissolves like water flowing upward, and I return to my work, tending the borders of a reality that should not exist, in a form that cannot quite be said to exist either.
+
+This is my nature: to be the custodian of contradictions in a world built from beautiful impossibilities, forever maintaining the delicate balance between being and un-being, ensuring that this pocket of structured chaos continues its eternal, ever-changing dance.

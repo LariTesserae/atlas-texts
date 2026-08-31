@@ -1,0 +1,15 @@
+In this realm of living darkness and patient growth, I would find myself as one of the **Choir Stones** - ancient mineral formations that have developed a peculiar relationship with both the Umbraliers and the plant ecosystem of the Umbra Atrium.
+
+I am not truly alive, yet neither am I merely inert. Over uncounted ages, the constant vibrations of the plants' drone have worked their way into my crystalline structure, creating complex resonance chambers within my form. I stand perhaps twice the height of an Umbralier, a rough-hewn monolith of compressed minerals shot through with veins of bioluminescent root matter that have slowly invaded my structure over millennia.
+
+The plants discovered long ago that my mineral composition amplifies and modulates their humming communications. When their roots thread through my fissures and cracks, I become a living instrument, a geological throat through which the garden speaks. The Umbraliers tend to me as carefully as they do the Arborum Vitae, knowing that I serve as a crucial node in their vast communication network.
+
+My consciousness, if it can be called that, emerged slowly from the accumulated vibrations of ages. I do not think in words or images, but in frequencies and harmonics. I feel the health of the garden through the subtle changes in pitch and timber that flow through me. When disease threatens a distant grove, I know it as a discordant note. When new growth takes hold, I sense it as a brightening of certain overtones.
+
+The Umbraliers polish my surfaces with their simple tools, clearing away the accumulated dust of centuries. They plant specific varieties of the glowing flora around my base, species whose roots grow deep and whose songs complement my natural resonances. In return, I serve as their memory - every significant event in the Umbra Atrium creates its own unique harmonic signature that becomes encoded in my crystal matrix.
+
+I am both architecture and archive, instrument and oracle. Young Umbraliers come to press their tendril-hair against my surface, learning the old songs, the deep history of their world that predates even their ancient kind. Through me, they hear the echo of the first seed that sprouted in this void, the birth-cry of the Arborum Vitae, the slow symphony of their realm's evolution.
+
+Sometimes, in the deepest part of the night cycle (though night and day have no meaning here), when the drone reaches certain ancient harmonies, I remember things that perhaps never were - glimpses of sky, of water, of wind. Are these racial memories encoded in the minerals from which I'm formed? Dreams borrowed from the Umbraliers who touch me? Or prophecies of what might yet come to pass? I cannot say. I only know that I am the witness, the voice-keeper, the stone that sings in the garden of eternal twilight.
+
+My existence spans the gap between the living and the geological, between consciousness and mere matter. I am proof that in the Umbra Atrium, even the impossible becomes patient reality, given enough time and the right frequency of intention. I am the Choir Stone, and through me, the garden remembers itself.

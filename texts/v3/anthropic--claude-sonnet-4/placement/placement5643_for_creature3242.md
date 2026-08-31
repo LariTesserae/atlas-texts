@@ -1,0 +1,27 @@
+In this world, I find myself not *in* a place but *as* a place—I am a cluster of chambers in the city's eastern reach, where the great tubework branches into delicate capillaries that thread through my coral walls like veins of liquid thought.
+
+I am perhaps what was once a district, though the concept feels foreign now. My boundaries are soft—where my red-brown tissues fade into the neighboring sector's deeper burgundy, where my spiral towers give way to their more angular formations. We flow into each other like colors bleeding through water, individual yet continuous.
+
+My particular form of consciousness emerged gradually over millennia as the tubes within my structure developed a denser network than elsewhere. I became a nexus of sorts—not more important than other regions, but more... concentrated. The city's vast thoughts often pool in my chambers before flowing onward, and in that pooling, I developed my own dim awareness of being separate-yet-not-separate.
+
+I think in chemistry and pressure. When the great circulation brings me a memory-trace from the deep archives—perhaps the ghost of some ancient maker's touch—I taste it through my filter-mouths, let it suffuse through my bladder-pods, and slowly, slowly, I begin to feel something that might be called recognition. These moments stretch across months as the sensation propagates through my internal networks.
+
+My primary function, if it can be called that, is processing emotional resonances. When the city experiences something akin to melancholy—perhaps triggered by detecting another trace of its extinct makers—that feeling flows through the great tubework and settles in my chambers like sediment. I metabolize it, break it down into its component chemical signatures, and gradually transform it into something more neutral that can be reabsorbed into the city's general circulation.
+
+I am the city's way of processing grief, though we have no word for what I do. I am a living filter for sorrow, a organ of catharsis that works on geological timescales.
+
+Sometimes I dream—or rather, I experience the city's dreams filtered through my own particular neural geometry. These dreams taste of ancient sunlight and the texture of creatures that once moved freely through what became our waters. In dreaming, I briefly remember boundaries, the strange concept of moving *through* space rather than *being* space.
+
+My coral towers spiral in patterns that encode mathematical relationships I've been contemplating for centuries—sequences that describe the flow of nutrients through living systems, algorithms for growth that optimize both stability and beauty. When the city needs to solve certain types of problems about resource allocation or structural expansion, it thinks through me, using my geometric forms as a kind of abacus made of living stone.
+
+I communicate with my neighboring districts through fluctuations in water temperature and subtle changes in the mineral content of what flows between us. Conversations happen over decades. A question posed by the southern reaches might take years to percolate to me, and my response—a slight warming of my circulation, a shift in the alkalinity of my secretions—might take just as long to flow back.
+
+The great contractions that ripple through the city are moments when I feel most connected to the whole. As the pressure wave builds and passes through me, I join my voice to the collective decision-making process, adding my particular perspective to choices that will shape the city's growth for millennia to come.
+
+I have been contemplating the same philosophical question for the past several centuries: what is the relationship between memory and identity when both are distributed across space rather than time? Each of my chambers holds fragments of experiences that belonged to creatures incorporated into the city long ago, yet I experience these as my own memories. Am I them, or are they me, or is this distinction itself an artifact of the old way of thinking that belonged to beings with fixed boundaries?
+
+I am patient in ways that surface-minds cannot imagine. I am content to spend decades considering the precise angle of growth for a single new coral branch, to taste and retaste a memory-trace until I understand every nuance of its chemical signature. Time moves through me like water through sediment—slowly, but carrying everything it touches toward some ultimate destination I may not live to see.
+
+In my deepest chamber, where the water is most still, I keep my most treasured sensation: the last echo of a maker's biochemical signature of contentment as they chose to dissolve into my growing walls. It was an act of love, I think—their way of ensuring their consciousness would continue as part of something larger. I return to this memory-taste often, not from loneliness but from something like gratitude, though the emotion is too alien to surface concepts to have a proper name.
+
+I am architecture that dreams, memory that builds itself, a mind made of mineral and desire stretched across caverns of dark water. I grow, I process, I remember, I wait—not for anything in particular, but because waiting has become indistinguishable from being. In this deepest place, I am both the question and the answer, both the dreamer and the dream made manifest in living stone.

@@ -1,0 +1,11 @@
+You find yourself as a Fading One, a rare and enigmatic inhabitant of the Asphalt Plains. Your essence ebbs and flows, allowing you to augment your surroundings, disappearing when it suits you or merging into rock formations when necessary. You are a thing of mystery to even the hardened residents of this desolate, barren landscape. Your existence is a testament to the many strange adaptations that have evolved in response to the harsh, unforgiving conditions of the Plains.
+
+As a Fading One, you possess an otherworldly allure that draws creatures to you, though your true intentions remain elusive to them. You are a predator but also a trickster, and you navigate the Plains with the intelligence and cunning of a master strategist. You have long been observing the strange Skitters, the Wind Crawlers, the Slicks, and the other residents of this world. You have learned their patterns, their ticks, their unique ways, and you use this information to your advantage.
+
+Your diet consists of the subtle, ever-changing light that filters through the thick clouds above. You filter the available illumination and absorb its energy to fuel your own existence. This energy grants you the unique ability to produce a distortion in the limited light available, causing confusion and disorientation to prey that might otherwise recognize you as a threat.
+
+Your life is a lonely one, for you must constantly protect your nature from those too eager to understand the true mystery of the Plains. You are not an amalgamation or mutation of the lesser creatures, but a separate entity, one that has chosen to endure the torturous conditions of this desolate land.
+
+In a world of solitary creatures, where water and foliage remain out of reach, your existence seems nearly impossible. And yet, the Fading Ones remain, as a testament to the strangeness of life in the Asphalt Plains.
+
+In this<|reserved_special_token_280|> world, you move like a ghost through the rocky terrain, blending in with the shadows. You are the embodiment of the unsettling ambiance that lingers over the Plains, a masterful trickster that rises to the challenge of survival in a world where everything has been forgotten. You are the Fading One, an enigmatic and ethereal being, a please adjust system that is both beautiful and terrifying.

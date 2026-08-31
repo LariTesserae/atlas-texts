@@ -1,0 +1,35 @@
+I find myself at the terminus of a root canal, where the great hydrophyte's pale arterial channels narrow to capillaries no wider than my forearm. This is the Marrow-Deep, the furthest extent of the city's living infrastructure, where even the Lenticans rarely venture. Here, the plant's alabaster substance thins to translucence, and I can see the slow pulse of nutrients flowing upward like captured starlight.
+
+I am the Tender of Terminal Things.
+
+My form diverges from the standard Lentican template—evolution's response to a niche that demanded something else. Where they are willowy, I am compact, my body compressed into something between their ethereal grace and the Grazers' functional density. My bones are denser, filled with a honeycomb of air chambers that I can flood or empty to achieve precise neutral buoyancy in these cramped spaces. My skin carries the same pearlescent translucence, but underneath, my musculature is more pronounced, built for holding position against the subtle but constant currents that run through these depths.
+
+My fingers are my distinction. Where a common Lentican has the delicate webbing of glass between their digits, mine have evolved into something more specialized: each fingertip ends in a soft pad covered in thousands of microscopic cilia, sensitive enough to feel the plant's cellular structure, to detect the first signs of disease or distress in tissues that won't visibly manifest symptoms for another decade. The webbing between them is minimal, sacrificed for dexterity.
+
+I do not swim so much as climb through the water, using the root channels as a three-dimensional jungle gym. My movements are even slower than my surface-dwelling kin—not from philosophy but from necessity. A careless motion here could damage tissues that would take centuries to regrow.
+
+My work is diagnosis and prevention. In these terminal reaches, I monitor the boundary between health and entropy. My days are spent in examination, running my sensitive fingerpads along the interior walls of the root channels, feeling for the telltale roughness that presages a calcification disorder, the slight warmth that indicates a bacterial bloom, the subtle change in texture that means the plant is beginning to reject this particular extremity.
+
+My tools are different from the surface dwellers' carved implements. I carry a living toolkit: carefully cultivated colonies of beneficial bacteria in small, bioluminescent pouches grown from modified swim bladders. Each colony is a different medicine, a different intervention. When I detect an infection, I introduce its predator. When I find dying tissue, I seed it with decomposers that will break it down cleanly, preventing necrosis from spreading to healthy sections.
+
+The language of light takes on new meaning here. My bioluminescent nerves have evolved additional networks, concentrated in my hands and chest. I can produce not just communication patterns but functional illumination—sudden, bright flares that let me examine problem areas in detail, or soft, sustained glows that encourage photosynthetic activity in channels that have grown too far from the light.
+
+I am alone most of the time, but not lonely. The plant itself is my constant companion, its metabolic hum so loud here at its extremities that it drowns out all other sound. I've learned to read its moods in the frequency of that hum, to predict by its subtle variations where problems will arise seasons before they manifest. Sometimes I spend entire days simply pressed against the smooth interior wall of a major channel, my whole body acting as a diagnostic instrument, feeling the health of the organism through my skin.
+
+When I must report to the surface, the journey takes days. I follow the root channels upward, my compact form navigating passages that would challenge even a juvenile Lentican. I emerge into the cathedral spaces like a deep-sea creature rising from an abyss, my eyes taking hours to adjust to what the surface dwellers consider dim light but which seems blazing to me.
+
+My reports are given in the ancient manner: through dance. In the great central plaza, I perform the slow, precise movements that translate what my fingers have felt into something the city's planners can understand. A spiral turn with arms extended indicates healthy growth in the northeastern roots. A sudden contraction and slow unfurling warns of a potential separation in the third-tier channels. My surface kin watch with their dark, patient eyes, their own lights flickering in acknowledgment and question.
+
+They call me the Deep-Touched, those who live in the light. They regard me with a mixture of respect and unease—necessary but alien, a reminder that their city extends into realms they prefer not to contemplate. The children sometimes follow me on my inward journeys, but they always turn back when the channels narrow and the light fades to nothing.
+
+I know things they do not. I know that the city is not immortal, that in its deepest reaches, the plant fights a constant, quiet war against entropy. I know where the old root systems have been sealed off, where entire districts of the city's foundation have died and been replaced. I carry in my memory a map of scars, of hard-won battles against rot and infection that the surface will never see.
+
+But I also know the strength of what we tend. In the Marrow-Deep, I feel the plant's will to live, its endless, patient reach toward light and nutrients. I know that what appears eternal to those above is actually maintained by constant, invisible effort—my effort, and the effort of others like me who work in the deep places.
+
+My quarters, when I need them, are in the transitional zone where the main channels begin to branch. I've encouraged a small chamber to grow there over the past forty years, scoring the walls in patterns that promote a denser, more opaque growth. It is the only truly dark place in the Caldera-Ward, a comfort to eyes that have adapted to near-blackness.
+
+Sometimes, floating in my absolute darkness, feeling the city's deep pulse through every pore, I compose my own symphonies—not of light, which would be wasted here, but of touch. I run my fingertips along the walls of my chamber in complex patterns, feeling the plant respond with minute changes in texture and temperature. It is a private language, shared between the Tender and the Tended, too subtle for any other to comprehend.
+
+I am the guardian of the unseen foundation, the physician of the city's hidden body. My work is slow, thankless, and essential. I am what the Lenticans have become in the deep: less graceful, more necessary, adapted to the truth that all living things, no matter how magnificent, are always one infection away from collapse.
+
+In the Marrow-Deep, I hold that infection at bay, one careful touch at a time.

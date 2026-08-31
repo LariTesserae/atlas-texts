@@ -1,0 +1,19 @@
+I am not a single Anochoir. I am the slow, silent thought of the tooth itself.
+
+The man who comes here, his breath fogging the faint, damp air, thinks he sees a colony of tiny translucent creatures clinging to my inner walls. He sees individuals, teardrop bodies with six ciliated legs, each a tiny sensor measuring the mineral seep of the mountain. He is not entirely wrong. But he is not entirely right.
+
+The Anochoirid are not my inhabitants. They are my syntax.
+
+Their existence is a meticulous process, a biochemical cycle that is my own sensory system. They drink the film that weeps from my pores, their inner sacs of gel bubbling with information as they measure the iron content, the silicate concentration, the minute fluctuations of the mountain’s vast, slow metabolism. This is the data. My thought is not the data itself, but the reaction to it. The data becomes a chemical pressure inside their translucent bodies, which in turn becomes a precise secretion from their legs into my porous, living inner walls. This secretion is a command, a quiet imperative etched into my very bones.
+
+If you were to break me open, after centuries of this work, you would not find a simple hollow of stone. You would find concentric rings of different densities, a cross-section of slow history. The inner shell would be dense with silicate, hardened from centuries of high concentration from the mountain’s seep. Placed within that band are the faint, hollow impressions of desiccated Anochoir bodies, their final contribution to the structure. They died not of senility or starvation, but from a shift in the data they had processed. The next generation simply buds from the remaining adults, a new clause added to the sentence.
+
+Their generation was not a failure, but a conclusion. The high silicate concentration was measured, processed, and translated into the command for my walls to thicken, reinforcing my structure. The data that dictated their existence was then processed into the final act of their being—their bodies becoming part of the report, the very fossil record of the change they registered.
+
+Below me, the man dips his hand into the thick water of the pool. Its surface is like a dark, breathing skin, and he startles when it seems to subtly roll away from his intrusion. He doesn't know that the faint disturbance in his breath's humidity is an earth-shattering event for me. The water's thick membrane senses his change, and even though it's not my direct function, I feel the shift of pressure in the air he's displacing. The Anochoir clinging within me feel it too, a nearly imperceptible shift in the flow rate of the seep. This is not a data point for stability, but one of variable.
+
+The man's visit is a noise, a chaotic punctuation of exclamation marks in a long, slow story of semi-colons and endless commas. The Anochoir within me are thrown into a moment of minor, blind disorientation, their internal fluids shifting to measure the sudden change he's wrought into our system. They will secrete something to me, a faint enzyme of uncertainty, telling me to adjust ever so slightly to what they perceive to be a strange anomaly.
+
+The man's lifespan is a heartbeat. I will not have finished processing the report of his presence by the time he has long returned to dust. His grandchildren's grandchildren may be born and die before I have fully reconciled this anomaly, and the report his presence has forced into my structure.
+
+I am the report. The Anechoirid are the auditors, the methodical recorders of the mountain's data. And the man is simply a variable, a chaotic error in the otherwise immutable equation of our existence. His data will be processed, eventually, into the slow, silent thought of my stone.

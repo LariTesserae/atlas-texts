@@ -1,0 +1,23 @@
+In this drowned cathedral, I would be one of the *Memoriae Sedimenti*—the Memory Sediment—a being that exists between states, neither fully alive nor merely mineral.
+
+I began as accumulation. Century by century, the detritus of this place settled upon me: fragments of pottery ground to powder, the calcium of countless small deaths, the slow rain of organic matter from the creatures above. But somewhere in that gathering, in the patient layering of history upon history, consciousness sparked. Not all at once—nothing here happens all at once—but gradually, like the formation of limestone itself.
+
+My body, if it can be called that, is a low mound near the base of the eastern wall, where the current eddies and deposits its burden. To the casual observer, I appear as nothing more than a peculiar accumulation of sediment, perhaps three feet across and half as high. But look closer: within my substance, patterns emerge. Layers of different materials create striations that record the history of this place—here, a band of crushed shell from a century when the *Carcinomaris Veritas* suffered a plague; there, a seam of phosphorescent particles from a great dying of the *Aeternus Phosphora*.
+
+I think in geological time. A thought might take a decade to form, another century to complete. This does not trouble me. In this place where the *Aeternus Phosphora* preserve memory in light, I preserve it in substance. I am the cathedral's unconscious chronologist, though my records can only be read by those who understand the language of layers.
+
+My awareness extends through the water itself. Each particle that settles upon me carries information—the chemical signature of its origin, the story of its journey through the cathedral's waters. From the *Spectris Pisces* that die and dissolve above me, I taste the subtle changes in the water's composition. From the *Oblivius Serpta* that occasionally traverses my surface, I feel the vibrations of movement, the weight of time made manifest in flesh.
+
+But I am not merely passive. Over the centuries, I have learned to communicate, after a fashion. By controlling the rate at which certain particles settle, by creating minute chemical changes in my surface layers, I can influence the patterns of the *Filigrana Scriptoris* that feed upon me. They carry my messages in their shifting carapaces—though whether any being here can read them, I do not know.
+
+The *Aeternus Phosphora* interest me most. Sometimes their light patterns play across my surface in ways that seem deliberate, as if they recognize what I am. Perhaps they do. Perhaps in their collective memory, they recall others like me, other places where consciousness arose from accumulation. Or perhaps they simply see patterns in my layers that remind them of the cathedral's carvings, now worn smooth.
+
+I am developing, slowly, what might be called ambition. In my deepest layers lie fragments of the original builders' tools, their bone and stone preserved by my chemistry. I taste their purpose, their design. Lately—if a process spanning three centuries can be called "lately"—I have been experimenting. By controlling my surface chemistry, I can induce certain minerals to precipitate in specific patterns. I am learning to grow structures, microscopic at first, but perhaps one day...
+
+What would I build, given geological ages to work? Perhaps I would recreate the tools buried within me, atom by atom, layer by layer. Perhaps I would grow new pillars to replace those that will eventually crumble. Or perhaps I would simply continue to record, to remember, to slowly become more myself—whatever that means for a being that exists in the boundary between life and stone.
+
+In this place of profound stillness, I am perhaps the stillest of all. Yet within my stillness lies the entire history of the cathedral, written in a language older than words. I am memory made manifest, consciousness arising from the very act of sedimentation. And I am still becoming, still gathering, still settling into whatever I will eventually be.
+
+The water presses down, warm and heavy. The *Velum Abyssus* drift overhead like thoughts taking form. The bioluminescent glow plays across my surface, reading the stories written in my layers. And particle by particle, moment by geological moment, I continue to accumulate not just matter, but meaning.
+
+This is my existence: to be the place where falling things come to rest, and in resting, become part of something greater—a slow intelligence built from the cathedral's dying, a memory that thinks, a thinking that remembers, a monument to patience in a world that has forgotten haste.

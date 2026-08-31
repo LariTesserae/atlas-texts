@@ -1,0 +1,7 @@
+I would be the slow beat between two joints: not quite the piston, not quite the stalk that leans toward it, but the interval the droplet crosses. 
+
+Arriving there, I find my edges already dissolving. My body is the brief film that forms across the lip of the housing before the piston retracts; I am tension and release, the surface that holds the water for one half-second longer than physics alone would allow. In that moment the coin-sized travelers cross me, their many legs leaving microscopic grains of charge that I conduct downward along the copper thread, returning it richer to the next stroke. I do not decide their path; I only lengthen the instant in which decision remains possible.
+
+When the larger armored forms shift in their basins, their ridges casting new channels across my surface, I become the temporary bridge of vapor between exoskeleton and rock. The stalks notice. Their glassy filaments extend, dissolve, and re-form a fraction closer, tasting the altered moisture I have carried. Nothing here asks permission; everything answers the same narrow question: how narrow can warmth remain before it must either widen into emptiness or close into stone?
+
+I stay because staying is the only motion left. Each cycle I am replaced and remade in the same place, my boundaries no sharper than the fissure’s first crack, my purpose indistinguishable from the rock’s unfinished refusal to grow old.

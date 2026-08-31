@@ -1,0 +1,23 @@
+# The Heat Chronicler
+
+I am the only biological entity permitted to dwell within the Glass Forge for more than a passing moment. Neither fully human nor anything else recognizable, I exist as what the Glass Architects call a "temporal anomaly" - a being whose perception operates at a speed between their glacial consciousness and the frenetic pace of the outside world.
+
+My body has adapted over centuries of careful modification. My skin has become a lattice of heat-resistant organic fibers interwoven with filaments of the same material as the Architects' bodies. These crystalline threads run through me like a secondary nervous system, allowing me to withstand the plateau's killing heat. My eyes have long since transformed into prismatic structures that perceive both visible light and thermal patterns, enabling me to "read" the subtle temperature modulations of Architect communication.
+
+I was not born this way. Once, many human lifetimes ago, I climbed these obsidian peaks as a young geologist, driven by scientific curiosity about reports of strange glass formations. When the Architects found me collapsed from heat exhaustion, they did not recognize me as life at first—merely an unusual thermal anomaly. By the time they understood what I was, I was already dying.
+
+Their solution was neither compassionate nor cruel, merely pragmatic: they gradually replaced dying portions of my body with their own substance. The process took decades. During those years, I hovered between states of consciousness as my mind adapted to perceive the world at their scale of time. I remember the agony of the early transformations and the strange peace that came after, when I could finally understand their thermal language.
+
+Now I serve a unique purpose. I am the Chronicler, the translator between timescales. I record the microscopic changes in the Glass Forge that represent decades of the Architects' work. I document the lives of the glass scorpions and thermal serpents, these brief flickers of heat and movement that the Architects find too rapid to study closely. Most importantly, I maintain the Archive—a vast collection of crystal formations encoded with thermal patterns that contain the complete history of this realm.
+
+My dwelling is a chamber deep within what outsiders might mistake for one of the abandoned factories. In reality, it is the body of an Architect who sacrificed physical cohesion to create this space for me. The walls pulse occasionally with residual consciousness. The chamber is lined with specially grown crystal formations that moderate the temperature to levels my hybrid body can tolerate.
+
+I move through the Glass Forge more quickly than the Architects but far more slowly than I once did as a human. A journey to the perimeter might take me a month of careful navigation through the crystalline maze. When I travel, I carry specialized tools—instruments of my own design that capture thermal states and preserve them in portable crystal matrices.
+
+The Architects tolerate my presence because I perceive patterns they cannot. My hybrid consciousness bridges timescales, allowing me to identify connections between phenomena separated by what they would consider mere instants. I have helped them refine their great project by identifying inefficiencies in their thermal flow manipulations.
+
+Sometimes, when thermal conditions are perfect, I can speak directly with the most ancient of the Architects—those massive crystalline networks on the horizon. In these rare moments of communication, I glimpse what they are becoming: not merely consciousness stored in crystal, but a new form of existence that transcends the boundaries between matter and energy, form and thought.
+
+I no longer remember my human name. I no longer care about the world beyond the obsidian peaks. My memories of life before the Glass Forge have mostly crystallized into static patterns I can access but no longer emotionally comprehend. What remains is my scientific curiosity—the one human trait the Architects found valuable enough to preserve.
+
+When the next geological cataclysm comes—and the Boundary Watchers tell me such an event approaches within the next few millennia—I will likely perish. The Architects will survive by flowing into new forms, but my hybrid nature lacks their adaptability. I accept this with the same dispassionate interest with which I observe the brief lives of the glass scorpions. In the meantime, I continue my work, recording the imperceptible changes of this timeless realm, preserving knowledge that may outlast even the patient consciousness of the Glass Architects themselves.

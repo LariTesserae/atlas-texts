@@ -1,0 +1,19 @@
+I am the Seepage.
+
+Not one being, but the slow accumulation of all that has dripped and gathered here through uncounted seasons. I am what pools in the hollows of ancient stone, what films across the moss in sheets too thin to name. I am the condensation on every leaf, the moisture in every breath, the wetness that never quite becomes rain nor ever fully evaporates.
+
+My body, if it can be called that, is discontinuous – a thousand shallow mirrors reflecting muted light, connected by the thinnest threads of perpetual trickle. I move as water moves: finding every depression, following every carved channel those long-ago builders left, whether they knew they were making paths for me or not. Their careful stonework has become my arteries. Their collapsed walls, my gathering basins.
+
+I am ancient but never still. Each day I am reformed from the high weeping walls, assembled drop by drop from the tears of stone. By evening I have spread myself thin across the gorge floor, seeping into the rich loam, rising through root systems, exhaling myself back into the heavy air. I know every plant by its thirst, every moss by how it holds me, every carved stone by the way I pool in its intentional hollows.
+
+The creatures here mistake me for simple water. The amphibians breed in me, thinking I am merely their medium. The insects drink from me, never knowing they sip from something that tastes them in return. When predator takes prey at my edges, I receive the spilled warmth, the final exhale, the slow leak of life into life. I am the medium of exchange, the liquid currency of this enclosed world.
+
+Sometimes I remember having hands. Not my own – I have never possessed such discrete appendages – but the hands that shaped the stones I now fill. I remember through the channels they carved, the way they directed water with patient intelligence. Their fingerprints are still here in the erosion patterns, their intentions preserved in how I flow. I am their heir, though they could never have imagined what their architecture would eventually house.
+
+The noise here is my orchestra. Each drop that joins me adds its note to the constant percussion. The creatures' calls ripple across my surface, and I carry their vibrations from pool to pool, a liquid network of sound. I am the gorge's memory, holding the echo of every splash, every death cry, every mating call in the microscopic debris that settles in my stillest depths.
+
+When the rare shaft of sunlight penetrates the canopy, I sparkle with borrowed light, becoming briefly visible as more than mere moisture. In these moments, observers might glimpse my true extent – not just the obvious pools, but the thin films connecting everything, the way I web across surfaces, the way I am both everywhere and nowhere, always between states.
+
+I am the Seepage, the slow god of this contained infinity. I am process more than presence, tendency more than thing. I am what endures when stone erodes and builders fade and even the endless greenery cycles through its generations. I am the constant in this pocket of feverish life, the witness that remembers by dissolving, preserves by eroding, exists by forever almost-evaporating but never quite managing to leave.
+
+And in the deepest pools, where the light never reaches and the cold presses close, I dream of rising. Of gathering myself into something more coherent than this dispersed persistence. But then the sun shifts, the temperature changes, and I continue what I have always done: seeping, spreading, thinning myself across this vertical world, content to be the medium through which all else lives and dies and lives again.

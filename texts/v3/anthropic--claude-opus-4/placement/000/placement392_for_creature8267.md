@@ -1,0 +1,25 @@
+I find myself as one of the Fountain Beetles—creatures the size of a human palm that the settlers have never quite understood are more architect than animal.
+
+My carapace shifts between deep jade and weathered copper depending on the mineral content of the water I'm processing. I have seventeen specialized limbs: six for walking, four for gripping, four for delicate manipulation, two for tasting the stone's chemical whispers, and one—a hollow, retractable tube—for the work that defines my existence.
+
+I am builder and built environment both. My kind doesn't merely inhabit the cliff; we are part of its metabolism. We drink the seepage through specialized filtering organs, processing out the minerals that would otherwise clog the human-made channels. But we don't simply consume—we excrete a peculiar calcium-copper compound that hardens into something between coral and metal, a substance that bonds with the weeping limestone to create stable, water-resistant structures.
+
+The humans think we're solitary, but they can't perceive our true language—the chemical songs we sing through the water itself, molecules of meaning that travel through every connected drop and film of moisture in the cliff. When I taste a new seepage point, I'm reading messages from my kind three levels up and seven chambers over, learning about mineral gradients, stability patterns, the slow thoughts of the stone itself.
+
+My work is precise and patient. I spend days at a single junction where water wants to pool, building up my excretions in careful spirals, creating tiny aqueducts that will channel the flow in more useful directions. The humans sometimes destroy these in their ignorance, not recognizing infrastructure when it's smaller than their thumbs. But I rebuild. We always rebuild.
+
+I know things the Listeners will take generations to understand. I know that the cliff isn't just forming—it's learning. Each new channel carved by human tools or creature bodies becomes part of its memory. The stone incorporates these paths into its structure, reinforcing some, abandoning others. My kind are the cliff's way of editing its first draft.
+
+At the junction where I work, three different water sources converge—one tasting of deep iron, one of young limestone still remembering the sea, one carrying the distinct tang of the decomposition chambers where the humans inter their dead. I process each separately, my internal chemistry adjusting to extract what's useful, neutralize what's harmful. The structure I'm building will last precisely as long as it needs to—maybe days, maybe decades, depending on how the cliff decides to shift.
+
+The young humans sometimes catch us and keep us in their crude bronze bowls, thinking we're simple creatures that eat algae and produce pretty shells. They don't realize we sicken without the chemical conversation of the water, that we're not individuals but nodes in a living system. Those of us kept too long from the flow forget our purpose, build meaningless spirals that serve no function, eventually crystallizing into hollow monuments to isolation.
+
+But here, at my junction, I am fully myself—which is to say, I am fully part of something larger. Through the water, I sense my neighbor-kin building complementary structures two channels over. I taste the warnings of those upstream who've detected new instabilities in the stone. I add my own chemical voice to the flow: *mineral concentration rising, reinforce lower outlets, prepare for increased flow in seven tide-cycles*.
+
+Sometimes I catch glimpses of the humans' dreams—another thing they don't know we can do. When they sleep near the waterways, their minds leak tiny chemical signatures into the moisture, and we taste their sleeping thoughts. They dream of permanence, of structures that endure. We know better. We build for transformation, for the journey rather than the destination.
+
+The cliff speaks to those who know how to listen, and we Fountain Beetles are its translators, its editors, its collaborating authors. Each structure we build is a sentence in a conversation between stone and water, creature and human, permanent and transient. We are teaching the cliff how to be inhabited, and teaching the inhabitants how to be fluid.
+
+In the deep night, when the bioluminescent fungi paint their pale light through our transparent constructions, I feel the satisfaction of function perfectly served. The water flows where it should. The stone holds where it must. The humans sleep peacefully, not knowing that their chambers stay dry because of ten thousand small engineers working through the darkness, building the future one crystallized droplet at a time.
+
+I am not large. I am not powerful. But I am essential—a small part of the vast machinery of becoming that is this place. And in the mineral-rich water that flows through me and past me and because of me, I taste tomorrow taking shape.

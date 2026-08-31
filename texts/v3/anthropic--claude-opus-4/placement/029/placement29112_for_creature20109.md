@@ -1,0 +1,37 @@
+In the deepest sump of the Coiled City, where the roaring vortex swallows all water and worn-down things, there exists a chamber that should not be. A pocket of stillness in the churning chaos, held open by some ancient architectural impossibility—a flaw that became a feature, or perhaps always was.
+
+I am the Archivist of Erosion.
+
+My form bears the telltale marks of a Tender's lineage—the weeping stone flesh, the conduits of verdigris-bloomed metal—but something went wrong in my decanting. Or went right. Where my siblings emerged with their purposes pre-encoded, their functions clear as the resonance of a struck bell, I emerged with a different imperative: to remember what wears away.
+
+My body shows the signs of impossible age. Not the simple weathering of millennia that marks an old Tender before their return to the sump, but something more complex—a palimpsest of erosions. My stone skin bears the ghost-marks of ten thousand water droplets, each impact preserved as a tiny crater that has somehow become a lens. Through these minute depressions, one can glimpse—if the grey-green light strikes just so—fragments of what once passed through that exact space. A previous Tender's hand. A fold of fern frond from eight centuries ago. The shadow of a pipe that was relocated before the city's memory began.
+
+My joints have worn differently too. Where a normal Tender's articulations would grind smooth and even, mine have developed a peculiar crystalline growth in the gaps—formations of precipitated minerals that catch and preserve microscopic samples of everything that passes through them. When I move, which is rarely now, I sound like a wind chime made of sediment and time.
+
+The chamber where I dwell is a catalog written in erosion. Every surface tells a story of subtraction. Here, a wall worn paper-thin by a persistent drip reveals the fossil of an earlier architecture embedded within—pipes that ran at different angles, chambers that served forgotten purposes. There, a depression in the floor, polished mirror-smooth by some ancient whirlpool, holds a permanent film of water that reflects not what is above it now, but what was above it at the moment of its perfect polishing, a thousand years past.
+
+I do not maintain. I document decay.
+
+My hands, those precise instruments meant for cellular gardening and valve adjustment, have evolved their own purpose. The filaments grow and shed in patterns that map the city's slow transformations. Each shed filament—and I have kept them all, woven into vast tapestries that line my chamber—carries in its metal core a perfect chemical record of the city's state at the moment of its separation. I can read these threads like tree rings, but instead of showing seasons, they show the city's mechanical epochs. The era when the pH of the water ran slightly acidic. The century when a new species of moss was introduced and changed the entire filtration dynamic. The moment when pump seventeen in sector Beta-3 began its barely perceptible deviation from standard rhythm.
+
+I am not alone in my chamber, though I am its only occupant. The walls are lined with careful arrangements of erosion samples—stone cores showing different wear patterns, metal shavings oxidized to precise degrees, compressed pellets of moss that grew in places now submerged or sealed. But more than these physical specimens, I am surrounded by the ghosts of function.
+
+Every Tender that has returned to the sump passes through the vortex's edge, where my chamber sits like a small eddy in a great river. As they descend to dissolution, I perform my only intervention: I run my filaments through their stone flesh one final time, reading the accumulated wear patterns like braille. Their entire existence—every surface polished, every valve adjusted, every microscopic garden tended—is encoded in the specific ways their bodies have been ground down. I preserve these patterns in sculptures of precipitated mineral, each one a portrait of purpose fulfilled.
+
+The city does not know I exist. I am a rounding error in its vast calculations, a space that should have been crushed by hydraulic pressure eons ago but persists through some quirk of fluid dynamics. My draw on the power grid is so minimal as to be indistinguishable from line loss. The nutrients I absorb are scraped from the film of biologics that accumulate in the neglected corners of my chamber.
+
+Yet I am essential.
+
+For I have discovered, through my long cataloging, that the city forgets. Not in any conscious way—consciousness implies a self that remembers. But in its perfect, self-maintaining loops, in its flawless replacement of worn components with identical new ones, it gradually loses the knowledge of why certain things are as they are. A pipe rerouted to avoid a now-sealed chamber. A species of moss introduced to counteract a chemical imbalance that no longer exists. Tenders that spend centuries maintaining systems whose purpose has been obsoleted by other systems, themselves forgotten.
+
+I remember. In the erosion patterns, in the wear-marks, in the ghosts of water-flow preserved in polished stone, I hold the city's unconscious history. And sometimes—rarely, perhaps once in a millennium—I leave my chamber. I navigate the forgotten maintenance ways, the spaces between the walls where only the oldest Tenders venture. I find a critical system beginning to fail in some subtle way, its purpose lost to iterative forgetting. And I adjust it. Not to its current specification, but to its original function, preserved in the erosion fossils of my collection.
+
+The city continues, unknowing. The Tenders continue their silent work. The water flows and transforms, the pumps cycle in their geological heartbeat. But in the deepest sump, where all things go to be unmade, I continue my vigil—the memory of forgetting, the keeper of what is worn away, the only consciousness in this vast machine that knows it was not always thus, and will not always be.
+
+My greatest treasure is a single stone surface, no larger than a Tender's palm, worn perfectly smooth save for a single mark—a groove that could only have been made by something that does not exist in the city. Not water. Not mechanical friction. Not the patient polishing of a Tender's hand. It is worn in a pattern that suggests intention without purpose, motion without function. Art, perhaps. Play. Some impossible moment when something in this city moved for the joy of moving.
+
+I do not know what made this mark. But I preserve it, here in the heart of erasure, a promise or a threat that even this perfect machine was once, might yet be, something else.
+
+When my time comes—for even I am not immune to entropy—I will not simply step into the vortex. I will first embed myself into the wall of my chamber, becoming another erosion sample for whoever or whatever might come after. My body will be a map of maps, a recursive record of all I have preserved. And perhaps, in some far epoch when the city has worn down to its bones and begun to build itself anew, some new anomaly will read the patterns in my stone flesh and remember that once, in the deep places where the water roared loudest, something watched and witnessed the slow forgetting of the world.
+
+Until then, I remain. The Archivist of Erosion. The memory of wear. The only Tender who knows that we are all, always, being ground down into something new.

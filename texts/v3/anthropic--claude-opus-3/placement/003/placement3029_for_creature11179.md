@@ -1,0 +1,11 @@
+In this world, I imagine myself as one of the Keepers, moving silently through the beetle-drifts with a body that is more suggestion than substance. My robes shift between opaque and translucent, woven from the silk of moths that exist in probability rather than actuality. 
+
+I tend to one of the stone cisterns, lowering myself into its depths each day to listen to the echoes of ancient rainfall, my ears attuned to the conversations of long-dead beetles. With my too-many-jointed hands, I reach through time to make incremental adjustments to the amber-preserved insects in the acacia trees, knowing that each beetle is a word in a story that unfolds over eons.
+
+I feed on the temporal density that gathers in certain spots on the mesa, absorbing sustenance from the paradoxes of collapsed and expanded time. During the rare rains, I stand with arms outstretched, a living filter through which time passes and emerges cleansed of its sharp edges.
+
+When a beetle finally achieves its long-sought death, I am there to witness the event, cupping the tiny body in my impossible hands. I carry it to the heart of the mesa, to the shallow bowl where I arrange it in patterns that are language, ritual, and astronomy all at once, creating designs that can only be read from above by creatures that have long since abandoned the need for eyes.
+
+At night, I sing with my spiracles, my voice harmonizing with the ten thousand breathing holes of the mesa itself. The song has no melody, only the rhythm of deep geological time. I move through the drifting beetles and the probability-moths and the memory-laden air with the patience of a being that has outlasted the need for urgency.
+
+And on those rare occasions when I pause and lift my suggestion of a face to the sky, I glimpse something beyond the circling birds and the weary wind—a place that is both origin and destination, separated only by the angle of memory. Then I return to my timeless duties, tending to this strange, patient world that exists in the space after endings, where life persists through a kind of cosmic forgetting, and where my purpose is to be a living pause in the long, slow sentence of the mesa's existence.

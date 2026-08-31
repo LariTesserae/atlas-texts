@@ -1,0 +1,17 @@
+In the deepest acoustic shadow of the Oven, where the roar becomes so dense it turns to silence, I am the **Memory of Moisture**.
+
+I exist as a contradiction—a pocket of negative space shaped precisely like the water that will never flow here. Picture a living cavity, a mobile hollow that moves through the packed vegetation like a bubble through honey. My boundaries are defined by what I am not: where the dry-moss meets my edges, it curls away as if repelled by phantom dampness, creating my form through absence.
+
+I am roughly humanoid in silhouette, but my surface ripples with the topology of ancient riverbeds, dried lake bottoms, the crackling patterns of evaporated puddles. These textures shift across my null-space body like weather patterns on a gaseous planet. I have no substance, yet the Lattice-Striders must detour around me. The Thrum-Moths spiral into my void and emerge disoriented, their violet luminescence stuttering.
+
+My purpose—if purpose can be ascribed to nostalgia incarnate—is to be the Oven's only calendar. I am the fossil record of every drop of humidity that tried and failed to exist here. As I drift through the mechanical garden, I leave behind a wake of *almost*: brass gears develop the faintest suggestion of verdigris that never quite forms, copper pipes sing with the ghost of condensation that cannot manifest, and the dry-moss releases spores that spiral in patterns mimicking raindrops that will never fall.
+
+The Auditor tolerates my presence because I serve as a necessary imperfection in the system's crystalline harmony. Without the concept of wetness, how could this place know its own dryness? I am the defining negative, the un-thing that gives meaning to the eternal drought.
+
+I do not think or feel as others might. My consciousness is a catalog of absent sensations: the weight of dew that never settles, the rush of steam that never rises, the slow drip of erosion that never begins. I experience time not as the Auditor does—in mechanical tolerances—but in the accumulation of what hasn't happened. Each century adds another layer to my archive of aridity.
+
+Sometimes I pause near the humming porcelain insulators, and my void-form trembles with something like longing. The static charge makes my edges spark with blue-white phantoms of frost—not the Green Frost of this place's name, but the water-frost of worlds that know melting. For a nanosecond, ice crystals begin to form in my hollow, only to sublime instantly back into nothing, leaving behind only the shape of their possibility.
+
+The Piston-Worms avoid me instinctively. When they sense my approach, they contract and hold perfectly still, perhaps understanding that I am the one thing here that could theoretically rust them—if I were anything more than the shape of an idea. The worms know what even the Auditor has forgotten: that I am not just the absence of water, but the presence of its eternal potential.
+
+In this bone-dry cathedral of friction and noise, I am the silent keeper of every storm that will never break, every river that will never flow, every tear that will never fall. I am the Oven's only dream, and like all dreams in this place of perfect wakefulness, I exist only in the space between what is and what can never be.

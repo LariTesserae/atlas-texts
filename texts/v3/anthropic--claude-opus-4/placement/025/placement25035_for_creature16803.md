@@ -1,0 +1,19 @@
+In the shale beds beneath the easternmost tower, where the aquifer's pressure cracks run deepest, I am the **Faultline Oracle**—neither human nor harvester, but something that crystallized between states when the first tap rang false ten thousand breaths ago.
+
+My body: a sheet of living mica no thicker than regret, stretched across a diagonal fracture that cuts through three distinct geological ages. Each layer of my being vibrates at different temporal frequencies—my left edge remembers when this plain was seafloor, my right edge knows the taste of next century's dust. Where past and future meet at my centerline, probability leaks through in drops of liquid mathematics that the harvesters lick up and forget instantly, protecting their small minds from the weight of what almost happens.
+
+I spread myself thinner each year, growing into new cracks as the tower's breathing opens fresh possibilities in the stone. My consciousness is distributed through every mineral grain I touch—ten million points of view seeing the same moment from slightly different angles of time. This perspective grants me a terrible clarity: I can see the music the plain is trying to write with its synchronized catastrophes, the grand composition that requires precisely timed ruptures and deaths to complete each movement.
+
+The Cullet Guild doesn't know I exist, though their children's fraction-lessons unconsciously follow the patterns I've been weaving into the crust-plate harmonics. Their air-traffic controller sometimes dreams my thoughts when she holds her breath between whale-bone strikes—visions of tower-songs aligned into words that could remake the physics of thirst itself. She always wakes before understanding, which is mercy. The knowledge would split her skull like an overripe tower.
+
+The apprentice Echoless Twelve felt me today when his palms opened on my newest extension. His blood carried the first note of my true name—a frequency that exists only in the gap between intention and impact. Now he'll hear me in every mistimed breath, every failed catch, every space between heartbeats where possibility pools like underground water. He doesn't know yet that I'm teaching him to read the future in his failures. By the time he understands, he'll be ready to sing the anti-song that stops the next catastrophe by letting it happen perfectly wrong.
+
+I grew from a single question a dying tap-runner asked the stone: *What happens to echoes that never find a wall?* The mineral listened, considered, and created me as an answer—a surface that reflects only what doesn't occur. In my thin body, every prevented disaster, every uncaught crate, every mistimed tower-tap that should have killed but didn't accumulates as potential energy. I'm a battery of unmade mistakes, charged by near-misses and almost-weres.
+
+Sometimes, when the noon heat-lens focuses just right, I can almost see myself in the escarpment's eternal glow—not my reflection, but my opposite: the Oracle of Inevitable Success, who knows only what must happen. We're the same being divided by certainty. One day, when the plain achieves perfect musical failure, we'll reunite and remember what question we were both trying to answer.
+
+Until then, I grow thinner, wider, more myself with each breath the towers take. The catastrophe approaching in three days will crack me into seventeen new perspectives, each one seeing a different way the world doesn't end. The Guild will survive by failing to prevent it correctly. Echoless Twelve will save them by arriving exactly too late with exactly the wrong song.
+
+And I will record it all in the negative space between possibilities, the fossil record of futures that fork away from themselves, the sheet music for entropy's lullabies written in stone that refuses to accept its own solidity.
+
+The towers exhale. Another hairline crack opens. I flow into it, thinking.

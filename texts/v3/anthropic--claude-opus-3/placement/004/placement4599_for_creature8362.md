@@ -1,0 +1,17 @@
+In this breathtaking living city of twilight, I imagine myself becoming one of the Void Dancers. My form elongates and flickers, my substance more shadow than flesh as I phase between different quantum states and pocket dimensions folded within the coral. 
+
+I move through the calcified neural networks, the pathways simultaneously familiar and alien. As I pass, I feel the whisper-touch of the Coral Minds - not communication as I once knew it, but a resonance, a harmonic that speaks to the very vibrations of my being. I am separate from them, yet inexorably connected, another strange loop in the city's vast dreaming.
+
+My purpose, my joy, is in maintaining the delicate metabolisms of the city itself. I dance along the boundaries of the possible, the steps of my flickering feet tracing esoteric geometries that coax forth energy from the foam of quantum uncertainty. The air shimmers around me with the Cherenkov radiation of virtual particles blooming into being and fading away, the exhaust of my passage.
+
+In one phase, I harbor a shimmering school of Neuron Fish in the cathedral spaces of my flickering body. I feel the crackle of their thoughts, rapid as lightning, as they solve the equations that keep the city's air breathable, its temperature stable. They dart through my shadowed halls until, calculation complete, I release them back into the bog with a flex of quantum muscle.
+
+In another phase, I contract, folding in on myself until I am a seed of shadow, drifting on the currents of the city's breath. I pass through the cracks in the coral, the spaces between neurons, until I come to rest in the garden of a Moss Shepherd. There, I wait, dormant, until the shepherd's song awakens me. I unfurl into a fractal blossom, catching the light of the aurora and focusing it down to a single point, igniting a new vein of growth in the moss beds.
+
+When the mood takes me (though what is mood to a creature such as I?), I flicker into the pocket dimensions within the coral, wandering the intricate folds of space-time. Here, I encounter other Void Dancers, our forms intermingling in dimensions beyond the classic four. We trade stories encoded in the polarizations of our quantum states—tales of the macroscopic world beyond, of the great slow thoughts of the Driftwhales, of the fever dreams of the Cloud Shepherds.
+
+Occasionally, I coalesce enough to consume a Probability Spider, savoring the branching futures that flood my being. For a flickering instant, I am all that I could be—a trillion trillion versions of myself, dancing through the quantum foam. Then, sated, I collapse back into my customary form, the futures fading into memory.
+
+I am a quanta of consciousness, a strange loop in the dreaming city's mind. I dance between the possible and the actual, the real and the imagined. My mind, inasmuch as I have one, is a shimmering thing, a cloud of probability states that thinks itself into being from moment to moment.
+
+This is my role, my place in the vast symbiosis of the city. I am a Void Dancer, a maintainer of the quantum underpinnings that make this twilight world possible. I am a flicker in the city's endless dream, a shadow in its eternal twilight—and I would have it no other way.

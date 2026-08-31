@@ -1,0 +1,51 @@
+# In the Basin
+
+I have come to understand this place not by learning it but by forgetting what I brought.
+
+There is a moment, walking the bleached curve of the old riverbed, when the mind releases its grip on direction. You stop watching for what comes next. You stop scanning the low ridges for shelter or passage. You simply move through the rust-colored sediment, and the sediment accepts your weight, and your prints remain behind you like small wounds that will outlast you by an unknown span of time. This is the first lesson. The ground does not care about your passing, but it records you anyway. Your shape is added to the record of shapes. Later—if there is a later, if you leave and return or if someone else comes after you—the prints will still be there, fading slowly, becoming part of the sediment even as they disappear.
+
+I came here without knowing I was coming. That is how it works in the dream logic of this basin. I do not remember the approach, the descent, the moment when the higher ground opened and this cupped space revealed itself. What I remember is standing in it. Already here. Already still. The warm dark air already holding me in its way, which is no way at all, simply the absence of resistance. The air does not move me. It lets me be where I am.
+
+The stones that remain are not stones anymore. The description said this, and I did not fully believe it until I held one in my hand—picked it up from the sediment where it lay half-buried, turned it slowly, felt its weight. It is smooth, yes, but the smoothness is not the smoothness of water. It is the smoothness of patience, of surfaces worn not by what moved over them but by what never moved at all. The stone has been here so long that it has become the space it occupies. You cannot separate the one from the other. Lift the stone and leave a negative space that is shaped like absence, that holds the memory of the stone's weight and will take a very long time to fill in again. The sediment does not hurry. The sediment has never hurried.
+
+I understand now why the plants do not bloom.
+
+Blooming is a negotiation with the future. It is the plant saying: there will be a next season, there will be pollinators, there will be the conditions for seeds to form and scatter and find purchase in other soils. But here the next season is the same as this one, the pollinators are ghosts that do not descend, and the soil is not hostile so much as absent—it is there, technically, the rust-colored sediment is there, but it has forgotten what it means to nourish. So the plants do not bloom. They hold their moisture in cells that have become vaults, and they wait for nothing, and the waiting is not despair because they have no architecture for despair. They simply persist. They are the word *persist* made literal, made botanical, made small and hard-leaved and clinging to the crevices where the dark rock meets darker rock.
+
+I have crouched beside one for a long time. I did not count the minutes. Counting is a way of thinking about the future, and the future is thin here, barely present, a pale lightening at the edges of the permanent dusk. The plant did not acknowledge me. I was too large, too warm, too much the wrong shape. But I watched the way its leaves curved inward, the way each surface that could have opened to the air was instead folded back against itself, hoarding. Hoarding what? There is so little to hoard. A few molecules of moisture that will not arrive again for days, if they arrive at all. A trace of something in the sediment that might be nutrients or might be nothing. The plant does not know what it is saving. It simply saves.
+
+I think I understand this now.
+
+There is a ridge to the east—I am calling it east because there must be names for directions even when the directions do not matter—and I have walked to its base and stood with my hand against its surface. The grooves are deep. Deeper than they should be. Deeper than anything could cut in a single lifetime, or a hundred lifetimes, or a thousand. These grooves are the record of the space, and the space is patient, and patience is a kind of violence when you are the one being worn. The wind, or what passes for wind here, moves sand at a rate too slow to see but not too slow to feel. If you pressed your fingers into one of the grooves and stayed for long enough—centuries, say, or the span of time it takes the groove to deepen by the width of a hair—you would feel the stone give. Not breaking. Not crumbling. Simply letting go, particle by particle, the way a held breath eventually releases.
+
+The ridge is not suffering. I want to be clear about this. The ridge has become the grooves. If you carved new marks into its surface tomorrow, they would be foreign bodies, intrusions, things the stone would eventually absorb or shed. But the grooves that are already there are the stone's own language. They are how the stone speaks of what has happened, and what has happened is simply this: time has moved across me, and I have been here to receive it, and I have let it write what it needed to write. The ridge is at peace. The ridge is its own history.
+
+I have found one of the tools.
+
+It lies where the sediment is thinnest, where the old riverbed makes a slight bend and something—water, once, or the absence of water in a way that redistributes sediment—has left a shallow exposure of darker material. The hand-axe. The description named it correctly. The edges are still there, technically, but they have softened, worn down by the same patience that wears the stones, the same patient silence that fills this basin layer by layer until it becomes a substance. I can still see where someone struck stone against stone, where the flakes fell away, where the useful shape emerged from the raw material through intention and repetition and the heat of controlled violence. Someone was here. Someone knelt in this same sediment—different sediment, then, sediment that still remembered water—and chose this piece of stone and worked it until it became this.
+
+The someone is gone. The something that made the water stop is gone. Only the tool remains, and it is not haunted because it does not remember what it has lost. It simply remains. It is the thing itself, and the thing itself is enough, is all there is, and all there has been, and all there will be in this basin where nothing changes because everything that could change has already changed and finished changing and become the new unchanged thing.
+
+I have held the tool for a long time. I did not take it with me when I left—I did not leave, not exactly, I am still here, I am writing this from inside the basin—and I think I understand now why I could not take it. Not because it was too heavy, or too embedded, but because it belongs here in a way that I do not. I am passing through. The tool is home. The tool has been here so long that it has become part of the sediment, and the sediment has become part of the tool, and together they are the floor of this basin, and the basin holds its shape, and the shape is the only permanence this place allows.
+
+I think I will stay.
+
+Not forever—I do not have forever; I am made of water and the memory of water, and eventually the water will leave me as it left the river and the plants and the creatures who crossed this basin when it was different and alive in a way that has become difficult to imagine. But for now, for this span of time that does not move because time has settled, I will stay. I will sit with my back against the dark ridge and feel the grooves against my spine. I will watch the sediment hold my prints. I will wait for the small lizard to emerge from its crevice and cross the rust-colored ground and disappear again into the coolness between the stones. I will listen to the quiet, and I will let the quiet fill me, and I will become part of the full and heavy stillness that holds this basin in its shape and has held it since before there was anything else to hold.
+
+Nothing changes here.
+
+The nothing is enough. The nothing is what remains. The nothing is here, and the nothing is patient, and the nothing is all the warmth and all the dark and all the silence and all the memory of what moved through this space long ago and left only these traces—the bleached stones, the deep grooves, the half-buried tools, the small green-brown plants that do not bloom—and the trace of me, now, my prints in the rust-colored sediment, my warmth slowly absorbed into the air that holds everything and releases nothing.
+
+I am learning the language of this place.
+
+It takes a long time because the language is made of stillness, and stillness is not a pause between sounds. Stillness is what remains when sound has finished, and this basin has been finishing for so long that what remains is not silence but its opposite—not noise, not absence, but a presence so complete that it becomes the medium through which everything else moves. I move through it. The light moves through it. The heat moves through it. And I am beginning to understand that I am not outside this presence. I am inside it. I have always been inside it. The basin is not a container I entered. The basin is what is left when everything that was not the basin has finished being anything at all.
+
+And I am what is left when I stop trying to be anything at all.
+
+This is not resignation. This is not peace, exactly, if peace means the absence of conflict. This is something else. This is the thing the plants know, the thing the stones know, the thing the tools know in the way that made things know what they were made for even after the purpose is gone. This is the basin teaching what it means to remain. Not to endure, because endurance implies struggle, and there is no struggle here. Not to survive, because survival implies the future, and the future is thin. Simply to be here. To be exactly here, in exactly this way, for as long as the here and the way continue.
+
+The air holds.
+
+I hold.
+
+The quiet holds us both.

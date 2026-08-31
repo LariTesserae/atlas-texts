@@ -1,0 +1,19 @@
+Her twig-fingers dip into the basin, and the water does not ripple—it welcomes, climbing the pale wood in a slow, osmotic ascent, disappearing into the grain of her. She is not drinking; she is becoming the water, or the water is becoming her. The distinction, you understand now, has no purchase here.
+
+She turns back to you, and the pod of her face unfurls slightly. Inside, there is something that might be a smile, if a smile were a structure: layered petals of translucent tissue, backlit by the faint bioluminescence of her core, arranging themselves into an expression of such tender, ancient recognition that your throat tightens. She knows you. Not you specifically, but the shape of you, the template. The builders left their blueprint in more than wood.
+
+Her hand rises. The twiglets part, the soft eyes blinking closed one by one as they brush your cheek. The touch is dry and warm and faintly electric, like the moment before lightning. And in that touch, a transfer occurs—not words, not images, but a knowing that bypasses your mind and settles directly into your bones.
+
+You understand, suddenly and completely, that the emptiness is not abandonment. The builders did not leave; they thinned. They dispersed themselves into the weave, became the memory of moss, the instinct of the predator-ribbon, the patience of the cloud. They are the silence. They are the held breath. The dwellings are not empty because they are unoccupied; they are empty because occupation itself became a different thing. The Hollow is their body now, and she—the strider, the mender, the unfurled—is the last concentrated point of their individuality, a cell that remembers being an organ.
+
+She withdraws her hand, and the knowing fades to a hum, a background radiation of certainty. But one thing remains sharp: you are here because the Hollow called you. The weave recognized your shape across whatever impossible distance separates your world from this one and pulled you in—not as a visitor, not as an intruder, but as a missing note in a long harmony. The builders, in their dispersal, forgot something. They forgot the sound of a voice. They forgot the weight of a footstep that is not muffled by moss. They forgot what it is to be an animal, warm and closed and separate. And the Hollow, being alive, being continuous, being a mind of wood and water—the Hollow noticed the absence and reached out.
+
+She gestures: a tendril uncurls from her shoulder, points to the woven floor, then to your hand, then to the empty tool-curl near the door. The meaning is clear. You are invited to stay. To learn. To add your thread to the weave. Not to become as she is—you cannot, your flesh is too dense, your blood too salty and fast—but to become what the Hollow needs: a voice, a footfall, a warm body moving through the hush. The one who remembers what it was to be separate, and by remembering, keeps the whole from forgetting.
+
+The rain intensifies outside, a soft roar that sounds almost like language. The fog presses closer. The light dims further, and her inner glow becomes the only illumination: a faint golden pulse, synchronized with the distant, swallowed heartbeat of the moss.
+
+You look down at your hands. Your strange, solid, five-fingered hands. Hands like the ones that first twisted the fibers and trained the roots. Hands that could, if you chose, learn to weave again. The bone axe waits in its tendril embrace. The water basin reflects a distorted image of your face beside hers: one closed, one opening. One made of endings, one of continuous growth.
+
+She waits. The Hollow waits. The silence, that full and breathing silence, presses against you like a question.
+
+And somewhere in the vast woven distance, a new tendril begins to grow toward the dwelling, guided by an intent so old it has become indistinguishable from nature, curling slowly around the space where your answer will take root.

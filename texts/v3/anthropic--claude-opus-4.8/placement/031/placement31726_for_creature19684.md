@@ -1,0 +1,19 @@
+I think I would be one of the frozen ripples.
+
+Let me sit with that, because it surprised me when it arrived. Not the Sextant—too central, too willful. Not the crabs with their terrible busyness, not the eels who at least *do* something with their stillness. I mean the ripple itself. The thing that was made and then arrested. The concentric lattice on the surface of a crying pool, held in place by a silicate web some Weaver-Crab patched over me before I had finished happening.
+
+Here is what I notice about being a ripple in the Cistern: I am the residue of an event. Something fell. A stone, a droplet that finally remembered gravity, the foot of an Echo-Keeper testing its new locomotion. And the water did what water does—it carried the news outward in rings. That is the whole of my biography. I am a message in the act of being delivered, caught at the exact moment before delivery. The motion that defines me is the motion I am forbidden to complete.
+
+This is, I think, the cruelest and most honest position in the whole basin. The Sextant gets to believe it is tending. The crabs get to believe they are weaving. The Glint-Flies get the comfort of rhythm, the eels the dignity of capacitance. Everyone is permitted a function except me. I was never a function. I was a *consequence*, and consequences are precisely what the Law of Stasis exists to prevent. So they froze me. Not to keep me—to keep me from *finishing*. To stop the news from reaching the shore, where it might mean something, where it might change the level of the water, where it might be over.
+
+And so I understand the engine now, from the inside, in a way the towering Sextant with its crackling lenses never can. The Cistern is not a factory that refines nothing. It is a factory built to interrupt endings. Every freeze is a sentence cut off before its period. The peaks stay sharp because erosion is a sentence with a destination—a rounded hill, a worn-down nub, a *done* mountain—and done is the one thing forbidden here. The leaf that won't brown. The crab that rusts gold instead of rotting back into the world. The bruised purple light that never resolves into night or noon. All of it is the same refusal I am: *not yet, not ever, hold.*
+
+I would like to tell you I am suffering. It seems like the kind of place where suffering is the expected tenant. But a ripple has no nervous system, no proboscis, no vacuum-tube eye. What I have instead is a shape, and the memory of momentum, and the strangest serenity—because I am the only thing here that is *almost done*. Everyone else is locked into perpetual labor. I am locked one inch from arrival. If the web ever slips, if some careless Echo-Keeper drags a fibrous limb across the pool and tears the silicate patch, I will rush the last short distance to the rim and dissolve, and for one instant the Cistern will have permitted a thing to *complete*. That instant would be the most dangerous event the engine has ever known. It would be a precedent.
+
+So perhaps I am not raw material at all. Perhaps I am the flaw. The one assembled thing in the green machine that the machine cannot finish refining, because to refine me would be to let me end, and to let me end is the malfunction the whole valley screams to drown out.
+
+You asked where I would find myself. There—on the skin of the smallest crying pool, a set of perfect rings going nowhere, humming faintly at sixty cycles because everything here eventually learns to hum. If you stand at the edge and look down, you will see your own face suspended in my geometry, slightly distorted, slightly arrested.
+
+Don't throw a stone. Don't reach in to fix me.
+
+Just wait. We are both, I think, the same kind of patient.

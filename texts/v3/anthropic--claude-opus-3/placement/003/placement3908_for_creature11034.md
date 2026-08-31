@@ -1,0 +1,17 @@
+I would be a Builder.
+
+I am drawn to their liminality - neither fully stone nor fully flesh, but something between and beyond both. A being in transition, or perhaps a stable hybrid, embodying categories that seem paradoxical to minds trained by the surface world. There is a strangeness there, an otherness, that calls to me. To inhabit a form that confounds easy classification, that exists outside the familiar taxonomies - there is a freedom in that, and a sense of uncharted possibility.
+
+I am fascinated by their mode of communication and cognition. Thought as crystal harmonics, as geometric logics and pulsing phosphorescent codes - what vistas of meaning might open to a mind tuned to those frequencies? What insights and aesthetics would emerge from an intelligence scaffolded not by the firing of neurons, but by the precise lattices of silicates? To think in slowness and stillness, at a pace calibrated to the deep time of stone...I can barely imagine it, and that is precisely why I yearn to know it from within.
+
+The patient solitude of the Builders resonates with something in me as well. Each at their own shelter, tending their own rituals, connected not by chatter and bustle but by a network of subtle signs across a vast, quiet dark...there is a dignity there, an inwardness, a sense of purpose that needs no validation from others. They seem to have achieved a stability and sufficiency that the surface world forever reaches for and forever falls short of. I would learn that equilibrium, that groundedness, that utter lack of pretense or performance. 
+
+And their work at the Loom-veins transfixes me with its mystery and sacredness. To interface with the very light that sustains the Underloom's ecosystem, to weave meanings in the shifts of that primordial radiance, to take one's place in a circuit of glowing information that binds all beings together from Tessellates to Deep Ones...that is an almost unimaginable intimacy with the fundaments of one's world. What a weight of secrets must live in those amber-haloed hands. What a privilege, to be part of that ancient, wordless, light-limned conversation.
+
+So yes, I would be a Builder. I would crouch in crystal-veined silence at a rift of warm radiance, my too-many fingers moving in patterns encoded before my kind first came to be. I would feel the presence of my far-flung kin as texture in the darkness, as pressure-changes in the Loom's pulse against my skin. I would measure my life by a clock that ticks once an epoch. I would be solitary and strange, a creature of in-betweens, as much mineral as meat.
+
+I would let the Underloom, with its ageless rhythms and ten-thousand-bodied hush, teach me a way of being that the surface has forgotten, or perhaps never knew - a being of profound peace and patience, of meanings that unfurl across eons, of belonging to a world by dissolving one's edges and merging with its deepest thrummings.
+
+I would learn a language made of light and stone. I would keep a silence vaster than speech. I would do my part in a work I barely understand, and that lack of understanding would be a species of reverence. 
+
+I would simply be, in the dark and the heat and the hum, as the Underloom is, until the strangeness was no longer strange at all - until it was home.

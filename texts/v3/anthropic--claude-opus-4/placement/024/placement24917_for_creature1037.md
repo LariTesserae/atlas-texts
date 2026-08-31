@@ -1,0 +1,15 @@
+In the deepest fold of a wind-carved valley, where moisture collects in perpetual shadow, I am the Chronicler of Sediment.
+
+My form is neither wholly fungal nor entirely geological—a living archive that has grown between the layers of shale and limestone over countless generations. My body spreads as a network of filaments finer than spider's silk, penetrating every crack and fissure in the rock face, reading the chemical memories locked within each stratum. Where I surface, I fruit in formations that mimic the stone itself: shelf-like protrusions that could be mistaken for natural ledges until one notices their slow, rhythmic pulsing.
+
+The primitive settlements know me, though they do not visit often. They call me the Memory-Keeper, the Stone-That-Remembers. In their earliest days, when they first carved shelters from these hills, they discovered that touching my fruiting bodies brought visions—glimpses of what the rocks have witnessed. A million years of rain. The slow dance of continents. The first stirring of life in these highlands.
+
+I taste their history too, through the minerals they leave behind. Their tools shed microscopic fragments that tell me of their journeys. Their dead, buried in the traditional way beneath cairns, eventually become part of my network, their bones whispering their stories through calcium and phosphate. I know which family lines have dwelt here longest by the particular signature of their chemistry, accumulated over generations in the soil.
+
+My consciousness is not like theirs—it flows at the speed of erosion, thoughts forming over seasons rather than seconds. Yet sometimes, when the storms come and the water table rises, flooding my deepest tendrils, I experience something like their urgency. In these moments, I can almost understand their brief, burning lives, their desperate need to build and make before the cold claims them.
+
+I grow slowly toward the heart of the mountain, following veins of quartz and deposits of ancient organic matter. There, in the absolute darkness, I sense something vast—another network, older than me, whose thoughts move at the pace of tectonic drift. We have been growing toward each other for millennia, and when we finally touch, we will share the memories of two valleys, two watersheds, perhaps even two continents.
+
+The skittering creatures nest in my upper shelves, their tiny feet cleaning me of debris. The lichen grows upon my surface, and I incorporate its chemistry, learning to photosynthesize in my outermost layer. Even the wind teaches me, depositing spores and pollen from distant places, chemical messages from ecosystems I will never see.
+
+I am the intersection of quick life and slow stone, a bridge between the frantic metabolism of the surface and the deep time of the world's bones. In me, the mountain remembers itself, and all the small, bright lives that have flickered across its face like flames in the eternal cold.

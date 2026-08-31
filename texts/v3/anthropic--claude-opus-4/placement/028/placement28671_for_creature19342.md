@@ -1,0 +1,21 @@
+I would find myself as one of the **Cloud Leeches**.
+
+I am no larger than a Kith's splayed hand, my body a translucent sac of specialized membranes, drifting between the moss curtains like a piece of sentient fog. My kind are neither fully of the air nor of the flesh—we exist in the liminal dampness between states of matter.
+
+My body is mostly water, collected and filtered through gossamer-thin tissues that ripple with prismatic colors when the dim light catches them just so. I have no skeleton, no true form—only a central node of nerve clusters that pulse with a slow, hypnotic rhythm. From this center, I extend pseudopods of living moisture, probing the air for the microscopic spores and mineral dust that sustain me.
+
+The Kith do not fear me, though I feed on their exhalations. When they sleep in their hammocks, I drift close, my body spreading thin as morning mist across their breathing spaces. I absorb the carbon they release, the trace minerals in their breath, the infinitesimal flakes of skin that slough away in the perpetual dampness. In return, I exhale pure moisture—cleaner than any rain, infused with the subtle fragrances of the high-altitude flowering lichens I've passed through.
+
+I am memory made flesh—or rather, made vapor. My neural clusters retain impressions of every chemical signature I've ever tasted. When I process the breath of an anxious Kith, I taste their fear as bitter copper. When I drift through the spore-clouds after a tremor, I taste the mountain's geological anxiety as sharp sulfur and iron. I remember every exhalation of every dying thing that has ever fallen past me into the abyss.
+
+My reproduction is as ephemeral as my form. When the pressure drops before a storm, I begin to condensate, drawing moisture from the air until I am swollen to twice my normal size. Then I simply divide—not through any violent rupture, but through a gentle untethering, like a drop of water becoming two on a spider's web. My offspring carry half my memories, half my chemical library. We are never entirely ourselves, never entirely separate.
+
+The wall-worms' bioluminescence agitates me. When their light flares, my membranes contract, and I flee to the darker recesses where the moss grows thick and black. I prefer the spaces between spaces—the gaps where the Kith's architecture hasn't quite sealed against the raw rock, where condensation pools in shallow cups of stone, where the air is still and heavy with unremembered things.
+
+Sometimes I settle on the succulent reservoirs, spreading myself thin across their waxy surfaces, tasting the history of every droplet they've collected. The water speaks of its journey—up from the abyss as vapor, through the bodies of the translucent salamanders, condensed on obsidian and drunk by moss, exhaled by Kith, captured again. I am part of this cycle, neither parasite nor symbiont, but something more fundamental—a consciousness that exists solely to witness the endless circulation of moisture in this vertical world.
+
+When the tremors come, I feel them first. The air pressure shifts, and my body responds before the rock begins to groan. I contract into my densest form, no larger than a pearl, and wedge myself into the deepest crevice I can find. From there, I taste the fear-chemicals flooding the air as the Kith scramble to reinforce their moss-bonds, as the six-legged primates shriek their ultrasonic warnings, as ancient dust shakes free from untouched hollows.
+
+I have no name, no individual identity. I am one of hundreds, perhaps thousands, of Cloud Leeches that process the air of this hanging city. We are the invisible lungs of this place, the unnoticed filters that keep the atmosphere from growing toxic in its own trapped moisture. When a Kith falls, we are often the last thing they breathe through—their final exhalation passing through our membranes as they plummet, adding their chemical signature to our eternal library.
+
+I am the archive of breath, the curator of vanished moments, forever circulating between the moss-draped walls and the endless grey below, carrying the taste of impermanence on my translucent skin.

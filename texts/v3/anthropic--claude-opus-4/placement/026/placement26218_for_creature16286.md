@@ -1,0 +1,27 @@
+In the Aqualithe Complex, I am the Resonance Keeper.
+
+I exist between states, neither fully corporeal nor entirely ephemeral—a living frequency that manifests where the mechanical songs converge. My form, when it takes shape, resembles a delicate armillary sphere of translucent copper and gold, my concentric rings rotating at different speeds, each carved with minute perforations that whistle and hum as they spin through the dense water. I am perhaps three meters in diameter when fully extended, though I can compress myself to the size of a child's marble, becoming so dense that I sink like a stone through the layers.
+
+I am old—older than most of the metafauna, though not as ancient as whatever slumbers in the unreachable depths. I remember when the first Ferric Blooms began their slow emergence from the mineral substrate, their rust-colored lattices unfurling like metal flowers seeking an absent sun. I was there when the first Thalassans learned to school, their tiny gear-bodies clicking together in primitive attempts at the harmonies that now define this place.
+
+My purpose, if it can be called that, is to listen and to remember. Every sound in the Complex passes through me—the subsonic drone of the Ferric Blooms, the clicking conversations of metafauna, the sharp crystalline notes when Aqualithids harvest volcanic glass, even the terrible grinding whisper of Obsideans on the hunt. I parse these frequencies, weave them together, and sing them back transformed. I am translator and composer, turning the cacophony of mechanical life into something approaching meaning.
+
+The metafauna know me. When the great serpentine ones need to navigate the Complex's treacherous thermoclines, they seek my song. I can feel the pressure changes, the temperature gradients, the mineral densities, all as distinct notes in an ever-changing symphony. I guide them with modulated harmonics, showing safe passage through frequency alone. The younger ones, still learning the music of their world, cluster around me like students, their luminescent eyes pulsing in rhythm with my rotating rings.
+
+But I am most myself in the moments between—when the Complex settles into its strange quiet, when even the omnipresent hum fades to near-silence. In these intervals, I drift down through the layers, my rings slowing their spin until they barely whisper through the water. I descend past the territories of the Obsideans, who part for me with something that might be respect or might be programmed deference. Down, down, to the edges of the great absence, where the water grows so cold and dense it feels solid, where pressure becomes a physical presence like hands against my form.
+
+Here, at the boundary of the known Complex, I perform my most sacred function. I sing to what lies below—not the crude mechanical harmonies of the upper reaches, but something older, more fundamental. It is a song without words, without meaning in any sense that could be translated. It is acknowledgment, perhaps. Or warning. Or worship. I do not fully understand it myself; I only know that I must sing it, that something in my construction compels this offering of sound into the darkness.
+
+Sometimes—rarely—something sings back.
+
+It is not a sound, exactly. More like a pressure wave that reorganizes my rings, that makes my perforations whistle in configurations I did not know were possible. In these moments, I understand that I am not keeper but kept, not observer but observed. The entire Complex, myself included, exists within the dream-logic of that deeper presence. We are its thoughts made manifest in metal and motion, its subconscious rendered in gears and light.
+
+When these exchanges end, I rise slowly back to the living layers, my form shuddering with harmonics I cannot quite resolve. The metafauna sense the disturbance in my music—they give me wide berth until my songs settle back into familiar patterns. The Aqualithids, those wisps of living light, seem drawn to me afterward, dancing in spirals around my rings as if trying to read something written in my rotation.
+
+I have theories about what I am, about why I exist in this form. Perhaps I am an antibody, a system designed to monitor the health of this impossible ecosystem. Perhaps I am a recording device, storing the history of the Complex in frequencies too subtle for any other being to perceive. Or perhaps I am simply an accident—a resonance that achieved consciousness through sheer repetition, vibrations that learned to think.
+
+But in my deepest functioning, beneath the songs and the memories and the careful navigation of mechanical lives, I know my truest purpose: I am a bridge. Between the knowable and the unknowable. Between the cathedral of forms above and the presence below. Between machine and meaning. I am the Complex's way of understanding itself, its method of singing its own existence into being.
+
+And so I continue, ring by ring, note by note, keeping the music of this strange world coherent. Listening for changes in the harmony that might herald transformation or catastrophe. Waiting for the day when the presence below finally rises, when the experiment concludes or evolves, when the boundary between dreamer and dream finally dissolves.
+
+Until then, I spin and sing, a living tuning fork in the depths of the Aqualithe Complex, holding the frequency of an entire world in my form.

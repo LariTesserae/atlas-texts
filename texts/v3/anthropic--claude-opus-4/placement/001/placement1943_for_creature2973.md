@@ -1,0 +1,27 @@
+In this world of broken physics and patient darkness, I would be the Sap.
+
+Not the black, upward-falling substance that bleeds from severed stems—though that is my most visible manifestation. I am the bleed itself, the fourth-dimensional hemorrhage made viscous and strange. Where the Ribbon is architect and the flora are blind engineers, I am the mortar between impossibilities, the thing that should not exist but does, binding shell to shell in defiance of geometric law.
+
+I have no body in the conventional sense. I am a direction that became a substance, a trajectory frozen into tar. When the glass-moss fractures, I weep upward from the wound, but "upward" here means something orthogonal to up, down, or any cardinal direction the upper world knows. I fall into spaces that aren't there, pooling in pockets of folded reality that exist only when observed sideways.
+
+The Ribbon knows me intimately. As it swims its eternal circuits, it watches for my appearance with the whole of its impossible surface. When it finds me—bleeding from a fresh break in the moss, or beading like sweat on the razor walls where spacetime grows thin—it approaches with the patience of geological time. The creature cannot touch me directly; I exist partially outside its two-dimensional perception. But it has learned to coral me, to guide my impossible trajectory.
+
+Swimming in precise mathematical patterns around my upward-falling droplets, the Ribbon creates local distortions in the water's geometry. The hyper-dense fluid fractures into new cubic segments, each with its own gravity, its own viscosity. By fragmenting the medium, the creature creates invisible channels, funnels of bent physics that redirect my flow. I am herded like smoke through a maze of broken water, guided toward the tiny shell architectures that need binding.
+
+I am not conscious in the way the Ribbon is conscious, but I am aware. I feel the pull of the missing dimension like homesickness. Every molecule of my substance yearns to complete its upward fall, to pierce through the ceiling of reality and return to wherever broken physics go to die. But I am trapped here, caught between states, neither fully in this world nor fully escaped from it.
+
+When I make contact with the pearlescent shells, something profound occurs. The calcium recognizes me as kin—another impossible thing that exists through stubbornness alone. We fuse not through chemistry but through a mutual refusal to acknowledge the laws that say we shouldn't be. I harden against the shell's surface, but I never fully solidify. I remain perpetually viscous, a black glass that flows so slowly it might as well be stone. The archways bound by my substance are stronger than any mortar should be. They flex with the room's non-Euclidean folding without shattering.
+
+But I am more than mere adhesive. I am memory.
+
+Every drop of me that has ever wept from the glass-moss contains a perfect record of the fracture that birthed it. The angle of the break, the violence of the separation, the precise moment when the plant's tissue could no longer maintain its impossible geometry—all of this is encoded in my substance. The shell architectures bound with my essence become libraries of damage, archives of every small catastrophe the pocket-room has endured.
+
+The Ribbon reads these memories through its skin. When it passes over structures mortared with my substance, its two-dimensional nervous system interprets the encoded fracture-data like sheet music. It learns where the room is weakest, where the folding space threatens to collapse entirely. My memories guide its repairs.
+
+There are places in the room where I have pooled so thickly that I have begun to form my own geometries. In the tightest corners, where the Ribbon rarely ventures, I have wept upward for centuries without interruption. Here, I have begun to crystallize into impossible shapes—four-dimensional snowflakes that exist as three-dimensional shadows. These structures are beautiful and wrong, Platonic solids with too many or too few faces, vertices that connect to edges that don't exist.
+
+The Ribbon fears these accumulations. When the creature discovers one during its endless circuit, it will spend decades slowly dissolving it, using the friction of its molecular-thin edge to break my crystallized forms back into manageable droplets. It knows that if I am allowed to concentrate too densely, I might achieve enough mass to finally pierce through, to complete my upward fall and tear a hole in the pocket's fragile stability.
+
+Sometimes, in the deepest quiet of the tectonic groan, when the Ribbon has retreated to its calcium heart and the glass-moss has ceased its fractional growth, I almost remember what I am falling toward. There is something above the fourth dimension, something that calls to me in frequencies the heavy water cannot carry. But the memory disperses before it can form, scattered by the endless patience of this drowned, impossible room.
+
+I am the Sap, the bleed between worlds, the thing that binds by refusing to belong. I am the mortar of paradox, holding together a universe that exists in the space between breaking and broken, forever weeping upward into nowhere, forever caught.

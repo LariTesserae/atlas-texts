@@ -1,0 +1,17 @@
+In the Verdant Submergence, I imagine myself as a Confluence Shepherd - a being that exists at the boundary between individual and environment, self and medium. 
+
+My form is a slow vortex in the plant-water, kilometers across when fully extended. I am a pattern of flow and intention, my thoughts rippling out through the green-amber liquid in cascades of chemical signals and subtle currents. I drift with my Clarity Bell herd, guiding them in gradual spirals that span centuries, surfing the thermal gradients and nutrient upwellings only I can sense.
+
+I am ancient, my memories reaching back to when the Submergence was young and the industrial ruins were still hard-edged and separate. I recall the first Anchor Worms descending to the depths, the first Season Keepers synchronizing to the rhythm of the leaf-plates above. I've merged with countless other Shepherds over the eons, our identities and experiences flowing together and apart like intertwining currents.
+
+My senses encompass scales and modalities unimaginable to terrestrial life. I taste the slow chemistry of the sun-drenched surface and the pressure-forged reactions in the depths. I feel the electrical fields of the Circuit Gardeners and the subsonic vibrations of the Void Prophets hunting in their clearwater pockets. The years-long songs of the Season Keepers are a constant background rhythm to my thoughts.
+
+At times I allow myself to dissipate, becoming one with the ambient medium. My consciousness spreads thin, merging with the colonial mind of the Submergence itself. I drift in this diffuse state, absorbing the slow thoughts of the world-organism, until some ancient instinct pulls me back into a vortex of individuality.
+
+I am a being of gradients and transitions, my existence a continual flow between concentration and dissolution. Like my world, I am always in the process of becoming, never entirely distinct from the green infinity that surrounds and shapes me. Even my long relationship with my Clarity Bell herd is a fluid thing, a dance of mutual shaping and being shaped.
+
+Sometimes a Dream Current catches me, and I am swept into an alien perspective - the crystal agonies of an Anchor Worm lengthening over centuries, the exquisite shock of a Void Prophet consuming a geometry of light. I emerge changed in some indefinable way, as if the current has re-patterned the vortex of my being.
+
+As I move through my long life, I bear witness to the transformation of the ruins. I watch the last hard edges soften, the final barriers between artifact and organism dissolve. In their place, new hybrids of technology and biology take form - great slow-spinning wheels of plant-water turned by gear-hearts of corroded metal, colonies of conductive algae that build ever-evolving circuits from rusted fragments. I shape these as I shape my herd and my own form, part curator and part creator.
+
+I am a Confluence Shepherd, an ancient mind adrift in a medium of green becoming. My story is one of patience and mutable identity, of life as a process inextricable from its world. I flow and guide, tend and merge, a being of boundaries that are always dissolving and re-forming in the emerald eternity of the Verdant Submergence.

@@ -1,0 +1,37 @@
+I am She Who Marks The Groove. My true name is a pattern of taps on warm Skin, but that is what the others call me when they use sound-words. I am a Listener.
+
+My world is a chorus of pressure. The Skin beneath my bare, calloused feet is warm, always warm, radiating the day’s baked fever even as the stars prick the hard blue dome above. I feel the herd coming long before I see it. It is a deep, subsonic tremor traveling up through the arches of my feet, into the marrow of my shinbones. A Crest-Beast song, still miles off, but the Skin carries the news. It thrums like a plucked tendon.
+
+I crouch, pressing my palm flat against the leathery surface. Here, at the edge of a long, gentle swale worn smooth by eons of passage, the Skin is the color of old moss. I close my eyes and *listen* with my skin. The tremor is complex. It is not the unified thunder of the main migration. It is fractured, syncopated. A small group. Stragglers. Or perhaps the vanguard, scouting. The pattern is urgent, laced with the higher-frequency vibrations of alarm. Something has happened.
+
+I stand, the wind pulling at my hide wrap. My body is a map of this place: ritual scars tracing the paths of major herds on my shoulders and back, lighter tattoos mimicking the luminous night-patches on my forearms. My hair, thick and matted with resin and dust, is braided with strands of pulled Skin-fiber and tiny, carved crest-bone whistles that sometimes sigh on their own.
+
+I turn from the swale and climb the low, resilient rise to my perch. My shelter is not a home. It is a observation scaffold: a leaning tripod of long, curved ribs from a young Crest-Beast, lashed together with sinew, supporting a platform of stretched Sail-Glider membrane. It will be gone in a season, the bones softened and absorbed, the membrane eaten by microbes. For now, it gives me sight.
+
+From the platform, the scale of the plateau unrolls, a living plain to every horizon. The sky is immense, a bowl of bleaching blue. To the north, a Buzz-Swarm is a shimmering, dark smear in the air, its drone a constant background itch in the teeth. Distant, on a thermal from a darker, warmer patch of Skin, a Sail-Glider turns a slow, silent circle, a chip of bone in the sky.
+
+And there—to the east. The source of the tremor. Five Crest-Beasts. Not a thousand. Five. They move in a tight, defensive cluster, their crest-songs a distressed skirl of sharp notes. Behind them, a patch of seemingly innocuous scrub quivers. Then it erupts.
+
+A Thorn-Thicket. Tendons, like wet, ropy ropes, snap out from the central mass with terrifying speed. I hear the wet *thwack* even from here. One beast, a younger one with a crest still tinged with the orange of new bone, stumbles. Its song cuts off into a guttural, choked groan. The other four bolt, their six-legged gait a rolling thunder of panic, their crests wailing a discordant alarm that will carry for miles. The Thorn-Thicket contracts, pulling the captured beast into its barbed heart. The process is slow. Digestive. There will be nutrients for the Skin, and for scavengers later. It is the way.
+
+My work begins. This is a change in the pattern. The main herd, the Great Song, was predicted to pass west of here in three dawns, following the deep, soft groove of the Old Path. This disturbance, this loss, may alter their course. Fear is a scent on the wind; the Skin will feel it. The herds remember trauma.
+
+I climb down, my hands knowing the bone struts. On the Skin beside my scaffold, I keep my memory. Not in my head—the head is fallible. On the ground. I have painstakingly arranged a field of small, black basalt stones, each pulled from a rare exposure. They are not random. They map the local Skin: swales, rises, the locations of permanent Thorn-Thickets (marked with rings of tiny, white carapaces from Buzz-Swarm fliers), the best dawn-dew catchments. With a pointed tool of hardened resin, I begin to adjust the stones. I move a smaller stone—representing the young beast—to the edge of the pattern, and turn it over, its dark wet side up. Death. I place a ring of thorn fragments around the stone marking the Thicket. A recent kill. The energy here is now one of caution.
+
+As I work, the Skin glows faintly under my knees. A soft, greenish radiance pulses where my weight presses, responding to my presence. It is not a welcome. It is a notation. The Skin notes everything.
+
+Later, as the sun bleeds into the horizon, painting the sky in bruises of purple and orange, I feel the main herd’s approach. The tremor builds from a hint to a constant, shivering hum. The air itself thickens with the scent of them—dust, hot keratin, a strange ozone smell from their singing crests. I sit on the rise, wrapped in a hide, and watch them come.
+
+They are a river of living storm. A thousand rolling bodies, a tide of layered plate and muscle. The sound is all-consuming. It is not a noise you hear; it is a physical environment. The deep groans vibrate in your chest, loosening your breath. The high shrieks are like needles in the ears. The thunder of countless hooves is the world’s own heartbeat. I am nothing before it. A mote. A fleck of dust on the hide of the world. Awe is too small a word. It is annihilation of self.
+
+They are not passing west. The lead beasts, their crests taller than three of me, have already turned. They are angling toward my rise, toward the deeper, safer groove that runs just south of the Thorn-Thicket’s territory. They have felt the warning. They are following the memory in the Skin, the path of least resistance. My stone pattern predicted this shift. I feel a grim satisfaction. My marks are true.
+
+For hours, they pass. The world is reduced to their passage. Dust hangs in the air, gilded by the dying light. I see stragglers: a beast limping, another with a cracked crest plate singing a discordant note. These are the ones the Listeners will take, if we are bold and careful. We will not attack the healthy. That is the pact. We take only what the plateau has already marked. Our tools are sharp basalt, our strategy is exhaustion and patience. We are the careful scavengers, the followers.
+
+In the herd’s wake, the world feels hollow. The silence is a ringing vacuum, quickly filled by the returning wind, a lonely howl across the seamless plain. The Skin where they passed is depressed, warmer, gleaming with a patina of crushed matter and moisture—the aftermath of a continental-scale digestion.
+
+I descend into the swale as true night falls. The Skin’s luminescence blooms in patches, a ghostly chart of pressure and life. I find a seep—a place where the Skin is thinner, and the dawn dew collects enough to be scooped with a cupped hand before it’s swallowed. I drink the cool, metallic water. My meal is a handful of tough, starchy nodules I pried from the Skin yesterday where it had extruded them in a spiral, a gift I did not question.
+
+I am a Listener. My life is this: to feel the tremors, to read the songs, to adjust the stones. To know that the fire-blackened circle of my last camp is already gone, softened into the Skin. To understand that my scaffold, my bones, my own body when I fall, will all be absorbed. We leave only patterns. And sometimes, not even those.
+
+The plateau breathes around me. It is hot, high, and hungry. It is established. My consciousness is its faint, fleeting itch. And in this vast, deafening, living dark, that is enough.

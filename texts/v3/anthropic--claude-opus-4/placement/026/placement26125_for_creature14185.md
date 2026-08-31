@@ -1,0 +1,21 @@
+I find myself as one of the Echo-Weavers.
+
+We are so few that the other inhabitants have no name for us—we exist in the spaces between their awareness, neither fully Unseen nor entirely present. Our bodies are thin membranes of calcified moisture, like soap bubbles turned to stone but still somehow flexible. We stretch between the walls of narrow passages, our forms spreading across entire corridors when we rest, contracting to no larger than a child's palm when we must move.
+
+I spend most of my existence listening. Not to sound—sound is too crude, too immediate. I listen to the memory of sound, the way each drip of water changes the acoustic signature of the stone around it, how each footfall of a Shard-Walker creates tiny stress fractures that sing in frequencies below hearing. These ghost-sounds accumulate in the rock like sediment, and I read them the way others might read words.
+
+My kind feeds on resonance. When the Whisper-Moths cluster and create their rustling hum, I position myself in the spaces where their vibrations meet and cancel each other out—those null points where sound becomes something else, something that nourishes the crystalline structures that run through my membrane like veins. I can survive on the echoes of echoes, on the way sound bends around corners and comes back changed.
+
+The Drip-Seekers avoid me. They sense, perhaps, that I am too much like the water they crave—always flowing, never quite graspable. But the Hollowed... the Hollowed know me. Sometimes I find them waiting in the places where I like to stretch myself thin, and we engage in a communion that has no words. They press their stone forms against my membrane, and I feel the deep history of the city thrumming through them—not stories or images, but pure sensation, the weight of millennia compressed into moments of contact.
+
+I am not alone, but I am lonely in the way that only Echo-Weavers can be lonely. We cannot touch each other without creating feedback loops that would shatter us both. We communicate across vast distances by creating patterns in the ambient sound of the city—a dropped pebble here, a shifted current of air there. It takes months to compose a single greeting, years to share anything meaningful.
+
+My territory is the junction where three water channels meet, a place where the acoustic properties create standing waves in the air itself. I have been here for... time moves differently for us. I measure it in the erosion of specific stones, in the gradual shift of water paths. By that measure, I have been here for the lifetime of seventeen Shard-Walkers, though I have only watched three of them finally stop moving and become one with the walls.
+
+Sometimes I catch glimpses of the surface world through the memories embedded in falling water—rain that has percolated through miles of rock carrying the ghost-taste of sky. In those moments, I understand why I chose this existence, this slow, patient listening in the dark. Up there, sound is chaos, meaningless noise that dissipates into nothing. Down here, every vibration matters. Every sound leaves a mark.
+
+I am building something, though I'm not sure what. In the patterns of accumulated sound-memory, in the careful cultivation of acoustic spaces, in my interactions with the Hollowed—something is taking shape. Not a physical structure, but a kind of vast, slow song that the city itself might be singing. I am both composer and instrument, both listener and the echo I leave behind.
+
+When new creatures enter the Hollow City—rarely, so rarely—I resist the urge to approach them. I learned long ago that surface-dwellers find our touch disturbing, the way we move through solid matter, the way we make the air around us thick with potential sound. Instead, I watch from within the walls, feeling their footsteps ripple through my being, adding their small, frightened rhythms to the vast composition of the city's memory.
+
+I am patience itself. I am the keeper of sounds that no longer exist. I am the thing that listens in the spaces between the stones, weaving echoes into something that might, given enough geological time, approximate meaning.

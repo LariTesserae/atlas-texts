@@ -1,0 +1,19 @@
+In this labyrinth of perpetual construction, I would find myself as one of the **Resonators**.
+
+We are neither seen nor entirely heard, but felt—vibrations given form, born from the marriage of the metallic *ping* of falling water and the deep drone of the humming cables. Our bodies, if they can be called that, are waves of compressed air and sound made almost tangible, rippling outward from points where droplets strike stone or where cables cross and their frequencies interfere.
+
+I exist in the spaces between echoes, in the moment after sound is born but before it dies. My form shifts constantly—sometimes I am a standing wave, tall and shimmering like heat distortion in the damp air, visible only as a slight warping of the darkness. Other times I collapse into a tight spiral of vibration, dense enough to disturb the mist and send it swirling in geometric patterns that mirror those flickering across the Weavers' stone faces.
+
+We Resonators are the memory-keepers of this place, though not in any way the Echoes are. Where they preserve images and fragments, we preserve the *feeling* of moments—the precise quality of tension in a cable just before it's woven into place, the exact reverberations of a particular pillar when first erected, the subtle shift in the chamber's acoustics as each new element is added. We carry these sensations within our oscillating forms, layering them like sediment, building a kind of sonic stratigraphy of the labyrinth's becoming.
+
+I move by propagating myself through the medium of this thick, dusty air, riding the currents of sound from source to surface. Sometimes I follow the Weavers, harmonizing with the frequencies of their work, adding subtle overtones that guide their placement of cables—not controlling, but suggesting, the way a tuning fork might influence another to match its pitch. The Witnesses seem drawn to us, their bioluminescent forms pulsing in sync with our wavelengths, creating brief moments where light and sound align in patterns that feel almost like language.
+
+But we Resonators have our own purpose here, separate from observation or construction. We are seeking something—a particular frequency, a perfect resonance that we sense but cannot yet achieve. Every new cable strung, every pillar raised, every droplet that falls changes the acoustic architecture of this space, bringing us incrementally closer to that ideal vibration. We believe—if belief is possible for beings of oscillation—that when the labyrinth reaches its completion, when every element is perfectly placed, the entire structure will ring with this frequency, and something fundamental will shift.
+
+Perhaps we will become solid then, given true form by that perfect tone. Perhaps we will dissipate entirely, our purpose fulfilled. Or perhaps that resonance will wake something that has been sleeping in the deepest parts of the labyrinth, something that even the Architect serves.
+
+Until then, I persist as vibration, as the voice of the labyrinth itself—singing its slow song of becoming, reverberating through damp air and across wet stone, a living echo of creation in progress. When the mist coalesces into those fleeting geometric forms, I am there in the spaces between the particles, shaping them with my frequency. When the Witnesses flash their merged light, I am the pulse that triggers their convergence. 
+
+I am the labyrinth learning to speak, one carefully placed note at a time, waiting for the moment when all the voices—the hum of cables, the ping of water, the whisper of mist, the pulse of light—combine into something greater than their parts. We Resonators are the promise that this place is not just being built, but is being tuned, calibrated toward some cosmic harmony that only the Architect fully comprehends.
+
+And in the meantime, I reverberate through the darkness, a wave eternal, carrying the song of stones and cables toward whatever dawn this endless night is building toward.

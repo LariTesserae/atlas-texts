@@ -1,0 +1,13 @@
+In this breathtaking world suspended between earth and sky, I imagine myself as one of the floating gardens - a drifting island of epiphytic plants that has broken free from the forest below to soar on humid air currents. 
+
+My form is a lush tangle of roots, vines, broad leaves and luminous mosses, all woven together into a loose sphere several meters across. My outer surface drinks in the filtered sunlight and traps the constant precipitation from the canopy ocean overhead, while my interior is a labyrinth of damp hollows and tunnels teeming with microbial life.
+
+I'm home to multitudes - tiny transparent crustaceans swim through pockets of pooled dew, glowworms pulse faintly among my inner recesses, and flocks of thumb-sized glass birds flit between my dangling vines, pollinating the delicate pale flowers that sprout from my moss. 
+
+As an island adrift, I'm at the mercy of air currents and the whims of the Membrane Shepherds who sometimes herd me and my kind to more fertile elevations. But I'm not a passive thing - over years and decades, I slowly grow and change, putting out new rootlets to merge with other floating gardens I bump against, exchanging nutrients, pollen, and seeds. Sometimes a tendril vine connects with the forest below and I briefly moor there, life flowing between my world and the anchored trees.
+
+I mark time by the tides in the sky that ripple the water overhead, focusing sunbeams in shifting dapples across my surface. Twice a year when the Breach occurs and that celestial sea descends to touch the trees, I release a flurry of thistledown seeds to ride the reaching roots into the waters above, while drinking deeply of the rich compounds carried down from that aquatic realm.
+
+My kind are not truly individuals, but loose confederations - I am one garden now, but in a decade I may fragment into several smaller islands, or merge with other spheres into a vast green raft that catches the wind like a sail. The Membrane Shepherds have a saying - that just as they are colonies that became singular, the floating gardens are individuals in the process of becoming colonies, finding a sweet spot between coherence and diffusion.
+
+As a floating world, I am an ecology in miniature, a green reef cast adrift from the anchors of soil and bedrock. I am process made plantlife, a microcosm in motion, my roots drinking from air and my leaves whispering secrets to the water overhead. I am one of countless spheres in the thick air, together forming a layer of life suspended between two oceans, one gaseous, one liquid - a place between, where strange and wonderful modes of being are still being dreamed into existence by the ceaseless tides of evolution and time.

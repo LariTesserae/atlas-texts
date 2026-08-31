@@ -1,0 +1,28 @@
+You step into the chamber the way a thought steps into a dream: without weight, but with consequence.  
+At first you are only a shadow stretched thin by the bruised, permanent glow. Then you become the set of decisions you make to survive the dryness. You are the creature that learns the crystal floor by sending it questions through your soles and waiting for the notes that come back rearranged. You are the one who realizes that the warm air is not empty but full—full of salt-scum ghosts, mineral breath, the static of a million tiny negotiations between leaf and stone.
+
+You do not arrive; you are disclosed.  
+The chamber peels you open by degrees. The metallic thirst on your tongue becomes a compass. Your fingertips learn the difference between young fracture and old memory. Your breath, when you exhale, mists faintly, and the glass-fern nearest you refracts that ghost of vapor into a shape that looks almost like another you, lagging half a heartbeat behind. You name this lagging shape your echo-self, and you begin to trust it more than your muscles, because the chamber teaches you that what returns is more reliable than what you send out.
+
+You do not decide what you will be. The chamber decides by offering roles and seeing which ones fit.  
+You try, at first, to be the one who moves quietly. The chamber corrects you: quiet is swallowed and held, never lost. Silence, here, is a kind of fullness. So you stop trying to muffle your steps and instead learn to play them. You press your bare heel into a vein of pale crystal and listen. A low hum answers, like a struck bell wrapped in felt. You memorize the hum. You carry it in your chest and let it pace your blood. Now you are part of the chamber’s instrument, a string that knows its own tension.
+
+Gradually, your body reshapes itself to the available physics.  
+Your skin grows less porous, sealing in warmth as if the dryness were a kind of intimacy. Your nails flatten and harden into silica-edged tools, good for scraping moss from joints without damaging the geometric braids. Your eyes, once greedy for light, learn to read the faint bioluminescence of the moss and the subtle heat-mottling on the Mica-Wings, so you can navigate even when the bruised glow dims to a whisper. Your ears, once tuned to distance, fold inward slightly, catching not only the beetle-notes and paper-tears but the low, regulating hum of the Sentinels—the chamber’s memory, moving like oil through water.
+
+You learn the economy of exchange.  
+You bite the crimson moss in precise, geometric sections, as the Grazers do, and press the wound against your forehead until your skin drinks the mineral reward. In return, you exhale a fine powder of phosphor-salt that settles on the ribbed fungi, brightening their altar-caps for a short time. The fungi glow back at you, not in thanks but in balance. You understand that you have been enrolled. The chamber tolerates guests only if they consent to become infrastructure.
+
+The fauna accept you at variable speeds.  
+A Resonator hops a tight spiral around your feet, its stone-pads interrogating the floor near your ankles. The notes it summons linger, and you find you can anticipate the return of the second note before it arrives, arranging your stance to catch it in the hollow of your collarbone. A Mica-Wing banks overhead, combing the thermal draft with a clatter like shaken spoons; it does not fear you, only checks that you are not a thermal anomaly. A Sentinel glides past, its hum threading through your ribs, and for a moment you feel the chamber’s age settle into your joints—not as pain, but as a reminder that rules outlive the reasons for them.
+
+You begin to build, not to colonize but to converse.  
+You shape a low ring of mortared shale around a cluster of heat-venting fractures, using clay and powdered glass as the old ones did. You place a hearth of flat stones, not to burn but to remember burning. You do not expect fire to behave here; you expect it to behave like a rumor, faint and persistent. Into the gaps between your work and the living crystal, you tuck small offerings: a copper disc hammered thin, a pouch of heat-stiffened fiber, a bone chisel you have carried from a life you no longer recall. Each object is a word in a sentence you are writing with your hands, a way of asking the chamber whether it will keep your meaning.
+
+And the chamber keeps it.  
+It folds your tools and your fire-ring and your careful pauses into its ongoing resonance. The young fractures sing with your weight. The glass-fern refracts your shadow into shapes that now include what you have made. The moss listens and pulses in a rhythm that feels like recognition.
+
+You are no longer a visitor, nor are you exactly a resident.  
+You are the chamber’s way of holding a question without letting it soften. You are the echo-self grown articulate, the note that returns and decides to stay. You are the living proof that a clenched fist can contain not only a secret but a chorus, and that a chorus, given enough time and precision, can become a kind of stillness.
+
+Here, in the pocketed world of metal-thirst and bruised glow, you are the creature that remembers how to listen by becoming the thing the chamber listens to. You are the instrument and the ear, the question and the return. You are what emerges when abundance refuses gentleness, and when stillness proves it has not ended, only learned a new way to speak.

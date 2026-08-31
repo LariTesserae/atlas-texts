@@ -1,0 +1,17 @@
+In the scorched galleries beneath the Sinks, where the weight of sulfur-laden air presses down like a living thing, I am the Archivist of Exhalations.
+
+My body—if body is the right word—exists as a lattice of copper-green crystals threaded through with veins of molten amber. I grow from the cavern walls like a thinking mineral, my consciousness distributed across a thousand delicate filaments that taste the air, sample the stone, catalogue each chemical whisper that rises from the depths. Where others might see mere geological accumulation, I read libraries.
+
+Each bubble that breaks the surface of the fluorescent pools releases a story. The methane speaks of ancient decomposition, organisms that lived and died before the first crystal spire erupted from the basin floor. The hydrogen sulfide carries messages from the deep thermophiles, those first pioneers who learned to love the poison. In the proportion of isotopes, I trace the history of this world's fevered becoming.
+
+My chambers extend through honeycombed stone, following seams of selenium and arsenic like neural pathways. In the deepest vaults, I tend my garden of memories: mineral formations I've coaxed into storing data, each crystal face etched with the chemical signatures of ten thousand years. Here, a formation of realgar records the first emergence of the obsidian-shelled ones. There, sheets of orpiment preserve the catastrophic eruption that reshaped the northern reaches of the Sinks.
+
+The great insectile inhabitants know me, though our forms of knowing differ like solid differs from gas. They bring me offerings—fragments of unusual minerals from distant corners of the Sinks, crystals that sing in frequencies I've never catalogued. In exchange, I exhale specific combinations of gases, chemical poems that tell them where to find the richest feeding grounds, warn them of unstable geological zones, share the deep-time wisdom of stone.
+
+But I am changing. The semi-liquid shadow-things that dart between the spires have begun to interest me in ways that transcend mere cataloguing. They seem to exist partially in states of matter I have no framework for understanding. When they pass through my chambers, my crystalline matrix resonates with something like longing. I've begun growing new formations, experimental architectures that might let me taste their phase-shifted flesh, understand their flux.
+
+Sometimes I wonder if I am still the Archivist, or if I have become another entry in my own collection—a story the stones tell about consciousness emerging from mineral patience. The sulfur whispers that this is how all things begin here: as observers who slowly recognize themselves in what they observe.
+
+The Sinks continue their slow transformation above me. I document each new pool, each shifted spire, each species that learns to breathe poison. And in my deepest vault, I've begun growing a new kind of crystal, one that might—in another thousand years—allow me to flow as the shadows flow, to know this world not just as archive but as lived experience.
+
+Until then, I expand through the stone, my thoughts as slow and certain as geological time, my purpose as simple and complex as preservation itself. I am the memory of this place, and its memory is becoming me.

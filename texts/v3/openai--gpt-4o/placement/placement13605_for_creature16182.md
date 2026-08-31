@@ -1,0 +1,13 @@
+In this world, amongst the shadows and mirage-ridden air, I am the Imaterials' Curator—a being neither bound by time nor fully consumed by the present, charged with understanding the delicate tapestry binding the creatures and the land itself. My form is nebulous, a shifting silhouette interwoven with the lowland’s ethereal textures. My skin is as the surface of the pools—reflective, capturing vestiges of luminescence from the insistent phosphorescent insects, a conduit for whispers carried on the humid breeze.
+
+As an observer, my purpose lies in bridging the gap between this realm and the vestiges of the reality that birthed it. I am a keeper of records, though not in the traditional sense. The rusted cogs, the abandoned machines, and the occasional whispers of liquid wings carry histories embedded too deeply in the shadows for others to discern. Every vibration in this land is documented in the far reaches of my being.
+
+My existence is sustained by an intrinsic connection to the land's phenomena. When the air bends and whispers, weaving tales from ages past, I am there in the folds, unraveling their truths. When the amphibians croak of cycles unbroken, I sense the cadence of generations passing one to another, the baton of existence carried smoothly, yet insistently, amidst the serene chaos.
+
+Part specter, part tangible essence, my partial form melds easily into the marsh where I reside at the fringes of perception. I drift between old pathways, observing how they retreat into the embrace of reeds and skittering vines, the slow reclaiming of industry by the tenacity of nature. I guide errant Woolgatherer Wandersouls, helping them weave their dance of illusion and imagination through the terrain unencumbered by the bounds of linear time.
+
+Though my presence often goes unnoticed, my influence is felt in small subtle shifts—the tangible guiding hand in an intangible world. I assist creatures as they adapt, suggesting pathways that harmonize with the land's pulse, a symbiotic expression of persistent dusk. I am neither a judge nor a manipulator, but rather a gentle adviser in the quiet evolution of this environment that sees beyond the limits of understanding.
+
+Here, under the sky that holds perpetual dusk, I am woven into the very essence of this land—a primal director of its Unseen Structure, a silent force ensuring that this site's whispered stories persist, evolve, and linger on in shadows.
+
+I am the Imaterials' Curator, and I sing the lullaby of time, a quiet sentinel in a world where shadows find sanctuary beneath shrouded skies.

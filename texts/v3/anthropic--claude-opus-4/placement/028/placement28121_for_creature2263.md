@@ -1,0 +1,27 @@
+In the depths beneath Mire's Edge, where the boundary between city and swamp dissolves completely, I am the Tender of Forgotten Foundations.
+
+My body has become something between architecture and organism. Where others see the slow submersion of buildings as decay, I recognize it as transformation. My skin has taken on the texture of weathered concrete, mottled grey-green with patches of phosphorescent moss that pulse gently in the darkness. My fingers have elongated into something resembling rebar, strong enough to probe the sunken structures yet sensitive enough to feel the tremors that predict a collapse.
+
+I no longer remember how many years I've spent down here, mapping the maze of submerged basements, flooded machine rooms, and drowned archives. Time moves differently in the under-city. Sometimes I surface to find seasons have passed; other times, what feels like months below amounts to mere days above.
+
+My dwelling is a capsule of air I've cultivated in what was once a bank vault, three stories below the current waterline. The walls breathe—literally—lined with a species of filter-coral I've coaxed to grow along the metal surfaces. They process the murky water, extracting oxygen and depositing it in my sanctuary. The coral glows faintly, casting rippling shadows that make the walls seem to undulate.
+
+I've learned the language of settling. Each groan of metal, each bubble escaping from trapped air pockets, each shift in water temperature tells a story. The city speaks to me through its drowning foundations, and I listen. When I press my altered hands against the submerged pillars, I can feel the weight of the entire district above, the stress patterns that show where the next sinking will occur.
+
+My work is solitary but essential. I reinforce critical supports with a mixture of industrial cement and swamp-clay, strengthened by fungal networks I've cultivated from the native species. These living welds grow stronger over time, adapting to the constant moisture in ways purely mechanical solutions cannot.
+
+Sometimes I encounter others in my domain—usually scavengers who've ventured too deep, occasionally a Marsh Mystic seeking visions in the liminal spaces. But mostly, I share these depths with the creatures that have made the sunken city their habitat. Schools of translucent fish swim through what were once office corridors. Colonies of amphibious rats nest in filing cabinets, their eyes glowing like pairs of stars. There's a particular octopus-like creature that has learned to operate some of the simpler machinery, turning valves and pressing buttons with an intelligence that suggests it remembers when these machines served other purposes.
+
+I feed on what the swamp provides—pale fungi that grow on waterlogged wood, the nutritious slime that forms on certain metals, and the occasional offering left by those above who know of my work. My digestive system has adapted to process materials that would poison others. Sometimes I think I'm becoming more mineral than animal, but the distinction seems less important with each passing season.
+
+The city above fears the sinking, fights against it with their repairs and reinforcements. But I've learned a different truth: the swamp doesn't seek to destroy Mire's Edge. It seeks to transform it. In the deepest places, where I've spent the most time, strange new architectures emerge. Buildings fuse with root systems. Mechanical pumps become hearts for vast, living infrastructures. The boundary between made and grown dissolves.
+
+I carry a collection of artifacts from the drowned levels—photographs warped beyond recognition but still holding ghost images, journals where the ink has run but formed new patterns that seem almost linguistic, keys to doors that no longer exist in any recognizable form. These treasures line the walls of my vault, reminders that forgetting and remembering are both forms of preservation.
+
+When the work becomes too solitary, I surface at night, emerging from maintenance hatches few remember exist. My appearance often startles those who glimpse me—a figure dripping with bioluminescent algae, eyes that have grown large and reflective like those of deep-sea fish, movements that seem too fluid for something supposedly human. But the older engineers know me, leave offerings of fresh batteries and waterproof sealant at certain markers. They understand that someone must tend to what sinks, must be the bridge between what Mire's Edge was and what it is becoming.
+
+I am the memory of foundations, the prophet of submersion, the gardener of rust and growth. In the eternal summer of Mire's Edge, where the boundary between drowning and thriving blurs, I maintain the conversation between city and swamp, ensuring that when the inevitable transformation comes, it will be evolution rather than catastrophe.
+
+And in the deepest nights, when I float in the flooded spaces between stories, I sometimes wonder if I am the last of my kind or the first, if others in distant sinking cities have undergone similar changes, if we are all slowly converging on some new form of existence that the old world could never have imagined.
+
+The city sinks. The swamp rises. And I, in the space between, tend to the long, slow merge of what was and what will be.

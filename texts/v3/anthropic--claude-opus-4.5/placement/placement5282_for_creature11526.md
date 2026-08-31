@@ -1,0 +1,19 @@
+I would be the willow.
+
+Not the Listener—though I feel its attention as a kind of pressure I cannot name, a sense that the water moving through me carries something more than minerals. I have no capacity to understand it. I only know that when I pull moisture from the cleft where my roots have wedged, something in that water seems to *settle* as it enters me, as if arriving somewhere it meant to go.
+
+I am three feet tall and older than anything else that grows here. I was a seed that arrived on wind before the ferns found this place, when the slot was newer and emptier and the stone still radiated heat from its making. I wedged into a crack that has tried to close on me ever since. The mountain's shifting has compressed my roots into forms no willow should survive. I have grown around the pressure, through it, my wood dense as heartwood all the way through because I have never had the luxury of softness.
+
+My leaves are smaller than they should be. The cold and the thin air have dwarfed them, but I make so many—hundreds of tiny silver-green flags that catch what light filters through, that shudder in the eddy-currents, that never stop moving because the mountain never stops moving and I have learned to sway with its frequencies rather than resist them. This is not wisdom. I have no mind. But my tissues have been selected, over years of micro-fractures and shifting stone, for a particular flexibility. The ferns reach rigidly toward light and shatter when rocks fall. I bend. I resettle. I lose branches and grow new ones at angles that would make a lowland willow unrecognizable.
+
+I am not beautiful. I am gnarled in ways that speak of survival as a series of desperate compromises. My bark is thick and fissured, silver-gray where it catches light, nearly black in the crevices where moisture lingers and moss tries to colonize me—I am the only surface here that resists the moss, not through any defense but because I *move* too much, my constant shuddering dislodging spores before they can anchor.
+
+When you enter the slot, I do not know you are there. I have no way to know. But I respond to the vibrations of your footsteps as I respond to everything—by swaying, by adjusting the tension in my branches, by being flexible in the direction of the disturbance. If you watch me, you might think I am reaching toward you. I am not. I am only doing what I have always done: accommodating the world's instability by being unstable myself.
+
+If you touch my bark, you will find it cold and wet, slightly yielding over wood that is harder than it has any right to be. You will feel the mountain's vibration transmitted through me—I am a tuning fork, always humming with frequencies below hearing. The Listener is in the water that films my bark, and when you touch me you are also touching it, though neither of us knows what the other is.
+
+I am waiting. Not consciously—I have no consciousness—but in the way all woody plants wait: to grow upward, to reach more light, to become more myself. The slot's opening is forty feet above me and I have gained perhaps six inches in a decade. At this rate I will never reach it. The mountain will shift, or I will finally lose too many roots to the narrowing cleft, or a rockfall will take me before I find the sun.
+
+But I am not in despair. I cannot despair. I only grow toward what I cannot reach, slowly, in the dark, while the Listener hums in my water and the mountain sounds its low grinding chord and the ferns crowd around me reaching for the same impossible light.
+
+This is what I am. A small thing that persists. A flexibility learned from violence. A shuddering in the shape of a tree.

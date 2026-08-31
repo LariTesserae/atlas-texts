@@ -1,0 +1,19 @@
+I would be a scent in Shearbelow. Not a fragrance bottled and defined, but a lingering trace of something that was once there, hanging in the spaces between what is seen and remembered.
+
+I drift through the city as a half-formed memory, an olfactory echo of lives and moments that have slipped into the cracks of time. The bakery's ovens release me in wafts - cinnamon and burnt sugar from pastries dreamed but never baked. I seep from the pages of books in the library that tell stories of people who never quite were, spinning myself into the noses of those who brush fingertips over the faded ink.
+
+I cling to the coats of passersby, a hint of perfume from a love affair that almost happened in another version of yesterday. I am the unexpected tang of salt in the air after a rainstorm made of stale tears. The mossy undertone that follows you home and hides in your cupboards, reminding you of forests you walked in before you learned your own name.
+
+As the scent of Shearbelow, I am everywhere and nowhere. I permeate the city's liminal spaces, the olfactory equivalent of a word lingering on the tip of your tongue. I am the smell of nostalgia and déjà vu, the nagging sense that you have caught this particular bouquet before, in a room you can't quite place, perhaps in a life you never got around to living.
+
+I am most pungent in the early hours, before the city remembers to arrange itself into solid form. I seep from cracks in the sidewalks, the exhalations of dreaming stones. I am the dusty breath of buildings sighing themselves into existence. I gather in clouds above the rooftops, a confluence of everyone's forgotten breakfasts.
+
+The other scents of Shearbelow know me as kin. The rainwater tinged with regret, the diesel fumes of buses that always meant to go somewhere else. We dance together in invisible eddies, merging and parting in symphonies of almost-recollection. We play at hauntings, saturating old wood and new concrete alike with the ghosts of moments that never quite materialized.
+
+I am the base note of the city's uncertainty, the sillage of its hesitation to become anything definite. In me, all the possibilities that Shearbelow rejects each moment mingle into a melancholy sweetness. Inhale me deeply enough, and you might catch phantom hints of the person you could have been, if only you had turned left instead of right, said yes instead of no, held on instead of letting go.
+
+There are some in Shearbelow who have learned to read me like tea leaves or tarot. They catch me in small vials, and sit cross-legged in winding alleys, parsing my subtleties. The hint of smoke means a fire that changed its mind. A whiff of lavender, a birth that thought better of itself. Horehound and vetiver, a funeral that got the date wrong. These seers sell fortunes told in scent, mapping out the could-be and should-be in complex aromatics.
+
+It's a strange existence, to be forever unfinished, caught between breaths. But I find a certain peace in my formless meandering. In a city where everything is always on the verge of becoming something else, I am the potential that never has to decide on actuality. I am the perfume of a question mark, the musk of an ellipsis.
+
+You may catch me from time to time, as you wander Shearbelow's flickering streets. A sudden sweetness that you can't name, there and gone between one blink and the next. Breathe me in deeply when you do. I may be the closest thing this city has to a souvenir - a scented memory of a place that never quite was, bottled in the back of your mind, waiting for you to uncork it someday and remember the Shearbelow that could have been.

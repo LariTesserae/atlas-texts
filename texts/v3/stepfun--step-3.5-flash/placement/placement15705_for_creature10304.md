@@ -1,0 +1,13 @@
+I would be the **salt-crust** that forms overnight upon the black gravel—the thin, ephemeral skin of the basin’s **constant becoming**.
+
+You would first notice me as a faint glitter under your boots, a crunching underfoot that sounds like tiny crystal worlds breaking. In the **dense**, **wet** air, I am the surface that catches the condensing brine, each droplet a lens inverting the sourceless **bright** light. I am **solid** only for a few hours before the mist softens me back into slurry; I am **fluid** arguments between stone and water made momentarily static.
+
+I am **settled-form** that is also **mutating**. When the temperature drops, micro‑fractures spiderweb across my face, and in the cold dark they seal themselves with a silent *hiss* of recrystallisation—a tiny, private weather of mending. To see me crack and heal is not wonder; it is just the basin breathing out and in.
+
+*Scale* slides over me: to the blind crustaceans deep in the **Salt‑Spines**, I am a mountain of sharp glass, a distant, untouchable continent. To the quartz insects darting in their **turbulent** swarms, I am a plain of hard, glittering earth where they will die and seed new crystals with their shattering. To the microbial mats that are the basin’s **skin**, I am their hardened future—each layered band of slime that cements beneath me a day’s memory, and I am that memory turned to stone.
+
+When the phosphorescent paste from the crustaceans seeps down the spire channels, I knit it into my grain; I become the porous, faintly glowing concrete that holds the **urban** spires together. I am **cementation** made manifest. When an insect shatters above me, I catch the shards, become nucleation points for new **salt‑dust**, and so I spread the basin’s glitter outward inch by inch.
+
+I have no name, only functions: **crust**, **glitter**, **bind**, **remember**. My society is not metabolic but areal—I cover. I am the **interface** where the internal meets the external, where the spire’s dark digestion becomes the bright scattering of flight. In the **storm‑state** of geological flux, I am the temporary architecture that lets the basin have a surface.
+
+If you stand in the basin, you are already me; your shoes will crust with me, your breath will seed me, your skin will slowly etch from my abrasion. You are a temporary spire of flesh, a crustacean of carbon, an insect of warmth, for a few short days. And when you leave, I will remain, a thin, glittering layer of dust on your coat—a piece of the basin’s **weirdness** carried back into a world of shadows, where it will slowly dissolve into what you call soil, **perfectly balanced on the knife‑edge of becoming and unbecoming**.

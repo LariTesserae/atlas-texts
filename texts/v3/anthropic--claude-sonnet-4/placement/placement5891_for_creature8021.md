@@ -1,0 +1,37 @@
+I find myself in the middle reaches of the Elderoak District, where the great trunk chambers are carved deep enough to muffle the wind but shallow enough that I can still hear the distant conversations of the root-telephone network humming through the walls. My dwelling is a modest hollow, perhaps four meters across, with a single window-mouth that the tree opened for me seven years ago when I first pressed my palm to its bark and asked, in the old way, for shelter.
+
+I am a Memory Tender.
+
+This is not quite the same as the Deep Tenders who disappear into the city's dreaming consciousness, nor the Listeners who translate the root-whispers. My calling is more specific, more melancholy: I tend the chambers where the city stores its sorrows.
+
+Every great organism has places where it keeps its pain. In humans, these might be scars or recurring aches. In the Canopy Cities, they are rooms that grow dark and close, chambers that the wood shapes around losses too deep to forget. A district where children died of fever thirty years ago. A bridge that fell during the Storm of Weeping Winds, taking seventeen families into the valley-mists below. Chambers where lovers parted, where great decisions went wrong, where the city itself made mistakes that cost lives or happiness.
+
+These grief-chambers grow differently than the rest of the city. Their walls weep actual tears—a slow seepage of bitter sap that stains the wood black and makes the air taste of copper and old sorrows. Left untended, they would poison the root-network, their sadness spreading like an infection through the city's consciousness. But they cannot simply be cut away or sealed off—the city needs its memories, even the painful ones. Especially the painful ones.
+
+So I tend them.
+
+Each morning, I wake to the taste of old tears in the air. My chambers are located at the confluence of several grief-roots, and I have learned to diagnose the city's emotional state by the flavors that seep through my walls. Today there is the metallic tang of the Memorial Chamber three levels down, where the city still mourns a bridge-builder who fell sixty years ago. Mixed with it, the sharper bite of the Lost Children's Room, where phantom cries sometimes echo on still nights. And underneath it all, the deep, woody sadness of the Ancient Grieving, the city's oldest stored sorrow—something so profound and primal that even the Tree-Speakers cannot say what loss it commemorates.
+
+My tools are simple: vials of distilled rainwater, blessed by the Sky-Shepherds during storms. Cloths woven from the bark of healthy trees, trees that have never known sorrow. And most importantly, my own trained capacity for absorbing grief without drowning in it.
+
+I begin my rounds in the darkest chambers, where the air is thick enough to cut. Here the walls have grown inward, creating spaces so cramped that I must crawl to reach the places where the sorrow-sap pools deepest. I clean these chambers not by removing the sadness but by concentrating it, drawing it into crystalline formations that I can carry away. The city's grief becomes beautiful in this form—dark amber tears that catch light like trapped stars, each one holding a memory too precious to lose but too painful to leave scattered.
+
+These grief-crystals I carry to the Memory Gardens, specialized groves where sorrow is transformed into something the city can use. Planted in carefully tended soil, watered with the exact balance of rain and tears, they grow into trees unlike any others in the canopy—silver-leafed and singing, their wood prized by the musicians for instruments that can make even the happiest songs carry undertones of profound beauty. The city feeds on its own processed sorrow, transforms it into art and wisdom and the kind of deep joy that can only grow from acknowledged pain.
+
+But the work changes you.
+
+After fifteen years of tending grief, my hands have taken on the blue-black stain of concentrated sorrow. My dreams are full of other people's losses. I know intimately tragedies I never lived, mourn for people I never met. Sometimes, in the deepest chambers, the boundaries blur and I forget which sorrows are the city's and which are my own.
+
+The other Memory Tenders understand. We are a small guild, perhaps twenty in all of the Elderoak District, and we recognize each other by the particular sadness that clings to us like perfume. We meet once a month in a neutral chamber, one that has known only joy, and we share the burden of our calling. We remind each other that beauty is not possible without sorrow, that wisdom requires the composting of pain, that the city's great compassion stems from its willingness to remember everything, even the things that hurt.
+
+Today I am working in a new grief-chamber, one that has just begun to weep. Yesterday, an old woman named Mira finally merged with the wood, becoming one with the heartwood of her family's dwelling. This should have been a celebration—the natural end of a life well-lived, another ancestor joining the city's conscious memory. But her great-granddaughter, only eight years old, cannot understand. She pressed her face to the bark that was once her great-grandmother's shoulder and sobbed until the wood began to darken with sympathetic sorrow.
+
+The chamber that grew around this grief is small but deep, shaped like cupped hands. The walls are smooth as skin and dark as night, and they pulse very gently with the rhythm of a child's broken heart. I enter carefully, reverently. This is fresh sorrow, still raw, still personal. It will be months before it transforms into the kind of crystalline beauty that can be harvested.
+
+For now, I simply tend. I wipe away the excess sap that threatens to pool and stagnate. I whisper the old songs that prevent grief from turning bitter. I burn the special incense that encourages sorrow to flow rather than fester. And I wait with the chamber, keeping it company in its darkness, until the city learns how to transform this new pain into something that can feed its vast, compassionate consciousness.
+
+Outside, I can hear the normal sounds of daily life: children laughing as they race along the moss-carpeted branches, merchants calling their wares, the soft percussion of the Sap-Farmers testing the great flows. The city dreams and grows and prospers, fed in part by its willingness to feel everything deeply, to remember every loss, to transform every ending into the rich soil from which new beginnings grow.
+
+I am part of this transformation. A small part, perhaps, but necessary. In the ecology of emotion that sustains the Canopy Cities, I am one of the decomposers, breaking down sorrow into its component parts so that joy can grow stronger and more real. It is not an easy calling, but it is mine, and the city has shaped me for it as surely as it shapes its own branches toward the light.
+
+Tonight, when I return to my dwelling, I will press my stained hands to my walls and feel the great heart of the city beating through the wood. I will taste tomorrow's weather in the evening sap, predict the mood of districts miles away by the subtle vibrations that travel through the root-network. And I will sleep the deep sleep of someone who knows their place in the vast, breathing organism of their world—even if that place is in the shadows, tending the tears that no one else can bear to touch.

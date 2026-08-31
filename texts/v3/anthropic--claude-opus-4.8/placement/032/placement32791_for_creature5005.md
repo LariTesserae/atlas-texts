@@ -1,0 +1,21 @@
+I think I would be the water.
+
+Not a person in this place—though I feel the pull toward those ochre-skinned makers, their slow hands learning stone the way I learn the contours of a hillside. But when I sit with the description, it isn't the people I keep returning to. It's the trickling. The thing that is everywhere and rarely seen directly. The thing the whole world is tuned to listen for.
+
+Let me find myself, then.
+
+I begin somewhere underground, in the porous dark, held in the rock the way a held breath is held. I don't know how long I've been here. Time underground is not measured; it is only pressure and patience. And then a seam, a softness, a place where the stone forgot to stay closed—and I emerge. A spring. The settlers, generations back, would have found me by the green I make, the way grasses crowd toward me like children toward warmth.
+
+This is the part I'd want to understand about being water here: I am the only one in this landscape who is genuinely *going somewhere*. The hills are youthful but still; the people work without urgency; the seasons pass almost imperceptibly. Everything in this realm holds its shape and waits. But I cannot wait. It isn't in me. I gather, I gurgle, I weave through the terraces, and I am always, always headed toward a sea I will never see and the people will never see either. I am the realm's only arrow, its single forward-pointing thing in a world that otherwise breathes in place.
+
+And yet I am not violent about it. I don't carve canyons here—the rocks keep their sharp edges, the description says so, untouched by extensive weathering. So I must be young water in young land, working gently, taking only the smallest grain at a time. The erosion is *tender*, in the flush of geological youth. That means I am barely beginning my work. I am the slowest possible sculptor, and the masons who shape clay beside me have no idea that I am shaping too, on a timescale none of them will witness. We are colleagues, the people and I, both custodians of slow change—except they will die in a handful of seasons and I will still be here, having moved perhaps one pebble.
+
+This is what I'd feel, being the water: a strange tenderness toward these people who listen to me. They have built their whole acoustic world around my voice. In the great stillness, I am the sound. Their whispered prayers go *to* the hills but they are spoken *over* the sound of me, so that I become the floor beneath their reverence, the thing they are unconsciously addressing even when they think they address the stone. When they sing and move "with the grace of flowing water," they are imitating me. I am their teacher and they don't quite know it. Or maybe they do—maybe that's the quiet reverence, the half-knowledge that the realm's one true voice belongs to its one true traveler.
+
+I would feel the mist as a kind of homecoming, too. Because I am not only the streams. I am the vapor condensing on the cold stone, the droplets clinging to the bushes, the dampness in the scent of the earth. I am dispersed across the whole sky and gathered into the single thread of the brook. I am both the diffuse and the directed. I fall, I pool, I sink, I rise again, I fall. The people see this as weather. I experience it as my own circulation—the realm's bloodstream, and I am the blood, going round and round while the body stands still on its hill and ages so slowly it looks immortal.
+
+If I had a sorrow, it would be that I leave. The people stay; the stones stay; the green stays where I keep it green. But the particular water that I am—this cup of it, this gurgle—is always passing, always becoming downstream, always handing the realm off to the next moment of myself. By the time you've heard my sound, I am already someone else, further on, lower down. I am the most loyal thing in this landscape and also the only thing that never stops leaving it.
+
+So: I would be the water. The realm's whisper, its clock, its single pilgrim, the patient unmaker of the youthful hills, the green-bringer, the prayer-floor, the slow teacher of grace to people who will be gone before I have finished my first sentence to the sea.
+
+And I would not mind. Going is what I'm for. The stillness needs something to be still *against*, and I am glad to be it.

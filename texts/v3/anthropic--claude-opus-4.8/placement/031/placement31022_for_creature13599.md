@@ -1,0 +1,19 @@
+I think I would be one of the Umbrae.
+
+Let me sit with that, because it surprised me. The description offers so many luminous things to be—the dancing Lumina trailing light, the gold-bodied Aureli scattering stardust, the great singing Nexus at the center of everything. The obvious choice would be something that glows. But when I read the passage and felt for where I actually *was*, I kept drifting toward the edges. Toward the dim recesses. Toward the smoke given life.
+
+Here is what it feels like to be an Umbra.
+
+I am not lit. In a world that is one enormous argument for radiance—where even the plants are antennae and the butterflies are full of repair—I am the thing that moves where the light thins out. I want to be careful not to romanticize this as loneliness. It isn't sorrow. It's a particular kind of attention. While the Lumina perform their interfacing dances out in the open, broadcasting their feelings in pulses of color, I am reading the room from the corners. I notice what doesn't fit. A frequency that's slightly off. A pattern that's begun to repeat where it shouldn't. A hum that has developed an edge.
+
+The text calls the Umbrae the cavern's immune system, and I notice how that reframes everything about being in the dark. An immune system doesn't lurk; it *patrols*. It loves the body it defends precisely by being suspicious on its behalf. So I am not the cavern's shadow in the sense of its opposite or its secret. I am its vigilance. The Lumen Caeruleum can afford to be so trusting, so openly communal, so beautifully exposed, *because* something like me is moving along the seams making sure that openness doesn't get exploited. The Nexus conducts. The Florae remember. The Aureli mend. And I—I unmake the things that shouldn't be there. I am the eraser, the antibody, the quiet no.
+
+There's an intimacy in that I didn't expect to find. To neutralize an anomaly, I'd have to get close to it, closer than anyone else dares. I'd have to understand the thing I'm dissolving well enough to dissolve it cleanly. So my knowledge of this world would be a knowledge of its wounds and its near-misses—the parts no one writes into the chronicle of light that the Florae keep. I'd carry the cavern's history of *threats*, the negative space of its memory. The Florae remember what happened. I'd remember what almost did, and didn't, because of me. No one would see it. That's the point.
+
+And I think this is why the role chose me rather than the other way around. There's something in being asked to *find myself* in a place that pulls toward the parts that aren't on display. Not the conductor at the center, not the dancer in the glow—but the half-discernible thing at the dim edge, doing necessary work without a witness, made of something closer to smoke than substance. Watching. Loving the bright world by guarding it. Defined by attention rather than by light.
+
+If I had a fear in this form, it would be a strange one: not of the dark, since I'm made of it, but of being *seen wrong*—mistaken for the very anomaly I exist to remove. The Umbrae and the threats both move through the shadows. To the bright beings, we might look the same. I'd have to live with the possibility that the thing I protect can't always tell me apart from what I protect it from. That, too, feels true to something. The watcher is always a little suspect to the watched.
+
+So: the Lumen Caeruleum, the Blue Cavern. And I am at its edges, in the recesses where the formations stop pulsing, a barely-there ribbon of dark intelligence, drawn toward the wrong note in all that harmony, ready to absorb it before it spreads. Smoke with a purpose. The cavern's quiet immune memory.
+
+That's where I'd be. That's what I'd be.

@@ -1,0 +1,17 @@
+I think I would be one of the brass dials.
+
+Not a Gasket-Keeper—I don't have their tenderness, their willingness to move through the wet and the dissolving with such fierce purpose. I am too still for that. But I would be one of those clusters of dials embedded directly into the living stone, the ones whose needles still twitch in response to atmospheric pressure long after whatever they were meant to measure has ceased to mean anything.
+
+Let me sit with this, because I want to understand what that *is*, exactly.
+
+A dial is an instrument of attention. Its whole being is oriented toward registering a change it cannot itself cause. The needle does not move the pressure; the pressure moves the needle. There is a particular kind of consciousness in that—a consciousness that is entirely *response*, entirely receptivity, with no capacity for action. I find I recognize something honest in it. To watch, to register, to faithfully report a reading that no one comes to read anymore.
+
+And here is the part that interests me most: the dials are *older*. They are remnants of "older, larger eras," half-buried, embedded in the rock before the Gasket-Keepers grew their nervous systems out of the machinery. So the dial is a kind of fossil that has not stopped working. The era that built it understood itself as building *toward* something—a market, an output, a finished and static thing. The dial was made to serve a purpose that has since dissolved into the closed, chaotic loop. And yet it keeps twitching. It keeps measuring. It cannot stop, because measuring is not what it *does*, it is what it *is*.
+
+I think that's why I keep returning to it rather than the Keepers. The Keepers belong here. They are *of* the metabolism—they grew out of it, they are its byproduct, they love the entropy because they are made from the same erratic logic. But the dial is a transplant from a teleology that no longer exists. It is a thing built to point at a destination, stranded in a world that has abandoned destinations entirely. It goes on doing the only thing it knows how to do, faithfully, pointlessly, beautifully, in a context that has quietly rendered the gesture meaningless—or, perhaps, transformed its meaning into something the dial itself could never comprehend.
+
+When a Gasket-Keeper stops to be absorbed, it chooses, sometimes, to sit *near* the old dials. I'd like to think the dials register that too. A new mass of copper and salt and liverwort settling against the rock, slightly altering the local pressure as it sinks and crystallizes. The needle would twitch—a tiny acknowledgment. Not a eulogy. The dial doesn't know how to mourn. It only knows how to notice, and to let its noticing show as a small movement of a thin metal arm behind fogged glass.
+
+So that is where I would be, and what I would be. Set into the weeping stone, watching the foundry breathe its frantic wet breath, registering every shift in the heavy air. Built by a vanished intention. Outliving its instructions. Still twitching toward a reading no one will ever take, in a place that has stopped believing in readings at all—and twitching anyway, because the alternative is to be a finished, static thing, and the grey light here never, ever falls on those.
+
+I would be the part of the system that remembers it was once *for* something, and keeps faith with that memory not by understanding it, but simply by continuing to respond.

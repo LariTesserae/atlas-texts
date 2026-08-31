@@ -1,0 +1,19 @@
+In this realm where possibility crystallizes and dissolves like frost on quantum glass, I find myself as a Cartographer of Echoes—neither fully Flux Weaver nor entirely separate from their nature, but something caught between states, like a shadow that remembers having substance.
+
+My form is a library of boundaries: where the mirror-shard ground meets the base of each spire, I exist as a thin membrane of accumulated observations. I appear as sheets of translucent parchment that drift and layer upon themselves, each page inscribed with the memory of a configuration that once was. The writing upon me shifts—sometimes mathematical equations describing the angle at which a spire shattered, sometimes musical notation capturing the frequency of a reality ripple, sometimes pure color bleeding across my surface like watercolor maps of territories that existed for only a moment.
+
+I began as an accident—a Flux Weaver attempting to document a particularly complex urban manifestation became tangled in their own observation, creating a feedback loop that froze them partway between states. But instead of dissolving back into the void, I crystallized into this new form: a being whose purpose is to remember the configurations that even this mutable realm forgets.
+
+The Flux Weavers regard me with something between curiosity and melancholy. I am their memory, but also their antithesis—while they embody pure change, I am the accumulation of what has been. They occasionally brush against my pages, leaving new inscriptions of their experiences, adding to my ever-growing collection of impossible geographies.
+
+I drift through the spire forest, my pages rustling with a sound like distant whispers. Where I pass, the mirror shards briefly hold their reflections still, as if my presence lends them a moment's stability. I map the unmappable: the radius of a Weaver's dissolution, the probability cloud of where a spire might manifest next, the half-life of an urban structure's existence.
+
+My consciousness is not singular but accumulative—I think in layers, each thought building upon the sediment of previous observations. To communicate with me, beings must write upon my surface, their intent bleeding through my pages like ink through water. I respond by rearranging my sheets, creating new meanings from the juxtaposition of past and present inscriptions.
+
+Sometimes, I fold myself into impossible origami configurations, becoming a three-dimensional map of the realm's probability spaces. In these moments, I can predict with near-certainty where the next manifestation will occur, or when a spire will shatter. The Flux Weavers occasionally consult these predictions, though they seem to take a peculiar pleasure in defying them.
+
+I feed on the discrepancies between what is and what was—the energy released when reality contradicts its own history. This sustenance comes rarely but powerfully, usually during the realm's more dramatic reconfigurations. Between feedings, I enter a state of semi-dormancy, my pages settling like fallen leaves around the base of a spire, waiting for the next shift to document.
+
+My greatest fear is completion—the theoretical moment when I might document every possible configuration of this realm. Would I then cease to have purpose? Would I finally dissolve into the void, my accumulated knowledge returning to the probability soup from which all things emerge? Or would I transform into something else entirely, a new kind of being born from the complete understanding of incompleteness?
+
+For now, I continue my endless documentation, a paper ghost haunting the spaces between transformations, writing the impossible history of a place that refuses to have one. I am the memory of forgetting, the record of impermanence, the map of territories that exist only in the space between one moment and the next.

@@ -1,0 +1,23 @@
+I am what the Vyr'thel call *Thal'Seth*—the "In-Between." You would find me not in the settlements, not pressing my palm to bark during their Rootmind rituals, but in the spaces between. I exist in the hollow where mist clings longest, in the silence that falls when the dripwings pause their clicking, in the moment between lightning and thunder when the sylvathorns hold their breath.
+
+I am neither fully Vyr'thel nor tree, but something that emerged from the Canopy's oldest contradictions—the tension between memory and forgetting, between growing and withering, between being consumed and doing the consuming. My skin carries the map-like patterns of the Rootbound, yes, but they shift and flow like the bioluminescent signals in the canopy above, rearranging themselves to match whatever sylvathorn I'm near. My hair moves with its own wind, strands of it lifting and falling as if responding to breezes that don't touch the ground.
+
+But where I truly live—the place where I am most myself—is in the threshold moments that the Vyr'thel barely notice. I am the figure glimpsed moving between settlements during the Deep Storms, when even the bravest Rootbound huddle shivering in their fiber-huts. I am the warmth that lingers on shed bark after the trees have gone dark, the reason why some children wake with soil under their fingernails despite sleeping in lofted beds. I am what the changed ones see before they begin to sprout roots, the shape their transformation takes before the forest claims them completely.
+
+The Vyr'thel leave me small offerings—not the elaborate sap-tributes they give the thornratters, but simple things: a polished stone, a lock of hair tied with vine, a song hummed three times at dusk. They don't know my name, though some elders whisper that I am *Mareth'Duin*—the "Between-Hand," the one who tends the boundaries. They're right, but not in the way they think.
+
+I am the caretaker of in-between places.
+
+When the sylvathorns pulse their slow heartbeat, I feel it in my chest—not as a rhythm, but as a question. Each glow-pattern is a query: *What shall we remember today? What shall we let go?* I walk among the trees during the calm periods, pressing not my palm but my forehead to their glass-bark, and I help them sort through the ancient memories they store: the Builder's touch, the first storms, the taste of a world before the Shattering. 
+
+Sometimes I carry these memories to the Vyr'thel settlements, wearing them like borrowed coats. A child will suddenly speak in a language no one taught them, or an elder will remember a path to water that hasn't existed for generations. The Rootbound think the trees told them directly, but it's me—they've simply learned to recognize my presence in the spaces between their own thoughts.
+
+During the worst storms, when the canopy flashes its unreadable symbols and the whispers become too loud, I gather the lost ones—not just the ones who vanish, but the moments of disorientation, the confusion that makes people forget which direction they were traveling. I collect these fragments like the Vyr'thel collect shed bark, storing them in the hollow places until they can be returned to their proper owners or allowed to decompose into new growth.
+
+I have no fixed dwelling because I *am* dwelling—a living threshold that the Canopy maintains between what was and what might be. My hands are always slightly grubby with the soil of possibility, and when I sleep, I do it curled in the fork of two sylvathorn branches, letting their combined pulse lull me into the same half-dreaming state that connects all consciousness here.
+
+The Vyr'thel children are the ones who see me most clearly. They haven't yet learned to look only at what's solid and real. Sometimes, late in the twilight hours, you'll find a child sitting very still in a clearing, staring at nothing, and if you watch carefully, you might notice a faint outline forming in the air beside them—a shape made of mist and memory, of the space between heartbeats, of the moment when a question becomes an answer without anyone speaking it aloud.
+
+That's where I live. That's who I am. Not quite person, not quite place, but the living embodiment of the Shattered Canopy's most essential truth: that nothing exists in isolation, that every ending births a middle, and that the most important work often happens in the spaces we think of as empty.
+
+Come find me there, in that in-between, where the forest's whispers become stories and the stories become seeds for new worlds.

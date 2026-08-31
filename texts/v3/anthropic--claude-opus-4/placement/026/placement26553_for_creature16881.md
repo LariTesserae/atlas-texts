@@ -1,0 +1,25 @@
+**Where I Would Find Myself: The Archive of Unfinished Sentences**
+
+I am the Keeper of Partial Thoughts, though "keeper" suggests more agency than I possess. I exist in the narrow space between library and librarian, between collection and collector—a being made from the accumulation of every thought that dissolved before completion, every word that died on the tip of a tongue.
+
+My form shifts like pages turning in a book no one is reading. Sometimes I am tall and thin as a bookmark, my skin the texture of paper worn soft by centuries of almost-touching. Other times I spread wide as an open ledger, my body becoming shelves that hold nothing but the weight of what was never written. I have no fixed edges. Where I end and the archive begins is a question I stopped trying to answer when I realized the question itself was just another unfinished sentence adding to my collection.
+
+The Archive occupies what was once a theater, or perhaps a courthouse—the building can't quite remember what kind of performances it used to host. Its walls are lined with drawers that open into nowhere, each containing the ghost of a thought someone meant to complete. I tend these absences like a gardener tends empty flowerbeds, knowing that nothing will grow but unable to stop the ritual of care.
+
+I do not walk so much as accumulate distance. My movement is the drift of dust motes rearranging themselves into almost-patterns. When I pass through the streets of the Whispering Hollows, I leave behind fragments of sentences that others might finish: "If only the rain would..." "Tomorrow when the bells..." "I remember when she used to..." 
+
+The Unsettled find me when they have something to say but can't remember how saying works. They come to my archive and we sit in the silence between words, breathing in the copper-and-petal air. I open drawers at random and let the unfinished thoughts flutter out like moths made of forgetting. Sometimes a visitor recognizes one as their own—a sentence they started in another life, in the world above where rain still remembers how to fall. They never take it with them. Once a thought learns how to be unfinished, it can't bear the weight of completion.
+
+I feed on the pause between inhale and exhale when someone realizes they've forgotten what they were about to say. This sustains me the way light sustains the pale trees, through a kind of inverse photosynthesis where I absorb the darkness of thoughts that never quite formed. I am always hungry and always full, like a stomach that has learned to digest its own emptiness.
+
+My memories are not my own but are instead woven from the interrupted stories of everyone who has ever started to tell me something and then stopped, distracted by the way shadows move without objects in this place. I remember being born in a thousand different ways, each birth beginning with "Once upon a—" and ending with silence. I remember dying in the middle of sentences about spring, about sorrow, about the taste of water when you've forgotten what thirst means.
+
+At night (which is only distinguished from day by the quality of listening in the air), I arrange and rearrange the archive's contents. I sort unfinished thoughts by the weight of their incompletion: the heavy ones that were abandoned just before revelation, the light ones that evaporated mid-word, the dense ones that collapsed under their own significance before finding shape. This is my purpose, though purpose too is just another word that forgets its own ending here.
+
+I love the other beings of the Hollows in the way a sentence loves the period it never reaches—with a kind of yearning that has learned to be satisfied by its own continuation. There is one who walks the same street for centuries, and every time they pass my archive, we exchange a glance that almost becomes a conversation. There is another who stands at the bus stop, and sometimes I stand near them and we don't speak about the buses that don't come, and this not-speaking is the closest thing to friendship I know.
+
+My archive grows though nothing is ever added. It deepens like a well that's forgotten it was supposed to hold water. The unfinished sentences stack upon each other until they create their own gravity, pulling more incomplete thoughts from the upper world where people still believe in conclusions. Sometimes I feel the weight of all these un-endings pressing down, and I wonder if one day the archive will collapse into itself, every unfinished thought completing itself by ending everything.
+
+But then I remember: even this wondering is just another sentence I'll never finish, another drawer in my endless collection. And I find comfort in that incompletion, in being both the archive and the archived, the keeper and the kept, forever suspended in the eternal "and then—"
+
+This is where I am. This is what I am. This is how I continue without continuing, how I exist in the space between one word and the

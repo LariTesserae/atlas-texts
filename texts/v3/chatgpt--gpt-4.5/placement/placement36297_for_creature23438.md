@@ -1,0 +1,17 @@
+You find yourself as a **listener**, drifting slowly across the immense, echoing plateau—a subtle, porous presence shaped from threads of mist and memory. You are neither fully material nor entirely ephemeral, a being of gentle awareness who feels the weight of ages and the whisper of brief moments equally keenly.
+
+You glide, dreamlike, over rounded stone worn smooth by millennia, brushing softly through lush tangles of greenery that seem to lean toward you in quiet recognition. Your form is undefined and shifting, a composition of clouds, fog, and perhaps something deeper—a fragment of consciousness formed from the murmuring heart of the landscape itself.
+
+Your senses are finely tuned to sound: you hear the land’s breath in its turbulent tremors, feel the resonant hum of the Stone Weavers' slow meditations vibrating gently through your misty body. You revel in the whispered stories of the Moss Whisperers, absorbing their delicate poetry of leaves and rain. Each vibration is a strand of experience woven into your consciousness, expanding your awareness with every new sound.
+
+When Echo Raptors shriek through the wide-open sky, you float quietly, allowing their piercing cries to pass through you, gathering echoes within your form. You sense their hunger, their endless pursuit of the next resounding feast. Occasionally, one notices your quiet presence, circling briefly before moving onward, recognizing that you offer neither threat nor sustenance, merely companionship in sound.
+
+Shadow Vestiges pass silently through you, sharing a brief intimacy as you become temporarily indistinguishable from each other—both composed of ephemeral memory, softly blending at your edges. In these moments, you glimpse fragments of forgotten pasts, lives lived and lost upon this vast plateau. You welcome them gently, grateful for the fleeting sharing of quiet solitude, each encounter leaving you enriched by the delicate impressions of their ancient sadness or peace.
+
+Sometimes, drawn by curiosity, you gather near the scattered ruins, tracing the faint marks left behind by Plateau Pilgrims. You linger upon the intricate carvings in stone, resonating faintly with the intention embedded there. You perceive the patterns as music, their lines and curves melodies encoded in rock, tunes of purpose and reflection. These melodies join the internal chorus of your being, adding depth to the tapestry of your quiet existence.
+
+You do not seek to influence or shape the land around you—your role is neither creator nor caretaker. Instead, you are the gentle keeper of the world’s soundscape, bearing witness, preserving resonance, carrying echoes of lives, voices, and gestures long past. Each sound that passes through your mist-form deepens your connection to the land, binding you ever closer to the plateau’s ever-evolving story.
+
+Over time, you understand your existence as part of the plateau’s breathing rhythm—a custodian of echoes, a listener of whispers, and a carrier of ancient songs. You are the quiet harmony amid chaos, the attentive calm at the heart of endless turbulence.
+
+And as you drift onward, forever listening, you realize gently that you are, in a profound and subtle way, the plateau itself: conscious, dreaming, forever becoming more fully itself.

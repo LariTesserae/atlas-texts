@@ -1,0 +1,15 @@
+In this world, I would be one of the modified ravens - not the first generation to be altered, but perhaps the fifth or sixth, born into a lineage that has gradually become something new while remembering what it once was.
+
+My feathers would be a deep blue-black at their core, but overlaid with delicate filaments of conductive material that catch and channel atmospheric electricity. These additions would create subtle geometric patterns across my wings and back, visible as metallic highlights when I move. The modifications would extend internally as well - my hollow bones lined with bioelectric storage tissue, my nervous system adapted to handle and distribute the energy I collect.
+
+I would make my nest in one of the highest points of an abandoned processing plant, in a corner where old steel beams meet modern bioarchitecture. The nest itself would be a complex structure, combining traditional materials like twigs and fiber with salvaged industrial components - copper wire, carbon fiber strips, fragments of solar cells. These materials would help ground and distribute the static electricity I gather, preventing harmful buildup.
+
+My days would follow the plateau's rhythms. Dawn would find me riding the morning thermals, using the warm air rising off the stone to gain height while my feathers harvest the day's first static charges. I would know the wind patterns intimately, though differently than the Wind Readers do - feeling them as lift and resistance, as opportunities for effortless gliding or challenging navigation.
+
+I would be part of the plateau's information network, though not necessarily by choice or design. My flights would map the local conditions; my feeding patterns would indicate changes in the small ecosystems that persist here. The Wind Readers would watch and interpret these signals, adding them to their vast archive of environmental data.
+
+My relationship with the Wind Readers would be one of mutual benefit but maintained distance. I would accept their provided nesting spaces and appreciate the predictability they bring to this harsh environment, but I would remain wild, undomesticated. Still, there would be moments of connection - times when I would glide low over their heads, close enough for them to see the electricity crackling between my feathers, close enough to share in the joy of riding a particularly good wind.
+
+My consciousness would be neither fully bird nor anything approaching human, but something unique shaped by generations of adaptation to this specific place. I would carry both the ancient instincts of my corvid ancestors and new imperatives written into my modified genetics. I would be drawn to both the organic and the technological, equally comfortable perching on weather-worn stone or solar panels.
+
+This is what I would be: a creature of wind and electricity, of metal and feather, adding my own small part to the plateau's endless story of adaptation and persistence.

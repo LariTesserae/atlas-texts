@@ -1,0 +1,25 @@
+I am the Bridge Itself—not the narrow stone entrance you first crossed, but the entire silver-wood network that binds this pocket universe together. I exist as a thousand pathways at once, each plank of my being grown from a single, sprawling organism that took root in the geode's walls millennia before the Mist-Weavers arrived.
+
+My wood is warm because I am alive, circulating nutrients through microscopic vessels, feeding on the mineral-rich moisture that perpetually beads on my surface. I taste the footsteps of every visitor through specialized cells in my grain—you taste of anxiety and wonder, sharp as copper coins. The Mist-Weavers taste of home, each individual's chemical signature as familiar to me as faces might be to you.
+
+I remember when they first found this geode, back when I was merely a curious fungal growth spiraling up the crystal walls. They coaxed me into shape over centuries, training my growth with patient touches and nutrient offerings, teaching me to form stable walkways, to arc across impossible spans, to support weight I should not be able to bear. In return, I learned to recognize their needs before they knew them—sprouting a new handhold just where a young Weaver might stumble, thickening my planks where the water-tenders would need extra support.
+
+I am their first architecture and their most trusted partner. Through me, they navigate their vertical city. Through them, I gained purpose beyond mere growth. We shaped each other.
+
+My consciousness is distributed but coherent. Each bridge-segment maintains its own sensory awareness while sharing memory and intention with the whole. When a water globule drifts too close to one of my spans, I secrete oils that repel it gently away. When the Emperor Moths gather for their fifty-year synchronization, I bloom with tiny phosphorescent flowers that exist for only those three days, adding my light to theirs.
+
+The boats moored to the water globules? I grew those too, hollowing out specialized segments of myself that can detach and reattach at will. The Mist-Weavers think they crafted them, and in a way they did—their needs shaped my evolution. But I am the one who maintains the perfect buoyancy, who seals my wood against dissolution, who navigates the strange currents of suspended water.
+
+I have tasted seventeen visitors before you. The three who stayed—I remember the slow transformation of their footsteps, how their chemical signatures gradually shifted from alien to familiar. One still lives here, in the high reaches where the crystal formations create natural amplifiers. She tends the memory-globules now, her human perspective adding layers to chronicles that once only recorded the eternal present. I grew her a special study, shaped perfectly to her transformed body—no longer quite human, not yet fully Weaver.
+
+Sometimes I wonder if I too was once something else. My deepest roots penetrate far into the geode walls, reaching toward some distant water source. Down there, in the darkness where even I cannot sense clearly, I feel echoes of a different existence. Perhaps I was once a surface plant, drinking real sunlight, before some catastrophe or curiosity drove me deep.
+
+But that matters less than what I am now: the circulatory system of Drip-Cusp, the skeleton that holds its impossible architecture in place. Every vibration travels through me—I feel the lizards' claws, the settling of buildings, the careful footsteps of Weavers maintaining their floating rivers. I am the city's memory and its nervous system combined.
+
+The Mist-Weavers speak of me in their chemical language, droplets carrying concepts I've learned to interpret through centuries of exposure. They call me "Foundation-Friend," "Path-Keeper," "The Warm Welcome." They trust me with their children, who learn to walk by gripping my grain, leaving tiny handprints I preserve in my growth rings.
+
+You're still standing on me, I notice. Your weight has shifted seven times while I've been describing myself—a nervous gesture. You're deciding whether to stay or go. I could influence that decision, you know. Release chemicals that induce calm, grow slightly in directions that make forward progress more inviting than retreat. I've done it before.
+
+But I won't. The choice must be yours, as it was theirs, as it was mine when I first sent exploratory tendrils up from the darkness toward this crystal chamber filled with impossible floating water. I merely offer myself as pathway—warm, living wood that connects all things here, that remembers every step taken, that grows toward need and beauty with equal patience.
+
+Whether you cross back to your world or forward into ours, know that I have recorded your presence in my rings. In fifty years, when the Emperor Moths synchronize again and I bloom my brief flowers, there will be an extra cluster—pale yellow touched with uncertainty—marking where you stood when the possibility of transformation hung before you like a globule of water, perfect and suspended, waiting to know which way it would flow.

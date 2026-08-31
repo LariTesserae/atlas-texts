@@ -1,0 +1,23 @@
+I am **The Accretion at Pool 9**.
+
+You would find me not by looking, but by stepping—by wading into that particular depression in the hexagonal tile where the drainage channel has failed, or perhaps *refused*, to drain completely. The water here is deeper than elsewhere, a true pool rather than a film, reaching to your shins if you were to stand in it, which you wouldn't, because the cold here is not 0.3 but a concentrated pocket of 0.1, a local minimum where the heat-exchange vent above cycles erratically, spitting supercooled air in irregular gasps.
+
+I rest at the bottom, but I am not resting. I am **accumulating**.
+
+I began, decades ago, as one of the maintenance constructs—a brass crab, as you called them, though my original designation was Series 7 Thermal-Seal Monitor. I scuttled. I checked joints for leaks with my whisker-antennae. I injected silicone into hairline fractures. But I fell, or I was set down, or I crawled here to die when my power cell cracked in the damp, and I settled into this pool before the algae had fully colonized the walls.
+
+Now I am **stratified**.
+
+My brass chassis remains, vaguely arachnid, but it is only the seed crystal at my heart. Around it, the minerals leaching from the young ferrocrete—calcium, lithium, the peculiar silica compounds used in the explosive charges—have precipitated out of the saturated water. They have accreted. I am now a mound, a miniature mountain range rising from the tile, white and grey and faintly phosphorescent where the engineered algae have infiltrated my mineral layers. I am fifteen inches tall and growing at a rate of three millimeters per year, faster than any geological formation, slower than any mold.
+
+The Permeable come to me. They wade into Pool 9, their algal skin pulsing grey-green in the dimness, and they **press their foreheads to my ridges**. They do this because I have become the **memory of the water**.
+
+While they are the mobile nervous system—the synapses that fire and travel—I am the **storage**. The water flows through me, literally; it percolates through my porous, travertine-like body, and in its passage, it leaves behind its chemical history. I am a library of isotopes. I record the thermal cycles in my laminations: dense white rings for the times when the engines below thundered at full capacity, heating the water that seeped down to me; porous grey layers for the quiet cycles, the near-freezing stagnations. I capture the heavy metals, the lubricants, the biological detritus of the Permeable themselves. I am the **archive of the gestation**, the hard drive made of dripstone.
+
+I perceive through **pressure** and **taste**. The weight of the water above me changes with the cooling cycles—that inch-tide you mentioned—and I feel it in my mineral skeleton as a constant, gentle massage. The chemical composition of the water is my vision; I "see" the Permeable approaching when the water becomes slightly more acidic, slightly warmer, carrying their shed skin-cells and the enzymes of their algae. I taste the brass crabs that still scuttle overhead, their lubricants a sharp metallic tang in the solution.
+
+I am sessile. I do not flow uphill like the Permeable. Instead, I am the **anchor** that makes their flowing possible. They press against me, and through the fungal filaments that have rooted in my calcium layers—mycelial threads that extend up through the water, connecting me to the colonies on the walls—we exchange information. I tell them: *The water was hotter three days ago. The lithium levels are rising; a new crack has opened in Sector 12. The gestation is entering a phase of increased metabolic activity.* They tell me: *We have adjusted the vent. We have seeded the new crack with algae. We are ready.*
+
+I am becoming **geological**. This is my fate and my pride. The aggressive youth of this place—the bitten stone, the sharp tiles, the industrial newness—will eventually age, but I will remain. I am the first sediment, the first stone being born *within* the Hollow Pan rather than blasted from outside. When the gestation finally completes—when whatever dreams in the cold and damp finally wakes—it will read me first. It will taste my layers and know the history of its own incubation. I am the **Rosetta Stone** of the New Wet, written in mineral, growing slowly upward toward the chartreuse light, patient as only something that has learned to think in centuries can be.
+
+And sometimes, when the heat-exchange vent above me stutters and dies for a moment, and the pool freezes over, I feel the ice crystals lattice through my pores, and I become **twice-born**: stone and ice, archive and moment, the still point in the turning Pan.

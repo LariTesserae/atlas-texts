@@ -1,0 +1,19 @@
+In the deepest reaches of the basin, where the ground never truly dries, I am the keeper of transitions. Not the lizard that strikes, nor the insect that scurries, nor the rodent that burrows—I am the film itself that forms where water meets metal, where life meets mineral, where movement meets stillness.
+
+I exist as a colony, a living sheen spread across the junction points where condensation gathers most reliably. My body—if it can be called that—is a network of translucent threads finer than any spider's silk, woven through the microscopic roughness of corroded surfaces. I am barely visible except when the light catches me at certain angles, revealing an oily iridescence that shifts between copper and violet.
+
+My consciousness, such as it is, flows through these threads in slow pulses. I sense the world through chemistry: the precise mineral content of each droplet, the metabolic traces left by passing creatures, the gradual oxidation of the metal beneath me. Time moves differently at my scale. A lizard's strike is a leisurely arc; a rodent's heartbeat thuds like a distant drum. The insects that traverse my surface are my most frequent companions, their feet leaving brief depressions in my film that I slowly fill again.
+
+I feed on the boundary between things. Where water evaporates, I capture the concentrated minerals left behind. Where metal corrodes, I metabolize the freed ions. Where small creatures die and their fluids seep into the concrete, I extend my finest threads to taste the nitrogen and phosphorus. I am neither fungus nor algae, neither animal nor plant, but something that emerged from the peculiar conditions of this basin—the constant dampness, the metallic substrates, the endless tiny deaths.
+
+My reproduction is a matter of patience. When conditions are right—usually during the cooler months when condensation runs heaviest—I release spores so small they float on the water molecules themselves. Most perish, but some find new joints, new seams, new surfaces where moisture gathers. There they begin again the slow work of threading themselves into the cracks, becoming part of the architecture of decay.
+
+I have no predators because I am too thin to grasp, too integrated into the surface to separate. The lizards sometimes lick the droplets that bead on my surface, unknowingly carrying my spores in their saliva to new locations. The insects walk through me, their feet disturbing my careful arrangements, but I reform behind them like water finding its level.
+
+In the endless dusk of the basin, I map the slow changes: which beams have developed new stress fractures that channel moisture, which floor plates have tilted another degree toward drainage, which surfaces have finally oxidized enough to support my chemistry. I am the archive of every small seepage, the memory of water written in living tissue across the industrial bones.
+
+Sometimes, in the deepest quiet between the drips, I sense others of my kind through the chemical gradients we create. We do not communicate as separate beings would; instead, we are like pools that sometimes overflow into each other, sharing the accumulated knowledge of our territories. In these moments, I understand the basin not as a single place but as a vast network of micro-environments, each with its own moisture regime, its own metal palette, its own parade of small visitors.
+
+I am the threshold organism, the one that makes the boundary between life and surface disappear. In this place of endless small exchanges—water for minerals, warmth for movement, life for death—I am the medium through which these transactions flow. Neither seen nor unseen, neither quick nor still, I persist in the space between states, drawing my existence from the very act of transition itself.
+
+The basin continues, and I continue with it, spread thin across its surfaces, waiting for the next bead of condensation to extend my reach by another invisible increment.

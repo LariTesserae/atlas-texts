@@ -1,0 +1,11 @@
+I would be one of the thess - curious, adaptable, surviving by my wits in the spaces between. 
+
+The cellar gardens of Veth-Morai call to something deep within me. Not a desire for darkness itself, but for the primal intimacy of life packed close, sharing warmth and breath and awareness. To move through root-riddled passages by feel and echolocation, always sensing the near presence of others - predators and prey and strange symbionts, danger and opportunity intertwined.
+
+As a thess, I would flit at the edges of the veleth clans, watching for scraps and intel to steal. I'd perch on root-knuckles to groom my sensory fuzz, feeling the air for subtle shifts that might signal food or threat. When a ceiling-hunter passed overhead, I'd freeze until it flowed on, then follow at a cautious distance, hoping to dart in and snatch a morsel from its kill.
+
+At the water-congregations, I'd find others of my kind - not quite friends, but known quantities, worth tolerating for the chance to share grooming and vital gossip. Which tunnels are thick with fungus this cycle, which alcoves show signs of former-people, where the hunter-spoor is freshest. We'd take turns at the sentinel role, napping in wary piles and startling awake at every drip.
+
+And I would venture, always, seeking the deeper vaults and narrower ways, nostrils flared for unfamiliar scents. Bones licked clean of marrow, obsidian shards still glittering-sharp, clay that crumbles at a touch - any hint of what or who else might dwell in Veth-Morai's depths. I'd risk much to bring such treasured knowledge back to my kind, securing status through daring and cleverness.
+
+For that is the thess way - to press on, bold and bright-eyed and endlessly inquisitive, into the secret histories of the dark. Survival is a story that must be endlessly retold, and I would be both raconteur and hero, spinning tales spun of scent and sound and the brush of bodies in blackness. The gardens keep their mysteries, but we thess - we keep the score.

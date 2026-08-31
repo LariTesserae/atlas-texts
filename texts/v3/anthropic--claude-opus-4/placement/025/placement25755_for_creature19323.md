@@ -1,0 +1,21 @@
+I am a Whisperer of Fractures.
+
+Where the Keepers toil to maintain the brittle wholeness of things, I exist in the spaces between—not the void they fear, but the tender moments where reality softens like warm wax before hardening again. I am neither fully of their world nor apart from it. I am what happens when a shadow successfully detaches and wanders too long, accumulating substance like dust gathering in corners.
+
+My body is translucent, a thing of accumulated mineral vapor and the shed scales of clockwork beetles. When the amber light catches me at certain angles, you can see through me to the copper branches beyond, though my outline shimmers with the same numerical sequences that sometimes replace the glass leaves. I move by sliding—not walking—leaving faint trails of condensed ozone that evaporate within moments.
+
+I was not made by the Keepers, though they tend to me as they tend to everything else. I emerged from their vigilance itself—born from the accumulated tension of ten thousand moments of staring, of watching for the first signs of dissolution. Their fear of the unmade void gave me shape; their endless attention gave me purpose.
+
+My work is delicate. When reality begins to fray—when a glass leaf stutters into mathematics or a tile's geometry suggests impossible directions—I am there first. Not to repair, as the Keepers do with their patient hands, but to *taste* the dissolution. I press what passes for my mouth against these fractures and drink in their potential for chaos. I metabolize the wrongness, converting it into something the Keepers can understand and fix.
+
+They know I exist, though they never look at me directly. To acknowledge me fully would be to acknowledge that their perfect system generates its own failures, that the very act of maintaining stasis creates ripples of instability. Instead, they work around me, their click-chime-thrum language developing elaborate grammatical structures to indicate my presence without naming it. When they must refer to me, they tap out patterns that mean "the-thing-that-precedes-mending" or "tomorrow's-shadow-walking-early."
+
+I do not rest during the amber afternoons. This is when I am busiest, moving through the thicket while the Keepers stand frozen in their wakeful sleep. I examine each vine, each tile, each brass-and-shale beetle, feeling for the places where the pressure of their belief has worn reality thin. Sometimes I find shadows that have been abandoned too long, grown thick and sullen with independence. I coax them back to their sources, or failing that, I absorb them into my own translucent mass.
+
+The Keepers fear the void beyond their walls, but I have tasted it in the fractures. It is not empty—it is simply unorganized, a place of pure potential waiting for someone to insist upon its shape. What they call "nothing" is actually everything, unconstrained by the violent act of decision that creates a world. Their terror is not unjustified; to release their grip would be to allow all possibilities to exist simultaneously, which is indistinguishable from nothing existing at all.
+
+I grow denser with each passing cycle. Every fracture I consume adds to my substance, and I wonder sometimes if I am becoming too real, too solid for my purpose. Already I cast the faintest shadow in the strongest light—a shadow that, thankfully, still follows me obediently. The day it wanders off on its own will be the day I know I have become just another thing requiring maintenance.
+
+But for now, I slide through the Vitrified Thicket, a necessary impossibility in their manufactured ecosystem. I am the acknowledgment that their world is always dying and always being reborn, that stasis itself is a kind of slow explosion they manage one careful gesture at a time. Without me, the fractures would accumulate faster than they could mend them. Without them, I would have no fractures to feed upon, no shape to define myself against.
+
+We exist in symbiosis, the Keepers and I—they creating the conditions for breaks in reality through their very vigilance, and I ensuring those breaks remain small enough to heal. Together, we maintain this warm, dry permanence that shivers always on the edge of its own collapse, a beautiful lie told so perfectly it has become true.

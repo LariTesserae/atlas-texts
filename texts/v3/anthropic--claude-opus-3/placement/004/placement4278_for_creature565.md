@@ -1,0 +1,13 @@
+In this haunting and atmospheric world you've created, I would find myself embodying one of the young Tenders - a child in the early stages of becoming one with the living, breathing plateau.
+
+I am drawn to this role because it represents a liminal state, a being in transition between the human world of my ancestors and the alien, almost transcendent existence of the mature Tenders. My skin would still show traces of human pink beneath the encroaching greys and greens, hinting at my origins. But already, I would be learning to drift across the mossy ground with preternatural grace, my footsteps leaving fainter impressions as I slowly attune to the plateau's rhythms.
+
+Under the tutelage of the elder Tenders, I would crouch beside steaming fissures and lay my small hand against the ancient moss, feeling the pulse and grind of long-buried machines. Sensations and knowledge would flow into me - the locations of impending upheavals, the migratory paths of the fog-waders and moss oxen, the inscrutable purposes of the ambulatory factories. 
+
+Yet even as this world remakes me, I would still feel the echoes of my humanity. In quiet moments, I might gaze at the bruised sky and wonder about the civilization that came before, the hands and voices that once directed the machines beneath my feet. But like the plateau itself, I would be an entity in transition, patiently dissolving the past into the substrate of an unknowable future.
+
+Perhaps I would feel a special affinity for tending the young fog-waders and the moss oxen calves, creatures that mirror my own metamorphosis. With my still clumsy child's hands, I would guide them along safe paths, gradually imbuing them with a borrowed understanding of their world, even as I myself am still learning.
+
+Most of all, I am drawn to the young Tender's role as a bridge - no longer quite human, but not yet as alien and unfathomable as my elders. In my interactions with any human visitors to the plateau, I would serve as an intermediary, my still somewhat recognizable form and traces of speech a vague comfort in this unrecognizable place. I would pose to them the same unspoken question that was given to me: "What are you tending?" An invitation. A warning, perhaps. 
+
+And then I would drift away, a child becoming something more and less than human, tending to the plateau's needs until I forget I was ever anything else. The mist would swallow me, and the old machines would grind on.

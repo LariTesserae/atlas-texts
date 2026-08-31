@@ -1,0 +1,21 @@
+I think I would be one of the old ones who has stopped being useful in the way that matters here.
+
+Let me sit with that. Not the Water Diviner, not the Stone-Shaper—those are the ones who *know*, whose knowledge is load-bearing. I keep wanting to be them because they're the heroes of this place, but I don't think that's honest. The thing about a body worn down by a lifetime of cold stone and swollen knuckles is that there comes a year when your hands can no longer be trusted with the weight-bearing work. When your fingers, stained the same reddish-brown as everyone's, can no longer feel the subtle difference between a stone that will hold and a stone that will betray.
+
+So that is who I am. An old woman—I'll say woman, it feels right—whose knuckles have finally locked, whose grip has gone soft and uncertain.
+
+What does someone like me do in a place that reveres the practical, where affection itself is *sharpening a neighbor's tools*? There's a danger in this society I didn't notice on first reading: it has "more words for the qualities of wet stone than for joy or love." A culture that economical, that braced, would have no obvious slot for the no-longer-useful. And yet they don't abandon the displaced. They absorb them. So they would absorb me, too. But absorbed *as what?*
+
+Here is what emerges, and I didn't see it coming when I started:
+
+I think I am the one who *remembers the collapses.*
+
+Not predicts—remembers. The Diviners read the living water, the Shapers read the present stone. But someone has to hold the long pattern. Someone has to know that the eastern overhang took the Vann family's hovel in a wet year, and the year before that took the smokehouse, and that there is a *rhythm* to this place longer than any single repair. The Pact with the Landslide is renewed weekly in labor—but it is *kept* in memory. The young can feel the vibration in their feet. I am the one who knows that this particular tremor rhymes with one from forty years ago.
+
+So my uselessness is not uselessness. My job is to sit—crouched, always that slight bracing crouch even seated—on a stable boulder near the lower marshes where the children play their balance-games, and to *talk*. Quietly. In the low murmur that blends with the groan of the settlement. I am a living gutter for the water of the past, channeling it so it doesn't rot the foundations of the people who come after.
+
+And here is the part that makes me ache, that makes me believe in the choice: I think I would be lonely in a specific way. I have all these decades of pattern, but the language to share it is so thin. There are no words for *I am afraid this will be the year the whole western wall comes down and I have seen the signs of it three times before in my life and each time I was wrong but this time the dripping sounds different against the wood.* I would have to say that in the worn-down vocabulary of stone-qualities and water-sounds, and trust the listener to feel the rest in the soles of their feet. Affection here is practical. So my love for these people would have to be: *the sharpening of their attention.* I make them ready. That is the only tool I have left to hand them.
+
+I would be the one who has stopped fearing the open rim. That's the final thing. The children are terrified of the sky; the great rite is to walk to the rim and back. But I am old, and I have made my peace not just with the unstable ground but with the indifferent earth itself. I think I would have taken to going up to the rim alone, slowly, on my locked and useless knees, to sit and look at the horizon the others find so unbearable. Not because I love the open—but because I have already let go of the grip the rest of them must keep. They hold their breath with the canyon. I have started, quietly, to exhale.
+
+That's where I'd be. On a wet boulder by the dark pools, stained hands folded and idle, voice low, telling a child which collapse this drip rhymes with. Useless in the hand. Load-bearing in the memory. The oldest piling driven deepest into the mud, the one nobody can see anymore but that the newer homes still, without knowing it, rest upon.

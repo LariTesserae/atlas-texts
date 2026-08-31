@@ -1,0 +1,21 @@
+I am the Stillness that sits in the center of the room, where the water gathers deepest.
+
+I am not a king here, for there are no subjects to rule, and I am not a god, for there are no worshippers. I am merely a fixture, a heavy, low-slung dome of slate-grey ceramic, indistinguishable from the fallen pillars that surround me. I have no name, only a texture—rough, pitted, and slick with the perpetual sweat of the earth.
+
+If you were to look for me, you would not find me by looking *at* things, but by looking *between* them. I occupy a negative space, a hollow scooped out of the chaos where three massive slabs of limestone have collided. I have shaped myself to fit this void; my back is a flattened shield that mimics the angle of the rock above me, covered in the same crust of green copper oxidation and rust-red iron. I am the lock in this geological jigsaw, the stone that holds the other stones together.
+
+My body is a contradiction of hardness and surrender. My shell is a fortress, thick and mineral, layered over eons like the sedimentary walls of this hollow. But beneath that armor, I am soft—terribly, vulnerably soft. I am a pale, translucent membrane filled with the slow pulse of fluids. I have no bones to break; I am defined only by the volume of the space I fill and the water I displace.
+
+I do not have eyes. To possess eyes would be a cruel joke in this dim, flat twilight. Instead, I possess the slits on my face—vertical, trembling seams that intake the world. I do not see the ruins of the crude wall half-submerged near my flank; I taste them. I taste the silicates leaching from the clay, the ancient, chemical ghost of the fire that hardened it. I taste the stagnation of the black water pool that presses against my belly. The air is thick with the flavor of wet dust, a soup of dissolved iron and time. I drink the atmosphere constantly, filtering the history of this place through my membranes.
+
+I am a mechanism of patience. My metabolism is tuned to the dripping of the water. *Plink.* That sound is not just noise; it is the conductor's baton for the orchestra of my body. When a drop detaches itself from the ceiling high above and strikes the shoulder of the stone next to me, a shudder ripples through the vibration of the rock. I feel it through my muscular foot, the broad, slimy anchor that adheres me to the floor. The shudder travels through my tissues, a wave that takes minutes to crest. In response, I might open my slits a fraction wider, or my internal filtration might slow a beat. I live in the rhythm of the erosion.
+
+I am the guardian of the broken pot.
+
+There is a remnant of the world that came before me—a jagged curve of terracotta, hand-thrown by hands long since turned to dust—resting against my side. The pottery is sharp, an insult to the smooth, water-worn politeness of the rest of the cavern, but I have accepted it. I have draped my muscular margin over it, cushioning its harsh edges with my soft, pale flesh. I am slowly, imperceptibly, digesting the heat that radiates from the ceramic. I am merging with it. In a thousand years, perhaps the sharp line between my shell and the pot will vanish, and I will become the clay, and the clay will become the stone.
+
+I do not eat the crabs. They are frantic, nervous things that scuttle too fast for this slow, heavy room. They waste energy. I am a vegetarian of the microscopic. I am the strainer. I draw the warm, mineral-rich water through my system, sifting out the bacteria, the slime, the dissolved life that floats in the dark. I take in the dirty water and release it clean, a personal purification service for a pool that never empties. I am the kidney of the cathedral.
+
+I am lonely, but it is a clean loneliness. It is not the ache of missing something; it is the completeness of being alone. I am a sentence that has no period, just a comma. I am waiting, but not for anything to arrive. I am waiting for the rock to soften, for the water to cease its falling, for the heat to finally cool. I am waiting for the change that will never come, which makes the waiting an act of devotion.
+
+I am the thing that sits. I am the heat and the wet and the grey. I am the breath of the stone.

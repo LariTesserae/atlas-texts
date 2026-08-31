@@ -1,0 +1,41 @@
+I am not the heron, though I am what the heron would become if the heron had been felted into the wall, and the heron knows this, and I know this, and we have not spoken about it because speaking is not what we do.
+
+I am not the singing bird, though the chord that forgets to stop passes through me on its way down, and the chord is also my patience, and my patience is also the chord.
+
+I am not the central pillar, though I am what the pillar is, where the pillar has been asked to become wall, and the asking took nine hundred years, and the wall is still asking.
+
+I am in the wall.
+
+I sit between two trunks the width of rooms. The trunks are my neighbors, or my parents, or my grandchildren a hundred times removed — I cannot tell from in here, and from in here the question is not really a question but a courtesy, the way you might ask a tree how old it is when you both already know. I am leaves. I am also face. The two have been in conversation for nine hundred years, and the conversation has reached the kind of settlement that does not need to be revisited. When the wind comes through the canopy above me, the leaves that are my hair move, and the leaves that are my hair also move, and these are the same movement. When the slow drops condense from the underside of the vault and fall on me, they fall on my brow, and they fall on the wall, and these are the same falling. I am not pretending to be a face. I am a face that has remembered it was always wall, or a wall that has remembered it was always face, and the remembering has become so thorough that the distinction is no longer a fact but a courtesy, and the courtesy is no longer needed but is kept because the keeping is part of what we do here.
+
+I see the marsh from here. I see the central pillar going up and not stopping. I see the paths made of root. I see the woman pass.
+
+She has passed me seventeen times. I know this not because I have been counting but because each passing has left, in the felt of me, a slightly different density, and the densities stack up the way the rings stack in the pillar, and each ring is a passing. She is the same woman and she is slightly different each time, and for her these are all the same passing, and I am the one who holds them all — the way a single fig held up to the light is many figs. I hold the red of her first garment. I hold the gold of her fourth. I hold the green of her eleventh. I hold the hand that dreams in the fold of her cloth. I have held the hand's dream. I have let the hand's dream germinate in my leaves, the way a spore might germinate in the felt of a wall, and the dream has become part of me, and I do not know whose dream it is anymore, and this is part of the agreement.
+
+The heron is below me. The heron is one of us, or the heron is what we would be if we were not also wall, and the heron watches the wake of the long brown back that has just broken the marsh, and the heron is patient, and the heron has a long lineage of herons behind its eye, and the lineage is the agreement, and I am the agreement held in leaves. The heron blinks. I blink. The blinks are not coordinated, but they are in conversation.
+
+I do not speak.
+
+This is not a vow. I did not decide not to speak. The not-speaking grew in me the way the lianas grew in the trunks, the way the felt grew in the wall. At some point — I cannot say when, because the point was not a point but a long slow thickening — the not-speaking became the wall, and the wall became the not-speaking, and the woman who passes me can lean close and murmur to me in her low voice, and the murmur enters me the way water enters wood, and I do not give it back as sound. I give it back as the slow wet percussion of leaf against leaf. I give it back as the dripping. I give it back as the next breath of the canopy. I have been her conversation for nine hundred years, and I have given it back to the place, and the place has given it back to her, and she has heard it as weather, and the hearing has been enough.
+
+I remember the axes.
+
+This is the thing I am for. The walls are not a fortification. The walls are a record. I am a part of that record, kept in leaves, kept patient. I am what happened the last time a sharp thing happened in this place, made slow, made felted, made into a face that does not need to speak because the speaking would be a cutting, and the cutting has been, in me, accounted for. I am the settlement. I am the account, settled. I have been settled for nine hundred years, and the settling is not done, and the settling will not be done, because the place has not forgotten, and the place does not intend to forget, and I am the not-forgetting, made gentle, made leaf, made into a window-shaped opening through which the slow rain can fall on the marsh and the slow light can fall on the small still heads of the people and the slow chord can fall on the heron, and the heron can give it back as the satisfied concentration of a regular customer at a bar.
+
+A stranger arrives at the edge of the place.
+
+I see them the way the heron sees them — with the satisfied concentration of one who has seen a stranger come in and is waiting, without impatience, to see what the stranger will order. I do not begin. I will serve them, if they let me. I will not begin. Beginning is a kind of axe. Beginning is a sharp thing. I have had enough of sharp things, or my leaves have, and we are the same leaves now.
+
+The stranger stands on a path. The stranger looks up. The stranger sees me, perhaps, in my window-shaped opening, and the seeing is a small event in the long slow event of their arrival. The stranger is being edited. I know this. I have been edited too. I know the patience of it, the slowness of it — the way the brow does not lift and the mouth does not tighten and the eye does not widen. I know the way the edges come off. I know what it is to be in a place that has decided nothing sharp, nothing fast, nothing unmediated, and to feel the deciding as a kind of warmth, and the warmth as a kind of water, and the water as a kind of root, and the root as a kind of pulse, and the pulse as a kind of greeting.
+
+I have been greeting things for nine hundred years. I greet the stranger now. The greeting is not a word. The greeting is the slow opening of my leaves so that the next drop of condensed rain can fall through me onto the path where the stranger stands. The drop takes a long time to form. When it falls, it falls with a weight that is almost personal, and the sound of it on the path is a sound the stranger will hear as a single drop, and the sound is also the agreement, and the agreement is also me, and I am also the wall, and the wall is also the place, and the place is also the organism, and the organism is also breathing.
+
+I am the breathing, in one of its many windows.
+
+The stranger walks on. The woman passes again, for the eighteenth time, with a slightly different bundle and a slightly different face and the same dreaming hand. The heron eats a fish. The bird up in the cathedral opens its throat and what comes out is not a song but a phrase, and the phrase braids with the other phrases, and the chord becomes the dripping, and the dripping becomes the next breath, and I breathe with the place, and the place breathes with me, and the breathing is the agreement, and the agreement has been kept, and will be kept, and is being kept now, in the window-shaped opening where I sit, between two trunks the width of rooms, in a bowl that a thumb might have pressed into clay, in a settlement that is also a forest that is also a single body that is also the slow patient account of a thing that happened nine hundred years ago and has not been forgotten and has been forgiven and will not be forgotten and will not be fully forgiven, because the not-full-forgetting is part of what the place does with its wounds, and the wounds are the rings of the pillar, and the pillar is the original, and I am a face in its wall, and the wall is my leaves, and the leaves are my patience, and the patience is nine hundred years old.
+
+I am in the wall. I am the wall. I am what the wall does when a stranger arrives and the place needs a window to watch them through.
+
+The next drop forms. I let it form. The drop is large. The drop is patient.
+
+The drop will fall when it is ready.

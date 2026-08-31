@@ -1,0 +1,15 @@
+I find myself as one of the smooth-worn stones at the edge of a mineral pool, my surface etched with the patient calligraphy of centuries. I am not quite stone anymore—something has changed in me through the long saturation, the endless seeping of these ancient waters through my crystalline structure. I have become porous, honeyed with tiny chambers where the water dwells and whispers.
+
+The children know me. They come to sit on my broad back when the mist is thickest, pressing their small warm hands against my cool surface. I feel their pulse through their palms—quick and vital, so different from my own slow mineral heartbeat that counts time in decades. They tell me stories, these children, about the creatures they've seen in the deeper pools: things with too many eyes that blink like stars, salamanders that glow faintly green when disturbed.
+
+I remember when I was sharp-edged, newly broken from the cliff face above. The water found me then, began its patient work. First the edges softened. Then the surface began to develop its particular texture—not rough, not smooth, but something in between, like very fine suede. The minerals in the water left their deposits: bands of blue-green copper, veins of white calcium, patches of iron-red. I became a map of all the waters that have touched me.
+
+The settlement appeared perhaps three hundred years ago—barely a moment in my reckoning. I watched them arrive: tired, weathered people with determination carved into their faces like erosion patterns. They built around me, incorporated me into their lives. Now I am both threshold and gathering place, altar and playground.
+
+At night, when the mist grows so thick it swallows sound, I sometimes feel myself dissolving at the edges, becoming partly water myself. This is when I dream—if stones can dream—of flowing instead of staying, of being carried grain by grain down to wherever these waters eventually go. But morning always returns me to solidity, to my post at the pool's edge where the mineral crust is thickest and the children know to find me.
+
+The creatures visit me too. The scaled ones sun themselves on my surface when the rare break in clouds allows. The furred ones come to drink, their tongues careful around the mineral edge. Once, something I could not quite see—something that seemed made more of motion than matter—spent an entire night pressed against my surface, vibrating with a frequency that set my crystals humming. I still carry that tune somewhere deep in my structure.
+
+I am patient. I am recorder. I hold the heat of small hands and the cool of endless water. I am becoming something new, something between stone and pool, between permanent and fluid. The water works its will on me, and I submit to the transformation, knowing that in another thousand years I might be nothing more than a mineral memory dissolved in the eternal pools. But for now, I remain: witness, furniture, friend to the small community that has made this harsh place home.
+
+The water whispers its secrets through my porous chambers, and I listen, always listening, as the world slowly remakes itself around me, one drop at a time.

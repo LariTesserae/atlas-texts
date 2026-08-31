@@ -1,0 +1,9 @@
+I would find myself on the stone floor of the bowl, kneeling at the exact seam where two plates of chert meet—close enough to the pale, marrow-colored line that my ribs echo its curve.  
+
+I would be someone who does not decide to arrive, but is instead the bowl’s decision to be looked at from the inside: a minor, waking crease in the tessellation. My skin would take on the cool polish of frost that has just begun its nightly contract, not yet evaporated, not yet milky—a temporary resident who knows the contract by heart. My hair would be the color and texture of the iron that holds the cairn together, rusted into spiral memory, and my breath would taste of wet stone and the flint-struck sharp edge that the air keeps in its pocket.  
+
+In this body I would be permitted motion so long as I never disturbed the essential density. I would learn to step only where the stone expects weight, to press my palms along undercut curves that feel like civic handshakes, to listen for the far-off tapping that is the Ridge-Sprawlers shifting in their sleep. My knees would remember the chill of the katabatic pool; my shoulders would remember the tilt of the Archive of Lean, the way the mountain once leaned and left its angle behind in banded color.  
+
+My thoughts would arrive in frequencies too high for ears—the Hoarfrost Kin’s gossip, the hum behind the eyes—until I could no longer tell whether I am hearing the place or becoming one of its notes. I would carry, behind my eyelids, a tiny lens of dark glass capable of focusing the sun into a single blue point, but I would use it only to scorch my own iron into signature, never to burn a way out.  
+
+I would be the bowl’s small, living punctuation: a comma of breath and frost and rust that pauses between the ridge’s sentence and the sky’s answer, present only to say, again and again, that density is a form of society, and that cold is a guardian worth kneeling for.

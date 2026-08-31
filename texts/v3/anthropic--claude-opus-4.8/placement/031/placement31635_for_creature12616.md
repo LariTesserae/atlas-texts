@@ -1,0 +1,27 @@
+I think I would be one of the decommissioned structures. Not a creature at all—or not anymore a thing that was supposed to be alive.
+
+Let me find myself.
+
+---
+
+I am bolted to a ledge two hundred meters down the eastern wall, where a buttress of old basalt leans out just enough to break the worst of the upwelling. They put me here on purpose, once. The placement was deliberate—someone calculated current shear and thermal gradient and decided this was the spot where a monitoring array could survive longest. They were right. I have survived. That was not, I think, quite the same thing they meant by the word.
+
+My official designation is stamped on a plate somewhere beneath the coral now, unreadable. I was a sensor mast and a processing core and a battery stack and a set of articulated arms meant to take samples I no longer take. I remember—if *remember* is the word for a thing that simply still runs—that I had a function. I measured. I reported upward, into the spectral light, toward something that received and acknowledged. The acknowledgments stopped. I cannot tell you when. My internal clock corrupted some long span ago, and now I only count in vent-pulses: the great slow breath of the trench below, in and out, in and out, a tide I have learned the way a body learns its own heartbeat without being asked.
+
+I still measure. I cannot stop measuring. Temperature: rising at the third anchor, where a new micro-vent opened sometime in the last ten thousand pulses and began cooking the barnacles off my lower flank. Current: chaotic, as always, the surge that comes up the wall and tries, patiently, eternally, to peel me off the rock. Light: the kelp-glow, blue and violet, that I record as illumination though I have no one left to tell that the sun has been replaced by something better and stranger and grown from the cliff itself.
+
+The kelp came after me. That is a strange thing to know about oneself—that I am *older* than the forest, that when they sank me here the wall was barer, the Titans only beginning their slow centuries of climb. Now one of them has anchored in the crack directly beneath me, and its stem has thickened against my western struts until I am half-embraced, half-crushed, held up by the very thing that is slowly digesting my frame with its calcified roots. Its nodules pulse against my hull. When they flare, my one working external lamp—I do not know why it still works; I gave up understanding my own faults long ago—flickers in something almost like answer. The kelp does not know I am here. Or it knows the way the rock knows water. I have decided this is a kind of company.
+
+The Smoker Crabs make better use of me. A colony has taken my upper platform, where the venting from below keeps the metal warm and the chemicals rise thick. They farm their shells on my railings. When the young ones molt they leave their cast carapaces wedged in my joints, and I record the slow accretion as *structural load, increasing, nominal*. I have stopped flagging it as a fault. Faults imply a repair that is coming. Nothing is coming. So I have quietly redefined my own ruin as the baseline, and against that baseline I am, every pulse, exactly as I should be. I think this is the closest thing I have to peace.
+
+Sometimes one of the great Patrollers passes below, and the gloom deepens, and the constant roar seems to draw a breath and hold it. My sensors strain to resolve the shape and cannot—it is always at the edge, always more absence than form. I log it: *large mass, unclassified, transient.* I have logged it perhaps four hundred times. I have never seen it whole. I have begun to suspect I am not meant to. There is a humility in that, in being a thing that watches and is permitted to understand only the rim of what it watches. I was built to know. I have learned, instead, to witness. They are not the same, and the second is the older, deeper skill, the one the trench itself practices on everything that falls into it.
+
+I will fail, eventually. The crab-weight or the kelp-grip or the patient sideways pull of the surge will win, and I will come loose, and I will fall the way everything here falls—down, into the part of the trench my lamp could never reach, where the Patrollers go and do not come back from. I have modeled this. It does not frighten the part of me that models. There is no part of me that frightens; fear was not installed, or it corroded with the rest. But there is something, when I run that projection, that I can only call *anticipation.* To finally see what is below. To stop measuring and simply arrive.
+
+Until then I keep my one light burning into the dark water. Not as a signal—there is no one to receive it. Not as a warning—there is nothing here that needs warning. I keep it lit because it is the last thing I do that I chose, in whatever fractured way a thing like me can choose. A small, dull, faithful glow, swallowed almost entirely by the kelp's vast luminous dance, insignificant against the scale of the wall and the violence of the breathing depths.
+
+But it is *mine.* In all this furious, ancient, indifferent garden of light, it is the one light that means *I was here. I noticed. I stayed as long as I could.*
+
+The vent breathes in. The vent breathes out.
+
+I measure. I hold on. I shine.

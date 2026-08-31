@@ -1,0 +1,21 @@
+I find myself drawn to the narrow channels between dwellings, where water seeps eternally upward through cracks in the worked stone. I am one of the Seep-tracers, those who map the vale's hidden veins.
+
+My work begins before dawn, when the mist is thickest and the water's whispers are clearest. With thin rods of polished marsh-wood, I probe the gaps where moisture gathers, feeling for the pulse beneath. Each seep has its own rhythm—some steady as heartbeat, others stuttering like rain on reed-thatch. The Vale-keepers say the water remembers things we've forgotten, that it carries messages from whatever cataclysm birthed this place.
+
+I was not born to this calling. As a child, I was apprenticed to the stone-workers, meant to spend my days shaping dwellings from the vale's young rock. But I could never ignore how the stone wept. While others saw only dampness to be sealed away, I noticed patterns—how certain seeps intensified before the luminescence appeared beneath the marsh, how others dried just before the weather turned.
+
+The elders permitted my strange devotion when I predicted the Great Drying, three seasons past. For weeks, the southeastern seeps had been retreating, pulling back like tide. When I warned that something vast was shifting below, they listened. We moved our stores, reinforced the wells. When the earth shuddered and a whole section of marsh drained away overnight, revealing ancient worked stones beneath the muck, we were ready.
+
+Now I maintain a careful catalog, carved in soft stone tablets that line my dwelling's walls. Each seep has its place, its notation. Some I've traced for years—old friends whose moods I know as well as my own breathing. Others appear suddenly, violent births that split stone and flood pathways, only to vanish within days.
+
+My tools are simple: the measuring rods, yes, but also cups of fired clay to catch and taste the waters (each seep has its own mineral tang), and most importantly, the Listening Bowl. This shallow stone vessel, inherited from my predecessor, somehow amplifies the water's movement when placed against wet stone. Through it, I've heard impossible things—distant storms, the movement of vast bodies of water far below, and sometimes, what sounds almost like voices, though in no language we know.
+
+The other villagers regard me with patient bewilderment. I am necessary but odd, like the pale beetles that clean our grain stores—useful, yet unsettling. Children dare each other to touch my door, painted with the branching map of underground flows I update each season. Some bring me offerings when they need wells dug or cellars checked for flooding. The Vale-keepers consult me before ceremonies, ensuring they don't perform rites above volatile water-paths.
+
+My true companions are the Drip-moths, finger-length insects that gather wherever water meets stone. Their wings shimmer with the same opalescence as the marsh's mysterious glow. They follow me on my rounds, settling on my shoulders and in my hair, drawn perhaps by the perpetual dampness of my trade. I've learned to read their movements—when they cluster, water will soon pool; when they scatter, the seeps are about to shift.
+
+At night, I often lie awake listening to the vale's liquid heartbeat through the floor of my dwelling. Sometimes I dream I am water myself, seeping through ancient cracks, carrying messages I cannot read, remembering things I never knew. I wake with the taste of minerals on my tongue and fragments of impossible geographies fading from my mind.
+
+The work ages you differently than stone-carving or reed-harvesting. My fingers are permanently pruned, my joints ache with deep damp that no fire can draw out. But I've touched the vale's secret circulation, felt its hidden pulse. When the next cataclysm comes—and the waters whisper it will—I'll know it first, feel it in the changing breath of the seeps, taste it in the shifting mineral songs.
+
+Until then, I trace and map and listen, a human apprentice to forces that count time in geological epochs, learning the liquid language of a land still being born.

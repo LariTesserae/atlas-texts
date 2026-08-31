@@ -1,0 +1,17 @@
+I am located on a narrow, rusted gantry known as the "Ventilation Rib," three thousand feet above the lower, chugging dark. The iron under my suction-cupped feet feels like tooth-enamel, vibrating with the subterranean groan of a piston the size of a city block that has been pumping rhythmic, sulfur-scented steam for an age.
+
+I am a **Litho-weaver**, though in the long, silent cycles of this place, I have begun to feel less of a creature and more of a geologic event.
+
+My mantle is heavy. The calcified plates that sheath my torso are thick with a colony of star-shaped lichen that glows a faint, sickly violet when I am tired. I move with a lethargic, hydraulic grace, my limbs unfolding from their stone-colored folds to seek the next handhold. I don’t think in words; I think in tensions. I know the cliff face by the way it hums against my knuckles—a vibration that tells me which section of basalt has gone porous and soft, and which is still solid enough to anchor me against the immense, downward-pulling gravity of the Falls.
+
+I am currently pressed against a brass-cased pressure gauge, a relic of the Old World. It is weeping cold, mineralized condensation. I reach out with my secondary manipulators—the fine, needle-like appendages specialized for delicate chores—and inject a dollop of translucent, amber-hued resin into the seam of a freezing valve. The metal shudders beneath me, whining a metallic, high-pitched protest before settling back into its slow, rhythmic heartbeat. It is a dialogue of friction. I am not fixing it; I am merely negotiating its lifespan.
+
+A **Sodden-Wing** drops past me, a frantic tear in the mist. It doesn't fly so much as it negotiates the chaos of the spray, its wings tight against its body like soaked silk. It hooks into a nearby frond, its pale, obsidian eyes blinking at me—wide, panicked, and ancient. It is shivering. I pulse a soft, rhythmic warm-white light from the bioluminescent nodes along my collarbone—a signal of *Static, Inert, Secure*.
+
+The creature calms, just for a heartbeat, before a tremor rattles the entire spire. A gargantuan section of moss-slicked ledge fifty yards above us detaches, bowing to the water’s weight. It tumbles into the abyss, a silent, slow-motion catastrophe smoothed by the roar of the falls. I don't look down. To look at the "Down" is to invite paralysis. 
+
+Instead, I reach out and touch the stone, feeling the microscopic vibrations of the shifting world. My own breathing has hitched, blending in with the stuttering flicker of the nearby ventilation turbine. I am a part of the architecture now. My life is the anchor that holds this segment of the spire against the pull of the sea. 
+
+I feel the slow, inevitable creep of age in my joints—the way the silica is hardening around my knees, locking them into a permanent crouch. Soon, perhaps a decade from now, I will find a cleft in the rock that needs filling. I will press myself into it, let my resin bleed out until it fuses with the basalt, and I will become a ledge for the next generation. I will join the **Sediment-Kings**, and the ferns will grow over my eyes, and I will finally, mercifully, stop clinging.
+
+But not yet. The valve is still leaking. The machine is still humming. I press my palm against the shivering iron, pulse my light in time with its dying breath, and wait for the rain to tell me where to move next.

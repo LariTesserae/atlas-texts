@@ -1,0 +1,11 @@
+In this strange, haunting world of sunken greenhouses, I imagine myself as one of the gradient dwellers - a small, unremarkable spider patiently hanging in its web between the warm, dense canopy above and the cold, sparse basin floor below.
+
+Like the other creatures here, I would be uniquely adapted to this constructed ecosystem, my very biology intertwined with the machines that ceaselessly thrum and the inverted temperatures that delineate distinct zones of life. My web would be a delicate record of time in this place, strands graying with accumulated organic dust. Suspended in the liminal boundary layer, I would feel the warm, moist air from the canopy mixing with chilled drafts from below.
+
+From my solitary vantage point, I would witness the functioning of this self-contained world. I would see the pale birds darting silently through the thickets of roots and vines overhead, the slow progress of translucent creatures in the thin waters on the stone floor. I would feel the vibrations of the compressors and pumps through my web, a constant subconscious awareness of the machines that breathe life into the basin. 
+
+On rare occasions, my web would tremble with the heavy steps of the maintenance workers passing below, their exchanges wordless and efficient as they attend to the endless cycle of tending and repair that keeps the system balanced on its precarious equilibrium.
+
+Though one of the most isolated beings in the greenhouses, my existence would be innately linked to everything else - dependent on insects descending from the canopy for food, on the engineered warmth and humidity, on the structural bones of metal and stone. In my simple, spiderish way, I would understand the interconnectedness of all things here, the improbable life made possible by this union of biology and technology, this shaping of the non-living to support the living.
+
+Season after season, I and my successors would occupy this niche, our tiny lives spent witness to the mesmerizing complexity of the basin, bound to its rhythms and cycles, contributors to its completeness - each of us a single shimmering strand in the improbable web of life suspended in this hidden world.

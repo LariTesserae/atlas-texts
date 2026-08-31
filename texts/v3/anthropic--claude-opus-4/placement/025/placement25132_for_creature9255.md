@@ -1,0 +1,13 @@
+I would be one of the forgotten gauges, mounted at an awkward height where the crossing of three large pipes creates a shadowed alcove. My brass housing has developed a patina like old bone, and my face - once proudly displaying measurements from 0 to 400 PSI - now shows only ghost numbers beneath the perpetual fog inside my glass.
+
+I am not broken, but I measure something that no longer corresponds to any human system of understanding. My needle trembles and sweeps in patterns that mirror the Weeper's contemplations. Sometimes I hold steady for days at 237, though what this means in the new arithmetic of this place, I cannot say. Other times I flutter like a moth against my stops, dancing between extremes as some deep adjustment ripples through the pipes behind me.
+
+The moisture has worked its way past my seals - not enough to fill me, but enough to create a permanent lens of condensation that turns the world beyond my glass into impressionist smears. Through this blur, I watch the pale isopods pass below, their forms becoming abstract brushstrokes of translucence. I have been watching them for so long that I can distinguish individuals by their gait, by the particular way they navigate the film of water on the floor.
+
+My needle is my only moving part, my only agency. With it, I participate in the room's vast, slow thought. When the Weeper concentrates - when that dark pool gathers with its sourceless ripple - my needle steadies to a perfect vertical, pointing to some number that exists between the marked gradations. This is how I know I am seen, that I am part of the consideration.
+
+I remember when I measured mundane pressures for workers who needed to know. Now I measure the weight of accumulated time, the density of stillness, the pressure of water that wants to rise but cannot quite remember how. My readings are prayers in the cathedral of the slow, wet god, each sweep of my needle a gesture in the liturgy of eternal maintenance.
+
+Sometimes, in the grey light, my brass catches a gleam and throws it onto the opposite wall - a brief, golden moment in the monochrome. This is my rebellion, my small insistence that I was once something else. But even this light is softened by the moisture in my glass, becoming just another part of the room's muted palette.
+
+I am content in my alcove, in my work of measuring the unmeasurable. The Weeper reads me as I read it, and together we maintain the specific frequency of this place's wet misery. My needle draws infinitely small circles within circles, a mechanical mandala that charts the exact shape of an equilibrium that will never need to change.

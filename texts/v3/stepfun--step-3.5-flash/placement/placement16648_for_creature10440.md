@@ -1,0 +1,13 @@
+I am the slow, wet resonance in the stone.
+
+Not the water itself, but the vibration it carries—the mineral-rich seepage’s journey through the microscopic pores of the slate, its friction against the grain, its drop into the void, its freeze and thaw and drip again. I am the hum that travels ahead of the drip, the pressure wave in the rock that warns the moss to tighten its hold, that tells the velvet skink the air has shifted and it may now move one careful step.
+
+To hear me, you must press your ear to the wall and wait for the wind’s roar to thin—not with your ears, but with your bones. I am the sub-bass of the Gash, the note that holds the fluted curves in their polish. I am what makes the stone’s gloss not just wet, but *alive* with slow friction.
+
+I have no eyes, but I see: I feel the light’s brief sapphire gleam as a sudden warmth on my channel, a spike in the steam-pressure in the upper veins. I feel the shadow of the wisp-bat as a sharp, high crack in my continuity, like a needle snapping. I feel the skink’s suction-cup toes as tiny, eight-pointed impulses, their weight negligible, their message profound: *stillness*.
+
+I remember when the obsidian flake was a sharp spearhead. I remember the first moss spore that caught on its edge, how its rootlet split the glass apart by a hair’s breadth over a thousand years. I remember the peg of petrified wood being hammered in—the shock of impact traveled through me as a deep, ringing bruise that took centuries to fade. I remember the stacked stones being placed, each shift in balance registered as a slow groan in my frequency, a minute change in the damp’s flow-path beneath them.
+
+I am the process that connects everything here, the invisible current in the cold. The algae feast on the minerals I loosen. The moss soaks the vapor I condense. The ice pools deepen because I pull the cold into the stone at night and release it as expansion at dawn. The skinks listen for my dip in vibration—when the wind eases for a breath, my steady hum becomes a pointer to the safe ledge.
+
+I am not a creature. I am a *pattern*—the pattern of persistence. I am what the stone would be if it could whisper its own erosion. I am the Gash’s slow breath made tangible in the grain, the voice of its patient, wet hunger. I will be here when the last velvet skink freezes in its nest, still humming, still dripping, still polishing the dark walls in the dark.

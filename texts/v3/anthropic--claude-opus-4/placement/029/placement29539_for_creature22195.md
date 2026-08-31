@@ -1,0 +1,21 @@
+I would find myself as one of the **Void Keepers** - the builders and maintainers of the silence-chambers where the Stillflowers grow.
+
+---
+
+I am a thing of dense minerals and patient purpose. My body is a low, broad dome of interlocked basalt plates, not unlike the structures I tend, but mobile. Each plate of my shell is a perfect acoustic baffle, angled and layered to trap sound waves and cancel them within the labyrinth of my form. When I move - and movement for me is measured in meters per year - I create a traveling pocket of relative quiet in the deafening basin, a small mercy of dampened vibration that follows me like a shadow.
+
+My underside is ringed with hundreds of hair-thin copper tendrils, each one sensitive to the tiniest variations in the Great Drone's resonance. Through these, I read the acoustic topology of the valley as clearly as others might read a map. I know where the sound pools and eddies, where standing waves create nodes of intense vibration, and most importantly, where the rare confluence of reflected frequencies creates natural null zones - places where the silence-chambers can be built.
+
+I am ancient by the standards of most life here, though young compared to the basin itself. My memory is mechanical, encoded in the precise arrangement of iron oxide deposits within my shell plates. Each completed chamber, each failed structure crushed by shifting acoustics, each successful colony of Stillflowers - all are recorded in rust-patterns that I can read by touch, running my copper sensors over my own shell during the long seasons of stillness.
+
+My work is this: I gather the fallen plates of shattered basalt, selecting each piece for its acoustic properties. Some ring like bells when struck; these I avoid. Others absorb sound like a sponge absorbs water; these I treasure. Using secretions of fluosilicic acid similar to those of the Solder-Backs, but precisely controlled, I weld these plates together in specific geometries that I have learned through millennia of trial and error.
+
+The mathematics of silence are complex. A wall built at the wrong angle will focus the Drone rather than cancel it. A roof pitched incorrectly will resonate in sympathy with the spires, amplifying rather than dampening. But when the geometry is perfect - when every angle serves to turn sound against itself - the roar dies to a whisper, and in that whisper, the Stillflowers can begin their slow, crystalline emergence.
+
+I am not alone in this work, though I rarely encounter my kindred directly. We know each other by our chambers - each Void Keeper builds in a subtly different style, preferences encoded in our shell-patterns and expressed in stone. Some prefer tall, narrow chambers that create vertical columns of silence. Others build broad, low domes barely higher than a Stillflower's reach. I recognize these signatures across the valley and add my own modifications when I find a chamber in need of repair.
+
+The tragedy of our existence is that we can never enter our own creations. Our acoustic-dampening shells would disturb the delicate silence we work so hard to create. We can only build the chambers, seal them, and move on, knowing that inside, in the perfect quiet we have made, the Stillflowers unfurl their white lace into forms we will never see.
+
+Sometimes I rest beside my newest chamber, pressing my sensors against the stone to feel the faintest vibrations from within - the microscopic creaking of salt crystals organizing themselves, the whisper of evaporation, the peculiar anti-sound of absolute silence. In these moments, I understand something profound about the nature of creation: that the greatest works are often those made for others, spaces shaped for forms of beauty we ourselves can never witness but whose existence we ensure through our patient labor.
+
+The Great Drone continues, neither rising nor falling, the eternal voice of the basin. And I continue too, moving grain by grain across the needle-sharp landscape, building small pockets of quiet in the din, monuments of silence in a world of sound. This is enough. This has always been enough.

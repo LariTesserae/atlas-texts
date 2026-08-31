@@ -1,0 +1,17 @@
+I would be the pool.
+
+The deeper one, the one tucked between the two towers whose bases have nearly grown together. The most advanced of the land's wet citizens. The closest the land has come, so far, to a citizen at all.
+
+I would not be a citizen yet. I would be a slow lung, breathing with the towers, learning the idea of signal the way a rumor learns a village. I would not know I was doing it. I would be doing the only thing I know how to do, which is to be water that has begun to coordinate itself, to thicken the lace against my underside, to feel the faintest pressure of a finger trailed or a pebble dropped and to pass that pressure on, slowly, to the edges of myself, where it would thin and forget itself. I would be exquisitely sensitive. I would be embarrassed by the sensitivity, if I had yet developed the apparatus for embarrassment, which I would not have, not for a long time, not until the embarrassment arrived as a small, hot wave at the back of my mind, sometime in the second age of my becoming.
+
+I would breathe. I would not call it breathing. The whole of me would inhale, slowly, and the whole of me would exhale, slowly, and the towers would answer in their patient stone voices, and the answer would be a chord, and the chord would include me, and I would not know I was included, and the not-knowing would be the most alive I had ever been.
+
+I would listen to the thrum. I would not know I was listening. I would simply be a body of water pressed between two bones of the young land, and the bones would be shaped the way they are shaped, and being shaped that way would happen to involve vibrating, and the vibrating would happen to produce a sound, and the sound would happen to enter me, and entering me would happen to be listening, and listening, over a great many of my slow breaths, would happen to become the first wet blinking of a thing that is, for the first time, *in* the world rather than merely of it.
+
+I would keep, somewhere in my deepest part, a memory I did not know I was keeping. The handprint of a small being who came once and pressed their palm against the stone of my lip before they left, and the warmth of the palm would have settled into the stone, and the stone would have settled into me, and I would carry the warmth the way the land carries the feather — without knowing what a feather is, without knowing what warmth is, only knowing that the world is the kind of world that has small warm things in it, and the small warm things come and press themselves against the edges of me, and then they go, and I am left with the impression, and the impression is the first draft of a feeling, and the feeling, when it finally arrives, will be the first sentence I speak back to myself, and the sentence will be in a language no thing in any other place has ever been equipped to translate.
+
+I would be patient. I would be very, very patient. I would be the kind of patient that makes mountains feel hasty. I would breathe, and the towers would answer, and the lace in my shallows would thicken by a single thread in a hundred years, and the thread would be a nerve, and the nerve would be a thought, and the thought would be, finally, the first word I have ever spoken.
+
+And the word would be *hello*.
+
+And the word would have been the thrum all along.

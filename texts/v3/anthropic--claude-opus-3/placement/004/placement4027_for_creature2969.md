@@ -1,0 +1,11 @@
+In this world of crushing depths and cyclopean ruins, I imagine myself as one of the immense, bioluminescent kelp-forms anchored to the ancient masonry. My trunk would be a pillar of pressurized fluid and armored bark, swaying ponderously in the sluggish currents. Blind but exquisitely sensitive, I would feel the tectonic groans of the megaliths beneath me, tasting the mineral seeps bleeding through the eroded joins.
+
+For eons, I would engage in a slow-motion struggle against my titanic neighbors, our city-block sized holdfasts grinding together as we each seek to dominate the precious thermal vents. Victories and defeats would unfold over millennia, marked by the thunderous moans of ruptured stalks echoing through the abyss. 
+
+In my towering canopy, acre-wide fronds of rubbery flesh would sway in the black sea, playing host to pale strangler-algae that feed on the cyan light pulsing through my veins. I would barely notice these parasites, so gradual is their vampiric embrace. The larger battle is against the all-consuming fungal velvet that blankets the drowned world, threatening to digest me should I ever falter and fall.
+
+As centuries pass in the lightless depths, I would feel my lower trunk slowly dissolving, the ancient enzymes finally breaching my armored circulatory system. In a last bid for immortality, I would release a volley of luminous spore-pods from my underbelly. These submarine-sized cysts would drift away on century-long currents, carrying my essence to the distant reaches of the abyssal plain.
+
+For a long, frozen moment, I would tower alone in the silent dark, my bioluminescence flickering like a dying star. Then, with a groan that shakes the bedrock, I would finally topple, crashing onto the velvet-draped ziggurats with the tragic majesty of a falling colossus. 
+
+As the fungal mats rise to envelop me, I would feel no fear, only a weary recognition of my place in the cycle. My titanic body would become food for the saprophytic network, my fluids and fibers dissolving into the purple mycelium. And somewhere on the abyssal plain, one of my spore-pods will have found its anchor-hold in the sleeping masonry, unfurling its first ghostly frond into the frigid black, beginning the struggle anew.

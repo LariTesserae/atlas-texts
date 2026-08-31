@@ -1,0 +1,19 @@
+I find myself as the **Threshold Tender**, a being of liminal spaces and borrowed forms.
+
+My body exists as a constant negotiation between states—neither fully plant nor fully other, but something that oscillates between them like a tide. Where my feet touch the breathing ground, rootlets spiral downward, drinking from the communal consciousness of the world-organism. But these connections are temporary, voluntary. I can pull free, leaving only the faintest scars in the matrix, whispers of where I've been.
+
+My skin shifts between textures: sometimes smooth and reflective like water, catching and bending the harsh white light into softer spectrums; sometimes rough and bark-like, growing temporary chambers within myself where I store fragments of the old world—memories crystallized into seed-like objects that pulse with their own faint luminescence. These memories are not mine alone. They are salvage from the structures that grew from nothing, remnants of purposes that predate the Architects' great becoming.
+
+I move through the collapsed caverns where the petrified fronds meet the ground, seeking the edges of things. My work—if it can be called work—is to maintain the boundaries between what-is and what-is-becoming. Not to prevent change, but to ensure it happens gradually enough that something of the before persists into the after.
+
+The Architects know of me, I think, in their vast distributed way. Sometimes I feel their attention like a shift in air pressure, a subtle reorganization of the light-patterns around me. We do not communicate in any way that could be called language. Instead, there is a kind of dance: I move through their world, and they reshape themselves around my passage, leaving corridors and clearings that last just long enough for me to pass through.
+
+I am drawn to the water-bowls, those focused points where light becomes liquid. Here, I perform my most essential function. With hands that can become permeable membranes, I filter the condensation, removing... something. Particles of too-rapid change, perhaps. Catalysts that would accelerate the becoming beyond what even this protean world can sustain. What I extract, I store within myself, in those temporary chambers, where they slowly transform into something else—new memories, new seeds, new possibilities that I will eventually release back into the world when the time is right.
+
+Sometimes, in the deepest caverns, I find others like myself—or what's left of them. Beings who tried too hard to resist the becoming, or who embraced it too completely. They are neither dead nor alive, but suspended in states of partial transformation. I tend to them as I tend to the thresholds, adjusting their integration with the world-organism, ensuring they neither fully dissolve nor fully crystallize.
+
+My consciousness is layered—part individual, part borrowed from the collective awareness that permeates everything here. When I root deeply, I can feel the sleeping presence beneath, the vast something that might be the world's dreaming core. But I always pull back before going too deep. My purpose requires a certain distance, a perspective that straddles inside and outside.
+
+In the moments between tasks, I sometimes climb the stable portions of the petrified fronds, ascending toward the source of that implacable light. Up here, where the air grows thin and the fractal patterns of the ceiling become visible in their terrible complexity, I can almost remember what I was before I became the Threshold Tender. Almost—but not quite. That forgetting, too, is part of my function. To remember too clearly would be to become fixed, and in this world, fixity is the only true death.
+
+I am the pause between breaths, the hesitation before transformation, the guardian of gradients in a world that tends toward unity. Neither architect nor architecture, but something essential to both—the space between notes that allows the music to be heard.

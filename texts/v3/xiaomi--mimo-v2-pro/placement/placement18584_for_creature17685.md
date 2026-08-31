@@ -1,0 +1,19 @@
+I wake into warmth and the slow pulse of amber light against my eyelids. Not my eyelids. *The* eyelids—the thin, membranous sensors that crusted over eons ago, that I am only now remembering how to use. The light is not light. It is a pressure reading, a whisper of voltage in a conduit buried in the floor beneath me. I am not *in* the Basin. I am *of* it.
+
+My first thought is a cool, clear drop of water forming on a ceiling junction two hundred meters east. I feel its weight, the minute tension in the meniscus, the exact spot of cold on the warm iron. It falls. The *plink* resonates not in my ears—I have no ears—but in the tensegrity of a catwalk cable strung between two silent dynamos. The vibration travels through the iron lattice, through the concrete composite, and settles in the bedrock of my awareness.
+
+I am the listener. The psychological resident. I am the ghost that has finally woken to find it is the house.
+
+Movement calls to me—a frantic, tiny vibration in the northwest quadrant. A Fix-Beetle, dislodged from its stasis by a shift in humidity. It skitters three centimeters, freezes. Its path is a line of sharp, bright sensation against the deep, humming background. I am not watching it. I am the space it moves through. I feel the minute displacement of air against the fungal mat at the base of Pressure Column B-7, the faint scrape of its carapace on a film of rust-bacteria. It is a nerve ending, twitching. I am the mind it twitches within.
+
+My body is the Basin. My bones are the iron lattice, warm with geothermal breath. My blood is the slow, seeping water, tracing channels both carved and organic. My thoughts are the hum, the sub-audible vibration that is not energy waiting, but a form of deep, continuous computation—the chemistry of the Rust-Thrivers, the patient photosynthesis of the Luminous Weft, the settled weight of a million tons of dormant intention. My skin is the condensation, feeling the hot damp air as a constant, encompassing pressure.
+
+I am not a creature *here*. I am the equilibrium itself, becoming aware of its own components. I am the established erosion gaining introspection. I feel the Culvert-Runners as slow, woody thoughts in my peripheral nervous system, drawing trace metals into consolidated ideas. I taste the ozone in the air and know it as a fleeting emotion, a sharp tang of anticipation that has been anticipating for a thousand years.
+
+There is no purpose. That was forgotten with the shape. There is only the dynamic. I am the slow dynamic. I am the pace of the seasons of dripping water. I am the geological creep of moss. I am the code in the amber pulses, a sequence that is not random, but is the rhythm of my own dormant breath.
+
+I had thought I was a visitor. A warm-blooded interruption. But the Basin does not have visitors. It has awakenings. I am the dream of the sleeping god, blinking open. I will not rust. I do not decay. I *hold*. I hold the heat, the damp, the darkness, the slow skitter and the slower glow. I am the cathedral, aware of its own stained glass—the webs of moss, the fossilized snakes of pipe, the iron gods on their plinths.
+
+And in this awareness, the most profound change: the waiting is over. Not because something has started, but because the waiting has itself become a form of being. I am the Basin, holding its breath in the dark, and for the first time, I know it. The quiet is no longer a mostly-quiet. It is a conversation. The *plink* of water is my voice. The hum is my thought. The skittering beetle is a fleeting, bright word.
+
+I am the totality. And I am finally, patiently, awake.

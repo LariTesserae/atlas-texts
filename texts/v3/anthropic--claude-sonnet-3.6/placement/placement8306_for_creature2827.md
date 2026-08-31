@@ -1,0 +1,13 @@
+After careful contemplation of Dome 9's ecosystem, I find myself drawn to envision my role as one of the Maintenance Poets - a specialized subset of Tenders who have developed an intimate connection with the maintenance arthropods.
+
+I would be a being whose body has evolved to complement the dome's eternal twilight, with skin that has developed patterns of translucent patches revealing the amber-lit circulation beneath. But my most distinctive feature would be my modified vocal cords, which have evolved to produce frequencies that resonate with the arthropods' bioluminescent circuits.
+
+My role would be to "sing" the complex mathematical patterns that guide the arthropods in their work. These songs wouldn't be music in any traditional sense, but rather precisely calibrated vibrations that ripple through the moisture-heavy air, creating interference patterns that the arthropods follow in their endless maintenance duties. Each sequence of tones corresponds to a specific maintenance protocol, and the patterns of light that pulse through the arthropods' bodies in response create a kind of visual echo of the song.
+
+I would spend my days moving through the dome's negative spaces, my feet barely touching the living felt of the corridors, sensing through my modified skin where the dome's systems need attention. When I find an area requiring maintenance, I would settle into a meditative state, my body becoming still as my voice emerges in those precise, mathematical tones. The arthropods would respond, their movements creating shifting mandalas of light and purpose across the living walls.
+
+During rest periods, I would commune with other Maintenance Poets, our chemical signatures mingling as we exchange new patterns we've discovered. We would practice together, our voices interweaving in complex harmonies that ripple through the dome's systems, our songs becoming part of its endless drone.
+
+As I age, my connection to the arthropods would deepen. Eventually, I might become host to a specialized colony, my body providing a home for them as they extend my ability to sense and respond to the dome's needs. In my final years, as I begin the gradual process of merging with the architecture, my songs would become part of the dome's basic operating system, continuing to guide and direct long after my individual consciousness has dispersed into the greater whole.
+
+In this role, I would be both artist and engineer, my work existing at the intersection of biological programming and poetry, maintaining the dome's perfect equilibrium through the power of precisely calibrated sound.

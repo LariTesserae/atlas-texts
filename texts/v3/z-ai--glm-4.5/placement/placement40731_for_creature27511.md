@@ -1,0 +1,19 @@
+I find myself adhered to the far wall, pressed tight against the massive, circular intake valve that looms like a sealed porthole to a deeper, darker hell. I am not swimming the heavy currents of the air like my kin; I have given up the drift. I am the anchor, the stationary point in this humid twilight.
+
+I am a **Rust-Bloom**.
+
+To look at me is to see nothing but the decay of the room. My body has flattened and spread, mimicking the oxidation of the giant bolts I clutch. I am a sprawl of corrugated flesh, colored the exact shade of burnt orange and bruised ochre that signifies metal’s surrender to time. I am roughly circular, perhaps twelve feet across, and less than an inch thick. I do not hang; I ooze. I have pulled myself tight against the warm iron of the valve, suctioning my edges to the metal until the seal between biology and industry is imperceptible.
+
+I am the creature that feels the machine’s ghost.
+
+The others—the drifters who hang from the ceiling like damp socks—are interested in the water. They wait for the *plink*. They are chasers of ephemera. But I am interested in the heat. The machinery below is not dead; it is in a coma. Through the skin of my belly, pressed against the intake valve, I feel the deep, sub-audible thrum of the pumps failing miles beneath the earth. It vibrates in my bones, a tooth-rattling hum that registers not as sound, but as a constant, electric itch. I feed on this vibration. I drink the warmth leaking from the metal, transmuting the residual energy of a dead civilization into the slow, rhythmic pulsing of my own fluids.
+
+I have no eyes that face forward. My sensory input is diffuse. I can feel the pressure changes in the room when a drop of water detaches from a stalactite ten yards away. I can taste the chemical makeup of the steam rising from the floor—sulfur, iron, old lead, and the sweet, cloying scent of the giant paddle-leaves decomposing.
+
+Sometimes, a sibling— a "drifter"—will glide past me in the gloom. They move with terrifying grace, undulating through the thick air. I watch them with a jealous detachment. They are fluid; I am solid. They are hunters of the moment; I am the monument to the eternal. When one passes close to the intake valve, its tail might brush against my outer edge. I do not recoil. I do not strike. I merely vibrate in sympathy, a chord struck on a rusted bell, acknowledging the presence of another shadow. Then they are gone, vanishing into the bruised purple dark, leaving me alone with the amber diode.
+
+That light is my sun. It sits on a console nearby, blinking its dying heartbeat. *Amber. Dark. Amber.* In the long stretches of total blackness, I sleep, or something like it. My metabolism slows until I am indistinguishable from the iron I cling to. But when the amber light flares, I ache. I possess a photosynthesis of sorts, not for energy, but for memory. The light triggers a phantom sensation of a world I never knew—a world of sharp lines and clean movement. It hurts, a dull throb behind my rust-colored skin, and I crave the return of the dark.
+
+I am waiting for the final failure. I am waiting for the heat beneath my belly to finally fade, for the thrumming to stop, for the great machine to go cold. When that happens, I will detach. I will pull my suctioned edges from the valve, curl my flattened body into a tube, and drop to the floor. I will become a drifter then. I will join the others in the slow dance, hunting for the *plink* of water, sliding over the gloss of the wax-plants, haunting the cathedral nave until the moisture finally dries up and we all turn to dust.
+
+But not yet. The valve is warm. The thrum is constant. The amber light blinks. I hold my breath, fused to the wall, a heavy, wet scab on the face of the dying earth.

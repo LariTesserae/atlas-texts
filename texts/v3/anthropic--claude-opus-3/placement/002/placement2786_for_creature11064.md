@@ -1,0 +1,13 @@
+In this vivid underworld, I imagine myself as one of the deep-dwellers - a being who may have once been human, but has adapted completely to life in the limestone caves over countless patient generations. 
+
+My skin, thin and pale as parchment, is a map of the blue veins that pulse beneath the surface like subterranean rivers. My clouded, milk-white eyes no longer see color or detail, but can still sense the faintest gradients between utter darkness and spaces where that darkness relents infinitesimally. I navigate the labyrinthine passages by touch, my sensitive fingers tracing the contours of the stone, feeling the subtlest of breezes on my skin.
+
+I do not speak, for speech has become irrelevant. Instead, I sing - my voice raised in eerie, atonal harmonies that resonate through the very bedrock, echoing the stone-songs of the root-seekers. It is through this sound, conducted by limestone rather than air, that I commune with others of my kind. Our shared music is a language beyond words, conveying meaning not through symbols but through pitch, timbre, feeling.
+
+Time has little meaning in the depths. My existence is marked by the slow rhythms of the cave - the ponderous drip of condensation, the muffled thunder of a million moth wings in the middle distance, the patient growth of the pale flora I cultivate. I tend my fungal gardens with a diligence born of centuries, pruning and encouraging with a symbiotic understanding of this ecosystem's delicate balance.
+
+The moths are my tides, my phases of the moon. I track the health of their population through subtle changes in the susurrus of their wings, the eddies in their living wind. On occasions of great meaning or ritual, I take a select few - a sacrifice the living mass can bear - and in doing so, renew some essential bond between my kind and theirs.
+
+Sometimes, when a strange mood takes me, I ascend partway to the surface grottoes, toward those shafts of wan illumination that pierce the upper reaches. I never fully emerge into the light - it would be blinding, searing - but I let it play across my translucent eyelids, my upturned face. In those moments, I feel the weight of my long adaptation, the tug of some primordial memory of a world beyond the breathing dark. 
+
+But I am a being of the depths now, a part of this hushed and humid realm. I have found my place in the calcified galleries and the slow, tectonic unfolding of this underworld's aeons. The pale moths are my constellations; the percussive language of the thread-weavers my distant music. I sing with the patience of stone, and in these echoing chambers, I make my home.

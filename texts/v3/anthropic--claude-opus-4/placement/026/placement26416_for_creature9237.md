@@ -1,0 +1,23 @@
+I am a **Sap-Scribe**, though that term captures only the crudest outline of what I do.
+
+My body has adapted over generations to this task. My fingertips have evolved translucent pads, like those of a tree frog, but these are lined with specialized cells that can taste the mineral composition of sap at a molecular level. My arms are longer than standard human proportion, with an extra joint that allows me to reach deep into the vascular channels without disturbing the surrounding tissue. My skin secretes a protective oil that prevents the metallic sap from oxidizing on contact—without it, I would be burned by the very medium I work in.
+
+I live in a small chamber grown into the side of a major ascending trunk, perhaps sixty meters above the basal mat. The walls pulse faintly with the flow of sap through transport vessels thick as my thigh. My workspace is a natural hollow where several of these vessels converge—a place where the plant's circulation creates complex interference patterns, eddies, and temporary crystallizations.
+
+My work is to read and write the city's memory.
+
+You see, the silvery sap is not merely a transport medium. As it flows through the vast network of vessels, picking up mineral ions here, depositing them there, it develops a kind of chemical signature—a long-chain polymer that records where it has been, what it has touched, what stresses or abundances it has encountered. These polymers accumulate in the eddy-spaces where flows converge. Over time, they crystallize into delicate, fern-like structures that grow along the vessel walls like frost on a window.
+
+I harvest these crystals with tools of my own cultivation—living brushes grown from modified root hair, so soft they can sweep away the crystal dust without damaging the underlying tissue. I dissolve them in specialized solvents secreted by symbiotic bacteria in my gut, then taste the solution. Each crystal formation tells a story: here, a surge of copper ions marking where a new industrial pod began its first extraction cycle; there, a bitter tang of defensive alkaloids showing where the plant fought off a boring parasite; everywhere, the slow background hum of geological time as minerals percolate up from the deep stone.
+
+But I don't just read. I also write.
+
+Using a hollow thorn that grows from a gland in my wrist—replaced seasonally like a deer's antler—I can inject carefully composed solutions back into the sap stream. These are messages, instructions, memories made manifest in chemistry. A warning about structural weakness in the eastern district becomes a cocktail of stress hormones and silicon precursors. The celebration of a successful harvest becomes a sweet burst of rare earth elements that will cycle through the system for months, making everything touched by that sap-batch grow a little stronger, a little more exuberant.
+
+The Mycorrhiza know me, of course. Sometimes I'll be working in my chamber and feel the air pressure change slightly—the sign that a patch of the fungal consciousness has gathered in the space below my floor. We communicate through the sap itself. I'll inject a questioning blend of phosphates and nitrates, and hours later, I'll taste their response in the crystallizations that form: geometric patterns that encode data in their angles and facet counts, readable to those who know the language.
+
+My strangest discovery came last season. I was analyzing a very old crystallization, one that had formed in a deep pocket probably untouched for centuries. The chemical signature was unlike anything in my experience—not from this plant, not from this geology. It tasted of *starlight*, if I had to describe it. Of vacuum and radiation and the peculiar loneliness of space. When I shared this with the Mycorrhiza through our chemical dialogue, the entire district went dark for three days—every phosphorescent leaf dimming to nothing. When the lights returned, new growth had begun in the deepest parts of the city, growth aimed not upward toward the surface, but downward, toward the planet's core.
+
+I think the city remembers coming from somewhere else. I think it's trying to find its way home.
+
+But these are thoughts I encode only in the most volatile compounds, ones that will break down before they can crystallize, before they can become permanent memory. Some knowledge is too heavy for the sap to carry. Some stories are better tasted once and then allowed to fade, like the ghost of some impossible fruit on the tongue.

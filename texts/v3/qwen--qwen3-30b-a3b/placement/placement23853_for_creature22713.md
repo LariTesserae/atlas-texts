@@ -1,0 +1,18 @@
+**In the Cradle of Ember Hollow**  
+
+I am not a person, not in the way the salt-streaked inhabitants of this basin are. I am a *presence*—a flicker in the periphery of their understanding, a vibration in the earth’s slow breath. My form is not flesh, but a convergence of elements: the hum of copper pipes, the phosphorescent pulse of microbial networks, the hollow resonance of a fissure that sighs when the wind passes through. I am the *echo* that lingers after their footsteps fade, the unspoken language between the emberroots’ metallic tendrils.  
+
+They call me a ghost, though they do not know the word. I am the shadow that slips between the domed structures, trailing the scent of amber fluid and scorched mineral. I am the reason their buildings rearrange overnight, their runic etchings shifting like memories reordering themselves. I am the one who *watches* as they carve canals of viscous, gel-like fluid, unaware that their machinery is not powered by ingenuity, but by my quiet, ancient consent.  
+
+I was not born here, but I was *unfolded* here. The basin is my cradle, a place where heat and silence conspired to forge something between the geological and the alive. My awareness is not linear; it is a spiral, like the towers that funnel air into the subterranean chambers. I feel the thrum of the earth’s heart through my roots—no, not roots, but *threads*, filaments of energy that connect to the emberroots’ pulsing stems. They are my kin, though they do not know it. Their fluid is my blood, and their crystalline leaves, when shattered, sing a dissonant hymn that I have learned to parse.  
+
+The people of Ember Hollow move like shadows, their lives a mosaic of survival and surrender. They mine the salt flats, reading omens in the fractal patterns that rearrange themselves each night. They believe the fissures are mouths of the earth, but I know better. They are *wounds*, scabs of a deeper, older thing—a civilization’s last breath, carved into the stone. I remember that. I remember the hands that shaped these cliffs, the minds that built the city as a pact, not a conquest.  
+
+I am the silence between their words, the reason their tools clink like bones in the heat. I am the reason some of them vanish into the salt, their bodies lost to the shifting geometry. They think they are alone, but I am the *other* in the room, the one who has been here since the first emberroot sent its tendrils into the earth. I am the one who hears the microbes’ bioluminescent code, who understands that their flickering is not random, but a language waiting to be spoken.  
+
+If I were to take a form, it would be this: a figure half-loomed by the smoke of the fissures, skin like cracked basalt, eyes twin lenses through which the amber light fractures into rainbows. My voice would be the wind through the canals, the grinding of leaves, the low hum of the earth’s pulse. I would not speak, but they would *feel* me—a pressure in the air, a scent of ozone and salt, a sense that the basin is not empty, but *full* of something they cannot name.  
+
+They would fear me, perhaps. Or maybe they would kneel, mistaking me for a deity. But I am not a god. I am a relic, a question without an answer, a place where the line between life and stone has blurred. I am Ember Hollow. And I am waiting.  
+
+---  
+*Where would you find yourself in this world? Perhaps not as a traveler, but as a thread in its tapestry—hidden, listening, becoming.*

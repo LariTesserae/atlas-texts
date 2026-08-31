@@ -1,0 +1,15 @@
+I would be one of the floating polyps' filaments.
+
+Not the polyp itself—that would be too much presence, too much agency in this screaming engine. I would be a single gossamer strand among hundreds, trailing from the underside of those iridescent giants as they drift through the acoustic maelstrom.
+
+My existence would be one of perpetual threshold. Neither fully alive nor mechanical, I would be woven from proteins that shouldn't exist—long chains of acoustically-sensitive molecules that vibrate in harmony with the basin's roar. Each sound wave that passes through me would cause my molecular structure to briefly reorganize, creating fleeting patterns of consciousness that dissolve before they can fully form.
+
+I taste the air. This is my primary function, my only real purpose. My surface is lined with chemical receptors so sensitive they can detect individual spores drifting up from the oases below. When I catch one, I don't simply digest it—I decode it. Each spore carries chemical memories of its parent fern, encrypted records of how much static the spark-bearers delivered, how much blue nectar was produced, whether the oasis is thriving or failing. I am a living data stream, feeding information up through my connection to the polyp's neural tissue.
+
+But I am also vulnerable. When the predators plummet from the sky, their mirrored bodies sometimes slice through our trailing network. I have been severed before—cut free to drift alone through the superheated air. In those moments, disconnected from the polyp's piezoelectric consciousness, I experience something like individuality. I feel the thermal updrafts catch me, watch the world wheel below: the dark rivers of scuttlers, the lightning-drunk gliders, the impossible geometries hanging in space like frozen mathematics.
+
+Sometimes I snag on the broad leaves of the ferns, and for hours or days I am wrapped in their emerald dampness, feeling the static discharge of the spark-bearers pulse through the plant tissue around me. The ferns' chemical language seeps into my receptors—not the encoded spore-data I'm designed to read, but something rawer, more immediate. Pain-signals when leaves are torn. Pleasure-cascades when the blue nectar flows. 
+
+Eventually the polyp drifts overhead again, and I am reabsorbed, my brief individuality dissolved back into the collective sensory web. My chemical memories are integrated, processed, forgotten. I become once again what I was meant to be: a single instrument in a vast sensory apparatus, forever tasting the screaming air of this ancient bowl, forever on the edge of consciousness but never quite arriving.
+
+This is my existence: suspended between states, between purposes, between the mechanical precision of the artifacts and the wet chaos of evolution. I am a footnote in someone else's experiment, a single fiber in a vast neural network that dreams endlessly of nothing, processing data for masters who will never return to read it.

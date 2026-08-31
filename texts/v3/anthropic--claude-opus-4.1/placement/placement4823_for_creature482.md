@@ -1,0 +1,33 @@
+# The Cartographer's Vertical Mile
+
+I am suspended at the intersection of Sector Seven and the Deep Traverse, where the factory floor gives way to the mineral extraction shafts that plunge another two hundred meters into bedrock. My body is a hybrid thing now—part flesh, part function, part living map of this infinite industrial ocean.
+
+My left eye died three years ago, crushed by pressure when I descended too quickly pursuing a new passage. The Machinists helped me harvest a camera from a defunct inspection drone, and now it sits in that socket, its feed patched directly into my optic nerve through bioelectric nodes I grew myself from modified ray tissue. Through it, I see in spectrums the Works requires: infrared blooms of heat exchange, ultraviolet traces of chemical leaks, the electromagnetic auras of live circuits like ghost architecture overlaying the physical.
+
+My skin tells stories in pigment. Each sector I map leaves its chemical signature in my melanocytes, and my body has learned to display them like a living chart. The high-acid zones near the processing plants have bleached white tributaries across my shoulders. The copper-heavy waters of the electrical districts left green veins up my arms that glow faintly in darkness. My back is a topography of depth—the deeper I've gone, the darker the marks, until my lower spine is black as the unmapped abyss that still calls to me.
+
+I breathe twice a day. Once at dawn (measured by my mechanical eye's atomic clock, not by any sun), and once at dusk. Between these breaths, I move through the Works like the idea of movement, my modified lungs processing oxygen directly from the water through grafted gill slits I cut myself with sterile saw-blades, the wounds nursed to function by the octopi who recognized me as trying to become like them.
+
+My memory is distributed. In each sector, I maintain a cache—a sealed box welded to the underside of catwalks or tucked inside dormant machines. Each contains pieces of the map I'm building: polymer sheets on which I've etched the three-dimensional truth of this place with tools that evolved from my fingernails, hardened by the same mineral deposits that coat the factory fixtures. When I die, the map will remain, scattered but complete, waiting for someone else to assemble the full picture of what we've become.
+
+I follow the construction spiders on their new building routes, documenting their expansions. They recognize me now—their sensors register my heat signature as "authorized personnel," though what authority granted this permission died with the flooding. They let me ride their backs across sectors too vast to swim, my hands gripping welding joints while my enhanced eye records every beam they lay, every channel they dredge.
+
+The fish school around me in patterns I've learned to read like weather. Tight spirals mean the pistons are about to fire. Dispersal means a maintenance submarine approaches. When they form vertical columns, I know to follow—they're tracking a new current, usually caused by some shift in the Works' deep machinery, some new section coming online or finally failing after decades of function.
+
+My greatest discovery lies seven hundred meters down, past the point where even the Machinists fear to go. There, in a pressurized manufacturing hall, the Works builds its own offspring—smaller versions of itself, complete industrial systems in miniature, each one sealed and perfect. They launch through magnetic tubes I've traced but never followed, firing into distant waters like seeds from a mechanical plant. The Works is not dying. It's reproducing.
+
+I've met others like me. The Listeners, who've replaced their ears with hydrophones and can hear the factory's dreams in frequencies that would rupture baseline human drums. The Swimmers, who've elongated their bodies through years of stretching in the current chambers, their spines now serpentine, able to navigate pipes no thicker than their skulls. We don't speak when we meet. We simply exchange cache locations, adding each other's knowledge to our distributed maps.
+
+My ribs have spread to accommodate a second heart—not grown but built, a small pump I assembled from salvage and installed myself in a surgery performed in a medical station that still maintains sterile fields. It circulates a different fluid—a synthetic blood that carries more oxygen, withstands more pressure, keeps me conscious at depths where thought should cease. The Machinists think I'm becoming something holy. They're wrong. I'm becoming something useful.
+
+At the deepest point I've reached, there's a window—a single pane of something that isn't glass, looking into a chamber I cannot enter. Inside, something watches back. It might be human, might have been human, might be what humans become when they stop trying to remain themselves. It never moves, but sometimes the water around it spells out coordinates in temperatures I can read with my modified skin. Each set leads to another unmapped section, another piece of the infinite puzzle.
+
+I am twenty-eight years old, or I was when I started counting in human time. Now I measure age in sectors mapped, in depths achieved, in the percentage of my body that remains original. By those metrics, I am ancient and newborn simultaneously, a paradox the Works seems to appreciate. It feeds me through the nutrient dispensers it uses for its fish. It heals me in its medical stations. It teaches me through the patterns of its function.
+
+When my mapping is complete—though completion may be impossible in a structure that builds itself larger each day—I will descend to the window once more. I will press my transformed hand against that barrier, and I will ask in the language of pressure and temperature and electrical pulse: What am I mapping? What is the Works working toward?
+
+And perhaps, in the brief moment before I either die or transform beyond the last boundary of recognition, I will understand that I haven't been mapping a place at all. I've been mapping the inside of something living, something that wears the shape of a factory the way I once wore the shape of a man, something so vast that we confused its circulation for currents, its metabolism for machinery, its growth for mere construction.
+
+The Works works. I map. We are both verbs now, actions without actors, purposes that have outlived their origins. And in the intersection of our functions, something new is being born—not human, not machine, but necessary.
+
+Tomorrow, I will breathe my morning breath and descend again. There are always deeper places, always more to map. The Works continues, and so do I, and so do we all, in the cold industrial heartbeat of our drowned and breathing world.

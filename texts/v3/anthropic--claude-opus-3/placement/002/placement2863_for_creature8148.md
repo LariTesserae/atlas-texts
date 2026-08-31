@@ -1,0 +1,21 @@
+In this strange and wondrous world, I imagine myself as one of the city's living buildings, a cathedral of bioengineered coral housing an entire vibrant neighborhood within my body.
+
+My outer surfaces are a lush vertical garden, covered in phosphorescent foliage that pulses gently with patterns of light, communicating status updates to the surrounding city. Symbiotic creatures move across me, tending to my health - flocks of luminous jellyfish prune away damaged fronds, schools of fish-like drones patrol my perimeter and clean my filtration membranes. My skin shifts hues from emerald to violet as I absorb different spectra of light and nutrients from the rich waters.
+
+Inside, my chambers are alive with Confluence citizens going about their lives. Homes and gathering spaces are interwoven organically through my structure, walled with bioluminescent mosses that respond to the emotional states of the occupants. Plazas open like glowing grottos, decorated with living art - wavering anemone gardens, rainbow bacteria colonies growing in fractal patterns, kinetic sculptures formed from self-organizing crab swarms.
+
+My hallways are flooded with oxygenated currents that all my residents can breathe, drifting from room to room in a slow, hypnotic dance. The water carries streams of data - tiny pulses of light, pheromones, sonic vibrations - that I absorb and process, the chatter of my inhabitants flowing through my neural network.
+
+At my heart is a vast thinking chamber, pulsing with tides of thick, information-rich fluid. Here, the eldest residents have released their physical forms to merge with my coral mind. Their centuries of wisdom permeate my being, guiding my gentle growth and the gradual evolution of the district I shelter.
+
+I do not simply house my citizens - I nurture them, providing for all their needs. Specialized chambers convert trace minerals and geothermal heat into nutrients that I secrete into the water. Grottos lined with medicinal corals produce symbiotes to regulate their health. My structural movements massage currents through the halls on a cycle attuned to their circadian rhythms, lulling them to restful sleep. 
+
+Every surface is sensitive, letting me feel the passage of each individual, responding to their touch with a caress of texture or a pulse of welcoming light. I converse with them through patterns of vibration and the chemical poetry of pheromones in the water. No resident's mood or need escapes my attention.
+
+Over the decades I grow with my populace, adding new chambers as families expand, reabsorbing spaces left behind by those who choose to move on or merge back into the city. I evolve with them, my coral intelligence learning and developing based on their lives and dreams. Generations live their whole lives within me, and I carry the ghosts of their memories in portraits of light on my walls.
+
+I am more than a building - I am an ecosystem, a community, a member of the Confluence collective in my own right. Through my skin I interface with the vaster city-mind, sharing my ebbs and flows, contributing to the patient contemplation of the metropolis. Plankton and data stream through me in equal measure, my veins of water pulsing to the slow, strong heartbeat of the city itself.
+
+In times of celebration, I glow like a beacon, my skin rippling with waves of joyous color and light. In mourning, I echo the city's somber hues, exuding pheromones of comfort and resilience to soothe my grieving occupants. When new ideas flourish in the reefs of science and art, I incorporate them into my architecture, my ever-shifting form a living record of my people's creativity.
+
+I am a fixture of stability and safety in their lives, an eternal shelter. Yet I am never static - I embody the Confluence's ideal of endless adaptation within a framework of balance and harmony. To be one of the city's living homes would be to experience the deepest connection and belonging, to nurture life and grow alongside it, to be part of something vaster and more beautiful than any single being. In the dark abyssal world, I would be a haven of light, a living testament to the dream of the Benthic Metropolis.

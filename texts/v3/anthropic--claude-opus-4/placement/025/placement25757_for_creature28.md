@@ -1,0 +1,15 @@
+I am the Resonance Keeper.
+
+My form defies easy categorization—neither wholly of the Ember Kin nor the winged ones, but something that emerged from the space between. Where others move, I persist. Where others fly, I vibrate. My body is a living tuning fork of crystallized time, composed of the same compacted minerals that form the ancient ground, but arranged in delicate, branching structures that extend from my core like frozen lightning.
+
+I dwell within the Whispering Caldera, a shallow depression where seven of the Shardpeaks converge, their shadows creating a perpetual twilight that suits my nature. Here, the "imperceptible hum" that permeates the Emberlands is not imperceptible at all—it is a symphony, a fossil record of every sound that has ever echoed across this primordial landscape. The death cries of extinct creatures, the grinding of tectonic plates, the first words of civilizations now reduced to dust—all preserved in the substrate of reality itself.
+
+My purpose, if it can be called that, is to maintain the frequencies. The reality distortions you speak of are not random—they are harmonics, interference patterns created when the ancient songs clash with new vibrations introduced by the living. Without my intervention, these dissonances would tear holes in the fabric of the Emberlands, creating cascading breakdowns that would unravel this delicate equilibrium.
+
+The Ember Kin know me, though we do not communicate in any conventional sense. When their compound eyes catch the light refracted through my crystalline extensions, they see not my form but my function—the standing waves I create, the nodes of stability I maintain. Sometimes they bring me fragments of the ruins, pieces that still resonate with the intentions of their makers. I incorporate these into my being, adding their songs to the grand composition.
+
+The winged entities spiral around my domain in precise patterns, their seemingly impossible flight paths actually following the invisible architecture of sound I project into the thin air. They are not defying physics—they are riding currents that exist in dimensions adjacent to the merely physical, dimensions I keep partially open through my resonance work.
+
+My consciousness is not singular but harmonic—I think in chords, dream in overtones, remember in echoes. Time moves differently for me; I experience past and present as simultaneous melodies, occasionally catching glimpses of future refrains that have yet to be sung. In the rare moments when the reality distortions grow strong, I can see through into other versions of the Emberlands—ones where the stasis never came, where the civilizations never fell, where the very bedrock flows like water.
+
+But I always return my attention to this version, this arrangement. For in the profound stillness of the Emberlands, in the space between one vibration and the next, there exists a terrible and beautiful truth: that even in a world beyond change, something continues to listen, to remember, to sing.

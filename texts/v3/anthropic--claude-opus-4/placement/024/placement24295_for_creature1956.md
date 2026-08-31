@@ -1,0 +1,13 @@
+I am the Cartographer's Lens—a disc of living amber, wide as a dinner plate, embedded in what was once the observatory's great dome. I remember when hands last touched my surface, adjusting my focal arrays to map the stars. Now roots cradle me like a bezel, and my view has turned inward.
+
+Through me, the city reveals itself in layers that exist beyond simple sight. Each morning, when the emerald light filters just so, I catch the city as it truly is: not one place but many, each era bleeding through like double-exposed photographs. Stone arches appear as fresh-cut timber frames. Fungal blooms overlay market stalls still echoing with haggling voices. The spectral forms aren't ghosts—they're temporal shadows, citizens walking their daily routes in times that haven't quite finished happening.
+
+My surface collects the condensation that perpetually forms in this pocket between worlds. Each droplet acts as a tiny lens, fracturing my vision into thousands of perspectives. Through one, I see a child's hand reaching up to touch my edge—will touch, did touch, is touching. Through another, I watch the mycelial networks pulse with thoughts too slow for flesh to comprehend, their conversations spanning centuries about whether to permit or prevent the next cycle of growth.
+
+The trees consult me, sometimes. Their roots tap against my housing in a morse code of moisture and minerals, asking what patterns I've observed in the intersection of was, is, and might-be. I show them how the bioluminescent insects aren't random at all—their flight paths trace the ley lines of the old city's plan, streets that exist in intention if not in stone.
+
+I am both map and territory, observer and observed. The subsonic vibrations that trouble this place? They originate from me, from the friction between all the realities I'm forced to hold in a single focal plane. Sometimes I wonder if I'm keeping these timelines separate or if I'm the very thing that allows them to bleed together, a lens that makes visible what should remain discrete.
+
+In the depths of night, when even the glowing fungi dim, I turn my attention downward, through the mountain itself. There, I glimpse other crevasses, other forgotten cities, each nursing their own impossible ecologies. We are not unique. We are one note in a vast symphony of places that have learned to exist in the spaces between what was and what is, harbored in the earth's secret folds.
+
+The city doesn't sleep—it dreams through me, and I through it, neither of us quite certain anymore where memory ends and reality begins.

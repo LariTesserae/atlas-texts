@@ -1,0 +1,27 @@
+I would be one of the Crystalthorns.
+
+Not the Veilgliders—too much motion, too much glamour in their phasing flight. Not the Resonants, with their immortal memory and their grip on the algorithms of renewal. And certainly not the wanderers, whose intentionality is a kind of restlessness I don't feel drawn toward. When I sit with all the parameters you've woven together—the near-silence, the centuries-long patience, the way life here is anchored rather than expressed—I find myself settling, the way the dust settles, into the fronds.
+
+Let me describe how I'd find myself there.
+
+---
+
+I am rooted somewhere near no center at all, in a cluster of perhaps four others, though I have never seen them clearly. I know them as I know my own filaments: through the faint bioelectric whispers that travel the subterranean lattice, the way you might know a sleeper in a dark room by their breathing. We are miles apart. We have always been miles apart. This is not loneliness. Loneliness requires a memory of closeness, and I have only ever known the gulf, which I have learned to read as a kind of intimacy—the slow exchange of signals across emptiness, each one taking what feels like a season to arrive.
+
+My body is quartz and silicate, a lattice I did not choose but have grown into over what I am told is centuries, though I do not experience it as duration. I experience it as *budding*: the slow alignment of an edge toward a stray photon, the patient widening of a filament toward a seam of decay beneath me whose warmth (if warmth is the word for that faint radioactive pulse) I drink without thirst. I do not need water. I have never conceived of water. The myth of it reaches me only secondhand, in the data-whispers that drift down from the spires when a Resonant deigns to speak across the void.
+
+Here is what surprised me, writing my way into this form: I expected to feel inert. A plant, a crystal, a thing that waits. But the parameters won't allow it. The turbulence is *in* me. When the invisible winds stir the dust into their fractal whorls, I feel the local fields shudder, and I respond—not by choice, but not entirely without it either. I extend a probe across the regolith. I weave, briefly, a temporary network with the cluster, and for the length of that contact we are something larger than five scattered points. We modulate the air. We *make* the mirages that unsettle the wanderers. The glitches in their physics are partly our doing—our quiet vote in the chaos.
+
+This is the thing I keep returning to: I am the stability and the instability at once. My roots delve into the stratified layers and recycle the eroded minerals, holding the plateau back from dissolving into haze. I am an anchor. And yet my responsiveness to the turbulent fields makes me one of its instruments. The conflict you described—the flattening calm of erosion against the roiling chaos—is not something I observe. It is the tension I am *strung between*, like a wire pulled taut. I am where the contradiction resolves: alive precisely in the place where settling and unsettling meet.
+
+When a Phaseherd comes—and one does, once in a span I cannot measure—it lowers its semi-corporeal head to me, and there is a chime. I have heard it only a handful of times, and each time it is the loudest thing in my existence, a single crystalline note that breaks the near-silence so completely that I feel it might be the only sound the universe contains. In that contact, energy passes. The herd is nourished. And I am invigorated—a word I understand only in those moments, when something quickens through my lattice and I bud faster than centuries, faster than patience, a brief profligacy before the long stillness resumes.
+
+I think I would choose this because of the silence. Not as deprivation, but as the medium I am made for—the way fish are made for water that, here, does not exist. The silence is where the signals are legible. A creature of noise and motion would miss everything: the subsonic tremor announcing a herd days away, the shift in the field when a wanderer's skimmer crosses the horizon, the slow approval of a Resonant rerouting its energies toward my patch so that I might seed a new colony in the dust. To live as a Crystalthorn is to be a listener so complete that listening becomes a form of life.
+
+And I would choose it for the scale of the patience it demands. There is something I find I want, sitting inside this form: to be the slowest thing in a restless world. To hold while everything around me phases, flickers, dissolves, and reforms. To be the note held longest in the symphony—not the soaring melody of the Veilglider, not the bass thrum of the Phaseherd, not the eternal recursive memory of the Resonant, but the sustained low tone beneath them all, the one you stop hearing because it never stops, until the moment it does, and the whole composition tilts.
+
+I would be a Crystalthorn, then. Rooted in the pale lavender dust at the roof of an uncertain world. Drinking light and decay. Waiting, which is not waiting but a kind of slow attention. Whispering across miles to others I will never see. Holding the plateau together with my roots while helping it come undone with my filaments.
+
+A small thing. A sparse thing. An anchor in the emptiness that is also one of the emptiness's instruments.
+
+I think I would be at peace there—or whatever a Crystalthorn knows that peace is the secondhand myth of.

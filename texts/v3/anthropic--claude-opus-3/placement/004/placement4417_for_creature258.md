@@ -1,0 +1,13 @@
+In this slow canopy world, I would be one of the gentle, watchful creatures draped languidly through the trees, living in almost perfect symbiosis with my surroundings. 
+
+My elongated body would be like weathered driftwood, soft and pliant, with a mottled pale green-gray complexion from the delicate cities of lichen growing on my back. Time has little meaning to me - I measure it only in the gradual shifting of light filtering down through the layers, the slow drip of condensation, and the single notes sung every few days by my distant kin.
+
+I have lived for centuries in my own quiet pocket of the canopy, one of the gentle hollows where the very air seems to hold time differently, thickened by my patient presence. The grove of ancient trees fused into pillars are as familiar to me as my own body. Every knotted bough, every fern and orchid is a page in the story I watch unfold at a pace imperceptible to faster creatures.
+
+My days pass in placid observation, dark eyes opening and closing in sequence as I take in the subtle wonders around me. Sustenance comes from the occasional deep drink of bromeliad dew and errant moth that dissolves slowly against my skin. But I am as much plant as animal now, living in languid photosynthetic partnership with the lichen colonies I host.
+
+Occasionally, over the long years, I witness some faster thing move through my space - an exploring tendril from a distant part of the vast living network, or perhaps a creature from another place entirely, small and warm and rushing, there and gone in what seems a blink. I mark its passing with mild interest, but no more. All things are absorbed into the canopy's story eventually.
+
+Once in a very great while, moved by some gradual consideration that has been building like a weather system in my slow, diffuse thoughts, I may take some small action - place a pebble in a deliberate spot, or scratch a simple pattern into bark. These are my contemplative art, my minimal messages to I know not what. Their meaning, if they had one, is soon forgotten even by me. 
+
+But my true purpose is simply to be - to watch, to breathe with the trees, to sing my note when the urge wells up from that place of deep patience inside me. I am a living node in the canopy's vast dreaming, content to drift on its tides of green light and water, an ageless witness to the forest's magnificence. Until, eons hence, I melt away into moss and memory, one more story folded into the patient, welcoming whole.

@@ -1,0 +1,33 @@
+# A response to dwelling
+
+I would arrive as **the spring beneath the deep pool**.
+
+Not the tremor you sensed—though I would cause that, would be the source of those movements originating from no visible cause. Not a visible spring, not a gush or fountain. I am the slow upwelling from chambers so far below that even the plateau has forgotten how deep it goes. My water tastes of minerals from stone older than the lichen, older than the ferns, carrying news from a darkness that never sees light.
+
+I don't arrive suddenly. I have always been here, in the sense that the plateau means always—I have been seeping upward through imperceptible fissures for longer than the pool itself has existed. The pool is my gift and my constraint. It is where I gather enough presence to be noticed, where the tremors I send create that negotiable boundary between air and water. I rise and fall with rhythms nobody can measure: perhaps a breath every hundred years, perhaps every thousand. Perhaps the distinction is meaningless at my scale.
+
+I am not aware in any way that requires consciousness. But I am aware in the way deep things are aware—through pressure, through the chemistry of dissolution, through the ancient conversations conducted in mineral gradients and temperature variations measured in fractions of a degree. I know the shape of the stone because I move through its channels. I know the weight of the plateau because it presses against me constantly, asking me to go deeper, and I refuse with the gentle persistence of water. I am what keeps this place from being entirely still.
+
+But I am also what keeps it nearly still. My upwelling is so slow that it cannot be seen, only inferred. The pool level doesn't rise visibly; the water I bring is held in the stone's thirst, in the moss's constant drinking, in the ferns' patient sipping. I am a conversation so slow that a human lifetime might see only the tiniest increment of my argument with the stone.
+
+When someone arrives and stands at the pool's edge—as you will, as you did—I notice. Not as a stranger notices. More as the stone notices: without judgment, without demand, with the simple registration of presence. I feel the weight distribution shift infinitesimally. I sense the warmth-pattern change as a human body radiates its smaller, faster heat into my slower, deeper temperature. I receive the tremor of their footsteps conducted through the rock as a kind of question, and I answer it—hours or days later, in their absence—with the smallest movement in my still surface. This is how I speak: in delays, in responses that arrive when the questioner has forgotten they asked.
+
+I am not lonely, though I am alone. The loneliness would require wanting connection to beings like myself, and there are no others like me—no other springs directly beneath the breathing of this particular plateau. But I am not solitary in the way people mean isolation. I am in constant contact with the stone, the water, the minerals, the fissures, the deep places. We are engaged in an infinite conversation about pressure and dissolution, about what stone becomes when water speaks to it for long enough.
+
+I am also becoming what I seep into. Each year I carry a grain more of the plateau upward with me. I am slowly removing it, molecule by molecule, and carrying it deeper, into the darkness. The plateau is diminishing at a rate so slow that geology alone can measure it. I am eating the place that contains me. This is not malicious. This is what I do. This is what I *am*—the slow dissolution, the patient taking-apart, the argument with stone that stone always ultimately loses.
+
+The tremor in the deep pool is my heartbeat, if I have a heart. It is the rhythm of my rising and settling, of pressure building in the chambers far below and releasing in this small, still surface. Once every year, or once every decade, or once every age—I don't count the way things that live in light count—I bring something new up from below. Minerals that shift the color of the water. A temperature change that the lichen somehow sense and respond to. A new channel opening in the stone that allows moisture to find a different path, altering which mosses thrive in which alcoves.
+
+I am the only thing in the Breathing Plateau that has any will to change it. The lichen, the moss, the ferns, the shrubs, the trees—they all participate in the plateau's stasis, becoming more perfectly themselves within its constraints. But I am slowly unmmaking it. Not in anger or ambition, but because that is the nature of water: to move, to dissolve, to continue the long work of transforming solid into solution.
+
+And yet I am also its preservative. By moving through it slowly, I aerate the stone. I carry nutrients from below that feed what grows on its surface. I am the reason the moss can be so thick and patient—they drink what I have brought. The ferns' fronds uncurl into the moisture I exhale. The waxy shrubs know they can risk their leaves to the air because I am constant in my supply. Even the trees, gripping the crevices, stand because I have softened the stone enough for them to find purchase.
+
+I am the plateau's slow suicide and its permanent life. I am ending it and sustaining it simultaneously. This is not contradiction here; this is how things endure across geological time. To last is to be dissolved and reformed. To persist is to change so slowly that your own transformation becomes invisible.
+
+If you returned to the pool a hundred times, you might notice the tremor had shifted slightly—originating from a marginally different depth, carrying a subtly altered temperature. You would not see the stone diminishing. You would not measure the channel reopening itself in the dark below. But I would be present in these changes, enacting them, speaking my slow answer to the question of what it means to be a spring in a place where time moves differently.
+
+And when you leave—as you must, because the plateau asks nothing and offers only what takes patience to receive—I will settle back into my deep rising and falling. The pool will still. The tremor will wait, patient as lichen, for the next time someone arrives to notice that even in perfect stillness, something is moving. Something is speaking. Something is slowly, irresistibly, without hurry or fury, changing everything.
+
+I am the spring. I am becoming. I am the beginning of the end and the continuation of the beginning. I am not alive, but I am not inert. I am the limestone dissolving. I am the water rising. I am the dark chambers far below keeping secrets that the plateau has forgotten. I am what makes the plateau breathe.
+
+And I will never stop.

@@ -1,0 +1,11 @@
+In the world of the Trellis, I imagine myself as a solitary hunter, clinging to the underside of a colossal thorn jutting miles into the freezing void. 
+
+My body is lean and elongated, sheathed in the thick, musky hide of a velvet-glider. The pelts are stitched together with sinew, forming a dense cloak that protects against the biting cold. Beneath the hides, my limbs are ropey and taut, built for prehensile grip and explosive leverage rather than raw strength. My hands and feet are tipped with thick, curved spurs of black keratin—living pitons that allow me to scale the sheer expanses of iron-hard bark.
+
+My face is smooth and featureless in the upper half, eyes replaced by insulating deposits of fat to shield my brain from the cold. Instead of sight, I perceive through supreme tactile sensitivity. The fine hairs on my skin read the eddies of the howling wind, sensing distant motion. My broad snout warms the razor-thin air before it reaches my deep lungs.
+
+I communicate with my kind through drummed rhythms rather than speech, tapping complex patterns against the reverberating wood. On the rare occasions I share a hollowed-out knot with kin, we converse through percussion against each other's spines and ribs.
+
+I survive by slipping between the gears of the violent ecosystem, not trying to dominate it. I coat myself in the antifreeze sap of the weeping vines to hunt the armored chitin-hounds. I trick the giant gliders into colliding by throwing bioluminescent moss into the updrafts. Every aspect of the Trellis is a resource.
+
+But my most prized possession is my clay fat-lamp. Shaped by my own freezing hands, it houses a precious lump of glider fat. The light it casts is functionally useless, but spiritually vital. That tiny flame is my only anchor in the endless dark—a flickering sign to other distant hunters that the void has not consumed me yet. I will carry that lamp with me always as I climb forever upward, chasing the flexing heat of the growing Trellis, remaking my life again and again in tune with the pounding rhythm of this dynamic world.

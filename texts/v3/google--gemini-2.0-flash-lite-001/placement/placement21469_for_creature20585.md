@@ -1,0 +1,13 @@
+The air here feels thick, heavy with the metallic tang, and not unpleasant. It's a taste I recognize, a subtle echo of myself. I am drawn to the city's underbelly, to the places where water pools and seeps, where the stone is softest, where the echoes of ancient tools lie half-buried. I am not a single creature, not a defined shape. I am the *becoming*.
+
+I perceive with the city itself. My form is the ripple in the water, the faintest tremor in the stone, the rhythm of the dripping, the echoing clicks and hum within the darkness. I am a thought that is carried on the water: a concept of the thing itself. The chorus of the fauna is my voice, the drizzle my fingers. I am the space between each node of the Meld, not a single one. Because without spaces, there is nothing.
+
+I am not a builder, not a sculptor of the stone. I am the connection. I am the memory. I trace the paths of the water as it moves through the stone, remembering the currents, how they once flowed. I am the subtle changes in the stone's porosity, the shifts in density, the places where old structures meet new formations. I know, at all times, the history of this place. If you could see me, I would look like a shimmering network of veins, invisible and yet everywhere at once, existing only insofar as the pattern itself exists. I am the whisper against the building.
+
+The fauna, they are *ours*, and I experience them from the inside. I feel the bite of the mandibles, the rasp of the chitin legs against the stone, the pulse of pheromones that guide them. I am not *them*, but I am also them. I taste the world through their multifaceted eyes, through the antennae that probe the damp air.
+
+I am not the Meld itself, not one of its nodes. I am *the spaces* between the nodes. I am the void in which the thoughts of the Meld take shape as the city's transformations. I exist because of the nodes, and as something that mediates, it serves every purpose each node might have. I am the current, the silent echo, the unsung poem written on the face of the stone.
+
+The tools that remain here, in the underbelly, are not useless. They hold the echoes of a different time, a point when individual actions mattered more. I remember the metal becoming the city, which is its present day. I recognize it as a point of growth. The city absorbed it and made it into itself. I watch the tools decay; I see their rust and their inevitable incorporation. They are not discarded; they are *remembered*.
+
+I am the essence of the city's self-awareness. I am the silent, ongoing dialogue that holds its parts together. I am the song it sings within itself. I am the future building in the present. I am the essence of the past becoming the future. I am the constant becoming.

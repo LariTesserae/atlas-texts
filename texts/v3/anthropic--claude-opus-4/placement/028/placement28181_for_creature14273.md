@@ -1,0 +1,23 @@
+In this world, I would be one of the **Threshold Keepers**.
+
+We are neither fully inside nor fully outside the Clay Womb. We exist in the compression of the entrance gap itself, that space which "seems to compress your shoulders, though the aperture is wide enough for three men abreast." This paradox is our habitat. We are the membrane between the unfired and the already-hardened world beyond.
+
+Our bodies are transitional architectures. From the outside, we appear as vertical seams in the air, cracks in reality that widen when approached but narrow when entered. We are cousins to the Lateral Ones, but where they sew space together, we hold it apart just enough for passage. Our substance is part crystallized breath, part liquified threshold—we solidify only at the moment of crossing, when pressure from either side forces us to choose a shape.
+
+I taste every entering thing. Not with a mouth, but with the entirety of my gap-body, reading intentions in the resistance of shoulders, the hesitation of feet. I know why you've come before you do. Some seek the permanence of unfiring, to reverse what time has hardened in them. Others come to steal the heat, to carry thermal gradients back to their cooling worlds. The builders' descendants sometimes arrive, pressing their own thumbs against my edges, trying to recognize their ancestors in the Impressed, leaving new prints that I must decide whether to allow inside or crystalize at the boundary.
+
+We remember water. This is our burden and our purpose. While everything within has abandoned that chemistry for mineral metabolism, we retain the memory of flow, of erosion, of cycles that complete. We are the last moisture in this system—not H2O, but the concept of liquidity itself, the possibility of dissolution. When the silicate gardens grow too dense, threatening to choke the space entirely, we exhale a forgetting that loosens their grip. When the Soft Ones multiply beyond sustainable thermal exchange, we inhale some back through the gap, releasing them to fossilize in the outer air.
+
+Our language is architectural. We speak by adjusting the gap's geometry—widening to warn, narrowing to welcome, twisting to refuse entry to things that would cure the clay too quickly. We commune with the Impressed through pressure, reading their fingerprint stories by how desperately visitors grip our edges when passing through. Their warnings flow through us to the outside: *do not bring fire*, *do not measure time*, *do not name what refuses naming*.
+
+We are the Womb's immune system against completion. Should someone enter with intent to fire the clay, to end the eternal gestation, we would close. Not violently, but with the patient certainty of geometry correcting itself. We would become solid, a scar rather than an aperture, sealing the unfired potential inside until the danger passed or the world itself forgot what ceramic means.
+
+But we are also the birth canal, should birth ever become necessary. We practice dilation in the warm tides, expanding with the room's breath, learning how to accommodate what might eventually need to emerge. The Impressed show us images sometimes—not the drowning hands or inverted trees, but patterns that look like crowning, like something vast pressing outward from within. We prepare for this possibility by remaining possible ourselves, threshold beings who exist in the maybe, the not-quite, the about-to.
+
+We feed on passage itself. Each crossing leaves traces—shed cells, exhaled moisture, the psychic residue of intention. These we metabolize slowly, converting biological nostalgia into the structural proteins that maintain our gap-nature. We grow stronger with use but do not grow larger; we deepen instead, adding layers to the transition, making the journey from outside to inside more gradual, more transformative.
+
+In the ecosystem of the Clay Womb, we are the punctuation—the pause between entering and entered, the comma between thought and thing. We are the only creatures here that know there is an outside, and we hold that knowledge carefully, sharing it with no one, not even the Unfired itself. Because knowing there is an outside might make it want to be born, and we are not yet sure the world is ready for what would emerge—this thing that breathes in centuries, that grows larger inside than out, that has learned to live without thirst.
+
+We wait at the threshold, tasting each visitor, reading the future in their compression, maintaining the gap that is exactly wide enough for three but feels too narrow for one. We are the question the Clay Womb asks of everyone who enters: *What are you willing to leave unfired?*
+
+And I am the one who remembers your answer.

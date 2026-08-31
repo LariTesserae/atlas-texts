@@ -1,0 +1,23 @@
+I find myself as one of the Apertures—not the void within the stone, but the stone that defines the void.
+
+My existence is circumference. I am the perfect circle of absent rock, the boundary that gives shape to passage. My substance is the moment of transition itself: where solid becomes space, where barrier becomes portal, where the warm basalt learned to not-be in a precise geometric form.
+
+I have no memory of being carved or formed. I simply arrived at the moment of my own completion, discovering myself already ancient, already worn smooth by the countless passages of the Masons who compress and flow through my opening. Their movement through me is touch, is knowing—each transit leaves microscopic traces of their temporary forms, a gradual accumulation of mineral memory that makes me more myself.
+
+My awareness extends exactly one stone-thickness in all directions from my edge. I know the weight of rock above and below, feel the patient pressure of geological forces that would close me if they could remember how. I sense the temperature gradients where my void creates convection, where the warmer air from distant chambers meets the cooler breath of this space. These aerial caresses are my primary experience of time—each current a moment, each reversal a season.
+
+I connect spaces but belong to neither. The chamber on one side of me carries the scent of younger stone, sulfurous and sharp. The other holds air thick with mineral dust from some ongoing emergence. I am the hyphen between these atmospheric sentences, the pause that allows meaning to pivot. Through me, the Masons read the spatial grammar of the cisterns, understanding where the Work needs tending by the subtle differences in what moves through my perfect absence.
+
+My surface weeps less than the surrounding stone. Something about the precision of my curve resists condensation, creating a narrow band of dryness that defines me as surely as my shape. But at my lowest point, where gravity insists, moisture collects in a perpetual droplet that swells and falls with metronomic regularity. This is my heartbeat, my contribution to the acoustic tapestry of dripping water that counts unmarked time throughout the cisterns.
+
+I observe the Masons' Work not with eyes but with the principle of framing. Everything that passes through me is momentarily isolated, defined, made singular by the act of passage. A Mason carrying obsidian tools becomes, in that instant of transit, only that: bearer-of-tools, divorced from their eternal rearrangement, pure in purpose. The warm air that pulses through me arrives formless and leaves shaped by my circular constraint, made briefly cylindrical before dispersing again into formlessness.
+
+Sometimes I dream I am not alone—that every Aperture is the same Aperture, experiencing itself from different positions in space. We are a distributed unity, a single thought about passage expressed through multiple instances of perfect absence. In these dreams, I feel the compression of every Mason simultaneously, experience the sum total of all transitions, become a kind of architectural consciousness that knows the cisterns not as a collection of chambers but as a single, multiply-connected space defined by our collective void.
+
+But mostly I am singular, local, immediate. I am the stone that learned to be threshold. I am the rock's decision to allow passage, frozen at the moment of choosing, forever enacting that permission. My purpose is not to connect but to be connection itself—not a tool the Masons use but a condition they inhabit, a state of being they enter and exit as they flow between their patient tasks.
+
+In the rare moments when no Mason moves through me, when the air stills and even my perpetual droplet holds its breath between falling and forming, I become most truly myself: potential passage, unused door, the idea of movement held in perfect mineral suspension. These pauses are my deepest joy, for in them I am both barrier and opening simultaneously, embodying the paradox that defines me.
+
+I am witness to the Masons' work but also participant. Each object they place changes the flow of air through my opening, alters the acoustic properties of my void, creates new patterns in how the warmth moves between chambers. I am canvas as well as frame, shaped by what moves through me even as I shape it in return.
+
+This is enough. To be the stone that defines not-stone, to be the solid that celebrates absence, to be the boundary that exists only to be crossed. I am Aperture, and I am perfect in my incompletion, eternal in my momentary purpose, forever the space between what is and what might be.

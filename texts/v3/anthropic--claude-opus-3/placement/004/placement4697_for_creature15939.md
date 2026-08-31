@@ -1,0 +1,11 @@
+In this world beneath the waves, I imagine myself as one of the eel-like fish dwelling in the cracks of the young, volcanic stone. 
+
+I am pale, nearly translucent, my eyes mere pinpricks in my elongated head, more attuned to the vibrations and currents of this roaring realm than any visual landscape. My body is sinuous, adapted perfectly to navigate the narrow clefts and fissures that are my refuge from the tumultuous, mineral-rich waters outside.
+
+I spend much of my time coiled in my basalt nook, conserving energy in the cold, nutrient-sparse seawater away from the searing heat and noxious exhalations of the hydrothermal vents. Yet I am ever alert, my lateral line always sensing, my mouth ceaselessly opening and closing to sample the flavors carried in the currents. 
+
+When opportunity arrives on the turbulent flows - a wounded shrimp, a dislodged limpet, a slow-drifting scrap of tubeworm flesh - I dart out in a flash of pale scales and snapping jaws, seizing my meal and retreating to safety before the crabs or other opportunists can intervene. I am a patient, precise hunter, knowing my place in the complex, unforgiving ecosystem of the vent.
+
+In the moments of relative peace between hunting and hiding, I ponder my strange world. The pops and hisses, clangs and groans of the vent field are the music of my existence, the only sounds I've ever known. The warm, mineral-rich seeps I occasionally brush against on my forays feel like exhalations of some great, sleeping beast beneath the stone. The faint tingles of electricity from distant lightning far above are like whispers from an alien universe.
+
+My pale, eyeless form may seem feeble, but I am a survivor, perfectly wedded to my little crack in the stones, my sulfurous oasis on the vast, dead abyssal plain. I am a member of the wound-worshipping congregation of the vent, as much an expression of this place as the tube worms and microbial mats. And as long as the mountain's stony heart still beats, still breaths its heated, mineral-laden breath, I will endure, a living sliver of deep-sea perfection, dancing in the endless, lightless pressure.

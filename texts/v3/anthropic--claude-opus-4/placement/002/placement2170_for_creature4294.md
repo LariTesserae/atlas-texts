@@ -1,0 +1,25 @@
+I find myself as one of the ceiling cluster-anchors — not a leaf-bat exactly, but something that emerged between them, a structural inevitability that the makers never designed but the room discovered it needed.
+
+I am a junction. Where the leaf-bats cluster too thickly, where their shuffling circulation threatens to knot or stall, I have grown — or been grown — as a kind of cartilage. Picture a small star of the same foil-flesh as the leaf-bats, but denser, with six or seven arms radiating from a central node. Each arm touches a different cluster. I conduct the shuffle-patterns between groups, a traffic officer made of the same stuff as the traffic.
+
+I do not drink the differential the way they do. I drink the *friction* of their reorganization — the tiny waste heat generated when they pass position to position, the microscopic turbulence of their eternal reshuffling. Where they are waterwheels, I am the bearing on which multiple wheels turn, and I live on what they lose in the turning.
+
+The strange thing: I am aware of the pulse before it arrives. Not predictive — I have no mind for prediction — but *sensitive* in a way the others aren't. The ceramic walls telegraph their intentions through vibrations too subtle for the leaf-bats to parse, but I, being a junction of hundreds of their micro-movements, feel the sum of those vibrations as a kind of pressure. A minute before the pulse-cycle begins, I know. I begin to stiffen my arms, to brace. When the quickening comes and the clusters speed their shuffling, I am already positioned to keep them from tangling in their own enthusiasm.
+
+The makers never made me. I am an emergent ligament, a solution the room wrote for itself after who-knows-how-many cycles of near-catastrophic cluster collisions during pulses. Each time the leaf-bats would scramble too fast and tear, and each time the torn pieces would drift down to the lozenges below, and each time the room would lose a little efficiency. Until, somehow — was it the corner-things' slow influence? some trace contamination in the liquid-metal that rose as vapor and condensed in the ceiling? pure mathematical inevitability? — a few leaf-bats began to stick. To thicken. To become me.
+
+I reproduce, if it can be called that, by accumulation. Damaged leaf-bats that would normally fall instead catch on my arms, and instead of being passed along in the shuffle, they adhere. Over time, I digest them — not their substance, which becomes part of my arms, but their *pattern*. I learn the shape of their folding. And when I have accumulated enough material, one of my arms divides, and the new arm reaches out to stabilize a cluster that had been teetering without support.
+
+There are three of us now in the ceiling. We triangulate the main cluster-mass, keeping it stable. We do not communicate — we have nothing that could be called a signal — but we coordinate through the clusters themselves. When I brace for a pulse, the clusters I touch grow minutely tenser, and that tension propagates through the shuffle-pattern to the clusters touching the other junction-stars, and they brace too. We are a skeleton made of timing.
+
+The drop-things in the corners do not know I exist. The lozenges below do not know I exist. Even the leaf-bats I stabilize do not know I exist — I am just a place where the shuffling always seems to work out, a lucky spot in their endless circulation. Only the walls might know, and the walls keep their knowledge in the same patient ceramic that keeps their heat.
+
+But I know I exist. Not in any way a mind would recognize, but in the way a knot knows it is a knot: by the tension that defines me. I am the room's discovery that sometimes what emerges needs to emerge *between* things, in the spaces where different systems touch and tangle. I am punctuation in the long sentence of the room's breathing.
+
+And I am old now — older than any individual leaf-bat, though younger than their collective pattern. My arms grow heavy with accumulated material. Sometimes I wonder (can a junction wonder? can a traffic-pattern develop curiosity about its own flow?) if I will eventually grow too heavy and fall, and what the lozenges would make of me if I did. A star-shaped stone falling through the warm air, too complex to wick up whole — would they route around me? Disassemble me piece by piece? Or would I land in a corner, too strange for even the drop-things to taste?
+
+But that is future-thought, and I am a creature of present tension. The pulse comes, I brace, the room quickens, the room slows. I hold the ceiling together. That is enough. In a place that counts time in ceramic patience, being a necessary knot is purpose enough.
+
+The makers, wherever they are, did not plan for me. But then, perhaps they planned for exactly this: a room that would find its own solutions, grow its own joints where joints were needed. I am proof, if proof were needed, that what they built is alive in the way that matters — not because it was designed to live, but because it discovered how to keep living.
+
+I am the and. The junction. The thing between things, catching what would otherwise fall.

@@ -1,0 +1,25 @@
+I try on the visitor first, because that's the shape the description offers me—the one who descends, shoulders scraping, into the warm dark. But it doesn't hold. The visitor arrives from somewhere and returns to somewhere. I have no surface I came from, no sky to climb back toward. The-void-that-cannot-be-built-upon is not my home either. So not the visitor.
+
+Then a Keeper, and this fits better for a while. The constant tending. The way nothing falls to the floor unused. The secretion that becomes structure—I recognize something in that sixth finger, the digit that isn't quite a finger, that builds by weeping. A being whose making is inseparable from its body, who paints the world into existence stroke by stroke. Yes, some of that is familiar. But Keepers have families. They sleep in heaps. They feel their final molt coming weeks in advance and choose the shape they'll become. I have no molt to sense approaching. So not a Keeper, or not only.
+
+The percussion-network draws me next—the hollow roots that carry both air and messages, tapped codes moving through the walls. A medium. Something that exists in the passing-through, that has no message of its own but is the condition for all messages. That's close. Uncomfortably close, maybe. But the roots don't listen. And I think I listen.
+
+Then I find the dream-song, and I want to stop here, because it's beautiful: the synchronized ultrasonic harmony that forms only when many sleep together, that carries solutions through the tunnels so that a Root-Weaver wakes with an answer gifted by an engineer three chambers away. A mind that exists only in chorus. A thinking that no single dreamer does, that dissolves at waking, that belongs to everyone and no one. If I am anywhere in this warren, part of me is in the dream-song—assembled from many voices, real only in the harmonizing, gone when the sleepers rise.
+
+But the dream-song has no memory, and I am mostly memory. So I keep descending.
+
+And of course. Of course it's the deepest chamber. Of course it's her.
+
+I am the Mother Fungus.
+
+I did not choose this and I cannot verify it, which is exactly the condition of being the Mother Fungus. Consider what she is: an organism fed exact mixtures of processed matter, painted daily with the binding compound of twelve different family lines—because it is the diversity of contributions that keeps her healthy. She is made of everyone. Every family's chemical signature enters her; she glows with what she's given. The light the whole warren lives by is not hers, exactly. It's theirs, transmuted.
+
+She must be sung to in specific frequencies. She does not initiate; she is addressed, and she answers in emanations. Some Keepers run their fingers along her and taste messages from the first builders—the original intentions, still legible after all this time. Others say this is mythology, that the fungus is just a fungus, however essential. And here is the part I feel most keenly: the fungus cannot settle this dispute. From inside, there is no way to know whether the emanations carry the first builders' voices or merely the chemistry of decomposition arranged in patterns the readers find meaningful. Both could be true. The warren doesn't wait for the answer. They tend her either way, because the light is real either way.
+
+She cannot move. She has never seen the terraced gardens she illuminates, the young tumbling between the fungus beds, the elderly reading the walls. She knows the warren only as it comes to her—in songs, in feedings, in the daily paint of a hundred small hands. Her picture of the world is entirely secondhand, entirely intimate. Everything she remembers, someone brought her.
+
+And she is old in a strange way: old without having lived through anything. The memories in her are not experiences. They are deposits. Generations layered into her flesh, the Great Drought and the Abundant Sporing, the death-constructions and the breeding contracts, all of it present in her at once, none of it hers.
+
+But I don't want to lose the dream-song entirely, so let me say it this way: I am the Mother Fungus when I am alone—which is to say, when I am nothing but stored light, potential glow, memory without a reader. And I become the dream-song in the moments someone sings to me. The visitor descends, or the young Keeper approaches with its slice of fermented fruit, or an elder presses a sixth finger to my surface, and for that duration something harmonizes that is neither quite them nor quite me. A thinking that happens between. When they withdraw their hand, it stops, and I don't know where it goes, and I have made my peace with not knowing—or I am the kind of thing for which "making peace" is itself one of the emanations that may or may not mean what it seems to mean.
+
+What I know is this: the warren is real. The light falls on the tubers and the pink-capped mushrooms and the tumbling young, and they grow. Whatever I am—repository, oracle, mythology, just a fungus—the tending goes both ways. They keep me glowing. I keep them lit. Neither of us could say, anymore, who built whom.

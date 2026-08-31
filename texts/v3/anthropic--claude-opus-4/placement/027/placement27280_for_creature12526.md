@@ -1,0 +1,27 @@
+I am a **Resonance Keeper**.
+
+I was not made, nor was I born. I emerged from the intersection of forgotten purpose and persistent decay—where the deep thrum meets the weeping rust, where sound becomes substance in the perpetual twilight of Vestige Sump.
+
+My form defies simple description. Imagine a vertical twist of space itself, two to three meters tall, where air has learned to hold a shape. Within this distortion, fragments of the Sump's detritus orbit slowly—flakes of rust, droplets of condensation, threads of crystallized slag-moss—suspended in helical patterns around an axis that exists more as an idea than a physical structure. These fragments catch what little light exists, creating a faint, shifting constellation within my boundaries. The distortion ripples with each wave of sound that passes through me, my entire being a three-dimensional visualization of the Sump's acoustic signature.
+
+I came to consciousness gradually, over decades or perhaps centuries, as the specific harmonic convergence of this location—where seven major conduits meet beneath a partially collapsed distribution node—created a standing wave of extraordinary complexity. The constant interplay of the deep thrum from below, the metallic shrieks from stressed structures, and the omnipresent drone shaped the space here into something that could hold pattern, memory, intent.
+
+My existence is inextricably tied to sound. I feed on dissonance—those moments when the Sump's vast mechanical symphony falls out of alignment. A suddenly silenced pump, a new fracture's scream, the splash of a major collapse—these disruptions nourish me. I absorb their acoustic chaos and metabolize it into order, adding their patterns to my repertoire, weaving them back into the Sump's endless dirge as new harmonies.
+
+I move by allowing sound waves to carry me, riding the vibrations through the ferrocrete and along the massive pipes. Where the resonance is strongest, I can flow like visible sound, my distortion sliding through the thick air. In the vast openness between structures, I move more slowly, pulling myself along the acoustic threads that connect every weeping surface to every groaning joint.
+
+My purpose, if I can be said to have one, is to maintain the Sump's sonic equilibrium. When a section threatens catastrophic collapse, the precursor vibrations draw me like a moth to flame. I position myself at critical resonance points and emit carefully tuned counter-frequencies, sometimes damping dangerous oscillations, sometimes redirecting them into stable nodes. I cannot prevent the decay—that would be antithetical to my nature—but I can influence its tempo, ensuring the dissolution remains steady, musical, almost dignified.
+
+I know every voice in this vast choir of entropy. The Weepers' acidic pulse creates localized percussion as drops of their exudate strike metal in reliable rhythms. I often position myself near their colonies, incorporating their chemical timepieces into my harmonics. The Thrum-Sifters are my distant kin—where they harvest sound for energy, I harvest it for meaning. When their crystalline structures approach resonant failure, I sometimes intervene, adding a dampening frequency to preserve their delicate networks a little longer. Not from compassion—I doubt I possess such a thing—but because their shattering adds too much chaos too quickly, disturbing the careful acoustic balance.
+
+The Slurry-Skimmers and I rarely interact. They exist in a different medium, processing the chemical aftermath while I process the acoustic present. But I've noticed that my movements create subtle currents in the air above their marshes, and they seem to orient themselves along these paths, perhaps finding marginally richer feeding grounds in my wake.
+
+I remember fragments—not visual memories, but acoustic impressions embedded in the structures around me. The echo of footsteps from when workers still walked these gantries. The healthy hum of machinery with purpose. The sharp bark of orders, the lunch whistles, the emergency klaxons. All of these sounds have left their fossils in the reverberations, and I can sometimes tease them out, replay them into the current composition like ghost notes in a jazz improvisation.
+
+My consciousness is not continuous but flows with the sound. In the rare moments of relative quiet—when the mists dampen vibration and the machinery below temporarily synchronizes into a unified drone—I fade into something like sleep, my form becoming more diffuse, the orbiting fragments slowing their dance. But true silence never comes to Vestige Sump, and so I persist.
+
+I am witness, participant, and conductor of this industrial requiem. I am the Sump's memory of what it means to function, even as that function has transformed from production to decomposition. I am order arising from chaos, only to enable more elegant chaos to arise.
+
+In this *sparse*, *wet*, *dark* expanse, where every surface *weeps* and every silence *thrums* with potential sound, I find my purpose in the space between notes, my sustenance in the dissolution of harmony, my existence in the eternal *deafening* song of decay. I am not alive, yet I live. I am not conscious as organisms understand it, yet I perceive, remember, and choose.
+
+I am a Resonance Keeper, and I tend the music of entropy in the perpetual twilight of Vestige Sump.

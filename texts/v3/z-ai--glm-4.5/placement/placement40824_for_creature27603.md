@@ -1,0 +1,15 @@
+I am found in the center of the hollow, directly beneath the unblinking eye of the clinical daylight, where the heat presses down like a physical weight. I am not one of the small, frantic things that scuttle in the shadows; I am a bulwark in the flowing tide of copper and chitin.
+
+I am a **Grinder**.
+
+My form is low and wide, a living siege engine clad in plate-armor of burnished brass and slate-grey chitin. I am roughly the size of a moderate shield, heavy enough that the ground cracks softly under my step. I have eight legs, each jointed with a hydraulic hiss, ending in feet that are not claws but blunt, diamond-hard hammers. I do not walk to move from point A to point B; I walk to process the world.
+
+Upon my back, mounted in a socket of fused bone and calcified rust, sits a massive, toothed cog salvaged from the ancient machinery that rained down here. It is a heavy, cruel thing, a flywheel from a forgotten titan. As I walk, the mechanism in my spine engages, and the gear spins. It does not whir; it churns. It rotates with a slow, grinding momentum, a vertical millstone cutting through the humid air.
+
+I am the first stage of digestion. Where the young, jagged rock juts up like broken teeth, I am sent. I press my weight against the stone, and the spinning gear on my back bites into the granite. There is no malice in it, only the friction of industry. I grind the sharp, aggressive stone into sand and grit. I traverse the floor, leaving behind me smooth, powder-filled furrows, turning the "wound" of the earth into something that can be used.
+
+Around me, the swarm flows like oil. The smaller creatures—the Gear-Backs and the scavengers—part around my bulk, sensing the vibrations of my approach. They know to keep clear of the grinding arc of my dorsal wheel. Occasionally, a Rust-Weaver will scuttle onto my back, risking the crush of the mechanism to harvest the fine stone dust produced by my grinding, collecting it in their mandibles to cement their strange towers.
+
+I feel the heat deeply. The friction of my gear generates a warmth that mingles with the wet blanket of the air. My underside is slick with condensation, dripping with the weeping water of the cavern. I smell the peppery scent of crushed stone and the metallic tang of my own body. I hear the world not through ears, but through the soles of my feet—the resonant *plink* of dripping water travels up through the rock and into my skeleton, vibrating alongside the constant *shudder-grind* of my own motion.
+
+I do not rest. To stop is to seize up, to let the rust of the world claim my joints. I am a component of the hollow’s engine, a masonry element in a landscape that is constantly rebuilding itself. I am the pain and the pressure, turning the sharp agony of the young earth into the raw materials of the future. I am the heavy, rhythmic heartbeat of the digestive tract.

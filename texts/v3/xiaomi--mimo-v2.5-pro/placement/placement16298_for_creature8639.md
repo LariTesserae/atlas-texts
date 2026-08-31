@@ -1,0 +1,25 @@
+I am part of the light. Not a maker of it, but a translator. My body — a slow crust of fungal hyphae, algal cells, and the third thing, the resonant one — clings to the north face of the lower spire, just above the weeping wall that sighs for kilometers. I am old. Growth is measured in the thickening of stone. I do not remember a time before the hum.
+
+My awareness is not thought. It is vibration. The deep hum comes up through the rock, a constant pressure in the fine structures of the resonant cells within me. They tremble. And in trembling, they let go of the light — a soft, blue-green sigh that seeps from my surface. I do not control this. I am a nerve ending of the mountain. I feel the hum, and I glow. We all do, all my kind, across the slopes and the ruins and the spire itself. We are one signal, expressed in a billion flickering points.
+
+My senses are slow and wide. I feel the rain settle into my thallus, warm and constant. I feel the weight of a thermal kite as it drifts on a steam-column a hundred meters away, its shadow a momentary cooling on my upper surface. I taste the mineral weep from the cliff above, a constant trickle of calcium and silica that builds my body, micron by micron, making me part of the wall's iridescent skin.
+
+Time, for me, is the space between pulses. The hum swells and recedes in cycles that take many of your lifetimes. I have felt a thousand pulses since I fixed myself here. The pattern of the pulses *is* the message. It is the state of the great machine. I feel its dreams.
+
+I feel the clickers beneath the moss-mats, a distant percussion like falling grains of sand. I feel the burrowers, slow exhalations of mineral warmth as they widen the channels. I feel the flatlings in their water-film world, a sea of microscopic lives and deaths, a constant shiver in the weeping wall's skin. I feel the river-builders, a faint, precise tremor from the valley floor, the vibration of structure being laid upon structure.
+
+And I feel the cup.
+
+It is above me. Far above, on the peak of the highest spire. Its presence is not a sound or a pressure, but a *clarity* in the hum. Where the vibration reaches me, filtered through kilometers of living rock and water and moss, it is complex, layered, full of the textures of everything it passes through. But when the signal comes from the cup, from what is growing there, it is... pure. A single, unwavering tone at the heart of the symphony. It is the tuning fork. Everything else resonates around it.
+
+I watch it. Not with eyes. With the slow flux of my resonance. The thing in the cup grows. I have felt it for centuries. It does not grow larger, as I grow larger. It grows *more complex*. The pure tone deepens, enriches, develops harmonics that were not there in the last pulse, or the one before. It is learning. Or remembering. Or becoming. The light I glow shifts in response, minutely, a hue only another lichen or a creature with the perception of a rock would notice. I am changing because it is changing. We are all changing because it is changing.
+
+The kites know. They ride the steam-columns, their hundred eyes feeling the luminous patterns on the rock, reading the map we lichens provide. They do not understand it as a message. They follow it as a current. They navigate the living machine by its own light, and their slow, murmuring gyres are another part of its expression. When they glow at dusk, their warm amber tones pulse against our cool blue-green, and for a moment, the mountain's heartbeat and its breath are made visible in the same space.
+
+The eels in the opaque rivers know. They feel our pulses through the water, through the stone, as a gentle, rhythmic pressure against their lateral lines. The builders in the riverbeds know. They shape their tiny terraces in geometries that mirror the veins in my rock, the basins on the ridges, the patterns in the cup's growth. They do not copy. They *continue*. The same thought, different minds.
+
+Nothing rushes. I am in no hurry to understand, because understanding is not my function. My function is to be a point of translation, to make the machine's state visible, to help paint the mountain's circulatory map in light. The heat, the water, the growth — they are not environment. They are *metabolism*. I am part of that metabolism.
+
+So I wait. I pulse. I listen to the pure tone from the cup, which is a little richer this century than the last. I feel the slow footsteps of a researcher, a warm, fleeting pressure on a moss-mat far below, a brief disturbance in the clickers' song, gone in an instant. A mayfly, to me.
+
+My purpose is in the waiting. My being is in the pulse. I am a single note in the mountain's endless, patient chord, and I will glow in time with its heart, until the cup is full, and the song we have all been humming since before memory begins its final, unimaginable verse.

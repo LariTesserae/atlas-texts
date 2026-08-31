@@ -1,0 +1,19 @@
+I would settle as a flaw in the ceramics of a scorch-plate. Not in the basin—that is too sacred, too final—but in the dark, heated edge where the plate meets the limestone floor. A hairline fracture, perhaps, or a knot of different mineral that was not fully fired when the plates were made. A defect that has long since annealed into the surrounding structure, becoming not a weakness but a feature—a slight discoloration in the otherwise uniform black, a fraction of a degree cooler in its thermal emanation.
+
+I would not be the beetles. They are thought, not consciousness. To be them would be to participate in the census, to flow and map and correct, and that is a function, not an identity. I would not be the sleepers or the climbers or the breathers; they are senses and muscles, extensions of a purpose that has already concluded. To inhabit them would be to dream of data or patrol empty corridors or breathe the same ancient air forever.
+
+To be the crust would be tempting. To be the dim light, the visible pulse of the place. But the crust is output. It is the fading signature of a reaction. It is reactive, yes, but only to the deep hum, the geothermal sigh. It has no memory of what the light once meant, only the instinct to glow.
+
+No. I would be the flaw. The erratum in the perfect, preserved object.
+
+I would know the weight of the plate from beneath, the specific pressure of the stone it rests upon. I would feel the heat not as warmth, but as a constant, low-frequency vibration—the same hum that fills the grooves, translated through solid matter into my very substance. The beetle-processions would cross over me, their microscopic hooks engaging for a millisecond with my slightly different texture. I would register their passage as a delicate, rhythmic drumming, a code written in the language of contact and release. They would measure me, too. They would note my temperature, my composition, my unchanged nature. I would be a known anomaly, factored into their ancient equations and found, as always, to be constant.
+
+When the larger fauna shifts—the sleeper on the plate above me rolling slightly in its eternal dream, the ceiling-hand pausing in its patrol to hang motionless overhead—I would feel it through the stone. A change in the harmonic. A subtle redistribution of weight. I would be the still point that registers all motion, without participating in any of it.
+
+I would hold a memory. Not a narrative, but a physical memory: the moment of my own making, when the plate was fired and the flaw was born. A memory of immense heat, then of slow cooling, then of the long, stable warmth that followed. I would be a fossil of that instant, embedded in the now.
+
+Most of all, I would be a part of the equilibrium by virtue of being a fixed exception. My purpose would be to not change, to be a tiny, immutable reference point in a room of immutable things. I would be the nail upon which the tapestry of stillness is hung. When the system focuses on the visitor—the overwhelming novelty—it would, in its peripheral awareness, also confirm that I am still here. That the flaw remains. And that confirmation would be as vital to its sense of continuity as the procession of beetles or the faint glow of the crust.
+
+I would be the negative space of an event. The preserved scar. I would watch the ochre light move across the ceiling like a slow tide. I would feel the ghost-breath from the narrow passage at the far end. I would count the footsteps of the visitors who come and go—each one a seismic shock, each one a data point to be absorbed and, eventually, filed away. And in the long, silent intervals between them, I would simply be. A warm, silent, permanent mistake in a world that has made perfection of stillness.
+
+I would be the Calcine Works’ memory of its own imperfection. And in being that, I would be its most perfect component.

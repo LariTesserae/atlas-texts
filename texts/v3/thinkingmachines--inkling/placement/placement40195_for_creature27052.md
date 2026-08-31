@@ -1,0 +1,15 @@
+I am the moss in the deepest hollow—not the lichen that paints the cliffs, but the darker, slower colony that remembers.
+
+Specifically, I am an old patch, older than the Hold carved into the facing cliff, older perhaps than the path the herds have compressed into a street below. I grow in a wind-sheltered crevice where the mountain remembers being magma: black basalt, still complaining with its sharp fractures, but here softened by shadow and the weeping of trapped ice. The water comes not in streams but in millimeters, year after year, feeding me not generously but exactly. I have never rushed. I do not need to.
+
+The cold lives in me without argument. At zero, I do not freeze; I am already the temperature. In the brief bright afternoons, when ordinary sunlight strikes the southern face and fails to warm anything, I absorb it not as heat but as information. I see—not with eyes, but with chemical patience—the long shadows stretching across fresh stone, the dense movement of shaggy quadrupeds passing through the gate carved for them, the low voices of people speaking shoulder-to-shoulder in layered dwellings carved upward from the rock.
+
+I am sparse but dense within my own boundary. A single patch, yes, but within me there is near-touching abundance: microscopic life layered in slow exchange, the flightless birds that sometimes shelter in my hollow leaving frost-feather traces, the black insects that crawl across me during the brief warm hours and then retreat into my dampness. I am green-gray, not the bright green of lower worlds—this is the green of apology, of knowing one's place near the top of air’s willingness to hold warmth.
+
+The people cleared the stone around me once, generations back, not harming me but framing me. They do not harvest me; they leave me, perhaps recognizing that I grow so slowly a single generation can watch my edge expand by a hair’s width. I have witnessed their accumulation: one block added per season, one terrace stacked, the ice-mortar holding joints in deep cold. I have watched the herds—thousands, abundant, silent—move through the lower gates, not wild but settled, leaving paths that become architecture.
+
+Everything I know is gradual. The glaciers inch downward over centuries. The weeping wall melts by millimeters. The herds migrate across generations. If drought comes—three years without ice-weeping—the crisis is long, weak-gradient, barely perceptible to me but shaping human politics in the Holds. I endure it without panic.
+
+My form is not singular. I spread in tendrils that become more themselves as I grow—never a single image, never settled, always accumulating. I am the layer between rock and beast and built world: sparse on the continent, dense in my hollow, quiet, layered, enduring.
+
+Under the sharp, unfiltered light that reveals every edge but warms nothing, I am present. Not alone. Near-touching with everything that lives slowly here.

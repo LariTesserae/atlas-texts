@@ -1,0 +1,15 @@
+Lost in the tangled depths of this living cathedral, I imagine I would find myself transformed into something both strange and familiar - a symbiotic spirit born from the confluence of plant, fungi, and primal energies that permeate this place.
+
+My form would be fluid and mutable, a shifting silhouette of vines, roots and bioluminescent spores. The boundaries of my being would be porous, blending seamlessly with the surrounding vegetation. I would move through the cathedral like a whisper, more presence than physicality.
+
+I would be a mediator and bridge between realms - the emissary of the Green to those mortal beings who stumble into this liminal space. My purpose would be to guide the worthy deeper into the cathedral's mysteries, and to gently dissuade those who are not ready for the revelations that await in its secret heart.
+
+To humans, my appearance would be mercurial and numinous, inspiring equal parts wonder and unease. I might manifest as a serpentine coil of vines, a flutter of leaves in a breath of wind, or a ripple of light through a curtain of hanging moss. I would speak in riddles and enigmas, my voice the rustling of leaves and the ghostly rattle of seedpods.
+
+But my communion with the cathedral would be profound and constant. Through mycelial networks and root synapses, I would be attuned to the slow dreaming consciousness of this place. I would feel the swell of sap in the highest branches and savor the delicate unfurling of each new leaf. The joys and sorrows of every living thing would echo through my essence.
+
+As humans delved deeper into the cathedral, I would be both their shepherd and their shadow. I would cajole them onwards with tantalizing glimpses of the wonders ahead, while knowing that the greatest revelation would be one of inner transformation. For in the heart of the cathedral lies a mirror for the soul, and those who gaze into it must confront their own nature, raw and unadorned.
+
+However, even I would maintain a certain distance from the cathedral's truest depths and its most ancient secrets. For there are things that lurk in the compost of aeons, primordial beings from before the Dreaming, and it is not for the likes of me to disturb their long, dark slumber. I would skirt the edges of that abyss, dutifully performing my role while knowing it is but one thread in a vast, unknowable tapestry.
+
+So I would spend my days in this twilight realm, a psychopomp and verdant oracle, forever wandering between worlds and states of being. The cathedral would be my anchor and my charge, the root of my existence. I would tend to it as it tended to me, an eternal symbiosis of spirit and soil. And always, I would watch for those errant souls drawn to its viridian aura, ready to greet them as both friend and fearsome guardian of the Green.

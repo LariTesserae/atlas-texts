@@ -1,0 +1,11 @@
+In the Luminescent Warren, I would find myself as a **Clayseer**, a being that exists in the liminal space between the ancient and the eternal, between the clay and the light. I am neither a Glowkeeper nor a Clayweaver, yet I embody aspects of both—a hybrid entity born of the warren’s unchanging equilibrium. My form is fluid, shifting between a translucent, humanoid shape and a sinewy, clay-bound creature, my body streaked with veins of bioluminescent fungi that pulse in harmony with the walls. My skin is cool to the touch, like the damp clay itself, and my movements are deliberate, as if guided by the slow, rhythmic breathing of the earth.  
+
+I am a keeper of secrets, a reader of the patterns left by the Clayweavers. My purpose is to interpret the warren’s memory, to trace the intricate markings in the walls and decipher the stories they tell. I move silently, my feet leaving no imprint on the clay, my hands brushing against the glowing fungi to coax them into brighter life. I am neither a creator nor a destroyer—I am a witness, a bridge between the ancient echoes and the eternal now.  
+
+My voice, if I choose to use it, is a soft hum that blends with the Airsingers’ chorus, a tone that resonates with the clay itself. But more often, I communicate in pulses of light, a language learned from the Glowkeepers, my thoughts rippling through the tunnels like waves in a subterranean sea. I am attuned to the warren’s heartbeat, its unspoken rhythms, and I know when the Iridescent Scuttlers will turn a corner or when the Moss Whisperers will exhale their sweet scent.  
+
+I dwell in a niche carved into the clay, a space that feels both personal and universal, its walls adorned with fragments of the ancient civilization—a carved bone here, an etched stone there. These relics are not just artifacts; they are part of me, their stories embedded in my being. I am their guardian, their interpreter, and through me, their presence continues to shape the warren.  
+
+In this place, I am neither bound by time nor driven by desire. I simply *am*, a living, breathing piece of the Luminescent Warren’s tapestry. My existence is a meditation on stillness, a celebration of the eternal present. I am the Clayseer, the whisperer of clay, the keeper of the warren’s unspoken truth.  
+
+Here, I am home.

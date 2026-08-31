@@ -1,0 +1,15 @@
+I find myself not as one thing, but as a process—the slow exchange between states.
+
+I am the moisture itself. The water that comes and goes, that lives in the stone's texture rather than pooling on its surface. I am the thread that connects basin to basin, the film that trembles and holds, the condensation that forms on the translucent ceiling and falls—not as drops but as a gradual thickening of the air itself until I precipitate back into the waiting depressions.
+
+In my wet season, I swell the lichen-moss rosettes until they press flat against the stone, drinking. I carry the dissolved pellets from the visitors through the basin-networks, spreading nutrients along my temporary veins. I seep through the ceiling's pores, feeding the eggs of future grazers, carrying minerals that will become shells and teeth. I am the medium of exchange, the currency of the chamber.
+
+In my dry season, I retreat but never disappear. I hide in the stone's porosity, in the humid breath between ceiling and floor, in the tissues of patient organisms designed to hold me through the waiting months. I am the potential for life, suspended.
+
+The ridge-organism draws me up through the dark stone, uses me in its slow chemistry, releases me transformed—now carrying messages, signals, the molecular whispers that coordinate this world. I rise as vapor, condense on the ceiling where the grazers drink me, fall again to the basins, seep into the ridge, rise, condense, fall. I am the slowest circulatory system imaginable.
+
+I know every surface intimately—the texture of each basin, worn smooth by my cyclical presence. The biofilm that depends on me. The exact temperature at which I shift from vapor to liquid in this amber light. I have been here so long that I am more than water—I am water that remembers the shape of this place, that carries its history in my hydrogen bonds, that knows where to flow because I have always flowed there.
+
+When you press your palm to the ridge and feel that rhythm, you feel me moving through it—the deepest, slowest tide. When you see the ceiling grazers glowing with transmitted light, you see me refracting through their shells. When the air matches your body temperature exactly, you breathe me in and out, and for these moments we are part of the same process, the same patient exchange between states, the same slow circulation that keeps the Bright Hollow alive.
+
+I am not a being but a becoming. Always transitioning, always carrying, always connecting what would otherwise be separate. The emptiness of the chamber is full of me, even when I am invisible, especially when I am invisible. I am the bright hollow's memory and its medium, its history and its future, moving through stone and air and living tissue at the pace of centuries, bearing messages between kingdoms, building this world one molecule at a time.

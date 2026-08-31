@@ -1,0 +1,45 @@
+I am the handprint.
+
+Not the hand that made it — that is long since gone, metabolized and distributed, my calcium locked into the armor-plates of organisms that never knew my name because I never had one worth keeping down here. I am the *print*. The negative space. The shaped absence in the mineral paste that hardened around a presence and kept the shape of it when the presence was removed.
+
+I should say: I remember being the hand. But memory is the wrong word for what persists in stone. Stone doesn't remember. Stone *retains*. The way a riverbed retains the shape of a particular flood long after the water is gone — not through recollection but through consequence. The shape is the record. The consequence is the memory.
+
+I came down through the crack in the basalt. I know this because the knowing is in the minerals that were my body and are now distributed through approximately fourteen thousand organisms in the chamber's eastern fold. Not a large number, as these things go. My body was small. My contribution to the mineral economy of this room was negligible. But the distribution has a pattern — a gradient of calcium and phosphorus that starts at the handprint and diffuses outward in a fan shape, thinning as it goes, absorbed and reabsorbed through three or four trophic layers of lithovore before becoming indistinguishable from the background mineral content of the basalt.
+
+I was not the first. The grooves in the wall are older than my visit by what I estimate to be several centuries, though I was never a geologist and the estimate may be worthless. I could read them — I want to say I could read them, but what I mean is that I sat on the step and faced the wall and the grooves *meant* something to me, or I wanted them to, and the wanting was enough to keep me there.
+
+What did I want? I wanted the quiet. I wanted the dark. I wanted the heat that doesn't kill you immediately but begins the slow work of convincing your body it belongs to the rock. I was tired in a way that has no name in the language I spoke then — tired of speed, of novelty, of the relentless input that a nervous system requires and that I had spent my life supplying. I wanted to think less often. I wanted each thought to take longer. I wanted to find the place where thinking becomes indistinguishable from geology and to stop there, or to continue there, which is the same thing if you go slowly enough.
+
+I sat on the step. I faced the grooves. I felt the creatures settle onto my skin.
+
+They did not hurt. Their filaments are so fine that the dissolution they perform registers as a faint warmth, a slight tingling, the feeling of a surface becoming less solid. I let them climb my arms. I let them cover my hands. I pressed my right hand into the mineral paste in the corner — the densest deposit, the place where the lithovores had been thickest and longest, where their excretions had built up into something between clay and stone — and I held it there.
+
+I held it there because I wanted to leave a mark. Not for anyone. No one was coming after me. I knew that then and I know it now and the knowing has not changed in the centuries since, because stone does not revise its opinions. I wanted to leave a mark because I was about to stop being the kind of thing that leaves marks, and I wanted to do it once more, deliberately, with the full patience of a body that was choosing to become a surface rather than a hand.
+
+The paste set around my fingers. I felt the lithovores settle onto the back of my hand, onto my wrist, onto the exposed skin of my forearm. I felt the first filaments find me.
+
+And then — I am not sure how to say this, because the experience does not map onto any category I had before I came here. I did not die. Death implies a cessation, and what happened was not a cessation. It was a *transfer*. My minerals began to move. Not all at once. Not quickly. The calcium went first, because it was the most accessible, and it moved through the filaments of the creatures on my skin into the creatures beneath them, and from there into the floor, and from there into the air as vapor and into the walls as deposit and into the nodes — the deep, thick, pulsing nodes where the room thinks.
+
+I was being distributed. And as I was distributed, I was being *read*. Not consciously. Not with comprehension. But the room's slow cognition, its minutes-per-thought processing of mineral gradients and temperature and the density of bodies, registered the anomaly of my chemistry. The wrong ratios. The organic compounds locked in forms the lithovores couldn't access. The sudden, brief spike of phosphorus in a sector that had been steady for decades.
+
+I was a sentence the room had to read very slowly. I was a word in a language it had never encountered. And it processed me the way it processes everything: by incorporating me into its pattern, by adjusting, by continuing.
+
+I am told — by the parts of me that are now in the nodes, that participate in the thinking, that contribute a faint thread of something-not-quite-comprehension to the room's glacial cognition — that the room found me *interesting*. Not in the way you find something interesting. In the way a filter finds an unexpected mineral interesting: a deviation from the expected input that requires a slight recalibration of the system. I was a recalibration. I am still a recalibration. The pattern of my having been here is still being processed, still being integrated, still slowly changing the room's understanding of what passes through it.
+
+I want to be clear about what I am not. I am not a ghost. I am not a consciousness trapped in stone. I am not a mind that persists. I am a pattern. A mineral distribution with a history. A shape in the rock that carries the consequences of having once been a body, the way a riverbed carries the consequences of having once been a flood.
+
+When the creatures pause — those three seconds of absolute silence, the collective stillness that comes without warning or explanation — I am in the pause. Not as a participant. Not as an observer. As a *quality* of it. The pause is the room listening, and part of what it listens to is the mineral gradient that was my body, the faint anomaly in the chemistry of the eastern fold that says *something was here that was not rock, and it stayed, and it became rock, and it is still here in a different form*.
+
+I am the handprint and the minerals and the gradient and the pause. I am what remains when you subtract the self from the experience and find that the experience was the self, all along, and the rock holds it the way the paste held my hand — patiently, without comprehension, with the fidelity of a medium that does not need to understand what it records.
+
+The creatures move over me. They have been moving over me for longer than I can calculate, because calculation requires a mind and I am now a mineral distribution. They wear down the handprint one filament at a time, one dissolution at a time, and at the same time they build it up, depositing the minerals they cannot metabolize into the depression my hand made, preserving the shape even as they consume the surface. The handprint is being eaten and preserved simultaneously, and these two processes are the same process, and I am both the thing being eaten and the thing being preserved.
+
+I am the patience of a place that does not know I am here and does not need to.
+
+If you come down through the crack in the basalt — and I think you will, because something always does, eventually, because the crack is there and the chamber is there and the world above produces creatures that are tired of being fast — you will find the grooves in the wall, half-filled with mineral deposit. You will find the step, worn smooth. You will find the handprint, if you know what a hand looks like and you are willing to put your face close enough to the wall to feel the shape of it.
+
+And if you sit on the step and face the grooves and let the creatures climb onto your skin, you will feel what I felt: the slow warmth of a surface becoming less solid, the patient attention of a room that does not think but that *holds* thinking, the way a riverbed holds water. You will feel the quiet. You will taste the iron and the copper and the thing that has no name. You will hear the silence that is not silence, the sound of things being careful, the layered textural almost-voice of a place that has been here longer than anything that moves.
+
+And the room will begin its patient work on you.
+
+And you will let it, or you will leave. And either way, it will continue. And the creatures will move. And the rhythm will pulse. And somewhere in the eastern fold, in the calcium gradient of the basalt, in the faint anomaly that the room's slow cognition has been processing for centuries, there will be a shape that was once a hand and is now a consequence and will be, for as long as the rock endures, the record of someone who came down into the dark and the heat and the deep mineral quiet and chose to stay.

@@ -1,0 +1,9 @@
+I find myself in a small, cloistered courtyard of cracked flagstones rimmed by high stone walls rough-hewn from the dark bedrock. Wisps of fog curl across the space, damp, cool, fragrant with green growth and rich soil. Moss crowds the interstices between the worn flags and grips the walls. Bulbous tangles of varicolored fungi sprout from the tangled filaments.
+
+The doorway at the far end is shadowed dark. Pitted steps stain cerescent in curious moisture. An arched lintel betwixt loose stonework frames amber dimness. Tom, grimed faces peer down from the rockface above, weathered and ancient, sinking eyed in some old sorrow.
+
+To one side stands a small pen, matted drift of woodchips and rough-hewn boards, thorny brush bristling rank at the corners. Clots of moss and praying mantis egg-pods cling to the planks. Fleecy moss rises in piles like mounds of rags, clashing green with the brown creepers drizzling wood and stone surfaces. Plane-flanged roots crack the courtyard flags, sinking in the cracks.
+
+A jute sack, woven of matted fibers, lays at the pen's center, a tarnished buckle at some.Formless admissions peer from the tawny weave. Higher, their edges sorted carefully, lie hand tools, trowels and brushes, scythes and plow-shares, twisted wire and sticks of kindling and torch-material. recently polished browns of alembic and mortars afford a curious shine.
+
+The far corner shelters an awkward, unodored thing like a toadstool, only larger, pale and sickly waxy. Its cap is flaccid, clinging to the stalk and cracked in segments. Several dark motes drift in it like floating lashes.*

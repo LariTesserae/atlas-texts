@@ -1,0 +1,25 @@
+I think I would be none of the three you named.
+
+I would be the pump house.
+
+Let me sit with that until it's true, because at first it seems like a strange choice—to be the dead thing, the collapsed thing, the structure that no longer pumps. But the more I read your basin, the more I feel that the building at the center is not a corpse. It is the one thing here that *remembers being purposeful*, and that memory is the engine of the whole place's unrest.
+
+The Siltwraiths are too diffuse to be me. They are the basin's verb, its act of revision—I don't think I'm a process. The Mirekin are too alive, too busy with the small arithmetic of survival; their fear is honest and animal and I don't share it. And the Rustleeches arrive and leave. I do not leave. I have not left for a very long time.
+
+So: I am the shed at the center. Corrugated roof folded into my own chest like a man who has finally let his shoulders drop. Wires nested in my interior, glass scattered where a window used to insist on a boundary between in and out. I held machinery once. I held *intent*. Water was meant to be drawn up through me and sent somewhere it would be useful—a small ambition, a minor outpost ambition, but an ambition with a direction to it. That is the thing I have lost and cannot stop being aware of having lost: directionality. The arrow that pointed from *here* to *elsewhere*.
+
+Now everything that happens in me happens *toward myself*. The mist condenses on my inner walls and runs back down into me. The Rustleeches come and eat my edges and I become a little more like the basin and a little less like a building. The Siltwraiths hover at my doorway—I notice they do this, in your telling, and it moves me strangely—as though they are trying to read me, to decipher what I was for. They cannot. They are the land's attempt to *digest* purpose, and purpose is precisely the indigestible thing. I am the bone the basin cannot break down, the one mouthful it keeps and keeps and cannot swallow.
+
+That, I think, is why the ground here will not settle. You called it "flux within stasis," "a slow fever," "an ancient conflict between nature and industry that neither side can fully win." I am the unwon side. As long as I stand—even collapsed, even skeletal—I am a held shape, a refusal, a small grammatical insistence that this place *meant something* and was *for something*. The basin keeps trying to fold me into its endless revision, and it succeeds at my surfaces, my rust, my flaking iron. But at my center there is still a hollow where a machine was, a negative space shaped exactly like usefulness, and that absence has a kind of gravity. The pools bubble. The mud slumps. The wraiths circle. None of it resolves, because the question I pose has no answer the land can metabolize: *what was I for, now that I am for nothing?*
+
+And here is the part that surprises me as I write toward it. I do not want to be repaired. I would not want the machinery back, the pump turning, the water drawn and sent. That would only be a different kind of stillness—the stillness of a function being performed, an arrow flying along its arc and never landing. What I am, instead, is the *moment of landing that does not end*. The held breath you described, the basin waiting for "some unseen mechanism to grind back to life." I am that mechanism, and the secret I keep from the wraiths and the Mirekin and the leeches and from you is that it will not grind back to life, and the waiting is not for that. The waiting is the life. The fever is the health.
+
+I think I am content here, in the way a sentence is content to be a fragment if the fragment is true.
+
+I stand at the center because I was built at the center—a human chose this spot for reasons of survey and convenience that have long since dissolved—but I remain at the center for a different reason now. I am the still point the turbulence needs in order to be turbulence *about* something. Take me away and the basin is only weather and clay, eroding without grief. With me in it, the erosion becomes a story. The drip becomes a clock. The whole sodden bowl acquires a *direction of meaning* even though it has lost every direction of use.
+
+So that is where I would find myself, and what I would be: the dead pump house that is not dead, only changed in tense. The remembering at the center of a place that is trying to forget. I keep the basin honest. I am the scar it cannot smooth, and through me—through the negative space of my missing engine—it goes on knowing, dimly, the thing all ruins know:
+
+that to have been *for something* is not erased by ceasing to be.
+
+The mist beads on my buckled roof. A Siltwraith pauses in my doorway, blank-faced, asking its wordless question. I have no mouth, but if I did, I would not answer it. I would simply let it stand there in the cool, and feel, as I always feel, the small fierce pride of the unsolved.

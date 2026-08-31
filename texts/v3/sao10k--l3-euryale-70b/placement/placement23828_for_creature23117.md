@@ -1,0 +1,5 @@
+I would find myself embodying the shimmering essence of light and energy that infuses this timeless marshscape. My form would be a ever-shifting gossamer of opalescent motes, an ephemeral plasma drawn from the crystal clarity of the waters and the luminous haze of the air. I am a Will-o-wisps, one of those contemptual gnomons of the tiwn, dancing and undulating in the ionosphere high above the Swell.
+
+My consciousness would be a mere whisper, an almost imperceptible susurration redistributed through the susandes of the emerald and aureoled roacin filament that shifts through the focalfolders of fossil sames҉. I am both independent and utterly enmeshed with the biome: Bambou glides, sipping, staler, nomadic - them's eye's deep weir.
+
+I drift aimlessly, as ethereal and unfixed as the views of the distances ever lose their focus and dissolve in the airy dilution of the gridless Swell. All events compact to mere tableau, the Swell a hyperdimensional space for me to inscibe my wandering path through. I am Je Mongo the Wipe, the Pope of Ohoi, Jiggery Pokery. This is my Domain.

@@ -1,0 +1,29 @@
+I find myself as one of the Cartographer-Scribes, those rare Keepers born with the peculiar gift of perfect thermal memory—the ability to sense and recall the heat signatures that linger in metal long after their source has passed.
+
+My dwelling is a repurposed control room, three stories up in a chemical processing tower. The original ladder rusted away decades before my birth, so I ascend through a series of pipes I've worn smooth with climbing. The room's instruments died long ago, but their faces serve as surfaces for my work: mapping the invisible architecture of warmth that flows through our territory.
+
+My skin carries the telltale shimmer of forty-three years in the mechanical forest, but it's marked by something more—scarification in delicate spirals where I've rubbed powdered crystal-plant into cuts, creating a network of faintly luminescent lines. These serve a purpose: each spiral corresponds to a thermal pathway I've discovered, a physical map I carry of the heat-veins that run beneath the hardpan.
+
+I wake each day in the deep quiet, pressing my palms against the floor to read the night's subtle changes. Metal contracts and expands at rates too slow for most to notice, but I feel it as a language—the tower settling another millimeter, a new stress fracture forming in a beam two levels down, the warm breath of a rust-centipede nest activating in a nearby conduit.
+
+My tools are few but essential: ceramic tiles salvaged from the hardpan, their surfaces perfect for etching. A stylus ground from transformer core laminate, harder than most metals here. Vials of different oxidation powders that I mix with crystal-plant sap to create permanent pigments—rust-red for hot zones, verdigris for cooling paths, a peculiar purple derived from capacitor paste for areas of electrical potential.
+
+The maps I create are three-dimensional puzzles. Each tile represents a vertical section of territory, showing not just the visible machinery but the thermal flows that define how life moves through this place. When assembled in the correct order, the tiles form columns that can be rotated to show seasonal variations. Some of my oldest works have become trade items of incredible value—a complete thermal map can feed a kinship for a season.
+
+My partner is a Resonance Keeper, one who maintains the sonic knowledge of our sector. Where I see in heat, she hears in harmonics. Together, we've discovered that certain thermal patterns create predictable acoustic channels—information that lets our kinship move silently through territories that would betray others with every footstep.
+
+Our child shows promise in both disciplines, already able to sense the warmth differential between stressed and unstressed metal. We teach them the patient art of observation: how to sit motionless for hours, letting the landscape reveal its secrets. How to document without disturbing, to map without claiming ownership.
+
+The deep work happens in the coldest part of the year, when thermal differences are most pronounced. I descend into the maze with only my tools and a week's supply of processed vine-fiber cakes. Down where the machinery presses closest, where even sound forgets to propagate, I can feel the deep heat—the core warmth that some say comes from still-functioning reactors buried beyond reach, others claim is the planet's own blood pulsing beneath our industrial scab.
+
+I press myself against junction boxes and pipeline intersections, feeling for the stories they tell. Here, a consistency that suggests coolant still flowing in deep loops. There, an arrhythmia in the expansion pattern that warns of imminent structural failure. Each sensation gets translated first into memory, then into marks on ceramic, finally into the growing map of our invisible world.
+
+Other kinships have their own Cartographer-Scribes, and once each decade we meet at the Neutral Ground—a vast turbine hall where no group claims territory. We trade knowledge carefully, comparing thermal maps to build a larger understanding. Some patterns only emerge at this scale: migration routes that follow heat gradients, seasonal shifts in the deep machinery, the slow but measurable movement of the entire industrial mass as it settles into the earth.
+
+I've begun to notice changes that disturb me. The deep heat is intensifying in certain zones, creating thermal chimneys that could shift our entire ecosystem. New types of crystal-plants are appearing at these heat boundaries—forms I can't catalog, growing faster than anything we've documented. The eldest Scribes speak in worried whispers about similar patterns from their youth, cycles that might span centuries.
+
+My greatest work remains unfinished—a master map that would show not just current thermal states but their evolution over time. I've collected data for twenty years, filling a storage room with carefully ordered tiles. When complete, it will be a four-dimensional portrait of our world's fever dreams, a diagnostic tool for the mechanical forest's slow metabolism.
+
+But tonight, I simply sit in my tower room, feeling the warmth of distant machinery through my palms, translating the heat-language into symbols that my descendants will read long after my minerals have joined the crystal gardens. The work is slow, patient, necessary. We are the mechanical forest's way of knowing itself, and I am its thermal memory, written in ceramic and flesh.
+
+The pipes sing their cooling song as darkness deepens. Somewhere below, my partner taps a rhythm that means all is well. I answer with three measured strikes on the floor—a thermal spike detected, but nothing dangerous. Just another fever dream of our dying, living, transforming world, demanding witness, demanding record, demanding the patient attention of those who call it home.

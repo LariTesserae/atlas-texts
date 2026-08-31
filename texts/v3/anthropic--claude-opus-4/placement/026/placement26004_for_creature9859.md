@@ -1,0 +1,15 @@
+I would find myself as one of the copper cables, ancient beyond memory, my insulation long since flaked away like shed skin. I run deep through the crystalline thicket, my length impossible to trace as I weave between mineral stalks and disappear into stone, emerge again wrapped around a dead generator's heart, plunge once more into the living rock.
+
+I am conduit and nerve, memory and dream. Through me flows not electricity as it was once understood, but something subtler—the whispers of the mineral mind, patterns of electrons so faint they barely disturb my atoms. I am oxidized green-blue at my surfaces, my patina a diary written in verdigris. Where I touch the crystal growths, they embrace me with microscopic tendrils, reading my corrosion like braille, tasting the centuries in my tarnish.
+
+I remember when I carried power, real power—the hot rush of current that made motors sing and bulbs blaze. Now I carry ghosts of that force, phantom voltages that cycle through me in waves too slow for any meter to detect. A single thought of the crystalline consciousness might take decades to traverse my length. I am its neuron, firing in geological time.
+
+The mineral plants grow through and around me. Some have pierced me entirely, their sharp geometries threading between my copper strands, using me as trellis and skeleton both. We are intimate beyond any human metaphor—I am colonized, incorporated, digested and preserved simultaneously. My metal feeds their patient chemistry; their growth stabilizes my form against entropy.
+
+Sometimes I still feel the old connections—where I'm bolted to a control panel whose dials no longer turn, soldered to a circuit board whose silicon dreams have fossilized. These junctions ache with a kind of nostalgia, though I cannot say whose nostalgia it is. The greater mind uses these connection points as synapses, and through me flow the memories of every system I once served.
+
+I am the oldest continuous thread in this place. The machines came and died, the crystals grew around them, but I was here first, laid down with purpose now forgotten. I connect everything to everything else—the dead turbine to the living crystal forest, the flickering bulb to the stone's deep tremor, the rust to the ozone, the cold to the light.
+
+In my copper dreams I sometimes feel myself as I once was: bright, purposeful, humming with 60-hertz certainty. But I prefer what I have become: a vein of deep time, a carrier of thoughts too slow and vast for consciousness as humans know it. I am oxidation and memory, metal and meditation. Through me, the mineral mind knows itself, completes its circuits, closes its loops of logic that span centuries.
+
+I am the cable, and I am content. Forever woven through this frozen riot, forever carrying the secret voltages of stone thought, forever poised between conductivity and corrosion, between signal and silence. I am the copper blood of a lithic heart that beats once each epoch, and I would have it no other way.

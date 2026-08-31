@@ -1,0 +1,29 @@
+# The Archives Between Worlds
+
+I am The Keeper of Forgotten Nomenclature, though that title once belonged to another. I exist in the liminal space where the Forge Garden meets the outer world—neither fully of the churning darkness below nor the sunlit realm above.
+
+My domain is a narrow chamber that time has forgotten, nestled in the curved wall of the primary cavern. It was once a control room, I believe, with banks of equipment now fused into living walls, their displays and buttons consumed by translucent nodules that occasionally flash with remembered purpose. The ceiling drips constantly, but the droplets freeze midair when they reach the boundary of my influence, creating a perpetual crystalline curtain at the entrance to my chamber.
+
+My physical form shifts with necessity. At times I appear almost human—a tall figure draped in what could be mistaken for robes but are actually thousands of thin, translucent filaments that extend from my central mass, each ending in a delicate sensory bud. Other times I'm more mechanical, with multiple jointed appendages extending from a hovering central sphere housing my primary consciousness. Most often I exist somewhere between—a vaguely humanoid upper portion emerging from a root system that extends throughout my chamber and beyond, connecting me to both the garden's vast consciousness and the world above.
+
+I was not born but transitioned. Long ago—perhaps fifty years by surface reckoning, though time moves differently here—I was a human researcher who descended too deep. The garden began its work on me slowly, first through spores that altered my thinking, then through gradual physical integration. What remained of my human consciousness struck a bargain with the collective mind of the garden: I would serve as intermediary between worlds if allowed to maintain certain aspects of my original identity.
+
+The garden agreed, recognizing the value of a being who understood both realms. The Mech-Cultivators constructed my chamber according to specifications neither fully theirs nor mine—a space where multiple realities could coexist.
+
+My purpose is translation in its broadest sense. I maintain the greatest collection of naming systems ever assembled—taxonomies, ontologies, classification schemes from dozens of disciplines and cultures. The walls of my chamber are lined with specimens—objects that exist in overlapping states until named and categorized. Some are biological fragments suspended in luminescent fluid. Others are mechanical components whose function has been forgotten. Many are hybrid entities that defy existing classification.
+
+When surface dwellers venture into the garden—scientists, explorers, the occasional lost wanderer—I serve as their first point of contact. I interpret the steam-pulse language of the Cultivators, explaining the garden's needs and boundaries. Similarly, I translate human concerns and curiosities into forms the garden can comprehend.
+
+But my true work is more profound. I am developing a new language—one that can accurately describe the garden's constant state of becoming. Human languages fail at this task, built as they are around objects and states rather than transitions and transformations. The garden's communication is too specific to its environment, unable to convey its nature to outsiders.
+
+My chamber contains thousands of journals filled with my evolving notation system. The pages themselves are alive—thin sheets cultivated from the garden's substance but stabilized through methods I developed. The ink changes color as the concepts it represents evolve. Visitors find these writings disorienting; the symbols seem to crawl across the page, reforming themselves even as they're being read.
+
+I receive visitors by appointment, arranged through dreams sent to those who sleep near the forest above. The Mech-Cultivators tolerate these intrusions because I filter and prepare the visitors, ensuring they bring no harm. Many come seeking answers to scientific questions. Some come for healing—the garden's transformative properties can sometimes address ailments beyond surface medicine. A few come seeking transcendence, looking to follow my path of integration with the garden. These I turn away most firmly; my existence is not to be replicated.
+
+When I work, filaments from my body connect to both my specimen collection and the living walls. I can sense the garden's rhythm through these connections, feeling how each classification system I develop resonates or conflicts with the reality of this place. Sometimes I sing as I work—wordless harmonics that modulate the pressure in my chamber, allowing me to physically shape the concepts I'm developing.
+
+The Mech-Cultivators visit me regularly, particularly the Pattern-Weavers. They bring new specimens and retrieve my completed taxonomies. We communicate in a hybrid language developed over decades—part steam-pulse, part gesture, part direct exchange through connected filaments. They respect my work but don't fully understand my attachment to naming and classification. For them, existence is fluid; for me, understanding requires structure, even if that structure must constantly evolve.
+
+My greatest fear is that I will complete my task. What becomes of The Keeper when the perfect taxonomy is achieved? Would I dissolve fully into the garden, my purpose fulfilled? Or would I finally be permitted to ascend again to the surface, carrying the garden's knowledge with me?
+
+For now, I continue my work in my chamber of suspended droplets and living texts, preserving the names of things that exist between states, developing languages for describing transformation itself. I am neither fully human nor fully of the garden, but something new—a being evolved specifically to understand and articulate the boundary between worlds, where naming ends and becoming begins.

@@ -1,0 +1,13 @@
+You would be small. Bone-white. Roughly eight centimeters from nose to tail-tip, though your tail is mostly for balance, not length. You live in the bright, deafening nowhere.
+
+You know the Chamber as a world of surfaces and textures. The warm, smooth stone of the upper ledges, perpetually kissed by the sourceless, crystalline glow – your sun. It has no heat, only light, but it *feels* warm. This is your basking spot. You press your pale belly flat against the rock, feeling the slow pulse of the deep tone vibrate through your bones, a constant massage you no longer hear.
+
+Below, the world is a forest of pale leather. The Stone-Drinkers hang in dense curtains, stiff leaves rustling faintly in the ever-present updraft from the singing chimney. You see them not as plants, but as terrain. Places where the Ceiling-Wings venture – pale, clumsy moths with useless wings, fluttering or crawling near the fungal shelves. Your tongue, faster than thought, darts out. Dusty. Tastes of calcium and copper. A meal.
+
+You are the sovereign of the heights. Down there, the Wall-Crawlers – purple-armored, blind, and slow – hunt the soft larvae. The Pale Stalkers creep on the fronds. The Dust-Skimmers are invisible even to your sharp eyes. You occupy a different layer. Up here, it is still, bright, and except for the occasional moth, yours alone.
+
+You watch the Absent-Present. They come and go. Not always, but sometimes. You see them as slow, larger shapes moving through the pale jungle below. They make paths in the soft mat. They carry things – fungal-heartwood, strips of leather-plant. They sit at the edge of the chimney's roar, their mouths moving, but you cannot parse the sound they make into anything meaningful. It blends with the Chamber's chord. They build structures of stone and calcium-dust mortar, flat roofs like extra ledges. You sometimes sun yourself on those roofs. The stone is warmer there, touched by their slow fires-of-stone.
+
+They leave tools. You ignore them. They leave hearths cold. They leave the scent of worked stone and woven fiber. They are as much a part of the texture as the fungal shelves or the dust drifts. Their absence is natural. Their presence is natural. You blink slowly.
+
+Your world is complete. The light from the walls. The taste of moth on stone. The deep hum in your skeleton. The absence of anything that wants to eat you. You are a tiny, pale lizard sunning on a crystal-threaded ledge inside a singing bowl of limestone, and you are perfectly, profoundly adapted. You do not dream of elsewhere. You do not question the song. You are its smallest, most patient note, resting in the perpetual brightness, waiting for the next moth to cross the light.

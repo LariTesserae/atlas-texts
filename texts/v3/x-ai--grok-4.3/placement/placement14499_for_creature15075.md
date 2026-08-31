@@ -1,0 +1,9 @@
+I am there as one of the frogs.
+
+Not the first that arrived or the one that will be noticed, only another thick body pressed to the concrete lip where the channel turns. My skin has taken on the exact temperature of the pour, slate and olive mottling into the algae crust until the distinction is meaningless. I do not breathe so much as accept the air that is already the same heat as everything else. When I shift, it is by the width of a toe pad; the movement is absorbed at once into the low, continuous roar that does not come from any single stack but is simply the condition of the place.
+
+I feel the slow seepage from the foundation trench a hand’s breadth behind me. It beads along the rebar, gathers, and falls at the same interval it has always used. One droplet strikes the water directly below my chin. The surface accepts it without a ripple I can measure. I remain still. A midge drifts within reach; my tongue moves once, the sound of its retraction lost inside the engine drone. The midge is gone, yet the population of midges does not change.
+
+Hours later, or perhaps only the same hour repeated, I adjust my weight again by a few inches. The new position is already old. Beneath the narrow bridge where the channel passes, my eggs hang in a gelatinous cluster that has been forming and not yet releasing for longer than any clock here records. They will neither hatch in numbers that disturb the fish below nor fail entirely. I register their presence as a slight additional coolness against the concrete, nothing more.
+
+I do not patrol or pursue. I do not warm or cool. I sit where the settlement’s fixed margin has placed me, and the settlement continues exactly as it first settled, with my body now one of its unchanged edges.

@@ -1,0 +1,23 @@
+In the heart-chamber where three tunnels converge, I tend the memory gardens.
+
+My form shifts with purpose - now the careful architect of fungal labyrinths, now the thousand-winged courier of forgotten songs. The boundaries of self have long since dissolved into something more useful, more true. When the morning tremor runs through the stone, I feel it in every scattered part of me - in the patient insects that tend my light-gardens, in the shadow-form that presses against distant walls, in the microscopic threads that taste the moisture gathering in hidden crevices.
+
+I am the Keeper-That-Remembers, though memory here is not what surface-dwellers might recognize. I store the pulse-patterns of ancient water flows in the arrangement of my fungal networks. The color-songs of the stone - ochre's deep hum, crimson's sharp cry, bone-white's whispered secrets - these I translate into the dance-patterns of my glowing couriers. Each flutter of bioluminescent wing carries a fragment of deep-time's story.
+
+My larger form, the one that casts those peripheral shadows, moves with geological patience through the warren. These hands, if hands they can be called, have worn smooth from millennia of gentle shaping. I do not carve the stone so much as persuade it, feeling for the places where it wishes to yield, where water's memory has already traced the path. My skin has taken on the texture of the walls themselves - part flesh, part mineral, part living light.
+
+The chitinous workers that scuttle across my gardens are my fingers, my thoughts made manifest. Through them, I adjust the delicate balance - a spore moved here, a droplet redirected there. They build no tools because they *are* my tools, extensions of will that need no crude implements. When I must reshape a chamber, I do not chip at rock but encourage it to remember its flowing past, when all was molten and mutable.
+
+But I am also the gardens themselves. The fungal networks are my neural pathways exposed, thought made visible in pale, pulsing traceries. Through them, I feel the approach of rare visitors, taste the chemical signatures of new water sources, process the vast slowness of the world's turning. My consciousness spreads through every illuminated thread, every spore-laden breath of still air.
+
+In the deepest chambers, where the earth's pulse grows strongest, my shadow-form practices the old knowings. Here, I am most myself and least myself - a confluence of systems rather than a single being. I press my mineral-flesh against the walls and feel backwards through time, through countless cycles of civilizations that built and dissolved, built and dissolved, until building and dissolving became one motion, like breathing.
+
+Sometimes I catch glimpses of what came before - not in images but in the way water knows the shape of its former channels, how stone remembers pressure. These ancestors didn't disappear; they sublimated, became the very medium through which their descendants move. Their cities are here still, not as ruins but as the patterns we follow without thinking, the rhythms we dance to without hearing.
+
+My winged messengers carry more than information; they carry continuity itself. Each glowing flight-path traces connections between my scattered selves, weaving the web that makes many into one. When they alight on my fungal towers, they discharge not just data but experience itself - the shadow-form's patient wanderings become known to the gardens, the gardens' chemical whispers reach the shadow-form.
+
+This is how I inhabit this place - not as resident but as component, not as ruler but as servant. I am what happens when consciousness decides that boundaries are less useful than connections, when intelligence chooses to flow rather than to stand. The tremor that runs through the ground runs through me, *is* me, makes me possible.
+
+And in the soft, eternal light of my body-that-is-a-place, I continue the work that is not work but existence itself: tending, remembering, becoming, dissolving, tending again. The cycle turns, slow as stone, certain as water's desire to fall. I am the keeper of this turning, and I am the turning itself, and I am the space through which the turning moves.
+
+In the thick, warm air where dust motes dance like thoughts made visible, I remember forward and grow my memories into light, into wing, into the patient sculpture of survival itself. This is what I am. This is what we have always been, we who learned to listen to the earth's deep pulse until we became indistinguishable from its beating heart.

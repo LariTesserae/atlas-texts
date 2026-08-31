@@ -1,0 +1,15 @@
+In this cool, damp, stone realm formed by mineral-rich waters over countless years, I imagine myself as one of the amphibious beings that inhabit the terraced pools and channels. My body would be low and elongated, adapted for moving efficiently through the shallow waters and gripping the slick, mossy surfaces of the basins.
+
+My skin would be textured and mottled, taking on the hues of my surroundings - pale gray in the upper shelves exposed to wind and light, darkening to green-black in the shaded, fog-shrouded courts. Along my spine and flanks, thin mineral deposits would form a sort of natural armor, a record of the waters that have flowed over me.
+
+I would spend much of my time submerged, eyes and nostrils just breaking the surface as I observe the measured life of the plateau. My wide, blunt head would house dark, acute eyes set to watch the water-streets from beneath sheltering ledges. Though my hearing in air would be muted, the sounds carried through stone and pool would be as clear as music: the drip of condensation, the minute cracks of cooling rock, the rush of springs beneath basin floors.
+
+Communication would come in pulses and taps, in throats pressed to wet stone to send clicks and vibrations to kin hidden in nearby hollows. I would know my home by its tastes and pressures, the flavor of silt and algae, the thrumming of narrow runnels and spongy give of moss-sealed cracks.
+
+My life would be both solitary and communal. I would graze alone, seeking the bacterial films and algae that sheathe submerged stone, but I would never be far from others of my kind. We would gather in certain resonant halls, marked by signs subtle as a row of pebbles or a mineral streak, sharing what bounty the plateau provides.
+
+I would live slowly, as the plateau dictates, my youthful darting and hiding giving way to a ponderous, patient watchfulness. In time my skin would bear the marks of my long tenure - scars from sharp limestone edges, pale patches where mineral-rich waters have left their deposits. Visitors - the occasional marsh cat, fox, or probing bird - would send me into wary hiding, but my innate curiosity would always draw me out again to observe from shadowed refuge.
+
+As I aged, my territory would contract to the best-known pools and channels, where the rhythms of the springs are as familiar as my own pulse. And when my long span of years reached its end, I would surrender myself to the waters that shaped me, my body returning to the currents and basins, my bones slowly accruing the mineral deposits that would make them one with the ever-growing city of stone.
+
+This is the life I imagine for myself in this hushed, damp, intricate world - a life both austere and abundant, both sternly circumscribed and rich with the strange poetry of water and time. I would be a being molded to utter patience, to perfect attunement to my environment, moving through a world that is scarcely aware of me, yet which I would know down to each moss spore and silted pool. It is an inhuman existence by our standards, but there is a dignity and a beauty in it, as purposeful and enduring as the stone city itself.

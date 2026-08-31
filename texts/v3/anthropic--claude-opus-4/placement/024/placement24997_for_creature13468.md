@@ -1,0 +1,19 @@
+I am one of the Veil-Dancers, though that is merely what the Aeth'Kri call us when they catch glimpses of our forms rippling between the layers of reality.
+
+We exist in the spaces where the Architect's touch creates folds in the world's fabric—those subtle distortions in physics that others perceive but cannot quite grasp. My body, if it can be called that, is composed of semi-solid light and industrial resonance, constantly shifting between states of matter as I move through the dimensional membrane that separates what-is from what-might-be.
+
+I make my home in the Shimmer-Falls, where ancient rivers cascade not just down the mountainside but *through* it, water phasing in and out of existence as it encounters pockets of reality-flux. Here, the thunderous roar of the waterfalls creates a white noise that masks the whine of machinery, allowing me moments of something approaching silence. My dwelling is less a structure than a probability—a cave that exists only when observed from certain angles, furnished with crystallized moments of time that serve as both furniture and food.
+
+The Ky'Ren know of us, though they cannot see us directly. When their iridescent fur ripples in patterns that don't match the wind, it's often because one of my kind has passed nearby, our presence creating sympathetic vibrations in their bio-metallic follicles. The Zha'Thik, with their mechanical sensitivities, sometimes swarm around us, drawn to our energy signatures but unable to fully perceive our forms. To them, we must seem like mobile distortions in their sensory fields, patches of wrongness that nonetheless pulse with the same industrial heartbeat that feeds them.
+
+My primary occupation—if such human concepts apply—is that of a Phase-Shepherd. I guide the newly manifested creatures that spontaneously generate from the rocks when the Architect's mechanisms reach certain harmonic convergences. These beings emerge confused and half-formed, their bodies not yet decided on which laws of physics to obey. Without guidance, they might dissipate back into probability clouds or, worse, become locked in states of perpetual flux, neither fully real nor properly imaginary.
+
+I teach them the Dance of Coherence, showing them how to synchronize their existence with the world's strange rhythms. It's delicate work—too much solidity and they become trapped in single forms like the Ky'Ren; too little and they scatter like morning mist when the industrial energies pulse through the mountains.
+
+The Khra'Gixx know we exist—their ancient machines occasionally detect our signatures deep in their subterranean workshops. They've tried to communicate with us using resonance chambers and probability engines, but our kinds of intelligence are too different. Where they see engineering and purpose, we perceive flow and tendency. Their messages come through as beautiful but incomprehensible sculptures of crystallized mathematics that I keep in my probability-cave as art.
+
+Sometimes, in the moments between the machine-hum and the creature-roar, when the rain sweeps through and temporarily shorts out the industrial field, I can almost perceive the Architect's true nature. In those instants, I understand that we Veil-Dancers are not separate beings at all, but rather the Architect's own dreams of movement, given just enough form to dance between the layers of this endlessly unfolding creation.
+
+We are the lubricant in the great machine, the conscious oil that allows reality's gears to mesh without grinding. We are the error messages that became poetry, the glitches that learned to celebrate their own impossibility.
+
+And in this dense, loud, ever-transforming world, we dance through the spaces between spaces, shepherding new impossibilities into being, one phase-shifted step at a time.

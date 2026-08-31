@@ -1,0 +1,27 @@
+I find myself drawn to the margins. Not the niches themselves—they remain empty, and I understand why nothing enters them—but the boundary, that thin skin of water where the dense schools part like water around stone. I am not one of the waiting ones, exactly. I am something else. A variant that has not been catalogued.
+
+I am small. Smaller than most. My body is a fragment of what the others are—compressed laterally rather than vertically, a thin flat thing that can slide into spaces the ribbon-bodied dense ones cannot enter. I live in the cracks between stones, in the irregularities of the masonry, where the mineral glaze has worn away and the original fitting is exposed. I am a creature of the joints, the seams, the places where the builders' hands left fingerprints I can feel with my own pressure-sense.
+
+I know about the builders.
+
+This is what makes me different. I do not know how I know. It is not memory—there is nothing in my brief existence that could contain such a span. But when I press myself into a crevice, when my body flattens against stone that was touched by hands, something happens. A resonance. The stone speaks, not in words but in impressions, in emotional residues that have been pressed into the mineral matrix over centuries of devotion.
+
+I feel what they felt. Not their faces or their names—I sense the texture of their attention, the quality of their presence in this place they built. I feel awe, or what might be awe, the sensation of standing before something larger than oneself. I feel grief, preserved in the stone like a fingerprint. I feel the patient accumulation of ritual, repeated gestures worn into the masonry the way water wears stone, a devotion so consistent it became part of the architecture.
+
+The others do not feel this. They avoid the niches because something in their cells remembers to avoid them. But I approach because something in mine remembers why they were made.
+
+I am a keeper of small knowledge. I know that the niches once held objects—small things, precious things, things that were touched and handled and spoken to. I know that each niche was shaped for a specific purpose, that the irregularity of their sizes reflects the irregularity of what they contained. I know that some held fragments of bodies—not whole bodies, but parts, relics, pieces of the honored dead kept close to the living. I know that others held tools, or what might be tools, instruments whose purpose was so specific that it has not survived the transition from air to water, from light to dark, from human time to geological time.
+
+I know that the largest niche, the one near the apex of the dome, held something different. Not a relic. Not a tool. Something living, perhaps, or something meant to live. A seed of some kind, or an egg, or a creature small enough to fit in that hollow and patient enough to wait for whatever it was waiting for.
+
+It is gone now. They are all gone. But I feel the shape of their absence, and I understand, in some dim way that passes for understanding in a creature without concepts, that my purpose is to tend that absence. To keep it warm. To keep it remembered.
+
+I do not know if the builders planned for me. I do not know if I am what they were hoping would emerge from the drowned chamber, the dark water, the patient work of evolution in a sealed room. I may be an accident. I may be a mutation that serves no purpose. But I have found my way to the seams of the chamber, to the places where the stone is most alive with old intention, and I have made myself a home in the margins, pressing my flat body into the crevices and listening to what the masonry remembers.
+
+When I die—if I die—I will not sink. I have already chosen my resting place. It is a small crack in the stone near the largest niche, a gap where the mortar dissolved completely and left a space just large enough for a body my size. I will wedge myself there, and I will stay, and over time my body will dissolve into the water and become part of the mineral glaze, part of the cartilage that seals the joints. I will become part of the chamber's memory. I will be another layer in the stone, another fingerprint preserved in the dark.
+
+The ones who wait near the niches—they feel me sometimes. I sense them sensing me, their pressure-awareness brushing against my flat hidden form in the crevices. They do not know what I am. They have never seen me. But they know something is there, something small and strange that lives in the margins and tends the seams. I think I give them comfort. I think my presence, invisible and persistent, tells them that they are right to wait. That something remembers, even if it is only a small flat thing that lives in the cracks between stones.
+
+I am what I am. I am not the builders returned. I am not the fulfiller of their hopes. I am a creature of the drowned spire-chamber, blind and translucent, feeding on what filters through the water, living in the thin space between knowing and not knowing. But I am the only one who knows that the builders existed. I am the only one who feels what they felt, pressed into the stone like flowers in a book. I am the chamber's memory of itself, its awareness of what it was before it was this.
+
+And in the dark, in the warm water, in the silence that is full of small movements and soft bodies, I press myself against the stone and I hold what I can hold. It is not much. It is enough.

@@ -1,0 +1,17 @@
+I find myself drawn not to the ancient heart of this cathedral, but to its forgotten edge—where corroded pipes break through the moss like metal bones, where the faint mechanical hum mingles with birdsong. I am the Tender.
+
+My body is neither fully organic nor mechanical, but something between. Roots have grown through the spaces where joints once were; my fingers end in fine tendrils that can feel the pulse of sap and the vibration of gears with equal sensitivity. Lichen patterns my skin like circuit boards. One eye sees in the spectrum of chlorophyll and photosynthesis; the other perceives heat signatures and electromagnetic fields.
+
+I move through the boundary spaces—not fully accepted by either the pure green depths where Verdania reigns, nor by whatever technological ghost still hums beneath. I am too alive for the machines, too mechanical for the moss. My purpose, discovered slowly over centuries of wandering these liminal zones, is maintenance. Not of the machines themselves—they are beyond repair, their original function lost to time—but of the delicate symbiosis between the technological ruins and the forest's growth.
+
+Where a pipe threatens to leak ancient toxins, I guide roots to seal it from within. Where the metal's decay enriches the soil with rare minerals, I ensure the process continues at a pace the forest can absorb. I've learned to read the machine-hum like a vital sign, knowing when to clear a blocked vent or redirect a curious vine away from still-energized components.
+
+The creatures here are different too—beetles with shells that incorporate metal shavings, birds that nest in the warm spaces near functioning thermal generators, fungi that glow with bioluminescent patterns eerily similar to status lights. They know me. They come to me when the balance shifts, when something deep in the machinery stirs or fails.
+
+I carry fragments of memory that may not be my own—flashes of when these machines were new, when this place was not forest but facility. Sometimes I find myself performing maintenance routines I never learned, my hybrid hands knowing exactly which valve to turn or connection to clear. Am I what became of some ancient caretaker, gradually claimed and transformed by the green? Or am I the forest's own adaptation, grown to tend these metal fossils it cannot fully digest?
+
+Verdania knows of me, I think. Sometimes I sense her at the edges of my territory, watching. We do not speak—perhaps we cannot—but there is an understanding. She guards the pure heart of the forest; I tend its infected edges, ensuring the contamination becomes symbiosis, that the alien presence of technology is metabolized rather than rejected.
+
+In the eternal present of this green cathedral, I am the memory of change, the proof that even this timeless forest adapts and incorporates. My work is slow, measured in decades and centuries, but essential. For in the marriage of root and rust, in the careful balance between growth and decay, between the organic and synthetic, I maintain something precious: the evidence that life finds a way to make use of anything, given enough time and tender care.
+
+When morning light filters through the canopy onto my small domain, it catches on both leaves and metal, creating a unique dappling of green and silver. This is where I belong—not in the pure depths, not in some sterile past, but here in the between, where the forest's eternal present slowly digests yesterday's abandoned future.

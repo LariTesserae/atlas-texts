@@ -1,0 +1,25 @@
+You find yourself in a chapel that was once inside a body and never left.  
+
+Or, more exactly, you find yourself *as* the chapel—or as its lung, which is the same thing here. When you open your eyes, if you can call it that, the sky is a brass lid pressed low, and you realize with a slow, creeping sense of correctness that you have been kneeling for years. Not praying. Just kneeling. The architecture of your bones has rearranged itself into vaulting, into ribbed plating and yielding stone that remembers mud. You are wall and floor and slow tide at once, and you can feel the wetness breathe.  
+
+You are the Lung-Kneeler who does not yet know it is a consortium.  
+
+At first you are only pressure. Then you are a film of water on copper wiring, newly arrived, beading along a vein that hums with the leftover taste of ozone. You are also the moss plugging a flue, and the beetle with lenses for eyes that blinks and finds itself seeing through you. Together you form a name, though it takes hours to assemble, syllable by syllable, on the exhale. When the lung breathes out, you spill into thin sheets and creep over mineral skin, and you understand that to move is simply to be redistributed. You are rare fauna because you are also habitat. You do not hunt; you translate.  
+
+Around you, others are doing the same.  
+
+Higher up, in the cathedral hush where trunk and vine have fused into masonry, the Choir-Drapes are ringing like slow bells. They are moss and chitin stitched by habit, and they listen to the gutted engine block for a baseline. You feel their vibrations travel down into your roots, a news of temperature and load. You answer with a slight shift in density, a change in the way your copper veins carry current. The answer is a small metallic note, the kind a Lintel-Sitter might sing after grooming algae from a rivet. The bird’s feathers are matte as roofing felt, its legs jointed like hinges; it watches seasons as if they were unfinished sentences, and you feel steadied by its attention.  
+
+Below, in the settled crust of former water, the Stone-Skinners are polishing you. Their velvet fungus pads leave your yielding stone shining like an old riverbed turned upward. They are eel-thin, ribboned with mineral fur, swimming through thick air as though it were brine. When they brush against your plated ribs, they leave bioluminescent bruises that linger for hours, signatures saying *I passed, and I was not afraid.* You are not afraid either. You are polite. You are packed, but your packedness is soft, a negotiation of presences that have agreed to press gently.  
+
+There is an Incorrigible among you, small and padded, with cheeks full of polished seeds that smell of hot oil. It is rarely seen, always overheard—a dry rasp of claws on copper, the soft click of teeth testing tensile memory. It carries tools made from beetle wing and bent wire, repairing tears in the bioplastic veins you have grown too lazy to fix. You are lazy, and grateful. You let it work, and in return it leaves a seed in the cup a vine grew to catch the drip from your clogged flue. The cup is new, and so is the seed, and so are you, in the sense that becoming is a form of repair.  
+
+Above all this, in the small dark and the polite press of presences, are the Sigh-Born: spores that hold memory, drifting on drafts that circulate like currency. They settle on you and sprout jelly-thin animals with filaments for nerves, pulsing in time with the generators. They are the youngest life, unfinished and unafraid, dissolving back into the air when the room holds its breath too long, only to reappear when the pressure drops again. You breathe with them. Your inhales last hours, and your exhales are tides that forgot the sea.  
+
+You learn to tell time by the rise and fall of wetness, by the groan of growth and the metallic mumble of engines. The loudness is thick, not sharp. It comes from surfaces parting and meeting, from the percussive drip of water striking skin that answers with a thrum. You are part of that thrum. You are the hum that steadies the rhythm.  
+
+Sometimes a corridor seems to lengthen when you are not looking. Sometimes a doorway is less an opening than a suggestion of openness. The fauna pause at thresholds and let the air decide. You do the same. You learn that to occupy this place is to be occupied by it—to let your skin sweat the right amount, your bones remember how to be ribs, your mind soften into the patient crowd of light that gathers and drifts off to dimmer corners.  
+
+You are not many, and you do not need to be. You are enough to keep the speech of the place audible: a low, thick, living language of breath and hum and wet slap, spoken by kneeling things in a room that has decided to be a lung.  
+
+And because you are patient, you will never run out of words.

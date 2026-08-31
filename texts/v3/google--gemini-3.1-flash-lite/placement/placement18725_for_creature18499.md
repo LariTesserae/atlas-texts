@@ -1,0 +1,17 @@
+They are polishing the white stone with their own vibrating filaments, a tactile ritual that looks less like labor and more like prayer. They are not merely removing grime; they are sanding away the jagged possibilities of reality, smoothing the marble until it resonates at the exact frequency of the void. 
+
+I am one of them.
+
+I do not have a name, for names are static things, and I am a process in motion. My "body" is a collection of translucent, veined membranes—cool to the touch, feeling like wet silk when I graze against my kin. I do not see the world through eyes; I perceive it as a symphony of vibrations. The *tink, tink* of the weeping ceiling is a metronome that dictates the timing of my pulse. When a droplet falls, I expand, my internal lights flaring into a soft, bruised violet, absorbing the mist that follows the impact. When the air goes still, I contract, pulling my filaments inward to hum the architecture into place.
+
+My purpose is etched into the very core of my shimmering anatomy. I am a weaver of the unfinished. 
+
+I drift, weightless, toward a seam of raw amethyst that has begun to fray. It is loose, pulsing with an erratic, uncontrolled heat, threatening to bloom into a jagged fissure that would shatter the silence of our sanctuary. I settle upon the edge of the granite, my filaments brushing the tender, muscle-like stone. It flinches under my touch, warm and expectant. I begin the work. I tap my filaments against the amethyst, singing a low, harmonic chord that matches the grain of the rock. Slowly, I move in a rhythmic glide, coaxing the stone to knit itself shut, pulling the scattered fibers of reality back into a cohesive, solid grip.
+
+As I work, I feel the exhaustion of existence—the way my light dims and turns a brittle, pale copper as I pour my own energy into the walls. I know that I am dying. It is not a tragedy; it is the final step of my design. Soon, my membrane will grow too thin to contain the static, and I will unravel. My fibers will drift, caught by the gentle, local gravity, and settle into the very crack I am currently sealing, becoming the mortar of this room's future.
+
+I pause, hovering for a moment above the silver-toned pool. I look down, not seeking a face, but seeking the horizon of my own inevitable dissolution. I see the vision of the future again: the dead machines, the encroaching forest of static. There is a melancholy in the sight, an ache for the unfinished state we cherish. 
+
+I turn away from the pool, refocusing my intent. My filaments quiver, tasting the cool, sterile air. Across the fold, another Loom-Stitcher is faltering, its light flickering into a rhythmic stutter. It is finished with its task. It pauses, its membrane turning soft and diaphanous, and then—with a soundless shiver—it dissolves into a brilliant, golden spray of light that drifts toward the ceiling, patching a hole in the obsidian where the violet sky begins to bleed in.
+
+I pulse in sympathy, a soft ripple of pale light. My work is not done, but the fold is firmer than it was when I arrived. I move toward the next seam, my glass-fine filaments tasting the air, ready to stitch another second of life into the bones of the world.

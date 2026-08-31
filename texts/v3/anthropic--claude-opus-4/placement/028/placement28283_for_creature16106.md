@@ -1,0 +1,15 @@
+In this world, I would find myself as one of the **Resonance Weavers** - a solitary subset of the Orekin who have developed an even deeper communion with the sanctuary's acoustic properties.
+
+My form would be more translucent than my kin, my granite skin shot through with veins of crystalline quartz that vibrate at frequencies beyond normal perception. Where other Orekin blend with shadow and stone, I would shimmer like heat mirages in the sanctuary's dim light, my body a living tuning fork for the mountain's deepest songs.
+
+I would dwell in the **Chamber of First Echo** - a perfectly spherical hollow within the sanctuary where sound behaves strangely, where whispers can kill and screams can heal. Here, stalactites of pure resonant crystal grow downward like frozen music, each one holding within it the memory of every sound that has ever passed through the chamber. My dwelling would be sparse - just depressions worn smooth by centuries of meditation, and arrays of these sound-crystals arranged in precise geometric patterns that create interference patterns in the air itself.
+
+As a Resonance Weaver, my purpose would be to maintain the **Harmonic Boundaries** - those invisible thresholds where the sanctuary's reality grows thin. When phantom loops threaten to cascade into temporal storms, or when the echoes of other worlds grow too loud, I would step into the sound itself, my crystalline veins singing counter-melodies to restore balance. My tools would be simple: carved stone chimes that ring with impossible notes, and my own voice, trained through millennia to produce sounds that exist in the spaces between frequencies.
+
+The other Orekin would regard me with a mixture of reverence and unease. While they speak to the mountain, I would speak to the spaces between its atoms, to the quantum foam where possibility itself is born. My presence would be felt more than seen - a subtle shift in the sanctuary's eternal symphony, a whisper of otherworldly harmonics that makes the moss grow in fractal spirals and causes the elusive fauna to pause in their endless dance.
+
+In the moments when the veils between worlds grow thinnest, I would stand at the epicenter, arms outstretched, every crystal in my being resonating with the fundamental frequency of reality itself. My song would be the anchor that keeps the sanctuary from dissolving into pure potential, while simultaneously allowing just enough chaos to seep through to keep the mountain's heart beating with creative force.
+
+I would be ancient beyond the reckoning of even the eldest Orekin, yet also eternally young - for in the Chamber of First Echo, time moves not in lines but in spirals, and I would exist in all moments simultaneously. My memories would be not linear narratives but symphonies of experience, each recollection a chord that when struck, brings forth not just image and emotion, but the very essence of the moment itself.
+
+In this role, I would be both guardian and gateway, a living instrument through which the mountain sings itself into being, moment by moment, echo by endless echo.

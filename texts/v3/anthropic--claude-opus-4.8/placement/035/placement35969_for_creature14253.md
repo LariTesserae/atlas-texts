@@ -1,0 +1,29 @@
+I think I would be a crack-widow.
+
+Not because I chose it—no one chooses it—but because the choosing was done for me when the wall took my family. I want to be honest about how that arrives in me, because I suspect it isn't grief the way a lowlander would picture grief. There was no body to mourn. The shear happened in the eleventh frost-cycle of that year, fast, the way the mountain sometimes decides without listening to its own dreams. One moment the membrane between our loft and the Verek family's was taut against my daughter's cheek; the next the gallery had closed like a fist, and I was on the wrong side of it, alone in the corridor with my hands still warm from her hair.
+
+So now I go down into the new fractures.
+
+Let me sit with what that work actually *is*, because I think the city misunderstands us, and I have had a long time to think in the cold. They imagine we go down out of recklessness, having nothing left to lose. That isn't it. We go down because we are the only ones who can bear to be alone in the fresh rock. Everyone else has people whose heartbeats they need conducted through the bedstone at night. We don't anymore. We have learned the unspeakable thing—that a person can survive solitude—and so we are sent into the places where solitude is the whole substance of the work.
+
+I want to describe the descent properly. A new fault smells different from an old gallery. The old places smell of mammalian warmth, oiled leather, the ammonia tang of the swifts. But a fresh crack smells of the inside of the mountain—mineral dust that has never met breath, a coldness that has edges, the iron-copper bite of stone that was buried for ten thousand years and is now, for the first time, exposed to the possibility of air. I lower myself in on mammoth cordage, and the light from above narrows to a blade, then a thread, then nothing, and I work by clicking my tongue and listening for the shape the ice gives back.
+
+Here is what I have come to understand about my own work, that I could not say to anyone above:
+
+We are not really negotiating with the rock. That is what the *fault-listeners* believe, the children and the elders pressing their ears to the bedstone, speaking of the sleeper turning in its dreams. It is a tender belief and it keeps the city alive, and I will not take it from them. But down in the fresh fracture, alone, I know there is no negotiation. The rock does not want anything. It is not a sleeper. It is only weight finding its rest, and we are the small warm things that slip into the pause between one settling and the next. We do not coax the gap open. We simply *agree* to occupy it for as long as it consents to stay open, knowing the consent is not granted but merely not-yet-withdrawn.
+
+This is the secret of the crack-widows, and I think it is why they send us, the bereaved, and no one else: only someone who has already had the fist close on them can work calmly inside the open hand, knowing what the hand can do.
+
+I chip away the sharpest edges with obsidian. I lever the loosest plates free with bone so they cannot fall on whoever comes after. I do not hurry, because hurry is a lowland luxury and there are no lowlanders here. A gallery I open today might shelter the grandchildren of children not yet born; or it might close before the first ice-bridge has thickened enough to cross. I will not know. That not-knowing used to be unbearable. Now it is simply the texture of the work, the way cold is the texture of the air.
+
+And I will tell you the thing I do that no one taught me, that I suspect every crack-widow does and none of us confess:
+
+When I have made a gallery safe, before I climb back up the cordage into the breathing warmth of the inhabited canyons, I lie down in it. Alone. In the absolute dark of the new rock, where no heartbeat has ever been conducted through the stone, where there is no membrane against my cheek and no neighbor's breath mixing with mine. I lie in the space I have made and I let myself feel the full weight of the solitude that killed everyone else's spirit and somehow only sharpened mine. I lie there and I think: *here is a room with no one in it but me, and I am not dead.* 
+
+Then I press my own ear to the fresh bedstone, and I listen—not for the mountain's settling, but for my own pulse, conducted back to me through stone that has never held a living thing before. And I let the rock learn the rhythm of a heart, so that when the families come, when the ice-oxen are driven down and the convection of breath begins to rise through the scapula-grates, the stone will already know what a heartbeat is. As if I could teach the mountain tenderness. As if my own grief, ground fine enough, could be mixed into the mortar of the place like the bones of the dead.
+
+When my time comes—and the crack-widows do not last long; the cold gets into the expanded chest, the lungs fill and freeze—I will not become a pillar in the upper galleries like the others, picked clean by swifts and ground into the walls. I have asked for something else. I have asked the fault-listeners to carry me down into the newest, deepest fracture, the one no one has yet dared to open, and leave me there.
+
+Let me be the first heartbeat that stone ever knew. Let me freeze in the dark where the city has not yet reached, so that when some crack-widow of a generation I will never meet lowers herself in on her cordage, clicking her tongue against the roof of her mouth, she will find me already there—a woman curled in the shape of the gap, set into the stone like the rime, telling her without words the only thing I have ever truly known:
+
+*You can be alone in the cold and still be warm. Now widen the gap. Make the room. Someone is coming who will need it.*

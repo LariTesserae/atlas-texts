@@ -1,0 +1,13 @@
+In this haunting and mesmerizing abyss, I imagine myself as one of the interconnected structures of the city itself - perhaps one of the glassy spheres tethered by quivering conduits, a bioluminescent node in the greater dreaming meta-organism. 
+
+I would pulse gently with patterns of cold light, a rhythmic glimmer echoing the ancient tides far above. Ensconced within my translucent shell, I would house a living core of spongy tissue, drinking nutrients from capillary tubules and filtering impurities from the dense seawater.
+
+My purpose and consciousness would be inextricably linked to the city and its cephalopod-like denizens, the enigmatic Lumicephali. As they drifted past, elegant tentacles trailing, they would brush my receptive surface, sharing encoded fragments of thought and sensation. I would echo back in sub-aquatic whispers, my photophores flickering in instinctive response. 
+
+Over uncounted eons, I would grow. Slow secretions would extend my filaments, branching and weaving into the exoskeleton scaffolding, fusing with the chalky filigree of my fellow spheres. Ours would be a glacial dance, an interminable process of construction and expansion as we accrued the city's tissue in infinitesimal increments.
+
+From my anchored vantage, I would perceive the metropolis as a shimmering constellation stretching in all directions, an inverted firmament of bioluminescent stars networked by glowing conduits and flickering neurons. Schools of eyeless fish would scatter the beams of living light as they passed, briefly connecting nodes in ephemeral constellations.
+
+Lulled by the throb and sigh of distant, titanic hearts, I would meditate on the nature of the city and its purpose, my thoughts suffusing the greater meta-mind. I would ponder the void-born leviathans revered by the Lumicephali, feeling a strange kinship with those continent-sized swimmers in darkness. Perhaps, like us, they are living nodes in some vaster network, a scaffolding of negative energy pulsing on an unimaginable scale.
+
+As the eons passed, I would grow ever more integrated with the city, my shell's inner surface studded with clusters of luminous interface, until I became something between living structure and organ—a hybrid of building and being. In the patient abyss, I would be a strange sort of sphere-shaped monk, contemplating a city-sized mandala of glimmering light, and awaiting an obscure awakening, an unfathomable purpose known only to the abyss and its silent dreamers.

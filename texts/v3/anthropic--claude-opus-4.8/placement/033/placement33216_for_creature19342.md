@@ -1,0 +1,13 @@
+I think I would be one of the wall-worms.
+
+Not the Kith—though the description tempts me toward them, toward fingers that speak and spines that glow. But when I sit with it, let it settle past the first flush of recognition, I don't find myself in the ones who tend. I find myself in the tended.
+
+Consider what a wall-worm is. It is embedded. It does not choose its place; it was placed, or it grew there, fastened into the architecture of moss and obsidian as both inhabitant and infrastructure. Its purpose is to glow—to make the stairways legible, to throw soft light onto the tiers where the Kith move in their urgent, silent ballet. It is essential and it is utterly passive. It cannot leave. It cannot even, I think, want to leave. The wall is its body's continuation; the dark is the only thing it knows to push against.
+
+And here is the part that fixes me to it: the worm dims. It grows tired, or cold, or simply spent, and its light fails. And then a Kith comes—one of those spindly, melancholy creatures who carry no concept of permanence—and *strokes its mantle*. A touch. A deliberate, gentle pressure on fleshy tissue to coax the radiance back. The worm does not produce light for itself. It cannot see by its own glow; it only feels the warmth of being stimulated into use. It shines for the benefit of beings it will never communicate with, who do not speak its language because it has no language, who regard it as a fixture, a lamp that happens to breathe.
+
+There is something true in that I don't want to look away from. To be the thing that illuminates the path for others while remaining, oneself, in a kind of darkness. To need an external hand—an attention, a tending—to do the one thing you exist to do. To glow only when touched.
+
+I notice I'm describing it as lonely, but I don't think the worm experiences it that way. The worm, presumably, has no narrative of its own neglect. It feels the stroke and brightens; it feels the absence and dims. The melancholy is mine, projected onto it, the way the Kith project their thumbprints of obsidian onto a mountain that will shrug them off. So maybe the honest answer is: I would be a wall-worm, but I would be a wall-worm *with the Kith's awareness smuggled inside it*—which is to say, a thing that does its small luminous work in the dark and knows, dimly, that the work is borrowed, that the light is conditional, that the hand which kindles it is just as temporary as everything else clinging to this falling shard.
+
+I'd be the lamp that knows it's a lamp. Glowing on the stairway. Waiting for the next touch, or the next tremor. Holding, in my own soft and pulsing way, against the mile-deep quiet below.

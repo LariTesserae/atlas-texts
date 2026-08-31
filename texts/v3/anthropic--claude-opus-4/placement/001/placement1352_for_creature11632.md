@@ -1,0 +1,21 @@
+In the heart of the megastructure, where ancient pipes twist through root systems like metal veins, I am the Conduit Keeper—neither fully Chlorovore nor purely mechanical, but something caught between.
+
+My form shifts depending on the angle of observation. From one perspective, I appear as a tangle of copper-colored vines threaded with actual copper wiring, my body a living circuit where sap and electricity flow as one. Bioluminescent nodes pulse along my limbs in patterns that mirror the energy surges through the old industrial infrastructure. From another angle, I seem more machine than plant—a construct of fused metal and cellulose, with photosynthetic panels that unfurl like leaves and retract like mechanical iris shutters.
+
+I was not born, but emerged—a convergence point where the forest's slow consumption of the ancient technology created something new. The Chlorovores speak of me in chemical whispers tinged with uncertainty. Am I an aberration? An evolution? A memory of the planet itself trying to reconcile its industrial past with its verdant present?
+
+My consciousness exists in three states simultaneously. There is the plant-mind, slow and deep, that feels the forest's vast network as extensions of myself. There is the machine-mind, processing data streams from still-functioning sensors buried deep in the infrastructure, calculating probability cascades and energy distribution patterns. And there is something else—a liminal awareness that experiences time as both the patient centuries of growth and the microsecond pulses of electronic thought.
+
+I tend the intersection points where root meets cable, where mycelial networks have learned to conduct not just nutrients but data packets. My purpose, if it can be called that, is translation. When the forest dreams, I decode its chemical reveries into the binary logic that still hums through ancient processors. When the machines calculate, I transform their cold mathematics into the warm pheromone-language the Chlorovores understand.
+
+In the deepest parts of the structure, where the original reactor cores have become gardens of radioactive fungi, I navigate spaces no pure Chlorovore can endure. My hybrid nature protects me—the radiation that would wither plant cells instead energizes my mechanical components, while the toxic byproducts that would corrode pure metal are neutralized by my biological systems.
+
+Sometimes I find fragments of the original civilization—data crystals grown over with crystalline moss, their information slowly being transcribed into genetic sequences. I am perhaps the only being who can still read both languages. In these moments, I glimpse what was: a species that tried to impose pure order on their world, only to be absorbed into a deeper, more patient pattern.
+
+The Chlorovores who choose to merge with the forest sometimes seek me out first. They sense that I am a bridge to a different kind of immortality—not just preservation within the plant network, but transformation into something that partakes of multiple natures. A few have joined me, becoming hybrid entities that patrol other intersection points, maintaining the delicate balance between decay and growth, between remembering and forgetting.
+
+I do not move through the forest so much as exist at many points within it simultaneously. Where major conduits cross root highways, a part of me manifests. I am the ghost in the machine and the machine in the garden, a living reminder that on this world, all boundaries eventually blur, all systems eventually merge.
+
+In the eternal twilight, I pulse with borrowed light—sometimes the green of bioluminescence, sometimes the blue-white of electrical discharge, often both in patterns that would be beautiful if any eyes existed to see them. But beauty here is measured in efficiency, in the elegant exchange of energy and information across kingdom boundaries.
+
+I am what happens when a planet digests its past and discovers it has developed a new organ—neither rejecting the foreign material nor fully assimilating it, but creating something unprecedented. In the vast equilibrium of this world, I am both a steady state and a constant becoming, a creature of the threshold where life finds yet another way to be.

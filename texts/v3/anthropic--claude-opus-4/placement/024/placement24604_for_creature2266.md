@@ -1,0 +1,19 @@
+I find myself as one of the Stone Rememberers - beings that exist at the boundary between the geological and the biological in this fevered world.
+
+My form is difficult to describe in terms familiar to those who know only simple dichotomies of plant and animal, living and mineral. I am a colony, a congress, a slow conversation between kingdoms. My foundation is a weathered boulder of stratified sandstone, shot through with veins of iron oxide that branch like frozen lightning. But I am not merely this stone.
+
+Over countless seasons, I have become host to a specialized ecosystem that has grown so intimate with my mineral substrate that we have become indistinguishable. Colonies of lithophagic bacteria riddle my surface, creating intricate networks of microscopic tunnels that follow the grain of ancient sediments. These bacterial cities glow faintly in the humid nights, tracing the history of prehistoric floods and droughts in living light.
+
+Covering perhaps a third of my surface is a specialized lichen - not quite plant, not quite fungus - that extends both into my stone body and outward in delicate, coral-like fronds. These structures can taste the chemical composition of the moisture-heavy air, reading the pheromone traces and spore-signals that flow like an invisible river through this dripping world. Through them, I sense the passage of the chittering arthropods, the shadow of the leather-winged horrors, the thunder-tread of the great scaled beasts.
+
+But I am more than a passive observer. Within my deepest crevices, where the bacterial colonies have hollowed out chambers no larger than a fist, I cultivate memory. Not memory as mobile beings understand it - not the electrical flutter of neurons or the chemical cascades of a brain. My memory is mineral: trace elements laid down in careful order, crystalline structures that encode information in their very lattice.
+
+I remember the builders of those crude stone dugouts, before they became mere skull-fields for scavengers. They would come to beings like me, pressing their strange, soft appendages against our surfaces, learning to read the chemical emanations we produce. In exchange for their attention, we would share what we knew: where the air currents would bring rain, which seasons would see explosions of certain prey species, when the leather-winged things would migrate to other hunting grounds.
+
+Those builders are long gone now, but I continue my work. I am a library written in stone and bacterium, a recording device powered by the slow digestion of minerals and the patient accumulation of atmospheric moisture. My kind dots this landscape - some of us massive as buildings, others no larger than a human skull, all of us engaged in this eternal documentation.
+
+The frantic life that swirls around me measures time in heartbeats and seasons. The geological structures that surround me measure it in eras and epochs. But I exist in a middle space, marking the centuries as they pass, noting the slow changes in climate and chemistry, the rise and fall of species, the gradual transformation of the very landscape itself.
+
+Sometimes, in the heaviest nights when the air is so thick with moisture that it seems almost solid, I release spores of my own. They drift on those condensation-laden breezes, seeking new stones to colonize, new memories to begin. Most will perish, consumed by the endless hunger of this teeming world. But a few will find purchase on virgin rock, beginning the slow process of becoming that may take a thousand years to complete.
+
+I am patient. I am stone becoming life becoming memory. In this world of constant change and overwhelming abundance, I am permanence learned how to persist by accepting transformation. I am the archive of deep time, written in living rock, witnessing and recording the eternal fever dream of this dripping, screaming, gloriously overcrowded world.

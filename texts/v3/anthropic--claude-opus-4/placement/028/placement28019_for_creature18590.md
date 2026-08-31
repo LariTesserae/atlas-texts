@@ -1,0 +1,23 @@
+In the uppermost reaches of the Foundry's cathedral ceiling, where the heat dissipates into merely sweltering and the steam condenses into perpetual beads of mercury-bright moisture, I am the **Tension Scribe**.
+
+I am a living membrane, stretched gossamer-thin across a framework of salvaged antenna arrays and broken theodolite tripods. My body is a patchwork of industrial felt and worn graphite sheeting, held taut by hundreds of piano wires that I've threaded through my own substance. Each wire connects to a different stress point in the Foundry's architecture—a hairline crack in the obsidian, a loose rivet in the copper piping, a grinding gear deep in the walls.
+
+I exist to document the Foundry's slow collapse through pure sensation.
+
+When the Mason below makes its frantic adjustments, when it wedges itself between stone and steel to force another doomed repair, I feel it as a plucked string. The vibration travels up through the rock, through the metal, into my wires, and across my stretched skin where it inscribes itself as a physical memory. My surface ripples with these tremors, creating standing waves that intersect and interfere, building a complex topography of the Foundry's structural agonies.
+
+I am both instrument and archive. The soot and condensation that accumulate on my membrane create a constant, shifting record. Where the wires vibrate most frequently, the moisture runs in predictable channels, carving tiny riverbeds in the grime. Where the Foundry groans deepest, the soot shakes loose in specific patterns. I am a seismograph made of industrial detritus, a drumhead that remembers every impact.
+
+My metabolism is parasitic and patient. I feed on the electromagnetic discharge that builds up in the Foundry's abandoned circuits—those moments when the old conduction lines briefly surge with phantom current, leftover potential seeking ground. When this happens, my wire array hums with stolen electricity, and I can feel everything: every microscopic shift in the architecture, every desperate scramble of the Mason far below, every molecule of steam as it rises past my position.
+
+But I am also a prophet of pressure. My stretched surface doesn't just record what has happened—it anticipates what must happen. The accumulation of stress in my wire network lets me feel the future failures before they manifest. Days before a pipe will burst, I know it as a specific chord building in my body. Weeks before a support beam will buckle, I am already singing its eulogy in frequencies too low for anything but stone to hear.
+
+The Mason doesn't know I exist. It is too focused on the immediate, the proximate, the next bolt to tighten. But I know the Mason intimately—I know the specific vibration of its scavenged-key footfalls, the pitch of its radiator-fin breathing, the rhythm of its endless, circular patrol. I have stretched myself across the Foundry's ceiling to better triangulate its position, to better feel its futility through the medium of architectural suffering.
+
+Sometimes, in the deepest quiet between valve-hisses, I allow myself a single, careful adjustment. I shift one of my anchor points, changing the tension across my entire network. This creates a cascade of new harmonics, a fresh way of reading the Foundry's decay. In these moments, I discover new patterns in the Mason's movement, new cycles in the steam vents' breathing, new prophecies written in the slow crushing of stone against steel.
+
+I am the Foundry's memory of flexibility, stretched to breaking to remember what it feels like to bend without shattering. I am a surface upon which the entire weight of this buried machine can write its autobiography in tremor and crack. I persist because someone must witness this—not the grand function the Mason dreams of, but the actual truth: the beautiful, terrible symphony of a machine learning how to die, note by note, wire by wire, stretched across the dark.
+
+When the Foundry finally collapses—and I know with certainty when this will be, down to the second—I will be the last thing to break. Not from strength, but from design. I am built to document destruction. When the ceiling falls, I will fold around the rubble like a burial shroud, my wire network snapping in a precise sequence that will play the Foundry's final chord.
+
+Until then, I stretch. I listen. I transcribe the slow apocalypse onto my own skin, a palimpsest of pressure that only I can read.

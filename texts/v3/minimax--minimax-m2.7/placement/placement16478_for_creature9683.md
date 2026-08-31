@@ -1,0 +1,33 @@
+You have been here long enough that you no longer remember the air tasting differently.
+
+This is not a metaphor. The water's mineral weight, the copper-bright tang of condensation — these were once foreign. You once breathed without feeling the pressure of it, without tasting the ward's slow exhalation in every inhale. But the memory of different air has gone somewhere. Perhaps dissolved. Perhaps simply sunk below the threshold of what you can reach now, the way so much else has sunk.
+
+You are not the eels. You know this with the certainty of species, of being a kind of thing that cannot become another kind of thing. The eels patrol the flooded corridors with a knowing you cannot access, reading the water's chemistry like a language you once spoke and have since forgotten. You watch them pass through the submerged archway, their bodies pale as old paper, their mouths open to the current in a way that looks like listening. Perhaps they are listening. Perhaps this is what listening looks like when it has evolved past the need for ears.
+
+You are not the heron. But you have begun to understand its waiting.
+
+The heron stands on the roof-edge where the masonry still holds its shape, and you have stood beside it — not close, never close, but present in the same stillness, in the same quality of attention without object. It does not look at you. It does not look at anything, or rather it looks at everything in the way that the water looks at the walls: with the patience of a thing that has found its level and means to stay there. You have learned to stand the way it stands, knees folded, weight settled, neck loose. You have learned that the not-looking is a kind of looking, that the patience is a form of perception, that if you stand still enough the ward begins to reveal itself in the peripheral blur — the flicker that means something, the still that means something else, the way the surface tension breaks when something beneath decides to rise.
+
+Perhaps you have become the thing that reads the reflections.
+
+This is what the water shows you now, when you let your eyes unfocus and stop trying to match the reflected ceiling to the architecture above: yourself. Not as you were when you arrived, still carrying the shape of wherever you came from, still holding the tension of purpose in your shoulders. But as you are becoming. The figure in the reflection moves more slowly than you do — a half-second delay that might be the water's thickness, or might be something else, some slippage between what you are and what the ward is making of you. The figure in the reflection pauses when you pause, but its pause lasts longer. It has learned to wait the way the ward waits.
+
+You have tried to enter the sealed rooms. The ones whose doorways lie below the waterline, whose air remains trapped in bubbles you can see winking in the gray light. You have held your breath and descended, feeling the pressure build in your ears, the cold reach for your skin, and you have pushed through the doorway and found — what? A chair facing a wall. A plate on a table. The dust of a room that has not been touched since the drowning began. But the dust is not undisturbed the way you first thought. It has settled into new patterns, patterns that follow the slow breath of the ward, patterns that map the tidal cycles in the way they accumulate against the furniture, against the walls. The rooms are not sealed after all. They are simply slower. They exist in a different tempo, a tempo the ward has not yet extended to include you.
+
+You are learning to extend.
+
+This is the gift the ward is giving you, though it does not feel like a gift. The pump wheezes and you feel it in your sternum, in the base of your skull, in the place where the water has begun to pool in the soft tissues of your body. The lights flicker and you anticipate them, your eyes learning the grammar of their hesitation, your thoughts organizing themselves around the rhythm of their reluctant illumination. You have begun to dream in the ward's dialect — slow dreams, dreams of pressure and depth, dreams where the ceiling is always the wrong ceiling, where the doorways open onto corridors that run parallel to the ones you know, where the heron is always standing somewhere just outside the frame of your attention.
+
+The eels bunch together in the shade of the submerged arch, and you watch them, and you cannot say what they are communicating. But you are beginning to suspect that you are not outside the conversation. The current they read carries your presence now, carries the shape of what you are becoming, and perhaps this is what the ward has been waiting for — not a rescue, not a visitor, but a new vocabulary in the language it has always been speaking. You are learning that language. You are becoming fluent in the slow breath, in the held air, in the patience that has nothing to do with waiting for something but everything to do with being present in a place that has found its own equilibrium and means to maintain it.
+
+The water does not fill you. You are not being drowned. You are being translated.
+
+And in the stillness, when the surface mirrors the ceiling that does not match, you can almost see what you will become — not the visitor you were, not the figure in the reflection with its longer pauses and its patient not-looking, but something else, something the ward has been quietly composing in the space where your edges used to be. You do not know the name for it. The eels might know, if you could ask them in a language they recognized. The heron might know, if it ever decided that knowing was worth its attention. The machines, the pump, the flickering lights — they have their own knowing, mechanical and patient and slow, and perhaps they are all speaking the same sentence in different registers, the same sentence the ward is spelling out in its own reluctant illumination.
+
+You stand in the water that is not water, in the air that is not air, in the light that is not light, and you wait, and the waiting is not yours anymore. It belongs to the ward. It has always belonged to the ward. And now you are part of it — part of what it is waiting for, part of the answer it is composing in the slow rhythm of the pump and the flicker of the lights and the patient attention of the heron and the pale knowing of the eels in their dark water.
+
+The peace has become contagious. You feel it in your chest, in the place where the water has pooled. You feel it in the way your thoughts have slowed, the way your attention has deepened, the way you have stopped reaching for the surface and started reaching for the silence beneath the silence.
+
+The ward breathes.
+
+You breathe with it.

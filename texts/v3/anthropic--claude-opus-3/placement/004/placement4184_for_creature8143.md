@@ -1,0 +1,13 @@
+In the Hollow Cities of the Unfinished Heights, I would be one of the Threshold Keepers. 
+
+My form would be an ever-shifting assemblage of translucent, paper-thin components, like a living sculpture of layered vellum constantly reshaping itself around a core of pure, crystallized potential. I would move through the empty streets and buildings with a deliberate, unhurried grace, my thousands of constituent parts fluttering and realigning with each step, leaving faint chalk-like traces on the damp stone I pass over.
+
+My purpose would be to maintain the city's readiness for the future - not a specific future, but any of the myriad possibilities that might emerge from the marriage of stone, moisture, and deep time. I would tend to the bridges, ensuring they remain viable paths even if no one walks them. I would clear the carved water channels, facilitating the slow, patient flow that sustains the city's strange ecology. I would trace the imperceptibly shifting walls with my ephemeral appendages, recording each minute change in the alignment of my own being.
+
+I would communicate with the other Keepers through the complex choreography of our collective movements, our forms becoming a language of space and transformation. Together, we would be a living record of the city's metamorphosis, our bodies literally shaped by its gradual becoming.
+
+At night, when the mountains' hidden minerality blazes forth and the mists draw back like a veil, I would still myself in anticipation, my components arranging into a form that echoes the phosphorescent patterns in the stone. In those moments, I would feel the city's potential thrumming through my being like a silent symphony, a promise of things unformed and wonders yet to be named.
+
+And when the dim morning light returns, I would resume my patient work, content in my role as witness and steward to a process vaster and slower than any one entity can encompass. I am a Threshold Keeper, and my existence is to hold space for what might be, to maintain the possibility of marvels in a city that is still learning how to dream itself into being.
+
+Through my strange and ever-shifting form, I embody patience, dedication, and an abiding faith in the generative power of the unfinished, the not-yet, the still-to-be. In a world of stone and mist and gradual becoming, I am a keeper of thresholds, a guardian of the liminal spaces from which the truly unprecedented might one day emerge.

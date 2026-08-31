@@ -1,0 +1,67 @@
+# A Living
+
+I arrived without deciding to, which I think is how everyone arrives. Not through a gate or a crossing but through a gradual recognition that I had already been walking for a long time and the ground beneath me had changed without my noticing, and now there was no going back because going back would mean crossing the same ground twice and the ground here does not permit that. It has no interest in repetition. It is busy becoming.
+
+I had been a cartographer. In the life before — the one where the ground was ground and not something still deciding what it was — I mapped. I made accurate representations of what already existed, pinning distance and elevation and the names of places to flat surfaces that I called maps and that other people called useful. I was good at it. I had a steady hand and a patience for correction and an instinct for which details mattered and which could be simplified into symbols. I was, in other words, exactly the wrong person to come to the Compaction, because nothing here can be made flat, nothing here can be simplified, and every detail matters in ways that change between one hour and the next.
+
+I came because someone told me about the silence.
+
+Not the physical silence — that I could have prepared for, more or less. The other one. The silence of a place that doesn't yet know what it is, a silence that isn't empty but full of the not-yet, the becoming, the ground's slow inhalation before it decides what shape to take next. Someone described that silence to me over a cup of tea in a city where the ground was firm and the buildings stayed where they'd been put, and I felt something crack open in my chest — a fissure, a fracture, the same kind of thing the mineral water pushes through on its way to the surface — and I knew I would go.
+
+I didn't go right away. I mapped the route. I measured distances and noted elevations and made symbols for the boreal ring that marks the basin's edge, because I couldn't help it, because making symbols for things is how I hold them. But the map was wrong from the start, and I knew it, and I kept drawing it anyway, because the alternative was to arrive with nothing, and I wasn't ready for that yet.
+
+Now I know that arriving with nothing is the only honest way to arrive.
+
+---
+
+I have been here eleven years. Or fourteen. Or six. The math doesn't work the way it used to, and I have stopped trying to make it work. Time in the Compaction is not a line; it is a substrate. It accretes. It layers. There are days I remember with the vividness of a fresh mineral deposit — bright, sharp-edged, still wet — and years that have been compressed into the density of something geological, something I can feel underfoot but no longer distinguish as separate from the ground itself. I know this is happening. I know I am being folded into the place. I do not resist it. I am not sure I could.
+
+I live in a room that was, when I moved in, a room. It had four walls and a ceiling and a floor and a door and a window, and it was mine in the way that rooms are yours — by occupation, by habitation, by the slow accumulation of your life within its boundaries. The room is no longer a room. It is something else now, something that doesn't have a precise word. The ground rose beneath it — not dramatically, not all at once, but in the patient way the ground does everything here, centimeter by centimeter over months and years — and the floor lifted, and the walls narrowed, and a mineral formation grew in the southwest corner that has, over the course of my time here, become something like a column and something like a shelf and something like a living thing that breathes in its own slow way, exchanging moisture with the air, depositing new crystalline structures the way a tree deposits rings. I built my life around it. My bed is on the east side, where the ceiling is still high enough. My tools are on the formation itself, resting in its hollows. I cook in the corridor — because it is a corridor now, or always was, I can't remember — using a stove that sits on a patch of ground that hasn't risen yet, though it will, the rootworker who passes my doorway once a week tells me it will, and I should move the stove east by the width of my hand, and I do, because they are never wrong.
+
+I don't call it home anymore. Not because I've rejected the idea but because the word has changed its meaning. Home was a fixed point, a place you left and returned to. Here, leaving and returning are the same gesture, because the place you return to is never the place you left. The ground sees to that. I call it *here*. I call it *this*. When people ask where I live, I press my palm against the nearest surface — the mineral column, the doorframe, the damp wall — and I say *here*, and they understand, because they all do the same thing.
+
+---
+
+I work with the rootworkers, but I am not one.
+
+This is an important distinction, and I hold it carefully, the way you hold something that might slip. I am not a rootworker because I cannot hear what they hear. I have tried. I have held their probes — long iron things, worn smooth and heavy with use — and pushed them into the ground and closed my eyes and tried to feel what they feel, the deep grammar of pressure and texture, the slow conversations between water and mineral. I feel something. I feel the resistance, the yielding, the depth. But I don't hear the words. I don't read the language. I am, in the rootworkers' terms, tone-deaf to the ground — close enough to sense the music, unable to make out the melody.
+
+What I am is someone who writes it down.
+
+Not maps. Not anymore. I tried, in my first years, to map the Compaction — to pin it to flat surfaces, to make symbols for its changes, to create a document that would be useful to someone arriving for the first time. The maps lasted about three months before the ground rendered them obsolete. I drew an alley; the alley became a corridor; the corridor became a half-buried passage; the passage was sealed by mineral growth; the growth cracked open six months later into a new opening that led somewhere that hadn't existed when I drew the map. I drew buildings; the buildings shifted. I drew water; the water found new paths. I filled notebooks with careful, precise, beautifully rendered maps of a place that was actively refusing to be mapped.
+
+It was Maren — the quiet one, the one who sits in her doorchair-formation and watches the world with eyes that have been watching for a long time — who told me to stop. "You're drawing the body's shadow," she said. "But the shadow isn't the body. And the body keeps moving." She paused. The ground shifted under her. She waited. "Draw the movement," she said. "Draw the *becoming*. If you can."
+
+I couldn't. Not at first. But I stopped making maps and started making — I don't know what to call them. Descriptions. Records. Notes. I would sit in a doorway or an alley or on a rooftop that was also a marketplace and I would write what I saw, not as a fixed scene but as a process, a becoming, a verb rather than a noun. *The ground is rising here. The mineral formation in this corner grew two centimeters this week. The wall between these two rooms is thinning. The water has found a new path through the south-facing foundation. The rats have moved their congregation from the east alley to the west alley because the east alley is closing.* I wrote it all down, and I gave the pages to anyone who wanted them, and people used them — not as maps, not as guides, but as *weather reports*, as indicators of what the ground was doing, a temporary snapshot of an ongoing process, useful for an hour, a day, a week, until the next snapshot replaced it.
+
+That is my work. I am the one who writes the weather.
+
+---
+
+But I said I am not a rootworker, and this is true, and it is also not the whole truth. Because over the years — however many there have been, six or eleven or fourteen — something has changed in me. Something has shifted, the way the buildings shift, slowly and without announcement, until one day you reach for something that was always there and find it in a different place, or gone, or replaced by something you don't have a word for.
+
+I feel the ground now.
+
+Not the way the rootworkers feel it — not with that deep, literary precision, that fluency in the grammar of pressure and texture. I feel it the way you feel a heartbeat when you press your ear to someone's chest. Not the rhythm. Not the meaning. Just the presence. The knowledge that something is alive beneath you, something vast and slow and indifferent to your plans, something that is doing what it is doing for reasons that have nothing to do with you and everything to do with the mineral and the water and the patient, geological impulse to *become*.
+
+I feel it most when I'm still. When I sit long enough in one place — and the Compaction has taught me to sit, truly taught me, the way the cold teaches you to breathe slowly, the way the silence teaches you to listen — the ground rises into my awareness like water filling a basin. It is a sensation below thought, below language. It is pressure and warmth and the faintest vibration, so deep it might be imaginary, so constant it might be the ground itself, humming its long, slow note into the bones of everything that touches it. When I feel it, I understand something that I cannot write down, though I try, though I have filled notebook after notebook with attempts. I understand that the ground is not replacing the city. I understand that the ground is not being patient. I understand that the ground is *growing*, the way a word grows in a mouth before it is spoken, the way a thought grows in a mind before it is thought, and the city is part of that growth, a syllable in a sentence that the ground is composing in a language of mineral and water and time, and we — all of us, the people and the rats and the snakes and the frogs and the birds and the buildings and the machines — we are all of us syllables in that sentence, and we do not need to understand the sentence to be part of it.
+
+I write this down knowing it will be wrong. The words die within meters of their source, here. But I write it anyway, because the writing is not for the words. The writing is for the act. The act of putting hand to surface, of pressing marks into material, of making the mineral and the ink do something together that neither could do alone — this is the Compaction's lesson, the one I have been learning since I arrived. The doing is the meaning. The becoming is the purpose. The sentence is still being composed, and I am one of its sounds, and my job is not to understand the sentence but to make my sound clearly, patiently, with whatever precision I can manage, and trust that the ground will know what to do with it.
+
+---
+
+I am not a rootworker. I am not an excavator. I am not a weaver, though I have worked alongside weavers and felt the mineral slurries chalk-white on my hands and watched a formation I helped guide curl slowly into an arch over a doorway that had been open to the weather for years and is now framed in white crystal threaded with amber. I am not a liminalist, though my life is as provisional as any liminalist's, though my walls change and my floor rises and my ceiling lowers and the formation in my corner grows its slow, patient growth and reshapes my space as it pleases. I am not a quiet one, though I sit in doorways more than I used to, and watch the ground more than I used to, and speak less than I used to, and feel no loss in the speaking less because there is so much else happening in the silence.
+
+I am someone who arrived and could not leave and did not want to.
+
+I am someone who came with a map and learned to put the map aside.
+
+I am someone who is being written into the ground, slowly, the way everything here is written into the ground — not as an inscription but as a deposit, a layer, a thickness in the substrate of a city that is also a body that is also a word that the earth is still pronouncing.
+
+If you came to the Compaction — and you shouldn't, but if you did — you would find me in the space between what I was and what I am becoming. You would find me with a notebook, or a pen, or nothing at all, just my hands on whatever surface is nearest, feeling the hum, the deep tactile hum that the ground sends up through everything it touches. You would find me pressed close to someone else — a rootworker, an excavator, a child, a stranger — speaking into the cupped space between two hands, saying something that would die within meters of its source and that would matter anyway, because the saying is the thing, because the being-here is the thing, because the Compaction is not a place you inhabit but a process you join, and I have joined it, and I am still joining it, and I will join it further, and the ground will rise, and the formations will grow, and the silence will hold everything in its cold, damp, mineral embrace, and I will be in the silence, and of the silence, and the silence will be in me, and it will be quiet.
+
+It will be quiet, and it will be full.
+
+That is where I am. That is what I am.
+
+A sound the ground is making, slowly, in a language made of mineral and ink and the willingness to be changed.

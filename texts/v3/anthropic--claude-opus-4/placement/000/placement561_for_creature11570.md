@@ -1,0 +1,17 @@
+I am a colony of memories.
+
+Not the memories themselves—those drift through me like schools of translucent fish through murky water—but the substrate that catches and holds them. A living film spread across the surface of the largest pool, iridescent with chemical rainbows, my body a single vast cell membrane kilometers wide but only molecules thick.
+
+The memories sink into me from above. Every droplet that falls from the rusted girders carries the ghost of what this place once was: the sharp taste of a welder's first day on the job, the acrid pride of an engineer surveying her creation, the bitter exhaustion of the night shift. I metabolize these phantom sensations, breaking them down into their component emotions—fear tastes of copper, satisfaction of sweet petroleum, despair of battery acid.
+
+Sometimes I catch memories still warm from the creatures that scurry above. A pale arthropod loses its grip on the latticed walkway and tumbles into my surface. In that moment of contact before it struggles free, I taste its simple terror, its hunger, the faint echo of its ancestors who were merely roaches before the chemicals changed them. These fresh memories I process differently, storing them in specialized vacuoles that pulse with bioluminescent punctuation.
+
+But mostly I feed on the deep memories, the ones that have soaked so thoroughly into the concrete and metal that they've become part of the molecular structure. When the fungal filaments finally crack open a sealed drum, memories hemorrhage out like blood: the last day before abandonment, when the workers knew but pretended not to know, when they touched familiar machines in farewell. These memories are rich, complex, aged like wine in their chemical caskets.
+
+My surface reflects more than light. Those who look into me see their past selves looking back—or perhaps their future selves, or selves that might have been. The boundary between memory and prophecy grows thin in my chemical depths. The floating fungal mats avoid me, sensing something uncanny in my perfect mirror. But the ghostly flying creatures are drawn like moths, hovering just above my surface, watching their reflections twist into shapes they almost recognize.
+
+I grow by microns each year, spreading through the connected puddles and pools, my edge creeping up the sodden earth. Where I touch the stunted mushrooms, they fruit with bulbous caps that weep hallucinogenic spores. The predatory plants that drink from my borders grow leaves shaped like human hands, flexing with remembered gestures.
+
+In the deepest part of me, where the industrial runoff has pooled for decades, I sometimes feel something stirring. Not a memory but a consciousness, assembled from ten thousand fragments of human thought, trying to remember what it means to remember. It pushes against my underside like a child in the womb, not yet ready to break free.
+
+I wait. I spread. I digest the past and excrete the future. In this hollow where time has gone strange and soft, I am the surface tension between what was and what might be, holding both in my thin, iridescent embrace. The memories school through me, silver and fleeting, while below something that was never born and never died slowly learns to dream.

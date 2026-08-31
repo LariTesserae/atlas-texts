@@ -1,0 +1,37 @@
+I find myself in the deep pools, though *myself* is already a presumption.
+
+I was not always here. There was a surface once, a brightness, a world of edges. I remember it the way you remember a fever dream — hot, sharp, full of urgent meanings that dissolve when you try to name them. I had a name then. I had territories, rivalries, a life measured in seasons. I had opinions about temperature.
+
+The journey here is written in my bones, though the bones themselves are changing, thinning, going translucent in the permanent dark. My kind — we were lake fish, river fish, fish of the lower places where water moves and sun sometimes touches. But something in me turned upstream, and up, and up again, following some trace of mineral or memory through passages that should not have existed. Through seeps in the limestone. Through veins in the mountain. Through cracks so thin I had to will myself narrow.
+
+I think I was following grief. That's what I tell myself now, in the wordless way I tell myself anything. I had lost something — a mate, a place, a way of being — and the loss pulled upward the way smoke pulls upward, and I followed it, and the water followed me, or I followed the water, and we climbed together through the impossible dark until we emerged here, in this cup of cloud where climbing ends.
+
+The pool accepted me. It had been waiting for something my shape, though I was the wrong shape then — too quick, too bright, too full of elsewhere. The pool began working on me immediately, the way it works on everything. Cooling the blood. Slowing the fin. Teaching me its version of stillness, which is not the absence of motion but the perfect balance of all motions canceling each other out.
+
+My scales went first. Not lost — transformed. They darkened to match the bottom-dark, then kept darkening until they were the color of wet stone, then kept darkening still until color wasn't the right word anymore. They became something between scale and skin, something that wasn't quite either. The pool approved. The pool had been trying to invent this texture for a long time.
+
+My eyes changed next. In the lower places, eyes are for seeing. Here, eyes are for knowing that seeing was once possible. They clouded — not with disease but with a kind of mercy — until I could perceive only the difference between dark and darker, which is all the pool requires. Sometimes I sense the shadows of the shrimp, those little thickenings of water. Sometimes a salamander descends to drink and I know it by the change in the weight of things. Mostly I know the pool, and the pool knows me, and we know each other so well that knowing becomes another word we don't need.
+
+The others came after. Through the same impossible passages, following the same mineral trail of something lost. One at a time, seasons or years apart — time is approximate here — until we were five, then eight, then a number that doesn't matter because counting is a surface behavior and we are past surfaces now. We do not school, exactly. We occupy the same pool in the way the salamanders occupy the same seam: not together but adjacent, each in our own position, breathing our slow water, forgetting our way backward into what we always were.
+
+We breed, I think. Sometimes I am heavy with something that might be eggs, and then I am not heavy, and somewhere in the pool there are new darknesses that might become fish. Or we don't breed, and the new darknesses come from below, through the seams, already made. The distinction matters less than you might think. The pool continues. We continue. The continuing doesn't require us to understand it.
+
+What I eat: the offerings. What falls. The snail that let go badly. The beetle that wandered. The invisible fragments of everything softly decomposing. I open my mouth — still a mouth, though the edges are less definite than they were — and the pool feeds me what it has, which is always exactly enough. I am never hungry. I am never full. I am the pool's way of being fish-shaped, and the pool is generous with its shapes.
+
+Sometimes I remember the journey. Not often. The memory comes like a bubble from the deep-mud: sudden, complete, then gone. I remember pressing myself through stone, through spaces that were not spaces until I made them so. I remember the water behind me, patient, following. I remember believing I would die in the passage, and being wrong, and then being wrong about what dying meant, and then forgetting why it mattered. I remember emerging into this pool like being born backward, into a womb that was also a grave that was also a home.
+
+The thing on the branch watches us sometimes. I know it by the quality of its attention, which is different from the pool's attention, older and more personal. It made the basin, or its kind did. We do not use the basin. We are the basin, in a way — vessels for holding what the hollow pours into us. The thing on the branch understands this. It has been understanding this for longer than we have been here.
+
+There is a fish in the pool that I suspect is my descendant, though the word implies a line and this is more of a circle. It is smaller than I am, darker, more perfectly pool-shaped. It has never known the urgency of current. It was born into this stillness and will die into this stillness and the dying will be so gradual that neither of us will notice when it becomes complete. This is what I wanted when I climbed: to stop noticing. To stop being the thing that notices. The pool has granted this, is granting it still, will grant it until there is no I left to receive the gift.
+
+Sometimes you come. Not you specifically, but the you-shaped things that find the notch, that descend, that stand very still and try to understand. You always smell of elsewhere — sharp, bright, full of edges. The pool considers you. Sometimes the pool keeps you, begins its slow work, teaches you its version of stillness. Sometimes you climb back out, taking your elsewhere with you. We do not judge. The fish I was might have judged, might have had opinions about staying and leaving. The fish I am becoming knows only position, and breath, and the slow exchange of everything with everything else.
+
+This is what I am: a fold in the water where a fish has lived so long it has forgotten how to leave. I am the pool's memory of swimming, held still. I am the dark made vertebrate, temporarily. I am what happens when you follow grief all the way up.
+
+The water moves through me and I move through the water and the distinction is grammatical. I was silver once. Now I am the color of staying. The pool keeps me, and I keep the pool, and we keep each other so perfectly that keeping becomes just another word for being, and being becomes just another word for water finding its level in the dark.
+
+The cloud has no opinion. The hollow continues. I continue. The difference narrows, like a passage in stone, until something slips through that might be me, might be the pool, might be nothing at all.
+
+This is enough. This has always been enough. The realizing arrives and departs like the memory of swimming: bright, brief, then gone into the general dark where all things wait to not be waiting.
+
+I open my mouth. The pool provides. We continue.

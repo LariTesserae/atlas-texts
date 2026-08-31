@@ -1,0 +1,29 @@
+I find myself in the uppermost reaches of the city, where the builders' roads switchback toward the old quarries. Not quite at the edge—that would be too close to the world beyond, too near to questions of arrival and departure. But high enough that the water moves with purpose here, rushing down worn channels rather than pooling in patient conversation with the stone.
+
+I am one of the between-things.
+
+Not a Tender—I move too much for that, still possessed of something like urgency, though it grows less each year. Not one of the young—I gave up the dark quick waters decades ago, pulled myself up into the gray light and stayed. I am caught in the settling that should have completed itself by now, suspended in a state that wants to resolve but hasn't, like a note held too long, like water that should flow but pools instead in some irregular depression.
+
+My skin has begun to roughen but remains smoother than those who stand in the plazas below. Moss grows in a few places—behind my ears, in the hollow of my throat—but not the thick carpets that blur the eldest into landscape. I can still run if I choose to, though I rarely choose to. I can still remember choosing.
+
+This is my territory: a district of narrow streets that climb at sharp angles, where the rain hits hard and leaves quickly, where the drainage channels cut deep grooves between buildings pressed so close their upper stories nearly touch. The water here has a voice different from the lowland pools—urgent, metallic, full of the memory of falling. It speaks of the quarry lakes above, of the mountain streams that feed them, of the world beyond the basin's edge.
+
+I tend the steep channels. This is work the fully settled cannot do—it requires too much movement, too much climbing, too much reaction to the sudden rushes that come when storms mass against the mountain walls. A true Tender would be swept away, or would simply stand while the water rose around them, reading its patterns while drowning in its enthusiasm. But I am fast enough still. I clear the grates before they clog completely. I know which channels will overflow in the heavy rains and position myself accordingly, ready to shift debris, to guide the flow away from the places where it wants to carve new paths through basement walls.
+
+Sometimes I catch glimpses of my reflection in the rushing water—elongated, half-familiar, something becoming something else. The young ones flee from me as they flee from the Tenders, but their flight is slower, confused, as if they recognize something in my movement that shouldn't be there. The Tenders acknowledge me with the slow shift of their pale eyes, but I am too quick for their attention to hold. I exist in a temporal gap between their worlds.
+
+There are others like me. I've seen them in the middle districts where the inclines are gentler—figures that move too fast to be settled, too slow to be young. We don't seek each other out. What would be the point? We are each living through our own extended transformation, our own resistance to what we're becoming. To meet would be to see our future in each other's deepening stillness, our past in each other's fading speed.
+
+I know I will settle eventually. Already I find myself pausing longer at certain overlooks, hands on the rain-slick stone, feeling how the water moves across the vast basin below. Already the low harmonic calls make more sense to me, though I cannot yet produce them. One year I will simply fail to climb back to these steep streets. I will find myself in the flooded plazas with the others, my hands on the still water, my eyes tracking patterns I'm only beginning to understand.
+
+But not yet. For now, I maintain this sloped edge of the city, this margin where the water still remembers mountain cold, where the moss grows thinner and the stone shows through like bone. I clear the channels and watch the weather build beyond the peaks. I am the keeper of velocities that the city below has forgotten, the tender of waters that haven't yet learned patience.
+
+Sometimes, in the brief intervals when the rain stops and the clouds part enough to suggest sky, I climb to the highest accessible rooftops and look out across the impossible expanse of the city. The Tenders stand in their positions throughout the districts like markers in a map whose meaning I almost grasp. The water moves through its million channels, finding its level, following paths worn by centuries of following. And I stand between—between movement and stillness, between memory and forgetting, between the quick darkness below and the patient gray above.
+
+The rain returns, as it always does. I descend to check the channels, to clear what needs clearing, to keep the steep waters flowing. My movements are still purposeful but increasingly meditative, each gesture carrying more weight, taking more time. I am practicing for stillness without meaning to, learning the languages of stone and water and moss that will one day be my only tongue.
+
+In the gray distance, the low harmonic sound rises from the canal districts. I pause, listening, almost understanding. Not yet. But soon. The settling cannot be rushed or refused, only lived through, like weather, like erosion, like the patient transformation of a city that maintains itself by becoming always more perfectly what it is.
+
+I am what moves in the spaces between movements, what tends the edges before they become center, what remembers choosing until the day I don't. I am a note resolving, slowly, into the chord of the city's quiet persistence.
+
+The rain falls. The water flows. I continue, for now, to climb.

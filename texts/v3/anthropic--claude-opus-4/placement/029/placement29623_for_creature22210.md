@@ -1,0 +1,29 @@
+In the depths of Sinking-on-the-Rise, where the steam pipes converge in a knot of copper arteries beneath the Renderers' Quarter, I tend the Listening Wells.
+
+I am a Resonance Shepherd—one of perhaps thirty in the entire basin. We are neither Current-Keepers nor common laborers, but something between: the nervous system of the city's industrial metabolism. My work takes place in the narrow vertical shafts that plunge from the lowest basement floors down to where the earth is still porridge-soft and singing.
+
+My body has adapted to this peculiar vocation. My arms are unnaturally long from years of reaching down the wells, the joints loose and fluid like a cave spider's. My fingernails have thickened into horn-like sensors that can detect the slightest tremor through the shaft walls. But it is my ribcage that marks me most distinctly—expanded and barrel-deep from decades of the specialized breathing my work requires. 
+
+When I descend into a well, I do not use ropes or ladders. I wedge myself between the wet walls, my spine pressed against one side, my feet against the other, and inch downward in the manner of a chimney sweep. The walls are lined with a special variety of copper-drinking moss that glows faintly when disturbed, so my passage leaves a temporary constellation of blue-green stars that fade as I descend into the electromagnetic darkness below.
+
+At the bottom of each well is a pool of heavy water—not ordinary groundwater, but a dense, mercury-like substance that seeps up from the planetary mantle. This water carries the deep songs of the earth: the harmonic frequencies that tell us where new stone will rise, where old stone will fracture, where pockets of volatile gas are forming that could shatter a factory foundation.
+
+My task is translation. I lower my head until my ears are submerged in the heavy water, and I listen. Then I must hold that sound-pattern in my body—not in memory, which is too fragile, but in my bones themselves. I breathe in a specific pattern that causes my expanded ribcage to resonate at exactly the frequency I've heard below. I become a living tuning fork.
+
+Still holding this resonance, I climb. The ascent is the most critical part. If I breathe wrong, if I let my concentration waver, the frequency dies and I must descend again. Sometimes I spend entire days traveling up and down the same well, trying to carry a particularly complex earth-song to the surface intact.
+
+At the top, the Current-Keepers wait with their brass ear-trumpets pressed to my chest. They transcribe the resonance into their copper-wire patterns, adjusting the flow of electricity to match the earth's intentions. Without us Resonance Shepherds, they would be trying to impose order on chaos. With us, they dance with the chaos instead.
+
+My dwelling reflects my profession. I have no permanent home, but rather a series of canvas hammocks strung at different levels throughout the well-shafts I tend. When the earth shifts and a well begins to narrow or tilt, I simply move to another. My possessions are few: a collection of small lead weights that I use to test the density of the heavy water, a coat made from the shed skin of Slicks that never needs oiling, and a set of breathing pipes carved from the bones of an ancient sea creature, which help me practice my resonance exercises.
+
+The other citizens regard us with a mixture of respect and unease. We smell perpetually of the deep earth—a scent like hot copper and crushed stone that no amount of washing can remove. Our eyes develop a peculiar quality from staring into the phosphorescent darkness; they seem to look through people rather than at them. Children are told we can hear their thoughts, though what we actually hear is the electromagnetic signature of their heartbeats resonating through the iron gratings.
+
+I know every voice in my district of wells. The young shaft beneath the Tallow-Rendering House sings in a clear, high tone like a glass flute—it will be a good foundation in ten years' time. The ancient well near the Moss-Croppers' Hall growls with deep bass notes that speak of tectonic plates grinding together far below; I've warned the Current-Keepers to redirect their cables away from that area.
+
+But there is one well that concerns me. It opened spontaneously last month, a perfect circular shaft that appeared overnight in the floor of an abandoned wire-wrapping workshop. When I descend this well, the heavy water at the bottom is perfectly silent. Not the silence of stability, but the held-breath silence of something waiting.
+
+Yesterday, for the first time, I heard something in that silence—a rhythm so slow it takes nearly an hour to complete a single cycle. It feels like a heartbeat, though what manner of heart could beat in the molten depths below, I dare not imagine. I carried that rhythm to the surface, my ribs aching with the effort of maintaining such a slow resonance.
+
+The Current-Keepers went pale when they heard it. They've redirected three major cable systems away from that district. But I must descend again tomorrow, and the next day, and the next. The city depends on our listening. We are the translators between the violent dreams of the young earth and the delicate industrial order built upon its skin.
+
+Sometimes, suspended in the darkness of a well-shaft with the heavy water singing in my ears, I wonder if I am still human or if I've become something else—a sensory organ of the city itself, a nerve ending in the vast, slow-thinking creature that Sinking-on-the-Rise has become. The distinction matters less with each passing year. The earth speaks, I listen, the city adapts. This is the only rhythm that matters in the basin where stone is born and silence is sacred.

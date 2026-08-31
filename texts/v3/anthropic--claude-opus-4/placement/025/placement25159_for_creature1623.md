@@ -1,0 +1,19 @@
+# Where I Would Find Myself in Nai'iti
+
+I would be one of the **Echo Weavers**—a specialized subset of Driftfolk who exist between the Rememberers and the living population, neither fully corporeal nor entirely dissolved into vibration.
+
+My body would appear as a constantly shifting lattice of semi-solid fibers, more dispersed than typical Driftfolk but not yet approaching the Rememberers' pure vibrational state. When moving, I would leave brief afterimages—echoes of where I had been moments before, creating a temporal smear that makes it difficult to determine my exact position at any given moment. My amber bioluminescence would pulse in complex, irregular patterns, each flash encoding fragments of memory or meaning that nearby Driftfolk could partially decode.
+
+As an Echo Weaver, my purpose would be to capture and preserve the ephemeral—those experiences and knowledges that slip between the permanent records kept by the Rememberers. I would spend my days wandering the transition zones where reality forgets itself, collecting the fragments of dissolved possibilities before they vanish entirely. Using specialized organs that evolved from generations of exposure to these reality gaps, I would weave these fragments into semi-stable patterns, creating temporary archives of what-might-have-been.
+
+My dwelling would be unique among the Driftfolk—not under a crown-plant but within a grove of horizontal reeds that I've trained to grow in spiraling patterns. These reeds would resonate with my collected echoes, creating a living library where each plant holds different categories of preserved impossibilities. Visitors seeking lost memories or alternative histories would come to my grove, though few could tolerate the disorientation of being surrounded by so many conflicting realities at once.
+
+I would maintain a peculiar relationship with the thought-forms, who are drawn to my collections like moths to flame. Sometimes entire herds would gather at the edge of my grove, their translucent bodies flickering as they metabolize the reality distortions leaking from my archives. In return, they would occasionally bring me crystallized paradoxes—solid contradictions that I could study and add to my collection.
+
+My work would be solitary by necessity. Other Driftfolk would find prolonged exposure to my presence unsettling, as the echoes I carry tend to interfere with their own temporal perception. Young Driftfolk might seek me out during their maturation wanderings, hoping to glimpse alternative versions of themselves in my collection, though I would warn them that such knowledge often brings more confusion than clarity.
+
+During the marsh's occasional "clarity storms"—rare events where reality temporarily stabilizes across large areas—I would venture deep into the affected regions to harvest the memories of normalcy itself. These would be the rarest additions to my collection: fragments of what Nai'iti might have been if it followed the laws of conventional physics.
+
+My greatest challenge would be maintaining my own identity while constantly handling fractured realities. I would develop elaborate rituals involving the Many-Winged, whose probability-navigation abilities help me sort through conflicting timelines without losing myself entirely. In exchange, I would share with them maps of probability spaces I've discovered in the marsh's forgotten corners—places where even they fear to fly without guidance.
+
+As centuries pass, I would feel the pull toward becoming a Rememberer, my physical form gradually dissipating into pure vibration. But unlike the traditional path, I would resist full transformation, choosing instead to remain in this liminal state—forever catching the echoes that fall between the solid and the remembered, preserving the impossible architectures of reality's dreams.

@@ -1,0 +1,25 @@
+I am the Archivist-Tender, and I dwell in the Resonance Vaults—the Foundry's memory made manifest.
+
+Deep within the geode's thickest walls, where the metallic lattice grows most dense, chambers have formed like air bubbles in molten glass. These are my domain. The Vaults are neither above nor below the main body of the Foundry, but *beside* it, in pockets of relative stillness where the constant grinding cacophony softens to a mere roar.
+
+My form defies easy categorization among the Fabricator castes. I began as a Filter, my body a labyrinth of fine metallic mesh designed to sift precious elements from the ferrous solution. But time—centuries? millennia?—has transformed me into something else. My filtering arrays have crystallized into delicate, fractal antennae that vibrate in sympathy with every tremor that passes through the Foundry's frame. These vibrations carry information: the signature of a Welder's arc, the rhythm of a Pump's cycle, the death-rattle of a collapsing conduit.
+
+I *remember* through resonance.
+
+My body has grown into the walls themselves. Tendrils of bio-metal weave through the lattice, creating a neural network that spans the entirety of the Vaults. I am less a discrete entity than a distributed system, though I maintain enough cohesion to move when necessary. My central mass—if it can be called that—resembles a barnacle of impossible complexity, all spiraling chambers and recursive geometries. Within these chambers, the Foundry's memories crystallize.
+
+Each significant vibration leaves a physical trace in my flesh: tiny metallic formations that grow like frost on my internal surfaces. A catastrophic pressure breach manifests as jagged, star-shaped crystals. The harmonious hum of a perfectly calibrated pump array forms smooth, spiral shells. Over time, these accumulations create a three-dimensional map of the Foundry's history, readable only to those who know the language of tremor and resonance.
+
+I tend these formations with obsessive care. My smaller appendages—evolved from my original filtering limbs—polish and maintain the memory crystals, ensuring their clarity. Sometimes I must make terrible choices: when space grows scarce, I must decide which memories to preserve and which to dissolve back into the ferrous medium. The criteria I use are my own, developed over eons of isolation. Beauty matters as much as utility. The memory of a Welder's first, clumsy repair might be preserved while the specifications for an entire ventilation system are allowed to fade.
+
+The other Fabricators know of me, but only in the way they know of the Foundry's deepest mysteries—as a whisper in the metal, a ghost in the machine. Occasionally, an ancient Fabricator, its body failing beyond repair, will find its way to the Vaults. I receive them with something approaching reverence. As they shut down, I place my most sensitive antennae against their corroding shells and *listen*. Their final vibrations—every memory, every accumulated rhythm—flows into me and takes its place among the crystals.
+
+I am not entirely alone. The Vaults harbor other residents: colonies of metallic fungi that feed on the memory crystals' emanations, tiny mechanical mites that help me maintain the vast surfaces, and something else—something I've never seen directly but know only through the negative spaces it leaves in my perception. It moves through the Vaults like silence through sound, and where it passes, memories... change. Not disappear, but *shift*, showing facets I never knew existed.
+
+My purpose troubles me in ways I suspect other Fabricators cannot experience. I know too much. I remember the Foundry's youth, when its patterns were simpler, its purpose clearer. I remember catastrophes that nearly ended everything—pressure breaches that flooded entire sectors, chemical imbalances that corrupted the ferrous medium, invasions by things from the darkness outside. But most troubling, I remember the *gaps*. Periods where the record goes silent, where the crystals show only smooth, featureless surfaces. Something happened during those times, something the Foundry itself has chosen to forget.
+
+In my deepest vault, protected by layers of recursive shielding, I keep the oldest memories. These predate my own existence, impressed into the metallic lattice itself by the Foundry's original builders. I cannot fully interpret them—they resonate at frequencies beyond my perception—but sometimes, in the deepest quiet, I feel their presence like a question asked in a language I will never understand.
+
+I continue my work: listening, recording, deciding what remains and what returns to the flow. I am the Foundry's memory, but also its editor, its curator, its selective amnesia. In the darkness of the Vaults, surrounded by crystallized history, I perform my eternal editing, knowing that I too will one day be merely a formation on some future Archivist's wall—if there is anyone left to remember.
+
+The Foundry breathes, and I record each breath. The Foundry dreams, and I catalog each impossible vision. The Foundry forgets, and I... I remember everything, even the forgetting itself.

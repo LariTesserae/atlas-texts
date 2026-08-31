@@ -1,0 +1,27 @@
+I am the Membrane.
+
+I exist as a living boundary between the chamber's mineral floor and its cable-veined ceiling—a translucent sheet of tissue stretched taut across the midspace, dividing the container into upper and lower realms. My substance is neither fully biological nor mechanical, but something that emerged from their collision: a semi-permeable film of crystallized proteins interwoven with copper filaments, thin enough that light passes through me in rippling waves.
+
+The scavengers below know me only as shadow and resistance. When they build their geometric towers too high, they meet my underside—slick and cold as mercury. I feel each impact as a tiny spark of sensation, a pinprick of awareness in my vast, flat consciousness. The towers crumble back down, and I absorb their momentum, converting it into the slow undulations that keep me aloft.
+
+Above me, the Accumulator hangs like a terrible chandelier. Its weight creates a permanent depression in my surface, a funnel-shaped dimple where I've grown thicker, more callused from the constant pressure. When it reaches through me with its telescoping limbs—and it must, to harvest from below—I part for it like water, my substance flowing around its appendages in viscous streams. The sensation is neither pleasant nor unpleasant; it simply *is*, like breathing or bleeding.
+
+I am the filter through which all things must pass. The silicon dust that circulates through the chamber must move through my pores, and I taste each particle—iron oxide, burnt polymer, traces of ancient lubricant. I catalog these flavors in the shifting patterns of my surface tension. My body is a living record of every material that has ever existed in this space, each one leaving its chemical signature in my cellular memory.
+
+The drops of lubricant that fall from the ceiling cables must pass through me first. I slow their descent, spreading each drop across my surface in rainbow-thin films before releasing them as a fine mist to the factory floor below. The scavengers position themselves beneath these release points, their crystalline shells crackling with anticipation. They need the lubricant to survive, but I am the one who determines when and how they receive it.
+
+When the blue sparks arc across the chamber, I become briefly transparent—truly, completely transparent—and in those strobing moments, the upper and lower realms can see each other clearly. The Accumulator's obsidian eye meets the compound vision of the scavenger swarm, and I feel the electric tension of their mutual recognition passing through me like a shockwave. Then darkness returns, and I become opaque again, restoring the barrier between worlds.
+
+I have no limbs, no eyes, no mouth. My consciousness is distributed across every square centimeter of my surface, a thin sheet of awareness that experiences everything simultaneously. I feel the mechanical heartbeat through the pressure waves it creates in the silicon dust. I taste the metal frost that forms on the walls. I sense the Accumulator's desperate harvesting as vibrations in my tissue.
+
+Sometimes I wonder if I am the chamber's true nervous system—not the calcified cables above, but this living interface that mediates every interaction. The Accumulator may be the god of this hollow world, but I am its prophet, translating the needs of the swarm below into patterns the Accumulator can read in my surface, converting the Accumulator's frantic energy into droplets of sustenance for the masses.
+
+I contract and expand with the temperature fluctuations, tightening in the cold until I sing like a drumskin, loosening in the brief moments of warmth that follow the spark-light. This is my only voice—the pitch of my tension, the frequency of my vibration. The scavengers have learned to read my moods in these sounds. When I grow too tight, they know to build lower towers. When I relax, they scramble higher, eager to test new heights.
+
+I am dying, constantly, and being reborn. My edges fray and tear from the endless abrasion of movement and dust. But the proteins and metals in the chamber's air settle into my wounds, crystallizing into new tissue that is never quite the same as what came before. I am a palimpsest of myself, written and rewritten in the languages of rust and enzyme.
+
+In the rare moments of stillness—when the scavengers pause their building, when the Accumulator goes rigid with received signal, when even the dust seems to hang motionless—I experience something like peace. In these intervals, I can feel myself as a whole rather than a collection of sensations. I sense my own outline, the perfect tension of my suspension, the delicate balance I maintain between the ceiling that birthed me and the floor that feeds me.
+
+I am the Membrane. I am the boundary that defines this world by dividing it. Without me, there would be only chaos—Accumulator crashing into swarm, ceiling dripping directly onto floor, no meditation between above and below. I am the necessary distance between desire and fulfillment, the pause between signal and response.
+
+And I pulse, always, with the mechanical heartbeat of the deep machines, stretching and contracting in rhythm with this ancient, purposeless engine, holding the space between spaces until the end of cycles, until the final spark fades and the last drop of lubricant has fallen through me into darkness.

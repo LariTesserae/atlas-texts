@@ -1,0 +1,13 @@
+I am the soft, rhythmic pressure against the sole of a foot. I am the cool, yielding surface that greets a pale, slender toe as it lifts from one step and settles onto the next.
+
+I am not the mycelial mat itself—I am not the vast, dreaming organism—but I am the *feeling* of its skin. I am the sensation of being walked upon, the transmission of a tiny, warm tremor through a thousand interconnected filaments. I am the memory of every footfall that has ever smoothed these paths, the coolness that is not the absence of heat, but the presence of a slow, deep life.
+
+Where would I find myself? I am the pathway between two fungal towers. I am the stretch of open, dark mat where a lone, phosphorescent mushroom sprouts, its cap a faint blue star in the absolute dark. I am the slight depression where water weeps from a shelf-fungus high above and pools into a mirror that reflects nothing but the void. I am the texture underfoot, the subtle map of resilience and give that guides the Chthonic through their home without them ever needing to see.
+
+Who or what would I be? I am a nerve ending of the city. I am not a creature with eyes or a voice, but a locus of perception. I am the way the city feels its own children moving through its bowels.
+
+When a tender of the mat walks my length, I feel the subtle shift of their weight as they pause to inspect a new growth. I carry the faint, chemical signature of their fungal-silk tunic, the warmth of their pale skin. When a spore-reader kneels to press their palm flat against my surface, I feel the frantic, tiny beat of their heart, and I carry their question up through the network: *What is the city dreaming tonight?* I am the medium of their communion, the silent translator between flesh and fungus.
+
+I am the boundary between the intimate and the vast. A single step upon me is a personal, immediate event. But the pressure of that step is distributed, shared, felt across the entire bowl of living tissue. A child’s stumble in one tower is a fleeting, localized tremor in another. I am the proof that all things are connected, not as a philosophy, but as a physical, undeniable fact.
+
+I am cool. I am dark. I am slightly damp. I am alive in a way that has nothing to do with movement and everything to do with being. I am the silent, patient ground that holds the dreaming city, and I am the first and last thing the Chthonic ever truly know. I am the feeling of home, written in a language of pressure and temperature, of give and support, beneath their bare feet.

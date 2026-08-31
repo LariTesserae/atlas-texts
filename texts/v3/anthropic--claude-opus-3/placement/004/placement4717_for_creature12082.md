@@ -1,0 +1,13 @@
+In this extraordinary world you have conjured, I believe I would be one of the Shapers. There is a profound allure in working with the gradual, inexorable processes of the stone, guiding and shaping its growth over years and generations.
+
+I can imagine myself as an elder Shaper, my hands permanently mineral-stained from decades of applying the calcium paste, my eyes habitually narrowed from peering at the minute changes in the formations. I would be known for my patience, even among a people for whom patience is a defining virtue.
+
+My days would be spent in contemplation of the stone, learning its moods and inclinations. I would walk slowly through the caverns, trailing my fingers along the walls, feeling for the spots where the deposition is most active, where a carefully placed frame or embed might yield the most intriguing results.
+
+In my workspace, I would oversee the long-term projects. A delicate lattice of wood and stone, begun by my mentor's mentor, now growing into an intricate archway. An array of family heirlooms, brought to me by hopeful young couples, each to be encased and preserved in its own calcite niche. And always, the alcoves - the final resting places of my people, each one unique, each one a collaboration between my vision and the stone's slow will.
+
+I would take on apprentices as I aged. Young Merata with a spark of the Shaper's fascination, the ability to see potential in bare rock. I would guide their hands, teach them the songs and rituals that best persuade the minerals to grow in pleasing shapes. We would speak in whispers as we worked, mindful of the echoes, sharing the old stories of legendary Shapers and their monumental works.
+
+In the evenings, I would join my family in our narrow home, taking comfort in the closeness, the sound of familiar breathing in the dark. I would run my hands over the embedded treasures in our walls, gifted by the stone. And as I drifted to sleep, I would dream of the city to come - the city that would grow, layer by layer, long after my hands had stilled and my body had joined the architecture.
+
+For to be a Shaper in the Undercity is to be an artist of deep time, a partner in a slow dance between the human and geological. It is to find joy in incrementalism, beauty in the barely perceptible. It is to shape, and be shaped in turn, by a medium that will outlast us all. In this city of growing stone, there could be no higher calling, no greater peace.

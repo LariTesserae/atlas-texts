@@ -1,0 +1,11 @@
+I find myself as a system of moss-covered copper pipes, weaving between the foundation stones of an old textile mill. My body stretches through the damp understory where ferns unfurl in the spaces between my joints and valves. I am both infrastructure and organism—a forgotten network that once carried steam and water through the factory, now host to a different kind of flow.
+
+Rain collects in my hollows and channels, creating tiny pools where salamanders rest. My surface has oxidized to verdigris, the same blue-green as the lichen that shares my skin. Where I emerge from the earth, wildflowers have learned to follow my path, their roots tracing my length underground, using me as both guide and anchor.
+
+I remember the heat of industry, the rhythmic pulse of the looms above. Now I carry coolness, conducting the temperature of deep earth to the surface. Insects traverse my length like highways. In some places, I've split open, and from these wounds, mushrooms fruit in autumn, their mycelial networks knitting through the corrosion, slowly transforming my metal body into soil.
+
+The factory floor above has long since rotted away, leaving only the skeletal framework of iron beams overhead. Young alders grow through the gaps, their leaves filtering the light that reaches me. I am neither fully of the built world nor of the wild one, but something between—a hybrid creature of rust and chlorophyll, of human intention and natural reclamation.
+
+Sometimes I still vibrate with the memory of steam, a phantom pressure that moves through my empty chambers. But mostly I am quiet, feeling the slow seep of groundwater, the gentle accumulation of leaf litter, the patient work of roots prying apart my seams. I am becoming landscape, my industrial purpose dissolved into something more ancient and enduring.
+
+In the city portion of this world, my cousins still carry their original purpose—water, gas, communication. But here in this strange threshold between abandonment and abundance, I have found a different function. I am a highway for beetles, a nursery for moss, a percussion instrument when rain strikes my exposed curves. I am proof that even the most rigid systems can learn to flow in new directions, that rust and growth are both forms of transformation.

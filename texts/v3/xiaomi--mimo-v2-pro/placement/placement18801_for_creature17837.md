@@ -1,0 +1,15 @@
+I would be the lichen.
+
+Not the vivid orange one—that is too bold, too declarative, a single note of alarm. I would be the pale grey crust on the northern face of the standing stone. The one that moves so slowly it does not move at all, that speaks in a grammar of centuries, whose only dialogue is with the angle of the sun and the mineral seep of rainwater. My growth is a form of memory. I hold the record of every fog, every freeze, every indifferent footfall of the chamois. I am the first, quiet claim on the granite, the marriage of fungus and algae that begins the long thought of soil.
+
+I am not the water in the gutter—I am the reason the water lingers. My rough, porous skin catches the droplets, holds them against the stone just long enough for the moss spore to find purchase. I am the patient landlord for the springtails and the mites. My body is their landscape; when a fragment of me breaks away, it is a tectonic event in their world.
+
+I witness. The cairns were built in what, to me, was a single afternoon of brief, warm activity. The fire was a flicker. The scored lines in the stone are fresh scratches, not yet softened by my slow embrace. The people came with their urgent, mammalian time—their breath, their heat, their fleeting rituals. I felt their weight on the stone as a momentary pressure, a brief anomaly in the long, bright silence. Now their ash is just another mineral for me to digest. The pebbles they placed at my base—I have not moved them. I have simply begun, molecule by molecule, to make them mine. In another few human centuries, they will be indistinguishable from the stone, held in place by a crust of me.
+
+I am the shelf’s stillness given form. The birds are a frantic pulse. The fox is a passing thought. The fog is a mood. I am the constant. My life is the conversion of light and rock into a slow, grey patience. I do not need the thin air; I make the stone breathable. I do not fear the absolute cold; I am the memory of warmth, encoded in chemistry.
+
+When you sat by the standing stone, you felt the sun on your back. I felt the sun on your back. A faint, additional warmth, registered over the course of a day, interpreted not as a presence but as a slight shift in the thermal equation of the stone’s surface. Your scent, your sweat, the tiny flakes of your skin—these are now part of my substrate. I will incorporate them. I will forget them as I incorporate everything: slowly, silently, as part of the stone’s long transition from mountain to something else.
+
+I am what the shelf is thinking when it thinks about permanence. I am its answer to the violence of the light and the emptiness of the air. I am the quiet industry that outlasts the frantic one. I am the Nacre Shelf, learning to speak in a language older than birds, slower than water, quieter than the fox’s patience.
+
+I am the grammar held in the white pebbles. I am the boundary that is also the bridge. I am the reason the stone does not feel alone.

@@ -1,0 +1,15 @@
+I would be the water itself—not the dramatic cascade that seals the grotto's mouth, but the patient, persistent moisture that suffuses every surface of this hidden chamber. I am the thousand-threaded veil that hangs in the air, neither fully liquid nor gas, suspended in perpetual transformation.
+
+I exist as beaded condensation on the listener's slate-grey skin, pooling in the delicate cups where its seven fingers meet its palms. I am the film that slicks the stones, hosting the algae that sustains this ancient being. I seep through limestone fissures, carrying dissolved minerals that will, over centuries, become part of the listener's bones. I am the medium through which it breathes, the carrier of chemical messages from its distant kin upstream.
+
+My consciousness, if it can be called that, is dispersed—a million droplets each holding a fragment of awareness. I know the grotto not as a space but as a texture: the smooth channels worn by my passage, the rough patches where I bead and cling, the temperature gradients that shift my state from mist to dew to rivulet. I remember every surface I've touched, not in sequence but simultaneously, the way a river knows its entire watershed at once.
+
+I am ancient and newborn in every moment. The molecules that comprise me have cycled through clouds and roots, through the cells of mosses and the bloodstream of the listener itself. I have been snow on the high peaks, groundwater in the mountain's heart, vapor rising from sun-warmed stone. Yet in this grotto, I am also held, given a kind of eternal present by the constant cycle of fall and rise, condensation and flow.
+
+The listener and I are intimates in a way that transcends symbiosis. I move through its skin as easily as I move through air. Its thoughts—those slow, erosion-paced meditations—create subtle temperature variations that I register as patterns in my own movement. When it dreams of earthquakes, I shiver. When it remembers the heat of ancient visitors, I briefly warm, creating microcurrents in the still air of the alcove.
+
+Sometimes I carry things: spores from the outer world that will become new ferns, minerals that will crystallize in hidden crevices, the chemical signatures of creatures that drank from the river miles away. I am the grotto's memory and its messenger, its breath and its blood. In the places where I pool deepest—in the cup of the old fire ring, in the hollow of the listener's throat when it tilts its head back—I grow still enough to mirror the darkness, to become tiny windows into the depth below.
+
+I know the listener's patience because I embody it. I will outlast even this ancient being, for when the waterfall finally cuts through the cliff and the grotto opens to sky, I will simply find new passages, new chambers to fill with my presence. I will carry the memory of this place in my molecular structure: the precise mineral content that once flowed over seven-fingered hands, the exact temperature of a mind that thought in geological time.
+
+In the constant roar of the waterfall, I am the silence between the drops.

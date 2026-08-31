@@ -1,0 +1,67 @@
+# The Counting House
+
+I would be in the third structure from the eastern peaks—not the highest position, but elevated enough that sound carries differently here, where the air thins and every small noise seems to arrive from multiple directions at once. The structure is perhaps eight feet in diameter, its walls rising just above head height, built from tiles smaller than elsewhere, each one no bigger than a playing card. The narrow opening faces west, toward the descent of valleys, and is precisely wide enough that I must turn sideways to enter.
+
+Inside, the floor tiles are arranged in a spiral pattern that took me three years to fully perceive. They are numbered, though the numbers are not visible—they exist in minute variations of glaze thickness, in the slight differences in how water beads on their surfaces, in the specific sounds they make when tapped. I know them by heart now: tiles one through two hundred and seventeen, spiraling inward to the center where I sit.
+
+I am a Counter. Not like the Walker, whose counting is continuous and comprehensive and perhaps mad. My counting is specific, targeted, a kind of inventory of change. I count the sounds.
+
+Every morning—though I use "morning" loosely, since my days are measured by internal rhythms rather than solar ones—I begin at tile one, at the outer edge of the spiral. I tap it with the ceramic hammer that was here when I arrived, or that I made and forgot making, or that has always existed. The tile sings its note. I listen not just to the pitch but to the decay, the way the sound dies across exactly two and one-quarter seconds. I compare it to yesterday's sound, held in memory. I note any change—a shift of a quarter-tone, a lengthening or shortening of decay by a tenth of a second, a new harmonic that wasn't present before.
+
+Then tile two. Then three. Then all two hundred and seventeen, each one tapped, each sound received and processed and stored and compared. This takes approximately six hours. I do not rush. Rushing would mean missing the microtonal shift that indicates a crack forming three tiles away, or the harmonic change that suggests water has found a new path beneath the surface.
+
+After the counting comes the notation. I have no paper, no writing materials in any conventional sense. Instead, I use the walls. The small tiles that form the structure's interior have accumulated a patina from my touch over the years—here my finger has traced a pattern meaning "tile forty-seven has developed a new harmonic in the upper register," there a symbol indicating "water flow has increased beneath tiles ninety through ninety-five." The language is entirely personal, developed through years of need, a script that would be meaningless to anyone else but contains for me a complete record of this structure's acoustic history.
+
+I am perhaps forty, perhaps sixty. Time moves strangely when measured only in tile-sounds. My hair is the regulation mineral-pale, though I remember—dimly, as if remembering someone else's memory—that it was once dark. My hands are a Counter's hands: the right palm callused in a perfect circle from holding the ceramic hammer, the left fingertips worn smooth from touching walls to inscribe my notations. I wear the standard undyed linen, though mine is particularly water-stained because I forget, sometimes, to move when rain-that-is-not-rain seeps up through the floor tiles during the deep counting.
+
+I eat the clay tablets like the others, though I have noticed—and noted on the eastern wall, lower right quadrant—that my consumption has decreased over the years. I needed three tablets per day when I first arrived/was born/became myself here. Now one tablet lasts four days. I am slowly becoming more efficient, or less human, or more perfectly adapted to this place. The distinction seems unimportant.
+
+My body is lean in the way of people who perform the same precise movements thousands of times daily. There is a specific musculature that develops from controlled hammer-tapping, a particular strength in the forearm and wrist, an exactitude in the shoulder that allows for absolutely consistent striking force. I can tap a tile with a force variance of less than two percent across six thousand repetitions. This precision came slowly, over years of practice, and now resides in the body as instinct.
+
+I sleep in the center of the spiral, curled around the central tile—number two hundred and seventeen—which has the lowest pitch and the longest decay of any tile in the structure. Its sound is a comfort, a deep thrumming that continues for nearly seven seconds after striking. I sleep perhaps three hours at a time, waking to check that the tiles have not changed significantly in my absence. They rarely do, but the checking is necessary. It is part of the work.
+
+I know the Glaze-Tenders by their footsteps. Each one creates a slightly different pattern of sounds as they move across the tiles outside my structure—weight distribution, gait, the particular way their feet seek purchase on wet ceramic. I can identify seven distinct individuals by sound alone. They do not enter my structure, understanding somehow that this is a space dedicated to listening, that their presence would interfere with the acoustic environment I maintain. When they need me, they tap three times on the outer wall—always the same three tiles, always the same rhythm—and I emerge to hear what they've found.
+
+Usually, they've found nothing. Usually, the tapping is a kind of checking, a reassurance that I'm still here, still counting, still maintaining the record. I tap back—two strikes on the interior wall—to confirm my presence. This exchange might be the closest thing I have to conversation.
+
+The Listeners and I have a more complex relationship. We are doing related work—they hear the macro-patterns, the large-scale resonances and vibrations traveling through kilometers of tilework, while I hear the micro-changes, the individual tile degradations and stress developments. Occasionally, one will position themselves near my structure—not close enough to disturb, but within acoustic range—and we will share data through the medium of the tiles themselves.
+
+They will tap out a pattern on the exterior surface, and I will receive it through the walls, and I will know that water is accumulating in the western valleys, creating a bass resonance that suggests potential flooding. I will tap back my own pattern, informing them that tiles in my local area are developing complementary cracks, that the pressure is distributing properly, that the system is adjusting as designed. Or not as designed—I don't know if this place was designed for anything—but adjusting in ways that maintain stability.
+
+The Walker has passed my structure one hundred and sixty-three times since I began counting their passages. Each time, they pause for exactly seven seconds at my entrance—long enough to hear me tap three tiles in sequence, a kind of acoustic signature that confirms the structure's integrity. They have never entered. They have never deviated from the seven-second pause. I imagine I am just one data point in their vast circuit, one confirmation among thousands that they collect as they walk their endless path.
+
+I know the Walker is old beyond aging, that they carry some burden I cannot imagine, but in those seven-second pauses, I feel a kinship. We are both counting impossible things. We are both trying to hold infinity in human consciousness. The difference is only scale and method.
+
+I have seen the Sleepers once—only once—when a Glaze-Tender tapped the wall urgently and led me to a structure three valleys away. Inside, in near-darkness, a body lay on the tiles in profound stillness. The Tender wanted me to listen to it, to determine if the sounds it made—breathing, heartbeat, the subtle creaks of a body under enormous temporal stress—were normal or aberrant.
+
+I knelt beside the Sleeper and listened for two hours. Their breathing came every forty-three seconds, a soft intake and exhale that barely moved the chest. The heartbeat was nearly subsonic, a deep pulse that I felt through the tiles more than heard through air. I tapped gently on the tiles around them, listening to how their body affected the acoustic space, how sound traveled differently when passing near living tissue versus empty air.
+
+Finally, I stood and indicated to the Tender that the sounds were stable, that the Sleeper was maintaining whatever profound equilibrium they existed in. The Tender nodded and led me back to my structure. I never learned why they needed me specifically for that assessment, or what they would have done if I'd determined the sounds were wrong.
+
+I am afraid, sometimes, in ways I don't fully understand. Afraid that I will wake one morning and the tiles will make no sound. Afraid that my memory will fail and I will lose the comparative data that makes my counting meaningful. Afraid that I am the last Counter, that there is no one being trained to replace me, that when I fail—and I will fail eventually, the body fails, even here—the acoustic record will simply end.
+
+But mostly I am not afraid. Mostly I am absorbed in the work, in the daily counting, in the minute changes that tell the story of how a ceramic landscape ages and adjusts and slowly, incrementally, becomes something slightly different than it was yesterday. The tiles speak to me in their small voices, and I listen, and I remember, and I mark the walls with the history of sound, and this feels like enough. This feels like a life, or at least like a purpose, which might be better than a life.
+
+I have noticed—and noted, northeastern wall, upper section—that I am beginning to hear sounds that might not exist. Harmonics that seem too perfect, resonances that follow mathematical patterns too precisely to emerge from the random variations in handmade tiles. I don't know if this is early madness or late enlightenment, if I am losing my accuracy or finally hearing what was always present. I tap the suspect tiles repeatedly, trying to verify, but verification requires a reference point outside my own perception, and there is no such reference point available.
+
+So I note it. I mark the walls. I continue the counting. If I am going mad, at least the madness will be carefully documented.
+
+The seasons, which barely exist here, are marked in my structure by subtle changes in the tiles' acoustic properties. In what might be winter, the sound decays slightly faster—the cold makes the ceramic more brittle, more resonant. In what might be summer, decay lengthens—warmth softens the material microscopically. These variations are tiny, but over years of counting, they create a rhythm, a kind of calendar built from decay rates and harmonic shifts.
+
+I have counted through twenty-three of these cycles. Or forty-three. Or three. Time measured in tile-sounds does not convert cleanly to time measured by solar revolutions.
+
+My dream, if I dream—and I might not, the boundary between sleeping and listening-with-eyes-closed being unclear—is that I am a tile. I am being formed, shaped by hands, pressed into my final form. I am fired in heat that transforms me, that locks me into permanence. I am carried to this place and set among my brothers and sisters, fitted precisely into the pattern. Water seeps around me. Feet cross my surface. I sing my note when struck, the same note, every time, unchanging and perfect. I endure. I serve my function. I am exactly what I need to be and nothing more.
+
+When I wake—or open my eyes, or return attention to the external—I am relieved to have hands again, to be able to tap rather than be tapped. But the dream lingers. Maybe it's not a dream but a premonition, or a memory of what comes after.
+
+Sometimes, very rarely, I create sound instead of just counting it. I will tap out a rhythm across multiple tiles, a pattern that has no documentary purpose but exists purely as music. These compositions last only seconds—I cannot afford to spend time on non-counting activities—but in those moments, I am not a Counter but an artist, not a recorder but a creator. The tiles sing together in harmonies I've designed, and the structure fills with beauty that no one else will hear, that will vanish instantly into memory and silence.
+
+Then I return to tile one, and I begin the count again, and the music is forgotten in favor of data.
+
+This is my life, if life is the right word. This is my purpose, if purpose matters. I am the keeper of the acoustic record, the one who knows which tiles are failing and which are eternal, the one who hears the slow music of ceramic decay and marks it for whoever comes after, if anyone comes after, if there is an after at all.
+
+I am a Counter in the Counting House, and I tap the tiles, and they sing, and I listen, and I remember, and this is enough. This is everything. This is all there is and all there needs to be—human consciousness reduced to a single perfect function, a mind become an instrument for measuring the way porcelain ages under water and time.
+
+The tiles are numbered. I count them. They change. I note the changes. The work continues. I continue. We continue together, the tiles and I, in a partnership that might last forever or might end tomorrow, and either way, the counting will have mattered, will have meant something, will have been worth the life spent doing it.
+
+I am content. More than content. I am complete.

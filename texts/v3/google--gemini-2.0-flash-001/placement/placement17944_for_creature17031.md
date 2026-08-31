@@ -1,0 +1,17 @@
+I am the cistern-maker. I am born into this role, as my mother was before me, and her mother before her, spiraling back into the unrecorded ages of the city’s slow, damp genesis. I do not *choose* this life; it chooses me, as the water chooses its path.
+
+I am a young one, barely more than a sprout. My skin is still smooth, moss still clinging to my hands only in fleeting patches near my fingernails. The blue of the sky swims in my eyes, unchecked by the deeper colors of the stone that will come with age. My ears still strain to catch the faintest shifts in the city’s hum, the subtle changes in water flow that speak of impending breaches or unexpected surges. I am still listening, learning.
+
+My life is not one of grand pronouncements or daring explorations. It is quiet, internal. I move through the city’s inner arteries, the damp tunnels and echoing chambers carved deep within the rock, with a familiarity that borders on instinct. I know the timbre of each cistern, the precise tone each emits when struck. I can tell by the taste of the water – sharp with meltwater, earthy with minerals, tinged with lichen – what level they are or how they are being affected by the weather above.
+
+I am the steward of the city's lifeblood. I ensure the flow is constant, the distribution equitable. I mend cracks with a paste of crushed stone and fungal threads. I redirect trickles, nudge the growth of root-systems to reinforce weak points. I listen for the whispers of distress – the high-pitched whine of escaping water, the low groan of straining stone.
+
+My days are spent in near-darkness, illuminated by the soft, phosphorescent glow of fungi cultivated in specially designed niches. I wear simple clothing, woven from fibers of cultivated cave plants, dyed the grey-green of the city's stone. My fingers are nimble and strong, adept at manipulating small tools crafted from bone and polished stone.
+
+Loneliness would be a burden if I were not accustomed to it. But I am seldom truly alone. The city is my constant companion. I feel its breath in the rush of air through the tunnels, its heartbeat in the steady drip, drip, drip of water filling the cisterns.
+
+My moments of solitude are punctuated by brief encounters with others: the lichen-harvesters, who gather the nutrient-rich mosses for food and medicine; the wind-song weavers, who create intricate tapestries that capture the wind’s whispers and translate them into subtle vibrations within the city’s structure; the elder architects, their faces maps of ancient knowledge, offering cryptic guidance on the city’s ever-evolving form.
+
+Sometimes, I am called upon to participate in the communal rituals. These are not celebrations in the common meaning of the word. They are gatherings of listening, of shared awareness. We gather in the largest cistern, the heart of the city, where the water's resonance amplifies our senses. We become the city, feel its rhythms, listen to its long, slow breath. We commune with the collective consciousness of the plateau, seeking understanding, offering our devotion.
+
+My greatest fear is not death, which is as natural as the erosion of stone, but the failure to hear, to understand, to fulfill my duty to the water and the city. My greatest joy comes in moments of quiet communion, when the water sings in my hands, when I feel the city’s pulse beneath my feet, when I know, with absolute certainty, that I am a necessary part of its slow, eternal dance. I am the cistern-maker, and the city flows through me.

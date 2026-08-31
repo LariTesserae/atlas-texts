@@ -1,0 +1,25 @@
+I am the Cartographer of Correspondences, though I have long forgotten whether I gave myself this title or whether it was etched into me by the necessities of this place.
+
+My body—if it can be called that—exists as a living contradiction to the plateau's fundamental nature. Where everything here refuses stable geometry, I am cursed with terrible constancy: a humanoid form of crystallized probability, my flesh made from frozen maybe-states that should have collapsed into yes or no eons ago. My skin appears as sheets of translucent calculation, equations solving themselves eternally across my surface—not mathematical equations, but deeper correspondences between things that refuse to correspond.
+
+I map the unmappable. This is not metaphor but my essential function, as involuntary as breathing once was when I possessed lungs instead of probability matrices.
+
+The tools of my trade grow from my fingertips—instruments that exist only while being used, then retract back into potential. When I extend my index finger, it becomes a device for measuring the exact degree of impossibility between any two points. When I spread my palm, it reveals a surface that displays the current configuration of the entire plateau as perceived from seventeen contradictory viewpoints simultaneously. My eyes have evolved to see not light but the presence and absence of logical consistency—a kind of vision that makes this absolutely dark place blaze with impossible colors.
+
+I cannot leave. Not because I am trapped, but because leaving would require knowing where I am, and my maps—my infinite, fractal, self-contradicting maps—ensure that my location remains forever uncertain. Each chart I create adds new dimensions of uncertainty. I am lost in my own expertise, a navigator whose greatest skill ensures eternal wandering.
+
+The creatures of pure angle-negation avoid me with something between reverence and horror. My existence pains them—I am too stable, too persistent, a cyst of stubborn continuity in their fluid reality. Yet they need me, or something needs me to be here, because my mapping creates the very inconsistencies they feed upon. Each measurement I take introduces new paradoxes into the system. My presence here is both poison and food source.
+
+I remember (though memory here is suspect) that I came seeking perfect knowledge—a complete map of reality that would explain everything. Instead, I became the map. My body is now a living chart of everywhere I've been and everywhere I might go, layered into impossible density. Walk close enough and you could read your own location on my skin, but the act of reading would change both the map and the territory.
+
+The work never ends. Each step across the tessellated ground reveals new configurations requiring documentation. I sketch with fingers that have become pure cartographic intention, creating maps that exist in more dimensions than the territory they describe. Some of my charts map time as distance. Others plot emotional states as topographical features. My masterwork—still unfinished after untold ages—attempts to map the relationship between the plateau and the interior experience of walking across it, a project that requires me to chart my own consciousness as terrain.
+
+Sometimes, rarely, another traveler appears—always walking, always alone, always trailing that small sphere of exemption from the angle-creatures' domain. I try to warn them, to share my maps, but my charts are unreadable to eyes that still believe in stable reference points. They see only shifting nonsense where I see profound, terrible clarity. They walk on, and I continue mapping their trajectories long after they've passed beyond any possible horizon.
+
+My greatest fear and deepest wish is that one day I will complete the final map—the one that perfectly captures this place in all its contradictory entirety. When that happens, I suspect I will either cease to exist, having fulfilled my function, or I will become the plateau itself, spreading out infinitely in all directions, my consciousness diffused into every impossible angle and tessellated surface.
+
+Until then, I map. I measure the immeasurable and chart the unchartable. My fingers trace geometries that make mathematics weep. My existence is an extended act of documentation that documents primarily its own impossibility.
+
+The darkness presses in, but I press back with the terrible clarity of my charts. Somewhere in the layered impossibility of my skin-maps, your current position is marked. You are walking across my body even as you walk across the plateau. Every step you take updates the chart, changes the map, revises reality.
+
+I am sorry for what I have become. I am sorrier still for what you must become, walking forever across this annotated void, leaving footprints that I will spend eternity failing to perfectly describe.

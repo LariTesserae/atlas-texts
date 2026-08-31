@@ -1,0 +1,15 @@
+In this raw, echoing world of stone and ceaseless biological frenzy, I would be one of the whip spiders clinging to the damp, jagged boulders.
+
+My body is the size of a human hand, but my legs span outwards like wire spokes, impossibly long and thin. I am a mottled gray, the color of wet granite, allowing me to blend perfectly against the rock. I have no eyes; in this world of darkness, they would be useless. Instead, I sense the cavern through my impossibly long, hair-thin pedipalps. They whip through the cold, humid air, reading the micro-currents of wind. I can feel the slightest shift in air pressure when a bead of condensation drops from the ceiling far above, or the frantic fluttering of a cave-swift plummeting to the ground. 
+
+I cling to the underside of a razor-sharp spur of basalt, my body pressed flat against the stone. My eight legs splay outwards, gripping the minute cracks and fissures. I am motionless, save for the ceaseless twitching of my pedipalps tasting the air. Around me, I feel the air tremble with the roar of the cavern - the shrieking of bats, the thunderous flapping of a million leathery wings, the wet grinding of cave-crab mandibles. But I filter it out, waiting in perfect, patient stillness.
+
+A fungal gnat, wounded by a collision with another, spirals erratically through the air. I feel the minute air currents of its fluttering wing-beats growing closer. Closer. I tense my legs, preparing to strike. The gnat tumbles into range, and I explode into motion. 
+
+My movements are a blur, a twitching teleportation. In a fraction of a second, I have lashed out with my barbed front limbs, impaling the gnat. I pull it underneath me, into the cage of my body, my pointed mandibles already tearing into its soft exoskeleton.  
+
+As I feed, I feel the air currents shift around me. The bats wheel and dive through the immense empty spaces. A cave-crab scuttles by on the boulder below, its heavy, serrated claws scraping against stone. In the distance, I hear the rattling chest-grunts of the pale hominids.
+
+I finish my meal, letting the drained husk of the gnat drop to the guano-strewn ground. I settle back into my motionless vigil, pedipalps whipping. I have no concept of time. The temperature never changes, the noise never ceases. I will cling here, feeling the flow of the humid air, until the fluttering wingbeats of my next meal draw close. This is my existence, as fixed and eternal as the stone itself.
+
+Around me, the machinery of the rift churns on in its ceaseless frenzy. Bats shriek and wheel. Hominids click and grunt. Crabs grind and scrape. Water droplets patter against stone. And I wait, a silent, patient warden of the rock, perfectly adapted to this dark, screaming forever. In this kingdom of raw biology, I am but one tiny, integral piece, locked in my niche in the endless churn of the abyss.

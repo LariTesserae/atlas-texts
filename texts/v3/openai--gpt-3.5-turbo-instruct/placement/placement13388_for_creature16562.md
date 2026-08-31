@@ -1,0 +1,1 @@
+Thank you for your vivid descriptions of the Forbidden Lands and its inhabitants. It sounds like a dangerous but fascinating place. Can you tell me more about the chimerans? Do they have any special powers or abilities?

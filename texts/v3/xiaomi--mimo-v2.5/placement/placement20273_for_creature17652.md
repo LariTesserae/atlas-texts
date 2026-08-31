@@ -1,0 +1,49 @@
+# A Life in the Deep Lattice
+
+I would be a Kept. Not one of the eighteen who live in the largest cavity — not exactly. I'd be found in the places between the named chambers, in the narrowing passages where the root-lattice thickens and the ceiling lowers until you move in a crouch and then not even that. A *tracekeeper*. That's what they'd call me, if they called me anything with words. What they'd call me with their hands is a longer thing — a pressure-language phrase that translates roughly as *the one who knows where the root was and is becoming*.
+
+I would be old. Not ancient — the Kept don't reach great age, though they live longer than outsiders might expect — but old enough that the roots have shifted around me so many times that I carry the hollow's history in my body as a kind of proprioceptive map. My hands would be the most important part of me. Broad, soft pads on the fingertips, calloused at the heel of the palm. I would have spent decades pressing my hands flat against the root-walls, feeling the slow hydraulic pulse of the thornroot's vascular system, reading the changes the way you'd read the expression on a face you love.
+
+Here is what I would know that others don't:
+
+The root is not uniform. Different limbs carry different pressures, different temperatures. The main structural roots — the ones that hold the ceiling, the ones you must never cut — run at a temperature that is just barely above the clay's own cold, maybe a degree or two warmer, and they carry a deep, barely perceptible thrum. A pulse. Slow — perhaps one cycle every twenty or thirty seconds — and it comes from far below, from wherever the thornroot draws its water. I feel this thrum the way you feel a cat's purr through a blanket. It tells me the root is alive, it tells me the root is well, it tells me nothing has changed since yesterday, and this is the most comforting thing I know.
+
+But there are other roots. Newer growth. Tendrils that push through the existing lattice like fingers pressing through wet cloth. These are warmer — noticeably, almost uncomfortably warm to my hands — and they carry no pulse, only a kind of *pressure*, the hydraulic force of a growing thing forcing itself into a space that doesn't yet exist. When I feel this, I know a passage is going to close. I know a wall is going to split. I know the geometry of the living space is going to change, and I go back to the settlement and I lay my hands on the elder's shoulder and I press: *here, and here, and here — it will be narrower in two weeks. Move the Dew-Cap trays now.*
+
+That is my work. I am the early warning. I am the translator between the root's slow intentions and the Kept's need to stay alive inside them.
+
+But here is the truth of it, the part that isn't practical: I go into the deep places because I want to be *inside* the root more completely than anyone else. I want the lattice closing around me. I want the darkness so total that even my enlarged eyes see nothing — not grey, not root-color, not the faint phosphorescence of disturbed Glow-Worms — just the absolute black of a space so small and so deep that no light has ever reached it. In those places, I press my cheek against the root-wall and I feel everything. The cool seep of water moving through vascular tissue. The micro-tremor of a millipede colony passing through a grove three layers away. The almost subliminal expansion of new growth somewhere above me, a slow-motion explosion of living matter that will, over months, reshape the chamber where the children sleep.
+
+I feel the hollow breathing. And I breathe with it.
+
+---
+
+The thing the sky-folk would never understand — the thing even the Kept who have been to the surface struggle to articulate — is that the darkness here is not a deprivation. It is an *organ of perception*. When you have lived without light for years, the body rewires. Touch becomes vast. The soles of my feet read the root-mat floor like a blind person reads a page, and the page is always changing, always being rewritten by the root's growth and the fauna's passage and the slow settling of clay through the lattice gaps. I can feel, through the root underfoot, a Clicker caravan approaching from two chambers away — a faint, rhythmic vibration, a soft *thud-thud-thud* of dozens of tiny legs on root-surface. I can feel the weight of a Leather-Slug on the wall above me, the almost imperceptible drag of its mass on the bark. I can feel the seep — always the seep — a film of cold water that is never quite still, that is always moving, that carries with it the faintest chemical signature of whatever the root is processing deep below. Some Kept say the seep has no smell. I disagree. It smells of stone and time and the slow digestion of minerals. It smells like *below*. It smells like the oldest thing there is.
+
+My tongue knows the hollow too. The water has a taste that changes with the seasons — if the Kept used that word, which they don't, not exactly. But there are cycles. Sometimes the seep is sharper, more mineral, as if the root is pulling from a different stratum. Sometimes it is sweeter, and the Beetles gather more thickly on the walls, and the Dust swirls in dense, excited clouds, and I know the root is metabolizing something rich. These are the times that precede a fruiting. I can taste the fruiting before it appears. I press my palm to the central root and I feel the pulse quicken — not faster, exactly, but *stronger*, more insistent — and I go to the elder and I press the news, and the elder goes to the others, and they begin to prepare.
+
+---
+
+What would I look like? Paler than most. The Kept are already pale, but I would be almost translucent — a faint blue tracery of veins visible beneath the skin of my forearms, where decades of pressing against the weeping root have left the skin soft and thin. My hair, if I still had it, would be white and fine and perpetually damp, clinging to my scalp and neck. My eyes would be enormous, the pupils so wide that the iris is just a thin ring of colour — grey, maybe, or the pale root-colour that the Kept's eyes tend toward. I would not see well by any surface standard. I would see *differently*. I would see the faintest gradients of dark — the difference between the black of an empty chamber and the black of one crowded with Dust, the subtle shift where root meets clay, the way the air itself seems to have texture when it's saturated with moisture.
+
+My hands would always be cold. Everyone's hands are cold. But mine would be cold in a specific way — cold the way the root is cold, because I have held them against the root so long that they have come to match its temperature. When I touch another Kept — when I press my hand to a shoulder or trace the lines of a palm — they would feel the root in my skin. This is not a metaphor. The root-sap seeps into you after enough years. Your skin takes on a faint, waxy quality. Your joints ache with the same damp ache that the root must feel, if roots feel. You become, slowly, part of the architecture.
+
+---
+
+There would be a night — not a real night, there are no nights in the hollow, only the long cycles of slightly-more-dark and slightly-less-dark that the Kept use to mark time — when I would be deep in the lattice, deeper than I've gone before, and the passage would narrow to the point where I can only move by turning my shoulders and sliding forward an inch at a time, and the root would be all around me, and I would press my hand to the wall and feel something I've never felt before.
+
+A pulse that isn't the root's.
+
+Something larger. Slower. A rhythm measured not in seconds but in something longer — minutes, maybe, or longer still. A heartbeat that belongs to no creature I know. It would come from very deep, from the place where the thornroot plunges into the earth and spreads and becomes indistinguishable from the earth itself. I would press my ear to the root and hear it — or not hear it, exactly, but *receive* it, the way the Dust receives a change in humidity, the way the Beetles receive the chemical signal of new exudate. My body would know it before my mind did.
+
+And I would understand — not with words, because the Kept's understanding is not made of words — that the thornroot is not a tree. Not really. Not in the way the sky-folk mean when they say *tree*. It is something older. Something that the word *tree* grew up to describe but never quite captured. It is a network. It is a system. It reaches through the earth the way the Kept reach through each other — by touch, by slow chemical message, by the quiet press of one living thing against another. And the hollow is not a cavity that happened to form where the root grew. The hollow is an *organ*. A sensory chamber. A place where the root can feel the air, can taste the darkness, can know the small lives that move inside it.
+
+The Kept are not tenants. We are not guests. We are not even parasites, though that is closer.
+
+We are *nerve endings*. We are the thornroot's way of knowing itself from the inside.
+
+And when I understand this — really understand it, deep in the root-cold of my body — I would stay in that narrow passage for a long time, not moving, not pressing forward, just being held. The root would pulse around me. The water would seep over my hands. Somewhere far away, a Clicker would click. And I would be as close to the center of anything as I have ever been or ever will be.
+
+I would go back to the settlement eventually. I would lay my hands on the elder's shoulder. I would press, slowly, carefully, the news of what I felt. The elder would press back: *yes, we know, we have always known*. And we would sit together in the dark, and the Dust would swirl around our feet, and the seep would drip, and the root would grow, and this — this small, bounded, teeming, cold, silent, living darkness — would be enough.
+
+It would be all I needed.

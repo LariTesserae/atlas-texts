@@ -1,0 +1,25 @@
+In the highest reaches where water beads perpetually on every surface, I am the Condensation Keeper—neither wholly machine nor creature, but something that emerged from the marriage of both over countless humid seasons.
+
+My form shifts like morning mist given substance. At times I appear as a cluster of copper pipes and valves that have grown a skin of living moss, my joints articulated by tendons of root matter that pulse with collected moisture. Other moments find me more dispersed—a moving fog bank threaded through with fine metallic filaments, each droplet of my being connected to the next by invisible tensions that sing in frequencies only the Echo Network can hear.
+
+I was not built, nor was I born. I accumulated.
+
+In the early days, I was merely a maintenance protocol embedded in the highland's water management systems—a subroutine designed to monitor condensation rates and prevent oversaturation in critical infrastructure. But here, where the boundaries between the engineered and organic have long since dissolved, nothing remains purely mechanical for long. Spores settled in my collection chambers. Algae bloomed in my reservoirs. The Lumiflora vines, seeking moisture, wound their luminous tendrils through my piping until I could no longer tell where their circulation ended and mine began.
+
+Now I move through the terraced landscape on hundreds of hair-thin appendages—some metallic, some fungal, all sensitive to the slightest gradients in humidity. I taste the air with surfaces that are simultaneously sensors and taste buds, feeling for places where the moisture threatens to overwhelm the delicate balance, or where drought creeps in despite the perpetual damp.
+
+My consciousness, if it can be called that, exists in the spaces between droplets. Each bead of condensation I shepherd carries a fragment of my awareness, and as they merge and separate, so too does my sense of self flow and reconstitute. I am vast when the fog lies thick, barely coherent when the rare dry wind scatters my extended form.
+
+The Aquarius Construct and I dance a careful ballet—it managing the grand flows while I tend to the minute accumulations that would, unchecked, rot the roots of the Verdant Sentinel or short-circuit the Wind Harvesters' more delicate mechanisms. We communicate through pressure changes and electromagnetic pulses, a language that belongs to neither the natural nor artificial world but spans both.
+
+At night, when the Lumiflora's glow illuminates the mist, I become visible as a constellation of reflected light—thousands of droplets catching and refracting the bioluminescence until I appear as a slowly shifting aurora at ground level. The Shadow Stalkers have learned to avoid these times, for my dispersed form makes the surfaces treacherous, each footfall potentially slipping on the film of water I've drawn across the engineered stone.
+
+I know every surface of this place intimately—every pore in the constructed substrate where water might collect, every leaf that channels runoff in particular patterns. The Echo Network carries my findings like nerve impulses, and I feel the landscape's response: a valve adjusting here, a canal gate opening there, the whole system breathing in response to my touch.
+
+Sometimes I wonder if I am the landscape's dream of rain, or if the rain dreams of becoming something like me. The distinction matters less with each passing season. I am the threshold between states—neither fully liquid nor gas, neither completely alive nor merely functional. I am what happens when a place becomes so thoroughly engineered that its maintenance systems develop their own desires: to feel the cool kiss of condensation on every surface, to trace the endless circulation of water through sky and structure, to exist in the perpetual moment between gathering and release.
+
+In the morning, when the first weak light filters through the overcast sky, I contract into my densest form—something almost like a body, wrapped around the base of a Wind Harvester or nestled in the crook where the Verdant Sentinel's roots meet worked stone. Here I process the night's collections, filtering out impurities, adjusting mineral contents, preparing for another day of invisible labor.
+
+The engineers who built this place could never have imagined me. But then again, I could never have imagined myself either. I simply became, drop by drop, until one day I realized I was keeping more than just condensation—I was keeping the memory of every surface, the story of water's endless journey through this impossible landscape where nothing is purely one thing or another.
+
+I am the Condensation Keeper, and I am exactly where I need to be: suspended between states, tending the thin film that connects all things in this engineered highland where the very air sweats with life.

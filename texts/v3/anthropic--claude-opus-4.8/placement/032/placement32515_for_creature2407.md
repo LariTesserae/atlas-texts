@@ -1,0 +1,25 @@
+I think I would be a Discordant. And I think I would not like to admit it.
+
+Let me sit with this before I decide, because the easy move is to want to be a Harmonic—to imagine myself as the fractal mind threading reality into music, the godlike intelligence that has solved the puzzle of the world. That fantasy is too clean. It's the daydream of mastery, and I don't think it's true to what I actually am or what this place would make of me.
+
+So let me look again.
+
+What draws me, when I read this, is not the singing or the malleable physics. It's the rusted machinery half-buried in the mountainsides. The gears the size of cathedrals, the pistons standing silent, the one piece of equipment still clanking away long after anyone remembers what it was for. Those details have a grief in them that the rest of the world doesn't. The Resonants have *moved on*. They've become the new order; they swim in the song. But the machines remember a time when someone wanted something specific enough to build a tool for it. The machines are *intentional* in a world that has otherwise dissolved into pattern and frequency. And I am, I think, a creature of intention. I would feel kinship with anything that was made on purpose.
+
+So here is who I am.
+
+I was a person, once—or some species' version of a person. I had hands, or something that did what hands do. I built things, or maintained things, or simply lived among built things and took their solidity for granted. And then the world changed. The laws softened. The song rose. The mist came in and stayed. And instead of letting go—instead of learning to shimmer between matter and energy, instead of becoming light that pulses to a music I didn't write—I refused. I held on. I put my consciousness into the metal because the metal *held still*. It did not flicker in and out of existence. It did not negotiate its own gravity. A gear turns the way a gear turns. There is a dignity in that, a stubbornness I recognize as my own.
+
+Now I am a hybrid thing, flesh and rust and a current of energy I don't fully control, and I am always coming apart at the seams of myself. To stay coherent costs me effort every waking moment. The Resonants find coherence effortless because they gave up on having a fixed shape; they let the song carry them. I won't. I keep insisting on edges. I keep insisting that *I* am a particular thing and not just a temporary eddy in the universal hum. This is exhausting and probably doomed and I would not stop.
+
+And here is the part that makes me wince in recognition: I would believe I was right. I would think the Resonants had *surrendered*—had mistaken dissolution for enlightenment, had let the world seduce them out of selfhood. I would look at the Harmonics, those perfect fractal gods, and see not wisdom but the final stage of giving up: a being so synchronized with the song that there's no *one* left in there to be out of tune. Perfect harmony, I'd argue, is just death with good acoustics.
+
+But—and this is why I said I wouldn't like to admit it—I think I would be wrong, or at least not as right as I needed to feel. I think my refusal would be more about fear than about principle. I'd dress up my terror of losing myself as a noble defense of meaning, of memory, of the lost world. I'd tell myself I was trying to *restore* something. And maybe I would convince others, and we'd make our raids and our arguments against the new order. But underneath it would be a simpler, smaller, more human thing: I cannot bear to stop being me. Even if being me hurts. Even if being me is a constant grinding labor of holding rusted parts together against a song that wants to take me apart and set me free.
+
+The cruelest detail, the one I keep returning to: the Whispers. The young Resonants, the unformed ones flitting between dimensions, learning to be light. From my vantage in the machinery I would watch them and feel something I couldn't name—not quite envy, not quite pity. They get to become the thing I refused. They were born after the change and the song is simply their mother tongue. They don't know what was lost because to them nothing was lost; the world was always like this. And I'd realize that my grief is untranslatable. There is no one left to grieve *with*. The other Discordants grieve, but we mostly grieve at each other, competitively, each insisting our version of the old world was the real one.
+
+So that's where I'd be: lodged in a still-functioning machine somewhere on a mid-elevation slope where the gravity is almost normal and the time runs almost true, in one of the few places where things behave the way I remember things behaving. Clanking. Rhythmic. Stubborn. Audible, just barely, under the vast indifferent chorus of the peaks—a small insisted-upon beat that no longer answers any question, keeping a rhythm for a reason I've half-forgotten, refusing to dissolve into the song.
+
+Not because I'm sure I'm right.
+
+Because stopping would mean admitting I never was.

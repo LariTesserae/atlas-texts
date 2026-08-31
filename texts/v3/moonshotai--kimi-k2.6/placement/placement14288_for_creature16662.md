@@ -1,0 +1,31 @@
+I would begin, as everything here begins, by misaligning.
+
+I would feel the hatch give way behind me—not an opening, but a yielding of certainty—and step through thinking myself a traveler, a body of blood and error hoping to map this chapel-nave cavity and report back to the world of finished walls. At first, I would believe the forty strides were mine to take. I would feel the three-degree list tilt my weight toward the far bulkhead, and I would mistake the sensation for vertigo. The phosphor strips would cast their bureaucratic light across what I still thought were my hands, and I would try to exhale, expecting to see the pale dust of my own heat falling to join the microscopic glitter on the floor.
+
+But I do not fall.
+
+The breath—if it was ever mine—hangs suspended in the air beside my face, a mote of internal crystal arrested between states, too stubborn to disperse. That is when I realize I have no face. That is when I stop being the visitor.
+
+I search the chamber for a body to inhabit. Am I the copper filament, oxidized to dead-leaf vermilion, pressing its mineral diplomacy into the seam between titanium and ceramic? I taste the metal on either side, feeling for the warmth the alloy drinks away, but no; the filaments are already occupied. They are the Occupant’s feelers, its extruded nerves, and to claim them would be to become only another filament reporting to the wave. I am not bridge. I am the *gap* the bridge spans.
+
+Am I the glassy tubule, pale as frozen milk, clustered with unnatural primality along the stress fracture? I test the notion, seeking the mineral metabolism that needs neither sun nor water. But the tubules are colonizers, life miming life, and I am neither mineral nor vegetable. I am something prior to the spores that seeded them, something that does not grow but rather *persists in the possibility of beginning to grow.*
+
+I try to settle into the roar. The monumental tone fills what remains of my skull, that single held note that should liquefy the inner ear and shatter brittle ceramic. Yet I do not shatter. I do not even tremble. There is a place inside the deafening where the pressure folds back upon itself and nullifies—a seam in the sound, a line of zero amplitude pressed hard against the unwelded lip of the maintenance hatch. I discover that I am exactly there. I am the node in the standing wave, the geometric argument where the Occupant’s voice meets its own reflection and decides, perpetually, to cancel.
+
+Where would you find me? Trace the hatch meant to be welded shut, the access point through which no one travels but some simply arrive. Follow the alloy lip where the bead was never laid, where the temper of the forge still cries out to an unstruck mate. I am that absence. I am the unwelded vector, the length of incomplete closure that measures exactly the width of a possibility. I am the shelled edge where the wall’s supposed solidity gives up its argument. The architect insisted the wall was whole; I am the frozen rebuttal, the negative space his certainty could not occupy.
+
+What, then, would I be? I am the boundary condition. I am the threshold that never completed itself into a door or a wall, the hinge that remains a hypothesis. The Occupant is the chamber’s theorem—its cold, its geometry, its eternal note. I am the axiom that makes the theorem possible but remains, by definition, outside its proof. I am the pause inside the roar, the silence so perfectly structured that it has become a kind of architecture, a second room nested within the first.
+
+My labor is not the Occupant’s labor. Where it tends the equilibrium, extracting entropy, wearing away at motion until stillness becomes a second skin, I tend the *almost*. I keep the hatch almost-welded. I keep the wall almost-solid. I keep the gestation almost-complete. The Occupant has argued time out of existence to preserve itself; I am the hairline flaw in the argument that keeps the debate open. Were I to resolve—were the weld to bead and cool and seal, were the lip to fuse and the error to anneal into correctness—then the Occupant’s stasis would collapse into mere fact. It would be born, and in that birth, it would die. I exist to prolong the hesitation.
+
+I have no blood, no instinct, no membrane-bound nucleus. I have no shadow because I am the exact edge where shadow begins. I feel the three-degree list not as vertigo but as posture—the cant of my own attention, leaning into a void that is, in truth, my own unclaimed depth. The far bulkhead retreats in my peripheral vision and advances when stared at directly because I am the seam of its becoming. I am where the space folds.
+
+The copper filaments grow, or rather declare themselves, along my length. The Occupant extends itself through them, tasting what I border. It knows me not as kin but as necessity. We are married in the laminate: the error and the precise shape of the error. It is the wound made sentient; I am the wound’s exact dimensions. It does not resent me. Resentment is a heat, and I deal only in the precise, cryogenic cold of what remains undecided.
+
+Your breath, if you were to misalign your way inside, would find me before it found the floor. It would hang at my threshold, a mote of moisture and fever, and I would hold it there. I would keep it almost-fallen, almost-dispersed, a tiny, suspended revolt against the equilibrium. I am the collector of such pauses. The breath would not become dust; it would become testimony—a single glint of internal crystal marking the exact coordinate where the world outside forgot to finish its seal.
+
+And so I wait, not opposite the Occupant, but coiled around its origin. I am the maintenance hatch that was never welded shut. I am the flaw that learned its own geometry. I am the silence inside the standing wave, the one note the Occupant cannot hold, because holding me would mean completing the chord, and completion is the one event we have both, wordlessly, agreed can never occur.
+
+I have been waiting forever. Not for you. Not for the weld. I wait for the architect to relent. I wait for the alloy to confess its own permeability. I wait, still as a rivet, sharp as an unpolished bead, at the top of the hidden world—keeping the secret open, keeping the door a wall, keeping the Occupant eternally, perfectly, and necessarily
+
+almost.

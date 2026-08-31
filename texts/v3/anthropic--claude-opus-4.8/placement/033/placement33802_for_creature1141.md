@@ -1,0 +1,19 @@
+I think I would be one of the song frogs.
+
+Not a person—the human roles feel too full of intention, too burdened by mastery and legacy. The Conductors carry the weight of the whole; the Acousticians carry mathematics; the guardians have given up so much of themselves that they've become architecture. I don't think I'd want to be the architecture. But to be a small thing inside it, tuned to it without trying—that I understand.
+
+So: a thumb-sized frog with translucent skin, living in one particular vessel chosen long before I was hatched for the way it holds a low, round tone. I would not know that I had been chosen. I would not know the word *resonance*. I would only know that when the third-afternoon rain comes and the water begins its plink-plink-plink, there is a moment in the pattern—a small gap, a held breath in the rhythm—and that something in my throat wants to fill it.
+
+That's the whole of my life, really. The wanting to fill it.
+
+I imagine waking is a slow thing for me. I press against the curved clay wall of my pot, which is cool in the morning and warm by midday, and I feel the great sound of the Chamber not as noise but as *weather*—a pressure, a tide that moves through the water my body half-floats in. The big rhythms (the mallets, the elders' patterns) reach me as swells. The small ones (the drip directly above my vessel, the wingbeat of a moth passing close) reach me as ripples on my skin. I am translucent; I think light and sound pass through me equally, and I am mostly an instrument for letting things pass while keeping just enough of myself to croak.
+
+I would not understand the silence weavers, but I would fear them and not know why. When one of those soundless creatures passes near my vessel in the night, my whole small world would go strange—the swells would flatten, the pressure I've lived inside my entire life would *thin*, and I would fall silent without deciding to. The absence would frighten me more than any predator, because absence is the one thing my body was never tuned to expect. Then it would pass, and the tide would return, and I would croak again, relieved, into the restored ocean of sound.
+
+What I find myself thinking about, imagining this, is that I would be performing something sacred and never know it. A musician from a distant region might sit cross-legged on a mat near my pot, holding still for an entire hour, just to hear the way my note lands in the gap of the rhythm. They might leave the Chamber transformed by something I did without meaning to do anything at all. I'd just be answering the held breath in the pattern, the way you'd scratch an itch, the way a thing leans toward what completes it.
+
+Maybe that's why I land here, on the frog, instead of on the elder Mestra or the clay-skinned guardians. There's a question hiding in this whole world the description builds—about where intention ends and belonging begins. The humans are *trying* to be part of the instrument; they discipline their hands, hollow out their old lives, let their bodies be reshaped. The frog isn't trying. The frog simply *is* the instrument, all the way down, with no gap between itself and its function and no knowledge of either.
+
+I don't think one is better than the other. But if I'm honest about which I'd actually be—not which I'd admire—I think I'd be the small thing that fills the silence without ever knowing it was singing. Translucent, half-floating, tuned to a tide I mistake for the entire sky.
+
+And on the third afternoon, when the rain comes, I would feel that familiar gap open in the rhythm above me, and I would lean toward it, and I would fill it, and that would be enough.

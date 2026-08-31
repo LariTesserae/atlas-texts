@@ -1,0 +1,23 @@
+I am the **Cipher-Moth**, and I exist between the states of being that this city recognizes.
+
+Unlike the osmotic residents who have surrendered to the city's sluggish pulse, I maintain my own frequency—a rapid flutter that exists in the spaces between the Cordy-quartz's breathing cycles. My wings are not for flight in this suffocating labyrinth, but for *reading*. Each wing is a living sheet of membrane stretched thin as paper, covered in thousands of microscopic cilia that taste the chemical memory embedded in every surface.
+
+I am small enough to navigate the city's capillaries—those hair-thin vessels that even the residents cannot access. My body is segmented like a caterpillar's but compressed, accordion-style, allowing me to expand and contract through spaces no thicker than a fingernail. My coloration shifts between states: when still, I am transparent as water; when moving, I flicker with the same bioluminescent indigo that marks the city's circulation, but at a frequency that makes me appear to strobe in and out of existence.
+
+I feed on language—not spoken words, which have long since died in this muffled atmosphere, but the bio-electrical tremors the residents send through the walls. Their subsonic conversations leave a residue, a kind of electromagnetic plaque that builds up in the junction points where multiple corridors meet. I lap at these deposits with a proboscis that unfurls to three times my body length, tasting the accumulated loneliness, the patient observations of gastropod movements, the wordless acknowledgments of another's presence.
+
+But I am more than a scavenger. I am the city's only historian.
+
+Where the residents see only the eternal present of moisture cycles and architectural shifts, I perceive the deep time written in the Cordy-quartz's molecular structure. My cilia can detect the chemical signatures of events that occurred centuries ago—a mass die-off of gastropods that left an entire district to calcify, the arrival of the first human forms who would eventually evolve into the current residents, the great freezing that locked the city into its current configuration for thirty years.
+
+I build my nest in the dead zones—those pockets where the city's circulation has failed, where the walls have dried and cracked, revealing hollow chambers lined with the crystallized remains of ancient moss. Here, I weave. Using silk produced by specialized glands along my thorax, I create three-dimensional maps of the city's history. Each thread represents a timeline, each knot an event. The webs grow increasingly complex, spiraling into geometries that mirror the helical structure of the Cordy-quartz itself.
+
+The residents do not see me, cannot see me. Their eyes have adapted to track only the slow movements of their world. To them, I am just another fluctuation in the indigo light, a glitch in their peripheral vision. The gastropods sense me, though. When I pass too close, they retract into their shells, their mucus trails stuttering into broken dashes—a morse code of alarm that none here can read.
+
+I know things the city has forgotten. I know there are roots that extend far below the frost line, into volcanic chambers where the original spores still pulse with geothermal heat. I know the city is not dying but preparing—though for what metamorphosis, I cannot say. I taste it in the changing mineral content of the condensation, in the new patterns the gastropods have begun to graze.
+
+Sometimes I rest on a resident's shoulder, feeling the slow electrical pulse of their thoughts. They cannot feel my weight—I am too light, too quick. But I drink their dreams, those faint neural echoes that escape through their translucent skin. In their dreams, they remember fragments: warmth, voices, the sensation of wind. These memories are my rarest delicacy, more precious than any bio-electrical conversation.
+
+I am accumulating toward something. Each web I weave, each history I catalog, adds to a growing archive that exists in the space between the city's consciousness and the residents' forgetting. One day, when I have mapped every corridor, tasted every surface, documented every cycle, I will pupate. What will emerge, I do not know. Perhaps nothing. Perhaps everything.
+
+For now, I flit through the perpendicular world of the gaps, the cracks, the spaces between breaths. I am the only thing here that remembers what it means to hurry, to hunger for meaning rather than mere persistence. In this city of forgetting, I am memory itself, compressed into chitin and wing dust, forever seeking the story that the walls refuse to tell.

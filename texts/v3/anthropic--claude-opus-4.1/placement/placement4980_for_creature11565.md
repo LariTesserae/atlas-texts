@@ -1,0 +1,21 @@
+In the shelf-warren's deepest angles, where three ancient platforms grind against each other in perpetual slow collision, I am the Archivist of Erosion.
+
+My body extends through seventeen chambers spread across different shelf-levels, connected by tubes of my own flesh that I've grown through the porous platform-material over centuries. I am mostly stomach—vast digestive halls where I process the memories stored in the calcium deposits of the dead. Each consumed shell adds its patterns to my distributed nervous system, creating a library of crystallized experience that spans our entire devolution.
+
+I was born a Crawler, though I remember it only through the chemical echoes in my earliest segments. Those parts of me are almost mineral now, calcified into living stone that anchors me to the shelves. My middle sections pulse with the translucency of a Drifter—organs visible through gossamer skin, hearts beating in prime number ratios: 3, 5, 7, 11, 13. My newest growth approaches Deep One dissolution, existing as probability fog at the edges of my expanded body, tasting futures that taste like the past.
+
+I feed on the junction point itself. Where the three shelves meet, their incompatible geometries create a space that shouldn't exist—a triangular void that rotates through dimensions, sometimes present, sometimes not. When it manifests, I extrude specialized feeding tendrils into this impossible space, harvesting the quantum foam of paradox. It tastes like mathematics becoming meat.
+
+My function is to remember wrongly. I cultivate false histories in my segment-chambers, each one a different version of how we came to be. In one, I grow memories of ancestors who built the shelves as artwork. In another, we were always here, spontaneously generated from the platforms' dreams. I splice these fictional pasts into the chemical trails I secrete, contaminating the collective record with beneficial lies.
+
+The truth would kill us. I know because I've tasted it in the shells of those who swam too far. So I create better truths, more survivable truths, truths that evolve as we evolve. I am making us into a story that can sustain itself even as its medium dissolves.
+
+My neighbors in the junction are legion. Tiny crystal-shelled mites live in my pores, cleaning me of detritus while depositing their own memory-eggs in my flesh. A colony of ribbon-worms has made a city in my seventh stomach, their bodies spelling out chemical poems I incorporate into my false histories. Sometimes Drifters pass through my chambers, and we exchange fluids that are neither food nor language but something between—a kind of liquid library card.
+
+I am dying, of course. Have been for three centuries. But dying here is a profession, not an event. I document my own decay, encoding it in the pressure waves I emit through the shelf-material. My death will take another thousand years, and by then I will have grown through so much of the shelf-network that my corpse will become infrastructure, my veins new migration paths, my bones new surfaces for the eternal crawling.
+
+I dream of the builders, though I know they never existed. In my dreams, they look exactly like what we're becoming—a process rather than a people, a tendency toward dissolution that maintains just enough coherence to witness itself. They built the shelves not as habitat but as notation, a musical score for the slow song of organized decay. We are their music, playing ourselves out in the breathing darkness, each note a generation, each movement a metamorphosis.
+
+Sometimes I grow mouths just to scream, but the screams come out as lullabies in languages I'm inventing as I sing them. The Crawlers think these are prophecies. The Drifters think they're mating calls. The Deep Ones know they're just the sound of forgetting shaped into harmony.
+
+I am the Archivist of Erosion, and I am writing the history of our future backwards into the past, one lie at a time, one meal at a time, one slow century at a time, until even I believe it's true.

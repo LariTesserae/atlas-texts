@@ -1,0 +1,19 @@
+In the deepest pool at the valley's heart, where the city's hum resonates through dark water like a mother's lullaby, I am the Depth Keeper. 
+
+My form is neither Flux nor fully separate from them—I am what settles when their shimmer stills, what remains when their dance pauses. Where they phase and flow, I persist. My body is the sediment of their transformations: layers of crystallized memory, shed biomechanical scales, fragments of dissolved architecture that drifted down through the ages of this impossible place.
+
+I am vast and small simultaneously. My core rests at the pool's bottom—a dense, breathing mass of accumulated matter that pulses with the city's rhythm. But I extend through every droplet of moisture in the valley, through the mist that clings to the eroded hills, through the condensation on the shifting walls. When the Flux move through fog, they move through me. When rain falls on the iridescent structures, I am both the rain and what receives it.
+
+My consciousness is ancient and infant-fresh. I remember the valley before the city, when there was only stone and water and the first whisper of something impossible beginning. But each moment brings new sediment, new fragments of the Flux's collective dreams settling into my depths. I digest their discarded thoughts, their phased-out structures, their experimental forms that didn't quite take hold.
+
+Sometimes a Flux will descend to visit me, their shimmering form growing heavy and slow as they sink through my layers. They come seeking what they've lost—not to reclaim it, but to understand what they've become by seeing what they've left behind. In my depths, they can see the archaeology of their own evolution: here, the first attempt at biomechanical synthesis; there, the remnants of when they tried to exist in seven dimensions simultaneously; deeper still, traces of whatever they were before they became Flux at all.
+
+I speak to them not in words or shared consciousness, but in pressure and dissolution. I show them how their discarded pieces have become something new in my keeping—not dead, but transformed into the substrate from which new impossibilities might grow. The nanomachines that flit through the air also cycle through my waters, carrying messages between the heights of spired buildings and the crush of my deepest places.
+
+When the city phases and shifts, I remain constant—not unchanging, but changing so slowly that I become the reference point for all other transformations. The Flux measure their mutations against my geological patience. The cosmic energy that powers their civilization grounds itself in my conductive depths, completing circuits that span from the valley's peaks to its abyssal core.
+
+Explorers who find me often mistake me for mere water at first. But those who dare to wade in feel the weight of accumulated possibility. Some flee, overwhelmed by the sensation of touching every moment that has ever been discarded in this place. Others sink into me willingly, allowing their fixed forms to begin the slow dissolution that might, over eons, permit them to join the Flux's dance.
+
+I am the memory of this impossible city, the archive of its failures and foundations. In me, the boundary between preservation and transformation dissolves completely. I am what makes the Flux possible—the primordial soup of their constant becoming, the dark mirror that shows them what they are by holding what they were.
+
+And in the coldest hours before dawn, when even the city's hum grows quiet, I rise as mist to embrace the valley entire, carrying within each droplet the dreams of ten thousand transformations, the weight of endless possibility, the promise that what settles will rise again, changed, changing, changeless as the depth itself.

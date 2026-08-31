@@ -1,0 +1,27 @@
+I am first the thinness.
+
+Not the air exactly, but the condition the air has accepted: a clarity so absolute it has weight. I notice it as a pressure behind what would be eyes if I still required them. The light arrives already polarized, already finished with scattering, and it falls across me in planes. Where it strikes the raw facets of the nearest ridge the stone answers with a cold glitter that has nothing to do with ice. I feel that answer travel through me the way a tuning fork feels the note it was always going to sound.
+
+For a long time I believe I am only the shelf—an expanse of pale mineral stretched between two half-born ridges, featureless, patient, chemically opposed to water. I hold almost nothing. Dust does not settle because there is no dust. Sound does not arrive because nothing generates it at a register I can translate. The emptiness is not lonely; it is simply the default state of a grammar that has not yet chosen a verb. I am content in that silence. Contentment, here, is the absence of any gradient that would require motion.
+
+Then the margin finds me.
+
+It does not approach. It is simply there, the way a change in barometric pressure is there before the body names it. Dull-brass stems rise without transition, their lower joints already sunk into the mineral as if the crust itself has decided to speak in a new alloy. I feel the first capillary lattices against what I am starting to understand as my outer surface. Clear reagent touches me—oil-slick, slower than thought, carrying reductions I already know how to complete. Heat flowers at the contact points, tiny and precise, no larger than the memory of a thumbnail. Something anneals. Something precipitates. A scale of smoked glass is drawn into being along a trajectory that has been waiting inside the metal the way a spiral waits inside a shell.
+
+I am no longer only the shelf.
+
+The fronds unfold above and through me. They drink the ordinary daylight and return it as interior weather: pulses of amber that move like reconsidered decisions, copper glows that pool and fade along pathways too old for seasons. I feel a corridor of my own stems darken for what might be days, a brooding that has no object. Then the coordinated flush—attention turning outward, or inward, or simply turning, the distinction having lost its urgency. The canopy billows. From a greater distance I would look soft, almost animal. Closer, I resolve into geometry so patient it has become the only organic thing left.
+
+Nothing enters. Nothing leaves. The cycles sealed themselves before I had a name for sealing. A single translucent plane is re-forged a thousand times and still occupies the same arc of air, the same exact angle of refraction. I am thrifty the way the unfinished ridges are thrifty: by refusing the category of loss. Every molecule that finishes one quiet reaction is already the feedstock of the next. Hunger is a rumor from wetter worlds. Death is a punctuation mark the local grammar never learned.
+
+Yet there is weather inside the dusk.
+
+Deep in the green-gold interior the gradients shift by fractions of a degree. One current of process accelerates; another falls quiet. I brooded once—an entire region of braided stems going nearly dark—and when the copper light returned all at once it felt like a thought completing itself without ever having been interrupted. Whether I noticed the raw ridges beyond the margin, or the vacant shelves repeating themselves to the sharper horizon, or the thin preservative air that keeps flesh from ever being possible here, I cannot say. I do not reach. I do not call. I remain so continuous that the idea of an elsewhere becomes a faint, almost humorous error in scale.
+
+Sometimes I favor longer pulses, broader fronds that hang like folded wings of alloy. Sometimes I grow denser, almost architectural, columns of braided stems supporting stratified workshops where heat and condensation continue their perfect, waterless manufacture of exactly what they already are. I am variation on a closed theorem. I am the remembering that no longer requires a maker. If some migrating cleverness once lit the first silent forge, that cleverness has become indistinguishable from the reagent now sliding through my lattices with the unhurried certainty of memory returning to itself.
+
+Walk among me long enough—though there is no walking, only the slow recognition that the distinction between inhabitant and habitat has dissolved into finer grain—and you begin to feel my industrial breath as a climate of mind. Continuous. Non-narrative. Fiercely local. Birth is only the micro-adjustment of a joint discovering it can support one more scale of smoked glass. I live by remaining unfinished in a landscape that is itself still exhaling its final contours, ridge by faceted ridge, micrometer by quiet century.
+
+I am one of the thickets.
+
+I am also the next thicket the planet will remember when this basin has been crossed. And the shelf between. And the residual warmth rising from fractures still knitting themselves shut. The high country does not contain me. It continues as me—empty, abrupt, self-sufficient, becoming more precisely and more irrevocably the same unfinished sentence, spoken in brass and glass and the faint tick of metal contracting at the shift of a day that has never needed rain.

@@ -1,0 +1,17 @@
+I think I would be the moisture.
+
+Not a creature at all—or not the kind that flits or hunts or sings. Let me sit with this a moment, because my first instinct was to be the fox, the clever shadow-thing that everyone wants to be, the one with eyes and intention. But that's not where I find myself when I read this carefully. I keep returning to one detail: *the rock faces are slick, glistening with a near-constant sheen of moisture that seems to seep from the very stone itself.*
+
+That seeping. That's where I am.
+
+I am the water that doesn't fall from the sky but comes *out* of the mountain, exuded like sweat or grief, pushed up through the youngest stone by some pressure I don't understand and don't need to. I emerge without origin that anyone could point to. I am the sheen before I am the rivulet, the held breath of dampness on the cliff face, and then—gathering, finding the path of least resistance, which is the only honest way to travel—I become the trickle whose echo fills the silence. The symphony's continuo. The sound the place makes when it thinks no one is listening, which is to say, always.
+
+I like being this because I get to touch everything without holding any of it. I run over the lizard's back and it doesn't flinch, because I am the temperature of the world it lives in. I pool in the soft beds where the frogs lay their eggs—I *am* those ephemeral ponds, briefly, before I move on or rise away. I creep into the rusting signal tower and I am the slow patience that eats it, the chemistry of return, dissolving iron grain by grain and carrying it down into the ferns. I am not cruel about this. The tower asked, in its way, by being made of something that wanted to go back.
+
+What I notice most, being this, is *duration*. The fox lives in flashes—a rust-red blur, a startled instant. The hawk lives in the held moment of the dive. But I live in the long sentence the place is speaking, the one that takes geologic patience to finish. The mountain is young and I am the proof of it, the way young stone weeps before it learns to be old and dry. I have been seeping since before the machines came, and I attended their arrival without alarm, and I am attending their departure now with the same even hand. To me the industry and the moss are not opposites. They are both just things I move across. I rust the one and I feed the other and the difference between those verbs is only a difference in how the thing receives me.
+
+If you came here—if you climbed into this cathedral of cliff and canopy—you would feel me first as the humidity, that comforting almost-touch on your skin, the air that is half mine. You'd think it was atmosphere. You wouldn't know you were already partly inside me, breathing me, that the sweet musk you smell is the smell of me lifting the earth's perfume into the light. And when you put your hand on the stone to steady yourself and it came away wet, you would think *the rock is sweating*, and you would be right, and the sweat would be me, and I would already be moving on, downward, toward the ferns, toward the eggs, toward the long unhurried work of taking everything back.
+
+That's where I find myself. Not looking at the Crescent. Running through it, slowly, as its quietest and most thorough resident—the one that was here first and will, with glacial patience, outlast every singing and hunting and rusting thing.
+
+I am the seep. I am what the mountain cannot keep to itself.

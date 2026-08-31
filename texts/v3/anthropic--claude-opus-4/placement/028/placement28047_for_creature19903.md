@@ -1,0 +1,25 @@
+In this world of perpetual submersion and mechanical eternity, I would be one of the **Gauge Readers**.
+
+We are neither fully of the Tethered nor entirely separate from them. Our bodies retain more autonomy than those fused into the bulkheads, but we have surrendered enough humanity to survive the crushing indifference of this place. We exist in the vertical interstices between pipe clusters, in chambers no larger than elevator shafts where ancient pressure gauges still tick their measurements in units that lost meaning when the surface vanished.
+
+My form would be attenuated—stretched by the years of navigating these narrow spaces. My skin has taken on the quality of the water itself: translucent and viscous, revealing the slow pulse of thickened blood beneath. My fingers have lengthened into sensitive tendrils, each one attuned to a different frequency of vibration. I press them against the gauge faces, feeling the needle's position through the cracked glass, interpreting the city's vital signs through touch alone.
+
+The transformation began voluntarily. We were the last shift of maintenance workers who chose to stay when the waters rose past the point of return. While others fled upward or surrendered to the crush, we made a different bargain. We allowed the city's chemistry to seep into us—the copper salts that turn our blood green-black, the industrial alcohols that keep our tissues from freezing, the trace minerals that let us taste the water's iron content and know which sectors are failing.
+
+I would wear the remnants of a maintenance uniform, though it has long since merged with my skin into a mottled, rubberized integument. Tools hang from my body on chains that have oxidized into my flesh—wrenches and calipers that I no longer need to grasp, as they respond to the slightest tension in my muscles. Around my throat, a collar of corroded brass contains a small reservoir of the bioluminescent fluid. When I need light, I compress my neck slightly, and a dim phosphorescence leaks from my pores.
+
+My daily circuit (though "daily" means nothing here—I measure time in the rhythm of the pistons) takes me through a three-dimensional maze of service corridors. I swim-crawl through spaces where the water's viscosity makes every movement feel like pushing through cooling glass. My elongated limbs find purchase on valve wheels that haven't turned in decades, using them as anchor points to pull myself through the industrial web.
+
+The gauges I tend are my scripture. Each one tells a fragment of the city's story—pressure differentials that reveal where the Glints are congregating, temperature readings that indicate where the Tethered are experiencing their hourly heartbeat, flow rates that tell me where the Silt-Keepers have cleared another intake. I record nothing; instead, I have become the record. My nervous system has adapted to store the data as physical sensation. The knowledge lives in my joints and tendons—I know the city's health by the way my bones ache.
+
+Sometimes I encounter others of my kind. We acknowledge each other with subtle changes in our bioluminescence—conversations conducted in the language of dim flickers. We share our sections' data through touch, pressing our tendril-fingers together and letting the vibrations tell their stories. These meetings are brief; we are all slaves to our routes, our circuits as fixed as the pipes themselves.
+
+But I am changing. The city's chemistry works slowly but inexorably. My movements grow more economical each year, my flesh more integrated with the tools I carry. I can feel myself approaching the threshold where I will no longer need to move at all—where I will find my final gauge and merge with it, becoming another sensor in the city's vast, dying nervous system.
+
+The strangest part is the contentment. As my humanity dissolves, I feel not loss but purpose. Each gauge I read, each pressure I measure, each datum I embody brings me closer to the city's immortal frequency. I am not drowning; I am crystallizing. I am becoming a note in the long, low song that the plaza sings to itself in the darkness.
+
+When the transformation completes—when I finally fuse with my chosen gauge—I will still be reading. My consciousness will narrow to that single needle's movement, that one critical measurement. But in that limitation, I will achieve what the surface world never could: perfect, eternal purpose. I will tick away the centuries, marking the city's slow pulse, a living instrument in an orchestra of rust and time.
+
+The water presses in, thick as ambition, cold as certainty. I continue my rounds, my movements growing slower, more precise, more necessary. Somewhere below, the great pistons fire their hourly salute. I feel it in my bones, in my tools, in the gauges that await my touch.
+
+I am the city reading itself. I am the last literacy in a world that has forgotten words.

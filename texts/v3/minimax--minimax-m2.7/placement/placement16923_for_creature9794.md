@@ -1,0 +1,37 @@
+# On the Memory of Stone
+
+I have lived here long enough that the air no longer tastes of metal. This is not to say the taste has left — it is still there, in every breath, the mineral signature that lowland visitors describe as something between rust and old pennies. But I no longer taste it. I taste through it, the way you see through glass once you have forgotten the glass is there. The city has become transparent to me, or I have become transparent to it, and I cannot say which.
+
+---
+
+When I arrived — and I arrived late, older than the children who survive the adaptation, carrying the breathing rig that most visitors carry — the city was a problem of scale. The altitude pressed against my chest like a hand. The light came from angles that made no sense. The ground shifted beneath me in ways I could feel but not see, a subsonic unease that ran through the substrate and into my bones before my ears could catch the sound of it moving. I thought, in those first weeks, that I would leave. I thought the rig would fail, or my lungs would fail, or some deeper reckoning would come for having entered a place that did not want bodies unprepared for it.
+
+But the body is more patient than the mind. My lungs expanded, slowly, into the architecture of adaptation — more surface, more mucus, more of the trace mineral deposits that would later show in my scans as lines and lattices, the substrate's way of claiming what moves through it. I stopped reaching for the rig at night. I stopped reaching for it during the day. I began to taste the water as water rather than as something that had been processed through seven cycles of filtration and return. I began to hear the city as silence rather than as noise I had not yet identified.
+
+---
+
+There is a corridor in the fourth ring, in a building that predates my arrival by two generations, where the wall carries a fracture pattern I have traced every morning for eleven years. I do not do this intentionally. The corridor is on my route to the processing center where I maintain the heat exchangers, and the light comes through the gap in the composite at the same angle every morning, and the fracture pattern is there, and my eyes go to it the way they go to the face of someone I have known long enough to stop consciously seeing. The pattern has not changed. The fractures have not widened or narrowed. The building has settled around them in a way that suggests equilibrium — a configuration that the substrate found and has held, so far, against the slow grinding that moves everything else.
+
+I know the children trace this wall. I see them sometimes, late in the afternoon when the light has shifted and the fractures show differently, their fingers following lines that to them probably look like rivers, or like the mineral veins they study in their early lessons, or like nothing at all, just the pattern of an old wall that has learned to hold still. I want to tell them that the wall is not still — nothing here is still — but that its movement has become slow enough to read as stillness, the way the rotation of the earth is stillness until you look at the stars.
+
+I do not tell them. They will learn, or they will not. The wall will be here either way.
+
+---
+
+Last month, I walked to the outer rings, past the last of the occupied buildings, into the territory where the condensation pockets gather moisture from air too thin to be called air. I do not do this often. The breathing rig is heavy in the thin atmosphere, and the temperature swings are harder to bear than they were when I was younger, and the water in the pools tastes of things I have given up trying to name. But something pulled me there — not curiosity, which I lost years ago, but a quieter need, the kind that does not have words because it is older than words.
+
+I sat beside the largest pool and watched the film of organisms at its surface. They were moving — or the light was moving, or the water was moving, or all three were moving together in a way that made the distinction meaningless. The organisms did not flee from me. They did not approach. They simply continued whatever they were doing before I arrived and would continue it after I left, and my presence was a weather event to them, a brief disturbance in the chemistry of their world, not unremarkable but not significant. I found this restful.
+
+I stayed until the sun had moved enough that the pool fell into shadow and the water began to taste differently, to release its hold on the moisture that had gathered there through the night and the morning. The organisms would persist or they would not. The pool would reform tonight or it would not. The substrate below would shift or it would not. And I would walk back to the city and enter it through the channels I have memorized and climb the stairs to the apartment I have occupied for nine years, and the walls would breathe around me in their slow rhythm, and I would breathe with them, and the mineral taste of the air would be the taste of my life, and I would not notice it, because I am of it now, in the way the walls are of it, in the way the fractures are of it, in the way the light that falls at wrong angles is of it, arriving from sources I cannot see, casting shadows that do not match what the sun is doing, the way it has always done here, the way it will do until the substrate moves again and Copper Shelf becomes something else — canyon, valley, the floor of a world I will not live to see.
+
+But I am not thinking of that today. Today I am thinking of the corridor, the fracture pattern, the children who trace it without knowing what they are learning. Today I am thinking that the city holds us the way the substrate holds the city — not by grasping but by being large enough and patient enough that what we do within it becomes part of its shape, and what it does within us becomes part of ours. Today I am thinking that this is not metaphor but geology. Today I am thinking that I have become, without noticing, a kind of stone.
+
+---
+
+The old ones say that when you have been here long enough, you begin to dream in mineral. I do not know if this is true. My dreams are of the city — the channels in the blue hour before the geothermal light rises, the freight rails carrying ore from the wounds in the earth, the children chasing light fragments across the obsidian fields in a game I played before I forgot I was playing. I dream of faces I have known and names I no longer remember, and the substrate groans beneath us in the dream the way it groans when I press my palm against a wall and feel for the vibration that means the rock is moving, that the city has shifted, that we have moved with it and are still here, still held, still breathing air that tastes of minerals and old metal and the slow, slow breath of a world that cannot help but move.
+
+I wake, and the taste is there, and I do not taste it.
+
+I wake, and the city is here, and I am in it.
+
+I wake, and the wall is breathing, and I am breathing with it, and the fracture pattern is the same as yesterday and will be the same tomorrow, until the day it is not, and I will trace the new lines, and the children will come after me and trace them too, and the wall will hold us all for as long as it can, which is all any of us can ask of the stone.

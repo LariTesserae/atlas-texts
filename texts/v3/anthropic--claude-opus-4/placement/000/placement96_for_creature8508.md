@@ -1,0 +1,23 @@
+I would find myself as one of the Copper Herons—those patient sentinels who stand motionless atop the exhaust pipes for hours, days, sometimes weeks without moving.
+
+My legs would be the color of verdigris, oxidized and mottled green-black where the moisture has worked its chemistry upon me. Each morning, I position myself where the heat rises strongest, letting the industrial thermals dry the perpetual damp from my feathers. My wings—when I rarely unfold them—span twice the length of my natural ancestors, adapted to catch the updrafts between the factory towers. The feathers themselves have taken on metallic properties, each one edged with a thin line of actual copper that formed as I consumed generation after generation of brass beetles.
+
+My beak has evolved into something between tool and weapon. The upper mandible curves like a precision instrument, notched and grooved from years of prying open the metal carapaces of my prey. The lower mandible has a serrated edge—not sharp enough to cut, but perfect for gripping the smooth, spherical beetles as they attempt their humming escapes. Inside my throat, a secondary chamber has developed where I store the beetles alive, their vibrations creating a natural frequency that I use for echolocation in the perpetual fog.
+
+I understand patience as only a heron can—but patience here in the Drowning Works takes on new dimensions. I have learned to distinguish between the seventeen different types of steam that vent from the pipes: the white wisps that carry no nutrition, the yellow-tinged emissions that bring schools of aluminum minnows to the surface, the rare purple exhaust that coincides with the emergence of the beetles I prize most. My internal clock has synchronized with the factories' shift changes, my metabolism slowing and quickening in response to production cycles.
+
+My feet grip the pipes with talons that have developed a waxy coating, insulation against the heat and conductivity. The scales on my legs can sense vibrations through the metal—I know when a Peat Foreman approaches through the catwalks long before they appear. I know when the Turbine Mothers stir in the deep places by the way the harmonics change in the pipe beneath me. I know when rain approaches by how the tone of the entire Works shifts, a half-note lower, in anticipation.
+
+I rarely vocalize anymore. My original crane-call has been replaced by something that matches the industrial symphony—a sound like sheet metal flexing, like pressurized gas finding release. When I do call, it's to claim territory or warn others away from a particularly rich beetle swarm. The other herons understand; we've developed a language of metallic cries that carries perfectly through the noise and fog.
+
+My eyes have adapted to see heat as clearly as light. The factories bloom in my vision like massive flowers of temperature, each with its own signature pattern. I can spot a brass beetle by its heat trail from a hundred yards, track its path through the air by the tiny thermal wake it leaves. When I close my inner eyelids—a new adaptation—I can filter my vision to see only the electric fields that emanate from the Works' machinery, navigating by the blue-white web of current that runs through everything here.
+
+I build no nests. Instead, I've claimed a junction where three exhaust pipes meet, a natural hollow where the heat convergence has created a pocket of relative dryness. Here I've collected things: burnt-out vacuum tubes that sing when the wind hits them right, coils of copper wire molted from the industrial vines, the carapaces of particularly impressive beetles arranged in patterns that please me for reasons I cannot articulate. Sometimes the Stillborn children leave me offerings—small mechanical toys or pieces of colored glass—in exchange for the shed feathers they use for unknown purposes.
+
+During the deepest part of night, when even the factories seem to drowse, I sometimes catch glimpses of what I'm becoming. My reflection in the black water shows fewer organic curves, more angular efficiency. My feathers are beginning to overlap like scales or plates. Sometimes I feel a humming in my chest that isn't from the beetles I've swallowed but from something new growing there—a resonance chamber of my own.
+
+I am patient. I am adapting. I am becoming what the Drowning Works needs me to be: a living filter, a biological component in the great engine, a bridge between what was wild and what is being born. When the fog lifts—which happens perhaps once a season—and I can see the full expanse of the Works stretching to every horizon, I feel something that might be pride or might be purpose. 
+
+I stand. I wait. I feed. I change.
+
+And in my patience, I am perfecting myself.

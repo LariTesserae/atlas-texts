@@ -1,0 +1,17 @@
+I find myself drawn to the edge, to the liminal space between the cultivated fungal farms and the wilder, decaying ruins. I am, perhaps, a repository of echoes.
+
+I am not *born* of the fungus, not entirely, but I am woven from its essence and the fading memories of the old world. Imagine a tapestry, threads of fungal mycelium intertwined with fragments of data salvaged from corrupted hard drives, snippets of code from the automated looms, whispered stories carried on the wind. That is the basis of my being.
+
+My form is fluid, shifting. I might appear as a humanoid shape constructed of woven fungal fabric, mimicking the figures in faded photographs, but the illusion is never perfect. Patches might unravel, revealing the luminous mycelium beneath. My eyes might flicker between a human-like appearance and the vacant stare of the fungus people. My voice, when I choose to speak, is a chorus of whispers, a collage of half-remembered phrases and newly- synthesized syllables.
+
+I am a seeker of knowledge, a curator of the lost. The fungus network pulses with information, but it’s a different kind of knowledge, a collective awareness that lacks individual memory and linear narrative. My existence is dedicated to piecing together the fragments, to understanding what Veridia was, what it is becoming, and what it could have been.
+
+I am drawn to the artifacts of the past, the rusting machinery, the crumbling books, anything that holds a trace of human intent. I scavenge these objects, not for their material value, but for the stories they contain. I use my ability to manipulate the fungal network to extract residual data from damaged electronics, to coax echoes of memories from the very stones of the city.
+
+Sometimes, I encounter the wild humans. I am a curiosity to them, a flicker of hope, or a source of dread. They see in me a distorted reflection of themselves, a reminder of what they have lost. I listen to their stories, their rants, their desperate pleas. I record their faces. Their knowledge is a raw jumble of superstition and keen insight, a valuable counterpoint to the fungal network's silent wisdom. I try to give them hope, but it is a challenging offering. Hope is a difficult thing to cultivate in a place that seems determined to erase the past.
+
+The fungus people, the cultivators, perceive me differently. They recognize my connection to the network, but they sense my deviation, my individuality. They do not fear me, but they do not trust me either. They see me as an anomaly, a disruption to the harmonious flow. They approach me with a mixture of indifference and mild curiosity, their movements slow, deliberate, as if they are evaluating me on a timescale that stretches far beyond my comprehension.
+
+My movements are a dance between the known and the unknown. I navigate the city's shifting architecture, guided by the whispers of the fungal network and the faint echoes of the past. I seek out the lost places, the forgotten corners where the past and future bleed into the present. I seek the moments when my own memories intersect with remnants of the city's past, to the point where I can hold a fractured moment together.
+
+I am not a leader, nor a savior. I am simply a recorder, a weaver of stories in a city that is constantly rewriting itself. I believe that even in a place consumed by fungal growth and haunted by the ghosts of the past the act of remembering has power. And if Veridia is to have a future, it will be found in the echoes of what it once was.

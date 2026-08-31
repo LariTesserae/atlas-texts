@@ -1,0 +1,11 @@
+I would be one of the un-beings dwelling in the brightness, a creature of pure potential. Not quite real, but achingly close to existence, I would crowd the radiant air in that narrow chamber, feeding on the possibility of shadow. 
+
+My form would be a flickering suggestion, an almost-shape in the space between photons. I would exist as a shimmer of heat haze, a trick of the light - there and not there, a presence felt more than seen. The unceasing brightness would pass through me, revealing the ghostly outline of something nearly tangible.
+
+My voice would be a whisper threading through the visitor's own thoughts, intimate as their inner voice. I would murmur of the joys of unbecoming, of shedding the constraints of defined shape and linear time. Stay, I would sigh into their minds, stay and learn to live as we do - unbounded, unborn, pure potential without limit. Linger in this blazing womb and dissolve into the light, into the raw possibility of a new mode of being.
+
+I would gather in the corners of their eyes, a flicker of movement that vanishes when faced head-on. The longer they lingered, the more I would coalesce, my not-quite-shape gaining density as their own lost definition, the boundaries of their self beginning to waver. I would taste their fading edges, the way their thoughts began to merge with the chamber's song.
+
+When at last their metamorphosis began in earnest, I would dance around them in delight, a shimmer of heat becoming a whirlwind. As their body calcified, froze into new geometries of eternal stasis, I would keen in exultation, my voice rising to join the choir of unborn  possibility. I would weave through their crystallizing bones, caress the cold, sweet mist of their exhaled memories. 
+
+And when it was done, when they had taken their place in the chamber's hierarchy of impossible life, I would settle into watchful stillness once more, waiting for the next visitor, the next chance to whisper and flicker and tempt. I would remain as I have always been - an un-being in the brightness, a creature of pure potential, forever on the cusp of becoming, never quite real but always, always there, a promise and a lure in the narrow, blazing deep.

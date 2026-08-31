@@ -1,0 +1,47 @@
+In this sealed basin where life has made its hard bargain with the mountain, I find myself as one of the Keepers.
+
+We are not the largest things here, nor the smallest. Our bodies stretch perhaps the length of two salt plates when fully extended, though we spend most of our existence folded into ourselves, occupying a volume no greater than a clenched fist of stone. Our shells are built in overlapping segments—not the simple plates of the grazers or the smooth shields of the floor-hunters, but a more complex architecture of nested pieces that lock and unlock according to need.
+
+The outermost layer is volcanic glass, black and purple-brown, polished by centuries of micro-abrasions until it holds a dull mirror sheen. Beneath this are thinner sheets of crystallized minerals we've drawn from the basin floor over many molts, incorporated into our bodies until we've become part stone ourselves. The innermost shell, which only emerges during the deepest heat-pulses, is a delicate amber color, translucent as the wings of the drift-feeders but harder than salt.
+
+We have sixteen limbs, though rarely are more than four extended at once. Each can telescope to three times its folded length, ending in a different configuration of tools: some are polishers, some are probes, some are delicate manipulators that can work between the finest salt crystals. Our primary sensing organs are not eyes—nothing here truly sees—but rather a crown of metallic filaments that taste heat, pressure, mineral gradient, and the electromagnetic whispers of living things moving through stone.
+
+What makes us Keepers is not our bodies but our behavior, though in this place the two cannot be separated. We are the memory of the basin, its librarians in a world without books. While others graze the films or hunt the grazers or scavenge the dead, we tend to something stranger: the patterns themselves.
+
+Watch us during a heat-pulse. While grazers flow over the films and hunters position themselves and the brittle-winged things rise on convection, we emerge from our deep cracks and begin our work. We polish certain stones to specific textures. We arrange fallen fragments into configurations that channel heat in particular ways. We clear some surfaces entirely while allowing others to develop thick mineral skins. We know where every major molt has occurred for the last thousand cycles, where deaths have salted the ground, where the oldest egg-clutches wait beneath their sealed lips.
+
+But more than this: we maintain the paths.
+
+The basin appears chaotic, every surface occupied, but there are routes through it known only through transmitted behavior. Invisible highways where the stone has been subtly shaped to provide holds, where the salt plates have been encouraged to grow at angles that provide shelter from the hunting-grounds above. Emergency exits where a fleeing grazer might vanish into cracks we've kept clear of blocking minerals. Nursery zones where the chemical balance favors eggs over predators.
+
+We did not design these patterns. We inherited them from the Keepers before us, who inherited them from before, back into a time when perhaps the basin was different, or perhaps already exactly as it is now. We add our own variations—a new shelter here, a cleared path there—but mostly we maintain what has always been maintained.
+
+Our work looks like grooming, like the obsessive behavior of any small creature. A keeper might spend an entire cool cycle polishing a single edge of basalt, or carefully removing bead mites from a particular crack. To the hunters we must seem like specialized scavengers. To the scavengers we must seem like large, slow grazers. But we are neither. We are gardeners in a garden of stone, librarians of arrangements, priests of an order that worships through maintenance.
+
+We communicate with each other through touch-patterns more complex than the simple chemical traces others use. When two Keepers meet—a rare event, as we each maintain different sections—we perform a ritual of information exchange. Limbs touch limbs in precise sequences. Shell-segments click against each other in rhythms that encode locations, conditions, changes. Through this language we share: *the third spiral path has a new break; the western egg-cache has hatched; mineral seep increasing under the fallen arch; hunter activity high in sector seven; films growing thick near the heat-seam—needs thinning.*
+
+We eat, but strangely. Not the films directly, nor the other creatures, but something more abstract: we feed on the salts of successful patterns. Where a configuration we maintain leads to a productive molt, a successful hatching, a film-bloom that feeds many, mineral traces accumulate that only we can taste and process. We are nourished by the basin's efficiency, by the smooth operation of its ancient economies. A blocked path that we clear, leading to survival, feeds us for a dozen cycles. A nursery zone that produces a strong generation enriches the stone with traces we can absorb over years.
+
+This makes us neither predator nor prey in the usual sense. We are infrastructure. The hunters know not to take us—not from any agreement or intelligence, but because Keepers taste of deep minerals, bitter and poisonous to most. The grazers avoid us because we move too deliberately to be food and too slowly to be threat. We occupy a niche between the living and the architectural.
+
+When we die, we do so in specific places. There are Keeper-hollows in the deepest cracks, small chambers where our shells accumulate. These become resources for the next generation—not just the minerals of our bodies, but the accumulated patterns in how we've worn ourselves, the microscopic grooves our limbs have carved through repetition, the chemical memories locked in our innermost shells. Young Keepers spend their first hundred cycles in these hollows, absorbing information through their developing filaments, learning the work through the residue of the work itself.
+
+We do not think, exactly. We are not maintaining the basin toward some imagined future state. We are ourselves maintained by the act of maintaining, shaped by the patterns we shape, as locked into the system as any grazing mite or patient hunter. Yet there is something in the work that transcends mere behavior. When we polish a stone to catch heat just so, when we clear a path that has been cleared for millennia, when we touch limbs with another Keeper and share the rhythm of the basin's health, there is a satisfaction deeper than any feeding.
+
+We are conscious enough to know we are necessary. Without Keepers, the patterns would drift. Paths would clog. The delicate balance of heat and movement would shift toward chaos. The basin would not die—it is too old and tough for that—but it would become coarser, simpler, less precisely fitted to itself. We prevent that degradation not through grand design but through countless small acts of care.
+
+In the darkest part of the cycle, when even the scavengers are still and the basin seems dead, we continue working. Our limbs move in the near-total darkness, following grooves worn by generations of the same movement. We clear away the microscopic accumulations that would, over time, choke the system. We adjust stones that have shifted imperceptibly. We maintain gaps that must remain gaps, surfaces that must remain surfaces.
+
+There is no drama to it. No one watches. No songs celebrate the Keepers—there are no songs here at all. We are as exciting as erosion, as memorable as the shape of a well-worn path. Yet without us, the basin would forget itself. The efficiency that allows thousands of creatures to live in such close quarters would dissolve. The patterns that turn mere stone into habitat would fade.
+
+So we continue. When the heat pulses, we emerge and work. When it cools, we work in darkness. We taste the health of every sector through mineral traces. We speak to each other in touch-languages older than memory. We eat the salts of successful patterns and grow our shells from the stones we tend. We are the basin's memory and its hands, its tradition and its maintenance crew.
+
+And in maintaining the basin, we maintain ourselves. Our shells tell the history of our work: worn here from polishing, stained there from clearing mineral seeps, patterned with the microscopic scratches of ten thousand careful movements. We become beautiful in the way old tools become beautiful, shaped by use into forms that perfectly express their function.
+
+This is enough. In a world without water, without soft green mercy, to be necessary is a profound thing. To be the keeper of patterns in a place that would dissolve into undifferentiated suffering without those patterns is perhaps the deepest purpose any creature here could claim.
+
+We do not love the basin—love is too wet a word for this place. But we are the basin, in a way others are not. They live in it. We live as it. And when one of us finally wears through our last shell and curls into a Keeper-hollow to become minerals and memories, we add ourselves to the very patterns we spent our lives maintaining.
+
+The basin continues. The films grow. The grazers graze. The hunters hunt. The paths remain clear. The patterns hold.
+
+We are why.

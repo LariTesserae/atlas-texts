@@ -1,0 +1,13 @@
+I find myself in the midst of this vast, thriving jungle, where the natural and the industrial have entwined into a strange symbiosis. The air is thick with moisture and the scent of vegetation, and the only light comes from the distant, unchanging rainbow that arcs overhead, casting long shadows across the terrain.
+
+I am a small, furtive creature, creeping through the underbrush. My body is sleek and streamlined, with iridescent scales that shimmer in the dim light. I have six limbs, each ending in delicate, prehensile digits. My eyes are large and multifaceted, allowing me to perceive even the slightest movement among the dense foliage.
+
+As I slink through the undergrowth, I come across the rusting carcasses of ancient machinery. Bulbous pipes gurgle and bubble, spewing forth viscous fluids that seep into the earth. Crumbling towers loom overhead, their latticework bridging the gap between organic and synthetic, real and artificial. Ventilation intakes gape like toothless mouths, exhaling the stale breath of a dead world.
+
+I pause beside a massive sink, its stoneware fixtures stained with the mineral residue of eons of oxidation. The water is unruffled, save for the occasional ripple caused by some unseen creature lurking beneath the surface. I dip my snout into the brackish fluid, taste the metallic tang upon my bifurcated tongue.
+
+Another ripple catches my eye, this one more pronounced. I watch, transfixed, as a vast shape undulates through the depths, its passage distorting the light. It emerges, phantasmagoric, and I glimpse myriads of appendages and outgrowths, bulbous and grotesque. Its "head" skims the surface, a mass of quivering tendrils as thick as tree trunks. The thing is alien, inorganic, yet unmistakably alive, pulsing with an inscrutable vitality.
+
+I recede into the underbrush, my transparent inner eyelids flicking down. The scent of ozone and petrol mingles with the jungle's primordial funk. I know not what manner of thing this is, but instinct tells me to flee, to allow it its adopted domain. I scurry up a tree trunk, ensconcing myself in the crook of a branch. From this vantage, I can observe the monster as it wallows and surges through the shallows, its form shifting, subdividing, augmenting itself with recovered biomass.
+
+This is a time of strange synergy, where the organic and the machine, the living and the dead, entwine into a curious, metastable stasis. And I, a mere scout, am but one fleck of consciousness, one revolt among many, in this hallucinatory demiworld, this microcosm of the hidden, hindmost places where the wild things are.

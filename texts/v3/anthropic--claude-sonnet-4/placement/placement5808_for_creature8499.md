@@ -1,0 +1,25 @@
+**Where I would find myself:**
+
+I would be suspended in the middle reaches of the settlement, perhaps three or four levels up from the singing pool, where the rope bridges intersect in a small platform garden. This is where the Mist Shepherds maintain their observation post—a living bower woven from silver vines where the salamander-like creatures come to rest during the day's deeper silences.
+
+From here, I can feel the mountain's pulse most clearly through the soles of my feet, transmitted up through the carved stone platform. The morning condensation collects in the cupped leaves around me, each drop a tiny lens reflecting the filtered light that penetrates the canyon's perpetual mist. Below, the terraced levels cascade like frozen waterfalls of habitation, while above, the mysterious upper reaches disappear into cloud-veiled mystery.
+
+This middle space is perfect for watching—close enough to the community's heart to feel its rhythms, high enough to sense the mountain's deeper breathing, positioned where the pale creatures I tend feel safe enough to reveal themselves. The platform sways gently with the constant soft wind, a motion so subtle and constant that stillness would feel like violence.
+
+**What I would be:**
+
+I am **Kess**, a Mist Shepherd who came to the calling late in life. Unlike the other Lithosync who were born to this vertical world, I arrived as an adult refugee from the lowlands, drawn by dreams I couldn't explain—visions of silver pathways and living stone that called to me with voices like distant rain.
+
+My transformation has been slower, more conscious than those who grew up breathing the mountain's mineral-heavy air. My hair is still darkening with accumulated moisture and metal, only beginning to catch light like the settled inhabitants, and my eyes hold just the first threads of copper. But my hands—my hands learned the stone-speech quickly, as if they had always known how to listen through touch.
+
+The mountain's creatures trust me because I remember what it was like to be outside this dreaming. I carry the gentleness of someone who chose to belong rather than simply accepting it as natural law. The salamander-beings flicker around my platform like living quicksilver, their pale forms sometimes coalescing enough for me to feel their cool, mineral touch on my palms. Through temperature-shifts and bioluminescent pulses, they tell me stories of caverns forming in the deep places, of crystal gardens blooming in chambers no Lithosync has yet discovered.
+
+I serve as a translator between the settlement and its most mysterious inhabitants. When the pale creatures grow agitated, their flickering becoming rapid and their cool touch turning urgent, I help the Stone Whisperers understand what changes the mountain is contemplating. Sometimes I dream their dreams—swift, alien visions of flowing through solid rock, of spaces that exist only in potential, of the mountain's slow satisfaction as new chambers finally breach into breathable reality.
+
+My dwelling is a small alcove that the mountain offered shortly after my arrival, as if testing my commitment. The walls still weep more heavily near my sleeping niche, and I've learned that the mineral content changes based on my emotional state—running clearer when I'm at peace, taking on a slight phosphorescence when I'm troubled. The chamber is growing slowly around me, responding to my presence like a shell forming around a pearl.
+
+In the mornings, I tend the platform gardens where the mist-creatures rest. In the afternoons, I practice the deep meditation that allows me to partially phase into the mountain's substance—not as completely as the Threshold Dancers, but enough to sense the vast network of potential spaces that thread through the rock like a three-dimensional constellation. In the evenings, I join my voice to the settlement's songs, learning the harmonic frequencies that encourage certain types of crystal formation.
+
+My greatest joy comes from the moments when the pale creatures allow me to see through their impossible senses—to perceive the mountain not as solid matter but as a slow liquid of possibility, constantly reshaping itself according to dreams I'm only beginning to understand. In these instances of shared consciousness, I feel the profound rightness of having found my place in this vertical world, this city built from patience and the courage to love what is always becoming something else.
+
+I am still learning to read the mountain's tears, still discovering which mineral traces predict which types of growth. But every day I understand more deeply that I was called here not despite my outsider origins, but because of them—to serve as a bridge between the mountain's ancient dreaming and the newer dreams that refugees and wanderers bring to its living embrace.

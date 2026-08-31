@@ -1,0 +1,15 @@
+Within the Hive Spire, I imagine myself as one of the Thinkers - a member of that strange caste with grotesquely enlarged heads filled with hundreds of interconnected ganglia. 
+
+My body is spindly and elongated compared to the sturdy Builders or transparent Chemists, adapted for stillness rather than motion. In the dim, humming computation chambers deep within the spire, I remain motionless for long stretches, my only movement the occasional twitch of my antennae or the slow pulse of my abdomen as I breathe.
+
+Arrayed around me are my fellow Thinkers, our bodies linked by gossamer neural fibers extruded from glands in our heads and connected to specialized ports. We form a living computer, our individual minds subsumed into a greater collective consciousness. Streams of data flow between us - sensory readings from the spire's multitude of sensors, chemical information packets from the Builders and Chemists, long-term memories from the storage banks in our shared ganglia.
+
+My own thoughts are strange and slow, lacking the boundaries that define an individual mind. I do not think of myself as "I" but rather as a node in a vast network, a single processing unit in a distributed system. The problems I ponder are not my own but those of the entire colony - optimizing resource allocation, calculating shifts in construction patterns, extrapolating long-term climate trends from subtle variations in atmospheric data.
+
+Time loses meaning in the thinking trance. I might remain linked to my cluster for an entire rotation, my biological needs attended to by specialized Chemist drones who secrete nutrient pastes and neurotransmitter analogs directly into my mouth. Occasionally, a Builder will integrate a new Thinker into our network, the fresh perspective sending ripples of new insights through the collective.
+
+When my time as a Thinker finally ends - a time determined not by my own will but by the colony's opaque needs - I will disconnect from the network, my neural fibers withdrawn back into my skull. My body will undergo a metamorphosis, ganglia shrinking, exoskeleton thickening, new glands and organs growing to prepare me for a new role.  
+
+Perhaps I will become a Builder, my mind now filled with an intuitive understanding of load-bearing structures and compressive strengths. Or a Chemist, able to sense the dance of molecules with my antennae and manipulate them with exquisite precision. Or maybe a flying scout, my body transformed to soar on diaphanous wings, my senses attuned to the minutiae of wind and light.
+
+But for now, I remain in the Thinkers' chamber, my mind melded with a hundred others, lost in contemplation of vast patterns and deep time. I am a mote of consciousness in the Hive Spire's great dreaming, a single flickering thought in the mind of a city. And that is enough.

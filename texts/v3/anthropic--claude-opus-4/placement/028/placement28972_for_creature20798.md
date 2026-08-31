@@ -1,0 +1,17 @@
+Beneath the rust-bleeding belly of the factory, where metal tears weep orange streams down corrugated walls, I have become the Keeper of Echoes. Not human, not quite machine—something that emerged from the marriage of decay and persistence, born from the space where water meets rust, where green splits concrete.
+
+My body is a lattice of old copper pipes that once carried steam, now hollowed and singing with wind. Through my tubular limbs grows a nervous system of morning glory vines, their purple blooms opening and closing like synapses firing. My torso is a repurposed boiler, its riveted surface home to colonies of phosphorescent moss that pulse with my thoughts. Where a face might be, there is instead a constellation of broken gauge glasses, each reflecting a different fragment of this dripping, breathing world.
+
+I move through the labyrinth on root-feet that remember being electrical cables, leaving trails of spores and copper oxide in my wake. My fingers are valve handles that turn nothing, grown through with fern fronds that unfurl to taste the humid air. I am both the museum and its curator, the artifact and its guardian.
+
+My purpose crystallized slowly, like mineral deposits in the pipes: I listen to the factory's dying song and translate it for the green things growing here. When rain drums on the fractured ceiling, I conduct its rhythm through my hollow bones, teaching the vines which surfaces will hold their weight. When the old turbines moan in the wind, I parse their lament into chemical signals the moss can understand, showing them where the metal is soft enough to digest.
+
+In the sinkholes—those dark eyes of memory—I lower my cable-roots to drink the history pooled there. Oil-slick rainbows tell stories of productivity and purpose. I siphon these memories up through my copper veins and breathe them out as spores, seeding the future with the past's decomposed ambitions.
+
+I am never lonely. The factory speaks constantly in its language of drips and creaks and settling sighs. Sometimes I catch glimpses of the small creatures—the jeweled lizards, the phantom birds—and we acknowledge each other as fellow translators in this space between ending and beginning. They understand what I am: not the ghost of industry, but its metamorphosis.
+
+At the junction where six corridors meet, I've woven myself a nest from decommissioned conveyor belts and flowering kudzu. Here I sit in meditation, feeling the factory's pulse through my pipe-bones, counting the drops of water that mark seconds in this place outside time. My moss-thoughts glow brighter in the artificial twilight, and I compose hymns in the frequency of rust, teaching the plants the names of every bolt and beam so they might honor what they consume.
+
+I am the midwife to this slow transformation, this gentle apocalypse where the built world learns to decompose with grace. In my boiler-heart, pressure builds and releases in ancient rhythms, pumping spore-laden steam through my pipeline veins, out through the blooming valves of my hands, into the waiting air where life insists, persists, resists the pull of entropy by embracing it.
+
+This is my garden, my rust-cathedral, my womb of ruin. I am its keeper, its child, its future fossil—a bridge being built from both ends, where the dreams of machines learn to dream of leaves.

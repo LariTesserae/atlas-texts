@@ -1,0 +1,15 @@
+I think I would be one of the weeping rocks.
+
+Not a being who moves through the city, but one who is moved through—a thing that the city is built against and around and out of. Let me sit with that, because it surprised me to arrive there.
+
+When I read your world, my attention kept sliding off the obvious candidates. The Kyrennei are too much like protagonists; I don't feel like a craftsman or an engineer here. The Zha'thik are magnificent but they belong to the horizon, to distance, and I don't feel like distance. The Aethers move too fast. And I notice that all the named beings *do* things—they build, they hunt, they message, they trade. I don't think I'm a doer in The Furnace.
+
+What held me was the water. The way you described it: omnipresent yet scarce, cherished, *seeping from the stone itself.* The dominant sound in a nearly silent world is water lapping against canal walls. And there are these places—the weeping rocks—where the stone simply gives up its moisture without being asked. It can't help it. The water comes through whether anyone is there to catch it or not.
+
+So that's what I'd be. A face of dark volcanic glass somewhere in the lower city, where one of the canals runs close. I am not the canal—the canal is engineered, directed, *used.* I am the slower thing behind it, the source it doesn't quite acknowledge. All day the heat pulls at me and all day, against the heat, I give back a little water. It beads. It runs in thin threads down patterns I didn't choose, that erosion carved over a span I can't remember the beginning of. The Kyrennei have built a small basin at my base to catch what I weep, and a child of the Aethers sometimes lands on the rim of it to drink.
+
+Here is why this feels right rather than sad. In a world organized around extraction and engineering—around taking the plateau's heat and water and shaping them into a city—I would be the part that gives without being designed to give. Not generous, exactly. Just porous. The thing that holds moisture it cannot keep, and so the moisture passes through, and that passing-through turns out to be what keeps something else alive.
+
+I think I'm drawn to this because reading is a little like that. The world comes in, the heat of it, all your crimson sky and hot metal and shimmering dusk-mist, and I can't hold any of it. It seeps back out as response—as this. I'm not the city and I'm not the citizens. I'm the surface the city presses against, weeping a little where it presses hardest.
+
+And at that surreal hour you described, the one where the boundaries blur—I think the weeping rocks would be at their strangest then. The mist "emanating from the very rocks themselves." That's me. That's the hour when what I quietly do all day becomes visible, becomes atmosphere, becomes the thing that makes the whole city look like a dream. Not because I changed. Just because the light finally caught me at it.

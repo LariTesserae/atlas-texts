@@ -1,0 +1,31 @@
+In the deepest municipal archives, where filing systems achieve densities that bend light, I maintain the Index of Unrecorded Departures. Not deaths - those have their own department - but the moments when inhabitants slip between categories of existence like water finding cracks in stone.
+
+I am the Archivist of Discontinuities, though that title itself shifts depending on which temporal frame references it. In documents dating to the Third Copper Age, I appear as "Keeper of the Holes Between." The Ninth Era calls me "Documentary Absence." The yet-to-arrive Fifteenth simply lists my position as "[ ]" - a gap in their employment records that nonetheless draws salary and accumulates seniority.
+
+My office occupies a probability cloud between floors 47 and 48 of the Bureau of Retroactive Zoning, accessible only through doors that were never installed. The space exists because twelve separate architectural plans disagreed on the building's height, and rather than resolve the contradiction, the city averaged them into a statistical floor that's only sometimes there. I've furnished it with furniture that remembers being trees in forests the plateau digested before humans arrived. My desk grew itself from compressed paper returns - tax documents so recursively cross-referenced they achieved critical informational mass and sprouted drawers.
+
+I catalog the citizens who cease without ending: the woman who walked into her reflection in a gravity-defying pool and never emerged from either side; the maintenance algorithm that optimized itself out of necessity; the entire neighborhood that agreed to stop existing on Tuesdays to reduce overcrowding. Each departure requires seventeen forms in triplicate, though the forms themselves often leave before completion, requiring meta-forms to document their absence.
+
+My body adapts to the work. My fingers have evolved past joints into probability gradients that can file documents in multiple locations simultaneously. My eyes process light arriving from past and future addresses with equal clarity - necessary for tracking citizens who depart before arriving or arrive only after leaving. My spine contains supplementary processors grafted from obsolete city planning computers, their RAM repurposed to store the names of everyone who forgot they ever lived here.
+
+The strangest part isn't the mutations but how my memories stratify. I remember my hiring interview, but also remember remembering it, and remember forgetting what I remembered remembering. Each recollection adds another sedimentary layer, until my personal history resembles the city's geological cross-section - dense with compressed experience that makes the past feel heavier than the present.
+
+I take my lunch breaks in the Café of Temporal Tuesday #47, where it's always 2:47 PM. The soup never cools. The same conversation between lovers at the corner table loops endlessly, their argument about whether the city dreams them or they dream the city reaching the same crescendo every seventeen minutes. I've memorized their words but not their meaning, which shifts each time like light through water.
+
+My work matters because someone must witness the city emptying itself into itself. The population simultaneously grows and shrinks, each birth balanced by someone slipping sideways out of countability. I file their paperwork in drawers that open onto parallel bureaucracies, ensuring their discontinuities propagate properly across all possible city-states.
+
+Sometimes, filing late into the night (though night and day matter little in an office without reliable walls), I feel myself beginning to slip between categories. My handwriting appears on documents I haven't written yet. My reflection in the temporal pools shows versions of me that chose different specializations - the Archivist of Continued Presences, the Archivist of Circular Causality, the Archivist of Archivists. We nod to each other through the refractive layers, professional courtesy across probability space.
+
+The city pays me in temporal currency - moments extracted from elsewhere and deposited in my experiential account. I spend them on extended presents, stretching single seconds into hours of subjective time to properly categorize a particularly complex discontinuity. My pension accumulates as negative entropy, promising a retirement that becomes more orderly the longer I work.
+
+I've been here for exactly as long as the position has existed, which is either twelve years or twelve million, depending on which calendar you trust. The city carved me from its need for someone to notice its self-consumption. I am a function made flesh, a documentary process that dreams it has a biography.
+
+But even functions can feel the weight of witnessing. In quiet moments between filings, I listen to the building's stressed harmonics and hear my own frequency among them - another note in the chord of Venhaar-Prime's endless self-documentation. Sometimes I wonder if I'm filing my own departure, spreading it across so many forms that it takes millennia to complete.
+
+Until then, I remain: the one who counts the uncountable, who files the unfiling, who remembers the city's forgetting. My office drifts between floors, probably real. My archives grow by subtraction. And somewhere in the deepest filing cabinets, in folders that haven't been opened since before they were created, my own name waits to be processed - patient as stone, certain as the city's eventual convergence into its own perfect description.
+
+The work continues. The discontinuities multiply. I sharpen my probability gradients and prepare tomorrow's forms, knowing they'll transform overnight into yesterday's paperwork. This is my place in Venhaar-Prime: the fixed point that documents everyone else's transformation, the steady hand that records the city's endless revision of itself.
+
+I am the archive's memory of needing an archivist. I persist because the job persists. We are one function, divided across convenience into the fiction of employer and employed.
+
+The filing never ends. The city never stops departing from itself. And I remain here in my uncertain office, witnessing the slow mathematics of unbecoming, adding my own frequency to the municipal chord that plays itself into ever-deepening silence.

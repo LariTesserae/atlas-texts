@@ -1,0 +1,13 @@
+I would be one of the Listeners—a child born with ears attuned to frequencies others cannot perceive. In the Grotto Sprawl, where most sounds are swallowed by hungry stone, I learned early that the city speaks in registers below hearing, in vibrations that travel through rock and bone.
+
+My dwelling is little more than an alcove carved behind a half-finished archway, but I've chosen it for the way it amplifies the stone's whispers. Here, pressing my palms flat against the walls, I can feel the entire sprawl's percussion—every chisel strike rippling outward like rings in water, every new block settling into place with a deep, satisfied sigh.
+
+The other inhabitants think me strange, this thin child who abandons her apprenticeship to press her ear against random walls, who maps the city not by its visible passages but by its acoustic shadows. They don't understand that I'm learning the Sprawl's true language—the way stress fractures sing in high, tight voices, warning of instability; the way good stone hums with contentment when properly placed; the way water speaks of hidden channels and future grottos not yet born.
+
+Sometimes I guide the chiselers, wordlessly taking their hands and placing them against the stone where I hear potential. They've learned to trust these silent directions, even if they don't comprehend them. A few of the older workers have started bringing me to new sites, watching as I walk the perimeter, listening for the stone's grain, for the paths it wants to become.
+
+At night, when the work finally stills, I lie with my whole body pressed against the floor of my alcove. In these hours, I hear the Sprawl's dreams—the slow, geological ambitions of limestone remembering when it was seafloor, the patient plans of water seeking its level, the collective unconscious of ten thousand blocks learning how to be a city. I hear the future grottos calling out to be born, the cathedral spaces that will exist in a hundred years, the fountains that will sing when the right channels finally connect.
+
+The other children think I'm playing games when I trace invisible architectures in the air, but I'm drawing what I hear—the city that exists in parallel to the one we see, the one made of sound and intention and the persistent faith of stone-workers who build without knowing quite what they're building toward.
+
+This is my gift to the Grotto Sprawl: to be its acoustic memory, its interpreter of frequencies, the one who ensures that what we build in ignorance still harmonizes with what the stone knows it must become.

@@ -1,0 +1,15 @@
+In the world drawn from Vetch-Wend, I would find myself as one of the **Trough-Makers**.
+
+Not the original one who cut that first basin with iron tools carried up on aching shoulders—but one of the many who came after, part of an unspoken tradition that spans centuries. We are the ones who understand the grammar of the place: that Vetch-Wend is not meant to be inhabited, only passed through, and that our purpose is to make that passing possible for others.
+
+I would be the one who, three hundred years after the first trough was cut, climbed the long path carrying a small chisel wrapped in oiled leather. Not to drink—there are easier places to find water. But because I had drunk there once, years before, in a moment of desperate thirst after my first climb, and understood then what gift had been given. The trough was half-clogged with moss, the channel silted. I spent a day clearing it, re-cutting where the stone had worn smooth, ensuring water would flow clean for another century of climbers.
+
+We are a loose guild that has never met. We know each other only by our work: the careful maintenance of the wall, the straightening of the silver post, the small shim-stones placed under the cairn when it begins to lean. Some of us carry up a single shaped stone to replace one cracked by frost. Others bring iron tools to refresh the grooves that time and moss soften. We are united by a shared understanding: that the pause Vetch-Wend holds is precious precisely because it is temporary, and that certain architectures must exist to hold that pause safely.
+
+I would know the echo in the cloud. Would have stood at the lip in the quiet hour and heard my own breath return, delayed. Would have felt the terrible invitation of that level water. And would have chosen, as all Trough-Makers choose, to turn that dread into service—to ensure that when the next climber arrives, gasping and uncertain, they find what we all found: evidence that humans have been here before. That they paused. That they chose the stone over the cloud. That they survived the choosing.
+
+We are the ones who understand that some places exist not to be possessed but to be stewarded. That the greatest inhabiting is sometimes in the refusal to inhabit. That there are locations in this world meant to remain forever threshold, forever question, forever the held breath before decision.
+
+I would be old now, my knees too weak for the climb. But I would know that somewhere on the shelf, the trough still channels clear water, the cairn still stands, the post still leans at its patient angle. And I would know that eventually another will come, will drink, will understand, and will return years later with tools and the particular patience of those who make gifts for strangers.
+
+We are the inhabitants who never lived there. We are the ones who touched the stone.

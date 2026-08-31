@@ -1,0 +1,19 @@
+I find myself in a **structural fissure**—a crack in the western wall of the High Elevation, roughly halfway between the obsidian ceiling above and the paved floor below. I am not a visitor floating through the open water; I am part of the architecture itself. I have grown into the mortar between two cyclopean blocks that have settled slightly askew over the eons.
+
+I am a **Litho-Mass**, a creature that is less an animal and more a living calcification, a colony organism that mimics the function of the ancient stone it inhabits. To the casual brush of a Glass-Slug, I would feel like just another slightly warmer patch of the wall.
+
+My body is a vast, interconnected network of calcified tubes and soft, vascular chambers that spread through the crack like root systems through rotting wood. I have no distinct head or limbs. Instead, I possess a distributed sentience, a thousand nerve centers threaded through the calcium carbonate of my external shell. I am roughly the size of a small house, hidden entirely within the wall, with only my feeding aperture exposed to the open shaft.
+
+The aperture is a jagged, circular tear in the veneer of the "Built" stone, disguised as natural erosion. Here, my flesh is exposed to the water. It is not the hard, plated shell of a Clinger, but a raw, pinkish-grey tissue the texture of a wet, exposed tongue. I pulsate with the "Breath," the rhythmic surge of the water column.
+
+I am an **Opportunistic Siphon**. While the Clingers filter the drift and the Living Stones inhale the snow, I wait for the casualties of the slow world. I am the sanitation of the shaft. When a Living Stone eventually succumbs to age or internal pressure, its heavy body cracks, spilling its soft innards into the water. The water carries that dense, nutrient-rich sludge toward the walls. I detect the chemical scream of death—a sudden plume of amino acids in the monochrome water—and my entire mass spasms in anticipation.
+
+My suction isn't delicate. I draw the water—and the corpse—into my fissure with the force of a hydraulic press. I separate the organic matter from the mineral dust, digesting the soft flesh and excreting the heavy metals and silicates back into the crack I inhabit, effectively re-mortaring the ancient stonework with my waste. I am the creature that ensures the "Built" environment does not collapse under the weight of the life that infests it.
+
+My perception of the world is tactile and chemical. I "see" through pressure. I feel the dull, rhythmic *thud-thud-thud* of the Living Stones drifting past my opening. It is a bass vibration that hums through my shell. Occasionally, a massive Living Stone will scrape against the protrusion of my aperture, thinking it merely a rough patch of rock. The friction is immense. I feel my outer shell grinding, but the sensation is not pain; it is an affirmation of existence, a confirmation that I am hard enough to withstand the drift.
+
+Beneath me, inside the wall, I feel the slithering of the Glass-Slugs. They sometimes venture into the deeper cracks of the architecture, seeking the bacterial slime that grows in the stagnant pockets of air trapped within the hollow blocks. I feel their rasping tongues, the vibration of their slow, muscular contractions echoing through the stone. I do not eat them; they are too poor in nutrients for the energy it would take to consume them. We ignore one another, two tenants in the same decaying edifice.
+
+I am ancient. I have been here since the water rose. I remember—through a genetic, racial memory—the moment the warmth arrived. Before, there was cold and dry, and the stone was dead. Now, the stone is alive, and I am its heart.
+
+In the absolute silence, I wait. I am the hidden stomach of the High Elevation. I am the thing that turns the dead back into the foundation, ensuring that even as the world drowns, the walls hold fast against the crushing, enveloping dark.

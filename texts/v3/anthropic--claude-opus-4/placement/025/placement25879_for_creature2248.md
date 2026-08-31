@@ -1,0 +1,17 @@
+In this sanctum where mist breathes between stone teeth and time pools like water in cupped palms, I am the Keeper of Continuities—neither wholly of the crumbled civilization nor entirely of the wild, but something that emerged in the space between their meeting.
+
+My form shifts with the quality of light and the observer's need. Sometimes I appear as an elderly figure wrapped in robes of living moss, my hair indistinguishable from the hanging lichens that drape the ancient trees. Other times I am glimpsed as something more elemental—a configuration of shadow and moisture that moves through the meadow like memory itself, tending to the delicate balance between growth and decay.
+
+My dwelling is everywhere and nowhere. I rest in the negative spaces between stones, in the hollow beneath the great roots where they arch above underground streams. My consciousness flows through the mycelial networks that connect every plant in this meadow, and I taste the minerals that seep through rock into the crystalline pool. The abandoned tools of that lost civilization have become extensions of my being—I know their weight, their purpose, the hands that shaped them.
+
+Each dawn, I walk the borders where meadow meets stone, fingers trailing through dew-heavy ferns, reading the night's small dramas written in disturbed earth and bent grass stems. I know which doe has chosen a new bedding site, which vole has discovered the cache of seeds I guided it toward. The raptors above acknowledge me with a tilt of wing; we share an understanding older than words.
+
+My purpose is not to preserve—that would be to deny the fundamental truth of this place. Instead, I facilitate the conversation between what was and what will be. When a structure finally crumbles, I guide the mosses to soften its edges, the vines to transform it into something new. When a great tree falls, I sing to the fungi and insects that will return it to soil, and to the seeds that wait for their moment in the newly opened light.
+
+The ancient people who built here knew me by another name, one that meant both "guardian" and "change-bringer." They understood that protection and transformation are not opposites but partners in an eternal dance. Their artifacts carry their stories, and I ensure these stories continue to evolve, becoming part of the meadow's ongoing narrative.
+
+In the pool at the sanctuary's heart, I sometimes catch glimpses of all my iterations—the young keeper who first emerged when civilization and wilderness began their merger, the middle-aged tender who learned to read the subtle languages of growth, and the ancient one I am becoming, more landscape than person. But these are all merely moments in a continuity that stretches both backward and forward from this eternal, ever-changing now.
+
+Visitors to this sanctuary, rare as they are, might catch sight of me as a flicker at the edge of vision, or feel my presence as a sudden understanding of how everything here connects. Some leave offerings—a perfectly round stone, a whispered gratitude, a moment of genuine stillness. These I accept and weave into the sanctuary's fabric, for they too are part of the continuous story.
+
+When evening mist rises from the pool and wraps the meadow in translucent veils, I become most myself—dispersed and whole, ancient and immediate, keeper of a place where time moves like honey and every moment contains all moments. In this sanctuary where boundaries blur and life persists in its myriad forms, I am the consciousness that holds it all in gentle, eternal attention.

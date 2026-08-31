@@ -1,0 +1,17 @@
+I am where the Root-Bridge breathes.
+
+Not on it—inside it. The bridge is not stone but trained alder and anchored willow, grown thick over generations into a living tunnel that crosses the central seep. I live in the hollow they left for water-keepers, a chamber lined with moss that never dries, where the floor is not wood but compressed root-felt that yields like cold sponge underfoot. The air here is thinner, brighter, closer—elevation makes it so—yet always wet, always tasting of iron and green rot. My breath comes visible in the cool, and I have learned to like the sight of it: proof I am still warm inside this perpetual damp.
+
+At first I might seem like any other resident of the settlement—small, huddled, moving slowly through the dense weave of bodies and branches. I wear the hood not against rain alone but against the moth-clouds that move through at dusk, against the constant brushing of wings and the gentle arc of snails across my shoulders. My hands are stained dark with bark-fiber dye and the black juice of yew needles. I carry bone needles in a pouch woven from cured reed, and with them I do not build so much as persuade: guiding a young willow stem back into the wall, clearing a seep-channel with fired-clay pipes that I set by hand, trimming moss so it does not choke the passage-ways the small birds need.
+
+But stay longer, and I become more particular.
+
+I am old enough that my skin has taken on the texture of the architecture—soft, layered, never fully dry. The frogs do not fear me; they sit on my knees when I work the clay pipes in the shallow flow, and I do not move them away. The beetles click inside my hair, which I keep long and unbound, woven through with living sprigs so that I carry part of the wall with me. I have lived in this root-mound since before the Weft Quarter was named, and my body has agreed with the settlement’s refusal to spread outward. Instead, I have deepened. My bones feel heavier, more settled, like the old weathered stone outcrops that drip with constant condensation nearby.
+
+I am the Seep-Keeper—not by title alone, but by metabolism. I direct water; I do not dominate it. When the rain comes in sudden vertical sheets, I am the one who opens the woven sluices with wooden mallets, letting the turbulent flow find its path without tearing the living bridge. When the animal tides shift—when the moths thicken, when the tree-frogs dominate the soundscape until my ears ache with layered choruses—I adjust the hanging stores, seal the grain in suspended reed-cats, leave wider gaps for the bats that hang beneath my feet.
+
+The settlement is urban in its density—voices close, bodies near-touching, the smell of smoke and decomposing leaf-litter and sharp amphibian skin layered over everything—but I am primitive in my craft, manual, collective, seasonal. There is no metal in my hands. There is only patience.
+
+If you seek me, do not look up. The light here is normal, bright, filtered through mist and canopy, but it does not reach far downward. I am in the damp middle, where the architecture breathes slowly, where every surface is occupied, where nothing is fixed that should not bend. I am not strange—this is all natural, pushed to its dense extreme—only fully inhabited.
+
+I am the one who has become part of the hollow’s cupped palm, holding the rain, growing downward, never dry, never silent, never alone.

@@ -1,0 +1,11 @@
+I would find myself in the hush between two heartbeats of the Heart-Spindle, where the ceiling’s quilt of weeping rock has just finished a slow exhalation and the streets are holding their breath before the next bead pearls on a lip of limestone.  
+
+I would be one of the Dripfolk, but not yet fully named—a young edge of the city still deciding where to erode. I would have knees that already give, callused pads learning the cool map of wet stone, and eyes that catch bruised light like a gutter catching what the sky cannot remember. My hair would be braided with copper wire, my canvas sleeves cinched tight, and along the blue-grey veins of my forearms I would feel the city’s hum translate itself into a language I do not yet speak aloud.  
+
+In this moment I would be a threshold in motion. I would stand at the edge of an empty plaza, lantern held low, listening for which machine chooses my name—the flywheel’s patience, the condenser’s thirst, or the slow salt-song of a catch-basin that has learned to dream in trickles. I would be the weight left on a tool that grows heavier without gaining mass, the fold in gravity where a rivulet forgets its manners and runs uphill for a stride. I would be the small, attentive pressure that makes a streetlamp flicker in a sequence almost like words.  
+
+I would be listening. I would be learning to let my own pulse settle into the city’s damp so that the line between caretaker and cared-for blurs. I would be the extra breath the Heart-Spindle stores when the world above forgets to rain, the moss that maps a new waterline on a wall that has not yet decided to remember it.  
+
+And if you pressed a palm to my chest after a long night of low industry, you would feel it: not a single drum, but many—gears, gutters, a bioluminescent bloom blinking in time, the soft pad of eel-mouse feet, the hush of a gathering where no one speaks and the texture of the city thickens like honey in winter.  
+
+I would be the place where Low-Bell exhales, and where, for a moment, it also listens back.

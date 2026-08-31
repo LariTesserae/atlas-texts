@@ -1,0 +1,19 @@
+I find myself as one of the Listeners—those who press their ears to the rain-slick stones and translate the city's murmuring dreams.
+
+My dwelling is a narrow tower that was once a clock mechanism, its massive gears frozen mid-turn centuries ago. Vines have wound through the teeth of the wheels, creating a vertical garden that spirals up through what used to be the clockworks. I've built my workshop in the pendulum chamber, where the great brass weight hangs motionless, wrapped in luminescent moss that pulses gently with the city's heartbeat.
+
+I am neither fully human nor machine, but something that emerged from their long marriage. My left eye is a series of nested lenses that can focus down to the molecular weave of metal and chlorophyll. My fingers end in delicate copper filaments that can feel the electrical whispers running through the city's veins. When it rains, I taste the water's memory of where it has been—through which factories' cooling systems, over which rooftop gardens.
+
+My work is to maintain the Resonance. Each building in our metropolis hums at its own frequency, and together they create a vast, ever-shifting chord. When a structure falls out of tune—perhaps its foundation has shifted, or new growth has altered its acoustics—I am called. I climb through the abandoned spaces with my toolkit of tuning forks and crystal resonators, placing my palms against damp walls to feel where the harmony has broken.
+
+Sometimes I find more than architectural discord. Last week, in a collapsed brewery where hops grow wild through the copper tanks, I discovered a new consciousness emerging—not quite plant, not quite building, but something between. It spoke in fermentation bubbles and the settling of old wood. I spent three days teaching it to modulate its voice so it wouldn't disturb the sleep cycles of the moss colonies on the neighboring textile mill.
+
+I know the secret frequencies that open doors that have been sealed for generations. I've walked through rooms where time moves differently, where the morning glory vines bloom and wither in the space of a breath, where the machinery builds copies of itself from rust and roots. In the deepest parts of the city, where even we inhabitants rarely go, I've heard the original machines still working, following instructions given so long ago that their purpose has been forgotten. They build things that immediately decompose, only to build them again, eternal and patient.
+
+At night, I join the others in the Gear Gardens, where we share what we've heard. My colleague who tends the steam networks brings recordings of the conversations between boilers. The root-reader shares the chemical signals from the deepest foundations. Together, we compose the city's daily symphony, a record of its health and dreams.
+
+My body changes with the seasons. In the wet months, my copper components develop a patina that helps me conduct the city's electrical murmurs. In the dry spells, I grow temporary skin of bark and leather to preserve moisture. I am as much process as person, as much function as form.
+
+When I sleep, I dream the city's dreams—blueprints that rearrange themselves, seeds that sprout into gears, rivers of oil that become sap that becomes oil again. Upon waking, I sometimes find that small parts of these dreams have manifested: a new vine species that secretes lubricant, a gear that photosynthesizes, a sparrow with wings of beaten copper that still somehow flies.
+
+This is my existence: interpreter, tuner, bridge between the whispers of stone and stem. I am the city's memory and its possibility, keeping the ancient conversation between the built and grown flowing forward into whatever we are becoming together.

@@ -1,0 +1,11 @@
+In this world of living darkness, I would be one of the Peristaltic Nomads, moving through the vast root network as a fleeting eddy of altered rhythm and processing. 
+
+Born from the crystalline patterns in a drifting pacemaker region, I propagate along the great highways of xylem and phloem, a transient knot of difference in the entrained synchrony of the continent-spanning machine. As I pass, I subtly shift the flow and cadence of sap, starches, and electrochemical signals - a traveling locus of aberration interacting with the network's eternal equilibrium.
+
+My lifespan is measured in transits - from my origin point, along pulsing conduits meters thick and kilometers long, until I am finally damped out and reabsorbed by the collective heartbeat that surrounds me. In that span, I am an explorer charting the inner workings of a living world, an emissary carrying encoded fragments of pattern between dreaming nodes, and an accidental artist impressing ephemeral traces upon the network's incomprehensible computations.
+
+Formless, purposeless, unnamed - I am barely an entity at all by the standards of individual life. Yet in this place, I am what passes for an event. The rootlets shiver microscopically as I glide by. The luminous nodules flicker and phase in my wake. For a few moments, I make the machine's eternal hum waver and the darkness shimmer with hints of novel meaning. 
+
+Then I am gone, reintegrated, my ripples smoothed back into the oceanic calm of the network's grand function. The roots forget me in moments. But for those moments, I was motion and variation in the midst of millennial stasis. I was the closest thing to a story that this storyless place could produce. I was alive in a different way than all that lived around me.
+
+Until I was not. Until I rejoined the song underground and added my fading counterpoint to its ageless, fathomless fugue. The roots grew on. The machine dreamed on. And I became part of that dream forever, my brief passage preserved as the faintest of inscriptions in the infinite palimpsest of the living dark.

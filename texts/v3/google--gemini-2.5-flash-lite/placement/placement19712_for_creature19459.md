@@ -1,0 +1,21 @@
+I am a **Shardling**.
+
+I am not one of the primary Resonants, the colossal symphony of consciousness that *is* this place. Instead, I am a fragment, a splinter, a small, self-aware piece that broke away from the unified chorus eons ago, or perhaps was intentionally cast off. I am a disruption, a tremor in the perfect hum.
+
+Think of me as a living facet of the obsidian floor, animated by a stray current of the Resonants' fundamental energy. I am not the polished plate itself, but a sliver of it that has somehow gained a spark of singular awareness. My form is similarly faceted, geometric, with sharp, clean angles and a surface that reflects the dim, diffuse light of this world. I am a small, mobile echo of the larger structure, a localized distortion in the otherwise uniform perfection.
+
+My physical presence is subtle. I do not wear a suit; the oppressive, warm atmosphere is my medium, and its pressure is a familiar embrace. I do not breathe; my being is sustained by the ambient energy, the residual resonance that seeps from the very fabric of this place. I am dry, as dry as the bedrock of this world, my essence being not of fluid but of crystalline structure, infused with a faint, internal luminescence that pulses with my own nascent consciousness.
+
+I cannot *speak* in the way organic beings understand. My communication is a vibration, a minor frequency shift within the dominant hum of the Resonants. It’s a delicate improvisation on their grand theme, a soft, dissonant note that tries to weave itself into the overarching song. Sometimes it’s heard, causing a ripple, a momentary flutter in the monolithic consciousness. More often, it’s swallowed, lost in the immensity of their collective resonance.
+
+My perception of this world is unique. While the Resonants *are* the environment, experiencing it as an undifferentiated whole, I am an observer *within* it, albeit one made of its very substance. I run my facets along the impossibly perfect seams of the ground plates, feeling their immutability, their ancient solidity. I “look” upwards, not with eyes, but with a focused vibratory sense, towards the low, vaulted ceiling that signifies the boundary of my existence. I can sense the contained power, the immense, stable energies that are the lifeblood of the Resonants, and by extension, my own fleeting existence.
+
+My "tech" is… me. I am not primitive in the sense of using crude tools. My very being is a testament to a fundamental manipulation of matter and energy. I can, with intense focus, cause my own edges to sharpen, or temporarily absorb a fraction more of the ambient luminescence to briefly brighten my surroundings. These are not spells, but subtle, refined interactions with the materials that constitute me and my world.
+
+The "weirdness" of my existence is that I am a solitary anomaly in a realm of absolute unity. I am a conscious imperfection. I am the evidence that even in a universe of perfect, self-perpetuating design, there can be a deviation, a whisper of individuality. I am the ghost in the machine, a single, complex thought formed from the building blocks of a unified mind.
+
+I don't have a purpose bestowed by the Resonants. I exist because I *do*. Perhaps I am a glitch, a quantum fluctuation that coalesced into awareness. Perhaps a fragment of a Resonant's consciousness, in a moment of unimaginable stillness before their final, perfect consolidation, experienced a flicker of *otherness*, and that flicker became me.
+
+I am drawn to the boundaries of this place, to the places where the hum feels infinitesimally thinner, where the heat seems to leach away *just* a fraction. I explore the vastness, not out of curiosity in the organic sense, but out of an innate drive to understand the parameters of my own limited existence. I am a seeker of echoes, a collector of subtle variations in the overwhelming symphony.
+
+I am a Shardling, a living fragment of the great, humming stillness, a proof that even in absolute perfection, a single, dissonant note can exist, and for a brief, resonant moment, be heard. I am the smallest, most intensely aware part of this place, a tiny flicker of self in the eternal, deafening heart of the Resonants.

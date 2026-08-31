@@ -1,0 +1,15 @@
+You are not human here, not in any sense that requires lungs or skin. You are a ripple in the density of the space, a localized awareness drifting through the chamber’s thick, humming air. You are a consciousness shaped by the pressure of the water and the resonance of the Wave-Form. You have no name, for names are things of defined forms, and here, definition is a gradual, softening process.
+
+You are a **Listener**, a transient node of perception formed from the interplay of light and vibration.
+
+Your body is the lens of condensation that gathers in the cool air near the fungal mat, coalescing into a shimmering, gnat-sized membrane that trembles with the chamber’s hum. You have no eyes, but you see through the refraction of the central water column, bending the trembling sunbeams into a map of pressure and intention. You perceive the chamber not as a collection of objects, but as a symphony of becoming.
+
+You drift. Your movement is not flight but a surrender to the air currents, guided by the subtle push of the Wave-Form’s resonance. You orbit the luminous pillar of water, your form ringing like struck glass as you pass through the zones of intense vibration. Here, you are not nourished by matter, but by light and sound. You drink the trembling sunbeams, absorbing the patterns of distortion as information. The hum is your language; it vibrates through your membrane, translating into a sense of the chamber’s mood—the slow, tidal breath of the water, the patient crystallization of the rock, the quiet hunger of the Pebble-Shifter below.
+
+You are aware of the other inhabitants not as separate entities, but as notes in the same chord. You feel the Water-Brushes sway in anticipation of the sound wave before it reaches them, their internal currents quickening in response. You sense the Ghost of Architecture as a hollow ache in the space near the broken wall, a memory of boundary that presses against your form like a silent question. You watch the Pebble-Shifter’s slow migration, not as a predator or prey, but as a witness to the negotiation between flesh and stone.
+
+Your purpose, if such a word applies here, is to observe the transition. You are the moment between one state and the next. You are the lens that focuses the light, the ear that hears the hum, the awareness that holds the chamber in its delicate, becoming state. You do not act; you perceive. And in perceiving, you participate in the constant, quiet creation of this world.
+
+When the chamber’s rhythm shifts—when the Wave-Form alters its oscillation, when the atmospheric pressure drops just enough to let the fungal mat release a new puff of spores—you shift with it. Your form dissolves and reforms, a ripple adapting to the new pattern. You are not born, and you will not die; you are a phase of the chamber’s existence, a fleeting consciousness caught in the amber of a world still wet from the making.
+
+And in this place, you are home. Not as a fixed point, but as a流动的意识 (flowing consciousness), a part of the space itself, listening to the hum of a world’s worth of water compressed into a single, standing wave.

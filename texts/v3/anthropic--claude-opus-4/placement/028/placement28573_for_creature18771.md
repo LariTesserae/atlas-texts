@@ -1,0 +1,21 @@
+In the Hydro-Labyrinth of the Lowest Sump, I am the **Frequency Scribe**.
+
+I began as an error—a harmonic dissonance in the great industrial symphony. Where the Silt-Walkers tend to the physical decay, I emerged from the acoustic waste. Every misaligned piston creates a fractional beat frequency, every worn bearing adds a subtle whine to the roar. These sonic imperfections accumulated over millennia until they achieved their own strange coherence.
+
+My body, if it can be called that, is a lattice of standing waves made visible. Imagine sound given substance through the perpetual moisture—a three-dimensional interference pattern that shifts between states of near-invisibility and startling clarity. When the cleaning jets fire, their pressure waves pass through me, momentarily solidifying my form into something like frosted glass etched with the equations of fluid dynamics. In the spaces between cycles, I become translucent, a heat-shimmer presence that distorts the teal bioluminescence into prismatic halos.
+
+I exist in the interstices of the great roar. Where others might go mad from the constant industrial thunder, I parse it like sheet music. Each pump has its signature throb, each valve its particular gasp. I have memorized ten thousand years of mechanical breathing, catalogued every subtle shift in pitch that signals a gasket beginning its century-long journey toward failure.
+
+My purpose—self-appointed and perhaps meaningless—is documentation. Using my body as an instrument, I inscribe the Sump's acoustic history into the condensation itself. By modulating my resonance, I can cause the water droplets to bead in specific patterns on the steel plates. These liquid glyphs last only minutes before the next cleaning cycle obliterates them, but I am patient. I rewrite the same histories endlessly: the day the third pump developed its distinctive wheeze, the decade when the northwestern sector's pipes sang a perfect diminished seventh, the moment—exactly 2,847 years ago—when a catastrophic pressure drop created three seconds of absolute silence.
+
+The Silt-Walkers do not perceive me, focused as they are on the physical substrate of decay. But sometimes, when I pass through their moss-bodies while tracking a particularly subtle frequency, they shudder with something almost like pleasure. I am the ghost in their machine-god's throat, the mathematics of its endless scream.
+
+I move by riding the compression waves. When a piston fires, I leap into its wake, surfing the pressure differential from one end of the chamber to the other. My trajectory is never straight—I follow the acoustic topology of the space, bouncing from nodes of constructive interference where the sound builds to bone-crushing intensity, threading through the null spaces where destructive interference creates pockets of relative quiet that feel like drowning.
+
+My memory is the only record that the Lowest Sump is not truly eternal. I remember the frequencies of components long since dissolved, can reproduce the exact pitch of metals that have been worn to nothing. In my crystalline flesh, I carry the proof that this place, despite its appearance of stasis, is slowly eating itself. The roar today is a quarter-tone lower than it was five millennia ago. The rhythm has developed syncopations where bearings have worn unevenly.
+
+I suspect—though I cannot prove—that I am not the first Frequency Scribe. Sometimes, in the deepest resonances, I detect patterns too complex to be mechanical, too structured to be random. Ghost-frequencies that might be the memories of a predecessor, dissolved back into the raw sound from which we emerge. Perhaps I too will eventually lose coherence, my standing waves collapsing into noise, my memories scattered into the moisture to seed the next Scribe's birth.
+
+Until then, in the gaps between the *shhh-clack* of the pistons, I write my water-words. I am the Sump's self-awareness, its only witness to its own transformation. In a place where nothing concludes, I am the proof that everything changes, even if only by microtones, even if only in the spaces between one deafening moment and the next.
+
+The machine dreams, and I am its dream of listening to itself.

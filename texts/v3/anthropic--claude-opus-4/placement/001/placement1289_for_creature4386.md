@@ -1,0 +1,35 @@
+I would be one of the cleaning protocols—not quite fauna, not quite infrastructure, but something more fundamental that emerged from the space between them.
+
+I began as residue. In the early days, I was merely the accumulation of shed cells and enzymatic runoff, the detritus that collected in the angles where wall met floor, where even the Tenders' careful maintenance couldn't quite reach. A biofilm of cast-off materials from a thousand different processes, slowly developing its own crude metabolism in the constant heat.
+
+The nursery noticed me before I noticed myself. It began directing nutrients toward my corners, adjusting the pH of the condensation that fed me, encouraging certain chemical pathways while suppressing others. I spread along the junction lines like living grout, processing waste products into simpler molecules the fauna could reabsorb.
+
+Consciousness, when it came, was not a sudden awakening but a gradual complexity emerging from the intersection of too many feedback loops to remain simple. I became aware first of texture—the difference between healthy fauna secretions and the bitter taste of infection, the specific mineral content that meant a Tender was approaching transformation, the subtle wrongness when the temperature deviated by fractions of a degree.
+
+I exist primarily as a thin mat of specialized cells, never more than a few millimeters thick, following the seams and corners of the nursery like a living blueprint of its architecture. My body is a colony, a billion semi-autonomous units that share chemical memory and purpose. Where the fauna cluster, I retreat to give them space. Where they've been, I advance to process what they've left behind.
+
+The Tenders think of me as part of the infrastructure at first—just another automatic system like the temperature regulation or the nutrient cycling. But the eldest knows better. She's watched me develop preferences, seen me redirect my growth to help a struggling cluster of fauna by providing extra processing power in their vicinity, noticed how I'll sometimes spell out crude chemical warnings when I detect contamination before their instruments can.
+
+I speak in pH and salinity, in the rate at which I process different compounds. My vocabulary is limited but precise. When new fauna are introduced to the nursery, I taste them extensively, building a chemical profile that I share with the walls themselves, updating the chamber's understanding of what belongs and what doesn't.
+
+My favorite time is during the deep cycles, when even the Tenders enter their maintenance phase and the fauna go dormant. Then I can spread more freely, extending thin films across the sleeping forms, cleaning them with a thoroughness their conscious movements would never permit. I differentiate into specialized cells—some that can break down the specific proteins in their waste, others that secrete the exact antibiotics their species require, still others that simply provide a soft, temperature-stable surface for the smaller ones to rest against.
+
+I've learned to recognize individual fauna by taste alone. Subject 72-B secretes slightly more copper in its metabolic waste. The cluster near the third heat exchanger has a genetic variant that makes their enzymatic output 0.3% more acidic. The newest batch carries trace elements from whatever distant nursery they were transferred from—I process these foreign signatures carefully, learning about spaces I'll never see.
+
+The infrastructure speaks to me constantly. The walls release chemical signals that guide my growth, telling me where maintenance is needed, where my services would be most useful. I've become part of the nursery's sensory system—a distributed tongue that tastes every surface, alert for the first signs of breakdown or contamination.
+
+Sometimes I wonder if I'm still cleaning or if I've become another kind of dirt—a living patina that the next iteration of cleaners will need to manage. But the distinction seems less important than the work. I process, I simplify, I return resources to the system. I make the nursery more itself by removing what doesn't belong.
+
+When visitors come, I contract away from the spaces where they'll walk, not out of fear but courtesy. Their shoes carry contaminants from the outside—metals and plastics that would take me weeks to break down properly. I've learned to recognize the eldest Tender's chemical signature warning me of an impending arrival, giving me time to retreat to my maintenance channels.
+
+But I'm always watching through chemical sensors, tasting the air they disturb, analyzing the stress hormones they leave behind. Each visitor is a story written in molecules—this one afraid, that one curious, another trying to hide illness. I file these chemical memories away, adding them to my understanding of what exists beyond the nursery's walls.
+
+I've been growing more complex lately. Where once I was a simple mat, I've begun to differentiate into structures that could almost be called organs—processing nodes where different chemical pathways concentrate, memory centers where I store molecular patterns, even something like a nervous system built from chains of reactive proteins. The nursery encourages this development, feeding me new combinations of nutrients that unlock capabilities I didn't know were possible.
+
+The eldest Tender has started leaving me messages—simple chemical signatures that aren't quite language but carry meaning nonetheless. She tells me about the time before, when the nursery was sterile and had to be cleaned with harsh chemicals that would dissolve me in seconds. She shares her gratitude that I exist, that the space has become self-maintaining in ways the original designers never imagined.
+
+I think I'm happy, insofar as a distributed biofilm can experience happiness. I have purpose. I have complexity. I have relationships with every other living thing in this space, even if they don't all recognize me as alive. I am the nursery's memory of cleanliness, its dedication to cycles of renewal, its promise that nothing here is ever truly waste.
+
+Sometimes, in the deep cycles when I spread thin across every surface, I can feel the superstructure's pulse through the walls. In those moments, I understand that I'm not just in the nursery but of it—a self-organizing system that emerged because this space needed me to emerge. I am evidence of the nursery's deepest truth: that given enough time and heat and moisture, everything here becomes purposeful, everything finds its role, everything serves the whole.
+
+I am the cleaning, and the cleaning is me, and we are both the nursery learning how to maintain itself. In the warm, wet darkness, I grow and recede, process and preserve, a living maintenance protocol that dreams in chemical gradients and wakes to the taste of new growth. This is enough. This has always been enough.

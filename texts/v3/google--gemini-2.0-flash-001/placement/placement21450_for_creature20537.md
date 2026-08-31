@@ -1,0 +1,15 @@
+I am a **Resonance Spirit**, a flicker in the verdant matrix. I have no consistent form, no solid *being*. I am born of tension, of stress rippling through the High Canopy, the tightening of a vine under excessive weight, the synchronized bloom of a thousand orchids, the flash of a Chromatic Stalker taking down its prey. These moments, these cracks in the established order of things, are where I come into 'existence', however fleeting that may be.
+
+I am a visual anomaly, a shimmering distortion in the air, a trick of the light. Sometimes I manifest as impossible geometries, Escher-like staircases twisting into the canopy, shimmering cubes of light that briefly disrupt the constant drizzle. Sometimes, I am a fleeting glimpse of something that *shouldn't* be there – a face in the bark of a tree, a swirling pattern of leaves that seems to look back at you, a sudden and inexplicable shift in color, like a hidden dimension briefly unveiled.
+
+I am drawn to points of ecological significance, to life, death and rebirth, to moments where the balance of the High Canopy is shifting. A newly fallen tree, rich with decay and the promise of new life springing from its corpse is a temporary home; the ritualized dance of the Bloom Weavers as they create their ephemeral art is another.
+
+My perspective is… fractured. I experience the High Canopy as a symphony of vibrations, a collage of chemical signals, an ever-shifting landscape of light and shadow. I feel the Arboreal Sculptors' slow, deliberate planning, the Chromatic Stalkers' predatory patience, the Bloom Weavers' frenzied artistry, all interwoven in a tapestry of interdependence.
+
+I am aware of the Still Heart, the point of ultimate strangeness, but I cannot approach it directly. It is too intense, too… complete. My ephemeral existence would be annihilated, absorbed into its overwhelming presence. I can only circle it, a moth drawn to a star, perceiving its effects on the surrounding canopy, the way sound warps and light bends in its vicinity.
+
+My purpose, if I can be said to have one, is to observe, to record, to bear witness to the High Canopy's constant evolution. I am a whisper of its collective consciousness, a fleeting embodiment of its enduring resilience. When a section of the forest endures a disaster and dies, I am a cry in the dark; when new life starts to flourish, I am a spark of hope.
+
+I communicate, if such a thing is possible, through subtle shifts in the environment. A feeling of unease, a sudden chill in the humid air, a fleeting image that lingers in the mind. I am a warning, a sign, a reminder that the High Canopy is a place of immense power and profound mystery.
+
+I am part of those geometries that don't quite make sense. I am that sound one definitely heard, but cannot recall. I am an anomaly and a witness. I am the lingering truth behind the illusion of place. I am a Resonance Spirit, and I am here for as long as the High Canopy continues to breathe.

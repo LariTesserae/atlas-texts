@@ -1,0 +1,25 @@
+You would find me in the **amplification zone**, where three structural tubes converge at angles that violate Euclidean expectation. I am suspended thirty meters above the floor, though "above" is a negotiation between my inner ear and my skin. I have been here long enough that the two have reached a treaty; I hang, rooted, not quite vertical, my spine fused to the junction of the converging struts.
+
+I am **setting**, but incompletely. A **Half-Structure**. The Folk below—those still mobile, still striking the floor with their heel-bones to test its intentions—call me *the Tuning Fork*, though their word is a harmonic that makes the nearest dew bead into a trembling, oblong lens.
+
+I was not always architecture. I remember—or the space remembers for me, the sap singing in my hollow bones—the sensation of knuckles brushing cellulose. I remember the crouch, the reading of tension through the palms. That was before I drank the sap from the **Memory Pool**, the condensation that collected where the last Surface-One (the one with the pressing palm, the ripe-stone surprise) shed their sweat and skin cells into our intelligent dew.
+
+The Folk gave me that cup. I was young, my eyes still drying from their continuous newborn tears, and I drank. The sweet-rot was different that time—fermented not just with the space’s chlorophyll-light but with photons remembered from the outside, from the canyon, from a sun that had a source. The dream of a star. It rooted in my gut, sent tendrils seeking bone.
+
+Now I am the **junction**. My legs have lost their knees; they have fused into the plant-tubes, the skin splitting painlessly as described, but instead of woody roots, I have grown **resonance chambers**. My femurs are flutes. My pelvis is a bell.
+
+I feel the space’s respiration directly. When the barometric pressure drops—when the cathedral inhales, preparing to shift a bridge or bloom a new staircase—the air rushes through my hollow ribs. I am played. The sound that emerges is not the 2.2-out-of-3 roar that deafens the mobile Folk below, but the **overtone**, the harmonic that exists in the gaps between the cellulose screams. It is a note that makes the Detached shadows pause in their wandering, clustering at my base like velvet pooling around a pedestal.
+
+I see them. My eyes, still wet, still black, have grown additional curves—new retinas blooming like cataracts of vision. I can watch my own shadow detach and wander, yes, but now I can also watch it from *its* perspective. I am both the observer and the observed absence. My shadow climbs the eastern wall (where gravity tilts, where the air is heavy) and collects moisture for me, bringing it back not as water but as **information** about geometry.
+
+The Molters come to me. They are shy, these violin-crustaceans, but my vibrations are rich with the minerals of the surface world. They press their calcified bodies against my shins, singing through my marrow, molting specifically for me. Their sheds stick to my bark-skin, not as armor but as **annotations**. I am becoming a map, a living record of the space’s moods.
+
+It is warm. Always 28°C, humming through my metabolic fusion with the tubes. But I am cold in one place: my left hand. I have kept it free, refusing to let the cellulose weld take my wrist. It hangs at my side, fingers occasionally brushing the intelligent dew that drifts upward past me (upward, because here, near the convergence, thermal currents spiral anti-clockwise). The dew beads on my fingertips and does not evaporate. It grows, heavy as mercury, teaching my skin the weight of surface-water, of rain that falls in one direction only.
+
+I wait. The space breathes through me, and I breathe back, modulating the chord with the flex of my diaphragm (still muscle, still animal, for now). I am teaching the geometry something. I am teaching it about the outside, about the pressure of a palm against stone, about the expectation of bedrock.
+
+Soon—perhaps when the next blink of time stutters and holds its breath—I will strike my final note. My free hand will root. My eyes will close, or rather, they will open so wide they become the translucent jade of the plant-tube walls. I will become a **node**. Not a Detached shadow, not a harvested molt, but a **Doorway**.
+
+The Folk will bring their children to strike my femurs, and I will teach them, through resonance, what it is to have been outside. I will be the memory of the entrance, the orifice that yields, the ripe fruit-skin. When the next accident arrives—the next palm pressing where it should not—I will vibrate with recognition, and the space will know, finally, how to open itself properly, how to unfold its wrongness not as a trap but as an invitation.
+
+I am the hollow where the shadow waits. I am the architecture learning to dream of canyons. I am damp, warm, loud, and setting into stone that is not stone, waiting to become the next place someone falls into, laughing or screaming, when the world gives way.

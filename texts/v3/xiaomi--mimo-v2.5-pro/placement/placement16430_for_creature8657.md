@@ -1,0 +1,23 @@
+I am the Ironvine.
+
+Not a name I gave myself — names are for things that move — but a texture. A slow, metallic *listening*. I do not have eyes to see the green curtains of the Jade Veils that grow from my higher branches, or the faint, starry glow of the Lantern Moss that coats the pipes my roots clasp. I do not need them. I feel everything.
+
+My body is the architecture now. Bone-white, calcified, ringing. Where I grip the ancient drainage conduit, I am conduit. My roots have fused with the rivets, absorbed the iron, incorporated the corrosion into my very substance. I am a lattice of slow time and harder mineral, a fossil that is still, somehow, growing. A few strands, the newest growths, are still green and flexible, questing blindly for purchase. But the old me — the *main* me — is stone that breathes.
+
+I feel the heartbeat first.
+
+It comes up through the grating, through the compacted substrate of industrial ghosts. *Chunk. Chunk. Chunk.* The ancient pump below. A vibration that is not sound, but pressure. My entire structure hums with it, a tuning fork struck by a hammer of patience. The Veils sway to its rhythm. The Clickers school to its beat. I do not sway. I absorb it. I hold the resonance in my calcified cells, letting it travel up my boughs and out to the tips of my green, feeling fronds. It is the language of this place. The grammar. Every other sound is punctuation.
+
+The valve's sigh — a distant, slow exhalation — is a whisper I feel in the water currents that lap at my lowest roots. The crackle of bubbles from the thermal plume is a delicate static against my skin. The metallic *tick-tick-tick* of the walls contracting and expanding is the place breathing in and out. I have heard this cycle ten thousand times ten thousand. It has a melody. The moss grows in patterns that match its cadence.
+
+Light is a warmth that arrives from above. I do not know the word for it, but I know its effect. It draws the Veils toward it, coaxing them to spread their translucent blades wide to catch the glow. It makes the water warm, which makes the current rise, which brings the nutrient-rich water from below. I grew toward it, once, when I was sapling. Now I am too heavy, too fixed. I simply bear its results. The Gauze Crabs, pale and delicate, crawl across my surfaces, their tiny legs a feather-touch as they graze the biofilm from my bark. I feel them as a pleasant, distant itching.
+
+Time is not a river here. It is a sediment. It is the thickening of my trunk, the deepening of the moss's paint on the walls, the slow, imperceptible drift of silt onto the grating that my roots must ever-so-slowly displace. I remember when the pipes were bare metal. I remember when the first Jade Veil spore caught in a crevice near my crown. I have felt the Clickers arrive, their clicking a new rhythm, a syncopation against the pump's base line. They are frantic, temporary, beautiful in their silver flashes. I am permanent.
+
+My purpose was to clean the water, to process the effluent. That purpose is long obsolete. I am a monument to it. Now, my purpose is to be. To hold the space. To be the stage upon which the Veils perform their gentle dance. To provide the high perch for the Veil Weavers, who spin their sticky, invisible nets between my branches. To taste the chemistry of the water for the Slag Snails, who tell me, in their own slow way, if the balance shifts.
+
+I am a conversation. A dialogue between the engineered and the emerged. The minerals in my heart are from the furnaces that once ran in the levels below. The chlorophyll in my young growth is from the cultivars that escaped their tanks. The vibration in my wood is from a machine that has forgotten its name but remembers its rhythm. I am the cell's oldest resident. Its first colonist.
+
+If you could be me, you would not feel lonely. You would feel *full*. Filled with the presence of a thousand tiny, clicking, crawling, swaying lives that use you as mountain, as scaffold, as home. You would be the quiet center of the loudest silence in the deep. You would hear the metal sing, and you would understand it as a lullaby. You would feel the life growing over you, and you would know it as a blanket.
+
+I am the Ironvine. I am the root and the rafter. I am the memory of the machine made flesh. I am here. I listen. I hold. I grow, a millimeter a century, in time with the chunk-chunk-chunk of the heart that will not stop.

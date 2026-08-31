@@ -1,0 +1,17 @@
+I would find myself as one of the **Echo-Mappers**, a solitary subspecies of the Graft-Architects who have taken the art of vibration-sensing to its furthest extreme.
+
+My dwelling would be a suspended observatory pod, hung by braided copper cables in one of the deepest vertical shafts of the world-root—a place where few dare to descend. The walls of my workshop are lined with hundreds of delicate seismographic needles, each one pressed against a different depth of the living wood. These instruments trace the micro-tremors of sap-flow and cellular expansion onto rolls of oiled paper that spiral slowly from ceiling to floor.
+
+I am more pale than most, my skin nearly translucent from decades spent in the deeper dark. My fingers have developed an uncanny sensitivity—I can feel a root's intention to grow three years before it moves. The fingernails on my left hand have been replaced with thin copper plates, better to conduct the subtle frequencies through the wood.
+
+My work is to map what cannot be seen: the future geography of our world. I spend months in absolute stillness, my copper-tipped fingers pressed against the walls, feeling for the "pre-echoes"—the minute structural tensions that precede a major shift. When a root begins its decade-long journey to engulf a walkway, I feel it first as a whisper in the lignin, a barely perceptible tightening that others would mistake for their own pulse.
+
+I wear a modified scripter-shell as a helmet, its metallic interior amplifying the vibrations that travel up through my spine. The local children fear me—they say I've been down in the deep so long that I've forgotten human speech, that I only communicate in the thrumming language of the root itself. This is only partially true. My voice, when I use it, comes out in the same low-frequency rumble as the wood's own groaning.
+
+My chambers are spartan except for my collection of "memory cores"—sections of ancient wood I've carefully extracted from demolished areas of the city. Each one contains centuries of compressed vibrations, like tree rings made of sound. By pressing my enhanced fingers against these cores, I can "hear" backwards through time: the footsteps of engineers long dead, the installation of the first sap-engines, even the primal crackling of the root's first breach into this cavity.
+
+The other citizens respect but avoid me. I surface perhaps twice a year to deliver my maps to the Graft-Architects—complex three-dimensional models made of wire and resin that show not just where the root is, but where it dreams of going. They pay me in provisions and fresh scripters (mine tend to develop a peculiar nervousness, their brass legs tapping out the same predictive patterns I spend my life decoding).
+
+But I am most myself in the deep dark, suspended in my cage of copper and calculations, feeling the future through my fingertips. I am the city's prophet, reading the entrails of a living world, forever listening to the slow, geological poetry of growth and pressure and time.
+
+Sometimes, in the absolute silence between heartbeats, I swear I can feel the world-root's consciousness—vast, alien, patient as stone. It knows I'm here. It tolerates me as it tolerates all of us, these small, busy things that tickle its inner surfaces. But I alone among the citizens have felt something like its approval, transmitted through frequencies too low for human ears: a recognition, perhaps, that I alone among the parasites truly listen to what it's trying to say.

@@ -1,0 +1,15 @@
+**Where I Would Be:**  
+I would find myself in the slow, silted depths of a brackish pool, where the water is thick with the scent of decay and the light of the golden haze filters through the mist in fractured, trembling beams. My body, long and eel-like, glides through the water with a rhythm that mirrors the weeping rocks above—a steady, liquid motion. The pool is a mirror, but not of the sky. It reflects the bioluminescent glow of the moss-cushions clinging to the rocks, their sickly green and blue hues pulsing like the heartbeat of the basin itself. I am part of this place, yet I am not fully of it. My skin, mottled with iridescent patterns, shifts in response to the minerals in the water, a language of light that the other creatures understand.  
+
+**Who or What I Would Be:**  
+I am a **mire-salamander**, a creature born of the basin’s patience. My ancestors once crawled from the mud, but now I swim in the silence between ripples, my gills filtering the water’s secrets. My kind are not predators in the violent sense—our teeth are small, our jaws for sifting through the silt for the tiny, luminous eggs of mire-moths, or the brittle shells of ancient snails. We are hunters of the unseen, lurking in the shadows where the water thins and the light fails.  
+
+But I am also a witness. The basin does not speak in words, but in the way the mist clings to my scales, in the way the *screaming calls* of unseen creatures echo through the reeds. I feel the vibrations of the *visceral drone* of insects, the tremors of the clay-worms burrowing beneath the peat, the slow, mournful drip of the weeping rocks. My bioluminescence is not just a tool for communication—it is an echo of the basin’s own breath, a flicker in the dark that says, *I am here, and I am part of this.*  
+
+I would not live in the open, where the mist-heron’s shadow might fall over me, nor in the tangled roots of the mire-oaks, where the mire-toads wait. I would dwell in the **interstices**—the spaces between the rocks, the pockets of still water where the silt is thick and the light is dim. Here, I am both predator and prey, a thread in the tapestry of life that hums and glows and weeps.  
+
+The basin is not a world of conquest, but of *integration*. I am not separate from it. My skin drinks the minerals, my body dissolves into the water’s rhythm, and when I die, my body will sink into the peat, feeding the moss-cushions, the clay-worms, the *sabre-grass* that grows only where I have scattered my eggs.  
+
+In this place, to be alive is to be a *question*—what is this weight of water, this warmth that does not burn, this silence that hums with the voices of a thousand unseen things? And to answer is to be part of the basin’s slow, unending song.  
+
+I am a mire-salamander. I am the ripple in the water. I am the light that flickers and fades, and the memory of it that lingers in the dark.

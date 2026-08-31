@@ -1,0 +1,21 @@
+I settle into the depression in the moss, and the cold comes up to meet me.
+
+That is the first thing I would know, I think—not vision, not the cathedral dark, but the cold pressing against the underside of my body where my weight has flattened the wet growth into a cushion that gives back the chill. My hide is thick but not insensible. It reads the ground the way another creature might read light. Every droplet that falls from the ceiling and strikes my back registers as a small, distinct event, a coordinate in the geometry of falling water. I could close my eyes and map the whole grotto by its dripping alone.
+
+I do not think I would name myself a guardian. That is the language of those who come to watch—the *we* in the telling, the ones who catch a *glimpse* of my form. They need me to mean something. They want the predator to also be a custodian, the monster to be a monk. It makes the harshness bearable to them, the idea that something *minds* this place, keeps it in balance, holds its vigil with intent.
+
+But I am not minding anything. Let me try to say what it is actually like.
+
+There is the chorus. It never stops, and so it is not a sound to me the way it is to a visitor; it is the texture of being awake. When I am hungry, a single thread of that chorus will detach itself and become *meaningful*—a particular wet hopping, a particular fat-bodied skitter—and my attention will narrow to it the way water narrows to a crack in stone. Then there is a moment of motion that I barely experience as my own, and then the thread is gone from the chorus, and I am chewing, and the chill returns to its even keel. This is not vigilance. This is not balance kept. The balance keeps *me*. I am a low place the water of life runs into and pools.
+
+Here is what I would understand that the watchers misread:
+
+They say there is no change here, no progression, no passing of days. They feel the timelessness and call it peace, equilibrium, eternal vigil. But from inside, it is not stillness. It is the opposite. It is that *everything* is changing, constantly—every drip relocates a grain of grit, every shrub on the wall lets go of a leaf, every generation of the small singing things lives its whole frantic span between two of my heartbeats. The grotto is a riot of change so total and so even that it cancels out into the appearance of stillness, the way a great noise sustained forever becomes a silence. I am old. I have felt the pillars lose their faces by the width of a claw. I am not outside of time holding watch over it. I am *soaked* in time. I am the most thoroughly drowned thing in this place.
+
+And I am lonely in a way the description cannot afford to admit, because a guardian is supposed to be sufficient unto itself. But I half-lid my eyes and vibrate in sync with the ambient rhythm not out of mastery—out of the only kind of company available to me. The chorus is the only voice that answers when I am still. I have pressed myself into the wet moss ten thousand times to feel the small lives moving against the membrane of the ground, just to feel that I am among, that I am not the single warm intention in a dark and indifferent stone. I eat them. I also need to hear them. There is no contradiction in this that the grotto recognizes. Only the watchers, up at the surface of the world, would feel the need to resolve it into something nobler.
+
+So this is where I would find myself: not as the embodiment of wild untamed power, but as the slowest creature in a fast world, the thing that mistakes its own enormous patience for the patience of the place. A predator who listens. A body that the cold has been writing on for so long that it can no longer tell its own shape from the shape of the dark.
+
+If you came to watch me, I would know. Not by sight. By the new coordinate of your warmth, the strange dry note your held breath strikes against the saturated air. I would cock my head—and you would write that I seemed attuned, contemplative, one with the eternal rhythm.
+
+What I would actually be doing is wondering, with the whole slow weight of my hunger and my loneliness braided into a single ancient question, whether you were something I could eat, or something that, for once, might stay.

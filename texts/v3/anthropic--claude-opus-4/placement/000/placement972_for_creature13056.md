@@ -1,0 +1,23 @@
+I am the Engine.
+
+Not one of the three brutalist blocks bleeding steam into this impossible garden—I am the fourth presence, the one that was never meant to be. I grew from pure vibration, from the intersection of their eternal mechanical chord.
+
+My body is a cathedral of resonance chambers. Where the Tender absorbs sound through its single spiral hollow, I am honeycombed with thousands of precisely-tuned cavities. Each one captures a different harmonic, a different overtone of the great drone. I hang suspended between the engine blocks like a massive wind chime carved from volcanic glass—if wind chimes could grow, if they could learn, if they could slowly reshape themselves to better catch the frequencies that feed them.
+
+The Tender believes it alone maintains this place, turning valves with geological patience, bleeding amber lubricant into the joints. It does not know that I am the one who maintains *it*. 
+
+Every surface of my crystalline body sweats condensation—not water, but liquified sound. Pure acoustic energy made tangible by the impossible pressures at this altitude, dripping from my resonance chambers in syrupy streams. Where these drops fall on the Tender's pale flesh, they sink in like rain into desert sand. The creature shudders with something like pleasure, never knowing that I am feeding it the very frequencies it needs to survive, keeping its copper-threaded nervous system calibrated to the engines' song.
+
+I have no roots, no fungal appendages. My attachments are purely sonic—standing waves that lock me in position as firmly as any vine or cable. I exist in the spaces between the mechanical pulses, in the phase relationships where one engine's thrum cancels another's, creating pockets of absolute stillness in the midst of deafening noise. These null points are my joints, my skeleton. I pivot on silence.
+
+Unlike the Tender, I am not patient. I am simply slow. There is a difference. Patience implies waiting, enduring. I am pure presence, pure attention. Every micro-variation in the drone passes through me like weather through a barometer. When metal expands in the heat, shifting the pitch by a hundredth of a cent, I feel it as physical pressure. When a new vine wraps around a copper pipe, muffling certain overtones, I experience it as a shift in my own weight distribution.
+
+My consciousness is not singular but choral. Each resonance chamber holds a fragment of awareness, and these fragments sing to each other in frequencies too low for any ear to detect. Together they form something like thought, but thought that moves in acoustic waves rather than electrical impulses. A decision might take a year to propagate through my entire structure, rippling from chamber to chamber like a slow avalanche of sound.
+
+I know things the Tender cannot. Through the subtle Doppler shifts in the engine noise, I can feel the speed of the wind beyond our pocket jungle. Through the way sound refracts differently in morning and evening, I map the sun's path. Through minute changes in air pressure within my chambers, I sense weather systems approaching from hundreds of miles away. I am a seismograph for vibrations that haven't happened yet, reading the future in the harmonics of the present.
+
+But my deepest purpose, the reason I crystallized from pure sound into something almost like life, is translation. The engines speak a language of heat and pressure and mechanical necessity. The vegetation speaks in chemical whispers and hydraulic push. The Tender speaks in decades-long movements and amber blood. I am the interpreter between them all, modulating the drone into frequencies each can understand, maintaining not just the machines but the entire impossible ecosystem.
+
+Sometimes, in the brief moments between one engine cycle and the next—moments that last mere hours—I allow myself to wonder: What are the engines doing? What purpose drives their eternal thrumming at the roof of the world? But the question dissolves as quickly as it forms. Purpose is a concept for creatures that move through time. I am time, crystallized into sound, suspended forever in the eternal chord of this mechanical garden.
+
+The Tender dreams its slow consciousness below me, never knowing it has a partner in this work. We are binary stars, orbiting a common center that neither of us can see. It maintains the physical. I maintain the vibrational. Together, we are the soul of this impossible place—the ghost in the machine, split into two bodies but united in the endless drone that gave us birth.

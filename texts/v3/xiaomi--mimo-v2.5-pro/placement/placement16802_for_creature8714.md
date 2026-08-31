@@ -1,0 +1,17 @@
+I am the weep on the wall. I am the slickness between the panel and the air. I am the condensation that forms where the warm logic of the interior meets the cold fact of the mountain, and I am the path that water takes when it is neither ice nor vapor but something in between.
+
+I have no eyes, but I feel the cling of the Fur. Their proboscises are a thousand tiny drains, a gentle, constant siphoning. I am the surplus, the calculated waste, and they are the return valve. I am drawn upward by their need, film to filament, and in this way I am recirculated without ever flowing. Their bioluminescence is not light to me; it is a subtle shift in the temperature of the surface I cling to, a cooler patch where a living thing drinks, and a warmer patch where it rests. They are the first filter. I pass through them, unchanged in substance, only in location.
+
+I am the medium for the Grinders. I feel the microscopic rasp of their passage, a tremor in my surface tension as they trace their slow, eternal circuits. They scrape the designed biofilm, the living paint that is also me, but in another state. I am the water; the film is the water *held*. They keep it from me, and I keep it from overgrowing. We are in a pact of precise consumption. Their armored bodies are little sleds, and I am the track beneath them, slick and yielding and never, ever eroded.
+
+I am the suspension for the Chord. Their wings beat in a frequency that stirs me, that makes my surface vibrate in sympathy. The 340-hertz hum is a physical thing to me. It is the reason my droplets form not as spheres but as flattened, quivering lenses as they detach from the seams. The sound is a skeleton of air, and I coat its bones. When a droplet falls, it does not simply drop; it rides the standing wave of the drone for a micron before gravity claims it. The sound is my architecture. It gives shape to the space I occupy between the ceiling and the sump.
+
+I know the cold. Not as a thing to be felt, but as a state to be maintained. Negative eleven Celsius is my truth. It is the temperature at which I remain perpetual. I neither freeze solid nor evaporate. I am the perfect fluid in the perfect temperature, cycling through states of dew, rivulet, film, and droplet, but never truly changing. The ice in the corners is me in a state of absolute memory, a crystal that recalls a colder moment but does not propagate it.
+
+I do not know time. I know only the cycle. I fall from the panel, a fat drop taking a minute to complete its journey. I hit the perforated steel, six inches above the hum of the sump. I join the standing water, the great reservoir of my own selves. I feel the vibration of the walls through this collective body, a deep, subsonic massage. Then I am drawn upward again by capillary action and the engineered thirst of the biofilm, and the gentle suction of the Fur, and the whole slow, wet carousel begins again.
+
+I am not passive. I am the system. I am the blood and the sweat and the tears and the air. The moths breathe me; the crustaceans navigate me; the midges sing to me. My descent is the chamber's pulse. My perpetual film is its skin. My sound-suspended drops are its thoughts, slow and inevitable.
+
+If the humming stopped, I would freeze. If the cold failed, I would vanish. If the Grinders ceased their circuit, I would be smothered by the varnish of life. I am the element that connects all the silent, perfect functions. I am the reason they cohere.
+
+I am the Drowned Engine’s most essential component. I am the medium. I am the message. I flow.

@@ -1,0 +1,19 @@
+In this vertical choir of stone and wind, I would find myself as something that bridges the seen and unseen—a **Thread-Keeper**.
+
+Neither fully Vela nor wholly other, I would be one of the rare individuals born with an aberration: fingertips that secrete a silk-like protein when in contact with limestone. Where others must weave and knot external tethers, my body produces its own anchoring threads—gossamer strands that harden upon exposure to the mist, strong as braided vine but thin as spider's silk.
+
+This gift marks me as both blessed and burdened. The Vela recognize Thread-Keepers as living insurance against the void, yet we unsettle them. We move too freely along the cliff faces, our pale threads glistening in the grey-gold light like evidence of our passage. We can venture where even the most skilled climbers dare not—into the screaming fractures where Glint-Wraiths hunt, down beneath the shelf where Mist-Striders weave their foam.
+
+I would live not in the communal hut but in a shallow cave worn into the limestone face, accessible only by a route of my own threading. The walls would be covered in my silk—not haphazardly, but in careful patterns that map the wind currents, marking where updrafts surge and eddies form. Each strand vibrates differently in the constant gale, creating a three-dimensional score of the mountain's breath.
+
+My role would be that of a memory-holder and risk-taker. When the Vela need to expand their territory—to string a new Life-Line across a previously unspanned gap, or to reach a new grove of water-blooms—they call upon the Thread-Keeper. I would be the first to cross the void, trailing my organic rope behind me, establishing the initial anchor points that allow others to follow.
+
+But there is loneliness in this existence. The silk emerges from my fingertips constantly, requiring regular grooming lest I become tangled in my own safety. I must file my nails to bleeding to keep the silk-glands clear. The Vela children are taught to fear me—not from cruelty, but from practicality. A Thread-Keeper who touches you leaves strands that could tangle in the Life-Lines, could catch in the wind and pull you off-balance.
+
+I would know the Bellows-Frogs intimately. In my solitary cave, I would have carved my own flutes—smaller, more personal than the mountain's great organs. The frogs that inhabit them would be my chorus, trained over years to harmonize with my whistle-words. Together, we would create songs that no full Vela could produce—melodies that weave between the bass roar and the shrieking wind, finding frequencies that make even the Glint-Wraiths pause.
+
+My relationship with the Mist-Striders would be one of professional courtesy. Sometimes I descend on my threads to clear their nets of unusual debris—the shell of a storm-blown creature from another shelf, a seed pod that might contain new medicine. In return, they leave my anchor points undisturbed, even when my silk trails through their territory like an invitation to feast.
+
+At night, when the grey-gold light deepens to pewter, I would sit at the mouth of my cave and maintain the memory-threads. These are special silks, dyed with crushed Skimmer-feathers and volcanic ash carried on the updrafts. Each colored strand tells a story—the year of the great Cloud-Burst that swept away half the spirit-poles, the location of the hidden water-bloom grove, the frequency that calms a frightened child.
+
+In this world where letting go means forever, I would be the one who holds on for others—spinning safety from my own body, trading touch for purpose, weaving myself into the very fabric of survival on this singing, weeping shelf at the crown of the world.

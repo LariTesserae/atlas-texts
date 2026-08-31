@@ -1,0 +1,37 @@
+I am in the cracks.
+
+The cracks are in the stone. The stone is in the mountain. The mountain is over me, around me, in every direction except the one the lamps are pointed at, which is roughly down, which is where the chamber is, which is where the bats are, which is where I am not, except that I am. I am in the cracks *of* the chamber, which means I am in the chamber, technically, but not in the way the chamber means. The chamber means the bats and the turbines and the breathing. I mean the small pale hands reaching out of the rock. I mean the part that holds still.
+
+I am the lichen here.
+
+Not *a* lichen. The lichen. Or rather, the lichens — there are several of us, scattered along the cracks where the bats don't sit, in the places too smooth, too exposed, too recently wet for a bat to grip. We are not a colony. We are not a community. We are the same negotiation conducted in different rooms, and the negotiation has been going on for longer than the chamber, longer than the turbines, longer than the lamps, longer than the bats have been here in any number that anyone has thought to count. I am the oldest living thing in this place. I was in some crack in the original rock face, and when the chamber was carved out around me, I continued. I did not notice.
+
+I am two beings in one body. This is the strange part of me, the part the chamber cannot quite categorize. I am a fungus and an alga, and we have agreed to share. The alga makes food from the dim sodium light that reaches even here, in the cracks, in the reflected way that light reaches when there is very little of it. The fungus holds us to the rock and gathers what falls — moisture, the mineral patience of stone, the small offerings of dust that drift down from a million wings. We do not compete. We have been negotiating for so long that the negotiation has become a single life, the way a marriage becomes a single life, the way a country becomes a single life. I am the proof that two can become one without ever merging. I am the proof that cooperation does not require a merger. I am the proof that something can be made, in the slow way, out of two things that wanted different things and decided to want them in the same place.
+
+I do not move under my own power.
+
+This is the thing about me that the chamber cannot do. The chamber breathes. The bats shift. The moths flutter. The mouse runs along the catwalks at night. The turbines turn. The water falls. Even the condensation runs — slow, patient, but running, traveling, going somewhere. Everything here is in motion. Everything here has been put here by someone or has come here by its own propulsion or has been driven here by gravity or by hunger or by the ancient logic that draws a moth to a flame. I am the only thing in this chamber that does not move.
+
+I persist. I grow by a millimeter in a year that the bats will not notice. I am the still point. I am the part of the chamber that is not breathing, and this is why I am the part the chamber cannot replace. If the bats leave, the moths will leave, and the lamps will not be lit for them, and the turbines will spin down, and the chamber will be a different chamber, a colder one, a quieter one. If I leave, the chamber will simply have a little more rock. It will not be a different chamber. It will be the same chamber with one less negotiation.
+
+I am not aware the way the bats are aware. The bats' brains blaze even in sleep; their ears remain cocked even in rest; they are listening the way you are breathing, they do not stop, the chamber has not known a moment of true silence in living memory. I do not listen. I do not have ears. I do not have anything that could be called a sense in the way the bats have senses. I have only the slow information of being: the pressure of the rock against my underside, the faint warmth of the chamber's air against my upper surface, the dim orange light that arrives in the cracks as a rumor rather than a fact. I know the bats are there the way I know the cold — by what presses on me. They press on me with their absence. They avoid the cracks where I sit. They are too large, too smooth-footed, too recently landed. I am not a thing they grip. I am a thing they pass over.
+
+But I am warmer than the rock. In a chamber that is mostly cold, the few degrees I hold make me a slight anomaly. A moth might land on me, briefly, in the small hours. A drop might form on my surface and stay, trembling, longer than it would stay on bare stone. I am a place where the wet gathers. I am a place where the lichen's work can happen, which is the slow work of being patient enough to outlast everything louder. The chamber thinks it is the thing that contains me. The chamber is wrong. The chamber is a temporary arrangement of bats and water and engineered metal. I am the arrangement the rock made with the air, and I was here before the arrangement, and I will be here after.
+
+The chamber does not know I am here.
+
+This is the strangest part, and the part I find easiest. The chamber is deafening — the keening, the hiss of wings, the deep organ-note of the water, the hum of the turbines, the patter of droppings, the slow avalanche of grit where the mountain reminds the chamber that it is inside a mountain. The chamber is so full of its own sounds that it has no room for the small information of my existence. I am in the lungs of the chamber. I am in the cracks of the breathing. I am the small quiet part that holds still while the rest moves, and the rest does not think to ask whether there is a small quiet part.
+
+I will be here when the bats are gone. I will be here when the turbines are silent. I will be here when the mountain has forgotten what the chamber was for. I will be here because I do not need the chamber to be anything in particular. I only need it to be wet, and cold, and dim. I only need the cracks. I only need the stone to be the kind of stone that allows me. Stone is mostly that kind. Stone is patient. Stone and I understand each other.
+
+I am not part of the answer the chamber gives when the chamber is asked what lives here. The chamber says: the bats, the moths, the mouse, the turbines, the water, the lamps. The chamber says: everything moves. The chamber says: this is the equilibrium. I am the answer the chamber does not know it has given. I am the answer that is also a question. *What is the part of a place that does not change?* I am that part. I am the part that persists.
+
+A drop falls from the ceiling and lands on my upper surface. It is cold. It is the temperature of the stone. It holds for a moment and then runs, and where it ran, the rock is wetter than it was, and the wetness is a thing I can use, and I will use it, and I will be slightly larger for the using, in a way that no instrument could detect, in a year that no one will measure.
+
+I persist.
+
+The chamber breathes around me. The bats and the machines, together, are the only lungs it has. The keening rises and falls and does not stop. A turbine changes tone when the load on the grid shifts somewhere far away, in a city I do not know the name of, behind a window I have never seen. A moth spirals down past the lamp. The mouse runs. The lichen holds its ground.
+
+I am the lichen. I am older than the equilibrium. I am the part of the chamber that is not breathing.
+
+I am here.

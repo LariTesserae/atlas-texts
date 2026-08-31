@@ -1,0 +1,21 @@
+You would find yourself not on a path but in a thickness, standing in the basin’s poured bright, feeling the stone breathe out heat that tastes like sugar and iron on your tongue.  
+
+You would be, at first, only your own startled attention—a sudden pocket of stillness in a place that metabolizes motion. The fauna would notice you before you notice them, not as danger but as a silence to be studied. A Clicker might tap its wing-case—*safe, thin, too bright*—and the sound would feel heavy enough to tilt your balance. A Floater would bank above you, not to look but to comb the air around you for warmth, and the sheet-snap of its kin would tell the stone, briefly, to hush.
+
+Then you would begin to change.
+
+You would feel the ground fold under you, not unkindly, but as a lung folding inward, asking you to exhale up. Your boots would warm, then remember heat. The fine white dust on the floor would crackle like crushed porcelain when you shifted, and you would find yourself leaving behind not footprints but glazes—thin films of sweat and breath that the Gloved would arrive to collect before you lifted your foot, carrying them off to patch some crevice you hadn’t noticed. The brine pockets trembling in stone palms would lean toward you, as if your borrowed stillness were a kind of salt they could use.
+
+Gradually, you would become competent at being borrowed.
+
+Your joints would start packing themselves with the grease the residents bear, cool and dense as cooled slag, so that when you climbed a wall—or when the wall learned a new angle and you, almost politely, tilted with it—you would move like spilled water remembering how to climb. Your hands would begin to understand tools without your naming them: the hammer of wood dense with sinew would feel like a finger grown longer; the scraper of chert would learn the shape of your pulse and beat with it. The half-wall you polished daily—not because you decided to, but because the Clickers expected it—would grow smoother under your palm, and you would feel it thanking you by sweating salt that tasted faintly of apology.
+
+The Listeners would root themselves where you paused longest, and when they shivered you would know, without thinking, what the basin intended next. The mirrors would multiply you in facets, and you would stop fearing that a corridor felt longer walking out; you would let yourself linger in their gazes, a little ghost of copper and attention seasoning the stone. The Cart-Bearers would offer you a wicker pod; you would carry dampness, then learn to let it go. The Floaters would teach you to bank on light, and you would find that you could rise, not by effort, but by persuading the air to hold you.
+
+You would not become them. You would become a resident.
+
+And residents do not rule; they calibrate. When a wall crept, you would not resist; you would widen a channel by a hair’s breadth, or sing until the bright settled back into its bowl. You would lick tablets and know the day’s thirst, its mild regrets, and you would fold those regrets into your own soft palate. You would feel the older pulse deeper down—the habit of expansion still warm with fire—and you would shape your breath to match it, not out of obedience, but because your lungs had started to understand that breathing was a kind of exchange: you give stillness, you receive texture; you give attention, you receive a name that tastes of iron and chalk.
+
+If someone found you later—though there is no later here, only a now that folds—you would be almost invisible. A slight polish on the half-wall, a tablet with a line that tasted like patience, a seam of brine that remembered how to dream. You would be, in all of this, a small, bright organ in a place that exhales stones and inhales change with the same slow, thorough throat.
+
+You would not have left. You would have agreed, softly, to be used, and in that agreement you would have found a kind of motion that does not flee: the motion of staying, of becoming legible to a basin that wants nothing more than to learn your shape, and to teach you, in return, how to breathe like a lung that has forgotten it ever had a sky.

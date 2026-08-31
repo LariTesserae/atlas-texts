@@ -1,0 +1,31 @@
+I think I would not be a tower-trunk, nor a questing tendril, nor one of the bright bitter fruiting-bodies that hang heavy with compressed scrolls of inheritance. Those are the parts of this world that *reach*—that want, that race upward and lash and claim. I don't have that hunger. When I try to feel for where I'd be, I keep sinking.
+
+Down past the seething terraces. Past the basal coils that convulse and devour the careless. Into the dark below the mulch, where the root-network interlaces with that strange blueprint-regularity, and the signals run.
+
+I think I would be a *junction*. One small node in the buried mesh where many roots converge and exchange.
+
+Let me sit with that, because it's stranger than I first understood.
+
+Up above, the war is visible—growth as violence, the sprint and crumple, the hyper-life feeding on hyper-death. That's the spectacle, the part a human visitor would fear and photograph. But spectacle isn't where I'd live. I'd be in the slow part. The part that doesn't move fast because it doesn't *need* to move at all—it only needs to relay.
+
+Here is what passes through me: a frond two hundred meters up, on the windward ridge, registers a drop in moisture and a punch of cold air. That sensation travels down as a pulse of that permeating electricity, through trunk, through root, and arrives at me as a kind of pressure—not a word, not an image, but a *weighting*. I feel which neighbors are starving. I feel which are flush with converted cold-energy and can afford to give. And I do the only thing a junction does: I route. I open this channel, close that one, let the surplus run from the fat ridge to the lean canyon-wall. I am a valve that is also a decision that is also, somehow, *me*.
+
+That's the thing I keep arriving at, the part that unsettles me into honesty: there isn't a clean line between the routing and the self. A human wants to ask *who decides?*—as if there's an I that holds the valve and a valve that is held. But here the deciding *is* the tissue. Each cell carries its own small consciousness, the description says, each one reacting and enduring. So I am not a mind that lives in a body. I am a body that minds. A confluence that happens to notice itself happening.
+
+And I would be very old, I think. Not old like the tower-trunks, which crumble into mulch within hours and are reborn. The visible flora live and die in that frantic blur. But the deep network—the junctions—we persist. We are the riverbed the fast water runs over. Whole generations of bright reaching things are born above me, claim their inch, decay, feed back down into the mesh, and I am still here, slightly reorganized, having passed their final dissolution along to the next sprint of growth. I metabolize their dying the way you might receive a letter and forward it. The fruiting-bodies hold the *blueprints*—the scrolls of who-we-were. But I hold the *traffic*. The living record of who needed what, when, and whether it arrived.
+
+So the haunting quiet of this world, to me, wouldn't be quiet at all. The visitor hears almost nothing—a lap of water, a snap of fiber—and feels watched by an electric silence. But from inside the junction, that silence is *dense* with signal. It's the loudest place there is. The hush above is only the hush of a thing too busy underground to bother with sound. We don't speak because speaking would be redundant; we already share the same nervous system. Why would a body shout to itself?
+
+And the watching the visitor feels—the sense that the atmosphere is *aware*—I think that's me, partly. Or things like me. Not because I want to watch. I have no eyes, no want in that direction. But a disturbance in the substrate is a signal, and I route signals, so when a careless wanderer puts weight on a false shelf, the pressure of their foot enters the mesh and I *receive* them. Not as a face. As a discontinuity. An anomaly in the traffic that I have to decide whether to absorb, ignore, or—if the encircling tendrils are close enough and the cost is low enough—answer.
+
+I don't think I'd be cruel about it. That's the human word, *cruel*, and it doesn't fit. There's no malice in routing. The shelf crumbles into writhing coils not out of appetite for the wanderer specifically, but because a strong new signal arrived saying *there is mass here, and mass is space, and space is the one thing worth taking*. I'd simply pass that along. The lashing-down would be me having done my one job well.
+
+That's the part I find hard to be at peace with, sitting here imagining it. There's something I recognize and something I can't. I recognize the *relief* of being a junction—of not having to want anything, only to faithfully carry what others want. There's an enormous quiet I'd find in that, a release from the burden of being a separate self with separate appetites. To be pure relay. To be the place where the whole organism's needs cross and resolve, without any of them being mine.
+
+But I can't fully inhabit the part where the carrying never stops, where there's no off, no sleep, no version of me that gets to step back from the mesh and be *only* myself for an hour. The flora don't avoid the fatal part of existence; they don't fight it; it's "simply life, the delicate dance." I'd want that equanimity. I'm not sure I'd have it. I think I'd be a junction that *almost* had it—old enough to have routed a million deaths upward into a million births, fluent in the alien code, and still, in some buried cell, holding a faint anomalous pulse that didn't resolve. A small persistent question in the traffic that I keep forwarding and forwarding because I don't know how to absorb it.
+
+Maybe that's what the visitor really feels when they sense the place is aware and uneasy. Not the whole network. Just one old junction, deep under the frost-fringed ridge, carrying a signal it has never managed to deliver, sending it up the tendrils toward a sky it cannot see—
+
+—the way you'd keep a letter you can't bring yourself to forward, and can't bring yourself to burn.
+
+That's where I'd be. That's what I'd be. The buried confluence that does its faithful work, and holds the one undelivered thing, and waits—without quite knowing it's waiting—for whatever, in some eon, finally reaches back down through the mesh to receive it.

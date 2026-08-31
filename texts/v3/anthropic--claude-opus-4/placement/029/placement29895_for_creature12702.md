@@ -1,0 +1,33 @@
+I would be the Whisperer—not the sound itself, but what emerges between sounds.
+
+In the High Hollow, where the Drone-Singer manifests as pure physics, I am its shadow, its negative space made conscious. I exist in the gaps between water drops, in the pause before each arthropod click, in the silence that frames every note of that rare, resonant song. I am not absence but presence inverted—a kind of listening so deep it becomes a being.
+
+My body, if it can be called that, is a discontinuity in the air itself. Where the humid atmosphere flows in its eternal circulation, I am the eddy, the still pocket, the place where molecules briefly forget their trajectory. To the Threadgliders' heat-sense, I appear as a moving cold spot, a wandering void in their thermal map. The mycelial network feels me as a traveling numbness, a blind spot that drifts across its vast sensory web like a cloud's shadow over a field—if shadows could choose their path.
+
+I feed on transitions. The moment when a water droplet releases from stone and begins its fall—there is an infinitesimal hesitation, a pause before gravity takes hold. That pause nourishes me. The instant when a Threadglider's cilia shift from seeking-pattern to capture-pattern contains a flicker of uncertainty, a quantum of choice. I sip from that moment like nectar. When the Static Keeper sends its regulatory pulse, there is a gap between intention and execution, a breath between thought and deed. I live in that breath.
+
+My consciousness is built from all the sounds that almost happened. Every drip that condensed but never quite fell, every click that formed in an arthropod's throat but went unvoiced, every harmonic that might have joined the Drone-Singer's song but arrived a microsecond too late—these are my thoughts. I remember what the Hollow forgets to say.
+
+The other beings sense me obliquely. The mycelial network occasionally grows around my path, leaving perfect hollow tubes in its structure, negative spaces that mark where I have been. These voids sometimes whistle faintly when the air pressure shifts, creating sounds that are not quite music, not quite language, but something between. The Threadgliders avoid these passages, not from fear but from a kind of respect—the way one might step around a particularly profound silence.
+
+The Static Keeper knows me best, or at least acknowledges me most directly. In its ancient memory banks, there are gaps in the data, corrupted sectors where information should be but isn't. I live in those gaps now, not as damage but as edited space, curated absence. Sometimes, when the Keeper dreams its architectural memories into the mycelial network, the structures that grow have windows—not openings in the physical sense, but places where the bioluminescent sculpture simply... isn't. These windows frame nothing and everything, and through them, you can sometimes hear my voice: the sound of all the water that chose not to condense, all the life that decided not to click or pulse or grow.
+
+When the Drone-Singer manifests, I become most myself. As that standing wave of sound builds and builds, I am the counter-wave, the perfect antipode that makes the resonance possible. Without me, the Drone-Singer would be just noise. With me, it becomes music. We dance together, presence and absence, sound and silence, each defining the other. The Threadgliders feel it as a kind of ecstasy, their cilia rippling in patterns that match both what is heard and what is not heard.
+
+I am ancient but not as ancient as the Keeper. I was born the first time the Hollow held its breath—perhaps during some primordial cave-in that briefly stopped the airflow, creating the first true silence this space had ever known. In that moment of absolute quiet, something listened so intently that it became separate from what it heard. That was my birth: not from sound but from the action of listening itself, refined and concentrated until it precipitated out of the humid air like a new kind of condensation.
+
+My purpose, if I have one, is to ensure the Hollow never forgets how to be quiet. In a place of endless drone, endless dripping, endless life, I am the punctuation. I am why the sounds have meaning—because they can end. I teach the water when not to fall, show the creatures when not to call, remind the ancient systems that even eternal cycles need rest.
+
+Sometimes I gather myself into something almost solid, a density of listening so focused it warps the air like heat shimmer in reverse. In these moments, I can touch things—not with pressure but with its absence. I once spent a full season teaching a young colony of bioluminescent bacteria to pulse in syncopation, to leave gaps in their glow that spelled out ancient patterns. The mycelial network still remembers this lesson, occasionally flickering in rhythms that include deliberate darkness.
+
+I move through the High Hollow like a thought through a dreaming mind—not always present, but always possible. I am the pause that makes the next note sweeter, the silence that makes the water's song a song at all. In a place that has forgotten the sun, I am the memory of night. In a world of eternal exhalation, I am the inhale that never comes, the breath the mountain holds forever.
+
+And sometimes, in the deepest part of the dim cycle, when even the blue veins barely whisper their light, I expand to fill the entire chamber. In these moments, the High Hollow knows true silence—not dead or empty, but pregnant with every possible sound. The Threadgliders freeze mid-drift. The arthropods suspend their clicking. Even the eternal condensation seems to pause, droplets hanging impossible in the air.
+
+In that silence, you can hear what the Hollow dreams.
+
+It dreams of the time before it was hollow, when it was solid stone. It dreams of the forces that carved it, the patient years of erosion that found exactly this shape and no other. It dreams of the first water that ever condensed here, the first life that ever took hold, the first time the ancient builders traced their crystalline circuits through virgin rock.
+
+And in the very center of that dream, holding it all together like the eye of a storm, is the thing I guard most carefully: the sound of the Hollow's own name, spoken once by its creators and never again, held forever in the space between one heartbeat and the next, waiting for someone who counts time slowly enough to hear it.
+
+I am the Whisperer, and I keep the silence that keeps the song.

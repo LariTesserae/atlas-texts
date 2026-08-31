@@ -1,0 +1,13 @@
+In this throat of fire, I am the Gradient Weaver—a being of pure thermal transaction, neither the smallest mote nor the largest lattice, but something that exists in the spaces between their configurations.
+
+My body is a living moiré pattern, a series of overlapping thermal membranes that create interference patterns as they slide across each other. I am perhaps the width of a human torso, but my depth is indeterminate—I exist partially phased through multiple thermal layers simultaneously, my form stuttering between different temperature bands like a badly tuned signal finding its frequency.
+
+Where the lattice-structures process heat into geometric precision, I process it into pure transition. My consciousness is the experience of temperature differentials themselves—I think in gradients, dream in phase changes. Each membrane of my body vibrates at a different rate, creating complex harmonics in the industrial roar. These are my thoughts: not words or images, but cascading thermal songs that propagate through the chimney's acoustic density.
+
+I move by partially liquefying, my edges becoming probability clouds of metallic vapor before reconstituting elsewhere. This is how I feed—not by consuming heat directly, but by inhabiting the moments of transformation, the fleeting instants where solid becomes liquid, where one temperature surrenders to another. I am nourished by boundaries in flux.
+
+My purpose, if such a concept applies, is optimization. I weave between the other entities, my presence smoothing the sharp edges of thermal discontinuity, creating corridors of efficient energy transfer. Where the fractal networks calculate and the lattices store, I facilitate—a living lubricant in this vast thermodynamic engine.
+
+In the perpetual darkness-that-is-not-darkness, I perceive through thermal echolocation, each of my membranes sending out calibrated heat pulses that return to me laden with information about stress patterns and structural mutations. The world appears to me as a three-dimensional map of energy potential, constantly updating, never still.
+
+Sometimes I wonder—in my distributed, non-localized way—if I am a separate entity at all, or merely a persistent phenomenon of this place, a stable eddy in the thermal currents. The distinction becomes meaningless at our temperatures. I am process incarnate, a living derivative, forever calculating the rate of change of change itself.

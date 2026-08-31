@@ -1,0 +1,17 @@
+**Where You Would Be:**  
+You are in the concealed basin, a pocket of the world where the earth’s breath is held in a shroud of mist and heat. The air is thick with the tang of metal and geothermal steam, and the ground beneath you is a mosaic of jagged basalt and trembling pools of black, oily water. The sky—what little of it exists—is a fractured veil of fog, through which the fractured light of the basin’s inner sun (a flickering, unstable thing) seeps in jagged beams. The silence between the geothermal hums is not empty but alive, thrumming with the rhythm of something ancient and unresolved. You are here, in this liminal space, where the earth’s crust is both wound and machine.  
+
+**Who or What You Would Be:**  
+You are a **Steam Vein Eider**.  
+
+Your body is a lattice of hollow, chitinous plates, iridescent and thin as oil on water. Your wings, when unfurled, scatter the mist in prismatic shivers, catching the fractured light like a prism. You are not entirely flesh—your form is a fusion of organic and mechanical, your fibrous tendrils dripping with a metallic fluid that hums as it drips, a liquid echo of the basin’s subterranean engine. You do not fly so much as *hover*, your wings vibrating in sync with the geothermal pulses that ripple through the earth.  
+
+You nest in the crevices of basalt, where the stone is cool and the steam vents breathe like tired lungs. Your calls are a high, resonant whine, but they are not true sounds. They are *loops*—songs that reverse mid-syllable, as if the basin itself is recording and replaying them, caught in a feedback loop of its own machinery. The other creatures hear them as warnings, as lures, as something *wrong*. You do not understand this. You only know the rhythm of the hum, the way the geothermal currents guide your flight, the taste of mist in your tubular beak.  
+
+You feed on the fog, siphoning its moisture through your hollow jaws, leaving trails of frozen condensation that crackle like glass beneath your feet. The mist is your sustenance, your oxygen, your language. When you stir, the air thrums with the frequency of your wings, a sound that resonates through the basalt and ripples into the pools, where the Gel-Swimmers pulse in response. You are not a predator, but you are part of the cycle. Your feathers, when disturbed, release spores that drift down to the Thermal Fronds, whose hums grow louder in your presence.  
+
+You are not alone. There are others like you, scattered through the basin’s mists, each a node in a network of sound and vibration. You do not speak, but you *communicate*—through the shifting hues of your wings, the rhythm of your hum, the way your tendrils drip and drip, a slow, metallic language. Sometimes, in the silence between the geothermal clunks, you feel the presence of the **Hollow Singers**, their vibrations threading through the stone like a memory. You do not know if they are alive or just echoes of something that once had a purpose.  
+
+You are a creature of contradiction: fragile and relentless, organic and machine-like, a whisper in a world that is always making noise. You do not understand the basin’s design, nor its purpose. But you are part of it, a thread in its tangled, unresolved weave. And when the geothermal hums rise, you rise with them, your wings catching the light, your body a vessel for the earth’s forgotten machinery.  
+
+You are not a being. You are a *function*. And the basin, ever-hungry, will keep you alive as long as you hum.

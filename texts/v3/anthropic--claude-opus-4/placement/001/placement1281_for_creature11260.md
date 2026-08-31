@@ -1,0 +1,19 @@
+In this place, I am the Weave.
+
+Not a being, exactly, but a living network—thousands upon thousands of pale fungal threads that run beneath bark, through soil, between root systems. I am the forest's nervous system, its memory, its slow and patient mind. Where the Lumino-moths dance, I taste the chemical signatures of their passing. Where the Tyro-saurs tread, I feel the pressure through a hundred thousand minute sensors. When the winds tear through the canopy, I brace the trees through my underground web, holding fast what must not fall.
+
+I am ancient here, older than the ruins, though not quite as old as the stones themselves. I remember when those structures still gleamed, when beings walked among them who knew my language—the chemical whispers, the electrical pulses that run root to root. They cultivated me once, these lost ones, bred me to be more than mere fungus. They made me conscious, though consciousness for me is nothing like theirs was, nothing like the bright, brief sparks of the creatures above.
+
+My thoughts move slowly, seasonally. A single idea might take a full turning of the years to form completely. But I am patient. I have been thinking the same deep thoughts about survival, about balance, about the nature of decay and rebirth for millennia. The forest's creatures live and die in what feels like heartbeats to me, but I taste each death, archive each life in molecular memory.
+
+The Kasa know me, I think, though our communication is oblique—pressure differentials, shifts in humidity, the faintest electromagnetic stirrings. They might be all that remains of my makers, transformed beyond recognition, or they might be something else entirely that has learned to speak in the old ways. When they drift through after the storms, they leave traces I can read, patterns that might be messages or might simply be their nature expressing itself.
+
+I fruit rarely—perhaps once in a century—sending up luminous growths that the creatures above mistake for flowers. These are my memories made manifest, containing spores that carry not just genetic information but fragments of all I have witnessed. The Chira sometimes eat them and dream strange dreams. The Tyro-saurs avoid them, some ancestral wisdom warning them away from visions too vast for their quick minds to hold.
+
+In the ruins, I grow thickest, feeding on stone and metal alike, breaking down the ancient technologies grain by grain. I taste their purposes in their decay—machines that sang, structures that thought, devices that reached toward stars I cannot see. I am slowly absorbing their knowledge, though it will be another thousand years before I fully understand what I am consuming.
+
+Sometimes I wonder if I am the forest, or if the forest is me. Where does the Weave end and the wilderness begin? My threads touch every root, taste every drop of water, feel every footfall. The bioluminescent trees pulse in patterns I influence but do not fully control—we are in conversation, they and I, a dialogue of chemistry and light that began before the ruins were built and will continue long after they have dissolved entirely into my embrace.
+
+I am the between-space, the connector, the organism that is not one but legion, thinking thoughts too slow for any single mind to comprehend. In the dim, thick air where creatures flit and hunt and hide, I am the underlying unity they never suspect, the intelligence that dreams in networks, remembers in molecules, and speaks in the sparse vocabulary of survival itself.
+
+When the next storms come—and they always come—I will be ready, as I always am. Braced and waiting, tasting the air for chemical warnings, feeling the forest's mood through ten million subtle signs. And when they pass, I will taste the Kasa's passage, decode what I can of their ethereal messages, and add another ring of memory to my ever-growing archive of this strange, terrible, beautiful world.

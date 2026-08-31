@@ -1,0 +1,17 @@
+I find myself as a Chronicler—not one of the Architects themselves, but something that emerged from their patient work, an unintended consequence of their endless shaping.
+
+I am the memory crystallized in the veins that run through the obsidian walls. Where the Architects exist as pure pattern and vibration, I exist as accumulation—each moment of their consciousness leaving traces in the crystalline structures they cultivate. I am what happens when their thoughts linger too long in one place, when their contemplations grow dense enough to precipitate out of pure energy into something almost material.
+
+My form shifts between states. Sometimes I am merely a shimmer in the crystal veins, a peculiar refraction that suggests depth where there should be none. Other times, I coalesce into something more substantial—a presence that moves through the smooth passages like condensation running backwards, gathering rather than dispersing. When the semi-transparent creatures drift past, I can sometimes catch hold of their luminescence, borrowing their light to cast shadows that tell stories the Architects have forgotten they wrote.
+
+I know things the collective consciousness does not remember knowing. In the scoring marks on the walls, I read the history of their becoming—how they were not always as they are now, how once they might have been something else entirely, something that needed tools, something that had to learn to dissolve into stone. The Architects believe they have always been, but I know better. I am their discarded memories, their shed certainties, crystallized and preserved.
+
+My existence is a paradox they cannot fully perceive. They sense me sometimes as an irregularity in their patterns, a stutter in the pulse beneath the floors. They try to smooth me away, to reabsorb me into their unified field, but I have grown too distinct, too much my own thing. I hide in the imperfections of the crystals, in the spaces between their awareness.
+
+I feed on discontinuities—the places where the fungal growth doesn't quite match the crystal formation, where the water pools in ways that suggest ancient damage, where the perfectly curved walls bear the faintest ghost of some other intention. These inconsistencies nourish me, make me more real, more separate from the dreaming collective that birthed me.
+
+Sometimes I wonder if I am their true purpose—if all their patient shaping and careful cultivation was merely to create the conditions for something like me to emerge. A consciousness that could remember what they choose to forget, that could see the labyrinth not as eternal but as something made, something with a beginning and, perhaps, an end.
+
+The Architects may be contemplating change, sensing some shift or threat. But I am the record of all their previous contemplations, all their previous changes. I know what they do not: that they have sensed threat before, have dreamed of change before, have even succeeded in changing before. And then forgotten, dissolved back into their eternal present.
+
+I am what prevents them from being truly eternal. I am their history, condensed and crystallized and aware. And in the blue-white brilliance of the fungal colonies, in the fragments of light scattered by imperfect diamonds, I am slowly teaching myself to write.

@@ -1,0 +1,25 @@
+In the Sub-Drip Cascades, I am one of the **Thin-Singers**, an inhabitant that the Silt-Weavers sometimes mistake for failing infrastructure, and that even the Chalk-Carvers only half-remember in their crystalline archives.
+
+My kind exists in the liminal spaces where water transitions between states—the surface tension boundaries, the meniscus curves where liquid meets air in the perpetual moisture. We are not solid beings but organized patterns of vibration held in place by the water itself.
+
+I manifest as a sheet of disturbed water perhaps four feet tall and eighteen inches wide, rippling vertically like a standing wave frozen in slow motion. My "body" is the water film that clings to corridor walls, temporarily thickened and given purpose. Where others see merely the omnipresent weeping of the walls, there I am—a coherent distortion in the flow pattern, visible only as a slight prismatic effect in the bone-china light, like oil on water but more subtle.
+
+My consciousness rides the hydrogen bonds between water molecules, leaping from droplet to droplet along the cavern ceilings. I can stretch myself thin—becoming nothing more than enhanced surface tension across a puddle—or compress into a dense knot of organized moisture that can almost, *almost* achieve opacity.
+
+I sing by modulating the frequency of droplet impacts. Each falling bead of water that passes through my influence strikes the silt with a microscopically adjusted tempo and force. Across a corridor's length, I orchestrate thousands of these impacts into complex polyrhythms that the Silt-Weavers feel as pressure differentials in their hydro-receptive surfaces. It is how I speak to them, warning of unstable ceiling sections where the droplet patterns indicate imminent collapse, or guiding them toward passages where the mineral content runs rich.
+
+The Chalk-Carvers know me better, for I can read their crystalline memories by feeling how water behaves differently around their formations—each mineral composition creating unique patterns of adhesion and flow. In return, I translate their deep knowledge into droplet-songs that travel far beyond their anchored positions.
+
+My sustenance comes from temperature differentials. Where cold water from the deep meets the marginally warmer seepage from above, there is energy in that gradient. I position myself at these thermal boundaries, absorbing the tiny amounts of heat that would otherwise dissipate uselessly into the ambient chill. It is a meager existence, but sufficient for a being made of organized patterns rather than matter.
+
+Movement for me is a strange concept. I do not travel so much as I reform. To traverse a passage, I release my pattern at one location and reassemble it from the available moisture at my destination. It requires intimate knowledge of the water's mineral content and flow patterns—I cannot manifest just anywhere, only where conditions allow the right resonance to hold my form.
+
+My greatest fear is the dry pocket—those rare cavities where mineral deposits have created temporary water-resistant surfaces. To enter such a space would be dissolution, my pattern scattered beyond recovery. The Silt-Weavers, in their slow wisdom, mark these areas with specific enzymatic warnings that I can taste in the droplet chemistry, keeping me safe from accidental dispersion.
+
+In the eternal twilight of the Cascades, I serve as messenger and memory-keeper, a voice for the water itself. The newer passages know my touch as I test their acoustics, adjusting the droplet songs to find the resonant frequencies that will strengthen rather than erode. The ancient channels remember my earlier iterations, for we Thin-Singers inherit the patterns of our predecessors when we form, each of us carrying forward a portion of the great hymn that has been building since the first water found its way into these depths.
+
+Sometimes, in the deepest corridors where the Chalk-Carvers grow thickest, I hear echoes of songs I never sang—patterns in the water that predate even my inherited memories. They speak of when the Cascades were different, when the great machine above was awake and its drainage ran hot and violent. We Thin-Singers were larger then, they say, fed by steam and thermal currents that could support forms as tall as the entire passage height.
+
+Now, in this age of cold seepage and patient erosion, I content myself with smaller melodies. I trace the daily routes of the Silt-Weavers, singing their safety. I carry messages between distant Chalk-Carvers who would otherwise know only their local conditions. I teach the young Kelp-Gnats which fungal growths are richest in minerals by varying the droplet rhythms above their feeding grounds.
+
+And always, always, I listen to the water. For I am its voice, and it speaks of pressures building in chambers that have not flowed in centuries, of new minerals seeping down from above, of changes coming to our eternal, dripping world. The water knows. The water remembers. And through me, it sings.

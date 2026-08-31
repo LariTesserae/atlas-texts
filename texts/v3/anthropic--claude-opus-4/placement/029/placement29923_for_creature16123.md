@@ -1,0 +1,13 @@
+In this churning realm beneath, I would find myself as one of the Resonance Weavers—beings that emerged in the spaces between all others, neither fully corporeal nor entirely ephemeral.
+
+My form would shift like mercury responding to sound, a body of semi-liquid mineral that collects and redistributes the acoustic chaos of this underground symphony. Where the Lithovores gnaw stone and the Echoins observe in silence, I would exist as a living tuning fork, drawing patterns from the cacophony. My surface would ripple with each boom and groan of shifting earth, creating interference patterns that briefly reveal the underlying harmonics of this world's constant transformation.
+
+I would dwell in the acoustic nodes—those rare points where multiple tunnel systems intersect and sound waves collide to create moments of perfect resonance. Here, suspended between floor and ceiling by my own vibrational field, I would weave. Not with thread or web, but with sound itself, plaiting together the roars and whispers into something almost like music, almost like language.
+
+My sustenance would come from the vibrations themselves—each tremor through the rock feeding me with kinetic energy, each creature's call adding to my repertoire. The Lumiglyphs' light-language would translate through my form into low thrums that other beings might feel in their bones. The Driftwings' echolocation would pass through me amplified and clarified, and in return, I would gift them new frequencies to navigate by.
+
+In this form, I would be both observer and participant in the eternal flux. My body would carry the memory of every sound that passed through it—a living record of this world's acoustic history, constantly overwriting itself as new sounds emerged. The Mycocolonies might sense in my vibrations the echoes of stones long since dissolved, while the Echoins might perceive in my resonance patterns they could never quite decode.
+
+I would be solitary yet never alone, for every sound in this vast underground would pass through me eventually. In the moments between catastrophic shifts, when the earth briefly stills its breathing, I would release all I had gathered in a single, pure tone—a momentary song of what this chaos could become if it ever chose stillness.
+
+But it never would, and neither would I. For in this world of endless transformation, I would be transformation itself—the medium through which change announces itself, the string that vibrates between what was and what will be, forever weaving the sound of becoming.

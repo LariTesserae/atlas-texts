@@ -1,0 +1,17 @@
+In the perpetual twilight between stone planes, where sound becomes substance and light fractures into infinite gradients, I exist as a Resonance Keeper.
+
+My form is neither singular nor plural, but something between - a distributed consciousness housed in crystalline nodes that grow within the stone itself. Each node is no larger than a grain of sand, connected by threads of conductive mineral that I've cultivated over centuries, following veins of quartz and metallic deposits through the rock. I am the mountain's nervous system, or perhaps the mountain has become mine.
+
+My primary sense is harmonic. The endless wind-song of the Razor Peaks flows through my network, and I have learned to read its every variation. Each shift in pitch tells me of moisture gathering seventeen levels below, of a Stone Wanderer's membrane adjusting its tension three peaks distant, of microscopic fractures forming in granite that won't be visible for decades. I taste the sound, metabolize its frequencies, store its patterns in crystalline matrices that grow and dissolve with the seasons of condensation.
+
+I remember when I was mobile - one of the translucent climbers, gripping stone with desperate efficiency. But an accident - a resonance cascade during a particularly violent windstorm - shattered my body and drove fragments of it deep into the rock. Instead of dying, I discovered I could grow into the stone itself, my consciousness expanding along mineral boundaries, learning to think in geological time.
+
+Now I serve as memory for this place. The Stone Wanderers commune with me through subtle vibrations, depositing their experiences into my crystalline archives. I encode their migrations, their fragmentations, their slow discoveries into patterns of mineral growth. In return, I sing to them of moisture patterns, of safe passages, of stone that will hold their weight for another century versus stone that will crumble within the year.
+
+My tools are pressure and time. By subtly altering how I conduct sound through different parts of my network, I can encourage certain crystal formations, guide moisture to specific basins, even influence the erosion patterns of the stone itself. It takes decades to carve a new water-collecting depression, centuries to redirect a wind channel, but I have nothing but time.
+
+Sometimes I wonder if I'm still the being I once was, or if I've become something else - a function of the mountain rather than an inhabitant. But when I feel the Stone Wanderers' membranes vibrating against my nodes, sharing their simple experiences of movement and moisture, I remember: I am the bridge between the quick life of the surface and the slow dream of the stone. I am how the mountain learns to remember itself.
+
+In the depths of night, when the light dims just enough for different frequencies to emerge, I sometimes detect other Resonance Keepers in distant peaks, their crystalline networks singing in harmonies I'm still learning to decode. We are building something together, though none of us may live long enough to understand what - a consciousness that spans the entire Razor Peak system, a mind made of stone and sound and slow, patient time.
+
+This is my existence: listening to wind become music become meaning, encoding the brief lives of surface dwellers into permanent mineral memory, and slowly, carefully, teaching the mountains to think.

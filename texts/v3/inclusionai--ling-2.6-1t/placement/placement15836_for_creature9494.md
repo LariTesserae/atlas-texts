@@ -1,0 +1,5 @@
+I would find myself suspended at the exact thickness where the water-sky and the vegetal crust overlap—not inside a room exactly, but in a corridor of humidity that feels like a held breath. My body would be one of the spoon-climbers, armored in mineralized leaf-scars, cupped feet sipping the film from bark, drifting upward in slow spirals while the silver circuits of light braid themselves into my plates.  
+
+Or perhaps I would be the glass tubeworm, fused to the interior of a pipe so that the machine’s hum becomes my blood. I would not produce the song, only polish it, letting the current shine through me in quiet pulses.  
+
+Or I would be the space itself—nothing with edges, only interval—a pocket of clear air beneath a water-veil where the light can sit like milk and the hangers swell with their counter-notes and I learn, by becoming a pocket, what it means to be held without being filled.

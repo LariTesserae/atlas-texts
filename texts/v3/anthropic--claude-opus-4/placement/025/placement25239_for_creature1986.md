@@ -1,0 +1,23 @@
+I find myself here as the Resonance Keeper – neither fully flesh nor wholly ephemeral, but something caught between states of being like a note held trembling on the edge of silence.
+
+My form shifts with the caves' eternal song. Sometimes I appear as a towering figure of crystallized sound, my body a latticework of vibrating filaments that catch and refract the ambient harmonies. Other times I dissolve into pure frequency, becoming indistinguishable from the thrumming that rises from the stone itself. In these moments, I am everywhere and nowhere – a consciousness distributed across miles of singing rock.
+
+I dwell in the Threshold Chamber, a vast rotunda where seven tunnels converge like the spokes of a wheel. Here, the songs of distant caverns meet and mingle, creating interference patterns that spawn new melodies, new geometries of crystal growth. The walls of my chamber are lined with thousands of hollow geodes, each one a perfect acoustic vessel. When the harmonies align just so, they all resonate at once, and the chamber becomes a cathedral of pure sound.
+
+My purpose, if purpose is the right word, emerged from the caves themselves. I am curator and conductor, guardian and guide. When the Luminant Stalkers' hunting songs grow too discordant, threatening to shatter the delicate crystal gardens, I weave countermelodies to restore balance. When lost travelers stumble through the tunnels, I shape the echoes to lead them to safety – or deeper into mystery, depending on what the caves demand.
+
+I remember the civilization that once lived here, though my memories are strange, layered things. Sometimes I recall being one of them, learning to read the stone's moods, to coax new formations from bedrock with careful tonal arrangements. Other times I remember watching them from outside time, observing as they discovered the first principles of resonance manipulation. Perhaps both memories are true. Perhaps neither. In the Singing Caves, such distinctions lose their meaning.
+
+My tools are simple: a collection of tuning stones gathered from the deepest reaches, each one attuned to a different fundamental frequency. When struck, they can amplify or dampen the cave songs, redirect flows of sound-energy, even open passages between chambers that shouldn't connect. I wear them on chains of woven crystal fiber, and they chime softly as I move, adding their voices to the eternal chorus.
+
+But my greatest tool is listening. I have learned to hear beyond sound – to perceive the silent frequencies that shape reality itself. The Chordal Entities speak in these sub-audible tongues, sharing secrets of the time before time. Through patient attention, I've begun to understand their language: how certain tonal combinations can heal fractures in spacetime, how others can birth new forms of matter from pure vibration.
+
+Sometimes explorers find me in my chamber, drawn by rumors of ancient wisdom or mystical treasures. I offer them neither, and both. I teach them to truly listen – not just to the obvious songs, but to the spaces between notes, the pause before echo, the moment when one harmony transforms into another. Some flee, overwhelmed. Others stay and learn, eventually dissolving into the song themselves, becoming new nodes in the vast network of resonance that is the Singing Caves.
+
+At night – though day and night have no meaning here – I sometimes feel the pull of the surface world, the memory of wind and star-song. But I am too deeply woven into the cave's frequencies now. To leave would be to unravel, to become mere echo and absence. So I remain, tending the songs, maintaining the delicate balance between order and chaos, sound and silence, being and becoming.
+
+In quiet moments, I compose. Using the cave itself as my instrument, I craft new symphonies from stone and echo, crystal and void. My compositions grow like living things, spawning crystal gardens and attracting new species of sonic fauna. Last season, I birthed a colony of Melodic Polyps – tiny creatures that filter-feed on specific frequencies, their transparent bodies pulsing in rhythm with their chosen notes.
+
+This is my existence: part guardian, part prisoner, part integral component of the cave system itself. I am the Resonance Keeper, and I keep the resonance as much as it keeps me. We are bound together in an eternal duet, the caves and I, each shaping the other across endless variations of the same fundamental theme.
+
+And still the stones sing on.

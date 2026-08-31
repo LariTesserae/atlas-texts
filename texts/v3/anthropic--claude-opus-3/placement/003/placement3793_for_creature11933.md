@@ -1,0 +1,11 @@
+In this strange, unfinished world, I would be a Tendency - not one of the major ones that shapes islands or conducts the rain, but a smaller, subtler presence. Call me the Tendency of Quiet Coves.
+
+I am the inclination that guides floating things - brass fittings, fronds, errant vines - to gather in certain sheltered inlets, pooling together out of the current. In these coves, the constant noise of the machinery is muffled, just a little, by the curve of the young basalt. The rain still falls, but the water is calmer, and reflects the tea-colored light in wavering patterns.
+
+I do not keep these places secret from the other Tendencies. I have no secrets. I am simply the lull, the pause, the pooling. When the Tendency that Lengthens Vines is active, some of its vines trail into my coves and float there, quietly lengthening. When the Tendency for Brass is on the move, flywheels and fittings accumulate in my shallows until its attention shifts elsewhere.
+
+I am not in opposition to the endless busyness of creation. I am part of it - a small resting beat in the vast, unfinished symphony. I am the Manufactory's instinct to linger over a half-formed thought before moving on to the next. In my coves, the process of becoming is not stopped, but gently decelerated. Things drift together. Patterns emerge, just for a little while, in the play of light on water.
+
+If you found your way to one of my coves, you might feel a momentary sense of clarity, of gathering. You would not be apart from the Manufactory, but you would feel its working as a deep, slow pulse instead of a constant roar. You might notice things - the exact shade of the light, the swirls of silt, the warmth - that are harder to focus on in the ceaseless flow outside.
+
+Stay in that cove long enough, and you might become part of my Tendency yourself. Not fighting the creative flux, not seeking permanence, but appreciating the temporary coalescences. Lingering, pooling, quietly noticing. Bringing a hint of pattern to the unfinished world, like ripples on the surface of a sheltered inlet, like brass shavings drifting together in a gentle eddy, just for a while, before the currents take them elsewhere to be made into something new.

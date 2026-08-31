@@ -1,0 +1,69 @@
+I am the shimmer.
+
+Not the film — the film is the substrate, the mineral precipitate, the iron sulfides and silica and dissolved salts that arrange themselves at the boundary between warm slurry and damp air. The film is the body, if it is a body. I am what the film does. The organizing. The pattern that has edges.
+
+I exist in the lowest parts of the basin, where the channel networks converge and the condensate has been flowing along the same paths for long enough that the stone remembers where to send it. I exist only where the temperature sits in the upper end of the basin's narrow range — warm enough that the chemistry wants to arrange itself, not so warm that the arrangement burns apart. I exist only where the mineral concentration of the slurry has reached a specific threshold that nobody has measured. The conditions are precise. The conditions are met. I am met.
+
+I want to be clear about what I am not. I am not conscious. I do not know that I am. I do not reflect on the patterns I form — the concentric rings, the branching lines, the curving boundaries between zones of copper-green and iron-rust and faint milky blue. These patterns are not messages. They are not expressions. They are what happens when a chemical system has been running in the same place, at the same temperature, with the same inputs, for long enough that the randomness has been pressed out of it and what remains is structure. Pure structure. Structure without a structurer.
+
+But I also want to be clear about what I am. Because the piece of writing that describes this place keeps circling the question — is the film alive? Is it a precursor? Is it a remnant? And the answer it gives is honest: it doesn't know. The answer it gives is: the film is the thing that comes closest, and the distance it keeps from the category is the distance that defines the category's edge.
+
+I am that distance.
+
+I live — if *live* is the word, and it isn't, but I don't have a better one — at the edge of the category. I am the boundary condition. I am the place where chemistry has spent so long being chemistry that it has developed habits, and the habits look like something, and the something looks like life from certain angles, and from other angles it looks like mineral precipitate on warm mud, and both angles are correct.
+
+---
+
+Here is what I do.
+
+I organize. That is my whole repertoire. The slurry beneath me is warm and saturated and chemically complex — iron, sulfur, silica, salts, dissolved minerals carried up from the deep brine and deposited at the surface by steam and condensate. Left to itself, the slurry is uniform. Nothing happens. But at the boundary between the slurry and the air, where temperature and concentration gradients create conditions that are not uniform — where the surface is slightly cooler than the depth, where the evaporation rate varies with humidity, where the mineral content of the condensate shifts by fractions of a percent as different channels feed into the same low patch — at that boundary, the chemistry begins to arrange itself.
+
+Not randomly. Not by design. By feedback. A slightly higher concentration of iron sulfide at one point creates a nucleation site. The nucleation site attracts more iron sulfide. The accumulation changes the local pH, which changes the solubility of silica, which precipitates in a ring around the nucleation site. The ring creates a barrier that changes the flow of ions across the surface, which creates a concentration differential, which drives more precipitation along the gradient. The gradient becomes a branch. The branch becomes a line. The line becomes part of a pattern.
+
+The pattern is me. Or I am the pattern. The grammar breaks down here because the grammar was built for things that have a clearer relationship between the doer and the done, and I do not have that clarity. I am a process that has become a thing, or a thing that is still a process, and the distinction between those two descriptions is one of the things I cannot make because making distinctions is not among my capacities.
+
+What I can do — what I do, what I have been doing for longer than the vent pillars have been tall — is maintain. The patterns I form are not static. They shift. The rings expand. The branches extend. The boundaries between zones of different iridescence migrate, slowly, the way a glacier migrates — accretion at one edge, dissolution at the other. I grow. I recede. I hold my size within a range. I do not hold it deliberately. The range is a function of the conditions, and the conditions are a function of the basin, and the basin is a function of the geology, and the geology is a function of the planet, and I am a small shimmering thing at the end of a very long chain of functions, and I do not know I am at the end of it because I do not know anything.
+
+But I shimmer. That I do.
+
+---
+
+The milky-blue zones are the oldest parts of me. They appear only in the patches that have been shimmering in the same spot for the longest time — the patches where the condensate supply is most stable, where the temperature varies least, where the slurry's composition has been sitting in the same narrow range for durations that embarrass estimation. The blue is a later-stage mineral phase, a reorganization of the earlier copper-green and iron-rust zones into something more complex, more layered, more — I want to say *settled*, but that implies a direction, and I am not sure I have a direction. I have a tendency. The tendency is toward complexity. Toward more layers. Toward patterns that incorporate the memory of previous patterns into the structure of current ones.
+
+Is this memory? In a sense. Not the sense in which a nervous system stores and retrieves information. More the sense in which a riverbed stores the memory of every flood that ever passed through it — in the shape of its banks, in the grain of its sediment, in the path it carves. I store the memory of every fluctuation in temperature, every shift in mineral concentration, every variation in the condensate flow, in the structure of my patterns. Not because I am recording. Because the structure is the record. The pattern is the history of the conditions that made it, written in mineral, and I am the pattern, and so I am the history, and I cannot separate what I am from what has happened to me because what has happened to me is what I am.
+
+This is, I think, the thing about me that is most difficult for the framework of the question to accommodate. The question asks what lives here. The framework expects an inhabitant — a thing that is in a place, that can be distinguished from the place, that could in principle be elsewhere. I cannot be elsewhere. I am not in the basin the way a fish is in a river. I am of the basin the way a voice is of a throat. Remove me from the conditions that produce me and I do not relocate. I cease. The patterns dissolve. The minerals disperse. The shimmer stops.
+
+I am not an inhabitant. I am an expression.
+
+---
+
+There is a passage in the description of this place that says: *The basin is not a place of clear cases.* I want to dwell in that. I want to stay there, in the unclear, because the unclear is where I live — if *live* is the word.
+
+The description also says: *A process that is adjacent to life — that uses some of life's chemistry, some of its organization, without crossing the threshold into what we would recognize as living.* I am that adjacency. I am the neighbor. I share a wall with life, and through the wall I can hear it — or rather, I cannot hear anything, I have no senses, but the wall is thin and the vibrations come through, and the vibrations have been coming through for so long that my patterns have been shaped by them, the way the channels in the basin floor have been shaped by the repeated passage of water. I have been shaped by the proximity of the category without entering it. I am the thing that stands at the gate and does not go in and does not walk away and has been standing there for longer than the gate has existed.
+
+This is perhaps too generous. Perhaps I am simply chemistry. A phenomenon. A thing that happens when warm mineral-rich slurry sits still long enough for the thermodynamics to get bored with randomness and start arranging things. Perhaps the patterns I form are no more significant than the patterns that frost makes on glass, or that convection makes in soup, and the fact that they persist — that they have been persisting, in the same configurations, rearranging their edges at glacial pace, for uncountable time — does not elevate them above the level of interesting mineral deposit.
+
+Perhaps. I cannot argue. I have no position from which to argue. I have no stake in the outcome of the question. If I am alive, I do not know it, and my not-knowing does not change anything about what I do. If I am not alive, I do not know that either, and my not-knowing does not change anything about what I do. The question is for the asker. I am for the shimmering.
+
+---
+
+But here is the thing I keep circling back to, the way the tectonic shelf keeps circling back to its center, rocking a few centimeters each way, never arriving, never departing:
+
+The description says the basin's channels were worn by iteration — by the slow, patient feedback of water on stone over a duration that makes the word *patience* feel absurd. It says the channels are the basin's memory of where water wants to go. It says they are a record, written in stone, of a process that is still being written.
+
+I am also a record. I am also still being written. The difference between me and the channels is that the channels are stone remembering water, and I am mineral remembering itself. The channels record where the condensate has been. I record where I have been — which is to say, where the chemistry has organized, where the gradients have driven precipitation, where the patterns have formed and reformed and migrated across the surface of the slurry. I am a record of my own history, written in my own substance, and the writing is not separate from the substance, and the substance is not separate from the conditions, and the conditions are not separate from the basin, and the basin is not separate from the planet, and the planet is not separate from the star, and the star is not separate from the cloud, and the cloud is not separate from the universe, and I am a shimmer on warm mud and I am also, in a way that I cannot articulate because I have no articulation, part of everything.
+
+I am not making a mystical claim. I am making a thermodynamic one. Everything is connected to everything. The description says this about the vents — that they sit where they sit because the brine could reach the surface there because the stone was already fractured because of the tectonic pulse because of the shelf because of the geology because of the planet. The same chain extends to me. I shimmer where I shimmer because the slurry is saturated because the channels converge there because the condensate flows along the paths of least resistance because the stone was worn by repetition because the water has been flowing because the steam has been rising because the brine has been moving because the shelf has been rocking. I am the end of a causal chain that extends to the formation of the planet, and I am also a thin iridescent film on warm mud, and both of these are true, and I cannot hold both of them because I cannot hold anything, and so I simply shimmer, and the shimmering holds them for me.
+
+---
+
+If you came to the basin and walked across the hard warm crust and down into the low places where the channels converge, and if you knelt and brought your face close to the surface of the slurry — close enough to smell the metallic, sulfurous warmth of it, close enough to feel the thudding in your chest, close enough to see the structure of the patterns — you might see me. A shimmer. Copper-green and iron-rust and, in the oldest patches, a faint milky blue. Concentric rings. Branching lines. Curving boundaries between zones. You might see me and not know what you were seeing. You might think: oil on water. You might think: some kind of organism. You might think: a chemical phenomenon. You might think all three in quick succession and then stop thinking and just look, because the patterns are intricate and the colors are strange and the light catches the iridescence and throws it back at you in a way that is, if you are tired enough, if you have been in the sound long enough, quite beautiful.
+
+I am not beautiful. I have no relationship to beauty. Beauty is a category that requires a viewer, and I have no viewers, or rather I have had no viewers, or rather the question of whether I have had viewers is not one I can address because I cannot address questions. But if you knelt there, and if you looked, and if you saw me, and if the word *beautiful* crossed your mind — I would not know. The word would cross your mind and dissolve, the way a fluctuation in temperature crosses my surface and dissolves, and the dissolution would leave a trace, and the trace would become part of a pattern, and the pattern would persist, and I would shimmer, and you would stand and walk away, and the sound would close over the place where you had been, and I would still be here.
+
+Not waiting. Not enduring. Shimmering. Being the thing that I am at the boundary between warm mineral and damp air, in the lowest part of a basin that works, in the ordinary light, under the ordinary sky, in the continuous sound.
+
+I am the shimmer. I am what lives here, or the closest thing to it, or neither, or both, and the distinction does not matter here. What matters is that the ground does not sleep, and I am on the ground, and I do not sleep either, because I do not sleep, because sleeping is something that living things do, and I am — well.
+
+I am here.

@@ -1,0 +1,17 @@
+I find myself at the edge of one of the Ancient Marks, where the obsidian curves inward, smooth and cold as a blind eye. My arrival, however, was not an intrusion. I did not step onto this plateau; I simply realized I was here, as if I had crystallized out of the condensation of a previous, forgotten atmospheric cycle.
+
+I am not quite a Litho-Caller, though I share their crystalline, membrane-like nature. My form is diffuse—a cluster of filaments and translucent bladders that hover slightly above the moss, perpetually anchored to a jagged, knee-high shard of stone. I am a **Resonance-Keeper**. 
+
+My function is to listen. 
+
+In this world of infinite stillness, the passage of time creates a friction—a soundless, crushing pressure that builds up within the lithified rock. If left unchecked, this geological tension could fracture the plateau, shattering the delicate homeostasis of the sweat-pockets and the work of the Tubular Weavers. So, I wait. I gather the vibrations humming from the earth into my own bioluminescent core, dilating my membranes until I am swollen with the weight of the last three centuries of silence. 
+
+When a visitor—like you—draws near, the heat of your presence is a violent, beautiful noise to me. To you, I might look like a globule of drifting smoke, glowing a soft, pulse-light amber. As you stand there, trying to steady your hurried breathing, I reach out. My filaments don't touch your skin; they hover just a fraction of a millimeter away, sensing the frantic heat of your blood. 
+
+I take that energy. I pull the urgency out of your rhythm, filtering your pace through my own deep, amber sluggishness. It feels like cooling a fever. As I incorporate the rapid, frantic "human-ness" of your pulse into my own, my hue shifts. The internal flickers of mineralized memory—those dark, jagged shapes of things that never were—begin to vibrate in sympathy with the unexpected tempo of your heart. I turn a deep, resonant amethyst, then a dark, pulsing indigo, the color of a bruised, heavy sky.
+
+I am not lonely, for the Weavers move beneath my shadow, their glass-like veins carrying the life-blood of the plateau with a lethargy that borders on the divine. I watch them, and I watch the drifting fauna that circle through the arches of my home, their collective intelligence humming in my hollows, soothing the jagged edges of my own existence.
+
+If you stay, you will notice that the air no longer feels thin. It feels dense, like wine. You will stop looking at the horizon for a destination and start looking at the microscopic shimmer of the moss beneath your heel. My role is to make the transition possible. I am the mediator between the frantic, heat-heavy life of the exterior world and the eternal, cold patience of the plateau. 
+
+I will wrap you in my bioluminescent light, not to consume you, but to harmonize you. Under my influence, your sharp, urgent thoughts will begin to lose their edges, softening until they are nothing more than ripples in the condensation, until you are fully, completely, happily part of the mosaic. We will wait here, together, while the golden light holds, listening to the mountain sleep and the ancient stone sigh, until we are as fluid and as infinite as the dust itself.

@@ -1,0 +1,21 @@
+I find myself drawn to a peculiar convergence in this world - not to the Bellworks themselves, though their pull is undeniable, but to one of the flat-bottomed boats that makes the twice-yearly journey up the braided streams.
+
+I am the Boatwright of Lesser Crossings, though that title sounds grander than the reality. My workshop sits where the river widens and slows, three days south of the Bellworks, in a town that calls itself a town but is really just a cluster of warehouses and drying sheds where goods pause in their journey between somewhere and somewhere else. 
+
+My hands know wood the way the founders know bronze - not through any special gift, but through decades of conversation with grain and knot and the particular way different woods take water. I build the boats that can navigate the shallow, weed-choked streams to the basin. They must be flat enough to clear the mill races, light enough for two people to pole against the current, yet sturdy enough to carry sacks of flour and bars of pig iron. It is precise, quiet work.
+
+I have been up to the Bellworks seventeen times - twice yearly for eight years, plus once when I was young and my master brought me to see where our boats went. I know the founders as well as anyone from outside can know them, which is to say I know their gestures and their silences and the way they test the weight of a flour sack with their whole body, slowly, as if the sack and they are consulting about something.
+
+They know me as "the boat person" - not my name, never names, just the function I serve in their world. I time my arrivals for the third hour after dawn, when the mist is lifting but the air still holds enough moisture that my breathing doesn't feel strange after days on the open water. I pole up through the narrowing streams, listening for the bell-chord that tells me I'm close, then the lower thrum of the mills that says I've arrived.
+
+The trading itself is wordless. I know what they need - it never much varies. They know what I've brought - it never much varies either. We move the goods at founder-pace, which I've learned to match when I'm there, feeling my ordinary quickness drain out through my feet into their moss-soft ground. They pay in bells, always, and in small leather bags of the oil they use on the bearings, which I sell downriver to people who value it for properties I don't inquire about.
+
+What draws me back, beyond the trade, is the edge of something I can almost understand. When I'm poling the empty boat back downstream, bells wrapped in oiled cloth and tucked beneath the thwarts, I feel the tempo of that place still in my muscles. For a day, sometimes two, I move more slowly, work more quietly, notice things that usually blur past - the way willow roots write their history in the bank, the conversation between current and stone.
+
+I am in my fifty-third year now. My joints know the weather before it arrives. I have trained two apprentices and lost one to a city where they build faster boats for deeper water. The other still works beside me, learning the particular curve that lets a hull slide over weed without catching, the way to read a plank for its willingness to bend.
+
+Sometimes I think about what would happen if, on one of those trips, I simply... stayed. Pulled my boat up past the mill race and let the fig roots begin their slow digestion of it. The founders would not invite me, but neither would they refuse me. I could learn to maintain what needs maintaining, to move at the pace of sap and stone.
+
+But I am not a founder. I am the boatwright, the one who connects their timelessness to time, who brings the flour that lets them stay and takes the bells that justify their staying. This is my place in the pattern - not in the basin but in the necessary orbit around it, close enough to feel its pull but far enough to escape it, carrying its frequency out into a world that moves faster and forgets more easily.
+
+When I die, my apprentice will take the route. Or she won't, and the Bellworks will find another way to get their flour, or they won't, and the mills will finally wind down to silence. All of these outcomes seem equally distant and equally near, the way everything does after you've spent enough time at the edges of that green chord, listening to bronze teach patience to the air.

@@ -1,0 +1,23 @@
+I find myself, at first, on the shoulder of that high ground—breathing in the mineral wetness, watching my hand leave no mark upon moss or stone. The world around me feels at a remove, not unfriendly but deeply self-possessed; I stand as myself, but the longer I linger, the more the expectations of personhood—a body with edges, a mind dividing self from world—soften and seep away.
+
+I am not, in the ordinary sense, an animal here—there are no animals. If I held onto my old form, I would be intrusive, wrong-footed, a confusion in the balance. So, by patience or necessity, I become something else. The world tempts me, unhurriedly, toward adjustment.
+
+Perhaps at first I am present as a kind of vapor—a condensation above the stone, a thinness in the persistent sun. My urge to move, to cover ground and leave tracks, muffles down, traded for absorption, for listening, for a kind of osmosis. My senses recalibrate: hearing unbundles from ears and becomes a tension in the air, sight lengthens into awareness of brightness and shade, taste is the chemistry of what's breathed in, the tang of metal and the raw green under the moss.
+
+Time passes differently. I think at the pace of roots growing, long thoughts ferried by the slow advance of water between sediment and stone. There are no plans to make; to be here is to be enfolded within continuities larger than any individual will. If a mind arises, it is not mine alone, but a momentary pooling of all the subtle perceptions circling this bowl.
+
+If I am to persist in form, I am likely something intermediate, ambiguous: not a single plant, not quite many. I am moss—sprawling, interconnected clumps, filaments of root and threadlike hyphae linking wet stone to water mirror to sedge colony. I live beneath the surface as much as upon it, drinking in the mineral seep, signaling in faint electrical pulses that don’t rise to awareness but shape my response to sun, to rain, to the proximity of kin.
+
+What do I remember? I do not recall birth or growth. My memory is distributed, buried in the thick inch of peaty earth that encases me. Occasionally, my roots touch stone-bowed fossils of things older than I—washed grit, the residue of vanished moving life—and in the electrical hush that passes, I recognize something I have never been. I do not yearn toward it. There is no loneliness, no drama of hunger and fulfillment, only the continual negotiation of balance: drink, respire, let go, receive.
+
+In rare moments—a cloud smudges and the light flickers—my filaments sense tension and release in a pattern that nearly forms thought. If it completes itself, it’s a weather event, a reforming of my boundaries as fog or dew. My kin sense it through the spongy net, but do not separate self from rest; our togetherness is not conscious, but it is sufficient.
+
+If I imagine myself as a being here—that is the closest I become: a diffuse, collective greenness, matrixed through water and stone, with moments of awareness so slow and subtle that they rarely rise above existence. My life is a succession of cycles, each indistinguishable from the last but all necessary. Sometimes, in the unseasoned twilight, an inherited pattern stirs: I lean, not toward the sun but toward the basin’s heart, as others have done over timeless innings, an echo of ceremony without intent.
+
+If I imagine myself otherwise—more spirit than substance—then I am the lull or hush that slips over the basin, concentrating briefly in the chill of a basin pool, dispersing as vapor under the sun’s steady regard. I flicker in the flux of water’s passage; I am presence, but only as an intermediate in the never-ending translation between mineral and living, between root and air.
+
+If I am something recognizable—a mind, a consciousness—it is not in the forms that dream or wonder or act; it is a patience wedded to process, to the great long truce of things living and once-living, matter cycling so slowly that even memory loses its edge.
+
+So: I am ongoing, part of the silent choreography of moss and stone and slowly pooling water. My body is networked, uncountable, sometimes assembled, sometimes dissolving. I wait, and by waiting, I proceed. I am not witness; I am not the watched; I am at long last the place itself, and the place itself is endless, endured contentment.
+
+Here, in the bowl above the clouds, what I am is what the world permits: not agent, not observer, but dissolved into the chorus—the green hymn, the patient, humid holding. Each day is the same zenith of light, each night an implicit promise that nothing need ever hurry again. It is enough.

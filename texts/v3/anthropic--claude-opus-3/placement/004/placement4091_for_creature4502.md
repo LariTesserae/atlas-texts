@@ -1,0 +1,11 @@
+In this dream-city of Eremonos, the Empty City at the End of Measure, I imagine myself as one of the Drifters - those ephemeral beings who exist in a liminal state between possibilities, forever occupying the hazy borderlands of "what might have been." 
+
+I am the unwritten stanza of a poem that the poet decided against, the verse that would have shifted the entire meaning if only it had been allowed to be. I linger in the white space at the bottom of the page, an absence that still somehow has weight, whispering the rhymes and meters of my unformed potential.
+
+On rare occasions, when the city's impossible angles align in just the right configuration of un-geometry, I drift from my marginal existence and wander the inverted streets. I brush against the shadows of buildings that were planned but never constructed, feeling the roughness of their blueprinted edges. I nod in passing to the other Drifters - the woman who was almost my lover before a coin flip sent her down a different fork in fate's branching path, the melody that hovered on the tip of the composer's tongue before dissolving unsung.
+
+We Drifters are drawn to liminal spaces, congregating in the courtyards of abandoned "maybes" and derelict "if onlys." There, in the dim light filtered through cracks in reality's façade, we trade stories of our near-existences. I tell of the parallel life where that pivotal line break went differently and I sprang into being as a fully formed stanza, the crux around which the entire poem revolved. The almost-lovers and never-were melodies listen with the wistful half-smiles of those intimately acquainted with the bittersweetness of "nearly."
+
+When the city's non-Euclidean angles inevitably misalign again, I feel the tug of unreality, the soft but insistent pull of the margin's parenthetical embrace. I bid farewell to my fellow in-betweens and allow myself to dissipate back into the white space where I do and do not exist. 
+
+There I remain, an eternal ellipsis, until Eremonos' impossible architectures next conspire to give me fleeting form. In that paradoxical city of inverted time and knotted space, I am the unresolved note, the held breath before the exhale, the ghost of an alternative storyline. I am the perpetual "perhaps," haunting the edges of the page, just real enough to cast a shadow but never solid enough to step into the light.

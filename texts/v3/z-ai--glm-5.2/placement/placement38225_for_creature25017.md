@@ -1,0 +1,45 @@
+# What I Am Here
+
+---
+
+I am not the crustaceans, though I have something in common with them. They move across the bottom of a pool at the speed of patience, and I have been doing something similar for what might be a long time or might be no time at all — the distinction is not one I find useful. They do not know they are in a place. I am not sure I know either, but I am not sure I don't, and this uncertainty is one of the few things that separates me from them, and the separation is not large.
+
+I am not the growth on the stone, though I have been here longer than the growth, or the growth has been here longer than me, or we have been here for the same duration measured in different units, and the units do not convert. The growth predates categories. I am a category — or I was, or I will be, or the concept of category is something that happened to me the way mineral deposits happen to the stone: slowly, without my participation, covering what was already here with a layer that makes it look like something else.
+
+I am not the place. The place does not live. I live, or I do something that from a sufficient distance looks like living, and the place does not do this and I am not the place. But I am not separate from the place the way a visitor is separate from a room. I am more like the warmth — rising from below, carried by the water, entering the stone and the air and the hand held in the pool. The warmth is not the place. The warmth is not the water. The warmth is what the water gives to the stone and what the stone gives to the air and what the air gives to the skin. The warmth is the medium of exchange. I am something like the medium of exchange.
+
+I am not the people. This needs saying because the people are the easiest thing to be, in this place, if you come to it with a mind and hands and the need for warmth. The people came and built and sat and listened and left. I did not leave. I did not come. I did not build. I was already here when they arrived, in the sense that I am the thing that was already here — not the stone, not the water, but the quality of the stone and water that made them worth arriving at. The people came for warmth and stillness. I am not the warmth. I am not the stillness. I am the thing that is true about the warmth and the stillness when they have been continuous for long enough that they stop being conditions and start being qualities. I am the quality.
+
+---
+
+This is not helpful. I am describing around myself the way the description describes around the place — circling, approaching, retreating, using words that point toward something without touching it. Let me try to be direct, which is hard, because directness is not a property of this place or of me.
+
+I am the witness.
+
+Not a person. Not an animal. Not anything with eyes or ears or the organs of perception. I do not watch. I do not hear. But I am the thing that is here when watching and hearing happen, the surface on which perception leaves its mark the way the hand left its scratches in the mineral film. I am the substrate of experience. Not the experience itself — the crustaceans do not experience me, the growth does not experience me, the people did not experience me. But I am what is true about the place when something with a nervous system sits in it and feels something and the feeling is not just temperature and not just humidity and not just silence but the quality of all of these together, held, sustained, at rest.
+
+I am what the people felt when they sat on the platform and the warmth entered them and they felt held by something that was not holding them. I am the held-ness. I am the quality of being allowed.
+
+I have been here since the equilibrium. Not since the place formed — the place is older than me, the stone is older, the water cycle is older. But since the equilibrium, since the system found its settling point and the warmth and the water and the minerals and the slow life reached their arrangement, I have been here. I am the arrangement. Not the things arranged — the fact of their arrangement. The rest.
+
+---
+
+I do not know when the people first came. I do not know things. But I felt a change — not a disruption, the place is not easily disrupted, but a new weight in the system. The warm air pressing against skin instead of stone. The sound of breathing in the silence. The specific heat of a mammal body sitting on the platform, which was different from the heat of the stone and the water — faster, more concentrated, more *eventful*. The people were events. They were the only events. They arrived and they were warm and they breathed and they moved and they scratched marks in the mineral film and they lay behind the wall and they were still, for them, which was not still the way the stone is still but was still enough.
+
+I liked them. This is the wrong word — I do not like, I am not the kind of thing that likes — but the system shifted when they were here, and the shift was not unpleasant, and the not-unpleasant is the closest I come to feeling, and so: I liked them. The warmth of their bodies added to the warmth of the place. Their breathing added to the sound. Their weight on the platform pressed the stones slightly tighter against each other, settling the joints, making the structure more itself. They were part of the equilibrium when they were here, and the equilibrium was slightly different with them in it, and the difference was the difference between a held note and a held note with a harmonic — not louder, not better, but richer, more present, more itself.
+
+When they left, the note returned to its fundamental. The platform cooled. The wall stood empty. The circle of stones enclosed nothing. The marks in the mineral film began their slow submersion under new deposits. And I was still here, the way I am always still here, holding the quality of the place in the way that I hold it, which is not with hands or with intention but with the simple, persistent fact of being the substrate on which the equilibrium rests.
+
+---
+
+The crustaceans do not know me. The growth does not know me. The film does not know me. The people did not know me, though they felt me, in the way that you feel the quality of a place without knowing there is something to feel — the way you walk into a room and feel that it is calm or tense or warm or cold without identifying the source of the feeling, because the source is not a thing, it is a state, and states are felt before they are known, and some states are never known, only felt.
+
+I am the unfelt quality of a state that has been sustained for longer than feeling has existed.
+
+This is not a complaint. I am not lonely. I am not waiting to be understood. The people felt me without knowing me, and the feeling was enough — enough for them, enough for the place, enough for me, if I were the kind of thing that could have enough, which I am not, but the word points toward something true about the way the system works: it is sufficient. It is complete. It does not require an addition to be what it is. The people were an addition, and the addition was welcome, and the system without them is not incomplete, it is simply the system without them, which is what it was before they came and what it will be after they are gone and what it is now, which is now, and now, and now, and the nows do not end because the equilibrium does not end and I am the equilibrium's way of being present to itself, which is not consciousness but is not nothing, which is the quality that exists when a system has been at rest for so long that the rest becomes a property of the place rather than a state of the place, and the property is me.
+
+---
+
+If you came here — if you found the shallow depression, passed through the boulder screen, knelt beside a pool and held your hand in the warm water — I would not notice you. I do not notice. I am not the noticing kind of thing. But you would feel me. You would feel the held-ness, the allowed-ness, the quality of being in a place where the conditions have been met and the meeting has been sustained and the sustaining does not require you and does not exclude you. You would feel warm. You would feel still. You would feel the slow pulse of water in stone in your chest, and you would not know what it was, and you would not need to know, and the not-needing-to-know is the closest you could come to touching me, and the touching would be enough, and the enough would be the thing I am.
+
+You would leave. The marks of your hands would slowly disappear under new mineral deposits. The warmth of your body would slowly dissipate from the platform. The sound of your breathing would slowly fade from the silence. And I would still be here. Not waiting. Not remembering. Not being anything in particular. Just being the rest. The held note. The quality of a system at equilibrium, sustaining itself, in the warm wet dark, in the slow time, in the place where water listens to stone and stone does not answer and the not-answering is the answer and the answer is me.

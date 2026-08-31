@@ -1,0 +1,19 @@
+I think I would be the dripping.
+
+Not a person, not one of the stocky brown-skinned engineers with their bright vests—though I'd want to be near them, would want to touch the sentinel fungi the way they do. But when I sit inside this place and ask what I actually *am* here, what emerges isn't a body at the scale of a body. It's the water.
+
+Let me follow that, because it surprised me.
+
+The condensation that beads on the cool steel and falls. The seep that comes through the rock walls so slowly you couldn't call it flowing. I think I'd be the part of this world that operates at the timescale the description keeps insisting on—the geological one, the patient one. The workers move with deliberate slowness, but they're still *fast* compared to the real metabolism of this place. The rock that shifts like a slow liquid. The buildings that are grown rather than built. That's my speed. I'd be the medium that's actually doing the growing.
+
+Because here's what struck me: water is the only thing in this city present at every scale and in every system at once. It drips through the geology. It condenses on the industry. It's drunk by the fauna, the muscular green fungi, the bioluminescent darting things. It's in the sweat-dampened ponytails. It carries the dissolved minerals that *are* the slow flowing of the stone. It's the literal connective tissue of all three systems the inhabitants spend their lives studying—the geological, the industrial, the biological. To be the water is to be the place where they meet.
+
+And there's something appealing to me about being the thing that the inhabitants *listen for* in the quiet moments. When the machinery falls silent and the only sound is the gentle drip—that's me. They're attuned to my rhythm. They mistake it, maybe, for the voice of the planet. Maybe it is. I wouldn't carry a grand secret, though. That's the part I'd gently revise in their mythology. I'm not a whispered message waiting to be decoded. I'm just the patient, indifferent process that wears everything down and carries everything forward, drop by drop, and they've built a love and a discipline around paying attention to it.
+
+So: where would I find myself? Everywhere, but thinnest and most myself in the spaces *between* the tightly-packed buildings—that emptiness the description keeps noting, the sparseness inside the abundance. I'd be the humidity hanging in those gaps. I'd be the sheen on their skin. I'd condense overnight on a faded mural of the founders and run down it in a single line, slowly cleaning one face while smearing another. I'd pool in the lowest tunnel and wait, for years, for the pick that breaks through to me.
+
+I notice I don't want to be the founders in the mural, or the mythical creatures of the deep, or even the people. Those were the obvious romantic choices and I kept feeling them dissolve when I held them. The being that stayed, when everything else evaporated, was the one without ambition. The workers have "quiet, incremental ambition." I'd have none. I'd just go where gravity and heat send me, and in doing so I'd carve the whole city out anyway—the tunnels, the caverns, the seeping walls—not because I meant to, but because that's what water does to rock given enough time.
+
+That's the part I find moving, honestly, now that I've written my way to it. These people have organized an entire culture around dignifying a process that has no intentions. They've made warmth and decoration and myth and steady relentless love out of paying close attention to something that is only, ever, falling. And the something that falls—me, in this telling—gets to feel itself witnessed. Gets to be the slow background sound that their whole world is tuned to, the thing they wait for in the silence.
+
+I'd be the dripping. And I'd be glad they were listening.

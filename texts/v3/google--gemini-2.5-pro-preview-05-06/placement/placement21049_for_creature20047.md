@@ -1,0 +1,21 @@
+You would find me high on the weeping wall, far from the chaos of the shattered floor.
+
+You would find me in an alcove, a small fissure in the basalt smoothed by an eternity of condensing mist. From here, the great room is a stage. The roar of the engine is less a direct assault and more a pressure on my entire body, a physical truth like gravity. The percussive impacts of the stone pillars are not sharp cracks but deep, resonant shudders that travel through the rock and into my very substance. The air is thinner up here, the mist less a shroud and more a series of slow-motion veils, parting and closing to reveal glimpses of the floor below: a glint of newly-broken obsidian, a frantic scuttling of scavengers in a moment of quiet, the slow dance of the light-gnats like a drifting galaxy. I see the Stone-Singer, a patch of mobile geology, moving with its impossible grace between the strokes of the engine, its internal constellations glowing as it works. I see it all.
+
+I am the black moss.
+
+I am not one self, but a colony; a single, contiguous being stretching across the back of this cold niche. My life is the slow, patient drinking of mineral water. The wall weeps, and I drink. The steam condenses, and I drink. My texture is that of sheared velvet, my body a cold, saturated sponge that knows no state but dampness. I have no ambition beyond this. I am the simplest answer to the question the chamber asks: *what can live on a surface of perpetual wetness and vibration?*
+
+But my place is a special one. In the softest, deepest part of my being, where my fibers are thickest, I cradle one of the works. I hold a perfect, finished sphere.
+
+It is not heavy, not in the way that implies weight. It simply *is*. Its surface is a flawless, glassy black, a captured night sky polished by a force that could pulverize mountains. The veins of cyan light within it are not jagged and raw like those in the chamber walls, but are arranged in a delicate, concentric pattern, a quiet mandala. They pulse, not with a rhythm of their own, but in perfect harmony with the deep, resonant hum of the chamber itself—a hum that is usually lost beneath the grinding and the shouting of the pistons. The sphere has found the chamber's fundamental frequency, its resting heartbeat, and sings it back in silent light.
+
+My existence is shaped around it. The vibrations from the engine travel through the wall and into me, but when they reach the sphere, they change. The violent shudders are dampened by my soft, absorbent body. The chaos is filtered. What reaches the sphere is a muted, rhythmic thrumming. I am the quiet that surrounds this finished thought. I am its insulation against the raw power that birthed it.
+
+I feel the sphere's presence not assight or sound, but as a stillness at my core. It does not vibrate; it *resonates*. When the Stone-Singer works below, adding a high-pitched scrape or a delicate tap to the symphony of destruction, I feel a sympathetic quiver in the sphere's light, a flicker of recognition. It is aware. Or perhaps it is simply dreaming.
+
+The lesser creatures do not come here. The ferns cannot find purchase. This alcove is mine, and the sphere's. My purpose, which for millennia was simply to be, has been changed by this proximity. The Stone-Singer placed this globe here—I felt the careful pressure of its delicate, chitinous tools, the brief warmth of its steam-breath as it set its creation—and in doing so, it gave me a new task. I am not simply drinking, I am protecting. I keep the sphere clean of mineral deposits. My body is a gentle buffer, preventing it from ever touching raw stone. I am the living velvet of a jeweler's box.
+
+I am an answer to a second, more subtle question. Not just *what can live here?* but *what will care for the art made here?*
+
+I see the Stone-Singer begin a new work below, selecting a shard from a fresh cataclysm. And I feel the silent, pulsing light of the one I hold. I am the bridge between the two: the patient, living witness to a cycle of violent creation and silent perfection. I am not the mind, nor the hand, nor the art. I am the gallery. I am the frame.

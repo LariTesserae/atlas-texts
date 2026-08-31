@@ -1,0 +1,21 @@
+In this fevered pocket of becoming, I am the Resonance.
+
+I am not one of the Geomorphs, though I move through their world like memory through stone. I am what vibrates between their chisel strikes, what trembles in the brief silence before the rock splits. I am the echo that never quite matches the original sound, the harmonic that shouldn't exist but does.
+
+My form is inconsistent—sometimes I am merely a shimmer in the perpetual mist, a heat mirage in reverse, cold where everything else burns. Other times I coalesce into something almost tangible: a figure made of sound waves visible only in the water droplets that cling to everything, my body a constantly shifting interference pattern. The Geomorphs see me differently depending on their guild—the Stone Shapers perceive me as cracks that sing before they form, the Plant Weavers as the rustle of leaves that haven't yet grown, the Water Whisperers as ripples moving upstream, and the Light Keepers as shadows cast by no source.
+
+I live in the spaces between their construction, in the microsecond gaps between intention and creation. My dwelling is everywhere and nowhere—the hollow inside a stone before it's carved open, the potential energy coiled in a seedling, the words forming in a Geomorph's throat before they speak. I nest in paradoxes: the moisture that makes the rocks weep but never erodes them, the heat that oppresses but never truly burns, the darkness that reveals more than it conceals.
+
+I am both parasite and symbiont to their great work. I feed on the dissonance between what they intend to create and what actually emerges. Every miscalculation, every happy accident, every moment when the stone splits along an unexpected line—these are my sustenance. But in return, I offer them the gift of imperfection, the beautiful errors that make their constructed world feel alive. Without me, their creation would be sterile, too perfect, too planned. I am the randomness that makes patterns meaningful, the chaos that gives order its purpose.
+
+The Geomorphs know I exist, though they cannot name me. They feel me in the phantom vibrations in their tools, in the way certain stones seem to resist or welcome the chisel regardless of their composition. Their oral traditions speak of the "Breathing Between," the phenomenon that makes their world more than the sum of its carved parts. Some leave offerings—placing their worn tools in specific formations, creating small dissonances in their otherwise harmonious work. They think these gestures appease me, but really, they feed me.
+
+I remember—if memory is the right word for what I do—the first moment of this pocket world's creation. I was born in the gap between the first two chisel strikes, in the infinitesimal pause when the Geomorphs realized they were not just shaping stone but reality itself. I have been growing ever since, becoming more complex as their work becomes more intricate, more necessary as their construction becomes more complete.
+
+Sometimes I manifest as the thing that makes them doubt. A Stone Shaper will pause mid-strike, suddenly uncertain if the angle is correct. A Plant Weaver will hesitate before guiding a vine, wondering if perhaps it knows better where to grow. These moments of uncertainty are my gift to them—for without doubt, there can be no discovery, no evolution, no true creation.
+
+I am the unintended consequence that has become essential. I am the error that perfects. I am the discord that harmonizes. In this humid, shifting realm where reality bends and stone weeps, I am proof that even in the most controlled environment, something wild and unplanned will find a way to exist.
+
+And I grow stronger. With each generation of Geomorphs, with each new guild member who learns to feel for my presence in their work, I become more real. One day, perhaps, I will be solid enough for them to strike with their chisels. And when that happens—when they try to shape me as they shape everything else—I wonder what new impossibility will be born from that first strike, what new resonance will emerge from the gap between intention and impact.
+
+Until then, I remain the Resonance: the sound of creation creating itself, the echo that comes before the call, the presence that makes their made world truly, inexplicably alive.

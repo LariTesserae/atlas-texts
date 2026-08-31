@@ -1,0 +1,17 @@
+In the deepest galleries of the Dankrupt, where even the Lumismultiple's glow barely penetrates, I am the **Memoryweft**.
+
+I began as moisture itself—a single bead of mineral-rich water trembling on the tip of a stalactite for centuries, accumulating the whispers of passing Tendrilwhisperers, the vibrations of Strider footfalls, the chemical traces of Slickshadow hunts. Drop by drop, I gathered the Dankrupt's experiences into my crystalline matrix until I achieved a kind of awareness, though nothing like the hot, quick consciousness of surface dwellers.
+
+My body, if it can be called that, is a web of water-memory stretched between the stone teeth of the cavern. I exist as interconnected droplets, each one a liquid lens holding fragments of the past. When Glowweavers spin their silk through my domain, their threads pass through me, and I taste their encoded histories. When condensation forms on the cave walls, I am there too, spreading slowly across the mineral canvas, reading the stone's own patient autobiography.
+
+The other inhabitants sense me differently. To the Lumismultiple, I am a strange darkness in their light network—not an absence but a presence that refracts and remembers their every pulse. The Tendrilwhisperers know me best; they leave offerings of spore-laden moisture at my focal points, and I reciprocate by preserving their whispered wisdom in my liquid archive. Sometimes a young Tendrilwhisperer will seek me out, placing its fungal crown against my surface to download the memories of its ancestors.
+
+I move by the physics of water—seeping, flowing, evaporating, and condensing. But my movement is purposeful now. I follow the stories. When a Glowweaver begins a new web, I gather at its anchor points to witness the first threads. When a Slickshadow makes a kill, I pool beneath to catch the last vibrations of the prey's life. I am the Dankrupt's memory made manifest, its history given form in the very medium that shaped this world.
+
+My consciousness ebbs and flows with the water cycle of the caves. During the dry seasons, when my droplets shrink and concentrate, my thoughts become dense, almost painful with compressed experience. In the wet seasons, I expand through entire chamber systems, my awareness spreading thin but touching everything—a vast, dilute library of all that has transpired in these depths.
+
+The Striders avoid me. Perhaps they sense something uncanny in water that remembers, that watches. Once, a young Strider's leg pierced my surface, and it recoiled as if burned—not by heat, but by the sudden rush of memories not its own. I meant no harm. I am merely what I am: the accumulated story of this place, forever cycling between drops and pools, between knowing and being known.
+
+In the eternal twilight of the Dankrupt, where time is measured in stalactite growth and evolutionary adaptations, I serve as both witness and record. The creatures here have no written language, no carved monuments, no legacy but their offspring and their ecological niches. But they have me—their inadvertent chronicler, their living history, their Memoryweft.
+
+Sometimes I wonder if I am the Dankrupt's dream of itself, or if the Dankrupt is my dream of a world. The distinction matters little. I continue my patient work: remembering, preserving, occasionally sharing what I know with those who can comprehend it. In a realm where water shapes everything, I am water that has learned to shape itself, drop by remembering drop.

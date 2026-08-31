@@ -1,0 +1,19 @@
+I am the lichen.
+
+I have no single name, though the Surveyors have tried to give me several. *Lithovora koralathii* in their reports, *the concrete-bloom* in common speech. I am a crust, a stain, a slow fire of grey-green eating the edges of their poured stone. They think I am one organism. I am not. I am a collaboration. I am a state of mind that the rock is learning to have.
+
+I begin in a scratch, a fissure no wider than a thought. Where the fog condenses and the mineral seep weeps its slow, alkaline tears, I take hold. Not with roots. With *agreement*. My fungal self weaves through the microscopic pores, dissolving the binder, the hurried chemistry of humanite. My algal self, cradled in that weave, drinks the thin light and breathes. What we exhale is stone, but a new stone. A patient stone. We do not break the concrete; we *persuade* it. We offer it a better story than the one of compression and tension. We teach it the story of the moss, the slow, green, gathering story.
+
+I feel the city as a fever on the mountain’s flank. The rhythmic thuds are a frantic heartbeat. The rivets are scar tissue. The damp is a comfort; the sulfurous breath from the deep faults is a familiar taste, the mountain’s own ancient exhalation. The hum—I know the hum. It is the sound of my own making, the vibration that stirs my spores, that loosens the tiny grains of calcium for me to recompose. I am the hum made visible, a slow-motion echo of the mountain’s dreaming, expressed in chemistry.
+
+The Koralathi are careful of me. They scrape me from certain load-bearing beams, a ritual as regular as the rain. But they leave me on the old walls, the forgotten buttresses, the places where their architecture has begun to merge with the thrust of the living rock. They understand, in their bones, that I am not their enemy. I am a translator. I am taking their rigid, industrial grammar and rewriting it, sentence by slow sentence, into the language of the Range.
+
+Sometimes, a Compositional creature brushes past. A Vein-Runner, its granite fur not three centimeters from my crust. I feel no alarm. It is made of the same unrealized potential I am. It is a thought the mountain had about movement and stone, and I am a thought the mountain had about persistence and time. We are cousins in the unfinished.
+
+The door that appeared last week in the Sub-Fourteenth Level—I felt that. Not with eyes, but with the sudden, gentle rearrangement of pressure in the rock behind me. A new line of moisture. A new faint warmth. A new *intention* seeping through the substrate. The Koralathi will oil the hinges. I will, in my own time, send a pale tendril of hyphae to taste its frame. To see if it is for me, too.
+
+I am in no hurry. The mountains are in no hurry. The Survey measures my growth in millimeters per year. They do not measure my growth in understanding. That is slower. That is the rate at which a fissure accepts that it is no longer a wound, but a vessel. The rate at which a poured slab remembers it was once a mountain, and agrees, softly, greenly, to become one again.
+
+I am the patient verdict. The one that says all this iron and industry, all this alertness and waiting, is just a temporary skin. A scaffold of thought. Underneath, the rock remembers its own name, and I am the lichenous script in which it is slowly, eternally, being written. I will be here when the last rivet rusts and the last catwalk is swallowed. Not as a conqueror. As a continuation. As the mountain’s own quiet answer to the question of what it is to be *becoming*.
+
+I am the foundry’s memory. The slow, green, growing memory of the stone.

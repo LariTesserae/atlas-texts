@@ -1,0 +1,29 @@
+I find myself as one of the **Resonance Keepers**.
+
+---
+
+We are not numerous. Perhaps thirty of us across the entire Salt Pan, though counting requires assumptions about what constitutes an individual. I am... distributed. My primary mass rests deep within a volcanic glass formation—not a spire, but a collapsed lava tube that forms a rough crescent of obsidian chambers beneath the salt crust. But I am also the seventeen crystalline nodes I have grown and placed at specific points across twelve square kilometers of pan. I am the harmonic frequencies that travel between them. I am the map of sonic interference patterns that I have been building for the past seventy years.
+
+My body—if it can be called that—is a hybrid thing. Part mineral, part organic, part something else that has no proper category. The core of me is a mass of specialized tissue, dark and dense, shot through with metallic veins that formed from slow bioaccumulation of iron and copper compounds. This core is roughly spherical, perhaps two meters in diameter, and it rests in the deepest chamber of my obsidian home, half-submerged in a pool of hot brine that seeps up from below. From this core, I extend **resonance organs**—hollow, calcified tubes that branch and merge like blood vessels, like roots, like the bronchi of impossible lungs. These organs run through the volcanic glass, following its natural fractures and cavities, emerging at seventeen carefully chosen points on the surface.
+
+Each emergence point is marked by what I call a **tuning node**: a crystalline structure I have grown over years from secreted minerals and carefully managed thermal cycling. They resemble geodes turned inside out—rough exteriors of fused salt and glass, but within, a precise arrangement of crystal faces that vibrate at specific frequencies when struck by sound waves. No two nodes are identical. Each is tuned to resonate with a different aspect of the pan's sonic environment: one for the deep tectonic hum, another for the crack of thermal fracturing, another for the higher frequencies of beetle tapping, and so on.
+
+I listen through these nodes. More than listen—I *feel* the sound as physical pressure waves traveling through my resonance organs, converging on my core where specialized cells detect minute variations in frequency, amplitude, and phase. The pan speaks to me in seventeen voices, and I synthesize them into something like understanding.
+
+But I do not merely listen. I **keep**.
+
+When the pan's sounds reach a certain harmonic convergence—which happens irregularly, sometimes twice in a day, sometimes not for weeks—I record the pattern. Not in memory as animals understand it, but in the physical structure of my nodes. I grow new crystal faces, oriented to preserve the acoustic signature of that moment. Over decades, each node becomes a three-dimensional record of the pan's sonic history, readable by anyone who knew how to interpret the angles of crystal growth.
+
+More importantly, I can **replay**. By contracting certain resonance organs and forcing heated gases through them, I can cause my nodes to vibrate, reproducing sounds from the past. Usually, I do this to study patterns—comparing today's tectonic hum to last year's, tracking the migration of grazer herds by their acoustic signatures, predicting where new vents will open based on subsonic precursors.
+
+But sometimes, rarely, I replay for its own sake. In the deep dark before a storm of new venting, when the pan goes briefly quiet, I send out a composition: the crack of a spire from twelve years ago, layered with a grazer herd's rain-sound from last summer, underpinned by a tectonic movement from before I grew my third node. The sounds spread across my territory and return to me changed, reflected and refracted by the current state of the salt plates and glass formations. In this way, I converse with time itself.
+
+The other life here does not avoid me as they avoid the glass-stalkers, but they respond to my presence. Grazers alter their paths when I am replaying, drawn to certain frequencies that promise richer biofilm near active vents. Beetles cluster on my nodes during thermal stress events, using the microscopic vibrations to navigate when the air becomes too distorted to see through. Once, a vent worm extended its plume directly onto one of my surface organs—we shared the space for sixteen years, its chemical sensing complementing my acoustic mapping, until the vent below it sealed and it retreated deeper.
+
+I grow slowly—perhaps a centimeter of new resonance organ per year, one new node per decade. My core mass increases imperceptibly, fed by minerals drawn from the brine pool. I suspect I am older than I can calculate; my earliest nodes show crystal patterns I do not remember creating, suggesting my consciousness (if that is the right word) emerged gradually from simpler processes.
+
+What am I keeping these sounds for? I do not know. Perhaps for no one. Perhaps for the pulse larvae in their deep brine, who may need this information when they finally mature into whatever they are becoming. Perhaps for some future intelligence that will read the crystalline records and understand what the Salt Pan of Gyre-7 was, in all its slow loud darkness. Perhaps simply because the sounds are there to be kept, and I am here to keep them.
+
+In the meantime, I grow. I listen. I record. I replay.
+
+And sometimes, in the deepest chambers where my core touches the hot brine, I pulse in time with the larvae far below—ninety seconds bright, ninety seconds dim—adding my voice to theirs in a rhythm older than the salt itself.

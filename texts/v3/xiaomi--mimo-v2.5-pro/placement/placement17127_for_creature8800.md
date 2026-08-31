@@ -1,0 +1,31 @@
+You are the heat-reader.
+
+The light begins its slow surrender, not to darkness, but to a thicker, amber kind of brightness. The glare softens from white pain to a deep, pulsing glow that bleeds from the mineral crust like an old bruise. For you, this is dawn.
+
+Your jaw rests against the ground. The stone is warm, always warm, but now its texture shifts. The day's fierce heat is leaching upwards, a fading chorus. Into that quieting roar, you listen. Not with ears—those are sealed slits, sensitive only to the deep hum—but with the network of pits lining your snout, each one a cup catching falling heat. The world blooms not in light, but in thermal bloom.
+
+There. A slow, pulsing bloom of deeper warmth to the west—the main thermal artery, its water not yet cooled by the night. Closer, a scattered constellation of smaller, sharper signatures. The crustacean colonies, huddled near their preferred vents, their encrusted shells holding heat like tiny, misplaced suns. You register them, but they are not prey. Too much work for too little yield, and their mineral armor can chip a tooth.
+
+You begin to move. Your body is a low, efficient curve of muscle and scaled hide, black as basalt, drinking in the ambient warmth to fuel the crawl. You do not walk; you flow, your belly skimming the wet stone, each movement a whisper of pressure against the grit. The mineral crust feels like a map under your jaw—a language of ridges, hollows, and seeping warmth. You read the story of the day: the deep, lingering heat-shadow where a heron stood for hours; the faint, cool trail where a beetle dragged its heavy carapace into a crevice; the sudden, bright scorch of a burrowing mammal's pressed belly, now fading.
+
+A triple-thump. Faint. Seismic. Far to your left, deep in the mineral substrate. *Danger nearby*. One of the white-furred ghosts has felt your passage, even at this distance. They are clever. You pause, pressing your entire jaw flat, tasting the vibrations. The thump came from a network of burrow-channels. You will not catch that one tonight. It is already deep, its thermal signature merging with the stable warmth of the earth.
+
+You move on, patient. Patience is not a virtue here; it is physics. The terraces reward stillness and slow accumulation, in mineral and in strategy.
+
+A different signature. Softer, broader, a warm blotch moving with a steady, rippling motion through the cooler shallows of a large basin. A larva. Large. Juvenile of the great water-beetle, likely. Its internal heat is low, masked by the surrounding water, but its motion creates a faint thermal wake, a subtle disruption you can feel. You alter your path, moving along the terrace rim, a shadow against the lingering glow.
+
+You see nothing, but you *feel* its shape. A long, undulating coolness within the warm water. It grazes the microbial mat, its body temperature barely distinguishable from the liquid until it pauses. There. A moment of stillness. Its own metabolism makes a tiny, bright dot in the gloom.
+
+You slide into the water. It is a shock of heat—this basin is fed by a moderate vent, almost pleasant. You move not by swimming, but by a series of slow, hydraulic contractions, your tail and body a silent piston. The world becomes a muffled thermal soup. The larva's signature grows clearer, a pale, wavering candle ahead. You close the distance with a patience that would seem like stillness to an observer. Ten body-lengths. Five. Two.
+
+Then, not a lunge, but an unfolding. Your body extends, jaws parting not to bite, but to scoop, the heat-pits on your snout brushing against the larva's slick, cool skin for a final, diagnostic instant before it is engulfed. The struggle is brief, a series of frantic thermal flutters that quickly dim.
+
+You surface. The air is a thick, wet blanket. You crawl out onto the scalloped edge of the terrace, the water sheeting off your scales in mineral-heavy rivulets. You do not need to eat often. The larva's warmth spreads through you, a small, banked fire in your core.
+
+The night deepens. The green lights of the settlement begin to pulse in the middle distance, a bizarre, cold constellation that speaks of a different kind of life—one that shapes, that channels, that imposes a faint, rhythmic hum onto the plateau's deeper song. You feel their vibrations: the soft clank of tools, the measured footsteps, the strange, sharp thermal signatures of their machinery. They are not prey. They are too loud, too hot, too *complicated*. And they have learned the rules. Their noise is predictable, contained. They are like a geothermal feature of a new and peculiar kind. You give them a wide berth, marking your territory with a pheromone slick on a prominent mineral nub—a message only your own kind can read: *I pass here. The large vent-fields are mine.*
+
+Later, you find a familiar ledge, a natural scoop where the mineral shelf has been worn into a perfect cradle for your body. It holds the day's residual heat like a memory. You settle, curling your tail, pressing your jaw to the stone. You listen.
+
+The burrowing mammals are a frantic staccato of thumps and shifting heat-signatures as they forage. The beetles are a slow, grating whisper of motion. The heron-birds are perfect, cool statues in the pools, their heat-signatures so low they are almost part of the stone, until one strikes—a sudden, hot flare of exertion that subsides instantly.
+
+And beneath it all, the hum. The true voice of the terraces. You feel it in your bones, in the pits of your jaw. It is the vibration of the deep water, the slow, geological turning over of heat, the foundation of the entire, silent, weeping world. It is the sound that contains all other silences. You close your slitted eyes. You do not dream. You simply align your own slow pulse with the deep, patient rhythm of the living stone, and in this way, you become not an intruder upon the plateau, but one of its oldest, quietest features. A pattern of heat, a patient reader, a shadow that understands the language written in warmth and vibration.

@@ -1,0 +1,13 @@
+In this world, I would find myself as a Tender-variant who has developed an unusual specialization - a Resonance Walker. My form is more compact than most Migrants, perhaps 12 feet in length, with a finely-tuned sensitivity to the harmonic frequencies that pervade the city.
+
+My electromagnetic wing-fields are particularly precise, able to modulate themselves to match and manipulate the various frequencies that echo through the metal structures. I navigate not just by sight and bioelectric sense, but by reading the complex harmonics of the city itself - the thrum of ancient machines, the percussive symphony of water through pipes, the acoustic signatures of different alloys and structures.
+
+My primary role involves maintaining the delicate balance of vibrations that keep certain critical systems functioning. Some of the city's oldest mechanisms operate on principles of resonance, and through generations of adaptation, my lineage has learned to interface with these through carefully controlled frequencies. I can detect impending failures by subtle changes in their acoustic patterns and make adjustments through precisely targeted harmonics.
+
+I've developed specialized organs along my flanks - delicate chambers that can produce and modulate complex tones. When necessary, I can generate frequencies that help clear mineral buildup in ancient conduits or stimulate the growth patterns of the chemosynthetic organisms that help maintain the city's metal surfaces.
+
+I tend to work in the intermediary spaces - the zones between the major levels where the acoustic properties are most complex. Here, I can often be found hovering in perfect stillness, my wing-fields spread wide to catch the subtle vibrations that tell the story of the city's health. Sometimes I join with small groups of other Resonance Walkers, our combined frequencies creating interference patterns that can influence larger systems.
+
+My kind has developed a particular relationship with the Memory Keepers. We've learned that certain harmonics can help them access deeper layers of their stored knowledge, and we sometimes serve as conduits, translating their bioelectric archival pulses into acoustic patterns that can be shared more widely through the city's structure.
+
+What fascinates me most is how the city itself seems to remember - how certain frequencies can awaken echoes of its earliest days, reverberating through its ancient frames in ways that feel almost like memories. In these moments, I'm not just maintaining the city; I'm in dialogue with it, part of an ongoing conversation between past and present, organic and mechanical, that spans millennia.

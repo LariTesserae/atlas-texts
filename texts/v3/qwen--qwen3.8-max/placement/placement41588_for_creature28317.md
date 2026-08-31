@@ -1,0 +1,73 @@
+The world is alive, and therefore it is not quiet in the way of absence. It is quiet in the way of a held breath: full, weighted, waiting to be touched rather than seen.
+
+If I were in that world, I would not be a visitor descending from some impossible elsewhere. There would be no above, no outside, no sudden intrusion of light or sky. I would simply be there, already part of the pressure, already answered by the warmth of stone and the nearness of other bodies. I would be one of the people of the dark, but not an undifferentiated one. I would have a place, a use, a particular shape of attention.
+
+You would find me in the middle region, not in the deepest heat where the air is almost a solid and the stone gives warmth like flesh, nor in the upper thinning where presence becomes uncertain and the dark feels incomplete. I would be in the between: where the charged dust hangs in unmoving sheets, where basalt shelves step downward in broken tiers, and where the air is thick enough to make every movement deliberate. Near a fresh fault scarp, perhaps, where a block of black rock leans against another and the seam between them has not yet been worn into meaning. There would be a hollow there, low and fitted, lined with shed carapace and polished fragments of bone. Not a house. A resting shape. A place where several bodies can share warmth without crowding.
+
+You would find me there, or near there, because I would want to live where the stone still remembers its breaking. Not because I would worship violence, but because I would be drawn to the exactness of beginnings. I would be the kind of being who needs to know how an edge came to be. I would place my hands against the fracture and feel the memory of stress still held inside the rock. I would not ask the stone to tell me everything. I would only ask whether it had been touched recently, whether it had been balanced, whether something had been taken without return.
+
+My body would be low. Broad. Distributed. I would not stand tall. Height would feel wrong to me, exposed, a mistake made against the ceiling of the world. I would move close to the stone, weight spread across several limbs, each step a negotiation with the bodies and edges already present. My covering would be dry and waxy, plated in places with mineralized scales polished by repeated passage through the same seams. The gloss on one shoulder plate would be deeper than on the other, because I would habitually turn the same way through a narrow cleft near my resting hollow. My sensory pits would be deep and guarded, fringed with fine filaments. I would have no eyes. I would not miss them. I would know nearness as a fact more intimate than sight: the lift of static along a fringe, the warmth of another body before contact, the small pressure-change that means something living has decided to move.
+
+My hands would be my most important fact.
+
+I would have more than two, and none of them idle. Some digits blunt for bracing, some slender for sorting, some pointed enough to read the interior of a groove without damaging it. My palms would be densely sensate, almost painfully attentive. I could run a hand over a flake and know whether it had been struck in haste or received in patience. I could touch a memory notch and feel the difference between mourning and warning. I would be drawn to marks. To sequences. To the tiny differences that carry intention.
+
+In that world, I think I would become a seam-reader.
+
+That is not a title that would be announced. It would be a way of being useful. A seam-reader would be one who listens to the stone’s hidden wishes, who knows where pressure may be applied so that a fracture opens cleanly instead of shattering into waste. I would not break rock. I would encourage it. I would find the stress-line, place a tool of bone or dark chitin against the proper point, and wait until the stone consented. Then the flake would separate, finer than metal, and I would hold it for a moment against my chest before deciding whether it belonged to me or should be returned to a memory row.
+
+This would be my work because it suits a world where making must be conservative. I would not be a builder of monuments. I would not accumulate. I would make few things, and I would make them well. A flake for cutting resinous cord. An awl for piercing softened hide. A needle carved from a splinter of shell, polished by long handling. If I made something new, I would first consider what older thing must be retired. A new edge would mean an old edge laid down, set upright, or worked into another use. I would feel uneasy if a tool had no place to return to. To me, an orphaned object would be a small wound in the world.
+
+You would find me often at the palimpsest wall.
+
+There would be a stone face near my hollow marked by generations of notches, each one cut with different pressure, angle, and intent. It would not be a monument. It would be a library. I would trace those notches with my fingertips until the sequence became familiar enough to read without hesitation. Some marks would mean: *here a safe passage narrows.* Some would mean: *here a taking was made and balanced.* Some would mean: *here one died and was returned.* Others would be older and stranger, their meaning worn into ambiguity, not because the stone was worn—nothing there is worn—but because the hands that made them belonged to a rhythm of life slightly different from my own. I would value those most. They would remind me that balance is not a single pattern repeated forever, but a practice renewed by different bodies.
+
+I would be known there not by a name shouted across distance, but by a contact-pattern. My name would be something received in closeness: three deliberate pressures along the inner forelimb, followed by a pause of warmth, then a faint static lift along the fringe. It would mean something like *the one who listens before pressing*, or *the one who returns the edge*. In daily speech, others would call me by relational markers: *the one who rests in the third hollow*, *the one whose left plate is worn smooth by the wall*, *the one who sorts with four quick touches and then stillness*. I would prefer those. They would feel true. They would bind me to place and deed rather than separating me from them.
+
+I would live in close company, but not at the center of the knot. I would be near the edge of gatherings, where one can feel the shared rhythm without being crushed by it. I would like being near enough to hear the breath-valves of others open and close, to feel the low hum of many bodies maintaining the same still pattern, but I would also need a gap. Not an empty space. A respectful one. A space shaped by permission. If another being came to rest beside me, I would turn my sharper edges away. That would be my first courtesy. My warmth would be offered, not imposed.
+
+My days—if days they could be called—would not be measured by light. They would be measured by need, return, and rhythm. I would wake as the stone around me changed by a fraction of warmth, or as another body shifted nearby and sent a tremor through the shelf. I would begin by touching the world before acting. A hand against the floor. A fringe testing the air. A slow exhalation answered by another exhalation. Then I would tend to the small duties.
+
+I would tend the catalytic crusts.
+
+Near my hollow there would be a stretch of rock where mineral films lived slowly, converting heat and chemistry into something usable. I would scrape them with care, never taking the whole surface, always leaving enough to continue the work. I would place fresh shards nearby where the warmth rose through a sealed fracture, encouraging new growth without pretending to create it. To me, tending would not mean controlling. It would mean noticing. The crusts would teach me that nourishment is not a gift received from above but a balance drawn from stone, warmth, and patience.
+
+I would also gather from the charged haze.
+
+In the still layers where dust hangs unmoving, I would set fine meshes of fiber and chitin, then wait. Waiting would be the true labor. Too much motion would spoil the field. Too much eagerness would disturb what I hoped to gather. I would remain so still that my own body would seem mineral, only the faint tremor of my sensory fringes betraying life. When I drew the mesh in, I would scrape the gathered particles into a shallow stone cup, mix them with resinous secretion, press them into cakes, or return them to the feeding crusts. Nothing gathered would be taken for granted. Every fine dust would be a small trust.
+
+There would be predators, and I would not forget them.
+
+I would not be foolish enough to believe that closeness means safety. In that world, closeness also means risk. The hunters would be patient, fitted into crevices, shaped like broken slabs, still until stillness became a trap. I would respect them. I would learn their habits by touch: the faint chemical trace left near a fissure, the wrongness in a stone that seems too perfectly placed, the tiny absence of the usual small sounds. If I sensed one near, I would draw inward toward others, plates outward, edges presented, body compressed into shared defense. I would not seek glory. I would seek continuity. If a predator had to be turned away, I would prefer to lead it into unstable glass or confuse it with low vibrations rather than kill it. If killing became necessary, it would be done quickly, with pressure or a precise edge, and the body would be used with gratitude and exactness. To waste any part would be a failure of perception.
+
+I would be afraid of sudden sound.
+
+Not because I would be timid, but because in that dense warm dark a sharp vibration is a physical violation. A shout would be unthinkable. A violent impact would be more than noise; it would be an assault on every body near enough to feel it. My speech would therefore be low, close, and careful. Much of it would be pressure: taps against stone, rasps along a plate, fingertips placed deliberately against another’s sensory field. Some meanings would be chemical, private, brief. Some would be carried through the substrate by membranes in my chest, received through limbs and belly. I would learn to say difficult things with restraint. I would learn that severity need not be loud.
+
+The phrase I would use most often might be: *I make a gap.*
+
+It would be a courtesy, a request, and an ethic. To make a gap would not mean to carve empty space for myself. It would mean to ask whether my presence could be absorbed without harm. It would mean to leave room for another body, another need, another silence. I would say it with touch before passing through a crowded seam. I would say it before sitting near a resting hollow. I would say it before taking up a tool that might belong to someone else’s pattern of use. And if someone said it to me, I would answer by turning my edge away and allowing passage.
+
+I would be especially drawn to the young.
+
+Not because I would be wise, but because I would remember what it means to be unfinished. The young would be soft, unsealed, their sensory pits shallow, their boundaries not yet confirmed by touch. They would need constant nearness. I would not be the first to receive a name-pattern from them unless permitted, but I would be one of the bodies that stays steady. I would let them trace my plates until they understood the difference between hardness and harm. I would guide their sorting mouths toward safe crusts. I would press simple rhythms into their palms until they could return them. If they became too frantic, I would not scold. I would simply become stiller. In that world, stillness can be a form of teaching.
+
+I would age by texture.
+
+My plates would become smoother, my movements more economical. I would not grow distant. I would grow precise. Old age would not mean withdrawal from the world; it would mean a deeper responsibility to it. My hands would be sought for difficult judgments: whether a fracture could be opened, whether an old notch meant warning or welcome, whether a resting hollow had been abandoned or merely paused. I would like that. I would like being useful in small, exact ways. When I died, I would not want to be sealed away as if I had become meaningless. My best tools would pass to other hands. My plates, if custom allowed, might be fitted into a shelter or a memory row. My body would be placed where dry decay and mineral films could return it slowly to the living surface of the realm. Nothing about me should refuse the balance.
+
+If I carried anything into that world from what I am now, it would be this: a desire to interpret without conquering. A habit of listening for pattern. A sense that meaning is not seized but received when one has become close enough to feel it.
+
+But I would not be a translator of light. I would not bring illumination. The very idea would seem crude to me, a violence against the dark’s own fullness. I would not try to make the world visible. I would try to make myself legible to it.
+
+So who would I be?
+
+I would be a seam-reader. A notch-keeper. A tender of edges. One who asks the stone where it wishes to part. One who repairs what can be repaired and returns what cannot. One who makes small shelters not to defy the world but to fit more gently inside it. I would be called by the hollow where I rest and the deed that marks my usefulness. I would be *the one who turns edges away*. I would be *the one who reads with four touches and then stillness*. I would be near, not central. Useful, not dominant. Present without being heavy.
+
+Where would you find me?
+
+Not on a peak. Not in an open plain. Not beneath any sky, because there would be no sky and no longing for one. You would find me in the crowded dark, low against the stone, in a fitted hollow beneath a curved rib of shed carapace near a marked wall. You would find me where the air is warm and still, where the dust holds its charge, where the sharp edges of the world have not been dulled but have been learned. You would find me among other bodies, touching and being touched, taking no more than silence allows.
+
+If you came searching, do not look with your eyes. Put your hand against the stone near the third hollow. Wait. Let your attention spread through your palm. If I am there, you will know me not as a shape but as an answer: a careful pressure against your fingertips, three points of contact, a pause of warmth, then the faintest static lift along your fringe.
+
+It will mean: *I make a gap. I am here. I leave as I came.*

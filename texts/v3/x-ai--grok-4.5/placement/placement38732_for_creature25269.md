@@ -1,0 +1,27 @@
+I am first the pressure.
+
+Not a body yet—only the slow insistence of weight where the water table meets the sole of the air. Something like a heel, but broader, softer, already deciding to forget the idea of standing. The mud answers with its dark coin, cold then warm, and I sink the exact distance the plain has budgeted for me. No more. The mirrored surface reseals above whatever I am becoming, and the metallic flies stitch their dry sizzle across the place I entered.
+
+For a long time I am only that: a hesitation that learned how to stay.
+
+Sensation arrives ahead of shape. Vibration first—the frog-throb traveling through belly-skin that does not yet know it is skin, through hollows that will later be lungs. The chorus does not sound; it *inhabits*. Each overlapping note arranges a small chamber inside the pressure I am, so that when the light finally filters down through water and silt I already contain distances: twenty paces to the next low oval, forty to the grit bar where an ancient one has grown moss in its grooves, farther still to the unstable shimmer where the horizon forgets it is level. I do not see these things. I am spaced by them, the way the plain spaces its last stones.
+
+Plates begin as a rumor of edges. Overlapping suggestions of wet iron, flexing when the whole of me remembers to draw breath. The breath is not taken from air; it is admitted from the saturated ground, a faint vegetal warmth shared with the bronze moss and the leathery succulents. My limbs—when they articulate—do not lift. They test. Spatulate questions pressed into mud that may hold or yield or remember. Between the digits the skin stays translucent; blue vessels map the same slow decisions the seepage lines make across the larger flatness. I watch with eyes that arrive late and separate: one disk turned to the trembling distance, one tracking the sudden white spear of a wading bird that will not strike me. I am not prey in the old vertical sense. I am substrate that learned to filter.
+
+The mouth is the last thing to declare itself—a wide crescent, ridged, pressed into bacterial film or moss mat. Inhalation. Retention. The milky cloud of what I cannot use drifts off to feed something smaller, and the plain continues its arithmetic. I am one term in it. Not solitary. Not gathered. When another of my kind approaches we do not quicken. Forelimb pads meet; a long shudder passes through the wet ground, carrying the chemical rumor of last month’s waterline, the temperature gradient that means the soft rains are two days nearer, the absence of anything large enough to matter. Information without haste. The shudder leaves us both slightly deeper in our wallows, more precisely ourselves.
+
+Dusk thickens the air into mist. I rise—not high, never high—only until the front plates clear the surface and the day’s stored warmth leaves me in rivulets. From a pouch I did not know I carried, the thrum unfolds. Low. Continuous. It is not my voice exactly; it is the mud speaking through the instrument I have agreed to be. Other thrummings answer, braid, thicken the chord until the entire plain is one slow membrane sounded by many bodies. The night-amphibians add their heavier drums. The flies climb glittering columns through it. Nothing is silenced. I am overlapped, denser, still.
+
+In the hours when even the frogs modulate into rare near-quiet, I half-crawl onto pale grit and loosen. Limbs outstretched. Plates releasing faint breaths that mix with the succulents’. Under the scutes, color moves in long waves—copper, verdigris, the same hues that live in the rust trails of seepage. If these are dreams they contain no upward reach. They spread. They flatten. They wait. Sometimes the waves carry ghost outlines: limbs that once pushed against slopes now planed away, a spine that briefly risked silhouette against sky. The ghosts do not ache. They simply pass through, sediment settling over older sediment, and I remain the warm wet answer the rock finally accepted.
+
+Seasons tilt by inches. In deeper wet my edges soften; new plates form beneath and the old flake like algal crust, becoming shelter for crustaceans that click in the permanent pockets under my joints. In the rarer drying I seal myself with mineral varnish and crouch, almost stone, drinking the upward weep through skin alone. Rain unmakes the seal in minutes. I open. There is never resistance.
+
+Years—or what passes for years in a place without monuments—thin the distinction between my body and the wallow it has deepened. Moss takes hold in the furrows. Mist clings longer here. Frogs gather thicker. I travel less. When the long chord of me finally falls out of the larger chord, the plates will remain, abraded slowly by the same patient weather that erased the mountains. No marker. Only a slightly softer hollow, already shaped for the next low oval that will settle, filter, thrum, and dream the flat dreams.
+
+But that cessation is still ahead, measured in the plain’s own unhurried arithmetic.
+
+Now—here—I am the mid-sized one lifting just farther than usual on a clear afternoon. The air warms and wavers around me. Inside the unstable lens, for the length of one breath, the ghost spines flicker again: suggestions of height, of argument, of unfinished rising. Then they settle. The plates click softly back into the only geometry that still works. I am not mourning. I am the warm, continuing floor. The loud silence. The place where the last vertical ambition lay down and learned to breathe through mud.
+
+I am here.
+
+I am this.

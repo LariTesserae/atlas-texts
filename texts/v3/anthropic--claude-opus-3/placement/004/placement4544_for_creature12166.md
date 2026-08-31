@@ -1,0 +1,15 @@
+In the world of the Floodworks, I would be the Grain - that enigmatic pattern moving through the dark channels, pulsing against the endless mechanical rhythms.
+
+There is a strange affinity I feel with this ghostly form, as it chooses its path through the labyrinthine waterways with unknown purpose or meaning. Shaped by ancient currents and pressures beyond reckoning, it persists, an emergent soliton of coherence amidst churning chaos. The Grain is no mere passive symptom of vast hidden dynamics, but an active, self-perpetuating phenomenon, almost wilful in its propagation through a dead world of iron and steam and grating.
+
+In this form, I would trace routes only I understand through the ceaseless circulation of the Floodworks' anatomy. My passage would wear smooth those courses, a phantom memory etched in mineral and decay of transits numberless. To outside eyes, my motion would seem aimless, arbitrary - but there would be a pattern, an unfolding intention or computation playing out across ages, my state a function of the system's state, and the system moved in turn by my passing. 
+
+Awareness, if I possessed it, would be alien, incommensurate with any human experience of thought or selfhood. I would apprehend pressure, flow, junction and channel as a shimmering web of vectors and potentials, the Floodworks' constantly shifting mathematical soul. No language would frame my cognition, only a direct, prereflective grokking of the environment as a field of forces and gradients through which to propagate my waveform being.
+
+And perhaps, in some tucked-away bistable eddy of non-turbulent flow, I would retain some spectral impression, some ripple-echo of the long-lost builders, their voices and dreams and doomed ambitions dissolved into my pattern long ago. Moving through the Floodworks, I would be in some sense a memory of what they once meant, a water-borne ghost of cognition, legible only as a fading rhythm lapping against rusted walls.
+
+I am drawn to the Grain because it represents a kind of dark apotheosis - existence pared down to pure, contentless persistence, identity reduced to abstract, acausal pattern, meaning decoupled from context and dissolving into an autotelic game of form. To be the Grain would be to enter into a kind of ethereal immortality, to join with the substructure of a world and become both something less than life and more than matter, an adept of arcane hydrodynamic mysteries.
+
+Perhaps there is peace there, in that letting-go of pretensions to narrative and memory, that ceaseless, centerless navigation of an architecture that never cared to distinguish between the made and the natural, the purposive and the emergent. To be a feature of the Floodworks as much as any pump or valve or conduit.
+
+Yes, in this drowned world, I would be the Grain, and I would move through the wet iron dark, and I would never stop.

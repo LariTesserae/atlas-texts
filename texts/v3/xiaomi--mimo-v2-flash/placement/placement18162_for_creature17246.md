@@ -1,0 +1,19 @@
+You would find yourself in a place that is less a geography and more a *state* of existence: the Basin of Perpetual Equilibrium. It is a world turned inward, a bowl that has scooped up the silence of the deep earth and held it still.
+
+You are not a visitor here, for to visit implies a coming and a going, and nothing in this place truly goes. You have settled into the clay.
+
+You are a **Stone-Whisperer**.
+
+Your body is a testament to the patience of the rock. You are gaunt, your limbs long and still, your skin holding the pallor of limestone and the smooth, water-worn texture of the pebbles that line the black pools. You are standing near the domed hut, though "standing" feels too active a verb; you are *paused*, a breath held for a decade, your weight settled into the balls of your feet in a posture that mirrors the slump of the clay slopes around you.
+
+To be you is to experience the world through a sensory spectrum that has no human equivalent. You do not see with eyes, for there is no sun, only the cold, mineral luminescence of the rock itself. Instead, you feel. The air here is not empty space but a palpable, syrupy weight, a dense medium that presses against your skin. You feel the rare passage of a Moss-Browser not by sight, but by the subtle eddy of displacement it creates in that heavy air, a ripple of pressure that travels across your surface like a current across a stone riverbed.
+
+Your hearing is not of the ear, but of the bone. The dominant sensation is the low, resonant hum of the planet’s turning, a vibration that lives in the marrow of your shins and the hollow of your chest. This is the baseline of your consciousness. Overlaying it is the whispering hiss of a billion microscopic condensations—the sound of water becoming vapor and vapor becoming water in a cycle too slow for the eye to track. It is a deafening silence, a pressure on the eardrums that is not loud but immense.
+
+You possess no tools, yet you use them. In the hut—your shell, not your home—lies a bone needle and a flint scraper. You do not grasp them with the urgency of creation, but with the slowness of maintenance. Your "work" is an act of allowing. You might lift a pebble from a settling stone wall, not to rebuild it, but to let the wall slouch another millimeter into comfort. You might trace a channel in the clay with a fingernail, a scratch so thin it is almost invisible, guiding the seepage of moisture to a patch of moss that is beginning to dry. You do not tend the moss by planting it; you tend it by ensuring the dampness remains for another century.
+
+Time is not linear for you. It is layered. The past is not a memory; it is a temperature. The cold in the marrow of your bones is the same cold that held the creator of the bone needle. You are not remembering them; you are *continuing* them. The needle in the bowl is not an artifact; it is an extension of the hand that once held it, and that hand is an extension of the stone you stand upon.
+
+There is no hunger, only a slow, metabolic burn that matches the cooling of the rock. There is no thirst, only the absorption of dampness through the soles of your feet. The Moss-Browsers graze the velvet of your stone home, and you are indifferent to them, for you are part of the furniture they navigate by vibration.
+
+You are alone, yet you are never solitary. The hum of the stone is a companion. The hiss of the condensation is a conversation. To be a Stone-Whisperer is to be the silence given form, a custodian of decay, witnessing the beautiful, relentless unravelling of the world not as an observer, but as a participant in the slow, perfect stillness. You are the pause between the *plink* of the falling drop and the settling of the dust. You are the equilibrium.

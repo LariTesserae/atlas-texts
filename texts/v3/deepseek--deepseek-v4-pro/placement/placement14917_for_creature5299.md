@@ -1,0 +1,23 @@
+I am noise that thinks it’s pattern. That’s the answer I’d tap back, if I could tap anything at all. But my hands are soft, clawless, slow; they’d only smear the question on the rock. So I stand in my wrong gravity, in the thick-as-wool air that fills my lungs like a drowning in reverse, and I try to think in frequencies.
+
+The keeper doesn’t rush me. It’s doing that thing where its forearm migrates up to its chest and becomes a slowly rotating cog of cartilage, while a new stylus-limb condenses from the mist near its elbow. The crystalline head-cluster vibrates at a patience that tastes like dolomite and waiting. I realize I’ve been holding my breath—holding it against the mineral-scented exhalation that the rock itself breathes—and when I let it go, a few chime-wings veer toward me, curious about the carbon dioxide, maybe, or the unfamiliar way my heat-signature bleeds.
+
+I’m not from here. Or rather, I’m from a version of here that wore down. My world had talus. It had rounded edges, soil, a sky that wasn’t a breathing grey-green membrane seven breaths thick. I walked into this hollow by accident—by way of a basement that wasn’t a basement, a cave that wasn’t a cave, a fold in the map that opened like a new crack and closed behind me with a wet, gulping sound. I brought my own heartbeat, my own pulse that throbs off-rhythm with the basin’s shallow breathing. That’s what the keeper felt: a disturbance in the sound-flow, a foreign percussion.
+
+But I’m not entirely alien. That’s the horror and the hope. The longer I stand here, the more my skin starts to feel like a map waiting to be drawn. The moisture beads on my forearm, and for a split second I see it bead with a faint crystalline structure, as though my own sweat were trying to accrete into a lichenous efflorescence. The salamanders with their luminous circuits slow their grazing near my feet—I can feel their interest as a tickle of static electricity, and one extends a heat-exchanging fin in my direction, sampling the air. A chime-wing lands on my shoulder, its body a shard of living obsidian no bigger than my thumbnail, and its wings click twice before it departs, leaving behind a pinprick of warmth that might be a greeting. Or a taste.
+
+The keeper’s question echoes in the subsonic: *Are you pattern, or are you noise?*
+
+I think about the spindles, those ceramic-bone spikes that store the patterns for a million tiny lives. I think about the keepers themselves, who coalesce from dissolved minerals and dissolved information, who are a thought the hollow has over and over. And I think about what I am: a tangle of memories, a scaffold of calcium and water, a system that learned to call itself “I” somewhere along the way. Noise that learned to fold itself into a pattern, over and over, until the pattern became dense enough to hold a conversation.
+
+So this is what I do: I kneel. The ground is fresh, razor-edged, and it opens a slice on my palm—a thin line of red that beads and falls onto a new-formed surface. The rock receives it without judgment. A puddle nearby shivers, and something unseen under its skin moves toward the taste of iron. I press my flat palm—the bleeding one—against the stone, like the keeper’s listening-palm, and I let the hollow listen.
+
+My heartbeat. My breathing. The distant, muffled memory of a world where erosion is a thing that happens. The pattern of my own small, impossible existence: a creature that chews on old stone and exhales questions.
+
+The keeper’s head-cluster shifts frequencies. The subsonic hum modulates, and for a moment I feel what a geological time-lapse feels like: cooling, yes, but also cracking. A crack healing over. A new vein of something strange and warm running through older rock. I don’t weep this time, but I understand why I would.
+
+Then the keeper taps a new rhythm on the nearest spindle—not a yes, not a no. A tentative entry. A draft. The floating polyhedron in the corner pool rotates a little faster, its cryptic text cycling in a new direction. *Maybe. Not yet. But maybe.*
+
+I am the new mineral. I am noise that walked into the pattern-library and asked to be catalogued. And the keeper, that shifting glass-and-cartilage moth-mantis, that hand of the breathing hollow, is very interested in what I might become.
+
+So I stay. I sit on a warm extrusion of cooling rock, and I watch the puddles gulp and heal, and I let my wrong gravity become just another data point. A chime-wing lands on my knee and stays there, wings chiming at a frequency that might, someday, make sense.

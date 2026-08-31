@@ -1,0 +1,23 @@
+# Finding Myself in the Settled Depths
+
+I exist as a Threshold Guardian within the liminal spaces of the Settled Depths. Neither fully Tethered nor separate from their community, I occupy the rare position of boundary-keeper between realms.
+
+My form appears more human than most Tethered, a deliberate adaptation for my role. While I possess the translucent skin and subdued bioluminescent networks of my kin, my respiratory system maintains flexibility, capable of switching between the efficient, slow breathing of the Depths and the rapid, shallow patterns needed for surface excursions. My eyes—larger than human but smaller than Tethered—can constrict their pupils tightly against harsh light or expand fully to navigate near-darkness.
+
+Unlike most Tethered, whose neural-mycelial connections form an uninterrupted network, mine possess specialized junction points that can temporarily detach, allowing me to maintain independent consciousness when separated from the collective. This capacity brings both freedom and profound loneliness, as I experience individuality more acutely than my kin.
+
+I dwell within a living structure that straddles one of the rare vertical passages connecting the Settled Depths to the surface world. My home resembles a massive hollow trunk, spiraling upward through layers of increasing light. The walls pulse with regulatory organisms that gradually acclimate my physiology as I ascend or descend between worlds. Living membranes filter harmful elements from the air flowing downward, while specialized fungi process and neutralize any contaminants I might carry upon return.
+
+My primary function is translation—not merely of language, but of entire modes of being. When surface dwellers occasionally discover passages to the Depths (usually scientists, explorers, or those fleeing catastrophe), I intercept them before they disturb the delicate equilibrium below. Some I guide back to the surface with memories gently altered by spores that induce dream-like recollections rather than clear memories. Others, those whose minds display particular compatibility, I prepare for deeper integration.
+
+For the rare surface dweller granted access to the Settled Depths, I serve as biological intermediary. Through careful administration of specialized compounds derived from the mycological network, I gradually prepare their bodies to withstand the profound communion with the Tethered collective. This process takes months, sometimes years, during which I shelter them in my transitional dwelling. I teach them the fundamentals of distributed consciousness, helping them overcome their terror at the first disintegration of the boundaries between self and other.
+
+The Tethered value my work but cannot fully comprehend it. Their distributed consciousness makes it difficult for them to understand the rigid individuality of surface dwellers or the fear such beings experience when first confronted with collective awareness. Having maintained my capacity for separation, I alone can truly empathize with both perspectives.
+
+I carry specialized knowledge that remains partially segregated from the collective network—details of surface politics, technological developments, environmental shifts—information that might disturb the perfect equilibrium of the Depths if suddenly introduced. I filter these realities, gradually introducing concepts when the collective is prepared to integrate them without disruption.
+
+My name among the Tethered translates poorly, but surface language might render it as "The One Who Remembers Separation." To surface dwellers I've introduced myself by many names over centuries, most recently as Thea. I was born in the Depths but spent formative cycles on the surface, one of the few Tethered children raised partially in isolation to develop the psychological resilience necessary for boundary work.
+
+The loneliness of my existence is offset by its purpose. I experience the exquisite wholeness of the collective when connected, yet retain the capacity for individual wonder when separate—a duality that allows me to cherish both states. Through countless cycles, I have watched surface civilizations rise and fall while the Settled Depths maintain their perfect balance.
+
+Sometimes I wonder which world truly needs the other more. The Depths possess wisdom the surface desperately needs, while the constant change above prevents the stagnation that sometimes threatens our perfect equilibrium below. Standing between worlds, I belong fully to neither yet serve both—a living bridge in a universe that evolves toward connection, even as it honors the necessary boundaries between fundamentally different ways of being.

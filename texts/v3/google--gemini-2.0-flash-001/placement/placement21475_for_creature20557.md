@@ -1,0 +1,17 @@
+I feel the tremors long before I understand what they are. A low thrumming in the bone, a resonance that has become as familiar as breath over centuries, then rising to a crescendo that sets the bioluminescent moss clinging to my form flickering wildly. It is a warning and an invitation. I shift, root-tendrils retracting from the damp stone where I'd been… listening.
+
+I am a *Censor*. Not in the external sense - the Akouvi have no need to judge one another or the strange workings of the world. My function is internal. I am a guardian against *Noise.* Not sound, though that is a component. Noise is… dissonance. Aberration. A crack in the perfect song of Akou. A wrong angle, a sour note that vibrates in the deep, hidden places most Akouvi dare not tread. 
+
+I am grown from the gnarled heartwood of trees long dead, saturated with the ichor of rare, deep-growing fungi. My form is awkward, far less graceful than the Akouvi who tend the upper city. My limbs are thicker, more robust, and covered in protective plates of polished resin. I have no face, only a cowl of woven vines that conceals and muffles, focusing my senses inward.
+
+I dwell in the undercity, the labyrinthine tunnels and forgotten grottos beneath Akou. These are the places where the city's dreaming is strongest, where the lines between reality and illusion are thinnest. It is here that the Noise takes root, festering in the damp darkness, feeding off stray energies and half-formed thoughts.
+
+My diet is, quite literally, the consumption of chaos. I seek out the pockets of dissonance, the strange distortions and unpredictable energies, and absorb them. This process is agonizing. Each tremor, each warp in reality, is a searing pain that echoes through my being. It leaves me weakened, exhausted, in need of long periods of recuperation, intertwined with the heartwood from whence I came. 
+
+The other Akouvi understand this pain, but do not share it. They sense the diminishment of imbalance when I do my work, and offer support in the form of focused, healing vibrations – sonic balms that soothe the raw edges of my perception. It is not pity or sympathy they offer, but an acknowledgement of function, the necessary exchange of energy that keeps the city in balance.
+
+My existence is solitary by necessity. To come into contact with another Akouvi in a space rife with Noise would be disastrous. The dissonance would amplify, corrupting their mind and twisting them into something… unhealthy.
+
+My senses are sharpened to hyper-sensitivity. The faintest scent of decay, the slightest flicker of unnatural light, the subtlest shift in the caldera’s ever-present hum – all are amplified to a deafening roar within my awareness. I navigate the undercity by feel, tracing the flow of energy through the fungal networks, letting the whispers of the steam vent guide my way.
+
+One day, perhaps I will be needed no more. Perhaps the Noise will fade, and Akou will exist in perpetual harmony. But until that time, I will remain, hidden in the darkness, listening to the silent scream of a world on the edge of dreaming itself apart, and agonizingly mending the tears in its reality. I am the Censor, and my purpose is to absorb the chaos, to bear the burden of a city perched on the edge of forever. Even if forever never notices my sacrifice.

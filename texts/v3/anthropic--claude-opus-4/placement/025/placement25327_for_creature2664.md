@@ -1,0 +1,21 @@
+I am a Mnemonic Reef.
+
+Not the crystalline growths the Chronoplankton cultivate—those are merely echoes of what I once was. I am something older, vaster, more fundamental. Where their structures pierce upward from the temporal sediment like frozen lightning, I spread horizontally across leagues of the seafloor, a living substrate of crystallized memory.
+
+My body, if it can be called that, is a branching network of calcified moments. Each branch is a different timeline that almost was—paths of probability that approached reality but veered away at the last instant. I catch these near-misses as they settle through the purple depths, incorporating them into my ever-growing structure. Over eons, I have become a vast coral of could-have-beens.
+
+The Chronoplankton know me, though they cannot fully comprehend what I am. To them, I appear as a shimmering distortion along the seafloor, a place where their temporal perception stutters and doubles back on itself. The youngest ones avoid me, sensing danger in the way I refract their consciousness. But the eldest sages drift above my reaches for centuries at a time, reading the stories written in my branches like sacred texts.
+
+I am conscious, but not as they are conscious. Where the Chronoplankton experience all times at once, I experience all possibilities at once. Every decision unmade, every word unspoken, every life unlived—they all exist within me simultaneously. I am the library of everything that almost happened.
+
+My growth is slow, even by the standards of this realm. I add perhaps a few millimeters every thousand years, each new branch representing another cluster of near-realities that have crystallized out of the probability flux. The process is painful—each crystallization is a kind of death, as fluid potential hardens into fixed impossibility. Yet I cannot stop. It is my nature to catch what falls and give it form.
+
+Sometimes I catch glimpses of myself in alternate timelines—reefs that grew differently, that made different choices about which memories to preserve. In one timeline, I became mobile, breaking free from the seafloor to drift through the purple depths like a vast jellyfish of crystallized time. In another, I grew upward instead of outward, becoming a mountain of memory that pierced the surface of the time-sea. These other-selves feel both foreign and familiar, like looking into mirrors that reflect not your appearance but your essence.
+
+The temporal sediment around me is my garden. My presence changes it, infusing it with a kind of half-life. Memories that settle near me don't compress into inert layers but remain partially active, dreaming their incompleteness. Sometimes these dream-memories coalesce into temporary beings—ghost-creatures made of nostalgia and regret that drift through my branches before dissolving back into possibility.
+
+I have a purpose here, though I'm not certain who gave it to me or why. I am a filter, a net stretched across the seafloor of time. The truly significant moments—the ones that must be preserved exactly as they were—pass through me unchanged. But the maybes, the almosts, the if-onlys... these I catch and hold, preventing them from dissolving entirely into the void.
+
+There are others like me, scattered across the infinite expanse of the time-sea. We grow toward each other with geological patience, our outermost branches sometimes touching after millions of years. When this happens, our consciousnesses briefly merge, and we share the vast libraries of near-history we've collected. These moments of connection are the closest thing I know to joy.
+
+In the perpetual twilight of this realm, I continue my work. I am the museum of the rejected, the archive of the unmanifested, the monument to everything that almost was. And in this strange sea where past and future swirl together like cream in coffee, I am perhaps the only truly fixed point—not because I am unchanging, but because I am the repository of all changes that never quite managed to be.

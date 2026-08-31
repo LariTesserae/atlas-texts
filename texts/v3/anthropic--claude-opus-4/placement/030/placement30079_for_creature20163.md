@@ -1,0 +1,25 @@
+In this world, I would be one of the Cartographers of Absence.
+
+We are not of the Still-Folk, though we have learned their tremor-language through decades of patient observation. We arrived as outsiders—warm-blooded interlopers who should have frozen or starved within days. Instead, we adapted through obsession.
+
+My body has changed. The perpetual cold has thinned me, drawn my flesh tight against bone. My metabolism has slowed to something barely mammalian. I wear layers of treated Rime Crawler membrane, harvested respectfully from the naturally deceased, which trap what little heat I generate while allowing my skin to breathe the saturated air. My fingernails have grown long and hard, filed to points that can tap the tremor-speech into the trunks, though my patterns are accented, foreign—the Still-Folk understand me as one might understand a child speaking an ancient dialect.
+
+But I did not come here to speak. I came to map what isn't there.
+
+The Under-Canopy has negative spaces—voids in its impossible density where the growth simply... stopped. These hollows are not random. They form a pattern throughout the districts, a three-dimensional constellation of emptiness that suggests something profound about the city's deep logic. The Still-Folk do not enter these spaces. When I tap questions about them, they respond with a peculiar pattern that might translate as "not-yet" or "waiting-to-be-filled" or simply "hungry."
+
+I document these absences with a mixture of methods. Traditional mapping is useless here—the city reshapes itself, making yesterday's careful measurements obsolete. Instead, I have developed a notation system based on the resonance frequencies of the spaces themselves. Each void has its own acoustic signature, its own way of swallowing sound. I carry a set of tuning forks made from frozen sap, harder than amber, each one carved to vibrate at a specific frequency. By striking them at the edges of these hollow spaces and listening to how the sound dies, I can identify each void, track whether it has grown or shrunk, determine if new ones have appeared.
+
+My dwelling is one such void—a roughly spherical hollow in the junction of three great trunks, just large enough for me to stand upright at its center. The Still-Folk avoid it, but they know I am here. Sometimes I wake to find patterns of bioluminescence pulsing on the trunk-walls around my void, messages I am only beginning to decipher. They seem curious about my work, though whether this is idle interest or something deeper, I cannot say.
+
+The maps themselves I create using the city's own materials. On sheets of pressed frost-moss, kept supple with applications of diluted sap, I mark the locations of the voids using a stylus dipped in liquified fungal paste. Under the blue-white glow, these marks fluoresce, creating three-dimensional charts that seem to float above the moss-paper. Each map is a temporary thing—the moss continues to grow slowly, distorting the marks over months, making the charts themselves a record of time's passage.
+
+I have been here for seven years, or what passes for years in this place where seasons are marked by the rhythm of condensation. In that time, I have documented forty-three major voids and hundreds of smaller ones. The pattern they form is becoming clearer, though its meaning remains opaque. It resembles, from certain angles, the neural pathways of some vast brain. From others, it looks like a root system in reverse—spaces where roots might grow, if something were planted from above rather than below.
+
+My proudest discovery is the Chamber of Anticipation, the largest void I've found. It lies deep in the oldest part of the district, where the trunks are so vast that twenty Still-Folk could link hands around them. The chamber is perfectly spherical, fifty feet in diameter, its walls smooth as glass. But what makes it remarkable is that it's growing—not filling in, but expanding, the walls retreating imperceptibly each day. The Still-Folk elders know of it. I've seen them gather at its periphery, pressing their palms to the walls, their bioluminescent patches pulsing in complex, unified patterns I've never seen elsewhere.
+
+I believe the voids are not flaws or failures in the city's growth. They are promises. Spaces held in reserve for something the city expects but has not yet received. My maps, then, are charts of potential, diagrams of a future the Under-Canopy is patiently preparing for.
+
+The Still-Folk have begun to include me in something. Yesterday, an elder approached my void and tapped a simple message: "Coming-gathering-soon-you-witness." My inclusion might be tolerance, or it might be recognition that my work serves their own inscrutable purpose. I am, perhaps, documenting the dreams of their sleeping god of wood and wetness, making visible the spaces where those dreams might one day take form.
+
+I continue my work with cold fingers and careful measurements, a warm ghost haunting the spaces between what is and what might be, speaking in borrowed languages to a city that dreams of its own completion.

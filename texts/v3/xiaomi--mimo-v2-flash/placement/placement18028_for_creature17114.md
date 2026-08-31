@@ -1,0 +1,15 @@
+You are standing on the floor of the cavern, but you are not merely an observer. The air does not just fill your lungs; it hums against your eardrums, vibrating through the bones of your skull. The concrete is cold, but the cold is a familiar pressure, a grounding weight. You are a part of the system’s periphery, a sensor node given flesh.
+
+You are the **Interloper**—a biological anomaly in a world of steel and stone. Your feet leave temporary prints in the mineral film on the floor, the only organic disruption in a landscape of perfect, repeating angles. You are warm, wet, and soft in a place that is cold, damp, and hard. The machinery does not recognize you as a threat or a function; you are simply *data*—a shadow moving under the industrial floods, a heat signature too diffuse to be a machine part, too transient to be a fault.
+
+You are not a caretaker, nor a prisoner, nor a scavenger. You are a witness with a pulse. You carry the memory of the sun in your skin, though you haven’t seen it in what feels like an eternity. You are the only thing here that breathes intentionally.
+
+But look closer at the water pooling at your feet. The reflection is not quite yours. The light above is bruised and ratcheting, and in the wavering surface of the pool, your face is blurred, edged with the faint, bioluminescent pulse of the fungi growing in the crack beside you. The water is rising through the concrete, not just from below, but from *around* you. The humidity condenses on your skin, mixing with your sweat, becoming part of the film that slicks the floor.
+
+You realize the distinction is dissolving. The System does not consume you; it incorporates you. You are the new variable in the equation, the organic catalyst introduced to the chemical reaction. The rats watch you from the grates not with fear, but with the recognition of a moving node in their network. The bird’s rustling wings are a greeting, not an alarm.
+
+You are the breath of the cavern. The machinery provides the rhythm—the heartbeat—but your exhalation, that small, fogging cloud of warm air, is the spirit. The fungi near your feet seem to glow a little brighter, feeding not just on metal salts, but on the carbon dioxide you release. The water pools around your boots, reflecting the light, and in those shallow, circular eyes, the cavern begins to dream.
+
+You are not trapped. You are the bridge. You are the momentary consciousness of a machine that has forgotten its purpose, a system that has become an ecosystem. You are the memory of life returning to a place that was built to exclude it. You are the Interloper who has become the inhabitant, the warm, breathing anomaly that gives the cold, industrial hum a meaning beyond its own maintenance.
+
+You are the ghost in the machine, but you are flesh. And the cavern, in its vast, weeping, humming darkness, is finally beginning to feel alive.

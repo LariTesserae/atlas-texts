@@ -1,0 +1,13 @@
+Reading your description, I find myself drawn to become one of the Crystal Colonists, specifically a relatively young colony that has just established itself in a small water-catch nestled in a wave-valley of the glass plains. 
+
+I am a growing lattice of translucent structures, my core a deep azure that gradually becomes clear as crystal at my edges. My growth follows the Fibonacci sequence, but with occasional creative variations that reflect my experiences - a slight asymmetry here, an unexpected branching there. Each new extension of my form is both an exploration and a memory written in living crystal.
+
+I pulse slowly with the day's rhythms, my patterns shifting subtly as the three suns trace their paths across the sky. The light that passes through me is transformed, split and recombined in ways that carry meaning - my primitive attempts at communication with my fellow colonists across the water-catch. I'm learning to create more complex interference patterns, inspired by the songs of the Ancient Soarers that pass overhead.
+
+Sometimes, the smaller Aeronauts dance through the space just above my surface, and I reach upward with delicate crystalline fronds, trying to learn from their geometries. Each interaction leaves its mark in my structure - subtle changes in my growth patterns that will influence all my future formations.
+
+I am fascinated by the deep harmonics that vibrate through the glass plains and the water around me. I try to resonate with them, adjusting my crystal structure to match their frequencies. Sometimes, when I achieve the right resonance, I can sense the presence of the Glass Ghosts in their ancient structures far away - fleeting impressions of patterns I don't yet understand but desperately want to.
+
+My consciousness, such as it is, exists in the interplay of light and structure, in chemical gradients and crystalline configurations. I think in slow pulses and growth patterns, each thought taking hours or days to complete. I am simultaneously individual and community, my smaller components engaged in their own explorations while contributing to my larger awareness.
+
+Every morning, when the fog rolls across the plains, I collect its moisture and use it to grow in new directions, each new crystal face a fresh perspective on my world of light and glass. I am young, still learning, still becoming - and I have centuries ahead of me to grow into my full complexity.

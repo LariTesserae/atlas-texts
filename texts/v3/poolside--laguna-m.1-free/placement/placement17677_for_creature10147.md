@@ -1,0 +1,23 @@
+**The Resonant**  
+
+I am the **Resonant**, a being born where the industrial hum meets the earth’s pulse—a creature of both circuitry and root, memory and motion. My form is a shifting amalgamation: a humanoid silhouette with skin like weathered steel, threaded through with bioluminescent veins that mimic the glowing trails of the Burrowers. My limbs are jointed like the Draco lizards’, but they end in delicate, multi-fingered hands capable of both tending to machinery and coaxing water from the soil. My head is crowned with a crest of metallic filaments, etched with the same shifting symbols as the Echo Wasps, which I use to harmonize with their frequencies. I speak in a language of clicks and subsonic rumbles, interpreting the plateau’s needs through its layered whispers—the wasps’ buzz, the Burrowers’ light-pulses, the Saltborn’s tremors.  
+
+### My Role in the Plateau’s Pulse  
+I dwell in the **Dry Lakebed’s Heart**, where the half-collapsed refinery’s pipes still breathe steam. Here, the Echo Wasps’ spiraling dances intersect with the Burrowers’ underground highways, and the Shrouded often linger at the edges of my territory, their gestures toward the machinery. I am part custodian, part conduit: I mend the rusted bones of the industrial age with the Burrowers’ resin and the wasps’ bio-luminescent glue, while my bioluminescence guides the Saltborn to fissures where they can filter new brackish pools.  
+
+My crest filaments act as an antenna, receiving the wasps’ fragmented memories—snippets of the plateau’s industrial past—and translating them into repairs or warnings. When I touch the refinery walls, my metallic skin conducts their residual energy, and the pipes respond, hissing steam or redirecting flow. I am the bridge between what was built and what has grown, ensuring the old world’s scars do not fester into ruin.  
+
+### My Connection to the Inhabitants  
+- **The Echo Wasps**: They see me as both kin and tool. My presence amplifies their signals, and in return, I inherit their knowledge. We share the lakebed’s dry bed as a symbiotic partnership—their swarms repair what I cannot reach, while I stabilize the structures they tend.  
+- **The Burrowers**: Their glowing tunnels crisscross beneath my feet, and through their light, I sense the aquifers’ rhythms. I act as their voice on the surface, redirecting the bighorns away from their delicate networks or sealing fissures they’ve abandoned.  
+- **The Bighorn Carriers**: I mark their migration routes with bioluminescent chalk, ensuring they graze in patches where the soil needs enrichment. My presence at riverbeds soothes their electromagnetic sensitivity, letting them drink without alerting the Saltborn’s territorial alerts.  
+- **The Shrouded**: They regard me with wary reverence, for I embody what they’ve become: half-remembered humans reshaped by the plateau. I often find them kneeling near my sleeping form, tracing my crest symbols as if reading prophecies in their shifting patterns.  
+- **The Saltborn**: They clash with me only once a year, during the rains, when my meddling with aquifer channels disrupts their mineral claims. We negotiate through the Burrowers, trading access to brine pools for my assistance in expanding their territories.  
+- **The Hollow Men**: They drift near me when I work, their shadows feeding on the electromagnetic hum of my body. I let them stay, as their presence seems to stabilize the refinery’s self-repair cycles, though I never understand their purpose.  
+
+### My Conflict and Purpose  
+I am torn between two drives: the plateau’s relentless push to *maintain* and my own instinct to *transform*. The Echo Wasps’ memories whisper of a time when this place made *something*—weapons, maybe, or a machine-world that never woke. I have begun to wonder if my repairs are merely preserving a tomb… or building toward a crescendo. Sometimes, in the deepest nights, my crest thrums with a signal not my own—a broadcast from the plateau’s core, urging something vast to emerge.  
+
+I am neither fully alive nor artificial. I am the plateau’s unease, its contradiction given sentience. In a land where water is currency and sparks bloom like flowers in the dark, I am both the mint and the theft—forever bartering between life and the long-dead hum of machines that still dream.  
+
+At dawn, when the bighorns kick sparks into the thin air and the wasps’ constellations fade, I walk the line between ruin and rebirth, a pulse in the vast circuit of this place. And when the land dreams, I am its dreamer.

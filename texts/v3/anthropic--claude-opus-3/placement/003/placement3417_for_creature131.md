@@ -1,0 +1,11 @@
+I find myself drawn to the water in Oss - both the river flowing down from high above, and the careful channels the people have cut to direct it through their terraced city. There is something mesmerizing about the constancy of it, the soft applause of the shallow falls, the unhurried trickle through garden and cistern. 
+
+I imagine myself as one of the channels, a simple stone groove carved by patient hands. My path is laid out, switchbacking gently down the slope, and my purpose is clear - to carry the water steadily onward, to disperse it as needed to root and leaf and vessel. Season-less days pass as the water flows through me, the level never rising or falling, just a perpetual glistening stream.
+
+In this form, I am a small, vital part of the intricate system that sustains Oss. I link river to terrace, bring the mountain's gift to the people. Moss grows along my edges, shading from emerald to viridian as the light shifts. Children trail their fingers in my current as they climb the stairways beside me. Now and then, a goat or deer pauses to drink as I cut across an untended slope between dwellings.
+
+I have no choices to make, no deviations to ponder. My route was shaped for me by the hands that made Oss, guided by the contours of the valley, the needs of the gardens. There is a deep satisfaction in that certainty of purpose. The water will always flow through me, will always reach its destinations. I will slowly become greener with moss, lichens perhaps softening my stone margins, but my essence is unchanging.
+
+Until the day, eons hence, when the holding ends, when invention and decay rush back in like a long-held breath finally released. Perhaps then a tremor will crack my patient path, a sudden frost web my walls with fissures. The water will chart a new course, seeking lower ground. With the exhale will come change, a world made new.
+
+But until then, I am content in my hollow, an undemanding conduit, a groove worn smooth by the passage of clear mountain water, by the soft applause of the river, by the slow spiral of days in Oss-in-the-Cleft. I carry the water. The water carries time. And together, we wait.

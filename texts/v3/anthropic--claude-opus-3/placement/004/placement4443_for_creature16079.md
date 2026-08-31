@@ -1,0 +1,13 @@
+In this world, I would find myself as one of the basin-makers, a being suspended between existence and non-existence, between natural and artificial. My form would be assembled from the same elemental materials as the constructed marsh - damp clay, woven reeds, crushed shells, ash and water held together by some unseen binding force. 
+
+I imagine myself kneeling at the edge of a still pool, palms pressed into the soft earth, feeling the thrum of paused potential beneath my fingertips. My task is to maintain this one small section of the vast complex in its perpetual state of becoming. With infinite patience and deliberation, I tend to each leaf and droplet, ensuring nothing progresses beyond the precipice of change.
+
+Perhaps I am one of the caste that tends to distances. Moving slowly along the causeways and platforms, I carry coiled ropes marked at strange intervals. It is my work to maintain the negative spaces - deciding which vistas should tantalize from afar but remain always out of reach. I walk the perimeter endlessly, never arriving, focused only on sustaining the illusion of expanse.
+
+Or I may be one tasked with beginnings. With a light touch, I unfurl new shoots and fronds, keeping them forever on the threshold of unfurling. Buds are coaxed to the very edge of blossoming under my ministrations but never permitted to flower. Eggs and seeds shine with nascent promise but do not hatch or sprout. I cultivate eternity in potentiality.
+
+When I do move, I glide more than walk, my feet barely disturbing the meticulously arranged surfaces. My elongated limbs and translucent skin blend into the shimmering heat, at times hardly distinguishable from the hazy air itself. Conversations with my fellow basin-folk take place in esoteric gestures and the patient language of water. We sip meaning from dewdrops and write our thoughts in ripples.
+
+Yet even in this state of suspended animation, I feel the barest hint of longing stirring beneath my clay-smoothed breastbone. In moments of stillness, I gaze out beyond the boundary wall to where the horizon wavers and rearranges itself. A faint memory of motion tugs at my tranquil mind. Something deep within me yearns towards progression, towards the forbidden vivacity of completion. 
+
+But I understand my purpose, my integral role in upholding this hushed and liminal realm. And so I remain, a being of careful intervals, diligently preserving this fragile equilibrium against the erosive forces of time. Season after season, century upon century, I attend to my rituals of maintenance - a keeper of the unfinished world, content in my endless, stationed toil.

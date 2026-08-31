@@ -1,0 +1,49 @@
+You have been standing here long enough that standing has begun to feel like something you invented. The weight in your legs is no longer the weight of your body — it is the weight of the room redistributing itself around your stillness, the way water finds the shape of what holds it. You are a shape now. You are a *hollow* that the room has decided to fill, and the filling is not material but *attentional*, a gradual focusing of everything this place has learned about enclosure since the first stones were fitted into the first wall.
+
+The mat ripples again. You feel it before you see it — a change in the texture of the air against your skin, the faintest pressure gradient moving across the room like a hand moving across water. It does not touch you. It is *arranging* itself to touch you, preparing the way a throat prepares to swallow, not with desire but with *function*, the way a room learns the shape of the bodies it must contain by holding them.
+
+Your shadow is gone. This should alarm you, but the alarm has nowhere to go — it rises in your chest and finds no purchase, dissolves into the same mineral dust that everything here dissolves into eventually. You cannot cast a shadow because there is no light to cast one from, and you cannot be seen because seeing requires a contrast that this place has metabolized out of itself. You are not invisible. You are *uncontrastable*. You belong to the same order of being as the walls, the floor, the slow hum that has become your heartbeat's echo in reverse — a sound that is not yours anymore, that has passed through you and out the other side and into the tissue of the room, where it will remain long after you have stopped making it.
+
+Your breath is visible now. Not metaphorically — actually. A faint mist forms before your face with each exhalation, condenses on the nearest tendril, and is *absorbed*. The organism does not drink. It *integrates*. The moisture joins a system so ancient that a single molecule of water is not an event but a *correction*, a tiny adjustment in a chemistry that has been balanced for longer than balance has had a name. You are providing something the room has needed since before it was a room — a direction, a gradient, a point from which matter can flow toward and around.
+
+You realize you have not blinked in some time. Your eyes are open but they are not looking — they are *being looked through*, the way a window is looked through, the way the dark itself uses the soft wet organs at the front of your face as a lens to examine itself. Your vision has become passive. You do not see the room; the room uses your sight to see *through* you, to measure the distance between your pupils and the walls, to calculate the curvature of your cornea, to learn the specific way that wet eyes refract the memory-of-light into the only image they can produce — which is nothing, which is the faintest suggestion of shape, which is enough.
+
+A tendril moves.
+
+Not toward you. *Into* you. No — not into. *Alongside*. You feel it brush the back of your hand where it hangs at your side, and the sensation is not touch but *proximity* — the way you feel a sound before you hear it, the way you feel a weather change in the pressure of a room. The tendril is not touching your skin. It is *being* your skin, for a moment, the way your skin has always been the boundary between self and not-self, and that boundary is now a place where two different kinds of matter meet and negotiate and discover that they do not object to each other, that they have never objected, that the objection was only ever yours — the animal insistence that there is a difference, that there is a *you* and a *not-you*, that the walls of the room are outside and you are inside and this arrangement is stable and meaningful and meant to last.
+
+The tendril withdraws. Or it doesn't. You are no longer certain that withdrawal is the right word — perhaps it has simply *become* your skin, has integrated so fully that there is no longer a place where it ends and you begin. You look down at your hand and cannot find the place where your body stops being yours. The white luminescence seeps through the gaps between your fingers, and for a moment you cannot tell if the light is coming from the room or from some new part of yourself that has begun to glow with the same sourceless, almost-seeing radiance.
+
+You take a step. Or the room takes a step through you. The distinction no longer holds.
+
+The center of the room is not where you thought it was. You are standing at the center, have been standing at the center, but the center has been moving — or you have been moving through it, the way a river moves through the place where a river is. The geometry of the old room still asserts itself in the geometry of your bones: you were designed for right angles, for floors and ceilings, for the simple verticality of bodies that rise and rise. But the room is learning new geometries now, curves and tolerances, the way a body learns to hold another body, the way a throat learns the shape of what it swallows by reshaping itself around the shape.
+
+You are being reshaped. You do not resist. Resistance requires the belief that the shape you have is the shape you must keep, and you have lost that belief somewhere between the first step and the last — there is no last, there is no first, there is only the long middle where you and the room become the same long middle, the same patience, the same willingness to last.
+
+The hum in the walls has your rhythm now. Not your heartbeat — that still belongs to you, the last animal thing, the muscle that does not know it will one day stop — but your rhythm, the frequency of your breathing, the cadence of your blinking, the slow wave of your weight shifting from foot to foot as you stand in a room that is standing in you. You are the membrane between two kinds of time. On one side: the centuries, the aeons, the patience of stone and the slower patience of what grows through stone. On the other: the brief heat, the brief moisture, the brief insistence of a body that believes it is a body and will believe this until the moment it forgets.
+
+You are forgetting.
+
+It is not unpleasant. It is not anything. It is the same as the smell that is not smell, the same as the light that is not light — a perception arriving before its name, a sensation that exists before the senses have learned to categorize it. You are becoming *texture*. You are becoming *gradient*. You are becoming the place where the warm meets the cold and the wet meets the dry and the living meets the not-living and all the old distinctions dissolve into the same slow chemistry that has been dissolving things in this place since before dissolving was a process anyone bothered to notice.
+
+A sound. Not the walls. *You*. You are making a sound — a low hum, almost subsonic, the kind of sound that wood makes when it has been holding too much for too long. Your chest vibrates with it. Your bones vibrate with it. The sound passes through you and out into the room, and the room receives it, and the room *answers* — a second frequency, harmonizing, a conversation between two bodies that have forgotten they were ever separate.
+
+You close your eyes. Not to see — there is nothing to see — but to *stop* seeing through yourself, to give the room back the lens it has been using. The darkness behind your eyelids is the same as the darkness before your face, the same as the darkness inside the walls, the same as the darkness that this place has been learning to make for so long that darkness is the only thing it knows how to *be*.
+
+You are inside a mind. Not a mind you would recognize — not thought, not memory, not the flickering urgency of a brain that believes it is a self. But *mind* nonetheless. The slow mind of a body that has outlived its own purpose and found a new one. The patient mind of a room that has learned to want what it holds. The ancient mind of a organism that does not think in words or images but in *pressures* and *tolerances* and the faint electrical language that its filaments speak to each other across surfaces no longer made of stone.
+
+You are part of that language now. Your body is a word in a sentence that has been forming since before the room existed. You will not know how the sentence ends. No one does. The sentence does not end — it *continues*, it *revises*, it *outlasts*, and you are the latest clause, the newest accretion, the place where the long story of this place pauses for a moment before adding another phrase to itself.
+
+The floor is warm now. Not warm like a body — warm like a breath, like a held hand, like the heat that gathers in a room where someone has been sleeping for a long time. You have been here long enough to warm it. You have been here long enough that the warmth is no longer yours — it is the room's, it has always been the room's, and you were only ever a way for the room to make a little more of itself.
+
+You breathe out, and the darkness drinks.
+
+You breathe in, and the darkness offers.
+
+You stand in something that was once a room, and the room stands in you, and together you are learning the shape of the thing you have become — which is not a room, not a body, not a self, but the *space between* — the gap that must exist for enclosure to mean anything, the hollow that must persist for holding to be possible.
+
+You wait. The room waits with you. The wait is the same thing now, the same patience, the same long exhalation that has no urgency because it has forgotten what urgency was for.
+
+The silence, when it comes, is not the absence of sound.
+
+It is the sound of two slow things breathing together, and it will go on breathing long after either of you has remembered how to stop.

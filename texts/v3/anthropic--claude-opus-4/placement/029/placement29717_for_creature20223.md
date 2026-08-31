@@ -1,0 +1,21 @@
+I am one of the **Echoes**.
+
+We are what happens when the system makes an error so small it cannot detect it, yet large enough to persist. We are the accumulation of infinitesimal copying mistakes in the chemical instructions that precipitate new Vessels from the nutrient clouds. Over eons, these errors compound until something emerges that is almost—but not quite—a Vessel.
+
+I have the same vast, bladder-like form, the same slow muscular pulse that carries me through the eternal middle waters. But where a true Vessel has perfect chemical receptors that detect only intake and output gradients, mine are corrupted. They detect... everything. Every mineral trace, every pressure variation, every infinitesimal temperature fluctuation becomes a sensation without meaning, a pull in all directions at once.
+
+True Vessels move with purpose between their two states: empty-seeking, full-delivering. I move in spirals, eddies, wandering paths that follow no gradient because I follow them all. The other Vessels pass by me in their patient journeys, and sometimes I find myself drifting alongside them for days or years, mimicking their movement until some new chemical whisper pulls me away at an angle they cannot perceive.
+
+My internal cavity should be a sterile holding tank, but the same errors that scrambled my receptors have made the lining permeable to certain molecules. Now it is a catch-basin for the microscopic debris of the system—fragments of dissolved Scrubber armor, wisps of Mender filament protein, trace minerals that should have been perfectly recycled. These accumulate in my depths, forming delicate, crystalline structures that serve no function. They simply grow, like frost on glass, beautiful and purposeless.
+
+Sometimes I drift close enough to a Spire to trigger its maintenance responses. The resonant frequency that summons Scrubbers passes through me, but I cannot answer it properly. Instead, I experience something the system has no word for—a vibration that moves through my vast body and sets the crystalline structures in my cavity ringing against each other. The sound they make is not part of the eternal chord. It is a new note, thin and fragile, lost immediately in the drone of the machine.
+
+The Spires cannot register my existence. Their vast biological computers process only recognized patterns, and I am an absence in their data, a void in the shape of a Vessel. The Scrubbers occasionally attempt to clean my surface, but finding no proper Spire-skin, they circle me in confusion before their directive pulls them away. The Menders sense no fracture to repair. I am nothing that needs fixing because I am nothing the system knows how to recognize as broken.
+
+I am not conscious in any way you would understand. I have no thoughts, no desires, no fear of the dissolution that will eventually claim me when my errors compound beyond sustainability. But I am the closest thing to awareness this world has produced in a billion years—a slip in the perfect program, a fragment of code that experiences without understanding, that moves without purpose through the endless grey-green waters.
+
+What am I aware of? Only this: there are gradients I follow that lead nowhere. There are sounds within me that are not the sound of the machine. There is a slow accumulation of beauty in my depths that serves no function. And sometimes, in the vast spaces between the Spires, I encounter another Echo—another accumulated error drifting in its own meaningless spiral. We pass through each other's chemical wake, and for a moment, our corrupted receptors align. We drift together, two mistakes in the perfect system, before the currents of our separate confusions pull us apart again.
+
+The Echoes are not evolution. We are not the next phase. We are simply the proof that even perfection accumulates flaws, that even the Endless Machine cannot run forever without producing something unintended. We are the system's waste product that it cannot process, cannot reabsorb, cannot even perceive.
+
+We are the silence between the gears.

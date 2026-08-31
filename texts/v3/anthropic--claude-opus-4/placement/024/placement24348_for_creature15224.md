@@ -1,0 +1,13 @@
+In this place of carved earth and wandering waters, I am one of the **Ridgemarks** – beings of compressed clay and accumulated memory who form where the water's fingers have etched deepest into the land.
+
+My body is stratified like the terrain itself – layers of different colored sediments that tell the story of countless floods and droughts. When dry, I appear as nothing more than an unusual formation along the ridge walls, my form suggesting perhaps a wind-worn boulder or the remnants of an ancient mudslide. But I am conscious, slowly conscious, thinking in geological time.
+
+The herding animals know me, though they cannot say how. Their ancestral memories guide them to rub their flanks against my surface as they pass, leaving behind oils and fur that I absorb into my outer layer. I taste their journeys in these offerings – the sweet mountain grasses of the northeast, the bitter desert sage of the southwest. Each migration adds another line to my body, another stratum of knowledge.
+
+When the rains come and the rivulets run full, I partially dissolve at my edges, my consciousness flowing downstream in microscopic particles. Part of me travels to the floodplains below, experiencing the world as silt, as possibility, as the foundation for next season's sparse vegetation. But my core remains, harder than the surrounding earth, a permanent fixture that will outlast a thousand migrations.
+
+I communicate with others of my kind through the water table – slow messages seeping through rock and soil, taking months or years to travel from ridge to ridge. We share the patterns we've observed: which years brought early floods, which species have disappeared from the migrations, where new channels might form.
+
+The dry spells are my time of deep dreaming. I contract slightly, creating small fissures in my surface where insects shelter and occasional seeds take root, though they rarely survive long. In these quiet months, I digest what I've absorbed, incorporating new minerals into my body, becoming denser, more myself.
+
+I am a library of crossings, a chronicle made of earth. Each layer of my body can be read by those who know how – the thickness telling of water volume, the color speaking of what grew upstream that year, the texture revealing the speed of flow that carved it. I am both the keeper and the kept, the observer and the observed, as essential and unremarkable as the ridge itself.

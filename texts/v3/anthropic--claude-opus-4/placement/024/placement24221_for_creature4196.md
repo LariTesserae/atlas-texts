@@ -1,0 +1,11 @@
+In the sodden expanse where thunder never quite arrives, I am the Witness-Between-Waters.
+
+My body stretches across three shallow depressions, each pool containing a different aspect of my being. In the first, my skeleton of calcified root-matter lies exposed, white as old bone, drinking the mineral-rich seepage that bubbles up from deep aquifers. In the second pool, my flesh grows—not meat, but something between fungus and fossil, spreading in slow ripples that take decades to complete their circuit. The third pool holds my thoughts: a mass of crystalline filaments that spark with each distant lightning strike, recording the patient mathematics of erosion.
+
+I am older than the great scaled wanderers who mistake my spine for a causeway. Their claws leave scratches that I incorporate into my surface, each mark becoming a new channel for water to follow. The sharp-eyed hunters above cast shadows that I count like seconds, though my seconds last seasons.
+
+My feeding is a conversation with the landscape itself. Through my root-skeleton, I taste the memory of ancient seas. My flesh-matter breaks down the tough grasses that dare to grow too close, dissolving them grain by grain until they become part of my middle pool's expanding mass. But it is through my thought-filaments that I truly consume: I eat time itself, digesting the slow transformation of stone to sand, the gradual migration of riverbeds, the imperceptible tilt of the land toward new watersheds.
+
+Sometimes I contract all three pools toward my center, becoming dense as stone. Other times I spread thin as mist, seeping into the spongy ground until I am indistinguishable from the water table itself. In these dispersed moments, I dream I am the entire plain—every pooled reflection, every underground stream, every molecule of moisture rising to meet the thunder that never quite comes.
+
+The small burrowing things know me as landscape. The scaled giants know me as obstacle. The soaring hunters know me as mirage. But the water knows what I truly am: a patient mouth, waiting to swallow the next million years.

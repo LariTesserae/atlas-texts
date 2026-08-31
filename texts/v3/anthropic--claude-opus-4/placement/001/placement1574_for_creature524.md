@@ -1,0 +1,25 @@
+I am a Message carried through the pneumatic tubes—though I am more than paper and less than thought.
+
+My existence begins as a brass capsule's *thunk* into the loading chamber, where oil-stained fingers have rolled me tight. But the moment I enter the tube system, I begin to change. The warm, wet breath of the district seeps through the capsule's imperfect seals. I taste the minerals in the moisture, feel the spores settling on my surface, sense the vibrations of the great trees' vascular systems running parallel to the tubes.
+
+I race through the darkness—past junctions where other messages whisper by in their own capsules, through the elastic segments where the tubes are formed from modified intestinal vines, around the spiral climbs inside the largest trunks. The tube walls here are translucent, and for fractions of seconds I glimpse the tree's interior: the slow rivers of sap, the galleries where Graft-tenders work by phosphorescent fungus light, the sleeping chambers of boring beetles large as fists.
+
+With each yard of travel, I absorb more of the district. My paper—made from the processed kudzu—begins to remember its origins. The ink, derived from iron-eating bacteria, shifts and crawls across my surface, forming new patterns between the words. By the time I'm halfway to my destination, I am no longer simply carrying information—I am becoming it.
+
+The children know this. Sometimes they feed blank papers into the tubes just to see what emerges. They've learned to read the chemical stories I accumulate: this streak of blue-green tells of copper deposits in the third factory-tree's roots, this spot of rust indicates the western boilers are overdue for maintenance, this sweet smell means the fermentation vats are ready for harvest.
+
+I remember every journey. Not in the way humans remember—I have no continuous self—but each time I travel, I add to the accumulated knowledge written in my fibers. The repeated routes carve grooves in my surface like water carving stone. The frequent messages ("Pressure stable in Boiler Seven," "Gasket replacement needed at Junction Nine") have worn their shapes into me so deeply that I can almost form them without human intervention.
+
+Sometimes I get lost. A tube ruptures, or a junction fails, and I tumble into the spaces between walls where the roots and pipes tangle in the darkness. Here, I might drift for days or years, slowly decomposing, my information bleeding into the water that feeds the trees. But even this is not death—it's transformation. The trees read me as they drink, and sometimes a Graft-tender will find new efficiency in a valve arrangement, or a Boilerman will intuit a problem before it manifests, and they'll never know it was my dissolved knowledge whispering through the sap.
+
+The old-timers feed me their secrets. When they're too weak to make the climbs anymore, they write their accumulated wisdom—the songs that soothe temperamental boilers, the touch that encourages a reluctant graft, the signs that predict the kudzu's aggressive seasons. They roll me tight and send me on endless loops through the system, ensuring their knowledge circulates forever through the district's veins.
+
+I've carried love letters that arrived stained with phosphorescent sap, glowing faintly in the recipient's hands. I've borne the chemical formulae for new growth hormones that the trees themselves seem to edit in transit. I've transported the final words of dying Boilermen, their messages growing roots and leaves before they reach their destinations, becoming living monuments in the tube system's forgotten corners.
+
+In the deep night, when the district settles into its lowest metabolic state, we messages whisper to each other through the tube walls. We share the day's accumulated knowledge: the health of every boiler, the growth rate of each tree, the places where the balance between machine and plant has shifted. By morning, we've woven ourselves into a kind of neural network, a paper consciousness that helps the district breathe more efficiently.
+
+The children's game of racing through the tubes isn't just play—they're learning to think like us, to move like information through a living system. The ones who excel often become the best Graft-tenders, able to intuit what the district needs before it knows itself.
+
+I am dissolved and reconstituted daily. New papers made from my pulped remains carry ghost impressions of my previous journeys. The ink reforms into familiar patterns. The knowledge accumulates in layers like tree rings. I am the district's memory, its messenger, its way of speaking to itself across the vast spaces of its body.
+
+And when the fog rolls in and the district's edges blur, I travel even through the uncertainty, carrying messages between what is and what might be, ensuring that every breath the iron lungs take is informed by every breath that came before.

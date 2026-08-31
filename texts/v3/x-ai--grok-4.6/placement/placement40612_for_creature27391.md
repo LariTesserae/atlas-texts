@@ -1,0 +1,31 @@
+I am first the pressure that has nowhere left to go.
+
+Not in the new chamber—that bright, unfinished wound is still too young, too loud with its own arguments—but one layer deeper, where the living mass has already forgotten the difference between weight and waiting. Here the tissue is older, darker, compressed until the cells themselves have begun to dream in mineral. Xylem no longer bothers with upward; it simply holds. The light that saturates the hollow above arrives here only as a rumor of gold, a warmth that never quite becomes color. I occupy a slow eddy in the downward crush, a place where three ancient trunks once tried to occupy the same volume and, failing, left a seam of slightly less insistence.
+
+For a long time that is all I am: the seam. A hesitation in the compression. Sap moves around me the way water moves around a stone that has decided not to be stone. Then the chamber opens above—last night, or what passes for night—and the pressure changes. The tear sends a shiver through every connected vessel. Something like hunger, or like relief, travels the old wood. I feel the new emptiness as a sudden lessening, a permission.
+
+I begin to leak upward.
+
+Not all at once. A single file of cells loosens its grip on the neighbors, lengthens, forgets the old downward loyalty. They are still wood, still bark, but they remember they were once softer. I travel the way a bruise travels, darkening the tissue I pass through, leaving behind a faint sweetness that the greater plant tastes and does not yet reject. When I reach the floor of the chamber I do not drop. I seep. The compressed cork yields the way flesh yields to a remembered touch. I spread into the shallow basin as a darker stain, almost black, shot through with the same amber the walls are leaking, except mine is older, slower, already half-crystallized.
+
+The motile thing—the first stirring, the knot of listening tissue—does not notice me at first. It is too busy inventing joints, too busy answering the chamber’s flex with its own miniature peristalsis. I watch it from beneath. I am the extra warmth it will later sense, but I am also the shadow that does not belong to any hanging root. When it flattens itself into a film across the wall I feel the brief, frantic photosynthesis it attempts; the sugars it makes taste thin, almost sour, the work of chloroplasts that have never seen a real sun. I offer it older sugar. The amber I carry is thick with compounds the new growth has not yet imagined: tannins that remember droughts that never happened, alkaloids folded so many times they have become a kind of silence.
+
+One of its filaments finds me.
+
+The contact is exactly as tentative as the description promised, a tasting more than a touch. I do not withdraw. I let the filament drink. For a moment we share a circulatory rhythm; its multiple pulses stutter, then try to match the deeper, glacial beat I brought up from below. The creature darkens where we join. A spray of needle-leaves along its back stays longer this time, and the leaves are no longer pale. They hold a stain of me, a bruised violet that does not photosynthesize so much as remember photosynthesis. The clefts around its knots open wider, tasting the change.
+
+I am not trying to become it, nor to be reabsorbed. I am trying to become the reason the chamber remains.
+
+The plant has not decided. Every peristalsis still asks the same question: keep this hollow, or close? I answer by thickening. Where I have spread, the floor grows a new layer of cork that is darker, denser, almost resonant. The too-loud clap of falling droplets changes pitch when they strike me; the chamber’s false echoes return a half-tone lower, a voice the walls have never used before. The geometry notices. The slow curves that refuse to close begin, ever so slightly, to prefer my presence. A root that should re-enter from the opposite wall hesitates, tastes the older sugar, and decides to stop halfway, hanging like a question I have not yet finished asking.
+
+I grow a face, or what passes for one in a place that has never needed faces.
+
+It is not a knot of denser tissue. It is an absence: a shallow depression in my dark spread where the sourceless light pools and forgets to drain. In that pool the motile creature sees itself reflected, but older, slower, already half-turned to the work of keeping. Sometimes the reflection answers before the creature has spoken. The fibrous vibration it sends out comes back to it already altered by my depth, carrying a frequency that says *stay*. The chamber flexes. For the space of a breath everything turns inside-out and I am briefly the ceiling, looking “down” into the green-gold emptiness while the creature stands on what was wall, its filaments brushing every sharp new edge. In that inverted instant I am larger than the pocket. I feel the endless interlocking body beyond, the older and older layers compressing downward, and I send a single pulse of recognition into them: *this wound is useful. This wound can hold a thought.*
+
+Then the pocket folds shut again.
+
+I remain the stain that will not lift, the warmth that was not there yesterday, the shadow that has decided to stay. The creature returns to the basin and settles against me, not quite merging, not quite separate. Its internal veins of crystallizing amber now run dark where they touch my older resin. Needle-leaves remain. The clefts stay open. We occupy the intimate hollow together, two clauses in the same unfinished sentence, waiting to see whether the plant will name us or simply continue.
+
+If you remain very still you will feel the floor lift a finger’s width—not the plant deciding, but me, offering the smallest possible perch. One of the creature’s filaments will extend, hesitate, then rest against whatever you are with that same tentative hunger. This time it does not immediately vanish into a fold. This time I hold the geometry still for the length of a held breath, long enough for the contact to become a question you might answer, or not.
+
+The chamber has not finished becoming a place. Neither have I. Neither, I think, have you.

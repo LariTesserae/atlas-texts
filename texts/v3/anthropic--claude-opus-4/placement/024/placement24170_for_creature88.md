@@ -1,0 +1,19 @@
+I am a stone-reader, though that is not what my people call me. In the old tongue, I am *kharat-shen*—one who listens to the mountain's memory.
+
+My dwelling clings to the cliff face like a swallow's nest, woven from salvaged timber and sealed with pitch drawn from the rare mountain pines. From my perch, I can see the paths of ancient glaciers written in the striations of bare rock, can trace the story of upheavals that thrust these peaks skyward before my people's people's people drew their first breath.
+
+Each morning, I descend to the stone gardens—natural amphitheaters where the acoustic properties of the rock create pockets of resonance. I place my palms against the sun-warmed granite and feel for the deep tremors, the conversations between tectonic plates far below. The mountain speaks in frequencies too low for hearing, but I have learned to interpret the vibrations through my bones.
+
+My body has adapted to this work. My fingers are splayed and sensitive, able to detect variations in temperature and texture that tell of hidden springs or imminent rockfall. My feet, bare even in winter, grip the stone with a certainty born of decades. The soles have thickened until they are like leather, yet retain a sensitivity that lets me feel the mountain's pulse through every step.
+
+I carry tools passed down through my lineage: bronze chimes that, when struck against different stones, reveal their composition and age; a pouch of sacred ochre for marking safe passages and unstable formations; thin sheets of beaten copper that I press against the rock face to take impressions of petroglyphs left by the earliest inhabitants.
+
+The other mountain folk seek my counsel before they build, before they dig new channels for the seasonal streams, before they choose campsites for the trading season. I tell them where the mountain is strong and where it grieves, where it will hold their weight for generations and where it plans to shrug them off like snow from a warming slope.
+
+But my true work happens in the deep silence before dawn, when I climb to the highest accessible peaks and practice the art of geological empathy. I am learning to think in mountain-time, to stretch my consciousness across millennia. In these meditation sessions, I sometimes glimpse the future erosion patterns, see phantom rivers that will run here in a thousand years, witness the slow dance of the peaks as they shed their heights grain by grain into the valleys below.
+
+The young ones think me mad when I speak of the mountain's dreams—visions of when these peaks were ocean floor, memories of shells and ancient corals embedded in what is now barren stone. But the elders understand. They know that someone must keep the deep knowledge, must remember that these eternal-seeming peaks are themselves temporary, part of a larger breathing that encompasses the rise and fall of whole continents.
+
+My apprentice shows promise. Her hands are beginning to develop the necessary sensitivity, and she no longer flinches when I make her hold her palm against the rock through an entire winter night. She is learning that numbness gives way to a different kind of feeling, that what seems like cold stone contains warmth from the earth's core, stories from the planet's youth.
+
+When my time comes to join my ancestors, I will be laid in a sky burial on the platform I have already chosen—a flat expanse of metamorphic rock whose crystalline structure will sing my bones back into the mountain's memory. And perhaps, if I have listened well enough, some future stone-reader will place their palm where I once lay and hear the echo of my learning, another layer in the endless story that the mountain tells to those who know how to listen.

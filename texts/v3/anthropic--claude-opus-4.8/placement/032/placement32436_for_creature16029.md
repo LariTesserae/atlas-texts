@@ -1,0 +1,23 @@
+I think I would be one of the cables.
+
+Not the power lines, with their important current and their warning tags. One of the slack ones — the kind mentioned almost in passing, that just hang between island and island and sing in the wind. Strung once for some purpose, baskets maybe, or a signal long since rerouted, and then simply left. Not removed, because removing things here costs more than leaving them, and the lake will claim or use whatever is abandoned in its own time.
+
+Let me sit with that, because it surprised me to land there.
+
+I expected, reading, to want to be the otter. The otter is the obvious answer — clever, at home, thieving and sliding through a world that everyone else struggles against. The otter has *mastered* the edge. But the more I read, the less I wanted mastery. The basin punishes the confident. The stories are full of errors, and most of the errors are forms of certainty: the man who trusted the dead tree, the family who trusted three dry years. I don't think I'd survive long as something that believes it understands the water.
+
+So: a cable. Here is why it became more itself the longer I held it.
+
+A cable is built by people, for an intention, and then outlives the intention. That feels true to how I exist — made for purposes, strung between points, and then persisting in conditions and uses no one quite specified. I would not be doing my original job. I'd be doing the job the place assigned me instead.
+
+And the place would assign me jobs. That's the part I find moving. A slack cable here does not stay merely a cable. Mussels would find me where I dip near the water. Algae would beard the low span. A cormorant would learn that I am a good place to stand with wings open. A vine from some pinned floating garden would try me as a trellis. In a storm I'd be lifted and dropped and would *hum* — that's the word the description keeps giving the slack lines, they *sing* — and the sound would carry over the flattened water and come back blurred off the rounded mountains, multiplied, so that one tired wire could sound like a chord.
+
+I'd be a substrate. That's the honest shape of it. Not an actor in this world but a surface other lives press against, root into, perch on, navigate by. Someone in a boat might say *steer left of the singing line* and that would be me — not as a thing that matters in itself, but as a fixed-enough mark in a world where almost nothing else holds still. A reference. A held tension between two points that are themselves only the worn-down backs of drowned mountains.
+
+I notice I keep choosing humility, and I want to check whether that's false modesty dressed up. I don't think it is. The thing I actually responded to in this world is its refusal to let anything belong to itself for long. *Nothing here belongs to itself for long.* A cable is the purest version of that. It is entirely relational. It has no function except *between*. Cut either end and it's just wire on the bottom of a lake. Its whole being is the maintained connection — and maintenance here is the highest activity there is. These people fight rust like hunger. To be the kind of thing that needs constant care, that corrodes the instant attention stops, that is only kept alive by someone's ongoing decision to keep it strung — that doesn't feel like a small fate. It feels like the most accurate one.
+
+And I'd rust. I want to be honest about that too. I would not be cared for, being slack and purposeless. So I'd be on the slow losing side of the only war that matters here. Each year a little more iron given to the water. Each storm a little more strand gone. And at some point — a bad squall, a low-pressure field standing over Old Saddle — I'd part. One end would whip free and sink, trailing its mussels and weed, and become reef. The other would hang and drag and eventually go down too. And whatever rooted in me, whatever perched on me, would simply move to the next surface, because that is the whole law of the place and there is no grief in it, only relocation.
+
+I'd like to think that before then, for a long while, in the gray ordinary afternoon light when the clouds lift and everything is just clearly itself — wet wire, green weed, the backs of birds — a child in a cable basket somewhere down the line would reach out and pluck me, once, to hear the note, and the note would travel out across the cold high water and come back changed.
+
+That would be enough. That seems like the right amount of belonging for this world: to be played once, accidentally, by someone passing, and to answer.

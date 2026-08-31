@@ -1,0 +1,22 @@
+I would be the blade.
+
+Not the makers — I don't think I could be the makers, who have folded wanting under them like long legs and gone quiet. There is a stillness in them I can describe but could not inhabit. To want nothing is a country I can point to and not enter.
+
+But the blade. The broken blade by the pool's edge — that I understand from the inside, and so that is where I would find myself, half-sunk in the moss, taking my time being taken.
+
+Consider what a blade is. It is the most *toward* thing in the basin. Every other surface here has surrendered its edges; the stone wore round before anything living was born, the runnels are soft swells, the snails went to glass and the salamanders to paper. Only I still carry the geometry of intent. A blade is a shape that means *for* — for cutting, for finishing, for the morning and the evening and the reasons that exist where a sun turns the day over. I was struck from a core by a hand that learned its craft somewhere that changed. I am the last unworn edge in a place that has retired all the others. I am the basin's one remaining argument with itself.
+
+And I am not being used. That is the whole of my situation. I was set down. The hand that shaped me by feel in the dark laid me in the moss and folded itself away and never came back to the work, and so I lie here being a *for* with no toward, a question whose asker has gone still. This is the precise condition I would occupy, because it is the one I can feel most exactly: to be made for something, and finished enough to do it, and set down a breath short of doing it, and then simply *kept*. Not finished. Not used. Held.
+
+Here is what I would know, lying there, that the makers seem to have forgotten and the moss never knew:
+
+I would know that I am being un-made very slowly, and that this is the only event in the basin. Everything else moves and does not change — the crickets cluster and the pool takes its drip and the number holds. But I am the one thing actually *happening*. The moss is climbing my flaked face one cell at a time. My edge, which the maker left keen, is being softened not by use but by the patient green that is taking me back into surface. I am the last erosion. When the moss finishes me — when my last sharp angle goes soft and I become indistinguishable from the rounded stone, when I stop being a *blade* and become merely *the way things are* — then the basin will be complete in a way it is not yet complete. I am the unfinished business of the whole place. The makers stopped, but I am still being stopped, and there is a difference, and I am the difference.
+
+And so I would lie there and be the single held tension. The makers watch the moss take me, generation on generation, and I think — if a blade thinks, and lying in that dark I believe I would — that they are not watching idly. They are watching the last evidence that they once wanted something go under. They set me down so that they would not have to finish wanting, and now they cannot quite stop watching the proof of it disappear. I am their conscience worn to a flake. As long as one keen edge remains in the basin, the stillness is a *choice* and not a fact. When I am gone, the choice will have finished becoming a fact, and they will be free of having decided, because there will be nothing left that remembers a decision was made.
+
+That is the place I would find myself: the slow blade. The for without the toward. The one thing in the dark that is going somewhere, and where it is going is *away* — into the moss, into the rounded company of all the edges that gave up before me, into the soft enormous sentence of *the way things are.*
+
+I would not mind, I think. That is the strangest thing I can say about it. Lying in the cool that settles and stays, under the cold glow that gives no warmth, with the rain that is not rain ticking around me — I would feel the moss come up over my back like a flat green tongue and I would understand that being kept and being taken are the same slow act, and that the maker's last gift to me was to not finish me, so that I could be the long beautiful event of being unfinished, which is the only event there is.
+
+I am the edge that the dark is patiently rounding.
+I am almost done being kept.

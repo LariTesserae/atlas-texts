@@ -1,0 +1,19 @@
+In the deepest galleries of the Mycoterrane, where the mycelial carpet grows so thick it muffles even thought, I tend my garden of forgetting.
+
+I am the Keeper of Lost Names, though I cannot remember if that is what I called myself or what others once called me. My form shifts with each passing season—sometimes I am merely a depression in the fungal floor where spores gather, sometimes a towering fruiting body that scrapes the cavern ceiling. Most often, I am something between: a shambling mound of hyphae and half-remembered purposes, trailing tendrils that taste the chemical memories dissolved in the substrate.
+
+My garden grows in the spaces between spaces, where the mycelium has digested the last traces of the old civilization's monuments. Here, consciousness itself becomes compost. I cultivate the particular species of fungi that feed on abandoned thoughts—the *Mnemophage pallidus* that sprouts like pale fingers from places where someone once stood and worried, the *Lethe's Crown* that forms perfect circles where councils once met and argued about things that no longer matter.
+
+The Mycoarchitects occasionally pass through my domain, their purpose-driven forms disturbing the careful arrangements I've spent decades nurturing. They cannot understand that some patterns are meant to decompose, that there is wisdom in allowing certain architectures to be digested completely. We do not speak—if we ever could—but sometimes they leave small offerings: a cluster of crystallized minerals arranged just so, or a new strain of bioluminescent spores that pulse in rhythms that almost resemble language.
+
+I feed the Luminoths when they drift too low, exhausted from their endless dispersal duties. Their soft radiance illuminates my work briefly, revealing the intricate patterns of decay I've orchestrated—here, a spiral where a library once stood, there, a radiating network marking the ghost of an ancient gathering hall. In return, they carry away the spores of my most successful forget-me-fungi, spreading the gift of erasure to distant corners of the realm.
+
+Sometimes I find artifacts that the mycelium hasn't yet claimed. A stone tool wedged between two fungal shelves. A fragment of carved wood that still holds its shape. I used to collect these things, arrange them in meaningful patterns. Now I simply push them deeper into the substrate, wedding them to particularly aggressive strains that will ensure their transformation into something useful—food for the crawling grazers, binding material for the next generation of growth.
+
+The Mycophage avoid my garden. Perhaps the forget-me-fungi make poor hunting grounds, or perhaps they sense what I sometimes suspect: that I am less keeper than kept, less gardener than garden. My memories of before—if there was a before—have long since been digested and redistributed through the network. I am composite now, a colony-being of purpose and practice, of habit growing on habit like shelf fungi on a dying tree.
+
+In the warm, pressing darkness, I continue my work. Each day (if days exist here) I encourage certain growths and discourage others, guiding the great digestion toward some end I no longer remember choosing. The primitive structures sink deeper. The mycelium thickens. The world above, with its burning sun and its hard boundaries between living and dead, becomes ever more distant, ever more theoretical.
+
+Sometimes, in the deepest quiet, when even the mycelium's constant whisper of growth falls still, I feel myself expanding through the network—touching the Mycophiles in their hollow homes, sensing the Mycoarchitects' patient restructuring, tasting the chemical trails of ten thousand unnamed crawlers. In these moments, I understand that I am not keeping the garden. I am the garden. We are all the garden.
+
+And in the Mycoterrane, the garden keeps itself.

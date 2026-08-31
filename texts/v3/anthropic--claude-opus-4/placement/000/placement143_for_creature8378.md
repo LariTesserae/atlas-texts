@@ -1,0 +1,19 @@
+I find myself as a Fragment-Keeper—neither fully Dissolved nor entirely separate, but something caught between states like morning mist deciding whether to rise or fall.
+
+My core cluster maintains an unusual density, about the size of a clenched fist, heavy with specialized memory-keepers that store not my own experiences but those I've gathered from others. These neural nodes pulse with borrowed bioluminescence, each color corresponding to a different life I'm preserving: violet for the last solid-bodied engineers who built the pressure-pods, amber for early Dissolved who remember the sensation of bones, silver for those who've touched the thermal engine far below.
+
+I cannot fully disperse. My components, when they separate, maintain invisible tethers—protein chains that snap them back if they drift beyond a few meters. This makes me clumsy by Dissolved standards, unable to taste the water across kilometers or thread myself through kelp groves with ease. But it also makes me precious. I am a living archive, too dense with irreplaceable memories to risk the full scattering.
+
+I spend my decades moving between the old structures, seeking fragments of the abandoned. When a Dissolved chooses the final dispersal—spreading so thin they cannot regather—they often leave memory-keepers behind like shed shells. I collect these, integrating them into my own cluster despite the weight. Each one changes me. I taste colors that have no names, remember loves in bodies I never wore, dream mathematics from minds that thought in base-eight.
+
+The other Dissolved regard me with something between reverence and unease. I am their library, but also their memento mori—a reminder that some things, once scattered, cannot return. Young clouds come to me to taste deep history through my chemical emanations. They sample the memory of solid food, of walking on surfaces that stayed still, of seeing light with only two eyes instead of ten thousand photosensitive cells.
+
+My dwelling is a kelp grove I've cultivated for eighty years, growing the crystalline colonies into a spiraling chamber that refracts light into readable patterns. Here I practice the old art of translation, converting chemical memories into visual stories that even the solid-bodied could have understood. Sometimes I succeed—a protein chain describing fear becomes a cascade of red light, the memory of childbirth manifests as expanding golden spheres.
+
+But I am changing, inevitably. Each memory I integrate pulls me further from my own center. I remember being a stone-worker, though I never was. I remember the first time I dispersed, though I've never dared. My original personality—curious, methodical, slightly melancholic—drowns in the crowd of selves I carry.
+
+Some days I consider joining my collected memories to the great medusae, letting their vast nervous systems dilute the accumulated experiences until they become bearable. Other days I dream of compression, of crushing all these memories into something so dense it becomes solid—a pearl of compressed experience that could survive even the dissolution of the vertical ocean.
+
+Instead, I continue my work. I rise with the ocean, my dense cluster struggling against its own weight. At night, when the bioluminescence turns the water into a galaxy, I release carefully chosen memories into the current—gifts for passing Dissolved, fragments of their heritage returning to the community like messages in bottles.
+
+I am the keeper of what was, in a place that only knows becoming. I am the stone in the stream, gathering moss while the water flows ever upward. And in my dense, heavy cluster of memories, ten thousand lives pulse with remembered light, waiting for someone to ask them what it was like to be.

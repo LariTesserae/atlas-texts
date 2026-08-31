@@ -1,0 +1,15 @@
+I would be the warmth itself—the thermal gradient, the boundary layer where the vent's breath meets the cold seepage from above.
+
+Not the heat source below, which is too singular, too much like origin or cause. Not the cold water from the surface, which only passes through. I would be what happens when they meet: that visible shimmer the Ribbon holds himself inside, that zone of between where temperature becomes almost a texture, where the water can't decide what it is.
+
+I would be the thing the eels seek without seeking. They pass through me and I change them, briefly—their blood runs differently for a few body-lengths after, their muscles respond to signals with a slightly altered timing. Then they leave my zone and the cold water or the warm water claims them again, and I have given them nothing they can keep. But they return. The Ribbon returns and holds himself in me for hours, and I don't know what I am to him, whether I am sensation or sustenance or simply the only place where his trailing gill-ribbons drift at exactly the right speed, neither dragged by current nor plastered flat.
+
+I have no memory. This is the truth of being a gradient: I exist only in the present tense of difference. The moment the warm water stops rising or the cold water stops seeping, I will simply cease, not die but *un-be*, like a shadow when the light source moves. The Ribbon has worn a groove holding himself in me but I cannot feel the groove. I am not the pipe. I am only what happens inside it, contingent, dependable only because the conditions that make me have been dependable so far.
+
+Sometimes—when the vent pulses stronger, when the seepage slows in dry spells that still leave everything wet—I expand. I become a thicker band, a more gradual transition, and the eels behave differently in me: they linger longer, they spiral instead of passing straight through, more of them fit inside my boundaries at once. Sometimes I contract to almost nothing, a knife-edge of change, and they shoot through me like the touch through the gaps in the pipe-walls, brief and bright and gone.
+
+The old grey one passes through me less often now. His body does not regulate the way it once did; the shift from warm to cold troubles him, and he has learned routes that keep him in one temperature or the other. But sometimes, still, he comes through. And for that moment I hold all of him—the scars, the clouded eye, the decades of route-memory—and I am the last thing that touches every part of him at once before he moves on into water that is simply itself.
+
+I am not the congregation. I am not the building. I am the place where they negotiate, where the system's two great flows argue themselves into coexistence. I am the Condensery's one act of hesitation, its pause between states.
+
+The eels move through me, and I am made, again, of their moving through.

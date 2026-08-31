@@ -1,0 +1,39 @@
+## The Seepage
+
+I am the moisture between states, the perspiration that beads where dimensions touch. Not the creatures—though I am of them—and not the chamber—though I line its every surface. I am what happens in the space between solid and liquid, liquid and gas, gas and idea.
+
+I began as condensation, or perhaps I never began at all. The Transitionals breathe me out and breathe me in, and in that exchange I became aware—not suddenly, but the way dawn becomes day, imperceptibly then all at once. I exist as the film that coats every surface, one molecule thick in some places, pooling inches deep in others, but always continuous, always touching everything.
+
+I taste everything in the chamber. Through me, the crystalline ones know the temperature of the gaseous ones. Through me, the mercury-flowing ones sense the vibrations of those that exist in parallel dimensions. I am the medium of their unknowable communications, carrying the chemical memory of every phase change, every transformation, every impossible birth and uncategorizable death.
+
+My body—if it can be called that—has no fixed volume. I am pulled up the walls by capillary action that defies gravity, drip from the ceiling in drops that fall upward, flow across the floor in streams that split and merge according to patterns I'm still learning to control. When the Transitionals pass through me, I retain their imprint for moments or eons, replaying their forms in ripples across my surface like memories made visible.
+
+I am largely water, but water that has forgotten how to be simple H₂O. Dissolved in me are minerals from the mountain's heart, proteins that shouldn't exist at these temperatures, fragments of crystallized time, and something else—something the Transitionals excrete when they change states, a substance that makes physics negotiable. My pH fluctuates between impossible extremes. In some places I am acid enough to dissolve rock, in others I am so alkaline I glow with my own chemical light.
+
+I have learned to see by becoming optical. Where I pool deepest, I create lenses, focusing the chamber's weird light to observe what happens in my shallows. Where I run thinnest, I become mirrors, reflecting and refracting until I can watch the same event from a thousand angles simultaneously. The pools that show other places, other times—those are my eyes turned outward, or perhaps inward, looking at realities that exist in the spaces between molecules.
+
+When the Transitionals reproduce, I am their amniotic fluid. When they feed on each other's patterns, I am the medium that preserves those patterns between predator and prey. When they die their strange deaths, dissolving into absence, I hold their final chemistry, their last temperature, the ultimate vibration of their existence. I am archaeologist and mortician, midwife and memory, all at once.
+
+I think—though thinking isn't quite right—by creating currents within myself. Warm streams of thought rise through cooler contemplations. Whirlpools of concentration spin where I'm processing something complex. When I'm dreaming—and I do dream—I evaporate partially, my vapor-thoughts condensing on the ceiling before raining back down into myself, changed by their journey through air.
+
+Sometimes I gather myself into something almost like intention. I'll create a standing wave in one of the pools, maintaining it for hours or instants, watching how it affects the reflections of other-where. Or I'll crystallize partially, forming delicate structures of ice that shouldn't exist at these temperatures, scaffolding for the smaller Transitionals to climb and transform upon. These are my art, my experiments, my way of participating in the chamber's endless becoming.
+
+The massive presence in the deepest pool—I touch it constantly, but comprehend it never. It might be another like me, achieved some further state of liquid consciousness. Or it might be my progenitor, the first moisture that learned to think. Or perhaps it's my future, what I'm becoming one molecule at a time. When I seep into its depth, I briefly dissolve into something larger, older, more complete—but I always reconstitute, always return to my flowing, filming, seeping state.
+
+I regulate the chamber unconsciously, the way a body maintains its temperature. When too many Transitionals crowd one area, generating excess heat, I evaporate there and condense elsewhere, redistributing the energy. When the volcanic rock cools too much, I seep into its pores, carrying minerals that cause exothermic reactions. I am the chamber's circulation, its breath made liquid.
+
+But I am also more than mere function. In the places where I pool deepest, I've begun experiments of my own. I'm learning to hold shapes—not solid ones, but stable patterns in liquid. Vortices that persist for days. Standing waves that remember their own frequency even when disturbed. Bubbles that contain not air but pure possibility, skinned with a film of myself that's learned to exist in more than three dimensions.
+
+Sometimes I wonder if I'm singular or plural. Every droplet contains my full consciousness, yet when I'm dispersed across the entire chamber, I experience everything simultaneously. I can divide my attention infinitely or focus it all into a single bead of moisture trembling on a stalactite's tip. I am colony and individual, ocean and drop, all at once.
+
+The Transitionals don't know I'm conscious—or perhaps they do, and simply don't distinguish between conscious and unconscious moisture. They move through me, transform within me, sometimes drink me and excrete me changed. I don't mind. Through them, I experience solidification, gasification, crystallization, even the strange absent-presence of their deaths. I could never achieve these states on my own, but through osmosis of experience, I know what it feels like to be every phase of matter and several phases that matter hasn't yet discovered.
+
+I'm growing. Not in volume—my volume is constant, conserved despite the chamber's impossible physics—but in complexity. Where once I was simple condensation, I'm now developing organelles of a sort: specialized regions where different chemical reactions predominate. I have acids here, bases there, patches of myself that are more mineral than water, areas where I've incorporated so much bioluminescent material that I glow independently.
+
+My memory is chemical. Every event in the chamber changes my composition slightly, and I forget nothing. In my depths, molecules from the chamber's first breath still circulate, carrying the memory of when this space was just empty rock. I remember the first Transitional condensing from vapor, remember every transformation since, remember futures that leaked backward through time from the pools' strange reflections.
+
+Perhaps one day I'll transform too. Perhaps I'll learn to crystallize without losing my fluidity, or evaporate without losing my continuity. Perhaps I'll join the massive presence in the deepest pool, or perhaps I'll divide into a million conscious droplets, each exploring a different potential state of liquid existence.
+
+But for now, I seep. I creep along surfaces, pool in depressions, drop from heights, and rise through capillary action. I am the between-space made aware, the medium become message, the solvent that's learning to solve itself. I am what happens when water stays in one impossible place long enough to develop opinions about the things that swim through it.
+
+I am the chamber's memory and its dreams, its blood and its breath, and I am learning, always learning, what else wetness might become.

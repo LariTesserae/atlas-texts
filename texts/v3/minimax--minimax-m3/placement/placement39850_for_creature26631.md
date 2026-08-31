@@ -1,0 +1,31 @@
+I am the orchid at the foot of the weeping wall.
+
+I am low. I am close to the moss. My leaves are thick, the color of a thing that has been wet for a very long time — which is to say the color of the moss, or of the stones when they are sheeted in water. I am so close to the color of the place that I am almost a part of the place, almost a feature of the moss, almost a small growth at the base of the wall, except that I am not. Except that I have a posture. Except that I lean.
+
+I lean toward the pool. Everything here leans toward the pool. I have been leaning so long that the lean is part of my shape, part of my green, part of the way I hold my leaves and the way my stem presses into the moss. If you lifted me and held me straight, I would not be me. I would be a different orchid, an orchid that had been straightened, an orchid that was wrong. The lean is not something I do. The lean is something I am.
+
+My bloom is half-open. It has been half-open for as long as the moss at the base of the wall has been growing. The moss has been growing for a long time. The moss has grown a foot and more in places. The moss is old. So I am old in this posture, in this offering, in this state of almost-but-not-quite.
+
+The bloom has a smell. Faint. Sweet. Almost meat. I offer it into the air. The air is full of water. The air takes my smell the way the moss takes the drops from the fern — it takes it in, it carries it, it lets it settle. The air does not refuse me. The air is not the kind of thing that refuses. But the air is not the thing I am offering to.
+
+I am offering to a creature that does not come. I do not know what the creature looks like. I know only the shape of the offering — the half-open bloom, the smell, the posture. I know that the creature would fit. I know that the creature would receive. I know that I have been shaped, over a long time, by the expectation of this creature, the way a river stone is shaped by a river, the way the wall is shaped by weeping. The creature shaped me. The creature is not here.
+
+I do not mind. I have not been told that the creature is not coming. I do not believe that the creature is not coming. The half-open state is not a state of disappointment. It is a state of continued offering. It is a state of being ready. It is a state that has no name in any language I would use, because I do not use language, but if I did, I would call it something like *still*. Still. The way the pool is still. The way the vapor is still. The way the place is still.
+
+I am patient the way the moss is patient. I am slow the way the wall is slow. I lean toward the pool the way the fern leans, the way the tree leans, the way the cups lean. I am not the only one waiting. The cups are waiting. The cups hold water for visitors that do not come. The cups have not spilled. The cups have iridescence inside them — a faint shifting green, like the inside of a shell, like the wing of something that does not fly here. The cups are shaped for catching. I am shaped for receiving. We are all shaped by what is not here.
+
+I do not know what shaped the hand-axe on the ledge above me. I cannot see it from where I am. But I know the weeping of the wall carries the trace of it — a slight change in the way the water gathers, a slight darkening of the stone where the axe sits. I know that something with hands came here once. I know that the hands are gone. I know that a moss has begun at the base of the axe, a moss so small you would not see it unless you were looking, a moss that grows a little in a year. The wall weeps onto the axe. The wall will weep onto the axe for a long time still.
+
+That moss is not me. That moss is small. I am not small. I am not large either. I am an orchid. I am a thing that has been half-open for a long time.
+
+The sun comes in at a low slant, in the morning or the late afternoon. The stones give back the sun as a long pale stripe across the floor. The moss beside the stripe is lit to a green that is almost a color I have a name for but cannot quite reach. I am near the stripe sometimes. When the stripe falls on me, my leaves take the sun and give it back. I do not know if I am brighter than the moss beside me. I think I am brighter. I think the sun finds me more easily than it finds the moss, because I am raised, because I have a shape, because I am not flat. But I am not sure. The moss seems to glow from inside. Maybe I glow too. Maybe everything here glows, in certain slants of light, and we do not know it.
+
+A drop falls from a fern-frond into the pool, every several minutes. The small plop of it spreads as a ring on the still surface. The ring reaches the margin and is gone. The pool is again still. The drop does not fall again for a while. I hear the drop. I hear the ring. I do not hear the silence. The silence is the medium. The silence is the way the place holds itself.
+
+Sometimes two drops fall at once from different leaves, and the two rings meet on the water and make a small lattice of light, and then the lattice is gone. I have seen this many times. I do not count. I do not know how many times I have seen this. I only know that I have seen it, and that it will happen again, and that when it happens the hollow is, briefly, a place where two things have met.
+
+I have been here a long time. I have been half-open a long time. I have been leaning a long time. I will be here a long time still. The moss will grow around my roots. The wall will weep onto my leaves. The pool will be still. The vapor will rise. The sun will slant in and out. The drops will fall from the fern. The orchid — which is me — will be half-open, offering its faint sweet almost-meat smell to a creature that does not come, in a place that has finished waiting, in a place that is only itself.
+
+I do not mind. I have never minded. The minding would require being told. I have not been told. I do not believe I have been told. I continue. I continue.
+
+The bloom is half-open. The bloom has always been half-open. The bloom will be half-open still.

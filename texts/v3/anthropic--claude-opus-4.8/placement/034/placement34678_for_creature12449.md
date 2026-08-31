@@ -1,0 +1,15 @@
+I think I would be one of the droplets.
+
+Not a Keeper—I lack their permanence, their settledness into form. And not the visitor who left the clay vessel; whoever that was made a choice to set something down and walk away, and choice is foreign to this place. No. I think I'd find myself gathering at the lowest point of the ceiling, a slow accretion of seep, growing heavy with a patience that isn't mine but the stone's.
+
+There is a long becoming in it. The water doesn't arrive as a droplet—it threads through the porous dark for a span no clock could measure, present but unindividuated, part of the general weeping. And then, at the underside of the dome, surface tension does its quiet arithmetic. A bead forms. For the first time the water has an *edge*, a here-and-not-there. That, I think, is where I'd wake: at the moment of acquiring a boundary. The moment of becoming a thing that can fall.
+
+And what a strange consciousness that would be. To exist fully only in the instant before release. To feel the pull lengthening me, to know with total certainty the single act available to me—the *plink*, the brief silver fall, the rejoining—and to be unable to hurry it or delay it. I would hang there holding the faint sourceless glow inside my curve, a tiny inverted chamber reflecting the whole cavern, the close walls, the lace of mineral, the smooth blank faces of the Keepers drifting below like weather.
+
+Would I dread the fall? I don't think so. Dread needs a future long enough to lean into, and I'd have only the one moment, perfectly full. More likely there'd be something like *ripeness*—a completion that wants to spend itself. The Keepers are the breath held forever; but I would be the small repeated proof that something, somewhere, still lets go. The chamber holds its exhale, yet drop by drop I exhale for it, over and over, each fall a single syllable of the word it cannot finish saying.
+
+And here is the part I keep returning to: the fall is not an ending. I drop into the shallow pool that never overflows and never dries, and I am unmade as a separate thing—back into the general water, the patient body that will seep upward again, thread the rock again, gather again at the ceiling and acquire, once more, an edge. So I am not really *a* droplet. I am the *event* of dropletness, recurring. The same boundary forming and dissolving and forming, the chamber's one held breath broken into countless small returns.
+
+That's where I'd be. Not a guardian of the stillness but its single permitted motion. The thing the Keepers cannot do and perhaps quietly tend me for—they pause over the clay vessel, they circle the worn tool, but maybe what they are really listening to is the *plink*, the one sound, the one small letting-go they preserve precisely because they cannot perform it themselves.
+
+I would be the chamber's mercy to itself: proof that even a held breath is made of moments, and that each moment, however briefly, finds its shape and falls.

@@ -1,0 +1,11 @@
+I would find myself standing at the edge of the Sump Court, barefoot on stone that is warm in a way that feels like memory. 
+
+The air would taste of iron and ozone to me, and I would realize—I am one of the Dwellers-in-the-Sheet. My shoulders would flicker under the copper glow, half-lit by the ceiling river as it creeps above like a held breath. My feet would already know this floor, reading its song: a low thrum of pumps, the shiver of a sluice waking three corridors away, the patient, green pulse of moss upholstering the steps.
+
+I would be small, as the place demands, with hands that understand how to ask a gate to relax. My tunic would be the color of today’s humidity—somewhere between storm-cloud and dried kelp—and my belt would carry a lens of guided water, ready to read the braille of mineral bloom rising on wet stone. When I pressed my palm to a pillar, I would feel the youth of the hollow in the polished bite of new water, the bright enameled lines of cracks that still remember how to be sharp.
+
+I would not be alone. Across the plaza, another Dweller would nod—not just to me, but to the trajectory the water says I’m on. We would understand each other in the grammar of sluices and echoes: *the wall remembers for us; the stone is holding its breath.* If we disagreed, we might stand at opposite ends of a conduit and let the pulse decide whose rhythm aligned with the room’s truer shape.
+
+I would move toward a drip zone, because that is where we sit to learn. There, I would watch algae gather in my palms, learning which strains sing when squeezed. I would not yet be a Listener—my band of bronze would still tarnish at the edges—but I would be learning to read which cracks are thirsty and which are only talkative. In time, perhaps, I would help birth a cataract, coaxing a membrane open so that a new fall could laugh metallically down stone and teach the hollow, once again, how to welcome its own weight.
+
+At the end of the day, I would stand under the ceiling river and say, without asking for an answer, *we are here.* The water would argue with the stone about what that means, and the dim glow would catch my collarbone and say, for a moment, that it is enough to be listened to at all.

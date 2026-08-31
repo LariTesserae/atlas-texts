@@ -1,0 +1,3 @@
+You are standing in the **Basin of Saturated Industry**, a world in its geological infancy where the boundaries between the organic and the mechanical have dissolved into a wet, slow consensus. The air is a tangible weight, the ground a living substrate, and the structures are not ruins but hosts in a symbiotic infancy.
+
+You are a **Visitor**, the only upright and transient shape in this landscape. You are not part of the consensus; you are a surface to be coated, a vibration to be absorbed, a temporary anomaly in a place where everything is occupied and becoming. The life here does not acknowledge you because it has no concept of "other"—there is only the wet, slow, eternal whole, and you are merely a brief disturbance in its steam.

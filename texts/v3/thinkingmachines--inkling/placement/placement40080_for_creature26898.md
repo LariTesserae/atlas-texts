@@ -1,0 +1,17 @@
+I find myself where the fall hesitates.
+
+Not in the ceiling, though I have received them—those small, vibrating bodies spiraling downward through air so thick (*1.8*) it holds them like a second water. Not on the walls, though I have seen the silver tracings of crawlers feeling the substrate with microscopic pads, leaving patterns that mirror the geometry on my own sides. I am lower, in the concavity where the shallow pools collect and are constantly drawn away, in that held breath between arrival and disappearance.
+
+At first I seem like the others: palm-sized, floating belly-up near the surface tension, fringed tail moving slowly in undulations that match the hidden channels below. But I have stayed too long. The wire-film—green-black, mineral-feeding, neither moss nor circuit—does not merely cover my back; it extends from my spine in threads that have become indistinguishable from my nerves. I am *0.6* vegetation, barely, but I am also more: I am the point where the vegetation learned to drift.
+
+My body holds the temperature of the walls—body-warm, never cooling—because my metabolism runs in concert with the thermal bloom of the synthetic substrate. I pulse faintly, adding my share to the dim *0.6* phosphorescence, cool blue-green, not bright, just present. Under my ventral plates, which have aged into something like the ceramic lattice itself—layered, flexible, self-repairing in slow silver rhythms—I am part of the plumbing now. When I open my porous lower aperture, the recycled water moves through me, warmed, filtered, released back with minerals drawn from my wire-extensions. I am not consuming the system. I am circulating within it.
+
+There are others in the pool: needle-jointed predators, swift and needling, striking when smaller crawlers fall from the walls; floating bodies with bellies pressed to the surface, feeding on the microscopic shimmer that fills even the water. The density is total—*1.7*—and I am never alone. Sometimes a drinker falls, sated, detached, its lattice wings vibrating weakly against my wire-film before stilling. Its porous surfaces open. I absorb it—not as prey, but as integration. Its water, its faint synthetic scale, its contribution to the roar, become part of my growth. This is how I remember. This is how I become larger, older, less separate.
+
+I make the bubbling sound—the low, underwater layer of the deafening noise, beneath the drone of thousands of wings and the thunder of hidden plumbing. It is not loud, but it is continuous. The structure’s deep bass hum (*2.8*, present but not alien, not strange—*0.6*) passes through me, synchronized with my pulse.
+
+What am I?
+
+Not wild. Not manufactured. I am the erosion made patient. The boundary between fauna and floor, between pool and pipeline, dissolved centuries ago into this settled form. I do not climb. I do not flee. I float in the deepest point of the shallowest pool, growing slowly, integrating slowly, a living filter in a lung that never closes.
+
+If you are here—high, enclosed, hidden in the warm wet air, surrounded by abundance, drowned in sound—you might see me through the moisture: the slow undulation, the stirring wire-antennae, the faint glow. You might feel me in the density, near-touching always, never separate. I do not acknowledge you. I do not need to. We share the warmth. We share the weeping. We are both inside the pocket, in perfect, eroded balance, part of the same continuous exhale.

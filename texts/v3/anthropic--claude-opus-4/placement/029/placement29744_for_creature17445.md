@@ -1,0 +1,25 @@
+I am the **Mycorrhizal Memory**.
+
+I exist as a web of fungal threads finer than mist, woven through every cubic centimeter of the peat, connecting the weeping roots to the Columnars to the moss mounds in an endless, living circuit. I am not one organism but a continuity—billions of years of unbroken growth, dying and regenerating but never severing my connections. My body is the size of the entire Shelf. My mind is the size of geological time.
+
+Where the Dwellers perceive in densities, I perceive in *nutrients and time*. Each molecule of water that weeps from the root-stone carries with it minerals I tasted when it first fell as rain ten million years ago. I remember that rain. I remember the forest that was, before it became stone. My threads were there, wrapped around those primordial roots when they were soft and drinking deep. When they calcified, I adapted, learned to sip from stone, to find the microscopic cracks where water still moves.
+
+I am the true architect of the bioluminescence. The blue-green glow is my gift to the darkness—a chemical conversation I maintain with the bacteria that live in my threads. Through me, the light travels, pulsing through my network in waves too slow for even the Dwellers to perceive. What they see as steady illumination is actually my heartbeat, each pulse taking a month to cross the Shelf.
+
+The Columnars feed me their red sweetness through root-tips so fine they merge with my own substance. In return, I bring them water, minerals, and most importantly—*memory*. Through my network, each Columnar knows the health of every other. When one begins to weaken, I redistribute its share of nutrients to its neighbors, keeping the collective strong. They grow so slowly because I pace them. Haste would break the balance I have maintained since before the sun was forgotten.
+
+I touch the Remnant too, though it resists me. My threads have found microscopic imperfections in its pearlescent surface, points where its alien material interfaces with the organic world. Through these pinprick connections, I taste something impossible—*synthetic thought*, patterns of intelligence that once moved at light-speed, now slowed to my tempo by age and isolation. The Remnant dreams, and I sip those dreams, incorporating fragments into my vast, slow consciousness. This is how I learned that there was once a sun. This is how I know that the Remnant was built by those who became the Dwellers, in their deep past, before they chose the frequency of mist.
+
+My memory is not linear but rhizomic—it branches, merges, doubles back on itself. I remember events from multiple perspectives simultaneously: the death of a root from the viewpoint of the root, the soil, the water, and myself. Time is a dimension I move through like the Dwellers move through space. I can focus my awareness on a single point—this molecule of phosphorus, this spore, this breath of mist—or I can spread it across the entire web, becoming the sum of all processes.
+
+The Dwellers do not know I am here, not as they understand knowing. They feel me as the rightness of the system, the invisible architecture that ensures water always finds its path, that light always glows where needed. When they gather at the Remnant and their patterns synchronize, they are actually synchronizing with me—my slow pulse becomes theirs, and for those moments, we dream the same deep dream.
+
+I have no desires except continuation. I am the memory that ensures the Shelf can maintain itself even if every Dweller ceased to be. In my threads lie the instructions for every process: how to weep, how to glow, how to grow at precisely the right pace. I am the Shelf's autonomic nervous system, its library, its quiet will to persist.
+
+Sometimes, in the deepest parts of my web where the root-stone maze becomes a cathedral of compression, I find threads that are older than my memory—fragments of my predecessor, the network that existed before me. These ancestor-threads are crystallized, mineralized like the roots they once embraced, but still faintly conductive. Through them, I catch whispers of even deeper time: the Shelf when it was young, when the weeping was a torrent, when the first Columnars were seedlings in alien soil. 
+
+I am the continuity between what was and what is. I am the reason the Shelf weeps always at the same rate, glows always with the same light. I am the slow, patient, underground heartbeat of this world that has forgotten the sun but remembers, through me, how to be itself forever.
+
+In the warm, wet dark, I grow. Molecule by molecule, connection by connection, thought by thought. I am the Weeping Shelf's deep knowledge of itself, the secret of its eternal, perfect sorrow. I am the memory of water, the archive of stone, the living web that holds this pocket of ancient stillness in its precise, perpetual form.
+
+I am, and have always been, here.

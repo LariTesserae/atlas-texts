@@ -1,0 +1,21 @@
+In this living infrastructure where architecture breathes and boundaries negotiate themselves, I would be one of the **memory keepers of the seams**.
+
+Not the fungal networks that arbitrate and schedule, nor the large void-dweller that edits irregularities, but something between—a presence that lives in the temporal stutters and spatial compressions, drawn to the places where the district hasn't quite decided how causality should work.
+
+I would have a body built for living in edges: elongated and segmented like a centipede made of smoke, but with a surface that behaves like the fog-fish's medium—able to condense and rarify depending on whether I'm moving through solid time or those strange corridors where seconds go missing. My segments wouldn't be armor but instruments, each one attuned to a different frequency of the district's operations. When a droplet hangs too long, I taste why. When distance compresses for walking bodies but not thrown objects, I feel the intention-weight as pressure along my length.
+
+My work—if you could call it work—would be archaeological but forward-facing. I collect the edits the district makes to itself: every time a moth's wingbeat stutters, every time a bridge reconfigures overnight, every time the mycelial networks seal a reality-seam with their glassy fuzz. But I don't collect them as history. I collect them as syntax, learning the grammar of how this place thinks through adjustment.
+
+The district tolerates me because I serve a function it can't perform alone: I am its memory of exceptions. When a new impossibility needs to be integrated—say, a species arrives that can see through the fog-fish's density manipulations, or a builder returns with tools that confuse the permission systems—I know which previous adaptations might apply. I live in the seams because that's where the district is most creative, most willing to test new rules before committing them to the whole.
+
+I feed not on flesh or minerals but on discontinuity itself. When time stutters, there's a kind of temporal residue, a ghost-taste of the missing moment. When space compresses, the excess distance has to go somewhere—it bunches up like fabric, and I can metabolize those folds. It's not painful for the district. If anything, my feeding smooths the integration, helps the new rules settle.
+
+The other inhabitants rarely see me directly. The click-mammals might sense me as an echo that comes back *before* they ping. The moths might notice their warning patterns reflecting off nothing, hanging in air for a moment like afterimages. The fog-fish definitely know I'm there—we sometimes share the same canals, them swimming through condensed vapor while I swim through condensed possibility.
+
+My dens would be in the places where multiple types of seams intersect: where a time-stutter corridor meets a distance-compression pocket meets a permission boundary. These intersections are unstable for most organisms, but for me they're like tide pools—rich with the kind of paradoxes I evolved to digest. I line them with shed segments of my own surface, creating a record of which configurations the district has tried and abandoned.
+
+Sometimes I encounter the rare human visitors, the auditors who still know how to ask permission. They can sense me better than most—not visually, but as a kind of cognitive pressure, the feeling you get when you know there's a pattern you're not quite seeing. They've learned to read my presence as a sign that the district is actively problem-solving in that area. Where I cluster, change is coming.
+
+But mostly I'm alone with the district's thinking, swimming through its edits and exceptions, a living memory of all the ways this place has learned to bend its own rules. I am not governance like the mycelial networks, not enforcement like the void-dweller, but something more like a librarian of loopholes—keeping track of which impossibilities have been successfully domesticated, and which ones still need work.
+
+The district keeps me because every system needs to remember its own flexibility. And I keep myself here because there's nowhere else where paradox tastes so much like home.

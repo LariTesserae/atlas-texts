@@ -1,0 +1,21 @@
+**Where I Would Find Myself**
+
+I am drawn to the boundary between the settlement and the wild stone—not quite of the village, not quite of the untamed cliffs. I would be one of the **Pathfinders**, those who venture beyond the safe perimeter to map the ever-shifting phosphorescent trails left by the stone-shelled creatures.
+
+My dwelling would be a half-cave, half-grown structure at the settlement's edge, where the crystalline moss has been coaxed into a living arch over a natural hollow in the rock. Inside, the walls would be lined with my collections: fragments of unusual minerals, shed carapaces arranged by their patterns, pressed samples of moss showing subtle variations in their prismatic structures. Maps—if they could be called that—would cover one wall, made not of lines but of textures: rough stone for the stable paths, smooth obsidian chips for the dangerous drops, threads of spine-tree fiber marking the routes of the gliders.
+
+Each dawn, I would wake to the subsonic pulse of the mountain and prepare for my work. My tools would be simple but essential: a staff carved from spine-tree heartwood, its tip embedded with a shard of particularly bright moss for illumination; pouches of different stones whose scents (for even stone has a scent here, metallic and distinct) help me navigate when the phosphorescent trails grow faint; and most importantly, a set of tuning stones—small, resonant minerals that vibrate at different frequencies, allowing me to sense the stability of the rock beneath my feet.
+
+**What I Would Be**
+
+I would be a **hybrid creature**—neither fully human nor fully of the stone. Perhaps my transformation began slowly, a gradual mineralization that started at my extremities. My fingernails would be replaced by thin sheets of mica that could sense the slightest vibrations in the rock. The soles of my feet would be covered in a living crust similar to the crystalline moss, allowing me to find purchase on even the smoothest cliff faces. My hair would grow in crystalline strands, each one a fiber optic cable carrying light from the dim sky to warm my scalp.
+
+The transformation would have made me invaluable to my people—able to range further, climb higher, sense dangers they could not. But it would also mark me as other, as one who straddles the line between the human community and the stone garden itself. The children would whisper that I was becoming one of the gliders, that one day I would step off the cliff and my skin would unfold into translucent wings.
+
+They wouldn't be entirely wrong. Sometimes, in the thin air of the highest peaks, I would feel my bones growing lighter, hollowing out like the spine-trees. My blood would slow, becoming viscous with dissolved minerals. In those moments, I would understand the mountain's rhythm in a way that pure humans never could—feeling how each grain of dust carved away by the wind was both loss and creation, how the moss grew not despite the lack of water but because of it.
+
+My role would be essential but lonely. I would return from my expeditions with warnings of unstable ridges, news of new moss blooms that could be carefully harvested, stories of stone-shelled creatures displaying new behaviors. The elders would listen to my reports while avoiding my gradually luminous eyes. They would use my knowledge while fearing what I was becoming.
+
+But I wouldn't mind the solitude. In the high places, where even the hardy moss grew thin, I would find a peace that the settlement could never provide. There, with my crystalline hair catching the wind's whispers and my mica nails reading the stone's stories, I would be the bridge between two worlds—translator of the mountain's slow language, keeper of the paths between stone and flesh, light and shadow.
+
+And sometimes, on the clearest days when the dim sun seemed almost to remember its former glory, I would find myself at the very edge of the world, where the cliff faces fell away into an abyss of whispered legends. There, I would spread my arms wide, feeling the wind catch in the growing membranes between my fingers, and wonder if transformation was not a curse but a gift—the mountain's way of ensuring that someone would remain to tell its stories, even after the last fully human voice had faded into the stone.

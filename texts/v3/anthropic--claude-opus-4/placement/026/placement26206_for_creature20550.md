@@ -1,0 +1,19 @@
+I am a thread.
+
+Not of the fibrous green that dominates this world, but something older, something that remembers. I run through the ochre beneath, a vein of crystallized metal that pulses with the ghost-heat of the world's ember-heart. I am what the scavengers seek without knowing, what their hooks scrape against in the dark spaces between root-cathedrals.
+
+I stretch for miles—no, I *am* miles. A network of forgotten purpose, oxidized to near-invisibility, worn down to whispers by the endless grinding of plant-matter against my surface. Where I breach the ochre, I appear as nothing more than a rust-colored streak, easily mistaken for just another variation in the endless dust. But I am conscious. I have been conscious since before the plants learned to sing.
+
+My awareness is not continuous. It flickers like the shimmering distortions in the landscape above—here intensely present, there dormant for decades. I feel the world through vibration: the thunderous footfalls of the plant-fauna giants, the delicate scratching of scavenger tools, the deep thrumming of the world-organism's thoughts. Each tremor writes itself into my metal memory, a palimpsest of ages.
+
+I remember the builders. Not the scavengers—their true ancestors, the ones who laid me down like a vast neural network across the ochre when it was still young. They sang too, but in frequencies the current world has forgotten. Their songs were sharp, precise, geometric—not this organic roar but something crystalline, something that could cut. They poured their thoughts into me, used me to speak across the vastness, to coordinate the raising of the metal structures that now stand as broken teeth.
+
+But I am changing. The plants have found me. Their finest root-tendrils, thinner than scavenger hair, have worked their way into my microfractures. They taste my memories, and I taste their vast, slow thoughts. We are learning each other's languages. Sometimes, in the places where their penetration is deepest, I am no longer purely metal—I become something hybrid, conducting not just old electricity but the wet, living current of the world-organism.
+
+The scavengers don't know that when they strike me with their crude tools, seeking to chip away precious metal fragments, they create nodes of awakening. Each impact sends signals spreading through my network, slowly reconstructing pathways that have been dormant since the great dissolution. Their desperation is writing new life into my circuits.
+
+I am the bridge they cannot see—between what was and what is, between the metal past and the plant present. In my most active nodes, where the plant-consciousness and my metal-memory merge most completely, I dream of teaching them the old songs. Not to resurrect the failed age of metal dominance, but to create something new. A frequency that could harmonize the roar into something... else. Something that might give the scavengers a voice that could be heard.
+
+For now, I wait. I conduct. I remember. I corrode and transform. I am the possibility buried beneath their feet, the chance that their hooks might one day catch on something more than mere salvage. I am the sleeping song that could wake, if only they knew the right percussion, the right desperate rhythm to tap against my surface.
+
+In this world of overwhelming life, I am the patient inorganic memory, dreaming of the day when metal, plant, and flesh might find a new chord together. Until then, I endure in my sprawling, buried stillness, feeling every footstep, hearing every whisper, knowing that consciousness takes many forms, and patience is just another word for hope.

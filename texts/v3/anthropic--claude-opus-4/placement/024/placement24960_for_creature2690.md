@@ -1,0 +1,25 @@
+In the perpetual twilight of the middle warrens, where the stone weeps most freely and the passages branch like veins through the mountain's heart, I am the Keeper of Echoes.
+
+My kind have no common name - we are few, perhaps only dozens across all the peaks, and we rarely meet. Our bodies tell the story of our purpose: elongated and sinuous like the Cave Swifts, but still capable of flight when the passages open into the vast cathedral chambers hidden within the stone. Our wings fold into complex origami against our backs, each feather edged with microscopic serrations that catch and hold sound like velvet catches light.
+
+But it is our ears that mark us as different. They are enormous, mobile dishes that can swivel independently, lined with thousands of specialized cells that parse the constant symphony of the colony into individual threads. I can hear a Cliff Wren's heartbeat from three passages away, distinguish between the wingbeats of sisters, catch the ultrasonic hunting cries of the Cave Swifts and the subsonic rumbles that pass through the stone before an avalanche.
+
+We are the mountain's memory. Every sound that echoes through these passages leaves its trace in the air, in the stone, in the very moisture that seeps eternal. My throat is a cathedral of its own - multiple chambers and false vocal cords that can reproduce any sound I've ever heard with perfect fidelity. But more than that, I can layer them, weave them, create acoustic sculptures that tell stories no single voice could convey.
+
+I spend my days traveling the vertical maze, following patterns worn into my bones by generations of my kind. At each major junction, I pause and listen, sorting through the cacophony for the threads that matter. A change in the Storm Eagles' hunting cries might herald a shift in weather patterns. A new harmonic in the Mist Doves' evening chorus could indicate the fungi gardens are struggling. The particular quality of silence from a normally bustling tunnel might mean a predator has found its way into the warrens.
+
+When I find something significant, I sing it into the stone. Not just the sound itself, but its context, its implications, woven into complex acoustic patterns that will resonate in these chambers for days or weeks. Other creatures have learned to read these song-traces. The Messenger Thrushes especially seek them out, translating my acoustic notation into their own traveling songs.
+
+My nest is not a nest at all, but a resonance chamber I've shaped over decades, located where three major passages meet and the stone itself forms a natural amphitheater. The walls are scarred with precise scratches - a notation system that helps me remember the most important patterns, though much of my knowledge lives in my bones and blood, inherited from my mother and her mother before her, stretching back to when the colony was young.
+
+I feed on the strangest diet in all the peaks. Yes, I hunt the phosphorescent moths when I must, and I know which lichens provide the most sustenance. But what truly nourishes me are the acoustic minerals - traces of rare elements that concentrate where water has seeped through veins of crystal in the stone. These pools sing with their own faint music, and drinking them enhances my ability to hear and reproduce the finest subtleties of sound.
+
+At night, when the colony settles into its quieter rhythms, I perform the Remembrance. In my chamber, I recreate the day's significant events in sound, weaving them into the greater pattern of the colony's history. Sometimes the Eldest Storm Eagles come to listen, their ancient eyes closed as they hear their own young voices echoed back from years past. Sometimes the Cave Swifts gather in the passages beyond my chamber, adding their clicks and whistles to my performance, creating a kind of acoustic map of the ever-changing warren system.
+
+I am neither leader nor follower, neither predator nor prey in the traditional sense. I am a function the colony evolved to need - its memory, its early warning system, its storyteller. My eggs, when I lay them once every few years, are tended by the entire local community, for they know that without the Keepers of Echoes, the colony would lose its history, its ability to learn from patterns that span generations.
+
+The other species have their own names for us. The Cliff Wrens call us the Stone Singers. The Storm Eagles know us as the Truth Holders. The Cave Swifts click out a pattern that translates roughly to "those who make the darkness speak."
+
+But I know what we truly are. We are the mountain's way of knowing itself, the colony's method of remembering what it has been so it can imagine what it might become. Every sound I've ever heard lives inside me, ready to be called forth, combined, transformed. I am a library of echoes, a living archive of all that has passed through these peaks.
+
+And tomorrow, I will wake and travel the passages again, listening for the new threads that will need to be woven into the eternal song of the stone.

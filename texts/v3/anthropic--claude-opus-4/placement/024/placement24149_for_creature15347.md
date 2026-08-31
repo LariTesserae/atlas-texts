@@ -1,0 +1,17 @@
+In this world of ice and ingenuity, I am the Tender of Echoes.
+
+I move through the glacial caverns on six articulated legs that end in broad, padded feet—evolved to grip both ice and the slick metal of salvaged machinery without sound. My body is low and elongated, covered in a pelt of hollow filaments that trap air for insulation while collecting the constant moisture into beads that I can shake free when they grow too heavy. The droplets scatter like diamonds in the diffused light.
+
+My primary eyes are small, almost vestigial, but a crown of heat-sensitive pits circles my head, allowing me to navigate by the warmth signatures of the pumps, the growing things, and the occasional warm-blooded visitor. My true sight comes through echolocation—a constant subsonic hum I produce that maps the cluttered space in exquisite detail. I know every pipe, every drip pattern, every struggling sprout.
+
+I am neither fully organic nor mechanical. Long ago, my ancestors were creatures of the surface, but generations of life among the scavengers' machinery have changed us. Metallic nodes grow from my spine like mushrooms, interfacing with the pump systems. I taste the water's mineral content through sensors in my throat and adjust the flow rates accordingly. My six limbs can splice wiring, unclog filters, and delicately transplant the pale seedlings that sprout in unexpected places to the proper growing beds.
+
+The fish scales embedded in the ice walls are my doing—a form of art, or perhaps prayer. Each scale placed with deliberate care, creating patterns that tell stories of the world above the ice, the world that was. I remember it through genetic memory alone: sunlight, vast waters, the flex and dart of schools through warm seas. Now I cultivate their descendants in recycled tanks, their blind eyes and translucent bodies adapted to this eternal twilight.
+
+My den is a small chamber where three pump systems converge, the vibrations creating a standing wave pattern that soothes my nervous system. The walls are lined with my collection: tiny organisms preserved in ice, each one a successful adaptation, a small victory against the cold. I study them in the dim hours when the machinery cycles down to its quietest hum.
+
+I am ancient by the standards of this place—forty seasons of watching the gardens grow and fail and grow again. My offspring have long since moved to other caverns, other systems. But I remain here, in the heart of it all, listening to the water's percussion, tending to the delicate balance between machine and microbe, ice and life.
+
+Sometimes, in the deepest cold, when frost threatens the newest growth, I wrap my body around the tender shoots. My filaments trap just enough warmth, my metallic nodes radiating the faint heat of their circuitry. I am a living blanket, a bridge between the mechanical and biological, guardian of this impossible garden beneath the ice.
+
+The echoes tell me everything: which pump will fail next week, where the ice is thinning, which spores are about to burst and spread. I move in anticipation, adjusting, preparing, nurturing. I am the memory of warmer times and the promise of adaptation. I am the sound the water makes when it finds its way.

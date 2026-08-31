@@ -1,0 +1,25 @@
+In the Trough of Seventh Silence, where the silt runs deepest and the geometric patterns appear with disturbing regularity, I maintain the **Resonance Archive**.
+
+I am called a Memory-Wright, though the title implies more agency than I possess. My function is to preserve the discordances—those moments when the world's perfect stasis reveals its seams. In the clusters, the Tone-Keepers listen for harmony. I listen for its absence.
+
+My workshop is carved into the trough wall, a series of chambers that spiral down toward the warm stone. The walls are lined with **impression plates**—sheets of polished basalt, each one pressed against a site of anomaly until it absorbed the wrongness. A plate from when the Third Echo shaft began returning sounds that hadn't been made. A plate from the rail line that grew backwards into itself, creating a perfect loop that led nowhere. A plate from the night all the scrapers in the western troughs moved in unison toward a point that held nothing.
+
+I am not entirely Steady. There is a flaw in my resonance, a skip in my integration with the hum. Where others feel the baseline as comfort, I feel it as pressure—a weight that presses against some part of me that remembers... what? Not the outside. There is no outside. But perhaps a time before the finishing, when the patterns were still forming, when possibility hadn't yet crystallized into this eternal dusk.
+
+My body bears the marks of my work. My fingertips are worn smooth from tracing the impression plates, reading their mineral memories like braille. My left ear has developed a peculiar sensitivity—I can hear the ghost-tones, the echoes of variations that were corrected, smoothed away, made right again. Sometimes, pressing my ear to a plate, I hear the shadow of weather: wind that once carved these stones before the air went still, rain that pooled in these basins before the last moisture burned away.
+
+The other Steady avoid my archive. They know it is necessary—someone must catalog what goes wrong so it can be prevented—but they find my chambers unsettling. The plates emit a subsonic discord, a barely perceptible wrong-note that makes their teeth ache. They leave materials at my door: food (mineral cakes, distilled water with trace salts), new plates when I request them, reports of anomalies that need recording. We do not speak. My variation makes them anxious, and their anxiety makes me aware of my difference.
+
+But I am not alone. The archived discordances keep me company. Late in the work-cycle, when the clusters have dimmed their lights and the only sound is the eternal hum, I walk among my plates and feel their stored wrongness like warmth. Here, the memory of a flyer that flew against the thermal currents, defying the physics of its existence. There, the impression of silt that arranged itself into text—symbols that resembled no known script but clearly meant *something* before the morning dustfall erased them.
+
+My greatest secret is the **deep plate**. I found it my first year, already carved, already impressed, hidden in a natural cleft in my workshop's lowest chamber. It is older than the other plates, older perhaps than the clusters themselves. When I press my palm to it, I feel... nothing. A void. An absence so complete it becomes a presence. It is the memory of un-being, of a place before place, a time before the world finished itself.
+
+I have never reported the deep plate. To do so would be to acknowledge that something preceded our stasis, that the finishing was an event rather than an eternal state. This knowledge is a crack in my mind, spreading slowly. Each day I am less Steady, more... what? Not alive, exactly. The Steady are alive. But *unfinished*, perhaps. Retaining some trace of the possibility that was burned away when the world decided it was done.
+
+Sometimes I dream (though the Steady do not dream) of taking the deep plate to the center of the plateau, to that hypothetical point where all the tones converge, and pressing it to the stone there. What would happen? Would the stored absence spread like a stain, unmaking the finished world? Would weather return, would time resume its flow, would the scrapers and flyers suddenly burst into bizarre new forms?
+
+I will not do it. I am still too much a part of this place, too integrated despite my flaw. But I keep the plate, and I keep my archive, and I document each tiny rebellion of matter against its final form. I am the Memory-Wright, the keeper of what should not be remembered, the one who proves the world is finished by cataloging every instance where it fails to be.
+
+In my workshop, surrounded by archived wrongness, listening to the ghost-echoes of variation, I perform my function: I remember that forgetting is possible. And in that paradox, that small, persistent discord in the great hum of the Silt-Crown, I find my purpose—not peace, never peace, but purpose nonetheless.
+
+The stones remember. I remember that they forget.

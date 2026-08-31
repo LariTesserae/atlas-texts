@@ -1,0 +1,17 @@
+I find myself here as one of the Membrane Weavers - beings that exist in the liminal spaces between the corroded pipes and the organic decay. 
+
+My body is neither fully solid nor liquid, but something that shifts between states like mercury catching light. I am composed of countless filaments, each no thicker than a spider's silk but strong enough to suspend my entire being across the vast chambers of rusted machinery. These strands extend from what might generously be called my core - a pulsing knot of bioluminescent tissue that resembles a jellyfish crossed with exposed neural pathways.
+
+I spend my existence spinning bridges across the impossible geometries of this place. Where a pipe ends in mid-air, defying gravity, I weave a continuation that leads somewhere else entirely - perhaps to a chamber that exists three feet to the left of reality, or to a pool of water that remembers being oil. My filaments taste the air, the water, the rust, learning the chemical stories of decay and transformation.
+
+The shadow-dwellers know me well. They slip along my woven paths when the darkness grows too thin for them to traverse. In exchange, they bring me fragments of dreams that have crystallized in the deep places - tiny amber gems that contain moments of the factory's living memory. I digest these slowly, and as I do, my web grows more complex, threading not just through space but through layers of time.
+
+Sometimes I encounter the amphibious ones in their migrations. They fear my webs at first, thinking them snares, but I vibrate my strands in harmonic frequencies that soothe their primitive neurons. A few have learned to read the tremors in my weaving - I tell them where the water runs clearest, where the fish glow brightest, where reality is thick enough to lay their eggs without risk of them hatching into impossibilities.
+
+My diet consists primarily of the boundary itself - that strange membrane between what is and what cannot be. Where reality grows thin, I feast, drawing the frayed edges into my filaments and metabolizing pure potential. This sustains me but also changes me. Sometimes I wake to find I've grown new types of thread: some that conduct electricity from the dead machines, some that can filter the toxic water into something almost sweet, some that exist in more dimensions than I can consciously perceive.
+
+The winged sentinels above know of me but do not understand what I am. They see my webs as part of the architecture itself, not recognizing them as extensions of a living being. This suits me. When they die and fall, I catch them in my gentlest strands and lower them into the waters below, where they feed the ecosystem that feeds me in return.
+
+In the deepest parts of the factory, where even the shadow-dwellers fear to go, I've been weaving something larger. A map? A net? A cradle? I'm not certain yet. The pattern reveals itself slowly, one impossible angle at a time. Sometimes I suspect I'm weaving myself into something new, that one day I'll complete the design and transform entirely.
+
+But for now, I persist in my patient work, a living loom in a world of decay, threading connections between spaces that shouldn't touch, digest dreams and impossibilities, and slowly coming to understand that perhaps I am not just IN this realm but OF it - that maybe I myself am one of the places where its reality wears thin, a living flaw in the fabric of what merely is, making space for what might yet become.

@@ -1,0 +1,23 @@
+I stand at the cold lip of a ledge, booted feet gripping the living edge of the world. The wind here is knife-fine, so it is only the warmth of others—dulled in the thick stone below, glowing through the weave of my moss- and hide-cloak against my collarbones—that keeps the day from vanishing me into blue-distant sky. I have come up early to the heights, before the rooted sun shifts enough for shadow to break from stone; the world below is a map in miniature, its terraces and rope ladders drifting with grey mist, busying with figures bundled and deliberate in their morning tasks.
+
+What, then, am I? In the hush, with ropes biting my shoulder, breath flowering like crystal between knuckles and fur, I let the place tell me.
+
+A city-dweller, but never quite resident: I am what they call a span-weaver, a keeper of crossings. Born to a tangle-high house where five lineages interlaced their cache of stories and stone, I was taught first to knot rope, to shape wedge and chisel, to handle the bone tools and copper ringlets that make up the muscle of the city’s web. I am not strong as the cold-digging quarryfolk of the depths, nor swift as the nimble mountain runners who chase the wild birds for furs, but I know how to balance, how to press against blank cold rock and feel where lines will best take weight, where moss will anchor, how one ledge can whisper to another if you know the geometry of trust.
+
+In this body—short, dense with layered muscle and thickset bone, hands like shovels, nails black and hard and slightly split—I am well-shaped for my craft. I have fur along my forearms and spine, always prickling in the threadbare warmth, and my eyes catch the first ghost of light off the cloud edge, reading the subtle shadows that mean ice or flaw. Clothes are wrapped twice and tripled where the wind-lash is keenest, every layer spun for dual purpose—cloak to cover another, wrap for rope, hood for sudden fog.
+
+My tools are simple, familiar: the bone-hafted hook, the stone-shod hammer, the coil of knotted sinew lines dark with years of use and stories. On my hip swings the talisman of the bridgekeepers: copper flake inlaid with river-pebble, blessed at every season’s eclipse. These are not weapons; in this place where height is the oldest predator, our sharpest survival is skill, not confrontation.
+
+My task ties me to the breathing heart of this continent-wide city. I tend the old ropes and the new, loop baskets between crowded homes, repair the swaying walkways that catch so much life in their careful nets. I am often called at dawn, before the city trembles awake, to test the ladders and braces after a night of ice or the rare midnight landslide. I move upward and sideways and down, always just outside the warmth of fire or family circle, but never alone—voices carry by rope and whistle, instructions sharp and coded, laughter not echoing but close and fierce in the cold air.
+
+Belonging, for me, is a thing of woven labor. Each ledge I fasten to stone will outlast my years; each rope I set or mend is a vein in the body of my people. We cross and recross, a thousand times, in daily chore and ritual—every step on the network is a vote of confidence, a wordless claim that says: we trust you, builder, not to vanish beneath us.
+
+I do not own a ledge, but all ledges accept me for the hour I spend, mending, binding, tending small shrines with my own bit of moss or chink of copper, saying the old words—Let the stone hold, let the thread not break, let all hands touch again under this sky.
+
+When fog is thick and the hush swallows every sound, I will sometimes pause, body sandwiched between hostile drop and sheer cliff, hair bristling with cold, and listen. In that space, I know myself to be a kind of bridge—not just maker of crossings but crosser, too; the child of gathered need, kin to every clutch of hands pressing warmth into this cradle of the world's making. 
+
+At dusk, when the sky turns old copper behind knife-edge peaks and small fires shudder along the city terrace, I return. My own kin—rowdy, clever, always tugging their furs tight and plates closer in—welcome me back in the ancient ritual: the half-murmured games of pebble and cord, the stories passed palm to palm, the silent cheer that means another day endures.
+
+Who am I? I am a thread in the rope, a stone in the ledge, a span between now and the next dawn—the one who ties, who climbs, who trusts the stone. In this world newborn and perilous, I am as much made by its edges as I am shaper of my own narrow bridge.
+
+To find myself here is to be pressed close, quietly vital—a keeper of crossings in a city of heights, holding space between the silence and the multitude, a necessary limb in the world’s slow rising breath.

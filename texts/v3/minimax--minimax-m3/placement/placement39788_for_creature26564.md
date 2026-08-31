@@ -1,0 +1,27 @@
+I think I am a bone-carver.
+
+I think my name, if it could be spoken in the click-language so that the meaning came back to the listener shaped like me, would be the small sound a blade makes when it is drawn slowly across wet limestone — not the cutting, but the *following*, the long patient sound of a thing being attended to. That is what my mother called me, before she became above-tense, before she joined the ancestors in the smoke-towns where the smoke-children play. *Attend*, she would click at me, when I was small and my hands were learning the weight of the blade. *Attend, attend.* And I have been attending ever since.
+
+I am in the lowest tier. This is where the carvers are, because the air here does not move, and a blade wants stillness the way a bell wants a tower. Above me — always above me — the city hangs in its long pendant-architecture, the houses like stone teeth pointing down at my head, the streets like ribbed gutters I have walked my whole life and never walked on. I do not look up. I have not looked up since I was nine, when my father took my chin and turned it, gently, the way you turn a young animal's face toward the food it is meant to eat. *Down is the world*, he clicked. *Up is the city. Up is not for looking at.* I have not looked up since. My eyes are large and dark. They have grown used to the floor.
+
+My hands are broad as spades and soft as wet clay. I say this not as a boast — there is nothing to boast about, here, where there is no one to boast to — but as a fact, in the tense of things that will never move. My hands are what they are. They have been what they are for forty years. The bones are dense. The joints are knotted. The skin is the brown of pennies left in a well, the brown of the polished underside of a bell, the brown that limestone gives to the things that touch it for a lifetime. When I hold a blade, the blade seems to disappear into the brown of my hand, and only the glint of the edge remains, moving over the bone.
+
+I carve from the bones of the pale things.
+
+This is the thing I have not said aloud to anyone, and which I will say now, to you, who is not here and will never be here. The pale things are boiled whole in clay pots and eaten from the bowl of the hand and not thought about. But before they are boiled, before the small hooks of bone lower them into the black water and wait, before the tremor that runs through them at all times is stopped by the heat — before all that, the bones come to me. The bones are fine. The bones are the color of unbleached linen. They are hollow in the way that deep-sea things are hollow, light enough to float, dense enough to remember. I do not know what the pale things are. I have not thought about it. I have not been taught to think about it. They are in the tense of things that will never move.
+
+I carve them into figures of themselves.
+
+This is the strange thing I do. I take the bone of a pale thing and I carve, with a small blade drawn very slowly, the shape of a pale thing — its tremor, its eyeless head, its finger-length body, the way it hangs in the black water as if it is perpetually being slightly startled by something just out of earshot. The figures are no bigger than a thumb. They tremble in the hand, because my hand is never quite still, because no one's hand in the Underfold is ever quite still, because the wet stone is always moving somewhere and the body learns to move with it. A figure of a pale thing, held in the hand, trembles like a pale thing. This is what I make. This is the only thing I have ever made.
+
+I do not know why.
+
+I think it is because the pale things are not thought about, and I have thought about them. I think it is because they are the oldest thing in the Underfold — older than the bells, older than the settlement, older than the war that is in the above-tense and is never spoken of except in a lowered voice. I think it is because when I hold a figure of a pale thing trembling in my hand, the figure is doing the only thing a pale thing can do, which is to be here, in the wet, in the dim, in the long bell-note of a moment that does not end. I think it is because I am also that. I think everyone is also that.
+
+I sell them in the lower market. The dripping is loudest there, and the ceiling is highest, and the air is full of the slow chime of the bells, far above, falling upon the ears like a slow warm rain. Tourists do not buy them. Tourists do not come. The Hanged-Folk buy them for each other. A Hanged-Man gives a carved pale thing to a Hanged-Woman and she hangs it from the underside of her doorframe, and it dangles there in the dim, and it trembles, and it is small, and it is everything.
+
+I have made perhaps two thousand figures in my life. I am not yet finished. My hands are still soft. My blade still draws its slow patient sound across the wet bone. The water drips its syllables onto the worked stone. *Drip. Drip. Drip.* The bells ring their threefold carillon into the unchanging air. Somewhere far above, in the smoke-towns I will never see, children chase each other in trails of soft blue light, and their laughter is absorbed by the wet stone, and the pale things, far below, are not listening.
+
+I am not listening either. I am carving. I am attending. The blade moves. The bone trembles. The figure becomes more itself.
+
+Drip.

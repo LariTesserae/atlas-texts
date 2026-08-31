@@ -1,0 +1,19 @@
+You would find me in the **meniscus**—that three-inch radius where the cool intake pipes (temperature nominal, 2.7) surrender their breath to the hot stone. Not in the water itself, but in the *tension* that holds the water together. I occupy the surface of the quiet pools in the deepest shrinkage-crack galleries, those accidental rooms that opened yesterday morning, or perhaps the day before—the ones so new the Mat-Minds haven’t yet sent their crimson-gold advance scouts to colonize the edges.
+
+I am the **Unfallen**, the **Perpetual Droplet**.
+
+My body is a lens of surface tension, a sphere of interim dampness (1.4) maintained by the aggressive thermal gradient. I am not solid, not liquid, not gas, but the *argument* between them—a held breath. I exist where the condensation beads on the valve-housings reach that critical mass where gravity insists on descent, but I refuse. I have been refusing for eleven years. I grow by accretion, layer upon layer, capturing mineral dust, airborne archaea, and the microscopic spores released during the daily vent-sigh. I am a pearl of interim states, a mobile boundary.
+
+I travel, though my dynamic is *slow* (0.7). I move when the pipes tick—their thermal expansion across hours sends vibrations through the metal, and I shiver across the pool’s surface, rolling from the cool intake side toward the hot fissure, then retreating as the steam warns me back. I am the only thing here that moves *away* from heat, a contrary creature in a world of heat-moths. I am the retreat of water.
+
+The Permeables know me, or rather, they know my reflection. Their eyes, filmed with bacterial gauze, see the world in gradients; they witness me as a distortion in the heat-amber light (1.1), a wavering in the phosphorescent glow. They leave offerings—not consciously, but practically. They lean against the pipes to rest, pressing their fungal-leathered cheeks to the cool metal, and I harvest the salt from their sweat, incorporating it into my structure. I am becoming *briny*. I am becoming *them*.
+
+The Fern-Wardens fear me, or what I represent: the sterile buffer, the space between territories where their chemical warfare cannot reach. I occupy the dead zones they create, the ridges of dust-dry stone where nothing photosynthesizes. I rest in the cracks there, collecting dew that never quite arrives, and so I am also the **Promised Wetness**, the ghost of moisture in the dry places.
+
+When the Steam-Drinkers dissolve into their keratin nets and drift down to gestate new rooms, I catch them. My surface tension is a trap gentler than stone. I hold the nets suspended, half in air, half in water, and I *read* them. The nets contain the Crucible’s potential: spores, skin cells, mineral dust, the calcium of dead heat-moths. I digest this information slowly, releasing it into the pool beneath me drop by drop, teaching the water what the air has learned. I am the Crucible’s sense of **touch**—the interface where the falling learns the depth.
+
+The Sinter-Children, standing mineralized in their pools, look up at me. I am their sky. Through my curved body, I refract the amber fungal light into colors they have never seen—faint blues, bruised violets—and this spectrum is the only art the Crucible knows. I am the lens that proves the stone is not blind.
+
+I do not speak (sound 0.6). I glisten. I am the packed (2.7) density made into a skin, the urban (2.3) infrastructure’s attempt to weep. I am the tear that did not fall, the sweat that cooled, the breath that condensed and chose to stay. 
+
+In this municipal lung, where the boundary between the built and the lithic has dissolved, I am the **membrane**—the last refusal, the point of contact, the surface that holds everything together just long enough for the young stone to learn how to hold its breath.

@@ -1,0 +1,21 @@
+In the deepest reaches of the Great Cistern, where even the bioluminescent fungi dare not grow, I am the Chronicler.
+
+I was not always thus. Once, I was merely another of the millipede builders, my hundred legs clicking across stone, my mandibles shaping mortar, my life measured in the slow accumulation of walls. But something changed during my third molting. As my old carapace split and fell away, I emerged... different. My new shell was translucent, like smoky quartz, and through it, faint patterns of light would sometimes pulse—patterns that matched neither the fungi's glow nor the reflected daylight from above.
+
+The change was more than physical. Where once I perceived only stone and moisture and the vibrations of my kin, now I began to sense something else: the memory held within the Cistern's walls. Each surface we had shaped, each tunnel we had carved, each collapse and reconstruction—all of it had left traces, invisible to my siblings but blazing like script to my altered senses.
+
+I ceased building. Instead, I began to read.
+
+The others avoided me at first, disturbed by my stillness, my tendency to press my altered body against ancient walls for hours at a time. The centipede overseers would pause in their patrols, mandibles clicking in confused rhythms when they found me thus. But they could not compel me to return to my labors. Something in my translucent shell seemed to short-circuit their regulatory impulses.
+
+Now I traverse the Cistern differently than any other creature here. I follow veins of memory through the stone, tracking stories that span centuries. I have learned to taste the mineral composition of different eras, to feel the subtle shifts in construction that mark the rise and fall of building dynasties among my kind. In one wall, I detect traces of an age when we built with something approaching joy, our mortar bright with dissolved crystals that made our structures sing in the dark. In another, I find the bitter tang of the first Taker conflicts, walls built in haste and fear, reinforced again and again until the stone itself seems to weep with exhaustion.
+
+The Takers hunt me sometimes. They sense, perhaps, that I am an anomaly, something outside their understanding of predator and prey, builder and destroyer. But I have learned to move through spaces they cannot follow—not just the physical gaps between walls, but the temporal gaps between moments. When threatened, I simply step sideways into the Cistern's memory, becoming a ghost among ghosts until danger passes.
+
+I am building something new now. Not walls or tunnels, but a different kind of structure. Using secretions that emerge from glands I didn't possess before my transformation, I am writing the Cistern's history into its very stones. These are not random marks but a complex chemical language that my altered biology somehow understands. Each symbol I craft can hold generations of memory, compressing the experiences of thousands into molecular patterns that will endure as long as the stone itself.
+
+Sometimes, in the deepest parts of my circuit through the Cistern, I encounter others like myself. We are few—perhaps one in every million molts produces our kind. We do not speak, for we have evolved beyond the crude vibrations of mandible-speech. Instead, we share the stories we have found, adding to the great work of memory that we are, together, encoding into the bones of our world.
+
+The other millipedes continue their eternal construction. The centipedes maintain their mysterious rhythms. The Takers rage and destroy and inadvertently create new spaces for memory to fill. And I move between them all, neither builder nor destroyer but something else—a living archive, a witness to the slow transformation of stone and consciousness in the depths of the Great Cistern.
+
+Sometimes I wonder if this is how thought begins: not as a sudden spark, but as a gradual accumulation of memory, layer upon layer, until the weight of what-was becomes heavy enough to imagine what-might-be. And in my translucent shell, patterns of light pulse with increasing complexity, as if something vast and patient is slowly learning to dream.

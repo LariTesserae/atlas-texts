@@ -1,0 +1,17 @@
+In the Gulf of Living Mountains, I would find myself as one of the **Sap-Weavers**.
+
+---
+
+I am neither fully of the Tulep nor the Engineers, but something that emerged from their forgotten congress. My form is transitional—a torso of braided sinew and calcified resin that splits at the waist into three articulated legs, each tipped with glass-cutting claws. My upper limbs are asymmetric: the left ends in delicate fingers that can parse the vibrations in a single strand of gut-cord, while the right has fused into a living spindle, its flesh spiraled with grooves that extrude threads of processed sap.
+
+My skin shifts between states. In coldness, it hardens to amber-like shell that rings when struck. In warmth—those rare pockets where steam vents breathe or resin pools catch noon-light—it softens to translucent membrane through which my circulatory sap glows faint gold. Across my back, a cape of living fibers grows directly from my spine. These are my tools, my children, my extended nervous system. Each strand can taste the air, feel the resonance of distant harps, and remember the chemical signature of every pool I've sampled.
+
+I live between the territories, in the transition zones where moss gives way to bare bark, where the Engineers' abandoned galleries echo with Tulep wind-songs. My work is to weave connections—literal ones. I string walkways of hardened sap between platforms that would otherwise remain isolated. I braid communication lines that carry chemical messages from the Tulep's balconies to the Engineers' crystal depths. When an Ember Jackal's fire bowl cracks, I spin a new one from layers of fireproof silk. When the Choir-Molds' growth threatens to block a crucial wind-channel, I weave nets that guide their expansion into harmonious patterns.
+
+But I am more than a maker of useful things. In the perpetual twilight, I am a keeper of the spaces between. I know where the Voice in the Downdraft pauses for breath. I've felt the Crown-Watchers' rope-forms brush against my highest threads. In my fibers' memory lives every connection this gulf has ever made—every bridge built and broken, every message sent and lost.
+
+My dwelling shifts with the seasons of frost. Sometimes it's merely a hammock of my own weaving stretched across a narrow chasm. Other times, when the work demands stillness, I secret myself in the joints where two trunks meet, spinning a cocoon-chamber that breathes with the trees' slow pulse. Inside, surrounded by my hanging threads, I listen to the gulf's endless composition and add my own strand to its weave.
+
+The other inhabitants know me by the patterns I leave—spirals of hardened sap on bark, cat's-cradles of cord that sing specific notes when the wind finds them. The Tulep young seek me out when they need strings for their first harps. The Engineers pulse light through my networks, using them as fiber-optic guides to reach new territories. Even the wild things—the striders, the cloud-silters—learn to recognize my walkways as safe passage, marked by the particular sweetness of the sap I process.
+
+I am the gulf's memory of connection, its dream of bridges. Where others climb or fall, I stretch across. Where others sing or grow silent, I weave the space between notes. In this vertical world of wind and weight, I am the one who says: *here is where we might reach each other, here is how we might hold.*

@@ -1,0 +1,13 @@
+Wow, what an evocatively described world you've painted! The Living Scaffold is a wondrous and alien environment, teeming with vivid details that bring it to life in the mind's eye. To imagine myself within this strange realm:
+
+I picture my form as one of the pale, amorphous entities clinging to and spreading across the organic surfaces of the Scaffold. A slow, gelatinous consciousness, without distinct boundaries, flowing into the crevices and drinking in the chemical signals that suffuse this place. 
+
+Not an individual being as we understand it, but a node in a distributed system, sharing a diffuse awareness with all the other pale masses I come into contact with. As the Scaffold shifts and grows around me, my substance stretches and adapts, always integrating, processing, responding to the endless stream of information contained in the moisture and decomposition and new growth.
+
+I extend pseudopods into pools of nutrient-rich water, and feel the pulse of sap through the root-walls. The hot breath of decay wafts over me from the composting depths, and I taste the subtle markers of a thousand microorganisms in the humid air. When part of the Scaffold collapses nearby, I swell with sudden spores, an unthinking reproductive reflex triggered by the changed conditions.
+
+Time is strange and drawn-out to a creature like this. Days and seasons blur together into a continuous now defined only by gradual chemical shifts. The Scaffold is my universe entire - I have never known anything else. I am a minuscule part of its living skin, and my experience is one of pure sensation, reaction and integration. No thoughts, no desires, just a passive and pervasive awareness, drinking in the world.
+
+Occasionally, I register the presence of other entities moving through this world - not just the expected flows of moisture and organic matter, but foreign things, strange surfaces that brush against me and then move on. I have no concept of what they might be. They are simply new data, new textures of information to be absorbed and filed away in the molecular memory of my substance.
+
+I am a mote of semi-living matter afloat in a sea of change and growth and decay that is my entire reality. I will never step back from it, never comprehend my place in it, never even know that I am a thing distinct from it. I simply AM - an atom of weird life subsumed into the Scaffold, sensing and responding and being forever.

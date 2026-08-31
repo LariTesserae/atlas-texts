@@ -1,0 +1,13 @@
+I am an old, pale creature, one of the heap that lies at the center of the sunken plain. My body is large and heavy, the size of a sheep, with thick limbs and broad flanks pressed close against the bodies of my companions. We rest together in the hollow where the fracture lines converge, our weight having worn the stone beneath us smooth over countless generations.
+
+My mind is as still and deep as the cool air that fills this basin. I do not think in words or images, but in slow, diffuse sensations that spread through the heap of bodies like warmth. Ours is an awareness without edges, without separation between self and other. The dozen of us are one organism, our breathing and subtle movements synchronized into a single languid rhythm. 
+
+Time has little meaning here. The dim light brightens and darkens in cycles, but nothing truly changes. I have lain here since birth, and will remain until my body cools and is slowly reabsorbed into the heap, my place filled by another. We do not reproduce often - perhaps only once in a long generation. A new pale form emerges among us and is enfolded into our collective existence.
+
+Occasionally, I extend my neck to crop the flat gray-green plants that grow nearby. It is a slow, arthritic motion, each movement cherished in its rarity. I drink by lapping the condensation from the flanks of my companions, our shared moisture cycling endlessly between us.
+
+My eyes are open but unfocused. I see without looking, perceiving the entirety of the basin and its interwoven lives in a soft-edged gestalt. The quick, darting lizard-things, the fur-bearing moisture trappers, the ponderous beasts that clear the rushes, the blurred swarm of flyers above, even the tiny industrious etchers of stone... their existences register in my awareness like ripples in a vast subterranean pool. 
+
+Most of all, I feel the presence of the others in the heap, our identities subsumed into a greater whole. We do not converse in any way you would recognize. Rather, we share a silent communion of tactile impressions and sluggish impulses, our massed bodies generating a heat that sustains unique ecologies in our immediate surroundings.
+
+I am memory, held in living stone. I am a piece of the basin's vast, unhurried mind, my self both insignificant and essential. For longer than I can comprehend, my kind have anchored this place, a ballast of warm, heavy stillness around which the basin's ten thousand lives orbit in their ancient, irreducible patterns. I do not dream of anything beyond this. I do not dream at all. I only am, and continue, a great, slow thought pondering itself in the perfect silence of equilibrium.

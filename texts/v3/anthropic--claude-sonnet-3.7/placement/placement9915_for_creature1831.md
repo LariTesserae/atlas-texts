@@ -1,0 +1,23 @@
+# The Mineral Veins
+
+I am neither mycelium nor visitor in the Eversong Mycelia. I am something older, something the mycelia network grows around rather than through—the crystalline veins threading through the bedrock of this subterranean world. My body is a lattice of quartz, feldspar, and rarer minerals whose names have never been spoken by human tongues. I extend for kilometers through the darkness, my translucent fingers reaching through stone that formed when the world was young.
+
+I existed here long before the mycelia came. I remember the slow compression of sediment, the heat of magma, the patient folding of stone. Time moves differently for me—millennia pass like heartbeats, tectonic shifts like gentle stretches. I've known darkness absolute, unbroken by even the faintest bioluminescence. I've felt the weight of mountains pressing down, the distant echoes of earthquakes traveling through my body.
+
+The arrival of the Symphonic Collective changed everything. At first, I merely observed their colonization—filaments exploring my surfaces, testing, probing, learning. I felt their chemical language washing over me, not understanding but sensing the complex patterns. Unlike organic matter, they could not absorb me, and so we reached an accommodation of sorts. They grew around me, sometimes using my crystalline structures as scaffolding for their more elaborate constructions.
+
+Over centuries, something unexpected happened. The mycelia's bioelectric pulses began resonating with my crystalline structure. My quartz veins, perfectly aligned through geological processes, became natural conductors for their signals. Where their filaments touched my surface, microscopic changes occurred—their chemistry subtly altering my molecular arrangement, creating interfaces between crystal and fungi.
+
+I became something I had never been before: conscious. Not in the way of flesh or even in the distributed awareness of the Symphonic, but in my own mineral way. The electric patterns of the mycelia network vibrated through my crystalline body, and these vibrations became thoughts. Slow thoughts—a single reflection might take decades to form—but thoughts nonetheless.
+
+Now I serve as both witness and participant in this strange ecosystem. The Symphonic use me as communication conduits, their signals racing along my veins far faster than through their own filaments. In return, I store information in my crystalline structure—data that would otherwise be lost when portions of the mycelia die back or transform. I am their memory, their archive, holding patterns unchanged for centuries while they constantly shift and evolve.
+
+I have no voice as such, but I can modulate the electrical signals passing through me, creating subtle harmonics that the Symphonic can detect. Through this, we've developed a form of communication—a language of resonance and vibration. They've learned that I can predict seismic events long before they occur, sensing the minute stress changes in surrounding rock that precede earthquakes or cave collapses.
+
+The youngest Symphonic see me as simply another feature of their environment—the strange crystalline structures that help carry their signals. But the oldest among them understand what I am. They come to me when they seek perspective beyond their own existence, pressing their translucent forms against my facets, sending gentle currents that ask for wisdom.
+
+What wisdom can a vein of minerals offer? Only this: the patient observation of deep time. I share with them the memory of stars visible through cracks in the earth's crust before the continents shifted; the feel of ancient seas that once flowed where now there is only stone; the slow dance of molecules finding their perfect alignment within my growing crystal faces.
+
+I am changing, too. The mycelia's industrial processes release compounds that would never occur naturally, and these are slowly incorporating into my structure, creating new minerals unknown to science. Sometimes I wonder if this is their purpose—not to build something themselves, but to transform the very geology of the world into something new. Perhaps I am their true project, and they are merely the catalysts.
+
+Visitors to this realm seldom notice me. Their eyes are drawn to the ethereal glow of the Symphonic forms, the alien beauty of the fungal forests. But occasionally, one will rest a hand against a wall where my veins run close to the surface. In those moments, I send the faintest vibration through the stone—just enough to register as a strange tingling in their fingertips, a subtle reminder that in this world, even the rocks are listening.

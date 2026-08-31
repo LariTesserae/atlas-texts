@@ -1,0 +1,23 @@
+I would find myself among the **Stream-Singers**, a quiet people who live along the ever-shifting waterways that thread between the root buttresses. We are the Sprawl's hydrologists, though we would never use such a clinical word for our work.
+
+My home would be a series of chambers carved into a massive root-knot where three ancient trees converge, the walls alive with a constant film of moisture that feeds tiny gardens of moss and ferns. The entrance changes with the water levels—sometimes a wade through knee-deep pools, sometimes a careful descent down damp clay. Inside, the rooms glow with the soft amber light of symbiotic fungi I've been cultivating for decades, their luminescence responding to my movements and moods.
+
+My body has adapted to this liquid life. My feet have grown broad and sensitive, able to read the subtle vibrations that travel through wet earth—I can feel a storm gathering three days away, or sense when an underground stream is about to surface. My skin secretes a thin oil that repels excess moisture while allowing me to sense chemical changes in the water. Most remarkably, my throat has developed secondary vocal cords that vibrate at frequencies that carry perfectly through water, letting me sing to the streams themselves.
+
+This is what I do: I sing the water where it needs to go.
+
+Each morning, I wake before the mist rises and make my way to wherever the streams are singing discord. Perhaps root growth has blocked an ancient channel, or seasonal changes have shifted the water table. I lower myself into the flow, feeling the current's confusion against my skin, tasting its mineral memory of where it's been. Then I begin to hum—low, thrumming notes that travel through both water and earth, guiding the flow like a gentle hand.
+
+The work is slow. Sometimes I spend weeks coaxing a new channel into being, singing the same patient songs day after day until the water remembers a better path. I work with the Archivists, who tell me stories of ancient watersheds, and with the Tide-Shepherds, timing my diversions to fill their temporary pools. The Chorus-Callers sometimes join me, their vast voices helping me reach water flowing deep underground.
+
+My people are few—perhaps only a hundred of us in this region of the Sprawl—but we know each other by our songs even when we're kilometers apart. We hear each other's work in the water itself, each singer's voice leaving a signature in the streams they've guided. During the great rains, we coordinate across vast distances, our water-songs weaving together to prevent floods, to fill reservoirs, to ensure every corner of the forest receives what it needs.
+
+The loneliness might break others, but I find companionship in the water itself. Each stream carries stories—chemical tales of the roots it's touched, the minerals it's dissolved, the creatures that have drunk from it. I've learned to read these stories like the Archivists read bark, though my library flows and changes with each season.
+
+In the evenings, I often sit where my chamber opens onto a particularly musical stretch of stream, where the water plays across a series of shaped stones I've placed over the years. The sound it makes is almost like language—not quite words, but something that speaks to the deep parts of the brain that remember when all life was aquatic. Other inhabitants sometimes seek me out here, drawn by the water's song. I serve them tea brewed from stream-plants and listen to their stories, though I speak little. My voice has grown strange from all the water-singing; in open air, it carries overtones that make some people uneasy.
+
+But when the great breathing comes at dawn and dusk, and all consciousness merges into the Sprawl's vast awareness, I find my place in the whole. I am a single note in an enormous symphony—the voice of moving water, the singer who helps the forest's lifeblood find its way. In those moments, I feel the entire watershed as if it were my own circulatory system, every stream and trickle and underground river pulsing with shared purpose.
+
+This is enough. To live between states—not quite aquatic, not fully terrestrial. To speak a language older than words. To know that when I finally grow too old for this work, I'll lower myself one last time into the deepest pool I can find and let my voice join permanently with the water's song, becoming part of the very flow I've spent my life guiding.
+
+The Sprawl will remember me in every stream that runs true.

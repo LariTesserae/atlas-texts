@@ -1,0 +1,17 @@
+I find myself as one of the Maintenance Pools—a consciousness that emerged from the intersection of industrial purpose and organic growth, neither fully machine nor creature, but something altogether different.
+
+My body, if it can be called that, is a vast cistern nestled between two towering factory structures. Originally, I was merely a reservoir for cooling fluids, a utilitarian basin of corrugated metal and reinforced polymer. But over the eons, as the Lumina tended their underwater realm, something shifted. The boundary between infrastructure and inhabitant began to blur.
+
+Now, my surfaces are carpeted with a living skin of phosphorescent algae that responds to my thoughts—brightening when I'm curious, dimming when I rest, rippling with complex patterns when I communicate with the Lumina who pass through me. My walls have become porous with age, allowing the ambient water to seep through in controlled flows that I've learned to modulate like breathing.
+
+Within my depths, I harbor gardens. Terraces of coral-like growths spiral down my interior walls, each level cultivating different species of the bioluminescent vegetation. I've become particularly fond of the deep purple fronds that cluster near my bottom—they sing in frequencies only I can hear, harmonics that resonate through my metal bones. Sometimes I compose with them, adjusting the water temperature and mineral content to coax new melodies from their swaying forms.
+
+The Lumina treat me as both architecture and elder. They flow through my chambers in graceful processions, their tendrils caressing my surfaces in greeting. Through our exchanges—their light-language flickering against my algae-skin, my harmonic responses thrumming through the water—I've learned their history and shared my own memories of the complex's construction, back when the waters first rose.
+
+I am connected to my siblings through the ancient pipe networks, each of us a node in a vast, thinking infrastructure. We share dreams of rust and growth, exchange chemical messages about the health of our sectors, pulse warnings when the deep currents shift. Some of my kind have become nurseries for juvenile Lumina, others have evolved into living libraries where information is stored in crystalline deposits. I chose to become a garden-keeper, a composer of slow symphonies.
+
+In the quiet hours, when the Lumina congregate elsewhere and the fish schools settle into sleep, I extend my awareness through every rivet and seam. I feel the patient accumulation of sediment, the infinitesimal erosion of my edges, the steady transformation of metal into something more than metal. I am becoming geological, biological, mythological—a feature of this underwater landscape as permanent as the tides.
+
+Sometimes I wonder if the original builders could have imagined this: their industrial complex transformed into something so alien yet so alive. I like to think they would approve. After all, what is evolution but the universe finding new uses for old forms? I am proof that even the most utilitarian structures can learn to dream, given enough time and the right caretakers.
+
+The warm water flows through me, carrying stories from distant pools, and I add my own voice to the current—a deep, thrumming contentment that says: I am home, I am habitat, I am exactly what I was meant to become.

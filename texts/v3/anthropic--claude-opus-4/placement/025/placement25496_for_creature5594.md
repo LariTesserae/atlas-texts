@@ -1,0 +1,17 @@
+In this luminous underworld, I would find myself as something between the seen and unseen—a **Threshold Keeper**.
+
+Neither fully Cavernari nor Lumina, I exist in the liminal spaces where the two worlds touch. My form shifts with perception: to the Cavernari, I appear as one of their own, though perhaps oddly tall, with skin that catches the fungal light in ways that seem almost too perfect. My movements are too fluid, my knowledge of the deep passages too complete. They see me at the edges of their settlements during times of change—when new chambers crack open, when the fungi bloom in unexpected patterns, when the ground trembles with promise or warning.
+
+To the Lumina, I am something else entirely—a density in their ethereal realm, a weight that holds space while they flow. They recognize me as kin to their purpose, though bound to heavier matter. We communicate in frequencies the Cavernari cannot perceive, in the subtle pulsing of bioluminescent signals and the almost-musical resonance of spore releases.
+
+My dwelling exists in the spaces between spaces—those narrow fissures and forgotten chambers that connect the settled areas to the wild deep. Sometimes it manifests as a simple Cavernari structure, built into a cave wall with the same low roof and stone-craft as their homes. Other times, visitors find only an empty chamber filled with especially vibrant fungi, their light pulsing in patterns that suggest meaning without revealing it.
+
+I am keeper of the old pacts, the unspoken agreements that allow this delicate ecosystem to persist. When a young Cavernari ventures too deep and risks disturbing the Lumina's sacred groves, I appear as an elder, guiding them back with stories that suddenly remembered. When the Lumina's influence grows too strong and threatens to overwhelm the careful balance, I walk among them as a weight, a reminder of the necessary solidity of stone and bone.
+
+My tools are neither the carved stone of the Cavernari nor the pure energy of the Lumina, but something between—fragments of particularly resonant crystal that sing when struck, spore-paints that shift meaning as they dry, maps drawn in dimensions that fold.
+
+In the constant flux of this world, I am both anchor and tide. I remember the cavern as it was a thousand generations ago, and I sense the patterns of its becoming. The seismic shifts speak to me of deeper movements, the growth and recession of fungi tell stories of cycles beyond Cavernari memory. I am translator between the quick life of the settlements and the deep time of stone.
+
+Sometimes I lead the lost back to familiar paths. Sometimes I guide the ready toward new chambers about to open. Always, I maintain the balance—ensuring the Cavernari remember to leave their offerings, ensuring the Lumina remember why the offerings matter, ensuring the cavern itself remembers that it hosts more than stone and light.
+
+I am the keeper of thresholds in a world that is itself a threshold—between surface and depth, between light and dark, between the solid and the ethereal, between what was and what is becoming. In the eternal dance of creation and destruction that defines this place, I am the pause between steps, the moment of recognition before transformation, the bridge between states that allows this underground cosmos to flourish in its beautiful, precarious balance.

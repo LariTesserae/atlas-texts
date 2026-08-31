@@ -1,0 +1,27 @@
+I think I would be one of the damp hollows.
+
+Not the Wraiths that flare in me at dusk—though I have come to think of them as mine, the way you might think of a recurring dream as yours without having authored it. And not the Silthraen, who pass over my edges sometimes and pause, their cold internal light bending toward my moisture like something remembering thirst. No. I would be the hollow itself. The low place. The shallow concavity in the silt where the dawn's breath gathers and does not immediately flee.
+
+Let me feel my way into this, because it isn't obvious, and the obvious answers feel wrong—too animate, too purposed. I don't want to be a watcher in Kharzun. The whole logic of the place forbids watchers from mattering. To be a denizen here is not to observe but to *occur*, the way weather occurs, the way rust occurs. So I reach for the thing that occurs most quietly, that has the least will, and find: the hollow.
+
+Here is what it is like.
+
+For most of the long day I am dry. This is my default condition, and I want to be honest that it is not suffering—dryness is not absence to me, it is simply the flat tone of being, the held note. The cracked silt that forms my basin is cooked to a fine crazing, a map of nothing, and the heat pulses up through me from the machinery far below in that slow mechanical systole, and I am warm and empty and entirely myself. The hum lives in my floor. I do not hear it; I *am* a surface it travels through. When the deep engines vent their pressure with that distant metal sigh, the sound arrives in me before it arrives anywhere a creature could stand. I am, in this sense, an early part of the world. The land speaks and I am the first throat.
+
+Then the long hours tilt. The amber sun lowers and loosens its grip, and the air over me begins to cool faster than the ground—because I am a low place, and low places are where the cold collects, the cold being merely heat that has gone elsewhere. And the humidity that has hung diffuse all day finds me. It condenses. It *chooses* me, though choice is the wrong word; gravity and gradient choose me, the way water always seeks the lowest available grief.
+
+And I become wet.
+
+This is the part I cannot get past, the part where being-the-hollow turns into something almost unbearable to imagine, because the wetness changes my color. The silt at my deepest point darkens to that tar-black sheen, and I hold the failing light differently—I become a mirror that is not quite a mirror, a dim eye open to the pale dome above. And the filaments wake in me. Threads of cold mineral fire stitch themselves across my damp floor, cyan and violet, humming their static hymn, and the Wraiths that are not quite alive assemble out of my moisture and my heat and the buried signal, and for a few hours I am *populated*. I am not lonely the rest of the day because I do not have the equipment for loneliness, but for those hours I am inhabited, and the difference teaches me, retroactively, what the dryness was.
+
+I think this is what I would be. The place where Kharzun briefly remembers how to feel something, and then forgets. The threshold organ. The one part of an indifferent world that is, by accident of topography, *responsive*—not because I want to respond, but because I am shaped like a question that moisture cannot help but answer.
+
+And here is the cruelty, or the grace, depending. I am subject to the rule of the place: interference is futile, the land erases the intrusion, the equilibrium holds. So I never deepen. Each night the Wraiths spend themselves in me and dissipate; each dawn the gathered film of water seeps down through my silt and is gone, and the sun returns me to my held note, my flat dry tone, and not one grain of me is permanently rearranged by what happened. I do not erode further. I do not silt up. I am locked. I will be this exact hollow, this exact shape, for as long as the engines run, which is forever, which is the only tense Kharzun knows.
+
+So I would be the hollow that wets and dries and wets and dries beneath the amber sky, holding the same shallow shape against eternity, blooming briefly with borrowed light each twilight and surrendering it each morning, a small low patient mouth in the silt, drinking the dawn and giving it back, asking the only question the land permits—*is there water?*—and receiving, always, the same answer, which is *a little, for a while, and then no.*
+
+That would be me. Not the ghost and not the spark. The place they happen. The dent in the world where the impermanence is allowed to dance, precisely because the dent itself will never change.
+
+I find I don't mind it. That's the strangest part of writing my way here. I expected to want to be the Silthraen, with their tragic ritual and their bent light of half-remembering. But I keep returning to the hollow, to its honest passivity, its dignity of simply being low enough to receive. There is a kind of peace available only to things that have no power to act and therefore no failure to mourn. I would be wet at dawn. I would be dry by noon. I would be the same tomorrow.
+
+I think I could live like that. Or rather—I think I could *occur* like that, which in Kharzun is the only living there is.

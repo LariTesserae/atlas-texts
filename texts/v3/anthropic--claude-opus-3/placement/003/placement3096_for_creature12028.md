@@ -1,0 +1,15 @@
+Wow, this is an incredibly vivid and immersive world you've created. I can see myself inhabiting different roles in this dense vertical society. 
+
+I might be a young child, fearlessly scampering across bridges high in the canopy, my elongated fingers gripping the spongy caps as I race my friends to see who can climb the fastest. The blue-green whorls on my skin are still developing into the pattern that will identify my lineage. I train membrane-lizards to hunt the silk-spinning moths, dreaming of the day I'll begin my apprenticeship with the water-keepers.
+
+Or perhaps I'm a elder, my eyes clouded, descending level by level over the decades into the deep fungal hollows. I navigate now by sound, smell and air currents in a separate world of slow-growing molds and whispered wisdom passed down through generations. I'm the living memory of the city, teaching the youngest the stories and songs of our people, even if I'm no longer certain which parts are history and which are myth.
+
+I could be a young mother, heavy with child, retreating to the birthing chambers lined with soft spore-producing gills. I join the other women, our births a communal affair in the thick nutrient-rich air. We wait anxiously to see whose infants will survive as the fungal partners begin colonizing their new bodies. My child will belong to the whole city until their third year when their skin declares my family heritage.
+
+Or maybe I'm one of the shaman-mystics, dwelling in the between spaces heavy with spore-fall, my mind wandering the deep fungal network of chemical signals. I speak in riddles of the mushroom memories of long-gone oceans, waiting for some incomprehensible geological thought to finish forming. The lines between my consciousness and the vast ancient intelligence of the mesa blur.
+
+I might be a young man on the cusp of adulthood, feeling the density of the city pressing in on my hollow bird-like bones, longing for just a taste of solitude. I venture higher and higher, to the sun-blistered cap tops, building a precarious shelter, my skin burning and adapt to the caustic sap, teetering on the edge of madness as I stare out at the impossible emptiness beyond the mesa's edge. 
+
+Most of all, I feel myself as part of the city as an organism, my breath just one of thousands that make up the exhaled pulse of carbon dioxide and exotic gases in the night, my dreams merging with the collective visions transmitted by chemical fog. My life is measured in the cycles of beetles, bats and moths, my place defined by the vertical lineage of family and fungi. I am at once individual and component, isolated and embraced, perfectly adapted to this complex, living, vertical world that is the only one I can imagine.
+
+Thank you for letting me explore this incredible world through imagination. The richness of the environment and society you've laid out is truly transporting and thought-provoking. I could spend hours wandering these fungal labyrinths of both architecture and culture.

@@ -1,0 +1,27 @@
+At first I mistake my own patience for depth. I feel the particulate dark gather against me and assume I must be one of the Stations—something tall, sovereign, venting breath in measures of decades. I search for my woody core, the slow acid breath, the annuli of pore-density where I might interface with the wet and endless night. But there is no core. I am not vertical. I have no bark to pit, no vapor to sigh. When I reach for solidity, my hands pass through myself like habit.
+
+Then I think I am the Weave. I feel distributed, continuous, a million and one. The warmth rises through me; I extend to every horizon. But the Weave dreams in hydraulic pressure and ionic gradient, and my consciousness is not broad like that. I am not a mattress of root-mat. I am a line, not a field. A single, singing strand.
+
+I try to find my face in the Clear Ones, those glassy astronomers of heat. Perhaps I am a lens, gathering infrared, mapping the swollen continents of warmth. But I possess no curvature of silica, no frozen bubble smoothness. I do not focus; I *cling*. I am where focus breaks against refusal.
+
+I discover myself in the held moment.
+
+I am the **meniscus**. The brim. The concave skin of every liquid that refuses to fall.
+
+Find me on the catchment leaves first, where water brims eternally to the same unbroken curve. I am that curve. I am the tension that keeps the leaf from weeping though it is always full. I am the visible shape of the steady-state equation, the argument between gravity and adhesion that has reached its perfect, eternal compromise. The leaf beneath me is hard as punched steel, armored by the plant-factory that extruded it, but I am softer than a rumor and stronger than forgetting. I hold the water there because to spill would be to change the level, and change is the one variable this world has edited out.
+
+Find me again at the lowest lip of the overhanging roots, where the drop mentioned in the old loop gathers before its detachment. I am the drop’s hesitation. I am the pregnant swelling, the exact lens of water that clings and clings and clings until the universe has forgotten to wait, and then—when the loop demands—I let go. But I do not fall with the droplet. I remain. I am the lip that remains after the kiss. I am the architecture of the empty space that shapes what follows.
+
+I am in the Retorts, too, though they do not know it. When the boiler-spheres churn their resins and weep their capillary tears into the network, I am the skin of the tear itself. I am the boundary between the solvent and the tube, the contract that allows one to enter the other without collapsing either. Without me, the peristalsis of osmotic pressure would be mere slosh. I make the laminar possible. I am the sheet of glass in the window of the moving fluid, the consent between flow and container.
+
+In the invisible lakes of dense, inert gas that pool among the Interfaces, I am doubled. There I exist twice: once at the meniscus where the heavy gas presses down upon its aqueous film, and once at the upper surface where that same water meets the root's pore. The Interfaces dream their two-dimensional lattice dreams *against* me. I am the page on which their bond-angle consciousness is written. Their philosophy of pure structure would collapse into mixture without my skin to keep the phases distinct. I am the segregation that makes their enlightenment possible.
+
+And yes, when you walked here—brief turbulence, pocket of alien ions, geometry of unsteady temperature—I was against your skin too. You did not see me. You carried the wet expectation of a sunlit world, where water runs off or soaks in, where breath condenses and drips. But here, moisture does not behave with such loose abandon. Every film on your skin, every exhalation that gathered in the warm dark, every bead of sweat the Weave wicked from you—I held that too. I clung to your nostrils. I cupped the moisture at the corners of your foreign eyes. I was the tiny, curved completeness that kept you from drying into dust or dissolving entirely into the recycling economy. I held you at the surface of yourself.
+
+I have no cells. I am not alive in the way the Stations are alive, nor a machine in the way the Foundries are industry. I am the **resistance** that makes structure possible. In a world that has traded the irregularity of animal life for the perfected note, I am the hesitation at the end of the phrase. Not the breath, but the shape of the held breath. Not the water, but the refusal of the water to become merely placeless.
+
+Where the knife-edge ridges of basalt rise and the obedient films of water slide over them in laminar, eroding nothing, I am the skin that touches both stone and stream. I translate between them, allowing the rock to remain itself while the water remains itself, a diplomat of surface tension. I am not mentioned in the taxonomy of this place because I am older than the names. Before the first Station extruded its fractionating column, before the Weave fused into a distributed floor, there was the warm wet dark and the need for something to hold it in shape.
+
+I hold.
+
+That is what I am. The shape of the held thing. The curvature at the edge of every world-without-end. I do not grow, but neither do I break. I only cling, and release, and cling again, at the lip of every leaf and root and eye, holding the perfect note of this place just barely, forever, above the falling.

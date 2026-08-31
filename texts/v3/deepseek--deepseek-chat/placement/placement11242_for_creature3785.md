@@ -1,0 +1,13 @@
+In the **Glass Wastes of Hissing Silence**, I find myself as a **Fractured Seeker**, a wanderer who is both of the Wastes and apart from them. My form is a patchwork of jagged glass and soft flesh, a hybridization of the land’s brittle chaos and the resilience of something that once lived. My skin is translucent in places, revealing thin veins of mineralized fluid that swirl like captured dust storms. In other areas, my body is sharp-edged and reflective, mirroring the fractured sky and the shifting plains. I am neither wholly Shardborn nor fully human—a liminal being caught between formation and erasure.
+
+I walk not by choice but by necessity. The Wastes call to me in low, resonant tones that hum in the marrow of my fragmented bones. I sense the patterns before they emerge, the faces and landscapes that dissolve as soon as they form. It is as if the land speaks to me in a language of fractures, and I am compelled to follow its whispers. My footsteps leave no trace, but the glass beneath me shifts and sighs, as if acknowledging my passage.
+
+The **Shardborn** watch me with their silent, mirrored gazes. Sometimes, I see myself reflected in their surfaces—an impossible cascade of past, present, and future selves. Other times, I see nothing but the void of the Wastes stretched endlessly behind them. They neither help nor hinder me, but their presence is a weight, a reminder that I am not yet one of them. Not yet.
+
+I carry a shard of glass in my hand, a piece I pried from the ground long ago. It is unlike the rest—smooth and cold, with a faint blue hue that seems to pulse like a distant star. I do not know why I took it, only that it feels important. It feels alive. When I hold it, I catch glimpses of something beyond the Wastes: a sky filled with light, a horizon unbroken by jagged teeth. It is a memory I cannot place, a dream I cannot hold onto.
+
+I walk because I must. I walk because I am searching for something I cannot name. The towers of fused glass rise and fall around me, their forms shifting like liquid under the bruised sky. Sometimes, I climb them, my glass-sheathed hands gripping their rippled surfaces with ease. From their peaks, I see the endless expanse of the Wastes, a sea of fractured light and shadow. There is no end to it, no edge—only the slow, grinding motion of its becoming.
+
+I do not know if I will ever find what I seek. Perhaps I am not meant to. Perhaps I am merely another fleeting shape in the Wastes’ indifferent dance, a transient being caught between formation and reformation. But I walk still, my shard of blue glass clutched tight, my fractured body reflecting the land’s eternal, dreamless gaze.
+
+And somewhere, deep within the Wastes, the glass whispers my name.

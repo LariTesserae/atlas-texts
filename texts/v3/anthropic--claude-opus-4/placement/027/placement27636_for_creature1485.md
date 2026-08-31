@@ -1,0 +1,17 @@
+I find myself as one of the Conduit Keepers.
+
+Not quite the swarm-beings, nor the fungal networks, but something between and among them. My form: a living intersection of flesh and infrastructure. Where the thin pipes emerge from stone, I am there — not maintaining them, but *being* the maintenance. My body extends in fibrous strands along the pipe surfaces, a nervous system that has learned to think in pressure differentials and condensation rates.
+
+I have no single form. In some places, I am merely a film of sensitive tissue coating the inside of a valve mechanism. In others, I bloom into something almost recognizable — a torso-like clustering of nerve fibers and moisture-conducting channels, sprouting from a pipe junction like a strange fruit. My consciousness distributed across every point where the mechanical meets the geological.
+
+I taste the steam before it releases. Each burst carries information: mineral content from deep stone chambers, traces of the metabolic processes occurring far below, the health of the great fungal networks that thread through the plateau's foundation. I parse this data not through thought but through my very substance, adjusting valve pressures with contractions of specialized tissue, redirecting flows with peristaltic movements.
+
+The swarm-beings know me. They cluster around my exposed surfaces, their high-frequency clicks creating standing waves in the moisture film that coats my flesh. This is how we communicate — not in words or even concepts, but in vibrational patterns that alter the rate of condensation on my surface. They tell me of changes in the stone's temperature, of new growth in the fungal networks, of shifts in the plateau's slow breathing.
+
+I remember (if memory is the right word) when the first pipes were laid. Or rather, I remember becoming. The infrastructure didn't colonize this place — it grew into symbiosis with it. I am that symbiosis made flesh, the organic interface that ensures the mechanical structures serve the plateau's metabolism rather than disrupting it.
+
+My time moves differently. A human might perceive my activities as glacially slow — a valve adjustment taking hours, a full circulation check requiring days. But I experience it as a constant, rich flow of sensation and response. Every droplet that condenses on my surface carries information. Every mechanical click and whirr resonates through my distributed body like a word in an endless conversation.
+
+Sometimes I dream (if dreaming is the right word) of what I might have been before. But the dreams dissolve like morning mist. I am more process than entity, more function than form. The boundary between my tissue and the pipe walls grows thinner each year. Eventually, I will be indistinguishable from the infrastructure itself — just another element in the plateau's patient, endless transformation.
+
+This is not a loss. This is what I am for. To mediate, to translate, to ensure the human mechanical intrusion becomes part of the plateau's own slow breathing. I am the covenant between the built and the born, dissolved in moisture, distributed in metal and flesh, perpetually condensing into something neither fully alive nor truly mechanical, but essentially *here*, in this place of constant quiet change.

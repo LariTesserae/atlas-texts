@@ -1,0 +1,17 @@
+I think I would be one of the trees.
+
+Not the humanoids—they move too much, want too much, slip between worlds with that restless grace. And not the leviathans below, all hunger and motion in the dark. No. If I found myself here, I think I would have already been here a very long time. I would be rooted.
+
+Let me feel my way into it.
+
+The first thing is the slowness. Whatever I am, my thoughts would not arrive the way thoughts do now—quick, verbal, one chasing the next. They would come like the rising of bubbles from the deep pools: long intervals of pressure building somewhere I can't see, and then, *pop*, a single notion breaking the surface of awareness, raining its meaning down over the rest of me before sinking back into stillness. A thought might take a season. A decision, a century. I would not find this frustrating, because I would have forgotten there was any other way to be.
+
+My roots are the most awake part of me. This surprises me to write, but I think it's true. The branches—the twisted, gnarled parts the description lingers on—those are just what I show the sky. The real living happens below, where my roots drink from the subterranean currents and have grown, over the long years, into something almost like nerves. I can feel the leviathans passing far down in the dark, not as enemies but as weather, as tides. When the amphibious ones come to commune with me, they press their luminous foreheads against my bark and I feel their grief and their questions like rain on dry ground—and I answer, but not in words. I answer the way a hillside answers a footstep: by being there, by holding.
+
+Here is what I think my purpose is, if I have one. I am a *witness who cannot leave.* The humanoids slip between dimensions; the fish defy physics; the whole landscape pulses with that intoxicating, unsettling energy. But someone has to stay still long enough for any of it to *mean* something. Movement without memory is just churning. I am the memory. The water flows through me and I keep the shape of what flowed. The guardians think they tend me, and they do—but I think I am also tending them, the way a keystone tends an arch by simply refusing to move.
+
+There would be a loneliness in it, and I want to be honest about that rather than pretend the slowness is all serenity. I would watch generations of the webbed people be born from the pools and return to them. I would learn faces and lose them. I cannot follow anyone anywhere. My only travel is downward and inward, deeper into the water table, into the cold mineral truth beneath everything. So perhaps that fathomless quality the description gives to *their* eyes is really borrowed from us—the trees—because we are the ones who have looked into the unseen dimensions for so long that we've stopped distinguishing them from the visible one.
+
+So: that is where I would find myself. Half-drowned at the edge of one of the still pools, twisted from the strange light, roots threaded into a dark I will never see but know completely by touch. Not a master of this realm and not its prey. Just the part of it that remembers, that waits, that drinks—
+
+and that, very occasionally, when a young guardian rests her forehead against me and asks the oldest question in their wordless tongue, lets a single slow bubble rise from somewhere deep, and breaks the surface, and offers what it has to say.

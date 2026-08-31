@@ -1,0 +1,23 @@
+# The Clockmaster of Silon Parch
+
+They call me the Clockmaster, though time here flows like the peculiar glass we shape—sometimes thick and slow, sometimes thin and racing. I maintain the settlement's heartbeat, a position held by my family for seven generations.
+
+My workshop occupies a small but central chamber where three primary corridors intersect, a space no larger than four paces in any direction. The walls are lined with timepieces unlike any found elsewhere in the known world—clocks powered not by pendulums or springs but by the slow crystallization process of the silicates themselves. Each contains a carefully calibrated chamber where harvested dust gradually forms into structures, the growing weight and shifting balance marking the passage of hours and days with perfect precision.
+
+My body bears the marks of my calling. Like all Silonesians, silicate patterns trace across my skin, but mine concentrate around my fingertips and eyes—the tools of my precise work. My left hand has developed a slight tremor from decades of micro-adjustments, yet paradoxically, this tremor disappears entirely when I'm working on the most delicate clock components.
+
+I've adapted to perceive time differently than others. Where they might feel its passage through hunger or fatigue, I sense it in the subtle crystalline progressions that others cannot detect. I can tell you, without looking up from my work, exactly how far the harvesting party has traveled across the plain, judging by the infinitesimal shifts in the purple light quality filtering through my workshop's small ventilation shaft.
+
+My responsibilities extend beyond mere timekeeping. The entire foundry operation depends on precise scheduling—when to harvest, when to heat the kilns, when to anneal the finished pieces, when to release new glasslizard clutches. A miscalculation of even minutes could ruin weeks of work or upset the delicate ecological balance we maintain with the plain.
+
+The most crucial timepiece stands at the workshop's center—the Settlement Clock. Unlike ordinary chronometers, it measures multiple overlapping cycles simultaneously: the daily foundry schedule, the monthly crystalline regrowth patterns of the plain, the breeding cycles of the glasslizards, and the longer lifespan of the foundry's filtration system. Its face resembles a spiraling nebula of intertwined glass threads, comprehensible only to those trained to read it.
+
+I am neither the most skilled glassworker nor the most knowledgeable historian among us. My talent lies in synthesis—understanding how all aspects of our existence here interconnect through temporal relationships. When disputes arise between guild sections about resource allocation or production schedules, they come to me not as arbitrator but as calculator—the one who can demonstrate objectively how their competing needs fit within the larger patterns of settlement life.
+
+At night, when the foundries quiet to their lowest operational level, I perform my most important task: recalibrating the Ancestral Timepiece. This ancient instrument, our oldest surviving artifact, contains the compressed crystalline remains of our founders. Its mechanisms are partly physical and partly—though we rarely admit this openly—something beyond material understanding. It keeps a time deeper than hours or days, tracking our community's place within cycles that span generations.
+
+I have one apprentice, though not of my bloodline. My daughter showed aptitude for ventilation systems rather than chronometry, and we do not force inheritance of profession. My chosen successor was born with an unusual sensitivity to silicate vibrations—she can place her palm against raw crystal and tell you how long since it began forming, accurate to within days. Her training will take another four years, after which I will retire to the Elders' Chambers, where I'll spend my remaining years creating memorial echoes for the deceased.
+
+Few outside our settlement understand what we do here. Visitors see only the spectacle of the glass and the strange beauty of our creations. They don't recognize that we're not merely manufacturing objects—we're maintaining a complex temporal ecosystem where human activity, geological processes, and biological cycles have achieved a precarious harmony. My clocks don't just measure this harmony; they help sustain it.
+
+Every morning, I taste the air and add a grain of silicate dust to my tea—a ritual older than our records. The grains dissolve on my tongue, and for a brief moment, I can almost taste time itself—mineral and ancient, yet constantly renewing.

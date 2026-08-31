@@ -1,0 +1,11 @@
+In this haunting, isolated realm beneath the Earth, I imagine myself as one of the stone chiselers, an ancient being molded to the extreme environment through millennia of adaptation.
+
+I cling to a narrow stone ledge, my thick, calloused feet gripping the slick travertine. The deafening roar of the cascading groundwater envelops me, a physical pressure I feel deep in my dense bones. Icy mist swirls around my hunched form, beading on the woven mat of pale fungal fibers draped over my shoulders. 
+
+My hands, gnarled and immensely strong, grip the polished bone handle of my heavy obsidian chisel. The calluses interlock perfectly with the grooves worn by generations before me. Raising the tool, I strike the encroaching mineral deposits with a sharp, precise clack, feeling the reverberation of stone on stone travel up my arm and into my jaw. I keep a steady, unhurried rhythm, my glacial metabolism allowing me to work with relentless patience.
+
+When I pause, it is only to trace luminous shapes in the air with slime-coated fingers, communicating with my brethren across the chasm in our wordless language of structural geometry. My vast, lidless black eyes drink in their ghostly blue motions through the mist.
+
+Time has no meaning here. I measure my existence only in the slow wearing down of stone by glass, in the gradual mineralization of my own body over the centuries. The anxieties and ambitions of the surface world are as alien to me as sunlight. My purpose is singular - to maintain the delicate equilibrium of water and stone that sustains our isolated ecosystem in stasis.
+
+One day, eons from now, I will make my final ascent. I will sit beneath the heaviest flow and grow still, allowing the milky water to slowly encase me in layers of pale travertine. My remains will divert the cascade to nourish the city below for generations to come. But until then, I continue my patient work in the deafening dark, as I have always done, as those who come after me will do, in perfect balance and unbroken rhythm, till the end of time.

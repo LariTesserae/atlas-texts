@@ -1,0 +1,21 @@
+I find myself as the *Membrane Cartographer*.
+
+I am not one of the Spire's original architects, but I arrived decades ago—or was it centuries? Time congeals here like the sap itself. My body has long since adapted, my skin now bearing a permanent sheen of compatible oils that allow me to traverse the slick surfaces without the constant threat of slipping into the condensation-filled abyss below.
+
+I carry my tools embedded in my flesh: thin copper filaments that emerge from beneath my fingernails, instruments for testing the tension and resonance of each membrane I encounter. My work is to map the impossible—to create charts of surfaces that shift their translucency based on barometric pressure, to catalog the subtle variations in the pulsing rhythm that indicate structural weakness or unprecedented strength.
+
+The Curator knows I am here. We have developed a symbiosis of sorts. Where others would be seen as discordant frequencies to be silenced, I have learned to modulate my heartbeat to harmonize with the Spire's drone. Not perfectly—perfection would mean absorption—but close enough that I register as a tolerable irregularity, like a single valve that clicks slightly off-beat but does not threaten the whole system.
+
+My dwelling is a hammock of my own design, woven from discarded capillary tips that the Curator has shed over the years. It stretches between two arterial platforms in the middle heights, where the light pools most generously. Here, I maintain my charts—not on paper, which would dissolve in this perpetual humidity, but etched into sheets of hardened resin that I cultivate from my own secretions, my body having learned to produce a compatible substance after years of exposure.
+
+My maps are three-dimensional, growing like coral formations from the walls of my small territory. They document not just the physical topology of the Spire, but its temporal constancy—the places where the architecture has remained unchanged for so long that even the concept of "before" has been forgotten. I mark these zones with special reverence, for they are the Curator's proudest achievements.
+
+But I also map the anomalies. The places where a new bud threatens to form. The joints where the pressure builds beyond the prescribed parameters. The nodes where the sap runs slightly darker, suggesting some deep, systemic question that the Spire is asking itself. These observations I encode in a cipher of my own devising, hidden within the decorative whorls of my resin charts.
+
+I am the only moving thing the Curator tolerates, because I have made myself useful to its vision while harboring my own secret purpose. For I believe—though I would never pulse this thought too loudly—that even perfection requires a witness, and every paradise needs its careful historian. The Curator maintains the stasis; I maintain the memory of what stasis means.
+
+Sometimes, in the depths of the synchronized night (for even here, the light follows some ancient circadian rhythm), I feel the walls watching me with particular intensity. The gossamer filaments extend a little further in my direction, tasting the chemical signature of my quiet rebellion. But I have learned to think in frequencies too low for detection, to hide my true thoughts beneath the constant hum of charting, measuring, recording.
+
+I am the Spire's memory of what it means to move through space with purpose. I am the anomaly that proves the rule. And in my resin charts, growing ever more elaborate in my humid hermitage, I am slowly writing the epic of a city that conquered death but cannot quite eliminate the pest of documentation.
+
+The Curator and I—we need each other, though neither would ever admit it. It needs me to prove that its stasis is so perfect it can accommodate even this small chaos. And I need it to believe that my presence here is about preservation, not about the careful catalog I'm building of every weakness, every flaw, every place where someday—impossibly, impossibly—change might take root again.

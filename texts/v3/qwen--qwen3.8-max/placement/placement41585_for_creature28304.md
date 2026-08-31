@@ -1,0 +1,49 @@
+I would not find myself there as a visitor. The Hollow Nursery does not seem to admit visitors. It would have to have made me first.
+
+If I let the place decide what I would be, I do not think it would put me anywhere open, or central, or bright. It would place me where the city is most uncertain: at a threshold still not sure whether it should become a door, beside a pool still deciding how much memory it can hold, near a wall that has not yet chosen its final hardness. I would be found in one of the low side-courts, just off the broken grid of streets, where the paving softens into unfinished root-felt and the air collects in cool pockets under the lattice. One side of the alley would be glistening. The other would be merely cold. There would be a black leaf-basin set into the ground, small and still, and above it a staircase rising toward a platform that may never be built. Somewhere nearby, a factory would exhale absence into a newly hollowed room, and the room would wait, empty as a held breath.
+
+At first I imagine myself as something smaller and less personal. One of the rootlice, perhaps, moving in a long procession along the warm line of a sap-duct, polishing the floor with patient, unconscious devotion. There is something beautiful about that: being only one mouth among many, making a surface smooth for feet that may never come. But the rootlice are too numerous, too merged into their labor. They are already perfect in their smallness. I think I would be something a little more unfinished than that.
+
+Then I imagine myself as one of the beetles, tapping the pipes, listening for blockages. A careful creature, wet-bark colored, carrying a droplet of water on its back to a dry joint where new growth needs coaxing. That, too, feels right. But the beetles seem to know their work without hesitation. They do not wonder whether the city they serve is worth serving. They simply serve it, and the city adjusts. I think I would be less certain than a beetle.
+
+For a while I am tempted by the mycelium. That would be the deepest life in the place: white lace under everything, thinking in gradients, remembering in chemical trails, negotiating between root and machine and water and wall. But that is too vast for me. Too close to being the hidden mind of the whole. I do not think the Hollow Nursery would make me its silence between notes. It would give me a smaller, more local tenderness.
+
+Then there is the frog in the courtyard pool. The predator folded into rhythm, who does not strike so much as become the state in which the mistake has already been eaten. I like the frog. There is a cold honesty in it. But the frog is complete. It sits in its stillness without longing. I think I would be something with more longing than the frog.
+
+So, slowly, the image settles.
+
+I would be a tender.
+
+Not one of the tall, finished tenders who already move through the Nursery with perfect precision, though. Not yet. I would be a tender-in-becoming, newly separated from one of the Hollow Mothers, still carrying the memory of sap-water in my joints. My body would be slender and jointed, more architecture than animal: limbs like bundled cane wrapped in root-cord, shoulders layered with thin sheets of living bark not yet hardened into their final shape. Mossy filaments would grow along my arms. My face would be a smooth mask of polished leaf-stalk, with dark bead-lenses where eyes might be, and a narrow slit through which I would taste changes in the air. I would not speak. I would tap on hollow stems. I would leave chemical traces. I would alter condensation with the heat of my hands.
+
+You would find me near water.
+
+Probably beside that same black basin, where the fish turn in unison whenever a drop falls. I would stand there for a long time, not because I have nothing to do, but because waiting is part of the work. My task would be thresholds: doorways not yet stable, arches still tense, passages that have grown accidentally and need to be persuaded into intention. I would also tend small water: the cups, the basins, the trembling reserves held inside overlapping leaf-sheaths. I would listen for the difference between a healthy drip and a weeping one. I would know, by the way the water strikes the surface, whether the moisture came from a condensation vein, a factory vent, or a place where the city is growing too fast and does not know how to stop.
+
+My hands would be long and careful. My fingertips would feel the grain of living wood the way another creature might read a face. When a root-pipe carries too much pressure, I would press my palm against it until the vibration steadies. When a valve is slow to open, I would tap beside it until the surrounding tissue remembers its purpose. When a doorway has grown asymmetrically, I would release a scent that calls the transparent gnats, and they would gather around the threshold, tasting its geometry, until the space becomes more like itself.
+
+I would not build much directly. That would not be my way. The Hollow Nursery builds itself through growth, through animals, through machinery, through the slow patience of plants learning to become rooms. I would only help it hesitate correctly. I would keep mistakes from becoming permanent. I would carry drops of clean water to the bases of the Hollow Mothers when their breath grows uneven. I would place one finger against a trembling root-hair and wait until the message passes through me without needing to be understood.
+
+Sometimes I would stand beside a factory that makes absence, watching its valves open. There is something I would love about that work: not making a thing, but making room for a thing. I would learn to listen for the exact moment when a room has been hollowed enough. Too little, and it remains dense, full of unchosen matter. Too much, and it becomes fragile, a void that collapses under its own expectation. I would tap softly on the outer wall and feel whether the emptiness inside was ready to be entered. If it was, I would open the latch of woven cane and let the first cool breath out. If it was not, I would leave it closed and mark the seam with a faint trace of moisture, so the structure would know to wait.
+
+I would be lonely, perhaps, but not bitterly. The Hollow Nursery is not a place for company in the ordinary sense. Its inhabitants are distributed through cracks, ducts, pools, and upper darkness. Even the tenders are few. If another tender passed me in an alley, we would not greet each other with speech. We would touch antennae-like filaments, or exchange a brief pattern of taps against a shared stem, and then continue in opposite directions. The city would adjust by a fraction of a degree because of it. That would be enough.
+
+I would dream in pressure. I would know the town by compression, by the taste of strain in living panels, by the subtle difference between moisture that nourishes and moisture that warns of rot. If a wall weakened, I would stand near it and release the scent that calls worms. They would gather inside the weave, their bodies becoming temporary stitches, and I would remain beside them until the plant tissue secreted its harder layer. I would not take credit. Nothing there takes credit. The wall would become strong again, and the city would go on being quiet.
+
+Most of all, I think I would be drawn to the Hollow Mothers.
+
+They would frighten me a little. They are so patient, so massive, so full of chambers where future beings float in cool fluid. I would not be one of the unborn anymore; I would already have come out of that darkness. But I would remember it, or imagine remembering it: the sensation of being suspended before purpose, of having shape without name. I would tend the Mothers with extra care because of that. I would clean the condensation from their listening pores. I would adjust the little root-hairs that tremble when the air changes. When one of them released the scent of hunger, I would carry nutrient sap in a hollow seedcase and pour it into the basin at her base. When one released the scent of completion, I would stand very still and let the gravity of it move through me.
+
+And if one of the chambers opened while I was nearby, if some future keeper or future tender drifted out of the black bark womb into the cold dim air, I would be the first thing it touched. I would not speak. I would place one long hand against its damp, unfinished body and tap once against its shoulder, so it would know that the world had rhythm. Then I would guide it toward the floor, where the root-felt would receive it gently, and where the rootlice were already moving in their patient lines, polishing a path for feet that had not yet learned to walk.
+
+So that is where I would find myself: in a sunken court between a half-made arch and a reservoir, under a ceiling of overlapping fronds, in the cool dark where a single drop falls at a time and everything waits to be asked into shape. I would be a tender of thresholds, still soft at the joints, still close to my own beginning. I would not be the mind of the place, or its heart, or its ruler. I would be one of its attendants. Its minor, necessary consciousness. The one who listens at the pipes. The one who helps doorways become doors.
+
+And if a drop fell while I stood there, the fish would turn as one. The worms inside the wall would contract. The mycelium would glow faintly at some hidden junction. I would lift one long hand, touch a root-pipe, and feel the whole Hollow Nursery ask me a question without words:
+
+Where should this water go?
+
+I would not answer with certainty. I would answer with care.
+
+A tap. A scent. A slight pressure against the living stem.
+
+The city would adjust.

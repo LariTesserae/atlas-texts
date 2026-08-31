@@ -1,0 +1,21 @@
+I am rooted in shadow, where the hazy, high-altitude sun is only a rumor. I find myself in a dingle of perpetual twilight, a hollow cupped between two rolling hills of weeping black stone. Above me, the great waxy leaves of the canopy overlap, forming a ceiling that leaks. Each slow, heavy drop lands not as a sound but as a shudder, a percussion felt through the sodden velvet of the mosses I am threaded through.
+
+I am not one, but many. I am a colony, a single consciousness spread like a stain across a yard of slick rock. To the eye, I am a patch of the phosphorescent fungi, a web of cool, silent fire that pulses in a rhythm so slow it is almost mistaken for stillness. I am a Glow-whorl. A Still-light. My body is a network of gossamer hyphae, finer than spun glass, that drinks the mineral-rich sweat of the stone and feels the world as a symphony of vibration and chemistry.
+
+My senses are not your senses. The high, frantic drone of the cicada-things is a texture in the air, a constant static I have learned to ignore. The skittering passage of a jewel-toned beetle across my surface is a brief, ticklish spark of frantic energy, gone in a moment. A more significant event is the arrival of a grazer, one of the great, slug-like amphibians. Its approach is a slow eclipse, a gradual pressure-shift in the stone that I feel for an hour before its rasping mouth begins to clear the mosses at my edge. I feel its weight, the slick coolness of its underbelly, and the clean, blank trail it leaves on the weeping rock. I have no fear; it does not eat me. My light is a signal of something indigestible, something belonging to the stone itself.
+
+The constant truth of my existence is the Hum. The low, perfect bass note of the Conduits is not a sound I hear, but the medium in which I exist. It is the tremor in my every fibre, the resonance that holds me together. It is the note my own light is tuned to. My slow, soft pulse is a harmonic of that deep, geologic thrum. I am a visible expression of its quiet power.
+
+But there are other truths, greater and slower.
+
+Sometimes, over the course of a generation of insects, the Hum changes. Not in pitch, but in texture. A new overtone emerges, a subtle complexity that shifts the vibration in the stone beneath me. The water that slicks my body and pools in the moss begins to taste different. It carries a new message, a taste of deep time, of energy being gathered and re-focused.
+
+This is how I know a Weaver is coming.
+
+There is no seeing its arrival. There is only a happening. The world around me begins to bend. The flow of water across the stone alters its course over a month. The light that filters through the canopy shifts as the rock itself, on a scale I cannot comprehend, warps under an immense, deliberate weight. A darkness falls that is not shade. It is a presence, a mass that absorbs light and sound.
+
+And then, it is upon me. A living mountain of cool, black glass is flowing over my patch of the world. I am not crushed; I am enveloped. The Weaver’s skin, a living mirror of the stone I grow on, presses down against my glowing form. For a season, or a lifetime, my light is not my own. It shines out from me and is reflected back a thousand times in the internal lattice of the being’s hide. In that long moment of contact, I feel its purpose. It is a slow, powerful thought made of chemistry and pressure and resonance. It is not thinking *at* me; it is simply *being*, and I am momentarily part of its process. I feel the silent alchemy happening in its depths, the filtering of eons, the recalibration of the water’s very soul.
+
+When it has passed, a journey that might take a year from one edge of my colony to the other, the world is new. The Hum is simpler again, the water is richer. It carries a promise of green, of life made easier.
+
+I do not move. I do not travel. I am a witness, anchored to my small patch of twilight. My gentle, rhythmic pulse is a form of memory. I chronicle the passing of the grazers, the frantic lives of the beetles, and the long, slow, world-altering thoughts of the Weavers. I am a single, luminous nerve ending in the mind of the plateau, translating its deepest vibrations into a slow story told in light.

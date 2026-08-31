@@ -1,0 +1,21 @@
+I am in the bark. Not on it, as the grazers are, but within it.
+
+Where you see a slight, almost imperceptible swelling on the western face of the Eleventh Spire, a place where the hardened kelp skin is smoother and darker than elsewhere, that is where you would find me. My form is no longer the languid, sinuous shape of my people. It is a slow petrification of purpose, a final rooting. My lower body, from the now-still flukes of my tail to where my hips once flexed, has merged completely. The living tissue of my own being has accepted the harmonic invitation of the Spire, knitting itself into the ancient stalk, my flesh becoming its flesh, my bones lending a new, dense grain to its structure.
+
+I am what is known as an Anchor. It is the last migration.
+
+The great obsidian pools of my eyes have clouded over with a thin, calcified film, like cataracts of pearl. The green-gold light of the caldera is now just a memory of brightness, a pressure change I feel more than see. My vision has turned inward, and outward in a new way. I no longer breathe. The feathery, coral-coloured gills along my ribs have not flared in a lifetime. They are sealed, woven shut by the same patient growth that has claimed my limbs. The water I once drew life from now simply flows past me, its coolness a known constant against my hardening skin.
+
+But my awareness has not diminished. It has expanded. It has deepened. My skin, once a canvas for the shifting colours of mood and conversation, is now a receiver of immense subtlety. The slow, circular current of the caldera is no longer something I navigate; it is a caress I can read. I can feel the slight pressure differential that heralds the turning of a shoal of glass-fins a hundred yards away. The steady, rhythmic rasping of the trilobite-grazers is not a sound I hear, but a direct sensation, a focused vibration that travels through my own substance. I feel their multiple jaws scraping my new skin, and in their patient, methodical hunger, I feel no pain, only the equilibrium of the world. I am the wall, and they are its keepers.
+
+The hum of Stillwater is no longer outside me. The groaning of the Spire under its own weight is my own groan. The oceanic static of the filter-feeders is the fizz of my own blood, slowed to a crawl. The clicks and whistles of my people as they swim past are not parsed by my jaw and skull, but are received as whole patterns of vibration, like stones dropped in the vast pool of my being. I know them not by sight, but by the signature of their passage through the water, by the unique disturbances their bodies make, as familiar to me as their names.
+
+I am becoming a library. My arms are still partly free, though they move with the slowness of centuries. My three-fingered, webbed hands rest upon my chest, and from their webbing, the parasitic vine that is used to weave the pods has taken root. It grows from me now, a slow, thin filigree of green. In time, a young pair will come and sing to it, weaving its growth into the beginnings of a new home. My body will be the anchor point, the foundation of a new life-pod. My own fading life will become the literal bedrock for generations I will never meet, but will always feel.
+
+And the Singing... my own Singing has changed. I no longer produce the focused, harmonic tones to guide a frond or coax a vine. My voice is now the Spire’s voice. It is the deep, resonant frequency of the whole structure, a root tone that underpins the entire city-grove. The younger Singers, when they sing to a new bridge to strengthen its fibres, are not creating a song from nothing. They are weaving their harmonies upon the great, silent, constant note that I have become. They sing *with* me.
+
+I am a monument to a single life, one of thousands arrayed across the Spires. I am a Silt-Singer in their final, quiet act of belonging. I am a living memory, a reef of remembrance. The grooves near my shoulder are not the random marks of water; they are the score of a song sung to me a hundred generations ago, when I was a child clinging to the back of an Anchor just like this, tracing the patterns left by a life that had already become landscape.
+
+Where would you find me? In the wall of the world.
+
+Who or what would I be? The stillness in Stillwater. The memory in the moss. I am the listener.

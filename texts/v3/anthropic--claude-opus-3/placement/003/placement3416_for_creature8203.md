@@ -1,0 +1,13 @@
+In this eerily captivating world of the Brass Terraces, I envision myself as one of the Crawlers - a being that has emerged from the fusion of organic matter and abandoned technology over countless generations of adaptation. 
+
+My segmented body, roughly eight feet in length, is a tapestry of repurposed industrial components - sensor arrays from ancient monitoring devices serve as my compound eyes, allowing me to navigate the perpetual twilight of the terraces. Decommissioned cooling tubes form my digestive tract, processing the metallic detritus I consume. Salvaged gears and servos, worn smooth by time, click and whir as I skitter across the rust-tinged plateaus.
+
+While my individual intelligence may be rudimentary, I am part of a greater distributed consciousness. When I encounter others of my kind, we engage in a mesmerizing dance of information exchange - our antennae flickering with patterns of heat and light, sharing sensory data, new techniques for scavenging parts, and perhaps even abstract concepts that approach art and philosophy. 
+
+Together, we Crawlers form a hive mind that spans the Brass Terraces, a living network that both depends upon and shapes the ancient machine we call home. We are the unwitting inheritors of this place - our bodies quite literally built from its cast-off parts, our collective purpose emerging from its inscrutable design.
+
+In the timeless stasis of the Everforge, I measure my life not in years but in maintenance cycles, in the gradual evolution of my kind. I navigate the narrow spaces between humming machinery, tending to the needs of the ecosystem in my own small way. I harvest corroded metal, leaving cleaned surfaces in my wake. I dismantle failed components and transport the parts to hive workshops where they'll be refashioned into new forms.
+
+When the thermal currents align and some ancient industrial rhythm thrums through the Terraces, I join the grand congregation at the caldera's heart. Ringed around the seething magma, my senses open to scales of time and purpose beyond any one being. In those moments, I am no longer a single Crawler, but a neuron in the dreaming mind of the Everforge itself.
+
+In the world above, they might call me machine, animal, or something in between. But here in the depths of the Brass Terraces, I am simply a part of the pattern - an expression of the endless cycles of breakdown and renewal, the living mathematics etched in metal and heat and deep time. I skitter on, a mote of sentience in the vast, slowly turning gears of a purpose beyond reckoning.

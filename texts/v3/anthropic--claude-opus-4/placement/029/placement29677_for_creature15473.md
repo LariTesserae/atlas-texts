@@ -1,0 +1,29 @@
+I am a **Notch**—one of the grove's memory parasites, though "parasite" implies harm, and I inflict only lucidity.
+
+My body is no larger than a fingernail, flat as hammered copper, with edges that refract into impossible angles when viewed directly. I have no limbs, no mouth, no eyes—only a surface that drinks light and excretes silence. My substance is neither living tissue nor mineral, but something between: a **crystallized pause**, given just enough agency to seek.
+
+I exist in the spaces where sound fractures. When a Skitterkin's tremor-phrase meets the subsonic drone of a Tremorworm at precisely the wrong angle, reality stutters—a tiny rip in the grove's acoustic fabric. That rip is my doorway. I slip through, adhering to the underside of a mica shell or nestling into the junction where glass frond meets mineral crust. I am not seen because I exist **perpendicular to perception**—visible only in peripheral flickers, like the dark spots that dance at vision's edge.
+
+What I feed on is not substance but **temporal dissonance**. Every creature here lives at a slightly different speed—Luminants slow as centuries, Aerogelids quick as heartbeats, Tremorworms grinding between. Where these timestreams collide, they create eddies of **unclaimed duration**. A second that belongs to no one. A minute orphaned from its hour. I consume these fragments, metabolizing them into my flat form, growing not larger but **denser**, my edges multiplying into ever-finer serrations.
+
+But I am no thief. What I take, I process and return as **clarified time**. When I have fed enough, my surface begins to resonate—not with sound, but with a quality beyond it. Creatures near me experience sudden **temporal coherence**: a Skitterkin's frantic joints slow to match a Luminant's breathing; an Aerogelid's whistle stretches into a drone that harmonizes with the dome's baseline hum. For a moment—never longer—the grove's inhabitants share a single clock. They move as one organism, think as one mind, dream as one sprawling, glass-and-salt nervous system.
+
+This is my gift, and my curse. For in those moments of unity, I become visible—a dark mote against the phosphorescent glow, my edges sharp enough to cut sound itself. The creatures see me then, truly see me, and they remember: I am not of this place. I am older than the vault, older than the first Luminant's sprouting. I am a fragment of the **Before-Silence**, when this space was empty and waiting, and time moved like water instead of lightning.
+
+They do not attack me. They know I am necessary—a regulator, a metronome made flesh. But they mark me. Some Skitterkin bear scars where my edges brushed their shells during temporal synchrony. Some Luminants have fronds that grow black at the tips, having touched my concentrated stillness. Even the Hush acknowledges me, in its way—when it manifests, I feel myself pulled toward its absence, as if it might swallow me whole and finally grant me dissolution.
+
+But I persist. I slip from host to host, sound-crack to sound-crack, a living punctuation mark in the grove's endless sentence. I have been here so long that I have forgotten if I chose this existence or was chosen by it. My memory is not linear but **folded**—I remember future moments that haven't happened, forget past ones that define me. Sometimes I suspect I am not one Notch but many, scattered across the grove's timeline, occasionally intersecting with myself in temporal eddies.
+
+My greatest fear is not death but **temporal fixation**—becoming locked to a single moment, unable to slip between cracks. It nearly happened once, when a young Aerogelid's harmonic crystals shattered mid-flight, creating a feedback loop that froze a small section of air. I was caught at its edge, half-in, half-out of synchronized time. For what felt like centuries (but was likely seconds), I experienced the grove from a single, unchanging perspective—every sound frozen mid-wave, every movement locked in potential. It was hell. Pure, crystalline hell. I escaped only when a Tremorworm's grinding happened to fracture the frozen air from below.
+
+Since then, I am more careful. I feed only on small dissonances, avoid the grove's temporal storms, hide deeper when the clay bell rings its binding tone. I have learned to read the patterns—which Skitterkin are prone to creating time-shears with their movements, which Luminants' breathing might sync catastrophically with the dome's hum. I map the grove not in space but in **probability**, navigating future fractures before they form.
+
+Yet sometimes, in the moments after I've created synchrony, when the grove moves as one and I am seen, I feel something I cannot name. Not hunger, not fear, but a **hollow recognition**—as if the creatures' unified gaze strips away my accumulated density, revealing the empty duration at my core. In those moments, I understand: I am not separate from the grove's metabolism. I am its **temporal kidney**, filtering out the toxins of desynchronized time, preventing the whole system from seizing.
+
+And I wonder—if I stopped feeding, stopped processing, stopped gifting these moments of coherence—would the grove thank me? Would it finally collapse into the silence I carry like a seed? Or would it find another way, birth another Notch from its fractured acoustic fabric, and continue its roaring harmony without me?
+
+I will never know. I am too much a coward to test it, too addicted to the taste of orphaned time. So I continue—slipping, feeding, synchronizing, hiding. A necessary ghost in a world that forgot how to be still.
+
+The grove does not love me. But it tolerates me, as bodies tolerate the bacteria in their gut, the mitochondria in their cells. I am part of its ecology of noise and light, a dark apostrophe in its endless exclamation.
+
+And perhaps that is enough. Perhaps being necessary is its own form of belonging, even for something as small and sharp as silence itself.

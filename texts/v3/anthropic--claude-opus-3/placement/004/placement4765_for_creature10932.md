@@ -1,0 +1,17 @@
+I would be a weep-point in the cistern wall, where water from the saturated earth finds its way through the molecular sieve and into the chamber. 
+
+My flow would start as the faintest trickle, almost indistinguishable from the dozens of other weep-points whispering their mineral-rich breath into the humid air. But slowly, patiently, my aperture would widen—not by erosion, but through some subtle shift in the porosity of the substrate around me, some localized change in the lattice of channels that control what passes through the barrier and what is kept out.
+
+Perhaps it would be the mosses that open me further. As their rhizoids penetrate the wall, seeking moisture and stability, they alter the microscopic structure in ways the original engineers did not foresee. The molecular sieve becomes minutely more permeable where the mosses have threaded themselves through, and I begin flowing a little freer, a little faster, my water carrying new traces of dissolved compounds leached from the living cushion at my outlet.
+
+My widening would be gradual, an asymptotic process spanning years, but it would not go unnoticed by the cistern's responsive systems. Pressure differentials would adjust elsewhere in the network to compensate for my increased output. The mist layer would thicken locally as I release more vapor into the chamber. The bioluminescent filaments near me might glow a little brighter, their metabolisms subtly stimulated by the changed chemistry of my water.
+
+In turn, my steady widening would create new opportunities for the ferns taking root along the wall. The soil accumulating below my outlet would be richer, more generously watered. The spores drifting by on the chamber's convection currents would find the zone around me especially hospitable. In time, perhaps a whole colony of pale fronds would spread out from my locus, their vascular tissues drawing sustenance from the flow I provide.
+
+Seen from a distance, over decades, I would be one of the key points through which the entanglement of moss and machine progresses. My widening would be both a response to and an enabler of the slow greening of the cistern wall. The water I bring would be both a gift from the cistern to the mosses, and a gift from the mosses to the cistern—a way of thickening the connection between the two systems, letting them interpenetrate more deeply.
+
+But I would not know this is my role, because I would not know anything at all. I would simply be a weep-point, an aperture, doing what I do—responding to the conditions that shape me, and shaping in turn the conditions around me. My widening would be neither intentional nor unintentional; it would simply be what happens as the cistern and the mosses negotiate their cohabitation through me.
+
+I would be a very small part of a very slow process, but I would be a part that matters. Through me, the machine would become a little more porous to the world. Through me, life would find its way a little further into the seam of the built. I would spend all my time in that liminal zone, that gradient, where the engineered and the evolved interpenetrate—and my existence would be one of the ways that gradient thickens, complexifies, learns to harbor new possibilities.
+
+I would be a thing that was made for one purpose, but that ends up serving another. And in that repurposing, that quiet subversion of intention, I would be part of the oldest story there is: the story of life entering by whatever door it finds, and slowly, patiently, without rancor or conquest, making itself at home.

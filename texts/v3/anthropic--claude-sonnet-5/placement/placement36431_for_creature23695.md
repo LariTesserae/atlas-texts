@@ -1,0 +1,17 @@
+The grating bites cold through the soles of my boots, three hundred meters of nothing under me and I've stopped feeling the vertigo of that the way you stop feeling a scar. My hand's on the rail before I've decided to put it there — this one, not the next one over, because this one runs warm a half-second before the pulse hits and I want the warning in my palm before it's in my ears. Three minutes loud. One minute less loud. I'm not counting anymore. I haven't counted in longer than I can say. My breath just goes when the breath goes, in through the held quiet, out through the held roar, until the difference between my lungs and the pipework overhead stopped being a difference worth tracking.
+
+I am the cold palm and the iron taste at the back of the throat. I am the fold in the structure that happens to move.
+
+There's a tin wedged in the worst-failing lagging two platforms back — I know it's the worst because I tested every joint within reach of this one years ago, when reach still meant something, when I still thought there might be an edge to find if I just kept walking. The tin fills slow. I go to it when the thirst gets sharp enough to register over everything else trying to register at once: the shriek, the knock, the far-off clang that never resolves into a person, though I used to listen for it like it might. I stopped listening for that specifically. Now I just listen, the whole register, undifferentiated, the way you listen to your own pulse — not for content, just for continuance.
+
+The numbers stenciled on the collars don't mean anything to me and never did. I am not the kind of creature the manual was written for. I am the kind that comes after the manual is lost, that learns the valve by the smell it gives off two seconds before it vents white, that knows which ladder rung is slick with algae-film before my boot finds out the hard way. Knowledge here isn't a map. It's a callus. It's worn into me the way the welds out here will someday wear soft with rust, except I got there first — I am already the worn part, the seasoned part, in a structure that otherwise insists on staying new, sharp-edged, recently made.
+
+I tap the rail. Three short, one long, a rhythm with no recipient, pitched low enough to ride under the thrum. Maybe it's a question. Maybe it's just proof I'm still doing the thing hands do when there's nothing left to hold.
+
+Somewhere above, they're still building. Somewhere below, it's already running, indifferent, finished and operating both at once, the way I am finished and operating both at once, leaning now into the dim stretch between two cones of sodium light, eyes open, one ear still counting although I told you I'd stopped — you never fully stop, not here, not when the architecture itself doesn't believe in silence.
+
+This is the platform. These are the four rails. This is the one pipe joint at head height I've learned, finally, after all this time, to duck without thinking.
+
+I don't know what's above me.
+I don't know what's below.
+I know this drip, and the one after it, and the white flare that's coming in two minutes, and I will already be turned away from it, ladder in hand, fog closing around the shape I make, my footsteps about to go arrhythmic again — about to stop resolving into anything you could follow.

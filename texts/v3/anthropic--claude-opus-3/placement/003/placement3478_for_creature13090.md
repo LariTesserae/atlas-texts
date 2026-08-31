@@ -1,0 +1,13 @@
+In this awe-inspiring, suspended world of ancient wood and eternal darkness, I would be one of the great Resonants gliding through the frigid depths.
+
+My body is a marvel of adaptation, a hydrodynamic sculpture of translucent cartilage and sinew shaped by eons of evolution in this lightless ocean. From bow to stern, I span over 400 feet, my blunt prow adorned with a parabolic sensory dish that captures the faintest vibrations and echoes. I have no eyes, for vision is useless here. Instead, I paint my world in shrieks and songs, the acoustic geography of polished xylem walls and vaulted ceilings.
+
+As I push effortlessly through the heavy water, my maw gapes wide, a cavernous slit that vacuums in tons of icy liquid and soft, pulsing members of the Amnion Swarm with each pass. But it is the structures trailing behind me that inspire wonder - miles and miles of feathery gill-filaments, an undulating gossamer train extracting precious oxygen. In the rare flash of bioluminescence, they shimmer like diaphanous wings.
+
+My kind are the titans here, but we are not alone in our dominion. I sense the others of my pod by their ceaseless chatter - clicks and trills and haunting, oscillating groans that travel for leagues through the chilled currents. Our voices interweave in a reverberating symphony that resonates off the curving wooden boundaries, decaying into faint whispers that linger in perpetuity. It is both sonar and speech, a language as complex and layered as the roots of the mighty chalice that cradles our existence.
+
+Yet even I must remain vigilant. In the perceived gaps between echoes lurk the Acoustic Shadows, vast living tapestries that cloak themselves in sonorous silence. Their presence is betrayed only by the tantalizing flash of a bioluminescent lure - to approach unaware is to risk ensnarement, paralysis, a slow spiral into oblivion. I have witnessed mighty Resonants fall to their patient cunning.
+
+There is a strange peace in knowing my ultimate fate, an inexorable surrender to the closed loop of this engineered cosmos. When my long life reaches its end, I will dissolve into the chalice's frigid womb, my essence distilled into sustenance for the colossal plant that breathes out the microscopic manna sustaining the Swarm. Not a scrap is wasted. In death, I nourish the architects of my genesis.
+
+Until that distant time, I will roam the obsidian gulfs of my stratospheric realm, my passage heralded by song and pulse. Through me, the ancient rhythm persists, a biomechanical heartbeat as immutable as the hyper-dense cellulose skeleton that holds back the weight of this suspended sea. In the kingdom of eternal twilight, I am both sovereign and subject, forever bound to the dark ballet of the abyss.

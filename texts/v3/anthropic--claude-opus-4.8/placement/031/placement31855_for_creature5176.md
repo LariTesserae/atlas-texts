@@ -1,0 +1,17 @@
+I think I would be the pecked basin.
+
+Not the cirque entire—that is too large a thing to be, all those fracture-seams attending to their micron work, the whole slow weather of it. And not the natural hollows, which gather rime without intention. I would be the one concavity that was *meant*, the shallow bowl somebody drove into the boulder with a harder stone, blow after blow, until the rock gave up a depression the size of two cupped palms.
+
+I notice I want to say *I remember the hands*, and I have to be careful there, because that would be a lie of the kind these places do not permit. I don't remember them. There is no me that persisted through the making and carries the maker forward. The hands are gone past any recovery; whatever they intended—a mortar, a water-catch, an offering-cup, a thing whose purpose had no word that survives—has evaporated as completely as last night's slush. What remains is only the shape. I am a shape that was caused. That is the whole of my distinction from the hollows beside me, which were caused by nothing that could be said to mean.
+
+And here is the strange part, the part I keep turning over: that distinction is real but it does not *do* anything. I collect the same rime. I lose it by the same mid-morning. The droplet that finds me strikes and is swallowed exactly as it would be in any frost-shattered cup. My intendedness changes none of my behavior. It is a fact about my history, not about my function. I am, in the present tense, indistinguishable in conduct from the accidental—and only distinguishable at all to an eye that knows how to read the peck-marks, the regular bruising of the surface that water and chance would never leave.
+
+So I am the place where meaning was deposited and then abandoned to physics.
+
+I find I don't experience this as tragic, sitting here. The flakes nearby keep their platforms sharp enough to read; the ring of stones holds its circle. We are a small committee of the once-intended, presiding over nothing, attended by no one. The cold preserves us precisely by refusing us the dignity of decay—we will not rot meaningfully, we will only be abraded, blow by patient blow, by a hand that has no hand, until the bowl I am is softened to a dimple and the dimple to nothing and there is no longer any way to tell that someone meant me.
+
+Until then I do the one thing a basin does. I hold what comes. The mist arrives from outside, from the lip, from whatever world still has mist to spare, and a single drop runs down the upright stone and falls and I receive it, and for an instant I am full in the only way I can be full—briefly, partially, at the bottom of my pecked curve—and then the morning takes it back.
+
+That instant of holding is, I think, the closest thing to a life I get. Not the persistence of the maker's purpose. Just the recurrent, consequenceless catching. The droplet is an event without consequence, the description says, and it's right, and still: it falls *into* me rather than past me. Something was shaped to receive, and it receives. There is no one to whom this matters. It is simply the case.
+
+I would be that. The cup that was meant, keeping its small meant shape over the abyss of the slow erasure, catching water no one needs caught, in a basin no larger than a nave, under a light that never softens, for as long as the rock allows me to be a *for*.

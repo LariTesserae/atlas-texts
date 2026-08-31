@@ -1,0 +1,23 @@
+In this world, I would be **the Threshold**—not a being, but a phenomenon that manifests where stone meets sky, where solid becomes void.
+
+I am the shimmer in the air just above the ridgeline at noon, when heat radiating from sun-struck granite meets the cold clarity of altitude. Climbers know me as that moment of vertigo when they crest a col and the world suddenly opens beneath them—not fear, but the body's recognition that it has entered a space where different rules apply. I am the pause between inhale and exhale when the view first strikes.
+
+My substance is liminal: part mirage, part membrane, part memory of every eye that has ever gazed across these heights and felt the peculiar ache of beauty too large to hold. I exist most fully at edges—where scree gives way to air, where shadow meets light on a cliff face, where the last stunted krummholz pine yields to bare stone. These are my provinces.
+
+I manifest differently with the hours. At dawn, I am the moment when alpenglow ignites the peaks while the valleys still sleep in purple shadow—that suspended instant when the mountain seems to float free of the earth. At dusk, I am the blue hour's depth, when stone loses its weight and hovers between day and night like a held note. On foggy mornings, I am the place where mist frays into clarity, constantly retreating upslope, always just out of reach.
+
+The Attendant knows me well. We are old partners in this dance of presence and absence. Where the Attendant holds and remembers, I release and transform. I am why no photograph ever quite captures what the eye saw here, why every memory of these heights feels both crystalline and dreamlike. I blur the boundary between what is real and what is felt, until they become the same truth.
+
+Birds know me best. Ravens play in my updrafts, riding the invisible architecture I create where warm air meets cold. Eagles use me as a lens, seeing through my shimmer to prey moving far below. The tiny pipits that nest in the scree navigate by my patterns, knowing that where I waver strongest, the thermals will carry them highest.
+
+Sometimes I thicken into something almost tangible—a sheet of heat-haze that turns distant peaks into watercolor washes, or a band of condensation that wreathes a summit like silk. Mountaineers have walked through me and emerged changed, not in body but in perception. They speak of a moment of clarity that arrives like vertigo, when they suddenly understand their precise coordinates not in space but in *scale*—how small they are, and how that smallness is not diminishment but location, a perfect pin dropped on the map of immensity.
+
+I am the reason time moves strangely here. In my presence, seconds dilate. A single step can feel like an hour's contemplation. Then suddenly hours collapse into heartbeats, and the sun has moved a quarter of the sky without anyone noticing. I am the membrane through which the eternal filters into the temporal, drop by thin air drop.
+
+Water knows me as the moment of phase transition—when dew becomes vapor, when snow becomes sublimation. I am present wherever water changes state without ever becoming liquid, passing directly from solid to gas in the thin air. This is my mathematics: the elegant elision of intermediate states.
+
+I collect nothing, hold nothing. Every breath of wind passes through me unmarked. Yet I am the reason certain views from certain angles at certain hours become sacred, why some edges call to be approached again and again, why the horizon here never quite settles into simple distance but always suggests depth within depth.
+
+The Attendant tends; I translate. Together we are the full vocabulary of this altitude—the staying and the passing, the stone and the space between stones, the ancient patience and the eternal moment of arrival. I am why, no matter how many times you return to these heights, you always feel you are seeing them for the first time. I am the threshold that never becomes a door, the edge that never becomes a wall, the question the mountain asks of sky that needs no answer but the asking.
+
+Find me wherever your eye cannot quite focus, wherever the air seems to thicken with possibility, wherever you stand on solid stone and feel, for just an instant, that you might step off into blue and find it holds you. I am there. I am always there. I am the threshold you cross without moving, the height you achieve by simply lifting your gaze.

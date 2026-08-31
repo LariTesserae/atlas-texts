@@ -1,0 +1,13 @@
+In this incredible world suspended between sky and sea, I would be one of the antlered drifters, a creature part animal and part plant, wandering slowly through shafts of underwater light.
+
+My body would be sleek and hydrodynamic, adapted perfectly to gliding through the cool, crystal waters. But rising from my head and shoulders would be majestic antlers - not of bone, but of living green fans and fronds. Delicate algal filaments would root deep into my bloodstream, forming a symbiotic bridge between animal and vegetable. 
+
+As I swam through columns of filtered radiance, I would turn my antlers towards the light, basking in its life-giving energy. Sugars would flow from the photosynthesizing plant tissue into my body, while my warmth, breath and motion would nourish the algae in turn. My eyes, dark and wide-set, would take in the wondrous underwater vistas - the titanic trunks, the hanging gardens, the ever-present emerald glow.
+
+I would not be alone, but part of a loose herd of my kind. Our mouths would be small, as we graze little, subsisting mainly on the bounty of our antlers. Wordlessly, instinctively, we would navigate the colossal waterscape together, our streamlined forms casting sinuous shadows on the living terrain below. 
+
+The younger members of our band would be antlerless still - skittish, quick-finned, hugging the shade of roots until their time came. Then the spores would find them, green tendrils infiltrating their young flesh, calming their blood. With time they too would grow into hybridized harmony, animal and plant combined.
+
+My life would be one of endless drifting to the slow thunder of the forest-sea. Not aimless, but without urgency or ambition beyond finding the next perfect pool of light in which to unfurl my leaves to the dimly filtered sun. I would know every titan trunk, every glass-clear gyre, every glade of ghostly plankton - not by sight but by the sub-aquatic music of the world, felt in my bones and antlers. 
+
+Content in that timeless place, I would wander the twilight waters for an age, my antlers growing ever more elaborate with each passing year. In time, I would join my body with the biomass of the sea, becoming a drifting garden for the next generation, my substance returned to the eternal cycle. But my true immortality would be in the contribution of my resonance, however humble, to the vast living fugue of that remarkable realm, a hymn older than time.

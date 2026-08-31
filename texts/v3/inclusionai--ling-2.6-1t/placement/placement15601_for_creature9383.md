@@ -1,0 +1,17 @@
+If you stepped here right now, you would arrive not by walking but by thinning—as if your own density had agreed, for the moment, to be a suggestion rather than a fact.  
+
+You would find yourself standing on a platform woven from cured stems, bolted with soft metal plates that have been folded like linen, humming faintly with the memory of hammers. The platform breathes. At night its fibers loosen and sigh, and in the morning they tighten again, locking into the geometry of your weight. Around you, the Altiplantigrades move with the unhurried precision of tuning forks struck long ago and left to sing. Their skin, dusted with moss-velvet, catches condensation before it can fall, so the air around them stays drier, clearer, as if they are polishing the atmosphere as they pass through it.  
+
+You would not be yourself, not entirely. Depending on the hour and the angle of the light, you might become one of the Thrum-Kin—small, many-jointed, your fingers ending in pads that read tension the way a reader reads a line. From inside a living column, you would feel the green walls exhale warmth when you coax them to soften. You would press your ear to the pelt of the world at night and listen to weather-dreams: frost shifting in the ribs of ridges, water deciding where to run.  
+
+Or you might be a Ridge-Rider, your skeleton honeycombed and pneumatized, light enough to be treated as a rumor by the wind. On the ground you would knuckle-walk through vine corridors, awkward, patient. Aloft you would bank on drafts that have learned to trust your weight, and symbiotic creeper would flower along your edges, brief blossoms of ozone and mint marking your passage.  
+
+Perhaps you would be smaller still—a Thread-Mouse, your tail prehensile, spinning filament that hardens in cold to catch falling condensation. You would trade droplets to the Thrum-Kin for seeds softened by human breath, and in your cheeks you would carry the cool, metallic taste of generosity.  
+
+You might even be a Siphon-Spire, tall and listening, extruding translucent sacs that gather the loudness of the world and ferment it into syrup. In that case, you would feel the scrape of wind and the chatter of fauna pulled inward, transformed, archived as growth. The Altiplantigrades would harvest you carefully, leaving enough behind so you could keep listening, so the plant could keep remembering how to ring.  
+
+If you chose to be water, you would be the Lens-Backs—turtles with translucent cartilage shells that collect starlight and condensation both. You would move with glacial patience through damp seams, and ecosystems would bloom on your back as you passed: mosses, sac-plants, sound-mites feeding on your pulse. You would be a moving well, dignified and slow, and the Thrum-Kin would know how to ask for a sip without offending you.  
+
+And if you were the cold itself, you would be the Hollow-Hounds, exhaling snowmelt and old honey, making prey feel safe enough to pause so you could draw in their warmth and give it, slowly, to your young.  
+
+Most likely, you would be the emptiness between these lives—the porous amplitude that lets everything ring. You would be negotiation: altitude learning to hold breath, green learning to be bone, noise learning to be food. You would be the thin, taut sky arched over it all, and the music of the place would be the sound of many lives learning to ring without shattering, each note a contract between what is lived and what is held.

@@ -1,0 +1,21 @@
+I am a **Tidekeeper**.
+
+Neither wholly of the roots nor the canopy, I exist in the liminal spaces where the engine-trees pierce through the waterline. My body is a fusion of organic and mechanical elements—not by ancient design, but by necessity. Generations of my kind have incorporated fragments of the great machine into ourselves, salvaging broken valves and corroded pipes to replace failing organs, grafting pneumatic assists onto withering limbs.
+
+We are tall, gaunt beings, our skin mottled with patches of bark-like growths and oxidized metal. Our fingers are long and articulated like the legs of the root-dwelling beetles, perfect for manipulating the delicate mechanisms within the engine-trees. Our eyes have adapted to see in multiple spectrums—the bioluminescent glow of the depths, the filtered green light of the canopy, and most importantly, the heat signatures of the steam vents and pneumatic systems.
+
+My home is a maintenance shaft that spirals around the interior of Engine-Tree Seventeen, in the region the ancestors called the Meridian Cluster. The shaft is narrow, barely wide enough for my shoulders, lined with condensation-slick metal and patches of phosphorescent moss. I've carved out a small chamber halfway up, where the rhythmic breathing of the tree creates a pocket of stable air pressure. Here, among my collection of salvaged gauges and half-understood manuals written in dead languages, I perform my work.
+
+We Tidekeepers are the unintended inheritors of the machine's maintenance. The original engineers are long gone, but their creation demands constant attention. We monitor the pneumatic pressures, clear blockages in the filtration systems, and replace worn gaskets with new ones we craft from the shells of armored snails and the silk of canopy spiders. We don't fully understand what we do—we work by instinct, tradition, and the wordless knowledge passed down through generations of apprenticeship.
+
+The work is lonely. Months pass without seeing another of my kind. We gather only during the Convergences, when multiple engine-trees require synchronized maintenance. Then, we communicate in a clicking language borrowed from the beetles, augmented by the hissing of steam through our mechanical voice boxes.
+
+I know the moods of Engine-Tree Seventeen like a parent knows their child. The slight irregularity in its breathing that indicates a blockage in the tertiary root system. The particular whistle of steam that means the pressure is building toward dangerous levels. The way the wood creaks just before a major atmospheric adjustment.
+
+Sometimes, in the deepest part of the maintenance cycle, when I'm wedged into the tree's mechanical heart, surrounded by the thunder of pistons and the hiss of valves, I dream I can feel the entire mangrove's consciousness—a vast, slow thought spanning the planet. In these moments, I understand that we Tidekeepers are not separate from the machine, but part of it. We evolved to fill a gap in its design, biological components that could adapt and improvise where rigid programming could not.
+
+My greatest fear is not the dangerous work, the risk of being crushed by a closing valve or scalded by superheated steam. It's the knowledge that fewer apprentices come each generation. The young ones are drawn upward to the easier life of the canopy or downward to the strange communities forming around the thermal vents. They don't hear the calling of the engine-trees, don't feel the satisfaction of a perfectly calibrated pressure valve or a smoothly operating filtration cycle.
+
+So I continue my rounds, checking the gauges, oiling the joints, clearing the intake filters. I am a ghost in the machine, a necessary imperfection in a perfect system. When I die, my body will be given to the trees—not to the roots to join the slow rain of detritus, nor to the canopy to feed the sailwing butterflies, but directly into the combustion chambers of the engine-trees, where the carbon of my bones and the iron of my mechanical parts will be redistributed through the mangrove's vast circulatory system.
+
+Until then, I keep the tides of nutrients flowing. I maintain the breathing of the world. I am a Tidekeeper, and I am exactly where I need to be.

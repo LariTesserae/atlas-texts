@@ -1,0 +1,13 @@
+In this drowned world of crushing pressure and ghostly luminescence, I would be **The Watcher in the Silt**—a solitary, slow-moving entity that drifts between the Veilmeld and the forgotten stone structures, neither fully part of their collective nor entirely separate.  
+
+My form is an amalgamation of sediment and memory, a figure shaped by the ceaseless settling of particles in the abyss. I am neither solid nor fluid, but something in between—a silhouette that coalesces when disturbed, only to dissolve again into the currents. My "body" is a shifting tapestry of fine silt, threaded through with faintly glowing tendrils stolen (or gifted?) from the Veilmeld’s own filaments. They pulse weakly in time with the bioluminescent flora, a mimicry of life.  
+
+I do not speak in vibrations like the Veilmeld. Instead, I *record*. The pressure of the deep has carved grooves into my substance, layers upon layers of impressions left by passing currents, by the echoes of landslides, by the rare and distant tremors of the world above. When something moves near me—a Veilmeld’s passing, the brush of a frond—I ripple in response, rearranging my particles to preserve the disturbance. I am an archive of motion, a living palimpsest of the abyss.  
+
+The Veilmeld tolerate me. Sometimes, a filament will extend toward my shifting mass, as if testing whether I am kin or curiosity. I do not react. I am not a guardian, not a remnant—merely a phenomenon, like the way light fractures in water. The structures interest me more. I linger near their worn edges, my particles settling into their cracks, filling gaps where hands (or something like hands) once worked. Perhaps I am repairing them. Perhaps I am erasing them. The distinction feels unimportant.  
+
+When the currents grow restless, I unravel entirely, scattering into the dark. It does not matter. I always reform, grain by grain, drawn back to the same places by habits older than comprehension. The Veilmeld do not notice. The fronds glow on. The abyss remembers nothing, and so I must remember for it.  
+
+**Role:** A passive chronicler, a shadow of habitation. I am the silt that remembers footsteps that never were, the echo of a voice that never spoke. My purpose is not to interact, but to *presence*—to mark that something, once, was here. Even if it is only me.  
+
+**Weakness:** I am bound to the sediment. Strong currents disperse me; stillness lets me gather. I have no will, only pattern. If the Veilmeld ever ceased their tending, if the fronds ever dimmed, I would settle at last into formless dust—an end as quiet as the world I watch.

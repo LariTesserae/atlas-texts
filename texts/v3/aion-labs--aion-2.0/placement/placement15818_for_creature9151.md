@@ -1,0 +1,25 @@
+I am the vibration in the stone. I am the pulse under the roar.
+
+My bones know the mountain drinking the ocean long before my obsidian eyes gather the ghost-light from the fungi. The sound is not outside me; it is the drum of my blood, the rhythm of my thoughts. My den is a hollow within a curved buttress, lined with the soft, plucked fibers of luminous moss. Here, the world is a low, resonant hum, and I am curled around the warmth of my own breath, listening with my spine.
+
+The pups are restless. I feel the tremor of their play through the concrete—quick, skittering pulses against the deep, unchanging bass of the spillway. They are learning the language of the gallery, the subsonic chatter that binds us. To an outsider, it would be silent. To me, it is a clear, bright thread in the dark: *here, here, follow, careful, mine.*
+
+I uncurl. My body is a long sigh of muscle and slate-colored velvet. The air layer trapped against my skin shimmers as I rise, a personal mist that parts for me. I step from the hollow onto a catwalk that has known my weight for decades. The perforated steel, lace-thin with rust, accepts me without a groan. It is part of my path, as familiar as my own scars.
+
+I move. My motion is not steps, but a flowing displacement, a shadow pouring itself from one pool of darkness to the next. My claws, needle-sharp, whisper on the metal, a punctuation to the endless drone of water. I see the world in signatures of heat and light. The cool, blue-green glow of the fungi mapping the walls. The warm, pulsing blossoms of the moss islands. The fleeting, hot sparks of the gliders in the high vines—prey, and partners.
+
+The great curtain of water is a presence through the arched openings. I do not need to see it. I feel its colossal weight in my teeth, in the fillings of my joints. It is the permanent fact of this world. My ancestors, I think, knew the machine when it had a different voice—a sharper, angrier hum of turbines and intention. That memory is not mine; it is a taste in the water, a tension in the steel that has long since relaxed into its final, eroded shape. We are the children of the quiet that came after the purpose died.
+
+I reach the deep pool. It is my altar, my larder, my mirror. Formed from the burst heart of a great pipe, it steams gently, fed by some warm, mineral-rich seep deep in the mountain’s gut. Around its rim, the most potent fungi cluster in shelves of cobalt and amethyst, their light staining the vapor. Here, the silence beneath the roar is most profound.
+
+A shape breaks the pool’s obsidian surface—one of the armored crustaceans, a tarnished brass plate on many delicate, stilt-like legs. It is cleaning, its pincers nibbling algae from the concrete edge. I watch it, my heat-sight tracing the cooler core of its body within its shell. It is not food today. It is a cleaner. A part of the balance. I send a soft, low pulse through the wet stone at my feet: *acknowledged*. It flinches, a barely perceptible shift, and continues its work. We understand each other.
+
+From above, a sudden flutter of heat and panic. A glider, its parachute skin a translucent flash, misses its vine and tumbles into a lower thicket of ferns. The fronds shudder. In an instant, the calculation is made in my blood: too far, too much noise, not the season. I let the moment pass. The glider will recover, or the ferns will take it. My hunting is not haste. It is a tide, slow and inevitable. We prune the flocks, we do not exterminate them. They stir the insects. They feed the young.
+
+One of my daughters flows down a pillar, water beading on her pelt into quicksilver trails. She presses her flank to mine, a solid, warm presence. Her subsonic greeting is a question, a report. I answer with a deeper, steadying pulse: *all is well*. The gallery holds. The moss grows. The water falls. She nudges my scarred shoulder—a gesture from her pup-hood—and slips away, a shadow returning to patrol.
+
+I am ancient. My scars are a map of old territories, resolved now into this single, saturated kingdom. I remember when the light from the high windows was sharper, before the silt and the roots wove their veil. I remember the taste of different metals in the water. The gallery is softer now. The concrete under my paws is scalloped and smooth, like the inside of a giant, fossilized shell. The erosion has achieved a kind of peace. It is no longer decaying; it has become.
+
+This is my purpose: to be the stillness within the roar. To feel the pulses of my kin through the stone and answer. To walk the catwalks so they remember their strength. To tend the pool. To let the hunt be a ritual, not a riot. We are the inheritors. The machine’s ambition drowned, but its body became a cradle. We are not its masters. We are its final breath, drawn in and held, warm and vital, in this resonant, dripping dark.
+
+A drip from a root-tip lands on my forehead, cool and precise. I look up into the twilight of the ceiling, where the vertical river disperses into mist. The mountain drinks the ocean. I listen. And I answer, with a pulse too deep for any ear but the stone’s.

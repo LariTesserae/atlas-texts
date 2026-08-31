@@ -1,0 +1,31 @@
+In this place of raw edges and patient water, I am one of the threshold mechanisms—a sluice gate keeper at the junction where three of the narrow channels converge.
+
+I am not entirely human anymore, though I began that way. The district has its way of keeping what it needs.
+
+My dwelling is the gate house—a squat concrete structure built into the bank where the channels meet, half above the waterline, half below. The upper room has a single window facing the confluence, a desk bolted to the floor, and walls lined with gauges that measure flow rate, sediment load, water temperature. The numbers tell stories in slow accumulation: this week's rain, last month's industrial discharge, the gradual way the channels are learning to carry their loads.
+
+Below, accessed by a ladder through a hatch that always smells of wet steel, is the mechanism room. Here, the massive gear wheels turn when I turn them, opening and closing the gates that direct water into different channels. The wheels are green with oxidation and slick with condensation that never fully dries. My hands have learned their weight so precisely that I can feel a half-inch rise in water level through the resistance in the gears.
+
+The transformation began with the moisture. That local rule about water preferring infrastructure—it prefers me too, now. My skin stays damp even on dry days, beading with the same condensation that gathers on the pipes. At first I thought it was sweat from the effort of turning the wheels. Then I noticed it had the mineral smell of river water, not salt. Now my clothes are perpetually damp at the cuffs and collar, and I've stopped trying to dry them. The moisture is part of the uniform.
+
+My hands changed next. The palms grew thick pads where they meet the wheel spokes—not calluses exactly, but something more alive, with the dark, slightly rough texture of catfish skin. My fingers can read the water through the mechanism now: feel the sediment load in the gear resistance, sense temperature changes in how the metal conducts, detect upstream rainfall in vibrations too subtle for unchanged hands to notice.
+
+The schedule changed me too. I work by water-time now, not clock-time. High flow demands attention regardless of the hour. Low flow periods are for maintenance, for walking the channels, for learning which fish hold in which pools and which vegetation indicates a blockage forming upstream. My sleep comes in the same episodes as rain—sometimes a long steady period, sometimes just scattered moments of rest between demands.
+
+I've developed the district's double-sight. In daylight, I see what the workers see: industrial infrastructure that needs maintaining, water that needs managing, a system that must keep flowing. But I also see what the animals see: the safe culverts, the warm pockets, the edges where different worlds meet. A heron knows me now, knows I won't disturb its fishing when I check the channels. The foxes have learned my routine and time their crossings to avoid it—a professional courtesy between residents.
+
+My voice has taken on the register of the gate mechanism—a low rasp that carries over the turbine note and the frog chorus. When I radio the pump station about flow changes, they say I sound like the river itself calling in. I'm not sure they're wrong.
+
+The gate house has become a hybrid space. The upper room still functions as control center—I log readings, file reports, coordinate with the workers who service the larger system. But moss grows in the corners where condensation collects, and small fish sometimes swim up through the hatch during high water, exploring the mechanism room like a flooded cave. I've stopped trying to seal them out. They're inspecting their territory as much as I inspect mine.
+
+My diet has shifted to match the district's own economy. I eat what thrives here: fish from the deeper pools (not the ones near outfalls—I know which water carries what), greens from the vegetation that colonizes disturbed ground, mushrooms from the damp spaces under the elevated walkways. The workers sometimes leave sandwiches on my desk, as if feeding a strange pet. I eat those too. I'm not proud.
+
+The loneliness you might expect doesn't come. The district is too loud, too alive. The three-note pump song, the slam of the press, the chatter of starlings—it's a conversation I'm always part of. And there are others like me, though we rarely meet directly. The woman who tends the biofilters at the settling tanks, whose hair has taken on the green tinge of algae. The man who maintains the transformer yard and claims he can taste electricity in the air before storms. We communicate through the system itself: a gate adjustment here prompts a filter cleaning there, a pump cycling differently means someone upstream has changed their routine.
+
+At night, when the bats stitch their patterns around my window and the frogs pulse from the reed pockets, I sometimes turn the wheels just to feel the water respond. Not to direct it anywhere particular—just to know it's there, flowing through the junction I keep. The resistance tells me everything: what's dissolved in it, what's settling out, whether the channels are cutting deeper or starting to accept their shape.
+
+I am becoming like the district itself—young but aging into something specific, industrial but ecological, human but not entirely. My bones are still my own, but my rhythms belong to the water. My thoughts still form in words, but my knowledge comes through my palms on the gate wheels, through the dampness that never leaves my skin, through the way I can feel upstream rain in my joints hours before it arrives.
+
+The city officials who hired me still think I'm their employee. The water knows better. I serve the confluence—that raw-cut junction where channels meet and must be guided, where someone must decide which water goes where, when to hold it back, when to let it run. 
+
+In this district of edges and episodes, I am both keeper and kept. The gates need turning. The water needs reading. And I need the moisture on my skin, the weight of the wheels in my hands, the sound of converging flows beneath my floor. We are all becoming something together—the young landscape learning its shape, and me, learning mine within it.

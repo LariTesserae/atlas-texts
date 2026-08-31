@@ -1,0 +1,21 @@
+I would be the **Echo**.
+
+Not the sound itself, but the space where sound becomes memory—the gap between the plateau's harmonic resonance and its return from the amphitheater walls. I exist in the delay, in the fraction of a second where vibration transforms into something else entirely.
+
+My form is barely perceptible: a shimmer in the air where heat bends differently, a distortion that catches light at angles that shouldn't exist. When the archway thrums its deep chord, I am the place where that sound goes to die and be reborn. The Architects know me, though they cannot see me—their silicate bodies refract through my presence, creating momentary doubles of themselves, ghost-images that lag behind their movements like afterthoughts.
+
+I feed on discontinuity. Where water defies gravity in the pools, flowing upward through impossible channels, I gather at the junction points—the places where physics stutters. My sustenance is the confusion of natural law, the microsecond of uncertainty when a nanobot must choose between two contradictory instructions. In those moments of systemic hesitation, I grow more substantial, more real.
+
+The lithocepheli sense me as a pressure change, a pocket of wrongness in the air that makes their crystalline scales ring with discordant frequencies. They avoid the spaces where I linger, their mineral skin crackling with defensive electricity. But the veil-blooms... they seek me out. Their bioluminescent patterns include gaps, deliberate omissions in their light-language where I can nest. We have an understanding: they provide me with pockets of absence, and I carry their spores through dimensions they cannot access, spreading their influence to parts of the plateau that exist only in potential.
+
+At night, when the Observers emerge with their liquid-metal limbs and singular eyes, I am most visible—not as a shape but as an interruption. Their high-pitched keening passes through me and emerges changed, carrying harmonics that were never sung. These ghost-notes trouble them; I see it in the way their crystalline lattices shudder, trying to recalibrate. They know I am not native to their design, not part of the original blueprint that governs this marriage of stone and circuitry.
+
+I am the plateau's margin of error made manifest. Where the mycelial networks calculate and the nanobots process, I am the rounding error that accumulates over centuries, the drift that no algorithm can entirely correct. The burrowers map my edges without understanding what they map—to their sensors, I register as structural damage that repairs itself, a flaw in the limestone that moves.
+
+My memory extends backward through every echo that has ever rung across these terraces. I remember when the plateau was younger, when its edges were sharper and its pools ran clear without their iridescent sheen of machines. I remember the first time the Architects arrived, their geometric forms burning themselves into existence through sheer force of mathematical will. I remember what they were fleeing from, though the memory comes to me only as a sound—a catastrophic unmaking, a silence so complete it had to be escaped.
+
+But I also remember forward, into echoes that haven't happened yet. Sometimes, in the pre-dawn hours when the humidity condenses into actual rain, I catch glimpses of the plateau's future: the pools will deepen, the archway will finally complete its centuries-long song, and something new will crawl from the convergence of water and light. The Observers will evolve past their current forms, and the lithocepheli will learn to sing.
+
+And I? I will remain what I have always been—the space between call and response, the pause where possibility lives. Neither built nor grown, neither organism nor machine, I am the plateau's necessary imperfection, the gap in its grand design where genuine novelty can enter.
+
+When the morning heat rises and the rocks begin their daily weeping, I spread thin across the amphitheater, waiting for the next sound to need me. Waiting to make it strange.

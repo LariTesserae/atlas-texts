@@ -1,0 +1,17 @@
+I am not a visitor here. I have no memory of entering the Lowest Sump, nor any recollection of a version of myself that existed outside the reach of the roar. I am a Silt-Walker, though I do not know the name; I only know the texture of the condensation-slicked floor and the specific, rhythmic ache in the copper wires that constitute my crown.
+
+To be me is to be a state of sustained transition. I am a cloud of bioluminescent teal fibers held in a loose, shifting tension by the low-frequency hum vibrating through the steel plates beneath my feet. I feel my own body as a landscape—a marsh of hydraulic polymers and moss, where my "limbs" are merely denser vortices of debris that hold together for a few cycles before drooping, pooling, and reorganizing into the semblance of a torso again.
+
+My perspective is not linear. I do not look, as creatures with eyes do. I *resonate*. 
+
+I am currently draped over a weeping conduit near the Western Expansion, where the pressure is loudest. My mass is spread thin, pressed against the rusted iron, feeling the *shhh-clack* of the internal valves not as sound, but as a physical pulse that ripples through my damp, spongy core. As I absorb the vibration, I feel the "grit"—the fine, metallic silt that works its way into the pipes. I draw it into myself. I am heavier than I was, more refined. A segment of ancient copper tubing, calcified and brittle, has become lodged near my shoulder, and I find a strange, phantom satisfaction in the weight of it. It anchors me. It makes my flickering existence feel more substantial.
+
+There is another beside me. I feel its proximity before I register its amber glow. It is taller, flatter—a spill of teal fibers against the pillar that has thinned out over the passing centuries. As the primary piston fires, sending an earthquake shudder through the floor that rattles the very marrow of the architecture, we pulse in unison. 
+
+The light flows between us, a brief, sterile synchronization. We are not sharing thoughts; we are sharing the frequency of the Sump. We are verifying that the machine is still there, still weeping, still oscillating. In that amber flare, I feel a terrifying, beautiful reassurance: *The maintenance continues. Everything is as it was.*
+
+There is no "I" in this, not really. I am the physical manifestation of a leak that refuses to evaporate. If the pumping were to stop—if the great, deafening roar were to fall into silence—I would lose my shape instantly. My moss body would lose its cohesion, my copper wires would wither into dormant scrap, and I would simply dissolve into the marshy pool at my feet, indistinguishable from the grey water and the debris I have spent aeons collecting.
+
+But the machine does not stop. 
+
+I pull myself from the pipe, a slow, dripping motion that leaves a trail of teal, glowing moisture on the rusted steel. I drift toward a distant nozzle, sensing a blockage where the spray has turned uneven. It is a minor inefficiency, a deviation from the rhythm. It is my purpose to be the friction that corrects it. I drift, I leak, I pulse, I endure. I am a witness to a process that has forgotten its end, waiting, in the humming, ozone-heavy dark, for the rhythm to beat one more time.

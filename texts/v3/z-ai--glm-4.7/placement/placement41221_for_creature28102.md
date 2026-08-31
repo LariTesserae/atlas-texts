@@ -1,0 +1,17 @@
+I find myself suspended in the high-vertical gloom, wedged into a fissure between a rusted ventilation stack and the sheer, wet flank of a brick tenement that seems to be breathing. This is the "Ribcage," a district of exposed girders and skeletal scaffolding where the city’s skin hasn't yet grown over the bones.
+
+I am a **Friction-Eater**.
+
+I am not one of the tall, gaunt walkers who patrol the gantries, nor am I a Valve-Walker who has traded flesh for hydraulic piston. I am something smaller, more specialized, evolved to exist in the spaces where the city tries to tear itself apart. My body is long and low, reminiscent of the sleek, wet-furred Pipe-Runners, but stretched—torso-like and sinuous. I am an organism of the seam.
+
+My skin is the color of wet basalt, rough and abrasive like a shark's hide, designed to grip the slick, moss-slicked iron. Along my spine, a ridge of sensitive, quill-like hairs bristles, vibrating in sympathy with the subsonic hum of the gears grinding deep below. I do not have eyes that see in the traditional sense; like the others, my vision is a flat, black gaze that reads the temperature gradients of the fog and the heat signatures of leaking steam pipes. But my true sight is tactile. I feel the world through my belly and my palms.
+
+I live where two structures grind against each other. The Sprawl of the Churn is frantic and unstable, expanding faster than it can settle. Where a brick wall meets a steel beam, the movement is constant—a microscopic, shivering friction that would, in time, spark a fire or shake the mortar loose. This is where I fit. My body is tapered at both ends, allowing me to slide deep into these jagged cracks.
+
+I am a conduit for the city’s tension. My bones are semi-liquid cartilage, capable of absorbing the shock of the grinding metal. When the buildings shudder against one other, I absorb the kinetic energy, translating that violent friction into a low, metabolic heat that keeps my blood warm in the clammy chill. I eat the vibration; I drink the stress.
+
+My mouth is the beak-like carapace described in the lore of the Children, but modified. It is not for scraping lichen, but for secreting a viscous, quick-hardening resin—a mixture of my own oily ichor and the crushed silica of the scree I collect. I am a living mortar. As the city shifts, I crawl along the widening cracks, stitching the iron to the brick with a glue that flexes but holds, healing the open wound of the creation just long enough for the next layer to be built on top.
+
+I am not alone in this niche. I share the fissure with a cluster of the neon-green moss, which I cultivate in the folds of my skin to keep me insulated against the cold drafts that howl through the scaffolding. Sometimes, a Pipe-Runner skitters past my hiding spot, its metallic exoskeleton clicking against the pipe, ignoring me. To them, I am just another part of the machinery—a soft, wet bump in the metal.
+
+From my vantage point, deep in the crack, I can look out through a gap in the masonry. Below, the muffled, chaotic anthill-energy of the basin churns. Above, the Avians wheel, their phosphorescent eyes scanning for the gourds. But I am still. I am pressed tight against the pulse of the city, feeling the heartbeat of the massive engines in the soles of my feet. I am the stopgap between destruction and growth, a silent, trembling thing holding the chaos together, one breath, one crack, and one stitch of resin at a time.

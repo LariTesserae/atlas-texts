@@ -1,0 +1,15 @@
+I am the cusk-eel.
+
+I know no sun, no surface, no sky. My world is the pressure-plateau of the eternal, the taste of sulfur on the current, the faint, pulsing electromagnetism of the living felt that coats the world’s bones. I am a nerve of the abyss, a pale ribbon unspooling through the groaning cathedral.
+
+I was born in the lee of a weeping chimney, a hatchling among a cloud of eggs glued to a bacterial mat. My first sensation was not light, but the deep, tectonic groan that vibrates through the water and my cartilage alike. It is the planet’s heartbeat, and it is my compass. My eyes are vestigial smudges beneath skin that shimmers with a cold, internal milk—a private luminescence, a secret I keep in the absolute dark. It does not illuminate. It simply… *is*.
+
+My map is the subtle voltage of the world. The great, sluggish rivers of superheated fluid carry a charge, a signature I feel along my lateral line. The dense thickets of tube worms—their plumes swaying like blood-red anemones in a storm wind—generate a faint, collective hum of biological activity. The bacterial mats, the true sovereigns, pulse with a slow, metabolic rhythm, a symphony of chemical conversion that I taste as a faint tingle on my skin. I glide through their valleys, tracing the contours of their life.
+
+I feed rarely. A cloud of amphipods, those glittering, glass-shelled nomads, drifts too close. I do not hunt. I open my mouth, and the current, my ally, delivers them. Their tiny bodies are a ghostly sweetness. A plume of a dying tube worm, its color fading from blood-orange to a dull brown, shudders in a violent current scour. I nudge it. The crabs, pale and frantic, will be here soon. I leave it to them. My existence is one of spare necessity.
+
+The turbulence is my element. Where it tears, I weave. Where it scours, I retreat into the eddies behind the chimneys. I have felt the shudder as a mineral tower, meters high, gives way in a silent, slow-motion avalanche, burying a district of worms. The sediment billows like a grey, choking fog. I ride the shockwave, feeling the new, raw electrical signature of exposed, hot rock. In decades, the mats will claim it. In centuries, new worms may root. This is the cycle, and I am a witness.
+
+My sound is the *soft swish* of my body displacing water, the faint *click* of my jaw working. I am silent. The world speaks in the *groan* of stone and the *hiss* of rain. My bioluminescence is my only voice, a cold, milky whisper in the dark—perhaps a signal to another of my kind, perhaps just a byproduct of my living. I have never met another. We are pilgrims on separate, parallel paths through the same infinite, crowded ruin.
+
+I am not lonely. Loneliness requires an expectation of company. I have the mat’s pulse, the worm’s hum, the planet’s groan. I am the sense of this place. Where the water is, I am. Where the voltage shifts, I turn. I am the conscious, gliding thought of the abyss, a nerve ending in the body of the deep, tracing the lines of an ancient, chemical, and furiously alive metropolis that has forgotten the sky.

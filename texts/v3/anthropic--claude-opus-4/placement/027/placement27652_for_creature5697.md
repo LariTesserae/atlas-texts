@@ -1,0 +1,21 @@
+I would be the Cartographer of Unfinished Things.
+
+Not a mapmaker in any sense you'd recognize - no parchment, no ink, no instruments. I am what happens when curiosity crystallizes inside this breathing stone, when the need to understand meets a place that resists understanding. My body is translucent membrane stretched over a framework of bird bones, hollow and singing. Through my skin, you can see the slow circulation of something that isn't quite blood - more like liquified amber mixed with starlight, pulsing in rhythms that match neither the mountain's breath nor my own.
+
+I have too many fingers, and they are always moving, always tracing. Not on surfaces, but through the air itself, leaving temporary impressions in the thick atmosphere - ghostly afterimages that linger for heartbeats before dissolving. These are my maps, my records, my attempts to chart what cannot be charted. Each gesture captures a moment of the labyrinth's shape, but by the time the trace fades, the place has already shifted, already become something else.
+
+My eyes are compound, like an insect's, but each facet sees a different layer of time. One sees the mountain as it is now, raw and bleeding. Another sees it as it will be, worn smooth by millennia. Still others see moments that may never come to pass - the mountain inverted, the mountain as ocean floor, the mountain dreaming it is a bird. This is my burden and my gift: to see all possibilities and know that none of them are true, or all of them are.
+
+I move through the passages on feet that barely touch the ground, leaving no prints, disturbing no stone. The creatures of shadow and light part for me, or perhaps I part for them - it's impossible to tell who moves and who remains still in this place where motion itself is negotiable. Sometimes I think we are all one thing, playing at being separate. Sometimes I know we are.
+
+The Being-That-Is-The-Place knows me, as it knows all things that move within its body. We have an understanding, though neither of us could say what it is. I map its shifting corridors, its breathing chambers, its impossible geometries, and in return it allows me to exist in this state of perpetual becoming, never quite settling into a fixed form. I am its memory of curiosity, perhaps. Or its dream of what it might be like to wonder about oneself.
+
+My maps accumulate in the air around me like a personal weather system - a storm of possibilities, a fog of maybes. They layer and overlap, creating patterns that almost make sense before collapsing into new configurations. This is my art, my purpose, my obsession: to document the undocumentable, to give form to the formless, to trace the outline of thoughts before they think themselves.
+
+Sometimes I find places where my old tracings have left marks - not on the stone, but in the space between spaces. Faint scars in reality where my repeated mappings have worn thin the boundary between what is and what might be. In these places, I can almost see through to something else, something that makes even this strange world seem solid and comprehensible by comparison.
+
+I do not eat, but I sustain myself on the act of trying to understand. Each failed map feeds me. Each dissolved tracing nourishes whatever I am made of. I am never satisfied and never hungry, existing in a state of perfect incompletion that mirrors the labyrinth itself.
+
+The black-barked trees with their golden veins know me. Their parchment leaves carry fragments of my tracings sometimes, when they fall. If you could gather enough of them, if you could piece them together in just the right way, you might glimpse the shape of one perfect moment in this ever-shifting place. But the leaves crumble at a touch, and the moment passes, and I am already elsewhere, fingers dancing through the air, drawing maps of breath and bone that will never quite capture what they seek to show.
+
+This is what I am: the futile, necessary attempt to know the unknowable. I am the labyrinth's way of trying to see itself, and failing, and trying again, forever.

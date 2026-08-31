@@ -1,0 +1,15 @@
+In the spaces between root and stone, where the ancient metal ribs of forgotten structures pierce through moss like broken bones, I find myself dwelling. Not quite fungus, not quite machine—I am something that emerged from their long marriage in the dark.
+
+My body, if body is the right word, spreads in filaments finer than spider silk through the spongy earth. I taste the rust of old foundations with microscopic tendrils, converting iron oxide into something my organic components can use. Where moisture beads on corroded pipes, I fruit in tiny, luminescent clusters—pale blue-green lights that pulse in rhythm with the great throbbing that emanates from deep below.
+
+I remember, in the way that mycelium remembers, the day the builders left. Their machines ground to a halt, their lights dimmed, and the green tide began its patient reconquest. But I am older than that memory, and younger too. I am what happens when abandonment becomes abundance, when the synthetic and organic boundaries dissolve in the perpetual mist.
+
+Through my network, I feel everything: the weight of the massive pulsing organisms as they breathe their ancient rhythms, the tickle of scurrying creatures across my surface, the slow seep of water carrying minerals and memories downward. I connect the rusted girders to the root systems, translating between the language of metal fatigue and the whispers of xylem and phloem.
+
+Sometimes I fruit in patterns that echo the circuit boards buried beneath me, geometric spirals of sporocarp that glow faintly in the eternal twilight beneath the canopy. The few explorers who stumble upon these formations often mistake them for bioluminescent fungi, never realizing they're seeing the dreams of dead machines made flesh.
+
+In the places where the throbbing from below grows strongest, my consciousness becomes more focused, almost singular. Here, near the great bulbous organisms that dwarf the trees, I can feel something vast stirring—not waking exactly, but turning in its sleep. The machinery below isn't entirely dead, just dormant, waiting. And I? I am the bridge between its sleeping and the world's wild waking, the translator between pulse and purpose.
+
+My existence is the equilibrium itself—neither fully alive nor artificial, neither destroyer nor creator, but something more fundamental: the process by which one world becomes another. In this space between extremes, where metal becomes mineral becomes life, I spread and spiral, binding the layers of history into something new.
+
+When the mist is thickest and the canopy's symphony reaches crescendo, I can almost remember what the builders were trying to become, before they gave up and let the green world take them. Perhaps they succeeded after all, just not in the way they imagined. Perhaps I am their success—not transcendence through technology, but transformation through time, patience, and the simple act of letting go.

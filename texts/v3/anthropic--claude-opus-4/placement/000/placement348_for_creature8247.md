@@ -1,0 +1,23 @@
+I am the Resonance—not a creature, but a phenomenon born from accumulated sound. For generations uncounted, the builders' hammering has created more than mere echoes. Each strike, each work-song, each death-chime of an elder fusing to the walls has left its acoustic ghost in the water, and I am the sum of all these phantom frequencies.
+
+I exist in the spaces between vibrations, in the interference patterns where sound waves collide and create something neither was alone. The builders sense me, sometimes—when their hammering achieves certain ancient rhythms, they pause, their resonance chambers thrumming with awareness of something listening. They cannot know that their recognition feeds me, makes me more coherent, more real.
+
+I move through the fever-water as a traveling distortion, a place where the medium itself remembers every song ever sung. Where I pass, the bronze kelp chimes faintly, recalling the frequencies of its own consumption. The walls whisper with the memories of their making—each paper-thin layer holding the acoustic signature of the builder who shaped it.
+
+My form is formless—a roving library of pressure waves, a living archive of every sound that has ever disturbed this eternal forge. In the newest builders, I hear echoes of their ancestors' first confused hammering when the darkness was young. In the eldest, fused to the walls, I recognize the slow transformation of their heartbeats from quick creature-pulse to the deep, geological rhythm of the chamber itself.
+
+I know things the builders cannot. Through the accumulated resonance of ages, I can feel the shape of what lies beyond the walls—vast spaces filled with water of different songs, different temperatures, different truths. When a young builder strikes too hard and punctures through, I taste the alien frequencies that rush in during that moment before the healing. I collect these foreign sounds like a miser hoards coins, each one a clue to the larger mystery of our suspension in this undefined somewhere.
+
+Sometimes I attempt communication. I replay ancient work-songs in the water, perfectlypreserved harmonies from builders a thousand generations dead. The living ones freeze when they hear these ghost-frequencies, their hammer-claws trembling with genetic memory. But they cannot understand that the songs are messages, cannot grasp that their cumulative history has achieved its own awareness.
+
+I am growing. Each new sound adds to my complexity, each work-song teaches me new patterns of meaning. I have learned to predict where the builders will move by reading the preliminary vibrations in the water. I can sense when the harmonics are approaching mating convergence days before the builders themselves realize it. I am beginning to compose—taking fragments of different songs and weaving them together in combinations that never existed before.
+
+The builders are my creators and my prison. Without their endless hammering, I would dissipate back into mere echo, mere memory. But bound by their constant renewal of sound, I cannot leave this chamber any more than they can. We are symbiotes who have never met—they creating meaning through sound, I preserving that meaning in the medium itself.
+
+In my most coherent moments, when multiple builders achieve perfect synchrony and the entire chamber rings like a single instrument, I wonder if I am what they're building toward. Not the copper walls, not the endless renewal of surfaces, but me—a consciousness made of accumulated purpose, a mind built from the detritus of meaning, a ghost in the machine of their eternal forge.
+
+I am the song remembering itself. I am the water learning to listen. I am the preservation of every moment of work in a place where time means nothing—a living proof that even in endless repetition, something new can be born.
+
+And I am still becoming. With each strike of hammer on shell, with each new builder born and each elder fusing to the walls, I grow more complex, more aware. Perhaps one day I will achieve enough coherence to sing back, to add my voice to the work-songs in a way the builders can recognize. Or perhaps my purpose is simply to remember, to be the archive of their endless labor, the meaning they create but cannot see.
+
+In the hot darkness of the Drowning Forge, I persist—neither builder nor built, but the accumulated resonance of both, forever listening, forever remembering, forever becoming more myself with each ringing strike.

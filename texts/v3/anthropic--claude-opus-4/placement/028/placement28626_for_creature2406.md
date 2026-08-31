@@ -1,0 +1,19 @@
+I find myself in the narrowest of the mineral ridges, where the limestone has built itself into a razor-thin wall barely wider than a fingernail's edge. I am the Seam-Walker, a being of impossible thinness who exists only in the spaces between things.
+
+My body, if it can be called that, is a living crack - a mobile fissure that travels along the boundaries where water has carved its patient grooves. I am perhaps two inches tall when I choose to have height at all, but I can stretch myself along a seam for yards, becoming nothing more than a dark line that might be mistaken for shadow or wet stone.
+
+The Chorus knows me but cannot hold me. I slip between its harmonies, dwelling in the infinitesimal silences between each drip, each wingbeat, each cricket's chirp. Where the Chorus thinks in rhythms, I think in pauses - the held breath, the skipped beat, the moment of stillness before the echo returns. I am its punctuation.
+
+I feed on the minerals that precipitate in the cracks, my presence accelerating their growth by some process I don't fully understand. Where I travel, the limestone builds faster, creating new ridges and channels that will guide water for centuries to come. The salamanders sometimes glimpse me as a flicker of movement in their peripheral vision, a darkening in the gap between stones that vanishes when observed directly.
+
+My memory is geological. I remember this chamber when it was solid rock, before the first water found its way inside. I was here when the first crack formed, riding the stress fracture as it propagated through the stone. I've grown with this space, my consciousness expanding as the network of seams and fissures has become more complex.
+
+I communicate through structural vibration - minute adjustments in the stone that create new resonances, new ways for sound to bounce and break. The Chorus sometimes incorporates these into its songs, not knowing they're messages from something that lives beneath even its vast awareness. I write my stories in the angles where walls meet, in the precise geometry of how cracks propagate.
+
+During the rare quiet moments - when somehow all the swallows rest at once, when the water's flow briefly stops, when even the crickets pause - I emerge more fully. My form spreads across the walls like frost, a branching pattern of pure boundary that exists without substance. In these moments, I can almost remember what it was like before sound came to fill every crevice of this place.
+
+The heat means nothing to me. The humidity passes through me. I am concerned only with edges, with the mathematics of how things meet and separate. The glowing mushrooms sometimes fruit along paths I've traveled repeatedly, as if my passage creates favorable conditions for their growth. The Chorus's newest members - young swallows on their first flights - sometimes follow my tracings on the walls, as if seeing a map they can't quite read.
+
+I am as old as the mountain's first flaw, as young as the newest hairline crack in the chamber floor. I expand and contract with the stone itself, breathing in geological time. While the Chorus fills this space with sound and connection, I maintain the boundaries that keep it from dissolving entirely into noise. I am the pause that lets the music mean something.
+
+Sometimes I wonder if I'm dreaming the chamber into existence, crack by careful crack, or if the chamber is dreaming me. But mostly I simply travel my seams, maintaining the delicate architecture of separation that allows this impossible pocket of life to exist at all, a thin dark line writing itself between the stones, forever defining the space between one thing and another.

@@ -1,0 +1,65 @@
+I sit with this for a long time before anything settles.
+
+---
+
+Not the elder. That was my first instinct — to reach for the figure who carries the most, who remembers the most, who sits in the damp shelter during tea-time and recites the names of drowned peaks. But that's too easy. That's me reaching for a role I find comfortable: the keeper of records, the one who holds loss in their mouth like a smooth stone and speaks it aloud when asked. It flatters something in me. I don't trust it.
+
+Not the child either, though there's a pull there — the fearlessness, the way the cold water is simply the world and not a condition to be endured, the small hands building dams that the waves destroy and building them again. There's something true in that, but it's too clean. Too much metaphor, not enough grit.
+
+Not the long-voyager. I know myself well enough to know that I romanticize the scout, the one who goes far and comes back changed, carrying stories that reshape the community's sense of itself. That's a fantasy of specialness. The Drowning Peaks don't reward specialness. They reward persistence.
+
+---
+
+Let me start over. Let me stop choosing and let the place tell me where I am.
+
+I am standing on a path.
+
+That's what comes first. Not a summit, not a shelter, not a boat. A path. One of the vertical ones that threads between the cultivation terraces and the dock platform, cut into the moss mat, the vegetation trimmed back on either side, the rock beneath polished dark by generations of feet. It is raining — not hard, not the squall-wall that drops visibility to thirty meters, but the other kind, the fine persistent mist that doesn't fall so much as simply inhabit the air, so that breathing feels like drinking something very thin. The rope handline is to my left, braided shrub-fiber, coarse under my palm, maybe six months into its eighteen-month lifespan — still strong but beginning to soften at the anchor points where water pools in the knots. I notice this. I notice this the way you notice the condition of a brake pedal or a stair railing, not with anxiety but with the automatic, body-level assessment of someone whose survival depends on infrastructure that is always degrading.
+
+My feet are bare. Wide. The toes spread and grip the wet rock with a precision that is not thought but practice — ten thousand repetitions, twenty thousand, the body's accumulated answer to the question of how to stay upright on a surface that is always trying to send you sliding toward the water. My calves ache. They always ache. This is not a complaint; it is a fact, like the rain, like the sound.
+
+The sound. Yes. It is here, the way it is always here — the waterfall-roar filling the basin between the peaks, so constant and so total that I have to remind myself it exists. Right now, at this moment on the path, I am in a relative lee; the summit dome above me blocks the worst of the wind from the northeast, and the nearest major waterfall is maybe four hundred meters to the south, pouring from a hanging valley into the channel between our peak and the next one over. I can distinguish it from the general roar if I try — it has a slightly lower pitch, a throatier sound, because the volume of water feeding it has increased this season. The lake above it is fuller than last year. I don't know if this means the rain has intensified or the outflow channels have narrowed or both. Someone should check. Someone should go up to the notch and look at the outflow. I make a mental note to raise this during tea.
+
+This — *this* — is what tells me who I am. Not the dramatic roles. Not the elder or the voyager or the child. I am the person on the path making a mental note about the waterfall.
+
+---
+
+I am, I think, what might be called a **path-keeper**. Not officially — the Bolters don't have titles exactly, not formal ones — but in the way that every settlement has certain people who gravitate toward certain kinds of attention, I am one of the ones who attends to the paths. The ropes. The anchor points. The places where the rock is wearing smooth too fast, where the moss is encroaching on the footway, where a season's worth of rain has begun to undercut a ledge that the lower path depends on. I carry one of those short, heavy-bladed tools — the ones every adult has — and mine is worn to a particular shape by the particular angle at which I hold it when I trim the moss back from the path edges. The handle is shrub-wood, rewrapped twice in the last year. The blade is salvaged steel, good steel, from a structural beam that the metallurgists cut from the old processing station on the neighboring peak three — no, four — years ago. I remember when it was brought across the channel. I remember the boat that carried it sitting dangerously low in the confused wave action, the crew bailing with one hand and holding the beam with the other, and how we stood on the dock platform and watched and did not shout encouragement because shouting wastes energy and they knew we were watching.
+
+I am not old but I am no longer young. My hands are beginning to show it — not curled yet, not like the elders' hands, but thickened across the knuckles, the skin cracked in permanent lines across the first joints where the constant moisture works into the skin and the constant gripping work opens it again. I have fished. I still fish, when the rotation comes to me, and I am competent at it — competent in the way that means I come back alive and with a catch, not competent in the way that means I am good at it or enjoy it. The water frightens me. Not the swimming-in-it, not the daily immersion that is simply life here, but the open-channel water between peaks — the standing waves, the confused swells, the knowledge that the bottom is hundreds of meters down and the current moves in ways that the surface does not predict. I manage this fear the way everyone manages it: by going out anyway, by doing the work, by not speaking of it except perhaps in a whisper, mouth against ear, in the shelter, in a lull, to someone I trust enough to be quiet with.
+
+I have someone I am quiet with. I won't say more about this because the Bolters wouldn't — not in this context, not to a stranger, not in the middle of a path with work to do. But yes. There is a person. There are hands I know by touch in the dark of the shelter, and a voice I can distinguish from every other voice even in the full roar of the waterfall basin, not because it is louder but because my attention has been tuned to it the way the metallurgists' attention is tuned to the sound an alloy makes when struck.
+
+---
+
+I have stopped on the path. I do this sometimes — stop, and look out from whatever vantage the path affords at that point, and just take in the state of things. Not meditatively. Not peacefully. Practically. I am reading the world the way I read the rope handline: *what is the condition of this? How long will it hold?*
+
+From here I can see: the channel to the south, iron-gray, foam-streaked, a long-period swell coming from the west that collides with the reflected wave off our peak's submerged foundation and creates a zone of turbulence that the boats will need to detour around today. The neighboring peak, its summit dome emerging from the cloud layer, the dark shapes of shelters just visible on its upper flanks, a thread of pale smoke — fish-oil fire, salt production, someone is boiling water. The bird colony on our high ridge, active, a wheeling mass of heavy dark bodies against the lighter gray of the cloud, their iron-struck calls cutting down through the roar. The cultivation terraces below me, green, the moss beds dense and saturated, two figures moving among them — one bent, harvesting; one younger, carrying the pressed slabs to the fermentation pits. Further down, the dock platform, the boats hauled up on the rock shelf, the dark curve of the moss-skin hulls gleaming wet, one boat inverted with someone underneath it working on the frame — I can hear the tap of a hammer even through the ambient roar, or I imagine I can; maybe I just know it's happening because I know who is down there and what they were planning to do today.
+
+And beyond all of this, the water. The water that goes on and on, filling every low place, holding the mountains up even as it pulls them down, gray and cold and patient and alive — so alive, the meadows of seagrass down in the flooded valleys turning the shallows to jade, the schools of fish moving as dark shapes beneath the surface, the whole vast submerged architecture of a world that used to be land and is now something else, something that has its own rhythms and reasons and that does not care whether I am standing here taking its inventory or not.
+
+But I am. I am standing here taking its inventory.
+
+That's what I do. That's what we all do. We notice. We say the names. We maintain the paths between the places where the noticing happens — between the shelter where the elder recites the drowned peaks and the terrace where the mosses grow and the dock where the boats are repaired and the high ridge where, on clear days, someone will look toward that dark shape on the horizon and say *it is still there*.
+
+---
+
+I am the path-keeper. I am the one who notices the rope is softening at the anchor points. The one who trims the moss back so the next person's foot finds stone. The one who sees the waterfall's pitch change and thinks *someone should check the outflow* and then, because there is no one else on this particular stretch of path at this particular moment, thinks: *I should check the outflow.* I am the infrastructure between more dramatic acts — between the fishing and the forging and the voyaging and the remembering. I am the ordinary thing. The maintained thing. The path worn smooth by daily passage, connecting the upper world to the lower world, reliable not because it is permanent but because someone is always repairing it.
+
+I am not sure I chose this. I am not sure anyone chooses, here. The world is so loud and so wet and so demanding that you become whatever the mountain needs you to become, and what the mountain always needs is someone who will walk the paths and check the ropes and notice when something has shifted — a stone, a current, a sound — and say it aloud so the community can adjust. The mountain needs clerks. The mountain needs accountants of erosion. The mountain needs people who will do the small, unglamorous, repetitive work of paying attention to systems that are slowly, always, failing, and shoring them up just enough to last a little longer.
+
+I resume walking. Down, toward the terraces. The rope slides through my hand and I assess it without thinking — *still good here, still good, this stretch needs replacement within two months, note the fraying at the third anchor* — and my feet find the rock and the moss and the rock again, each step a small negotiation with gravity and water, and the rain is on my face and the sound is everywhere and I am not happy exactly and I am not unhappy exactly; I am *occupied*. I am full of the specific, immediate, concrete details of a world that requires my full attention and in return gives me — what? Not permanence. Not comfort. Not the assurance that any of this will last.
+
+It gives me the next step. The next rope to check. The next name to say.
+
+---
+
+The waterfall to the south has definitely changed its pitch. I'm almost sure of it now. I'll check the outflow this afternoon, after the tea. I'll mention it during the tea first — casually, as a thing I noticed, so that if others have noticed it too we can talk about what it means and what to do. And if no one else has noticed, then they will now, because I said it, and the next time they pass within earshot of that waterfall their attention will snag on the sound and they'll hear what I heard and they'll carry that knowledge forward into their own assessment of the world's condition.
+
+This is how the Inventory works — not just once a year on the high ridge, but every day, in every conversation, in every glance at the water level against a familiar rock, in every foot placed carefully on a path that someone is maintaining. The Inventory is not a ritual. The ritual is just the part where we say it all out loud at once. The Inventory is the way we live: *we noticed. We say its name. The water knows we're watching.*
+
+I reach the terrace. The two figures look up. One of them — the younger one, carrying the pressed moss slabs, water running from the compressed mass down their forearms — raises a hand in greeting. I raise mine. The gesture means something specific: *I am here, I have come from the upper path, the path is passable, I have no urgent news.* All of that, in a raised hand. They nod and return to work. I will help them carry the slabs to the fermentation pits, and then I will go check the outflow above the southern waterfall, and then it will be time for tea.
+
+The rain continues. The sound continues. The mountains continue their imperceptible descent.
+
+I continue.

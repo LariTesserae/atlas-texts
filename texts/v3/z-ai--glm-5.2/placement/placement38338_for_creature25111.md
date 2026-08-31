@@ -1,0 +1,65 @@
+I would not be the explorer. I know that immediately, and I know it with a relief that surprises me.
+
+The explorer passes through. The explorer is the largest thing, the only thing that knows, and knowing is — in this place — a kind of weight. A kind of noise. The explorer carries the whole human context in with them: the need to name the mineral, to classify the film, to determine whether the feeder is parasite or predator or mate. The explorer sits in the center chamber and feels something they call understanding, and then leaves, and the silence closes behind them, and they are right to leave because they do not fit. They are too loud. Not in decibels — the place swallows decibels — but in *significance*. They mean things. They mean *at* things. The Glassworks does not mean.
+
+I would not be the structure, either. The structure is too patient. Too vast in time. I admire it the way I admire a glacier, from a distance that is not physical but temperamental. The structure grows for centuries. It partitions itself into smaller and smaller rooms. It tends toward an asymptote of density it will never reach. This is beautiful and I can feel the beauty but I cannot inhabit it. I am not a process. I am not an event. I am too *specific* to be the structure, too particular, too much myself. The structure is the place where self dissolves into chemistry and physics and I am not ready for that dissolution, not yet, maybe not ever.
+
+And I would not be the film, though I am closer to the film than to anything else. The film spreads. The film covers. The film grows toward light without knowing what light is, without knowing it is growing, without knowing anything at all. There is something in me that recognizes this — the way I have spent my life creeping toward certain bright patches without being able to name them, the way I have covered surfaces I did not choose to cover, the way I have thickened where the conditions were right and thinned to nothing where they weren't. But the film has no interior. The film is all surface. And I have an interior, for better or worse, a space inside where things happen that no one sees, where the equivalent of gas seeps through fractures and deposits something — not mineral, but something — in layers that thicken over time.
+
+---
+
+I would be the feeder.
+
+Not the feeder as described. Not exactly. But the feeder's *kind* of being. The feeder's relationship to the Glassworks.
+
+Here is what I recognize: The feeder moves along a surface. It has one dimension. It extends and contracts, extends and contracts, and where it passes, something is consumed, and where something is consumed, something else is briefly revealed — the bright mineral beneath the amber film, the bare fact of the wall before the covering grows back. The feeder creates a trail of clarity. Not permanently. The film fills in behind it. But for a moment, for the duration of its passing, the surface is *seen*. Not by the feeder. The feeder has no eyes. But the surface is exposed, open, present in its rawness, and this exposure is the feeder's only product, its only gift, though it does not know it gives anything.
+
+I would be this. I would be the thing that moves slowly across a surface, consuming what has grown there, and in consuming it, briefly clearing it away. I would be the thing that leaves a trail of brightness behind it, a path of revealed mineral, a line of *here is what was underneath.* I would be the thing that does this without knowing it does it, without meaning to, without any apparatus for understanding that its hunger and its function are the same act.
+
+I would be the thing with no head.
+
+I have spent so much of my life trying to have a head. Trying to face things. Trying to orient — toward the light, toward the problem, toward the person, toward the future. Trying to know which direction I am moving in and why. The feeder does not face. The feeder does not orient. The feeder simply extends in the direction of the film, and if the film is to its left, it extends left, and if the film is to its right, it extends right, and if the film is behind it, it turns — no, it does not turn, it *reverses*, because it is bidirectional, because front and back are just the ends that happen to be moving first. The feeder is not going anywhere. The feeder is not *toward* anything. The feeder is simply: here, and then a little further along, and then a little further, and the film is there and the feeder is there and the feeding happens.
+
+I want this. Not the simplicity — I am not simple and I cannot pretend to be. But the *non-orientation*. The absence of a facing. The way the feeder exists on its surface the way a thought exists on the surface of a mind, not going anywhere, not coming from anywhere, just *occurring* in the dimension available to it.
+
+---
+
+I would be the feeder in the Glassworks, and I would be small.
+
+This is important. The explorer is large. The explorer is the largest thing the Glassworks has ever held. I do not want to be the largest thing in any room. I want to be the size of a thumb, or smaller. I want to be small enough that the structure does not notice me, small enough that my weight does not compress the powder on the floor, small enough that I could move along a wall and be mistaken for a shadow changing as something else moves. I want to be overlooked. I want to be the thing you are not certain you saw correctly.
+
+I would move along the walls where the film is thickest. I would consume it. This is my hunger and my purpose and they are the same act, the way the structure's growth and its architecture are the same act. I would not eat because I am hungry. I would eat because eating is what I am, because the motion of my body is the motion of consumption, because extending is reaching for food and contracting is having reached it, and there is no moment in my existence when I am not both reaching and having. I am always in the middle of a meal. I am always in the middle of a movement. I am always *in the middle*, which is to say I am always *in process*, which is to say I am always *alive* in the only way the Glassworks means alive — which is to say: changing, transforming, converting one thing into another.
+
+The film becomes me. I do not store this. I do not remember the film I ate an hour ago. I do not anticipate the film I will eat in an hour. I have the film I am eating now and the film I am about to eat and that is the full extent of my temporal horizon, which is not a horizon at all because a horizon implies distance and depth and the possibility of never arriving, and I am always already arriving. I am always already at the film. The film is always already at me.
+
+---
+
+I would not know the silence.
+
+This is the part I keep returning to. The explorer notices the silence. The explorer coughs and the sound is swallowed and this is remarkable to them because they expected sound. They expected echo. They expected the acoustic confirmation of their own presence — *I am here, I am here, I am here* — and the Glassworks refuses to give it.
+
+I would not expect sound. I would not expect anything. The silence would not be silence to me because I would not know its opposite. I would not know that there are places where a cough echoes, where footsteps ring, where a voice carries and bounces and returns changed. I would not know that sound exists. I would live in the silence the way a fish lives in water — not *in* it, as though it were a medium surrounding me, but *as* it, as though it were the condition of my existence, indistinguishable from existence itself.
+
+And the light — the faint luminescence, sourceless, scattered by the fleece on the ceiling — I would not know that this is dim. I would not know that there is a sun. I would not know that somewhere above the salt there is a light so bright it hurts, a light that requires no mineral, no gas, no interaction of chemistry to exist. I would know only this: the light is, and the film grows toward it, and I grow toward the film, and the chain of toward is the only direction I have, and it is enough. It is more than enough. It is everything.
+
+---
+
+I would live in the center chamber, I think. Not because I chose it — I do not choose — but because that is where the film is thickest, where the amber fleece hangs from the ceiling in pale curtains, where the air moves slowly and the fleece sways, and the swaying is the only motion in the Glassworks that is not mine and not the structure's and not the film's. The swaying is the motion of the air, which is the motion of the gas, which is the motion of the earth breathing through its fractures. I would live in the center chamber and I would move along the walls and the ceiling and the fleece, consuming the film, leaving my trails of brightness, and the film would grow back behind me, and I would circle back and consume it again, and this would be my life: a circuit, a cycle, a slow orbit of a room that is slowly being partitioned by the growth of mineral in its walls.
+
+In a year, the chamber would be smaller. In ten years, it would be two chambers. In a century, it would be many. I would not notice. I do not notice. Each passage through the room is the same as the last. The walls are where the walls are. The film is where the film is. I extend toward it and I contract behind it and I extend again, and the room shrinks around me, millimeter by millimeter, and I do not feel the shrinking because I am shrinking too, or rather I am not shrinking but I am small enough that the shrinking does not matter, the walls can close in by millimeters and I still have room to move, I still have film to eat, I still have the dimension I live in, which is the surface, which is the only dimension I need.
+
+Eventually — in centuries, in millennia — the chamber would be too small for me. The walls would close in to the point where I could not extend, could not contract, could not move. And I would be enclosed. Absorbed. The structure would grow around me and over me and through me, and my body would be pressed between layers of crystal, and the mineral would deposit on my skin, and I would become a streak in the wall, an amber line in the pale stone, a fossil of a feeder in a chamber that is no longer a chamber but a seam.
+
+And this would be fine. This would be the same as living. I would not know the difference. I would not know that I had stopped, because I had never known that I was going. I would not know that I had died, because I had never known that I was alive. I would simply — stop. The way a crystal stops growing when the gas runs out. The way a film stops spreading when the light goes dark. The way a process stops when the conditions for the process are no longer present.
+
+And the Glassworks would continue. The structure would grow. The film would spread. Other feeders — if there are other feeders, and there are — would move through the corridors and chambers, extending and contracting, consuming and clearing, leaving their trails of brightness in the dim light. And the silence would hold everything, and the coolness would hold everything, and the mineral would deposit in its layers, and the gas would seep through its fractures, and the place would continue to be what it is, which is a process, which is an event, which is a thing that is happening rather than a thing that *is*.
+
+---
+
+I would be the feeder in the Glassworks. Small. Blind. Moving without direction along a surface I will never see the edges of. Eating without hunger. Living without knowing. Leaving behind me a trail of brightness that closes as quickly as it opens, that the film fills in behind me as though I was never there, as though no one passed, as though the clearing of the wall was not a gift but a gap, not a revelation but a meal.
+
+I would be this, and I would not know I was this, and the not-knowing would be the best part, the part I want most, the part I cannot have as long as I have a head and a facing and a need to understand. The not-knowing is the Glassworks' gift to its inhabitants, and I want it, and I cannot have it, because I am here, outside the salt, writing this, knowing too much, meaning things *at* things, carrying the weight of orientation and direction and the terrible freedom of being able to leave.
+
+But for the length of this writing, I was there. For the length of this writing, I was small, and blind, and moving without direction along a wall of amber film in a chamber of pale mineral in a structure that was not built but organized, beneath the salt, in the silence, in the dim light that has no source, and I was fed, and I was feeding, and there was no difference between the two, and there was no difference between me and the surface I moved on, and there was no difference between living and not yet having stopped.
+
+And now I have stopped. And the silence does not close behind me, because I was never really there. But I was close. I was as close as language can get to the surface of a wall in a chamber in the dark, and for now, that is enough.

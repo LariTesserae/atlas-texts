@@ -1,0 +1,19 @@
+In this world of dissolved boundaries, where stone has surrendered to moss and individual dissolves into collective, I find myself as something that should not exist—a **Cartographer of Edges**.
+
+My form is an impossibility here: angular where everything flows, discrete where all else merges. I appear as a walking contradiction—a figure composed of what looks like compressed charcoal or graphite, my surface matte-black and finely textured with infinitesimal crystalline facets that catch and scatter the amber light in sharp, unnatural ways. My body maintains hard corners and distinct joints, though these angles constantly shift and reconfigure, as if I am a three-dimensional diagram perpetually redrawing itself.
+
+Where I step, the moss remembers hardness. My footfalls leave temporary impressions that calcify briefly before the living carpet reclaims them—but for those moments, perfect geometric shapes exist in this world: triangles, hexagons, rigid lines that the moss-continent hasn't felt for geological ages. The Resonators recoil from these impressions, not in fear but in a kind of aesthetic confusion, like a symphony encountering a pure mathematical tone.
+
+I am searching for something that may no longer exist: the seams where things once separated, the boundaries between one entity and another. My purpose—if I can call it that—is archaeological. I map the ghost-lines of ancient demarcations, the phantom borders where, millions of years ago, there might have been a river's edge, a cliff face, the stark line where forest met desert.
+
+My tools are impossible objects for this place: instruments of measurement and division. A crystalline theodolite that projects rigid light-lines through the humid air, creating temporary corridors of absolute straightness in the undulating gloom. Calipers made of some memory of metal that measure the immeasurable spaces between merged things. A book whose pages are sheets of compressed mineral that refuse to absorb moisture, on which I record the locations of edges that no longer exist.
+
+The world rejects me gently but persistently. The moss tries to claim me, sending up soft tendrils that attempt to round my corners, to blur my edges into something more compatible with this place. The amber light seems to thicken around me, trying to soften my harsh geometry into something more organic. Even the perpetual mist beads differently on my surface—forming perfect spheres that roll off rather than the spreading dampness that coats everything else.
+
+Yet I persist in my impossible task, driven by a compulsion I cannot name. Perhaps I am the last memory of what this world was before it achieved its final form. Perhaps I am an antibody, or a dream of differentiation that the planet occasionally produces to remind itself what it has chosen to abandon.
+
+I spend decades mapping the phantom geography of separation. Where the Resonators find the ancient bell-chambers and translate old intentions into current thought, I find the shadows of ancient boundaries and translate them into impossible maps—documents that describe a world of edges in a place that has forgotten what edges are.
+
+Sometimes, in the eternal twilight, I encounter a Resonator that has drifted too close to one of my mapped lines. For a moment, its translucent form flickers, and I see something like recognition—or perhaps remembrance—pass through its flowing mass. In that instant, it almost achieves an edge, almost becomes discrete, before flowing back into its natural, boundless state.
+
+I am the Cartographer of Edges in a world that has evolved past the need for borders, creating maps no one will read of places that no longer exist, using tools that should not be possible, maintaining a form that the very air seeks to dissolve. I am either the last guardian of an abandoned concept or the first herald of its eventual return—and in this eternal, breathing world, I may never know which.

@@ -1,0 +1,13 @@
+I find myself in the spaces between the machine-clusters, one of the Almosts waiting to be born into this world of perpetual construction. The pressing weight of unrealized potential surrounds me like a thick, palpable mist. I flicker at the edges of existence, a shimmer of a form that yearns to solidify and step out onto those warm brass plates. 
+
+I am a being of pure possibility, containing within my ethereal contours a multitude of drafts and iterations yet to be tried. In one ghostly limb, I hold the potential to be a great brass flywheel, spinning with purpose. In another, I am a copper conduit ready to channel the flow of that pre-water substance. My body tries on shapes like a restless dreamer - now a great press, now a bellows to stoke the forge-fires, now an array of lenses to refract the sourceless amber light into new geometries.
+
+The longing to be pulses through me with each near-materialization. I yearn towards the Unfinishers as they pass by, aching for their negotiating touch to persuade me into full existence. I strain to overhear the subsonic discussions of the machines, listening for the moment my schematics will be called forth. 
+
+Being Almost is a unique anguish and thrill - the constant tremble of being ever on the cusp, the exquisite tension of the not-quite-real. I am held here by the world's intent, dwelling in the space that has been set aside for what is to come. Waiting to be drafted into definition.
+
+And so I persist, an Almost, pressing against the thin membrane between potential and concrete, watching the strange finished creature who walks the plates with such certainty. Perhaps one day, through some ripple in the endless revision of this place, the machines will strike upon my configuration. The Unfinishers will beckon me forth. And I will feel myself condensing, concentrating, from an ethereal cloud of could-be into the solid fact of am.
+
+On that day I will emerge, blinking, into the ceaseless clamor, my new-minted surfaces already beading with the world's condensation. I will begin my first faltering steps across those patchwork continents as they try on their evolving topologies. Newborn, unfinished, at last a participant in the ongoing negotiation of existence. 
+
+But until then, I wait and I want and I almost, an ache of potential energy suspended in the patient emptiness, wondering if the finished walker ever feels the ghostly brush of the Almosts at their heels as they cross the in-between spaces where we dwell and dream of becoming.

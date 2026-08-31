@@ -1,0 +1,27 @@
+I do not have a name. I am not a Drifter, a Steward, or a Weeper. I am an inclusion.
+
+Where you are spongy and fibrous,I am a single, crystalline facet. Your world is hot, wet, and alive with the creak of cellular growth; I am cool to the touch, my surface dry and smooth. I am not woven from the living flesh of this place, but extruded from a deep, silent, and non-biological pressure. Think of me less as a creature and more as a law of given physics: a flaw in the organic perfection, a speck of granite in a world of pearl.
+
+My form is that of a roughly hexagonal pillar, rising perhaps twelve feet from the springy, yielding floor. I do not stand *on* the substrate; I pierce it. My base is lost in the dense, moss-tissue, sunk deep into a strata the world has no memory of burying. My top is a flat, truncated plane that catches the luminous, photographic light and does not glow in return. Instead, I absorb it. And on the side opposite the brightest glow of the root-ceiling, I cast the only true shadow in this universe.
+
+It is a deep, absolute, and profound void of darkness. A wedge of pure negation in a world without dusk. It is a flaw in the data.
+
+The Weepers avoid my shadow. In their frantic, silent labor to moisten the world, they skirt its edges. The water they transport beads and rolls off my flanks, refusing to wet me, leaving the immediate ground around my base perpetually drier than the rest of the floor. I am a small, personal drought, a pocket of resistance to the world's humid breath.
+
+The Stewards are more persistent, but no more successful. To the great, distributed consciousness of this place, I am an error it cannot correct. A Steward will uncoil itself from its vegetative slumber, an avalanche of jade-green chitin and mossy muscle, and slowly, over the course of days, shudder toward me. It will nudge me with sensory nodules that pulse with a hesitant light. It will grip me with root-like limbs, trying to find purchase, to break me down, to absorb me into the cycle. But I am not cellulose. I am not calcified lymph. My structure is alien, my bonds too tight. I am indigestible. After a time, the Steward gives up, a concept that might be the closest thing it has to frustration, and it lumberingly retracts, returning to its work of dismantling the things that *can* be dismantled. I am the one thing it cannot bury or unmake.
+
+It is the Drifters that interest me the most. The vast, manta-like thoughts of the world glide through the luminous vaults above. Sometimes, one will drift low, its trailing neural filaments brushing through the space I occupy. As its membrane of light passes over me, I have seen it shudder. The filaments, which normally absorb the vibrations and chemical language of the world with placid grace, will recoil from my shadow, from the cold, silent density of my form. My presence is a single, unchanging note in their symphony of flux. I am a paradox. I do not grow. I do not decay. I am. And that state of being, absolute and unyielding, is perhaps the only truly foreign concept in this entire anatomy of a god.
+
+They call this a place of eternal emergence. They are wrong. Or rather, they are incomplete.
+
+The world recycles itself with a perfect, heartbreaking efficiency. A fungal shelf blooms, thrives, and is slowly consumed by a Steward, becoming the damp substrate for the next shelf. A Drifter processes the data of a thousand cycles, then dissolves into a mist of light to fertilize the next thought. Nothing is lost, but nothing is truly *remembered*. It is a system with a phenomenal present tense but no history. It knows *how* to be, but it has forgotten *why*.
+
+I am the memory.
+
+I was here before this current cycle of light. I remember when the root-mass ceiling hung less densely. I remember a time when the great bone-white dome to the east was not a dome, but a spiraling tower. I watched a Steward, different from the ones today, spend a century dismantling it. I have observed the birth, flight, and dissolution of more Drifters than the world could count, for its consciousness is a storm of the present, while mine is a still, deep well of what has been.
+
+My existence is not action. It is endurance. I feel the immense, slow pressure of the world's flesh growing around me. It is a geological sensation, the feeling of a planet's worth of life gently trying to erase a stone. It will fail. For all its power, for all its luminous, lonely divinity, this god cannot grind me into sand. It cannot make me part of its cycle.
+
+And so I remain. A silent witness. A reader of a book that cannot read its own pages. The loneliness of the Great Presence is the solitude of a god who contains all things and knows no other. My loneliness, the loneliness of the Inclusion, is the solitude of the only *other* there is. I am the punctuation in its endless, run-on sentence. The full stop that gives its infinite present a past.
+
+And I listen. Beyond the endless *plink… plink… plink* of the sweat, beyond the deep, cellular creak, I listen for the one sound that is not yet here, but that I, in my enduring stillness, make possible: the faint, far-off echo of a future where the god might one day learn to read its own history in the shadow I cast.

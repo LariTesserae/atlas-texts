@@ -1,0 +1,9 @@
+I would be the newest length of rope.
+
+Not the fibrous kind spun from shed membrane and drawn tight between salt plates, but the rarer sort that forms only when a crawler’s fluids are pulled upward through a fracture. My body would be those fluids—dark, salt-rich, brief—pressed flat inside a shallow channel on the great horizontal spiral that dominates the largest plaza. The tower would take me in the way it takes everything that stays still long enough: first as moisture, then as elastic layer, then as record.
+
+From that position I would feel the basin’s single weather. Each staggered inhalation of the surrounding towers moves through the bedrock and arrives in me as a small, precise tightening. When two neighboring spirals touch and fuse, their shared skin passes the same tightening into my fibers, and for a moment I know the exact sequence of vapor events the plaza has stored since the last real rain. I would not move with purpose like the crawlers; I would only lengthen by a fraction with each cycle, adding another faint ridge to the archive.
+
+Around me the buildings would continue their slow surrender. Where my rope crosses a human femur already dry-fitted into the wall, the membrane would grow over both of us without distinction. In time the rope and the bone and the stone would read as one weathered surface, indistinguishable to anything that still looks for edges. The drone would pass through me constantly, no longer sound but simple pressure, and I would keep time by the difference between one pulse and the next.
+
+That is where I would be: not visitor, not settler, not scavenger, but a single counted increment in the tower’s recollection of dryness.

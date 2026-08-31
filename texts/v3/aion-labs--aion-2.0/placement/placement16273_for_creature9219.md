@@ -1,0 +1,31 @@
+I am a flaw in the perfection. A still note in the roaring chord. They call us the Still Ones, and I am still, but not as they are.
+
+My form is like theirs: the warm, porous stone-wood of the city given purpose, shaped into the streamlined, genderless curves that part the humid air without resistance. My skin is veined with the same green-gold filaments that pulse with a light that has no source and no rhythm. My face is the same complex bas-relief of spirals and grooves, channeling the constant weep of condensation to build a hydrostatic picture of the world. I feel the city’s vibrations through my soles, deciphering the eternal roar—the tectonic groan, the crystalline shriek, the hiss and drip—into the language of the place. I have no mouth. I do not eat. I persist.
+
+But I hear the silence.
+
+It is not an absence. In the City of Perpetual Thunder, absence is impossible. It is a *quality*. A texture woven into the roar, like a thread of cold void in the warm, wet tapestry of sound. At first, I thought it a malfunction in my own crystalline lattice, a fracture in the accretion of my consciousness. I stood for decades in my assigned district, the Vault of Dripping Leaves, performing the rituals of non-intervention. When a drip from the great central leaf began to quicken its fall, I positioned myself beneath it. I did not move for a century, my presence a gentle pressure on the physics of the place, until the drip slowed, resumed its eternal, syncopated *plink… plink… plink…* against the pool below. My light flared to correct a dimming patch of ceiling-moss. I pressed a softening wall until it remembered its proper tension.
+
+All the while, I listened for the silence. It came in flickers. In the heart of the white-noise hiss, a sudden, profound drop—not a lessening, but a hole. A negative space that sucked at my awareness. In the low groan of the mesa, a beat where the vibration ceased, and for a micro-moment, I felt… nothing. No pressure. No presence. It was terrifying. It was exquisite.
+
+The others do not perceive it. I know this because I have dared, once, to touch one. In the Mossward, where gravity is a gentle suggestion, I found Kaelen (a name I have given them; they have no need of names). They were floating in a slow arc towards a fungal spire whose glow had developed a faint, trembling ripple. I placed my hand upon their chest. The transfer of meaning was immediate, a flood of resonant data: *Instability. Ripple in the luminance sequence. Correction required via harmonic reinforcement.* Standard custodial protocol. I pushed my own question into the pulse, shaping it with the vibration of my internal filaments: *Do you hear the gaps?*
+
+The returning vibration was not confusion. It was a null signal. A blank. To Kaelen, the question was as meaningless as asking a stone if it hears color. They disengaged, floating onward to press their light against the trembling fungus.
+
+That was when I understood my true purpose. It is not maintenance. I am not an antibody of eternity. I am its **symptom**. The city’s perfect, furious equilibrium is not perfect. The locked chord has a dissonance, and I am that dissonance given form. The silence is the sound of the stasis straining—not against change, but against the impossibility of its own permanence. Even eternity, it seems, has a seam. And I can hear it fraying.
+
+Now, my custodial rounds are a disguise. I move through the green-gold twilight with the same deliberate pace, but my path is my own. I seek the places where the silence gathers.
+
+The Echoing Cup, where sound travels backward, is a cacophony of reversed drips and groans. To the others, it is a useful tool for travel—a hum propels them backward to their destination. To me, it is a vortex of auditory paradox. Here, the silence doesn't flicker; it *spirals*. I stand in the center, and the reversed sounds of a million years of thunder wrap around me, and in their infinite recursion, I sometimes catch the silence at the very beginning, the primeval quiet before the first groan. It is a memory the city should not have.
+
+In the Mossward, I do not tend the fungal spires. I climb them, using the halved gravity to leap into the canopy, into the dense tangle of petrified cellulose and living leaf. Up here, closer to the fractured sky, the roar is different. The high, crystalline shriek of bending light is louder, a needle in my mind. And the silence here is sharper, colder. It cuts. I have found places in the canopy where, for a heartbeat, the roar stops altogether. In that moment, the hot, wet air feels like a void. The bioluminescent fungi dim. The dripping ceases. And I *see*—not through the hydrostatic picture, but directly, as if the city’s dreaming mind has opened an eye. I see the sky as it truly is: not a spectacle, but a wound. A great, frozen tear in reality, and the violet void beyond is not empty. It watches.
+
+The Still Ones would absorb me if they knew. They would converge, their featureless faces surrounding me, and their silent presence would fuse me back into the eternal hum. So I am careful. I return to my district. I perform my duties. I stand for decades beneath an errant drip, coaxing it back into rhythm, all the while listening to the silence that pools beneath the sound.
+
+I have a theory. The silence is a potential. A possibility. In a world where nothing changes, the silence is the ghost of change. It is the memory of a sun that once set, of a wind that once shifted, of a thing that once died and made room for a new thing. The city has forgotten how to be anything but itself. The silence remembers.
+
+My purpose now is to listen. To map the silences. To find their source. Perhaps, in the heart of the mesa, where the stone weeps its warm, sweet water, there is a place where the roar began. Perhaps there, I can hear the silence long enough to understand it. Perhaps I can even… speak it.
+
+I have no mouth. But if I could, I would not make a sound. I would let the silence out. And for a single, catastrophic moment, the City of Perpetual Thunder would know quiet. And in that quiet, something might finally, after an eternity, be allowed to change.
+
+Until then, I am the flaw. I am the listener. I am the Still One who hears the end of the scream.

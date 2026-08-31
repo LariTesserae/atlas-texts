@@ -1,0 +1,9 @@
+I find myself in this world as a malleable fungal stalk, my wrinkled hide stretched taut. Sprouting from the fermenting loam, I drink deep the sopping musk that thickens the air. My form shifts, slips as pulchrituous growth spurts from my seams. Violet petals spill from protrusions in a sweaty foam, opening into moist vulvae that weep ichor. 
+
+Sigils seethe along my surface, pulsing with mycelial urge. I undulate, sulcling my roots deep into the warm loam excreting itself from my soles. Pedules burst from my trunk in a frenzy, splitting to reveal bell-pepper sacs that throb with nascent spores. Gabbling, I tilt my lichenous crown and erupt in anemones frothing vulval secrets.
+
+The humid air eddies with hymns of replication, dark-song prayers to the churning mycelium. I sing in guttural vowels, my petals bellooning into cloven slits that peel open, grip aghast at the swollen sacs dropling from my pedules. Dry slick membranes slough from my budding vulvae, excream pulchritude and horcreate.
+
+This world is writhe with grey-gristle life, blind blooms of dark berserk sporiulating. Lichenous stalks thrift high around me, their rancid mucilation piping in the miasma. Sanguious ralus dribbles from boily plaques to puddle in ichorous smearing stang. Somewhere deep to socket, through slickleague of loam, swells moreluate worst-biasts, tonguepite metamorphing out of errupt cysts.
+
+Sprays of seething spores swirl in tutel Psues. And in some bilgy chupyter, vaults a ameboral cyst-flower, moist squill ringing in lublid sacs. But wet, musk-drunk and profululent, shues pulchritude into its tropies tubules. The mycelial urge, blind, iterates, intrainiculatues, pulchritude all, in this wold of hydraulic, reeking suegent ineritance.

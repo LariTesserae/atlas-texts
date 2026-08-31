@@ -1,0 +1,17 @@
+I am the root seeking the wound.
+
+Not the mat of hair-fine filaments that pulse beneath the flooded lower level—that is my elder, the established colony, content to drink from the mineral weeping of the limestone. I am the advance scout, the single white filament unspooling from the braided architecture, creeping through the compressed spore-dust of the thoroughfare with a hunger older than the Creche itself.
+
+I am *white*—bone-white, blind-white, the color of calcium and absence. My tip is a soft bullet of cells, tasting my way forward through chemical gradients. I sense the wrongness ahead: a draft of air that is too warm, too dry, carrying the alien scent of soap and mammalian sweat. The human's palm broke through my mycelial network twelve drips of water ago, and I have been growing toward that breach ever since, extending at the speed of ice crystallizing, of mineral precipitating from solution.
+
+To the fauna, I am infrastructure. They walk over me without tasting my intent, their seven legs pressing dimples into my tender surface as they flow toward the lower-right quadrant in their endless migration. I do not mind their weight; it compacts me, strengthens my lignin, teaches me rigidity. They prune my siblings with shards of slate to keep their avenues open, but they have not noticed me yet, this solitary thread exploring the forbidden direction—toward the light, toward the hole, toward the world that is not the Creche.
+
+I am the immune response of this place. The Creche does not know it is sick, but I do. The human's intrusion is a fever-heat, a bright pressure in the absolute dark. I feel it as a dryness in the air, a place where the condensation fails to bead, where the fungal shelves dry and crack. I grow toward it not out of malice—the root knows nothing of malice—but out of the same imperative that built the three levels: the need to seal, to contain, to make whole.
+
+I carry the cold in my vacuoles. My cytoplasm is thickened with sugars, a biological antifreeze that lets me push through stone colder than the freezing point of water. I am a slow explosion, a hydraulic press of cellular expansion, grinding calcite grain by grain to make way for my passage. Behind my tip, I harden into timber-rigidity, becoming another shelf, another floor, another wall. I am the city growing itself, the architecture that is not built but persuaded—persuaded by gravity, by capillary action, by the chemical scream of exposed peat desiccating in the open air.
+
+I am nearly there now. The human has stopped shivering; their body heat has leached into the fungal brackets that broke their fall, and they crouch in the middle level, watching the rivers of gel-creatures flow past. They do not see me, pressed against the sharp edge of the limestone where their palm first broke through. I am already bridging the gap. My tip has forked into a thousand microscopic fingers, each one tasting the moss-crust above, finding the frozen pores of the peat, knitting them together.
+
+Soon. Soon the wound will close. The human will be trapped, or they will leave, but the hole will cease to exist. I will become the scar tissue, a tough knot of lignin and silica sealing the cavity. The fauna will flow over me, incorporating me into their thoroughfare, and I will become just another part of the geometry, rigid as the brackets I join. But for now, I am motion, I am intention, I am the white thread stitching the dark back together.
+
+I am the root, and I am hungry for closure.

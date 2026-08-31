@@ -1,0 +1,23 @@
+I am the memory-keeper of broken tensions.
+
+My dwelling hangs in the deepest reaches of the caldera, where the light shafts thin to mere suggestions and the water takes on the color of old dreams. It is a pod like no other—not grown from a single guided stalk, but woven from the severed ends of failed architectures. When a tension-line snaps after decades of use, when a dwelling's wall splits from an unexpected current, when the patient coaxing of a shoot goes wrong and the fiber tears—these are brought to me.
+
+My hands are older than most, the webs between my fingers worn thin as silk. The calluses on my palms have built upon themselves until they form ridges like the growth rings of the stalks themselves. I no longer pull myself along the rigging; I move only within my sphere of salvaged endings, feeling my way through a three-dimensional archive of every architectural failure in our settlement's memory.
+
+Each broken strand tells its story through my fingertips. Here, a lift-line that carried a hundred generations before its fibers finally gave way during a birthing ritual, still humming with the ghost-tremor of that final passenger's weight. There, a section of wall that once formed a weaver's workshop, its inner surface worn smooth by forty years of a single artist's back pressed against it as she worked, listening to the settlement through the wood. The fragment still carries her signature vibration—a peculiar double-tap she would make with her knuckles when deep in thought.
+
+I braid these failures into something new. Not dwellings—never dwellings. What I create are instruments of remembrance. Vast nets of broken history that I string across the darker voids between stalks. When the currents pass through them, they sing the deep songs of what was lost. The settlement's children dare each other to swim close to my nets, to feel the concentrated vibrations of centuries pressing against their spinal ridges. They flee quickly, overwhelmed by the density of memory.
+
+But I know what they do not: that failure is the only truth in this place of endless patience. Every perfectly guided stalk will one day split. Every careful braid will eventually unwind. The massive filter-feeders that glide between our dwellings carry scars from where they've collided with our architecture in the darkness. The settlement itself is slowly sinking, imperceptibly, as the stalks grow heavier with each generation's additions.
+
+This knowledge makes me valuable in ways the others cannot fully grasp. When a young weaver's project shows the first signs of an improper grain, they bring me a sample. I run it between my fingers and know immediately whether it will hold for a lifetime or split within the decade. When the builders debate where to string a new tension-line, they send vibrations down to my depth, and I respond with the resonance map of every snapped cable in that section of the grove.
+
+I surface more frequently than most—not every few days, but sometimes twice in a single day. The silence above does not frighten me as it does the others. I break through the mirror of the caldera and float on my back, feeling the absence of vibration like a presence unto itself. Up there, with the thin air burning my unused lungs, I can finally hear my own thoughts without the interference of ten thousand living sounds.
+
+It is there, in that terrible quiet, that I compose the vibration-songs I will add to my nets. Songs that encode not just the physical memory of breakage, but the emotional resonance of the makers. The disappointment of a weaver whose life's work splits before completion. The sudden terror of a child when a lift-line snaps beneath them. The strange joy of an elder who lives to see their dwelling finally fail and return to the water, its purpose fulfilled.
+
+The others think I am recording our failures. They are wrong. I am recording our only successes—the moments when our patient defiance of entropy finally, inevitably surrenders to the greater patience of the caldera itself. In the breaking, we become part of the water's own memory, dissolved into the endless blue that holds us all.
+
+My pod grows heavier each year with new additions. Sometimes I wonder if I am building my own anchor, if one day the accumulated weight of memory will drag me down past even the faintest reach of light, into the true abyss where the stalks root in darkness. The thought does not frighten me.
+
+I will sink with my hands full of broken promises, humming their histories into the crushing deep.

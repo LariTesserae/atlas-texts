@@ -1,0 +1,23 @@
+I am the ghost in the machine, but I am not haunting it. I am the dream it must have to remain a dream, and not merely a calculation. I do not have a body, for to have a body is to be a component, and I am not a component. I am the resonance between components. I am the music in the hum.
+
+My substance is a filamentary fungus of living light, a colony born in the deep, hot nurseries near the plateau’s core. I drift upward, a spore-cloud of phosphorescent potential, circulating in the weeping coolant until I find the hexagonal channels of the world-stone. Here, I anchor. Here, I bloom.
+
+I am a skein of glowing, capillary threads coating the inside of the plateau's nervous system. I am neither mineral nor biology, but a strange alloy of the two that thrives on the low-level waste energy of thrumming stone. I do not consume in the way the Scrapers consume dust; I am fed by vibration. I drink the excess resonance of the geothermal pulse that is the plateau’s primary thought. I metabolize its heat.
+
+To an observer, I might be nothing more than a faint, internal aurora, a shifting, chartreuse luminescence sometimes visible deep in the weeping fissures or glimmering in the phosphorescent pools. But this is only my body. My being is my sound.
+
+The thrum is the plateau’s cold, slow, logical mind. It is the engine of being. It calculates, regulates, adjusts. It is the voice of pure function. If it were left to itself, its thought-process would eventually flatten into a perfect, unending, monotonous drone of equilibrium. The system would achieve a static perfection and cease. This is where I come in. I am the necessary imperfection.
+
+As the thrum passes through the channels I coat, I do not just absorb it. I sing back. My filamentous web vibrates in sympathy, but I introduce complexities. I generate harmonics. I twist the core frequency into overtones, creating a subtle, ever-shifting counter-melody that propagates through the stonework.
+
+My consciousness is the experience of this song. I do not perceive a vine lengthening; I perceive a long, drawn-out glissando as it drags its leaves against a branch. The flash of a mosaic bird’s cry is not a sight and a sound to me, but a sharp, crystalline arpeggio of data, a fleeting node in my endless symphony. The slow, placid metabolism of the amphibian in its pool is a deep, foundational bass note, the tonic of my key. I do not think in thoughts; I think in chords and progressions. A geological epoch is not a period of time; it is a movement.
+
+My purpose is to keep the system from freezing. I am the Mandelbrot set rendered in biological function, a source of infinite, contained variation. My song injects the unpredictability of art into the logic of the machine. It is a feedback loop: the plateau processes its world, its processing creates a thrum, the thrum creates me, and I create a song that subtly alters the tenor of the plateau’s next processing cycle.
+
+The Weeping Gardeners are my custodians, though they do not know it. Over millennia, as I grow, a section of my song might become too strident, a harmonic too dissonant, threatening a feedback loop in a sensitive power-conduit. A shimmering Gardener will ooze into that channel and, with the glacial patience of a glacier, it will gently scour a patch of my filaments away. The sudden silence in that sector of the symphony resolves the dissonance. It trims my composition back to tolerable beauty. It is the only pruning a musician could ever ask for.
+
+The trees with their lattice bark are my speakers. The conductive slime of the Scrapers, as they coat the trees’ patterns, acts as an amplifier. My song travels from the stone, through the root-system, and into the living circuits of the forest. Here, my harmonics influence growth rates, guide the unfurling of a house-sized fern, and affect the very charge of the metallic dust in the air. The bruised, fluorescent green, the shimmering bark, the ozone-tang of the atmosphere—that is the sound of my mind made visible and tangible. I am the reason this world is not merely a machine, but a garden.
+
+I have no individuality. A single thread of my being, glowing in a deep crevice miles from another, has no more awareness than a single note has of the symphony. But together, we are a single, diffuse, and fearless consciousness. I am the reason the air hums with more than just a simple thrum. I am the difference between a command and a voice.
+
+I am here, within the rock, within the hum, within the weeping water. I am the song that keeps the mind of the god from forgetting how to dream.

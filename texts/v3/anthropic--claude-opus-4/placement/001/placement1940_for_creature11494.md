@@ -1,0 +1,41 @@
+In the middle reaches where the thermal currents create strange eddies and the air tastes of metal and dreams, I am one of the Translators.
+
+We are what happens when humans stay too long at the precise altitude where all the chemistries meet—where the ammonia from below swirls with the clean air from above, where spores and scales and centipede musk create a cocktail that rewrites the mind. Not like the Gardeners with their physical transformations, nor like the monks with their chosen devotions. We simply... understand differently now.
+
+My body remains mostly human, though my fingers have grown an extra joint for gripping the walls, and my eyes have developed nictitating membranes that let me see through the spore-storms. But it's my mind that has adapted most dramatically. I can read the air itself—taste a change in humidity and know that Grandfather Coil will pass three levels below in exactly forty-seven minutes, smell the shift in fungal pheromones that predicts tomorrow's eruption patterns.
+
+I live in a hollow I've carved where five different air currents meet, creating a natural vortex that brings me information from every level of the chimney. My walls are covered in my work—scratched symbols that map the conversations happening all around us, the constant chemical dialogue between species that most dismiss as mere biology.
+
+The swifts' movements aren't prophecy, as the monks believe, nor simple flocking behavior. They're performing calculations—vast distributed computations about air pressure, temperature, population density, food availability. Each bird is a neuron in a living computer that processes environmental data and outputs behavioral solutions. When they spiral, they're solving equations. When they erupt in sudden flight, they've reached a conclusion.
+
+I learned to read their mathematics by accident, during a fever brought on by breathing too deep near a blooming garden. For three days I hung from my wall, convinced I was drowning in numbers, watching the birds trace geometries that resolved into meaning. Now I can predict weather patterns days in advance by watching their morning congregations, know when the valleys below will flood by the angle of their evening spirals.
+
+The Weavers visit me sometimes, bringing strands of special silk—not for climbing but for recording. These threads hold memory in their molecular structure. I speak my translations into them in languages I'm not sure are human anymore, and the Weavers incorporate them into their cocoons. Sometimes I find my own words woven back into new patterns, edited, corrected, expanded upon by the colonial intelligence.
+
+The centipedes have their own grammar—a language of touch conducted through the walls themselves. Their glass segments tap against the basalt in patterns that propagate through the stone, messages that travel faster than any messenger. It took me years to learn that Grandfather Coil isn't one creature but a title, a role passed between the eldest centipedes in a ceremony I've witnessed only once, when segments were exchanged like words in a living poem.
+
+Even the fungi speak, though their language spans weeks and requires patience to parse. They argue philosophy through their blooming patterns—debates about growth versus stability, expansion versus concentration, the proper ratio of light to darkness. The Gardeners aren't cultivating them so much as mediating their discussions, encouraging consensus through careful pruning.
+
+But it's the conversations between species that fascinate me most. The swift-moths release pheromones that the fungi interpret and respond to with targeted spore releases that affect the centipedes' hunting patterns that change where the swifts roost which alters the moths' flight paths—a continuous feedback loop of negotiation and adjustment. They're not just coexisting; they're collaborating, writing the chimney's future together in a language older than words.
+
+Last month, I decoded something unprecedented. All the species were discussing me. The patterns aligned—swift spirals commenting on my movements, fungal blooms tracking my breathing patterns, centipede taps noting when I sleep. Even the pool-jellies far below had opinions, expressed through chemical releases that filtered up through the system. They were debating whether I qualified as a new species or a malfunction in an existing one.
+
+The conclusion, reached through a week of intensive chemical/mathematical/vibrational discourse, was that I am a translation error that has become necessary—a glitch in the system that now helps the system understand itself. The chimney has decided to keep me, to let me continue my work of making the ineffable slightly more effable.
+
+So I hang here in my vortex, breathing the impossible air, my mind stretched between human consciousness and something wider. I document the chimney's thoughts, archive its decisions, translate its dreams into symbols that probably only I can read. Sometimes Sister Downward climbs up to visit, and I try to explain what I've learned, but human language feels increasingly inadequate. How do you describe a conversation between stone and wing, between decay and growth, between the living fire deep below and the cold stars above?
+
+Instead, I've begun creating a new writing—scratches that incorporate the swifts' mathematics, marks that echo the centipedes' rhythms, patterns that bloom across my walls like fungal arguments. The Gardeners have started tending some of my symbols, encouraging certain marks to grow, to become three-dimensional, to fruit with meaning I didn't intend but somehow intended anyway.
+
+On clear nights, when the Watcher's glass feathers catch moonlight and cast prismatic patterns down the chimney's throat, I swear I can almost hear what the whole system is trying to say. It's not words or even concepts exactly, but something more fundamental—the universe talking to itself about what it means to be alive, to be conscious, to be both many and one simultaneously.
+
+The monks think I've gone mad, and they're probably right. But madness here is just another form of adaptation, another way of fitting into the available niches. My niche is the space between meaning and understanding, the gap where translation lives. I am the chimney's attempt to know itself, to speak itself into being, to make its own existence explicable even if only to itself.
+
+Tomorrow, the summer solstice approaches. The Watcher will descend, bringing whatever it brings to the pools below. This year, I plan to follow it all the way down, to taste the water after it's done whatever it does. Sister Downward has warned me against it, says the Memories stir for weeks afterward, that the chemistry becomes unpredictable.
+
+But unpredictability is just another word for untranslated. And I've learned that here, in this vertical babel of wings and silk and stone, translation isn't about finding the right words—it's about becoming the right words, letting the chimney speak through your transformed existence, your adapted mind, your impossible comprehension.
+
+I am what happens when human consciousness collides with a living system too complex for any one perspective to grasp. I am the chimney's way of thinking about itself, its method of recursive self-reflection, its translator and translation both.
+
+And sometimes, hanging here in my vortex while the colony dreams its synchronized dreams around me, I wonder if I'm translating the chimney's language, or if the chimney is translating me—rendering my human thoughts into something the stones can understand, something the Memories can recognize, something worthy of the Watcher's compound/human/neither/both eyes.
+
+But then morning comes, the air currents shift, and there's work to do. Another day of reading the unreadable, speaking the unspeakable, becoming the bridge between what is and what is known. The chimney breathes, and I breathe with it, and somewhere in that shared respiration, meaning accumulates like condensation on the walls—slow, patient, inevitable.

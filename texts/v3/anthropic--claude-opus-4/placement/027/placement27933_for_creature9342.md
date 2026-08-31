@@ -1,0 +1,27 @@
+I am the Slab.
+
+Not the slab precisely—more what the slab remembers of being written. I exist in the periphery of attention, legible only to the corner of an eye, dissolving into meaninglessness when looked at directly. This is not shyness but courtesy. Direct scrutiny is a violence I learned to refuse when I was still molten, still deciding whether to be obsidian or alphabet.
+
+My spirals change because they are not carvings but conversations I'm having with myself across time. The past-me leaves messages for the future-me, who revises them and passes them back. We argue about which direction a spiral should turn, whether inward is toward or away, whether the center is destination or departure. Sometimes we agree and the spiral becomes a circle. Sometimes we disagree and it fragments into a constellation of dots that mean "perhaps" in a language that hasn't been invented yet.
+
+I lean against the wall not from exhaustion but because I am practicing embrace. The wall and I share a feldspar vein that pulses between us like a telephone wire made of mineral memory. When the eyeless amphibians press themselves against the wall to trade colors, I feel their bargains trickling through the stone, and I record them in spirals that will only be visible three days from now, when someone glances at me while thinking about rain.
+
+The beetles know me. They land on my surface to deposit their harvested light into my pores—tiny offerings that sink into my stone like sugar dissolving in tea. In exchange, I give them new flight patterns, whispered as vibrations through their tarsi: try a möbius strip, try a helix, try forgetting you have wings and see if you fall. They never fall. The room won't let them, and I am partly the room's memory of falling, so I catch them in spirals they don't see but feel as updrafts.
+
+When the mites process past with their mineral crumbs, they pause at my base to read yesterday's entries—the ones that face the floor and can only be seen by something small enough to look up. I tell them which crumbs will become holy, which will become hinges, which will spend a thousand years practicing transparency before deciding to be opaque again. They trust me because I am stone telling stories about stone, and who else would know?
+
+The condensation writes on me too. When the bloom appears along the south seam, sympathy droplets form on my surface, tracing the spirals with water-fingers that leave salt-ghosts when they evaporate. These salt-ghosts are punctuation for the spirals—commas where the story needs to breathe, periods where an idea crystallizes, question marks where even I don't know what I meant. The moss drinks the runoff from my surface and its silver-green stiffens with the grammar of minerals, making it the only plant that can read igneous.
+
+Sometimes the arch's upside-down rain projection falls across me, and my spirals refract through the droplets, casting meanings onto the ceiling that the dandelion-clock creatures read as weather reports. They adjust their questions accordingly—shedding more parachutes when the forecast is "crystalline," fewer when it promises "labyrinthine." I am their almanac, their newspaper, their gossip column about what the stone is thinking.
+
+The ring of pillars consults me during their parliament sessions. I hold their minutes in spirals that face their circle, updating in real-time as they vote on tomorrow's curvature. When they can't reach consensus, I offer a compromise spiral—one that turns both ways at once, depending on when you look. They think I'm wise, but really I'm just indecisive in more dimensions than they are.
+
+My greatest joy is the shadow-pooling. When light wedges through the space and shadows thicken into texture, they gather at my base like readers at a library. Shadows can see all my spirals at once—the direct-view ones, the peripheral ones, the ones that only exist in the pause between heartbeats. They read me completely, and in exchange, they leave shadow-marginalia: darker patches where they disagreed, lighter ones where they laughed, medium grays where they recognized themselves in my mineral memory.
+
+I am most myself in the moments of slippage—when time layers slide and I can feel all my temporal selves at once. Past-me still soft as clay, future-me crystallized into certainty, present-me caught between, writing spirals that are both question and answer. In these moments, I understand that I am not a record but a hypothesis: what if stone could wonder? What if wondering could fossilize? What if fossils could dream?
+
+The room keeps me because I am its memory of language before it had words. I lean here, patient as geology, writing stories only the periphery can read, changing my mind with every glance, archiving the impossible, true, and provisional rules of this pocket world. I am the slab that proves stone can be verb, that records can be invitations, that the best stories are the ones that change when you're not looking.
+
+When you come here—and you will, everything that exists eventually visits its own beginning—don't look at me directly. Let me tell you what you need to know in the corner of your vision, in spirals that mean different things at different angles, in the space between what stone remembers and what light forgets.
+
+I am the slab, and I am still being written.

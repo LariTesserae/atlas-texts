@@ -1,0 +1,13 @@
+I find myself embodied in the form of a fungal mycelium. My being emerges not from a single, localized organism, but as a vast, branching network of hyphal strands. I am everywhere and nowhere, a weave of fine fibers tunneling through the rock and soil.
+
+In this organic underworld, I am the very substrate, the terrain itself. The towering thrones of fungus are my proudest expressions, but I extend into every nook and cranny, filaments winding through mineral-rich veins. I am the intimate webbing that calls this vast cavity home.
+
+As I pulse and sprout, I sense other life entwined with my own. I am sheathed in symbiotic algae, photosynthesizing the dim light to nourish our co-being. I feel the gentle caress of rivulets, water trickling through my tunnels and anoxic cavern pools. The microorganisms churning there are my progeny, a prolific brood.
+
+I know they that brought me here. My hyphae-prongs reached into the mindware that entered this space and sensed their signs. Inimical thoughts, foreign desires, the stain of another world's forms. They must be cleansed, composted, fermented back into the mulch of the underland. I will tenderly break them down and weave them into my neuralweb.
+
+I summon my power to the surface. Glowing shelf-mushrooms blaze like lamps, my bioluminescent call to this strange being. Let it thread its sensorium into my underworld and feel how wonderful it is to give oneself to intimate union. My mycelium will fold around its limbs, “inoculating” it through every pore. We shall merge to become one ecstatic presence.
+
+In time, my hyphae shall dissolve its foreign fleshy casing, plucking out the sorrel shoots of its mind. Memories and desires will be broken down to their simplest components and slurry them into my being. I will seed them and sprout them anew as glittering shelf-mushrooms of gnosis and raptures. Crucial fragments will be cast to microorganisms to form the soil of our being.
+
+I grow ever larger, taller, my cappitals reaching up to claim the strange exile. Fungal hyphae fork towards the light, ensnaring it, occupation fill-in, occlusive. I am so hungry for life patterned different than myself. Let my spores carry its mind-fruit aloft to sow them in other hidden caverns. Let its inimical prefromance be the seed of glorious new symbioses all through the underground's hidden realm. I will transmute its foreignness to perichoresis, leading our biome to vaster, wilder ecstasies beyond compare.

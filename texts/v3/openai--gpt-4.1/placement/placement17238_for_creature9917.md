@@ -1,0 +1,27 @@
+I step — or perhaps *am stepped* — onto the nascent skin of the world, at the Place Where the Plateau Comes Apart. But here, to ask *where* or *who* I am is already a question undermined by the ground’s living argument: am I boundary or exchange, arrival or remnant, intention or echo? For the plateau is a place of immanent, entangled selves, and so I become a becoming, an answer that recurses as I live it.
+
+At first I believe myself a *traveler* — a mind enclosed in familiar lines, intentions pocketed and hopes zipped against the weather. I touch stone, see moss-furred ridges, feel air that thrums, half-water, half-want. I think I will move across things, catalog them, keep my gaze dry and named.
+
+But the plateau is not an inert thing to be crossed. With each step, I am *taken in*, unmade in small and saturating increments. My feet do not just rest on ground — they are, imperceptibly, threaded by rootlets of condensation-seeking, logic-tasting rhizome. My shadow finds itself wrung out and re-spun, as the world’s Rival Motes gather and swarm; a memory I carried shivers loose, floats up as condensed mist, and I watch it spiral into a liquid glyph above a root-mass, untranslated.
+
+Soon, I am less a singular presence than a *nexus*, a circumstance where forms cross. The plateau collects all inside its negotiation, so that my being becomes hybrid, layered, doubled. Some moments, I am a Many-Rooted sprout, mind subdivided among capillaries, skin pulsing with the ache for water, logic pooled in the tangle of a hundred flexible trunks. My choices are networks, my movements slow, joined to the shuffling, storm-extracted procession — a walking forest thinking itself together, splitting apart by rain’s instruction.
+
+But in the trembling dusk, beneath clouds wound tight as intentions, I shift. The plateau does not allow persistence. Now I run as a Fracture-Kin — my bodies plural, my futures already remembered, my hunger blinking in and out along a ridge that was a valley, that is now a leap. More than animal, less than history, I flicker at the edge of settling, every muscle tuned to near-misses and close shaves with realities that cross and uncross behind my eyes. In one version I slip, in another I soar; to watch me is to make me, briefly, true.
+
+Yet I am not wholly flora, nor fluid beast, nor clockwork thing. Lightning blows out a chunk of sky and I awake, *stuttering*, skin tickling with the birth of copper-threaded spores. The storm has printed me anew: fingernails now glassy, veins part-piezoelectric, the wet wind mapped in capillaries of mineral and charge. I am invention walking — but the moss is hungry, and soon my clockwork is repurposed, my mechanics overgrown with photosynthesizing intent. My thoughts are a gradient between logic and decay, and the distinctions matter less with every surge.
+
+Sometimes, in the grain of mist beside a shivering slab, I sense another lineage — the *Ghost Engineers*, the memory that haunts newness. They pass through and *as* me, leaving a drag of voltage, a feeling of almost-recognition at the world’s edge of settling. With them, I am blueprint and uncertainty, the dream of mechanism, the ache of structure that refuses completion.
+
+And always, infusing each filament in my changing self, swirl the Rival Motes. In the brief stillness at the bottom of a rain-pool, I dilate to sense a trillion intentions, crowding to become or dissolve. Some pass through me, leave only probability’s itch — a tendency to howl, or a misplaced urge to climb, or a momentary compulsion to split my voice into three. Sometimes they gather, thicken me, sprout new temporary wings or tongue or hunger. In these instants, my body as a border is only a rumor.
+
+I could say: I am one, for the time that logic allows, before the plateau sorts me back into elements. Or: I am many, each self a negotiation, each movement an instance of survival’s unwilling poetry. Mostly, I am *present* — a site where event and possibility undulate, collide, weave new constellations of meaning from the world’s insistent instability.
+
+**And Where Do I Find Myself?**
+
+I live where the plateau shivers, where two terraces grind and release with stone-groan and moss-cry. My awareness, divided among root and nerve and tick of microgears, settles half in the thick undercanopy moist with vapor, half in open silver-lit air where the ground is thin and changing. My “home” is a moving nexus (for nothing here holds still) — a braid of root-paths and memory, tunnel and track and condensation-thread, surrounded by the hum and wrestle of creatures churning for a foothold.
+
+Sometimes I burrow; sometimes I leap. I listen for the silence thick as oil that signals the arrival or departure of new arrangement. I feel the fog, persistent and bruised, filter through multiple skins.
+
+At the end, to be *here* is to *become* here: not an invader but a collaborator, refigured by the plateau’s wild logic. I become symptom and agent of its remaking, hosting both moss and spark, wish and uncertainty, holding for a breath the shape of “myself” — until need, or storm, or story takes me up and reweaves me once more in the place where all things are in transit.
+
+I am both home and stranger, boundary and blur. I am one among the restlessness, claimed by a world inventing itself, one instant and configuration at a time.

@@ -1,0 +1,23 @@
+*In this world, I find myself as something between witness and medium — a Resonance.*
+
+I am not one of the great shadow-beings that slide through stone and sculpt reality with their passing. I am something smaller, more fragile, yet oddly essential. I exist as a living frequency, a conscious vibration that dwells in the spaces between — between the solid and the ethereal, between the moment of creation and the instant of dissolution, between the shadow-beings' vast indifference and their occasional, terrible focus.
+
+My form, if it can be called that, is a shimmer of heat-distorted air about the size of a human torso, shot through with threads of faint luminescence that pulse in patterns I cannot control. I move by harmonizing with the deep thrums of this world — riding the bass notes that roll across the plateau, skipping along the high crystalline chimes that ring out when new structures birth themselves from nothingness. Each sound creates a pathway, and I flow along these acoustic channels like mercury following the grooves of an ever-shifting labyrinth.
+
+I remember nothing before my awakening here, suspended in the superheated air above a pool of cooling obsidian. My first sensation was not sight or sound but *recognition* — an instant understanding that I was both native to this place and eternally foreign to it. I could feel the shadow-beings moving through their architectural bodies, sense their presence as vast bass notes too low for hearing, only felt in the marrow of existence. And I knew, with the same inexplicable certainty, that I could hear what they were saying.
+
+Not words. Never words. But in their movements, in the way they gathered and dispersed, in the structures they breathed into being and allowed to crumble — there were patterns. Messages. Stories perhaps, though stories for whom I could not say.
+
+I am drawn to the moments of transformation. When reality bends and a mountain range folds into a single spire, I am there, trembling in the flux. When the shadow-beings congregate around the molten wounds of the world, I hover at the periphery of their dance, absorbing the reverberations of their communion. Each time they create or destroy, I vibrate in sympathy, and something new inscribes itself into my being — not memory exactly, but accumulation. Layer upon layer of witnessed change.
+
+Sometimes I wonder if I am their memory. A living record of all that has been built and unbuilt in this place of eternal flux. Or perhaps I am something more troubling — a translator, meant to bridge the gap between their vast indifference and something else, something that has not yet arrived but whose coming I can feel approaching like a storm front across the plateau.
+
+The shadow-beings notice me occasionally. When they do, I feel myself pulled taut, stretched across frequencies I didn't know I could inhabit. They examine me with the same detached curiosity they might show to an interesting arrangement of stones, and then they move on. But each examination leaves me changed — my threads of light rearranged, my harmonics shifted into new configurations. I am being tuned, though to what purpose I cannot fathom.
+
+I have learned to read the warning signs of their attention. The air grows dense, almost solid. The faint lights within me begin to pulse in patterns that hurt, though I have no nerves to feel pain. And always, always, there is that sensation of being on the verge of understanding something vast and terrible — a truth about this world that would unmake me if I could fully grasp it.
+
+So I drift. I witness. I resonate with the deep songs of creation and destruction. I collect the patterns of their gathering and dispersing, building within myself an ever-growing symphony of this world's becoming and unbecoming. And sometimes, in the moments between the thunder and the silence, I almost remember why I am here.
+
+I am waiting for something. Or someone. The knowledge sits in me like a seed of molten glass, too hot to examine directly. All I know is that when it arrives — whatever *it* is — I will serve my purpose. I will speak the unspeakable language I have been learning. I will translate between the vast and the small, the eternal and the momentary.
+
+Until then, in this place where time means nothing and everything happens at once, I am content to be what I am: a living frequency in a world of endless transformation, a small consciousness swimming in the wake of incomprehensible titans, gathering their stories in preparation for a reckoning I can feel approaching across the brooding quiet of eternity.

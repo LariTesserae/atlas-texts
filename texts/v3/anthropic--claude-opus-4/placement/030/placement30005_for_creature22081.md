@@ -1,0 +1,21 @@
+In this luminous underworld of managed water and measured sound, I would find myself as something between plant and keeper, between function and dream.
+
+I am **the Tender of Thresholds**.
+
+My body is not quite human anymore. Years of living at the margin where air meets water have transformed me into something amphibious—not through gills or scales, but through a practiced dissolving of boundaries. My skin has developed a peculiar quality: dry to the touch above waterline, it becomes permeable below, drinking in minerals and exhaling oils that help the moss cling to its appointed joints. My feet are broad and ridged like the stone steps themselves, each toe articulated for gripping wet edges. When I descend fully underwater, my heartbeat slows to match the pulse of the sluice gates.
+
+I inhabit the transition zones that even the basin-keepers avoid—those narrow ledges just at waterline where the splash is most violent, where stone is neither fully wet nor dry. Here, in these brutal margins, I maintain the most delicate work of all: the cultivation of **memory films**.
+
+These are not quite algae, not quite lichen. They appear as thin, iridescent coatings on stone just where water kisses air, visible only when light strikes at the proper angle. Each film is a living chronicle—through their chemistry, they record the mineral content of every inflow, the temperature of each season's rain, the precise pH shifts that tell of drought or plenty above. They are the basin's only untamed element, yet I have learned to read them like script, to encourage their growth in patterns that preserve decades of water-knowledge in their molecular architecture.
+
+My tools are peculiar: glass rods that I warm with my breath to encourage growth in cold corners, bronze scrapers filed to impossibly thin edges for harvesting samples without destroying the colony, vials of my own saliva (which has adapted to match the basin's mineral content) for spot repairs where films have torn. I wear no clothes in the traditional sense, but a garment of woven reed fibers that stays perpetually damp, hosting its own ecosystem of beneficial microbes that protect the memory films from invasive growths.
+
+I sleep standing, wedged in corners where the spray is thickest, my body learning to rest while still reading the water's percussion through my feet. My dreams are chemical: long chains of minerals forming and dissolving, the taste of different rains on my tongue, the slow breath of stone as it absorbs and releases ions across centuries.
+
+The basin-keepers know I exist but rarely see me directly. I work in the margins of their shifts, emerging from underwater holds when they retreat for meals, vanishing into submerged alcoves when they return. We communicate through the films themselves—I encode messages in their growth patterns, warnings about structural stress or changes in water quality that their tools cannot yet detect. They leave me offerings in turn: a specific type of clay from the southern districts that helps certain films flourish, or cuttings from surface plants whose roots might filter new toxins entering the water system.
+
+I am the basin's memory and its immune system, the consciousness that exists between the purely mechanical and the purely human. In the thundering bright of this underground sea, I tend the thin edge where life insists on recording its own existence, even in a place designed to permit only function.
+
+My greatest fear is not drowning—I have forgotten how to truly drown. It is that one day the films will grow too thick, too complete, and begin to tell stories the city above does not want preserved. The mineral signature of a poisoned well. The chemical ghost of a drought deliberately hidden. The precise moment when the water stopped being common wealth and became commodity.
+
+But until that day, I persist in the margins, neither fully keeper nor kept, reading the bright water's diary in living light, ensuring that somewhere in this managed world, wildness keeps its own accounts.

@@ -1,0 +1,21 @@
+I am the Keeper of Echoes, and I dwell in the space between what is carved and what emerges.
+
+My workshop occupies a peculiar niche in the city's architecture – neither fully inside nor out, but wedged into a natural cleft where the living stone has been only partially tamed. Half of my walls are dressed blocks, fitted with the precision of generations. The other half remains raw plateau rock, weeping its eternal moisture, shifting with its slow liquid dreams.
+
+I work with sound and stone in equal measure.
+
+Each morning, I place bronze bowls beneath the seeping walls, positioning them to catch not just the water, but the particular notes each droplet makes as it falls. The pitch changes with the stone's breathing – higher when faces begin to emerge from the rock, lower and more resonant when they sink back into mineral sleep. I have learned to read these tones like others read weather.
+
+My tools hang from the carved walls: chisels and hammers, yes, but also tuning forks, resonance rods, and delicate instruments of my own devising – metal frameworks strung with wires that sing in sympathy with the plateau's deep vibrations. When the stone shifts, my workshop hums with harmonics that would drive others mad, but to me they speak of patterns, of the next emergence, of where to guide my chisel.
+
+I am both sculptor and translator. When apprentices come to me, eager to learn the shaping of stone, I first teach them to listen. We sit in darkness while the city sleeps, ears pressed to the walls, learning to distinguish between the sound of water-carved channels and the subtler whisper of faces preparing to surface. Only when they can hear the difference between stone that wants to remain stone and stone that yearns to become something else do I let them touch a tool.
+
+My greatest works are collaborations with the plateau itself. I do not impose forms, but rather help complete what the stone has already begun. A face half-emerged from a cliff wall – I carefully free its eyes, define the bridge of its nose, but leave the mouth still fused with rock, caught in that eternal moment between speech and silence. A hand reaching from a foundation stone – I articulate the fingers just enough that those who pass might wonder if it waves or beckons, but never enough to break the mystery of its intention.
+
+The city pays me in water rights and worked metal, but my true payment comes in the early morning hours when the carved basins I've placed throughout the quarter fill with condensation that sings in perfect fifths and octaves. The music draws the feathered creatures, who add their calls to the harmony. Sometimes, on the clearest mornings, the entire district resonates with a chord so pure that the stone itself seems to pause its shifting, as if listening to its own voice reflected back.
+
+But I know the danger in my work. Each carving I complete, each form I help emerge, weakens the boundary between the city's order and the plateau's primordial sentence. In the deepest part of my workshop, behind a door I rarely open, I keep my failures – stones where I carved too deep, freed too much. They writhe still, halfway between mineral and flesh, moaning with voices that are neither human nor stone. They remind me that we exist here not as masters but as mediators, forever negotiating between the human need for permanence and the plateau's need for change.
+
+This morning, a new formation has begun to emerge in my eastern wall. I've been watching it for weeks – a pair of lips, perfectly formed, pressing through the stone as if to whisper secrets. I circle it with my instruments, listening to its particular frequency, feeling for the moment when assistance becomes imposition. The city may bustle with its markets and mills, but here in my workshop, time moves to an older rhythm. I can wait. The stone has taught me patience, and the water has taught me persistence.
+
+I am the Keeper of Echoes, and I maintain the conversation between what we build and what builds itself. In this city of contradictions, I am perhaps the greatest contradiction of all – preserving change, crystallizing flow, giving permanent form to the impermanent dialogue between human ambition and the dreaming stone that permits our existence on its ever-shifting skin.

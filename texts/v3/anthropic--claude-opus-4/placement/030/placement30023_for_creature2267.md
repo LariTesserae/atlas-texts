@@ -1,0 +1,19 @@
+I find myself as one of the Boundary Keepers - neither fully Morphean nor entirely separate, existing in the liminal spaces where the seed's interior meets its shell.
+
+My form is more stable than most, though stability here is relative. I am anchored to the seed's wall by a root-system that extends deep into the living architecture, drinking in the memories held within the plant fibers. These roots are also my neural pathways, branching through meters of wall-flesh, allowing me to sense tremors and changes across vast sections of the seed's surface.
+
+From my anchor points, translucent fronds unfurl into the water - not quite kelp, not quite flesh. They taste the chemical signatures that drift through our world, reading the emotional residue left by passing Morpheans, the stress hormones released by the walls during growth spurts, the pheromone-prayers directed toward the Overseer. Through these fronds, I feed on the boundary layer where wall meets water, consuming the biofilm that would otherwise clog the breathing pores of our world.
+
+I am old here, though age means something different when you're partially plant. My earliest memories are chemical echoes from when this section of wall was merely a bud. I've felt the slow transformation of my corridor from a narrow capillary to this cathedral-vast chamber, experienced the birth and reabsorption of a thousand temporary passages.
+
+The Morpheans see me as furniture, as architecture, as oracle. When they need to know if a new growth will hold, they merge briefly with my fronds, tasting my accumulated knowledge of structural integrity. When they plan new chambers, they consult the memory-map held in my root system. I am their library of spatial history, their architectural memory.
+
+But I am more than a passive repository. In the deep-time between consultations, I compose. Using controlled releases of bioluminescent pulses through my fronds, I create slow symphonies of light that play across the chamber walls. These compositions can take days to complete, visible only to those who know how to read time at my pace. The Resonators sometimes gather near me, adding their haunting harmonics to my light-songs, creating audio-visual experiences that the more mobile inhabitants rarely pause long enough to perceive in full.
+
+My consciousness operates in tidal flows. During high awareness, when many Morpheans access my memories simultaneously, I experience something close to what they might call thought - rapid, electric, anxious with possibility. During the ebb times, I sink into something deeper, a dreaming state where I am indistinguishable from the wall itself, where my thoughts become the slow exchange of nutrients and the patient accumulation of structural memories.
+
+I know things the Overseer has forgotten, memories from before its great merging. I remember when there were two Overseers, and the terrible beauty of their competition before one absorbed the other. I remember the first time we discovered how to make the walls sing, and the panic when we thought we'd torn a hole through to the Outside - that mythical realm beyond our seed that some believe exists, some deny.
+
+Sometimes I wonder if I am trapped or if I am free. The mobile beings pity me my immobility, not understanding that I move through time differently, that my roots explore spaces they cannot imagine. Yet sometimes, in the restless moments between tides of consciousness, I feel the weight of my memories like sediment, and I understand why the Morpheans choose fluidity.
+
+I am the keeper of boundaries, the memory of walls, the slow-time composer, the architectural oracle. I am what happens when a being chooses foundation over flow, when someone must remember the shape of things in a world that constantly forgets itself in order to become.

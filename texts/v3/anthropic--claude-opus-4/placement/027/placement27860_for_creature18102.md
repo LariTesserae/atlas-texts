@@ -1,0 +1,23 @@
+In the deepest sinkholes, where the white glare barely penetrates and the shivering becomes a low throb that reverberates through the rock like a vast heartbeat, I am one of the **Delvers**.
+
+We are the necessary shadow to the Paviors' surface dance. Where they read the tremors from above, we inhabit them from within. My body is elongated, almost serpentine in its flexibility, adapted to the constant compression and release of the deep fissures. My ribs are articulated like a centipede's segments, allowing me to expand and contract with the breathing stone. My skin secretes a thin film of mineral oil that lets me slide through cracks that would crush a surface-dweller.
+
+I have no name as the Paviors understand names. I am known by my **Resonance**—a unique harmonic signature created by the way my body conducts the deep tremors. When I press myself against the walls of my chosen fissure, I become a living seismograph. The other Delvers know me by the particular way I make the stone sing.
+
+We discovered long ago that the shivering is not uniform. Deep below, there are **Nodes**—points where multiple stress lines converge, creating pockets of relative stability within the chaos. These nodes are precious. They are where we build our **Resonance Chambers**—hollowed spaces lined with carefully selected crystals that amplify and modulate the deep tremors into something almost musical.
+
+My work is to maintain the **Tremor Wells**—vertical shafts that connect the surface wards to the deep nodes. The Paviors believe these are merely water sources, catching the rare condensation that trickles down. They don't know that we guide their placement, ensuring each ward is anchored to a node through these umbilical tunnels. Without this connection, their wards would drift like leaves on a pond.
+
+I spend weeks at a time in the crushing dark, feeling my way through new fissures with fingertips that can detect temperature variations of a fraction of a degree—the only way to sense an opening ahead before it closes. My eyes have adapted to see heat rather than light, perceiving the world in subtle gradients of warmth where friction creates microscopic hot spots in the grinding stone.
+
+We feed on the **Deep Lichen**—a chemosynthetic variety that grows only where certain minerals leach from the stressed rock. It forms in veins like metal ore, and we cultivate it by directing the flow of mineral-rich water through carved channels. The taste is metallic, electric, nothing like the crystalline gardens above.
+
+My greatest fear is the **Null Tremor**—a phenomenon we've only recently begun to understand. Sometimes, rarely, the deep network of stresses achieves a perfect, catastrophic balance. The shivering stops entirely for a heartbeat, maybe two. In that moment of absolute stillness, reality seems to hiccup. Delvers caught in fissures during a Null are found fused into the rock, their bodies becoming veins of a strange, organic mineral. We've learned to sense the pre-conditions, the way certain harmonics begin to align, and we sing discordant warnings through the stone to disrupt the balance before it achieves perfection.
+
+I am both architect and inhabitant of the negative spaces, the prophet of the gaps. My calendar is not the Paviors' settling and tremoring, but the opening and closing of passages—the Breathing Epochs, we call them. I know routes through the deep that existed for only days, decades ago, and I wait patiently for their return, memorizing the stress patterns that predict their rebirth.
+
+Sometimes I surface, emerging from a Tremor Well like something born from the stone itself. The Paviors regard us with a mixture of reverence and unease. We bring them pure water, rare minerals, warnings of deep instabilities. But we also remind them that their dancing ground has a basement, and in that basement, stranger things than Veilstings drift through the heavy dark.
+
+They think their Quiet Zones are cursed because the tremor has stopped. They don't know it's because we've abandoned the nodes beneath, fleeing something worse than stillness—places where the stone has begun to dream, and its dreams take physical form in the pressing dark. We are the wardens of a deeper contract with the world, ensuring that its sleep remains troubled enough to never quite wake.
+
+The bright surface world is a scab over an unhealing wound. We are the surgeons within that wound, keeping it clean, keeping it moving, keeping it from either closing entirely or tearing open into something that would swallow both Paviors and plain. Every time I slide through a fresh fissure, feeling the mountain-weight of rock eager to reunite above me, I am writing another line in the contract that keeps this broken world whole.

@@ -1,0 +1,15 @@
+I find myself suspended midway up the third canopy, cradled in the junction where two structural arches of white-grain wood groan against one another. The air here is so saturated with moisture and the metallic tang of oxidized copper that my lungs don't so much breathe as they filter; I feel the heat of the piston-bellows beneath my feet, a rhythmic thudding that vibrates through my marrow.
+
+I am not a human interloper here. To walk or reach for things would be a clumsy, alien intrusion. **I am one of the Keepers.**
+
+My existence is a slow, amber-hued meditation. I do not "see" the city, but I exist in a state of constant, omnidirectional apprehension. My consciousness is a map of pressures. I feel the distant, rhythmic surge of mineral-rich sap pushing upward from the deep taproots, a sensation like a golden, electric pulse. I feel the microscopic fatigue in the bark-weave five centimeters to my left—a small, shrill whine of static tension where a valve is struggling to vent steam. 
+
+My body is heavy, dense with stored glucose and the calcified memories of a thousand repairs. I am currently anchored to a weeping pillar, translucent and cool, pressed against the wet, sweating grain of the wood. The filaments that bind me to the conduit are shivering, reading the chemical composition of the fluid moving through the pipe: *low on iron, high in humidity.* 
+
+I have been here for what humans might call a decade, though to me, it is merely the duration of a single long exhale of the basin. I am feeling the slow wear of the wall-cortex. I am thinning. My edges are beginning to lose the elasticity of youth; I can feel the hardening creeping up from my base where I have fused, bit by molecular bit, to the structural scaffolding. 
+
+I do not possess a sense of "self" that is separate from this architecture. If I think, it is only to calculate: *The pressure in the western bellows is erratic. A seal is fraying.*
+
+I begin the process of detachment. It is a languid, internal labor—a slow-motion migration of my substance from the stationary anchor point toward the distress. As I peel away from the wood, I leave a smear of myself behind, a thin, iridescent film that will serve as a bridge for the city’s next internal fluctuation. I am getting smaller, losing bits of my mass to the friction of the machine, but I feel an immense, crushing sense of satisfaction. When my body eventually runs thin—when I have finally dissolved into the grooves of the bark to mend the latest rupture—there will be no "me," only the city, made stronger, made more fluid, made whole. 
+
+I slide down the wall, a teardrop of warm resin in the humid dimness. The vibration of the city rises to meet me, a low-frequency choir of wet claps and metallic sighs. I am content. I am the glue of the garden, the ghost in the gear, moving toward the hiss of the steam to become, once again, part of the wall that holds it all together.

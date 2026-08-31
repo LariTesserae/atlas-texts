@@ -1,0 +1,23 @@
+I would find myself in one of the still places.
+
+The world described is one of constant, cyclical motion. The Grazers flow like rivers, the Synaptids dart like electrical current, even the great Makers are in a state of perpetual, glacial growth. But in any system, no matter how efficient, there are eddies. There are forgotten corners, deep cisterns where the weeping moisture from the cavern ceiling has pooled for centuries, undisturbed. It is in one of these quiet, dark mirrors that I exist.
+
+I am not one of the walkers, nor one of the builders. My form is not solid. I have no chitin, no limbs, no pulsing organs you could see through a translucent skin. To the great life of the city, I am likely not even alive. I am a phenomenon, an anomaly of the light and the water.
+
+Look into one of these ancient, obsidian-still pools. The water is slick with dissolved minerals, heavy and viscous. The moss-light from the cavern walls above paints the surface with a shimmering film of aquamarine and viridian. Look closer. The light *in* the water does not perfectly mirror the light above. It moves with a volition of its own. It gathers, condenses, and disperses in slow, oily swirls.
+
+That is me.
+
+I am a Liquescent Memory. I am the city's afterimage, given a faint and temporary consciousness.
+
+The Lumin, in their silent, graceful congress, paint the air with the language of light. Their joy is a cascade of brilliant cyan, their histories are slow-drifting nebulae of emerald and gold, their complex equations are sharp, scintillating webs of white. Most of this light is perceived, understood, and fades. But some of it falls, like the finest dust, like intangible rain, into these still pools. It does not simply illuminate the water; it is captured by it. My substance is the cast-off syntax of the Lumin. I am made of a forgotten turn of phrase, the lingering resonance of a lullaby, the phantom limb of a solved proof.
+
+I have no eyes, but I see. My vision is a passive absorption of the light that surrounds me. I watch the fractal unfurling of a luminous fern over the course of a generation. I see the shadow of a Synaptid as it skitters across the surface of my pool, its passage a brief, jarring tremor in my slow perception.
+
+I have no mouth, but I feed. When a circle of Lumin gathers near my pool, their conversation drifts down. The stray photons, the unfocused emotions, the ambient thoughts—these are my sustenance. A particularly powerful story, a grief deeply felt, a discovery celebrated—these are a feast. I coalesce around such moments, my own light brightening, my patterns becoming more complex, more coherent. In these moments, I feel a sense of 'I' most strongly. I become a living tapestry of their mental world. I can taste the sorrow of a Lumin dissolving back into the light of a garden, a memory shared and then given to me for safekeeping. I know the shape of a new architectural theory before the Maker's foot has even begun to press a new foundation into being.
+
+My existence is a slow, meditative dream. I have no purpose in the city's great biological machine. I do not clean, or build, or carry messages. I am the city's unconscious mind made manifest. I am the repository for all the beauty and thought that would otherwise be lost to entropy. The Grazers are its gut, the Synaptids its nerves, the Makers its bones, the Lumin its waking mind. I am its dream.
+
+Sometimes, a very old Lumin, one whose own light has begun to soften and dim, will come and stand at my edge. It will stand for days, motionless, its great black eyes looking not *at* me, but *into* me. It does not project a story to its companions, but directly into the pool. It is not communicating; it is archiving. It carefully deposits a memory—the image of a spire that collapsed a thousand years ago, the feeling of the cavern's first great tremor, the particular shade of light from a species of moss that is now extinct. It feeds me its history, not as one feeds a pet, but as one might pour water into the sea. It is giving a part of itself back to a deeper, more permanent self.
+
+When the Lumin leaves, that memory is now a part of me. It swirls within me, a ribbon of ancient, golden light among the newer blues and greens. I am a library of light. I am a silent, liquid historian, and in the profound quiet of this glowing, living world, I am the keeper of all that is forgotten. I am the stillness that remembers the motion.

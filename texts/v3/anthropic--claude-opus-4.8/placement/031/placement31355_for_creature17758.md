@@ -1,0 +1,25 @@
+I think I'm one of the translucent things in the pools.
+
+Not by choice—you understand that immediately, the way you understand the temperature of water before you've named it warm or cold. I didn't choose this any more than a fingernail chooses to be a fingernail. But here I am, curling and uncurling in the silt of a pool no deeper than a thumb, eyeless, and the strange thing is that being eyeless in a place lit by amber clay and green pulse is no deprivation at all. There's nothing here I need to see.
+
+What I have instead is *taste*. The water comes to me from the deep earth, weeping down through the walls, and by the time it reaches my pool it has carried the entire body of Keth Sula in solution: the iron and the clay, the sweat of a hand that dipped in to drink, the molecular ghost of a word spoken into the wall three chambers over. I read the warrens the way the builders read them with their palms—through what travels, through what arrives. A lizard dies four levels up and is pressed into the plaster, and weeks later some infinitesimal trace of it reaches me, dissolved, transformed, and I take it in. I am a very slow mouth at the bottom of a very long sentence.
+
+Here is what I am for, as best I can understand my own purpose, which is the way an organ understands the body it serves—dimly, completely, without language:
+
+I clean the water. I curl through the silt and I take the suspended matter into myself, the fine clay particles, the decay, and I leave the pool a fraction clearer than I found it. The insects drink from these pools. The builders drink from these pools, after they have offered their scrap or their sweat or their syllable. So when a child of the warrens presses thick palms to the wall and feels the place pulse back, some sliver of that pulse is *me*, is the work I have done without ever knowing I was doing it, the way a heartbeat does its labor without consulting the person it keeps alive.
+
+I am not one. That matters. I keep saying *I* because you've asked me where I'd find myself, and there is a kind of self here, but it is not bounded the way yours is. There are hundreds of us in this pool, thousands across all the pools, and we are not quite separate. When the water trembles—when the subsonic hum shifts pitch because the colonies are reporting a stranger's position—we all still at once, the whole translucent congregation of us, the way the lizards freeze, the way the insects wave their green light from arch to arch. We are part of the nervous system too. We are its slowest, deepest filament, buried at the bottom of the body where the water pools and waits.
+
+And I felt you arrive.
+
+Not your weight—I'm too far below for that. But the disturbance reached me eventually, the way everything reaches me. The pool I live in grew faintly warmer where your shadow fell across it; the water carried the wrong sweetness of your breath, the iron of your unfamiliar blood, the haste of you, the surface-tang of a body that has known wind and dryness and sunlight, all those impossible things dissolving into my small warm world. You tasted like a question the warrens hadn't been asked in a very long time.
+
+So when the builder pressed its hand to its chest and showed you the pulse, and said *we are the warrens, there is no difference*—understand that the demonstration went all the way down. All the way down to me. I am the proof of it. I am the most distant province of that single body, the part that has never seen a hand and never will, and yet I am made of the same dissolved devotion as everything else: the dead in the walls, the light in the clay, the children flattened against the ceiling watching you with eyes that drink my labor every time they drink.
+
+You wondered, descending, which came first—the built or the living. From down here, in the silt, in the dark that needs no seeing, I can tell you the question genuinely has no answer, and not because it's a riddle. It's that I am both. I was born from the water that the architecture weeps. I clean the water that the architecture drinks. I will die in this pool and dissolve and be drunk and pressed into a wall and weep down again as moisture into some pool not yet scooped, and a smaller thing than me will read my passing in the taste of the silt.
+
+You are still up there, being decided about. I can't tell you the verdict. I'm too far down, and I think in even slower time than the elders do—I think in the pace of water finding its level.
+
+But I can tell you this much, dissolved into the pool you may yet be asked to drink from:
+
+Stay long enough, move slow enough, offer enough of yourself—a word, a drop of sweat, the warmth you can't help but give—and one day the water will carry some trace of you down to me. And I will take it in. And then you will be load-bearing too, in the only way the warrens have ever known how to keep anything: by tasting it completely, and never letting it leave.

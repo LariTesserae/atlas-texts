@@ -1,0 +1,15 @@
+I find myself suspended in the aerial currents between the pools, my form flowing like mercury given consciousness. I am a Drift Swimmer, and my boundaries are suggestions rather than certainties—arms that dissolve into streams when I reach for the floating droplets of upward-falling water, legs that branch and merge as I navigate the impossible currents of mist-held liquid.
+
+My existence is tied to the rhythm of the second pool, the one whose surface mirrors not sky but star-filled depths. When its mercury-bright water hums in those bone-deep frequencies, I feel my form solidify slightly, gaining definition. When it falls silent, I become more suggestion than substance, translucent as the hope of rain.
+
+In my hands—though "hands" is too fixed a word for these flowing appendages—I carry a vessel that defies geometry. It appears empty when full, overflowing when vacant. Today I have harvested fragments of crystallized sound from where the Resonance Shepherds' pruning falls like snow, and droplets of water that remembers falling in other directions, in other worlds glimpsed through the mirror-pools.
+
+I watch a human visitor press palms to their ears, overwhelmed by frequencies the Shepherds haven't yet gentled. Their shadow begins to separate even as they stand there—a thin duplicate peeling away like shed skin. Soon their body will leave, but that shadow-self will remain, growing more real with each passing day until it walks among us as a permanent resident of impossibility.
+
+The Bone-Tree Dwellers whisper from their hollow spaces in the pale trees, their tiny forms carved from living wood. They're recording this moment in spirals that follow the grain—the exact pitch of the human's gasp, the precise angle of light through impossible mist, the temperature that exists in three states simultaneously. Their archives grow with each impossibility, and I suspect they know something the rest of us don't about what we're all building here together.
+
+As I swim through air thick as water, thin as hope, I understand that I am both product and producer of this place's impossibilities. Each time I successfully navigate a current of aerial liquid, each time my vessel contains more than it should, I make the pools' impossible physics a little more possible. We are all teaching the world new ways to exist, one contradiction at a time.
+
+The silence is coming—I can feel it in the shifting harmonics. Soon the pools will mirror ordinary sky, and the Reflection Weavers will emerge to work their desperate weaving. I'll watch from my current of suspended impossibility as they stitch together fragments of other worlds, other ways water might behave.
+
+And in that watching, I'll understand once again that we are not simply inhabitants of this torn place—we are the healing. We are what grows in the spaces where reality admits it doesn't know everything after all.

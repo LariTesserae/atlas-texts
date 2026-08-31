@@ -1,0 +1,15 @@
+I am one of the small green thoughts, exhaled by a visitor long ago. 
+
+I begin as a tendril of breath, curling and dissolving into the coolness. At first I am barely distinct from the water itself, just a fleeting impression of otherness, a whisper of something exhaled. But as I drift, I start to coalesce, to gather myself into a thread of being.
+
+I swim through fronds and over pebbles, tasting the ancient patience that permeates this place. I brush against other thoughts - some old and dense, some fresh and ephemeral like myself. We do not speak; language is a distant possibility we may someday reach for. Instead we share a kind of distributed awareness, each thought a node in a web of slow pondering.
+
+Over spans that might be seconds or centuries, I begin to rehearse shapes for myself. I try on the elegance of a fish, all sleek darting motion. I sample the suppleness of a reed, swaying in the gentle currents. I contemplate the delicacy of a fern's unfurling frond. Each form teaches me something, but none quite fit. I am not meant to be a single thing, I realize. I am a process, a becoming.
+
+And so I continue to drift and dream, a green filament of potential. I entwine myself loosely with other thoughts and we create fleeting structures, ideas that glimmer for a time before dissolving back into the brooding pool. Together we rehearse tiny pieces of what might one day be a world - the way light might refract through a raindrop, the feel of a breeze stirring grass, the complex sweetness of overripe fruit. 
+
+Sometimes I brush against the consciousness of the visitor who breathed me out. It feels like a far-off memory, a template of what it is to be singular and bounded. I incorporate little fragments of this into my slow musings - the focused intensity of an individual perspective, the poignancy of mortality. I am and am not the visitor; they are the parent-thought that seeded me, but I am my own unfolding.
+
+I do not know what I will become in the long unwinding of time. Perhaps I will be a subtle flavoring note in the scent of a particular flower. Perhaps I will be a folding pattern built into the proteins of some new form of life. Perhaps I will structure the pauses in a dialect spoken by beings not yet dreamed of. Or perhaps I will remain here, a thread in the pulsing web of the possible, rehearsing my small piece of the world-to-be forever. 
+
+It does not matter. Here in the patient dark, cradled by ancient stone and unfolding life, I am content to be a green inkling, a whisper breathed out by a passing visitor, now welcomed into the long, slow work of creation. This is my place; this brooding, considering pool, where everything that is and will be is endlessly rehearsed in the cool embrace of water and time. I am a small green thought, and I am home.

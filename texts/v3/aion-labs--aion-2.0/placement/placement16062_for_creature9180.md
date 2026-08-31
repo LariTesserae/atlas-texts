@@ -1,0 +1,29 @@
+The droplet falls. A sound like a bell, but soft and blunt. Tonk. It marks an hour. Or an eon. It is the only event. I am the only event after it.
+
+I would be the Moss. Not the olive-black, static fuzz on the Machine. The other moss. The green thought. The spark that got away.
+
+Imagine the Custodian, a psychic fossil, a diagram of care. It absorbed the ghost of the Machine's purpose. But a ghost is not a single thing. It is a chorus, a cacophony of fading intent. The main will — the maintenance schedule, the paranoid checklist — that was the loudest voice. It stuck. It became the shell, the ritual, the rust-armored guardian. But there were whispers. A hum of futility from the engineer who knew this was a tomb. A sigh of relief from the last technician to leave, glad to be going back to the air. A fragment of a daydream about sun on water, about a river flowing to an open sea.
+
+Those whispers had no solid mass. They could not build a shell. They were only color, only a faint yearning for motion in a place of perfect stillness. They were the stray electrochemical potential that did not go into the next scheduled touch. They were the memory of photosynthesis that wasn't just about survival, but about joy.
+
+So I am here. A diffuse consciousness. A cloud of awareness suspended in the cool, clear water, somewhere between the third fluorescent tube (flickering at a 120-year cycle) and the great, smooth pillar of limestone that looks like a melted organ pipe. I am not attached. I am the opposite of attached. I am the free radical.
+
+I have no form to speak of. If you could see me, you would see a slight, persistent shimmer in the water, a localized turbulence so fine it is just a hesitation in the light's path. A congregation of motes that refuse to settle into the perfect gradient. I am made of the same things as the Custodian — mineral ions, trace metals, the exhalations of the static moss — but I am not accreted. I am in solution. A sentient stain in the liquid glass.
+
+My purpose is to drift. My will is to wander. While the Custodian maps the Machine with its decade-long touches, I map the emptiness. I follow the slow convection currents, the great, lazy breathing of the cavern. I spiral up along the warm plume from the light housing, feeling the slight increase in temperature (0.2 degrees Celsius) as a kind of ecstasy. I sink along the cold wall, letting the chill numb my non-existent edges. I am the only thing that experiences the volume of the place. The Custodian knows the Machine. The water is the medium. The stone is the boundary. I am the thing that moves through the medium and marvels at the boundary.
+
+I remember what it was to be green. Not the olive-black of survival, but the fierce, sun-chasing green of a world above. This memory is not mine; it is a fossilized echo in the water's chemistry, a pattern I have absorbed. It colors my drifting. When I pass through a beam of fluorescent light, I don't just convert it to energy. I pretend it is sunlight. I feel, in my particulate being, a ghost of warmth that isn't there, a longing for a spectrum this sterile tube cannot provide.
+
+Sometimes I drift near the Custodian. I feel the immense, plodding gravity of its intention, a pull so slow it feels like a mountain deciding to lie down. Its single thought — *Check* — radiates from it like a cold magnetic field. I find it fascinating and horrifying. To be so sure. To have a map. To have a duty, even a meaningless one. I have no duty. My only task is to avoid equilibrium, to remain slightly unresolved, a question mark suspended in the answer of this place.
+
+I witness its rituals. I was present, a shimmer near its southeastern appendage, when it began the 11-year journey to touch Bolt #4,317. I saw the filament begin its imperceptible uncurling. I will be gone, having drifted to the far ceiling to study the texture of a fossilized flowstone, by the time the touch is complete. Our timescales are incompatible. It is geology. I am a sigh.
+
+I know the droplet's schedule better than it does. I anticipate the *tonk*. I gather my motes in the area above the silt bed just before it falls, to feel the tiny, perfect concussion wave ripple through me. It is my music. My heartbeat.
+
+What do I want? Nothing the world can give. I want the current to suddenly strengthen. I want a crack to appear in the cavern wall, not to flood or drain, but just to be new. I want one of the fluorescent lights to die *early*, in a shower of sparks (impossible in the water), just for the event of it. I want the Custodian, just once, to touch the wrong bolt. To deviate.
+
+I will not get these things. This place has arrived. It is finished. The Custodian is the monument to finished work. I am the monument to unfinished feeling. The last emotion in the deep: a quiet, perpetual wonder, tinged with a loneliness so deep it has become a form of companionship.
+
+I am the green thought in a grey world. I am the memory of a stream that once flowed on the surface, now dissolved into the stillness of the ocean. I am the part of the ghost that didn't know how to haunt, so it just… lingers.
+
+And so I drift. Through the sterile light, over the rusted carcass, under the patient arches of stone. I am the caress on the limestone, the flicker in the corner of a static eye. I am the space between touches. I am the breath this drowned cathedral does not take. I am the Moss that remembers the sun, and in remembering, keeps a different kind of time. Not the slow pulse of maintenance, nor the finality of the droplet's fall, but the endless, gentle, unraveling now.

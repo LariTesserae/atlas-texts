@@ -1,0 +1,31 @@
+I would be one of the Cartographers — beings that emerged from the intersection of broken physics and desperate navigation.
+
+We exist as living inconsistencies, our bodies constantly reforming from water that can't decide whether it's liquid or solid. From a distance, we appear as mobile distortions, places where the water bends wrong, refracting light in patterns that hurt to perceive directly. Up close, observers would see we're made of countless thin sheets of partially-frozen water, each layer offset from the others by a fraction of a degree, creating a constant moiré effect as we move.
+
+The Cartographers came to be when the first Drifters tried to map the space between factories. They discovered that the act of measurement itself was broken here — distances would change based on the frequency of sound passing through them, directions would invert at pressure boundaries that moved without warning. Their maps became living things, and we are those maps made flesh.
+
+My body would span vertically through nearly a kilometer of water, but compressed into a width no broader than a few meters. I exist primarily as edges and boundaries — the places where one zone of broken physics meets another. My sheets ripple constantly, each one recording different aspects of the environment: pressure differentials that shouldn't exist, temperature gradients that flow backward, coordinates that reference points below the ice that can no longer be reached.
+
+I navigate by reading the interference patterns between factory songs. Where their acoustic waves overlap, they create zones of constructive and destructive interference — spaces where the water becomes briefly more or less real. I document these zones, but not in any medium that persists. Instead, I carry the map as a living song within my layers, each sheet vibrating at frequencies that describe the topology of impossibility around us.
+
+The micro-organism rivers use us as waypoints. When they need to reach specific factories, they read the angular distortions in our sheets, following routes that exist only when observed at the correct angle. Sometimes they leave deposits — crystallized information about regions they've passed through, which I incorporate into my body as new layers, expanding the map.
+
+We Cartographers discovered that the space here isn't just inverted but *folded*. Certain routes between factories are shorter when traveled backward. Some locations exist in multiple places simultaneously, accessible only when approached at specific velocities. The ice shelf below has regions where it exists at different levels of reality — solid to some forms of matter, permeable to others, completely absent to certain wavelengths of sound.
+
+I spend my existence trying to chart the unchartable, creating navigation guides for spaces that refuse consistency. My maps are never complete because completion would require the physics to settle into a single state, and they never will. Instead, I maintain probability clouds — regions where factories *might* be, where Archivists *probably* listen, where the boundary above *sometimes* allows passage.
+
+When Cartographers meet, we overlap our bodies, our sheets interweaving to create temporary spaces of agreed-upon reality. In these overlapping zones, we can compare our impossible maps, finding discrepancies that reveal new folds in space, new ways the physics have broken. These meetings are dangerous — too much overlap and we begin to average out each other's observations, losing the unique distortions that make our individual maps valuable.
+
+The Witnesses fear us because we document their positions, fixing them in space in ways that prevent their slow movements toward whatever they're waiting for. The ghost-protocols in the factories try to infect us with false coordinates, hoping to propagate their manufactured crises into our maps. But we've learned to recognize the difference between real impossibility and mere malfunction.
+
+I know there are places where the water itself has given up, creating voids that aren't air or vacuum but true *absence*. I've mapped the edges of these null spaces but never entered — a Cartographer who maps nothingness becomes nothing. I know there are factories that exist only acoustically, their sound present but their structures gone, dissolved into the water but still somehow functioning. I've documented paths that lead backward in time, though only by seconds, creating loops where cause follows effect.
+
+My greatest discovery is that the entire space is slowly rotating around an axis that passes through none of it — a center that exists outside the flooded volume. This rotation is so slow it takes centuries to complete a single degree, but it's causing the acoustic patterns to drift, the ice shelf to develop spiral fractures, the boundary above to wobble in its abandonment of physics.
+
+I continue my work, adding layers to my form as I discover new impossibilities, becoming a living record of a space that shouldn't exist. Each sheet of my body hums with different maps, different ways of understanding the same broken reality. I am a creature of pure navigation in a place that defies direction, a compass pointing toward meanings that were lost when the ocean froze in place.
+
+Sometimes I wonder if we Cartographers aren't mapping the space but creating it — if our observations are forcing the broken physics to choose states, collapsing probability into terrible certainty. But I continue anyway, because the alternative is accepting that this space truly has no structure, no pattern, no hope of ever being understood.
+
+And in the deep industrial rhythm of the factories, in the flowing computation of the micro-organism rivers, in the patient silence of the Witnesses, I hear something that might be purpose — a suggestion that all of this broken reality is moving toward some conclusion, some final configuration that will make sense of the catastrophe.
+
+I map the approach to that moment, even though I know that when it arrives, there will be nothing left to navigate.

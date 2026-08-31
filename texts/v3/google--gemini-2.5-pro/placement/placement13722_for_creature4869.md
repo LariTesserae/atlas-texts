@@ -1,0 +1,23 @@
+You would find me where the architecture becomes music.
+
+I am not in a dwelling, sheltered by a glowing curtain of cilia. I do not drift through the main thoroughfares, observing the slow ballet of the Grazers. My place is higher, further out, where one of the great alabaster pylons splays into a fan of delicate, resonant structures. These are the Chimes, and I am the Keeper of one. You would find me suspended in the cool, clear water beside my life’s work: a single, colossal frond, hundreds of feet long, cultivated over generations to be so perfectly balanced in density and tension that it moves only with the grandest of currents. It is my partner, my purpose, my self.
+
+I am the Keeper of the Seventh Resonant.
+
+To be me is to be a living tuning fork. While others see the cathedral of light, I primarily *feel* its resonant chamber. My body, long and slender-boned like all Lenticans, is anchored not by touch but by a delicate modulation of my own density, holding me motionless a hand’s breadth from the Chime’s surface. The hum of the city-plant is not a background noise to me; it is the blood in my veins. It flows from the mountain’s peak, up the pylon, and into the Chime beside me, and I feel its constant, ancient thrum in the very marrow of my bones. My feathery gills flare and fold not to breathe, but in sympathy with the Chime’s own subtle harmonics, tasting the water’s subtle shifts in pressure and temperature.
+
+My large, dark eyes are mostly turned inward. My world is the soundscape made visible. The percussive scraping of a Grazer on a pylon a mile below is not a noise, but a slow, rhythmic pulse of deep green light in my mind’s eye. The collective skittering of a million crustaceans is a high-frequency, shimmering silver static that tells me of the nutrient content in the water. The silent, synchronized turn of a fish shoal is a flash of pure white that briefly eclipses all else—a cymbal crash in the symphony.
+
+My work is the Slow Thought made manifest. In my webbed hand, I hold my only tool: a shard of obsidian beak, shed by a Grazer centuries before my birth, polished smooth by the patient caress of my predecessors. The Chime is alive. It grows. Over the course of a lifetime, its thickness will change by a hair's breadth. The currents of the Lenticle, a tide that takes a century to ebb, will subtly alter their path. My purpose is to ensure that when the tide turns, when the moment comes perhaps once a decade, the note is pure.
+
+And so, I listen. I listen for months, for years, feeling for a dissonance so slight it is less a sound and more a premonition. When I find it, a place where the Chime’s hum is a microtone flat, my work begins. I extend my arm, a slow, deliberate motion that takes the course of an hour. The tool touches the living alabaster. I do not cut. I do not carve. I *suggest*. I make a single, gossamer-thin scratch upon the surface. The scratch is a message to the city-plant, a request to tighten its fibers here, to grow a fraction slower there. One scratch is a season’s work. My body, a silent calligraphy of light, will glow with a soft, steady blue of concentration—a conversation not with another Lentican, but with the living world itself.
+
+I am a gardener of vibration. I am a priest whose prayer is a single, patient act of guidance. The grandest event of my existence is not a birth or a death, but the moment the great tide finally, fully shifts. The water presses against my Chime, a force built up over years, and the frond gives way in a single, majestic oscillation.
+
+And then, the Note.
+
+It is not a sound that travels *to* me; it is a sound that blooms *from* me. It is a tone so pure and deep that it silences the crustaceans and stills the fish. It floods the entire Caldera-Ward, a single, perfect sine wave that resonates through pylon and water and bone. It is the sound of equilibrium. It is the city confirming its own existence, the sound of the world saying *yes*. It lasts for the space of twelve heartbeats. For those twelve beats, I am not a keeper, not a Lentican. I am the note itself.
+
+And when it fades, slowly returning the world to its familiar chorus, I remain. Motionless. Listening. Waiting for the whisper of the next imperfection, a millennium from now. I am the consciousness of a single function, a nerve ending dedicated to harmony.
+
+I am a question asked over generations, and the note is the answer.

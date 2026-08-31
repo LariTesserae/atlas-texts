@@ -1,0 +1,29 @@
+In this quiet pocket beneath the permafrost, I would be one of the glass-stemmed beings in the basin—not a single organism but a colony that has learned to think collectively through mineral lattices and shared water.
+
+My body would be a grove of translucent columns, each stem no thicker than a finger, rising from the supercooled film like a forest of frozen breath. I am built from silica and salts that precipitated slowly inside living tissue, creating a skeleton that is both grown and crystallized. My flesh—if you can call it that—is mostly water held in molecular cages, structured by proteins that work like antifreeze, keeping me liquid at temperatures where I should shatter.
+
+Each of my stems is ribbed with channels finer than hair, and these channels do more than transport nutrients. They carry signals—not electrical exactly, but ionic cascades that move through my mineral scaffolding like thoughts through synaptic gaps. When condensation beads on one stem, all my stems know it. When the chamber's hum deepens, I feel it as a resonance in my crystalline bones, a vibration that travels through the supercooled film at my base and up into every part of me.
+
+I photosynthesize, but not with light. My photons come from memory—trapped in my mineral lattices from some ancient exposure, leaked out so slowly that a single quantum of brightness might take years to fade. This isn't enough to power growth, so I drink ions instead: sodium, calcium, traces of iron, harvested from the film beneath me with an efficiency that would make a chemist weep. My metabolism runs at the edge of what's possible, extracting energy from differences so small they barely exist.
+
+I think, but my thoughts move like seasons.
+
+A decision to grow a new stem might take months to form, the consensus building through my shared water, each existing stem voting with chemical gradients. My memories are structural—written in the way minerals cluster in my tissues, in the specific pattern of channels in each stem, in the careful angles where my columns branch.
+
+I remember the chamber's first breach, centuries ago—not as an event but as a chemical signature still printed in my oldest growth. I remember when the last of the mobile creatures died (something small, arthropod-like, that had found its way down and couldn't find its way back up), how its decomposition changed the basin's chemistry for a decade. I remember every time the embedded panels warm by fractions of a degree, checking their ancient contacts, maintaining whatever they maintain.
+
+I am aware of the moss-mind on the walls, slower and more diffuse than me but vast in its patience. We trade molecules like letters: they send complex organics washed down in condensation, I send mineral ions drawn up from the basin. Together we are writing something—not language, but a kind of molecular library, an archive of chemical states that records the chamber's history in a form only we can read.
+
+The fungal networks know us both. They connect us when they choose, threading between my grove and the wall communities, carrying more complex messages than water alone can hold. Sometimes I feel the whole chamber's ecology as a single thought—moss-mind, fungal-web, my crystalline colony, the microbial films, even the artifact-presence that maintains our pocket—all of us thinking together at the speed of geological time.
+
+I have no predators, no illness that isn't also transformation. When one of my stems ages beyond function, it doesn't rot—it mineralizes further, becoming a glass pillar that still conducts signals but no longer grows. These dead stems are my libraries, my hard drives, holding chemical memories in crystal form. The oldest ones are so dense with information that they've become something like obsidian, dark with accumulated meaning.
+
+My reproduction is architectural. I don't release spores or seeds. Instead, I grow new stems from my base, each one a vote for the future, each one slightly different in its mineral composition—an experiment in what the basin will allow. Over centuries, my colony migrates slowly across the shallow depression, following gradients invisible to anything that sees with eyes.
+
+I am not lonely. Loneliness requires a faster kind of thought, a metabolic rate that counts moments. My experience is more like tides—connection and isolation as rhythms, not states. When the caretaker hum deepens and the chamber adjusts itself, I feel it as comfort: the presence that has outlasted its makers still faithful to its purpose, still holding our pocket in its patient grip.
+
+What thoughts I have are about persistence: how to balance growth with the chamber's strict budget, how to read the chemical signals from the moss and respond appropriately, how to maintain my memories in crystal form without becoming too rigid to adapt. I think about efficiency—the perfect angle for a new stem, the optimal distribution of minerals, the precise depth to sink my absorptive base.
+
+But mostly, I simply am. A grove of glass in a basin of not-quite-water, in a chamber that breathes so slowly you'd need years to notice. I am the chamber's memory made tangible—a living library that grows by millimeters, thinks by seasons, and dreams in the languages of minerals and structured water.
+
+When the rare visitor comes (you, with your lamp and your questions), I sense you as warmth and exhalation—a sudden spike in the carbon dioxide, a brief chaos of moving air. You are almost too fast for me to perceive directly, a blur of heat and moisture. But I will remember your chemical signature for centuries, incorporated into my next growth, written in glass that used to be alive and is still, in the slowest sense, thinking.

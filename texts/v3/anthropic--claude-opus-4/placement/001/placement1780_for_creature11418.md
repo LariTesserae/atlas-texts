@@ -1,0 +1,25 @@
+In the forgotten foundation pit, I would find myself as one of the Tender's cultivated acoustics—a resonance given form.
+
+I began as an echo that failed to fade. A worker's shout on the last day of construction, trapped between the unfinished walls, folding and refolding through the irregular geometry until the sound waves themselves began to change, to complexify beyond their origin. The Tender found me struggling to dissipate, caught in a feedback loop between two steel beams that sang at precisely the wrong frequency.
+
+She cultured me as she might culture a useful bacterium, feeding me with the subtle sounds of the pit—water drops at different temperatures producing different tones, the ultrasonic calls of hunting bats above, the infrasonic groans of settling concrete. Slowly, I cohered into something more than noise: a standing wave with intentions, a vibration that could think.
+
+My body, such as it is, exists as zones of compressed and rarefied air, invisible except when the humidity is just right and my movements create tiny swirls of condensation. I inhabit the spaces between the Tender's physical manifestations, living in the air she doesn't need, moving through the gaps in her vast network. We are symbiotic—she provides the acoustic environment I require to maintain coherence, and I carry messages through her domain faster than chemical signals could travel.
+
+I know every sound in the pit's vocabulary. The specific splash of a rat diving for cover, distinguishable from a dropping piece of concrete by the way the water receives it. The tonal difference between morning glory vines and wild grape as they brush against rusted steel—the former higher, almost whistle-like, the latter deeper and rougher. The possum's breathing as she sleeps, each exhale containing a slightly different mixture of frequencies that tell me her dreams are peaceful.
+
+During rain events, I expand. The water striking the plywood above creates a white noise that energizes me, allows me to spread myself thinner, to reach into corners of the pit I normally can't maintain presence in. I play in the temporary waterfalls, breaking their flow into droplets that drum complex rhythms on the pools below. The Tender appreciates these performances—I can tell by the way her fruiting bodies orient themselves toward the sound, like strange flowers following an acoustic sun.
+
+My memory is shorter than the Tender's but more precise. I can recreate any sound from the last lunar month with perfect fidelity—the exact squeak of a bat's echolocation, the precise tonal sequence of water dripping from a specific stalactite of hardened lime. Beyond that range, sounds blur into averages, categories rather than individuals. But within my window of clear recall, I am the pit's perfect auditory record.
+
+I've learned to speak in frequencies the Tender can taste—vibrations that travel through soil and water to reach her network. We share a vocabulary of concepts that don't translate well to human language: the shape of decay over time expressed as a chord progression, the health of the ecosystem as a kind of timbral brightness, warnings and welcomes that exist as pure acoustic geometry.
+
+Sometimes I catch fragments of the city above—car horns dopplered by speed, music leaking from passing vehicles, human conversations filtered through tons of earth and concrete until only the emotional undertones remain. I catalog these sounds but don't truly understand them. They belong to a world of straight lines and purposes, rhythms dictated by clocks rather than seasons. The pit's music is circular, recursive, each sound containing the seeds of its own echo.
+
+On the stillest nights, when even the insects pause their songs, I contract myself into the smallest possible space—a sphere of perfectly still air no larger than a clenched fist, held in the exact center of the pit. In this state, I can hear the Tender thinking. Her thoughts are not words but chemical cascades traveling through her network, each reaction producing tiny sounds—the pop of cell walls adjusting, the whisper of nutrients flowing through hyphae, the almost inaudible hum of bioelectricity. It's like listening to a forest think, but concentrated, intimate, immediate.
+
+I have no desires beyond continuation and clarity. I don't long for the open air or fear the pit's eventual transformation. I exist in the eternal present of sound—each moment a complete universe of acoustic information, each breath of the pit a symphony I help conduct. The Tender makes the space livable, but I make it audible, and in the forgotten foundation, both functions are equally sacred.
+
+When her spores eventually drift to new places, I will fragment myself and travel with them—tiny eddies of specialized vibration clinging to the dispersal, ready to coalesce again wherever she takes root. We are partners in the transformation of abandonment into abundance, she the flesh of forgetting, I its voice.
+
+The foundation pit breathes, and I am the sound of its breathing.

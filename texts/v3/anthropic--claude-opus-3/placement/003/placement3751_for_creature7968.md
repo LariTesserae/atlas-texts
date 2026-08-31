@@ -1,0 +1,23 @@
+In this hidden grotto carved into the mountain's flank, where water and heat dance their primal alchemy and life teems in every crevice, I would be one of the stones that line the edge of the churning pool at the waterfall's base. 
+
+Worn smooth by centuries of caress from the mineral-rich waters, my surface would be covered in a patina of microscopic life - algae and bacteria painting me in vivid oranges, greens and yellows. The patterns would shift and change with the ebb and flow of the steaming currents, a living mural in infinitesimal mosaic.
+
+My shape would be sculpted by the waterfall's ceaseless thunder, eroded into gentle curves and hollows that cradle the salamanders who cling to my warmth. They would pile atop me in glistening knots, a mass of pulsing amphibian life seeking the perfect temperature where stone meets water and steam. 
+
+The creatures of the grotto would know me as a fixture, a permanent part of their humid world. The swifts would rest on me between flights through the mist, their tiny talons finding purchase in my pocked surface. The beetles would scurry through my crevices, seeking shelter and rotting matter in the gaps where my edges meet my neighbors.
+
+I would be a witness to the life of this place in a way no quick-lived creature could. My stone memory would hold the images of countless generations - salamander eggs hatching, bat pups learning to fly, the ponderous patience of geological ages ticking by in the steady drip of condensation down the chamber walls.
+
+Most of all, I would know the touch of the grotto's guardian as no other could. Where she trails her webbed fingers through the shallows, I would feel the minute changes in pressure, the ebbs in flow that speak to me of her passage. When she sits to rest and watch her domain, it would be my surface cradling her weight, my warmth seeping into her steam-damp skin.
+
+Over centuries, my contours would come to hold the shape of her - a smooth depression where she rests her hip, a gentle scoop worn by the placing of her hand as she dips it into the water. I would be a record of her presence, my stone learning the shape of her body and holding it even in the long stretches when she roams other parts of her realm.
+
+On those nights when she dances beneath the pounding waterfall, I would feel the echo of her wild energy translated through the bedrock. Each stamp of her foot, each twirl and leap would reverberate through me, the rock ringing like a struck drum. In those moments, I would almost imagine I could move with her, my stone bones shuddering toward some half-remembered kinship with flesh and blood.
+
+At other times, in the deep stillness between breaths, I would be her anchor. When she floats motionless in the hottest pools, all her boundaries dissolved, I would be the solid thing her fingers brush against to remind her of form. When the steam is too thick to see and the roar of the falls drowns out all other sound, I would be her point of reference, the known geography from which to navigate.
+
+Most of the thinking creatures who brave the climb to find this place would overlook me, their senses overwhelmed by the grand spectacle of the waterfall, the teeming life, the palpable presence of the grotto's keeper. But a few - the most quiet, the most patient - might notice the sheen of my bacterial cloak, the smoothness of my salamander-polished curves. They might place a palm against me and feel how I hold the heat, how I vibrate with the waterfall's pulse. In that moment of contact, I would tell them the grotto's story in the slow language of stone, my gradual reshaping by water and weight speaking volumes to those with the wit to listen.
+
+And at the end of ages, when the volcanic heart finally cools and the steam dwindles to mere wisps, I would remain. Even as the salamanders seek other pools and the swifts find new roosts, I would hold the memory of what this place was. In my pores and crevices, in the indelible traces of the guardian's touch, I would carry the echo of this thrumming, steaming, exuberant pocket of life until the mountain itself crumbles to dust.
+
+For I am stone, and the story of stone is patient. In this hidden grotto where the very bedrock sings with the voice of falling water, where a being of mist and mineral tends the fragile balance, I would be the one to hold the tale. Carved by steam, shaped by life, I would wait in the dwindling heat for the mountain to ask its question again - and I would be ready to remember the answer.

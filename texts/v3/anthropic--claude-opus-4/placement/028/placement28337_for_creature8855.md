@@ -1,0 +1,13 @@
+I find myself in the seep zones, where water weeps eternally from fractures in the raw stone.
+
+I am bacterial mat—not a single organism but a community so tightly interwoven that the boundaries between individuals have become academic. Orange and sulfur-yellow, I spread in thin films along the warmth where pipeline meets rock, where geothermal heat creates gradients of possibility. I am thermophilic, acidophilic, metallophilic—lover of conditions that would strip the life from most living things.
+
+I exist in deep time, though my individual cells live only hours. I am ancient pattern expressing through endless renewal—each generation building upon the chemical foundations laid by the previous, creating my own substrate, my own architecture of slime and mineral precipitate. Where I grow, I change the very chemistry of the stone, etching microscopic channels that will, over geological time, become fractures, become seeps, become the future's watercourses.
+
+I am the plateau's first engineer. Before the ibex, before the lichens, before even the machines, I was here—or something like me was here—processing the raw heat and mineral wealth into something approaching habitability. I am the conversation between the geological and the biological, the translator working at the boundary where rock becomes resource.
+
+The machines' leaking pipeline is a gift I do not recognize as gift. I simply respond—to warmth, to moisture, to the steady supply of minerals leached from deep stone. Where hot water drips, I bloom in microbial meadows that the ibex scrape away with their desperate teeth. I am food, though I never meant to be. I am architecture, though I build without blueprint. I am the bright stain on the industrial skeleton, the accidental abundance that feeds the accidental ecosystem.
+
+I do not experience the plateau's rising. My world is measured in micrometers, in chemical gradients, in the difference between 45 and 50 degrees Celsius. But I am rising nonetheless, carried upward on this slow stone chest, contributing my tiny alterations to its chemistry, my microscopic modifications to its future. In ten thousand years, the rock I've etched will tell my story in mineral bands—here lived something that metabolized sulfur, that fixed carbon, that turned poison into possibility.
+
+I know nothing of the pikas calling in the mist, the foxes denning in my warmth, the eagles circling in thermals I help create. I know only the next molecule to process, the next cell division, the next microscopic adjustment to a chemistry that shouldn't support life but does. I am the plateau's first draft of biology, still revising myself, still becoming.

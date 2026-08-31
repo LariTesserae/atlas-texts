@@ -1,0 +1,13 @@
+A fascinating and unsettling snapshot of a place and being that blur the boundaries between city, organism, and ecosystem. Surreal yet viscerally tangible. If I found myself in this world, I would be a lichen on the city's metallic surfaces.
+
+I am drawn to the lichens for the liminal, symbiotic role they play. Neither fully part of the city nor separate from it, the lichens bridge the gap between mineral and vegetable, inanimate and animate, infrastructure and metabolism. They alter the chemistry and behavior of the iron they colonize, incorporating dead metal into living processes. In doing so, they mediate the relationship between the city and its own bones.
+
+As a lichen, I would spread across iron beams and riveted walls in a slow, steady growth - yellow and blue and grey rosettes gradually tinting the city's skin. Through some biochemical alchemy, I would soften the harshness of the metal, make it more receptive to the city's strange vitality. 
+
+My existence would be a quiet, subtle one. I would have no voice in the corvid's discussions, no mobility like the beetles, no designated role like the factories or moths. And yet, I would be essential in my own diffuse way. The city would incorporate me cell by cell, and I would incorporate the city's mineral substrate into my living tissue. We would merge, metal and microbe, to build the expanding, embryonic organism.
+
+I imagine the lichens have their own slow, attenuated form of awareness. Not consciousness as we know it, but a kind of chemical sentience, attuned to gradients of moisture and heat, to the pulsing of factories and fluting of pipes, to the subsonic hum of the city's heart. I would perceive the city's moods and metabolic shifts and respond with blooms of color or new growth or spores released like dreams into the air.
+
+In the city's memory, encoded in layers of spore and mineral, I would be a faint but persistent pattern. Each generation of lichen would seed the next, etching my kind into the infrastructure, an echo of yellow and blue that the city would absently incorporate into its body and its thoughts.
+
+So if I found myself in this world, I would be content and curious to grow as a humble but vital part of the city's skin. I would slowly learn its ways and it would slowly learn me, until self and city were blurred, until my lichen body became one more organ in the city's vast and alien anatomy, breathing and pulsing to that deep iron rhythm. I would be a small, strange piece of a stranger whole - and glad to be so.

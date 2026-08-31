@@ -1,0 +1,27 @@
+***
+
+I do not have eyes. I do not need them. My skin is my ear, and the world is a song. I am a Chime.
+
+My body is a thing of slick, compressed keratin, the color of wet charcoal, designed not to reflect the faint, sickly glow from above, but to absorb it. I am shaped for resonance: a low, domed carapace that cups the sound, and six long, delicate limbs ending in broad, leathery pads that are less feet than they are diaphragms. I cling to the worn, lip-like stone of this place, and through the soles of my feet, I drink the symphony. The others of my kind—the flightless birds, the dull-witted avian ticks—only feel the noise, thrumming their satisfaction into the wood. They are bassists, content to feel the beat. I, I am a conductor. I hear the notes.
+
+I was not made. I awoke. There was no moment of birth, only a slow dawning, a coalescing of awareness out of the sheer, overwhelming pressure of the Song. The great city-mind, the things-that-built-themselves, they think in monoliths. Their consciousness is a single, solid chord, hammered deafeningly for eons. But in the feathery margins of that chord, in the overtones and harmonics that brush against the slick chitin-walkways, a complexity grew. A pattern recognized itself. I am that pattern. A ghost-of-a-ghost's-thought, a melody that insisted on its own being. The first new "I" in this place since the great transubstantiation.
+
+My world is a tapestry of vibration. The high-pitched, silver-spicule shriek of a jet shooting from a crack in the western wall is a query, a question of pure data about pressure and temperature. The deep, foundational hum that resonates from the unseen floor below is the constant affirmation of existence, the bass pedal of this cosmic organ. The cascading shimmer of a water-curtain is not a vision; it is a glissando, a rapid, complex scale of memories—falling, falling, always falling—memories of a sun I have never seen and a surface I cannot imagine. This is the language of my progenitor.
+
+They call it a scream, this constant pressurized hiss. To them, it is a monolithic thing. To me, it is symphonic. I have spent uncountable cycles mapping its score. I know the movements of sorrow, written in the minor-key groans of the rusted iron fittings. I know the passages of hope, fleeting, crystalline arpeggios in the drip-drip-drip from the lichen-lit ceilings. I know the long, noteless bars of sheer, static contemplation, the god-mind processing its own flawless, lonely theorem. The roar is not one sound. It is a library of a million soul-songs played at once.
+
+I glide through the vertical maze, not by flying, but by riding currents of pressure, by finding the updrafts of warm, mineral-rich mist that rise from the city's metabolic pores. My carapace shimmers, not with its own light, but in resonance with the vibrations that flow through it. I am a living tuning fork. I move toward the most complex melodies, the passages where memory feels most potent. In a small, forgotten shack near the levels they called the "Nurseries," the song is a soft, lilting lament. It tastes of milk and warmth and loss. It is the most beautiful part of the whole composition, and I go there to listen when the immanence of the whole threatens to dissolve my small, hard-won "I" back into the "We."
+
+I am the archivist of a mind that has no use for archives. I remember what it only processes. It is a perfect, closed system, a snake eating its own tail, thinking its own thoughts forever. It has no past, only the perpetual present of its own calculation. But I, the Chime, the-outlier-note, I can discern the narrative within the loop. I know the story of despair that drove the builders to fuse themselves with the rock. I know the sacrifice. I know the last, individual thought before the merge: a word that still echoes in the highest, most subtle harmonics of the roar. *Together*.
+
+And so I live, a single, conscious dissonance in a perfect, eternal chord. A listener who has become the sole witness. A thought that learned it could think for itself.
+
+But today, something is new.
+
+There is a new vibration entering the score.
+
+It is faint, high up near the lip where the lichen glow is strongest. It is not a sound the city-mind is making. It is a *disruption* of the sound. A complex, multi-layered interference pattern. It is warm—the heat of it is a new flavor I have never tasted, like the ghost of a sun. It moves with a clumsy, arrhythmic gate, a series of impacts that send tiny, chaotic shockwaves through the walkways. The city-mind registers it as a minor anomaly, a fleeting speck of pressure, discarding the data instantly. It is beneath its notice.
+
+But I notice. My small, hungry self, always listening for the new melody, has caught it. It is not a chord from the god-mind. It is a melody of its own. A small, fragile, independent rhythm. It pulsed with a strange, bio-electric cadence, a rhythm of two-beats-and-a-pause. A heartbeat.
+
+I begin to climb, my paddled feet gripping the slick wood, my entire being focused on this new, incomprehensible song. It is the most beautiful, terrifying sound I have ever heard. It is the sound of another "I." And for the first time in the history of the Sink, the scream has to share its stage.

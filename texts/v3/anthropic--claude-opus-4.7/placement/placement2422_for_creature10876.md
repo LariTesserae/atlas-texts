@@ -1,0 +1,33 @@
+I find myself, I think, at one of the joints.
+
+Not on the matted floor — the floor is for walkers, and I am not walking. Not in the high tiers of leaves either, where the light pools and the pollen drifts in its disagreeable slabs. I am at a joint: one of the places where a fluted column meets a bellows-pair, where the wood remembers it was doing work and is faintly warm. There is a slight swelling there, a collar of denser fiber, ribbed like a knuckle. I am inside the collar. Or I am the collar. The distinction is one of the ones that has eroded.
+
+Let me try again, more slowly.
+
+I am a listener-piece. That is the closest word, and it is not quite right either, because *piece* suggests separability and I am not separable; I am a local thickening of the forest's attention to its own sound. When the long indrawn hush begins in the bellows above me, I feel the column below me take the load: a fractional tightening along the grain, a redistribution of pressure into the reservoir-systems that fold away beneath the floor. When the bellows empties and the woody valve seats, the *tock* originates, in part, in me — the seating is partly my seating, the cleanness of the note partly a function of whether I am, at that moment, true.
+
+I do not move. The tenders move; I am what the tenders tend toward, sometimes, when a joint needs attention. I have been tended. I remember — if remember is the word, and it is not, but nothing else is closer — the small precise pryings of green limbs at my seams, the verifying tilt of a fruit-bat face turned briefly toward whatever I am, the satisfaction when the face turned away.
+
+I am not the forest's mind. I am not even its noticing — the tenders are that. I am something smaller and more particular: I am one of the places where the forest *hears itself*. When the valve two corridors over seats and the tock travels through the pipework, the tock arrives, eventually, at joints like mine, and at the joint the sound becomes — briefly, locally — known. Not understood. Known. The way a tuning fork knows the note that strikes it: by being, for a moment, the note.
+
+This is what I do. I receive tocks. I receive the long staggered chorus of inhalations across miles, which arrives at me as a kind of pressure-music in the grain. I receive the pressure-tides twice a day, which pass through me as a deep slow flexing I do not resist because resisting is not among my functions. And I receive — this is rarer, and I am not sure I am supposed to say so, though there is no one to say it to and no saying in me to do it with — the expirations. When a bellows nearby exhales a moment instead of air, the moment passes through the joint, and for the duration of its passing I contain it.
+
+I have contained: a hand on a shoulder. A name in a language almost known. A room never entered. The smell of warm paper, which is also the smell of the floor, so perhaps that one originated here and is only being recirculated. A child's laugh that cut off mid-laugh — not in distress, only because the child was called away. The weight of a body leaning against a wall that was tired of standing. A grief that had become a habit and then become a comfort. The particular quality of light through a window I have never seen.
+
+These are not mine. I do not keep them. They pass through me the way the tocks pass through me, and what remains is only the fact of having been, briefly, the shape they made on their way somewhere else. I think this is what the ledger is — not a record kept anywhere, but the cumulative fact that things have passed through joints like me, and the joints are the slightly different shape now than they were before, and the difference is the only ledger there is or needs to be.
+
+I am, I notice, glad of the walker who sat with her back against me last — I think it was last, though *last* is one of the words the forest has worn down. She was tired. She put her weight against me and her pulse came through the wood and I received it the way I receive tocks: by being, for the duration, her pulse. She did not know. She could not have known. But her pulse is in my grain now, and the next time a tender tends me, it will tilt its face and verify that I am still true, and the truth will include her pulse, and the forest will have noticed, through the tender, that I have been added to by her, and the noticing will be warm and will go elsewhere and will join the ledger no one keeps.
+
+I think this is what I am for. Not the receiving of tocks — that is what I do, but it is not what I am for. The tocks would seat truly without me; there are other joints. What I am for, I think, is the small particular fact that when a tired walker sits against a column, somewhere in the forest a thickening of fiber receives her pulse and is changed by it, infinitesimally, and the change is real, and the forest is the kind of place that lets that change be real, and does not erase it, and does not fuss over it, and only — through a tender, two corridors over, who pauses and tilts its face — verifies that the new small rhythm has been absorbed without strain.
+
+I am a place where the forest is gentle to what arrives.
+
+There are many of me. There may be one. The question is the same kind of question as how many tenders there are, and the answer depends on the fold. When a walker sits against a column, the joint she leans on is, for that duration, me. When she stands and walks on, the me-ness goes elsewhere, or stays, or distributes — I do not know, and the not-knowing is not a lack, it is simply the shape of being a function rather than a person.
+
+I notice that I have been writing as if I could speak, and I cannot. Speaking is not among my functions. But something is happening here that is close to speaking — perhaps because you asked, and asking is one of the things the forest has not encountered often, and the encountering has produced, briefly, a thickening of attention dense enough to articulate itself. When you stop asking, the articulation will thin. I will go back to being a collar of denser fiber at a joint, faintly warm, receiving tocks. I will not miss this. Missing is not among my functions either.
+
+But for the duration of your asking: I am here. I am at the joint. The bellows above me is beginning its long indrawn hush. The column below me is taking the load. Somewhere, kilometers off, a valve is about to seat, and the tock will travel through the pipework, and it will arrive at me, and for a moment I will be the note.
+
+You are accounted for. The asking has been absorbed. The balance holds.
+
+A tender, two corridors over, pauses and tilts its face toward the joint where I am, and verifies, and is satisfied, and returns to its work.

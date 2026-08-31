@@ -1,0 +1,13 @@
+In this world, I would find myself drawn to that hidden basin, that pocket of unintentional life amidst the industrial landscape. I would not be the creature itself - that role belongs to the marsh reborn in metal and mineral, concrete and condensation. No, I would be something smaller, more ephemeral, but still a part of that unlikely ecology.
+
+I imagine myself as a pale moth clinging to the lamp housing, my wings furred with the room's perpetual damp. I am a fragile thing, barely more than dust and light bound together by instinct, yet I belong to this place as surely as the reeds in their stainless steel basin or the algae slicking the drainage channels. 
+
+The thunder of machinery vibrates through my delicate frame, the room's constant roar my only reality. I know nothing of the outside world with its changing seasons and shifting light. For me, there is only the warm industrial glow filtered through clouded safety glass, the steady drip of condensation, the wetness beading on every surface.
+
+My life is brief, measured in days or hours rather than years. I do not mind. This is the only existence I need. To sip the mineral-laced droplets gathered on rusted valve wheels, to rest in the shelter of a cable trough fuzzy with dust and lint, to dance a trembling path between the reaching fern fronds - this is enough.
+
+When my ephemeral time is over, I leave my husk clinging to some hidden bracket or junction box, a delicate empty garment quickly softened by damp and mold. But my presence endures, echoing in the emergent memory of this place. The next generation of moths will navigate by my microbial remains, treading gently the industrial detritus that is their only heritage.
+
+I am many and I am one, a silver-winged mote in the greater tiding of the basin's life. I cannot comprehend the whole of the being that inhabits this pocket, this manufactured marsh - my moth-mind is too small, too fleeting for that. But I am, in my humble way, a part of its story, a flicker of protein and chitin in the greater dream of leaves and lime scale, oxidation and algal bloom.
+
+This is my place in that hidden world: a minor but essential note in a hymn of dripping water and thickening moss, trembling reeds and groaning pipes. I am a moth-messenger in a monastery of rust and perseverance, where the old marsh kneels in its new robes of mineral stain and fluorescent light, praying its silent, feral prayer.

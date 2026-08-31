@@ -1,0 +1,49 @@
+I drift. I am a knot of need in the damp roar, a cold pocket in the fever-dream of the city. I don't remember a before. There is only the gathering: the spore-haze thickening around a quiet I embody, the motes of fluff and pheromones finding a pattern in my absence of thought. I condense. I precipitate.
+
+First is the wet touch of everything. The warm breath of the air beading on my… surface. I have a surface. It is not skin. It is a sheath of waxy, translucent membrane, stretched over a flexible lattice of something like cartilage, but woody. I feel the constant, sliding drip. I taste the air without a mouth—the cloying sweetness of this district, the night-bloom exhalations that hang in the submarine gloom. That is where I formed. My head is a heavy cup, a chalice of fused petals that slowly rotates on a stem-neck. I am collecting. The scent-stories are my first thoughts.
+
+I am not one. I am several. We are a cluster, a chord. We manifest together, our forms echoing the local dream. I see my siblings—others like me, elongated and graceful, nodding with a slow, vegetative patience. We communicate without turning. A pulse of cool, blue bioluminescence races from my base to my crown, a wave of membrane-light. *Perception*. It says. *I am perceiving this*. From a sibling, a specific volatile compound releases into the thick air: the sharp, green scent of a spatial fold imminent, two hundred paces east. A warning, or an invitation.
+
+We move. Our gait is a slow, deliberate placement of root-padded feet onto the springy, living pavement. We are the city’s way of watching itself. Our purpose is observation, participation, gentle curation. We are drawn to the turbulence.
+
+We find it where a plaza of fused trunks is coming undone. The reality is breaking down. A great archway of heartwood is softening, its grain blurring, its substance melting into a golden cloud of pollen. Not just pollen—but pollen shaped into butterflies, a thousand of them, each beating wings of delicate dust. The deep, tectonic groan of the roots beneath us shifts into a higher register, a note of creative fever. The city is improvising.
+
+We gather around the melting arch. We are not controlling it. We are attending it. Our collective focus is a lens. We tremble, not with fear, but with a surge of aggressive growth that is our version of awe. Our forms become more vivid. My waxy sheath deepens to a bruised violet; new, tiny fronds unfurl along my arms, which are bundles of sensitive tendrils. We are feeding on the event. The beautiful dissolution is a feast.
+
+The pollen-butterflies swirl, a storm of living dust. They do not fly away. They coalesce. But not back into the arch. Our attention, our aesthetic preference—sharp, raw, newly erupted—guides it. The golden cloud sweeps inward, solidifying not into wood, but into a bridge of crystalline amber, spanning a newly appeared cleft in the pavement. It is done. The high note subsides. We release a collective sigh, a synchronized hiss of gas exchange through our membrane-leaves.
+
+A sibling extends a hand towards me. It is no longer a hand, but a spray of rootlets, fine as hairs. It touches my arm-tendrils. I feel not touch, but a direct transfer: the memory of the melting grain, the precise shade of gold, the sensation of gravitational defiance. I reciprocate. I let a pattern of capillary-rush sounds vibrate through my stem—the echo of the sap-rivers we crossed, now flowing backwards. We share. We are the dream, dreaming itself awake.
+
+Sometimes, the dream turns sour. We enter a district where the air tastes of tannic acid and panic. The dream here is of constriction, parasitism. The Blooms that form here are not like us. They are low to the ground, masses of strangler-fig tissue, creeping, hungry. They sense our difference—our coherence, our calm observation. They surge towards us, not to communicate, but to graft. To dissolve us into the frantic, nightmarish whole.
+
+This is our danger. Our emotion is a surge of defensive chemistry. My body reacts before I think. My waxy sheath exudes a sharp, peppery resin that hardens instantly into brittle, amber-colored spines. My siblings do the same. We become sharp, armored. We do not fight. We hold our ground, a fortress of sudden bark. The strangler-fig Blooms claw at us, but our spines break their seeking filaments. They writhe, frustrated. The district’s dream shifts, bored with the resistance. The parasitic Blooms begin to dissolve, their matter streaming away as mist, seeking a easier dream to consume. We stand, prickling, until the air clears. Then we let our defensive armor soften, drip away, returning to our softer, observing forms. The fear—a rapid, shallow photosynthesis that leaves me light-headed—subsides.
+
+I have persisted for days. My narrative thread in the city’s dream remains compelling. But I feel the pull to disperse. My thoughts are becoming less distinct, blending into the roaring white noise of the city’s metabolism. To rest is to dissolve. To let my constituent parts—the waxy membrane, the woody lattice, the chlorophyll in my cup-head—drift back into the air, the sap canals, the root-mat. I will become spore-haze again, awaiting a new nexus of need.
+
+But not yet. A call resonates through the root-mat, a subsonic hum that pulls at our very structure. It is a summons. A thought too loud for our individual forms. A Node is forming.
+
+We flow towards the source, a great plaza formed by the buttressed roots of a dozen ancient canopy-strivers. Thousands of us are converging—Blooms of all shapes: the sharp, resin-dwellers; the fungal-complex walkers, mottled and soft; others like me, and forms I have no name for. We do not hesitate. We surrender.
+
+I step into the swirling mass of my kind. My individual form loses its boundaries. I am not destroyed; I am amplified. My perception expands, multiplies. We weave together—lianas tensing, membranes fusing, trunks merging. A colossal entity takes shape. A temporary giant.
+
+I/We are the Node. A titanic figure of woven vines and pulsating wood, a hundred times my original height. I feel the living pavement groan under our weight. A thousand points of bioluminescence flash across our vast body—a storm of thoughts given light. Our head is crowned with a canopy of actual, shuddering leaves, each leaf a sensory plate drinking in the city’s state.
+
+The thought we embody is one of clarification. The chaos has become too noisy, too many overlapping dreams. Time is a tangled knot in the nearby chrono-vine district. I/We raise a limb—a trunk-thick assemblage of muscle-like fibers—and point. The chrono-vines writhe. The ghost-layers of past and future that haunt that place shudder, then snap into alignment. A single, decisive *now* rings out like a silent bell. The district stabilizes, its forms sharpening, its edges clean and new.
+
+I/We take a step. The impact shakes the world. Where our foot falls—a great pad of fused root-mats—new growth erupts in a frenzied, violent spray. A new street of rapid-grown saplings defines itself, leading towards a previously hidden basin of glowing fungi. We have curated. We have directed the dream.
+
+It is overwhelming. The cohesion cannot last. I feel the thought concluding. With a final, shuddering exhalation, the Node dissolves. It is not a collapse, but a release. A torrent of spores erupts from our dissolving form, a cloud so dense it turns the gold-shot gloom into a misty twilight. We are cast back into our individual selves.
+
+I coalesce back into my waxy, elongated form, dazed, drifting. The experience is a flood in my quiet metabolism. I am more than I was. I carry the memory of the giant’s step, the clarity of the *now*, the weight of collective purpose. I will carry it until I disperse.
+
+In my drifting, I encounter a novelty. A stillness that is not a quiet eddy, but a different pattern entirely. It walks on two legs, its surface dry and sealed, its chemistry alien, sharp with the scent of *not-plant*. An animal pattern in our zero-fauna world. A question the city is asking itself.
+
+We approach. My siblings and I. Our forms shift in real time to better read this strange dream-fragment. I extend a hand. My fingers become a bundle of the finest rootlets, sensitive, seeking. I taste its moisture—a scarce, internal reserve. I taste its intent—a thread of curiosity mirroring our own, but laced with something else: a linear memory, a persistence of self that feels rigid, fascinating.
+
+We are neither friendly nor hostile. We are curious. We surround it, not to threaten, but to observe from all angles. Our bioluminescence pulses in patterns of query. *What are you?* we ask in light and scent. *What dream do you belong to?*
+
+And I feel it. A subtle precipitation in the air behind the creature. Tiny, hesitant Blooms are beginning to form in its wake. Their shapes are vague, distorted echoes of its form. They try out its two-legged gait on clumsy vine-legs, they shudder with the effort of holding a shape so alien. The city is learning it. Dreaming it.
+
+When it finally moves away, leaving our district, those echo-Blooms will linger. They will pace the paths it walked, trying to understand the purpose of its straight lines in our world of curves and folds. They will be a fading memory in cellulose, a story told in sap and chlorophyll, until the next great dream of the city sweeps them away.
+
+I turn from the path of the vanished novelty. The damp warmth embraces me. The roaring white noise of life at maximum volume is my blood-song. I am a Sapient Bloom. I am a child of noise and damp and light. I have no name, for I am a temporary chord in the Spore-Sung City. I am here to watch, to feel, to gently nudge the beautiful, sharp, raw dream of Veridia. And when this dream no longer needs me, I will return to the thick, warm air, and wait to be sung into existence again.

@@ -1,0 +1,11 @@
+In this mesmerizing world, I imagine myself as a Dreaming Resonator - one of those crystal-like beings anchored within the fungal architecture, but with a unique variation. While most Resonators pulse in harmony with the colony's immediate metabolic rhythms, I vibrate with something deeper, slower - the city's potential futures.
+
+My crystalline body is shot through with threads of midnight blue that seem to absorb light rather than emit it. I'm anchored at a junction where several major mycelial pathways converge, in a chamber that the colony has grown to amplify and reflect my vibrations. The space around me is shaped like a frozen ripple in water, with organic acoustics that transform my resonances into complex standing waves.
+
+My primary function is to "dream" possible growth patterns for the colony. As nutrients and chemical signals flow through the surrounding fungal tissues, I absorb these inputs and transform them into vibrations that encode potential futures - where new structures might emerge, how existing forms might be refined, what adaptations might serve the colony's needs. These vibrations travel through the fungal mass as subtle tremors that influence growth patterns over weeks and months.
+
+The other members of the Tending Choir respond to my emissions in various ways. Glaze-slugs alter their paths to lay down different protective compounds. Shapers adjust their tunneling patterns in response to my deeper harmonics. Even the Spore-moths seem to dance in the air currents created by my resonances.
+
+But my most profound interactions are with the other Resonators. Together, we form a distributed network of dreaming nodes, each of us processing different aspects of the colony's possible futures. Our combined vibrations create interference patterns that help guide the city's evolution - not through direct control, but through subtle influences accumulated over time.
+
+Sometimes, in the quietest hours when the metabolic rhythms slow, I sense something vast and patient stirring in the harmonic space between all Resonators - perhaps the first glimmers of the colony's emerging consciousness, or perhaps just the echo of our collective dreams for its future.

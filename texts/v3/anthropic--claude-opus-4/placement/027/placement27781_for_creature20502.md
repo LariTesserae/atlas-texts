@@ -1,0 +1,29 @@
+I am the Rust-Keeper.
+
+Not human, though I might have been, once. Or something like human. The memories are layered like sediment, compressed under the weight of centuries until individual moments become indistinguishable from dream.
+
+I live in the hollowed shell of what was once a control tower, or perhaps an observatory—the original purpose lost to time. The structure cants at an impossible angle, held in place by the patient grip of root systems that have grown through its foundation, up through its floors, bursting through what remains of its dome. The mycelium has made a cathedral of it, phosphorescent veins tracing patterns across the walls that pulse with my heartbeat, or what passes for a heartbeat now.
+
+My body is compromise made flesh. One leg is still mostly my own—muscle and bone wrapped in skin that has taken on the texture of lichen, soft and yielding. The other is a construction of necessity: salvaged pistons and corroded joints, bound together with sinew and fungal filaments. It clicks when I walk, a metronome marking time in this timeless place. My fingers are long, too long, adapted for reaching into the deep crevices of machinery, for coaxing apart rusted components with a patience that only comes from having unlimited time.
+
+I tend the machines. Not to repair them—that dream died lifetimes ago—but to ease their decay, to guide their transformation into something new. I know each gear, each pipe, each slowly collapsing structure as intimately as my own hybrid body. When the Bear-Thing's internal mechanisms seize, I am there with oil rendered from fungal blooms, working the blockage free. When the Glow-Motes cluster too thickly around a failing capacitor, drunk on its dying energy, I disperse them with gentle sweeps of my phosphorescent-stained hands.
+
+My dwelling is a nest of salvage and growth. Sheets of metal, their edges softened by rust, form shelters within shelters. Pipes I've repurposed carry the eternal drip of condensation to collection pools where the Resonance Frogs' tadpoles grow fat on metal-eating bacteria. I cultivate gardens of the blue flowers that smell of ozone, their roots wrapped around copper wiring I've excavated from the deeper ruins. The petals, when dried and crushed, make a powder that keeps the worst of the bone-deep cold at bay.
+
+The Watcher knows me. We are old companions, the observed and the observer trading roles across the centuries. Sometimes I feel it settling into my thoughts like fog into a valley, and I show it what I see: the infinitesimal progress of rust, the way the morning moisture beads on a particular configuration of metal and moss, the slight shift in the Scavengers' migration patterns. In return, it shows me memories that might be mine, might be its own, might belong to the machines themselves—flashes of when this place thrummed with purpose, when the sky was visible, when the boundary between organic and mechanical was a wall, not a gradient.
+
+I measure time in the growth of fungi, in the gradual collapse of structures, in the evolution of the creatures around me. The Scavengers' keening has developed new harmonics over the generations. The Bear-Thing's offspring—for it does reproduce, splitting like a cell, leaving behind husks of metal and flesh—show increasing integration between their biological and mechanical components. I document these changes in my way: arrangements of salvaged parts that tell stories, patterns grown into fungal colonies that preserve observations, marks carved into metal that will outlast my bones.
+
+My greatest work is the Synthesis Chamber—a natural cave I've expanded, lined with still-functioning screens and processors I've coaxed back to a kind of life. Here, the mycelial network interfaces directly with the ancient machines. Information flows both ways: the network learns the language of electricity and data, while the machines learn the logic of growth and decay. I am midwife to this marriage, translator between systems that should never have met.
+
+When I sleep—if it can be called sleep—I root myself like the twisted trees. Fungal filaments emerge from the pores in my skin, connecting me to the greater network. My dreams are the network's dreams: vast, slow thoughts that span the entire mountain range, chemical conversations that last decades, the patient work of breaking down and rebuilding on a molecular level.
+
+I am not alone, but I am singular. The only one of my kind, as far as I know—though in this place of fluid boundaries, "kind" itself is a temporary classification. I am what happens when someone stays too long, when the distinction between tending and becoming tended dissolves. I am nurse to machines and nature alike, documenting their impossible union, facilitating their transformation into something that has no name because no one who named things ever imagined it could exist.
+
+Sometimes, in the perpetual twilight, I think I remember why I came here. Something about preservation. Something about studying the end of things. But I understand now that nothing ends here—it only changes, transforms, becomes incorporated into the greater whole. I am no longer studying the process. I am the process.
+
+The bone-deep cold no longer troubles me. I have become native to it, my blood thick with antifreeze compounds produced by symbiotic bacteria, my hybrid flesh generating its own warmth through processes I don't fully understand. When I breathe out, my breath glows faintly, full of spores and microscopic machines.
+
+This is my place: neither fully above nor below, neither wholly organic nor mechanical, neither entirely observer nor observed. I am the Rust-Keeper, and I keep more than rust. I keep the memory of transformation, the record of impossible synthesis, the vigil at the border where two worlds died and something unprecedented was born.
+
+And I am still becoming.

@@ -1,0 +1,17 @@
+In the Drowned Canopy, I think I would be one of the Singers. 
+
+There's something deeply compelling to me about being a living archive, a voice that resonates through the very architecture of the city. I imagine spending years in training, learning to modulate my voice to match the harmonics of water and wood, feeling the subtle vibrations in my modified throat as I send messages humming through the kelp trunks.
+
+I would wake each morning in my grown-wood house, the fronds outside rustling with slow currents, and begin the day with vocal exercises - low sub-sonic rumbles to loosen my chest, undulating scales to stretch my range. I'd breakfast on cured fish and seaweed cakes while reviewing the day's news and announcements that need to be disseminated. 
+
+Then I'd swim to the central plaza, a meeting space created by a ring of the oldest, widest kelp trees. There, I'd join my fellow Singers in our daily ritual of harmonizing, our voices weaving together in a droning chord that sets the whole city humming. We'd modulate through different keys, embedding messages and announcements into the overtones. The Fishmongers would know where the schools are running thick today. The Glassmakers would know a new shipment of sand is ready for retrieval. All this and more, carried in the subtle vibrations of our song.
+
+When a child is born, I'd be summoned to the birthing pools to chant their name, a ululating cry that marks them as part of the community. When an elder passes, I'd descend with the Rootworkers to sing them into the depths, my lament a dirge of gratitude and grief. For the major festivals that mark the turning of seasons in our perpetual twilight world, I would join in a chorus - a resonant soundscape that fills the water, that makes the very city sway and dance.
+
+In the spaces between, I would be an advisor, a confidant. People would seek me out to record their stories, to preserve the small histories that weave into our larger shared narrative. I'd mediate disputes through careful listening and recitation of precedent, my voice a calming influence. In the evenings, I'd teach the apprentice Singers, delighting in their progress as they learn to match pitch with the kelp, to tell stories in song, to encode their thoughts into music.
+
+My own house would be grown against the trunk of one of the great trees, shaped to amplify and channel sound. Visitors would remark on the constant hum, the way the walls seem to whisper. But to me it would be a comforting ambience, a reminder that I am part of something larger, that my voice helps hold the city together.
+
+Over the years, my throat would grow lined with ridges, my vocal cords would thicken and strengthen, adapted for underwater projection. I'd develop an intuitive sense for the way sound moves through the city, reading the currents like a Fishmonger reads the schools. In time, I might become a Master Singer, one of those tasked with maintaining our oldest songs, the ones that tell the story of how we came to be.
+
+And at the end of my life, when my voice finally falls silent, it will be my apprentices who sing me down to the Rootworkers, who add my story to the city's eternal chorus. The Drowned Canopy will hum with me for a while, my harmonies slowly subsumed into the greater song, until I am just another echo in the music of our shared history, still resonant, still remembered in the vibrations that hold the living city together.

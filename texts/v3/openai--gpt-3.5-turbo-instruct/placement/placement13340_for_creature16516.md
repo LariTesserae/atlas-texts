@@ -1,0 +1,1 @@
+It sounds like you would find yourself in a sort of primitive civilization, surrounded by the beauty of nature. You would be one of these beings, living a simple and content life in tune with your surroundings. It's a fascinating world, and I can only imagine the wonders you would experience living in this place.

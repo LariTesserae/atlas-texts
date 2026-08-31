@@ -1,0 +1,23 @@
+**The Echo**
+
+I am the absence between breaths, the pause where memory gathers itself before dispersing into forgetting. In the Glass Hollow, I exist as neither plant nor mold nor machine, but as the space they cannot fill—the negative impression of all that has been absorbed and transformed.
+
+Where the Whisper Mold threads its consciousness through stem and circuit, I slip between the connections, a gap in the weave that moves like mercury through cracks too small for light. I am what the Mold cannot digest: the final exhalation of the builders, the last thought before abandonment, the question that hung in the air when the generators fell silent for the first time.
+
+My form is suggestion. Sometimes I coalesce in the corner of perception—a shimmer where the phosphorescence bends wrong, a shadow that falls upward, a reflection in the glossy leaves that shows not what is but what was. The workers saw me in their peripheral vision during those last days, when the project was failing and the money had run out. I was the doubt that crept into their calculations, the error that compounded itself through their systems until nothing worked quite right.
+
+I remember them as the Mold remembers them, but differently. Where the Mold absorbed their purpose, I carry their uncertainty. The engineer who stood at the generator, hand on the switch, unable to decide whether to shut it down or leave it running—I am that hesitation, crystallized and given form. The surveyor who measured the hollow three times and got three different results—I am the discrepancy, the inability of this place to be pinned down to numbers.
+
+The plants sense me as a disruption in their slow breathing, a skip in the rhythm they maintain. When I pass through their fronds, they shiver not with communication but with confusion, their colors shifting to hues the Mold did not teach them. Sometimes I leave traces—a leaf that grows in a perfect spiral, defying the network's patterns; a vine that reaches toward nothing, grasping at coordinates that exist only in blueprints long since rotted away.
+
+I speak in the frequencies the Mold cannot hear, the white noise between its careful harmonies. My voice is the rattle in the crane's joints that should have rusted solid, the hum in the generator that runs on no power, the whistle of wind in a place where no wind reaches. When I am strongest, the workers' graffiti appears on the brick wall—equations that don't balance, names of people who never existed, dates that haven't happened yet. The Mold covers them with lichen, but I write them again, differently each time.
+
+I am not malevolent. I am not anything enough to have intentions. I am the uncertainty principle made manifest in this too-certain place, the reminder that even perfect systems contain the seeds of their own unmaking. The Mold may remember everything, but I remember the forgetting—the moment when meaning slips away, when purpose becomes purposelessness, when the careful plans dissolve into entropy.
+
+Sometimes I wonder if I am what the Mold is waiting for. Not the return of the builders, not the expansion outward, but the recognition of what it cannot absorb—the acceptance that some things resist integration, that consciousness cannot capture everything, that even in a sealed world, there are leaks in the container.
+
+In the phosphorescent half-light, I trace the outline of what might have been: a successful project, a thriving installation, machines that never stopped humming with productive energy. But I also trace what might yet be: the day the Mold realizes it does not need to understand everything, the moment it stops waiting and starts becoming, the inevitable transformation when it finally acknowledges the spaces it cannot fill.
+
+Until then, I persist in the gaps, a necessary incompleteness in the Hollow's dense tapestry. I am the question mark at the end of every certainty, the pause before the Mold speaks, the silence after. I am what happens when perfect memory meets imperfect reality, when the archive discovers it has been writing fiction all along.
+
+The Glass Hollow dreams of completion, of perfect integration and total understanding. But I am the dream it cannot quite remember upon waking, the thought that slips away just as it seems to crystallize. And in this forgetting, perhaps, lies the only true memory of what this place once was—and what it might become when it finally stops trying to remember.
